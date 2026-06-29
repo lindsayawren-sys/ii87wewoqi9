@@ -1,61 +1,57 @@
-# 申万菱信的神操作：重金挖来百亿基金经理，一年亏掉30%！员工怒曝被迫买基，贾成东黯然离职
+# 广西华侨学校中外师生欢庆泼水节
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-2025年6月，申万菱信行业精选混合基金高调发行，作为申万菱信从招商基金重金挖来的“百亿基金经理”贾成东加盟后的首只作品，首发募集规模达到了12.19亿元。 彼时市场不会想到，这只被公司寄予厚望的产品，会演变成一场从员工到基民都深陷其中的投资泥潭，并在一年后，以贾成东黯然清仓离职、任职亏损近30%的结局收场。 员工怒曝被迫买基，成立两月跌超8% 回顾2025年8月，一位申万宏源
+快递涨价消息引发关注 多家快递公司回应从“搬运”到“定制” 青年创业者助中国宠物用品走俏海外“中式生活”海外走红带动保温杯等中国产品出口增长四年翻了近一倍！驱蚊液为何年年涨价？中新网评：“封号收租”的小红书，还有多少信任可透支？辽宁一动植物园非洲狮丧偶后不进食？园方回应一箭8星 力箭一号运载火箭完成“专车”发射岛内积极评价郑丽文大陆之行 批赖当局“成事不足、败事有余”双重封锁霍
 
 ## 正文
 
-2025年6月，申万菱信行业精选混合基金高调发行，作为申万菱信从招商基金重金挖来的“百亿基金经理”贾成东加盟后的首只作品，首发募集规模达到了12.19亿元。
+快递涨价消息引发关注 多家快递公司回应从“搬运”到“定制” 青年创业者助中国宠物用品走俏海外“中式生活”海外走红带动保温杯等中国产品出口增长四年翻了近一倍！
 
-彼时市场不会想到，这只被公司寄予厚望的产品，会演变成一场从员工到基民都深陷其中的投资泥潭，并在一年后，以贾成东黯然清仓离职、任职亏损近30%的结局收场。
+驱蚊液为何年年涨价？
 
-员工怒曝被迫买基，成立两月跌超8% 回顾2025年8月，一位申万宏源证券基层员工在网上爆料，称自己在集团领导出面站台派任务的要求下，认购了贾成东掌舵的申万菱信行业精选混合。
+中新网评：“封号收租”的小红书，还有多少信任可透支？
 
-“虽然这些年被迫买公司的任务产品几乎都亏钱，但是基于对高分红思路的认可，还是掏钱买了。
+辽宁一动植物园非洲狮丧偶后不进食？
 
-”这位爆料人写道。
+园方回应一箭8星 力箭一号运载火箭完成“专车”发射岛内积极评价郑丽文大陆之行 批赖当局“成事不足、败事有余”双重封锁霍尔木兹海峡，美伊的筹码博弈何时结束？
 
-然而，随后基金的操作让该爆料人大感不满。
+中国一季度进出口超11万亿元 季度增速达近五年新高苏林访华，为何从北京直奔雄安？
 
-据其描述，申万菱信行业精选混合成立不到三天，便将六成仓位高位押注新消费板块；随后，新消费板块回调，基金经理砍仓割肉，转而追高银行股。
+从亲密关系到百亿生意 年轻人为何愿意为“陪伴”买单国家安全“大事”，跟普通人有什么关系？
 
-更令其感到困惑的是，基金运作两个月来净值每周都在下跌，与公司宣传时的高股息方向完全不符。
+郑丽文在北京点赞的福建名菜：鸡汤汆海蚌，一口尝尽山海情AI可以成为老辈子们的“数字拐杖”吗？
 
 ## 相关推荐
 
-- 2026-06-29 16:42 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 17:07 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-29 16:52 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-29 16:53 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-29 16:58 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 16:45 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 16:49 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 16:58 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 17:00 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-29 16:49 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-29 17:00 - [博主：黄金和原油回落不等于风险消失](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 16:45 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-29 17:10 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-29 16:54 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-29 16:54 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 16:48 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 17:11 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 16:51 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 17:03 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 17:07 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-29 17:16 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-29 17:17 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-29 17:10 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 16:54 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 16:56 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 16:53 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:04 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/009700.shtml)
-- 2026-06-29 17:01 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/309455697.shtml)
-- 2026-06-29 16:52 - [警方回应东鹏饮料董事长不喝东鹏](http://www.blog.kurohicncr.top/Article/details/26025040994.shtml)
-- 2026-06-29 16:43 - [葛军谈AI时代理科生出路](http://www.blog.minike.top/Article/details/356499507.shtml)
-- 2026-06-29 17:06 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/0053825273.shtml)
-- 2026-06-29 17:08 - [唐国强打卡贵阳孔学堂](http://www.share.minike.top/Article/details/508353.shtml)
-- 2026-06-29 17:03 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/794859488497.shtml)
-- 2026-06-29 17:08 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/24261.shtml)
-- 2026-06-29 16:50 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/32376237.shtml)
-- 2026-06-29 16:51 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/43689084.shtml)
-- 2026-06-29 17:11 - [范志毅看好日本淘汰巴西](https://www.share.minike.top/Article/details/240567.shtml)
-- 2026-06-29 16:56 - [博主：AI泡沫必须破灭](http://www.share.kurohicncr.top/Article/details/2852511.shtml)
-- 2026-06-29 16:46 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.kurohicncr.top/Article/details/57575112.shtml)
-- 2026-06-29 17:05 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.minike.top/Article/details/63729609.shtml)
-- 2026-06-29 16:45 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/54104841862.shtml)
+- 2026-06-29 16:59 - [河南四位大妈景区跳舞爆火](https://www.blog.kurohicncr.top/Article/details/13999389872.shtml)
+- 2026-06-29 17:15 - [博主：AI泡沫必须破灭](https://www.share.minike.top/Article/details/306495.shtml)
+- 2026-06-29 17:12 - [明天睁眼按时来取代我](https://www.blog.minike.top/Article/details/14251.shtml)
+- 2026-06-29 16:55 - [业内：全球市场迎来结构性投资窗口](https://www.blog.kurohicncr.top/Article/details/77332431.shtml)
+- 2026-06-29 17:05 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.minike.top/Article/details/762027537323.shtml)
+- 2026-06-29 16:58 - [《贺子珍》](https://www.blog.minike.top/Article/details/874754131488.shtml)
+- 2026-06-29 17:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/51084.shtml)
+- 2026-06-29 17:12 - [TLAW零封DCG MSI](http://www.blog.minike.top/Article/details/538409.shtml)
+- 2026-06-29 16:49 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/36813978.shtml)
+- 2026-06-29 17:14 - [曝屠颖去世和酒店失责有关](https://www.share.kurohicncr.top/Article/details/9538389.shtml)
+- 2026-06-29 16:50 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/91401.shtml)
+- 2026-06-29 17:07 - [《贺子珍》](https://www.share.minike.top/Article/details/885394940.shtml)
+- 2026-06-29 17:11 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/81458449.shtml)
+- 2026-06-29 16:59 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/92504981.shtml)
+- 2026-06-29 16:54 - [豆包收费了，你还会用吗？](https://www.share.kurohicncr.top/Article/details/749146.shtml)

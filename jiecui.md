@@ -1,56 +1,60 @@
-# 一线调研丨算力网织就数字经济新底座
+# 中央党校统战教研部副教授叶子鹏：统战干部应当创造什么样的政绩
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-人工智能爆发式增长，对算力需求正呈现出指数级攀升。如何让用算力也像用水电一样既普惠又方便？一张互联互通的全国一体化算力网，正从无到有，不断生长起来。来看记者的一线调研。 记者来到北京人工智能公共算力中心时，工作人员正忙着为企业匹配算力。调度平台上的两个数字，引起了记者的注意。 京能数产技术负责人 田鹏伟：你看这条线，我们的算力峰值利用率现在快冲到100%了。我们可以从内蒙古、宁
+作者简介 叶子鹏 中央党校(国家行政学院)统一战线教研部副教授、统一战线研究中心研究员 统战干部应当创造什么样的政绩 近日，中共中央办公厅印发《关于在全党开展树立和践行正确政绩观学习教育的通知》。经中共中央同意，在全党开展树立和践行正确政绩观学习教育。统战干部肩负着凝聚人心、汇聚力量的时代使命，既要严格对标对表中共中央决策部署和相关精神，恪守党员干部树立和践行正确政绩观的共性要
 
 ## 正文
 
-人工智能爆发式增长，对算力需求正呈现出指数级攀升。
+作者简介 叶子鹏 中央党校(国家行政学院)统一战线教研部副教授、统一战线研究中心研究员 统战干部应当创造什么样的政绩 近日，中共中央办公厅印发《关于在全党开展树立和践行正确政绩观学习教育的通知》。
 
-如何让用算力也像用水电一样既普惠又方便？
+经中共中央同意，在全党开展树立和践行正确政绩观学习教育。
 
-一张互联互通的全国一体化算力网，正从无到有，不断生长起来。
+统战干部肩负着凝聚人心、汇聚力量的时代使命，既要严格对标对表中共中央决策部署和相关精神，恪守党员干部树立和践行正确政绩观的共性要求，又要立足统战工作大团结大联合的本质属性以及统战工作的鲜明特征，树立贴合统战履职实际、彰显统战工作特质的正确政绩观，把政绩扎扎实实体现在固牢圆心、延伸半径、聚强力量、守稳底线的具体成效之中。
 
-来看记者的一线调研。
+政绩不靠“台账厚薄”，而靠“政治圆心固得牢不牢” 统战工作的本质是政治工作，必须旗帜鲜明讲政治，始终从政治上看、从政治上办。
 
-记者来到北京人工智能公共算力中心时，工作人员正忙着为企业匹配算力。
+固守中国共产党的领导这一圆心，是统战干部安身立命的根本政治责任。
 
-调度平台上的两个数字，引起了记者的注意。
+习近平总书记深刻指出，“做好新形势下统战工作，必须掌握规律、坚持原则、讲究方法，最根本的是要坚持党的领导，实行的政策、采取的措施都要有利于坚持和巩固党的领导地位和执政地位”。
 
-京能数产技术负责人 田鹏伟：你看这条线，我们的算力峰值利用率现在快冲到100%了。
+这一重要论述为统战工作锚定了根本政治方向。
 
-我们可以从内蒙古、宁夏这些节点给北京调算力，这会儿的调度率几乎是100%，也就是说能调的基本调完了。
+无论形势如何变化、任务如何艰巨，统战干部都要把中国共产党的领导贯穿统战工作各领域、各方面、全过程，决不能有丝毫偏离、半点动摇。
 
 ## 相关推荐
 
-- 2026-06-29 16:45 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 17:01 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-29 16:45 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-29 17:00 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 17:05 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-29 17:00 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 17:05 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-29 16:47 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-29 17:06 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 16:48 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-29 16:54 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-29 16:53 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 16:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-29 16:58 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-29 17:08 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 17:05 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 16:52 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-29 17:06 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 16:52 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-29 17:10 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-29 16:54 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 17:05 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 17:08 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 17:14 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:06 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/795640147625.shtml)
-- 2026-06-29 16:48 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.kurohicncr.top/Article/details/32753765.shtml)
-- 2026-06-29 16:53 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/973263179282.shtml)
-- 2026-06-29 17:01 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.kurohicncr.top/Article/details/79337045171.shtml)
-- 2026-06-29 16:48 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/85716284.shtml)
-- 2026-06-29 17:08 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/82336.shtml)
-- 2026-06-29 17:00 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/44812.shtml)
-- 2026-06-29 16:50 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/8881860.shtml)
-- 2026-06-29 16:46 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/01328274.shtml)
-- 2026-06-29 17:06 - [5万块的威力](http://www.share.kurohicncr.top/Article/details/929879990.shtml)
-- 2026-06-29 17:10 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/1130613001.shtml)
-- 2026-06-29 16:53 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.minike.top/Article/details/60765.shtml)
-- 2026-06-29 16:58 - [省市招考专家解读山西高考志愿政策](http://www.blog.minike.top/Article/details/8679943.shtml)
-- 2026-06-29 17:09 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.minike.top/Article/details/77149.shtml)
-- 2026-06-29 17:05 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/4742586.shtml)
+- 2026-06-29 17:13 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/815076325.shtml)
+- 2026-06-29 16:56 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/68884.shtml)
+- 2026-06-29 16:59 - [重度抑郁女孩没钱去做心理咨询](http://www.blog.minike.top/Article/details/576933408650.shtml)
+- 2026-06-29 16:55 - [王楚钦欢迎晚宴上打台球](https://www.blog.kurohicncr.top/Article/details/349116.shtml)
+- 2026-06-29 17:02 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/007761075558.shtml)
+- 2026-06-29 17:14 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/424860.shtml)
+- 2026-06-29 17:01 - [小S在香港被偶遇](http://www.share.minike.top/Article/details/63846.shtml)
+- 2026-06-29 17:09 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/1326718.shtml)
+- 2026-06-29 17:15 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/584452.shtml)
+- 2026-06-29 17:17 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/40964549.shtml)
+- 2026-06-29 17:10 - [47天女婴被月嫂摔伤致颅内出血](http://www.blog.minike.top/Article/details/15088.shtml)
+- 2026-06-29 16:49 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.share.kurohicncr.top/Article/details/016632.shtml)
+- 2026-06-29 16:57 - [美的空调 卡bug](http://www.share.minike.top/Article/details/824393802.shtml)
+- 2026-06-29 17:00 - [波兰创该国高温纪录](https://www.share.kurohicncr.top/Article/details/550569056.shtml)
+- 2026-06-29 17:10 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/989894.shtml)

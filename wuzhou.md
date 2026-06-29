@@ -1,46 +1,55 @@
-# 6月16日人民币对美元中间价报6.8108 下调20个基点
+# 西藏共青团组织西藏各界青少年代表开展“国家安全 青春挺膺”活动
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-中新网6月16日电 据中国外汇交易中心网站消息，中国人民银行授权中国外汇交易中心公布，2026年6月16日银行间外汇市场人民币汇率中间价为：1美元对人民币6.8108元，下调20个基点。
+中新网拉萨4月14日电 (赵朗 齐雨晨)在第11个全民国家安全教育日即将到来之际，共青团西藏自治区委员会组织西藏各领域团员和青少年代表共70余人开展“国家安全 青春挺膺”主题党团队日活动。 代表们首先参观了“国家安全长城行”主题展。展览紧扣统筹发展和安全，护航“十五五”新征程时代主题，系统展示了总体国家安全观的深刻内涵与实践要求。参观过程中，讲解员根据大家不同职业不同身份有针对
 
 ## 正文
 
-中新网6月16日电 据中国外汇交易中心网站消息，中国人民银行授权中国外汇交易中心公布，2026年6月16日银行间外汇市场人民币汇率中间价为：1美元对人民币6.8108元，下调20个基点。
+中新网拉萨4月14日电 (赵朗 齐雨晨)在第11个全民国家安全教育日即将到来之际，共青团西藏自治区委员会组织西藏各领域团员和青少年代表共70余人开展“国家安全 青春挺膺”主题党团队日活动。
+
+代表们首先参观了“国家安全长城行”主题展。
+
+展览紧扣统筹发展和安全，护航“十五五”新征程时代主题，系统展示了总体国家安全观的深刻内涵与实践要求。
+
+参观过程中，讲解员根据大家不同职业不同身份有针对性结合实际案例进行生动讲解，大家认真聆听、驻足观看，兴趣十足。
+
+随后，70名代表共上一堂微团课，共学国家安全知识，并开展了知识抢答活动。
+
+据统计，今年该主题团日活动覆盖西藏全区32个县，600多所中学、高校和企事业单位，直接参与青年、团员超3万人次，以“宣传教育+实践体验+党群共建”三位一体模式，打造宣传矩阵，发出雪域国安强音，形成多维立体的强大声势，在广大青年、团员中营造了激扬青春敢担当的良好氛围。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 16:45 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-29 17:06 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 17:03 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 16:51 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-29 16:52 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 16:51 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 16:47 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-29 17:00 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-29 17:00 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-29 17:08 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 16:44 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 17:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-29 17:08 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-29 17:05 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 17:15 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 17:17 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-29 16:56 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 16:55 - [南昌市委书记调整](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 17:03 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-29 17:17 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 16:56 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-29 16:49 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 16:54 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 17:05 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-29 16:55 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:54 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/523607.shtml)
-- 2026-06-29 16:52 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/355185821.shtml)
-- 2026-06-29 17:00 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/452074335.shtml)
-- 2026-06-29 16:53 - [流金岁月](https://www.share.kurohicncr.top/Article/details/155017577316.shtml)
-- 2026-06-29 17:01 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.minike.top/Article/details/931412780.shtml)
-- 2026-06-29 16:54 - [一生一世](http://www.share.kurohicncr.top/Article/details/600201387530.shtml)
-- 2026-06-29 16:51 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/58945.shtml)
-- 2026-06-29 17:08 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.minike.top/Article/details/20119.shtml)
-- 2026-06-29 16:53 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/2713101392.shtml)
-- 2026-06-29 17:02 - [韩国国脚无缘上亿韩元奖金](http://www.share.kurohicncr.top/Article/details/313853864301.shtml)
-- 2026-06-29 16:55 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.minike.top/Article/details/167489916.shtml)
-- 2026-06-29 17:10 - [依法管制阻遏日方军事化危险动向](https://www.share.kurohicncr.top/Article/details/15787053.shtml)
-- 2026-06-29 16:59 - [极限挑战第一季](http://www.blog.minike.top/Article/details/5121412729.shtml)
-- 2026-06-29 17:03 - [博主：全球股市进入“AI极端共振”](http://www.blog.minike.top/Article/details/5844106.shtml)
-- 2026-06-29 16:57 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/61543558865.shtml)
+- 2026-06-29 17:13 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/88202.shtml)
+- 2026-06-29 17:01 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/24824058603.shtml)
+- 2026-06-29 17:17 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/75675.shtml)
+- 2026-06-29 17:11 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/146535732.shtml)
+- 2026-06-29 17:13 - [滾石唱片要求万豪酒店道歉](https://www.blog.kurohicncr.top/Article/details/126156102.shtml)
+- 2026-06-29 16:52 - [豆包收费了，你还会用吗？](https://www.share.kurohicncr.top/Article/details/13942.shtml)
+- 2026-06-29 16:53 - [日本偶像龟梨和也宣布结婚](http://www.share.minike.top/Article/details/4450466.shtml)
+- 2026-06-29 17:08 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/5543110442.shtml)
+- 2026-06-29 17:15 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/986296458128.shtml)
+- 2026-06-29 17:14 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/571944.shtml)
+- 2026-06-29 17:17 - [媒体：中国田径压力与期待并存](https://www.share.minike.top/Article/details/923919.shtml)
+- 2026-06-29 17:10 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/9271336.shtml)
+- 2026-06-29 16:55 - [明天睁眼按时来取代我](https://www.blog.minike.top/Article/details/006921921.shtml)
+- 2026-06-29 17:10 - [曝歌手第七期帮唱阵容](https://www.share.minike.top/Article/details/9413975.shtml)
+- 2026-06-29 16:54 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/1543763.shtml)

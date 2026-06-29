@@ -1,56 +1,58 @@
-# 国家外汇管理局：1-5月银行累计结售汇顺差2145亿美元
+# 广西南宁加速打造面向东盟人工智能产业高地
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-6月15日，国家外汇管理局公布2026年5月银行结售汇和银行代客涉外收付款数据。 国家外汇管理局统计数据显示，2026年5月，银行结汇16676亿元人民币，售汇14229亿元人民币。2026年1-5月，银行累计结汇87624亿元人民币，累计售汇72755亿元人民币。 按美元计值，2026年5月，银行结汇2439亿美元，售汇2081亿美元。2026年1-5月，银行累计结汇1267
+中新网南宁4月16日电(记者 黄艳梅)首届(中国·南宁)人工智能应用创新创业邀请赛颁奖仪式暨2026年南宁市人工智能OPC(一人公司)创业大赛启动仪式15日晚举行。作为中国距离东盟最近的省会城市，南宁正加速汇聚全球人工智能(AI)创新资源，建设面向东盟的人工智能产业高地。 首届(中国·南宁)人工智能应用创新创业邀请赛集结了海内外顶尖选手，逾1200个选手团队报名。参赛项目覆盖“
 
 ## 正文
 
-6月15日，国家外汇管理局公布2026年5月银行结售汇和银行代客涉外收付款数据。
+中新网南宁4月16日电(记者 黄艳梅)首届(中国·南宁)人工智能应用创新创业邀请赛颁奖仪式暨2026年南宁市人工智能OPC(一人公司)创业大赛启动仪式15日晚举行。
 
-国家外汇管理局统计数据显示，2026年5月，银行结汇16676亿元人民币，售汇14229亿元人民币。
+作为中国距离东盟最近的省会城市，南宁正加速汇聚全球人工智能(AI)创新资源，建设面向东盟的人工智能产业高地。
 
-2026年1-5月，银行累计结汇87624亿元人民币，累计售汇72755亿元人民币。
+首届(中国·南宁)人工智能应用创新创业邀请赛集结了海内外顶尖选手，逾1200个选手团队报名。
 
-按美元计值，2026年5月，银行结汇2439亿美元，售汇2081亿美元。
+参赛项目覆盖“AI+”智能制造、数字政务、医疗健康、文化旅游等六大领域，设置“技能大比武”“创新大比拼”“创业大挑战”三大竞赛阶段。
 
-2026年1-5月，银行累计结汇12675亿美元，累计售汇10530亿美元。
+“我们看好南宁的AI产业生态，已初步规划在南宁落地的方案。
 
-2026年5月，银行代客涉外收入52913亿元人民币，对外付款48637亿元人民币。
+未来我们将依托南宁‘研发—孵化—落地’的全链条体系，借助政策、算力和产业资源，推动激光机器人项目产业化发展。
 
-2026年1-5月，银行代客累计涉外收入263340亿元人民币，累计对外付款248803亿元人民币。
+”江苏一参赛获奖项目团队成员马雪娟说。
 
-按美元计值，2026年5月，银行代客涉外收入7738亿美元，对外付款7112亿美元。
+仪式现场举行了投资意向、落地意向、合作意向集中签约仪式，一批优质AI参赛项目与南宁投融资机构、创业园区、产业单位达成合作。
 
 ## 相关推荐
 
-- 2026-06-29 16:46 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 17:07 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-29 17:00 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-29 16:59 - [抓特务票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 17:09 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 17:01 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 16:46 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 17:04 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-29 16:59 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-29 16:49 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-29 16:59 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 17:04 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 17:13 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-29 17:10 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-29 17:13 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 17:03 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-29 17:12 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 17:15 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 16:57 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 17:10 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 17:00 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 17:00 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:07 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/95056730434.shtml)
-- 2026-06-29 17:09 - [韩国国脚无缘上亿韩元奖金](http://www.blog.minike.top/Article/details/5136820578.shtml)
-- 2026-06-29 16:45 - [拍到真的赛博朋克边缘行者了！](http://www.share.kurohicncr.top/Article/details/934076494906.shtml)
-- 2026-06-29 16:55 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/0589359237.shtml)
-- 2026-06-29 16:58 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.minike.top/Article/details/494160.shtml)
-- 2026-06-29 16:49 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.minike.top/Article/details/42978.shtml)
-- 2026-06-29 16:44 - [媒体：中国田径压力与期待并存](http://www.blog.kurohicncr.top/Article/details/11399.shtml)
-- 2026-06-29 17:02 - [苹果ultra2阔折叠已开模测试](https://www.blog.minike.top/Article/details/941809084.shtml)
-- 2026-06-29 16:46 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/80510592.shtml)
-- 2026-06-29 16:52 - [中国战机大片上新](https://www.share.minike.top/Article/details/814853.shtml)
-- 2026-06-29 17:03 - [BB大王横店拍戏](https://www.share.minike.top/Article/details/84635569391.shtml)
-- 2026-06-29 16:57 - [恋与深空发放补偿未得到玩家认可](https://www.share.kurohicncr.top/Article/details/196599980.shtml)
-- 2026-06-29 16:53 - [永远有话聊的原因](https://www.share.minike.top/Article/details/199507353.shtml)
-- 2026-06-29 17:09 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/9967389.shtml)
-- 2026-06-29 17:11 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/92717615089.shtml)
+- 2026-06-29 17:17 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/81896958.shtml)
+- 2026-06-29 17:12 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/816997.shtml)
+- 2026-06-29 17:10 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/66500744358.shtml)
+- 2026-06-29 17:11 - [白宇摘下白玉兰送给杨幂](http://www.blog.minike.top/Article/details/6271416615.shtml)
+- 2026-06-29 17:04 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/315941222438.shtml)
+- 2026-06-29 16:56 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/173602140041.shtml)
+- 2026-06-29 17:16 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/09066.shtml)
+- 2026-06-29 16:52 - [央视曝光高价回收老物件骗局](http://www.blog.kurohicncr.top/Article/details/3967205.shtml)
+- 2026-06-29 17:18 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/55527.shtml)
+- 2026-06-29 16:59 - [爱很美味](https://www.share.kurohicncr.top/Article/details/3408615615.shtml)
+- 2026-06-29 16:59 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.minike.top/Article/details/06010329179.shtml)
+- 2026-06-29 17:03 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/88155022.shtml)
+- 2026-06-29 16:54 - [夏天被这些虫子咬了可能致命](https://www.share.kurohicncr.top/Article/details/09902473.shtml)
+- 2026-06-29 17:14 - [NBA交易](http://www.blog.minike.top/Article/details/834686.shtml)
+- 2026-06-29 16:54 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/79991.shtml)

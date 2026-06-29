@@ -1,56 +1,60 @@
-# 特朗普过去24小时都忙了什么？（2026-06-14）
+# “跨海打球”在山东威海兴起 新潮运动“击”火入境游
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：金十数据 1． 宣称周日将签署协议，海峡即刻开放——特朗普13日发文称，美伊协议“计划明日（14日）签署，签署后霍尔木兹海峡将对所有人开放”。“希望这一进程能迅速、轻松、顺利地完成；如若不然，我们有最终替代方案。” 2． 转发巴基斯坦总理推文——特朗普13日在其“真实社交”媒体平台上转发巴基斯坦总理关
+中新社山东威海4月15日电 题：“跨海打球”在山东威海兴起 新潮运动“击”火入境游 中新社记者 王娇妮 从韩国仁川驶往中国威海的客轮上，携带特制球包的韩国游客日渐增多。他们跨海而来，专为挥杆畅享健步球的乐趣。一股“跨海打球”的新风潮，正悄然兴起。 14日至15日，山东威海经开区东浦湾健步球场上，50余名韩国游客头戴遮阳帽、手持球杆，从腰间装备包中取出彩色小球，四五人一组分组竞技
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社山东威海4月15日电 题：“跨海打球”在山东威海兴起 新潮运动“击”火入境游 中新社记者 王娇妮 从韩国仁川驶往中国威海的客轮上，携带特制球包的韩国游客日渐增多。
 
-来源：金十数据 1． 宣称周日将签署协议，海峡即刻开放——特朗普13日发文称，美伊协议“计划明日（14日）签署，签署后霍尔木兹海峡将对所有人开放”。
+他们跨海而来，专为挥杆畅享健步球的乐趣。
 
-“希望这一进程能迅速、轻松、顺利地完成；如若不然，我们有最终替代方案。
+一股“跨海打球”的新风潮，正悄然兴起。
 
-” 2． 转发巴基斯坦总理推文——特朗普13日在其“真实社交”媒体平台上转发巴基斯坦总理关于24小时内签署美伊和平协议可能性的推文。
+14日至15日，山东威海经开区东浦湾健步球场上，50余名韩国游客头戴遮阳帽、手持球杆，从腰间装备包中取出彩色小球，四五人一组分组竞技。
 
-3． 与英国首相斯塔默通话——英国首相府13日称，英国首相斯塔默当天下午与美国总统特朗普通了电话，支持特朗普结束与伊朗冲突的努力。
+瞄准、挥杆、击球，彩球划出弧线，精准落入远处球洞。
 
-4． 遭国际原子能机构前总干事批评——国际原子能机构前总干事表示，特朗普正在极力表明他的新协议优于“巴拉克·奥巴马”的伊核协议。
+健步球在韩国又称“公园高尔夫”，融合了高尔夫与健步走等运动的特点，以最少杆数击球入洞为目标。
 
-而实际上，该协议似乎不过是让局势回到危机前的状态。
+这项运动装备轻便、消费亲民，近年来在韩国迅速风靡，拥有超百万爱好者。
 
-5． 任命纽约南区联邦检察官——特朗普13日说，将提名其私人律师詹姆斯·麦克唐纳出任纽约南区联邦检察官。
+与韩国隔海相望的中国城市威海，凭借地缘相近、交通便捷等优势，正成为韩国健步球爱好者跨海挥杆的热门目的地。
 
 ## 相关推荐
 
-- 2026-06-29 16:54 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-29 16:50 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-29 16:50 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-29 17:07 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-29 17:09 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 17:03 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-29 17:02 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-29 16:49 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 17:11 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-29 17:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 16:59 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 16:57 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 17:10 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 17:03 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 17:07 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 17:06 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 17:17 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 16:50 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-29 16:48 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 17:00 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 17:11 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 16:59 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-29 16:59 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-29 16:48 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:44 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/00911738.shtml)
-- 2026-06-29 17:07 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/742079.shtml)
-- 2026-06-29 16:48 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/1850121.shtml)
-- 2026-06-29 17:07 - [一家三口吃溪石斑鱼中毒](http://www.share.kurohicncr.top/Article/details/32813.shtml)
-- 2026-06-29 16:47 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.blog.kurohicncr.top/Article/details/9121289077.shtml)
-- 2026-06-29 16:42 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/00817.shtml)
-- 2026-06-29 16:45 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/36640.shtml)
-- 2026-06-29 17:06 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/185856814.shtml)
-- 2026-06-29 16:52 - [天价门票抬高美加墨世界杯观赛门槛](https://www.blog.minike.top/Article/details/249435662.shtml)
-- 2026-06-29 16:47 - [拍到真的赛博朋克边缘行者了！](https://www.blog.minike.top/Article/details/1284017559.shtml)
-- 2026-06-29 17:05 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/53585027646.shtml)
-- 2026-06-29 16:53 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/117784.shtml)
-- 2026-06-29 16:48 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/98982012.shtml)
-- 2026-06-29 17:03 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/8017992525.shtml)
-- 2026-06-29 17:09 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.minike.top/Article/details/0339383.shtml)
+- 2026-06-29 17:16 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/04712541677.shtml)
+- 2026-06-29 17:03 - [王楚钦首轮赢下国乒德比](https://www.blog.kurohicncr.top/Article/details/71719485.shtml)
+- 2026-06-29 17:16 - [杨紫下沉市场口碑](https://www.share.kurohicncr.top/Article/details/971723645542.shtml)
+- 2026-06-29 16:50 - [教育部发布预警 事关高招录取](http://www.share.minike.top/Article/details/663153583813.shtml)
+- 2026-06-29 17:09 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.kurohicncr.top/Article/details/797172723885.shtml)
+- 2026-06-29 17:09 - [韩国队差旅费亏麻了](http://www.share.minike.top/Article/details/31107778411.shtml)
+- 2026-06-29 17:11 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/22807.shtml)
+- 2026-06-29 17:06 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/5896957.shtml)
+- 2026-06-29 16:57 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/973434169099.shtml)
+- 2026-06-29 17:08 - [中方将20家日本实体列入关注名单](https://www.blog.kurohicncr.top/Article/details/29836897.shtml)
+- 2026-06-29 16:57 - [永远保持对人民的赤子之心](https://www.blog.kurohicncr.top/Article/details/721636.shtml)
+- 2026-06-29 17:17 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/76853333.shtml)
+- 2026-06-29 17:07 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/541346.shtml)
+- 2026-06-29 17:06 - [东方风云榜](https://www.share.minike.top/Article/details/527413.shtml)
+- 2026-06-29 17:12 - [苹果ultra2阔折叠已开模测试](https://www.blog.kurohicncr.top/Article/details/5762273.shtml)

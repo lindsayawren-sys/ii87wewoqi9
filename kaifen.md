@@ -1,57 +1,60 @@
-# 龙舟水破纪录！华南强降雨为何这么猛？未来暴雨重心在哪里？
+# 4月16日美股成交额前20：特斯拉称已完成AI5自动驾驶芯片的研发工作
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-来源：中国天气网 龙舟水下到破纪录！近日，南方进入新的强降雨集中期，广东、广西等局地昨天遭遇特大暴雨，多个气象站雨量破纪录。今起三天（6月15日至17日）华南一带强降雨仍将频发，18日起南方主雨带将明显北抬。华南强降雨到底有多猛？为何这么猛？雨带北抬后哪里又将成为降雨核心区？中国天气网气象分析师为你解读。 华南多地龙舟水发威局部雨量破纪录 未来三天强降雨仍频繁 6月12日夜间以
+周三美股成交额第1名特斯拉收高7.64%，成交435.13亿美元。特斯拉成为周三市场焦点，此前该公司首席执行官埃隆·马斯克在X平台上发帖称，公司的AI芯片设计团队已完成AI5自动驾驶芯片的研发工作，这一进展使特斯拉向量产迈进一步。 特斯拉表示，该芯片已完成设计阶段——这一阶段通常被称为“流片”，意味着其蓝图已准备好投入制造。马斯克补充说，AI6、Dojo3及其他芯片也在开发中，
 
 ## 正文
 
-来源：中国天气网 龙舟水下到破纪录！
+周三美股成交额第1名特斯拉收高7.64%，成交435.13亿美元。
 
-近日，南方进入新的强降雨集中期，广东、广西等局地昨天遭遇特大暴雨，多个气象站雨量破纪录。
+特斯拉成为周三市场焦点，此前该公司首席执行官埃隆·马斯克在X平台上发帖称，公司的AI芯片设计团队已完成AI5自动驾驶芯片的研发工作，这一进展使特斯拉向量产迈进一步。
 
-今起三天（6月15日至17日）华南一带强降雨仍将频发，18日起南方主雨带将明显北抬。
+特斯拉表示，该芯片已完成设计阶段——这一阶段通常被称为“流片”，意味着其蓝图已准备好投入制造。
 
-华南强降雨到底有多猛？
+马斯克补充说，AI6、Dojo3及其他芯片也在开发中，同时感谢三星电子和台积电助力AI5实现量产。
 
-为何这么猛？
+第2名英伟达收高1.20%，成交365.43亿美元。
 
-雨带北抬后哪里又将成为降雨核心区？
+截止周三收盘，该股已经连续11个交易日上涨，是自2023年以来最长的连涨纪录。
 
-中国天气网气象分析师为你解读。
+英伟达一直受益于对AI硬件的持续需求。
 
-华南多地龙舟水发威局部雨量破纪录 未来三天强降雨仍频繁 6月12日夜间以来，南方出现新一轮强降雨过程，华南地区龙舟水发威，广东、广西局地遭遇特大暴雨。
+在上个月的GTC大会上，英伟达首席执行官黄仁勋表示，截至2027年，该公司的GPU订单总额超过1万亿美元，其中包括Blackwell及下一代Vera Rubin芯片。
 
 ## 相关推荐
 
-- 2026-06-29 16:54 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 16:47 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 16:44 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-29 16:57 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-29 16:49 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-29 17:05 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-29 16:47 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-29 16:47 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 17:02 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 17:11 - [抓特务票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-29 16:45 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-29 16:52 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 16:52 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-29 16:58 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 16:52 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 17:03 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 16:55 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 16:49 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 17:05 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-29 17:03 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-29 16:48 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-29 17:11 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 17:17 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 17:01 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-29 17:07 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:56 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/0281367.shtml)
-- 2026-06-29 16:44 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/91149226995.shtml)
-- 2026-06-29 17:00 - [韩国国脚无缘上亿韩元奖金](http://www.blog.kurohicncr.top/Article/details/65336634162.shtml)
-- 2026-06-29 16:50 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.kurohicncr.top/Article/details/72676.shtml)
-- 2026-06-29 16:42 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/558303.shtml)
-- 2026-06-29 17:09 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/8725864785.shtml)
-- 2026-06-29 16:54 - [12所大学更正招生目录](https://www.share.kurohicncr.top/Article/details/6022820.shtml)
-- 2026-06-29 16:49 - [中国创新药股价要反攻了吗](https://www.blog.minike.top/Article/details/4278289.shtml)
-- 2026-06-29 17:02 - [撒旦的腋窝是什么比喻](http://www.share.kurohicncr.top/Article/details/75960806211.shtml)
-- 2026-06-29 17:07 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/76942768.shtml)
-- 2026-06-29 16:57 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/7300072.shtml)
-- 2026-06-29 17:07 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/9099295.shtml)
-- 2026-06-29 16:51 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.minike.top/Article/details/03789071.shtml)
-- 2026-06-29 16:54 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/5345887.shtml)
-- 2026-06-29 17:08 - [叠纸](https://www.share.minike.top/Article/details/731270.shtml)
+- 2026-06-29 17:08 - [永远有话聊的原因](https://www.share.minike.top/Article/details/98347288260.shtml)
+- 2026-06-29 16:52 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/24439226.shtml)
+- 2026-06-29 17:14 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/5438952462.shtml)
+- 2026-06-29 16:56 - [妹妹的正确用法！](http://www.share.kurohicncr.top/Article/details/80008736.shtml)
+- 2026-06-29 17:08 - [疑似吴建豪老婆正脸照](http://www.share.minike.top/Article/details/721273236495.shtml)
+- 2026-06-29 16:59 - [曝屠颖去世和酒店失责有关](https://www.blog.minike.top/Article/details/129724962224.shtml)
+- 2026-06-29 17:03 - [男子路过修车店瞬间被喷得一脸黑](http://www.share.kurohicncr.top/Article/details/334532.shtml)
+- 2026-06-29 17:17 - [音乐人屠颖离世家属追责涉事酒店](http://www.share.kurohicncr.top/Article/details/470939.shtml)
+- 2026-06-29 16:49 - [苹果回应恋与深空低分](http://www.share.minike.top/Article/details/61135179.shtml)
+- 2026-06-29 16:59 - [啊啊啊](http://www.share.minike.top/Article/details/416486.shtml)
+- 2026-06-29 16:51 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/70513.shtml)
+- 2026-06-29 17:15 - [撒旦的腋窝是什么比喻](http://www.blog.kurohicncr.top/Article/details/105254246405.shtml)
+- 2026-06-29 17:02 - [女心理师](https://www.share.minike.top/Article/details/39310.shtml)
+- 2026-06-29 16:48 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.minike.top/Article/details/827251.shtml)
+- 2026-06-29 17:11 - [货车司机雨中帮交警挪树获表扬](http://www.blog.kurohicncr.top/Article/details/034096.shtml)

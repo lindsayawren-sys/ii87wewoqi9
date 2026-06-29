@@ -1,56 +1,59 @@
-# 2026年粤港澳大湾区龙舟邀请赛（阳山站）在清远举行
+# 咸阳湖龙舟公开赛将启 双轨赛制赋能全民健身与城市文旅
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-中新网清远6月13日电 (记者 张璐)中国体育彩票·2026年粤港澳大湾区龙舟邀请赛(阳山站)暨第三届阳山县龙舟赛(简称“赛事”)13日在清远市阳山县城江滨东路连江河段开赛。18支龙舟队伍齐聚一江碧水之上，挥桨劈浪、奋勇争先，上演了一场水上版“速度与激情”。数万名市民游客齐聚江岸观赛助威，感受传统民俗与现代竞技交融的独特魅力。 当日，醒狮表演、桨板巡游轮番上演。龙头点睛仪式举行
+中新网陕西咸阳4月15日电 (记者 张一辰)“龙舟赛不仅是竞技的舞台，更是全民健身的生动实践。今年将同步开展群众性龙舟体验活动，鼓励更多市民参与到水上运动中来，共享体育带来的健康与快乐。”咸阳市体育局局长刘杰15日表示。 当日，2026年中国·咸阳湖龙舟公开赛赛事发布会在咸阳市举行。本届龙舟公开赛将于5月2日至3日在咸阳湖统一广场水域开赛。届时，来自全国各地的百余支队伍、近20
 
 ## 正文
 
-中新网清远6月13日电 (记者 张璐)中国体育彩票·2026年粤港澳大湾区龙舟邀请赛(阳山站)暨第三届阳山县龙舟赛(简称“赛事”)13日在清远市阳山县城江滨东路连江河段开赛。
+中新网陕西咸阳4月15日电 (记者 张一辰)“龙舟赛不仅是竞技的舞台，更是全民健身的生动实践。
 
-18支龙舟队伍齐聚一江碧水之上，挥桨劈浪、奋勇争先，上演了一场水上版“速度与激情”。
+今年将同步开展群众性龙舟体验活动，鼓励更多市民参与到水上运动中来，共享体育带来的健康与快乐。
 
-数万名市民游客齐聚江岸观赛助威，感受传统民俗与现代竞技交融的独特魅力。
+”咸阳市体育局局长刘杰15日表示。
 
-当日，醒狮表演、桨板巡游轮番上演。
+当日，2026年中国·咸阳湖龙舟公开赛赛事发布会在咸阳市举行。
 
-龙头点睛仪式举行，嘉宾们手持朱砂笔为龙舟点睛，一笔落下，万象更新，祈愿山河无恙、风调雨顺、国泰民安。
+本届龙舟公开赛将于5月2日至3日在咸阳湖统一广场水域开赛。
 
-活动现场，随着一声令下，激昂的锣鼓声响彻连江两岸，平静的江面瞬间沸腾。
+届时，来自全国各地的百余支队伍、近2000名运动员将齐聚渭水之滨，上演一场“速度与激情”的水上盛宴。
 
-一艘艘龙舟如蛟龙出水、踏浪腾空，参赛队员们身姿挺拔、士气高昂，伴随着整齐划一的鼓点节奏，挥桨击水、起落同步，桨影翻飞划破碧波，浪花飞溅激荡江流。
+在赛制设计上，今年首次推出“专业组”与“大众组”双轨赛制。
 
-经过激烈的角逐，小江镇龙舟队斩获本地组冠军，广州市增城区新塘镇龙舟协会龙舟队获得邀请组冠军。
+专业组面向高水平龙舟队伍，注重竞技性与观赏性；大众组则面向机关、企业、高校、社区等普通爱好者，有效降低参赛门槛，让更多市民有机会亲身体验龙舟运动的魅力。
 
 ## 相关推荐
 
-- 2026-06-29 16:48 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 17:08 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 16:59 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 17:00 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-29 17:03 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-29 17:09 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 17:00 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-29 16:49 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-29 16:58 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-29 16:52 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 17:09 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 17:03 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-29 16:59 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-29 16:53 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 17:03 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 16:53 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 17:17 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 17:03 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-29 17:13 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 17:17 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 17:13 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 16:57 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-29 17:15 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:06 - [老板回应员工光脚清洗土豆](https://www.share.minike.top/Article/details/0106404.shtml)
-- 2026-06-29 17:01 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/332390.shtml)
-- 2026-06-29 17:03 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/779853384.shtml)
-- 2026-06-29 16:53 - [妹妹的正确用法！](https://www.blog.minike.top/Article/details/436329223258.shtml)
-- 2026-06-29 17:01 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/98963618.shtml)
-- 2026-06-29 17:00 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/91381503.shtml)
-- 2026-06-29 16:58 - [欧洲多国高温突破40摄氏度](http://www.blog.minike.top/Article/details/738235.shtml)
-- 2026-06-29 17:04 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/99235837.shtml)
-- 2026-06-29 17:06 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/12922.shtml)
-- 2026-06-29 16:46 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/5125667811.shtml)
-- 2026-06-29 17:07 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/8566553769.shtml)
-- 2026-06-29 16:56 - [拍到真的赛博朋克边缘行者了！](http://www.blog.kurohicncr.top/Article/details/646351542.shtml)
-- 2026-06-29 17:06 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/17029589622.shtml)
-- 2026-06-29 16:52 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/1701243.shtml)
-- 2026-06-29 16:48 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/221164.shtml)
+- 2026-06-29 16:48 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/87290.shtml)
+- 2026-06-29 16:53 - [T1 KC](https://www.blog.minike.top/Article/details/796877461.shtml)
+- 2026-06-29 17:02 - [海口塔吊事故处罚结果公布](http://www.blog.minike.top/Article/details/28786132436.shtml)
+- 2026-06-29 17:03 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/072955389126.shtml)
+- 2026-06-29 16:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/181008.shtml)
+- 2026-06-29 16:57 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/9896069231.shtml)
+- 2026-06-29 17:16 - [夏天被这些虫子咬了可能致命](https://www.blog.minike.top/Article/details/0874464.shtml)
+- 2026-06-29 16:59 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/2733007.shtml)
+- 2026-06-29 16:57 - [韩国队启程回国 全员羞愧低头](https://www.share.minike.top/Article/details/40484451134.shtml)
+- 2026-06-29 16:57 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/5994677.shtml)
+- 2026-06-29 16:49 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/645473.shtml)
+- 2026-06-29 17:17 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/0926895025.shtml)
+- 2026-06-29 17:17 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/86865870179.shtml)
+- 2026-06-29 17:06 - [高市早苗口齿不清被质疑醉酒](https://www.share.minike.top/Article/details/865971361910.shtml)
+- 2026-06-29 16:53 - [小S在香港被偶遇](https://www.blog.minike.top/Article/details/132712638920.shtml)

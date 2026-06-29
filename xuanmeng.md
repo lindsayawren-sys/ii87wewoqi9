@@ -1,49 +1,61 @@
-# 《金融信息服务数据分类分级指南》印发
+# 第139届广交会开幕 展览规模超往届
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-关于印发《金融信息服务数据分类分级指南》的通知 国信办通字〔2026〕2号 各省、自治区、直辖市及新疆生产建设兵团互联网信息办公室，中国人民银行上海总部、各省、自治区、直辖市及计划单列市分行，国家金融监督管理总局各监管局，中国证券监督管理委员会各派出机构，各省、自治区、直辖市及新疆生产建设兵团统计局，国家统计局各调查总队，国家外汇管理局各省、自治区、直辖市及计划单列市分局，有关
+中新社广州4月15日电 (记者 蔡敏婕)第139届中国进出口商品交易会(广交会)15日在广州开幕。本届广交会参展企业超过3.2万家，其中拥有“专精特新”“单项冠军”等称号的优质企业超过1.1万家，均超往届水平。 “常办常新”的广交会吸引采购商总体量稳质升。截至9日，预登记采购商超21万人；确认参会头部采购企业290家，同比增长30%；148家工商机构确认组团参会，同比增长17.
 
 ## 正文
 
-关于印发《金融信息服务数据分类分级指南》的通知 国信办通字〔2026〕2号 各省、自治区、直辖市及新疆生产建设兵团互联网信息办公室，中国人民银行上海总部、各省、自治区、直辖市及计划单列市分行，国家金融监督管理总局各监管局，中国证券监督管理委员会各派出机构，各省、自治区、直辖市及新疆生产建设兵团统计局，国家统计局各调查总队，国家外汇管理局各省、自治区、直辖市及计划单列市分局，有关金融信息服务机构： 为指导金融信息服务机构开展数据分类分级和重要数据识别工作，提升金融信息服务数据安全水平，依据《中华人民共和国网络安全法》、《中华人民共和国数据安全法》、《中华人民共和国个人信息保护法》、《网络数据安全管理条例》、《金融信息服务管理规定》等法律法规规章和政策规定，国家互联网信息办公室、中国人民银行、国家金融监督管理总局、中国证券监督管理委员会、国家统计局、国家
+中新社广州4月15日电 (记者 蔡敏婕)第139届中国进出口商品交易会(广交会)15日在广州开幕。
 
-现印发给你们，请结合实际，认真贯彻执行。
+本届广交会参展企业超过3.2万家，其中拥有“专精特新”“单项冠军”等称号的优质企业超过1.1万家，均超往届水平。
 
-国家互联网信息办公室 中国人民银行 国家金融监督管理总局 中国证券监督管理委员会 国家统计局 国家外汇管理局 2026年6月8日
+“常办常新”的广交会吸引采购商总体量稳质升。
+
+截至9日，预登记采购商超21万人；确认参会头部采购企业290家，同比增长30%；148家工商机构确认组团参会，同比增长17.5%。
+
+来自印度的采购商苏曼·巴拉博穆(SUMAN BALABOMMU)接受中新社记者采访时表示，2014年起，他便频繁到访中国，长期考察各类产品。
+
+本届广交会上，各类前沿科技展品令他印象深刻。
+
+他坦言，中国合作伙伴十分热情友善，不仅细致介绍产品信息，还耐心讲解各项功能，“中国在多个行业均具备领先技术优势，生物工程、化学工程等领域的产品更是全球不可或缺。
+
+我希望未来能持续深化与中国伙伴的合作，共享发展机遇”。
 
 ## 相关推荐
 
-- 2026-06-29 16:54 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-29 16:49 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 16:50 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-29 16:43 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-29 16:43 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 16:52 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-29 16:47 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-29 16:51 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-29 17:03 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 16:47 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-29 17:06 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-29 16:48 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 17:07 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-29 17:13 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 16:57 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 17:17 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-29 17:10 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-29 16:49 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 17:05 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-29 17:05 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 16:53 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 16:50 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-29 16:53 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-29 17:14 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 17:13 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-29 17:13 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-29 17:03 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-29 16:55 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:56 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/267367132715.shtml)
-- 2026-06-29 16:59 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/92073.shtml)
-- 2026-06-29 16:42 - [机器人学校开学了](https://www.blog.kurohicncr.top/Article/details/79087722.shtml)
-- 2026-06-29 16:45 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/755514039122.shtml)
-- 2026-06-29 16:47 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/3621423.shtml)
-- 2026-06-29 17:08 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/219795714241.shtml)
-- 2026-06-29 16:57 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/17092.shtml)
-- 2026-06-29 16:57 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/117555028.shtml)
-- 2026-06-29 16:48 - [唐艺昕告别浪姐千字长文](https://www.blog.minike.top/Article/details/44462076943.shtml)
-- 2026-06-29 16:43 - [舒行钢任湖南省交通运输厅厅长](https://www.share.kurohicncr.top/Article/details/26937.shtml)
-- 2026-06-29 16:50 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/62166997.shtml)
-- 2026-06-29 17:05 - [央视曝光涉黄App诈骗陷阱](https://www.share.kurohicncr.top/Article/details/480526.shtml)
-- 2026-06-29 16:53 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/02492.shtml)
-- 2026-06-29 16:49 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.minike.top/Article/details/12464166789.shtml)
-- 2026-06-29 17:10 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/312040064770.shtml)
+- 2026-06-29 17:11 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/5668272.shtml)
+- 2026-06-29 17:01 - [TFING全员黑西装](https://www.share.minike.top/Article/details/156730802.shtml)
+- 2026-06-29 16:54 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/61298649193.shtml)
+- 2026-06-29 17:11 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/07898.shtml)
+- 2026-06-29 16:52 - [女心理师](https://www.blog.kurohicncr.top/Article/details/1678374.shtml)
+- 2026-06-29 17:03 - [金牌调解](https://www.blog.minike.top/Article/details/796597.shtml)
+- 2026-06-29 17:06 - [业内：全球市场迎来结构性投资窗口](http://www.blog.minike.top/Article/details/5149336754.shtml)
+- 2026-06-29 17:10 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/7201732.shtml)
+- 2026-06-29 17:11 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/97407407.shtml)
+- 2026-06-29 17:17 - [白宇摘下白玉兰送给杨幂](http://www.blog.minike.top/Article/details/02234925.shtml)
+- 2026-06-29 17:02 - [恋与深空发放补偿未得到玩家认可](https://www.blog.kurohicncr.top/Article/details/46207773125.shtml)
+- 2026-06-29 16:54 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/187052854.shtml)
+- 2026-06-29 16:56 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.kurohicncr.top/Article/details/1221881.shtml)
+- 2026-06-29 17:11 - [苹果ultra2阔折叠已开模测试](https://www.share.kurohicncr.top/Article/details/94915.shtml)
+- 2026-06-29 16:56 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/674256327.shtml)

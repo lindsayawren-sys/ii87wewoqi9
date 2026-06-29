@@ -1,56 +1,60 @@
-# 威海银行与恒源控股订立H股认购协议
+# 突然，集体上涨！美伊谈判，最新进展来了！大摩：信号已出现
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-威海银行（09677）发布公告，于2026年6月14日，该行与恒源控股订立H股认购协议，据此恒源控股有条件同意认购，且该行有条件同意配发及发行不超过1.5亿股H股，认购价为每股H股人民币3.29元，现金代价不超过人民币4.94亿元。 本次发行的发行价格为每股人民币3.29元（相当于每股3.61港元较紧接H股认购协议日期前最后交易日香港联交所所报收市价每股H股2.86港元溢价约2
+美伊局势，依然胶着。 北京时间周二晚间，欧洲股市集体走高。截至19时45分，德国DAX30指数、欧洲斯托克50指数涨幅均超过1%。美股期货也集体上涨，纳指期货涨幅超过0.40%。 市场分析人士指出，尽管美国对伊朗港口的封锁已生效，但投资者对美伊和平谈判有望重启抱有期待。摩根士丹利表示，油气价格已经见顶，标普500指数正在构筑底部。 据新华社报道，伊朗迈赫尔通讯社14日报道称，巴
 
 ## 正文
 
-威海银行（09677）发布公告，于2026年6月14日，该行与恒源控股订立H股认购协议，据此恒源控股有条件同意认购，且该行有条件同意配发及发行不超过1.5亿股H股，认购价为每股H股人民币3.29元，现金代价不超过人民币4.94亿元。
+美伊局势，依然胶着。
 
-本次发行的发行价格为每股人民币3.29元（相当于每股3.61港元较紧接H股认购协议日期前最后交易日香港联交所所报收市价每股H股2.86港元溢价约26.22%。
+北京时间周二晚间，欧洲股市集体走高。
 
-本次发行根据股东于2025年9月29日召开的临时股东大会及类别股东会议授出的特别授权发行。
+截至19时45分，德国DAX30指数、欧洲斯托克50指数涨幅均超过1%。
 
-本次发行募集的资金在扣除相关发行费用后的净额将全部用于补充该行核心一级资本。
+美股期货也集体上涨，纳指期货涨幅超过0.40%。
 
-自2026年6月14日起，该行已采用替代门槛以符合香港上市规则第19A.28B条的规定。
+市场分析人士指出，尽管美国对伊朗港口的封锁已生效，但投资者对美伊和平谈判有望重启抱有期待。
 
-责任编辑：卢昱君
+摩根士丹利表示，油气价格已经见顶，标普500指数正在构筑底部。
+
+据新华社报道，伊朗迈赫尔通讯社14日报道称，巴基斯坦外交部一名消息人士透露，巴方已提议美国和伊朗在巴首都伊斯兰堡举行新一轮谈判。
+
+该消息人士表示，目前尚未就美伊新一轮谈判确定具体时间安排。
 
 ## 相关推荐
 
-- 2026-06-29 16:59 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-29 17:09 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-29 17:01 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-29 17:10 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 16:48 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 16:53 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-29 16:56 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-29 17:07 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-29 16:59 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 16:56 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 16:45 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 17:06 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-29 16:57 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 17:07 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 17:17 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 16:55 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-29 17:08 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-29 16:51 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-29 17:11 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 17:11 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 16:54 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-29 17:08 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-29 17:11 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 17:16 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 16:59 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-29 16:48 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 17:01 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-29 17:11 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:11 - [疑似吴建豪老婆正脸照](http://www.blog.minike.top/Article/details/075652869854.shtml)
-- 2026-06-29 17:06 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.share.kurohicncr.top/Article/details/5147525.shtml)
-- 2026-06-29 16:48 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/86223681.shtml)
-- 2026-06-29 16:51 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/189881313626.shtml)
-- 2026-06-29 16:47 - [女心理师](https://www.share.kurohicncr.top/Article/details/96609.shtml)
-- 2026-06-29 16:46 - [职业选手禁止参赛！](http://www.blog.kurohicncr.top/Article/details/1142079528.shtml)
-- 2026-06-29 16:52 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/8041978.shtml)
-- 2026-06-29 16:58 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.blog.kurohicncr.top/Article/details/8831071391.shtml)
-- 2026-06-29 17:05 - [河南四位大妈景区跳舞爆火](http://www.share.minike.top/Article/details/128366307.shtml)
-- 2026-06-29 17:00 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/66265479.shtml)
-- 2026-06-29 16:48 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.kurohicncr.top/Article/details/083808819.shtml)
-- 2026-06-29 16:48 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/37186544197.shtml)
-- 2026-06-29 16:52 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.minike.top/Article/details/02071913.shtml)
-- 2026-06-29 16:47 - [天价门票抬高美加墨世界杯观赛门槛](https://www.blog.kurohicncr.top/Article/details/7729888.shtml)
-- 2026-06-29 17:06 - [河南四位大妈景区跳舞爆火](https://www.share.kurohicncr.top/Article/details/0202695662.shtml)
+- 2026-06-29 17:17 - [博主：黄金和原油回落不等于风险消失](http://www.share.kurohicncr.top/Article/details/21216152.shtml)
+- 2026-06-29 16:59 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/59974.shtml)
+- 2026-06-29 17:09 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.minike.top/Article/details/4087930925.shtml)
+- 2026-06-29 16:51 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.minike.top/Article/details/0068106088.shtml)
+- 2026-06-29 16:54 - [95后小伙突然确诊癌症 医生提醒](http://www.share.kurohicncr.top/Article/details/751682810.shtml)
+- 2026-06-29 17:04 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/8206985414.shtml)
+- 2026-06-29 17:16 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/532328.shtml)
+- 2026-06-29 17:05 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/00305394366.shtml)
+- 2026-06-29 17:14 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.kurohicncr.top/Article/details/8911682.shtml)
+- 2026-06-29 16:59 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.kurohicncr.top/Article/details/445676.shtml)
+- 2026-06-29 17:15 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/540946.shtml)
+- 2026-06-29 17:06 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/6287287.shtml)
+- 2026-06-29 17:06 - [四川地震前夕 街头电线上站满燕子](http://www.blog.minike.top/Article/details/91627279619.shtml)
+- 2026-06-29 17:03 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/311336.shtml)
+- 2026-06-29 17:16 - [小娘惹](https://www.share.kurohicncr.top/Article/details/016944.shtml)

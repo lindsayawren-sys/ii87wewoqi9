@@ -1,55 +1,54 @@
-# 台湾“圆满大叔”在海峡论坛大会喊了个“耶”
+# 特朗普暗示美伊会谈可能在未来两天内恢复
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月13日 20:54 来源：中国新闻网 6月13日，第十八届海峡论坛大会在福建厦门举行。台湾“圆满大叔”、福州外语外贸学院教师康永明在大会发言时直言，自己人生的下半场在大陆开启。两年来，他投身橄榄球推广，推动福建开展橄榄球的学校从45所增加到150所以上。如今，“海峡杯”及两岸青年英式橄榄球交流赛，每年吸引近千名两岸运动员以球会友。未来，康永明希望继续以
+中新网4月15日电 据美国有线电视新闻网(CNN)14日报道，在美国和伊朗试图重返谈判桌之际，美国总统特朗普表示，未来两天在巴基斯坦“可能会发生一些事情”。 报道称，特朗普告诉一位在伊斯兰堡执行采访任务的《纽约邮报》记者：“你应该留在那儿，真的，因为未来两天可能会发生些什么事，我们更倾向于去那里，你知道为什么吗？因为那位陆军元帅做得非常出色。” 特朗普指的是巴基斯坦陆军参谋长阿
 
 ## 正文
 
-发布时间：2026年06月13日 20:54 来源：中国新闻网 6月13日，第十八届海峡论坛大会在福建厦门举行。
+中新网4月15日电 据美国有线电视新闻网(CNN)14日报道，在美国和伊朗试图重返谈判桌之际，美国总统特朗普表示，未来两天在巴基斯坦“可能会发生一些事情”。
 
-台湾“圆满大叔”、福州外语外贸学院教师康永明在大会发言时直言，自己人生的下半场在大陆开启。
+报道称，特朗普告诉一位在伊斯兰堡执行采访任务的《纽约邮报》记者：“你应该留在那儿，真的，因为未来两天可能会发生些什么事，我们更倾向于去那里，你知道为什么吗？
 
-两年来，他投身橄榄球推广，推动福建开展橄榄球的学校从45所增加到150所以上。
+因为那位陆军元帅做得非常出色。
 
-如今，“海峡杯”及两岸青年英式橄榄球交流赛，每年吸引近千名两岸运动员以球会友。
+” 特朗普指的是巴基斯坦陆军参谋长阿西姆·穆尼尔，称他“非常出色”。
 
-未来，康永明希望继续以体育为抓手机深化闽台融合。
+日内瓦也被认为是另一个潜在的和平谈判地点，但特朗普似乎淡化了这种可能性。
 
-发言最后，他在台上与大家比心，喊出“共好才是圆满”，希望台湾青少年多来大陆开拓视野、改变人生。
+“我们为什么要去一个与此事毫无关系的国家？
 
-(记者 郎佳慧 制作 刘鹏） 责任编辑：【吉翔】
+”特朗普说道。
 
 ## 相关推荐
 
-- 2026-06-29 16:43 - [永远有话聊的原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 16:44 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 16:58 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-29 17:04 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-29 17:09 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 16:55 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-29 16:57 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-29 17:05 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 16:53 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 16:48 - [人类对空调和其他家电有多双标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 16:54 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-29 17:04 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 16:48 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 17:08 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 16:55 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 17:09 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-29 17:12 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-29 16:50 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 17:11 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-29 16:57 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-29 17:03 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:09 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/95392020034.shtml)
-- 2026-06-29 16:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/229660858.shtml)
-- 2026-06-29 17:04 - [第一炉香](https://www.share.kurohicncr.top/Article/details/18909619111.shtml)
-- 2026-06-29 17:03 - [机器人学校开学了](https://www.blog.minike.top/Article/details/944066.shtml)
-- 2026-06-29 16:58 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.kurohicncr.top/Article/details/14853197.shtml)
-- 2026-06-29 17:01 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.kurohicncr.top/Article/details/78584830.shtml)
-- 2026-06-29 17:09 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/075008668610.shtml)
-- 2026-06-29 17:06 - [虞书欣好辣的剧宣](https://www.share.kurohicncr.top/Article/details/7396176779.shtml)
-- 2026-06-29 17:08 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.blog.kurohicncr.top/Article/details/86260.shtml)
-- 2026-06-29 17:04 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/30610130440.shtml)
-- 2026-06-29 16:50 - [杨紫下沉市场口碑](https://www.share.minike.top/Article/details/488397.shtml)
-- 2026-06-29 16:46 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/3388902359.shtml)
-- 2026-06-29 16:54 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.kurohicncr.top/Article/details/537261.shtml)
-- 2026-06-29 16:47 - [王俊凯命名方式](http://www.blog.kurohicncr.top/Article/details/642144011566.shtml)
-- 2026-06-29 16:46 - [扬名立万](http://www.share.kurohicncr.top/Article/details/26756879350.shtml)
+- 2026-06-29 17:13 - [虞书欣好辣的剧宣](http://www.share.kurohicncr.top/Article/details/899622.shtml)
+- 2026-06-29 17:11 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/0109037764.shtml)
+- 2026-06-29 17:00 - [外网预言中国举办世界杯时间](http://www.blog.minike.top/Article/details/631294.shtml)
+- 2026-06-29 17:03 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.minike.top/Article/details/97469996.shtml)
+- 2026-06-29 16:53 - [小鹏MONAL03预售定档7月2日](http://www.blog.kurohicncr.top/Article/details/8601416346.shtml)
+- 2026-06-29 17:05 - [送你一朵小红花](https://www.blog.minike.top/Article/details/936994.shtml)
+- 2026-06-29 16:56 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/01280384.shtml)
+- 2026-06-29 17:05 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.blog.minike.top/Article/details/560259817.shtml)
+- 2026-06-29 16:58 - [警方回应东鹏饮料董事长不喝东鹏](https://www.share.minike.top/Article/details/209729508565.shtml)
+- 2026-06-29 16:53 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/162637919580.shtml)
+- 2026-06-29 17:17 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/10480488040.shtml)
+- 2026-06-29 17:14 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.blog.kurohicncr.top/Article/details/309089872996.shtml)
+- 2026-06-29 16:49 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/6339109.shtml)
+- 2026-06-29 16:53 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/52704.shtml)
+- 2026-06-29 17:05 - [22岁民警拦截违法车辆被撞牺牲](https://www.blog.kurohicncr.top/Article/details/874257.shtml)

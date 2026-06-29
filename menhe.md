@@ -1,60 +1,51 @@
-# 华泰期货：关注产区天气变动，豆粕价格延续震荡
+# 人民之心丨“不慕虚荣，不务虚功，不图虚名”
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 薛钧元 粕类市场要闻与重要数据 期货方面，上周末收盘豆粕2609合约2941元/吨，环比上涨23元/吨，涨幅0.79%；上周末收盘菜粕2609合约2259元/吨，环比上涨3元/吨，涨幅0.13%。现货方面，天津地区豆粕现货价格2850元/吨，环比持平，现货基差M09-91，环比下跌23；江苏地区豆粕现货价格2760元/吨，环比上涨20元/吨，现货基差M0
+“党员、干部特别是领导干部要清醒认识到，自己手中的权力、所处的岗位，是党和人民赋予的，是为党和人民做事用的，只能用来为民谋利。”习近平总书记强调，各级领导干部要树立正确的权力观、政绩观、事业观，不慕虚荣，不务虚功，不图虚名，切实做到为官一任、造福一方。 制作：任佳晖 素材来源：人民日报、央视新闻
 
 ## 正文
 
-来源：华泰期货 作者： 薛钧元 粕类市场要闻与重要数据 期货方面，上周末收盘豆粕2609合约2941元/吨，环比上涨23元/吨，涨幅0.79%；上周末收盘菜粕2609合约2259元/吨，环比上涨3元/吨，涨幅0.13%。
+“党员、干部特别是领导干部要清醒认识到，自己手中的权力、所处的岗位，是党和人民赋予的，是为党和人民做事用的，只能用来为民谋利。
 
-现货方面，天津地区豆粕现货价格2850元/吨，环比持平，现货基差M09-91，环比下跌23；江苏地区豆粕现货价格2760元/吨，环比上涨20元/吨，现货基差M09-181，环比下跌3；广东地区豆粕现货价格2730元/吨，环比下跌10元/吨，现货基差M09-211，环比下跌33。
+”习近平总书记强调，各级领导干部要树立正确的权力观、政绩观、事业观，不慕虚荣，不务虚功，不图虚名，切实做到为官一任、造福一方。
 
-福建地区菜粕现货价格2240元/吨，环比下跌40元/吨，现货基差M09-19，环比下跌43。
-
-豆粕：国际方面，巴西国家商品供应公司表示，截至06月05日当周，巴西2025/26年度大豆收割进度为99.80%，较上周进度增加快0.1%。
-
-去年同期的收割进度为99.9%。
-
-截至6月3日，阿根廷25/26年度大豆已收91.7%，前周84.6%，较去同快11个点，较五年均快7.4个点；已收单产3.2吨/公顷，维持产量预估5010万吨不变。
-
-国内方面，据Mysteel农产品调研显示，2026年第23周国内全样本油厂大豆到港共计43.3船约281.45万吨大豆。
-
-其中华东及沿江12.6船，山东及河南9.5船，华北及西北4.7船，东北5船，广西4.5船，广东4船，福建3船，云南0船。
+制作：任佳晖 素材来源：人民日报、央视新闻
 
 ## 相关推荐
 
-- 2026-06-29 17:01 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-29 16:52 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-29 16:57 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-29 16:58 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 16:55 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-29 16:43 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 16:51 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 16:45 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 17:11 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-29 16:48 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-29 16:43 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-29 17:10 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-29 17:11 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-29 16:55 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-29 17:16 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 17:02 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 17:15 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-29 16:59 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 16:49 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 16:59 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-29 17:11 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-29 16:50 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 16:56 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 16:52 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-29 16:51 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-29 17:14 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-29 17:14 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-29 17:04 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 16:59 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:50 - [小娘惹](http://www.blog.minike.top/Article/details/17094738433.shtml)
-- 2026-06-29 16:52 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/0012265.shtml)
-- 2026-06-29 16:47 - [日本前锋言论激怒巴西](https://www.share.kurohicncr.top/Article/details/3634383935.shtml)
-- 2026-06-29 16:50 - [2026世界杯谁能一黑到底](http://www.blog.kurohicncr.top/Article/details/0386196401.shtml)
-- 2026-06-29 16:51 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/56852.shtml)
-- 2026-06-29 17:06 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/548877819.shtml)
-- 2026-06-29 16:42 - [美议员呼吁断供以色列政府](https://www.share.minike.top/Article/details/223604490186.shtml)
-- 2026-06-29 16:57 - [央视曝光涉黄App诈骗陷阱](http://www.share.minike.top/Article/details/48400400033.shtml)
-- 2026-06-29 17:10 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/00242151.shtml)
-- 2026-06-29 17:06 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/223932220.shtml)
-- 2026-06-29 16:56 - [德国连续三天刷新本国最高气温纪录](http://www.blog.kurohicncr.top/Article/details/789589.shtml)
-- 2026-06-29 16:53 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/53471655.shtml)
-- 2026-06-29 16:45 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/7511870.shtml)
-- 2026-06-29 16:43 - [孙怡告别浪姐千字文](https://www.blog.minike.top/Article/details/648634557.shtml)
-- 2026-06-29 17:07 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/6311125.shtml)
+- 2026-06-29 17:06 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.share.minike.top/Article/details/9788521257.shtml)
+- 2026-06-29 17:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/62292703559.shtml)
+- 2026-06-29 17:05 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/474905815.shtml)
+- 2026-06-29 16:57 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.share.kurohicncr.top/Article/details/60934.shtml)
+- 2026-06-29 17:15 - [韩国国脚无缘上亿韩元奖金](http://www.share.kurohicncr.top/Article/details/911869.shtml)
+- 2026-06-29 17:04 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/183278144041.shtml)
+- 2026-06-29 16:52 - [南昌市委书记调整](http://www.blog.kurohicncr.top/Article/details/562850.shtml)
+- 2026-06-29 16:48 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/654994.shtml)
+- 2026-06-29 16:55 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/09790214552.shtml)
+- 2026-06-29 16:54 - [毒液2](http://www.blog.kurohicncr.top/Article/details/7876260.shtml)
+- 2026-06-29 16:54 - [港股爆发 美团百度阿里等集体大涨](https://www.share.kurohicncr.top/Article/details/108075.shtml)
+- 2026-06-29 17:06 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.kurohicncr.top/Article/details/6751543.shtml)
+- 2026-06-29 17:07 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.minike.top/Article/details/53764.shtml)
+- 2026-06-29 16:52 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/1247279.shtml)
+- 2026-06-29 17:05 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/17867337111.shtml)

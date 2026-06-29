@@ -1,52 +1,59 @@
-# 上海医药获控股股东增持3860万股H股
+# 凌晨，见证历史！全线大涨！美联储，重磅发布！
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-上海医药（02607）公布，2026 年 6 月 10 日，公司收到控股股东上海实业（集团）有限公司（以下简称“上实集团”）出具的告知函：2026 年 5 月 6 日至 2026 年 6 月 10 日期间，上海实业（集团）有限公司通过全资子公司上实国际累计增持公司3860万股H股。 本次权益变动后，上海上实（集团）有限公司持有公司股票 1，484，975，837 股，占公司总股
+有史以来最快的大逆转。 在美伊谈判的乐观预期与强劲财报季的双轮驱动下，隔夜纳指、标普500指数持续走强，均创出历史新高，大型科技股全线大涨。据统计数据，纳指在3月30日跌入“超卖”区间后，于本周三进入“超买”区间，这是有数据以来的最快逆转。 另外，美联储的货币政策路径也是市场关注的焦点。美联储最新发布的4月经济形势报告《褐皮书》显示，中东战事是当前美国经济最主要的不确定性来源，
 
 ## 正文
 
-上海医药（02607）公布，2026 年 6 月 10 日，公司收到控股股东上海实业（集团）有限公司（以下简称“上实集团”）出具的告知函：2026 年 5 月 6 日至 2026 年 6 月 10 日期间，上海实业（集团）有限公司通过全资子公司上实国际累计增持公司3860万股H股。
+有史以来最快的大逆转。
 
-本次权益变动后，上海上实（集团）有限公司持有公司股票 1，484，975，837 股，占公司总股本 3，708，361，809 股的 40.04%。
+在美伊谈判的乐观预期与强劲财报季的双轮驱动下，隔夜纳指、标普500指数持续走强，均创出历史新高，大型科技股全线大涨。
 
-权益变动方式为二级市场集中竞价交易方式，增持股份的资金来源为自有资金。
+据统计数据，纳指在3月30日跌入“超卖”区间后，于本周三进入“超买”区间，这是有数据以来的最快逆转。
 
-责任编辑：卢昱君
+另外，美联储的货币政策路径也是市场关注的焦点。
+
+美联储最新发布的4月经济形势报告《褐皮书》显示，中东战事是当前美国经济最主要的不确定性来源，中东紧张局势正推动能源和燃料成本全面上涨，并向运输、化工及农业链条传导。
+
+美伊谈判方面，美国白宫新闻秘书莱维特15日在记者会上说，美国和伊朗可能再次进行面对面会谈的相关讨论仍在进行中，美方对达成协议的前景持乐观态度。
+
+她说，下次会谈地点极有可能仍在巴基斯坦首都伊斯兰堡。
+
+在整个谈判过程中，巴方作为调解方的作用“极其出色”。
 
 ## 相关推荐
 
-- 2026-06-29 16:46 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 16:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-29 17:02 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-29 16:56 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 16:48 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-29 16:53 - [黄金也扛不住了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 16:58 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-29 17:02 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-29 17:08 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 17:04 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 16:44 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 17:04 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-29 16:59 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-29 17:04 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-29 17:02 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-29 16:56 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-29 16:52 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-29 16:54 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 17:11 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 17:11 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-29 16:49 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 17:17 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 16:55 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-29 17:02 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 17:03 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 17:02 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-29 17:07 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:44 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/321835751.shtml)
-- 2026-06-29 16:49 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/43997773202.shtml)
-- 2026-06-29 16:53 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/6709954.shtml)
-- 2026-06-29 17:10 - [2026世界杯谁能一黑到底](http://www.blog.minike.top/Article/details/23965.shtml)
-- 2026-06-29 17:09 - [哈基米歌王争霸赛](http://www.blog.minike.top/Article/details/25284.shtml)
-- 2026-06-29 16:44 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/8567317192.shtml)
-- 2026-06-29 16:45 - [我和我的家乡](http://www.blog.minike.top/Article/details/834748.shtml)
-- 2026-06-29 16:48 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/31628811296.shtml)
-- 2026-06-29 17:03 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/47820337.shtml)
-- 2026-06-29 17:07 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/743043.shtml)
-- 2026-06-29 17:05 - [撒旦的腋窝是什么比喻](http://www.share.minike.top/Article/details/053131424822.shtml)
-- 2026-06-29 17:03 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/6631222309.shtml)
-- 2026-06-29 17:06 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/5141586.shtml)
-- 2026-06-29 17:00 - [2026世界杯谁能一黑到底](https://www.blog.kurohicncr.top/Article/details/114237162544.shtml)
-- 2026-06-29 17:03 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/03466.shtml)
+- 2026-06-29 17:09 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/519117152909.shtml)
+- 2026-06-29 17:13 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/22666465.shtml)
+- 2026-06-29 16:51 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/303616760467.shtml)
+- 2026-06-29 17:01 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/47765.shtml)
+- 2026-06-29 16:49 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/8656459.shtml)
+- 2026-06-29 17:08 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/1615325.shtml)
+- 2026-06-29 17:12 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/99333755800.shtml)
+- 2026-06-29 16:52 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.minike.top/Article/details/3052485817.shtml)
+- 2026-06-29 16:57 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/164461807.shtml)
+- 2026-06-29 17:12 - [差点没看懂白鹿丞磊这段意识流](http://www.share.kurohicncr.top/Article/details/130648639.shtml)
+- 2026-06-29 17:12 - [布里奇斯被交易至太阳](https://www.share.minike.top/Article/details/6859767470.shtml)
+- 2026-06-29 17:05 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/368791631884.shtml)
+- 2026-06-29 16:58 - [东方风云榜红毯](https://www.blog.minike.top/Article/details/895034.shtml)
+- 2026-06-29 17:10 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/610949290.shtml)
+- 2026-06-29 17:12 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/84215739646.shtml)

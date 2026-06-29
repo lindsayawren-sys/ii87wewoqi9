@@ -1,56 +1,59 @@
-# 精准施策盘活薄差储量 大庆油田杏南开发区攻克三类油层开发难题
+# 台湾民调：过半受访者认为台湾须主动面对两岸统一的讨论
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-中新网大庆6月15日电 (裴宇)萨Ⅱ组差层阶段采出程度7.79%，超数值模拟1.88个百分点；区块采收率提升6.31个百分点，整体阶段采出程度达到32.08%。15日，记者从大庆油田获悉，一组实打实的数据，见证大庆油田杏南开发区攻克三类油层差层开发难题的显著成效。 杏南开发区经过长年开采，主力优质油层潜力日渐枯竭，稳产压力逐年加大。辖区内萨Ⅱ组差层储层条件差、渗透率低、层间差异
+中新社台北4月14日电 台湾民间智库“民主文教基金会”14日公布民调显示，有50.7%的受访者认为，台湾必须主动面对两岸统一问题的讨论，并认为这才是保住台湾安全和未来的方法。 综合联合新闻网、中时新闻网、“风传媒”等台湾媒体，民调显示，若将年龄要素与相关问题交叉分析，30岁至39岁年龄段受访者认可“台湾必须主动面对两岸统一问题的讨论”观点的比例最高，约为62.7%；其次是20岁
 
 ## 正文
 
-中新网大庆6月15日电 (裴宇)萨Ⅱ组差层阶段采出程度7.79%，超数值模拟1.88个百分点；区块采收率提升6.31个百分点，整体阶段采出程度达到32.08%。
+中新社台北4月14日电 台湾民间智库“民主文教基金会”14日公布民调显示，有50.7%的受访者认为，台湾必须主动面对两岸统一问题的讨论，并认为这才是保住台湾安全和未来的方法。
 
-15日，记者从大庆油田获悉，一组实打实的数据，见证大庆油田杏南开发区攻克三类油层差层开发难题的显著成效。
+综合联合新闻网、中时新闻网、“风传媒”等台湾媒体，民调显示，若将年龄要素与相关问题交叉分析，30岁至39岁年龄段受访者认可“台湾必须主动面对两岸统一问题的讨论”观点的比例最高，约为62.7%；其次是20岁至29岁年龄段，认同者约55.7%。
 
-杏南开发区经过长年开采，主力优质油层潜力日渐枯竭，稳产压力逐年加大。
+除上述调查结果外，有64.6%受访者认为“若加强接触交流、建立良好关系，更能让两岸维持和平稳定”。
 
-辖区内萨Ⅱ组差层储层条件差、渗透率低、层间差异明显，过去注入压力提不上来，油层吸水能力弱，大量地下储量始终难以动用，一直是制约区块采收率提升的棘手难题。
+对于“两岸如果发生军事冲突，美国会不会无条件派兵保护台湾”的问题，有54.4%受访者认为不会。
 
-大庆油田采油五厂第七作业区技术管理室主任白玉果告诉记者：“这些薄差层先天底子弱，简单注水根本带不动油，粗放开采只会加剧层间矛盾，想要唤醒沉睡储量，必须在注采两端下细功夫，搭配针对性压裂改造措施。
+而就台湾未来方向相关问题，有75.5%受访者支持“主动谈判，争取最好条件”，认为“不接触不交流”者仅占4.3%。
 
-” 针对地层实际情况，技术团队量身打造综合治理方案。
+台湾“中国文化大学”兼任讲座教授杨泰顺指出，调查结果显示，过去受“去中国化”课纲影响的20岁至39岁群体中，不少人已不再视两岸议题为“票房毒药”，且正逐渐与执政党的“抗中”政策脱节。
 
-注水端精细分层调配水量，循序渐进抬高注入压力，疏通地下渗流通道；采油端同步优化生产制度，平衡各层产出差异。
+新党副主席李胜峰也表示，“疑美论”逐渐成为台湾社会主流民意。
 
-对渗流阻力大、储层堵塞严重的油井精准实施压裂作业，拓宽流体流动空间，一井一策补齐储层短板。
+民进党当局坚持将希望全寄托在美国身上的想法，已与社会现实产生落差。
 
 ## 相关推荐
 
-- 2026-06-29 17:01 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-29 16:46 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 16:47 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-29 16:52 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-29 17:00 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 16:44 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-29 16:55 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-29 17:06 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 16:49 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-29 17:08 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 16:56 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-29 17:05 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-29 16:52 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 17:04 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 17:01 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-29 17:09 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 17:01 - [东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-29 16:53 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 17:14 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 16:59 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-29 17:03 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-29 16:50 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-29 17:02 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:50 - [滾石唱片要求万豪酒店道歉](https://www.blog.kurohicncr.top/Article/details/6126681750.shtml)
-- 2026-06-29 17:07 - [TLAW零封DCG MSI](https://www.share.kurohicncr.top/Article/details/562986986.shtml)
-- 2026-06-29 17:00 - [曝歌手第七期帮唱阵容](http://www.blog.kurohicncr.top/Article/details/20950890233.shtml)
-- 2026-06-29 17:00 - [南部战区位南海海域进行例行巡航](https://www.blog.kurohicncr.top/Article/details/80895884605.shtml)
-- 2026-06-29 16:56 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/454053910.shtml)
-- 2026-06-29 16:51 - [世界杯十大帅哥必吃榜](https://www.share.kurohicncr.top/Article/details/947206475.shtml)
-- 2026-06-29 16:57 - [德云色预测世界杯16强](http://www.blog.minike.top/Article/details/079773070528.shtml)
-- 2026-06-29 16:42 - [四川宜宾地震已致13人受轻微伤](https://www.blog.minike.top/Article/details/943276546.shtml)
-- 2026-06-29 17:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/5950872.shtml)
-- 2026-06-29 17:04 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/244891.shtml)
-- 2026-06-29 16:45 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/3366660481.shtml)
-- 2026-06-29 16:55 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.kurohicncr.top/Article/details/5100003.shtml)
-- 2026-06-29 16:51 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.minike.top/Article/details/9382946.shtml)
-- 2026-06-29 16:51 - [东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/895530.shtml)
-- 2026-06-29 16:52 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/524759929566.shtml)
+- 2026-06-29 17:09 - [端午节加班工资应该怎么算](https://www.blog.minike.top/Article/details/18294127260.shtml)
+- 2026-06-29 16:49 - [A股收评：科创50指数大涨4.61%](http://www.blog.minike.top/Article/details/481569.shtml)
+- 2026-06-29 16:53 - [撒旦的腋窝是什么比喻](http://www.blog.minike.top/Article/details/4601531799.shtml)
+- 2026-06-29 17:15 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/9264623411.shtml)
+- 2026-06-29 17:05 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.kurohicncr.top/Article/details/95740862.shtml)
+- 2026-06-29 17:17 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/9950230498.shtml)
+- 2026-06-29 16:49 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/99361472900.shtml)
+- 2026-06-29 16:56 - [逆天祖国人](http://www.share.kurohicncr.top/Article/details/0556530.shtml)
+- 2026-06-29 17:08 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/418994275.shtml)
+- 2026-06-29 17:09 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/37156344.shtml)
+- 2026-06-29 17:03 - [啊啊啊](https://www.blog.minike.top/Article/details/89498.shtml)
+- 2026-06-29 17:16 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/470791315.shtml)
+- 2026-06-29 17:16 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/26613.shtml)
+- 2026-06-29 16:59 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/099985.shtml)
+- 2026-06-29 16:52 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/476340.shtml)

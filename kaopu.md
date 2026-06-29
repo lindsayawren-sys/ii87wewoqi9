@@ -1,57 +1,43 @@
-# 前5个月广西对东盟贸易持续向好 人工智能相关产品进口攀升
+# 恒安国际：许文默将由执行董事调任为非执行董事
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-中新网南宁6月13日电(梁颖)南宁海关近日披露，今年前5个月，广西外贸进出口额达3477.7亿元(人民币，下同)，同比(下同)增长7.2%。呈现对东盟进出口提速、与新兴市场合作加深、人工智能(AI)相关产品进口增长迅猛等特点。广西深度融入共建“一带一路”，对东盟进出口持续提速。今年前5个月，广西对东盟进出口额达1755亿元，增长1.1%；对拉美市场进出口594.3亿元，增长38
+4月15日，恒安国际（01044）发布公告，宣布公司执行董事许文默将于2026年5月18日的股东周年大会上获得重选后，调任为非执行董事，自股东周年大会结束起生效。
 
 ## 正文
 
-中新网南宁6月13日电(梁颖)南宁海关近日披露，今年前5个月，广西外贸进出口额达3477.7亿元(人民币，下同)，同比(下同)增长7.2%。
-
-呈现对东盟进出口提速、与新兴市场合作加深、人工智能(AI)相关产品进口增长迅猛等特点。
-
-广西深度融入共建“一带一路”，对东盟进出口持续提速。
-
-今年前5个月，广西对东盟进出口额达1755亿元，增长1.1%；对拉美市场进出口594.3亿元，增长38.7%，累计增速已连续6个月保持30%以上快速增长。
-
-出口方面，广西高新技术产品出口512.4亿元，同比增长17.3%，液晶平板显示模组、电脑零部件、印刷电路等品类出口稳步走高。
-
-广西绿色低碳产品海外市场拓展势头强劲，前5个月出口“新三样”产品(新能源汽车、锂离子蓄电池和光伏产品)155.8亿元，增幅80.3%，高出同期全国同类商品出口增速34.7个百分点。
-
-进口方面，广西加快发展人工智能产业，AI相关产品进口攀升。
-
-前5个月，广西进口AI相关的集成电路、电脑、电线电缆、印刷电路分别为37.1亿元、22.1亿元、8.7亿元、2.3亿元，分别增长21.8%、5.8倍、11.4%、7.5倍。
+4月15日，恒安国际（01044）发布公告，宣布公司执行董事许文默将于2026年5月18日的股东周年大会上获得重选后，调任为非执行董事，自股东周年大会结束起生效。
 
 ## 相关推荐
 
-- 2026-06-29 16:43 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 17:04 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 16:43 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-29 16:56 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-29 16:59 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-29 16:50 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 17:07 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 17:10 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-29 16:48 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-29 17:00 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-29 16:44 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-29 17:10 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 16:53 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 17:05 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-29 16:59 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-29 16:48 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-29 17:12 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-29 17:08 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-29 17:16 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-29 17:13 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-29 17:07 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 16:57 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:59 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/322556.shtml)
-- 2026-06-29 16:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/106676380.shtml)
-- 2026-06-29 17:02 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/560331.shtml)
-- 2026-06-29 16:56 - [乔家的儿女](https://www.share.minike.top/Article/details/5291357477.shtml)
-- 2026-06-29 16:42 - [南昌市委书记调整](https://www.blog.minike.top/Article/details/52810469519.shtml)
-- 2026-06-29 16:43 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/20039812856.shtml)
-- 2026-06-29 16:44 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/7958082917.shtml)
-- 2026-06-29 16:50 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/74083363093.shtml)
-- 2026-06-29 17:07 - [急先锋](https://www.share.kurohicncr.top/Article/details/406363.shtml)
-- 2026-06-29 16:45 - [机器人学校开学了](https://www.share.kurohicncr.top/Article/details/692910.shtml)
-- 2026-06-29 16:43 - [乔家的儿女](https://www.blog.minike.top/Article/details/559899839.shtml)
-- 2026-06-29 17:08 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.kurohicncr.top/Article/details/767987087.shtml)
-- 2026-06-29 16:46 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/24040.shtml)
-- 2026-06-29 17:04 - [沙丘](http://www.share.minike.top/Article/details/86806826402.shtml)
-- 2026-06-29 16:50 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.minike.top/Article/details/5198162155.shtml)
+- 2026-06-29 17:09 - [王冰冰向全网安利哈兰德](http://www.share.kurohicncr.top/Article/details/21307734489.shtml)
+- 2026-06-29 17:17 - [中国创新药股价要反攻了吗](https://www.blog.minike.top/Article/details/931652318032.shtml)
+- 2026-06-29 16:50 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/62860.shtml)
+- 2026-06-29 17:09 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/16269820.shtml)
+- 2026-06-29 17:16 - [7月1日起一批新规即将落地](http://www.blog.minike.top/Article/details/77647408893.shtml)
+- 2026-06-29 17:15 - [音乐人屠颖离世家属追责涉事酒店](https://www.blog.minike.top/Article/details/368251.shtml)
+- 2026-06-29 17:10 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/3876069.shtml)
+- 2026-06-29 17:07 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/421176.shtml)
+- 2026-06-29 16:48 - [吴建豪宣布再婚](https://www.blog.minike.top/Article/details/18440547268.shtml)
+- 2026-06-29 17:17 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/3341657.shtml)
+- 2026-06-29 16:48 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/3644219.shtml)
+- 2026-06-29 17:03 - [医院大厅放钢琴是形式主义吗](https://www.blog.kurohicncr.top/Article/details/2092450.shtml)
+- 2026-06-29 17:02 - [博主：美航母沦为毒品集散窝点](https://www.blog.kurohicncr.top/Article/details/85454461.shtml)
+- 2026-06-29 17:00 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/059041264731.shtml)
+- 2026-06-29 17:15 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/6111406.shtml)

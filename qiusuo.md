@@ -1,59 +1,55 @@
-# 300506，摘帽！明天停牌
+# 外交部：中美双方就美国总统特朗普访华事保持着沟通
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！ST名家汇（300506）6月14日晚发布公告，公司股票将于6月15日停牌一天，6月16日开市起正式复牌并撤销其他风险警示。本次风险警示撤销后，公司证券简称将由“ST名家汇”变更为“名家汇”，股票日涨跌幅限制维持20%。 ST名家汇主营业务为景观照明工程业务，包含了照明工程的设计、施工及相关照明产品的研发、
+4月15日，外交部发言人郭嘉昆主持例行记者会。有记者就美国财长贝森特近期相关涉华言论提问。对此，郭嘉昆表示，关于伊朗局势，中方已经多次表明了严正立场。关于美国总统特朗普访华，双方就此事保持着沟通。 (总台央视记者 黄惠馨）
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+4月15日，外交部发言人郭嘉昆主持例行记者会。
 
-ST名家汇（300506）6月14日晚发布公告，公司股票将于6月15日停牌一天，6月16日开市起正式复牌并撤销其他风险警示。
+有记者就美国财长贝森特近期相关涉华言论提问。
 
-本次风险警示撤销后，公司证券简称将由“ST名家汇”变更为“名家汇”，股票日涨跌幅限制维持20%。
+对此，郭嘉昆表示，关于伊朗局势，中方已经多次表明了严正立场。
 
-ST名家汇主营业务为景观照明工程业务，包含了照明工程的设计、施工及相关照明产品的研发、生产、销售，应用场景主要为商业照明、市政道路照明、景观装饰照明、农业照明等。
+关于美国总统特朗普访华，双方就此事保持着沟通。
 
-2024年4月，ST名家汇触发两项风险警示情形：其一，2023年经审计净利润（扣非前后孰低）为负且营收不足1亿元，公司被实施退市风险警示；其二，公司连续三个会计年度扣非净利润均为负值，加之2023年、2024年审计报告均提及持续经营存在重大不确定性，公司同步被叠加实施其他风险警示。
-
-2025年5月，ST名家汇因公司2024年营业收入高于1亿元且期末净资产为正值，退市风险警示予以撤销。
-
-但仅4个月后，2025年9月，因被法院裁定受理重整，公司再次被实施退市风险警示。
-
-2026年1月，重整执行完毕，相关退市风险警示正式解除。
+(总台央视记者 黄惠馨）
 
 ## 相关推荐
 
-- 2026-06-29 16:57 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 17:02 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 16:44 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-29 16:58 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 17:10 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-29 17:03 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-29 16:59 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 16:45 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-29 17:02 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 16:50 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-29 16:55 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-29 17:03 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-29 16:59 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-29 17:15 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-29 16:58 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-29 16:55 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-29 17:03 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 17:13 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-29 17:14 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 17:04 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-29 17:13 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-29 17:04 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-29 17:02 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 16:53 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 17:11 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 17:08 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-29 16:56 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-29 17:17 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:49 - [朱必达辞去湖南人大常委会委员职务](http://www.blog.minike.top/Article/details/21188198.shtml)
-- 2026-06-29 16:56 - [广东一地发现极危植物新物种](http://www.blog.minike.top/Article/details/4675983.shtml)
-- 2026-06-29 16:57 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/27998007546.shtml)
-- 2026-06-29 16:53 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/19990.shtml)
-- 2026-06-29 17:04 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/103113.shtml)
-- 2026-06-29 17:02 - [苹果ultra2阔折叠已开模测试](https://www.share.minike.top/Article/details/8719939632.shtml)
-- 2026-06-29 17:10 - [医院大厅放钢琴是形式主义吗](https://www.blog.kurohicncr.top/Article/details/0394539.shtml)
-- 2026-06-29 17:00 - [花万元相亲对象是50元雇的演员](http://www.share.minike.top/Article/details/757148.shtml)
-- 2026-06-29 17:00 - [曝屠颖去世和酒店失责有关](http://www.blog.kurohicncr.top/Article/details/00687.shtml)
-- 2026-06-29 16:45 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/34589393895.shtml)
-- 2026-06-29 16:45 - [流金岁月](http://www.share.kurohicncr.top/Article/details/9485443220.shtml)
-- 2026-06-29 16:51 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/7342277.shtml)
-- 2026-06-29 16:58 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/365963.shtml)
-- 2026-06-29 16:43 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/55754349858.shtml)
-- 2026-06-29 16:55 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/111906856.shtml)
+- 2026-06-29 16:59 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/162034379789.shtml)
+- 2026-06-29 16:57 - [滾石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/9123725999.shtml)
+- 2026-06-29 17:04 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/52855470775.shtml)
+- 2026-06-29 17:06 - [恋与深空失控领地](https://www.blog.minike.top/Article/details/9898877.shtml)
+- 2026-06-29 16:56 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/564212163862.shtml)
+- 2026-06-29 16:56 - [2026世界杯谁能一黑到底](http://www.share.kurohicncr.top/Article/details/317948.shtml)
+- 2026-06-29 16:58 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/3851640986.shtml)
+- 2026-06-29 16:48 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/7892919989.shtml)
+- 2026-06-29 16:58 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/559223951685.shtml)
+- 2026-06-29 17:09 - [韩国队差旅费亏麻了](http://www.share.kurohicncr.top/Article/details/04417.shtml)
+- 2026-06-29 17:13 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/4721654070.shtml)
+- 2026-06-29 17:11 - [林昀儒不敌17岁小将止步首轮](https://www.blog.minike.top/Article/details/843920.shtml)
+- 2026-06-29 16:52 - [李连杰否认不管前妻两女儿](https://www.share.minike.top/Article/details/059973.shtml)
+- 2026-06-29 17:12 - [一生一世](http://www.share.minike.top/Article/details/8505053417.shtml)
+- 2026-06-29 16:56 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/31590.shtml)

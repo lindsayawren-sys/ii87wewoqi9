@@ -1,59 +1,56 @@
-# 股价破发，重要股东接连减持！盛泰集团回应两个关键问题
+# 广西南宁：“大叔”穿上壮锦变身“超模”
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！近日，盛泰集团发布第二大股东伊藤忠卓越纤维（亚洲）有限公司（以下简称伊藤忠亚洲）的减持计划公告，该股东拟减持不超3%的公司股份。而这已经是该股东近一年的第二次减持。除了伊藤忠亚洲的减持，盛泰集团也被第三大股东雅戈尔服装控股有限公司（以下简称雅戈尔服装）多次减
+它凭什么能成人体的“超级维修队”？外媒关注桑切斯访华：“西班牙将中国视为稳定力量”“五一”假期运输首日火车票今天开售 购票日历请查收广西壮族自治区主席韦韬为妻子买的壮锦包，有何特别之处？快递涨价消息引发关注 多家快递公司回应从“搬运”到“定制” 青年创业者助中国宠物用品走俏海外“中式生活”海外走红带动保温杯等中国产品出口增长四年翻了近一倍！驱蚊液为何年年涨价？中新网评：“封号收
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+它凭什么能成人体的“超级维修队”？
 
-近日，盛泰集团发布第二大股东伊藤忠卓越纤维（亚洲）有限公司（以下简称伊藤忠亚洲）的减持计划公告，该股东拟减持不超3%的公司股份。
+外媒关注桑切斯访华：“西班牙将中国视为稳定力量”“五一”假期运输首日火车票今天开售 购票日历请查收广西壮族自治区主席韦韬为妻子买的壮锦包，有何特别之处？
 
-而这已经是该股东近一年的第二次减持。
+快递涨价消息引发关注 多家快递公司回应从“搬运”到“定制” 青年创业者助中国宠物用品走俏海外“中式生活”海外走红带动保温杯等中国产品出口增长四年翻了近一倍！
 
-除了伊藤忠亚洲的减持，盛泰集团也被第三大股东雅戈尔服装控股有限公司（以下简称雅戈尔服装）多次减持。
+驱蚊液为何年年涨价？
 
-两名重要股东接连减持的背后是公司近三年持续下滑的业绩。
+中新网评：“封号收租”的小红书，还有多少信任可透支？
 
-公司2025年的营业收入较2022年下滑超四成，2025年归母净利润较2022年下滑超九成。
+辽宁一动植物园非洲狮丧偶后不进食？
 
-而公司的股价也长期处于破发状态。
+园方回应一箭8星 力箭一号运载火箭完成“专车”发射岛内积极评价郑丽文大陆之行 批赖当局“成事不足、败事有余”双重封锁霍尔木兹海峡，美伊的筹码博弈何时结束？
 
-对于公司的业绩情况及未来增长点，公司回复了《每日经济新闻》记者的采访。
+中国一季度进出口超11万亿元 季度增速达近五年新高苏林访华，为何从北京直奔雄安？
 
 ## 相关推荐
 
-- 2026-06-29 16:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 17:05 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-29 16:44 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-29 17:08 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 16:52 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 16:43 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 17:03 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 16:53 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 16:55 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 16:51 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-29 16:54 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 16:46 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-29 16:47 - [抓特务票房破亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 16:54 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 17:05 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-29 17:11 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 17:15 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-29 17:14 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 16:55 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 17:08 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 16:55 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 17:06 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-29 17:03 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:49 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/88893587.shtml)
-- 2026-06-29 16:45 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.kurohicncr.top/Article/details/95888717346.shtml)
-- 2026-06-29 17:04 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/588019.shtml)
-- 2026-06-29 17:04 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/973104888537.shtml)
-- 2026-06-29 16:45 - [小鹏MONAL03预售定档7月2日](http://www.share.kurohicncr.top/Article/details/954575510420.shtml)
-- 2026-06-29 16:43 - [配音演员于小华病逝 享年78岁](http://www.blog.kurohicncr.top/Article/details/87041.shtml)
-- 2026-06-29 17:06 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/879361537862.shtml)
-- 2026-06-29 16:50 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/080433.shtml)
-- 2026-06-29 16:50 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.blog.kurohicncr.top/Article/details/99201522.shtml)
-- 2026-06-29 16:50 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/6478602.shtml)
-- 2026-06-29 16:52 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.blog.kurohicncr.top/Article/details/97465096622.shtml)
-- 2026-06-29 16:42 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/563648248568.shtml)
-- 2026-06-29 17:04 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/46398536.shtml)
-- 2026-06-29 16:44 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/82298744216.shtml)
-- 2026-06-29 17:03 - [女心理师](https://www.share.minike.top/Article/details/966040513672.shtml)
+- 2026-06-29 17:02 - [TLAW零封DCG MSI](https://www.share.minike.top/Article/details/672469113261.shtml)
+- 2026-06-29 17:13 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/5190822.shtml)
+- 2026-06-29 17:07 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/97677.shtml)
+- 2026-06-29 17:01 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/84373537.shtml)
+- 2026-06-29 17:09 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.minike.top/Article/details/5572925.shtml)
+- 2026-06-29 16:48 - [倪春青跨市履新苏州市委组织部部长](http://www.share.minike.top/Article/details/24157433272.shtml)
+- 2026-06-29 16:52 - [扫黑风暴](https://www.blog.minike.top/Article/details/31908782.shtml)
+- 2026-06-29 16:49 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.minike.top/Article/details/30339.shtml)
+- 2026-06-29 17:03 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/505772168696.shtml)
+- 2026-06-29 17:04 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/06504.shtml)
+- 2026-06-29 16:59 - [逃狱兄弟](https://www.blog.minike.top/Article/details/22838711569.shtml)
+- 2026-06-29 17:17 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.minike.top/Article/details/90781366426.shtml)
+- 2026-06-29 17:08 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/3820344066.shtml)
+- 2026-06-29 17:04 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/980599063.shtml)
+- 2026-06-29 16:53 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/031041888283.shtml)

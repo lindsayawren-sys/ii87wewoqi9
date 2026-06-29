@@ -1,61 +1,56 @@
-# 新任美联储主席首秀迎大考，多重难题接踵而至
+# Bloom Energy扩大与甲骨文的合作以助力人工智能增长
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——新任美联储主席凯文·沃什（Kevin Warsh）即将迎来上任后的首场议息会议和新闻发布会，这场亮相备受全球金融市场瞩目。 当前美国通胀压力犹存，利率走向充满不确定性，叠加美联储内部意见分歧、沟通机制改革等多重任务，沃什的首次公开履职便深陷多重考验。如何平衡政策取向、协调内部声音、推进机制革新，成为他当下亟待破解的难题。 通胀与利率博弈，政策立场难拿捏 当下
+随着人工智能相关电力需求的增长，Bloom Energy公司正在扩大与甲骨文公司的合作。 新协议使Bloom Energy能够提供高达2.8吉瓦的燃料电池容量。其中首批1.2吉瓦目前已在合同约定下并正在部署中。这一扩展反映出企业在建设其人工智能系统时，能源需求的增长有多迅速。 燃料电池正变得越来越有吸引力，因为它们比其他电源能够更快地投入使用。这种速度对于像甲骨文这样试图快速建
 
 ## 正文
 
-汇通财经APP讯——新任美联储主席凯文·沃什（Kevin Warsh）即将迎来上任后的首场议息会议和新闻发布会，这场亮相备受全球金融市场瞩目。
+随着人工智能相关电力需求的增长，Bloom Energy公司正在扩大与甲骨文公司的合作。
 
-当前美国通胀压力犹存，利率走向充满不确定性，叠加美联储内部意见分歧、沟通机制改革等多重任务，沃什的首次公开履职便深陷多重考验。
+新协议使Bloom Energy能够提供高达2.8吉瓦的燃料电池容量。
 
-如何平衡政策取向、协调内部声音、推进机制革新，成为他当下亟待破解的难题。
+其中首批1.2吉瓦目前已在合同约定下并正在部署中。
 
-通胀与利率博弈，政策立场难拿捏 当下美国经济最核心的矛盾，集中在通胀走势与利率调控之间。
+这一扩展反映出企业在建设其人工智能系统时，能源需求的增长有多迅速。
 
-目前国内通胀回落节奏放缓，物价压力持续存在，同时就业数据表现强劲，经济基本面呈现复杂态势。
+燃料电池正变得越来越有吸引力，因为它们比其他电源能够更快地投入使用。
 
-市场各方对于加息、降息还是维持利率不变的判断各执一词，也让利率路径变得模糊。
+这种速度对于像甲骨文这样试图快速建设更多数据中心以跟上AI工作负载不断扩大的计算需求的组织来说至关重要。
 
-此前美联储政策声明中保留了偏向降息的宽松措辞，但已有多名委员提出异议，希望取消这一指引。
+从更宏观的角度看，这笔交易揭示了AI热潮中一个不太为人所知的侧面：电力消耗的增加。
 
-沃什需要明确政策基调，既要应对顽固通胀带来的紧缩诉求，又要顾虑高利率对经济与市场造成的冲击。
+随着云服务提供商的扩张，获取稳定且适应性强的能源与技术本身的发展同样重要。
 
 ## 相关推荐
 
-- 2026-06-29 16:54 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 17:05 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 17:05 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 16:51 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 16:54 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 16:42 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 17:00 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 16:44 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 17:02 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 17:04 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-29 16:57 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 17:03 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-29 17:10 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-29 17:03 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-29 17:03 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 17:01 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 16:51 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 16:51 - [美国大满贯首日国乒主力均取胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-29 16:59 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 17:16 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 16:49 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-29 17:11 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-29 17:06 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 17:11 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 16:52 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:58 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.share.minike.top/Article/details/1068830.shtml)
-- 2026-06-29 17:08 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/99616.shtml)
-- 2026-06-29 16:46 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/153483.shtml)
-- 2026-06-29 16:52 - [巴西球员：日本队有点傲慢了](http://www.share.minike.top/Article/details/9751616087.shtml)
-- 2026-06-29 16:43 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/72141179.shtml)
-- 2026-06-29 16:58 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/065901.shtml)
-- 2026-06-29 16:53 - [职业选手禁止参赛！](http://www.share.minike.top/Article/details/34964916.shtml)
-- 2026-06-29 16:53 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/240474401.shtml)
-- 2026-06-29 17:02 - [税务总局披露5起合规申报个税案例](http://www.blog.minike.top/Article/details/065414.shtml)
-- 2026-06-29 17:06 - [请回答王牌2019](https://www.blog.minike.top/Article/details/90285764.shtml)
-- 2026-06-29 17:01 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/337594624.shtml)
-- 2026-06-29 16:49 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.minike.top/Article/details/8345039943.shtml)
-- 2026-06-29 16:47 - [波兰创该国高温纪录](https://www.blog.minike.top/Article/details/3783514.shtml)
-- 2026-06-29 16:55 - [王楚钦首轮赢下国乒德比](https://www.blog.minike.top/Article/details/51097066979.shtml)
-- 2026-06-29 16:55 - [老板回应员工光脚清洗土豆](https://www.blog.kurohicncr.top/Article/details/2917522.shtml)
+- 2026-06-29 17:16 - [刘扬任湖南省副省长](http://www.share.kurohicncr.top/Article/details/55361577286.shtml)
+- 2026-06-29 17:09 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/2882229.shtml)
+- 2026-06-29 17:03 - [A股割裂行情有变化了吗](https://www.share.minike.top/Article/details/7352425.shtml)
+- 2026-06-29 16:58 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/323703627.shtml)
+- 2026-06-29 16:49 - [1个视频看懂2026志愿填报新专业](https://www.blog.minike.top/Article/details/3057798.shtml)
+- 2026-06-29 16:49 - [法拉利被4个孩子当滑梯玩](http://www.share.kurohicncr.top/Article/details/1375995564.shtml)
+- 2026-06-29 16:51 - [首个靠AI躺赢的国家](http://www.blog.kurohicncr.top/Article/details/60458.shtml)
+- 2026-06-29 16:54 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.kurohicncr.top/Article/details/144516152074.shtml)
+- 2026-06-29 16:56 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/623594762.shtml)
+- 2026-06-29 16:51 - [朱必达辞去湖南人大常委会委员职务](http://www.share.minike.top/Article/details/7898238.shtml)
+- 2026-06-29 17:12 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/6618528.shtml)
+- 2026-06-29 16:50 - [在家赤身裸体是否绝对自由](https://www.share.minike.top/Article/details/6231432983.shtml)
+- 2026-06-29 17:11 - [港股爆发 美团百度阿里等集体大涨](http://www.share.kurohicncr.top/Article/details/201305.shtml)
+- 2026-06-29 17:15 - [撒旦的腋窝是什么比喻](http://www.blog.kurohicncr.top/Article/details/79827162686.shtml)
+- 2026-06-29 17:05 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.minike.top/Article/details/804710.shtml)

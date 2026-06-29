@@ -1,57 +1,56 @@
-# 七国集团峰会在法国开幕 马克龙与特朗普会谈
+# 丁薛祥会见土库曼斯坦民族领袖、人民委员会主席别尔德穆哈梅多夫
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-中新社巴黎6月15日电（记者李洋）七国集团峰会当地时间15日在法国东部小城埃维昂莱班开幕。法国总统马克龙当天与前来参会的美国总统特朗普举行会谈。 根据会议议程，会议将主要围绕中东局势、乌克兰问题、经济的平衡、共享和可持续增长以及人工智能等议题展开讨论。巴西、韩国、埃及、印度、肯尼亚和乌克兰等国领导人受邀与会。 特朗普当天乘机抵达瑞士日内瓦，从日内瓦转抵埃维昂莱班出席七国集团峰会
+新华社阿什哈巴德4月15日电(记者赵博超 安晓萌)4月15日，中共中央政治局常委、国务院副总理丁薛祥在阿什哈巴德会见土库曼斯坦民族领袖、人民委员会主席库尔班古力·别尔德穆哈梅多夫。 丁薛祥首先转达了习近平主席的亲切问候和良好祝愿。丁薛祥表示，在习近平主席同别尔德穆哈梅多夫主席的战略引领下，中土关系保持快速稳定发展，实现了从友好合作伙伴到战略伙伴，再到全面战略伙伴的跨越。中方愿同
 
 ## 正文
 
-中新社巴黎6月15日电（记者李洋）七国集团峰会当地时间15日在法国东部小城埃维昂莱班开幕。
+新华社阿什哈巴德4月15日电(记者赵博超 安晓萌)4月15日，中共中央政治局常委、国务院副总理丁薛祥在阿什哈巴德会见土库曼斯坦民族领袖、人民委员会主席库尔班古力·别尔德穆哈梅多夫。
 
-法国总统马克龙当天与前来参会的美国总统特朗普举行会谈。
+丁薛祥首先转达了习近平主席的亲切问候和良好祝愿。
 
-根据会议议程，会议将主要围绕中东局势、乌克兰问题、经济的平衡、共享和可持续增长以及人工智能等议题展开讨论。
+丁薛祥表示，在习近平主席同别尔德穆哈梅多夫主席的战略引领下，中土关系保持快速稳定发展，实现了从友好合作伙伴到战略伙伴，再到全面战略伙伴的跨越。
 
-巴西、韩国、埃及、印度、肯尼亚和乌克兰等国领导人受邀与会。
+中方愿同土方一道，落实好两国最高领导人重要共识，充分发挥中土合作委员会的作用，推动两国各领域合作加快向前发展。
 
-特朗普当天乘机抵达瑞士日内瓦，从日内瓦转抵埃维昂莱班出席七国集团峰会。
+丁薛祥表示，天然气合作是中土关系互利共赢的鲜明体现，近年稳定发展、成果丰硕，给两国人民带来了实实在在的福祉。
 
-与马克龙的会谈是特朗普出席此次峰会期间的首场官方活动。
+双方要更加注重从战略高度和长远利益看待天然气合作，乘势而上用好合作窗口期，坚持相向而行，加快推进重大项目，扩大天然气合作规模，不断提升能源合作质效。
 
-特朗普尚未确定是否与其他与会领导人举行双边会谈。
+同时进一步提升互联互通、经贸投资等非资源领域合作水平，拓展光伏、风电、新能源汽车、人工智能等领域合作。
 
-马克龙在会谈开始时就美国和伊朗确认就结束战争达成谅解备忘录向特朗普表示祝贺，称这是实现和平的“重要一步”。
+中方愿同土方持续加强在中国－中亚机制框架下的协调配合，支持土库曼斯坦作为永久中立国在联合国等多边舞台发挥更大作用。
 
 ## 相关推荐
 
-- 2026-06-29 16:45 - [T1 KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-29 16:51 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 16:50 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-29 17:02 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 17:01 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-29 17:05 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-29 16:57 - [南昌市委书记调整](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 16:44 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-29 16:44 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-29 16:46 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-29 16:50 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-29 17:16 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-29 16:59 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 17:10 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-29 16:58 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-29 16:52 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-29 16:58 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-29 17:09 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-29 16:50 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 16:55 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 16:48 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:55 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.kurohicncr.top/Article/details/844081.shtml)
-- 2026-06-29 16:43 - [美的“卡bug”空调在欧洲卖爆](https://www.share.minike.top/Article/details/8205834.shtml)
-- 2026-06-29 16:50 - [天价门票抬高美加墨世界杯观赛门槛](https://www.share.kurohicncr.top/Article/details/027208.shtml)
-- 2026-06-29 17:06 - [周生如故](https://www.blog.minike.top/Article/details/17519.shtml)
-- 2026-06-29 16:43 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.minike.top/Article/details/7053311969.shtml)
-- 2026-06-29 16:50 - [95后小伙突然确诊癌症 医生提醒](https://www.blog.minike.top/Article/details/934145921522.shtml)
-- 2026-06-29 17:00 - [舒行钢任湖南省交通运输厅厅长](https://www.share.kurohicncr.top/Article/details/77708537390.shtml)
-- 2026-06-29 17:11 - [唐艺昕告别浪姐千字长文](http://www.blog.kurohicncr.top/Article/details/8128997725.shtml)
-- 2026-06-29 16:56 - [急先锋](http://www.blog.minike.top/Article/details/62533561.shtml)
-- 2026-06-29 16:44 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/9168808.shtml)
-- 2026-06-29 16:50 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/7803665.shtml)
-- 2026-06-29 16:53 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/315714743.shtml)
-- 2026-06-29 17:08 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/19476900016.shtml)
-- 2026-06-29 16:53 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/34928315.shtml)
-- 2026-06-29 16:59 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/270001892.shtml)
+- 2026-06-29 17:17 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/8808530961.shtml)
+- 2026-06-29 17:16 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/753313033.shtml)
+- 2026-06-29 17:02 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.kurohicncr.top/Article/details/1582874.shtml)
+- 2026-06-29 17:15 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.kurohicncr.top/Article/details/46060041730.shtml)
+- 2026-06-29 17:06 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/552301.shtml)
+- 2026-06-29 17:09 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/51629.shtml)
+- 2026-06-29 17:04 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.minike.top/Article/details/62110.shtml)
+- 2026-06-29 16:54 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/174771406.shtml)
+- 2026-06-29 16:52 - [河南四位大妈景区跳舞爆火](http://www.share.kurohicncr.top/Article/details/595867521.shtml)
+- 2026-06-29 17:03 - [永远保持对人民的赤子之心](http://www.blog.minike.top/Article/details/15370352360.shtml)
+- 2026-06-29 17:08 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/58611649.shtml)
+- 2026-06-29 17:11 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.kurohicncr.top/Article/details/0985735557.shtml)
+- 2026-06-29 16:49 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/48490404.shtml)
+- 2026-06-29 17:00 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.kurohicncr.top/Article/details/953995.shtml)
+- 2026-06-29 17:01 - [王楚钦首轮赢下国乒德比](https://www.share.minike.top/Article/details/537907.shtml)

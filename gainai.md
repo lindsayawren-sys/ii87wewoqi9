@@ -1,52 +1,59 @@
-# 2026年“春招”共提供超1268万个岗位
+# Thoma Bravo逐步收缩成长股权投资业务，重新聚焦并购策略
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-记者从人力资源社会保障部了解到，2026年全国城市联合招聘高校毕业生春季专场活动日前结束，共提供超1268万个岗位信息。 活动期间，各地聚焦人工智能、低空经济、绿色低碳、先进制造、数字经济等重点领域，加大优质岗位开发力度。举办西部地区、雄安新区等区域性专场招聘活动，运用AI、大数据，为毕业生提供个性化、精准化的求职服务。线上线下共举办2.3万场招聘会，67.4万家用人单位提供岗
+Thoma Bravo正在退出不久之前还被定位为向更广泛软件市场扩张的一项策略。该公司目前正在逐步收缩其成长股权投资业务——该业务于2021年推出，旨在对上市及非上市的软件公司进行少数股权投资——并转而专注于其拥有控股权的核心并购方式。这一转变可能反映出该公司对其自身优势究竟如何在实践中转化为成果有了更为务实的认识。 这一决定似乎是继内部重新评估之后做出的，评估认为少数股权投资
 
 ## 正文
 
-记者从人力资源社会保障部了解到，2026年全国城市联合招聘高校毕业生春季专场活动日前结束，共提供超1268万个岗位信息。
+Thoma Bravo正在退出不久之前还被定位为向更广泛软件市场扩张的一项策略。
 
-活动期间，各地聚焦人工智能、低空经济、绿色低碳、先进制造、数字经济等重点领域，加大优质岗位开发力度。
+该公司目前正在逐步收缩其成长股权投资业务——该业务于2021年推出，旨在对上市及非上市的软件公司进行少数股权投资——并转而专注于其拥有控股权的核心并购方式。
 
-举办西部地区、雄安新区等区域性专场招聘活动，运用AI、大数据，为毕业生提供个性化、精准化的求职服务。
+这一转变可能反映出该公司对其自身优势究竟如何在实践中转化为成果有了更为务实的认识。
 
-线上线下共举办2.3万场招聘会，67.4万家用人单位提供岗位信息1268.1万个，吸引1352.4万人次高校毕业生参与求职。
+这一决定似乎是继内部重新评估之后做出的，评估认为少数股权投资未能让Thoma Bravo以有意义的方式运用其运营策略。
 
-(总台央视记者 陈钰洁 唐蕾)
+在没有控制权的情况下，该公司影响投资组合公司战略或执行的能力有限，这可能削弱了其相较于传统并购模式的优势。
+
+这家管理着约1830亿美元资产的公司预计将在投完与该平台相关的剩余资本后逐步结束这一策略，其先前的投资包括HubSync和Alation Inc．等公司。
+
+这一时机也与软件行业不断变化的背景相契合，人工智能正开始重塑人们对长期需求的预期。
+
+Anthropic近期发布的产品，包括旨在实现法律、数据服务和金融研究等行业任务自动化的工具，引发了人们对软件生态系统中某些领域可能面临压力的担忧。
 
 ## 相关推荐
 
-- 2026-06-29 17:06 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 16:54 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 17:05 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 17:07 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 16:43 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 16:56 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-29 16:59 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 17:01 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 16:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 16:45 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-29 16:57 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-29 17:11 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-29 17:00 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 17:17 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-29 17:13 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-29 17:13 - [博主：黄金和原油回落不等于风险消失](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 16:55 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 16:58 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 16:56 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 16:59 - [博主：美航母沦为毒品集散窝点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 17:08 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 16:55 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-29 16:56 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-29 16:56 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-29 17:06 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:09 - [博主：AI泡沫必须破灭](http://www.blog.kurohicncr.top/Article/details/033323166450.shtml)
-- 2026-06-29 16:51 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.minike.top/Article/details/282878195201.shtml)
-- 2026-06-29 16:58 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/784363.shtml)
-- 2026-06-29 17:05 - [每代父母都困在自己的时代里](http://www.share.kurohicncr.top/Article/details/031240034.shtml)
-- 2026-06-29 16:42 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/2355408300.shtml)
-- 2026-06-29 16:51 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/463534.shtml)
-- 2026-06-29 16:56 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/9734601.shtml)
-- 2026-06-29 16:43 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/0298079248.shtml)
-- 2026-06-29 16:51 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.kurohicncr.top/Article/details/6512509.shtml)
-- 2026-06-29 16:54 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/6663407.shtml)
-- 2026-06-29 17:07 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.minike.top/Article/details/046023520.shtml)
-- 2026-06-29 17:02 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/36743864.shtml)
-- 2026-06-29 17:07 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/8870382.shtml)
-- 2026-06-29 16:46 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/56395.shtml)
-- 2026-06-29 17:06 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/49443112938.shtml)
+- 2026-06-29 16:51 - [恋与深空发放补偿未得到玩家认可](https://www.blog.kurohicncr.top/Article/details/7166738188.shtml)
+- 2026-06-29 17:08 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.share.minike.top/Article/details/4619759555.shtml)
+- 2026-06-29 16:54 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.minike.top/Article/details/25086520.shtml)
+- 2026-06-29 17:07 - [评论员：日菲勾连各有盘算](https://www.blog.kurohicncr.top/Article/details/393463.shtml)
+- 2026-06-29 17:06 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/938952.shtml)
+- 2026-06-29 16:53 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/24631974.shtml)
+- 2026-06-29 17:06 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/156923618.shtml)
+- 2026-06-29 17:07 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/7521700579.shtml)
+- 2026-06-29 16:50 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/834640502.shtml)
+- 2026-06-29 17:08 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/2569351578.shtml)
+- 2026-06-29 17:13 - [徐昕暂不参加NBA夏季联赛](http://www.share.minike.top/Article/details/90611265.shtml)
+- 2026-06-29 16:55 - [业内：全球市场迎来结构性投资窗口](https://www.blog.kurohicncr.top/Article/details/382773.shtml)
+- 2026-06-29 16:49 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.kurohicncr.top/Article/details/59156988.shtml)
+- 2026-06-29 16:49 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/72878736.shtml)
+- 2026-06-29 16:52 - [明天睁眼按时来取代我](https://www.blog.minike.top/Article/details/8359487385.shtml)

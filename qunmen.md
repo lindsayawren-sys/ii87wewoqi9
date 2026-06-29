@@ -1,60 +1,51 @@
-# （活力中国调研行）聚链成势 北京机器人产业加速跑
+# 伊朗总统：任何力量都不能迫使伊朗人民投降
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-中新网北京6月15日电 (记者 陈杭)北京中关村(海淀)具身智能创新产业园内的绿茵场上，6台人形机器人进行全程无人类遥控的3v3足球对抗，带球、传球、射门等一气呵成。 记者连日来跟随2026年“活力中国调研行”北京主题采访活动走进中试平台与企业，沿着研发生产—数据训练—场景验证的轨迹，感受机器人产业聚链成势，迈向规模化部署。 走进北京人形机器人创新中心中试验证平台，记者了解到，
+新华社德黑兰4月15日电(记者沙达提)伊朗总统佩泽希齐扬15日在视察伊朗红新月会时发表讲话说，他相信任何力量都不能迫使伊朗人民投降。 佩泽希齐扬说，美国和以色列袭击伊朗的学校和医院等民用设施，意味着他们完全无视人道主义原则，“这是可耻的，全世界都应该看到”。 佩泽希齐扬说：“他们(美国和以色列)声称我们(伊朗人)是恐怖分子，而他们才是真正的恐怖分子，因为他们随时随地随意杀人，然
 
 ## 正文
 
-中新网北京6月15日电 (记者 陈杭)北京中关村(海淀)具身智能创新产业园内的绿茵场上，6台人形机器人进行全程无人类遥控的3v3足球对抗，带球、传球、射门等一气呵成。
+新华社德黑兰4月15日电(记者沙达提)伊朗总统佩泽希齐扬15日在视察伊朗红新月会时发表讲话说，他相信任何力量都不能迫使伊朗人民投降。
 
-记者连日来跟随2026年“活力中国调研行”北京主题采访活动走进中试平台与企业，沿着研发生产—数据训练—场景验证的轨迹，感受机器人产业聚链成势，迈向规模化部署。
+佩泽希齐扬说，美国和以色列袭击伊朗的学校和医院等民用设施，意味着他们完全无视人道主义原则，“这是可耻的，全世界都应该看到”。
 
-走进北京人形机器人创新中心中试验证平台，记者了解到，机器人从原材料出库、上线，到整机测试、装箱入库等全流程生产仅需一天多时间。
+佩泽希齐扬说：“他们(美国和以色列)声称我们(伊朗人)是恐怖分子，而他们才是真正的恐怖分子，因为他们随时随地随意杀人，然后还公开谈论人权。
 
-中心生产负责人黄哲表示，自2025年投用以来，平台已具备试制生产和测试设备500台套的能力，具身智能机器人年产能可达5000台套，搭建起了从技术研发到产品转化、从小批量试制到规模化生产准备的桥梁。
+”佩泽希齐扬指出，美国和以色列对伊朗基础设施的袭击暴露了他们的绝望和软弱。
 
-机器人下线后要进行数百项全量测试，逐一过关方可“放行”。
-
-出厂后，需数据训练才能真正上岗。
-
-千寻智能训练场内，工作人员身穿便携式数采装备，“带着”机器人学习物体夹取与移动；不远处，铅笔、笔盒、遥控器等物品凌乱放置，机器人自主决策并规划任务优先级，先将笔归位，再收纳遥控器。
-
-“数据是具身智能模型进化的燃料，依托动作研发、数据采集、模型训练与推理运行，赋予机器人自主理解任务、动态调整操作策略的能力。
+佩泽希齐扬谴责一些国家在美国和以色列的行动面前保持沉默，对中国、俄罗斯、土耳其、阿塞拜疆、伊拉克等友好国家的支持表示感谢。
 
 ## 相关推荐
 
-- 2026-06-29 16:52 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-29 17:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 16:44 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 17:01 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-29 16:50 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-29 17:08 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-29 16:42 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 17:02 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 16:44 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-29 16:54 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 16:59 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-29 17:00 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-29 17:10 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-29 17:03 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-29 17:12 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 17:17 - [疑似吴建豪老婆正脸照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 17:14 - [人类对空调和其他家电有多双标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 16:56 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-29 16:55 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 17:14 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 16:55 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 17:09 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 17:02 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-29 16:48 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-29 16:54 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:47 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/966135.shtml)
-- 2026-06-29 17:04 - [刘嘉玲为64岁梁朝伟庆生](http://www.blog.minike.top/Article/details/5737172619.shtml)
-- 2026-06-29 16:59 - [货车司机雨中帮交警挪树获表扬](https://www.blog.kurohicncr.top/Article/details/97214000354.shtml)
-- 2026-06-29 17:07 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/58373184295.shtml)
-- 2026-06-29 16:42 - [小说《无悔追踪》翻红](http://www.blog.kurohicncr.top/Article/details/2161425806.shtml)
-- 2026-06-29 16:46 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.kurohicncr.top/Article/details/418240.shtml)
-- 2026-06-29 17:06 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/79572.shtml)
-- 2026-06-29 16:54 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/4420130.shtml)
-- 2026-06-29 17:11 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/76734.shtml)
-- 2026-06-29 16:54 - [曝屠颖去世和酒店失责有关](http://www.blog.kurohicncr.top/Article/details/7902023499.shtml)
-- 2026-06-29 16:53 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/762541.shtml)
-- 2026-06-29 17:08 - [尹恩惠自曝14年没谈过恋爱](http://www.share.kurohicncr.top/Article/details/7147151285.shtml)
-- 2026-06-29 17:04 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/05860043773.shtml)
-- 2026-06-29 16:53 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/32535.shtml)
-- 2026-06-29 16:57 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/3139786160.shtml)
+- 2026-06-29 17:03 - [7款商保创新药“转道”](http://www.share.minike.top/Article/details/801659.shtml)
+- 2026-06-29 17:12 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/42932.shtml)
+- 2026-06-29 17:14 - [东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/390372264.shtml)
+- 2026-06-29 17:15 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/184269985277.shtml)
+- 2026-06-29 17:00 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/449029.shtml)
+- 2026-06-29 17:03 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/24452534.shtml)
+- 2026-06-29 16:52 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/527975974542.shtml)
+- 2026-06-29 17:15 - [青春环游记第三季](http://www.blog.minike.top/Article/details/240028652392.shtml)
+- 2026-06-29 17:10 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.blog.minike.top/Article/details/160923.shtml)
+- 2026-06-29 16:58 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.kurohicncr.top/Article/details/12166.shtml)
+- 2026-06-29 16:51 - [天道](http://www.share.minike.top/Article/details/9666729027.shtml)
+- 2026-06-29 17:06 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/493561105995.shtml)
+- 2026-06-29 16:55 - [李在镕：计划将光州作为芯片生产基地](http://www.share.minike.top/Article/details/67664.shtml)
+- 2026-06-29 17:15 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/158269922.shtml)
+- 2026-06-29 16:52 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/6257477631.shtml)

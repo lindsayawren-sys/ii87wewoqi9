@@ -1,57 +1,51 @@
-# 康耐特光学完成2026年4月H股回购方案
+# 快讯：WTI原油日内大跌4.00%，现报88.37美元/桶
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-康耐特光学（02276）发布公告，于2026年4月7日，董事会批准2026年4月H股回购方案，据此，本公司可于联交所购回总额不超过4亿港元的H股，惟须受该公告所载列条款规限并须根据该等条款进行。2026年4月8日发布的2026年4月H股回购方案已于2026年6月5日完成。 于2026年4月H股回购方案期间内，本公司已于联交所购回合共865.52万股H股，总代价为约3.98亿港元
+WTI原油日内大跌4.00%，现报88.37美元/桶。 消息面上，记者当地时间4月14日获悉，美国总统特朗普在最新采访中表示，美国对伊朗的战争已经“结束”。责任编辑：朱赫楠
 
 ## 正文
 
-康耐特光学（02276）发布公告，于2026年4月7日，董事会批准2026年4月H股回购方案，据此，本公司可于联交所购回总额不超过4亿港元的H股，惟须受该公告所载列条款规限并须根据该等条款进行。
+WTI原油日内大跌4.00%，现报88.37美元/桶。
 
-2026年4月8日发布的2026年4月H股回购方案已于2026年6月5日完成。
+消息面上，记者当地时间4月14日获悉，美国总统特朗普在最新采访中表示，美国对伊朗的战争已经“结束”。
 
-于2026年4月H股回购方案期间内，本公司已于联交所购回合共865.52万股H股，总代价为约3.98亿港元（不包括交易成本）。
-
-截至2026年5月4日至2026年6月5日期间，本公司根据2026年4月H股回购方案于联交所继续进行一系列H股回购，合共购回602.67万股H股（5至6月股份回购），占本公司截至本公告日期的已发行H股总数约1.195%。
-
-根据董事会于2026年6月15日通过的决议案，本公司根据5至6月股份回购所购回的602.67万股H股均于2026年6月15日悉数注销。
-
-用于5至6月股份回购的资金总额为约2.68亿港元（不包括交易成本）。
-
-待上述602.67万股H股注销后，本公司的已发行H股总数将由5.04亿股H股削减至4.98亿股H股。
-
-责任编辑：卢昱君
+责任编辑：朱赫楠
 
 ## 相关推荐
 
-- 2026-06-29 16:46 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 16:45 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-29 16:52 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-29 16:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 17:05 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 17:10 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-29 16:51 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-29 17:00 - [抓特务票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-29 17:10 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-29 17:05 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-29 16:59 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 16:49 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-29 17:03 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-29 16:49 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-29 17:14 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 16:59 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 16:49 - [医院大厅放钢琴是形式主义吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 16:57 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 17:00 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-29 17:00 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-29 16:56 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 16:50 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-29 17:11 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 17:15 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-29 17:12 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 17:02 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:43 - [急先锋](https://www.blog.kurohicncr.top/Article/details/40643063071.shtml)
-- 2026-06-29 16:59 - [未成年少女长期吸毒导致卧床不起](http://www.blog.minike.top/Article/details/43362836458.shtml)
-- 2026-06-29 17:01 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/950554.shtml)
-- 2026-06-29 17:11 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/349538994137.shtml)
-- 2026-06-29 17:01 - [韩剧编剧又升级了](http://www.share.minike.top/Article/details/55484738.shtml)
-- 2026-06-29 16:50 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/3285687123.shtml)
-- 2026-06-29 16:47 - [女心理师](https://www.blog.minike.top/Article/details/7377293289.shtml)
-- 2026-06-29 16:54 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/24353283087.shtml)
-- 2026-06-29 16:48 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.kurohicncr.top/Article/details/53031597.shtml)
-- 2026-06-29 16:53 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/539427813.shtml)
-- 2026-06-29 17:10 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/55066559796.shtml)
-- 2026-06-29 17:06 - [叠纸](https://www.blog.kurohicncr.top/Article/details/03300917837.shtml)
-- 2026-06-29 17:07 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/266538488149.shtml)
-- 2026-06-29 16:59 - [上海小区惊现鳄鱼](http://www.share.kurohicncr.top/Article/details/13303081.shtml)
-- 2026-06-29 16:55 - [三星与SK集团或将投资2000万亿韩元](http://www.share.kurohicncr.top/Article/details/52050741075.shtml)
+- 2026-06-29 16:50 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/56931.shtml)
+- 2026-06-29 16:57 - [一家三口吃溪石斑鱼中毒](http://www.share.minike.top/Article/details/3735762.shtml)
+- 2026-06-29 17:12 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.minike.top/Article/details/69955.shtml)
+- 2026-06-29 17:15 - [小说《无悔追踪》翻红](http://www.blog.minike.top/Article/details/19523204014.shtml)
+- 2026-06-29 16:52 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/371571356.shtml)
+- 2026-06-29 16:50 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/94594636920.shtml)
+- 2026-06-29 16:50 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/53629509.shtml)
+- 2026-06-29 17:00 - [和周杰伦在演唱会合唱了](https://www.blog.kurohicncr.top/Article/details/862964232.shtml)
+- 2026-06-29 16:55 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/81297810.shtml)
+- 2026-06-29 17:01 - [世界杯十大帅哥必吃榜](http://www.blog.kurohicncr.top/Article/details/1658456594.shtml)
+- 2026-06-29 16:48 - [T1 KC](http://www.blog.minike.top/Article/details/752636365224.shtml)
+- 2026-06-29 17:17 - [恋与深空发放补偿未得到玩家认可](https://www.share.kurohicncr.top/Article/details/2872405.shtml)
+- 2026-06-29 17:02 - [林昀儒止步美国大满贯首轮](https://www.blog.minike.top/Article/details/32913940.shtml)
+- 2026-06-29 16:48 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/753985.shtml)
+- 2026-06-29 17:16 - [杨紫下沉市场口碑](https://www.share.kurohicncr.top/Article/details/563582416280.shtml)

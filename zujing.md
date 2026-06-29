@@ -1,60 +1,55 @@
-# 2026北京白塔文化周启幕 特展聚焦“阿尼哥和他的艺术时代”
+# 美专家：美国政府已经失去体制约束
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-中新网北京6月13日电(记者 徐婧)2026北京白塔文化周13日开幕。本届文化周将目光聚焦于白塔的缔造者——尼泊尔杰出工艺家阿尼哥，推出“西天梵相——阿尼哥和他的艺术时代”特展，并举办文化讲座、教育活动、尼泊尔文化市集等。 本届文化周由北京市文物局主办，首都博物馆与北京市白塔寺管理处承办，旨在以塔为媒，续写中尼两国跨越喜马拉雅的深厚情谊。作为核心亮点，“西天梵相——阿尼哥和他的
+当地时间13日，美国哥伦比亚大学教授、知名经济学家杰弗里·萨克斯在接受采访时表示，美国和以色列对伊朗发动的战争是一场灾难，这是美国政府一时“心血来潮”发动的战争，充分说明了美国政府已经失去体制约束。 哥伦比亚大学教授 杰弗里·萨克斯：这场战争是一场灾难，它将引发一场全球危机。这甚至不是一场出于理性选择，而是一时心血来潮发动的战争。这充分说明美国政府已经失去体制约束，而国会完全没
 
 ## 正文
 
-中新网北京6月13日电(记者 徐婧)2026北京白塔文化周13日开幕。
+当地时间13日，美国哥伦比亚大学教授、知名经济学家杰弗里·萨克斯在接受采访时表示，美国和以色列对伊朗发动的战争是一场灾难，这是美国政府一时“心血来潮”发动的战争，充分说明了美国政府已经失去体制约束。
 
-本届文化周将目光聚焦于白塔的缔造者——尼泊尔杰出工艺家阿尼哥，推出“西天梵相——阿尼哥和他的艺术时代”特展，并举办文化讲座、教育活动、尼泊尔文化市集等。
+哥伦比亚大学教授 杰弗里·萨克斯：这场战争是一场灾难，它将引发一场全球危机。
 
-本届文化周由北京市文物局主办，首都博物馆与北京市白塔寺管理处承办，旨在以塔为媒，续写中尼两国跨越喜马拉雅的深厚情谊。
+这甚至不是一场出于理性选择，而是一时心血来潮发动的战争。
 
-作为核心亮点，“西天梵相——阿尼哥和他的艺术时代”特展13日对公众免费开放。
+这充分说明美国政府已经失去体制约束，而国会完全没有发挥作用，甚至连最基本的跨机构磋商都毫无迹象，也就听到过情报机构和参谋长联席会议提出了异议。
 
-展览系统性地以阿尼哥为核心，通过“梵源·匠星”“梵汉·相融”“梵艺·传承”三大篇章，汇聚各时期珍贵佛造像，辅以多媒体互动装置，生动还原元代佛教艺术中国化的历程，深刻诠释中华文明开放包容、兼收并蓄的文化品格。
+以色列和美国共同在中东地区制造了一场灾难，以色列此前已经犯下了种族灭绝罪，以色列和美国又共同在伊朗出于心血来潮发动了一场战争，这场战争已经导致大量人员死亡，并且已经开始对整个世界造成毁灭性影响。
 
-文化周期间的各项活动已全面铺开。
-
-13日起，首都博物馆陆续举办4场高规格文化讲座，邀请专家学者围绕元代历史与中尼文化遗产保护展开深度对话；白塔寺内的6场教育活动将从古塔建筑解密延伸到元曲赏析、元代农学智慧体验，让观众在动手实践中触摸历史温度。
-
-与此同时，白塔寺现场特设的尼泊尔文化市集带来MoMo饺子、烤肉与奶茶，并设有充满神秘色彩的手绘艺术体验，让市民领略尼泊尔的独特魅力。
+我想着重强调的是，我们的政府运作程序已经崩溃，没有与国会协商，无论从哪个角度看国会都形同虚设，国家安全委员会同样名存实亡，情报机构也基本相当于不存在，而他们都曾对开战提出过反对意见。
 
 ## 相关推荐
 
-- 2026-06-29 17:08 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-29 17:08 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-29 16:57 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-29 17:03 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-29 16:58 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 17:10 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-29 16:48 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 17:11 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-29 16:45 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 17:05 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-29 16:45 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 17:09 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 16:57 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-29 17:01 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-29 17:07 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 17:17 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 16:58 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 17:12 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 17:10 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 16:54 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 17:16 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 16:58 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-29 17:14 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-29 17:03 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-29 17:14 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-29 17:12 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-29 17:00 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:52 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.minike.top/Article/details/63940261782.shtml)
-- 2026-06-29 16:50 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/7826270085.shtml)
-- 2026-06-29 17:10 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/7909352755.shtml)
-- 2026-06-29 16:54 - [葛军谈AI时代理科生出路](http://www.share.minike.top/Article/details/123712.shtml)
-- 2026-06-29 16:45 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.kurohicncr.top/Article/details/4334016810.shtml)
-- 2026-06-29 17:08 - [A股割裂行情有变化了吗](https://www.blog.minike.top/Article/details/356579.shtml)
-- 2026-06-29 16:59 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/418592567133.shtml)
-- 2026-06-29 16:48 - [德国连续三天刷新本国最高气温纪录](http://www.blog.kurohicncr.top/Article/details/4557141.shtml)
-- 2026-06-29 16:56 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.minike.top/Article/details/55429.shtml)
-- 2026-06-29 16:53 - [机器人学校开学了](http://www.blog.minike.top/Article/details/151879887.shtml)
-- 2026-06-29 16:52 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/478280512609.shtml)
-- 2026-06-29 16:57 - [这一刀 会很帅](http://www.share.minike.top/Article/details/1778846168.shtml)
-- 2026-06-29 16:44 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/0032462729.shtml)
-- 2026-06-29 16:52 - [四川宜宾地震已致13人受轻微伤](http://www.share.minike.top/Article/details/83509.shtml)
-- 2026-06-29 16:43 - [抓特务票房破亿](https://www.blog.minike.top/Article/details/37912.shtml)
+- 2026-06-29 16:54 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/934922544804.shtml)
+- 2026-06-29 16:50 - [22岁民警拦截违法车辆被撞牺牲](http://www.blog.minike.top/Article/details/404935.shtml)
+- 2026-06-29 16:56 - [扫黑风暴](https://www.share.minike.top/Article/details/4255703.shtml)
+- 2026-06-29 17:08 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/14805.shtml)
+- 2026-06-29 16:58 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/021029.shtml)
+- 2026-06-29 17:13 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/716477181414.shtml)
+- 2026-06-29 17:00 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/0549008.shtml)
+- 2026-06-29 16:57 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/384803.shtml)
+- 2026-06-29 16:55 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/29200655884.shtml)
+- 2026-06-29 17:08 - [葛军谈AI时代理科生出路](http://www.blog.minike.top/Article/details/88930866.shtml)
+- 2026-06-29 16:59 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/718986.shtml)
+- 2026-06-29 17:00 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.minike.top/Article/details/186885342.shtml)
+- 2026-06-29 16:51 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/6987245404.shtml)
+- 2026-06-29 17:02 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/088526.shtml)
+- 2026-06-29 17:05 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/4566116.shtml)

@@ -1,44 +1,58 @@
-# 海口港海关3号楼维修改造项目比选成交公告
+# ETF日报：创新药板块的驱动逻辑已经补齐政策一环，构成政策+业绩+临床催化三重共振
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-根据《海口港海关3号楼维修改造项目比选文件》确定的评审原则和要求，海口港海关组织评审小组完成了比选评审工作。经评选小组推荐，现将成交结果公告如下： 成交供应商名称：海南恒亚建设工程有限公司，成交金额：人民币198313.63元； 公示期：本公示发布之日起1个工作日； 采购人：海口港海关；地址：海南省海口市金贸街道港集路2号； 联系人：吴女士、刘先生 电话：17766922011
+今日A股震荡走弱。上证综指微涨0.01%，报4027.21点，深证成指下跌0.97%，创业板指下跌1.22%，科创综指上涨0.33%。全市场成交额24295亿元，较上日成交额放量327亿元。板块层面，创新药领涨；工业母机、新能源车、半导体设备等跌幅居前。风险偏好来看，今日风险偏好偏弱。全市场超3500股下跌。风格层面，小盘弱于大盘，成长弱于价值，双创有所分化。总体而言，今日风险
 
 ## 正文
 
-根据《海口港海关3号楼维修改造项目比选文件》确定的评审原则和要求，海口港海关组织评审小组完成了比选评审工作。
+今日A股震荡走弱。
 
-经评选小组推荐，现将成交结果公告如下： 成交供应商名称：海南恒亚建设工程有限公司，成交金额：人民币198313.63元； 公示期：本公示发布之日起1个工作日； 采购人：海口港海关；地址：海南省海口市金贸街道港集路2号； 联系人：吴女士、刘先生 电话：17766922011、17766922158； 监督单位：海口海关党委第三派驻纪检组； 举报电话：0898-66285809。
+上证综指微涨0.01%，报4027.21点，深证成指下跌0.97%，创业板指下跌1.22%，科创综指上涨0.33%。
+
+全市场成交额24295亿元，较上日成交额放量327亿元。
+
+板块层面，创新药领涨；工业母机、新能源车、半导体设备等跌幅居前。
+
+风险偏好来看，今日风险偏好偏弱。
+
+全市场超3500股下跌。
+
+风格层面，小盘弱于大盘，成长弱于价值，双创有所分化。
+
+总体而言，今日风险偏好处于偏弱状态。
 
 ## 相关推荐
 
-- 2026-06-29 16:46 - [工作靠AI算不算职场作弊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-29 17:05 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
-- 2026-06-29 16:48 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 17:02 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 16:46 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 17:10 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-29 17:09 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 16:44 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 17:09 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 16:43 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-29 17:00 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-29 17:02 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 17:16 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 17:06 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 16:51 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-29 17:16 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-29 17:03 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-29 16:49 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-29 17:17 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-29 17:10 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-29 17:03 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-29 17:08 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:06 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/51836.shtml)
-- 2026-06-29 16:52 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.share.minike.top/Article/details/2505070.shtml)
-- 2026-06-29 16:55 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/25651.shtml)
-- 2026-06-29 16:49 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/87281026957.shtml)
-- 2026-06-29 17:06 - [王俊凯命名方式](http://www.blog.minike.top/Article/details/053840.shtml)
-- 2026-06-29 16:53 - [中方将20家日本实体列入关注名单](http://www.blog.minike.top/Article/details/303638171.shtml)
-- 2026-06-29 16:54 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/164683.shtml)
-- 2026-06-29 17:01 - [天道](https://www.share.kurohicncr.top/Article/details/7617523813.shtml)
-- 2026-06-29 16:57 - [布里奇斯被交易至太阳](https://www.blog.minike.top/Article/details/29708093461.shtml)
-- 2026-06-29 17:08 - [TLAW零封DCG MSI](http://www.share.minike.top/Article/details/87363.shtml)
-- 2026-06-29 16:46 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/2512776286.shtml)
-- 2026-06-29 17:05 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/245057544.shtml)
-- 2026-06-29 16:42 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.kurohicncr.top/Article/details/18651.shtml)
-- 2026-06-29 16:57 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/066500517.shtml)
-- 2026-06-29 16:55 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/327923664.shtml)
+- 2026-06-29 16:57 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.minike.top/Article/details/543213897.shtml)
+- 2026-06-29 17:01 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/11253286.shtml)
+- 2026-06-29 17:01 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/715633795371.shtml)
+- 2026-06-29 17:17 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/905282.shtml)
+- 2026-06-29 17:11 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/692824361.shtml)
+- 2026-06-29 17:14 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.minike.top/Article/details/10187.shtml)
+- 2026-06-29 17:07 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.kurohicncr.top/Article/details/10484872.shtml)
+- 2026-06-29 16:58 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/432368.shtml)
+- 2026-06-29 16:55 - [哈兰德这该死的胜负欲](http://www.blog.minike.top/Article/details/75385123.shtml)
+- 2026-06-29 17:05 - [挪威王储妃长子2次强奸被判4年](https://www.blog.kurohicncr.top/Article/details/3172126579.shtml)
+- 2026-06-29 17:16 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/08443.shtml)
+- 2026-06-29 17:15 - [天道](http://www.blog.minike.top/Article/details/1926680.shtml)
+- 2026-06-29 16:54 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/6007820189.shtml)
+- 2026-06-29 17:08 - [恋与深空各大应用商店评分](http://www.blog.kurohicncr.top/Article/details/57944.shtml)
+- 2026-06-29 16:58 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/05053.shtml)

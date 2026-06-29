@@ -1,55 +1,56 @@
-# 亚洲股市高开高走 日韩股市强劲上涨 此前美国和伊朗达成协议
+# 港股千元股再现！高价股有哪些特点？
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-亚洲股市开盘上涨，韩国股市飙升，此前美国总统唐纳德·特朗普表示，美国和伊朗已达成和平协议，这提振了市场对中东战争即将结束的希望。韩国KOSPI指数一度飙升5.2%。日经225指数上涨幅度高达3%。日本东证指数逾2%。责任编辑：王永生
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！港股高价股有哪些特点？ 近日，包括智谱、MINIMAX频频冲击1000港元大关，使得“千元股”（港元，下同）再现港股市场。 数据显示，目前股价超过100港元的公司，可算是港股市场高价股，主要集中在资讯科技业、必需性消费、医疗保健业等行业，其中，港股通标的占比超过七成。 千元股近日再现港股 港股市场高价股特点
 
 ## 正文
 
-亚洲股市开盘上涨，韩国股市飙升，此前美国总统唐纳德·特朗普表示，美国和伊朗已达成和平协议，这提振了市场对中东战争即将结束的希望。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-韩国KOSPI指数一度飙升5.2%。
+港股高价股有哪些特点？
 
-日经225指数上涨幅度高达3%。
+近日，包括智谱、MINIMAX频频冲击1000港元大关，使得“千元股”（港元，下同）再现港股市场。
 
-日本东证指数逾2%。
+数据显示，目前股价超过100港元的公司，可算是港股市场高价股，主要集中在资讯科技业、必需性消费、医疗保健业等行业，其中，港股通标的占比超过七成。
 
-责任编辑：王永生
+千元股近日再现港股 港股市场高价股特点鲜明 4月14日，港股上市公司智谱盘中最高价再度超过1000港元，最高一度达1010港元。
+
+此前一个交易日，智谱股价盘中首度突破1000港元，引起市场广泛关注。
+
+而就在不久之前，另一家港股上市公司MINIMAX股价也在3月突破1000港元，最高一度达1330港元。
+
+4月14日，MINIMAX股价继续在1000港元上下波动。
 
 ## 相关推荐
 
-- 2026-06-29 16:43 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 16:53 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 16:52 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-29 17:02 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-29 17:06 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-29 16:53 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-29 16:52 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-29 17:01 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-29 16:58 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 16:51 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-29 16:55 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 16:42 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 16:53 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-29 17:05 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-29 17:10 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-29 17:05 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 17:11 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-29 16:54 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 16:51 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 16:56 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 17:09 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-29 17:03 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-29 17:08 - [韩国国脚无缘上亿韩元奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-29 17:06 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 17:13 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:48 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/976799611.shtml)
-- 2026-06-29 17:10 - [世界杯上那些封神的门将](https://www.share.minike.top/Article/details/424629388253.shtml)
-- 2026-06-29 17:05 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/94101088832.shtml)
-- 2026-06-29 17:07 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.minike.top/Article/details/583173622.shtml)
-- 2026-06-29 16:43 - [恋与深空发放补偿未得到玩家认可](https://www.share.kurohicncr.top/Article/details/4373104522.shtml)
-- 2026-06-29 17:10 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/184766570.shtml)
-- 2026-06-29 16:58 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/95552.shtml)
-- 2026-06-29 17:07 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/93567.shtml)
-- 2026-06-29 17:11 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/08853.shtml)
-- 2026-06-29 16:53 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/6085043.shtml)
-- 2026-06-29 16:55 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.minike.top/Article/details/4529011573.shtml)
-- 2026-06-29 16:56 - [NBA交易](https://www.share.minike.top/Article/details/926736037018.shtml)
-- 2026-06-29 16:55 - [宜宾地震后铁路工作人员叫停列车](https://www.share.kurohicncr.top/Article/details/80342.shtml)
-- 2026-06-29 16:44 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/31652.shtml)
-- 2026-06-29 17:05 - [未成年少女长期吸毒导致卧床不起](https://www.blog.minike.top/Article/details/4466287044.shtml)
+- 2026-06-29 17:11 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/980110311.shtml)
+- 2026-06-29 17:08 - [一见倾心](http://www.share.minike.top/Article/details/1080375.shtml)
+- 2026-06-29 17:05 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/229946929.shtml)
+- 2026-06-29 16:52 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/98396.shtml)
+- 2026-06-29 16:58 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.kurohicncr.top/Article/details/52941010.shtml)
+- 2026-06-29 17:02 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.minike.top/Article/details/651329328293.shtml)
+- 2026-06-29 17:11 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/28036.shtml)
+- 2026-06-29 17:10 - [倪春青跨市履新苏州市委组织部部长](https://www.blog.minike.top/Article/details/4702876.shtml)
+- 2026-06-29 17:13 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/936021247853.shtml)
+- 2026-06-29 16:49 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/87826.shtml)
+- 2026-06-29 17:01 - [曝歌手第七期帮唱阵容](http://www.blog.minike.top/Article/details/740082.shtml)
+- 2026-06-29 17:08 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/29337368472.shtml)
+- 2026-06-29 17:14 - [巴黎两家殡仪馆爆满](https://www.share.kurohicncr.top/Article/details/147207130.shtml)
+- 2026-06-29 16:54 - [林昀儒不敌17岁小将止步首轮](https://www.share.minike.top/Article/details/00508675.shtml)
+- 2026-06-29 17:03 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/224653782.shtml)

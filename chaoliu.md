@@ -1,57 +1,60 @@
-# 华泰期货：科技强势上涨，带动股指回升
+# 百余枚海昏简牍修复后首次展出 秦汉全本《诗经》及齐《论语》重现
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 汪雅航 市场分析 地缘冲突缓和。宏观方面，国务院以“强化主体功能区战略实施，促进区域协调发展”为主题，进行专题学习。要进一步健全主体功能区制度，促进形成主体功能明显、优势互补、高质量发展的国土空间开发保护新格局，为推动区域协调发展、优化重大生产力布局提供有力支撑。地缘方面，美国与伊朗达成的停战谅解备忘录已经以电子方式完成签署，正式签字仪式将于6月19日在
+发布时间：2026年04月15日 08:44 来源：中国新闻网 4月14日，“书香海昏——汉代海昏侯国简牍文化展”在江西南昌汉代海昏侯国遗址博物馆开幕。这是海昏侯刘贺墓出土简牍修复成果的首次集中展示，包含失传1800余年的齐《论语》竹简和秦汉时期全本《诗经》竹简等在内的100余枚新修复完成的海昏简牍原件首次面向公众展出。 海昏侯刘贺墓出土简牍近六千件，是江西考古史上的首次发现，
 
 ## 正文
 
-来源：华泰期货 作者： 汪雅航 市场分析 地缘冲突缓和。
+发布时间：2026年04月15日 08:44 来源：中国新闻网 4月14日，“书香海昏——汉代海昏侯国简牍文化展”在江西南昌汉代海昏侯国遗址博物馆开幕。
 
-宏观方面，国务院以“强化主体功能区战略实施，促进区域协调发展”为主题，进行专题学习。
+这是海昏侯刘贺墓出土简牍修复成果的首次集中展示，包含失传1800余年的齐《论语》竹简和秦汉时期全本《诗经》竹简等在内的100余枚新修复完成的海昏简牍原件首次面向公众展出。
 
-要进一步健全主体功能区制度，促进形成主体功能明显、优势互补、高质量发展的国土空间开发保护新格局，为推动区域协调发展、优化重大生产力布局提供有力支撑。
+海昏侯刘贺墓出土简牍近六千件，是江西考古史上的首次发现，更是中国简牍考古的重大收获。
 
-地缘方面，美国与伊朗达成的停战谅解备忘录已经以电子方式完成签署，正式签字仪式将于6月19日在日内瓦举行。
+这些简牍内容包罗万象，涵盖六艺、诸子、诗赋、数术、方技等诸多方面，既蕴藏着崇儒重孝的世风、通经致用的思想，也展现了大汉王朝的教育体系、礼制信仰与文明气象。
 
-谅解备忘录部分条款15日起开始执行，包括霍尔木兹海峡重新开放在内的部分条款，将在19日正式签署后执行。
+据介绍，海昏侯墓中出土《诗经》简1200余枚，内容由目录与正文两部分组成。
 
-针对美国与伊朗之间的谅解备忘录，以色列国家安全部长格维尔表示，美国与伊朗达成的协议对以色列“没有约束力”。
+海昏《诗经》结构严谨，分章有序，共305篇、1076章 ，篇数与今本相同，证明海昏简《诗经》为全本《诗经》，是秦汉时期全本《诗经》的首次发现。
 
-指数回升。
+海昏侯墓主是汉武帝之孙刘贺，他一生数历荣枯，历经昌邑王、汉废帝、海昏侯的跌宕起伏。
 
-现货市场，A股三大指数强势反弹，上证指数涨1.61%收于4096.47点，创业板指涨5.3%。
+海昏侯墓的考古发现，是当代中国考古学的重大成果。
 
 ## 相关推荐
 
-- 2026-06-29 16:58 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 17:06 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 17:12 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-29 16:52 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 16:50 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-29 16:56 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 16:46 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-29 16:43 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-29 16:45 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-29 16:59 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 16:45 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-29 17:09 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 16:52 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 17:15 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-29 17:17 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 16:49 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 17:09 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 17:13 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-29 16:58 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-29 16:50 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-29 16:51 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 17:13 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 17:15 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 16:59 - [未成年少女长期吸毒导致卧床不起](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-29 16:53 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:47 - [人形机器人](http://www.blog.kurohicncr.top/Article/details/17322222891.shtml)
-- 2026-06-29 16:58 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/06930525.shtml)
-- 2026-06-29 16:50 - [12所大学更正招生目录](https://www.blog.minike.top/Article/details/759806480369.shtml)
-- 2026-06-29 16:42 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/77157.shtml)
-- 2026-06-29 16:42 - [德国VS巴拉圭前瞻](http://www.blog.kurohicncr.top/Article/details/671760.shtml)
-- 2026-06-29 17:00 - [日本偶像龟梨和也宣布结婚](http://www.share.kurohicncr.top/Article/details/6795147218.shtml)
-- 2026-06-29 17:07 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.minike.top/Article/details/06494614710.shtml)
-- 2026-06-29 16:46 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/44891.shtml)
-- 2026-06-29 16:53 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.minike.top/Article/details/679884141.shtml)
-- 2026-06-29 16:42 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/25734997303.shtml)
-- 2026-06-29 16:46 - [周生如故](https://www.share.minike.top/Article/details/1744472736.shtml)
-- 2026-06-29 16:57 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/7665449.shtml)
-- 2026-06-29 16:43 - [南部战区位南海海域进行例行巡航](http://www.share.kurohicncr.top/Article/details/580254.shtml)
-- 2026-06-29 16:47 - [韩国国脚无缘上亿韩元奖金](https://www.share.minike.top/Article/details/4403745991.shtml)
-- 2026-06-29 16:54 - [当我回母校教书](http://www.blog.minike.top/Article/details/930485136362.shtml)
+- 2026-06-29 17:07 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/074294.shtml)
+- 2026-06-29 16:50 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/089984485.shtml)
+- 2026-06-29 17:15 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/48625446117.shtml)
+- 2026-06-29 17:09 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/89688.shtml)
+- 2026-06-29 17:07 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/52738.shtml)
+- 2026-06-29 17:09 - [拍到真的赛博朋克边缘行者了！](https://www.share.minike.top/Article/details/91368363.shtml)
+- 2026-06-29 17:16 - [沙丘](http://www.blog.minike.top/Article/details/083259668.shtml)
+- 2026-06-29 16:49 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/68567774078.shtml)
+- 2026-06-29 16:56 - [工作靠AI算不算职场作弊](http://www.share.kurohicncr.top/Article/details/54403606548.shtml)
+- 2026-06-29 16:52 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/60834236726.shtml)
+- 2026-06-29 17:00 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/591553047.shtml)
+- 2026-06-29 17:06 - [德国连续三天刷新本国最高气温纪录](http://www.blog.kurohicncr.top/Article/details/4391474351.shtml)
+- 2026-06-29 16:53 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/642648477941.shtml)
+- 2026-06-29 17:05 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/792789.shtml)
+- 2026-06-29 16:56 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/76667062818.shtml)

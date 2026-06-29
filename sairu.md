@@ -1,61 +1,50 @@
-# 东西问｜张文涛：孟子“仁义”与柏拉图“正义”，中西古典政治理想如何隔空共鸣？
+# 油价因美伊有望进一步谈判而下跌
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-中新社重庆6月13日电 题：孟子“仁义”与柏拉图“正义”，中西古典政治理想如何隔空共鸣？ ——专访重庆大学古典文明与政治哲学研究中心主任张文涛 中新社记者 钟旖 作为中西古典政治哲学的两座高峰，孟子的“仁政”思想与柏拉图的“美好城邦”构想，分别塑造了中西方早期政治文明的精神内核。二者时空相隔，却在对理想政治秩序的追寻中呈现诸多相通之处，也因文明底色差异走出不同路径。 孟子的“仁
+油价在早盘下跌，因美国和伊朗有望展开进一步谈判，这或将减少中东地区的供应中断。澳新银行研究部的分析师援引一篇媒体报道称：“据报道，双方正考虑将停火协议再延长两周，以便有更多时间谈判达成和平协议。“这些分析师在一份研究报告中说：“据说调解方正在推动就悬而未决的问题达成妥协，包括霍尔木兹海峡的重新开放和伊朗的核浓缩计划。“近月西得州中质油期货下跌0.6%，至每桶90.76美元；近月
 
 ## 正文
 
-中新社重庆6月13日电 题：孟子“仁义”与柏拉图“正义”，中西古典政治理想如何隔空共鸣？
+油价在早盘下跌，因美国和伊朗有望展开进一步谈判，这或将减少中东地区的供应中断。
 
-——专访重庆大学古典文明与政治哲学研究中心主任张文涛 中新社记者 钟旖 作为中西古典政治哲学的两座高峰，孟子的“仁政”思想与柏拉图的“美好城邦”构想，分别塑造了中西方早期政治文明的精神内核。
+澳新银行研究部的分析师援引一篇媒体报道称：“据报道，双方正考虑将停火协议再延长两周，以便有更多时间谈判达成和平协议。
 
-二者时空相隔，却在对理想政治秩序的追寻中呈现诸多相通之处，也因文明底色差异走出不同路径。
+“这些分析师在一份研究报告中说：“据说调解方正在推动就悬而未决的问题达成妥协，包括霍尔木兹海峡的重新开放和伊朗的核浓缩计划。
 
-孟子的“仁义之国”与柏拉图的“正义之邦”，是否殊途同归？
+“近月西得州中质油期货下跌0.6%，至每桶90.76美元；近月布伦特原油期货下跌0.4%，至每桶94.57美元。
 
-中西古典政治理想如何隔空共鸣？
-
-古典智慧对当下有何启示？
-
-第二届世界古典学大会6月9日至10日在希腊雅典举行，受邀参加大会的重庆大学古典文明与政治哲学研究中心主任张文涛，近日就上述问题接受了中新社“东西问”专访。
-
-现将访谈实录摘要如下： 中新社记者：为何将孟子的“仁义之国”与柏拉图的“正义之邦”视作中西古典政治文明的典型理想？
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 16:53 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-29 17:02 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 17:04 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 17:02 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 16:56 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-29 16:52 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-29 16:53 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 16:52 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-29 16:49 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-29 16:51 - [TFING全员黑西装](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 17:08 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-29 16:45 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-29 16:49 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 17:07 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-29 16:54 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-29 17:00 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-29 17:17 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 17:15 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-29 17:15 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 17:13 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-29 17:08 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-29 16:57 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-29 16:57 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 16:55 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 16:52 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:03 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/0594196970.shtml)
-- 2026-06-29 16:56 - [TI2026参赛战队出炉](http://www.share.kurohicncr.top/Article/details/017741.shtml)
-- 2026-06-29 17:01 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/1344860.shtml)
-- 2026-06-29 17:07 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/986268.shtml)
-- 2026-06-29 16:56 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/909973397.shtml)
-- 2026-06-29 16:46 - [三轮车过马路 车上木材砸中路边男子](http://www.share.kurohicncr.top/Article/details/6666181977.shtml)
-- 2026-06-29 16:59 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/32132713.shtml)
-- 2026-06-29 16:45 - [美议员呼吁断供以色列政府](https://www.share.minike.top/Article/details/228341468991.shtml)
-- 2026-06-29 17:09 - [女心理师](http://www.share.minike.top/Article/details/292889.shtml)
-- 2026-06-29 16:43 - [刘烨16岁儿子诺一颜值](http://www.blog.kurohicncr.top/Article/details/465012.shtml)
-- 2026-06-29 16:46 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/36362445445.shtml)
-- 2026-06-29 16:48 - [高市早苗口齿不清被质疑醉酒](https://www.blog.kurohicncr.top/Article/details/383590335.shtml)
-- 2026-06-29 17:05 - [朱必达辞去湖南人大常委会委员职务](http://www.share.kurohicncr.top/Article/details/30791379.shtml)
-- 2026-06-29 17:08 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/6786283.shtml)
-- 2026-06-29 16:46 - [永远保持对人民的赤子之心](https://www.blog.minike.top/Article/details/70949730.shtml)
+- 2026-06-29 17:10 - [徐昕暂不参加NBA夏季联赛](https://www.share.kurohicncr.top/Article/details/346485947.shtml)
+- 2026-06-29 16:56 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/2591549.shtml)
+- 2026-06-29 16:53 - [妹妹的正确用法！](http://www.blog.minike.top/Article/details/64671.shtml)
+- 2026-06-29 17:15 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/004466172.shtml)
+- 2026-06-29 16:53 - [2026年，如果你有100万，你会怎么投资？](https://www.blog.minike.top/Article/details/500834105.shtml)
+- 2026-06-29 17:02 - [首个靠AI躺赢的国家](http://www.share.kurohicncr.top/Article/details/0029270.shtml)
+- 2026-06-29 16:59 - [流金岁月](https://www.share.minike.top/Article/details/795945.shtml)
+- 2026-06-29 17:14 - [戒掉咖啡后我的身体变化](https://www.blog.minike.top/Article/details/964904489.shtml)
+- 2026-06-29 17:07 - [驻日美军航母沦为“毒窝”](https://www.blog.minike.top/Article/details/5600497178.shtml)
+- 2026-06-29 17:10 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/54977143276.shtml)
+- 2026-06-29 17:12 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/683958549261.shtml)
+- 2026-06-29 17:06 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.minike.top/Article/details/84574237973.shtml)
+- 2026-06-29 17:03 - [港股蓝筹股的落寞才刚刚开始吗](http://www.share.minike.top/Article/details/1549821.shtml)
+- 2026-06-29 17:17 - [音乐人屠颖离世家属追责涉事酒店](https://www.share.minike.top/Article/details/375182805847.shtml)
+- 2026-06-29 16:52 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/647418738.shtml)

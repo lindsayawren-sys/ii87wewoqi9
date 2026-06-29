@@ -1,57 +1,57 @@
-# 光大期货：6月15日矿钢煤焦日报
+# 第十五届中国国际园林博览会在侨乡温州开幕
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-钢材：螺纹转入累库周期，钢价仍将窄幅震荡 （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 螺纹方面，本周全国螺纹产量环比回升2.44万吨至214.59万吨，同比增加7.02万吨；社库环比回落0.45万吨至479.16万吨，同比增加103.97万吨；厂库环比增加7.72万吨至181.8万吨，同比减少1.09万吨；螺纹表需环比回落5.85万吨至207.3
+中新社温州4月15日电 (周健)第十五届中国国际园林博览会(以下简称“园博会”)15日在侨乡浙江温州开幕。 本届园博会为期100天，主会场园博园占地面积近230万平方米，精心布局了1个主题园、34个城市展园和6个主题展区。开幕当日，众多海内外嘉宾沉浸式游览园博园，在移步换景间领略中外园林的魅力。 值得关注的是，34个城市展园中包含了11个国际城市展园，它们各具风情，成为国际交流
 
 ## 正文
 
-钢材：螺纹转入累库周期，钢价仍将窄幅震荡 （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 螺纹方面，本周全国螺纹产量环比回升2.44万吨至214.59万吨，同比增加7.02万吨；社库环比回落0.45万吨至479.16万吨，同比增加103.97万吨；厂库环比增加7.72万吨至181.8万吨，同比减少1.09万吨；螺纹表需环比回落5.85万吨至207.32万吨，同比减少12.66万吨。
+中新社温州4月15日电 (周健)第十五届中国国际园林博览会(以下简称“园博会”)15日在侨乡浙江温州开幕。
 
-螺纹产量有所回升，库存由降转增，表需继续下降，供需数据表现偏弱。
+本届园博会为期100天，主会场园博园占地面积近230万平方米，精心布局了1个主题园、34个城市展园和6个主题展区。
 
-据海关数据，2026年5月中国出口钢材1034.1万吨，较上月增加84.3万吨，环比增长8.9%；1-5月累计出口钢材4455.4万吨，同比下降8.1%。
+开幕当日，众多海内外嘉宾沉浸式游览园博园，在移步换景间领略中外园林的魅力。
 
-钢材出口最近三个月均环比增长，单月出口量再次超过1000万吨，在一定程度上缓解了国内供应压力。
+值得关注的是，34个城市展园中包含了11个国际城市展园，它们各具风情，成为国际交流合作的重要载体。
 
-另据央行数据，5月单月新增人民币贷款5200亿元，同比少增1000亿元；其中5月住户部门新增中长期贷款为负571亿元，同比少增1317亿元。
+作为荷兰展园的设计者，米歇尔·范·卡门(Michel Van Kammen)借此将家乡最具代表性的风车、郁金香等元素带到了中国。
 
-信贷数据表现依然较弱，居民贷款需求较为低迷。
+国际园林盛宴的举办，离不开温州的“侨力量”。
 
-当前螺纹库存已转入累积通道，叠加表需持续回落，供需矛盾逐步积累。
+据了解，乌兹别克斯坦、意大利、英国、法国、荷兰、泰国、加拿大等7个国家的城市展园设计方案，由海外温籍侨团、侨商代表倾情捐赠。
 
-不过近期焦炭价格持续大涨，铁矿石价格也表现坚挺，钢厂盈利明显收窄，对钢价形成一定底部支撑。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 17:03 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-29 16:52 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 16:50 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 16:58 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 16:50 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-29 17:00 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 16:59 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-29 17:08 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-29 16:56 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-29 16:43 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-29 17:05 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 17:07 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 17:15 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-29 17:06 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 17:03 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 17:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 16:53 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-29 16:51 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 17:00 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 17:17 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 16:55 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 17:01 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:09 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.kurohicncr.top/Article/details/777049.shtml)
-- 2026-06-29 16:46 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/33441.shtml)
-- 2026-06-29 17:04 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.blog.minike.top/Article/details/44099.shtml)
-- 2026-06-29 17:02 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.share.kurohicncr.top/Article/details/836403.shtml)
-- 2026-06-29 16:47 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/813067231.shtml)
-- 2026-06-29 16:50 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/2612327637.shtml)
-- 2026-06-29 17:06 - [王楚钦欢迎晚宴上打台球](http://www.share.kurohicncr.top/Article/details/31137383055.shtml)
-- 2026-06-29 16:59 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.kurohicncr.top/Article/details/191318537.shtml)
-- 2026-06-29 17:03 - [男孩复读一年减重20斤涨分111分](http://www.blog.minike.top/Article/details/30007853697.shtml)
-- 2026-06-29 17:10 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.share.kurohicncr.top/Article/details/9986848787.shtml)
-- 2026-06-29 16:51 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/9940786922.shtml)
-- 2026-06-29 16:42 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.kurohicncr.top/Article/details/337678980.shtml)
-- 2026-06-29 16:47 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/2205925.shtml)
-- 2026-06-29 16:59 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/69683476591.shtml)
-- 2026-06-29 17:04 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.kurohicncr.top/Article/details/6705427125.shtml)
+- 2026-06-29 17:13 - [宜宾地震后铁路工作人员叫停列车](https://www.share.minike.top/Article/details/5297485391.shtml)
+- 2026-06-29 17:04 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/5737339020.shtml)
+- 2026-06-29 17:03 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/908608.shtml)
+- 2026-06-29 17:00 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/342918434.shtml)
+- 2026-06-29 17:14 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/251830614.shtml)
+- 2026-06-29 17:08 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.minike.top/Article/details/444817203126.shtml)
+- 2026-06-29 17:09 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/122823168679.shtml)
+- 2026-06-29 17:09 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.blog.kurohicncr.top/Article/details/05611980001.shtml)
+- 2026-06-29 16:58 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/37288.shtml)
+- 2026-06-29 17:01 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.minike.top/Article/details/353106285292.shtml)
+- 2026-06-29 16:57 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.minike.top/Article/details/03154876039.shtml)
+- 2026-06-29 17:15 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/64190572364.shtml)
+- 2026-06-29 17:01 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/0121112.shtml)
+- 2026-06-29 17:01 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.minike.top/Article/details/934702.shtml)
+- 2026-06-29 17:14 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/85667106.shtml)

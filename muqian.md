@@ -1,59 +1,54 @@
-# “中国好人”张乐华：40年深耕杜鹃花研究保护领域
+# 禾赛-W盘初涨超8% 今日起进入港股通名单
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 18:48 来源：中国新闻网 近日，2026年第一批“中国好人榜”发布，中国科学院庐山植物园张乐华深耕杜鹃花研究保护领域40年，以“追花人”不避艰险、匠心守护生态家园的敬业奉献先进事迹入选。他曾带领团队破译350余种杜鹃花的生命密码，构建起中国最大的杜鹃花活体基因库。 走进庐山植物园，杜鹃花姹紫嫣红满庭芬芳，作为植物园“一枝独秀”的优势学科，张
+禾赛-W（02525）早盘高开近9%，截至发稿，涨幅收窄至上涨2.72%，现报188.90港元，成交额7165.31万港元。 4月16日，深交所公告，根据《深圳证券交易所深港通业务实施办法》的有关规定，港股通标的证券名单调入禾赛-W，自2026年4月16日起生效。 值得注意的是，据盖世汽车研究院发布的2026年2月车载激光雷达装机量排行榜显示，当月禾赛车载主激光雷达以51%的市
 
 ## 正文
 
-发布时间：2026年06月15日 18:48 来源：中国新闻网 近日，2026年第一批“中国好人榜”发布，中国科学院庐山植物园张乐华深耕杜鹃花研究保护领域40年，以“追花人”不避艰险、匠心守护生态家园的敬业奉献先进事迹入选。
+禾赛-W（02525）早盘高开近9%，截至发稿，涨幅收窄至上涨2.72%，现报188.90港元，成交额7165.31万港元。
 
-他曾带领团队破译350余种杜鹃花的生命密码，构建起中国最大的杜鹃花活体基因库。
+4月16日，深交所公告，根据《深圳证券交易所深港通业务实施办法》的有关规定，港股通标的证券名单调入禾赛-W，自2026年4月16日起生效。
 
-走进庐山植物园，杜鹃花姹紫嫣红满庭芬芳，作为植物园“一枝独秀”的优势学科，张乐华正带领团队，开展杜鹃花性状繁育、野外回归等课题研究，为建设美丽中国江西样板贡献科学力量。
+值得注意的是，据盖世汽车研究院发布的2026年2月车载激光雷达装机量排行榜显示，当月禾赛车载主激光雷达以51%的市场份额蝉联行业第一，市场占比超越其他供应商份额总和，实现断层式领先。
 
-据介绍，2019年，张乐华在罗霄山脉深处重新发现小溪洞杜鹃的野生分布，并立即在庐山植物园开启了苗木扩繁和仿自然生境的迁地保护工作。
+2月，中国乘用车市场主激光雷达总装机量达165009台，其中禾赛贡献83897台，装机量为行业第二名的2.2倍、第三名的3倍以上。
 
-2021年，在“华东地区珍稀濒危野生植物展”上，由张乐华团队培育的小溪洞杜鹃获展会最高奖——铂金奖。
+至此，禾赛已连续13个月占据车载主激光雷达市场第一的位置。
 
-2025年春天，张乐华团队在国内率先开启濒危杜鹃的野外回归，将人工繁育的小溪洞杜鹃、井冈山杜鹃等濒危物种回归到井冈山原产地，成活率近95%，实现了濒危种群的人工复壮。
-
-(华山 胡晓山） 责任编辑：【李季】
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 17:03 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-29 16:52 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-29 16:49 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-29 17:03 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-29 17:04 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 16:59 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-29 16:49 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-29 16:47 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-29 16:54 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-29 16:50 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-29 16:58 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-29 16:58 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 16:58 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 17:08 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-29 17:02 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 17:05 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 16:52 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-29 17:12 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 17:01 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-29 16:59 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-29 16:56 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 16:52 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 16:54 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 16:55 - [南昌市委书记调整](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-29 16:58 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-29 16:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-29 17:16 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:10 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.minike.top/Article/details/99135.shtml)
-- 2026-06-29 17:03 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/3813730.shtml)
-- 2026-06-29 16:53 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.kurohicncr.top/Article/details/079655.shtml)
-- 2026-06-29 17:00 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/73654310346.shtml)
-- 2026-06-29 17:00 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/878882470.shtml)
-- 2026-06-29 16:43 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.kurohicncr.top/Article/details/346428569.shtml)
-- 2026-06-29 16:43 - [倪春青跨市履新苏州市委组织部部长](https://www.blog.minike.top/Article/details/722615.shtml)
-- 2026-06-29 17:07 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/51420.shtml)
-- 2026-06-29 16:56 - [南部战区位南海海域进行例行巡航](http://www.blog.minike.top/Article/details/550316.shtml)
-- 2026-06-29 16:56 - [永远保持对人民的赤子之心](http://www.share.minike.top/Article/details/71983720.shtml)
-- 2026-06-29 16:55 - [TI2026参赛战队出炉](https://www.blog.minike.top/Article/details/74305786093.shtml)
-- 2026-06-29 16:44 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/482413.shtml)
-- 2026-06-29 16:58 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/78525709.shtml)
-- 2026-06-29 17:04 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/68499320861.shtml)
-- 2026-06-29 17:01 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/45129796151.shtml)
+- 2026-06-29 16:51 - [A股割裂行情有变化了吗](https://www.share.kurohicncr.top/Article/details/049424.shtml)
+- 2026-06-29 17:04 - [A股割裂行情有变化了吗](https://www.share.minike.top/Article/details/3251269.shtml)
+- 2026-06-29 16:59 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/173017112.shtml)
+- 2026-06-29 17:10 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/833734875.shtml)
+- 2026-06-29 17:02 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/8972193.shtml)
+- 2026-06-29 17:08 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.blog.minike.top/Article/details/74068461549.shtml)
+- 2026-06-29 17:06 - [金刚川](https://www.blog.kurohicncr.top/Article/details/30076797.shtml)
+- 2026-06-29 17:12 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/174533.shtml)
+- 2026-06-29 17:03 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/612191.shtml)
+- 2026-06-29 17:17 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/622223923754.shtml)
+- 2026-06-29 16:51 - [在自己家不穿衣服犯法吗](http://www.blog.kurohicncr.top/Article/details/744602.shtml)
+- 2026-06-29 17:07 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/9887377.shtml)
+- 2026-06-29 16:59 - [中国战机大片上新](http://www.share.kurohicncr.top/Article/details/845983.shtml)
+- 2026-06-29 17:03 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/0511747.shtml)
+- 2026-06-29 17:15 - [20年前的周杰伦](https://www.blog.minike.top/Article/details/041883764.shtml)

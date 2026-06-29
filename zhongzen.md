@@ -1,56 +1,57 @@
-# 光大期货0615黄金点评：本周关注美联储议息会议，谨慎对待黄金波动
+# 欧洲极右翼政党将特朗普视为政治包袱 重新审视与其关系紧密的代价
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-上周黄金波动加剧，伦敦现货周内跌幅超过2%，SHFE黄金周跌超3%。本周为超级央行周，全球主要央行将召开议息会议，重点关注美联储议息会议，季度点阵图调整以及会后沃什首秀是关键；另外美伊协议谈判取得关键进展，14日晚双方完成《伊斯兰堡谅解备忘录》谈判，伊朗于15日凌晨确认，后续将于19日举办签字仪式，周一早盘国际油价大幅低开，现货黄金高开超1%，若通胀预期缓解，黄金关注底部支撑。
+欧尔班·维克多在上周日的匈牙利选举中惨败后，欧洲极右翼政党正重新评估，被视为与美国总统特朗普政府的关系过于紧密所要付出的政治代价。 欧尔班及其鼓吹文化分裂、试图遏制移民的非自由主义威权路线，一直是全球民族主义团体，尤其是美国相关势力的标杆。选举前几天，美国副总统JD·万斯曾与欧尔班一同拉票，特朗普也通过电话连线集会表示支持。 特朗普于2024年再次当选后，欧洲极右翼团体一直试图
 
 ## 正文
 
-上周黄金波动加剧，伦敦现货周内跌幅超过2%，SHFE黄金周跌超3%。
+欧尔班·维克多在上周日的匈牙利选举中惨败后，欧洲极右翼政党正重新评估，被视为与美国总统特朗普政府的关系过于紧密所要付出的政治代价。
 
-本周为超级央行周，全球主要央行将召开议息会议，重点关注美联储议息会议，季度点阵图调整以及会后沃什首秀是关键；另外美伊协议谈判取得关键进展，14日晚双方完成《伊斯兰堡谅解备忘录》谈判，伊朗于15日凌晨确认，后续将于19日举办签字仪式，周一早盘国际油价大幅低开，现货黄金高开超1%，若通胀预期缓解，黄金关注底部支撑。
+欧尔班及其鼓吹文化分裂、试图遏制移民的非自由主义威权路线，一直是全球民族主义团体，尤其是美国相关势力的标杆。
 
-宏观方面。
+选举前几天，美国副总统JD·万斯曾与欧尔班一同拉票，特朗普也通过电话连线集会表示支持。
 
-美国5月CPI同比攀升至4.2%，符合预期，但创2023年4月以来新高，较4月的3.8%显著回升，核心CPI同比2.9%同样符合预期。
+特朗普于2024年再次当选后，欧洲极右翼团体一直试图借势，但在一些地区进展并不顺利。
 
-5月PPI同比升至6.5%，超预期6.4%，环比0.7%，核心PPI同比5.4%，生产端通胀压力持续扩散。
+欧尔班此次败选之前，荷兰主要民族主义政党已于去年遭遇惨败，迫使反移民强硬派Geert Wilders退出执政联盟；与此同时，法国明年将举行关键总统选举，而极右翼目前已在民调中领先。
 
-6月密歇根大学消费者信心指数初值从5月创纪录低点44.8回升至48.9，高于市场预期的46，但一年期通胀预期仍高达4.6%，家庭对经济前景依然悲观。
+在欧洲民族主义运动处于如此关键的时刻，各党派却难以就如何对待特朗普政府形成明确的政策。
 
-全球央行方面，欧洲央行于6月11日宣布加息25个基点，全球主要央行对抗通胀形成紧缩共振。
+Louis Aliot在采访中表示：“每个人都必须捍卫本国利益，而我们的利益并不总是与美国一致。
 
-地缘政治方面，美伊协议谈判取得关键进展，15日双方完成《伊斯兰堡谅解备忘录》最终谈判，将于6月19日在瑞士举办签字仪式，另外以色列空袭黎巴嫩首都贝鲁特，美方表示不利于协议达成。
+”他还说，强调彼此差异“同样重要”，指的是他认为一些并不能引起欧洲选民共鸣的议程。
 
 ## 相关推荐
 
-- 2026-06-29 17:03 - [货车司机雨中帮交警挪树获表扬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 17:00 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 16:42 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-29 17:00 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 17:05 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 16:56 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-29 16:44 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 17:02 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 17:02 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-29 17:02 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 17:04 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-29 16:56 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 16:49 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 16:54 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 17:09 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 17:05 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-29 16:53 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 17:15 - [东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 16:48 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 16:49 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 17:01 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:51 - [女心理师](https://www.share.kurohicncr.top/Article/details/681725.shtml)
-- 2026-06-29 16:45 - [东方风云榜](http://www.blog.minike.top/Article/details/835320.shtml)
-- 2026-06-29 16:52 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/70419211735.shtml)
-- 2026-06-29 17:07 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/121378362.shtml)
-- 2026-06-29 17:06 - [截瘫男子心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/2014231.shtml)
-- 2026-06-29 16:59 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.minike.top/Article/details/83975.shtml)
-- 2026-06-29 16:46 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/561396651414.shtml)
-- 2026-06-29 16:47 - [刘烨16岁儿子诺一颜值](http://www.share.minike.top/Article/details/257192.shtml)
-- 2026-06-29 16:57 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.minike.top/Article/details/84688.shtml)
-- 2026-06-29 17:04 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/82366175135.shtml)
-- 2026-06-29 16:54 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/5459282.shtml)
-- 2026-06-29 16:59 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/63220003.shtml)
-- 2026-06-29 16:54 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/31684900613.shtml)
-- 2026-06-29 17:11 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.minike.top/Article/details/03682.shtml)
-- 2026-06-29 16:59 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/04074815.shtml)
+- 2026-06-29 16:55 - [葛军谈AI时代理科生出路](https://www.blog.minike.top/Article/details/74880690.shtml)
+- 2026-06-29 16:54 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.blog.kurohicncr.top/Article/details/16393965620.shtml)
+- 2026-06-29 17:11 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/035965.shtml)
+- 2026-06-29 16:51 - [重度抑郁女孩没钱去做心理咨询](http://www.share.minike.top/Article/details/07285.shtml)
+- 2026-06-29 17:09 - [葫芦岛居民楼爆炸致3失联8伤](http://www.blog.kurohicncr.top/Article/details/13671.shtml)
+- 2026-06-29 17:16 - [首尔商铺禁止洪明甫入内](http://www.blog.minike.top/Article/details/0872748.shtml)
+- 2026-06-29 17:06 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.kurohicncr.top/Article/details/147333422.shtml)
+- 2026-06-29 17:12 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/4680143.shtml)
+- 2026-06-29 17:03 - [大疆7月15日起涨价？公司回应](https://www.share.kurohicncr.top/Article/details/193313.shtml)
+- 2026-06-29 16:49 - [杨紫下沉市场口碑](http://www.share.kurohicncr.top/Article/details/65178879.shtml)
+- 2026-06-29 16:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/406287.shtml)
+- 2026-06-29 17:17 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.kurohicncr.top/Article/details/13433.shtml)
+- 2026-06-29 16:52 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/81590.shtml)
+- 2026-06-29 16:54 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.minike.top/Article/details/7086029.shtml)
+- 2026-06-29 17:01 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/505691.shtml)

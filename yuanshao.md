@@ -1,61 +1,57 @@
-# 李强同越南总理黎明兴通电话
+# 港股硬科技再走强 同类规模最大港股通信息技术ETF(159131)冲高逾2% 机构看好港股二季度尤其是4-5月反弹机会
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-新华社北京6月15日电 6月15日上午，国务院总理李强应约同越南总理黎明兴通电话。 李强表示，今年4月，习近平总书记、国家主席同访华的苏林总书记、国家主席举行会晤，就构建更高水平具有战略意义的中越命运共同体达成重要共识。近段时期，两国各部门各地方加紧推进访问成果落实，取得积极进展。中越有着深厚传统友谊。中方始终将越南视为周边外交的优先方向，愿同越方一道遵循两党两国最高领导人战略
+4月16日早盘，港股硬科技强势走高，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内一度冲高逾2%，现涨1.56%，实时成交额超6600万元。 广发证券分析认为，看好港股二季度尤其是4-5月的反弹机会（非反转行情），源于三类利空出尽：一是年报披露完毕，业绩、回购、资本开支等不确定性已消化；二是3月解禁高峰结束，二季度解禁规模回落，情绪冲击或带来利空出清契
 
 ## 正文
 
-新华社北京6月15日电 6月15日上午，国务院总理李强应约同越南总理黎明兴通电话。
+4月16日早盘，港股硬科技强势走高，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内一度冲高逾2%，现涨1.56%，实时成交额超6600万元。
 
-李强表示，今年4月，习近平总书记、国家主席同访华的苏林总书记、国家主席举行会晤，就构建更高水平具有战略意义的中越命运共同体达成重要共识。
+广发证券分析认为，看好港股二季度尤其是4-5月的反弹机会（非反转行情），源于三类利空出尽：一是年报披露完毕，业绩、回购、资本开支等不确定性已消化；二是3月解禁高峰结束，二季度解禁规模回落，情绪冲击或带来利空出清契机；三是海外流动性压力缓解，特朗普访华预期有望提振偏好，而降息预期已降至零次，待地缘与通胀扰动消化后，估值存在修复空间。
 
-近段时期，两国各部门各地方加紧推进访问成果落实，取得积极进展。
+从行业来看，国信证券研报指出，从芯片替代到系统架构创新，国产算力实现突破：1）英伟达市场份额被国产芯片替代，国产AI加速卡市场份额突破41%；2）华为昇腾950PR获字节、阿里订单，兼容CUDA加速生态迁移；3）“十五五”规划建议明确提出“适度超前建设新型基础设施，推进信息通信网络、全国一体化算力网、重大科技基础设施等建设和集约高效利用，推进传统基础设施更新和数智化改造”，超节点成算力突围新路径。
 
-中越有着深厚传统友谊。
+支持T+0交易！
 
-中方始终将越南视为周边外交的优先方向，愿同越方一道遵循两党两国最高领导人战略引领，加强团结互信，拓展互利合作，更好促进两国共同发展繁荣。
+直指港股芯片超级周期——同类规模最大、全市场首只聚焦“港股芯片”产业链的港股通信息技术ETF华宝（159131），场外联接基金代码026755，标的指数由“70%硬件+30%软件”构成，重仓港股“半导体+电子+计算机软件”，涵盖50只港股硬科技公司，其中小米集团-W权重13.25%，中芯国际权重达12.54%，联想集团权重达9.04%，华虹半导体权重7.09%；不含阿里巴巴、腾讯、美团等大市值互联网企业，锐度更高，更易捕捉港股AI硬科技行情。
 
-李强指出，中方愿同越方深入对接发展战略，推动两国贸易不断扩面提质，推进基础设施互联互通，加快跨境经济合作区建设，拓展能源矿产、数字经济、人工智能、金融等领域合作，实现更高水平互利共赢。
+（截至2026.3.31） 数据来源：中证指数公司，沪深交易所。
 
-双方要共同办好“中越旅游合作年”等活动，落实“小而美”民生项目，妥善管控海上分歧，夯实两国友好民意基础。
+注：“全市场首只”是指港股通信息技术ETF华宝（159131）是全市场首只跟踪中证港股通信息技术综合指数的ETF。
 
-当前全球单边主义、保护主义抬头，中方愿同越方加强在联合国、世贸组织等多边机制协调配合，相互支持办好今明两年的亚太经合组织领导人非正式会议，推动建设开放型亚太经济，维护自由贸易和经济全球化。
+截至2026.4.15，港股通信息技术ETF华宝最新场内规模为4.88亿元，为当前跟踪中证港股通信息技术综合指数的4只已上市ETF中规模最大；今年以来港股通信息技术ETF华宝的日均成交额为1.2亿元。
 
 ## 相关推荐
 
-- 2026-06-29 17:09 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-29 16:42 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-29 17:02 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-29 16:55 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 16:42 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 17:05 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 16:55 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-29 16:43 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 16:56 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-29 16:59 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-29 17:10 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 17:02 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 16:48 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 16:47 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-29 16:49 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 16:56 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-29 16:52 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 17:01 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-29 17:08 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 16:59 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 16:48 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 16:56 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 16:55 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 17:01 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 17:16 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 17:10 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:55 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.share.minike.top/Article/details/04091.shtml)
-- 2026-06-29 16:57 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.minike.top/Article/details/92500520.shtml)
-- 2026-06-29 16:51 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/55477976902.shtml)
-- 2026-06-29 17:00 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/41121112.shtml)
-- 2026-06-29 17:02 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/42235899021.shtml)
-- 2026-06-29 16:44 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/53388673858.shtml)
-- 2026-06-29 16:51 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/930671736.shtml)
-- 2026-06-29 17:08 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/44158.shtml)
-- 2026-06-29 17:11 - [在自己家不穿衣服犯法吗](https://www.blog.kurohicncr.top/Article/details/1515897.shtml)
-- 2026-06-29 17:04 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/2162539.shtml)
-- 2026-06-29 17:07 - [王安宇尊重田曦薇的一切选择](https://www.share.minike.top/Article/details/95549.shtml)
-- 2026-06-29 16:49 - [网警提醒4类高考查分陷阱考生速看](https://www.blog.minike.top/Article/details/81450428977.shtml)
-- 2026-06-29 17:11 - [速度与激情9](https://www.share.minike.top/Article/details/05116.shtml)
-- 2026-06-29 17:06 - [男孩复读一年减重20斤涨分111分](https://www.share.minike.top/Article/details/01328068854.shtml)
-- 2026-06-29 16:48 - [疑似吴建豪老婆正脸照](https://www.blog.kurohicncr.top/Article/details/751700.shtml)
+- 2026-06-29 17:07 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/92606179.shtml)
+- 2026-06-29 16:58 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/16152627887.shtml)
+- 2026-06-29 16:52 - [三轮车过马路 车上木材砸中路边男子](https://www.share.kurohicncr.top/Article/details/134914254244.shtml)
+- 2026-06-29 17:16 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/2052553.shtml)
+- 2026-06-29 17:09 - [四川地震前夕 街头电线上站满燕子](https://www.share.minike.top/Article/details/556225.shtml)
+- 2026-06-29 17:06 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/39929973.shtml)
+- 2026-06-29 17:00 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/4204612.shtml)
+- 2026-06-29 16:56 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.minike.top/Article/details/265495295291.shtml)
+- 2026-06-29 16:51 - [依法管制阻遏日方军事化危险动向](https://www.blog.kurohicncr.top/Article/details/685694523194.shtml)
+- 2026-06-29 17:06 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/260756985.shtml)
+- 2026-06-29 17:17 - [杨紫下沉市场口碑](https://www.share.minike.top/Article/details/872241423643.shtml)
+- 2026-06-29 17:06 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/89249563245.shtml)
+- 2026-06-29 17:03 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/61232.shtml)
+- 2026-06-29 17:10 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/6156704600.shtml)
+- 2026-06-29 17:14 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/1661476.shtml)

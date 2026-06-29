@@ -1,57 +1,57 @@
-# 全球首条百万片级体全息光波导自动化产线在天津投产
+# 38亿仲裁"落槌"：永辉绝境追债，王健林连带承压
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-美国又对全球通讯命脉“卡脖子”，遭殃的可能是美企张凌赫喊话台胞：海峡的距离，挡不住同胞走亲走近的交流步伐加盟店前股东借款超千万失联，周大福回应人类首位万亿美元富豪诞生，资本市场风险浮出水面比赛首日，全球各大市场同步走高！“世界杯魔咒”失灵了？一封侨批、一声“唐山”，何以承载海外侨胞百年家国梦？为何今年东北冷涡存在感这么强 背后原因有这几个特朗普提名的下任国家情报总监是谁？新能源
+21世纪经济报道记者 唐唯珂 2026年4月14日晚间，永辉超市（601933.SH）一纸公告，将一桩拖延逾两年的巨额股权纠纷推向终局。 上海国际经济贸易仲裁委员会作出终局裁决：大连御锦贸易有限公司须向永辉支付剩余股份转让款36.39亿元、加速到期违约金2.18亿元，叠加律师费、保全费等，合计约38.6亿元；万达集团董事长王健林、一方集团孙喜双及大连一方集团对上述全部债务承担连
 
 ## 正文
 
-美国又对全球通讯命脉“卡脖子”，遭殃的可能是美企张凌赫喊话台胞：海峡的距离，挡不住同胞走亲走近的交流步伐加盟店前股东借款超千万失联，周大福回应人类首位万亿美元富豪诞生，资本市场风险浮出水面比赛首日，全球各大市场同步走高！
+21世纪经济报道记者 唐唯珂 2026年4月14日晚间，永辉超市（601933.SH）一纸公告，将一桩拖延逾两年的巨额股权纠纷推向终局。
 
-“世界杯魔咒”失灵了？
+上海国际经济贸易仲裁委员会作出终局裁决：大连御锦贸易有限公司须向永辉支付剩余股份转让款36.39亿元、加速到期违约金2.18亿元，叠加律师费、保全费等，合计约38.6亿元；万达集团董事长王健林、一方集团孙喜双及大连一方集团对上述全部债务承担连带保证责任，并需在裁决生效20日内履行完毕。
 
-一封侨批、一声“唐山”，何以承载海外侨胞百年家国梦？
+这不仅是A股史上罕见的大额仲裁胜诉，更是传统零售与民营地产两大困境行业的一次激烈碰撞——一边是连续五年亏损、负债率极高、急需“回血”续命的永辉；另一边是三年甩卖超80座广场、仍扛着巨额负债、流动性紧绷的万达与王健林。
 
-为何今年东北冷涡存在感这么强 背后原因有这几个特朗普提名的下任国家情报总监是谁？
+38亿裁决书的背后，是双方财务危局的集中暴露，更是民营资本在周期退潮中“互保互困”的典型样本。
 
-新能源汽车该做“体重管理”了霍尔木兹海峡再度封锁，美伊博弈或迎重要转折谒“一代草圣”于右任墓：长眠高山，遥望故土史上最贵世界杯背后的沉重账单揭幕战红牌比进球多！
+缘起：45亿股权断臂 一切始于2023年末的资产处置。
 
-世界杯开幕日，创多项纪录警惕"科技红利"等幌子 以投资RWA名义诈骗等套路曝光蜜雪冰城旁的正新鸡排，要上市“搏命”？
+彼时永辉超市深陷转型亏损、现金流承压，为盘活存量资产、回笼资金，决定出售早年战略投资的万达商管3.89亿股股份，交易对手为王健林关联企业大连御锦贸易有限公司，总作价45.3亿元，约定分八期现金支付。
 
-鸡蛋价格连涨7周后多平台限购 专家：不必大量囤货“鹅腿变鸭腿”争议里，人们在意的从不只是一只腿湖南同日打落多名官员，此前烟花爆炸事故致37人死亡掷纸飞机、彩虹跑！
+2023年12月首期付款如约到账，交易看似顺利推进。
 
-长沙高考毕业生花式庆祝毕业重庆冷冻浓缩果汁首次自营出口欧盟再见了按钮！
+而2024年4-7月，风险暴露。
 
 ## 相关推荐
 
-- 2026-06-29 16:44 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-29 16:56 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-29 16:53 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 17:10 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 17:08 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-29 16:49 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 17:06 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 16:57 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-29 17:00 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 16:47 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 17:05 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 16:49 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 17:11 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-29 17:04 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 16:54 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-29 16:55 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 17:15 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 17:02 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 17:02 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-29 16:49 - [博主：美航母沦为毒品集散窝点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-29 17:09 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 17:05 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:05 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/98630450.shtml)
-- 2026-06-29 16:47 - [绘画区你赢了](http://www.share.minike.top/Article/details/1353447339.shtml)
-- 2026-06-29 17:10 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/40413.shtml)
-- 2026-06-29 17:00 - [王楚钦欢迎晚宴上打台球](http://www.blog.kurohicncr.top/Article/details/76362977748.shtml)
-- 2026-06-29 16:58 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/292684978520.shtml)
-- 2026-06-29 16:58 - [速度与激情9](http://www.blog.minike.top/Article/details/440146749741.shtml)
-- 2026-06-29 17:02 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/427827407687.shtml)
-- 2026-06-29 17:04 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/13556.shtml)
-- 2026-06-29 16:49 - [差点没看懂白鹿丞磊这段意识流](http://www.blog.kurohicncr.top/Article/details/470031.shtml)
-- 2026-06-29 17:06 - [滾石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/0698336.shtml)
-- 2026-06-29 16:55 - [杨紫视后第一场线下活动](https://www.share.kurohicncr.top/Article/details/28586759402.shtml)
-- 2026-06-29 17:01 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/6730756123.shtml)
-- 2026-06-29 16:45 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/833117311.shtml)
-- 2026-06-29 16:56 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/47263619461.shtml)
-- 2026-06-29 16:44 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/83231666572.shtml)
+- 2026-06-29 17:15 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/6618770.shtml)
+- 2026-06-29 17:14 - [2026年，如果你有100万，你会怎么投资？](https://www.share.kurohicncr.top/Article/details/712878098451.shtml)
+- 2026-06-29 16:48 - [苹果回应恋与深空低分](http://www.blog.minike.top/Article/details/62312364.shtml)
+- 2026-06-29 17:17 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/9922885328.shtml)
+- 2026-06-29 17:03 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/9959755617.shtml)
+- 2026-06-29 17:00 - [倪春青跨市履新苏州市委组织部部长](http://www.share.kurohicncr.top/Article/details/824869417.shtml)
+- 2026-06-29 17:08 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/19325223274.shtml)
+- 2026-06-29 17:09 - [赵露思爸爸拍vlog“翻车”](http://www.share.kurohicncr.top/Article/details/221390791093.shtml)
+- 2026-06-29 16:49 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.minike.top/Article/details/29517442.shtml)
+- 2026-06-29 17:13 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/084069.shtml)
+- 2026-06-29 17:16 - [扫黑风暴](http://www.share.minike.top/Article/details/254477663.shtml)
+- 2026-06-29 16:52 - [5万块的威力](https://www.share.minike.top/Article/details/15872.shtml)
+- 2026-06-29 17:01 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/423536.shtml)
+- 2026-06-29 17:06 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.minike.top/Article/details/6525026.shtml)
+- 2026-06-29 17:00 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/4251422.shtml)

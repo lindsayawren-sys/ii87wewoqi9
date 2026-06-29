@@ -1,60 +1,57 @@
-# 甘肃白银：非遗浸润烟火 让老文脉讲新故事
+# 收下这份应对指南 鼻炎患者也能享受春天
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-中新网兰州6月14日电 (文舒瑶 王佳怡)一柄刻刀游走宣纸，万千纹样跃然纸上；一曲曲子戏婉转悠扬，陇上乡音浸润人心；一盏滚灯流转光影，戈壁古韵鲜活重现……13日，在甘肃白银市靖远县文化产业中心广场，各类非遗集中亮相、动态展演，老匠人现场授艺、文创产品惊艳出圈，往来市民游客驻足观赏、沉浸式体验，近距离触摸藏在白银烟火里的千年文脉。 6月13日是2026年“文化和自然遗产日”，6月
+阿—嚏！春天鼻子又双叒叕堵了？这篇“自救指南”请收好 春天来了，花开得正好，你的鼻子却开始“造反”了。是不是每天早上一睁眼，先来一串连环喷嚏？是不是出门赏个花，回来就鼻涕眼泪糊一脸？桌上的纸巾，用起来比喝水还快。这时，身边总会有人关心一句：“哎呀，是不是感冒了？换季天气注意身体呀。” 且慢！如果这场“感冒”来得比闹钟还准时，而且拖了两三周还不见好，那么你得警惕了——这很可能不是
 
 ## 正文
 
-中新网兰州6月14日电 (文舒瑶 王佳怡)一柄刻刀游走宣纸，万千纹样跃然纸上；一曲曲子戏婉转悠扬，陇上乡音浸润人心；一盏滚灯流转光影，戈壁古韵鲜活重现……13日，在甘肃白银市靖远县文化产业中心广场，各类非遗集中亮相、动态展演，老匠人现场授艺、文创产品惊艳出圈，往来市民游客驻足观赏、沉浸式体验，近距离触摸藏在白银烟火里的千年文脉。
+阿—嚏！
 
-6月13日是2026年“文化和自然遗产日”，6月13日至16日，甘肃省2026年“文化和自然遗产日”非遗宣传展示主会场系列活动在靖远县举行，今年的活动主题是“非遗，让生活更美好”。
+春天鼻子又双叒叕堵了？
 
-活动现场鼓手们挥槌起落、节奏铿锵，鼓阵开合气势恢宏，尽显西北儿女的昂扬风骨与质朴情怀。
+这篇“自救指南”请收好 春天来了，花开得正好，你的鼻子却开始“造反”了。
 
-作为白银黄河战鼓的传承人，刘克贤从小在父辈的鼓声中“灌耳音”，2015年退役后才正式开始打鼓。
+是不是每天早上一睁眼，先来一串连环喷嚏？
 
-“打鼓不好学，感觉一看就会，一上手就废，要记住谱子，还要踩中鼓点，熟能生巧，练到最后全靠肌肉记忆。
+是不是出门赏个花，回来就鼻涕眼泪糊一脸？
 
-”刘克贤说，如今黄河战鼓更多用于文化表演，在守正基础上更要创新，比如其阵容、阵法设计上，要气势十足，有看头，才能吸引更多年轻人参与。
+桌上的纸巾，用起来比喝水还快。
 
-地处黄河之畔、丝路要道、长征腹地的白银，孕育出品类丰富、特色鲜明的非物质文化遗产。
+这时，身边总会有人关心一句：“哎呀，是不是感冒了？
 
-除黄河战鼓外，市域内非遗谱系完整、门类齐全，国家级、省级、市级、县级四级名录体系完备。
+换季天气注意身体呀。
 
 ## 相关推荐
 
-- 2026-06-29 17:00 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-29 17:05 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 16:52 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 17:07 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-29 16:55 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-29 16:47 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-29 16:53 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-29 17:01 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-29 16:43 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 16:56 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 16:58 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-29 17:05 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-29 17:11 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-29 16:59 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-29 17:17 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 17:12 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-29 17:11 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 16:49 - [普京介绍前线战事](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 17:09 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 16:48 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-29 17:00 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-29 16:57 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-29 16:49 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-29 16:52 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-29 17:00 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:49 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/506887241584.shtml)
-- 2026-06-29 16:53 - [波兰创该国高温纪录](http://www.blog.minike.top/Article/details/847207281379.shtml)
-- 2026-06-29 17:10 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/94522335950.shtml)
-- 2026-06-29 16:50 - [评论员：日菲勾连各有盘算](http://www.blog.minike.top/Article/details/9595696.shtml)
-- 2026-06-29 16:51 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.blog.kurohicncr.top/Article/details/29132457.shtml)
-- 2026-06-29 17:01 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.kurohicncr.top/Article/details/4099203.shtml)
-- 2026-06-29 17:05 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/225769801456.shtml)
-- 2026-06-29 16:52 - [小说《无悔追踪》翻红](https://www.blog.kurohicncr.top/Article/details/610703.shtml)
-- 2026-06-29 16:51 - [龟梨和也田中美奈实结婚](http://www.blog.minike.top/Article/details/57889201.shtml)
-- 2026-06-29 16:46 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/2294579.shtml)
-- 2026-06-29 17:10 - [欧盟为什么越来越倾向贸易保护](https://www.share.minike.top/Article/details/183757696.shtml)
-- 2026-06-29 17:03 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/452522549137.shtml)
-- 2026-06-29 17:02 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/1002147988.shtml)
-- 2026-06-29 16:59 - [博主：全球股市进入“AI极端共振”](http://www.blog.kurohicncr.top/Article/details/745317.shtml)
-- 2026-06-29 16:53 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/0507155059.shtml)
+- 2026-06-29 16:58 - [古力娜扎美出新高度](http://www.share.minike.top/Article/details/475011774683.shtml)
+- 2026-06-29 17:17 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.share.kurohicncr.top/Article/details/889670911293.shtml)
+- 2026-06-29 16:52 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/19036884375.shtml)
+- 2026-06-29 17:15 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/5163497322.shtml)
+- 2026-06-29 17:00 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.kurohicncr.top/Article/details/37881793489.shtml)
+- 2026-06-29 17:03 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.blog.kurohicncr.top/Article/details/600660574.shtml)
+- 2026-06-29 16:57 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/708976674844.shtml)
+- 2026-06-29 17:04 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.kurohicncr.top/Article/details/6195047293.shtml)
+- 2026-06-29 17:01 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/800692786497.shtml)
+- 2026-06-29 16:55 - [逆天祖国人](http://www.share.kurohicncr.top/Article/details/75818335.shtml)
+- 2026-06-29 16:54 - [金牌调解](https://www.share.kurohicncr.top/Article/details/808367176580.shtml)
+- 2026-06-29 17:16 - [李在镕：计划将光州作为芯片生产基地](https://www.share.minike.top/Article/details/213953082.shtml)
+- 2026-06-29 17:07 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/09611690.shtml)
+- 2026-06-29 17:12 - [永远有话聊的原因](https://www.blog.kurohicncr.top/Article/details/92932985.shtml)
+- 2026-06-29 16:56 - [NBA交易](https://www.blog.minike.top/Article/details/64924.shtml)

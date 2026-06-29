@@ -1,59 +1,55 @@
-# 绿电点亮南博会 更连通澜湄万家灯火
+# 中国—东盟（南宁）动漫游戏产业园揭牌
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-中新网昆明6月14日电 (记者 韩帅南)灵活舞动的机器人、闪耀的灯光、震撼的音响……14日，在第10届中国—南亚博览会(南博会)场馆中，这些设备都由绿色能源驱动。中国华能集团有限公司已连续4年为南博会提供全量绿电保障。 绿色电力不止点亮南博会，中国企业也将绿电带到老挝、柬埔寨、缅甸等周边国家。在柬埔寨，中国华能建成装机40万千瓦的桑河二级水电站，极大缓解当地供电不足。今年4月，
+【东盟专线】中国—东盟(南宁)动漫游戏产业园揭牌 中新社南宁4月15日电 (黄艳梅 王伟臣)中国—东盟(南宁)动漫游戏产业园15日在广西南宁市揭牌。该产业园深度融合人工智能(AI)技术、文旅资源与产业发展，致力打造为立足中国西南、辐射东盟的动漫产业新高地。 中国—东盟(南宁)动漫游戏产业园是广西壮族自治区重点文化产业项目和南宁市“十五五”重点文化项目，将联动中国国家动漫产业综合
 
 ## 正文
 
-中新网昆明6月14日电 (记者 韩帅南)灵活舞动的机器人、闪耀的灯光、震撼的音响……14日，在第10届中国—南亚博览会(南博会)场馆中，这些设备都由绿色能源驱动。
+【东盟专线】中国—东盟(南宁)动漫游戏产业园揭牌 中新社南宁4月15日电 (黄艳梅 王伟臣)中国—东盟(南宁)动漫游戏产业园15日在广西南宁市揭牌。
 
-中国华能集团有限公司已连续4年为南博会提供全量绿电保障。
+该产业园深度融合人工智能(AI)技术、文旅资源与产业发展，致力打造为立足中国西南、辐射东盟的动漫产业新高地。
 
-绿色电力不止点亮南博会，中国企业也将绿电带到老挝、柬埔寨、缅甸等周边国家。
+中国—东盟(南宁)动漫游戏产业园是广西壮族自治区重点文化产业项目和南宁市“十五五”重点文化项目，将联动中国国家动漫产业综合示范园引入优质IP，搭建面向东盟的数字内容加工、译制、发行全链条，推动数字文化产品规模化“出海”，构建双向文化协作通道，实现产业集聚与文化传播双向赋能。
 
-在柬埔寨，中国华能建成装机40万千瓦的桑河二级水电站，极大缓解当地供电不足。
+据悉，中国—东盟(南宁)动漫游戏产业园规划有中国—东盟国际动漫制作中心、中国—东盟国际动漫游戏交易中心、中国—东盟国际研学基地、AI动漫青年创业中心(校企合作实训基地)等十大核心功能板块。
 
-今年4月，中广核老挝北部清洁能源基地一期100万千瓦光伏项目并网，不仅保障当地用电，更支撑起产业升级。
+中国—东盟(南宁)动漫游戏产业园负责人周卫炜表示，南宁作为中国面向东盟开放合作的前沿枢纽城市，不仅拥有独特的区位优势，更兼具深厚的民族文化底蕴。
 
-“过去我的工厂经常用柴油发电，成本高，排烟也不环保。
+当日还举行了中国—东盟(南宁)动漫游戏产业园入园企业及文旅合作签约仪式和AIGC(人工智能生成内容)人才培养基地授牌仪式。
 
-”南博会参展商黄文强来自越南南部，他对中国的绿色能源合作项目感触颇深。
-
-黄文强说，他的家乡风力资源丰富，但几年前却是“缺电重灾区”。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 16:43 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 16:49 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-29 17:02 - [机器人学校开学了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-29 16:55 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 16:57 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 16:45 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 16:49 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-29 16:47 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 17:05 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-29 16:56 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-29 16:46 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 17:10 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 16:54 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 16:58 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 16:49 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-29 16:57 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-29 16:56 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-29 17:09 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 16:56 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 16:57 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-29 16:52 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 16:54 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 17:01 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-29 17:10 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:11 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/29442549.shtml)
-- 2026-06-29 17:10 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/619194.shtml)
-- 2026-06-29 17:00 - [爸爸当家](http://www.blog.kurohicncr.top/Article/details/8084930.shtml)
-- 2026-06-29 17:09 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/69905728.shtml)
-- 2026-06-29 16:55 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/173159.shtml)
-- 2026-06-29 16:52 - [河南考699分女生已接到清华大学电话](http://www.blog.kurohicncr.top/Article/details/32057222.shtml)
-- 2026-06-29 17:08 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.kurohicncr.top/Article/details/152459783.shtml)
-- 2026-06-29 16:45 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/778515010515.shtml)
-- 2026-06-29 17:07 - [美国大满贯首日国乒主力均取胜](https://www.share.kurohicncr.top/Article/details/11256286.shtml)
-- 2026-06-29 17:06 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/436986631253.shtml)
-- 2026-06-29 17:04 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/4302424.shtml)
-- 2026-06-29 17:10 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/244739.shtml)
-- 2026-06-29 16:42 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.minike.top/Article/details/22497121066.shtml)
-- 2026-06-29 17:10 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/59459.shtml)
-- 2026-06-29 17:02 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/1921856414.shtml)
+- 2026-06-29 16:54 - [2026世界杯谁能一黑到底](http://www.blog.kurohicncr.top/Article/details/714748265.shtml)
+- 2026-06-29 16:59 - [BB大王横店拍戏](http://www.share.minike.top/Article/details/5988070355.shtml)
+- 2026-06-29 17:01 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/988588023.shtml)
+- 2026-06-29 17:05 - [网友飞机上偶遇肖战](https://www.share.minike.top/Article/details/6274191531.shtml)
+- 2026-06-29 17:13 - [疑似吴建豪老婆正脸照](http://www.share.kurohicncr.top/Article/details/7434781104.shtml)
+- 2026-06-29 17:10 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/922461.shtml)
+- 2026-06-29 16:51 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/85540483820.shtml)
+- 2026-06-29 17:06 - [中方将20家日本实体列入关注名单](http://www.share.kurohicncr.top/Article/details/352246938845.shtml)
+- 2026-06-29 17:08 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/845234.shtml)
+- 2026-06-29 16:50 - [王曼昱被突如其来的话筒逗笑了](http://www.share.kurohicncr.top/Article/details/9425117.shtml)
+- 2026-06-29 16:54 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/645427948.shtml)
+- 2026-06-29 17:06 - [爱很美味](https://www.blog.minike.top/Article/details/96916985.shtml)
+- 2026-06-29 16:54 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.kurohicncr.top/Article/details/37549110.shtml)
+- 2026-06-29 17:07 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/48303499125.shtml)
+- 2026-06-29 17:03 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/93475433.shtml)

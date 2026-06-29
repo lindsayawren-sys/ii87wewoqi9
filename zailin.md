@@ -1,57 +1,59 @@
-# 2026中国与中东欧青年政治家论坛武汉闭幕
+# 香港国际机场蝉联2025年全球最繁忙货运机场
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-中新网武汉6月15日电 (记者 梁婷)2026中国与中东欧青年政治家论坛闭幕式15日在华中师范大学举行。来自中东欧国家的政党、智库、民间组织青年代表，走进校园，与高校学子互动，并亲身体验楚香、武汉面塑等湖北省非遗代表性项目。 华中师范大学党委书记夏立新在致辞中介绍，该校重视与中东欧国家教育合作与人文交流，与波兰华沙大学等20多所高校及机构建立了交流合作关系，迄今共培养中东欧留学
+中新社香港4月14日电 国际机场协会14日发布消息，香港国际机场凭借507万吨的年货运量，蝉联2025年全球最繁忙货运机场。这是该机场自2010年以来第15次获此殊荣。 香港机场管理局(简称“机管局”)行政总裁张李佳蕙表示，面对区域内的激烈竞争及全球经济不明朗因素，香港国际机场将加倍努力，积极提升竞争力，为航空货运业务拓展新领域。 为进一步巩固航空货运处理能力，香港国际机场持续
 
 ## 正文
 
-中新网武汉6月15日电 (记者 梁婷)2026中国与中东欧青年政治家论坛闭幕式15日在华中师范大学举行。
+中新社香港4月14日电 国际机场协会14日发布消息，香港国际机场凭借507万吨的年货运量，蝉联2025年全球最繁忙货运机场。
 
-来自中东欧国家的政党、智库、民间组织青年代表，走进校园，与高校学子互动，并亲身体验楚香、武汉面塑等湖北省非遗代表性项目。
+这是该机场自2010年以来第15次获此殊荣。
 
-华中师范大学党委书记夏立新在致辞中介绍，该校重视与中东欧国家教育合作与人文交流，与波兰华沙大学等20多所高校及机构建立了交流合作关系，迄今共培养中东欧留学生百余名，并聘请了50余位中东欧的专家学者来校任教讲学，并开展合作研究，取得丰硕成果。
+香港机场管理局(简称“机管局”)行政总裁张李佳蕙表示，面对区域内的激烈竞争及全球经济不明朗因素，香港国际机场将加倍努力，积极提升竞争力，为航空货运业务拓展新领域。
 
-“中国与中东欧国家虽相隔万里，但青年对话能跨越山海。
+为进一步巩固航空货运处理能力，香港国际机场持续推出多项措施。
 
-”华中师范大学波兰籍留学生安娜在交流分享中表示，在武汉的求学经历，为她打开了了解中国的窗口。
+美国联合包裹运送服务公司(UPS)于2026年3月在香港国际机场启动其新枢纽项目建设工程，预计将于2028年落成，届时每年可处理近100万吨货物。
 
-在这里，不仅可以感受大学与青年的蓬勃活力，也能体会到科技文化与日常生活交织相融的城市节奏。
+机管局亦在2025年与香港及广东省相关部门共同推出“空陆鲜活产品专属快线”，通过简化清关程序，经香港国际机场转运的优质鲜活产品可在数小时内送达粤港澳大湾区主要城市。
 
-“现代化不只是数字、速度与规模，归根结底，它回归人的生活，关乎教育、公共服务、文化认同，更关乎人们畅想美好未来的权利与机会。
+此外，香港国际机场东莞空港中心推出先导计划以来，其处理货物总价值已超过570亿元人民币。
 
-”她说。
+目前，该空港中心首阶段永久设施正在建设中，投产后年处理能力有望提升至超100万吨。
 
 ## 相关推荐
 
-- 2026-06-29 17:04 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 16:48 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 16:43 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-29 16:49 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 16:48 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-29 16:58 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-29 16:53 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-29 17:09 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 16:43 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-29 16:50 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-29 16:42 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-29 16:49 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 16:50 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-29 17:02 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 17:11 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-29 17:17 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-29 17:11 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 16:49 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 17:06 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 17:01 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-29 17:13 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-29 17:03 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 17:14 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 16:59 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:47 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/51024941584.shtml)
-- 2026-06-29 16:53 - [医院大厅放钢琴是形式主义吗](https://www.share.minike.top/Article/details/05449065.shtml)
-- 2026-06-29 17:01 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/312275398209.shtml)
-- 2026-06-29 17:10 - [中国空间站为什么要升级扩容](https://www.share.kurohicncr.top/Article/details/410319.shtml)
-- 2026-06-29 16:52 - [王楚钦首轮赢下国乒德比](https://www.share.minike.top/Article/details/215623.shtml)
-- 2026-06-29 16:51 - [逆天祖国人](http://www.blog.kurohicncr.top/Article/details/891281956336.shtml)
-- 2026-06-29 16:42 - [BB大王横店拍戏](http://www.share.minike.top/Article/details/26091.shtml)
-- 2026-06-29 16:56 - [新能源车能当外接空调用吗](https://www.blog.minike.top/Article/details/5157449555.shtml)
-- 2026-06-29 16:50 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/25829444604.shtml)
-- 2026-06-29 16:49 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/129785099519.shtml)
-- 2026-06-29 16:55 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/130585972340.shtml)
-- 2026-06-29 16:54 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/34057.shtml)
-- 2026-06-29 17:04 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/6314772633.shtml)
-- 2026-06-29 17:02 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/174431537768.shtml)
-- 2026-06-29 16:48 - [疑似吴建豪老婆正脸照](https://www.blog.minike.top/Article/details/91483486.shtml)
+- 2026-06-29 17:10 - [上海小区惊现鳄鱼](http://www.blog.kurohicncr.top/Article/details/418532048.shtml)
+- 2026-06-29 17:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/69132831477.shtml)
+- 2026-06-29 17:10 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.minike.top/Article/details/1951909.shtml)
+- 2026-06-29 16:59 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/254035779856.shtml)
+- 2026-06-29 16:53 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/28793212837.shtml)
+- 2026-06-29 17:06 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.blog.minike.top/Article/details/7544781390.shtml)
+- 2026-06-29 16:56 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.kurohicncr.top/Article/details/6834931939.shtml)
+- 2026-06-29 17:17 - [唐艺昕告别浪姐千字长文](http://www.blog.minike.top/Article/details/556241.shtml)
+- 2026-06-29 16:57 - [扬名立万](https://www.share.minike.top/Article/details/4982784.shtml)
+- 2026-06-29 16:52 - [戴军否认1993年月入过万](https://www.blog.kurohicncr.top/Article/details/02945451.shtml)
+- 2026-06-29 17:15 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/82320.shtml)
+- 2026-06-29 17:02 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/66198281.shtml)
+- 2026-06-29 17:06 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/6708489.shtml)
+- 2026-06-29 17:12 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/46663152676.shtml)
+- 2026-06-29 17:02 - [叠纸](https://www.blog.minike.top/Article/details/0731878.shtml)

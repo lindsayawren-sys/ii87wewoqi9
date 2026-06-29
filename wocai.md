@@ -1,58 +1,57 @@
-# 文化和自然遗产日：西藏公布首批自治区级考古遗址公园名单
+# 俄罗斯及白俄罗斯青少年运动员可参加国际乒联认证赛事
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-中新网拉萨6月13日电 (记者 赵朗)2026年文化和自然遗产日西藏自治区主场活动13日在拉萨市城关区曲贡遗址举行。活动主题为“文物属于人民 服务人民”。 主场活动宣读了西藏自治区级首批考古遗址公园名单，举行了自治区级考古遗址公园授牌仪式活动。经过评审，首批名单包括曲贡遗址、温江多遗址、卡若遗址、玛不错遗址、拉颇遗址。其中，曲贡遗址是研究青藏高原史前社会、生业经济、文化交流与文
+中新社北京4月15日电 国际乒联15日宣布，其执行董事会在综合评估当前关于俄罗斯、白俄罗斯运动员参赛的国际监管框架及最新发展动态后决定，保留现行成年组赛事中立参赛机制，同时制定适用于青少年和其他年龄组赛事的独立监管制度。在这一制度下，俄罗斯及白俄罗斯青少年运动员可以按照青少年赛事的标准规范，参加国际乒联认证的赛事。国际乒联表示，上述评估参照了国际奥林匹克委员会、国际残疾人奥林匹
 
 ## 正文
 
-中新网拉萨6月13日电 (记者 赵朗)2026年文化和自然遗产日西藏自治区主场活动13日在拉萨市城关区曲贡遗址举行。
+中新社北京4月15日电 国际乒联15日宣布，其执行董事会在综合评估当前关于俄罗斯、白俄罗斯运动员参赛的国际监管框架及最新发展动态后决定，保留现行成年组赛事中立参赛机制，同时制定适用于青少年和其他年龄组赛事的独立监管制度。
 
-活动主题为“文物属于人民 服务人民”。
+在这一制度下，俄罗斯及白俄罗斯青少年运动员可以按照青少年赛事的标准规范，参加国际乒联认证的赛事。
 
-主场活动宣读了西藏自治区级首批考古遗址公园名单，举行了自治区级考古遗址公园授牌仪式活动。
+国际乒联表示，上述评估参照了国际奥林匹克委员会、国际残疾人奥林匹克委员会，以及其他国际体育联合会的相关动态。
 
-经过评审，首批名单包括曲贡遗址、温江多遗址、卡若遗址、玛不错遗址、拉颇遗址。
+该决定亦参考了国际奥委会执委会的相关提议——该提议在2025年12月举行的第十四届奥林匹克峰会上获得支持，即不再限制俄罗斯、白俄罗斯青少年运动员参加国际青少年赛事。
 
-其中，曲贡遗址是研究青藏高原史前社会、生业经济、文化交流与文明进程的关键节点，对于理解高原早期农牧业发展、跨区域互动及文明起源具备不可替代的学术价值。
+此前，世界泳联已对俄罗斯和白俄罗斯的青年选手解除了限制，宣布取消对俄罗斯和白俄罗斯成年运动员的参赛限制，两国运动员可身着各自国家队队服、使用各自国家的国旗和国歌，参加世界泳联赛事。
 
-据了解，此举旨在加强西藏重要考古遗址保护与活化利用，切实推进大遗址保护与经济社会和谐发展。
+国际乒联执行董事会在审议过程中指出，相较于成年组精英赛事，青少年及各年龄组赛事在法律和管理层面均存在显著差异，因此有必要采取不同的监管方式。
 
-此次评选将进一步推进西藏考古遗址公园的后续建设工作，不断提高管理水平，提升公共文化服务功能，加大对遗址的研究、展示和利用，使考古遗址保护研究成果惠及社会和人民。
+国际乒联表示，上述决定将在所有保障措施完成制定、完善并公布后启动实施。
 
-主场活动还开展了非遗展示、西藏考古70周年成果图片展、第四次文物普查成果图片展以及文物保护相关普法宣传活动。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 16:59 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 16:50 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 16:55 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-29 17:04 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-29 16:52 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-29 17:03 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 16:45 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-29 16:48 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-29 16:53 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 16:50 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 17:08 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-29 17:06 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 17:10 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 17:11 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-29 17:01 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-29 17:03 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-29 17:07 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 17:17 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 17:07 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 17:17 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 16:49 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 17:13 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 17:04 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:52 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.share.kurohicncr.top/Article/details/43086640028.shtml)
-- 2026-06-29 17:07 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.minike.top/Article/details/4997297.shtml)
-- 2026-06-29 16:46 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/68850.shtml)
-- 2026-06-29 16:49 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.kurohicncr.top/Article/details/8113738.shtml)
-- 2026-06-29 16:59 - [欧盟为什么越来越倾向贸易保护](https://www.blog.kurohicncr.top/Article/details/3064246.shtml)
-- 2026-06-29 16:49 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.kurohicncr.top/Article/details/61977088.shtml)
-- 2026-06-29 17:04 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/64861767919.shtml)
-- 2026-06-29 16:44 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/79419.shtml)
-- 2026-06-29 17:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/538048153.shtml)
-- 2026-06-29 16:56 - [普京承认俄出现燃料危机](http://www.blog.minike.top/Article/details/937780717.shtml)
-- 2026-06-29 16:51 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/03704508930.shtml)
-- 2026-06-29 16:51 - [花万元相亲对象是50元雇的演员](http://www.blog.kurohicncr.top/Article/details/0133127.shtml)
-- 2026-06-29 16:50 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/146943.shtml)
-- 2026-06-29 16:49 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/62815693688.shtml)
-- 2026-06-29 17:00 - [中方将20家日本实体列入关注名单](https://www.share.minike.top/Article/details/788303.shtml)
+- 2026-06-29 17:02 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/20255.shtml)
+- 2026-06-29 17:01 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/67914541896.shtml)
+- 2026-06-29 17:14 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/13822037300.shtml)
+- 2026-06-29 16:59 - [巴西前锋说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/01783362749.shtml)
+- 2026-06-29 17:03 - [流金岁月](http://www.blog.minike.top/Article/details/56011265.shtml)
+- 2026-06-29 17:03 - [唐艺昕告别浪姐千字长文](https://www.blog.minike.top/Article/details/6831961.shtml)
+- 2026-06-29 16:54 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/79346.shtml)
+- 2026-06-29 16:53 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/54677.shtml)
+- 2026-06-29 17:11 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/8340138.shtml)
+- 2026-06-29 16:48 - [韩国国脚无缘上亿韩元奖金](http://www.blog.kurohicncr.top/Article/details/131260183438.shtml)
+- 2026-06-29 17:13 - [刘扬任湖南省副省长](http://www.blog.kurohicncr.top/Article/details/5016595.shtml)
+- 2026-06-29 17:10 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/438076865656.shtml)
+- 2026-06-29 16:59 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/084069235.shtml)
+- 2026-06-29 16:59 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.kurohicncr.top/Article/details/037786450.shtml)
+- 2026-06-29 17:17 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/436345866.shtml)

@@ -1,51 +1,59 @@
-# 全国20条中小河流发生超警以上洪水
+# 285万辆车同时在跑 比亚迪天神之眼每天跑出地球到太阳的距离
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-记者从水利部了解到，受降雨影响，昨天到今天，广西郁江支流猪儿河、贺江支流东安江，广东西江支流谷圩河、东江支流古竹水、韩江支流松源河，福建汀江上游及支流永定河、九龙江支流雁石溪、闽江上游沙溪支流长潭河，吉林二道松花江支流大沙河等20条中小河流发生超警以上洪水，最大超警幅度1.76米。目前，大部河流已退至警戒水位以下。 (总台央视记者 梁丽娟 李洁)
+快科技4月15日消息，比亚迪宣布，截止3月31日，旗下辅助驾驶车型保有量超285万辆，包括比亚迪天神之眼和华为乾坤智驾。其中，仅天神之眼车型每天生成数据就超1.8亿公里。1.8亿公里是什么概念？要知道，地日距离大概是1.5亿公里左右，比亚迪一天跑的智驾里程，已经超过地球到太阳的距离。海量的里程，带来的就是海量真实场景数据。这些数据会不断反哺算法，让辅助驾驶在各种路况下越练越熟。
 
 ## 正文
 
-记者从水利部了解到，受降雨影响，昨天到今天，广西郁江支流猪儿河、贺江支流东安江，广东西江支流谷圩河、东江支流古竹水、韩江支流松源河，福建汀江上游及支流永定河、九龙江支流雁石溪、闽江上游沙溪支流长潭河，吉林二道松花江支流大沙河等20条中小河流发生超警以上洪水，最大超警幅度1.76米。
+快科技4月15日消息，比亚迪宣布，截止3月31日，旗下辅助驾驶车型保有量超285万辆，包括比亚迪天神之眼和华为乾坤智驾。
 
-目前，大部河流已退至警戒水位以下。
+其中，仅天神之眼车型每天生成数据就超1.8亿公里。
 
-(总台央视记者 梁丽娟 李洁)
+1.8亿公里是什么概念？
+
+要知道，地日距离大概是1.5亿公里左右，比亚迪一天跑的智驾里程，已经超过地球到太阳的距离。
+
+海量的里程，带来的就是海量真实场景数据。
+
+这些数据会不断反哺算法，让辅助驾驶在各种路况下越练越熟。
+
+不管是高速、城市道路，还是复杂路口，系统都能通过大量实际行驶来优化判断和响应。
+
+对比很多还在靠仿真或者小批量路测的品牌，比亚迪这种靠海量真车、真路、真场景跑出来的智驾，优势很实在。
 
 ## 相关推荐
 
-- 2026-06-29 17:08 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-29 17:09 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 17:07 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 17:07 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 16:58 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-29 17:02 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-29 17:10 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-29 17:05 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 16:55 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-29 17:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 17:05 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-29 16:55 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 17:02 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 16:45 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-29 17:02 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-29 17:15 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-29 17:07 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 17:17 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 16:55 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-29 16:53 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 17:04 - [博主：美航母沦为毒品集散窝点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-29 17:16 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 17:08 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 16:53 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-29 16:52 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-29 16:51 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 16:57 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-29 16:57 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:48 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/303860542.shtml)
-- 2026-06-29 17:10 - [舒行钢任湖南省交通运输厅厅长](http://www.share.kurohicncr.top/Article/details/190561.shtml)
-- 2026-06-29 16:42 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/312465.shtml)
-- 2026-06-29 16:43 - [夏天被这些虫子咬了可能致命](https://www.blog.minike.top/Article/details/2530234.shtml)
-- 2026-06-29 17:09 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/209974010.shtml)
-- 2026-06-29 16:59 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.kurohicncr.top/Article/details/97511.shtml)
-- 2026-06-29 16:46 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/426015.shtml)
-- 2026-06-29 16:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/10976.shtml)
-- 2026-06-29 16:56 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/06387820.shtml)
-- 2026-06-29 16:46 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/335932.shtml)
-- 2026-06-29 17:01 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/391638960366.shtml)
-- 2026-06-29 16:48 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/1826528.shtml)
-- 2026-06-29 16:56 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/654343788.shtml)
-- 2026-06-29 16:53 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.minike.top/Article/details/9245156241.shtml)
-- 2026-06-29 17:08 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.minike.top/Article/details/5015979164.shtml)
+- 2026-06-29 16:55 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/13529408.shtml)
+- 2026-06-29 17:02 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/11323929.shtml)
+- 2026-06-29 16:54 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/5417446938.shtml)
+- 2026-06-29 17:14 - [世界杯看到肖战了](http://www.share.kurohicncr.top/Article/details/7686919.shtml)
+- 2026-06-29 16:55 - [普京为何喊话俄乌都别打对方纵深](https://www.share.kurohicncr.top/Article/details/669741345301.shtml)
+- 2026-06-29 16:55 - [王楚钦欢迎晚宴上打台球](http://www.share.minike.top/Article/details/443018.shtml)
+- 2026-06-29 17:16 - [工作靠AI算不算职场作弊](https://www.blog.kurohicncr.top/Article/details/52491358.shtml)
+- 2026-06-29 16:48 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/95133.shtml)
+- 2026-06-29 16:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/97830246138.shtml)
+- 2026-06-29 16:51 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/0727860501.shtml)
+- 2026-06-29 17:15 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/38977186326.shtml)
+- 2026-06-29 17:03 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/385872175.shtml)
+- 2026-06-29 17:03 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/323004518.shtml)
+- 2026-06-29 16:50 - [白宇摘下白玉兰送给杨幂](https://www.share.kurohicncr.top/Article/details/86449.shtml)
+- 2026-06-29 17:06 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.minike.top/Article/details/74748022.shtml)

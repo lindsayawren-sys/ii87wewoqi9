@@ -1,47 +1,60 @@
-# 台湾新党副主席：和平统一后 台湾会更安全 世界上没有哪个国家可以挑战台湾的安全
+# 大族数控早盘上涨7% 机构看好年内公司AI业务收入提升
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月13日 23:34 来源：中国新闻网 台湾新党副主席：和平统一后 台湾会更安全 世界上没有哪个国家可以挑战台湾的安全 责任编辑：【郭梦媛】
+大族数控（03200）早盘涨超7%，截至发稿，股价上涨7%，现报139.10港元，成交额4079.25万港元。 花旗发布研报称，中国PCB厂商产能扩张潮即将启动。2025年仅有胜宏科技一家中国PCB厂商扩张产能，其余在2025年7-8月宣布扩产的PCB厂商，将于2026年9-10月启动扩产计划。除胜宏科技外，景旺电子、鹏鼎控股、生益电子、东山精密、方正科技、广合科技均于2025
 
 ## 正文
 
-发布时间：2026年06月13日 23:34 来源：中国新闻网 台湾新党副主席：和平统一后 台湾会更安全 世界上没有哪个国家可以挑战台湾的安全 责任编辑：【郭梦媛】
+大族数控（03200）早盘涨超7%，截至发稿，股价上涨7%，现报139.10港元，成交额4079.25万港元。
+
+花旗发布研报称，中国PCB厂商产能扩张潮即将启动。
+
+2025年仅有胜宏科技一家中国PCB厂商扩张产能，其余在2025年7-8月宣布扩产的PCB厂商，将于2026年9-10月启动扩产计划。
+
+除胜宏科技外，景旺电子、鹏鼎控股、生益电子、东山精密、方正科技、广合科技均于2025年宣布扩产。
+
+据此，管理层预计大族数控AI业务收入占比将从2025年的约30%提升至2026年的约60%（胜宏科技贡献20%，其他厂商贡献40%）。
+
+花旗表示，大族数控已向AT&S、AKMMeadville等IC载板厂商交付多台超高速钻孔设备。
+
+目前超高速设备仅用于生产1.6T光模块的mSAP制程产品；管理层认为，AIPCB厂商是否采用超高速技术，取决于英伟达是否采用M9覆铜板+Q玻璃材料，而这只是时间问题。
+
+申万宏源指出，公司已构建了覆盖多层板、HDI 板、IC封装基板、挠性板及刚挠结合板等不同细分PCB市场的立体化产品矩阵，能够为 PCB 不同细分领域的客户提供差异化的一站式工序解决方案。
 
 ## 相关推荐
 
-- 2026-06-29 16:59 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-29 16:49 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-29 17:11 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 17:00 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-29 17:04 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 16:48 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 16:49 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-29 16:58 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 16:52 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 17:01 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-29 17:01 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-29 16:58 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-29 17:00 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 17:08 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 16:52 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-29 16:52 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 17:15 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 16:48 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-29 16:50 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 17:07 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-29 17:12 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 16:50 - [BB大王横店拍戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-29 16:58 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-29 16:53 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 17:08 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 17:01 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 17:10 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-29 17:08 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 16:54 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:53 - [斗破苍穹](https://www.blog.minike.top/Article/details/015897.shtml)
-- 2026-06-29 16:52 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/9636191909.shtml)
-- 2026-06-29 17:08 - [范志毅看好日本淘汰巴西](http://www.blog.minike.top/Article/details/653361241557.shtml)
-- 2026-06-29 16:56 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/164318.shtml)
-- 2026-06-29 17:06 - [广州一高校通报网传禁止小米汽车入校](https://www.share.minike.top/Article/details/48857400937.shtml)
-- 2026-06-29 17:01 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/289528388653.shtml)
-- 2026-06-29 16:47 - [唐艺昕告别浪姐千字长文](https://www.share.minike.top/Article/details/890687.shtml)
-- 2026-06-29 17:07 - [一见倾心](https://www.share.kurohicncr.top/Article/details/6067217.shtml)
-- 2026-06-29 16:53 - [盛秋平任南昌市委书记](http://www.blog.kurohicncr.top/Article/details/6303367718.shtml)
-- 2026-06-29 16:59 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/809271.shtml)
-- 2026-06-29 16:47 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/33746778673.shtml)
-- 2026-06-29 17:04 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/784643265.shtml)
-- 2026-06-29 17:06 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.kurohicncr.top/Article/details/1864782201.shtml)
-- 2026-06-29 16:56 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/369497966152.shtml)
-- 2026-06-29 16:54 - [共享单车“价格刺客”79分钟30元](https://www.blog.minike.top/Article/details/671618.shtml)
+- 2026-06-29 17:16 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.minike.top/Article/details/91477418415.shtml)
+- 2026-06-29 17:03 - [为何说今日日本似战前日本](https://www.blog.minike.top/Article/details/58329492.shtml)
+- 2026-06-29 17:17 - [绘画区你赢了](http://www.share.minike.top/Article/details/714671.shtml)
+- 2026-06-29 16:50 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/41448651825.shtml)
+- 2026-06-29 16:54 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/392198276888.shtml)
+- 2026-06-29 16:50 - [港股爆发 美团百度阿里等集体大涨](http://www.share.kurohicncr.top/Article/details/786773169.shtml)
+- 2026-06-29 17:11 - [成都至北京将新增动卧](https://www.share.kurohicncr.top/Article/details/982002929.shtml)
+- 2026-06-29 17:13 - [和周杰伦在演唱会合唱了](http://www.blog.kurohicncr.top/Article/details/7579749.shtml)
+- 2026-06-29 16:57 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/0224555498.shtml)
+- 2026-06-29 16:59 - [CORTIS登机迟到致航班延误](http://www.share.kurohicncr.top/Article/details/5819159976.shtml)
+- 2026-06-29 17:18 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/50659054045.shtml)
+- 2026-06-29 17:00 - [拍到真的赛博朋克边缘行者了！](https://www.blog.kurohicncr.top/Article/details/39523.shtml)
+- 2026-06-29 17:08 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/11209827.shtml)
+- 2026-06-29 17:02 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/9682675.shtml)
+- 2026-06-29 17:08 - [天道](http://www.blog.minike.top/Article/details/66920.shtml)

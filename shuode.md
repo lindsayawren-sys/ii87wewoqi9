@@ -1,55 +1,58 @@
-# 英国央行利率决议前夕 人们对通胀的担忧正日益上升
+# 据报美伊将在巴基斯坦再次举行会谈 中方回应
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-新华财经北京6月15日电 英国央行将于周四举行利率决议，会议或将以多数票决定维持利率不变，但此次会议预计将反映出货币政策委员会对长期能源危机带来的通胀风险日益增长的担忧。 在英国央行行长贝利和副行长布里登等高级官员呼吁央行在应对通胀上升风险前应保持谨慎后，市场普遍预期该行将把关键利率维持在3.75%不变。 “劳动力市场的势头已显著降温，”St James’s Place的经济学
+中新网北京4月15日电 (记者 黄钰钦 曾玥)中国外交部发言人郭嘉昆15日主持例行记者会。 有记者提问：据报道，美方表示与伊朗的会谈可能在未来两天内在巴基斯坦举行。中方对此有何评论，对下一轮的谈判持何看法？中方是否将继续发挥斡旋作用？ 郭嘉昆：中方欢迎一切有助于停火止战的努力，赞赏巴基斯坦促成美伊临时停火，并发挥了公正平衡的斡旋作用。当务之急是全力避免战端重启，保持来之不易的停
 
 ## 正文
 
-新华财经北京6月15日电 英国央行将于周四举行利率决议，会议或将以多数票决定维持利率不变，但此次会议预计将反映出货币政策委员会对长期能源危机带来的通胀风险日益增长的担忧。
+中新网北京4月15日电 (记者 黄钰钦 曾玥)中国外交部发言人郭嘉昆15日主持例行记者会。
 
-在英国央行行长贝利和副行长布里登等高级官员呼吁央行在应对通胀上升风险前应保持谨慎后，市场普遍预期该行将把关键利率维持在3.75%不变。
+有记者提问：据报道，美方表示与伊朗的会谈可能在未来两天内在巴基斯坦举行。
 
-“劳动力市场的势头已显著降温，”St James’s Place的经济学家Hetal Mehta表示，“我认为目前尚无足够动力支持加息。
+中方对此有何评论，对下一轮的谈判持何看法？
 
-” 但至少两位利率制定者——英国央行首席经济学家皮尔和货币政策委员格林——已暗示将要求立即加息。
+中方是否将继续发挥斡旋作用？
 
-另一位货币政策委员曼恩则表示，如果能源危机恶化，不排除在某个时间点上调利率的可能性。
+郭嘉昆：中方欢迎一切有助于停火止战的努力，赞赏巴基斯坦促成美伊临时停火，并发挥了公正平衡的斡旋作用。
 
-编辑：马萌伟 责任编辑：郭建
+当务之急是全力避免战端重启，保持来之不易的停火势头，坚持通过政治外交途径解决争端。
+
+昨天上午习近平主席在会见阿联酋阿布扎比王储哈立德时，就维护和促进中东和平稳定提出四点主张，包括坚持和平共处原则、坚持国家主权原则、坚持国际法治原则、坚持统筹发展和安全。
+
+这四点重要主张体现了中方促和止战、倡导对话化解分歧的一贯立场和积极努力。
 
 ## 相关推荐
 
-- 2026-06-29 17:06 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-29 16:48 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-29 16:53 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 16:57 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-29 16:56 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-29 17:01 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 16:43 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-29 16:48 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-29 17:05 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-29 16:58 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-29 16:58 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-29 16:50 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 16:57 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-29 17:06 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 17:07 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 16:59 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 16:56 - [王安宇尊重田曦薇的一切选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-29 17:11 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 17:07 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 16:52 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-29 17:11 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-29 16:51 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-29 17:07 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 17:13 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 17:08 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:49 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/25091942.shtml)
-- 2026-06-29 16:47 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/0650801909.shtml)
-- 2026-06-29 16:44 - [小众羞耻点是吃麻辣烫](https://www.share.minike.top/Article/details/130011333325.shtml)
-- 2026-06-29 16:48 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/794682909.shtml)
-- 2026-06-29 17:07 - [职业选手禁止参赛！](https://www.share.kurohicncr.top/Article/details/32710986.shtml)
-- 2026-06-29 17:03 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/57027.shtml)
-- 2026-06-29 16:53 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/0426788.shtml)
-- 2026-06-29 17:05 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/89773875917.shtml)
-- 2026-06-29 17:11 - [逃狱兄弟](https://www.blog.minike.top/Article/details/403851161687.shtml)
-- 2026-06-29 16:45 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/0748688.shtml)
-- 2026-06-29 16:53 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.minike.top/Article/details/85818008985.shtml)
-- 2026-06-29 16:46 - [请回答王牌2019](https://www.blog.minike.top/Article/details/37337127.shtml)
-- 2026-06-29 16:43 - [这一刀 会很帅](https://www.share.minike.top/Article/details/787764124721.shtml)
-- 2026-06-29 16:47 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/77792596.shtml)
-- 2026-06-29 16:42 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/854294.shtml)
+- 2026-06-29 17:07 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/26341.shtml)
+- 2026-06-29 17:02 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/79213473.shtml)
+- 2026-06-29 17:16 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/734938516423.shtml)
+- 2026-06-29 17:07 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.minike.top/Article/details/471493.shtml)
+- 2026-06-29 17:02 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/25994.shtml)
+- 2026-06-29 17:08 - [欧洲人驾车200公里抢购中国空调](http://www.share.minike.top/Article/details/026193065331.shtml)
+- 2026-06-29 17:00 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/59225984.shtml)
+- 2026-06-29 16:50 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/829956954.shtml)
+- 2026-06-29 16:53 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/295510171922.shtml)
+- 2026-06-29 16:58 - [1个视频看懂2026志愿填报新专业](https://www.share.kurohicncr.top/Article/details/36254.shtml)
+- 2026-06-29 17:12 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/66296.shtml)
+- 2026-06-29 17:02 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.kurohicncr.top/Article/details/658305.shtml)
+- 2026-06-29 17:01 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/005856805.shtml)
+- 2026-06-29 16:56 - [五粮液回应宜宾地震影响](https://www.blog.minike.top/Article/details/5189421.shtml)
+- 2026-06-29 17:09 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/586886380746.shtml)

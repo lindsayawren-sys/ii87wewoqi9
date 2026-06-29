@@ -1,61 +1,59 @@
-# “香港非遗月”亮点纷呈 非遗魅力浸润全城
+# 中外记者探访上海：当世界关注中国开放前沿，他们在关注什么？
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-中新网香港6月14日电 (记者 赵静怡)“香港非遗月2026”活动展期为5月30日至6月30日，今年继续以“香港处处有非遗”为主题。本届活动目前进程过半，形式多样、亮点纷呈，点燃公众对非遗的兴趣与热情。 线下民俗活动是本届“非遗月”一大亮点。6月13日至14日，“非遗庆喜·三栋屋多元”同乐日落地香港非物质文化遗产中心。市民在13日的活动现场欣赏儿童演绎的共融粤剧、海陆丰舞麒麟，
+中新网上海4月15日电 题：中外记者探访上海：当世界关注中国开放前沿，他们在关注什么？ 作者 李姝徵 娄瀚锟 4月13日至14日，近70名来自美国、俄罗斯、英国、法国、德国、瑞典、澳大利亚、巴西、日本、韩国、新加坡、印度尼西亚等国家和地区的中外记者探访中国最大的经济中心、中国的开放前沿——上海。 稳定清晰的发展规划、可预期的政策环境、高效便捷的政务服务，以及全球领先的营商环境，
 
 ## 正文
 
-中新网香港6月14日电 (记者 赵静怡)“香港非遗月2026”活动展期为5月30日至6月30日，今年继续以“香港处处有非遗”为主题。
+中新网上海4月15日电 题：中外记者探访上海：当世界关注中国开放前沿，他们在关注什么？
 
-本届活动目前进程过半，形式多样、亮点纷呈，点燃公众对非遗的兴趣与热情。
+作者 李姝徵 娄瀚锟 4月13日至14日，近70名来自美国、俄罗斯、英国、法国、德国、瑞典、澳大利亚、巴西、日本、韩国、新加坡、印度尼西亚等国家和地区的中外记者探访中国最大的经济中心、中国的开放前沿——上海。
 
-线下民俗活动是本届“非遗月”一大亮点。
+稳定清晰的发展规划、可预期的政策环境、高效便捷的政务服务，以及全球领先的营商环境，让上海成为近8万家外资企业深耕中国市场的优选之地。
 
-6月13日至14日，“非遗庆喜·三栋屋多元”同乐日落地香港非物质文化遗产中心。
+2019年，特斯拉上海超级工厂实现当年开工、当年建设、当年投产，“上海速度”与“特斯拉速度”相互交织，成为外界观察中国营商效率的案例。
 
-市民在13日的活动现场欣赏儿童演绎的共融粤剧、海陆丰舞麒麟，参与花带编织和吉祥图案刺绣工作坊。
+“特斯拉为何将首个海外超级工厂落子上海？
 
-三栋屋村村长陈锦康14日带领参观者走访客家围屋，讲解这座超200年古建筑的结构特色与故事。
+”14日，中外记者走进特斯拉上海超级工厂，特斯拉公司副总裁、中国区总裁王昊分享了在沪发展的切身感受。
 
-香港市民谈国钧表示，香港非物质文化遗产中心是“大、中、小学生课外学习的好地方”。
+“我们曾历时数年在多地考察选址，最终选择上海，正是看中这里开放包容、多元共生的国际化营商环境。
 
-本届“非遗月”活动注重融入科技元素。
+”在王昊看来，上海的吸引力是全方位、综合性的：既有高效务实的政务服务，也有长三角地区最完备的供应链体系和交通网络；既有强大的先进制造能力，也有雄厚的高端人才储备。
 
 ## 相关推荐
 
-- 2026-06-29 16:59 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-29 16:43 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 16:53 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 17:07 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 16:43 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-29 16:58 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 17:04 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 16:55 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-29 17:04 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 16:52 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-29 17:08 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 16:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 17:04 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-29 17:05 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-29 17:02 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 16:56 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-29 17:04 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-29 17:16 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-29 17:08 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 17:02 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 16:56 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-29 17:18 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-29 17:13 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-29 17:06 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 17:14 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 16:55 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 17:02 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 17:16 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:08 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/2529450.shtml)
-- 2026-06-29 16:57 - [孙怡告别浪姐千字文](https://www.share.minike.top/Article/details/1602421.shtml)
-- 2026-06-29 17:09 - [T1 KC](http://www.share.kurohicncr.top/Article/details/813657938.shtml)
-- 2026-06-29 16:59 - [倪春青跨市履新苏州市委组织部部长](http://www.blog.minike.top/Article/details/1509860854.shtml)
-- 2026-06-29 16:44 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/205747006307.shtml)
-- 2026-06-29 16:50 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/66180532851.shtml)
-- 2026-06-29 17:06 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/2542125987.shtml)
-- 2026-06-29 17:11 - [众星恭喜吴建豪](http://www.share.minike.top/Article/details/342292714.shtml)
-- 2026-06-29 17:08 - [天道](https://www.share.kurohicncr.top/Article/details/16305.shtml)
-- 2026-06-29 16:53 - [曝屠颖去世和酒店失责有关](http://www.blog.kurohicncr.top/Article/details/35147.shtml)
-- 2026-06-29 16:45 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/228687770.shtml)
-- 2026-06-29 16:42 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/915698819260.shtml)
-- 2026-06-29 17:04 - [妹妹的正确用法！](http://www.blog.kurohicncr.top/Article/details/3246367836.shtml)
-- 2026-06-29 16:54 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/82969720.shtml)
-- 2026-06-29 16:44 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/3490967.shtml)
+- 2026-06-29 16:54 - [戴军否认1993年月入过万](https://www.blog.kurohicncr.top/Article/details/1333701.shtml)
+- 2026-06-29 17:14 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.minike.top/Article/details/708426.shtml)
+- 2026-06-29 17:03 - [日本主教练回应迎战巴西](https://www.share.kurohicncr.top/Article/details/9203381356.shtml)
+- 2026-06-29 17:17 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/157632.shtml)
+- 2026-06-29 17:01 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/8350975.shtml)
+- 2026-06-29 17:03 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.share.minike.top/Article/details/176160767.shtml)
+- 2026-06-29 16:50 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/60667910.shtml)
+- 2026-06-29 17:01 - [滾石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/99502.shtml)
+- 2026-06-29 17:11 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.minike.top/Article/details/07139835.shtml)
+- 2026-06-29 17:07 - [撒旦的腋窝是什么比喻](http://www.share.minike.top/Article/details/20864.shtml)
+- 2026-06-29 17:02 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/95904333700.shtml)
+- 2026-06-29 16:49 - [广东一地发现极危植物新物种](http://www.share.kurohicncr.top/Article/details/1038724277.shtml)
+- 2026-06-29 16:52 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/13730.shtml)
+- 2026-06-29 17:00 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/260651.shtml)
+- 2026-06-29 17:02 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/67681170786.shtml)

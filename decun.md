@@ -1,45 +1,57 @@
-# 澳大利亚现鲨鱼袭人 一女子重伤
+# 耶伦称美联储今年仍可能降息 主席候选人沃什或与特朗普意见相左
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 10:51 来源：央视新闻 责任编辑：【王祎】
+美国前财政部长、前美联储主席珍妮特·耶伦表示，她仍然认为美国今年稍后可能降息，尽管伊朗战争引发的油价冲击为经济前景增添不确定性。 耶伦周三在香港举行的汇丰全球投资峰会上表示，这确实是一次广泛的供应冲击，波及范围从汽油价格蔓延至液化天然气、化肥、食品、运输成本和半导体等领域。耶伦指出，虽然不能排除升息的必要性，但稳定的长期通胀预期表明，目前升息的可能性仍然不大。 “我猜今年晚些时
 
 ## 正文
 
-发布时间：2026年06月15日 10:51 来源：央视新闻 责任编辑：【王祎】
+美国前财政部长、前美联储主席珍妮特·耶伦表示，她仍然认为美国今年稍后可能降息，尽管伊朗战争引发的油价冲击为经济前景增添不确定性。
+
+耶伦周三在香港举行的汇丰全球投资峰会上表示，这确实是一次广泛的供应冲击，波及范围从汽油价格蔓延至液化天然气、化肥、食品、运输成本和半导体等领域。
+
+耶伦指出，虽然不能排除升息的必要性，但稳定的长期通胀预期表明，目前升息的可能性仍然不大。
+
+“我猜今年晚些时候可能会降息。
+
+我认为这完全有可能，也是主要情景。
+
+但是，很多事情都有可能，”这位前财政部长说。
+
+美联储3月17日至18日会议的纪要显示，越来越多的官员担心伊朗战争可能进一步加剧通胀，希望明确指出美联储可能不得不考虑升息。
+
+该次会议后公布的预测显示，政策制定者预计，2026年将降息一次，与去年12月的预测持平。
 
 ## 相关推荐
 
-- 2026-06-29 17:06 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-29 17:06 - [恋与深空发放补偿未得到玩家认可](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-29 16:46 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-29 17:05 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-29 16:53 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-29 16:55 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-29 17:02 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-29 16:52 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 16:56 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 16:43 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-29 17:07 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-29 16:44 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-29 17:10 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 16:52 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 16:49 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 17:04 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 16:50 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-29 16:49 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 17:12 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-29 16:49 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 17:17 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-29 17:12 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-29 17:16 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-29 17:03 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:57 - [重度抑郁女孩没钱去做心理咨询](http://www.share.minike.top/Article/details/61352.shtml)
-- 2026-06-29 16:56 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/736383711.shtml)
-- 2026-06-29 17:11 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/388503607413.shtml)
-- 2026-06-29 16:58 - [把古诗里的动作换成加班](http://www.blog.minike.top/Article/details/359151018.shtml)
-- 2026-06-29 17:05 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/229346530.shtml)
-- 2026-06-29 16:56 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/4643864916.shtml)
-- 2026-06-29 16:54 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/50061714390.shtml)
-- 2026-06-29 17:05 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/1319198.shtml)
-- 2026-06-29 16:46 - [范志毅看好日本淘汰巴西](http://www.blog.kurohicncr.top/Article/details/38648.shtml)
-- 2026-06-29 16:43 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/318204397.shtml)
-- 2026-06-29 16:58 - [音乐人屠颖离世家属追责涉事酒店](http://www.blog.minike.top/Article/details/601415.shtml)
-- 2026-06-29 16:57 - [第一炉香](https://www.blog.minike.top/Article/details/40397610.shtml)
-- 2026-06-29 16:57 - [拍到真的赛博朋克边缘行者了！](http://www.share.kurohicncr.top/Article/details/258603647744.shtml)
-- 2026-06-29 16:51 - [T1 KC](https://www.blog.kurohicncr.top/Article/details/51850.shtml)
-- 2026-06-29 17:00 - [FIFA回应佛得角队长被指控强奸](http://www.blog.minike.top/Article/details/51978361165.shtml)
+- 2026-06-29 16:57 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.minike.top/Article/details/57209857694.shtml)
+- 2026-06-29 16:50 - [博主：AI泡沫必须破灭](https://www.share.kurohicncr.top/Article/details/41889.shtml)
+- 2026-06-29 17:15 - [叠纸](http://www.share.kurohicncr.top/Article/details/254057.shtml)
+- 2026-06-29 17:04 - [女心理师](http://www.share.kurohicncr.top/Article/details/12022313745.shtml)
+- 2026-06-29 17:11 - [人形机器人](http://www.share.minike.top/Article/details/66016.shtml)
+- 2026-06-29 17:13 - [职业选手禁止参赛！](http://www.share.kurohicncr.top/Article/details/1742337418.shtml)
+- 2026-06-29 17:12 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/84041923240.shtml)
+- 2026-06-29 16:55 - [税务总局披露5起合规申报个税案例](http://www.share.minike.top/Article/details/42795970271.shtml)
+- 2026-06-29 17:17 - [媒体：听清自己内心的声音再填志愿](https://www.blog.kurohicncr.top/Article/details/76011.shtml)
+- 2026-06-29 17:01 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/1811551867.shtml)
+- 2026-06-29 17:15 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/6852975739.shtml)
+- 2026-06-29 17:16 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/896562185093.shtml)
+- 2026-06-29 16:59 - [重度抑郁女孩没钱去做心理咨询](http://www.blog.minike.top/Article/details/620369300.shtml)
+- 2026-06-29 17:08 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/406203.shtml)
+- 2026-06-29 17:15 - [王冰冰向全网安利哈兰德](http://www.blog.minike.top/Article/details/712927381.shtml)

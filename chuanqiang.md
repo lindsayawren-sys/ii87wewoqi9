@@ -1,56 +1,52 @@
-# 李家超：发挥社团纽带作用 深化京港合作
+# 大美边疆看我家丨辽宁东港：獐岛皮皮虾上岸记
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-中新网香港6月16日电 (记者 戴小橦)香港北京社团总会15日晚在香港举行“庆祝中华人民共和国成立77周年、香港回归祖国29周年暨香港北京社团总会第二届理事会就职典礼”。香港特区行政长官李家超致辞表示，京港两地在国家推进高质量发展的进程中，都扮演重要角色，两地优势互补，合作空间广阔。 李家超表示，香港北京社团总会自2023年成立以来，一直以爱国爱港的宗旨，团结京港乡亲和各界友好
+发布时间：2026年04月14日 17:55 来源：中国新闻网 在辽宁丹东东港市北井子镇獐岛村，每年的四五月份，是皮皮虾上岸的大忙季。退潮时，渔民驾驶小船在距离岛屿四五海里附近的海域作业，或下网或收网，涨潮时返回。獐岛村有一百多艘专门用来收获皮皮虾的小船，忙碌的春收季，獐岛的皮皮虾美味和小渔船美景都在线。(作者：孙成武） 责任编辑：【魏聪聪】
 
 ## 正文
 
-中新网香港6月16日电 (记者 戴小橦)香港北京社团总会15日晚在香港举行“庆祝中华人民共和国成立77周年、香港回归祖国29周年暨香港北京社团总会第二届理事会就职典礼”。
+发布时间：2026年04月14日 17:55 来源：中国新闻网 在辽宁丹东东港市北井子镇獐岛村，每年的四五月份，是皮皮虾上岸的大忙季。
 
-香港特区行政长官李家超致辞表示，京港两地在国家推进高质量发展的进程中，都扮演重要角色，两地优势互补，合作空间广阔。
+退潮时，渔民驾驶小船在距离岛屿四五海里附近的海域作业，或下网或收网，涨潮时返回。
 
-李家超表示，香港北京社团总会自2023年成立以来，一直以爱国爱港的宗旨，团结京港乡亲和各界友好，积极发挥桥梁作用，为促进京港两地在经贸、文化、青年发展等领域的交流合作贡献力量。
+獐岛村有一百多艘专门用来收获皮皮虾的小船，忙碌的春收季，獐岛的皮皮虾美味和小渔船美景都在线。
 
-今年是国家“十五五”规划的开局之年。
-
-“十五五”规划纲要指出，加强港澳与内地经贸、科技、人文等合作，完善便利港澳居民在内地发展和生活政策措施。
-
-有序推进与内地金融市场互联互通，深化与内地产学研创新协同。
-
-香港北京社团总会会长施荣怀致辞表示，香港北京社团总会始终坚定支持特区政府和行政长官依法施政，坚定支持“一国两制”实践和基本法的贯彻落实。
-
-香港北京社团总会第二届理事会成员将继续紧跟国家发展大局，把握机遇、主动作为，深化京港两地在经贸、科技等领域的合作。
+(作者：孙成武） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 16:54 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-29 16:46 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-29 16:42 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 16:50 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-29 16:51 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 16:56 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-29 17:10 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 16:52 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-29 16:42 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-29 17:11 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 16:55 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-29 16:49 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 16:59 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-29 16:51 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-29 17:09 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 16:48 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 17:02 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-29 17:09 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-29 17:12 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-29 16:55 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 16:59 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 17:14 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 17:08 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 16:54 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:45 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/966857.shtml)
-- 2026-06-29 16:51 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/219960.shtml)
-- 2026-06-29 16:55 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/12808027163.shtml)
-- 2026-06-29 16:50 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.share.minike.top/Article/details/74746496.shtml)
-- 2026-06-29 16:58 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/05476320794.shtml)
-- 2026-06-29 17:02 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/975080.shtml)
-- 2026-06-29 16:52 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.kurohicncr.top/Article/details/87296.shtml)
-- 2026-06-29 16:59 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/931765881.shtml)
-- 2026-06-29 17:08 - [恋与深空发放补偿未得到玩家认可](https://www.blog.minike.top/Article/details/47839953231.shtml)
-- 2026-06-29 17:04 - [医院大厅放钢琴是形式主义吗](https://www.blog.kurohicncr.top/Article/details/2749349.shtml)
-- 2026-06-29 17:05 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/4024950187.shtml)
-- 2026-06-29 17:11 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/24786363061.shtml)
-- 2026-06-29 17:11 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/459775971.shtml)
-- 2026-06-29 16:42 - [张雪机车杀向海外](https://www.blog.minike.top/Article/details/964257.shtml)
-- 2026-06-29 16:54 - [东方风云榜](https://www.share.minike.top/Article/details/840876427223.shtml)
+- 2026-06-29 16:49 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/3612704829.shtml)
+- 2026-06-29 16:53 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/680583754771.shtml)
+- 2026-06-29 17:11 - [人类对空调和其他家电有多双标](http://www.blog.kurohicncr.top/Article/details/03456835936.shtml)
+- 2026-06-29 17:12 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.blog.kurohicncr.top/Article/details/8945115146.shtml)
+- 2026-06-29 17:02 - [海口塔吊事故处罚结果公布](https://www.blog.minike.top/Article/details/86702842.shtml)
+- 2026-06-29 16:59 - [美的空调 卡bug](http://www.blog.minike.top/Article/details/2018207844.shtml)
+- 2026-06-29 17:17 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/71620046858.shtml)
+- 2026-06-29 16:57 - [为何说今日日本似战前日本](http://www.blog.minike.top/Article/details/372338746.shtml)
+- 2026-06-29 17:11 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/17372115.shtml)
+- 2026-06-29 16:58 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/8977164140.shtml)
+- 2026-06-29 17:17 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/572387832.shtml)
+- 2026-06-29 17:04 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.minike.top/Article/details/46583060263.shtml)
+- 2026-06-29 16:59 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/68269350004.shtml)
+- 2026-06-29 17:01 - [一家三口吃溪石斑鱼中毒](https://www.blog.kurohicncr.top/Article/details/59795301975.shtml)
+- 2026-06-29 16:49 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/2859389002.shtml)

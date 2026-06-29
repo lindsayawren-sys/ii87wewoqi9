@@ -1,58 +1,60 @@
-# 半年赚了150万！投行、基金大佬转行卖保险，金融圈悄悄变天了？
+# 中国国际教育巡回展走进成都 海外高校“组团”吸引优质生源
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-行情好的时候，大家项目一个接一个，年底奖金拿到手软。但今年以来，越来越多的金融从业者，离开了曾经光鲜的“战场”。但不是换家机构继续卷，也不是去考公上岸，而是涌进了一个过去被认为“门槛低”“姿态低”的行业——保险。 文丨金融八卦女特约作者：身披铠甲的方方 当一个行业的精英开始批量转行，这本身就是一种信号。 今年以来，八妹身边越来越多的金融从业者，离开了曾经光鲜的“战场”。但不是换
+中新网成都4月14日电 (记者 王鹏)2026年(第三十一届)中国国际教育巡回展14日走进成都，吸引了来自18个国家和地区的近80所院校和机构参展。多国高校及教育机构“组团”亮相，面向西南地区集中开展招生推广，释放出海外优质教育资源持续看好中国生源市场的信号。 本届巡回展由教育部留学服务中心主办，成都站为本次巡回展第二站。展会现场，英国、新加坡、哈萨克斯坦等国家以展团形式集中展
 
 ## 正文
 
-行情好的时候，大家项目一个接一个，年底奖金拿到手软。
+中新网成都4月14日电 (记者 王鹏)2026年(第三十一届)中国国际教育巡回展14日走进成都，吸引了来自18个国家和地区的近80所院校和机构参展。
 
-但今年以来，越来越多的金融从业者，离开了曾经光鲜的“战场”。
+多国高校及教育机构“组团”亮相，面向西南地区集中开展招生推广，释放出海外优质教育资源持续看好中国生源市场的信号。
 
-但不是换家机构继续卷，也不是去考公上岸，而是涌进了一个过去被认为“门槛低”“姿态低”的行业——保险。
+本届巡回展由教育部留学服务中心主办，成都站为本次巡回展第二站。
 
-文丨金融八卦女特约作者：身披铠甲的方方 当一个行业的精英开始批量转行，这本身就是一种信号。
+展会现场，英国、新加坡、哈萨克斯坦等国家以展团形式集中展示本国高等教育体系与优势项目。
 
-今年以来，八妹身边越来越多的金融从业者，离开了曾经光鲜的“战场”。
+其中，新加坡多所公立高校集体参展，涵盖综合性大学、科技设计类院校及艺术类高校，成为现场关注焦点之一。
 
-但不是换家机构继续卷，也不是去考公上岸，而是涌进了一个过去被认为“门槛低”“姿态低”的行业——保险。
+“成都站既是我们主动选择的结果，也是展商反馈的‘答案’。
 
-他们不承认自己走投无路，但真当项目枯竭、降薪转岗、职级锁死成了日常，“出走”就成了一场体面的撤退。
+”教育部留学服务中心国际合作处项目专员董博然在接受中新网记者采访时表示，近年来，多家海外院校表达了进入西南市场的意愿，看重该区域学生规模大、质量高、潜力足，“我们希望通过巡回展这个平台，帮助学生、家长与院校建立更直接的联系。
 
-八妹和其中几位聊了聊，关于离开时的难堪，转行后的狼狈，周围人的非议以及当平台光环褪去之后，一个人到底该怎么给自己“标价”。
+” 数据显示，2025年中国出国留学人数达57.06万人，留学回国人数达53.56万人，留学“出”“回”规模持续高位运行。
 
 ## 相关推荐
 
-- 2026-06-29 17:06 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-29 17:00 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-29 16:45 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-29 17:01 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 16:54 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-29 16:54 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 16:42 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 17:07 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-29 16:43 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-29 16:46 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 16:54 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-29 16:53 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-29 16:51 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-29 16:56 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 17:00 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 17:07 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 16:54 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-29 17:05 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 16:48 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-29 17:02 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 16:58 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 17:06 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 17:12 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 17:01 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-29 17:12 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 17:14 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:45 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/78008858180.shtml)
-- 2026-06-29 17:09 - [47天女婴被月嫂摔伤致颅内出血](http://www.blog.kurohicncr.top/Article/details/75347163835.shtml)
-- 2026-06-29 16:43 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/478271106.shtml)
-- 2026-06-29 16:49 - [TFING全员黑西装](http://www.share.kurohicncr.top/Article/details/23031866689.shtml)
-- 2026-06-29 16:52 - [韩国队出局是因为内讧吗](https://www.share.kurohicncr.top/Article/details/0515482.shtml)
-- 2026-06-29 17:08 - [端午节加班工资应该怎么算](http://www.blog.kurohicncr.top/Article/details/334458935.shtml)
-- 2026-06-29 17:08 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/5078108.shtml)
-- 2026-06-29 16:44 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/19562933.shtml)
-- 2026-06-29 16:50 - [成都至北京将新增动卧](https://www.blog.kurohicncr.top/Article/details/79235846.shtml)
-- 2026-06-29 17:09 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/4903631.shtml)
-- 2026-06-29 17:03 - [千与千寻](http://www.share.minike.top/Article/details/33498482.shtml)
-- 2026-06-29 17:04 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/02548169.shtml)
-- 2026-06-29 17:07 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/3832556354.shtml)
-- 2026-06-29 16:55 - [上海一小区水池内出现一条鳄鱼](http://www.share.kurohicncr.top/Article/details/85235.shtml)
-- 2026-06-29 17:04 - [恋与深空发放补偿未得到玩家认可](https://www.share.kurohicncr.top/Article/details/283638751.shtml)
+- 2026-06-29 16:57 - [央视曝光高价回收老物件骗局](http://www.blog.kurohicncr.top/Article/details/81502388443.shtml)
+- 2026-06-29 16:51 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/55758822.shtml)
+- 2026-06-29 17:01 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/22712.shtml)
+- 2026-06-29 17:02 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.share.minike.top/Article/details/78726573.shtml)
+- 2026-06-29 17:12 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/79798.shtml)
+- 2026-06-29 17:10 - [日本偶像龟梨和也宣布结婚](https://www.blog.kurohicncr.top/Article/details/76983733.shtml)
+- 2026-06-29 16:59 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/17078.shtml)
+- 2026-06-29 16:50 - [请回答王牌2019](http://www.blog.minike.top/Article/details/8756339966.shtml)
+- 2026-06-29 17:09 - [流金岁月](http://www.blog.minike.top/Article/details/48304699618.shtml)
+- 2026-06-29 17:11 - [王安宇尊重田曦薇的一切选择](http://www.blog.kurohicncr.top/Article/details/438201766.shtml)
+- 2026-06-29 17:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/974275479400.shtml)
+- 2026-06-29 16:58 - [爱很美味](https://www.blog.minike.top/Article/details/851563.shtml)
+- 2026-06-29 17:07 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/5997177.shtml)
+- 2026-06-29 17:10 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.kurohicncr.top/Article/details/204470749719.shtml)
+- 2026-06-29 17:10 - [扫黑风暴](http://www.share.minike.top/Article/details/64168695.shtml)

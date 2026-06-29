@@ -1,58 +1,45 @@
-# “张雪机车”再夺冠 中国制造彰显实力
+# 安东油田服务第一季度新增订单13.874亿元 同比下降20.3%
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-13日，2026世界超级摩托车锦标赛意大利艾米利亚-罗马涅站WorldSSP组别首回合比赛中，中国摩托车制造商“张雪机车”的法国车手瓦伦丁·德比斯夺得冠军。这是该车手与“张雪机车”的赛季第六冠。一个成立仅两年的中国品牌，凭借自主研发的赛车，已经成为年度冠军有力争夺者。在世界级的赛场上，中国制造正在不断彰显强大实力。总台记者 殷欣：这里是世界超级摩托车锦标赛意大利艾米利亚-罗马涅
+安东油田服务（03337）发布公告，第一季度，集团新增订单人民币13.874亿元，较去年同期下降20.3%，其中，伊拉克市场新增订单约人民币6.112亿元，较去年同期下降12.7%；其他海外市场新增订单约人民币4790万元，较去年同期下降85.3%；中国市场新增订单约人民币7.284亿元，较去年同期增长1.8%。责任编辑：卢昱君
 
 ## 正文
 
-13日，2026世界超级摩托车锦标赛意大利艾米利亚-罗马涅站WorldSSP组别首回合比赛中，中国摩托车制造商“张雪机车”的法国车手瓦伦丁·德比斯夺得冠军。
+安东油田服务（03337）发布公告，第一季度，集团新增订单人民币13.874亿元，较去年同期下降20.3%，其中，伊拉克市场新增订单约人民币6.112亿元，较去年同期下降12.7%；其他海外市场新增订单约人民币4790万元，较去年同期下降85.3%；中国市场新增订单约人民币7.284亿元，较去年同期增长1.8%。
 
-这是该车手与“张雪机车”的赛季第六冠。
-
-一个成立仅两年的中国品牌，凭借自主研发的赛车，已经成为年度冠军有力争夺者。
-
-在世界级的赛场上，中国制造正在不断彰显强大实力。
-
-总台记者 殷欣：这里是世界超级摩托车锦标赛意大利艾米利亚-罗马涅站的赛场。
-
-在我身边机车轰鸣声不绝于耳，在这条低速技术型赛道上，以“张雪机车”为代表的中国自主研制的中大排量摩托车，要面对的是弯道稳定性和灵活性的多重考验。
-
-艾米利亚-罗马涅站的米萨诺赛道全长约4.2公里，共有16个弯道，其中大部分为低速技术型弯角。
-
-面对不同的赛道，凭借供应链进行精准的“赛道适应性调校”，是取胜的关键因素之一。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 16:42 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-29 17:06 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 16:44 - [范志毅看好日本淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-29 17:06 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-29 16:55 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 16:54 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 16:48 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 17:01 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 16:43 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-29 16:51 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-29 16:43 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-29 17:07 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 17:16 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-29 16:56 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-29 17:06 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-29 16:50 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-29 17:12 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 17:12 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-29 17:08 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-29 16:52 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 17:11 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 17:07 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 16:53 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:53 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/9623711.shtml)
-- 2026-06-29 16:52 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/679960.shtml)
-- 2026-06-29 16:49 - [上海小区惊现鳄鱼](https://www.share.minike.top/Article/details/1570077.shtml)
-- 2026-06-29 16:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/88407100.shtml)
-- 2026-06-29 17:11 - [老板回应员工光脚清洗土豆](http://www.share.minike.top/Article/details/463266.shtml)
-- 2026-06-29 16:52 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/00626.shtml)
-- 2026-06-29 16:56 - [森保一坚信日本能赢巴西](http://www.share.kurohicncr.top/Article/details/31398277.shtml)
-- 2026-06-29 16:43 - [张雪机车杀向海外](https://www.share.minike.top/Article/details/778126198094.shtml)
-- 2026-06-29 16:53 - [盛秋平任南昌市委书记](http://www.share.minike.top/Article/details/6801541549.shtml)
-- 2026-06-29 16:49 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/118498.shtml)
-- 2026-06-29 16:57 - [海口塔吊事故处罚结果公布](https://www.share.minike.top/Article/details/453525127.shtml)
-- 2026-06-29 17:11 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/677159499199.shtml)
-- 2026-06-29 16:49 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/67389.shtml)
-- 2026-06-29 17:05 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/241513.shtml)
-- 2026-06-29 16:53 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.kurohicncr.top/Article/details/69890007000.shtml)
+- 2026-06-29 17:12 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/158894809.shtml)
+- 2026-06-29 17:12 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/7050728.shtml)
+- 2026-06-29 16:49 - [韩国国脚无缘上亿韩元奖金](https://www.blog.minike.top/Article/details/041716636.shtml)
+- 2026-06-29 17:14 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.blog.kurohicncr.top/Article/details/16445.shtml)
+- 2026-06-29 17:08 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/515798661590.shtml)
+- 2026-06-29 16:56 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/42862028565.shtml)
+- 2026-06-29 16:55 - [流金岁月](https://www.share.minike.top/Article/details/18730700.shtml)
+- 2026-06-29 16:50 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/69772860.shtml)
+- 2026-06-29 16:48 - [妹妹的正确用法！](https://www.share.minike.top/Article/details/56004094453.shtml)
+- 2026-06-29 17:17 - [1个视频看懂2026志愿填报新专业](http://www.blog.minike.top/Article/details/469247927768.shtml)
+- 2026-06-29 17:03 - [日本偶像龟梨和也宣布结婚](https://www.blog.minike.top/Article/details/73479894.shtml)
+- 2026-06-29 17:07 - [货车司机雨中帮交警挪树获表扬](http://www.share.minike.top/Article/details/903237529.shtml)
+- 2026-06-29 17:13 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.kurohicncr.top/Article/details/4841071.shtml)
+- 2026-06-29 16:55 - [媒体：中国田径压力与期待并存](http://www.blog.kurohicncr.top/Article/details/86482200867.shtml)
+- 2026-06-29 17:14 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/23941.shtml)

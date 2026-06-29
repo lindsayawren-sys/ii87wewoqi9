@@ -1,50 +1,54 @@
-# 防城海关公务车辆定点维修保养服务采购成交结果公告
+# 小摩：恢复京东集团-SW“增持”评级 目标价148港元
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-一、项目编号：GXDC-ZB-2026-113 二、项目名称：防城海关公务车辆定点维修保养服务采购 三、成交信息 供应商名称：防城港市港口区惠鑫汽车维修厂供应商地址：广西防城港市港口区东兴大道市交通局办公楼后面场地 供应商名称：防城港市港口区雷强汽车维修服务中心(个体工商户) 供应商地址：广西防城港市港口区贵州路临时铺面1栋后场地 四、公告期限 自本公告发布之日起1个工作日。
+摩根大通发布研报称，恢复京东集团-SW（09618，JD.US）“增持”评级，目标价148港元； 美股目标价38美元。该行认为，投资者应聚焦2026年盈利上行风险。该行表示，去年第四季业绩及2026年指引展示核心业务韧性，快速商务最进取的投资期已过，国际业务扩张应较为审慎。该行上调京东2026及2027年收入预测1%及2%，经调整纯利预测上调13%及26%，分别高出市场共识17
 
 ## 正文
 
-一、项目编号：GXDC-ZB-2026-113 二、项目名称：防城海关公务车辆定点维修保养服务采购 三、成交信息 供应商名称：防城港市港口区惠鑫汽车维修厂供应商地址：广西防城港市港口区东兴大道市交通局办公楼后面场地 供应商名称：防城港市港口区雷强汽车维修服务中心(个体工商户) 供应商地址：广西防城港市港口区贵州路临时铺面1栋后场地 四、公告期限 自本公告发布之日起1个工作日。
+摩根大通发布研报称，恢复京东集团-SW（09618，JD.US）“增持”评级，目标价148港元； 美股目标价38美元。
 
-五、其他补充事宜 网上查询地址：中国采购与招标网(http://www.chinabidding.com.cn/)、 中华人民共和国南宁海关网(nanning.customs.gov.cn)、广西达成咨询有限公司网(http://www.gxdczxyxgs.com/)。
+该行认为，投资者应聚焦2026年盈利上行风险。
 
-六、凡对本次公告内容提出询问，请按以下方式联系。
+该行表示，去年第四季业绩及2026年指引展示核心业务韧性，快速商务最进取的投资期已过，国际业务扩张应较为审慎。
 
-1.采购人信息 名 称：中华人民共和国防城海关 地 址：广西防城港市港口区中华路11号 联系方式：崔工/宁工；0770-2822894 受理异议电话：0770-2823022 2.采购代理机构信息 名 称：广西达成咨询有限公司 地 址：南宁市民族大道93号新兴大厦A栋20楼 项目联系人：方莹、彭冬梅、李鹏宇、毛崇文、梁碧云、阳泓、杨红东、崔婧 电话：0771-5346950
+该行上调京东2026及2027年收入预测1%及2%，经调整纯利预测上调13%及26%，分别高出市场共识17%及7%。
+
+责任编辑：史丽君
 
 ## 相关推荐
 
-- 2026-06-29 16:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-29 17:01 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-29 17:01 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-29 17:07 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-29 17:05 - [BB大王横店拍戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 16:53 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 17:01 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-29 17:11 - [和周杰伦在演唱会合唱了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-29 16:47 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-29 16:59 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-29 17:05 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 17:00 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 17:03 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 16:49 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-29 17:08 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-29 17:03 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-29 16:58 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 16:57 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-29 17:15 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 16:50 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 16:53 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 17:02 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 16:55 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 16:56 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 17:15 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 16:54 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:06 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.minike.top/Article/details/644026771.shtml)
-- 2026-06-29 17:03 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.kurohicncr.top/Article/details/821885648594.shtml)
-- 2026-06-29 16:47 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/10602022.shtml)
-- 2026-06-29 16:44 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/267071.shtml)
-- 2026-06-29 16:56 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.share.minike.top/Article/details/710618066169.shtml)
-- 2026-06-29 17:10 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.kurohicncr.top/Article/details/331040522641.shtml)
-- 2026-06-29 17:11 - [苹果回应恋与深空低分](https://www.blog.minike.top/Article/details/9003023.shtml)
-- 2026-06-29 16:58 - [徐昕暂不参加NBA夏季联赛](https://www.share.kurohicncr.top/Article/details/94658.shtml)
-- 2026-06-29 17:09 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/39961.shtml)
-- 2026-06-29 17:11 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/658433.shtml)
-- 2026-06-29 16:55 - [南昌市委书记调整](http://www.blog.minike.top/Article/details/8387571045.shtml)
-- 2026-06-29 16:56 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.minike.top/Article/details/9289706.shtml)
-- 2026-06-29 16:55 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/33601206.shtml)
-- 2026-06-29 16:56 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/948365787761.shtml)
-- 2026-06-29 16:50 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.kurohicncr.top/Article/details/027433142.shtml)
+- 2026-06-29 17:02 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/140496.shtml)
+- 2026-06-29 17:15 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/36196.shtml)
+- 2026-06-29 17:07 - [驻日美军航母沦为“毒窝”](http://www.share.minike.top/Article/details/714694.shtml)
+- 2026-06-29 17:14 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.minike.top/Article/details/671543.shtml)
+- 2026-06-29 17:04 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.kurohicncr.top/Article/details/8710148.shtml)
+- 2026-06-29 17:02 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/100061528320.shtml)
+- 2026-06-29 17:14 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/775565812222.shtml)
+- 2026-06-29 16:53 - [22岁民警拦截违法车辆被撞牺牲](http://www.share.minike.top/Article/details/87496.shtml)
+- 2026-06-29 16:53 - [美的空调 卡bug](http://www.blog.kurohicncr.top/Article/details/0266716.shtml)
+- 2026-06-29 17:04 - [2026年，如果你有100万，你会怎么投资？](https://www.share.minike.top/Article/details/593083.shtml)
+- 2026-06-29 17:09 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/783917925.shtml)
+- 2026-06-29 17:17 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/696704786055.shtml)
+- 2026-06-29 16:50 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/62397.shtml)
+- 2026-06-29 16:54 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/47234.shtml)
+- 2026-06-29 16:59 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/460107.shtml)

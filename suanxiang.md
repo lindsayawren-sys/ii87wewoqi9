@@ -1,50 +1,61 @@
-# 江西省金融控股集团原副董事长、恒邦保险原董事长肖晓华被开除党籍
+# （机遇香港）香港国际创科展：中国机器人展示“出海”新名片
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-原标题：江西省金融控股集团有限公司原党委委员、副董事长，恒邦财产保险股份有限公司原党委书记、董事长肖晓华被开除党籍 中央纪委国家监委网站讯 据江西省纪委监委消息：经中共江西省委批准，江西省纪委监委对江西省金融控股集团有限公司原党委委员、副董事长，恒邦财产保险股份有限公司原党委书记、董事长肖晓华严重违纪违法问题进行了立案审查调查。 经查，肖晓华身为党员领导干部，丧失理想信念，背弃
+中新社香港4月14日电 (记者 戴小橦)在4月13日至16日举行的香港国际创科展上，“人形机器人”成为全场焦点，各种智能装备也站上科技舞台的“C位”。 此次展会首次设立RoboPark机器人展区，汇聚众多中国人形机器人企业。2025年全球人形机器人出货量前五强企业中，智元机器人、宇树科技、优必选、众擎机器人4家中国企业悉数参展；“深圳八大金刚”成员智平方、逐际动力、帕西尼、数字
 
 ## 正文
 
-原标题：江西省金融控股集团有限公司原党委委员、副董事长，恒邦财产保险股份有限公司原党委书记、董事长肖晓华被开除党籍 中央纪委国家监委网站讯 据江西省纪委监委消息：经中共江西省委批准，江西省纪委监委对江西省金融控股集团有限公司原党委委员、副董事长，恒邦财产保险股份有限公司原党委书记、董事长肖晓华严重违纪违法问题进行了立案审查调查。
+中新社香港4月14日电 (记者 戴小橦)在4月13日至16日举行的香港国际创科展上，“人形机器人”成为全场焦点，各种智能装备也站上科技舞台的“C位”。
 
-经查，肖晓华身为党员领导干部，丧失理想信念，背弃初心使命，对党不忠诚不老实，对抗组织审查；无视中央八项规定精神，接受可能影响公正执行公务的宴请；在干部选拔任用工作中为他人谋取利益并收受财物；廉洁底线失守，违规收受礼品礼金，通过民间借贷获取大额回报，违规从事营利活动；私欲膨胀，在企业经营、职务晋升等方面为他人谋取利益，非法收受巨额财物；公私不分，非法侵吞公款。
+此次展会首次设立RoboPark机器人展区，汇聚众多中国人形机器人企业。
 
-肖晓华严重违反党的政治纪律、组织纪律、廉洁纪律，同时构成严重职务违法，并涉嫌受贿、贪污犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
+2025年全球人形机器人出货量前五强企业中，智元机器人、宇树科技、优必选、众擎机器人4家中国企业悉数参展；“深圳八大金刚”成员智平方、逐际动力、帕西尼、数字华夏，以及“杭州六小龙”之一的云深处科技也同台亮相，集中展现中国机器人产业的技术实力与发展活力。
 
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经江西省纪委常委会会议研究并报中共江西省委批准，决定给予肖晓华开除党籍处分；按规定取消其享受的待遇；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+产业快速发展的背后，离不开政策的有力支撑。
 
-（江西省纪委监委）责任编辑：王馨茹
+2026年政府工作报告首次提出“打造智能经济新形态”，人形机器人作为智能经济的核心组成部分，被纳入国家战略布局。
+
+香港特区政府在新一份财政预算案中亦明确提出“积极推动具身智能生态圈建设及产品应用”，并由财政司司长牵头成立“AI+与产业发展策略委员会”，初期聚焦具身智能。
+
+同时，香港人工智能研发院将于今年下半年正式投入运作，全方位赋能产业创新发展。
+
+首次参展的众擎机器人展位前客商云集，咨询、洽谈者络绎不绝。
 
 ## 相关推荐
 
-- 2026-06-29 16:59 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-29 16:44 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-29 16:52 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-29 16:52 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-29 16:59 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-29 16:42 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 16:48 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 16:59 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-29 16:53 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 17:01 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-29 16:54 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 16:54 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-29 17:02 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-29 17:17 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-29 17:16 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 17:07 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-29 16:52 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-29 16:51 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-29 17:09 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 17:11 - [博主：黄金和原油回落不等于风险消失](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-29 17:01 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-29 16:52 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-29 16:50 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-29 16:51 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-29 16:53 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:52 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.kurohicncr.top/Article/details/69828523337.shtml)
-- 2026-06-29 16:48 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/439941955.shtml)
-- 2026-06-29 16:52 - [疑似吴建豪老婆正脸照](https://www.share.minike.top/Article/details/3225880024.shtml)
-- 2026-06-29 17:05 - [把古诗里的动作换成加班](http://www.blog.kurohicncr.top/Article/details/20931315739.shtml)
-- 2026-06-29 16:47 - [曝屠颖去世和酒店失责有关](http://www.blog.minike.top/Article/details/262198.shtml)
-- 2026-06-29 17:08 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.share.minike.top/Article/details/007037016.shtml)
-- 2026-06-29 17:08 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/010853.shtml)
-- 2026-06-29 17:09 - [海口塔吊事故处罚结果公布](https://www.blog.minike.top/Article/details/03057.shtml)
-- 2026-06-29 17:05 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/158105616.shtml)
-- 2026-06-29 16:55 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.kurohicncr.top/Article/details/64399303.shtml)
-- 2026-06-29 17:11 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/8041337.shtml)
-- 2026-06-29 17:09 - [网友飞机上偶遇肖战](http://www.share.minike.top/Article/details/425605182613.shtml)
-- 2026-06-29 17:08 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/5568447311.shtml)
-- 2026-06-29 17:07 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/28129185930.shtml)
-- 2026-06-29 17:10 - [徐昕暂不参加NBA夏季联赛](https://www.share.minike.top/Article/details/42959.shtml)
+- 2026-06-29 16:59 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/34608.shtml)
+- 2026-06-29 16:54 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/653566481.shtml)
+- 2026-06-29 17:09 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/645039.shtml)
+- 2026-06-29 17:05 - [河南四位大妈景区跳舞爆火](http://www.blog.minike.top/Article/details/0822511.shtml)
+- 2026-06-29 17:04 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/70816.shtml)
+- 2026-06-29 17:16 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.kurohicncr.top/Article/details/65911236606.shtml)
+- 2026-06-29 17:12 - [广州一高校通报网传禁止小米汽车入校](https://www.share.minike.top/Article/details/2954899909.shtml)
+- 2026-06-29 17:12 - [女心理师](http://www.share.kurohicncr.top/Article/details/4580154.shtml)
+- 2026-06-29 16:53 - [黄金也扛不住了](https://www.share.minike.top/Article/details/59527031944.shtml)
+- 2026-06-29 17:05 - [美议员呼吁断供以色列政府](http://www.share.minike.top/Article/details/8801608843.shtml)
+- 2026-06-29 17:13 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/7389986718.shtml)
+- 2026-06-29 16:56 - [业内：全球市场迎来结构性投资窗口](https://www.share.kurohicncr.top/Article/details/212431084.shtml)
+- 2026-06-29 16:49 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/652942263694.shtml)
+- 2026-06-29 17:02 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/562626120562.shtml)
+- 2026-06-29 17:16 - [AG冠军五人组轮换](http://www.blog.kurohicncr.top/Article/details/153686130987.shtml)

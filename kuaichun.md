@@ -1,56 +1,46 @@
-# 台湾学子横跨两岸探寻“日月潭之谜”：我们爱的始终是同一片土地
+# 习近平会见俄罗斯外长
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 13:19 来源：中国新闻网 两位来自中南财经政法大学的台湾学生，因好奇于大陆朋友对日月潭的“执念”，而相约在马年春节前夕，分别从台湾桃园和新北出发，去寻访对大陆同学有“无限吸引力”的日月潭。身为台湾人的他们，以前从未去过日月潭。殊不知，一段意外的发现之旅，悄然展开。 吴壮达曾在广州华南师范大学工作。6月12日，“地理为桥·文史融通——吴壮达教
+发布时间：2026年04月15日 20:37 来源：央视新闻客户端 责任编辑：【韦俊龙】
 
 ## 正文
 
-发布时间：2026年06月15日 13:19 来源：中国新闻网 两位来自中南财经政法大学的台湾学生，因好奇于大陆朋友对日月潭的“执念”，而相约在马年春节前夕，分别从台湾桃园和新北出发，去寻访对大陆同学有“无限吸引力”的日月潭。
-
-身为台湾人的他们，以前从未去过日月潭。
-
-殊不知，一段意外的发现之旅，悄然展开。
-
-吴壮达曾在广州华南师范大学工作。
-
-6月12日，“地理为桥·文史融通——吴壮达教授学术思想研讨会暨学术人生专题展”在此举办，邱如莹和王相平也见到了吴壮达生前的同事。
-
-吴壮达祖籍广东东莞，台湾光复后，吴壮达携妻女赴台湾省立农学院任教一年。
-
-其间，他以地理学者的视角踏访宝岛，写下《台湾的开发》一书。
-
-他利用课余时间几乎走遍台湾所有重要地标，细致地记录地形、水文、风土人情。
+发布时间：2026年04月15日 20:37 来源：央视新闻客户端 责任编辑：【韦俊龙】
 
 ## 相关推荐
 
-- 2026-06-29 17:11 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-29 16:54 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-29 16:43 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 16:48 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 16:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 17:11 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-29 17:10 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-29 16:55 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 16:42 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-29 16:58 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 16:56 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-29 16:52 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-29 17:17 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-29 17:08 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 16:54 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 17:14 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 17:05 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 16:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 17:07 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 17:17 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-29 17:14 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-29 16:57 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 17:04 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 17:03 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:00 - [笔记本电脑一年涨价近一倍](https://www.blog.minike.top/Article/details/356707992647.shtml)
-- 2026-06-29 17:05 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/28602.shtml)
-- 2026-06-29 17:08 - [美人鱼](https://www.share.kurohicncr.top/Article/details/347179539189.shtml)
-- 2026-06-29 16:56 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/1212958060.shtml)
-- 2026-06-29 16:42 - [小鹏MONAL03预售定档7月2日](http://www.share.minike.top/Article/details/086462590.shtml)
-- 2026-06-29 16:52 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/69790.shtml)
-- 2026-06-29 16:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/9913752.shtml)
-- 2026-06-29 16:57 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.kurohicncr.top/Article/details/1563979250.shtml)
-- 2026-06-29 16:46 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.kurohicncr.top/Article/details/042667127.shtml)
-- 2026-06-29 17:03 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/11122909.shtml)
-- 2026-06-29 17:08 - [谢依霖夸杨幂靠谱](http://www.share.minike.top/Article/details/8302902389.shtml)
-- 2026-06-29 17:01 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/953895958.shtml)
-- 2026-06-29 17:00 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/7773540889.shtml)
-- 2026-06-29 17:05 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/4490025.shtml)
-- 2026-06-29 16:59 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/60293947.shtml)
+- 2026-06-29 17:16 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/57413244969.shtml)
+- 2026-06-29 16:56 - [FIFA回应佛得角队长被指控强奸](http://www.blog.minike.top/Article/details/46711.shtml)
+- 2026-06-29 16:51 - [TFING全员黑西装](https://www.blog.minike.top/Article/details/204066714.shtml)
+- 2026-06-29 17:14 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/71194.shtml)
+- 2026-06-29 16:56 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/6109515205.shtml)
+- 2026-06-29 17:15 - [波兰创该国高温纪录](https://www.blog.kurohicncr.top/Article/details/8954636181.shtml)
+- 2026-06-29 17:14 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/53446.shtml)
+- 2026-06-29 17:00 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/400981405.shtml)
+- 2026-06-29 16:54 - [税务总局披露5起合规申报个税案例](https://www.share.minike.top/Article/details/288455382268.shtml)
+- 2026-06-29 16:55 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/33427009384.shtml)
+- 2026-06-29 17:16 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.kurohicncr.top/Article/details/60854.shtml)
+- 2026-06-29 17:07 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.minike.top/Article/details/0826646.shtml)
+- 2026-06-29 16:57 - [美国大满贯首日国乒主力均取胜](https://www.share.minike.top/Article/details/2907545703.shtml)
+- 2026-06-29 17:16 - [博主：美航母沦为毒品集散窝点](https://www.blog.minike.top/Article/details/41934196.shtml)
+- 2026-06-29 17:04 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/927349.shtml)

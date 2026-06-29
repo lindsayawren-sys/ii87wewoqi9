@@ -1,54 +1,42 @@
-# 龙源电力完成发行25亿元超短期融资券
+# 华宝基金红利风向标：高股息指数普涨，小盘红利脱颖而出
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-龙源电力（00916）公布，公司已于2026年6月10日完成公司超短期融资券发行。本超短期融资券发行总额为人民币25亿元，期限为218天，单位面值为人民币100元，票面利率为1.36%。利息自2026年6月11日起开始计算。 本超短期融资券由北京银行股份有限公司作为主承销商及兴业银行股份有限公司作为联席主承销商公开发售。本超短期融资券所募集资金将用于补充日常流动资金及偿还发行人
+责任编辑：杨赐
 
 ## 正文
 
-龙源电力（00916）公布，公司已于2026年6月10日完成公司超短期融资券发行。
-
-本超短期融资券发行总额为人民币25亿元，期限为218天，单位面值为人民币100元，票面利率为1.36%。
-
-利息自2026年6月11日起开始计算。
-
-本超短期融资券由北京银行股份有限公司作为主承销商及兴业银行股份有限公司作为联席主承销商公开发售。
-
-本超短期融资券所募集资金将用于补充日常流动资金及偿还发行人及其子公司有息债务。
-
-责任编辑：卢昱君
+责任编辑：杨赐
 
 ## 相关推荐
 
-- 2026-06-29 16:57 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 17:02 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 16:55 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 16:53 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-29 16:47 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-29 17:05 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 17:10 - [博主：全球股市进入“AI极端共振”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-29 16:45 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 17:05 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 16:57 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
-- 2026-06-29 16:55 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-29 17:04 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-29 17:07 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 17:06 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 16:57 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 17:06 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 17:06 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-29 16:49 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-29 16:52 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 17:11 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 16:58 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 17:14 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:07 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.kurohicncr.top/Article/details/81426675227.shtml)
-- 2026-06-29 16:51 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/6341435656.shtml)
-- 2026-06-29 17:05 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/686544633547.shtml)
-- 2026-06-29 17:08 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/54391782527.shtml)
-- 2026-06-29 17:07 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.kurohicncr.top/Article/details/967022.shtml)
-- 2026-06-29 17:08 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/2397947.shtml)
-- 2026-06-29 16:57 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/689768425.shtml)
-- 2026-06-29 16:49 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/96048801.shtml)
-- 2026-06-29 16:51 - [苹果回应恋与深空低分](https://www.share.minike.top/Article/details/2966475810.shtml)
-- 2026-06-29 16:53 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/690915644588.shtml)
-- 2026-06-29 16:52 - [日本偶像龟梨和也宣布结婚](http://www.share.minike.top/Article/details/5713431547.shtml)
-- 2026-06-29 17:06 - [驻日美军航母沦为“毒窝”](http://www.share.kurohicncr.top/Article/details/148424.shtml)
-- 2026-06-29 17:07 - [普京为何喊话俄乌都别打对方纵深](https://www.share.kurohicncr.top/Article/details/25807.shtml)
-- 2026-06-29 17:11 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/7805906.shtml)
-- 2026-06-29 16:57 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/487725414.shtml)
+- 2026-06-29 17:17 - [王曼昱被突如其来的话筒逗笑了](https://www.share.kurohicncr.top/Article/details/0990064773.shtml)
+- 2026-06-29 17:09 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.minike.top/Article/details/26456133.shtml)
+- 2026-06-29 16:55 - [共享单车“价格刺客”79分钟30元](https://www.blog.kurohicncr.top/Article/details/0789271795.shtml)
+- 2026-06-29 16:51 - [东方风云榜红毯](https://www.blog.minike.top/Article/details/65374.shtml)
+- 2026-06-29 17:11 - [江苏财政厅原一级调研员谢功成被查](https://www.share.minike.top/Article/details/0913594152.shtml)
+- 2026-06-29 17:08 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/370677657863.shtml)
+- 2026-06-29 16:57 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/817254406490.shtml)
+- 2026-06-29 17:09 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/633529648.shtml)
+- 2026-06-29 17:14 - [央视曝光涉黄App诈骗陷阱](https://www.blog.kurohicncr.top/Article/details/343771187.shtml)
+- 2026-06-29 17:12 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.kurohicncr.top/Article/details/5223191495.shtml)
+- 2026-06-29 16:54 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/61410680742.shtml)
+- 2026-06-29 16:54 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/227640701756.shtml)
+- 2026-06-29 16:49 - [滾石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/741111775998.shtml)
+- 2026-06-29 16:50 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.kurohicncr.top/Article/details/05564284.shtml)
+- 2026-06-29 17:03 - [音乐人屠颖离世家属追责涉事酒店](http://www.share.minike.top/Article/details/36710916.shtml)

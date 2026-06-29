@@ -1,57 +1,56 @@
-# A股200亿白银龙头，被立案调查！超7万股民受波及
+# 重庆海关技术中心2026年第二批试剂耗材采购项目征求报价公告
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月15日，A股白银龙头盛达资源（000603）公告称，公司收到证监会下发的《立案告知书》，因涉嫌信息披露违法违规，证监会决定对公司立案。 公司就上述立案调查事项的自查情况说明如下：2025年4月29日，公司披露了《关于公司自查发现控股股东及其附属企业资金占
+项目概况 重庆欣宏达项目管理有限公司(以下简称：采购代理机构)接受重庆海关技术中心(以下简称：采购人)的委托，对重庆海关技术中心2026年第二批试剂耗材采购项目进行征求报价采购。欢迎有资格的供应商前来参加报价。 一、项目基本情况 项目编号：HDFZB-HW-20260409124 项目名称：重庆海关技术中心2026年第二批试剂耗材采购项目 采购方式：征求报价 预算金额：73.3
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+项目概况 重庆欣宏达项目管理有限公司(以下简称：采购代理机构)接受重庆海关技术中心(以下简称：采购人)的委托，对重庆海关技术中心2026年第二批试剂耗材采购项目进行征求报价采购。
 
-6月15日，A股白银龙头盛达资源（000603）公告称，公司收到证监会下发的《立案告知书》，因涉嫌信息披露违法违规，证监会决定对公司立案。
+欢迎有资格的供应商前来参加报价。
 
-公司就上述立案调查事项的自查情况说明如下：2025年4月29日，公司披露了《关于公司自查发现控股股东及其附属企业资金占用并已解决等情况的公告》，对公司控股股东及其附属企业非经营性资金占用情况进行了披露。
+一、项目基本情况 项目编号：HDFZB-HW-20260409124 项目名称：重庆海关技术中心2026年第二批试剂耗材采购项目 采购方式：征求报价 预算金额：73.35万元(人民币) 最高限价：73.35万元(人民币) 采购需求： 重庆海关技术中心2026年第二批试剂耗材采购项目进行分包征求报价，共分为四个包，具体情况如下： 注1：供应商可以就上述所有分包进行响应，成交包数不做限制。
 
-截至本公告披露日，公司已收回全部被占用资金及占用利息。
+供应商同时参与多个分包响应时，每个分包单独编制响应文件。
 
-公司已积极对相关问题进行整改，公司将依法履行相关信息披露义务。
+注2：供应商对所投包号中的全部产品(少报或漏报均为无效响应)只能提供一个有效报价，且每包总报价不能超过该包最高限价，部分产品单价不能超过单价最高限价，否则视为无效响应。
 
-目前，公司生产经营活动正常开展，该事项不会对公司生产经营产生重大影响。
+合同履行期限：自合同签订之日起3个月内。
 
-同日，盛达资源再发公告称，公司实际控制人赵满堂于2026年6月15日收到证监会下发的《立案告知书》，因涉嫌信息披露违法违规，证监会决定对其立案。
+本项目(不接受)联合体。
 
-赵满堂将积极配合调查并履行信息披露义务。
+二、供应商资格要求 1.满足《中华人民共和国政府采购法》第二十二条规定； 2.落实政府采购政策需满足的资格要求：落实中小微企业、监狱企业、残疾人福利性单位采购优惠政策。
 
 ## 相关推荐
 
-- 2026-06-29 16:43 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 17:04 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-29 17:07 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-29 16:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-29 16:49 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 17:03 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 16:53 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 16:59 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 16:56 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-29 16:43 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 16:53 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 17:15 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-29 17:15 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-29 16:48 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-29 17:16 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 16:52 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-29 16:55 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 17:05 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 17:09 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-29 16:55 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 16:55 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:42 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.share.minike.top/Article/details/6901528.shtml)
-- 2026-06-29 16:43 - [全国第三艘万车级汽车运输船交付](https://www.share.minike.top/Article/details/87392254769.shtml)
-- 2026-06-29 16:48 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/542891.shtml)
-- 2026-06-29 16:49 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/628344368612.shtml)
-- 2026-06-29 16:45 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/61915834946.shtml)
-- 2026-06-29 16:42 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.kurohicncr.top/Article/details/45472429.shtml)
-- 2026-06-29 17:11 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/79795529.shtml)
-- 2026-06-29 16:56 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/715080218450.shtml)
-- 2026-06-29 16:47 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/07098866404.shtml)
-- 2026-06-29 16:59 - [广东一地发现极危植物新物种](http://www.share.minike.top/Article/details/2694862089.shtml)
-- 2026-06-29 17:03 - [朱必达辞去湖南人大常委会委员职务](https://www.share.kurohicncr.top/Article/details/6032939152.shtml)
-- 2026-06-29 17:02 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/50796621.shtml)
-- 2026-06-29 16:57 - [朱必达辞去湖南人大常委会委员职务](https://www.share.kurohicncr.top/Article/details/338104195673.shtml)
-- 2026-06-29 16:49 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/4774284720.shtml)
-- 2026-06-29 16:58 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/7288757.shtml)
+- 2026-06-29 16:52 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/895868829.shtml)
+- 2026-06-29 17:08 - [papi酱在救赎窦文涛](http://www.share.kurohicncr.top/Article/details/93287.shtml)
+- 2026-06-29 17:01 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/8768310626.shtml)
+- 2026-06-29 17:10 - [驻日美军航母沦为“毒窝”](https://www.share.minike.top/Article/details/97577.shtml)
+- 2026-06-29 17:10 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.kurohicncr.top/Article/details/08748.shtml)
+- 2026-06-29 17:17 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/76272894.shtml)
+- 2026-06-29 17:16 - [中央气象台发布强对流天气蓝色预警](http://www.share.kurohicncr.top/Article/details/706303229.shtml)
+- 2026-06-29 17:03 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/872484.shtml)
+- 2026-06-29 17:08 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/51149.shtml)
+- 2026-06-29 17:14 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/460627311323.shtml)
+- 2026-06-29 16:51 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.blog.minike.top/Article/details/654024.shtml)
+- 2026-06-29 17:01 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/973254.shtml)
+- 2026-06-29 17:05 - [唐国强打卡贵阳孔学堂](https://www.share.minike.top/Article/details/182525.shtml)
+- 2026-06-29 17:07 - [中方将20家日本实体列入关注名单](https://www.blog.minike.top/Article/details/6094450844.shtml)
+- 2026-06-29 17:12 - [田曦薇 女装牛仔裤](http://www.share.minike.top/Article/details/679616751653.shtml)

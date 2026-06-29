@@ -1,59 +1,59 @@
-# 《广州市非物质文化遗产手绘地图（2026版）》首发
+# 棕榈油3月MPOB报告解读：库存及产量高于预期 价格有下调压
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-中新网广州6月13日电 (记者 程景伟)2026年“文化和自然遗产日”广州非遗宣传展示主会场活动13日在广州市增城区正果老街开幕。《广州市非物质文化遗产手绘地图(2026版)》现场首发。 活动现场打造了“非遗消夏购物月”沉浸式消费场景，让传统技艺、非遗美食、传统医药、民俗文化走进大众生活，同时以非遗赋能乡村振兴、助力环南昆山—罗浮山县镇村高质量发展引领区建设，推动文化遗产保护与
+卓创资讯棕榈油分析师张兰兰 【导语】4月10日，马来西亚棕榈油局（MPOB）发布2026年3月棕榈油供需数据。数据显示，当月马棕产量环比增加，且高于市场预期；库存环比下降，但高于市场预期。供需面数据整体偏空，给予棕榈油回落压力，当前因处在增产期且因价格高出口前景有压力，预计4月后半月棕榈油现货价格或呈现高位回落走势。 3月MPOB报告产量及库存高于预期，价格有回落压力 马来西亚
 
 ## 正文
 
-中新网广州6月13日电 (记者 程景伟)2026年“文化和自然遗产日”广州非遗宣传展示主会场活动13日在广州市增城区正果老街开幕。
+卓创资讯棕榈油分析师张兰兰 【导语】4月10日，马来西亚棕榈油局（MPOB）发布2026年3月棕榈油供需数据。
 
-《广州市非物质文化遗产手绘地图(2026版)》现场首发。
+数据显示，当月马棕产量环比增加，且高于市场预期；库存环比下降，但高于市场预期。
 
-活动现场打造了“非遗消夏购物月”沉浸式消费场景，让传统技艺、非遗美食、传统医药、民俗文化走进大众生活，同时以非遗赋能乡村振兴、助力环南昆山—罗浮山县镇村高质量发展引领区建设，推动文化遗产保护与乡村全面振兴同频共振。
+供需面数据整体偏空，给予棕榈油回落压力，当前因处在增产期且因价格高出口前景有压力，预计4月后半月棕榈油现货价格或呈现高位回落走势。
 
-当天，《畲家敬酒歌》《荔枝红了》《爱你百千万》等极具岭南与增城特色的文艺节目轮番上演，充分展现非遗与当代文艺融合创新的魅力。
+3月MPOB报告产量及库存高于预期，价格有回落压力 马来西亚棕榈油总署（MPOB）发布的3月供需报告整体偏空影响。
 
-启动仪式上，“2025—2026广州非遗大事记”发布，系统回顾了广州近一年来在非遗名录建设、代表性传承人培养、非遗工坊发展、文旅融合推广、非遗研究创新等方面取得的扎实成效。
+数据显示，当月产量为138万吨（环比+7.8%），出口量为155万吨（环比+38.39%），月末库存为227万吨（环比-15.93%）。
 
-广州第九批市级非物质文化遗产代表性项目授牌环节中，共有106个项目入选，其中新增项目63项、扩展项目43项，数量创下历史新高。
+从产量看，3月棕榈油产量138万吨，环比有所提高7.8%，同比略回落0.58%，略高于市场预期值134万吨。
 
-现场还发布广州市22家非遗工坊名单，集中展示非遗助力就业、带动增收、全面赋能乡村的实践成果。
+产区处在增产期，产量环比增加符合市场预期，但略高于市场预期值，该数据中性偏空，不利于价格持续走高。
 
-非遗市集设置三大核心板块，精选35个各具特色的非遗代表性项目参与。
+从出口量看，3月棕榈油出口量为155万吨，环比增加38.39%，同比增加54.00%，基本符合市场预期值155-156万吨。
 
 ## 相关推荐
 
-- 2026-06-29 16:44 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 17:03 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-29 17:07 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-29 17:04 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-29 16:51 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 16:42 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-29 17:05 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 16:49 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-29 17:00 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-29 16:49 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 16:58 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-29 17:10 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-29 16:48 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 16:55 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-29 16:53 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 17:08 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-29 17:01 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 16:52 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 17:09 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-29 16:57 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 17:07 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 16:48 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-29 17:09 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-29 17:05 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 16:54 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 17:04 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:06 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/496165.shtml)
-- 2026-06-29 16:48 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/0171124.shtml)
-- 2026-06-29 17:04 - [中国空间站为什么要升级扩容](http://www.blog.minike.top/Article/details/027773762.shtml)
-- 2026-06-29 16:57 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/5310422.shtml)
-- 2026-06-29 16:43 - [刘扬任湖南省副省长](http://www.share.minike.top/Article/details/723640.shtml)
-- 2026-06-29 16:56 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/398623614368.shtml)
-- 2026-06-29 17:07 - [德国VS巴拉圭前瞻](https://www.blog.minike.top/Article/details/8267739240.shtml)
-- 2026-06-29 17:06 - [龟梨和也田中美奈实结婚](http://www.blog.minike.top/Article/details/8684646.shtml)
-- 2026-06-29 16:56 - [绘画区你赢了](https://www.share.minike.top/Article/details/942052714165.shtml)
-- 2026-06-29 17:02 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/87706959514.shtml)
-- 2026-06-29 16:50 - [广东一地发现极危植物新物种](http://www.blog.kurohicncr.top/Article/details/863989102.shtml)
-- 2026-06-29 16:51 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/68129644.shtml)
-- 2026-06-29 17:02 - [巴西发布对阵日本宣传片](https://www.blog.minike.top/Article/details/75092.shtml)
-- 2026-06-29 17:05 - [金刚川](https://www.blog.kurohicncr.top/Article/details/9129972578.shtml)
-- 2026-06-29 16:55 - [存储三巨头被告了](http://www.share.minike.top/Article/details/288679680450.shtml)
+- 2026-06-29 17:04 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/54838.shtml)
+- 2026-06-29 16:48 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/3568642402.shtml)
+- 2026-06-29 17:17 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/528681942.shtml)
+- 2026-06-29 16:56 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/0831853604.shtml)
+- 2026-06-29 16:48 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/10727446.shtml)
+- 2026-06-29 16:48 - [苹果回应恋与深空低分](https://www.blog.kurohicncr.top/Article/details/9467631.shtml)
+- 2026-06-29 17:14 - [NBA交易](https://www.share.kurohicncr.top/Article/details/710592.shtml)
+- 2026-06-29 16:58 - [永远有话聊的原因](http://www.blog.kurohicncr.top/Article/details/59085520911.shtml)
+- 2026-06-29 17:08 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/32720292.shtml)
+- 2026-06-29 17:17 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/2791946840.shtml)
+- 2026-06-29 17:00 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/12913.shtml)
+- 2026-06-29 17:05 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/2629975837.shtml)
+- 2026-06-29 17:08 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/67057.shtml)
+- 2026-06-29 17:01 - [当地回应林区违规放羊遭豹啃食](http://www.blog.kurohicncr.top/Article/details/25148.shtml)
+- 2026-06-29 17:16 - [日本主教练回应迎战巴西](https://www.share.minike.top/Article/details/078852.shtml)

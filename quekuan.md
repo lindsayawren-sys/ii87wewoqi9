@@ -1,61 +1,57 @@
-# 辞任华林证券CEO不到一个月转身AI算力公司，秦湘进入行云科技董事会候选名单 | 长三角资本局
+# 一季度中欧班列开行和发送货物同比分别增长29%、22%
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 文|新浪财经上海站 十里 从券商首席执行官的位置离开不到一个月，秦湘的新去向便浮出水面。 6月9日晚间，行云科技公告称，为进一步优化董事会治理结构，引入更多具有科技领域背景的董事及金融管理高级人才，经持股3%以上股东王维提名，公司董事会同意提名秦湘为第七届董事会非独立董事候选人。相关任职仍需提交股东会审议。 这距离秦湘辞去华林证
+记者从国铁集团获悉，今年一季度，铁路部门持续深化国内国际协调合作，加强中欧班列运输组织，提升跨境物流服务品质和效率，中欧班列累计开行5460列，发送货物54.6万标箱，同比分别增长29%、22%，呈现量质齐升良好态势，中欧班列国际物流品牌市场竞争力持续提升，为中欧贸易往来和沿线经济社会发展注入了新活力。通道网络逐步拓展。境内安排中欧班列图定线路93条，积极拓展境外多元化通道，加
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 文|新浪财经上海站 十里 从券商首席执行官的位置离开不到一个月，秦湘的新去向便浮出水面。
+记者从国铁集团获悉，今年一季度，铁路部门持续深化国内国际协调合作，加强中欧班列运输组织，提升跨境物流服务品质和效率，中欧班列累计开行5460列，发送货物54.6万标箱，同比分别增长29%、22%，呈现量质齐升良好态势，中欧班列国际物流品牌市场竞争力持续提升，为中欧贸易往来和沿线经济社会发展注入了新活力。
 
-6月9日晚间，行云科技公告称，为进一步优化董事会治理结构，引入更多具有科技领域背景的董事及金融管理高级人才，经持股3%以上股东王维提名，公司董事会同意提名秦湘为第七届董事会非独立董事候选人。
+通道网络逐步拓展。
 
-相关任职仍需提交股东会审议。
+境内安排中欧班列图定线路93条，积极拓展境外多元化通道，加强跨里海中欧班列运输组织，测试开行经俄罗斯圣彼得堡跨波罗的海中欧班列线路，为客户提供多样化的跨境物流选择。
 
-这距离秦湘辞去华林证券首席执行官职务，仅过去25天。
+目前，中欧班列通达欧洲26个国家的235个城市，服务范围基本覆盖亚欧全境。
 
-5月15日，华林证券公告称，秦湘因个人原因申请辞去首席执行官职务，辞职后不再在公司及控股子公司担任任何职务。
+通关效能持续增强。
 
-秦湘确认，其与董事会并无意见分歧，也没有其他需要向股东说明的事项。
+优化口岸运输组织，提升交接车能力。
 
-华林证券随后由刚刚加入公司的执委会委员董东代行首席执行官职责，代行期限不超过六个月。
+与海关部门紧密协作，全面推广“铁路快通”模式，用好中国铁路物流95306“数字口岸”系统，不断提高通关便利化水平，口岸通关时间最短压缩至30分钟以内。
 
-一位刚刚离开民营券商的女CEO，迅速出现在一家AI算力概念上市公司的董事候选名单中，这场职业转换的反差足够醒目。
+一季度西(经阿拉山口、霍尔果斯口岸)、中(经二连浩特口岸)、东(经满洲里、绥芬河、同江北口岸)三条通道中欧班列开行量同比分别增长19%、26%、49%。
 
 ## 相关推荐
 
-- 2026-06-29 17:03 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-29 17:10 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-29 17:08 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-29 16:45 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 17:05 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 16:58 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-29 16:50 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-29 17:01 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-29 16:53 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-29 16:49 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-29 16:42 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-29 16:59 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 16:48 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 17:05 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 17:09 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-29 16:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-29 17:01 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 17:09 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 17:09 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-29 16:57 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 17:15 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-29 17:16 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 16:51 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-29 17:16 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-29 16:53 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 17:07 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:56 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.share.kurohicncr.top/Article/details/8250460201.shtml)
-- 2026-06-29 16:50 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/33062.shtml)
-- 2026-06-29 17:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/0344132578.shtml)
-- 2026-06-29 16:50 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/0117478060.shtml)
-- 2026-06-29 16:50 - [德国VS巴拉圭前瞻](http://www.blog.minike.top/Article/details/6307718.shtml)
-- 2026-06-29 16:59 - [大 周 礼 时 代(4)](https://www.blog.kurohicncr.top/Article/details/49174645667.shtml)
-- 2026-06-29 16:47 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/042828595314.shtml)
-- 2026-06-29 16:56 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/046515517.shtml)
-- 2026-06-29 16:55 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/3538684.shtml)
-- 2026-06-29 16:46 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/53624.shtml)
-- 2026-06-29 16:57 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/2184244286.shtml)
-- 2026-06-29 16:46 - [滾石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/009279228.shtml)
-- 2026-06-29 16:54 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/18025853.shtml)
-- 2026-06-29 16:52 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/475228.shtml)
-- 2026-06-29 16:57 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/670307.shtml)
+- 2026-06-29 16:57 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/986523.shtml)
+- 2026-06-29 17:10 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.kurohicncr.top/Article/details/33437650774.shtml)
+- 2026-06-29 17:04 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/6655923.shtml)
+- 2026-06-29 17:14 - [机器人学校开学了](https://www.share.minike.top/Article/details/456861332.shtml)
+- 2026-06-29 16:53 - [央视曝光高价回收老物件骗局](http://www.blog.kurohicncr.top/Article/details/493395.shtml)
+- 2026-06-29 16:52 - [苹果ultra2阔折叠已开模测试](https://www.share.kurohicncr.top/Article/details/0448700637.shtml)
+- 2026-06-29 17:09 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/62167188215.shtml)
+- 2026-06-29 16:52 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/03442157871.shtml)
+- 2026-06-29 16:51 - [95后小伙突然确诊癌症 医生提醒](http://www.blog.kurohicncr.top/Article/details/679847165006.shtml)
+- 2026-06-29 16:52 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.minike.top/Article/details/12767253745.shtml)
+- 2026-06-29 16:51 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/596443.shtml)
+- 2026-06-29 17:11 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/5741412544.shtml)
+- 2026-06-29 17:08 - [金刚川](http://www.blog.minike.top/Article/details/40031161.shtml)
+- 2026-06-29 17:12 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/698004065.shtml)
+- 2026-06-29 17:13 - [巴西国脚说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/788983068064.shtml)

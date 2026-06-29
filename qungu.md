@@ -1,61 +1,57 @@
-# 易事特（300376）、首航高科（002665）股民索赔案均再提交法院立案
+# 国家医保局：全国近四成统筹地区已完成上年度清算
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-2026年6月15日，上海久诚律师事务所股票索赔律师许峰代理的易事特（维权）（300376）虚假陈述引发的投资者索赔案再向法院提交一次立案，该案前期已有胜诉判决及获赔到位案例并且还在诉讼时效内，投资者还可发起索赔。（许峰律师专栏） 近期的2026年6月1日，许峰律师代理的部分易事特投资者索赔案再次获赔到位，已经收到赔偿款。律师团队同步还在推进后续案件的立案工作，还在继续接受其他
+医保基金清算是一项基础性工作，对于按病组(DRG)和按病种(DIP)支付方式改革落地、提高基金使用效率，促进医疗、医保、医药协同发展具有重要意义。 2025年底，国家医保局启动医保基金清算提质增效三年行动计划，按照国家统一部署，所有统筹地区将于2026年5月底前完成2025年度清算工作，到2027年所有统筹地区将于4月底前完成2026年度清算，到2028年将实现所有统筹地区3月
 
 ## 正文
 
-2026年6月15日，上海久诚律师事务所股票索赔律师许峰代理的易事特（维权）（300376）虚假陈述引发的投资者索赔案再向法院提交一次立案，该案前期已有胜诉判决及获赔到位案例并且还在诉讼时效内，投资者还可发起索赔。
+医保基金清算是一项基础性工作，对于按病组(DRG)和按病种(DIP)支付方式改革落地、提高基金使用效率，促进医疗、医保、医药协同发展具有重要意义。
 
-（许峰律师专栏） 近期的2026年6月1日，许峰律师代理的部分易事特投资者索赔案再次获赔到位，已经收到赔偿款。
+2025年底，国家医保局启动医保基金清算提质增效三年行动计划，按照国家统一部署，所有统筹地区将于2026年5月底前完成2025年度清算工作，到2027年所有统筹地区将于4月底前完成2026年度清算，到2028年将实现所有统筹地区3月底前完成上年度清算的目标任务。
 
-律师团队同步还在推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+2026年共有山西太原、内蒙古通辽等113个统筹地区率先试点。
 
-2024年12月31日晚，易事特公告收到证监会《行政处罚决定书》，经查明，当事人存在以下违法事实： 一、易事特通过开展虚假贸易业务虚增营业收入、营业成本、利润总额。
+截至2026年3月31日，全国30个省份(含新疆生产建设兵团)共154个统筹地区完成上年度清算，覆盖率达全国统筹区总数的39%，超额完成试点任务。
 
-二、易事特通过开展具有融资性质的代采业务和代理业务虚增营业收入、营业成本。
+其中，吉林白山、浙江宁波等43个非试点地区主动对标试点标准同步完成清算任务。
 
-三、易事特通过开展具有融资性质的数据中心集成业务虚增营业收入、营业成本。
+山东、宁夏、北京、河北、海南、天津、河南等7个省(区、市)完成全省(区、市)清算。
 
-综上，易事特通过上述不具有商业实质的虚假贸易业务、融资性代采业务、代理业务和数据中心集成业务虚增营业收入、营业成本、利润总额，导致易事特披露的2017年至2021年年度报告存在虚假记载。
-
-许峰律师认为，根据前期投资者胜诉判决及获赔案例，在2018年3月15日到2023年5月12日之间买入易事特股票，并且在2023年5月12日后卖出或持有股票的投资者，目前还可发起索赔，还在诉讼时效内。
+通过基金清算提质增效，清算资金提前到位，大大缓解定点医药机构的运营压力，让医院能够更专注于提升诊疗服务，让参保群众看病更安心。
 
 ## 相关推荐
 
-- 2026-06-29 17:03 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-29 16:52 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-29 16:51 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 17:02 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 17:08 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 17:07 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 17:10 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-29 16:49 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-29 17:10 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 16:49 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-29 17:01 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 16:47 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-29 16:57 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 17:01 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 16:53 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 17:13 - [博主：黄金和原油回落不等于风险消失](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 16:53 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 17:03 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 16:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 16:57 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-29 16:59 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-29 17:15 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-29 17:14 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-29 16:59 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 16:56 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 16:50 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-29 17:07 - [驻日美军航母沦为“毒窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 17:05 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:52 - [未成年少女长期吸毒导致卧床不起](https://www.share.minike.top/Article/details/4327262711.shtml)
-- 2026-06-29 16:57 - [博主：AI泡沫必须破灭](http://www.share.minike.top/Article/details/69879706.shtml)
-- 2026-06-29 16:54 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/17452267.shtml)
-- 2026-06-29 17:02 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/3085280210.shtml)
-- 2026-06-29 16:43 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/61514.shtml)
-- 2026-06-29 16:58 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/69012.shtml)
-- 2026-06-29 17:07 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/012852614146.shtml)
-- 2026-06-29 16:42 - [天价门票抬高美加墨世界杯观赛门槛](http://www.share.kurohicncr.top/Article/details/42622302788.shtml)
-- 2026-06-29 17:00 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/53018236.shtml)
-- 2026-06-29 16:56 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/30663.shtml)
-- 2026-06-29 17:10 - [机器人学校开学了](http://www.blog.minike.top/Article/details/57009.shtml)
-- 2026-06-29 17:03 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/0652768288.shtml)
-- 2026-06-29 16:51 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.minike.top/Article/details/6630727075.shtml)
-- 2026-06-29 16:57 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.kurohicncr.top/Article/details/07939.shtml)
-- 2026-06-29 16:50 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/933894489337.shtml)
+- 2026-06-29 16:52 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/5910156.shtml)
+- 2026-06-29 16:51 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/362450293.shtml)
+- 2026-06-29 17:08 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/797322148.shtml)
+- 2026-06-29 17:06 - [人类对空调和其他家电有多双标](http://www.blog.kurohicncr.top/Article/details/461242600136.shtml)
+- 2026-06-29 16:54 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/90112737715.shtml)
+- 2026-06-29 16:53 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/35640650.shtml)
+- 2026-06-29 17:01 - [差点没看懂白鹿丞磊这段意识流](http://www.blog.minike.top/Article/details/943902.shtml)
+- 2026-06-29 16:50 - [爱很美味](http://www.share.kurohicncr.top/Article/details/730816869.shtml)
+- 2026-06-29 17:12 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/303887.shtml)
+- 2026-06-29 16:57 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/40559806.shtml)
+- 2026-06-29 17:16 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/380032544872.shtml)
+- 2026-06-29 16:49 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/3452319106.shtml)
+- 2026-06-29 17:01 - [张雪机车杀向海外](https://www.blog.kurohicncr.top/Article/details/87133367542.shtml)
+- 2026-06-29 16:48 - [乔家的儿女](http://www.blog.minike.top/Article/details/33129222.shtml)
+- 2026-06-29 17:09 - [速度与激情9](https://www.share.minike.top/Article/details/391659168398.shtml)

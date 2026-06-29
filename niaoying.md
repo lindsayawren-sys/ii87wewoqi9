@@ -1,57 +1,51 @@
-# （活力中国调研行）从火箭动力到太空算力 北京以AI加速“算力上天”
+# 特朗普：伊朗战事的“最终结果”可能很快就会取得
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-中新社北京6月15日电 (记者 陈杭 卢晓娜)AI驱动火箭发动机研发范式革新，太空数据中心突破能源与散热等关键技术……北京当下正打通“算力上天”的关键环节。 中新社记者近日走进北京新型研发机构、科创企业等，实地感受人工智能加速赋能科研与生产。 AI技术快速发展带动算力需求激增，目前国内外已建成的地面数据中心普遍存在占地广、能耗高、散热难等问题，将数据中心“搬”上太空成为全球产业
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社华盛顿4月15日电美国总统特朗普在美国媒体15日播出的采访中说，伊朗战事的“最终结果”可能很快就会取得。 特朗普在接受福克斯商业新闻电视台采访时说：“我认为我们做得很好，但重要的是最终结果，而且可能很快就会取得。”他还说，如果伊朗打算拥有核武器，美国就不会与其达成协议。（完）责任编辑：宋雅芳
 
 ## 正文
 
-中新社北京6月15日电 (记者 陈杭 卢晓娜)AI驱动火箭发动机研发范式革新，太空数据中心突破能源与散热等关键技术……北京当下正打通“算力上天”的关键环节。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-中新社记者近日走进北京新型研发机构、科创企业等，实地感受人工智能加速赋能科研与生产。
+新华社华盛顿4月15日电美国总统特朗普在美国媒体15日播出的采访中说，伊朗战事的“最终结果”可能很快就会取得。
 
-AI技术快速发展带动算力需求激增，目前国内外已建成的地面数据中心普遍存在占地广、能耗高、散热难等问题，将数据中心“搬”上太空成为全球产业布局热点。
+特朗普在接受福克斯商业新闻电视台采访时说：“我认为我们做得很好，但重要的是最终结果，而且可能很快就会取得。
 
-北京太空数据中心建设正处技术验证阶段。
+”他还说，如果伊朗打算拥有核武器，美国就不会与其达成协议。
 
-“尽管整体建造成本较高，但一旦建成，运营成本极低。
-
-”北京星辰未来空间技术研究院副院长武江涛表示，太空数据中心优势在于能源供给免费且持续，太空太阳能利用效率远高于地面，且无需支付电费；散热依靠辐射散热板，无需配备大量水冷设备。
-
-武江涛说，该院在能源获取和散热上取得创新突破，独创设计了聚光型太阳电池和石墨烯轻质散热系统，在地面完成工程化实验基础上，正通过试验星在轨进行验证，后续将逐步推进小规模、全系统应用。
-
-在北京科学智能研究院内，人工智能赋能科学研究(AI for Science)有效帮助打破学科与学科、理论与实验、科研与产业之间的壁垒，火箭发动机研发周期由以年计缩短至按月计，推动更多原创性、引领性成果落地。
+（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 17:10 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-29 17:03 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-29 16:48 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 17:00 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-29 17:06 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-29 16:58 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-29 17:03 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-29 16:49 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 17:11 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 16:49 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-29 16:44 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-29 16:58 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-29 17:14 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-29 16:51 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 17:04 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 16:55 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 16:59 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-29 17:14 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 17:06 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 17:06 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 17:00 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-29 17:17 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:53 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/3062374.shtml)
-- 2026-06-29 16:46 - [男孩复读一年减重20斤涨分111分](https://www.blog.kurohicncr.top/Article/details/5949304775.shtml)
-- 2026-06-29 16:47 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.kurohicncr.top/Article/details/06930.shtml)
-- 2026-06-29 16:55 - [成都至北京将新增动卧](https://www.share.kurohicncr.top/Article/details/17951178266.shtml)
-- 2026-06-29 16:51 - [小S在香港被偶遇](https://www.blog.minike.top/Article/details/639856120121.shtml)
-- 2026-06-29 16:56 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/720600091.shtml)
-- 2026-06-29 17:07 - [极限挑战第一季](http://www.share.minike.top/Article/details/154138953348.shtml)
-- 2026-06-29 17:04 - [网友飞机上偶遇肖战](http://www.share.kurohicncr.top/Article/details/30717385.shtml)
-- 2026-06-29 16:51 - [逆天祖国人](http://www.blog.minike.top/Article/details/1982956.shtml)
-- 2026-06-29 16:43 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/806040.shtml)
-- 2026-06-29 17:02 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/58887939.shtml)
-- 2026-06-29 17:07 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/4428585770.shtml)
-- 2026-06-29 16:46 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/284391773838.shtml)
-- 2026-06-29 16:44 - [7月1日起一批新规即将落地](http://www.share.minike.top/Article/details/64530272848.shtml)
-- 2026-06-29 16:46 - [NBA交易](https://www.share.kurohicncr.top/Article/details/41447.shtml)
+- 2026-06-29 17:10 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/7179712041.shtml)
+- 2026-06-29 17:09 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/41773.shtml)
+- 2026-06-29 17:13 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/37210.shtml)
+- 2026-06-29 16:57 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.kurohicncr.top/Article/details/2504996186.shtml)
+- 2026-06-29 17:00 - [美议员呼吁断供以色列政府](http://www.blog.minike.top/Article/details/036157536283.shtml)
+- 2026-06-29 17:16 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/14677970.shtml)
+- 2026-06-29 17:13 - [哈基米歌王争霸赛](https://www.blog.minike.top/Article/details/923826460.shtml)
+- 2026-06-29 16:56 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/10043273904.shtml)
+- 2026-06-29 16:53 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/546731.shtml)
+- 2026-06-29 17:17 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.kurohicncr.top/Article/details/47444914412.shtml)
+- 2026-06-29 16:50 - [世界杯十大帅哥必吃榜](https://www.share.minike.top/Article/details/62458539192.shtml)
+- 2026-06-29 16:48 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/5594139172.shtml)
+- 2026-06-29 17:02 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/8535184.shtml)
+- 2026-06-29 17:03 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/10526830.shtml)
+- 2026-06-29 17:09 - [工作靠AI算不算职场作弊](http://www.blog.kurohicncr.top/Article/details/8435672.shtml)

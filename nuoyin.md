@@ -1,56 +1,59 @@
-# （美加墨世界杯）佛得角爆冷逼平西班牙 比利时埃及握手言和
+# 市场观察人士：美国飙升的通胀预期拉响股市风险警报
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-中新社亚特兰大/西雅图6月15日电 当地时间15日在美国率先举行的两场2026年美加墨世界杯小组赛首轮比赛中，H组的世界杯新军佛得角队爆冷以0:0逼平夺冠大热门西班牙队，G组的比利时队和埃及队各进一球，同样以平局收场。世界排名第三的西班牙队曾在2010年捧起大力神杯，自2024年3月开始从未在常规时间里输球，目前拥有亚马尔、佩德里和罗德里等世界级球星，人员储备厚实；世界杯非洲区
+一些华尔街市场观察人士表示，对在过去几个交易日趁停火推动的美股反弹买入的投资者而言，通胀预期的飙升是一个警示信号。 标普500指数周一攀升，目前已抹去了自伊朗战争爆发以来的所有跌幅。与此同时，油价仍接近2022年以来的最高水平，且美国对伊朗港口的封锁可能令全球市场进一步收紧。 JonesTrading Institutional Services LLC策略师Michael O
 
 ## 正文
 
-中新社亚特兰大/西雅图6月15日电 当地时间15日在美国率先举行的两场2026年美加墨世界杯小组赛首轮比赛中，H组的世界杯新军佛得角队爆冷以0:0逼平夺冠大热门西班牙队，G组的比利时队和埃及队各进一球，同样以平局收场。
+一些华尔街市场观察人士表示，对在过去几个交易日趁停火推动的美股反弹买入的投资者而言，通胀预期的飙升是一个警示信号。
 
-世界排名第三的西班牙队曾在2010年捧起大力神杯，自2024年3月开始从未在常规时间里输球，目前拥有亚马尔、佩德里和罗德里等世界级球星，人员储备厚实；世界杯非洲区预选赛中，西非岛国佛得角曾战胜“非洲雄狮”喀麦隆队，以小组头名的成绩首次晋级世界杯决赛圈，世界排名第64位。
+标普500指数周一攀升，目前已抹去了自伊朗战争爆发以来的所有跌幅。
 
-当日在美国亚特兰大体育场举行的比赛中，佛得角队形成了严密的防守体系，没有给西班牙队太多进攻机会。
+与此同时，油价仍接近2022年以来的最高水平，且美国对伊朗港口的封锁可能令全球市场进一步收紧。
 
-直到第39分钟，费兰·托雷斯近距离包抄未果，随后奥亚萨瓦尔头球补射，被40岁的佛得角队门将沃津尼亚扑出。
+JonesTrading Institutional Services LLC策略师Michael O’Rourke表示，上周发布的一项衡量美国消费者通胀预期的指标涨幅创一年以来最高，这凸显出在能源价格依然高企的情况下，押注价格压力只是暂时的这种做法存在风险。
 
-下半场，佛得角队的防守依然密不透风，逼迫西班牙队在第71分钟换上此前受伤的新星亚马尔。
+“这波上涨行情存在风险，我们当前所处的水平也存在风险，而且自年初以来，基本面形势比开年时要糟糕得多，”该公司首席市场策略师O’Rourke表示。
 
-作为右边锋的他频频拿球突破，但略伦特和库库雷利亚等人的射门均被沃津尼亚化解。
+“地缘政治局势只要有一处出现变动，局面就可能再次开始瓦解。
 
-佛得角队最终手握平局，收获队史首个世界杯积分。
+” 近几周能源成本的飙升可能预示着未来通胀将进一步加剧。
 
-赛前，西班牙队被认为告负甚至战平都只有理论上的可能，如今却爆出开赛以来的最大冷门。
+Ned Davis Research首席全球策略师Tim Hayes表示，大宗商品价格走势与消费者通胀之间的相关性显示，如果海峡持续关闭，到明年年初，消费者价格指数将同比增长4%，为2023年以来的最高水平。
 
 ## 相关推荐
 
-- 2026-06-29 17:09 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 16:51 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-29 16:50 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-29 16:54 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-29 16:53 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-29 16:51 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 17:12 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-29 17:09 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 16:54 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 16:54 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 17:00 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 16:54 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-29 16:56 - [评论员：日菲勾连各有盘算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 17:03 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-29 17:09 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 16:58 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-29 17:04 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 17:02 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 17:03 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-29 17:08 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 16:49 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-29 17:13 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 17:16 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:01 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.kurohicncr.top/Article/details/48176743.shtml)
-- 2026-06-29 16:55 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/71540.shtml)
-- 2026-06-29 16:49 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/539242789.shtml)
-- 2026-06-29 16:54 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.share.kurohicncr.top/Article/details/854061804.shtml)
-- 2026-06-29 16:47 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/14457.shtml)
-- 2026-06-29 16:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/73127.shtml)
-- 2026-06-29 17:09 - [博主：AI泡沫必须破灭](https://www.share.kurohicncr.top/Article/details/8646134934.shtml)
-- 2026-06-29 17:02 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/29083.shtml)
-- 2026-06-29 17:05 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/86918615.shtml)
-- 2026-06-29 16:46 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/9525002.shtml)
-- 2026-06-29 16:58 - [葛军谈AI时代理科生出路](http://www.blog.kurohicncr.top/Article/details/923234113.shtml)
-- 2026-06-29 16:53 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/439309367.shtml)
-- 2026-06-29 17:10 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/69538822494.shtml)
-- 2026-06-29 16:56 - [极限挑战第一季](http://www.blog.minike.top/Article/details/82724.shtml)
-- 2026-06-29 16:45 - [TLAW vs DCG MSI](https://www.share.kurohicncr.top/Article/details/87864532.shtml)
+- 2026-06-29 16:58 - [挪威王储妃长子两次强奸获刑](http://www.blog.kurohicncr.top/Article/details/4092538137.shtml)
+- 2026-06-29 16:57 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/69319062526.shtml)
+- 2026-06-29 17:07 - [机器人学校开学了](https://www.blog.minike.top/Article/details/40987387.shtml)
+- 2026-06-29 17:09 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/91157857.shtml)
+- 2026-06-29 16:53 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/669048402232.shtml)
+- 2026-06-29 16:52 - [欧洲多国高温突破40摄氏度](http://www.blog.minike.top/Article/details/10852516.shtml)
+- 2026-06-29 17:06 - [逆天祖国人](https://www.blog.minike.top/Article/details/2427882082.shtml)
+- 2026-06-29 17:14 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/13202393.shtml)
+- 2026-06-29 16:54 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/204527527.shtml)
+- 2026-06-29 17:07 - [大六座SUV进入黄金时代](https://www.share.minike.top/Article/details/9050917.shtml)
+- 2026-06-29 17:06 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/1288618920.shtml)
+- 2026-06-29 17:02 - [人形机器人](https://www.blog.kurohicncr.top/Article/details/8814295536.shtml)
+- 2026-06-29 17:10 - [送你一朵小红花](http://www.blog.minike.top/Article/details/056806958943.shtml)
+- 2026-06-29 17:00 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/1844724501.shtml)
+- 2026-06-29 17:00 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/1922753980.shtml)

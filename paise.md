@@ -1,60 +1,51 @@
-# 王毅同蒙古国外长巴特策策格会谈
+# 地区调停方推动延长美国与伊朗停火协议
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-中新社北京6月14日电 6月13日，中共中央政治局委员、外交部长王毅在乌兰巴托同蒙古国外长巴特策策格举行会谈。 王毅表示，中蒙是友好近邻。中国始终坚持大小国家一律平等，遵循亲诚惠容周边外交理念和与邻为善、以邻为伴方针，将蒙古国置于周边外交的重要位置，积极推进两国睦邻友好合作。《中蒙友好合作关系条约》明确规定中蒙坚持和平共处五项原则，不允许第三国利用其领土损害另一方国家主权和安全
+知情官员表示，地区调停方仍在推动延长美伊停火协议，并安排第二轮谈判，但进展缓慢。 官员称，在伊斯兰堡马拉松式的和平谈判无果而终后，美国与伊朗已原则上同意会晤，但尚未确定日期和地点。 他们表示，谈判进展依然迟缓。责任编辑：陈钰嘉
 
 ## 正文
 
-中新社北京6月14日电 6月13日，中共中央政治局委员、外交部长王毅在乌兰巴托同蒙古国外长巴特策策格举行会谈。
+知情官员表示，地区调停方仍在推动延长美伊停火协议，并安排第二轮谈判，但进展缓慢。
 
-王毅表示，中蒙是友好近邻。
+官员称，在伊斯兰堡马拉松式的和平谈判无果而终后，美国与伊朗已原则上同意会晤，但尚未确定日期和地点。
 
-中国始终坚持大小国家一律平等，遵循亲诚惠容周边外交理念和与邻为善、以邻为伴方针，将蒙古国置于周边外交的重要位置，积极推进两国睦邻友好合作。
+他们表示，谈判进展依然迟缓。
 
-《中蒙友好合作关系条约》明确规定中蒙坚持和平共处五项原则，不允许第三国利用其领土损害另一方国家主权和安全。
-
-这是中蒙关系健康发展的重要保障。
-
-面对百年未有之大变局，中蒙应牢牢把握友好合作大方向，在涉及彼此核心利益问题上继续坚定相互支持，坚持从两国人民根本和长远利益出发，不断赋予中蒙全面战略伙伴关系新的时代内涵，共同应对各种外部挑战。
-
-王毅强调，中方愿同蒙方一道，在两国元首战略引领下，朝着共建和平共处、守望相助、合作共赢的两国命运共同体方向继续作出努力。
-
-中国对外政策始终保持连续性、稳定性，愿继续做蒙方可信赖可依靠的伙伴，为蒙古国的发展振兴提供可持续助力。
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-29 16:52 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-29 16:53 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 16:54 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 16:48 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-29 16:45 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 17:04 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 17:06 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-29 16:54 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 16:47 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-29 16:59 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 17:05 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-29 16:48 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 17:01 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-29 17:07 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 17:00 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 17:01 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-29 17:04 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 16:52 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 17:15 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-29 17:12 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 17:06 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-29 17:18 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-29 17:02 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-29 17:00 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 16:56 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 16:49 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 16:55 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:46 - [AG 宫斗](https://www.blog.minike.top/Article/details/421650734561.shtml)
-- 2026-06-29 16:53 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/812448543353.shtml)
-- 2026-06-29 16:45 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.kurohicncr.top/Article/details/647885.shtml)
-- 2026-06-29 17:12 - [专家建议城乡居民养老金增至每月千元](http://www.blog.kurohicncr.top/Article/details/357473.shtml)
-- 2026-06-29 16:55 - [林昀儒不敌17岁小将止步首轮](https://www.share.minike.top/Article/details/640919.shtml)
-- 2026-06-29 16:48 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.kurohicncr.top/Article/details/257668.shtml)
-- 2026-06-29 16:47 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/513587385078.shtml)
-- 2026-06-29 16:59 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/79064181.shtml)
-- 2026-06-29 17:07 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/52475187089.shtml)
-- 2026-06-29 17:02 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/7883266.shtml)
-- 2026-06-29 17:09 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/00613543460.shtml)
-- 2026-06-29 16:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/495733647407.shtml)
-- 2026-06-29 17:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/6659208568.shtml)
-- 2026-06-29 16:50 - [AG冠军五人组轮换](https://www.share.kurohicncr.top/Article/details/9008700.shtml)
-- 2026-06-29 16:58 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/09132013.shtml)
+- 2026-06-29 16:58 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/9256621.shtml)
+- 2026-06-29 16:50 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/211558642953.shtml)
+- 2026-06-29 16:50 - [河南四位大妈景区跳舞爆火](https://www.blog.kurohicncr.top/Article/details/5494249036.shtml)
+- 2026-06-29 16:50 - [直击委内瑞拉加拉加斯救援现场](http://www.share.kurohicncr.top/Article/details/1664153.shtml)
+- 2026-06-29 16:56 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/664958194.shtml)
+- 2026-06-29 16:54 - [媒体：听清自己内心的声音再填志愿](http://www.share.kurohicncr.top/Article/details/8092392.shtml)
+- 2026-06-29 16:51 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/55050281.shtml)
+- 2026-06-29 16:54 - [韩国主帅洪明甫辞职](https://www.blog.kurohicncr.top/Article/details/8723964536.shtml)
+- 2026-06-29 17:14 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/11721875875.shtml)
+- 2026-06-29 16:49 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/617735458738.shtml)
+- 2026-06-29 17:12 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.kurohicncr.top/Article/details/9797105.shtml)
+- 2026-06-29 17:09 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/6456816.shtml)
+- 2026-06-29 17:13 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/340446324041.shtml)
+- 2026-06-29 17:09 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.blog.kurohicncr.top/Article/details/1273182291.shtml)
+- 2026-06-29 17:15 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/20417.shtml)

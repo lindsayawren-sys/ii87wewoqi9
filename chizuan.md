@@ -1,56 +1,57 @@
-# 印尼“汉语桥”中文比赛总决赛在雅加达举行
+# 周先旺被公诉 曾任武汉市市长、湖北省副省长等职
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 18:46 来源：中国新闻网 当地时间6月14日，2026年“汉语桥”中文比赛印度尼西亚赛区总决赛在雅加达举行。中国驻印尼大使王鲁彤、印尼高等教育与科技部副部长蒋黛兰、印尼阿拉扎大学孔子学院理事会成员艾哈迈德·萨菲克、雅加达华文教育协调机构执行主席蔡昌杰等出席活动，并为获奖选手颁奖。 王鲁彤在致辞中表示，“汉语桥”在印尼具有独特的文化价值与教育
+中新社北京4月16日电 (记者 张素)中国官方16日通报湖北省政协原党组成员、副主席周先旺涉案进展。最高人民检察院依法以涉嫌受贿罪对周先旺作出逮捕决定，并指定由河南省商丘市人民检察院审查起诉。 商丘市人民检察院近日已向商丘市中级人民法院提起公诉。检察机关起诉指控称，被告人周先旺利用担任湖北省恩施土家族苗族自治州委副书记、州长，湖北省商务厅党组书记、厅长，湖北省黄石市委书记，湖北
 
 ## 正文
 
-发布时间：2026年06月15日 18:46 来源：中国新闻网 当地时间6月14日，2026年“汉语桥”中文比赛印度尼西亚赛区总决赛在雅加达举行。
+中新社北京4月16日电 (记者 张素)中国官方16日通报湖北省政协原党组成员、副主席周先旺涉案进展。
 
-中国驻印尼大使王鲁彤、印尼高等教育与科技部副部长蒋黛兰、印尼阿拉扎大学孔子学院理事会成员艾哈迈德·萨菲克、雅加达华文教育协调机构执行主席蔡昌杰等出席活动，并为获奖选手颁奖。
+最高人民检察院依法以涉嫌受贿罪对周先旺作出逮捕决定，并指定由河南省商丘市人民检察院审查起诉。
 
-王鲁彤在致辞中表示，“汉语桥”在印尼具有独特的文化价值与教育意义，不仅是一项语言赛事，更是中印尼人文交流的生动缩影。
+商丘市人民检察院近日已向商丘市中级人民法院提起公诉。
 
-近年来，两国教育与文化合作成果丰硕，希望青年学子以语言为桥、以文化为媒，继续传递两国友好声音，促进民心相通。
+检察机关起诉指控称，被告人周先旺利用担任湖北省恩施土家族苗族自治州委副书记、州长，湖北省商务厅党组书记、厅长，湖北省黄石市委书记，湖北省政府党组成员、副省长，湖北省武汉市委副书记、副市长、代市长、市长，湖北省政协党组成员、副主席，湖北省政协副省级领导干部等职务上的便利以及职权或者地位形成的便利条件，为他人谋取利益，非法收受他人财物，数额特别巨大，依法应当以受贿罪追究其刑事责任。
 
-闭幕式上，获奖选手代表轮番登台，带来歌曲、舞蹈等才艺表演，展现出良好的中文水平与综合素养，以及对中华文化的浓厚兴趣。
+公开资料显示，周先旺生于1962年11月，土家族，湖北建始人。
 
-随着颁奖暨闭幕典礼结束，2026年“汉语桥”中文比赛印尼赛区总决赛圆满落幕。
+2025年7月，官方通报其被查。
 
-(记者 李志全 制作 徐妙巧） 责任编辑：【李季】
+今年1月，中央纪委国家监委通报周先旺严重违纪违法被开除党籍和公职。
+
+他被指“公器私用，擅权妄为，大搞权钱交易”“造成巨额国有资产损失风险”“对其子失管失教”等。
 
 ## 相关推荐
 
-- 2026-06-29 17:09 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 16:45 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-29 17:05 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-29 16:44 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-29 16:57 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 17:10 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 16:50 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-29 17:10 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-29 17:08 - [东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 16:57 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-29 17:04 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 17:05 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 17:06 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-29 16:52 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 16:57 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 16:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 16:56 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 16:53 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 17:06 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 17:03 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 17:15 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 17:13 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-29 16:51 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:07 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/4116336395.shtml)
-- 2026-06-29 17:06 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/236896648789.shtml)
-- 2026-06-29 17:06 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/176498366.shtml)
-- 2026-06-29 16:42 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/0655245.shtml)
-- 2026-06-29 16:48 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/1225127.shtml)
-- 2026-06-29 16:43 - [四川地震前夕 街头电线上站满燕子](https://www.share.minike.top/Article/details/92712.shtml)
-- 2026-06-29 16:49 - [依法管制阻遏日方军事化危险动向](http://www.share.kurohicncr.top/Article/details/756758.shtml)
-- 2026-06-29 17:02 - [金刚川](http://www.blog.minike.top/Article/details/688547149.shtml)
-- 2026-06-29 16:50 - [博主：黄金和原油回落不等于风险消失](http://www.share.minike.top/Article/details/6770060480.shtml)
-- 2026-06-29 16:57 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/038722497476.shtml)
-- 2026-06-29 16:57 - [上海一小区水池内出现一条鳄鱼](https://www.share.minike.top/Article/details/06094.shtml)
-- 2026-06-29 17:10 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/0720449168.shtml)
-- 2026-06-29 16:58 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.kurohicncr.top/Article/details/64377787.shtml)
-- 2026-06-29 16:57 - [美人鱼](http://www.share.minike.top/Article/details/157347442959.shtml)
-- 2026-06-29 17:10 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/06270010498.shtml)
+- 2026-06-29 17:09 - [极限挑战第一季](https://www.blog.minike.top/Article/details/430870.shtml)
+- 2026-06-29 16:55 - [评论员：日菲勾连各有盘算](https://www.blog.kurohicncr.top/Article/details/019671923268.shtml)
+- 2026-06-29 17:02 - [美国大满贯首日国乒主力均取胜](https://www.share.minike.top/Article/details/15475.shtml)
+- 2026-06-29 17:12 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/30615857525.shtml)
+- 2026-06-29 17:10 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/13800208.shtml)
+- 2026-06-29 17:00 - [重度抑郁女孩没钱去做心理咨询](http://www.share.kurohicncr.top/Article/details/86044967.shtml)
+- 2026-06-29 17:16 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/48592362.shtml)
+- 2026-06-29 16:56 - [美的空调 卡bug](http://www.share.minike.top/Article/details/49167163486.shtml)
+- 2026-06-29 16:52 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/570995.shtml)
+- 2026-06-29 16:53 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/1374158535.shtml)
+- 2026-06-29 17:08 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/1572874121.shtml)
+- 2026-06-29 16:56 - [利率一再降 “存款搬家”搬去哪](https://www.blog.minike.top/Article/details/98238495971.shtml)
+- 2026-06-29 17:12 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/34980187381.shtml)
+- 2026-06-29 16:54 - [斛珠夫人](https://www.share.minike.top/Article/details/944418860.shtml)
+- 2026-06-29 17:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/020238501376.shtml)

@@ -1,56 +1,56 @@
-# 表现卓越的韩国股市等待能否晋身MSCI发达市场行列
+# 加拿大制造业与批发贸易受汽车行业反弹提振
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-在经历了多年来最动荡的一周之后，韩国股市正接近其长期以来一直追求的一个里程碑：一条可能进入MSCI公司发达市场行列的道路。 今年以来，韩国KOSPI指数已成为全球表现最佳的主要股指，涨幅超过90%，投资者纷纷涌入人工智能AI领域的佼佼者。然而，这波上涨行情也使韩国股市成为全球波动性最大的股市之一。该指数近日已多次触发交易安全保障措施，波动性已飙升至主要全球指数中罕见的水平。 现
+2 月份批发贸易同样回暖，销售额增长 2%，至 867.7 亿加元 加拿大 2 月份汽车产量反弹，推动当月制造业与批发贸易销售额双双走高。 加拿大统计局周三公布，经季节性因素调整后，工厂出货量环比增长 3.6%，至 711.9 亿加元（约合 517 亿美元）。这一增幅略低于该局此前预估的 3.8%，但扭转了 1 月份跌幅更大的颓势；1 月份销售额修正后环比下降 3.1%，降幅略
 
 ## 正文
 
-在经历了多年来最动荡的一周之后，韩国股市正接近其长期以来一直追求的一个里程碑：一条可能进入MSCI公司发达市场行列的道路。
+2 月份批发贸易同样回暖，销售额增长 2%，至 867.7 亿加元 加拿大 2 月份汽车产量反弹，推动当月制造业与批发贸易销售额双双走高。
 
-今年以来，韩国KOSPI指数已成为全球表现最佳的主要股指，涨幅超过90%，投资者纷纷涌入人工智能AI领域的佼佼者。
+加拿大统计局周三公布，经季节性因素调整后，工厂出货量环比增长 3.6%，至 711.9 亿加元（约合 517 亿美元）。
 
-然而，这波上涨行情也使韩国股市成为全球波动性最大的股市之一。
+这一增幅略低于该局此前预估的 3.8%，但扭转了 1 月份跌幅更大的颓势；1 月份销售额修正后环比下降 3.1%，降幅略高于此前估算。
 
-该指数近日已多次触发交易安全保障措施，波动性已飙升至主要全球指数中罕见的水平。
+该局同时表示，2 月份批发贸易同样回暖，销售额环比增长 2%，至 867.7 亿加元。
 
-现在投资者正等待MSCI公司6月23日的年度市场分类审查，届时这家指数提供商将决定韩国是否最终能够进入发达市场观察名单，这是最终升级的第一步。
+这一增幅也略低于此前预估的 2.3%，此前 2026 年年初批发销售额曾环比下降 1.1%。
 
-15位投资者和策略师中，大多数人预计MSCI目前会将韩国继续保留在新兴市场行列，他们认为近期的改革需要更多时间来证明可持续性。
+按实物量计算，工厂销售额环比增长 3.4%，但同比下降 2.7%；批发贸易实物量环比增长 1.1%，同比下降 1.9%。
 
-但很少有人质疑韩国的发展方向。
+2 月份这份强劲数据为今年增长预期疲软的加拿大经济释放了积极信号，不过鉴于中东冲突升级推高能源成本、为加拿大经济蒙上阴影，这些数据已略显滞后。
 
-“这只是时间问题，”百达资产管理高级投资经理Young Jae Lee表示，“韩国至少在未来几年内将成为发达市场。
+加拿大统计局早前的初步数据显示，1—2 月行业层面 GDP 环比增长 0.2%，在 1 月份 0.1% 的温和增长基础上进一步回升，意味着加拿大经济在 2025 年第四季度按年率计算收缩 0.6% 后，有望在今年第一季度实现复苏。
 
 ## 相关推荐
 
-- 2026-06-29 16:52 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 16:50 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-29 16:59 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-29 17:01 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 16:57 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 17:07 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 17:00 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-29 17:01 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 16:49 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 17:09 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-29 17:06 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 16:48 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 17:17 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-29 16:54 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-29 17:17 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-29 17:07 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-29 17:16 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 16:49 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 17:09 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 16:59 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:51 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/037867871286.shtml)
-- 2026-06-29 16:44 - [7款商保创新药“转道”](https://www.share.minike.top/Article/details/987570442809.shtml)
-- 2026-06-29 16:59 - [广东一地发现极危植物新物种](https://www.blog.kurohicncr.top/Article/details/57353.shtml)
-- 2026-06-29 17:06 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/69334557.shtml)
-- 2026-06-29 16:50 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/030213361831.shtml)
-- 2026-06-29 17:01 - [广州一高校通报网传禁止小米汽车入校](http://www.share.kurohicncr.top/Article/details/016803465800.shtml)
-- 2026-06-29 16:44 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/233116292126.shtml)
-- 2026-06-29 17:11 - [戒掉咖啡后我的身体变化](https://www.blog.kurohicncr.top/Article/details/3281860.shtml)
-- 2026-06-29 17:05 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/6075801144.shtml)
-- 2026-06-29 17:00 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/79942344456.shtml)
-- 2026-06-29 16:51 - [媒体：中国田径压力与期待并存](https://www.blog.kurohicncr.top/Article/details/83146950695.shtml)
-- 2026-06-29 16:58 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/855988.shtml)
-- 2026-06-29 16:48 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.minike.top/Article/details/11143951583.shtml)
-- 2026-06-29 16:55 - [差点没看懂白鹿丞磊这段意识流](https://www.share.minike.top/Article/details/720814393.shtml)
-- 2026-06-29 17:04 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/356898.shtml)
+- 2026-06-29 17:15 - [白宇摘下白玉兰送给杨幂](http://www.blog.minike.top/Article/details/80320640.shtml)
+- 2026-06-29 17:04 - [在自己家不穿衣服犯法吗](http://www.share.kurohicncr.top/Article/details/217946507.shtml)
+- 2026-06-29 17:03 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/43914508162.shtml)
+- 2026-06-29 17:03 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/6740703.shtml)
+- 2026-06-29 17:10 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/3135354.shtml)
+- 2026-06-29 17:07 - [普京介绍前线战事](http://www.blog.minike.top/Article/details/410211868.shtml)
+- 2026-06-29 17:12 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/692645444.shtml)
+- 2026-06-29 17:00 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/0816025409.shtml)
+- 2026-06-29 17:06 - [韩国国脚无缘上亿韩元奖金](http://www.blog.minike.top/Article/details/507584190.shtml)
+- 2026-06-29 17:02 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/81306017546.shtml)
+- 2026-06-29 17:08 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/77686387554.shtml)
+- 2026-06-29 16:48 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/3321290739.shtml)
+- 2026-06-29 17:13 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/1031175.shtml)
+- 2026-06-29 17:11 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/19458042028.shtml)
+- 2026-06-29 17:04 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/9222175.shtml)

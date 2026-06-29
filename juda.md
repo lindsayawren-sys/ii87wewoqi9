@@ -1,58 +1,59 @@
-# 张国清在青海调研时强调 高质量推进盐湖产业基地建设 着力提高防范应对自然灾害能力
+# 具身智能成都“上产线” 海外媒体点赞中国机器人技术
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-新华社西宁6月14日电 中共中央政治局委员、国务院副总理张国清12日至14日在青海省调研盐湖产业发展、防灾减灾等工作。他强调，要深入贯彻习近平总书记重要指示批示精神，落实党中央、国务院决策部署，高质量推进盐湖产业基地建设，着力提高防范应对自然灾害能力，更好统筹发展和安全。 张国清来到青海盐湖镁业、钾肥、锂电等企业和西部矿业智慧管控中心，详细了解生产经营、研发创新和产业发展等情况
+中新网成都4月15日电 (程兆)4月14日，在成都郫都高新技术产业园区，一条刚刚开启试装配的具身智能机器人生产线，成为海外华文媒体代表观察成都科技产业发展的一个新切面。 当日，“2026海外华文媒体四川行”活动走进成都市郫都区，来自全球17个国家和地区的20余名海外华文媒体代表对生产线上的具身智能机器人兴趣颇深。 “每次参观，都能感觉到机器人质量、技术都在很大提高，逐渐成熟，和
 
 ## 正文
 
-新华社西宁6月14日电 中共中央政治局委员、国务院副总理张国清12日至14日在青海省调研盐湖产业发展、防灾减灾等工作。
+中新网成都4月15日电 (程兆)4月14日，在成都郫都高新技术产业园区，一条刚刚开启试装配的具身智能机器人生产线，成为海外华文媒体代表观察成都科技产业发展的一个新切面。
 
-他强调，要深入贯彻习近平总书记重要指示批示精神，落实党中央、国务院决策部署，高质量推进盐湖产业基地建设，着力提高防范应对自然灾害能力，更好统筹发展和安全。
+当日，“2026海外华文媒体四川行”活动走进成都市郫都区，来自全球17个国家和地区的20余名海外华文媒体代表对生产线上的具身智能机器人兴趣颇深。
 
-张国清来到青海盐湖镁业、钾肥、锂电等企业和西部矿业智慧管控中心，详细了解生产经营、研发创新和产业发展等情况。
+“每次参观，都能感觉到机器人质量、技术都在很大提高，逐渐成熟，和世界的距离越来越小，有些方面可能还走在前列。
 
-他强调，盐湖资源是国家战略性资源，要处理好资源开发利用和生态环境保护的关系，加快绿色低碳循环发展，提高资源安全保障能力，不断增强盐湖产业国际竞争力和影响力。
+”美国《华兴报》社长程钕钊在参访后说。
 
-要统筹推进盐湖产业布局、产能规划、标准升级、要素保障，因地制宜发展盐湖资源精深加工、有色金属冶炼、新材料等特色优势产业，促进产业链向高附加值领域延伸。
+除了机器人本身给他留下印象，园区企业服务中心的集成化服务也让他觉得“耳目一新”，“在国外不太容易看到这么集中的服务”。
 
-要围绕盐湖资源综合利用和高效开发，强化关键核心技术、关键共性技术攻关，积极推进相关产业流程、技术、工艺创新和数字赋能，促进绿色开采和节约集约利用，努力做到低消耗、低排放、高效益。
+对海外华文媒体而言，这样的参访，关注点不只在技术参数，也在一项新产业如何落地。
 
-要发挥国资国企示范带动作用，开放应用场景，推进产业链上下游紧密合作，打造大中小企业融通发展的先进产业集群。
+生产线一头连着研发，一头连着应用，背后还需要园区服务、人才供给和产业配套协同支撑。
 
-张国清来到西宁市古城应急避险中心、青海省地震预警中心，调研灾害监测、防灾避险等工作。
+郫都高新技术产业园区管委会投资促进部部长周桂先介绍，人工智能是成都重点产业链之一，郫都区也是重要承载地，引入具身智能链主企业，正是希望带动上下游企业进一步聚集。
 
 ## 相关推荐
 
-- 2026-06-29 16:57 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-29 16:55 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-29 16:52 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-29 17:10 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-29 16:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-29 17:03 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 17:06 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 16:43 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 16:42 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 17:00 - [驻日美军航母沦为“毒窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-29 17:00 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-29 16:59 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 16:48 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 17:06 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 17:15 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 16:57 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-29 16:51 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-29 17:13 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 17:16 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 16:54 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-29 16:54 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 17:02 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-29 16:53 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-29 17:00 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-29 17:17 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:03 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.share.minike.top/Article/details/051601624.shtml)
-- 2026-06-29 16:52 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.minike.top/Article/details/071613505.shtml)
-- 2026-06-29 16:50 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.kurohicncr.top/Article/details/192431.shtml)
-- 2026-06-29 17:07 - [德国连续三天刷新本国最高气温纪录](http://www.share.minike.top/Article/details/2350081.shtml)
-- 2026-06-29 17:06 - [盛秋平任南昌市委书记](http://www.share.kurohicncr.top/Article/details/92076042036.shtml)
-- 2026-06-29 17:10 - [一生一世](https://www.share.minike.top/Article/details/46288471.shtml)
-- 2026-06-29 17:02 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.kurohicncr.top/Article/details/674258820250.shtml)
-- 2026-06-29 16:50 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/78751809598.shtml)
-- 2026-06-29 17:09 - [时光音乐会](http://www.share.minike.top/Article/details/3832957991.shtml)
-- 2026-06-29 16:50 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/0643929066.shtml)
-- 2026-06-29 16:42 - [刘烨16岁儿子诺一颜值](http://www.share.kurohicncr.top/Article/details/51436.shtml)
-- 2026-06-29 16:58 - [乔家的儿女](https://www.share.minike.top/Article/details/79833302114.shtml)
-- 2026-06-29 16:53 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/2514634.shtml)
-- 2026-06-29 17:00 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/92279.shtml)
-- 2026-06-29 17:09 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/6979590.shtml)
+- 2026-06-29 17:00 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/039682087245.shtml)
+- 2026-06-29 17:02 - [网友飞机上偶遇肖战](http://www.share.kurohicncr.top/Article/details/1616319453.shtml)
+- 2026-06-29 16:50 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/4154013730.shtml)
+- 2026-06-29 16:57 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/847649753.shtml)
+- 2026-06-29 17:11 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/8111266.shtml)
+- 2026-06-29 17:00 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/218901176812.shtml)
+- 2026-06-29 17:15 - [普京介绍前线战事](https://www.share.minike.top/Article/details/86576285.shtml)
+- 2026-06-29 16:49 - [美人鱼](https://www.share.kurohicncr.top/Article/details/81495324.shtml)
+- 2026-06-29 17:00 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/68986807.shtml)
+- 2026-06-29 17:13 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/65558.shtml)
+- 2026-06-29 17:04 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/064348466.shtml)
+- 2026-06-29 17:14 - [恋与深空 731](https://www.blog.kurohicncr.top/Article/details/18979802889.shtml)
+- 2026-06-29 17:13 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/6808351337.shtml)
+- 2026-06-29 16:50 - [驻日美军航母沦为“毒窝”](http://www.blog.minike.top/Article/details/69251.shtml)
+- 2026-06-29 16:56 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/463919297977.shtml)

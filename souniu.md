@@ -1,61 +1,61 @@
-# 爆款频出+闭门拒客！科技基金火热行情下，公募基金如何布局？
+# 世界变乱交织，多国政要为何扎堆访华？
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-科技行情爆火背后，基金“上新”与“限购”并存。 近期，A股市场科技主线持续演绎，公募基金则出现了矛盾现象：一方面，强烈的赚钱效应带火了基金发行端，年内权益爆款频出，科技主题产品“一日售罄”已成家常便饭；另一侧却上演着绩优基金频频降额限购、“紧关车门”的画面，将汹涌而来的资金拒之门外。 这种“上新”与“限购”并存的现象，再度折射出公募基金在行情短期高位之际，需要再度面对规模与业绩
+中新社北京4月15日电 题：世界变乱交织，多国政要为何扎堆访华？ 中新社记者 李京泽 进入4月，中国北京又一次成为令人瞩目的世界“会客厅”。 在短短10余天里，泰国公主诗琳通，西班牙首相桑切斯，阿联酋阿布扎比王储哈立德，越共中央总书记、国家主席苏林，俄罗斯外长拉夫罗夫等外国政要陆续到访，莫桑比克总统查波即将访华的消息也已公布。在外界看来，这波访华热潮至少释放出三重信号。 第一，
 
 ## 正文
 
-科技行情爆火背后，基金“上新”与“限购”并存。
+中新社北京4月15日电 题：世界变乱交织，多国政要为何扎堆访华？
 
-近期，A股市场科技主线持续演绎，公募基金则出现了矛盾现象：一方面，强烈的赚钱效应带火了基金发行端，年内权益爆款频出，科技主题产品“一日售罄”已成家常便饭；另一侧却上演着绩优基金频频降额限购、“紧关车门”的画面，将汹涌而来的资金拒之门外。
+中新社记者 李京泽 进入4月，中国北京又一次成为令人瞩目的世界“会客厅”。
 
-这种“上新”与“限购”并存的现象，再度折射出公募基金在行情短期高位之际，需要再度面对规模与业绩“再平衡”的难题。
+在短短10余天里，泰国公主诗琳通，西班牙首相桑切斯，阿联酋阿布扎比王储哈立德，越共中央总书记、国家主席苏林，俄罗斯外长拉夫罗夫等外国政要陆续到访，莫桑比克总统查波即将访华的消息也已公布。
 
-有公募分析人士指出，这需要公募基金、代销渠道等机构面对短期利润“诱惑”时，保持一定的克制力—公募基金要有限购的勇气，把规模控制在基金经理的能力圈里，代销渠道也得告别舒适区，在行情火爆之际做好冷静的买方投顾。
+在外界看来，这波访华热潮至少释放出三重信号。
 
-新发爆款与限购现象并存 一年多以来，科技板块展现出了极强的弹性，资金对于相关赛道的共识再度达到了历史峰值。
+第一，动荡世界里，中国是值得信赖的伙伴。
 
-基金方面，多只重仓科技股的权益类基金净值持续上攻，“翻倍基”亦是稀松平常。
+当前国际形势复杂严峻、地区冲突争端频发。
 
-赚钱效应还带动了基金在发行端的火爆，年内权益基金爆款频出，一日售罄已是家常便饭，带有“科技”“智选”等字样的基金更是尤为火爆。
+各国愈发期待以稳定合作对冲外部风险，中国成为重要选择。
 
-如平安新鑫智选发行规模高达48.6亿元，诺安科技智选发行规模高达31.88亿元，还有泉果科技领航在10天时间内募集了17.40亿元。
+苏林4月7日当选越南国家主席，9日便宣布将访华；桑切斯四年内第四次访问中国。
 
 ## 相关推荐
 
-- 2026-06-29 17:09 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 16:46 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-29 16:51 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 16:48 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-29 17:07 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-29 17:02 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 17:04 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-29 16:42 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 16:54 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-29 17:05 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-29 17:00 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-29 16:58 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 16:55 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 16:49 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-29 16:43 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 16:53 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 17:10 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 17:00 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 16:49 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 16:58 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 17:15 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 17:10 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-29 17:10 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-29 17:11 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-29 16:58 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 17:08 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 17:16 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-29 16:54 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-29 17:07 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-29 17:09 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:50 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/1669599.shtml)
-- 2026-06-29 17:11 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/4050461837.shtml)
-- 2026-06-29 16:50 - [大疆7月15日起涨价？公司回应](http://www.blog.kurohicncr.top/Article/details/3073591.shtml)
-- 2026-06-29 17:09 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.blog.minike.top/Article/details/942324.shtml)
-- 2026-06-29 16:43 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/9746433.shtml)
-- 2026-06-29 16:58 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/0802245829.shtml)
-- 2026-06-29 16:56 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/180611964.shtml)
-- 2026-06-29 16:49 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/514746705.shtml)
-- 2026-06-29 17:08 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/9982863.shtml)
-- 2026-06-29 16:43 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/027625372.shtml)
-- 2026-06-29 16:51 - [王曼昱被突如其来的话筒逗笑了](http://www.share.minike.top/Article/details/41855.shtml)
-- 2026-06-29 17:11 - [韩国国脚无缘上亿韩元奖金](http://www.share.minike.top/Article/details/668652133988.shtml)
-- 2026-06-29 17:07 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/7288815.shtml)
-- 2026-06-29 16:43 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/369884412898.shtml)
-- 2026-06-29 17:10 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/304727669657.shtml)
+- 2026-06-29 16:56 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.minike.top/Article/details/880317.shtml)
+- 2026-06-29 17:06 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.share.minike.top/Article/details/2441327703.shtml)
+- 2026-06-29 16:50 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/99923359.shtml)
+- 2026-06-29 16:54 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/194304.shtml)
+- 2026-06-29 16:57 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.share.kurohicncr.top/Article/details/627986678750.shtml)
+- 2026-06-29 17:13 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/26889.shtml)
+- 2026-06-29 17:00 - [第二波数码涨价潮来袭](http://www.blog.kurohicncr.top/Article/details/161052929.shtml)
+- 2026-06-29 17:00 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/647408.shtml)
+- 2026-06-29 17:07 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/512905.shtml)
+- 2026-06-29 16:56 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/249013.shtml)
+- 2026-06-29 17:04 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/8251321617.shtml)
+- 2026-06-29 16:51 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.minike.top/Article/details/77161.shtml)
+- 2026-06-29 16:51 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/73246179.shtml)
+- 2026-06-29 17:03 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/51833271.shtml)
+- 2026-06-29 16:56 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/913692982101.shtml)

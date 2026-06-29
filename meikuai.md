@@ -1,59 +1,59 @@
-# 湖北兴山：朝天吼“漂”出乡村好“钱”景
+# 千亿资金疯狂“抢购”！认购超1000倍，“杭州六小龙”第一股来了
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:03 UTC+8
 
 ## 摘要
 
-中新网宜昌6月13日电 题：湖北兴山：朝天吼“漂”出乡村好“钱”景 作者 董晓斌 蔡亮 杨雪 距离漂流旺季尚有时日，但位于湖北省兴山县水月寺镇高岚村的景源农家乐仍来了不少游客，店主罗晶和父母忙个不停。 13日，2026年第十三届中国宜昌朝天吼自然水域漂流大赛在兴山朝天吼漂流景区开赛，来自全国各地的2000余名漂流运动爱好者、800多支参赛队伍在青山绿水间逐浪竞技。 朝天吼漂流全
+4月14日，“杭州六小龙”之一群核科技港股IPO申购收官。券商数据显示，群核科技此次公开发售获约1071倍的超额认购，融资申购额达1312亿港元。 据悉，本次港股IPO，群核科技计划全球发售约1.61亿股，其中香港发售1606.2万股，国际发售1.45亿股，分别占全球发售股份总数的10%和90%，另有约15%超额配股权。本次发行每股定价最高为7.62港元，预计总募资额不超过12
 
 ## 正文
 
-中新网宜昌6月13日电 题：湖北兴山：朝天吼“漂”出乡村好“钱”景 作者 董晓斌 蔡亮 杨雪 距离漂流旺季尚有时日，但位于湖北省兴山县水月寺镇高岚村的景源农家乐仍来了不少游客，店主罗晶和父母忙个不停。
+4月14日，“杭州六小龙”之一群核科技港股IPO申购收官。
 
-13日，2026年第十三届中国宜昌朝天吼自然水域漂流大赛在兴山朝天吼漂流景区开赛，来自全国各地的2000余名漂流运动爱好者、800多支参赛队伍在青山绿水间逐浪竞技。
+券商数据显示，群核科技此次公开发售获约1071倍的超额认购，融资申购额达1312亿港元。
 
-朝天吼漂流全长6.5公里，落差高达148米，被誉为“华中第一漂”。
+据悉，本次港股IPO，群核科技计划全球发售约1.61亿股，其中香港发售1606.2万股，国际发售1.45亿股，分别占全球发售股份总数的10%和90%，另有约15%超额配股权。
 
-罗晶的农家乐位于朝天吼漂流河道旁，距离景区大门仅几十米。
+本次发行每股定价最高为7.62港元，预计总募资额不超过12.27亿港元，摩根大通和建银国际担任联席保荐人。
 
-2014年，31岁的罗晶从深圳返乡创业。
+该股将于4月17日正式登陆港交所，成为“全球空间智能第一股”，股票代码为00068.HK。
 
-“因为我家就在漂流河道旁边，所以我就和爸妈一起，在家开起了农家乐酒店。
+根据招股计划，本次募集资金将主要用于国际市场拓展、产品迭代与核心技术研发，以及国内市场推广和补充营运资金。
 
-”罗晶一边招呼客人，一边告诉记者。
+国际扩张被列为重点方向，公司旗下海外版平台Coohom已为其全球化布局奠定基础。
 
-朝天吼景区负责人杨成介绍，自2006年正式运营以来，景区累计接待游客已突破800万人次。
+群核科技本次全球发售引入泰康人寿、阳光人寿、广发基金、Redwood、Mirae Asset、雾凇资本、Hesai HK、国惠香港、华营建筑等作为基石投资者。
 
 ## 相关推荐
 
-- 2026-06-29 17:03 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 16:56 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-29 16:48 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-29 16:54 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 16:44 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-29 17:09 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-29 16:53 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 16:50 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-29 16:46 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 17:10 - [7款商保创新药“转道”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-29 16:44 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-29 17:01 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-29 16:54 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 16:49 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 17:17 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 17:03 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 17:07 - [东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-29 16:55 - [王安宇尊重田曦薇的一切选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 17:03 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 17:06 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 17:00 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-29 17:14 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 17:11 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-29 17:05 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-29 17:12 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-29 17:13 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:00 - [扬名立万](http://www.blog.minike.top/Article/details/14944410.shtml)
-- 2026-06-29 16:56 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/12065271779.shtml)
-- 2026-06-29 16:54 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.minike.top/Article/details/94314282666.shtml)
-- 2026-06-29 17:08 - [四川地震前夕 街头电线上站满燕子](https://www.share.minike.top/Article/details/487718853683.shtml)
-- 2026-06-29 16:53 - [送你一朵小红花](https://www.share.minike.top/Article/details/256010590351.shtml)
-- 2026-06-29 17:07 - [上海一小区水池内出现一条鳄鱼](https://www.share.minike.top/Article/details/15098060601.shtml)
-- 2026-06-29 17:08 - [拍到真的赛博朋克边缘行者了！](http://www.share.kurohicncr.top/Article/details/09649487151.shtml)
-- 2026-06-29 16:54 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/56861366.shtml)
-- 2026-06-29 16:42 - [音乐人屠颖离世家属追责涉事酒店](https://www.blog.minike.top/Article/details/4515635526.shtml)
-- 2026-06-29 17:05 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/56272833.shtml)
-- 2026-06-29 17:08 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.kurohicncr.top/Article/details/933955860555.shtml)
-- 2026-06-29 16:47 - [东方风云榜红毯](http://www.blog.minike.top/Article/details/060509576.shtml)
-- 2026-06-29 16:50 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.blog.kurohicncr.top/Article/details/352249.shtml)
-- 2026-06-29 16:54 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/645381036.shtml)
-- 2026-06-29 17:10 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/70418562153.shtml)
+- 2026-06-29 16:48 - [电影《抓特务》总票房破亿](http://www.blog.minike.top/Article/details/59273991.shtml)
+- 2026-06-29 17:06 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/0869730243.shtml)
+- 2026-06-29 17:03 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/874941779.shtml)
+- 2026-06-29 17:14 - [22岁民警拦截违法车辆被撞牺牲](http://www.blog.minike.top/Article/details/680895823248.shtml)
+- 2026-06-29 17:14 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/09766381347.shtml)
+- 2026-06-29 17:12 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/322755051.shtml)
+- 2026-06-29 16:50 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/78761686.shtml)
+- 2026-06-29 16:56 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.minike.top/Article/details/3476723326.shtml)
+- 2026-06-29 17:01 - [BB大王横店拍戏](https://www.blog.kurohicncr.top/Article/details/68108598329.shtml)
+- 2026-06-29 16:49 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.kurohicncr.top/Article/details/6820546198.shtml)
+- 2026-06-29 16:50 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/8288758382.shtml)
+- 2026-06-29 17:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/113822753.shtml)
+- 2026-06-29 16:52 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/565118313.shtml)
+- 2026-06-29 16:49 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/629184880852.shtml)
+- 2026-06-29 17:02 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/885932197947.shtml)

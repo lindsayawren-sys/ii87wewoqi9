@@ -1,56 +1,52 @@
-# 引黄补水、治污复绿：山西左云走出黄河流域生态保护新路
+# 中美“乒乓外交”55周年纪念活动在沪举行 亲历者冀两国青年接续友谊
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-中新网大同6月15日电 (胡健 马静波)山西省大同市左云县是大同市唯一被纳入黄河流域的县区，地跨黄河与海河两大流域。近年来，该县紧扣“让黄河成为造福人民的幸福河”目标，统筹推进生态保护修复，全力筑牢黄河流域生态安全屏障。在生态修复方面，左云县采取工程措施与自然恢复相结合，有效消除地质灾害隐患，恢复植被。大力推进采煤沉陷区综合治理，实施旧房拆除和土地复垦，新增耕地面积显著，昔日沉
+发布时间：2026年04月14日 21:58 来源：中国新闻网 4月13日，中美“乒乓外交”55周年纪念活动上海欢迎仪式及友谊赛在上海体育大学举行。此次友谊赛分为专业组和业余组，后者由中美学生混合配对进行双打比赛。 中美参赛选手们表示，这种比赛形式无关输赢，而是给两国青年创造了相互交流、建立联系的机会，是纪念历史、在当代延续“乒乓友谊”的绝佳方式。(记者 国璇 许婧 康玉湛上海
 
 ## 正文
 
-中新网大同6月15日电 (胡健 马静波)山西省大同市左云县是大同市唯一被纳入黄河流域的县区，地跨黄河与海河两大流域。
+发布时间：2026年04月14日 21:58 来源：中国新闻网 4月13日，中美“乒乓外交”55周年纪念活动上海欢迎仪式及友谊赛在上海体育大学举行。
 
-近年来，该县紧扣“让黄河成为造福人民的幸福河”目标，统筹推进生态保护修复，全力筑牢黄河流域生态安全屏障。
+此次友谊赛分为专业组和业余组，后者由中美学生混合配对进行双打比赛。
 
-在生态修复方面，左云县采取工程措施与自然恢复相结合，有效消除地质灾害隐患，恢复植被。
+中美参赛选手们表示，这种比赛形式无关输赢，而是给两国青年创造了相互交流、建立联系的机会，是纪念历史、在当代延续“乒乓友谊”的绝佳方式。
 
-大力推进采煤沉陷区综合治理，实施旧房拆除和土地复垦，新增耕地面积显著，昔日沉陷区逐步变为良田。
-
-以“三北”工程为牵引，持续开展风沙源生态保护和修复，实施人工造林、封山育林、人工种草。
-
-同时，该县探索“光伏+生态修复”模式，在采煤沉陷区布局光伏和风电项目，实现生态效益与能源保供双赢。
-
-2025年，该县完成水土流失治理面积4.27万亩，水土保持率达76.53%，有效控制入河泥沙量。
-
-此外，该县以黄河干流流经县生态环境综合治理为抓手，开展非法倾倒处置固体废物专项整治，推动煤矸石、粉煤灰等大宗固废综合利用。
+(记者 国璇 许婧 康玉湛上海报道） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 17:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-29 16:58 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 17:02 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 16:43 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-29 16:53 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-29 17:00 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 16:51 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-29 16:56 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 17:09 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-29 16:46 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 17:14 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-29 16:48 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-29 16:49 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-29 17:13 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 16:53 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 17:01 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 17:04 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-29 17:12 - [东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-29 17:03 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 16:59 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 16:53 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-29 16:57 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-29 17:13 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-29 17:04 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:56 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/873155549840.shtml)
-- 2026-06-29 16:53 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/0004402.shtml)
-- 2026-06-29 16:45 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/9325723.shtml)
-- 2026-06-29 16:46 - [当我回母校教书](https://www.blog.kurohicncr.top/Article/details/0571482.shtml)
-- 2026-06-29 16:50 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/53091798430.shtml)
-- 2026-06-29 17:03 - [7款商保创新药“转道”](http://www.blog.minike.top/Article/details/491044.shtml)
-- 2026-06-29 17:00 - [夏天被这些虫子咬了可能致命](http://www.share.kurohicncr.top/Article/details/418189.shtml)
-- 2026-06-29 16:52 - [音乐人屠颖离世家属追责涉事酒店](http://www.blog.minike.top/Article/details/67099291108.shtml)
-- 2026-06-29 16:48 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/375010.shtml)
-- 2026-06-29 16:56 - [波兰创该国高温纪录](http://www.share.minike.top/Article/details/1822139045.shtml)
-- 2026-06-29 17:04 - [20年前的周杰伦](https://www.share.minike.top/Article/details/43251.shtml)
-- 2026-06-29 16:52 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/282089.shtml)
-- 2026-06-29 16:56 - [驻日美军航母沦为“毒窝”](https://www.share.kurohicncr.top/Article/details/112594.shtml)
-- 2026-06-29 16:42 - [大疆7月15日起涨价？公司回应](http://www.blog.kurohicncr.top/Article/details/80560270555.shtml)
-- 2026-06-29 17:07 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/03307582707.shtml)
+- 2026-06-29 17:14 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/85561428426.shtml)
+- 2026-06-29 16:49 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/5809502870.shtml)
+- 2026-06-29 16:56 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/72278.shtml)
+- 2026-06-29 16:48 - [叠纸](https://www.blog.minike.top/Article/details/86544014.shtml)
+- 2026-06-29 16:52 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/66065158.shtml)
+- 2026-06-29 17:12 - [中国战机大片上新](http://www.share.kurohicncr.top/Article/details/285423.shtml)
+- 2026-06-29 17:06 - [四川地震前夕 街头电线上站满燕子](https://www.share.kurohicncr.top/Article/details/448130988913.shtml)
+- 2026-06-29 17:07 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.kurohicncr.top/Article/details/5513182491.shtml)
+- 2026-06-29 17:12 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.minike.top/Article/details/27981519.shtml)
+- 2026-06-29 16:59 - [依法管制阻遏日方军事化危险动向](http://www.share.kurohicncr.top/Article/details/7649802.shtml)
+- 2026-06-29 17:01 - [戒掉咖啡后我的身体变化](https://www.share.minike.top/Article/details/9011679.shtml)
+- 2026-06-29 17:00 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/649980671.shtml)
+- 2026-06-29 17:06 - [FIFA回应佛得角队长被指控强奸](https://www.blog.minike.top/Article/details/704087484.shtml)
+- 2026-06-29 17:04 - [女心理师](http://www.share.minike.top/Article/details/83139337164.shtml)
+- 2026-06-29 17:10 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/42143597763.shtml)

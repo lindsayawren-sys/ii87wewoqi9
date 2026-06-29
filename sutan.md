@@ -1,61 +1,59 @@
-# 以身试协议？一艘被困3个月的LNG船今早驶向霍尔木兹海峡
+# 0.5到1.5！央行上调境外贷款杠杆率，外资行海外业务迎机遇
 
-> 更新时间：2026-06-29 17:12:02 UTC+8
+> 更新时间：2026-06-29 17:18:02 UTC+8
 
 ## 摘要
 
-来源：财联社 财联社6月15日讯（编辑 潇湘）一艘在波斯湾滞留超过三个月的液化天然气船（LNG船），当前似乎正驶向霍尔木兹海峡，而就在北京时间今日清晨，美国和伊朗刚刚表示，已就重新开放该水道达成协议。 海峡附近的船东们仍在消化这一重大利好消息，并试图了解美伊协议的具体细节——这些细节可能要过几天才能公布——这意味着周一凌晨，该水道及其周边仍几乎没有船只通行。 不过，液化天然气船
+21世纪经济报道记者 唐婧 外资银行迎来重磅利好，境外贷款杠杆率大幅上调。 4月15日，中国人民银行发布《关于调整银行业金融机构境外贷款业务有关事宜的通知》（下称《通知》）。《通知》明确，将境内外商独资银行、境内中外合资银行、外国银行境内分行的境外贷款杠杆率由0.5上调至1.5，香港特别行政区、澳门特别行政区和台湾地区的金融机构在内地（大陆）设立的银行机构比照适用。 同时，《通
 
 ## 正文
 
-来源：财联社 财联社6月15日讯（编辑 潇湘）一艘在波斯湾滞留超过三个月的液化天然气船（LNG船），当前似乎正驶向霍尔木兹海峡，而就在北京时间今日清晨，美国和伊朗刚刚表示，已就重新开放该水道达成协议。
+21世纪经济报道记者 唐婧 外资银行迎来重磅利好，境外贷款杠杆率大幅上调。
 
-海峡附近的船东们仍在消化这一重大利好消息，并试图了解美伊协议的具体细节——这些细节可能要过几天才能公布——这意味着周一凌晨，该水道及其周边仍几乎没有船只通行。
+4月15日，中国人民银行发布《关于调整银行业金融机构境外贷款业务有关事宜的通知》（下称《通知》）。
 
-不过，液化天然气船“Disha号”似乎正打算“以身试水”。
+《通知》明确，将境内外商独资银行、境内中外合资银行、外国银行境内分行的境外贷款杠杆率由0.5上调至1.5，香港特别行政区、澳门特别行政区和台湾地区的金融机构在内地（大陆）设立的银行机构比照适用。
 
-据业内汇总的船舶追踪数据显示，这艘与印度一家国有进口商签订长期租约的液化天然气运输船，目前位于阿联酋以北，并正接近阿曼海域。
+同时，《通知》表示，将进出口银行的境外贷款杠杆率由3上调至3.5。
 
-数据显示，该LNG船于3月1日左右，从卡塔尔的拉斯拉凡出口设施装载了一批货物，但此后始终被困于波斯湾。
+如计算的境外贷款余额上限小于100亿元，核定该银行境外贷款余额上限为100亿元。
 
-作为全球石油和天然气运输的关键水道，霍尔木兹海峡自2月底美以两国对伊朗发动袭击以来，实际上一直处于封锁状态。
+境内银行通过向境外银行融出资金等方式间接向境外企业发放一年期以上本外币贷款的，可由境外银行依据其所在国家或地区相关法律法规办理。
 
-美国总统特朗普于美东时间6月14日在社交媒体发文表示，美国与伊朗的协议“现已完成”，他“授权”霍尔木兹海峡“免费开放”以及美国海军立即解除相关封锁。
+跨境金融研究院院长王志毅告诉记者，本次《通知》并非简单的参数调整，而是对2022年27号文建立的境外贷款宏观审慎框架进行的一次精准优化与定向松绑，核心意图非常清晰，即在维持整体风险可控的前提下，大幅释放外资银行与政策性银行的跨境融资能力，并理顺业务规则，更好地服务实体经济“走出去”。
 
-特朗普称，“与伊朗的协议现已达成。
+2022年，为发挥好跨境金融服务实体经济发展的作用，支持和规范银行开展境外贷款业务，中国人民银行、国家外汇局发布《关于银行业金融机构境外贷款业务有关事宜的通知》（银发〔2022〕27号），建立起本外币一体化管理、本币优先的银行境外贷款政策框架。
 
 ## 相关推荐
 
-- 2026-06-29 16:55 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-29 16:48 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 17:08 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 16:59 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-29 16:54 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-29 16:55 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 17:03 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-29 16:45 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-29 17:06 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 17:03 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 17:04 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-29 17:02 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-29 16:50 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 17:10 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-29 17:01 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-29 16:52 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 17:14 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 17:06 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-29 17:04 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 17:05 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 17:13 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 17:02 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-29 16:53 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-29 17:06 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-29 17:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-29 17:13 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 16:56 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-29 17:08 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:42 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/81921088.shtml)
-- 2026-06-29 16:53 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/94668.shtml)
-- 2026-06-29 16:44 - [男子路过修车店瞬间被喷得一脸黑](http://www.share.kurohicncr.top/Article/details/85618904.shtml)
-- 2026-06-29 17:02 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/475322528594.shtml)
-- 2026-06-29 16:46 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/083398757.shtml)
-- 2026-06-29 16:44 - [普京为何喊话俄乌都别打对方纵深](https://www.share.minike.top/Article/details/62244809.shtml)
-- 2026-06-29 16:59 - [省市招考专家解读山西高考志愿政策](http://www.blog.kurohicncr.top/Article/details/6862377.shtml)
-- 2026-06-29 17:01 - [世界杯十大帅哥必吃榜](https://www.share.kurohicncr.top/Article/details/133121765261.shtml)
-- 2026-06-29 16:52 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/46258177.shtml)
-- 2026-06-29 16:55 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/88764.shtml)
-- 2026-06-29 16:58 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/268806.shtml)
-- 2026-06-29 16:43 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/76602324.shtml)
-- 2026-06-29 17:07 - [恋与深空 731](http://www.blog.minike.top/Article/details/7294260130.shtml)
-- 2026-06-29 17:01 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/784436190132.shtml)
-- 2026-06-29 16:51 - [CORTIS登机迟到致航班延误](https://www.share.minike.top/Article/details/124385644.shtml)
+- 2026-06-29 17:17 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/25877495.shtml)
+- 2026-06-29 16:50 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/37335721609.shtml)
+- 2026-06-29 17:07 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/12931362.shtml)
+- 2026-06-29 17:10 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.minike.top/Article/details/385067071959.shtml)
+- 2026-06-29 16:48 - [中国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/69994104366.shtml)
+- 2026-06-29 16:49 - [第一炉香](http://www.share.minike.top/Article/details/87148378512.shtml)
+- 2026-06-29 17:14 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/241979161.shtml)
+- 2026-06-29 17:14 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/8623493556.shtml)
+- 2026-06-29 16:59 - [欧盟为什么越来越倾向贸易保护](http://www.blog.kurohicncr.top/Article/details/63302060.shtml)
+- 2026-06-29 17:00 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/2828430716.shtml)
+- 2026-06-29 17:00 - [日本偶像龟梨和也宣布结婚](https://www.blog.kurohicncr.top/Article/details/15839.shtml)
+- 2026-06-29 16:53 - [一生一世](https://www.blog.kurohicncr.top/Article/details/06583.shtml)
+- 2026-06-29 16:55 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.kurohicncr.top/Article/details/486370787479.shtml)
+- 2026-06-29 16:57 - [啊啊啊](https://www.blog.minike.top/Article/details/976860893.shtml)
+- 2026-06-29 16:56 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.blog.kurohicncr.top/Article/details/4351117.shtml)
