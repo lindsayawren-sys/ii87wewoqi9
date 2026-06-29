@@ -1,61 +1,49 @@
-# 青海海西州40分钟连震8次，青海省地震局已赶赴地震灾区
+# 5月16日隔夜要闻：美股收跌道指跌逾500点 美债收益率大涨 油价攀升 铜价续跌 金银价格双挫
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-中国地震台网正式测定：06月16日17时06分在青海海西州直辖区(北纬37.80度，东经95.56度)发生6.3级地震，震源深度10千米。随后，据中国地震台网消息，截至16日17时45分，青海海西州连续发生8次地震。 据最新消息，青海省地震局已安排现场工作队2车10人赶赴地震灾区，开展地震应急处置工作。 青海海西州40分钟连震8次 中国地震台网正式测定：06月16日17时06分
+市场 5月16日收盘：美股收跌道指跌逾500点 美债收益率大涨 5月16日美股成交额前20：比尔阿克曼称微软估值极具吸引力 5月16日热门中概股普跌 台积电跌3.16%，阿里巴巴跌6.05% 大宗商品综述：油价攀升 铜价续跌 金银价格双挫 欧洲股市创3月下旬以来最大跌幅 油价上涨与债市抛售拖累 宏观 美联储：鲍威尔将担任临时主席直至沃什宣誓就职 古特雷斯任命联合国负责安全和安保
 
 ## 正文
 
-中国地震台网正式测定：06月16日17时06分在青海海西州直辖区(北纬37.80度，东经95.56度)发生6.3级地震，震源深度10千米。
+市场 5月16日收盘：美股收跌道指跌逾500点 美债收益率大涨 5月16日美股成交额前20：比尔阿克曼称微软估值极具吸引力 5月16日热门中概股普跌 台积电跌3.16%，阿里巴巴跌6.05% 大宗商品综述：油价攀升 铜价续跌 金银价格双挫 欧洲股市创3月下旬以来最大跌幅 油价上涨与债市抛售拖累 宏观 美联储：鲍威尔将担任临时主席直至沃什宣誓就职 古特雷斯任命联合国负责安全和安保事务的副秘书长 油价攀升 霍尔木兹问题未见明显突破 美国务院：以色列与黎巴嫩之间的停火协议将延长45天 法国“戴高乐”号航母抵达阿拉伯海 为护航行动做准备 美元连续第五天走高，美联储加息预期升温 美股大盘回落，收益率走高冲击人工智能板块涨幅 以官员称以色列正在为重启对伊朗军事行动做准备 德国总理称不会建议自己孩子赴美工作 理由是当地“社会氛围” 泰晤士报：工党全国执行委员会批准
 
-随后，据中国地震台网消息，截至16日17时45分，青海海西州连续发生8次地震。
-
-据最新消息，青海省地震局已安排现场工作队2车10人赶赴地震灾区，开展地震应急处置工作。
-
-青海海西州40分钟连震8次 中国地震台网正式测定：06月16日17时06分在青海海西州直辖区(北纬37.80度，东经95.56度)发生6.3级地震，震源深度10千米。
-
-据地震信息播报机器人，此次震中距格尔木市165公里、距德令哈市166公里，距西宁市567公里。
-
-中国地震台网正式测定：06月16日17时12分在青海海西州直辖区(北纬37.79度，东经95.55度)发生3.8级地震，震源深度10千米。
-
-中国地震台网正式测定：06月16日17时19分在青海海西州直辖区(北纬37.88度，东经95.44度)发生3.8级地震，震源深度10千米。
-
-中国地震台网正式测定：06月16日17时26分在青海海西州直辖区(北纬37.77度，东经95.48度)发生3.0级地震，震源深度18千米。
+历史经验表明：是的 利率攀升背景下，Seeking Alpha量化系统筛选出三大优质敏感股 美银策略师预警：AI芯片狂热已超越互联网泡沫时期 市场开始预期美联储将于年末年初加息 汽车与人工智能提振美国制造业产量，战争引发供应短缺隐忧浮现 花旗大幅上调Nebius目标价，AI算力需求驱动强劲增长 顶级经济预测机构：二季度通胀率预计升至6% 美银策略师：6月初将是美股获利了结的良机 摩根大通看好戴尔与慧与科技，财报前上调目标价责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 22:21 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-29 22:32 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-29 22:18 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-29 22:28 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-29 22:20 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 22:39 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-29 22:18 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 22:31 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-29 22:23 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 22:36 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-29 22:41 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 22:33 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 22:29 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-29 22:28 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 22:15 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 22:32 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 22:37 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-29 22:20 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 22:42 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-29 22:33 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-29 22:29 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 22:32 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 22:41 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-29 22:21 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-29 22:28 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-29 22:26 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 22:39 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-29 22:29 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 22:44 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 22:34 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:30 - [女心理师](http://www.blog.kurohicncr.top/Article/details/31242246.shtml)
-- 2026-06-29 22:16 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/446968255715.shtml)
-- 2026-06-29 22:16 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/4292270.shtml)
-- 2026-06-29 22:24 - [爱奇艺抬高国剧新标尺](https://www.share.minike.top/Article/details/4493564.shtml)
-- 2026-06-29 22:41 - [《贺子珍》](http://www.blog.minike.top/Article/details/304726.shtml)
-- 2026-06-29 22:40 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/29385.shtml)
-- 2026-06-29 22:26 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/049423342.shtml)
-- 2026-06-29 22:18 - [央行首次3000亿元隔夜逆回购操作](http://www.share.minike.top/Article/details/64353714.shtml)
-- 2026-06-29 22:40 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/499407720596.shtml)
-- 2026-06-29 22:34 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/767839609.shtml)
-- 2026-06-29 22:26 - [逃狱兄弟](https://www.share.minike.top/Article/details/57315.shtml)
-- 2026-06-29 22:31 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/969281809.shtml)
-- 2026-06-29 22:19 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/0280241983.shtml)
-- 2026-06-29 22:23 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/7050746.shtml)
-- 2026-06-29 22:20 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/3880090409.shtml)
+- 2026-06-29 22:38 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/02872628.shtml)
+- 2026-06-29 22:47 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/516287749523.shtml)
+- 2026-06-29 22:34 - [追觅称质量不行终身包修也没意义](https://www.share.kurohicncr.top/Article/details/2664457.shtml)
+- 2026-06-29 22:30 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/9130904.shtml)
+- 2026-06-29 22:33 - [半导体和股市为何没让韩国人起飞](http://www.blog.kurohicncr.top/Article/details/9726565.shtml)
+- 2026-06-29 22:44 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/2048980925.shtml)
+- 2026-06-29 22:22 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/83644057716.shtml)
+- 2026-06-29 22:26 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/83409224938.shtml)
+- 2026-06-29 22:22 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/2970105676.shtml)
+- 2026-06-29 22:25 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/887937389927.shtml)
+- 2026-06-29 22:19 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/3308895.shtml)
+- 2026-06-29 22:37 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/98945220.shtml)
+- 2026-06-29 22:31 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/902510113.shtml)
+- 2026-06-29 22:35 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/30751846894.shtml)
+- 2026-06-29 22:28 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/409423.shtml)

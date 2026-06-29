@@ -1,59 +1,61 @@
-# 美联储过往三任主席“首秀”都成市场杀手！沃什能逆天改命吗？
+# 杨德龙：特朗普访华体现了中美对等关系 美通胀再起导致美联储推迟降息
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-财联社6月17日讯（编辑 潇湘）北京时间周四凌晨，全球市场即将迎来美联储新任主席沃什的利率决议“首秀”。而一组有意思的数据是，对于美股投资者而言，美联储“新官上任”的首把火，在过往似乎并不好受。 如下图所示，在美联储过往三任主席——鲍威尔、耶伦和伯南克的“首秀”当天，标普500指数无一例外均在利率决议发布到收盘的两个小时里（图中阴影部分），出现了下跌。 其中，尤为凶险的可能是当
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！本周最受市场关注的事件无疑是中美元首会晤。特朗普时隔9年再次访华，为期3天的访问取得了积极成果，两国元首在多个关键问题上达成一致。习近平主席指出，当前百年变局加速演进，国际形势变乱交织，中美两国能不能跨越“修昔底德陷阱”、开创大国关系新范式，能不能携手应对全
 
 ## 正文
 
-财联社6月17日讯（编辑 潇湘）北京时间周四凌晨，全球市场即将迎来美联储新任主席沃什的利率决议“首秀”。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-而一组有意思的数据是，对于美股投资者而言，美联储“新官上任”的首把火，在过往似乎并不好受。
+本周最受市场关注的事件无疑是中美元首会晤。
 
-如下图所示，在美联储过往三任主席——鲍威尔、耶伦和伯南克的“首秀”当天，标普500指数无一例外均在利率决议发布到收盘的两个小时里（图中阴影部分），出现了下跌。
+特朗普时隔9年再次访华，为期3天的访问取得了积极成果，两国元首在多个关键问题上达成一致。
 
-其中，尤为凶险的可能是当地时间2点半——新主席开始召开新闻发布会之后。
+习近平主席指出，当前百年变局加速演进，国际形势变乱交织，中美两国能不能跨越“修昔底德陷阱”、开创大国关系新范式，能不能携手应对全球性挑战、为世界注入更多稳定性，能不能着眼两国人民福祉和人类前途命运、共同开创两国关系美好未来，这些是历史之问、世界之问、人民之问，也是大国领导人需要共同书写的时代答卷。
 
-例如，鲍威尔“首秀”时，美股最初便曾在利率决议发布后走高，但在鲍威尔讲话后迅速应声下落。
+特朗普在访华结束回国后，也在媒体上公开表示此次会晤取得了多项重大成果，此行非常愉快。
 
-这一相对不佳的股市表现纪录，无疑值得投资者在今晚保持警惕。
+这给当前动荡不安的世界带来了更多稳定性。
 
-尽管利率掉期市场几乎已完全定价美联储将在周三的会议上维持利率不变，但所有目光都将聚焦于主席凯文·沃什的首场新闻发布会，以从中寻找未来政策走向的线索。
+中美关系是世界上最重要的双边关系，中美关系的稳定对世界和平十分有利。
 
-即便在美国和伊朗准备正式签署临时和平协议之际，市场对美联储的未来走向仍无定论。
+在当前核武时代，大国之间不可能爆发大规模战争，这是力量的制衡。
 
 ## 相关推荐
 
-- 2026-06-29 22:36 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 22:32 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 22:20 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-29 22:19 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-29 22:26 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-29 22:38 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 22:41 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 22:39 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-29 22:38 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 22:15 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 22:13 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-29 22:39 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 22:32 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 22:38 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 22:26 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-29 22:21 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 22:24 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-29 22:24 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-29 22:27 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-29 22:30 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 22:19 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 22:46 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-29 22:34 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 22:26 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 22:32 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 22:38 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 22:23 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-29 22:20 - [佛得角队长门德斯被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:12 - [乔家的儿女](http://www.blog.minike.top/Article/details/75200685.shtml)
-- 2026-06-29 22:34 - [千与千寻](https://www.blog.minike.top/Article/details/856345.shtml)
-- 2026-06-29 22:34 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/4222606.shtml)
-- 2026-06-29 22:18 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/67476.shtml)
-- 2026-06-29 22:15 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/7869519519.shtml)
-- 2026-06-29 22:37 - [足球“出口导向”造就佛得角奇迹](https://www.share.minike.top/Article/details/345495.shtml)
-- 2026-06-29 22:12 - [英法德葡存在什么隐患](http://www.blog.kurohicncr.top/Article/details/18302462014.shtml)
-- 2026-06-29 22:19 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/2485640261.shtml)
-- 2026-06-29 22:17 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/961271.shtml)
-- 2026-06-29 22:31 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/636680822.shtml)
-- 2026-06-29 22:20 - [曼城官宣马雷斯卡出任主教练](https://www.blog.minike.top/Article/details/861212057948.shtml)
-- 2026-06-29 22:34 - [欧洲缘何成为变暖最快的大洲](https://www.share.minike.top/Article/details/2709636697.shtml)
-- 2026-06-29 22:38 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/348802821.shtml)
-- 2026-06-29 22:20 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/0688839.shtml)
-- 2026-06-29 22:26 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/90228145938.shtml)
+- 2026-06-29 22:46 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/8348419.shtml)
+- 2026-06-29 22:42 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/801876613.shtml)
+- 2026-06-29 22:30 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/0799348.shtml)
+- 2026-06-29 22:31 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/42853258751.shtml)
+- 2026-06-29 22:29 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/7274758.shtml)
+- 2026-06-29 22:38 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/274382278.shtml)
+- 2026-06-29 22:19 - [巴西vs日本前瞻](https://www.blog.minike.top/Article/details/96386.shtml)
+- 2026-06-29 22:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/6907976199.shtml)
+- 2026-06-29 22:27 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/220413050.shtml)
+- 2026-06-29 22:38 - [巴黎区长紧急采购50台中国空调](https://www.blog.minike.top/Article/details/71936055.shtml)
+- 2026-06-29 22:29 - [我们的少年时代2](https://www.blog.minike.top/Article/details/89245.shtml)
+- 2026-06-29 22:28 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/29642393075.shtml)
+- 2026-06-29 22:25 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/29206.shtml)
+- 2026-06-29 22:35 - [女心理师](https://www.share.kurohicncr.top/Article/details/690816592224.shtml)
+- 2026-06-29 22:30 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/0015519.shtml)

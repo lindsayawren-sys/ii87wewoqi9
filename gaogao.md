@@ -1,61 +1,59 @@
-# 缅甸侨领林文猛的东盟华商会之行：赴商约 叙情谊
+# 2026年国际博物馆日扬州主会场活动启幕
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-中新网昆明6月16日电 题：缅甸侨领林文猛的东盟华商会之行：赴商约 叙情谊 作者 陆希成 陈静 6月16日，第22届东盟华商会在云南省省会昆明市开幕。茶歇时，一位精神矍铄的长者刚步入会场，便有人隔着圆桌招手——“林会长来了”。年近七旬的缅甸侨领林文猛微笑颔首，握手、寒暄，像赴一场相熟多年的老友之约。 林文猛现任缅甸中华总商会会长、福兴兄弟集团董事长。1948年，其父自中国福建赴
+中新网扬州5月16日电 (徐珊珊 尹一帆)以馆为桥联结世界，以文为脉点亮青春。5月16日上午，以“博物馆：联结世界的桥梁”为主题的2026年国际博物馆日扬州主会场活动暨“拥抱文博”扬州青少年文化实践行动在扬州博物馆启动。扬州市副市长李林、扬州市委宣传部副部长江勇、扬州市文化广电和旅游局局长胡彩云等领导出席，并与青少年代表共同为活动启幕。 本次活动以博物馆为纽带，串联文物活化、场
 
 ## 正文
 
-中新网昆明6月16日电 题：缅甸侨领林文猛的东盟华商会之行：赴商约 叙情谊 作者 陆希成 陈静 6月16日，第22届东盟华商会在云南省省会昆明市开幕。
+中新网扬州5月16日电 (徐珊珊 尹一帆)以馆为桥联结世界，以文为脉点亮青春。
 
-茶歇时，一位精神矍铄的长者刚步入会场，便有人隔着圆桌招手——“林会长来了”。
+5月16日上午，以“博物馆：联结世界的桥梁”为主题的2026年国际博物馆日扬州主会场活动暨“拥抱文博”扬州青少年文化实践行动在扬州博物馆启动。
 
-年近七旬的缅甸侨领林文猛微笑颔首，握手、寒暄，像赴一场相熟多年的老友之约。
+扬州市副市长李林、扬州市委宣传部副部长江勇、扬州市文化广电和旅游局局长胡彩云等领导出席，并与青少年代表共同为活动启幕。
 
-林文猛现任缅甸中华总商会会长、福兴兄弟集团董事长。
+本次活动以博物馆为纽带，串联文物活化、场馆联动、青春研学、文化传承等多项内容，推动博物馆从文化保管者向文明传播者、青春赋能者转变，让青少年在拥抱文博中感受文化力量，让扬州千年文脉在新时代绽放光彩。
 
-1948年，其父自中国福建赴缅甸经商；十年后，他在缅甸出生，少年时回中国求学，学成返缅，于1988年创立福兴兄弟集团。
+活动现场，扬州市文化广电和旅游局正式发布2026年“5·18国际博物馆日”系列活动安排。
 
-如今他仍每年多次往返中缅。
+围绕今年国际博物馆日主题，扬州全市各级博物馆将推出精品展览、社教惠民、研学实践等40余场活动，构建“大馆带小馆、全城一盘棋”的文博新格局，让更多馆藏珍贵文物真正“活”起来。
 
-在林文猛看来，年年如约而至的东盟华商会，恰如中缅经贸往来——一年热过一年，一程近过一程。
+同时，2026年“拥抱文博”扬州青少年文化实践行动正式发布。
 
-他回忆，早年大家多关注农业、旅游；这两年，话题一路延伸到低空经济、绿色能源等新赛道，高新科技成色越来越足。
+该行动依托江苏省“拥抱文博”青少年文化实践行动部署，精心策划“读文博场馆、创青春造物、研运河文脉、赏非遗国潮”四大板块、24项特色活动，依托“拥抱文博”青少年智慧平台，为全市大中小学生提供文博资讯、线上投稿、研学推荐等一站式服务，引导青少年从“参观者”成长为“传播者”，以青春之声讲述扬州故事。
 
 ## 相关推荐
 
-- 2026-06-29 22:28 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 22:28 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-29 22:18 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 22:31 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-29 22:17 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 22:33 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 22:15 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 22:34 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-29 22:41 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 22:32 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 22:31 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-29 22:24 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-29 22:37 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-29 22:30 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-29 22:23 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 22:47 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-29 22:38 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 22:21 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 22:45 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-29 22:30 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 22:43 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 22:34 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 22:38 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-29 22:34 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-29 22:34 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 22:32 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 22:47 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-29 22:38 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:40 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/00506889509.shtml)
-- 2026-06-29 22:18 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/626636.shtml)
-- 2026-06-29 22:23 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/736082438.shtml)
-- 2026-06-29 22:23 - [恋与深空制作组回应争议](http://www.share.kurohicncr.top/Article/details/4056707781.shtml)
-- 2026-06-29 22:18 - [女子发现孩子非现任亲生起诉前任](https://www.blog.minike.top/Article/details/949578478980.shtml)
-- 2026-06-29 22:12 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.minike.top/Article/details/097433999454.shtml)
-- 2026-06-29 22:26 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.kurohicncr.top/Article/details/404930679.shtml)
-- 2026-06-29 22:37 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/975229020.shtml)
-- 2026-06-29 22:40 - [巴黎区长紧急采购50台中国空调](http://www.blog.minike.top/Article/details/160001084.shtml)
-- 2026-06-29 22:21 - [金鹰奖第二阶段投票明日开启](http://www.share.minike.top/Article/details/270371471.shtml)
-- 2026-06-29 22:31 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.share.minike.top/Article/details/04938041935.shtml)
-- 2026-06-29 22:12 - [天气热脾气都变差了](http://www.share.kurohicncr.top/Article/details/171073506453.shtml)
-- 2026-06-29 22:19 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/64919.shtml)
-- 2026-06-29 22:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/11028638919.shtml)
-- 2026-06-29 22:13 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/66164.shtml)
+- 2026-06-29 22:47 - [多人将马路护栏当球网打羽毛球](http://www.share.kurohicncr.top/Article/details/960929506913.shtml)
+- 2026-06-29 22:47 - [蓝箭航天科创板IPO审核状态为已问询](http://www.blog.kurohicncr.top/Article/details/877225562.shtml)
+- 2026-06-29 22:25 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/39441729.shtml)
+- 2026-06-29 22:44 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/418409598114.shtml)
+- 2026-06-29 22:39 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/047085723760.shtml)
+- 2026-06-29 22:27 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/868948.shtml)
+- 2026-06-29 22:32 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/19563477.shtml)
+- 2026-06-29 22:38 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/9370191.shtml)
+- 2026-06-29 22:31 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/783572000420.shtml)
+- 2026-06-29 22:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/27511083482.shtml)
+- 2026-06-29 22:33 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/357826267.shtml)
+- 2026-06-29 22:37 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/519273249400.shtml)
+- 2026-06-29 22:37 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/600184651.shtml)
+- 2026-06-29 22:37 - [葫芦岛居民楼闪爆事故致3死](http://www.share.kurohicncr.top/Article/details/948994.shtml)
+- 2026-06-29 22:24 - [半导体和股市为何没让韩国人起飞](http://www.share.kurohicncr.top/Article/details/592620.shtml)

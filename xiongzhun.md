@@ -1,50 +1,50 @@
-# 吴清：新“国九条”以来 社保、保险等净买入A股约1.3万亿元
+# 探访西藏昌都怒江大桥 为何鸣笛声不断？
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 17:47 来源：中国新闻网 6月17日，证监会主席吴清在2026陆家嘴论坛开幕式上发表题为“进一步健全投融资相协调的资本市场功能 更好服务新质生产力和经济高质量发展”的主题演讲。 吴清表示，新“国九条”出台两年多来，社保、保险、年金等中长期资金持有A股流通市值增长85%，净买入A股约1.3万亿元，长期投资力量持续壮大。(康玉湛 高志苗 制作
+发布时间：2026年05月17日 20:07 来源：中国新闻网 在西藏昌都境内的第三代怒江大桥上，路过的游客会专门停车，在护栏上摆放零食饮料，缅怀牺牲的筑桥者和养护者们。近日，中新社记者探访怒江大桥，看到76岁的老兵周双弟，借着来西藏旅游的机会，特意到怒江大桥上向建设者致敬。从1953年建成第一代大桥，到2018年第三代大桥建成通车，三代怒江大桥将天堑变通途，驶过的车辆纷纷鸣笛
 
 ## 正文
 
-发布时间：2026年06月17日 17:47 来源：中国新闻网 6月17日，证监会主席吴清在2026陆家嘴论坛开幕式上发表题为“进一步健全投融资相协调的资本市场功能 更好服务新质生产力和经济高质量发展”的主题演讲。
+发布时间：2026年05月17日 20:07 来源：中国新闻网 在西藏昌都境内的第三代怒江大桥上，路过的游客会专门停车，在护栏上摆放零食饮料，缅怀牺牲的筑桥者和养护者们。
 
-吴清表示，新“国九条”出台两年多来，社保、保险、年金等中长期资金持有A股流通市值增长85%，净买入A股约1.3万亿元，长期投资力量持续壮大。
+近日，中新社记者探访怒江大桥，看到76岁的老兵周双弟，借着来西藏旅游的机会，特意到怒江大桥上向建设者致敬。
 
-(康玉湛 高志苗 制作 王佳琪） 责任编辑：【李季】
+从1953年建成第一代大桥，到2018年第三代大桥建成通车，三代怒江大桥将天堑变通途，驶过的车辆纷纷鸣笛以示敬意。
+
+(记者 陈舒一 陈欣怡 制作 刘鹏 部分视频来源 昌都市委宣传部） 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-29 22:37 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-29 22:28 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 22:40 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-29 22:24 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 22:41 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-29 22:40 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 22:27 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-29 22:40 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 22:13 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-29 22:23 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 22:21 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 22:17 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-29 22:29 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 22:30 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 22:45 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-29 22:24 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 22:19 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-29 22:33 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-29 22:24 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 22:38 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 22:38 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-29 22:23 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-29 22:42 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-29 22:32 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-29 22:33 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-29 22:45 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:39 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/807163.shtml)
-- 2026-06-29 22:19 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/0038350.shtml)
-- 2026-06-29 22:22 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/79169319.shtml)
-- 2026-06-29 22:23 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/9181997444.shtml)
-- 2026-06-29 22:16 - [女生学医适合选什么专业](https://www.share.minike.top/Article/details/7359343.shtml)
-- 2026-06-29 22:17 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/737862438.shtml)
-- 2026-06-29 22:38 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/9052051794.shtml)
-- 2026-06-29 22:35 - [足球“出口导向”造就佛得角奇迹](https://www.blog.minike.top/Article/details/813443503049.shtml)
-- 2026-06-29 22:21 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/61648639204.shtml)
-- 2026-06-29 22:19 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/99912217.shtml)
-- 2026-06-29 22:28 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/33447.shtml)
-- 2026-06-29 22:40 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/90689239.shtml)
-- 2026-06-29 22:35 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/5355250130.shtml)
-- 2026-06-29 22:37 - [我们的少年时代2](https://www.blog.minike.top/Article/details/0515772.shtml)
-- 2026-06-29 22:37 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/55173817.shtml)
+- 2026-06-29 22:38 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/739880547.shtml)
+- 2026-06-29 22:42 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/96704474975.shtml)
+- 2026-06-29 22:29 - [《贺子珍》](http://www.blog.minike.top/Article/details/16279641543.shtml)
+- 2026-06-29 22:22 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/93274538.shtml)
+- 2026-06-29 22:46 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/816037022094.shtml)
+- 2026-06-29 22:21 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.minike.top/Article/details/836624.shtml)
+- 2026-06-29 22:44 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/898690.shtml)
+- 2026-06-29 22:30 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/8694899.shtml)
+- 2026-06-29 22:25 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/6037854.shtml)
+- 2026-06-29 22:22 - [扬名立万](http://www.share.minike.top/Article/details/312844481.shtml)
+- 2026-06-29 22:29 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/010781862.shtml)
+- 2026-06-29 22:35 - [乌是否掌握了扭转战局的钥匙](https://www.blog.minike.top/Article/details/25561281899.shtml)
+- 2026-06-29 22:37 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/9019948.shtml)
+- 2026-06-29 22:35 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/80541011047.shtml)
+- 2026-06-29 22:40 - [上世纪90年代玩具成新宠](http://www.blog.kurohicncr.top/Article/details/42078889950.shtml)

@@ -1,55 +1,52 @@
-# 全球单机储热容量最大的光热电站在青海格尔木开工建设
+# *ST华微：自5月20日起撤销退市风险警示及其他风险警示
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-中新社西宁6月16日电 (孙睿 朱丹)中广核格尔木350兆瓦光热示范项目6月16日在青海省格尔木市乌图美仁光伏光热园区开工建设。 作为全球单机储热容量最大、镜场面积最大的光热电站，该项目采用熔盐塔槽结合技术路线，实现了全球开口最大——8.6米光热熔盐槽式集热器成套装备及工艺的规模化应用。 中广核格尔木350兆瓦光热示范项目镜场总采光面积达370万平方米，相当于518个标准足球场
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！人民财讯5月18日电，*ST华微（维权）（600360）5月18日公告，公司股票将于5月19日停牌一天，自5月20日起复牌并撤销退市风险警示及其他风险警示。公司股票简称由“*ST华微”变更为“华微电子”，股票代码仍为“600360”，股票价格的日涨跌幅限制由5%变为10%。责任编辑：刘万里 SF014
 
 ## 正文
 
-中新社西宁6月16日电 (孙睿 朱丹)中广核格尔木350兆瓦光热示范项目6月16日在青海省格尔木市乌图美仁光伏光热园区开工建设。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-作为全球单机储热容量最大、镜场面积最大的光热电站，该项目采用熔盐塔槽结合技术路线，实现了全球开口最大——8.6米光热熔盐槽式集热器成套装备及工艺的规模化应用。
+人民财讯5月18日电，*ST华微（维权）（600360）5月18日公告，公司股票将于5月19日停牌一天，自5月20日起复牌并撤销退市风险警示及其他风险警示。
 
-中广核格尔木350兆瓦光热示范项目镜场总采光面积达370万平方米，相当于518个标准足球场的大小，包括3个110万平方米的塔式镜场和1个40万平方米的槽式镜场。
+公司股票简称由“*ST华微”变更为“华微电子”，股票代码仍为“600360”，股票价格的日涨跌幅限制由5%变为10%。
 
-中国广核新能源控股有限公司党委委员、副总经理丁业良介绍，该槽式集热技术于今年4月在德令哈光热试验基地完成技术验证，其整套装备的核心部件均由中广核牵头国内产业链优势企业完成攻关，实现核心技术100%自主可控。
-
-该项目具备优异的电网灵活调峰能力，能够有效提升青海电网新能源消纳效率与全域供电保障能力。
-
-建成后预计年发电量可达10亿千瓦时，等效节约标煤消耗32万吨、减排二氧化碳86万吨。
-
-(完)
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 22:38 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-29 22:24 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 22:25 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 22:21 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-29 22:32 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-29 22:12 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-29 22:28 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-29 22:18 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 22:40 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 22:20 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-29 22:12 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-29 22:29 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-29 22:26 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-29 22:35 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 22:30 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 22:22 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 22:32 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 22:46 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 22:27 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-29 22:43 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 22:27 - [李思潼：不会介意大家夸我运气好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 22:45 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-29 22:29 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-29 22:20 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 22:18 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:14 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/411539837.shtml)
-- 2026-06-29 22:26 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/04243964.shtml)
-- 2026-06-29 22:14 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/034316980.shtml)
-- 2026-06-29 22:15 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/22842.shtml)
-- 2026-06-29 22:34 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.share.kurohicncr.top/Article/details/2330059562.shtml)
-- 2026-06-29 22:14 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/640091.shtml)
-- 2026-06-29 22:19 - [返利科技盘中上演“天地板”](http://www.share.minike.top/Article/details/7365889529.shtml)
-- 2026-06-29 22:36 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/20451.shtml)
-- 2026-06-29 22:20 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/9640505.shtml)
-- 2026-06-29 22:17 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/790374583801.shtml)
-- 2026-06-29 22:28 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/40947609395.shtml)
-- 2026-06-29 22:12 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/84210098.shtml)
-- 2026-06-29 22:32 - [欧洲高温会成下个印度吗](https://www.blog.kurohicncr.top/Article/details/9580847.shtml)
-- 2026-06-29 22:19 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/12841301.shtml)
-- 2026-06-29 22:33 - [小娘惹](https://www.share.kurohicncr.top/Article/details/86805025017.shtml)
+- 2026-06-29 22:46 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/03472248.shtml)
+- 2026-06-29 22:27 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/39609053233.shtml)
+- 2026-06-29 22:21 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/7806078.shtml)
+- 2026-06-29 22:21 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/030405704952.shtml)
+- 2026-06-29 22:36 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/00660849.shtml)
+- 2026-06-29 22:39 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/6191623074.shtml)
+- 2026-06-29 22:31 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/8213420551.shtml)
+- 2026-06-29 22:46 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.kurohicncr.top/Article/details/338058.shtml)
+- 2026-06-29 22:22 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/734494887.shtml)
+- 2026-06-29 22:21 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/042007.shtml)
+- 2026-06-29 22:39 - [巴西队主帅称日本队是世界最佳之一](http://www.share.kurohicncr.top/Article/details/65035007.shtml)
+- 2026-06-29 22:32 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/39244226.shtml)
+- 2026-06-29 22:47 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/136789938.shtml)
+- 2026-06-29 22:29 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/424121958.shtml)
+- 2026-06-29 22:34 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/052334211417.shtml)

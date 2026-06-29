@@ -1,59 +1,61 @@
-# 粽香传古韵 彩绳系情谊 外国留学生在辽体验端午文化
+# 首届河南省无人机足球联赛开赛 526名青少年角逐“低空”赛场
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-中新网沈阳6月17日电(姜月恒)端午节前夕，来自喀麦隆、马达加斯加、叙利亚等13个国家的20余名在辽留学生走进辽宁省文化馆，开启了一场沉浸式体验端午文化之旅。他们了解端午节习俗，学习包粽子、编五彩绳，在指尖互动中感知中国传统节日文化。 “朋友一生一起走，那些日子不再有......”来自喀麦隆的沈阳工业大学留学生洛克一边熟稔地哼唱着在中国学会的旋律，一边认真地学习传统绳结技艺。他
+中新网郑州5月16日电 (陈贵洋)首届河南省无人机足球联赛16日在郑州航空港经济综合实验区(以下简称郑州航空港区)开赛。来自该省112支队伍的526名青少年选手，在无人机足球竞技中展开角逐。 本次联赛由郑州航空港区管委会、河南省无人机行业协会联合主办。赛事设置无刷动力2S(电池电芯串联数量，下同)、3S、4S及空心杯等多个组别，分为资格赛、淘汰赛、半决赛、决赛四个阶段。比赛中，
 
 ## 正文
 
-中新网沈阳6月17日电(姜月恒)端午节前夕，来自喀麦隆、马达加斯加、叙利亚等13个国家的20余名在辽留学生走进辽宁省文化馆，开启了一场沉浸式体验端午文化之旅。
+中新网郑州5月16日电 (陈贵洋)首届河南省无人机足球联赛16日在郑州航空港经济综合实验区(以下简称郑州航空港区)开赛。
 
-他们了解端午节习俗，学习包粽子、编五彩绳，在指尖互动中感知中国传统节日文化。
+来自该省112支队伍的526名青少年选手，在无人机足球竞技中展开角逐。
 
-“朋友一生一起走，那些日子不再有......”来自喀麦隆的沈阳工业大学留学生洛克一边熟稔地哼唱着在中国学会的旋律，一边认真地学习传统绳结技艺。
+本次联赛由郑州航空港区管委会、河南省无人机行业协会联合主办。
 
-他目光紧盯辽宁省非物质文化遗产“金氏绳结”第四代传承人金慧娟指尖缠绕的绳结，生怕错过任何一个编织细节，用手指小心翼翼地交叉缠绕。
+赛事设置无刷动力2S(电池电芯串联数量，下同)、3S、4S及空心杯等多个组别，分为资格赛、淘汰赛、半决赛、决赛四个阶段。
 
-“这次活动让我有很多收获，我了解了五彩绳在中国传统文化中承载着驱散疫祸的期许。
+比赛中，选手操控无人机足球在封闭球门内进行攻防对抗，考验手眼协调能力、团队协作及临场战术思维。
 
-”洛克手持自己亲手编织的五彩绳，言语间满是欣喜。
+各参赛队伍前六名获证书及奖金，冠军获5000元(人民币)现金奖励。
 
-现场认真聆听老师讲解的他，仔细记下了一些传统民俗文化，“葫芦的寓意也让我印象深刻，象征着有福有禄、顺遂吉祥，十分有趣”。
+郑州航空港区教育卫生体育局副局长郑艳霞表示，无人机足球联赛落地郑州航空港区，是“科技+体育”融合的生动实践，希望赛事为河南省低空经济产业发掘和培育更多后备人才。
 
-与渐入佳境的洛克不同，一旁来自马达加斯加的留学生瑞南看着手中长短错落、缠绕无序的五色彩线，不由得皱紧眉头，显然被难住了。
+河南省无人机行业协会会长曹胜利称，本次大赛标志着无人机运动在河南迈上了新台阶，期待通过高水平赛事激发青少年对科技的兴趣，共同探索低空经济的无限可能。
 
 ## 相关推荐
 
-- 2026-06-29 22:12 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-29 22:15 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 22:31 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-29 22:35 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 22:13 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 22:29 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-29 22:12 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 22:23 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-29 22:21 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-29 22:34 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-29 22:17 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 22:40 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 22:32 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 22:30 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 22:28 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-29 22:39 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 22:26 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-29 22:26 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 22:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 22:34 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-29 22:30 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 22:28 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-29 22:30 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 22:20 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 22:35 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-29 22:36 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 22:26 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 22:47 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:15 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/86273.shtml)
-- 2026-06-29 22:34 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/6336959.shtml)
-- 2026-06-29 22:39 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/64292832310.shtml)
-- 2026-06-29 22:29 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/637841229.shtml)
-- 2026-06-29 22:18 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/10904.shtml)
-- 2026-06-29 22:20 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/779729711319.shtml)
-- 2026-06-29 22:32 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/70592.shtml)
-- 2026-06-29 22:17 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/855826686889.shtml)
-- 2026-06-29 22:14 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/705134.shtml)
-- 2026-06-29 22:40 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/33504381888.shtml)
-- 2026-06-29 22:26 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/7481062361.shtml)
-- 2026-06-29 22:15 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/14566.shtml)
-- 2026-06-29 22:30 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/956055513.shtml)
-- 2026-06-29 22:34 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/4083339.shtml)
-- 2026-06-29 22:24 - [格莱美唱作人锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/265162.shtml)
+- 2026-06-29 22:27 - [毒液2](https://www.blog.kurohicncr.top/Article/details/71842692787.shtml)
+- 2026-06-29 22:42 - [乌是否掌握了扭转战局的钥匙](https://www.share.minike.top/Article/details/03624146.shtml)
+- 2026-06-29 22:30 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/931369.shtml)
+- 2026-06-29 22:34 - [肝不好身体这几处会“说话”](https://www.blog.minike.top/Article/details/802052.shtml)
+- 2026-06-29 22:43 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/99270734.shtml)
+- 2026-06-29 22:24 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/12180714038.shtml)
+- 2026-06-29 22:34 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/9206224100.shtml)
+- 2026-06-29 22:18 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/489506560.shtml)
+- 2026-06-29 22:30 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/0914815.shtml)
+- 2026-06-29 22:48 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/041131774587.shtml)
+- 2026-06-29 22:31 - [美以这对亲密盟友要掰了吗](http://www.share.minike.top/Article/details/65710111456.shtml)
+- 2026-06-29 22:30 - [斛珠夫人](https://www.share.minike.top/Article/details/794954920753.shtml)
+- 2026-06-29 22:43 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/010284290831.shtml)
+- 2026-06-29 22:25 - [曝腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/1542553496.shtml)
+- 2026-06-29 22:20 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/32889037167.shtml)

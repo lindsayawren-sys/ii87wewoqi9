@@ -1,57 +1,59 @@
-# 12岁中国足球小将“空翻哥”孟新艺载誉返校：希望将来能进世界杯
+# 芯片巨头，大消息！韩国总理警告
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 16:24 来源：中国新闻网 近日，凭借标志性后空翻庆祝动作走红网络的12岁南京足球小将孟新艺载誉返校，回到南京市鼓楼区第一中心小学，与全校师生分享球队夺冠征程以及自身的足球追梦故事。此次他随队出征意大利国际青少年杯赛(SIGISMONDI Cup)，在决赛中打入制胜点球，斩获冠军，该赛事素有“U12小世界杯”之称。 心怀绿茵梦想，孟新艺也摸索
+三星电子劳资双方将重启谈判。 据韩联社报道，三星电子及工会官员表示，双方将于周一（5月18日）重启由政府主导的调解谈判。 此前，在13日劳资谈判失败后，三星电子工会宣布，将于5月21日启动为期18天的大罢工。韩联社13日对此报道称，这恐将造成40万亿韩元（约合1820亿元人民币）的损失，并殃及半导体产业。 据悉，周一即将重启的谈判被视为双方为解决奖金发放僵局做出的最后努力。此前
 
 ## 正文
 
-发布时间：2026年06月17日 16:24 来源：中国新闻网 近日，凭借标志性后空翻庆祝动作走红网络的12岁南京足球小将孟新艺载誉返校，回到南京市鼓楼区第一中心小学，与全校师生分享球队夺冠征程以及自身的足球追梦故事。
+三星电子劳资双方将重启谈判。
 
-此次他随队出征意大利国际青少年杯赛(SIGISMONDI Cup)，在决赛中打入制胜点球，斩获冠军，该赛事素有“U12小世界杯”之称。
+据韩联社报道，三星电子及工会官员表示，双方将于周一（5月18日）重启由政府主导的调解谈判。
 
-心怀绿茵梦想，孟新艺也摸索出了适配自身的学习与训练节奏，合理平衡学业与足球训练，做到学业、训练两不误。
+此前，在13日劳资谈判失败后，三星电子工会宣布，将于5月21日启动为期18天的大罢工。
 
-在孟新艺看来，端正且全力以赴的态度是日常训练的核心，这名少年心中早已立下远大目标。
+韩联社13日对此报道称，这恐将造成40万亿韩元（约合1820亿元人民币）的损失，并殃及半导体产业。
 
-多年来，南京市鼓楼区第一中心小学常态化搭建足球训练与赛事交流平台，依托足球运动厚植学生爱国情怀，助力五育并举落地见效。
+据悉，周一即将重启的谈判被视为双方为解决奖金发放僵局做出的最后努力。
 
-记者 葛勇 江苏南京报道 责任编辑：【李季】
+此前，三星电子会长李在镕于16日就公司内部问题引发外界担忧公开致歉，同时呼吁公司内部团结。
+
+韩国总理对三星电子劳资双方重启对话表示支持，并警告称，若罢工造成损失，将启动紧急仲裁程序。
+
+三星电子劳资双方自去年12月起开展谈判，但由于分歧一直未能缩小，谈判于今年3月破裂。
 
 ## 相关推荐
 
-- 2026-06-29 22:27 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 22:28 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-29 22:28 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 22:17 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 22:38 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-29 22:34 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-29 22:13 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 22:41 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-29 22:37 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-29 22:16 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 22:39 - [世界杯高票价为何没劝退球迷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-29 22:37 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 22:34 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-29 22:18 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-29 22:33 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 22:40 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-29 22:34 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-29 22:37 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-29 22:44 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 22:42 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 22:26 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-29 22:21 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-29 22:39 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 22:36 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 22:44 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 22:46 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 22:29 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 22:46 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:24 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/3841281.shtml)
-- 2026-06-29 22:18 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/775429.shtml)
-- 2026-06-29 22:23 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/78417.shtml)
-- 2026-06-29 22:21 - [曝iPhone涨价后不会再降](https://www.share.kurohicncr.top/Article/details/4885184174.shtml)
-- 2026-06-29 22:15 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/128132442213.shtml)
-- 2026-06-29 22:28 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/86027912044.shtml)
-- 2026-06-29 22:32 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/2159392056.shtml)
-- 2026-06-29 22:26 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/46840.shtml)
-- 2026-06-29 22:29 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/6889127.shtml)
-- 2026-06-29 22:14 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/9824243055.shtml)
-- 2026-06-29 22:15 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/841683998.shtml)
-- 2026-06-29 22:30 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/695126695082.shtml)
-- 2026-06-29 22:14 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/109742.shtml)
-- 2026-06-29 22:35 - [格莱美唱作人锐评歌手第6期](http://www.blog.minike.top/Article/details/1263126547.shtml)
-- 2026-06-29 22:36 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/685971.shtml)
+- 2026-06-29 22:42 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/5546949.shtml)
+- 2026-06-29 22:45 - [恋与深空制作组回应争议](https://www.share.kurohicncr.top/Article/details/839741.shtml)
+- 2026-06-29 22:27 - [世界杯高票价为何没劝退球迷](https://www.blog.kurohicncr.top/Article/details/58707559.shtml)
+- 2026-06-29 22:47 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/991663436.shtml)
+- 2026-06-29 22:28 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/23177.shtml)
+- 2026-06-29 22:35 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/9000872047.shtml)
+- 2026-06-29 22:28 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/21590.shtml)
+- 2026-06-29 22:33 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/48027385630.shtml)
+- 2026-06-29 22:33 - [东方风云榜直播](https://www.share.minike.top/Article/details/419654850142.shtml)
+- 2026-06-29 22:23 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/16341192715.shtml)
+- 2026-06-29 22:32 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/487480.shtml)
+- 2026-06-29 22:41 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/968639186.shtml)
+- 2026-06-29 22:35 - [爱奇艺抬高国剧新标尺](http://www.share.kurohicncr.top/Article/details/86134253702.shtml)
+- 2026-06-29 22:25 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/149831.shtml)
+- 2026-06-29 22:40 - [哈兰德玩游戏连女友都不让着](http://www.share.kurohicncr.top/Article/details/17577125.shtml)

@@ -1,61 +1,55 @@
-# 报告预计今年全球新能源乘用车销量将突破2300万辆
+# 广西柳州市地震区域搜救出2名被困人员 已无生命体征
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-中新社北京6月17日电 (记者 刘文文)彭博新能源财经17日发布的《2026年新能源汽车市场长期展望》(简称“报告”)预计，今年全球新能源乘用车销量将突破2300万辆，较2025年增长11%。 报告预计，2026年新能源汽车在全球乘用车新车销量中的占比将超过四分之一，高于五年前的9%，并将在2035年进一步升至52%。 彭博新能源财经新能源汽车主管亚历山德拉·奥多诺万(Alek
+中新网柳州5月18日电 (林馨)广西柳州市抗震救灾指挥部介绍，截至5月18日8时14分，救援队伍在该市柳南区太阳村镇太阳村社区受灾现场搜救出2名被困人员，经医务人员确认已无生命体征。 经核实，遇难者分别为：蓝某(男，63岁)，蓝某鸾(女，53岁，系第一名遇难者蓝某的配偶)。剩余1名失联人员搜救工作持续进行中。 据中国地震台网正式测定，2026年5月18日00时21分，在柳州市柳
 
 ## 正文
 
-中新社北京6月17日电 (记者 刘文文)彭博新能源财经17日发布的《2026年新能源汽车市场长期展望》(简称“报告”)预计，今年全球新能源乘用车销量将突破2300万辆，较2025年增长11%。
+中新网柳州5月18日电 (林馨)广西柳州市抗震救灾指挥部介绍，截至5月18日8时14分，救援队伍在该市柳南区太阳村镇太阳村社区受灾现场搜救出2名被困人员，经医务人员确认已无生命体征。
 
-报告预计，2026年新能源汽车在全球乘用车新车销量中的占比将超过四分之一，高于五年前的9%，并将在2035年进一步升至52%。
+经核实，遇难者分别为：蓝某(男，63岁)，蓝某鸾(女，53岁，系第一名遇难者蓝某的配偶)。
 
-彭博新能源财经新能源汽车主管亚历山德拉·奥多诺万(Aleksandra O’Donovan)表示，尽管全球新能源汽车普及率持续提升，但受美国政策变化和中国市场日趋成熟的影响，各市场的转型步伐正变得愈发不均衡。
+剩余1名失联人员搜救工作持续进行中。
 
-令人鼓舞的是，在车辆经济性改善、电池成本下降以及新兴市场快速普及的推动下，电气化的长期趋势依然稳固。
+据中国地震台网正式测定，2026年5月18日00时21分，在柳州市柳南区发生5.2级地震。
 
-报告指出，中国仍是全球最大的新能源汽车市场，不仅在全球新能源汽车销量中占据最大份额，其国内新能源汽车普及率也处于领先水平。
+此前，共发生4次2.0级以上地震。
 
-目前，新能源汽车已占中国乘用车新车总销量的近三分之二。
-
-报告还指出，尽管新能源汽车销量快速增长，但预计到2047年，新能源乘用车保有量才会超过燃油车。
-
-到2040年，所有汽车细分领域中，燃油车保有量仍将超过10亿辆。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:38 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-29 22:13 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-29 22:28 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-29 22:38 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-29 22:32 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-29 22:39 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 22:17 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 22:17 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-29 22:20 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-29 22:18 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-29 22:21 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-29 22:17 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-29 22:32 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 22:36 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-29 22:33 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 22:45 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-29 22:35 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-29 22:20 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 22:22 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-29 22:24 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-29 22:22 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-29 22:36 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 22:26 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-29 22:42 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-29 22:26 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 22:42 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 22:32 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 22:42 - [福建海警位金门附近海域常态执法巡查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:15 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/261446483.shtml)
-- 2026-06-29 22:21 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/1239990180.shtml)
-- 2026-06-29 22:29 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/43751083.shtml)
-- 2026-06-29 22:33 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/73566802961.shtml)
-- 2026-06-29 22:23 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/08684953.shtml)
-- 2026-06-29 22:25 - [金牌调解](https://www.share.minike.top/Article/details/95687758972.shtml)
-- 2026-06-29 22:27 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/784753742324.shtml)
-- 2026-06-29 22:38 - [宜宾地震已转移安置225人](http://www.share.kurohicncr.top/Article/details/42656368742.shtml)
-- 2026-06-29 22:31 - [美人鱼](https://www.share.minike.top/Article/details/093370475227.shtml)
-- 2026-06-29 22:22 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/826366620.shtml)
-- 2026-06-29 22:16 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/711868534558.shtml)
-- 2026-06-29 22:18 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/4701294.shtml)
-- 2026-06-29 22:19 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/53474165.shtml)
-- 2026-06-29 22:39 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/478201923431.shtml)
-- 2026-06-29 22:14 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/822062.shtml)
+- 2026-06-29 22:47 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/96107.shtml)
+- 2026-06-29 22:36 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/39906271.shtml)
+- 2026-06-29 22:28 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/604442939324.shtml)
+- 2026-06-29 22:45 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/594201.shtml)
+- 2026-06-29 22:29 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/1817472.shtml)
+- 2026-06-29 22:45 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/270939474.shtml)
+- 2026-06-29 22:31 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/77830971197.shtml)
+- 2026-06-29 22:44 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/9732963.shtml)
+- 2026-06-29 22:18 - [我们的少年时代2](https://www.blog.minike.top/Article/details/21982648796.shtml)
+- 2026-06-29 22:34 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/58066982.shtml)
+- 2026-06-29 22:45 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/296707493.shtml)
+- 2026-06-29 22:29 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/02159216304.shtml)
+- 2026-06-29 22:38 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/7870354729.shtml)
+- 2026-06-29 22:24 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/6543413.shtml)
+- 2026-06-29 22:47 - [店员光脚踩入盆中清洗土豆](https://www.share.kurohicncr.top/Article/details/41975.shtml)

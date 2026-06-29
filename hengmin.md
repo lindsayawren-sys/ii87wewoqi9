@@ -1,56 +1,57 @@
-# 上海波音航空改装维修工程有限公司新机库启用
+# Yinson Production与PTSC为越南Block B项目FSO融资逾1.3亿美元
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-中新网上海6月17日电 (记者 殷立勤)6月17日，上海波音航空改装维修工程有限公司(以下简称“上海波音”)全新的先进机库正式启用。这标志着以上海浦东国际机场为基地、已为全球航空业服务20年的上海波音在产能扩张上迈出了重要一步。 新机库位于上海自贸区临港新片区的洋山特殊综合保税区，可同时容纳四架宽体机和两架窄体机。该设施配备了先进的部件修理车间，并遵循高标准的安全与质量要求，使
+融资详情 Yinson Production与合资伙伴PTSC已为其为越南Block B天然气项目建造的一艘浮式储卸油船获得1.315亿美元的高级担保银行融资。该公司表示，该融资由其内部构建和安排，将部分用于支付目前在中国建造的FSO的建造成本，该船最终用户为Phu Quoc Petroleum Operating Company。该融资在交付后拥有12年的期限，与项目周期保持
 
 ## 正文
 
-中新网上海6月17日电 (记者 殷立勤)6月17日，上海波音航空改装维修工程有限公司(以下简称“上海波音”)全新的先进机库正式启用。
+融资详情 Yinson Production与合资伙伴PTSC已为其为越南Block B天然气项目建造的一艘浮式储卸油船获得1.315亿美元的高级担保银行融资。
 
-这标志着以上海浦东国际机场为基地、已为全球航空业服务20年的上海波音在产能扩张上迈出了重要一步。
+该公司表示，该融资由其内部构建和安排，将部分用于支付目前在中国建造的FSO的建造成本，该船最终用户为Phu Quoc Petroleum Operating Company。
 
-新机库位于上海自贸区临港新片区的洋山特殊综合保税区，可同时容纳四架宽体机和两架窄体机。
+该融资在交付后拥有12年的期限，与项目周期保持一致。
 
-该设施配备了先进的部件修理车间，并遵循高标准的安全与质量要求，使上海波音能继续提供全方位的服务，包括保税飞机维修与改装、工程服务以及飞机物料管理。
+项目概况 该FSO预计于2027年第三季度开始运营，将服务于越南海上Block B气田。
 
-与之前的设施相比，作为中国同类型中最大单跨结构的上海波音新机库，将以更强的产能和实力满足全球及国内航空公司对高效服务日益增长的需求。
+该船设计可在无需干船坞的情况下运营25年，储油能力高达35万桶凝析油。
 
-上海波音首席执行官马克·西森(Mark Sisson)表示：“这座新机库体现了波音公司对卓越运营和客户合作的长期承诺。
+合资架构与运营模式 2025年7月，Yinson Production与PTSC的合资企业PTSC South East Asia从代表PetroVietnam的Block B 48/95和52/97运营商PQPOC处获得了该FSO的租赁运营合同。
 
-团队已经准备好以更快的周转时间和更强的技术深度为航空公司提供支持。
+PTSC SEA由Yinson Production（持股49%）和PetroVietnam Technical Services Corporation（持股51%）共同拥有。
 
-”(完)
+战略意义 Yinson Production表示，租赁运营模式为客户带来了显著益处，既减少了前期资本需求，又提供了具有吸引力的整体经济效益。
 
 ## 相关推荐
 
-- 2026-06-29 22:16 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 22:14 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 22:25 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-29 22:28 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 22:21 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-29 22:37 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-29 22:29 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-29 22:40 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 22:15 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-29 22:17 - [世界杯高票价为何没劝退球迷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 22:39 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 22:26 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 22:37 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-29 22:41 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 22:34 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 22:32 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 22:31 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 22:44 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-29 22:38 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 22:26 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 22:43 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:25 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/9165904.shtml)
-- 2026-06-29 22:39 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/814415507556.shtml)
-- 2026-06-29 22:19 - [金鹰奖第二阶段投票明日开启](http://www.blog.minike.top/Article/details/878971781691.shtml)
-- 2026-06-29 22:33 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/29724.shtml)
-- 2026-06-29 22:29 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/564406530.shtml)
-- 2026-06-29 22:23 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/937513286.shtml)
-- 2026-06-29 22:21 - [足球“出口导向”造就佛得角奇迹](http://www.blog.kurohicncr.top/Article/details/1549819.shtml)
-- 2026-06-29 22:34 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/31481791359.shtml)
-- 2026-06-29 22:28 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.kurohicncr.top/Article/details/403506.shtml)
-- 2026-06-29 22:17 - [记者暗访养老机构消防安全](https://www.share.minike.top/Article/details/8761742862.shtml)
-- 2026-06-29 22:27 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/14983989947.shtml)
-- 2026-06-29 22:20 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/764500.shtml)
-- 2026-06-29 22:33 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/79410.shtml)
-- 2026-06-29 22:12 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/1902998.shtml)
-- 2026-06-29 22:20 - [一见倾心](https://www.share.minike.top/Article/details/4562621116.shtml)
+- 2026-06-29 22:37 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/29970590.shtml)
+- 2026-06-29 22:24 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/668689.shtml)
+- 2026-06-29 22:45 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.minike.top/Article/details/30202263.shtml)
+- 2026-06-29 22:47 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/654971642293.shtml)
+- 2026-06-29 22:45 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/808684.shtml)
+- 2026-06-29 22:22 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/84498260.shtml)
+- 2026-06-29 22:41 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.kurohicncr.top/Article/details/0397560.shtml)
+- 2026-06-29 22:27 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/61831003342.shtml)
+- 2026-06-29 22:36 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/53854247.shtml)
+- 2026-06-29 22:26 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/0526646780.shtml)
+- 2026-06-29 22:24 - [东方风云榜](https://www.blog.minike.top/Article/details/336763.shtml)
+- 2026-06-29 22:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/331264212874.shtml)
+- 2026-06-29 22:21 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/8083025.shtml)
+- 2026-06-29 22:45 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/603552428.shtml)
+- 2026-06-29 22:33 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/2458147.shtml)

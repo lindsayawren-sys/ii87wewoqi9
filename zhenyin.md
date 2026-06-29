@@ -1,56 +1,57 @@
-# 跌破80美元！多家投行下调油价预期
+# 福建漳州举办“迁台记忆”档案资料征集动员会暨台湾义勇队家属座谈会
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】国际原油价格持续下挫，WTI原油失守80美元/桶，高盛等多家投行下调油价预期 中国基金报记者 张舟 国际原油价格持续下挫！ 6月16日下午15时30分左右，WTI原油失守80美元/桶。截至记者发稿，WTI原油报78.78美元/桶，日跌幅扩大至2.44%。 布伦特原油同样延续下跌态势
+中新网漳州5月16日电 (蒋乔煌)15日，福建漳州市档案馆联合漳州市台湾同胞联谊会共同举办“弘扬两岸爱国抗战精神 守护家国一体共同记忆——‘迁台记忆’档案资料征集动员会暨台湾义勇队家属座谈会”。活动旨在以档案为纽带深挖漳台历史渊源，赓续两岸爱国抗战文脉，持续拓宽档案征集渠道，打造具有辨识度、影响力的漳州“迁台记忆”档案工作品牌。 当天的座谈气氛温馨而热烈。台湾义勇队及抗日志士家
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网漳州5月16日电 (蒋乔煌)15日，福建漳州市档案馆联合漳州市台湾同胞联谊会共同举办“弘扬两岸爱国抗战精神 守护家国一体共同记忆——‘迁台记忆’档案资料征集动员会暨台湾义勇队家属座谈会”。
 
-来源：中国基金报 【导读】国际原油价格持续下挫，WTI原油失守80美元/桶，高盛等多家投行下调油价预期 中国基金报记者 张舟 国际原油价格持续下挫！
+活动旨在以档案为纽带深挖漳台历史渊源，赓续两岸爱国抗战文脉，持续拓宽档案征集渠道，打造具有辨识度、影响力的漳州“迁台记忆”档案工作品牌。
 
-6月16日下午15时30分左右，WTI原油失守80美元/桶。
+当天的座谈气氛温馨而热烈。
 
-截至记者发稿，WTI原油报78.78美元/桶，日跌幅扩大至2.44%。
+台湾义勇队及抗日志士家属代表深情追忆先辈投身抗日、守望家国的峥嵘事迹，表达传承先辈精神、守护共同历史记忆、维系漳台血脉亲情的真挚心愿。
 
-布伦特原油同样延续下跌态势，现报81.73美元/桶，日跌幅扩大至1.43%。
+各县区台联负责人纷纷表态，将充分发挥台联桥梁纽带优势，广泛联络发动广大台胞台属，助力“迁台记忆”档案征集工作走深走实。
 
-多家投行下调油价目标价 近日，多家投行下调油价目标价，高盛在一周内第二次下调油价目标价。
+两岸同根同源，文脉薪火相传。
 
-高盛发布最新预测称：“在特朗普宣布达成临时协议、将于周五协议签署后解除美国封锁并重新开放霍尔木兹海峡之后，我们下调了油价预测。
+今年以来，众多台湾义勇队、台湾少年团后代家属心系家国、情牵文脉，踊跃无偿捐赠家族珍藏史料。
 
-虽然协议的全部细节尚不明确，但我们目前假设波斯湾出口将在7月底前恢复正常化至战前水平，此前为8月底。
+在漳州市台联积极协助对接下，台湾义勇队队员王正西女儿王阳红；台湾少年团成员蔡东南女儿蔡丽丽及陈金泽儿子陈仲凯、许静飞孙子陈鸣等家属代表，先后将珍藏的往来书信、照片、视频、研究资料等珍贵台湾义勇队和台湾少年团档案资料100余件无偿捐赠给漳州市档案馆。
 
 ## 相关推荐
 
-- 2026-06-29 22:40 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 22:40 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 22:25 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-29 22:41 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-29 22:18 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 22:12 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-29 22:21 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-29 22:19 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 22:38 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-29 22:25 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 22:46 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 22:22 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 22:31 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 22:47 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-29 22:45 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 22:33 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 22:37 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 22:24 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 22:31 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-29 22:44 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 22:24 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:16 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/599594.shtml)
-- 2026-06-29 22:20 - [TOP Prada](http://www.blog.minike.top/Article/details/33419.shtml)
-- 2026-06-29 22:36 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/60249940634.shtml)
-- 2026-06-29 22:18 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/953053498009.shtml)
-- 2026-06-29 22:16 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/648369.shtml)
-- 2026-06-29 22:28 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/349001.shtml)
-- 2026-06-29 22:19 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/1229028408.shtml)
-- 2026-06-29 22:20 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/71509476.shtml)
-- 2026-06-29 22:30 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/858830420853.shtml)
-- 2026-06-29 22:38 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/457547376.shtml)
-- 2026-06-29 22:38 - [恋与深空7天掉粉超50万](http://www.share.minike.top/Article/details/1692628883.shtml)
-- 2026-06-29 22:25 - [爱很美味](https://www.share.minike.top/Article/details/04420459752.shtml)
-- 2026-06-29 22:14 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/124740898.shtml)
-- 2026-06-29 22:31 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/354861.shtml)
-- 2026-06-29 22:38 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/55834214.shtml)
+- 2026-06-29 22:36 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/515310.shtml)
+- 2026-06-29 22:45 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.minike.top/Article/details/81049744690.shtml)
+- 2026-06-29 22:20 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/70698752.shtml)
+- 2026-06-29 22:26 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/015886033213.shtml)
+- 2026-06-29 22:43 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/608069.shtml)
+- 2026-06-29 22:47 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/845650.shtml)
+- 2026-06-29 22:23 - [啊啊啊](http://www.blog.minike.top/Article/details/141158417.shtml)
+- 2026-06-29 22:38 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/49456710679.shtml)
+- 2026-06-29 22:42 - [葫芦岛居民楼闪爆事故致3死](https://www.share.kurohicncr.top/Article/details/41988893359.shtml)
+- 2026-06-29 22:33 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/91164392610.shtml)
+- 2026-06-29 22:37 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/7569200307.shtml)
+- 2026-06-29 22:27 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/9229399789.shtml)
+- 2026-06-29 22:34 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/92419391.shtml)
+- 2026-06-29 22:42 - [周生如故](https://www.blog.minike.top/Article/details/9174624919.shtml)
+- 2026-06-29 22:18 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/10534532459.shtml)

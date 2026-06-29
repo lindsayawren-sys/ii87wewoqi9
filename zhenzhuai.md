@@ -1,57 +1,56 @@
-# 第九届云南民间工艺美术作品展亮相昆明 荟萃滇艺匠心
+# 逆市显韧性！氟化工、锂电爆发，华宝基金化工ETF（516020）盘中上探1.78%！近百亿主力资金抢筹
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-外国专家看中华传统文化中的人权观念为何说平陆运河连通江海融通东盟？“新疆小羊”爆火，折射哪些文旅市场新变化？美伊确认达成协议 “难缠”的以色列会否搅局？封关半年看海南：“老外”为何喜欢来“追箭”？访南京“空翻哥”孟新艺：望有朝一日跨进世界杯赛场以发展权赋能气候正义 深化中欧绿色伙伴关系年少的话，长大后都反过来了千年丝路故城焕生机 “夜游”圈粉中外客美加墨世界杯开赛迄今，亚洲区球
+化工板块周五（5月15日）逆市显韧性。反映化工板块整体走势的化工ETF华宝（516020）全天多数时间飘红，盘中场内价格涨幅一度达到1.78%，尾盘随市回落，最终逆市收涨0.1%。 成份股方面，氟化工、锂电等板块大面积走强。截至收盘，多氟多涨停，巨化股份、卫星化学、天赐材料等大涨超3%，三美股份、金发科技、华峰化学等亦涨幅居前。 值得注意的是，尽管近日涨势暂歇，化工板块年初以来
 
 ## 正文
 
-外国专家看中华传统文化中的人权观念为何说平陆运河连通江海融通东盟？
+化工板块周五（5月15日）逆市显韧性。
 
-“新疆小羊”爆火，折射哪些文旅市场新变化？
+反映化工板块整体走势的化工ETF华宝（516020）全天多数时间飘红，盘中场内价格涨幅一度达到1.78%，尾盘随市回落，最终逆市收涨0.1%。
 
-美伊确认达成协议 “难缠”的以色列会否搅局？
+成份股方面，氟化工、锂电等板块大面积走强。
 
-封关半年看海南：“老外”为何喜欢来“追箭”？
+截至收盘，多氟多涨停，巨化股份、卫星化学、天赐材料等大涨超3%，三美股份、金发科技、华峰化学等亦涨幅居前。
 
-访南京“空翻哥”孟新艺：望有朝一日跨进世界杯赛场以发展权赋能气候正义 深化中欧绿色伙伴关系年少的话，长大后都反过来了千年丝路故城焕生机 “夜游”圈粉中外客美加墨世界杯开赛迄今，亚洲区球队仍无败绩中国制造、中国技术、中国IP，成为世界杯“隐形冠军”台舆论关注海峡论坛：释实质利好 赴陆热难挡中国汽车的AI进行时：技术渗透全链，产业格局渐变美国又对全球通讯命脉“卡脖子”，遭殃的可能是美企张凌赫喊话台胞：海峡的距离，挡不住同胞走亲走近的交流步伐加盟店前股东借款超千万失联，周大福回应人类首位万亿美元富豪诞生，资本市场风险浮出水面比赛首日，全球各大市场同步走高！
+值得注意的是，尽管近日涨势暂歇，化工板块年初以来表现仍显著优于大盘。
 
-“世界杯魔咒”失灵了？
+数据显示，截至周五收盘，化工ETF华宝标的指数细分化工指数年内累计涨幅已达到8.88%，显著优于同期上证指数（4.2%）、沪深300指数（4.96%）等A股主要指数。
 
-河南三门峡：端午节香包走俏 传统手艺焕新彩封关半年看海南：中外巨轮频频“打卡”！
+数据来源：Wind，取值区间为2026.1.1-2026.5.15，细分化工指数近5个完整年度涨跌幅分别为：2021年，15.72%；2022年，-26.89%；2023年，-23.17%；2024年，-3.83%；2025年，41.09%。
 
-“微笑天使”江豚逐浪嬉戏 长江大保护与十年禁渔成效显著这群刚毕业的藏族学生用特别的方式踏上回家路河南灵宝：端午将至 村民制作传统槲叶粽台青初到大陆被震撼：怎么发展这么快！
+指数成份股构成根据该指数编制规则适时调整，其回测历史业绩不预示指数未来表现。
 
 ## 相关推荐
 
-- 2026-06-29 22:30 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-29 22:12 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-29 22:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-29 22:18 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-29 22:29 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-29 22:29 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-29 22:40 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-29 22:30 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-29 22:32 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-29 22:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 22:33 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 22:45 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 22:41 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 22:37 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 22:27 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-29 22:22 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 22:20 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 22:20 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 22:45 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 22:19 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 22:29 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:39 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/29107251800.shtml)
-- 2026-06-29 22:13 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/2050818.shtml)
-- 2026-06-29 22:19 - [欧洲缘何成为变暖最快的大洲](http://www.blog.minike.top/Article/details/835007728.shtml)
-- 2026-06-29 22:37 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/4056865.shtml)
-- 2026-06-29 22:16 - [把邻居裸体发群算维权还是侵权](http://www.blog.minike.top/Article/details/65728467729.shtml)
-- 2026-06-29 22:41 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.kurohicncr.top/Article/details/7466052343.shtml)
-- 2026-06-29 22:28 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/831858033.shtml)
-- 2026-06-29 22:16 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/07843674.shtml)
-- 2026-06-29 22:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/6127762567.shtml)
-- 2026-06-29 22:28 - [法拉利车主已自行承担修理费近3万](http://www.blog.minike.top/Article/details/1826717786.shtml)
-- 2026-06-29 22:23 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/1514851537.shtml)
-- 2026-06-29 22:28 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/351466783.shtml)
-- 2026-06-29 22:16 - [金牌调解](http://www.blog.minike.top/Article/details/85103410883.shtml)
-- 2026-06-29 22:13 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.minike.top/Article/details/788451386.shtml)
-- 2026-06-29 22:19 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/9272514.shtml)
+- 2026-06-29 22:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/5463316849.shtml)
+- 2026-06-29 22:25 - [周生如故](https://www.blog.kurohicncr.top/Article/details/7817064.shtml)
+- 2026-06-29 22:44 - [一生一世](https://www.share.minike.top/Article/details/185842.shtml)
+- 2026-06-29 22:21 - [男子称在京东买到“同仁堂”假药](https://www.share.minike.top/Article/details/645013379965.shtml)
+- 2026-06-29 22:23 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/820897257070.shtml)
+- 2026-06-29 22:33 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/9329441.shtml)
+- 2026-06-29 22:41 - [货车司机恶意闯卡逃费被行拘](https://www.blog.kurohicncr.top/Article/details/791225554876.shtml)
+- 2026-06-29 22:33 - [山东发布山洪灾害气象预警](http://www.blog.minike.top/Article/details/6148547.shtml)
+- 2026-06-29 22:37 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/64438412.shtml)
+- 2026-06-29 22:26 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/87422101794.shtml)
+- 2026-06-29 22:18 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/655641402.shtml)
+- 2026-06-29 22:37 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/00925.shtml)
+- 2026-06-29 22:31 - [斛珠夫人](http://www.share.minike.top/Article/details/902529247408.shtml)
+- 2026-06-29 22:41 - [上世纪90年代玩具成新宠](https://www.share.kurohicncr.top/Article/details/8395784.shtml)
+- 2026-06-29 22:31 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/433105299665.shtml)

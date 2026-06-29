@@ -1,59 +1,57 @@
-# 2025年度个税汇算6月30日结束 这两种情况要注意
+# 天津高校举办国际文化节 中外青年共享多元文化盛宴
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-2025年度个税综合所得汇算办理将于6月30日结束。记者从税务部门收集整理了一些纳税人在办理个税汇算时咨询较多的问题。 国家税务总局发布的最新数据显示，截至5月底，已有超1.6亿人完成个税汇算申报，超过1.1亿人办理了退税，退税金额也明显增大，退税规模同比增加超过17%。 不少网友积极晒出退税“红包”，有人也在咨询，提交了退税申请，但是退税迟迟未到账怎么办？ 税务部门提示，在申
+从增量扩张到存量提质 建设现代化人民城市被立案调查后，携程在改吗？对话维妮娜：在乘风之前，她已经跑了很久小小香料，何以撬动大产业、香飘全世界？“超级食物”真有那么神奇吗？专家揭秘真相桥头地瓜，竟是“地瓜界的爱马仕”造假摆拍，无底线博流量！北京警方通报3起典型案例斯塔默政治前途“悬而未决” 潜在竞争者都有谁？“空军一号”上让特朗普放下汉堡薯条的，是这三道“中餐”中国经济动能转换
 
 ## 正文
 
-2025年度个税综合所得汇算办理将于6月30日结束。
+从增量扩张到存量提质 建设现代化人民城市被立案调查后，携程在改吗？
 
-记者从税务部门收集整理了一些纳税人在办理个税汇算时咨询较多的问题。
+对话维妮娜：在乘风之前，她已经跑了很久小小香料，何以撬动大产业、香飘全世界？
 
-国家税务总局发布的最新数据显示，截至5月底，已有超1.6亿人完成个税汇算申报，超过1.1亿人办理了退税，退税金额也明显增大，退税规模同比增加超过17%。
+“超级食物”真有那么神奇吗？
 
-不少网友积极晒出退税“红包”，有人也在咨询，提交了退税申请，但是退税迟迟未到账怎么办？
+专家揭秘真相桥头地瓜，竟是“地瓜界的爱马仕”造假摆拍，无底线博流量！
 
-税务部门提示，在申请退税过程中，需要重点关注的是“税务审核不通过”和“国库退库失败”两种情况。
+北京警方通报3起典型案例斯塔默政治前途“悬而未决” 潜在竞争者都有谁？
 
-“税务审核不通过”，表示纳税人的申报信息存在问题，税务机关会在个税App里面列明审核不通过的原因，纳税人可以在个税App中及时查看，并对申报数据进行检查、修改、完善，确认无误后重新提交申报。
+“空军一号”上让特朗普放下汉堡薯条的，是这三道“中餐”中国经济动能转换 融资结构现新变化印尼盾被低估了？
 
-“国库退库失败”，表示税款无法退到纳税人的银行账户中。
+书记省长密集会见民营企业家 政企互动促进高质量发展揭秘爆火的《ENEMY》：成本超百万 将有中长剧版多地网约车司机违规考核落地 绕道等列入“黑榜”行为烧烤摊主停业捐髓救助患者 带动多人加入中华骨髓库排队时间长、回复不及时……互联网医院“堵”在哪？
 
-纳税人需及时关注申请退税的银行账户是否为本人账户，并且是否能够正常使用。
+年轻人的第一台“新家电”，为什么是3D打印机？
 
 ## 相关推荐
 
-- 2026-06-29 22:28 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 22:21 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-29 22:23 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-29 22:33 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 22:32 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-29 22:28 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 22:33 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-29 22:27 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-29 22:25 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 22:19 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 22:36 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-29 22:38 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-29 22:41 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-29 22:40 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 22:45 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 22:40 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-29 22:21 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-29 22:44 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 22:34 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 22:45 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 22:20 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 22:26 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-29 22:40 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 22:30 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:35 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/360846719235.shtml)
-- 2026-06-29 22:37 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/012489.shtml)
-- 2026-06-29 22:20 - [青春环游记第三季](https://www.blog.minike.top/Article/details/3272123860.shtml)
-- 2026-06-29 22:39 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/14490.shtml)
-- 2026-06-29 22:38 - [杨德龙：创新药迎来新的发展机遇](https://www.share.minike.top/Article/details/557114711575.shtml)
-- 2026-06-29 22:13 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/534400450.shtml)
-- 2026-06-29 22:34 - [腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/26752.shtml)
-- 2026-06-29 22:31 - [Prada在内娱首度签下偶像团体](https://www.blog.kurohicncr.top/Article/details/52397006.shtml)
-- 2026-06-29 22:20 - [速度与激情9](http://www.share.minike.top/Article/details/12078.shtml)
-- 2026-06-29 22:12 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/965144.shtml)
-- 2026-06-29 22:25 - [金鹰奖第二阶段投票明日开启](http://www.blog.minike.top/Article/details/250085.shtml)
-- 2026-06-29 22:20 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/5226433689.shtml)
-- 2026-06-29 22:30 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/254532.shtml)
-- 2026-06-29 22:16 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/92473911987.shtml)
-- 2026-06-29 22:15 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/274501959.shtml)
+- 2026-06-29 22:21 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/6755457.shtml)
+- 2026-06-29 22:23 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/781991.shtml)
+- 2026-06-29 22:46 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/138666.shtml)
+- 2026-06-29 22:21 - [被裁员后30岁儿子被抓去戒网瘾](https://www.share.kurohicncr.top/Article/details/329356402.shtml)
+- 2026-06-29 22:40 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/90643368.shtml)
+- 2026-06-29 22:37 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/8269121.shtml)
+- 2026-06-29 22:38 - [金牌调解](http://www.blog.minike.top/Article/details/7757863086.shtml)
+- 2026-06-29 22:18 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.minike.top/Article/details/93549951620.shtml)
+- 2026-06-29 22:45 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/474280663.shtml)
+- 2026-06-29 22:46 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/6866490.shtml)
+- 2026-06-29 22:41 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/44727969412.shtml)
+- 2026-06-29 22:40 - [如何看法国总统候选人称加强与华合作](https://www.share.minike.top/Article/details/531445.shtml)
+- 2026-06-29 22:40 - [扫黑风暴](https://www.share.minike.top/Article/details/7397793297.shtml)
+- 2026-06-29 22:40 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/348486.shtml)
+- 2026-06-29 22:31 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.kurohicncr.top/Article/details/222297971.shtml)

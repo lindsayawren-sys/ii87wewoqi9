@@ -1,59 +1,60 @@
-# 【豆菜粕半年报】丰年假想
+# 专家探讨青年科创成长路径 建言提前布局系统筹划
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-紫金天风期货 观点小结 北美：预计6月面积较3月种植意向小幅上调。美豆出口方面暂无新增利好消息，USDA给的26/27季美豆平衡表较为中性。全球大豆26/27季期末库存维持稳定且巴西丰产，美豆新作种植进度快，通胀逻辑下，美豆价格受全球供需及宏观因素制约，波动区间或受限。 南美：丰产前景明朗、阿根廷大豆优良率高。据IMEA或者更高频一些的数据，反映当前销售进度不慢，预计巴西贴水下
+中新网北京5月17日电 (记者 张素)以“青年与城市共成长”为主题，第七届上海创新创业青年50人论坛近日举行。与会专家共探青年科创成长路径，以期为新质生产力发展注入青春动能。 本届论坛延续“主论坛+科创嘉年华”模式。主论坛汇聚宣介发布、政策解读、主旨演讲、圆桌对话等环节，包括进行“2026上海青年科技创业人物”和“2026上海青年创新创业成果”宣介。 据介绍，这些青年代表活跃于
 
 ## 正文
 
-紫金天风期货 观点小结 北美：预计6月面积较3月种植意向小幅上调。
+中新网北京5月17日电 (记者 张素)以“青年与城市共成长”为主题，第七届上海创新创业青年50人论坛近日举行。
 
-美豆出口方面暂无新增利好消息，USDA给的26/27季美豆平衡表较为中性。
+与会专家共探青年科创成长路径，以期为新质生产力发展注入青春动能。
 
-全球大豆26/27季期末库存维持稳定且巴西丰产，美豆新作种植进度快，通胀逻辑下，美豆价格受全球供需及宏观因素制约，波动区间或受限。
+本届论坛延续“主论坛+科创嘉年华”模式。
 
-南美：丰产前景明朗、阿根廷大豆优良率高。
+主论坛汇聚宣介发布、政策解读、主旨演讲、圆桌对话等环节，包括进行“2026上海青年科技创业人物”和“2026上海青年创新创业成果”宣介。
 
-据IMEA或者更高频一些的数据，反映当前销售进度不慢，预计巴西贴水下跌幅度有限。
+据介绍，这些青年代表活跃于新能源、高温超导、工业软件、高端装备制造、集成电路、商业航天、汽车电子、人工智能等领域。
 
-天气：可以期待，但降低厄尔尼诺不利南北美大豆生长的期待，警惕厄尔尼诺对水产养殖的不利影响。
+他们在各自赛道开展原创技术攻关，推动科研成果落地转化。
 
-国内基本面：后续三月进口大豆到港预估虽然均在千吨以上，但不及去年同期的水平。
+“青年人肩负着国家科技创新的未来，他们创意无限、活力四射。
 
-豆粕上半年成交整体好于上半年，特别是年初的远月基差成交。
+”毕马威中国华东及华西区首席合伙人杨洁在参会时说，要为更多青年人铺路搭桥，破解企业成长痛点，帮助他们实现科创梦想。
 
 ## 相关推荐
 
-- 2026-06-29 22:21 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-29 22:27 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 22:17 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 22:17 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 22:14 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 22:20 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 22:34 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-29 22:24 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-29 22:12 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 22:32 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-29 22:35 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-29 22:14 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 22:31 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-29 22:22 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 22:18 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 22:40 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-29 22:28 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 22:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 22:41 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 22:42 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 22:41 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-29 22:43 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 22:20 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-29 22:31 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-29 22:44 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-29 22:26 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-29 22:45 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:22 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/98669.shtml)
-- 2026-06-29 22:24 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/7261651471.shtml)
-- 2026-06-29 22:40 - [腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/825258.shtml)
-- 2026-06-29 22:14 - [天道](http://www.blog.kurohicncr.top/Article/details/13715476.shtml)
-- 2026-06-29 22:39 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/466989.shtml)
-- 2026-06-29 22:24 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/413272.shtml)
-- 2026-06-29 22:37 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/3990286210.shtml)
-- 2026-06-29 22:14 - [英法德葡存在什么隐患](http://www.share.minike.top/Article/details/5258452226.shtml)
-- 2026-06-29 22:39 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/882385188.shtml)
-- 2026-06-29 22:26 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/06577052.shtml)
-- 2026-06-29 22:28 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/135912126.shtml)
-- 2026-06-29 22:26 - [起风了](http://www.blog.kurohicncr.top/Article/details/24909.shtml)
-- 2026-06-29 22:37 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/83038119.shtml)
-- 2026-06-29 22:31 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/606816323914.shtml)
-- 2026-06-29 22:16 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/19950083532.shtml)
+- 2026-06-29 22:22 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/49701984226.shtml)
+- 2026-06-29 22:25 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/88304928.shtml)
+- 2026-06-29 22:33 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/373247888870.shtml)
+- 2026-06-29 22:25 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/239079249.shtml)
+- 2026-06-29 22:44 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/931352.shtml)
+- 2026-06-29 22:22 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.minike.top/Article/details/10866.shtml)
+- 2026-06-29 22:20 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/92346950542.shtml)
+- 2026-06-29 22:18 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/73034439.shtml)
+- 2026-06-29 22:43 - [恋与深空制作组回应争议](https://www.blog.minike.top/Article/details/5740695302.shtml)
+- 2026-06-29 22:22 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/126288040338.shtml)
+- 2026-06-29 22:37 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/31247782.shtml)
+- 2026-06-29 22:39 - [长沙菜农公交的人间烟火气](http://www.blog.kurohicncr.top/Article/details/053947.shtml)
+- 2026-06-29 22:27 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/73591415885.shtml)
+- 2026-06-29 22:23 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/96137665608.shtml)
+- 2026-06-29 22:22 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/5628222208.shtml)

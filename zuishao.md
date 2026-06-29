@@ -1,55 +1,61 @@
-# 新疆伊犁展出中外画家写生作品
+# 中国治沙劳模喊话美国友人回来看他捐赠的树
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 15:49 来源：中国新闻网 6月16日，“美美与共·和美伊犁”中外知名艺术家走进伊犁创作写生作品展在新疆伊宁市开展。 画展当日，在伊犁州文化馆内，48幅写生精品集中亮相，生动描绘伊犁河谷的壮美山河与各族人民安居乐业的幸福图景。 中国画家的山水图吸引多名外国画家驻足；外国画家笔下的伊犁河畔，以独特的艺术视角展现新疆风情。 随后的艺术沙龙上，来自
+中新网鄂尔多斯5月17日电 题：中国治沙劳模喊话美国友人回来看他捐赠的树 中新网记者李爱平 “我急切地想见到赛考斯，想对他说一句，你(捐)的5000元美金，已长成5万多棵参天大树。”5月17日，中国治沙劳模殷玉珍在内蒙古自治区鄂尔多斯市受访时表示，她时常想念一路走来帮助过自己的人，赛考斯是其中之一。 “在我最困难的时候，他(赛考斯)给了我一大笔钱，让我能买来那么多优质的树苗，我
 
 ## 正文
 
-发布时间：2026年06月17日 15:49 来源：中国新闻网 6月16日，“美美与共·和美伊犁”中外知名艺术家走进伊犁创作写生作品展在新疆伊宁市开展。
+中新网鄂尔多斯5月17日电 题：中国治沙劳模喊话美国友人回来看他捐赠的树 中新网记者李爱平 “我急切地想见到赛考斯，想对他说一句，你(捐)的5000元美金，已长成5万多棵参天大树。
 
-画展当日，在伊犁州文化馆内，48幅写生精品集中亮相，生动描绘伊犁河谷的壮美山河与各族人民安居乐业的幸福图景。
+”5月17日，中国治沙劳模殷玉珍在内蒙古自治区鄂尔多斯市受访时表示，她时常想念一路走来帮助过自己的人，赛考斯是其中之一。
 
-中国画家的山水图吸引多名外国画家驻足；外国画家笔下的伊犁河畔，以独特的艺术视角展现新疆风情。
+“在我最困难的时候，他(赛考斯)给了我一大笔钱，让我能买来那么多优质的树苗，我一直念念不忘，铭记于心。
 
-随后的艺术沙龙上，来自不同文化背景的画家们交流各自的创作感悟，勾勒出中外文化交融共生的生动图景。
+”殷玉珍说。
 
-(李明非） 责任编辑：【李季】
+稍早前，殷玉珍隔空喊话美国友人赛考斯的视频引发万千网友关注。
+
+视频中她恳切地说道：“你好，赛考斯先生，如果你能看到这个视频，我诚挚邀请你回到中国，看一看你资助美金种下的这片绿色森林……” 20世纪80年代，殷玉珍从陕北嫁入内蒙古鄂尔多斯市乌审旗毛乌素沙地深处。
+
+彼时这里黄沙漫漫，一夜风沙便可埋墙堵门，家园时刻面临被沙漠吞噬的危机。
+
+为此，她开启治沙之路，这一坚持就是40年。
 
 ## 相关推荐
 
-- 2026-06-29 22:23 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 22:31 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-29 22:30 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-29 22:32 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 22:22 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-29 22:18 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 22:37 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-29 22:19 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 22:30 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 22:16 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 22:23 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-29 22:34 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-29 22:15 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-29 22:16 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-29 22:30 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 22:42 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-29 22:34 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-29 22:19 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 22:23 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-29 22:22 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 22:40 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 22:42 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 22:21 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 22:23 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 22:35 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 22:24 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-29 22:36 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 22:38 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 22:33 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-29 22:25 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:23 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/9536368783.shtml)
-- 2026-06-29 22:36 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/83304.shtml)
-- 2026-06-29 22:23 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/322192421.shtml)
-- 2026-06-29 22:19 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/143789.shtml)
-- 2026-06-29 22:17 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/638507.shtml)
-- 2026-06-29 22:15 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/915146919844.shtml)
-- 2026-06-29 22:36 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/84085521.shtml)
-- 2026-06-29 22:18 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/132093391.shtml)
-- 2026-06-29 22:15 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/5730686965.shtml)
-- 2026-06-29 22:16 - [恋与深空7天掉粉超50万](http://www.blog.kurohicncr.top/Article/details/867346930.shtml)
-- 2026-06-29 22:20 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/411835.shtml)
-- 2026-06-29 22:36 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/17384.shtml)
-- 2026-06-29 22:13 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/32129688.shtml)
-- 2026-06-29 22:26 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/3781189752.shtml)
-- 2026-06-29 22:18 - [佛得角队长门德斯被控强奸](http://www.blog.kurohicncr.top/Article/details/847138.shtml)
+- 2026-06-29 22:36 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/9685999.shtml)
+- 2026-06-29 22:21 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/50930003.shtml)
+- 2026-06-29 22:29 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/739747.shtml)
+- 2026-06-29 22:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/90628870.shtml)
+- 2026-06-29 22:23 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/2774685.shtml)
+- 2026-06-29 22:40 - [杨紫有3部作品入围金鹰奖](https://www.blog.minike.top/Article/details/4440455267.shtml)
+- 2026-06-29 22:40 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/758266883.shtml)
+- 2026-06-29 22:27 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/649123725.shtml)
+- 2026-06-29 22:26 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/6916610.shtml)
+- 2026-06-29 22:31 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/05828057018.shtml)
+- 2026-06-29 22:21 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/79943900922.shtml)
+- 2026-06-29 22:25 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/83356.shtml)
+- 2026-06-29 22:44 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/680394.shtml)
+- 2026-06-29 22:27 - [18岁高二体育生训练晕倒后离世](http://www.blog.kurohicncr.top/Article/details/57581637688.shtml)
+- 2026-06-29 22:37 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/99102.shtml)

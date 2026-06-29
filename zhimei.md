@@ -1,55 +1,58 @@
-# 外交部：美方应停止将经贸科技问题政治化、工具化、武器化
+# 重庆出现2026年首个编号洪水 秀山梅江出现超警戒水位
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-6月17日，外交部发言人林剑主持例行记者会。有记者提问，有报道称，美国商务部暂缓将多家中国企业列入出口管制实体清单。请问中方对此有何评论？ 林剑表示，中方一贯反对美方泛化国家安全概念，滥用实体清单等出口管制的工具，遏制打压中方企业，美方应停止将经贸科技问题政治化、工具化、武器化。 （总台央视记者 王晨 申杨）责任编辑：刘万里 SF014
+中新网重庆5月17日电 (记者 刘相琳)重庆市水利局17日发布2026年第1期编号洪水报告：受强降雨影响，秀山县梅江秀山(二)站水位于当日8时40分达到341.58米，超警戒水位0.11米，标志着“梅江2026年第1号洪水”已经形成。报告称，秀山县梅江秀山(二)站于17日10时05分出现洪峰水位341.78米，相应流量758立方米每秒，超过警戒水位(341.47米)0.31米，
 
 ## 正文
 
-6月17日，外交部发言人林剑主持例行记者会。
+中新网重庆5月17日电 (记者 刘相琳)重庆市水利局17日发布2026年第1期编号洪水报告：受强降雨影响，秀山县梅江秀山(二)站水位于当日8时40分达到341.58米，超警戒水位0.11米，标志着“梅江2026年第1号洪水”已经形成。
 
-有记者提问，有报道称，美国商务部暂缓将多家中国企业列入出口管制实体清单。
+报告称，秀山县梅江秀山(二)站于17日10时05分出现洪峰水位341.78米，相应流量758立方米每秒，超过警戒水位(341.47米)0.31米，低于保证水位(343.31米)1.53米，涨幅5.28米，目前水位在持续回落。
 
-请问中方对此有何评论？
+重庆市水利局要求，秀山县要提高政治站位、坚持底线思维、克服疲劳、坚持值班值守；密切关注本轮降雨涨水过程、加密会商研判、做好预警预报；加强对河流巡查值守、建议涉河在建工程停止施工，漫水桥梁做好交通管制，禁止车辆行人通过；提前转移受威胁群众，全力保障人民群众生命安全。
 
-林剑表示，中方一贯反对美方泛化国家安全概念，滥用实体清单等出口管制的工具，遏制打压中方企业，美方应停止将经贸科技问题政治化、工具化、武器化。
+据重庆市水文监测总站监测，16日8时至17日8时，重庆大部分地区中到大雨，局地暴雨到大暴雨。
 
-（总台央视记者 王晨 申杨）责任编辑：刘万里 SF014
+大渡口、沙坪坝、九龙坡、南岸、北碚、巴南、江津、合川、黔江、武隆、秀山、酉阳、彭水等13个区县出现暴雨，其中秀山出现大暴雨。
+
+最大日降雨量出现在秀山县兰桥镇巨龙村，为179.0毫米。
+
+预计17日8时至19日8时，重庆部分中小河流可能出现不同程度涨水过程，个别河流可能超警。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:22 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-29 22:30 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-29 22:28 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-29 22:31 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 22:34 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 22:35 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 22:29 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 22:17 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-29 22:19 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 22:13 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-29 22:37 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 22:17 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 22:40 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-29 22:32 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-29 22:37 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 22:43 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-29 22:31 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 22:34 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 22:24 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 22:29 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-29 22:22 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 22:45 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 22:20 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 22:34 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-29 22:36 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-29 22:38 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-29 22:25 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:38 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/8275153347.shtml)
-- 2026-06-29 22:37 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.kurohicncr.top/Article/details/0078294800.shtml)
-- 2026-06-29 22:22 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/9213300.shtml)
-- 2026-06-29 22:12 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/45726477.shtml)
-- 2026-06-29 22:12 - [急先锋](http://www.share.kurohicncr.top/Article/details/6638538.shtml)
-- 2026-06-29 22:22 - [刘宇宁 好听](http://www.share.minike.top/Article/details/77302604.shtml)
-- 2026-06-29 22:19 - [DRG官宣选手Akeman离队](http://www.blog.kurohicncr.top/Article/details/737524924170.shtml)
-- 2026-06-29 22:28 - [极限挑战第一季](http://www.share.minike.top/Article/details/885682273.shtml)
-- 2026-06-29 22:22 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/8305821049.shtml)
-- 2026-06-29 22:13 - [女心理师](https://www.share.kurohicncr.top/Article/details/6061523.shtml)
-- 2026-06-29 22:18 - [美国一牛仔表演发生事故](http://www.share.minike.top/Article/details/03963941.shtml)
-- 2026-06-29 22:22 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/6144881786.shtml)
-- 2026-06-29 22:22 - [《恋与深空》回应争议](https://www.share.minike.top/Article/details/74759.shtml)
-- 2026-06-29 22:24 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/906184034.shtml)
-- 2026-06-29 22:24 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/0275693697.shtml)
+- 2026-06-29 22:28 - [上世纪90年代玩具成新宠](https://www.share.minike.top/Article/details/857335192351.shtml)
+- 2026-06-29 22:47 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/2525389.shtml)
+- 2026-06-29 22:33 - [乌克兰发广告全球征兵](https://www.blog.minike.top/Article/details/6431077.shtml)
+- 2026-06-29 22:41 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/603188707660.shtml)
+- 2026-06-29 22:39 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/99608078569.shtml)
+- 2026-06-29 22:41 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/445757.shtml)
+- 2026-06-29 22:20 - [时光音乐会](http://www.share.minike.top/Article/details/650030460209.shtml)
+- 2026-06-29 22:28 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.minike.top/Article/details/53970588762.shtml)
+- 2026-06-29 22:41 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/96465551.shtml)
+- 2026-06-29 22:19 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.minike.top/Article/details/55850072021.shtml)
+- 2026-06-29 22:21 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/61873931802.shtml)
+- 2026-06-29 22:39 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/218845.shtml)
+- 2026-06-29 22:29 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/54559.shtml)
+- 2026-06-29 22:20 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/88510.shtml)
+- 2026-06-29 22:23 - [毒液2](http://www.blog.kurohicncr.top/Article/details/15545598.shtml)

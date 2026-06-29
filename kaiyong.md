@@ -1,57 +1,58 @@
-# 黔江海关UPS电池更新及监控扩容升级项目比选公告
+# 离职的基金名将，都去哪儿了？
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-本项目需对黔江海关现有ups电源和监控储存设施进行更新升级，主要解决备用电力电源保障不足、环境湿度过高、存储容量不足等问题。通过UPS电池组扩容、部署专业除湿系统、配置电路安全管理一体机、扩展存储设备及更换故障部件，全面提升机房基础设施的安全性与监控存储连续性。 一、项目概况及招标范围(详见招标文件“第五章 技术商务要求”) 二、供应商资格要求 1.具有独立承担民事责任的能力〔
+【导读】离职基金经理最新迁徙图全景：一半去头部公募、一半选择“奔私”见习记者 闫军A股市场持续向好，公募基金行业“抢人大战”愈演愈烈，近期甚至传出某头部公募出手挖人反被其他公司“截胡”的消息。薪酬改革之下的人才挤出、头部平台的“虹吸效应”同时发力，再次勾勒出一幅“人往高处”的基金经理迁徙图。这一波的人才流动依然是两个方向，公募之间的横向平移与追逐更高收益的“奔私”。所不同的是，
 
 ## 正文
 
-本项目需对黔江海关现有ups电源和监控储存设施进行更新升级，主要解决备用电力电源保障不足、环境湿度过高、存储容量不足等问题。
+【导读】离职基金经理最新迁徙图全景：一半去头部公募、一半选择“奔私”见习记者 闫军A股市场持续向好，公募基金行业“抢人大战”愈演愈烈，近期甚至传出某头部公募出手挖人反被其他公司“截胡”的消息。
 
-通过UPS电池组扩容、部署专业除湿系统、配置电路安全管理一体机、扩展存储设备及更换故障部件，全面提升机房基础设施的安全性与监控存储连续性。
+薪酬改革之下的人才挤出、头部平台的“虹吸效应”同时发力，再次勾勒出一幅“人往高处”的基金经理迁徙图。
 
-一、项目概况及招标范围(详见招标文件“第五章 技术商务要求”) 二、供应商资格要求 1.具有独立承担民事责任的能力〔投标人应提供合法有效的营业执照复印件或扫描件并加盖投标人公章；不具备独立承担民事责任能力的，还需要提供具有独立承担民事责任能力的总公司对本项目的授权(提供总公司有效的营业执照复印件或扫描件及授权书并加盖投标人公章)〕； 2.具有良好的商业信誉和健全的财务会计制度(投标人应提供具有良好的商业信誉和健全的财务会计制度的书面承诺并加盖投标人公章)； 3.有依法缴纳税收和社会保障资金的良好记录(投标人应提供有依法缴纳税收和社会保障资金的良好记录的书面承诺并加盖投标人公章，以及在信用中国网站(https://www.creditchina.gov.cn)中重大税收违法失信主体的查询结果截图并加盖投标人公章)； 4.投标人不得存在的其他情形之一：
+这一波的人才流动依然是两个方向，公募之间的横向平移与追逐更高收益的“奔私”。
 
-三、比选文件的获取 获取时间：2026年6月16日起至提交响应文件截止时间前。
+所不同的是，人才聚集的“马太效应”更加明显。
 
-获取方式：在重庆海关官方网站 (https://www.creditchina.gov.cn/)自行下载本项目的比选文件、答疑、补遗等与本项目有关的所有资料，并随时关注本项目相关修改或补充内容。
+有公募基金人士调侃：“半个基金圈的离职基金经理都跑到易方达、天弘、广发、富国、中欧、永赢了。
 
-无论供应商下载与否，采购人都视为供应商已收到以上资料并全部知晓有关比选采购过程和事宜，由此产生的一切后果由供应商自负。
+”玩笑的背后，是当下公募行业人才的深度洗牌。
 
-售价：无。
+绩优基金经理流向公募大厂和特色化公司人才流动成为常态，基金公司投研人员的争夺已经白热化。
 
-四、响应文件的递交 1.提交响应文件时间：2026年6月23日10：00至10:30(北京时间)。
+观察这一波行情启动之前和当下的基金经理流动，易方达、天弘、广发、富国、中欧、永赢等公司的吸引力尤为明显。
 
 ## 相关推荐
 
-- 2026-06-29 22:33 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 22:16 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-29 22:17 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 22:25 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-29 22:39 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 22:34 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-29 22:26 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-29 22:23 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-29 22:22 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-29 22:24 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 22:30 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 22:43 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 22:33 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-29 22:41 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 22:27 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 22:46 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-29 22:27 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 22:22 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 22:43 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 22:23 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 22:23 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-29 22:40 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 22:27 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:37 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/132563.shtml)
-- 2026-06-29 22:30 - [斗破苍穹](http://www.share.minike.top/Article/details/139669584059.shtml)
-- 2026-06-29 22:36 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/060697214.shtml)
-- 2026-06-29 22:13 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/449517048438.shtml)
-- 2026-06-29 22:19 - [蔚来车主罚站](https://www.share.minike.top/Article/details/046081501.shtml)
-- 2026-06-29 22:27 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/1457161281.shtml)
-- 2026-06-29 22:41 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/53987505.shtml)
-- 2026-06-29 22:32 - [记者暗访养老机构消防安全](https://www.blog.minike.top/Article/details/045717.shtml)
-- 2026-06-29 22:17 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/60058.shtml)
-- 2026-06-29 22:29 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/18295737.shtml)
-- 2026-06-29 22:28 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/13898693003.shtml)
-- 2026-06-29 22:28 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.kurohicncr.top/Article/details/730915.shtml)
-- 2026-06-29 22:38 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/6843982062.shtml)
-- 2026-06-29 22:12 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/50911140149.shtml)
-- 2026-06-29 22:33 - [回顾世界杯争议事件](http://www.share.kurohicncr.top/Article/details/73695180.shtml)
+- 2026-06-29 22:18 - [朱雀三号完成静态点火试验](https://www.blog.kurohicncr.top/Article/details/153321.shtml)
+- 2026-06-29 22:27 - [巴西10号球衣是天才传承史](http://www.share.minike.top/Article/details/88042717.shtml)
+- 2026-06-29 22:18 - [委内瑞拉发生余震](https://www.blog.kurohicncr.top/Article/details/68385485.shtml)
+- 2026-06-29 22:46 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/560328307.shtml)
+- 2026-06-29 22:36 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/2132088.shtml)
+- 2026-06-29 22:23 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/611521.shtml)
+- 2026-06-29 22:20 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/113636745883.shtml)
+- 2026-06-29 22:32 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/90704707.shtml)
+- 2026-06-29 22:24 - [半导体和股市为何没让韩国人起飞](https://www.blog.kurohicncr.top/Article/details/504095.shtml)
+- 2026-06-29 22:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/7306503.shtml)
+- 2026-06-29 22:34 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/13546583.shtml)
+- 2026-06-29 22:46 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/599454.shtml)
+- 2026-06-29 22:43 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/18372.shtml)
+- 2026-06-29 22:46 - [高考1357分的同学如何报志愿？](http://www.share.kurohicncr.top/Article/details/246385504605.shtml)
+- 2026-06-29 22:37 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/21881862.shtml)

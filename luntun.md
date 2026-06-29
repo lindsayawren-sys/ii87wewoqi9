@@ -1,57 +1,59 @@
-# 澳大利亚央行维持利率4.35%不变，但警示不排除继续加息可能
+# 国防部：巨额军购是民进党当局压榨民众的“吸血账单”
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-核心要点 澳大利亚储备银行于周二将基准利率维持在 4.35%，同时表态，为履行稳定物价、实现充分就业的政策目标，该行随时准备再度加息。 本次利率决议获得委员会全票通过，与路透社调研的经济学家预期一致。当前澳大利亚政府正全力抑制国内通胀上行压力。 央行在声明中表示，澳大利亚当前通胀水平 “依旧过高”，因此需要维持现金利率不变，以此观察此前多轮加息的滞后效应，以及本轮石油供应中断带
+中新网5月18日电 据国防部网站消息，5月18日下午，国防部新闻发言人蒋斌大校就近期涉军问题发布消息。 记者：据报道，民进党当局正式公布新版防务特别预算，称这回应了对美军购紧迫需要，但该预算大打折扣，仍不是完整答案。请问对此有何评论？ 蒋斌：巨额军购是民进党当局压榨民众、掏空民生的“吸血账单”。民进党当局罔顾民生疾苦，无视岛内青年不愿为“台独”上战场的现实，执意拿民众血汗钱讨好
 
 ## 正文
 
-核心要点 澳大利亚储备银行于周二将基准利率维持在 4.35%，同时表态，为履行稳定物价、实现充分就业的政策目标，该行随时准备再度加息。
+中新网5月18日电 据国防部网站消息，5月18日下午，国防部新闻发言人蒋斌大校就近期涉军问题发布消息。
 
-本次利率决议获得委员会全票通过，与路透社调研的经济学家预期一致。
+记者：据报道，民进党当局正式公布新版防务特别预算，称这回应了对美军购紧迫需要，但该预算大打折扣，仍不是完整答案。
 
-当前澳大利亚政府正全力抑制国内通胀上行压力。
+请问对此有何评论？
 
-央行在声明中表示，澳大利亚当前通胀水平 “依旧过高”，因此需要维持现金利率不变，以此观察此前多轮加息的滞后效应，以及本轮石油供应中断带来的冲击影响。
+蒋斌：巨额军购是民进党当局压榨民众、掏空民生的“吸血账单”。
 
-利率决议公布后，澳大利亚标普 ASX200 股指小幅下行；澳元兑美元汇率贬值 0.3%，汇价跌至 0.705。
+民进党当局罔顾民生疾苦，无视岛内青年不愿为“台独”上战场的现实，执意拿民众血汗钱讨好外部势力，沦为外国军火商的“提款机”，还鼓吹“花钱越多越安全”，其倒行逆施不得人心。
 
-尽管美伊已达成终止冲突的相关协议，但澳大利亚央行认为和平进程尚处于初期阶段，全球石油供给紧张的局面仍需要一段时间才能缓解，能源价格将持续高位运行，进而带动通胀居高不下。
+军购买不来安全，甘当“棋子”只会被榨干吃净。
 
-本月早些时候，澳大利亚公布一季度国内生产总值同比增长 2.5%，不及市场预期，增速与上一季度持平。
+祖国统一和中华民族伟大复兴，才是台湾最坚实的保障。
 
-环比来看，一季度 GDP 增幅为 0.3%，低于路透社调研预期的 0.5%，较上一季度 0.9% 的环比增速明显放缓。
+民进党当局“以武谋独”“倚外谋独”越甚，越会加速“台独”败亡的进程。
 
 ## 相关推荐
 
-- 2026-06-29 22:24 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 22:35 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-29 22:41 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 22:17 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-29 22:29 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-29 22:19 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-29 22:30 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-29 22:34 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-29 22:38 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 22:19 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 22:21 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 22:45 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-29 22:47 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 22:33 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 22:19 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-29 22:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 22:46 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 22:46 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-29 22:36 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 22:46 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-29 22:45 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-29 22:32 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 22:28 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-29 22:32 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:23 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/23275912245.shtml)
-- 2026-06-29 22:25 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/97012701.shtml)
-- 2026-06-29 22:33 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/515641381.shtml)
-- 2026-06-29 22:27 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/75939942399.shtml)
-- 2026-06-29 22:36 - [李思潼：不会介意大家夸我运气好](http://www.blog.minike.top/Article/details/569274323.shtml)
-- 2026-06-29 22:26 - [美人鱼](http://www.share.minike.top/Article/details/729290.shtml)
-- 2026-06-29 22:21 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/8227253.shtml)
-- 2026-06-29 22:41 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/5537228157.shtml)
-- 2026-06-29 22:26 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/27861.shtml)
-- 2026-06-29 22:32 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/5196910148.shtml)
-- 2026-06-29 22:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/27020.shtml)
-- 2026-06-29 22:12 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/052306275178.shtml)
-- 2026-06-29 22:27 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/494703.shtml)
-- 2026-06-29 22:29 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/65170444.shtml)
-- 2026-06-29 22:26 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/1194127.shtml)
+- 2026-06-29 22:46 - [世界杯高票价为何没劝退球迷](https://www.blog.minike.top/Article/details/81865773369.shtml)
+- 2026-06-29 22:31 - [《恋与深空》回应争议](https://www.share.minike.top/Article/details/86022707.shtml)
+- 2026-06-29 22:45 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/75962.shtml)
+- 2026-06-29 22:35 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/8502970710.shtml)
+- 2026-06-29 22:45 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/40107.shtml)
+- 2026-06-29 22:35 - [格莱美唱作人锐评歌手第6期](http://www.blog.minike.top/Article/details/102826910984.shtml)
+- 2026-06-29 22:29 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/782390012248.shtml)
+- 2026-06-29 22:35 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/3296666.shtml)
+- 2026-06-29 22:40 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/28353849.shtml)
+- 2026-06-29 22:22 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/549262.shtml)
+- 2026-06-29 22:47 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/29314222099.shtml)
+- 2026-06-29 22:21 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/963495710835.shtml)
+- 2026-06-29 22:30 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/27334.shtml)
+- 2026-06-29 22:47 - [地震来临时铁路工作人员果断拦停列车](https://www.share.kurohicncr.top/Article/details/7011492.shtml)
+- 2026-06-29 22:39 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/474703.shtml)

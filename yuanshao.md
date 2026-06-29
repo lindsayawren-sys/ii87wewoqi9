@@ -1,50 +1,48 @@
-# 方星海：内地一批量化机构已比肩国际一流 建议香港着力吸引其落户
+# 中国生态旅游获授股份转让的认可令
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，中国证券监督管理委员会原副主席、中国金融学会副会长方星海表示，香港一直致力于吸引国际机构投资者落户。与此同时，内地机构投资者近年发展迅速，一批量化投资机构成长得很好、管理能力强，技术水平提升快，与国际上最好的量化机构相比也不逊色。他了解到，这些机构非常愿意在香港拓展业务，既可在香港
+中国生态旅游（01371）发布公告，本公司已就该呈请向香港高等法院申请关于本公司股份转让的认可令，该申请已于2026年5月15日获香港高等法院批准。 在本公司获授认可令后，尽管已提出该呈请，自提呈该呈请之日起，所有本公司已发行及缴足股份的转让均不会因《公司（清盘及杂项条文）条例》第182条而属无效。责任编辑：卢昱君
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，中国证券监督管理委员会原副主席、中国金融学会副会长方星海表示，香港一直致力于吸引国际机构投资者落户。
+中国生态旅游（01371）发布公告，本公司已就该呈请向香港高等法院申请关于本公司股份转让的认可令，该申请已于2026年5月15日获香港高等法院批准。
 
-与此同时，内地机构投资者近年发展迅速，一批量化投资机构成长得很好、管理能力强，技术水平提升快，与国际上最好的量化机构相比也不逊色。
+在本公司获授认可令后，尽管已提出该呈请，自提呈该呈请之日起，所有本公司已发行及缴足股份的转让均不会因《公司（清盘及杂项条文）条例》第182条而属无效。
 
-他了解到，这些机构非常愿意在香港拓展业务，既可在香港市场交易，也可通过“两通”交易内地的产品。
-
-他建议，香港金融管理部门应着力吸引内地量化机构落户香港，香港、上海、深圳可以联合运作，对吸引更多国际资金投资香港和内地都将起到很好的作用。
-
-责任编辑：石秀珍 SF183
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:18 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-29 22:38 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-29 22:14 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-29 22:12 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-29 22:12 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-29 22:16 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 22:34 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 22:41 - [上世纪90年代玩具成新宠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-29 22:34 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-29 22:40 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 22:36 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 22:39 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 22:32 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-29 22:32 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 22:20 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-29 22:46 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 22:22 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-29 22:20 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 22:30 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-29 22:45 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 22:21 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 22:33 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:16 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/84187516.shtml)
-- 2026-06-29 22:24 - [锐评T1零封KC](https://www.share.minike.top/Article/details/633725246529.shtml)
-- 2026-06-29 22:39 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/01181183997.shtml)
-- 2026-06-29 22:30 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/877823139.shtml)
-- 2026-06-29 22:26 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/716887.shtml)
-- 2026-06-29 22:17 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/7174039590.shtml)
-- 2026-06-29 22:12 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/134293767551.shtml)
-- 2026-06-29 22:22 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/84102567909.shtml)
-- 2026-06-29 22:22 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/24230132286.shtml)
-- 2026-06-29 22:35 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/8036111477.shtml)
-- 2026-06-29 22:39 - [急先锋](https://www.blog.minike.top/Article/details/304382725065.shtml)
-- 2026-06-29 22:17 - [曝iPhone涨价后不会再降](http://www.share.minike.top/Article/details/54986.shtml)
-- 2026-06-29 22:35 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/81661722.shtml)
-- 2026-06-29 22:30 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/080004.shtml)
-- 2026-06-29 22:23 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/582501294.shtml)
+- 2026-06-29 22:23 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/07662.shtml)
+- 2026-06-29 22:26 - [穆祉丞东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/682013422058.shtml)
+- 2026-06-29 22:45 - [巴黎区长紧急采购50台中国空调](https://www.share.minike.top/Article/details/97404527859.shtml)
+- 2026-06-29 22:28 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/184424947.shtml)
+- 2026-06-29 22:24 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/091682563108.shtml)
+- 2026-06-29 22:26 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.minike.top/Article/details/8936356348.shtml)
+- 2026-06-29 22:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/78067067.shtml)
+- 2026-06-29 22:38 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/15257672517.shtml)
+- 2026-06-29 22:27 - [杨德龙：创新药迎来新的发展机遇](https://www.share.minike.top/Article/details/07848.shtml)
+- 2026-06-29 22:44 - [扬名立万](http://www.share.minike.top/Article/details/983910089.shtml)
+- 2026-06-29 22:45 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/89404.shtml)
+- 2026-06-29 22:30 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/1298736393.shtml)
+- 2026-06-29 22:26 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/27823732.shtml)
+- 2026-06-29 22:29 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/46856830.shtml)
+- 2026-06-29 22:24 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/28144657953.shtml)

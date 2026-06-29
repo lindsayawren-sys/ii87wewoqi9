@@ -1,53 +1,59 @@
-# 我国成功发射实践三十一号卫星
+# 从市集交友到集体婚礼 上海多区开启浪漫之约
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-中新网北京6月16日电(马帅莎 崔婉莹)北京时间6月16日17时45分，我国在西昌卫星发射中心使用长征三号乙运载火箭，成功将实践三十一号卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。该卫星主要用于空间环境探测。 此次任务是长征系列运载火箭的第651次飞行。(完)
+中新网上海5月16日电 (高志苗)16日，来自上海、南京、无锡、常州、苏州、南通、扬州、镇江、泰州的52对新人，奔赴上海普陀，在城市绿草坪上许下相守一生的诺言。 “2026苏河婚典——爱在普陀·TOP LOVE”活动同日举行。婚典以“九城共赴·为爱缘聚、同心相伴·以爱为期、盟誓永恒·钟守一生”三大篇章串联，将传统婚仪与现代文明巧妙融合，每一处细节都藏着浪漫与匠心。 作为5月“爱
 
 ## 正文
 
-中新网北京6月16日电(马帅莎 崔婉莹)北京时间6月16日17时45分，我国在西昌卫星发射中心使用长征三号乙运载火箭，成功将实践三十一号卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。
+中新网上海5月16日电 (高志苗)16日，来自上海、南京、无锡、常州、苏州、南通、扬州、镇江、泰州的52对新人，奔赴上海普陀，在城市绿草坪上许下相守一生的诺言。
 
-该卫星主要用于空间环境探测。
+“2026苏河婚典——爱在普陀·TOP LOVE”活动同日举行。
 
-此次任务是长征系列运载火箭的第651次飞行。
+婚典以“九城共赴·为爱缘聚、同心相伴·以爱为期、盟誓永恒·钟守一生”三大篇章串联，将传统婚仪与现代文明巧妙融合，每一处细节都藏着浪漫与匠心。
 
-(完)
+作为5月“爱在普陀·甜蜜月”期间的重要活动，本届苏河婚典延续沿沪宁八市一区联动模式，以“爱在普陀·TOP LOVE·TOP LIVE·TOP LIFE”为核心主题，把城市情怀、时代精神与甜蜜仪式融为一体，以婚典为载体推动甜蜜氛围与文旅场景深度联动，打造贴合沿沪宁产业创新带区域协同特色的浪漫盛典，更以简约而庄重的仪式，传递文明婚俗新风，彰显普陀幸福城区温度。
+
+在闵行区，爱在大虹桥·上海青年益友活动暨2026“青春合拍，潮力觉醒”青年互动市集同期举行。
+
+150名来自各行各业的优质青年相聚于此，在草坪、晚风、烟火市集里，解锁属于当代年轻人的松弛社交。
+
+活动现场设置多处氛围感打卡点位，包括大型猫咪装置、浪漫10米缘分墙等。
+
+咖啡手作体验区人气满满，青年们亲手践行环保理念，制作咖啡渣盆栽，填土、造景、装饰，在慢悠悠的制作过程中，缓解陌生拘谨，拉近彼此距离。
 
 ## 相关推荐
 
-- 2026-06-29 22:23 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-29 22:16 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 22:35 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-29 22:20 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-29 22:21 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-29 22:30 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 22:24 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 22:35 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-29 22:39 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 22:20 - [上世纪90年代玩具成新宠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 22:19 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 22:28 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 22:28 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 22:28 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 22:25 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-29 22:46 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-29 22:24 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 22:28 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 22:46 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 22:37 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 22:31 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 22:40 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 22:41 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 22:36 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-29 22:42 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 22:47 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 22:20 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-29 22:36 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:38 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/05626.shtml)
-- 2026-06-29 22:37 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/9625877259.shtml)
-- 2026-06-29 22:20 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/449475267.shtml)
-- 2026-06-29 22:39 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/362854.shtml)
-- 2026-06-29 22:30 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/560620593.shtml)
-- 2026-06-29 22:21 - [福建海警位金门附近海域常态执法巡查](https://www.blog.kurohicncr.top/Article/details/390337588365.shtml)
-- 2026-06-29 22:32 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/7767489801.shtml)
-- 2026-06-29 22:22 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/89363.shtml)
-- 2026-06-29 22:29 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/142447.shtml)
-- 2026-06-29 22:24 - [周生如故](http://www.blog.minike.top/Article/details/47348565.shtml)
-- 2026-06-29 22:26 - [月亮](https://www.blog.minike.top/Article/details/0447857.shtml)
-- 2026-06-29 22:25 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/986932.shtml)
-- 2026-06-29 22:19 - [东方风云榜](https://www.blog.minike.top/Article/details/834424262523.shtml)
-- 2026-06-29 22:21 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/254934733.shtml)
-- 2026-06-29 22:38 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/6680049615.shtml)
+- 2026-06-29 22:25 - [存储三巨头被告了](https://www.share.minike.top/Article/details/30382084669.shtml)
+- 2026-06-29 22:31 - [厨房装空调还是装冷烟机](https://www.share.minike.top/Article/details/07376521774.shtml)
+- 2026-06-29 22:19 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.kurohicncr.top/Article/details/602940598.shtml)
+- 2026-06-29 22:34 - [律师解读滚石唱片要求万豪酒店道歉](https://www.blog.kurohicncr.top/Article/details/3048871066.shtml)
+- 2026-06-29 22:28 - [东方风云榜](https://www.blog.minike.top/Article/details/81035.shtml)
+- 2026-06-29 22:34 - [女生学医适合选什么专业](http://www.blog.kurohicncr.top/Article/details/070496193.shtml)
+- 2026-06-29 22:21 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/429320344.shtml)
+- 2026-06-29 22:44 - [时光音乐会](http://www.share.minike.top/Article/details/52389473240.shtml)
+- 2026-06-29 22:20 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/3480294200.shtml)
+- 2026-06-29 22:42 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/9248476663.shtml)
+- 2026-06-29 22:25 - [佛得角队长门德斯被控强奸](http://www.share.minike.top/Article/details/479422480564.shtml)
+- 2026-06-29 22:33 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/21216070.shtml)
+- 2026-06-29 22:18 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/4893007065.shtml)
+- 2026-06-29 22:35 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/207557828177.shtml)
+- 2026-06-29 22:29 - [男子称在京东买到“同仁堂”假药](https://www.share.kurohicncr.top/Article/details/158947.shtml)

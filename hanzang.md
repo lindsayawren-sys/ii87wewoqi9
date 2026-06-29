@@ -1,58 +1,60 @@
-# 酒价内参6月17日价格发布：国窖1573下跌4元
+# 来华留学生福建学习传统制茶技艺感受民俗文化
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月17日整体小幅回落。如果主要单品各取一瓶整体打包售卖，今日总售价为9925元，较昨日微幅下跌2元，连续两日回落并创下三天以来最低。今日总价虽然自6月15日创下的23天以来最高位持续回落，但仍处于进入六月以来相对高位，终端交投情绪环比基
+中新网武夷山5月16日电 (记者 张丽君)眼下正值福建春茶采摘制作旺季，海外社交平台火爆出圈的“成为中国人”文化热潮，已然从线上互动走向线下实地体验。连日来，众多来华留学生走进福建各大茶区，亲身沉浸式感受源远流长的中华传统茶文化。 近日，在武夷山，来自哈萨克斯坦、俄罗斯等国的留学生跟随老师，学习武夷岩茶采摘、手工制作等传统技艺，体验雅致的宋代点茶技艺。 “我从未想到茶汤还能作画
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月17日整体小幅回落。
+中新网武夷山5月16日电 (记者 张丽君)眼下正值福建春茶采摘制作旺季，海外社交平台火爆出圈的“成为中国人”文化热潮，已然从线上互动走向线下实地体验。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9925元，较昨日微幅下跌2元，连续两日回落并创下三天以来最低。
+连日来，众多来华留学生走进福建各大茶区，亲身沉浸式感受源远流长的中华传统茶文化。
 
-今日总价虽然自6月15日创下的23天以来最高位持续回落，但仍处于进入六月以来相对高位，终端交投情绪环比基本稳定，但核心单品的涨跌分化依然显著。
+近日，在武夷山，来自哈萨克斯坦、俄罗斯等国的留学生跟随老师，学习武夷岩茶采摘、手工制作等传统技艺，体验雅致的宋代点茶技艺。
 
-今日11大白酒单品四涨六跌一平，输家占据优势。
+“我从未想到茶汤还能作画。
 
-上涨方面，青花郎涨幅居前，上涨7元/瓶，重新站上700元关口，创进入六月以来最高价；五粮液普五八代与五粮液1618均上涨5元/瓶，其中后者创近一月最大单日涨幅，自昨日创下的近一月最低点快速升至近一月次高位；水晶剑南春小幅上涨1元/瓶。
+”哈萨克斯坦留学生古丽娜体验完宋代点茶后满是惊喜。
 
-下跌方面，古井贡古20跌幅居前，下跌5元/瓶；国窖1573、洋河梦之蓝M6+与习酒君品均下跌4元/瓶，其中国窖1573连续两日回落，但仍守住880元关口，洋河梦之蓝M6+再度跌落600元大关，习酒君品结束此前三连阳，但仍处于进入六月以来高位；飞天茅台下跌2元/瓶；青花汾20小幅下跌1元/瓶，价格回落至月内最低位。
+她说，通过亲手轻摘鲜嫩茶芽，在茶汤之上勾勒竹梅清雅纹样，真切领略到中式生活独有的雅致美学。
 
-精品茅台价格环比保持不变。
+据悉，武夷岩茶(大红袍)制作技艺于2006年被列入第一批国家级非物质文化遗产名录。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+武夷学院郑慕蓉技能大师工作室负责人郑慕蓉介绍，工作室以武夷茶艺、岩茶制作技艺为传播核心，推行中英双语教学模式，面向海外学子普及推广正宗中国茶文化，让海外民众读懂中国茶、爱上中国茶。
 
 ## 相关推荐
 
-- 2026-06-29 22:19 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 22:24 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 22:20 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-29 22:18 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-29 22:39 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-29 22:19 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 22:25 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-29 22:38 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-29 22:25 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 22:20 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-29 22:38 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-29 22:34 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 22:30 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 22:36 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 22:29 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-29 22:24 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 22:24 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-29 22:25 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 22:45 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-29 22:20 - [佛得角队长门德斯被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-29 22:34 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-29 22:22 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 22:42 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-29 22:32 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 22:19 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-29 22:28 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:41 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/946790577504.shtml)
-- 2026-06-29 22:20 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/7470016871.shtml)
-- 2026-06-29 22:31 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/473261082290.shtml)
-- 2026-06-29 22:33 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/79259584.shtml)
-- 2026-06-29 22:35 - [孙俪开QQ的蛮好生活](https://www.blog.kurohicncr.top/Article/details/56633683.shtml)
-- 2026-06-29 22:41 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/501099026.shtml)
-- 2026-06-29 22:18 - [世界杯](http://www.share.minike.top/Article/details/11584321.shtml)
-- 2026-06-29 22:35 - [佛得角队长门德斯被控强奸](http://www.blog.kurohicncr.top/Article/details/45268123400.shtml)
-- 2026-06-29 22:16 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/168075.shtml)
-- 2026-06-29 22:14 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/44663.shtml)
-- 2026-06-29 22:34 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/335971.shtml)
-- 2026-06-29 22:21 - [温网](http://www.share.minike.top/Article/details/9480611.shtml)
-- 2026-06-29 22:15 - [中外合作办学是“低分捷径”吗](https://www.blog.minike.top/Article/details/567032532.shtml)
-- 2026-06-29 22:28 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/7953052.shtml)
-- 2026-06-29 22:26 - [曼城官宣马雷斯卡出任主教练](https://www.blog.minike.top/Article/details/694748.shtml)
+- 2026-06-29 22:45 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/89326042553.shtml)
+- 2026-06-29 22:20 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/42790062084.shtml)
+- 2026-06-29 22:44 - [齐思钧回复孙怡](http://www.blog.kurohicncr.top/Article/details/3920287.shtml)
+- 2026-06-29 22:34 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/98199637.shtml)
+- 2026-06-29 22:32 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/5553210201.shtml)
+- 2026-06-29 22:47 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/2998648.shtml)
+- 2026-06-29 22:40 - [金刚川](http://www.share.minike.top/Article/details/753994619982.shtml)
+- 2026-06-29 22:41 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/25000981.shtml)
+- 2026-06-29 22:18 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/157393280.shtml)
+- 2026-06-29 22:40 - [爱奇艺抬高国剧新标尺](http://www.blog.kurohicncr.top/Article/details/26398424403.shtml)
+- 2026-06-29 22:25 - [周生如故](https://www.blog.minike.top/Article/details/800776406.shtml)
+- 2026-06-29 22:37 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/925125.shtml)
+- 2026-06-29 22:29 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/20291929385.shtml)
+- 2026-06-29 22:36 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/35327.shtml)
+- 2026-06-29 22:42 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.kurohicncr.top/Article/details/58907328.shtml)

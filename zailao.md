@@ -1,61 +1,57 @@
-# 国台办：两岸越早实现统一，越有利于台胞过上好日子
+# 134小时的ICU时光 被一本日记完整珍藏
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-中新社北京6月17日电 (黄欣欣 刘大炜)台湾桃园市“发展教育基金会”近日发表民调指出，台湾民众虽仍多数赞成两岸政治谈判，但已从2018年的77.7%降至今年的61.6%。国务院台办新闻发言人陈斌华17日表示，越早实现统一，越有利于台湾发展，越有利于台湾同胞过上更好日子。国台办当日在北京举行例行新闻发布会。陈斌华回答相关问题时说，注意到近期岛内多项民调，显示多数民众认为现状不可
+从4月2日凌晨两点上机，这台机器整整陪了你134个小时十分钟。 你今天没有惊心动魄的抢救，按部就班，稳中向好。每天最喜欢听到医生和护士跟我说：慢慢来，情况是越来越好。 一个多月前，肖丹丹因为急性心梗，住进了医院重症医学科。由于病情危重，她意识模糊，身上插着不少管子。等她完全苏醒后，那段时光的记忆，就像被人偷走了一样，怎么也想不起来。 这位小伙，名叫孙国涛，是ICU的护士。两年前
 
 ## 正文
 
-中新社北京6月17日电 (黄欣欣 刘大炜)台湾桃园市“发展教育基金会”近日发表民调指出，台湾民众虽仍多数赞成两岸政治谈判，但已从2018年的77.7%降至今年的61.6%。
+从4月2日凌晨两点上机，这台机器整整陪了你134个小时十分钟。
 
-国务院台办新闻发言人陈斌华17日表示，越早实现统一，越有利于台湾发展，越有利于台湾同胞过上更好日子。
+你今天没有惊心动魄的抢救，按部就班，稳中向好。
 
-国台办当日在北京举行例行新闻发布会。
+每天最喜欢听到医生和护士跟我说：慢慢来，情况是越来越好。
 
-陈斌华回答相关问题时说，注意到近期岛内多项民调，显示多数民众认为现状不可持续，台湾应主动寻求与大陆谈判两岸统一。
+一个多月前，肖丹丹因为急性心梗，住进了医院重症医学科。
 
-两岸关系发展历程证明，以对话取代对抗、以合作取代争斗、以双赢取代零和，两岸关系才能行稳致远。
+由于病情危重，她意识模糊，身上插着不少管子。
 
-我们愿意在坚持“九二共识”、反对“台独”的共同政治基础上，同台湾各政党、团体和社会各界人士一道，加强交流对话，推进政治谈判，就两岸关系和民族未来开展广泛深入的民主协商。
+等她完全苏醒后，那段时光的记忆，就像被人偷走了一样，怎么也想不起来。
 
-他指出，近年来，民进党当局及其侧翼以唱衰大陆经济、诋毁大陆发展为能事，为其推动两岸“脱钩断链”、升高两岸对立对抗制造借口。
+这位小伙，名叫孙国涛，是ICU的护士。
 
-但不管他们说什么、怎么说，都掩盖不了大陆经济基础稳、优势多、韧性强、潜能大、长期向好、稳定向好的基本面，改变不了两岸实力对比日益悬殊的客观事实，阻挡不了两岸同胞走亲走近、走到一起的大潮流。
+两年前，他还在兰州医院实习时，就一直利用休息时间为患者记录这些“被偷走的时光”。
 
 ## 相关推荐
 
-- 2026-06-29 22:15 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 22:21 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 22:20 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 22:14 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-29 22:33 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-29 22:30 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-29 22:23 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 22:38 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 22:13 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-29 22:35 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-29 22:27 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 22:21 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-29 22:32 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-29 22:35 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-29 22:38 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 22:20 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 22:42 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 22:31 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-29 22:25 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 22:26 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 22:33 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 22:43 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 22:30 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 22:47 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 22:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-29 22:45 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:41 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/116367141328.shtml)
-- 2026-06-29 22:20 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/10953.shtml)
-- 2026-06-29 22:29 - [天道](https://www.blog.minike.top/Article/details/52744.shtml)
-- 2026-06-29 22:29 - [一见倾心](http://www.share.minike.top/Article/details/7803185645.shtml)
-- 2026-06-29 22:36 - [急先锋](http://www.share.kurohicncr.top/Article/details/2478180.shtml)
-- 2026-06-29 22:19 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/8975923343.shtml)
-- 2026-06-29 22:13 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/28458.shtml)
-- 2026-06-29 22:24 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/69155816961.shtml)
-- 2026-06-29 22:13 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/82629850206.shtml)
-- 2026-06-29 22:32 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/10146659.shtml)
-- 2026-06-29 22:34 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/895920709842.shtml)
-- 2026-06-29 22:29 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.kurohicncr.top/Article/details/3465032939.shtml)
-- 2026-06-29 22:12 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/5685029873.shtml)
-- 2026-06-29 22:39 - [第一炉香](https://www.blog.minike.top/Article/details/65400376432.shtml)
-- 2026-06-29 22:12 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/4343951.shtml)
+- 2026-06-29 22:27 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/439871372.shtml)
+- 2026-06-29 22:41 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/26177317.shtml)
+- 2026-06-29 22:44 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/47165207332.shtml)
+- 2026-06-29 22:47 - [逃狱兄弟](https://www.blog.minike.top/Article/details/00474228.shtml)
+- 2026-06-29 22:21 - [原来周杰伦的龙拳是广告歌](http://www.blog.kurohicncr.top/Article/details/7948702.shtml)
+- 2026-06-29 22:19 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/232093330186.shtml)
+- 2026-06-29 22:25 - [律师解读滚石唱片要求万豪酒店道歉](http://www.share.minike.top/Article/details/954421.shtml)
+- 2026-06-29 22:21 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/78815951824.shtml)
+- 2026-06-29 22:21 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/0626667368.shtml)
+- 2026-06-29 22:31 - [英法德葡存在什么隐患](https://www.blog.kurohicncr.top/Article/details/38185.shtml)
+- 2026-06-29 22:28 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/86182509.shtml)
+- 2026-06-29 22:22 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/646363730135.shtml)
+- 2026-06-29 22:28 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/27330199.shtml)
+- 2026-06-29 22:38 - [明星大侦探第四季](https://www.share.minike.top/Article/details/73703914.shtml)
+- 2026-06-29 22:29 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/73100666.shtml)

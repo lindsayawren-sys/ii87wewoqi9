@@ -1,50 +1,46 @@
-# 预测平台押注美联储新主席沃什首秀关键词
+# 加拿大确诊一例汉坦病毒感染病例
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-凯文・沃什将于今日晚些时候以美联储主席身份首次召开新闻发布会，投资者注定会听到不少措辞上的意外之处。 部分交易员已在预测市场平台Polymarket押注相关话题。依托今日事件合约价格所隐含的概率，以下是交易员针对沃什可能提及的各类表述押注的相关概率： “通胀”一词至少出现40次：概率45% 提及杰罗姆・鲍威尔：概率68% 提及特朗普：概率20% 提及人工智能（AI）：概率67%
+发布时间：2026年05月18日 13:43 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-凯文・沃什将于今日晚些时候以美联储主席身份首次召开新闻发布会，投资者注定会听到不少措辞上的意外之处。
-
-部分交易员已在预测市场平台Polymarket押注相关话题。
-
-依托今日事件合约价格所隐含的概率，以下是交易员针对沃什可能提及的各类表述押注的相关概率： “通胀”一词至少出现40次：概率45% 提及杰罗姆・鲍威尔：概率68% 提及特朗普：概率20% 提及人工智能（AI）：概率67% 提及资产负债表：概率76% 说出“我不清楚”：概率22% 开场白说“下午好”：概率77% 提及加密货币/比特币：概率14%责任编辑：陈钰嘉
+发布时间：2026年05月18日 13:43 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 22:24 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 22:21 - [福建海警位金门附近海域常态执法巡查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 22:38 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 22:12 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-29 22:13 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-29 22:21 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 22:12 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-29 22:41 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 22:16 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 22:37 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-29 22:35 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 22:24 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 22:15 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-29 22:21 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-29 22:44 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-29 22:45 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-29 22:43 - [世界杯高票价为何没劝退球迷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-29 22:29 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 22:19 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 22:38 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 22:29 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-29 22:39 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-29 22:28 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 22:39 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-29 22:22 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-29 22:31 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-29 22:47 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-29 22:46 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:30 - [世界杯高票价为何没劝退球迷](http://www.share.minike.top/Article/details/48116786.shtml)
-- 2026-06-29 22:39 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/0627185.shtml)
-- 2026-06-29 22:24 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/6106908798.shtml)
-- 2026-06-29 22:34 - [乌是否掌握了扭转战局的钥匙](http://www.share.minike.top/Article/details/9282662.shtml)
-- 2026-06-29 22:13 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/76081.shtml)
-- 2026-06-29 22:17 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/394890750.shtml)
-- 2026-06-29 22:17 - [记者乘坐无人驾驶汽车去采访](http://www.share.minike.top/Article/details/093992.shtml)
-- 2026-06-29 22:39 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/81548841954.shtml)
-- 2026-06-29 22:15 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/66023813.shtml)
-- 2026-06-29 22:35 - [一见倾心](https://www.share.minike.top/Article/details/5001382588.shtml)
-- 2026-06-29 22:29 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/747283294.shtml)
-- 2026-06-29 22:29 - [沉睡花园](http://www.blog.minike.top/Article/details/8031327303.shtml)
-- 2026-06-29 22:34 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/95281183.shtml)
-- 2026-06-29 22:29 - [网约车出事故平台拒赔称只是中介](http://www.share.minike.top/Article/details/664207023646.shtml)
-- 2026-06-29 22:31 - [王鸿薇要求删陆委会百余万特别费](https://www.share.minike.top/Article/details/085457.shtml)
+- 2026-06-29 22:22 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/56137.shtml)
+- 2026-06-29 22:31 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/22246179536.shtml)
+- 2026-06-29 22:18 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/489720.shtml)
+- 2026-06-29 22:18 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/367589574.shtml)
+- 2026-06-29 22:40 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/6019007918.shtml)
+- 2026-06-29 22:26 - [曼城官宣马雷斯卡出任主教练](https://www.blog.kurohicncr.top/Article/details/4992259.shtml)
+- 2026-06-29 22:31 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/978524.shtml)
+- 2026-06-29 22:44 - [存储三巨头被告了](https://www.share.minike.top/Article/details/076613704.shtml)
+- 2026-06-29 22:18 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/94118011.shtml)
+- 2026-06-29 22:23 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/6041988143.shtml)
+- 2026-06-29 22:21 - [青春环游记第三季](http://www.share.minike.top/Article/details/6978540859.shtml)
+- 2026-06-29 22:35 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/517607.shtml)
+- 2026-06-29 22:37 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/667092.shtml)
+- 2026-06-29 22:41 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/03052.shtml)
+- 2026-06-29 22:43 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/6022634.shtml)

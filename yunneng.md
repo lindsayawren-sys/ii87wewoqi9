@@ -1,54 +1,57 @@
-# 意大利监管机构依据欧盟数字法对苹果iCloud服务展开调查
+# 司美格鲁肽“减肥针”按新规不得网售，但电商仍在打“擦边球”
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-意大利反垄断监管机构周二表示，已对苹果公司展开调查，以查明其是否遵守了《欧洲数字市场法》规定的互操作性义务。 根据该法规定，苹果必须确保第三方消费者云服务提供商能够与通过苹果iOS和iPadOS操作系统控制的硬件和软件组件有效且免费地互操作，并享有与苹果iCloud服务同等的访问权限。 该机构在声明中表示，他们有证据表明，其他消费者云服务提供商不可能与iCloud处于相同的地位
+界面新闻记者 | 黄华 界面新闻编辑 | 谢欣 进入5月，以司美格鲁肽、替尔泊肽等为代表的GLP-1类减肥药物的电商销售迎来新变化。 5月15日，修订后的《中华人民共和国药品管理法实施条例》（简称“新版《条例》”）正式施行。新版《条例》第四十六条明确规定，特殊管理类药品不得网络销售，用药风险较高的药品禁止网络零售，具体目录由国家药监局另行制定。 根据此前官方公布的清单，注射类药
 
 ## 正文
 
-意大利反垄断监管机构周二表示，已对苹果公司展开调查，以查明其是否遵守了《欧洲数字市场法》规定的互操作性义务。
+界面新闻记者 | 黄华 界面新闻编辑 | 谢欣 进入5月，以司美格鲁肽、替尔泊肽等为代表的GLP-1类减肥药物的电商销售迎来新变化。
 
-根据该法规定，苹果必须确保第三方消费者云服务提供商能够与通过苹果iOS和iPadOS操作系统控制的硬件和软件组件有效且免费地互操作，并享有与苹果iCloud服务同等的访问权限。
+5月15日，修订后的《中华人民共和国药品管理法实施条例》（简称“新版《条例》”）正式施行。
 
-该机构在声明中表示，他们有证据表明，其他消费者云服务提供商不可能与iCloud处于相同的地位，因为它们似乎无法访问苹果服务所使用的或提供给苹果的相同组件。
+新版《条例》第四十六条明确规定，特殊管理类药品不得网络销售，用药风险较高的药品禁止网络零售，具体目录由国家药监局另行制定。
 
-这是意大利监管机构首次根据欧盟《数字市场法》展开调查，该法允许各国监管机构进行初步调查。
+根据此前官方公布的清单，注射类药品（除降糖类）不得通过互联网销售。
 
-该机构表示，调查结果将提交给欧盟委员会。
+这意味着，司美格鲁肽、玛仕度肽等GLP-1类药物，在电商上不得以减肥适应症作为减肥药进行网售。
 
-责任编辑：于健 SF069
+但是，界面新闻发现，部分电商平台表面上在收紧GLP-1类减肥药销售的同时，也存在通过自创、模糊适应症表述的方式，试图钻前述清单中“降糖”类的空子，来销售GLP-1注射类减肥药。
+
+电商自创适应症打“擦边球” 界面新闻发现，5月14日至16日期间，某电商平台上的礼来替尔泊肽注射液（商品名：穆达峰）的处方要求发生明显变化——线下确诊疾病勾选栏由原先的“2型糖尿病、肥胖症、阻塞性睡眠呼吸暂停综合征”三项，调整为“2型糖尿病、高血糖合并超重”。
+
+换言之，肥胖症、阻塞性睡眠呼吸暂停综合征适应症选项已“下架”。
 
 ## 相关推荐
 
-- 2026-06-29 22:12 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-29 22:28 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 22:29 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-29 22:41 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-29 22:34 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 22:26 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 22:16 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 22:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-29 22:40 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 22:34 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-29 22:16 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 22:26 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-29 22:21 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 22:25 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 22:39 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 22:19 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-29 22:34 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 22:33 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 22:46 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 22:40 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 22:43 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-29 22:38 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-29 22:28 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:32 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/938755.shtml)
-- 2026-06-29 22:40 - [如何看待乌空军3架米格-29被摧毁](http://www.share.minike.top/Article/details/122097.shtml)
-- 2026-06-29 22:19 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/610139.shtml)
-- 2026-06-29 22:30 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.minike.top/Article/details/85143.shtml)
-- 2026-06-29 22:24 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/600075.shtml)
-- 2026-06-29 22:14 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/255556.shtml)
-- 2026-06-29 22:26 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/092636646.shtml)
-- 2026-06-29 22:22 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/3401684310.shtml)
-- 2026-06-29 22:32 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/855880513492.shtml)
-- 2026-06-29 22:17 - [被裁员后30岁儿子被抓去戒网瘾](https://www.share.minike.top/Article/details/14268975.shtml)
-- 2026-06-29 22:17 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/318063460726.shtml)
-- 2026-06-29 22:18 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/05648505.shtml)
-- 2026-06-29 22:27 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/307282400548.shtml)
-- 2026-06-29 22:12 - [恋与深空制作组回应争议](http://www.share.minike.top/Article/details/821072.shtml)
-- 2026-06-29 22:24 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/788865301875.shtml)
+- 2026-06-29 22:24 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/93205641.shtml)
+- 2026-06-29 22:37 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/631177436325.shtml)
+- 2026-06-29 22:40 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/088414048071.shtml)
+- 2026-06-29 22:24 - [恋与深空道歉就够了吗](https://www.blog.kurohicncr.top/Article/details/63330133.shtml)
+- 2026-06-29 22:40 - [国常会听取人工智能发展情况汇报](http://www.blog.kurohicncr.top/Article/details/30254908808.shtml)
+- 2026-06-29 22:20 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/6585589.shtml)
+- 2026-06-29 22:22 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/93420230.shtml)
+- 2026-06-29 22:29 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/04618905051.shtml)
+- 2026-06-29 22:47 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.kurohicncr.top/Article/details/209273085.shtml)
+- 2026-06-29 22:32 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/156993726.shtml)
+- 2026-06-29 22:47 - [周生如故](https://www.share.kurohicncr.top/Article/details/358276291386.shtml)
+- 2026-06-29 22:34 - [恋与深空7天掉粉超50万](https://www.share.minike.top/Article/details/81060835.shtml)
+- 2026-06-29 22:31 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/8780648.shtml)
+- 2026-06-29 22:40 - [女子发现孩子非现任亲生起诉前任](https://www.share.kurohicncr.top/Article/details/17989608.shtml)
+- 2026-06-29 22:18 - [送你一朵小红花](https://www.share.minike.top/Article/details/6870587.shtml)

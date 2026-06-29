@@ -1,54 +1,57 @@
-# 上海国际金融中心发展离岸金融行动方案：支持符合条件的商业银行开展上海自贸试验区离岸人民币外汇交易业务
+# 黄磷厂事故引发供给担忧！化工板块再回调，华宝基金化工ETF（516020）收跌1.89%！机构高呼板块进入击球区
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-6月17日金融一线消息，近日，中国人民银行、国家发展改革委、金融监管总局、中国证监会、国家外汇局和上海市人民政府联合印发《上海国际金融中心发展离岸金融行动方案》。方案提出，支持发展人民币离岸交易。支持符合条件的商业银行开展上海自贸试验区离岸人民币外汇交易业务。支持外汇交易中心提升离岸外汇交易服务能力，推动人民币对非美货币直接交易发展。依托外汇交易中心平台，汇聚全球外币对、外币货
+化工板块今日（5月18日）深度回调，反映化工板块整体走势的化工ETF华宝（516020）开盘后迅速下探，而后持续低位震荡，盘中场内价格一度跌超2%，截至收盘，跌1.89%。 成份股方面，氨纶、氟化工、磷化工等板块部分个股跌幅居前。截至收盘，华峰化学、三美股份双双跌超7%，荣盛石化、巨化股份、博源化工等亦跌幅居前，拖累板块走势。 值得注意的是，尽管近几日出现了较大幅度回调，化工板
 
 ## 正文
 
-6月17日金融一线消息，近日，中国人民银行、国家发展改革委、金融监管总局、中国证监会、国家外汇局和上海市人民政府联合印发《上海国际金融中心发展离岸金融行动方案》。
+化工板块今日（5月18日）深度回调，反映化工板块整体走势的化工ETF华宝（516020）开盘后迅速下探，而后持续低位震荡，盘中场内价格一度跌超2%，截至收盘，跌1.89%。
 
-方案提出，支持发展人民币离岸交易。
+成份股方面，氨纶、氟化工、磷化工等板块部分个股跌幅居前。
 
-支持符合条件的商业银行开展上海自贸试验区离岸人民币外汇交易业务。
+截至收盘，华峰化学、三美股份双双跌超7%，荣盛石化、巨化股份、博源化工等亦跌幅居前，拖累板块走势。
 
-支持外汇交易中心提升离岸外汇交易服务能力，推动人民币对非美货币直接交易发展。
+值得注意的是，尽管近几日出现了较大幅度回调，化工板块年内表现仍优于大盘。
 
-依托外汇交易中心平台，汇聚全球外币对、外币货币等外币市场流动性，增强国际资本配置功能。
+数据显示，截至今日收盘，化工ETF（516020）标的指数细分化工指数年内累计涨幅为6.81%，跑赢同期上证指数（4.1%）、沪深300指数（4.4%）等A股主要指数。
 
-建立健全配套政策和人才服务机制，保障支持外汇交易中心离岸外汇业务发展。
+数据来源：Wind，取值区间为2026.1.1-2026.5.18，细分化工指数近5个完整年度涨跌幅分别为：2021年，15.72%；2022年，-26.89%；2023年，-23.17%；2024年，-3.83%；2025年，41.09%。
 
-责任编辑：秦艺
+指数成份股构成根据该指数编制规则适时调整，其回测历史业绩不预示指数未来表现。
+
+消息面上，2026年5月14日晚，贵州一黄磷工厂发生突发事故，从供应看，该厂有4万吨黄磷产能，事故前正常开工，日产约100吨，事故发生后，据悉4台黄磷电炉全部停产。
 
 ## 相关推荐
 
-- 2026-06-29 22:24 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 22:36 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-29 22:23 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-29 22:39 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-29 22:21 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-29 22:34 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 22:22 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-29 22:29 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 22:26 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 22:15 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-29 22:36 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 22:45 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 22:40 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-29 22:27 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 22:19 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 22:37 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-29 22:28 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 22:35 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-29 22:24 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-29 22:38 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-29 22:18 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:31 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/906517298123.shtml)
-- 2026-06-29 22:15 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/86011535.shtml)
-- 2026-06-29 22:30 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/4323743.shtml)
-- 2026-06-29 22:26 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/95847685.shtml)
-- 2026-06-29 22:40 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/4306220915.shtml)
-- 2026-06-29 22:16 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/8129777790.shtml)
-- 2026-06-29 22:27 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/93659998500.shtml)
-- 2026-06-29 22:34 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/9613080.shtml)
-- 2026-06-29 22:32 - [中方在台湾岛以东海域活动合理合法](https://www.blog.kurohicncr.top/Article/details/572555036.shtml)
-- 2026-06-29 22:17 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/6459313.shtml)
-- 2026-06-29 22:38 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/075676086103.shtml)
-- 2026-06-29 22:27 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/802462974.shtml)
-- 2026-06-29 22:41 - [起风了](https://www.share.kurohicncr.top/Article/details/308318882785.shtml)
-- 2026-06-29 22:18 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/7212543981.shtml)
-- 2026-06-29 22:30 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/399393020039.shtml)
+- 2026-06-29 22:42 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/04909.shtml)
+- 2026-06-29 22:38 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/40591.shtml)
+- 2026-06-29 22:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/795249.shtml)
+- 2026-06-29 22:24 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/8439501784.shtml)
+- 2026-06-29 22:19 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/077695.shtml)
+- 2026-06-29 22:28 - [巴西10号球衣是天才传承史](http://www.blog.minike.top/Article/details/04941941268.shtml)
+- 2026-06-29 22:26 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/946114.shtml)
+- 2026-06-29 22:32 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/938120877624.shtml)
+- 2026-06-29 22:35 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/967990922.shtml)
+- 2026-06-29 22:22 - [斛珠夫人](http://www.share.minike.top/Article/details/31749991.shtml)
+- 2026-06-29 22:27 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/07583.shtml)
+- 2026-06-29 22:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/973753446257.shtml)
+- 2026-06-29 22:18 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/9861874777.shtml)
+- 2026-06-29 22:27 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/990408.shtml)
+- 2026-06-29 22:24 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/448982.shtml)

@@ -1,60 +1,57 @@
-# 中英出版界签约合作出版《伍连德画传》英文版
+# 亚洲首座专业货运机场连开两条洲际货运航线
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-中新网北京6月17日电 《伍连德画传》英文版版权输出发布会暨签约仪式6月17日在第32届北京国际图书博览会现场举行。京版若晴公司与英国新一代出版社签署了《伍连德画传》英文版合作协议。 伍连德是中国卫生防疫、检疫事业以及中国现代医学等领域的先驱，诺贝尔奖首位华人候选人。《伍连德画传》依托作者历时十余载挖掘、整理的史料，集纳近800幅历史影像，以图文并茂、通俗生动的画传形式，完整再
+中新社湖北鄂州5月17日电 (武一力 刘小进 王星予)亚洲首座专业货运机场——湖北鄂州花湖国际机场16日至17日连续开通两条洲际货运航线，分别飞往捷克布拉格和德国哈恩，进一步织密对欧航空物流网络，联通中东欧、西欧核心经济腹地。 “鄂州—布拉格”航线16日首航，由中州航空执飞，计划每周执飞一班，单程可运载近100吨货物。出港货物以跨境电商商品和出口消费品为主，进港货物主要包括普货
 
 ## 正文
 
-中新网北京6月17日电 《伍连德画传》英文版版权输出发布会暨签约仪式6月17日在第32届北京国际图书博览会现场举行。
+中新社湖北鄂州5月17日电 (武一力 刘小进 王星予)亚洲首座专业货运机场——湖北鄂州花湖国际机场16日至17日连续开通两条洲际货运航线，分别飞往捷克布拉格和德国哈恩，进一步织密对欧航空物流网络，联通中东欧、西欧核心经济腹地。
 
-京版若晴公司与英国新一代出版社签署了《伍连德画传》英文版合作协议。
+“鄂州—布拉格”航线16日首航，由中州航空执飞，计划每周执飞一班，单程可运载近100吨货物。
 
-伍连德是中国卫生防疫、检疫事业以及中国现代医学等领域的先驱，诺贝尔奖首位华人候选人。
+出港货物以跨境电商商品和出口消费品为主，进港货物主要包括普货、光谱仪等机械设备。
 
-《伍连德画传》依托作者历时十余载挖掘、整理的史料，集纳近800幅历史影像，以图文并茂、通俗生动的画传形式，完整再现了伍连德跌宕传奇的一生。
+布拉格瓦茨拉夫·哈维尔机场出港量在中东欧居前列，铁路与公路网络可将货物快速分拨至周边多国。
 
-出席仪式的《伍连德画传》作者、伍连德亲属代表及伍连德权益在华唯⼀授权维护⼈黄建堃表示，伍连德与英国渊源深厚，是剑桥首位华人医学博士，且长期推动中英文化学术交流。
+17日凌晨5时32分，“鄂州—哈恩”航线货机从花湖机场直飞德国哈恩。
 
-希望通过《伍连德画传》英文版的推出，依托全球传播渠道，更好地让世界读懂伍连德济世为民的医者精神。
+该航线采用B777F全货机执飞，每周飞行两班，预计每年可为花湖机场提供超1万吨航空运力。
 
-京版若晴公司董事长袁海表示，《伍连德画传》版权输出合作体现了中英出版与医学人文文化的深度交融。
+出港货物以电商货、电子产品为主，进港货物包括普货、生鲜等。
 
-未来将继续立足首都出版优势，持续深化国际版权合作，打造更多可传播、可感知、可共鸣的中国原创好书，持续助力中华文化国际传播。
+哈恩机场是亚欧货运进入欧洲的核心门户节点。
 
 ## 相关推荐
 
-- 2026-06-29 22:41 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 22:25 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-29 22:28 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-29 22:23 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-29 22:20 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 22:41 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-29 22:34 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-29 22:25 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-29 22:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 22:19 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 22:32 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 22:41 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-29 22:41 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-29 22:39 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 22:39 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 22:19 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 22:34 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 22:34 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 22:26 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 22:29 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 22:40 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-29 22:26 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-29 22:33 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 22:26 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 22:41 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:33 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/2560819505.shtml)
-- 2026-06-29 22:27 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/4666614.shtml)
-- 2026-06-29 22:34 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/79680.shtml)
-- 2026-06-29 22:13 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/51919796.shtml)
-- 2026-06-29 22:26 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/05647654.shtml)
-- 2026-06-29 22:30 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/95798132766.shtml)
-- 2026-06-29 22:20 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/723606410.shtml)
-- 2026-06-29 22:23 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/71393701.shtml)
-- 2026-06-29 22:27 - [返利科技盘中上演“天地板”](http://www.share.minike.top/Article/details/3689420.shtml)
-- 2026-06-29 22:41 - [急先锋](http://www.share.minike.top/Article/details/96356936596.shtml)
-- 2026-06-29 22:41 - [记者暗访养老机构消防安全](http://www.share.kurohicncr.top/Article/details/7470314655.shtml)
-- 2026-06-29 22:19 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/476952751335.shtml)
-- 2026-06-29 22:25 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/3859925876.shtml)
-- 2026-06-29 22:18 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/206235795861.shtml)
-- 2026-06-29 22:13 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/9115069.shtml)
+- 2026-06-29 22:21 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/44112.shtml)
+- 2026-06-29 22:19 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/97648782.shtml)
+- 2026-06-29 22:33 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/01577059974.shtml)
+- 2026-06-29 22:42 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/9522883629.shtml)
+- 2026-06-29 22:28 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/5322835230.shtml)
+- 2026-06-29 22:24 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/703797864506.shtml)
+- 2026-06-29 22:26 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/75793314.shtml)
+- 2026-06-29 22:33 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/5625928427.shtml)
+- 2026-06-29 22:44 - [被裁员后30岁儿子被抓去戒网瘾](http://www.share.kurohicncr.top/Article/details/9463790438.shtml)
+- 2026-06-29 22:26 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/2907875.shtml)
+- 2026-06-29 22:39 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/637742114.shtml)
+- 2026-06-29 22:29 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/8060227218.shtml)
+- 2026-06-29 22:46 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/63914564174.shtml)
+- 2026-06-29 22:31 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/443479982.shtml)
+- 2026-06-29 22:18 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/6369793.shtml)

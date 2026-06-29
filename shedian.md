@@ -1,59 +1,57 @@
-# 美伊签署备忘录！国际油价跌破80美元，高盛下调油价预期，化工品承压｜大宗风云
+# 特朗普白宫宴会厅安保拨款遭参议院裁定删除
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-来源：华夏时报 本报（chinatimes.net.cn）记者叶青 北京报道 6月16日，国际油价短线跳水。其中，WTI原油期货跌至76.96美元/桶，跌幅3.82%，创3月10日以来新低；布伦特原油期货跌至79.76美元/桶，跌幅3.4%。受此影响，国内化工品种延续弱势行情，LU低硫燃料油主连跌幅超4%，液化气期货跌幅4%，燃料油跌幅3.9%，SC原油、沥青跌幅均超3%。 “
+民主党议员表示，美国参议院一名官员于周六从一项大规模支出法案中，剔除了可用于特朗普计划耗资4亿美元的白宫宴会厅的安保资金。此举令共和党动用纳税人资金推进这一争议项目的努力陷入困境。 参议院议事规则专家伊丽莎白・麦克多诺作出的这一裁定，对特朗普及其政府构成打击。政府一直寻求这笔资金，用于宴会厅相关的安保支出。 特朗普曾宣称，宴会厅建设将由私人捐助者出资。但参议院共和党人正寻求为特
 
 ## 正文
 
-来源：华夏时报 本报（chinatimes.net.cn）记者叶青 北京报道 6月16日，国际油价短线跳水。
+民主党议员表示，美国参议院一名官员于周六从一项大规模支出法案中，剔除了可用于特朗普计划耗资4亿美元的白宫宴会厅的安保资金。
 
-其中，WTI原油期货跌至76.96美元/桶，跌幅3.82%，创3月10日以来新低；布伦特原油期货跌至79.76美元/桶，跌幅3.4%。
+此举令共和党动用纳税人资金推进这一争议项目的努力陷入困境。
 
-受此影响，国内化工品种延续弱势行情，LU低硫燃料油主连跌幅超4%，液化气期货跌幅4%，燃料油跌幅3.9%，SC原油、沥青跌幅均超3%。
+参议院议事规则专家伊丽莎白・麦克多诺作出的这一裁定，对特朗普及其政府构成打击。
 
-“6月15日美伊方面对外表态，双方已达成和平协议，将于6月19日正式签署。
+政府一直寻求这笔资金，用于宴会厅相关的安保支出。
 
-受该消息冲击，本周开盘原油价格大幅下挫，原油成本回落带动化工品估值同步走弱。
+特朗普曾宣称，宴会厅建设将由私人捐助者出资。
 
-若后续霍尔木兹海峡航运恢复畅通，原油供应有望在2至3个月内快速恢复至战前大致水平。
+但参议院共和党人正寻求为特勤局划拨10亿美元纳税人资金，用于包括宴会厅在内的白宫安保升级项目。
 
-除此之外，此前受地缘冲突中断的化工品出口业务也有望逐步恢复，供给增量回归的逻辑将持续压制化工品价格走势。
+美国参议院议事规则官负责解读参议院各项议事规则，判定相关立法条款是否合规。
 
-”创元能化研究员母贵煜在接受《华夏时报》记者采访时表示。
+目前共和党掌控参议院，依旧可以修订法案，争取获得规则官认可。
 
 ## 相关推荐
 
-- 2026-06-29 22:14 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-29 22:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-29 22:27 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 22:20 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 22:24 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 22:14 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 22:37 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 22:28 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-29 22:25 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-29 22:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-29 22:20 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 22:13 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 22:30 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-29 22:30 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 22:44 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 22:31 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 22:37 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-29 22:21 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-29 22:29 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-29 22:36 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-29 22:20 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 22:27 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 22:33 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-29 22:27 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:36 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/992887673.shtml)
-- 2026-06-29 22:29 - [宜宾地震已转移安置225人](https://www.share.kurohicncr.top/Article/details/4952764708.shtml)
-- 2026-06-29 22:37 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/51568954460.shtml)
-- 2026-06-29 22:37 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.minike.top/Article/details/863975094.shtml)
-- 2026-06-29 22:29 - [委内瑞拉发生余震](https://www.share.kurohicncr.top/Article/details/244881819.shtml)
-- 2026-06-29 22:16 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/178624312.shtml)
-- 2026-06-29 22:24 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/95076285232.shtml)
-- 2026-06-29 22:32 - [日本在最东端离岛部署导弹发射装置](https://www.blog.kurohicncr.top/Article/details/676070718365.shtml)
-- 2026-06-29 22:27 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.kurohicncr.top/Article/details/911684.shtml)
-- 2026-06-29 22:27 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/3497667799.shtml)
-- 2026-06-29 22:12 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/99117.shtml)
-- 2026-06-29 22:16 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/0918763848.shtml)
-- 2026-06-29 22:30 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/331855510148.shtml)
-- 2026-06-29 22:41 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/51650575.shtml)
-- 2026-06-29 22:13 - [店员光脚踩入盆中清洗土豆](http://www.share.minike.top/Article/details/45402878.shtml)
+- 2026-06-29 22:21 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/55935111614.shtml)
+- 2026-06-29 22:45 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.minike.top/Article/details/9741934094.shtml)
+- 2026-06-29 22:28 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/439208.shtml)
+- 2026-06-29 22:44 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/66279.shtml)
+- 2026-06-29 22:31 - [把邻居裸体发群算维权还是侵权](https://www.share.kurohicncr.top/Article/details/5055728491.shtml)
+- 2026-06-29 22:46 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.kurohicncr.top/Article/details/7719309018.shtml)
+- 2026-06-29 22:39 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/83374815.shtml)
+- 2026-06-29 22:31 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/884122.shtml)
+- 2026-06-29 22:43 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/5466672.shtml)
+- 2026-06-29 22:18 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/26459012195.shtml)
+- 2026-06-29 22:24 - [巴黎区长紧急采购50台中国空调](http://www.share.minike.top/Article/details/625353.shtml)
+- 2026-06-29 22:43 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/16867985.shtml)
+- 2026-06-29 22:30 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/34029629186.shtml)
+- 2026-06-29 22:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/450814625.shtml)
+- 2026-06-29 22:29 - [月亮](http://www.share.minike.top/Article/details/87761.shtml)

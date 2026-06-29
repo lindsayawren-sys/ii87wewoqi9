@@ -1,59 +1,55 @@
-# 预测市场借世界杯热度又火一把 与全球监管打压的角力仍在继续
+# 工行行长刘珺：企业并购正呈现投资于物、投资于生态、投资于人三大发展路径
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-今年举办的世界杯，是Kalshi和Polymarket作为体育博彩新渠道爆红以来的第一届。 虽然美国球迷能不受限制地就这一赛事整体下注数十亿美元，但越来越多国家正在提高这些可“赌球”平台的访问难度。能否就基利安·姆巴佩的进球数或者冠军奖杯归属下注，可能取决于球迷所在地区。在某些地方，球迷们可能根本没法参与。 6月13日，巴西前锋Vinicius Junior在对阵摩洛哥时，攻入
+来源：金融界 5月18日，由北京市委金融办、北京证监局、中国上市公司协会联合主办的2026北京上市公司高质量发展大会暨投融资并购对接会在北京召开。 中国工商银行行长刘珺在会上表示，当前科创与产业创新加速融合，为企业并购重组带来新机遇，并购正呈现投资于物、投资于生态、投资于人三大发展路径。新形势下需构建“T”型投资理念、重构估值尽调体系、引入“聪明资金”与“耐心资本”。工行将依托
 
 ## 正文
 
-今年举办的世界杯，是Kalshi和Polymarket作为体育博彩新渠道爆红以来的第一届。
+来源：金融界 5月18日，由北京市委金融办、北京证监局、中国上市公司协会联合主办的2026北京上市公司高质量发展大会暨投融资并购对接会在北京召开。
 
-虽然美国球迷能不受限制地就这一赛事整体下注数十亿美元，但越来越多国家正在提高这些可“赌球”平台的访问难度。
+中国工商银行行长刘珺在会上表示，当前科创与产业创新加速融合，为企业并购重组带来新机遇，并购正呈现投资于物、投资于生态、投资于人三大发展路径。
 
-能否就基利安·姆巴佩的进球数或者冠军奖杯归属下注，可能取决于球迷所在地区。
+新形势下需构建“T”型投资理念、重构估值尽调体系、引入“聪明资金”与“耐心资本”。
 
-在某些地方，球迷们可能根本没法参与。
+工行将依托上市二十周年契机，以专业并购金融、长期资本更好助力上市公司高质量发展。
 
-6月13日，巴西前锋Vinicius Junior在对阵摩洛哥时，攻入该队在2026年世界杯小组赛中的第一球。
-
-Bernstein分析师估计，本届世界杯可能带来约30亿美元的额外下注，推动体育博彩和预测市场平台的总押注规模至多达到100亿美元。
-
-包括欧盟多数成员和亚洲大片地区在内，越来越多的国家已经采取临时或长期措施，阻止对Kalshi和Polymarket网站及应用程序的访问。
-
-就在最近几周，西班牙、印度尼西亚和印度也加入了它们的行列。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-29 22:16 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-29 22:33 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-29 22:36 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 22:40 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-29 22:28 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 22:29 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-29 22:12 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-29 22:28 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 22:35 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-29 22:15 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-29 22:36 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-29 22:39 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 22:15 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 22:38 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 22:45 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-29 22:36 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-29 22:38 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-29 22:39 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 22:22 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-29 22:38 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-29 22:34 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 22:28 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-29 22:44 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-29 22:36 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 22:33 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 22:20 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-29 22:23 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 22:47 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:26 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/98660.shtml)
-- 2026-06-29 22:25 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/35518710.shtml)
-- 2026-06-29 22:37 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/34237529.shtml)
-- 2026-06-29 22:40 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/16713066.shtml)
-- 2026-06-29 22:27 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/97385737404.shtml)
-- 2026-06-29 22:32 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/66734803156.shtml)
-- 2026-06-29 22:25 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/029330.shtml)
-- 2026-06-29 22:41 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/0655867459.shtml)
-- 2026-06-29 22:27 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/3917030.shtml)
-- 2026-06-29 22:30 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/24539304.shtml)
-- 2026-06-29 22:13 - [王鸿薇要求删陆委会百余万特别费](https://www.blog.minike.top/Article/details/018895629885.shtml)
-- 2026-06-29 22:40 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/4355264.shtml)
-- 2026-06-29 22:23 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/3727875012.shtml)
-- 2026-06-29 22:12 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/98955382.shtml)
-- 2026-06-29 22:16 - [绘画区你赢了](https://www.share.minike.top/Article/details/2149936.shtml)
+- 2026-06-29 22:29 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/80826316245.shtml)
+- 2026-06-29 22:26 - [爱奇艺抬高国剧新标尺](http://www.share.kurohicncr.top/Article/details/404759607510.shtml)
+- 2026-06-29 22:24 - [追觅称质量不行终身包修也没意义](https://www.blog.minike.top/Article/details/3015953864.shtml)
+- 2026-06-29 22:37 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/68315410.shtml)
+- 2026-06-29 22:28 - [金刚川](http://www.blog.kurohicncr.top/Article/details/497210397900.shtml)
+- 2026-06-29 22:24 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.minike.top/Article/details/9643475.shtml)
+- 2026-06-29 22:46 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/472975.shtml)
+- 2026-06-29 22:19 - [谁在推动“成都造”影视持续出圈](http://www.blog.minike.top/Article/details/85887.shtml)
+- 2026-06-29 22:39 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/63225.shtml)
+- 2026-06-29 22:36 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/24254962.shtml)
+- 2026-06-29 22:34 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/31864703.shtml)
+- 2026-06-29 22:26 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/49622.shtml)
+- 2026-06-29 22:44 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/617733466.shtml)
+- 2026-06-29 22:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/24285716155.shtml)
+- 2026-06-29 22:37 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/52131407.shtml)

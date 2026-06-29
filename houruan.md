@@ -1,59 +1,56 @@
-# 重庆林业产业对接活动在璧山举行 签约331.47亿元
+# Token工厂智启未来，2026智算基础设施创新大会在杭州萧山开幕
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-中新网重庆6月17日电 (张旭)青山叠翠，碧水含情。6月17日，“万企重庆行·渝林惠八方”林业产业对接活动在重庆市璧山区举行，来自行业主管部门、企业的约400名嘉宾齐聚一堂，共谋林业发展新机遇。活动现场，164个优质项目成功签约，总投资额达331.47亿元。 这些项目遍布重庆各区县，覆盖国储林、特色经济林、木竹加工、林下经济、森林康养、自然教育六大核心赛道。其中，既有百亿级全产
+专题：2026智算基础设施创新论坛 当算力成为数字经济的“新基础能源”，Token便成为智能时代的核心“通货”。但Token如何驱动产业发展？又如何重塑当地产业生态的价值？这些前沿议题，亟待厘清与解答。 5月14日，杭州萧山，2026智算基础设施创新大会暨萧山区芯机社区产业生态共建交流会正式举行。本次大会由萧山区人民政府指导，浙江大学计算机创新技术研究院、浙江大学上海高等研究院
 
 ## 正文
 
-中新网重庆6月17日电 (张旭)青山叠翠，碧水含情。
+专题：2026智算基础设施创新论坛 当算力成为数字经济的“新基础能源”，Token便成为智能时代的核心“通货”。
 
-6月17日，“万企重庆行·渝林惠八方”林业产业对接活动在重庆市璧山区举行，来自行业主管部门、企业的约400名嘉宾齐聚一堂，共谋林业发展新机遇。
+但Token如何驱动产业发展？
 
-活动现场，164个优质项目成功签约，总投资额达331.47亿元。
+又如何重塑当地产业生态的价值？
 
-这些项目遍布重庆各区县，覆盖国储林、特色经济林、木竹加工、林下经济、森林康养、自然教育六大核心赛道。
+这些前沿议题，亟待厘清与解答。
 
-其中，既有百亿级全产业链龙头项目，适合大型集团系统布局；也有百千万级特色精品项目，适配中小企业深耕细作。
+5月14日，杭州萧山，2026智算基础设施创新大会暨萧山区芯机社区产业生态共建交流会正式举行。
 
-值得一提的是，签约项目中近三成来自重庆市外企业，投资额占比超过三分之一，充分彰显了“万企重庆行”跨区域招商的辐射力与吸引力。
+本次大会由萧山区人民政府指导，浙江大学计算机创新技术研究院、浙江大学上海高等研究院主办，创业邦、云尖信息、超会联、浙银汇金、芯机社区联合承办。
 
-据重庆市林业局介绍，除了现场签约项目外，另有34个项目处于深度洽谈阶段，投资额达73.11亿元。
+本次大会以“Token工厂 智启未来”为主题，设“智算基建”、“智算生态”、“智算产业链接”三大专题，深入探讨智算的未来发展。
 
-活动现场，重庆市林业局党组书记、局长曹春华通过“走进重庆、扎根重庆、兴业重庆”三个篇章，向与会嘉宾全面推介重庆林业的发展机遇。
+现场，来自政府、高校、全球科技企业、国产算力厂商、投资机构及创新企业的数百位代表齐聚一堂。
 
 ## 相关推荐
 
-- 2026-06-29 22:22 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 22:37 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 22:20 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-29 22:26 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-29 22:20 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 22:30 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-29 22:37 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-29 22:35 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 22:22 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-29 22:28 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 22:13 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-29 22:36 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-29 22:22 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-29 22:31 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-29 22:37 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 22:34 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-29 22:31 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 22:22 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 22:30 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-29 22:44 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 22:19 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-29 22:35 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-29 22:36 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:16 - [小龙女配音去世 李若彤发文悼念](http://www.share.minike.top/Article/details/63666898.shtml)
-- 2026-06-29 22:13 - [速度与激情9](https://www.blog.minike.top/Article/details/025388234.shtml)
-- 2026-06-29 22:35 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/850414599.shtml)
-- 2026-06-29 22:18 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/74794.shtml)
-- 2026-06-29 22:30 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/34349.shtml)
-- 2026-06-29 22:28 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/98418742.shtml)
-- 2026-06-29 22:39 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/295630867707.shtml)
-- 2026-06-29 22:13 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/264419373.shtml)
-- 2026-06-29 22:32 - [恋与深空7天掉粉超50万](https://www.share.kurohicncr.top/Article/details/7440519577.shtml)
-- 2026-06-29 22:37 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/67241432.shtml)
-- 2026-06-29 22:21 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/51059.shtml)
-- 2026-06-29 22:15 - [恋与深空制作组回应争议](http://www.share.minike.top/Article/details/00547050.shtml)
-- 2026-06-29 22:19 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/9911225644.shtml)
-- 2026-06-29 22:19 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/5280757.shtml)
-- 2026-06-29 22:12 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/564090593.shtml)
+- 2026-06-29 22:20 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/07409544.shtml)
+- 2026-06-29 22:19 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/51257544142.shtml)
+- 2026-06-29 22:36 - [朱雀三号完成静态点火试验](http://www.blog.minike.top/Article/details/583193992162.shtml)
+- 2026-06-29 22:44 - [MG总经理直播被冲](https://www.blog.kurohicncr.top/Article/details/581182170.shtml)
+- 2026-06-29 22:33 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/95130541253.shtml)
+- 2026-06-29 22:41 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/09619314835.shtml)
+- 2026-06-29 22:28 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/758328771.shtml)
+- 2026-06-29 22:20 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/47898.shtml)
+- 2026-06-29 22:47 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.minike.top/Article/details/5877019.shtml)
+- 2026-06-29 22:25 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/17535.shtml)
+- 2026-06-29 22:22 - [爱奇艺抬高国剧新标尺](https://www.blog.minike.top/Article/details/60860131004.shtml)
+- 2026-06-29 22:24 - [法媒点赞分享中国小区降温方案](https://www.share.kurohicncr.top/Article/details/89575.shtml)
+- 2026-06-29 22:26 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/967938931097.shtml)
+- 2026-06-29 22:31 - [巴黎区长紧急采购50台中国空调](http://www.blog.minike.top/Article/details/27295299257.shtml)
+- 2026-06-29 22:30 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/0564467.shtml)

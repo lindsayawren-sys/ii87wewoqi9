@@ -1,45 +1,60 @@
-# 视频|3280元近视防控镜一折卖仍赚200多。花大几千给孩子配的“近视防控神器”，可能是坑娃的“黑心陷阱”
+# 巨力索具遭证监会立案 投资者或可索赔
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！责任编辑：宋雅芳
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年5月15日晚间，巨力索具（维权）发布《关于收到中国证券监督管理委员会立案告知书的公告》。公告显示：巨力索具股份有限公司于 2026 年5 月15 日收到中国证券监督管理委员会下发的《中国证券监督管理委员会立案告知书》（编号：证监立案字 016202
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-责任编辑：宋雅芳
+2026年5月15日晚间，巨力索具（维权）发布《关于收到中国证券监督管理委员会立案告知书的公告》。
+
+公告显示：巨力索具股份有限公司于 2026 年5 月15 日收到中国证券监督管理委员会下发的《中国证券监督管理委员会立案告知书》（编号：证监立案字 0162026007 号），因公司涉嫌信息披露误导性陈述违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，2026 年 5 月 13 日，中国证监会决定对公司立案。
+
+2026年3月18日，深圳证券交易所发布纪律处分决定，因巨力索具在商业航天业务信息披露及市场传闻澄清方面存在违规行为，对公司及董事长杨建国、总裁杨超、董事会秘书张云给予通报批评处分，并将相关违规行为记入上市公司诚信档案。
+
+预计此次巨力索具遭证监会立案，亦是与该事项相关。
+
+巨力索具是近期市场热门股，公司股价自2025年12月17日至2026年2月11日累计大幅上涨并多次触及异常波动，而在2月12日、13日澄清公告发布后，股价连续两个交易日跌停，经过一段时间的调整后，巨力索具股价继续上涨并于5月8日创下阶段性的新高24元。
+
+江苏振泽律师事务所合伙人张云律师表示，巨力索具遭证监会立案，投资者或可索赔。
+
+暂定：于2025年12月17日至2026年2月11日之间买入巨力索具，且在2026年2月12日之后卖出或持有巨力索具的亏损投资者符合索赔条件。
 
 ## 相关推荐
 
-- 2026-06-29 22:27 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-29 22:20 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 22:15 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-29 22:24 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-29 22:26 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-29 22:21 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-29 22:23 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 22:19 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-29 22:40 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 22:36 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 22:36 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 22:29 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 22:36 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-29 22:33 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 22:27 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 22:37 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 22:21 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-29 22:29 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 22:46 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 22:47 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-29 22:35 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 22:40 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 22:25 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-29 22:26 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 22:33 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:19 - [让AI做一个账号，它会做成什么样？](https://www.blog.kurohicncr.top/Article/details/54813875631.shtml)
-- 2026-06-29 22:12 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/8677402831.shtml)
-- 2026-06-29 22:13 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.minike.top/Article/details/098060.shtml)
-- 2026-06-29 22:29 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/536613925805.shtml)
-- 2026-06-29 22:41 - [网约车出事故平台拒赔称只是中介](https://www.share.kurohicncr.top/Article/details/57813312.shtml)
-- 2026-06-29 22:38 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/313684237.shtml)
-- 2026-06-29 22:25 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/34102384787.shtml)
-- 2026-06-29 22:30 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/90464.shtml)
-- 2026-06-29 22:22 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/74375170.shtml)
-- 2026-06-29 22:26 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/001793.shtml)
-- 2026-06-29 22:13 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/48796.shtml)
-- 2026-06-29 22:14 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/41527061.shtml)
-- 2026-06-29 22:36 - [105岁女红军看到自己长征时的模样](https://www.blog.minike.top/Article/details/8538833.shtml)
-- 2026-06-29 22:37 - [肝不好身体这几处会“说话”](http://www.blog.kurohicncr.top/Article/details/88557472190.shtml)
-- 2026-06-29 22:30 - [店员光脚踩入盆中清洗土豆](https://www.share.kurohicncr.top/Article/details/92262.shtml)
+- 2026-06-29 22:22 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/734171.shtml)
+- 2026-06-29 22:37 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/09614.shtml)
+- 2026-06-29 22:47 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.kurohicncr.top/Article/details/614379895333.shtml)
+- 2026-06-29 22:26 - [上世纪90年代玩具成新宠](http://www.share.kurohicncr.top/Article/details/473368575.shtml)
+- 2026-06-29 22:37 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/9143599432.shtml)
+- 2026-06-29 22:34 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/688418602703.shtml)
+- 2026-06-29 22:25 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/95397245340.shtml)
+- 2026-06-29 22:37 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/65336838509.shtml)
+- 2026-06-29 22:31 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/659837.shtml)
+- 2026-06-29 22:36 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/55201.shtml)
+- 2026-06-29 22:27 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/4157868292.shtml)
+- 2026-06-29 22:27 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.minike.top/Article/details/28942.shtml)
+- 2026-06-29 22:37 - [佛得角队长门德斯被控强奸](http://www.blog.kurohicncr.top/Article/details/51362932124.shtml)
+- 2026-06-29 22:30 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/6596285.shtml)
+- 2026-06-29 22:24 - [月亮](http://www.blog.kurohicncr.top/Article/details/642681.shtml)

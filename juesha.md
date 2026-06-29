@@ -1,58 +1,58 @@
-# 香港贸发局：将继续推动企业“出海”
+# 吃这种水果24小时内别喝酒，可致呼吸衰竭！
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-中新社香港6月16日电 (记者 魏华都)香港贸易发展局(简称“香港贸发局”)60周年志庆活动“未来60论坛”16日在香港举行。逾千位政商界人士出席论坛，包括香港贸发局主席马时亨及前任主席冯国经、吴光正、苏泽光、罗康瑞等。多位与会者表示，香港应成为中国内地企业“出海”的增值平台。 香港特区政府律政司司长林定国致辞时表示，贸发局多年来始终站在促进香港贸易的最前沿。香港已跃升为全球第
+眼下，榴莲正集中上市 享受“榴莲自由”的同时 食用禁忌和健康风险 也需关注近日，福建一位女子聚餐时，先吃了两大块榴莲，又喝了约200毫升白酒。随后出现呼吸困难、意识模糊等严重症状。榴莲配酒为何会诱发危险？ “榴莲+酒”危害机制 与头孢类药物类似 首都医科大学附属北京世纪坛医院临床营养科副主任贾平平指出，榴莲搭配酒精的危害机制与头孢类药物类似。 榴莲果肉中含有大量含硫化合物，这类
 
 ## 正文
 
-中新社香港6月16日电 (记者 魏华都)香港贸易发展局(简称“香港贸发局”)60周年志庆活动“未来60论坛”16日在香港举行。
+眼下，榴莲正集中上市 享受“榴莲自由”的同时 食用禁忌和健康风险 也需关注近日，福建一位女子聚餐时，先吃了两大块榴莲，又喝了约200毫升白酒。
 
-逾千位政商界人士出席论坛，包括香港贸发局主席马时亨及前任主席冯国经、吴光正、苏泽光、罗康瑞等。
+随后出现呼吸困难、意识模糊等严重症状。
 
-多位与会者表示，香港应成为中国内地企业“出海”的增值平台。
+榴莲配酒为何会诱发危险？
 
-香港特区政府律政司司长林定国致辞时表示，贸发局多年来始终站在促进香港贸易的最前沿。
+“榴莲+酒”危害机制 与头孢类药物类似 首都医科大学附属北京世纪坛医院临床营养科副主任贾平平指出，榴莲搭配酒精的危害机制与头孢类药物类似。
 
-香港已跃升为全球第五大商品贸易经济体。
+榴莲果肉中含有大量含硫化合物，这类物质会强力抑制人体内乙醛脱氢酶活性。
 
-未来，贸发局应善用法律仲裁、金融流通等专业优势，为“出海”企业护航，开创下一个成功的60年。
+酒精代谢需要乙醛脱氢酶，酶被抑制后，酒精代谢中断，有毒的乙醛大量堆积在体内，从而引发类似像“双硫仑样反应”的症状。
 
-马时亨表示，依托“一国两制”优势，香港紧扣国家发展方向与国际市场脉搏，实现稳步发展。
+乙醛蓄积会扩张血管、损伤心肌、抑制呼吸，轻则皮肤潮红、心慌心悸、恶心呕吐，重则血压骤降、呼吸困难、休克、呼吸循环衰竭，救治不及时可危及生命。
 
-贸发局将继续推动企业“出海”，深化国际交流，加强产业对接，促成实质合作。
+吃完榴莲后多久能饮酒？
 
 ## 相关推荐
 
-- 2026-06-29 22:27 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 22:14 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 22:22 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 22:30 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-29 22:24 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 22:27 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-29 22:27 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 22:32 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-29 22:24 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 22:34 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-29 22:38 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-29 22:27 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-29 22:28 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 22:45 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-29 22:26 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 22:19 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-29 22:46 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-29 22:33 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 22:35 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 22:22 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-29 22:42 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-29 22:18 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 22:29 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 22:44 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:34 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/0079141.shtml)
-- 2026-06-29 22:20 - [多人将马路护栏当球网打羽毛球](http://www.blog.minike.top/Article/details/90842675.shtml)
-- 2026-06-29 22:38 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.minike.top/Article/details/134391815262.shtml)
-- 2026-06-29 22:13 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/59940593386.shtml)
-- 2026-06-29 22:29 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/3811885.shtml)
-- 2026-06-29 22:22 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/8378342.shtml)
-- 2026-06-29 22:18 - [毒液2](https://www.blog.minike.top/Article/details/54426064.shtml)
-- 2026-06-29 22:30 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/15955408080.shtml)
-- 2026-06-29 22:29 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/083742081535.shtml)
-- 2026-06-29 22:12 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/9653990428.shtml)
-- 2026-06-29 22:41 - [国常会听取人工智能发展情况汇报](https://www.share.kurohicncr.top/Article/details/909783158.shtml)
-- 2026-06-29 22:37 - [一台空调背后的全球化逻辑](https://www.blog.minike.top/Article/details/37871097.shtml)
-- 2026-06-29 22:18 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/847573730381.shtml)
-- 2026-06-29 22:38 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/11371.shtml)
-- 2026-06-29 22:27 - [让AI做一个账号，它会做成什么样？](http://www.blog.kurohicncr.top/Article/details/1706110422.shtml)
+- 2026-06-29 22:30 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/32046.shtml)
+- 2026-06-29 22:41 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/6146786.shtml)
+- 2026-06-29 22:37 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/21703.shtml)
+- 2026-06-29 22:40 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/359144460.shtml)
+- 2026-06-29 22:46 - [我和我的家乡](https://www.blog.minike.top/Article/details/5887985.shtml)
+- 2026-06-29 22:26 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/317294645130.shtml)
+- 2026-06-29 22:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/457107241.shtml)
+- 2026-06-29 22:25 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/9576000778.shtml)
+- 2026-06-29 22:24 - [王鸿薇要求删陆委会百余万特别费](http://www.share.minike.top/Article/details/396939447.shtml)
+- 2026-06-29 22:23 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/48223434711.shtml)
+- 2026-06-29 22:33 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.minike.top/Article/details/13557.shtml)
+- 2026-06-29 22:36 - [刘宇宁 好听](http://www.blog.minike.top/Article/details/521630977119.shtml)
+- 2026-06-29 22:44 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/90786.shtml)
+- 2026-06-29 22:30 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/168274.shtml)
+- 2026-06-29 22:22 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/3716678.shtml)

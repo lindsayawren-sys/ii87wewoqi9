@@ -1,48 +1,61 @@
-# 痛心！失踪的开封三岁儿童确认离世 排除刑事案件
+# 加速探底，百亿港股互联网ETF华宝（513770）下挫阶段新低，港股AI缘何“掉队”？
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-经多方搜寻，2026年6月15日14时54分，在开封市通许县小清河(东二干渠支流)河道内发现一男童尸体，经家属辨认及公安部门DNA核验比对，确认为开封市2026年6月10日下午走失的三岁儿童童某。公安机关已排除刑事案件。来源：开封市公安局 (“开封融媒”微信公众号)
+5月18日，港股早盘低开，互联网龙头集体回调，截止发稿，阿里巴巴-W、腾讯控股、小米集团-W跌超1%，美团-W跟跌。港股AI核心工具——港股互联网ETF华宝（513770）低开低走，场内价格一度跌近2%，现跌1.46%，下探本轮回调新低。 开年以来，港股互联网行情走势不佳，显著落后于A股AI同期表现。究其原因，分析认为，宏观层面，国际资金流出构成流动性压制，对估值敏感型的科技板
 
 ## 正文
 
-经多方搜寻，2026年6月15日14时54分，在开封市通许县小清河(东二干渠支流)河道内发现一男童尸体，经家属辨认及公安部门DNA核验比对，确认为开封市2026年6月10日下午走失的三岁儿童童某。
+5月18日，港股早盘低开，互联网龙头集体回调，截止发稿，阿里巴巴-W、腾讯控股、小米集团-W跌超1%，美团-W跟跌。
 
-公安机关已排除刑事案件。
+港股AI核心工具——港股互联网ETF华宝（513770）低开低走，场内价格一度跌近2%，现跌1.46%，下探本轮回调新低。
 
-来源：开封市公安局 (“开封融媒”微信公众号)
+开年以来，港股互联网行情走势不佳，显著落后于A股AI同期表现。
+
+究其原因，分析认为，宏观层面，国际资金流出构成流动性压制，对估值敏感型的科技板块带来剧烈冲击；行业层面，“外卖大战”、“红包大战”对板块基本面构成扰动，此外HALO交易策略进一步加剧了软件、应用方向的下跌。
+
+截至5月15日，中证港股通互联网指数年内累计下跌17.7%，最新市盈率PE（TTM）仅20.31倍，位于近10年5%分位点的底部区间。
+
+银河证券指出，港股互联网当前所处的历史性估值洼地状态，也意味着其继续大幅下跌的空间有限，具备较高的安全边际。
+
+短期从汇率视角看，应等待美元回落至合理区间。
+
+中期看，应买在“确定性前”，等待指数底部反弹，预计2026-2027年将进入收入兑现的关键阶段。
 
 ## 相关推荐
 
-- 2026-06-29 22:24 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-29 22:36 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-29 22:20 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 22:14 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-29 22:26 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-29 22:25 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 22:16 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-29 22:34 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 22:25 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 22:30 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 22:25 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 22:23 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 22:33 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-29 22:29 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 22:21 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-29 22:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 22:43 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-29 22:38 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-29 22:26 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 22:47 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 22:25 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 22:22 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 22:19 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 22:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-29 22:18 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 22:36 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 22:38 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:38 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/650581882.shtml)
-- 2026-06-29 22:18 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/1898329.shtml)
-- 2026-06-29 22:20 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/8251748.shtml)
-- 2026-06-29 22:34 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/793798610.shtml)
-- 2026-06-29 22:21 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/87048.shtml)
-- 2026-06-29 22:37 - [恋与深空7天掉粉超50万](https://www.share.kurohicncr.top/Article/details/3833290149.shtml)
-- 2026-06-29 22:29 - [腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/552105667.shtml)
-- 2026-06-29 22:37 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/30744072666.shtml)
-- 2026-06-29 22:21 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/9689864174.shtml)
-- 2026-06-29 22:40 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/2982118.shtml)
-- 2026-06-29 22:35 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/87789978179.shtml)
-- 2026-06-29 22:37 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/279994687537.shtml)
-- 2026-06-29 22:22 - [蓝箭航天科创板IPO审核状态为已问询](http://www.blog.kurohicncr.top/Article/details/1954148.shtml)
-- 2026-06-29 22:33 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/035749033359.shtml)
-- 2026-06-29 22:36 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/07432147280.shtml)
+- 2026-06-29 22:33 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.minike.top/Article/details/45757.shtml)
+- 2026-06-29 22:26 - [爱很美味](https://www.blog.minike.top/Article/details/183591255.shtml)
+- 2026-06-29 22:39 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/124275283553.shtml)
+- 2026-06-29 22:19 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/783784.shtml)
+- 2026-06-29 22:23 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/45621861457.shtml)
+- 2026-06-29 22:19 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/433495307.shtml)
+- 2026-06-29 22:45 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/296285292.shtml)
+- 2026-06-29 22:44 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/354652.shtml)
+- 2026-06-29 22:24 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/70034.shtml)
+- 2026-06-29 22:29 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/94029.shtml)
+- 2026-06-29 22:19 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.kurohicncr.top/Article/details/80126455.shtml)
+- 2026-06-29 22:21 - [汪苏泷年度歌手](https://www.blog.minike.top/Article/details/47930.shtml)
+- 2026-06-29 22:42 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/0867912590.shtml)
+- 2026-06-29 22:24 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.kurohicncr.top/Article/details/64973.shtml)
+- 2026-06-29 22:27 - [恋与深空7天掉粉超50万](http://www.share.kurohicncr.top/Article/details/683180263883.shtml)

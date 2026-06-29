@@ -1,57 +1,51 @@
-# 影石创新袁跃曝水军内幕：发一条黑帖仅挣6元，悬赏10万金拖鞋“打蟑螂”
+# 山洪灾害气象预警：河北山西局地发生山洪灾害的可能性较大
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月17日消息，影石创新中国区负责人袁跃发布微博称，“一名热心用户在黑水军群里卧底一周，结果发现他们发一条黑帖就挣6块钱，何必呢。” 袁跃在今天稍早的微博中发布长文，表示“影石和友商互诉专利侵权后，我们发现了一批赛博克隆人。”他称，在与某友商互诉专利侵权后，短时间内密集遭遇黑水军有组织攻击，诉讼消息发布后2
+中国天气网讯 水利部和中国气象局5月16日18时联合发布黄色山洪灾害气象预警： 预计，5月16日20时至5月17日20时，河北西南部、山西中东部和南部、河南西部、湖北西南部、湖南西北部、重庆东南部、贵州北部、陕西东部、甘肃南部等地部分地区可能发生山洪灾害(蓝色预警)，其中，河北西南部、山西中东部局地发生山洪灾害可能性较大(黄色预警)。其他地区也可能因局地短历时强降水引发山洪灾害
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中国天气网讯 水利部和中国气象局5月16日18时联合发布黄色山洪灾害气象预警： 预计，5月16日20时至5月17日20时，河北西南部、山西中东部和南部、河南西部、湖北西南部、湖南西北部、重庆东南部、贵州北部、陕西东部、甘肃南部等地部分地区可能发生山洪灾害(蓝色预警)，其中，河北西南部、山西中东部局地发生山洪灾害可能性较大(黄色预警)。
 
-6月17日消息，影石创新中国区负责人袁跃发布微博称，“一名热心用户在黑水军群里卧底一周，结果发现他们发一条黑帖就挣6块钱，何必呢。
+其他地区也可能因局地短历时强降水引发山洪灾害，请各地注意做好实时监测、防汛预警和转移避险等防范工作。
 
-” 袁跃在今天稍早的微博中发布长文，表示“影石和友商互诉专利侵权后，我们发现了一批赛博克隆人。
-
-”他称，在与某友商互诉专利侵权后，短时间内密集遭遇黑水军有组织攻击，诉讼消息发布后24小时内，多个平台涌现1490余个异常账号，集中发布内容高度雷同的评论。
-
-袁跃宣布，即日起，到影石线下门店，即可无门槛领取“正义的6块钱”红包。
-
-帮影石抓黑水军，响应互联网“清朗”行动，线上投稿还可能拿价值10万的金拖鞋，并称其为“打蟑螂专用。
-
-”他还表示，7月15日前，转关该条微博，抽3位网友分别送出影石Luna Ultra一台。
-
-继2026年3月大疆在国内对影石发起无人机专利侵权诉讼后，两家公司今年6月在海外展开专利诉讼对决。
+(中国天气网)
 
 ## 相关推荐
 
-- 2026-06-29 22:28 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 22:38 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 22:40 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-29 22:16 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 22:35 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-29 22:27 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 22:27 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 22:39 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-29 22:21 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-29 22:28 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 22:41 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 22:38 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 22:25 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-29 22:26 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 22:31 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 22:40 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 22:27 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-29 22:26 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-29 22:44 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-29 22:25 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 22:27 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-29 22:20 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 22:28 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-29 22:24 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 22:20 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 22:32 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:19 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/52962.shtml)
-- 2026-06-29 22:24 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/963473789.shtml)
-- 2026-06-29 22:37 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/1012191574.shtml)
-- 2026-06-29 22:13 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/3476325217.shtml)
-- 2026-06-29 22:18 - [蓝箭航天科创板IPO审核状态为已问询](https://www.blog.kurohicncr.top/Article/details/66832451.shtml)
-- 2026-06-29 22:23 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/8346780.shtml)
-- 2026-06-29 22:33 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/96399110.shtml)
-- 2026-06-29 22:38 - [王鸿薇要求删陆委会百余万特别费](https://www.share.kurohicncr.top/Article/details/34439815.shtml)
-- 2026-06-29 22:25 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/698879.shtml)
-- 2026-06-29 22:26 - [巴黎区长紧急采购50台中国空调](https://www.share.kurohicncr.top/Article/details/153810.shtml)
-- 2026-06-29 22:40 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/41179.shtml)
-- 2026-06-29 22:31 - [马光远谈马斯克最大的价值](http://www.blog.minike.top/Article/details/95288094192.shtml)
-- 2026-06-29 22:19 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/09388287937.shtml)
-- 2026-06-29 22:22 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/5705257216.shtml)
-- 2026-06-29 22:25 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/3029213.shtml)
+- 2026-06-29 22:45 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/2275675.shtml)
+- 2026-06-29 22:47 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/90536070.shtml)
+- 2026-06-29 22:34 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/380219464.shtml)
+- 2026-06-29 22:20 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/4449260.shtml)
+- 2026-06-29 22:23 - [巴黎区长紧急采购50台中国空调](https://www.share.kurohicncr.top/Article/details/52497128.shtml)
+- 2026-06-29 22:47 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/964225.shtml)
+- 2026-06-29 22:34 - [千与千寻](https://www.share.kurohicncr.top/Article/details/89194256.shtml)
+- 2026-06-29 22:25 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.kurohicncr.top/Article/details/251419202.shtml)
+- 2026-06-29 22:37 - [宜宾地震已转移安置225人](https://www.share.minike.top/Article/details/505748752353.shtml)
+- 2026-06-29 22:21 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/8018268.shtml)
+- 2026-06-29 22:27 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/436331896062.shtml)
+- 2026-06-29 22:22 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/394170.shtml)
+- 2026-06-29 22:33 - [天道](http://www.blog.minike.top/Article/details/58709488.shtml)
+- 2026-06-29 22:40 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/54214866.shtml)
+- 2026-06-29 22:34 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/1806733.shtml)

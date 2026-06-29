@@ -1,60 +1,56 @@
-# “甘肃银王”的百亿资本版图
+# 中国进出口银行应邀参加2026年全球贸易投资促进峰会
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握登录新浪财经APP 搜索【信披】查看更多考评等级 每经记者|张文瑜 每经编辑|张静 （两家甘肃上市公司盛达资源（维权）（000603.SZ）和皇台酒业（000995.SZ）在近期相继发布公告，披露实控人赵满堂因涉嫌信息披露违法违规被中国证券监督管理委员会立案。 此次调查或与盛达资源此前披露的控股股东资金占用问题相关，盛达资
+来源：进出口银行 5月18日，国家副主席韩正在北京出席2026年全球贸易投资促进峰会开幕式并致辞。（来源：新华社） 中国进出口银行行长王春英应邀参加峰会。 长期以来，中国进出口银行以服务对外贸易投资发展和国际经济合作为己任，充分发挥特色优势，积极对接各类外贸主体金融需求，统筹支持出口与进口、货物贸易与服务贸易、传统贸易与新业态新模式，为外贸相关先进制造业发展提供“长期资本”“耐
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握登录新浪财经APP 搜索【信披】查看更多考评等级 每经记者|张文瑜 每经编辑|张静 （两家甘肃上市公司盛达资源（维权）（000603.SZ）和皇台酒业（000995.SZ）在近期相继发布公告，披露实控人赵满堂因涉嫌信息披露违法违规被中国证券监督管理委员会立案。
+来源：进出口银行 5月18日，国家副主席韩正在北京出席2026年全球贸易投资促进峰会开幕式并致辞。
 
-此次调查或与盛达资源此前披露的控股股东资金占用问题相关，盛达资源也同步收到了证监会的立案通知。
+（来源：新华社） 中国进出口银行行长王春英应邀参加峰会。
 
-皇台酒业则在公告中表示，本次调查仅针对实控人个人，和公司本身无关，不会对正常生产运营造成干扰。
+长期以来，中国进出口银行以服务对外贸易投资发展和国际经济合作为己任，充分发挥特色优势，积极对接各类外贸主体金融需求，统筹支持出口与进口、货物贸易与服务贸易、传统贸易与新业态新模式，为外贸相关先进制造业发展提供“长期资本”“耐心资本”，以金融活水赋能全球产业链供应链合作，在支持高质量共建“一带一路”、服务高水平对外开放等方面发挥了重要作用。
 
-资本市场反应迅速。
+全球贸易投资促进峰会由中国贸促会主办，已连续举办5届。
 
-6月16日，盛达资源股价跌停；截至6月17日收盘，报26.52元/股，下跌4.29%。
+本届峰会主题为“向新而行链接未来”，来自外国政府部门、国际组织、经济机构、外国商协会和全球贸促机构以及中外企业等代表800余人参会。
 
-作为白银行业龙头盛达资源的掌舵者，赵满堂素有“甘肃银王”之称。
-
-2019年入主皇台酒业后，曾将这家濒临退市的企业拉回正轨。
-
-此外，其还持有兰州银行近5%的股份，并在文旅、康养、地产等多个领域广泛布局，跨界运作能力可见一斑。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-29 22:41 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 22:29 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-29 22:21 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 22:12 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 22:37 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-29 22:32 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-29 22:23 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-29 22:24 - [房价什么时候能涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 22:30 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-29 22:41 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-29 22:26 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-29 22:16 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-29 22:25 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-29 22:23 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-29 22:22 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-29 22:29 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 22:20 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 22:37 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-29 22:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 22:30 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 22:42 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 22:35 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 22:33 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 22:41 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 22:24 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 22:38 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 22:23 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-29 22:39 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:39 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/636116790.shtml)
-- 2026-06-29 22:33 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/69361348404.shtml)
-- 2026-06-29 22:16 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.minike.top/Article/details/538571844150.shtml)
-- 2026-06-29 22:36 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/03679.shtml)
-- 2026-06-29 22:36 - [上世纪90年代玩具成新宠](https://www.share.kurohicncr.top/Article/details/24771639704.shtml)
-- 2026-06-29 22:34 - [足球“出口导向”造就佛得角奇迹](http://www.share.kurohicncr.top/Article/details/54650.shtml)
-- 2026-06-29 22:22 - [送你一朵小红花](https://www.blog.minike.top/Article/details/22444384.shtml)
-- 2026-06-29 22:16 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/12393.shtml)
-- 2026-06-29 22:25 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/082425529.shtml)
-- 2026-06-29 22:34 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/482408311.shtml)
-- 2026-06-29 22:25 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/838278641168.shtml)
-- 2026-06-29 22:35 - [五只军犬招募领养人](http://www.share.kurohicncr.top/Article/details/137103992568.shtml)
-- 2026-06-29 22:24 - [乌是否掌握了扭转战局的钥匙](http://www.blog.minike.top/Article/details/145353.shtml)
-- 2026-06-29 22:34 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/336765576797.shtml)
-- 2026-06-29 22:15 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/962180710983.shtml)
+- 2026-06-29 22:27 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/63942657.shtml)
+- 2026-06-29 22:24 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/99586392802.shtml)
+- 2026-06-29 22:36 - [刘宇宁 好听](https://www.blog.minike.top/Article/details/6933276.shtml)
+- 2026-06-29 22:44 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/27302389.shtml)
+- 2026-06-29 22:22 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/53058.shtml)
+- 2026-06-29 22:19 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/3035445.shtml)
+- 2026-06-29 22:39 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/53199896.shtml)
+- 2026-06-29 22:40 - [巴黎区长紧急采购50台中国空调](http://www.share.kurohicncr.top/Article/details/868542204.shtml)
+- 2026-06-29 22:20 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/109132628766.shtml)
+- 2026-06-29 22:27 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/49177.shtml)
+- 2026-06-29 22:38 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/148935634003.shtml)
+- 2026-06-29 22:23 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/3439983316.shtml)
+- 2026-06-29 22:32 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/48375.shtml)
+- 2026-06-29 22:36 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/06806.shtml)
+- 2026-06-29 22:46 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/232689.shtml)

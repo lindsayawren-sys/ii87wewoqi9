@@ -1,42 +1,45 @@
-# 联合国儿童基金会发布报告 气候灾害几乎影响到全球所有儿童
+# 蓝月亮集团于5月15日斥资268.24万港元回购87万股
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 14:25 来源：央视新闻 责任编辑：【王祎】
+蓝月亮集团（06993）发布公告，于2026年5月15日斥资268.24万港元回购87万股。责任编辑：卢昱君
 
 ## 正文
 
-发布时间：2026年06月17日 14:25 来源：央视新闻 责任编辑：【王祎】
+蓝月亮集团（06993）发布公告，于2026年5月15日斥资268.24万港元回购87万股。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:12 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-29 22:18 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-29 22:33 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 22:38 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-29 22:40 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-29 22:18 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-29 22:18 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-29 22:38 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-29 22:29 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-29 22:19 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-29 22:38 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-29 22:36 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 22:20 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 22:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-29 22:39 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-29 22:33 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-29 22:44 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-29 22:44 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-29 22:31 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 22:31 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 22:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/99263.shtml)
-- 2026-06-29 22:38 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/3777456.shtml)
-- 2026-06-29 22:33 - [佛得角队长门德斯被控强奸](https://www.share.minike.top/Article/details/4446911.shtml)
-- 2026-06-29 22:20 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/006431314.shtml)
-- 2026-06-29 22:14 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.kurohicncr.top/Article/details/60303861.shtml)
-- 2026-06-29 22:16 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/78256.shtml)
-- 2026-06-29 22:33 - [CORTIS登机迟到致航班延误](http://www.share.kurohicncr.top/Article/details/595354.shtml)
-- 2026-06-29 22:24 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/7508285.shtml)
-- 2026-06-29 22:37 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/03758788324.shtml)
-- 2026-06-29 22:14 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/82030048.shtml)
-- 2026-06-29 22:26 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/91659993.shtml)
-- 2026-06-29 22:27 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/80009.shtml)
-- 2026-06-29 22:27 - [仙游一峡谷5人身亡知情者发声](http://www.share.minike.top/Article/details/656696306.shtml)
-- 2026-06-29 22:12 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/190923.shtml)
-- 2026-06-29 22:39 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/816771524518.shtml)
+- 2026-06-29 22:45 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/8182001.shtml)
+- 2026-06-29 22:33 - [曝腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/740608.shtml)
+- 2026-06-29 22:35 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/441808453.shtml)
+- 2026-06-29 22:25 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/2234840.shtml)
+- 2026-06-29 22:45 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/5189579062.shtml)
+- 2026-06-29 22:40 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/7279047836.shtml)
+- 2026-06-29 22:38 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/912017958835.shtml)
+- 2026-06-29 22:46 - [宜宾地震已转移安置225人](https://www.share.minike.top/Article/details/40685717.shtml)
+- 2026-06-29 22:30 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/13715510.shtml)
+- 2026-06-29 22:26 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/258535895.shtml)
+- 2026-06-29 22:38 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/2827028.shtml)
+- 2026-06-29 22:22 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/9425469111.shtml)
+- 2026-06-29 22:34 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/419430.shtml)
+- 2026-06-29 22:42 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/44256.shtml)
+- 2026-06-29 22:25 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/75899.shtml)

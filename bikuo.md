@@ -1,56 +1,47 @@
-# 中国是缅甸可以信赖的朋友和伙伴
+# 视频|实控人为俞浩！追觅造车主体公司持股被冻结，公司:系商业纠纷 已和解 公示信息还没更新同步
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-原标题：海外网评：中国是缅甸可以信赖的朋友和伙伴 6月16日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的缅甸总统敏昂莱举行会谈。会谈后，两国元首共同见证签署交通、民生等领域多项合作文件。英国路透社、新加坡亚洲新闻台(CNA)、《日本时报》等外媒均聚焦此次缅甸总统敏昂莱来华访问，并强调这是“敏昂莱当选总统后首次来华访问”。中方期待同缅方一道，通过敏昂莱总统这次访问，赓
+来源：上证盈视频 责任编辑：郝欣煜
 
 ## 正文
 
-原标题：海外网评：中国是缅甸可以信赖的朋友和伙伴 6月16日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的缅甸总统敏昂莱举行会谈。
-
-会谈后，两国元首共同见证签署交通、民生等领域多项合作文件。
-
-英国路透社、新加坡亚洲新闻台(CNA)、《日本时报》等外媒均聚焦此次缅甸总统敏昂莱来华访问，并强调这是“敏昂莱当选总统后首次来华访问”。
-
-中方期待同缅方一道，通过敏昂莱总统这次访问，赓续传统胞波情谊，深化全面战略合作，推动中缅命运共同体建设取得更多务实成果，更好造福两国人民。
-
-中缅是传统友好邻邦和命运共同体。
-
-中缅两国是山水相连的友好邻邦，自古以来，两国人民就以“胞波”相称。
-
-1950年，缅甸在不同社会制度国家中第一个承认新中国，中缅正式建交。
-
-中缅两国老一辈领导人像走亲戚一样频密互访，周恩来总理9次访缅和缅领导人吴奈温12次访华被两国人民传为佳话，尤其是2020年习近平主席历史性访缅，推动中缅关系进入构建命运共同体的新时期。
+来源：上证盈视频 责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-29 22:26 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-29 22:41 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 22:19 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-29 22:27 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 22:34 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-29 22:15 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 22:34 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-29 22:32 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-29 22:12 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 22:21 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 22:45 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 22:27 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 22:47 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 22:41 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-29 22:36 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 22:40 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-29 22:32 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-29 22:34 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 22:26 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 22:32 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-29 22:39 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 22:22 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 22:42 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-29 22:43 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 22:37 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:15 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/71298806.shtml)
-- 2026-06-29 22:19 - [卢卡申科发布解放军仪仗队视频](https://www.blog.minike.top/Article/details/264222299.shtml)
-- 2026-06-29 22:34 - [厨房装空调还是装冷烟机](http://www.share.minike.top/Article/details/0554427.shtml)
-- 2026-06-29 22:39 - [半导体和股市为何没让韩国人起飞](https://www.share.kurohicncr.top/Article/details/202900805.shtml)
-- 2026-06-29 22:12 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/05097920.shtml)
-- 2026-06-29 22:40 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/802906709862.shtml)
-- 2026-06-29 22:38 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/77664296.shtml)
-- 2026-06-29 22:20 - [女生学医适合选什么专业](http://www.share.minike.top/Article/details/027223565932.shtml)
-- 2026-06-29 22:32 - [律师解读滚石唱片要求万豪酒店道歉](https://www.blog.kurohicncr.top/Article/details/05715.shtml)
-- 2026-06-29 22:14 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/501554053.shtml)
-- 2026-06-29 22:21 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/4142803.shtml)
-- 2026-06-29 22:12 - [朱雀三号完成静态点火试验](https://www.share.minike.top/Article/details/569539620796.shtml)
-- 2026-06-29 22:32 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/85635338.shtml)
-- 2026-06-29 22:19 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/2240348.shtml)
-- 2026-06-29 22:18 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/4948810715.shtml)
+- 2026-06-29 22:32 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/696333.shtml)
+- 2026-06-29 22:24 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/76352.shtml)
+- 2026-06-29 22:39 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/15009164.shtml)
+- 2026-06-29 22:43 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/976612974.shtml)
+- 2026-06-29 22:23 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/912454.shtml)
+- 2026-06-29 22:24 - [上世纪90年代玩具成新宠](https://www.blog.minike.top/Article/details/826091939219.shtml)
+- 2026-06-29 22:26 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/70779968805.shtml)
+- 2026-06-29 22:21 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/655289640802.shtml)
+- 2026-06-29 22:44 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/81092.shtml)
+- 2026-06-29 22:33 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/437414.shtml)
+- 2026-06-29 22:29 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/939217128.shtml)
+- 2026-06-29 22:22 - [山东发布山洪灾害气象预警](https://www.share.kurohicncr.top/Article/details/2244349386.shtml)
+- 2026-06-29 22:25 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/554706578.shtml)
+- 2026-06-29 22:40 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/118042923.shtml)
+- 2026-06-29 22:44 - [曝iPhone涨价后不会再降](https://www.share.minike.top/Article/details/06444554352.shtml)

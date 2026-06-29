@@ -1,50 +1,46 @@
-# 【活力中国调研行】废旧厂区如何“换装”国家级零碳园区？探访全国首个资源循环示范基地
+# 中视金桥于5月15日斥资147.4万港元回购72.6万股
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 20:39 来源：中国新闻网 6月16日，记者跟随2026年“活力中国调研行”走进全国首个资源循环领域国家级示范基地——中国资环绿色低碳循环经济示范基地，探访退役光伏组件如何“穿上”彩色外衣、废旧衣物怎样“变身”绿茵草皮、风机叶片如何“铺成”庭院小径。看“央地共建、产城融合”模式下，循环经济如何从这里长出千亿级产业集群。(冯宏杰） 责任编辑：【
+中视金桥（00623）发布公告，于2026年5月15日，该公司斥资147.4万港元回购72.6万股股份，每股回购价2-2.05港元。责任编辑：卢昱君
 
 ## 正文
 
-发布时间：2026年06月16日 20:39 来源：中国新闻网 6月16日，记者跟随2026年“活力中国调研行”走进全国首个资源循环领域国家级示范基地——中国资环绿色低碳循环经济示范基地，探访退役光伏组件如何“穿上”彩色外衣、废旧衣物怎样“变身”绿茵草皮、风机叶片如何“铺成”庭院小径。
+中视金桥（00623）发布公告，于2026年5月15日，该公司斥资147.4万港元回购72.6万股股份，每股回购价2-2.05港元。
 
-看“央地共建、产城融合”模式下，循环经济如何从这里长出千亿级产业集群。
-
-(冯宏杰） 责任编辑：【李季】
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:17 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 22:23 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-29 22:37 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-29 22:13 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-29 22:20 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-29 22:35 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-29 22:23 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-29 22:23 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 22:34 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 22:18 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-29 22:15 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 22:15 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 22:21 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 22:24 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 22:37 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 22:38 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 22:20 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 22:22 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 22:43 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-29 22:21 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 22:37 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-29 22:29 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 22:42 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 22:18 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 22:45 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 22:20 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/663962067.shtml)
-- 2026-06-29 22:18 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/366427227942.shtml)
-- 2026-06-29 22:19 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/843291.shtml)
-- 2026-06-29 22:35 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/094175407649.shtml)
-- 2026-06-29 22:32 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/792274855.shtml)
-- 2026-06-29 22:27 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.minike.top/Article/details/00389871.shtml)
-- 2026-06-29 22:18 - [美国一牛仔表演发生事故](https://www.share.kurohicncr.top/Article/details/7906950.shtml)
-- 2026-06-29 22:39 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/0412946920.shtml)
-- 2026-06-29 22:22 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/50758379033.shtml)
-- 2026-06-29 22:27 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/538086013998.shtml)
-- 2026-06-29 22:20 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/1129413157.shtml)
-- 2026-06-29 22:23 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/491636191.shtml)
-- 2026-06-29 22:21 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/229744877873.shtml)
-- 2026-06-29 22:13 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/38882.shtml)
-- 2026-06-29 22:14 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/510646581.shtml)
+- 2026-06-29 22:24 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/8970472620.shtml)
+- 2026-06-29 22:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/87366599.shtml)
+- 2026-06-29 22:24 - [高考1357分的同学如何报志愿？](https://www.share.kurohicncr.top/Article/details/579037.shtml)
+- 2026-06-29 22:47 - [店员光脚踩入盆中清洗土豆](http://www.share.minike.top/Article/details/34298522.shtml)
+- 2026-06-29 22:36 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/6948581.shtml)
+- 2026-06-29 22:46 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/044576200.shtml)
+- 2026-06-29 22:41 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/82222.shtml)
+- 2026-06-29 22:20 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/74502281.shtml)
+- 2026-06-29 22:36 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/116795701358.shtml)
+- 2026-06-29 22:30 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/43639552.shtml)
+- 2026-06-29 22:36 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/4426287.shtml)
+- 2026-06-29 22:39 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/918673.shtml)
+- 2026-06-29 22:24 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/98694.shtml)
+- 2026-06-29 22:25 - [扫黑风暴](http://www.blog.minike.top/Article/details/14098016.shtml)
+- 2026-06-29 22:30 - [本西奇成本届温网女单首位晋级球员](http://www.share.kurohicncr.top/Article/details/79642.shtml)

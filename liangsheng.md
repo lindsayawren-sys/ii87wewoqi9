@@ -1,58 +1,48 @@
-# 科技上行速度或加快！半导体爆发，科创芯片ETF大涨近6%！科技ETF、电子ETF携手涨超4%！集体创新高！
+# 埃斯顿获控股股东派雷斯特解除质押1100万股
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-今日（6月17日）A股主要指数悉数上涨，沪指站上4100点，创业板指、深证成指放量涨超1%，科技成长风格明显占优。覆盖创业板+科创板高成长龙头的硬科技宽基——双创50ETF华宝（588330）场内价格大涨3.26%逼近前高。沪深京三市成交额3.11万亿元，较昨日放量278亿元。 盘面上，半导体产业链全线爆发，盛美上海20CM涨停，全“芯”布局芯片产业的科创芯片ETF华宝（589
+埃斯顿（02715）发布公告，南京埃斯顿自动化股份有限公司（以下简称“本公司”、“公司”）于近日收到公司控股股东南京派雷斯特科技有限公司（以下简称“派雷斯特”）的通知，获悉其所持有本公司的部分股份办理了解除质押，本次解除质押股份数量为1100万股股份。责任编辑：卢昱君
 
 ## 正文
 
-今日（6月17日）A股主要指数悉数上涨，沪指站上4100点，创业板指、深证成指放量涨超1%，科技成长风格明显占优。
+埃斯顿（02715）发布公告，南京埃斯顿自动化股份有限公司（以下简称“本公司”、“公司”）于近日收到公司控股股东南京派雷斯特科技有限公司（以下简称“派雷斯特”）的通知，获悉其所持有本公司的部分股份办理了解除质押，本次解除质押股份数量为1100万股股份。
 
-覆盖创业板+科创板高成长龙头的硬科技宽基——双创50ETF华宝（588330）场内价格大涨3.26%逼近前高。
-
-沪深京三市成交额3.11万亿元，较昨日放量278亿元。
-
-盘面上，半导体产业链全线爆发，盛美上海20CM涨停，全“芯”布局芯片产业的科创芯片ETF华宝（589190）场内价格强势拉升5.98%，刷新上市高点；PCB、存储芯片、半导体设备等概念多重共振，科技ETF华宝（515000）、电子ETF华宝（515260）携手涨超4%，双双创历史新高！
-
-上周五以来券商板块迎来连续上涨，吸引市场目光，关于“券商补涨”的讨论再起。
-
-规模374亿元+的顶流券商ETF华宝（512000）此前日线3连阳后，今日场内震荡收平。
-
-基金经理丰晨成表示，“双背离”（行情走势与市场交投热度背离、基本面与估值背离）构筑性价比，估值修复行情有望继续。
-
-创历史新高！
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:38 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-29 22:31 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 22:37 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-29 22:18 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 22:26 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-29 22:30 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 22:20 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-29 22:37 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 22:41 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-29 22:29 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-29 22:35 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 22:18 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 22:38 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-29 22:31 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 22:45 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-29 22:33 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 22:20 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 22:40 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-29 22:31 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-29 22:23 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-29 22:20 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-29 22:44 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 22:42 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-29 22:31 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 22:31 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-29 22:28 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:16 - [汪苏泷年度歌手](https://www.blog.kurohicncr.top/Article/details/049666998.shtml)
-- 2026-06-29 22:12 - [曼城官宣马雷斯卡出任主教练](http://www.share.kurohicncr.top/Article/details/875774707.shtml)
-- 2026-06-29 22:37 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/35163537000.shtml)
-- 2026-06-29 22:34 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/1377403.shtml)
-- 2026-06-29 22:20 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/17469982339.shtml)
-- 2026-06-29 22:16 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/529103885.shtml)
-- 2026-06-29 22:38 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/85451153.shtml)
-- 2026-06-29 22:37 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/042916999.shtml)
-- 2026-06-29 22:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/9524584146.shtml)
-- 2026-06-29 22:14 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/26814239.shtml)
-- 2026-06-29 22:31 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.kurohicncr.top/Article/details/869694040414.shtml)
-- 2026-06-29 22:23 - [货车司机恶意闯卡逃费被行拘](http://www.share.minike.top/Article/details/3879327721.shtml)
-- 2026-06-29 22:26 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/57736490155.shtml)
-- 2026-06-29 22:26 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/3796994977.shtml)
-- 2026-06-29 22:31 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.blog.kurohicncr.top/Article/details/05958560.shtml)
+- 2026-06-29 22:23 - [韩国队回国欢迎仪式取消](https://www.blog.minike.top/Article/details/28361552.shtml)
+- 2026-06-29 22:39 - [韩国股市绑架日本？高盛警告](https://www.share.kurohicncr.top/Article/details/5949611680.shtml)
+- 2026-06-29 22:22 - [勇敢的心第二部](https://www.share.minike.top/Article/details/2064503125.shtml)
+- 2026-06-29 22:36 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/556158.shtml)
+- 2026-06-29 22:33 - [明星大侦探第一季](http://www.share.minike.top/Article/details/9363910.shtml)
+- 2026-06-29 22:20 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/101908.shtml)
+- 2026-06-29 22:32 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/809707.shtml)
+- 2026-06-29 22:48 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/86684882.shtml)
+- 2026-06-29 22:35 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/466914.shtml)
+- 2026-06-29 22:19 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/92284.shtml)
+- 2026-06-29 22:45 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/33611308944.shtml)
+- 2026-06-29 22:45 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/6689159727.shtml)
+- 2026-06-29 22:32 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/68309.shtml)
+- 2026-06-29 22:29 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.minike.top/Article/details/132193.shtml)
+- 2026-06-29 22:20 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/887233533.shtml)

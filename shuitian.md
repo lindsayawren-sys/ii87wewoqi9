@@ -1,61 +1,60 @@
-# 中外专家学者走进湖北见证“生态优先，绿色发展”
+# 创新药跌跌不休，什么原因？华宝基金药ETF、港股通创新药ETF（520880）历史新低，还能买吗？
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-原标题：中外专家学者走进湖北见证“生态优先，绿色发展” “中国的做法非常值得借鉴” 江风吹拂，树影摇曳。湖北武汉青山江滩，不少市民在此露营、慢跑，这里曾经砂石满地、码头遍布，如今被改造成全民共享的滨江公园，是市民家门口的“生态客厅”。 “很难想象这里曾经是一片工业区。”乌拉圭发展研究中心首席经济学家顾问玛丽亚·弗洛伦西亚·波罗说，“这些改变是造福百姓的，中国治理河流、保护区域生
+创新药继续磨底。5月18日，AH创新药延续跌势，重仓A股创新药的药ETF华宝（562050）、100%创新药研发标的——港股通创新药ETF华宝（520880）场内价格均创历史新低。 A股方面，百济神州挫5%领跌板块，新和成、华东医药跌超3%，恒瑞医药跌2.89%。场内唯一药ETF华宝（562050）*收跌2.21%四连阴，此前3日连获百万级资金增仓。 港股通创新药波动更大，权重
 
 ## 正文
 
-原标题：中外专家学者走进湖北见证“生态优先，绿色发展” “中国的做法非常值得借鉴” 江风吹拂，树影摇曳。
+创新药继续磨底。
 
-湖北武汉青山江滩，不少市民在此露营、慢跑，这里曾经砂石满地、码头遍布，如今被改造成全民共享的滨江公园，是市民家门口的“生态客厅”。
+5月18日，AH创新药延续跌势，重仓A股创新药的药ETF华宝（562050）、100%创新药研发标的——港股通创新药ETF华宝（520880）场内价格均创历史新低。
 
-“很难想象这里曾经是一片工业区。
+A股方面，百济神州挫5%领跌板块，新和成、华东医药跌超3%，恒瑞医药跌2.89%。
 
-”乌拉圭发展研究中心首席经济学家顾问玛丽亚·弗洛伦西亚·波罗说，“这些改变是造福百姓的，中国治理河流、保护区域生态的做法非常值得借鉴。
+场内唯一药ETF华宝（562050）*收跌2.21%四连阴，此前3日连获百万级资金增仓。
 
-”近日，来自5个国家的官员、代表和专家，与中国人权学者共同走进湖北，探访长江大保护成果和生态惠民的中国实践。
+港股通创新药波动更大，权重龙头康方生物跌5.32%，信达生物、百济神州、石药集团等齐跌逾2%。
 
-“生态优先，绿色发展”是此行的主题，中外专家亲眼见证、亲身体验，感受“人民幸福生活是最大的人权”。
+100%创新药研发标的——港股通创新药ETF华宝（520880）跌2.4%收出五连阴。
 
-在武汉东湖绿道，一幅人与自然和谐共生的城市生态画卷徐徐展开。
+场内再现宽幅溢价，显示买盘态度仍积极。
 
-这条绿道全长105公里，全线采用海绵城市理念建设，规划了13条生物通道，保护上百种野生脊椎动物栖息地，水下森林生态系统为鱼类、两栖类、爬行类、鸟类等提供良好生存环境。
+近期板块连跌区间，巨量资金逆市吸筹，截至5月15日，520880近10日累获逾6.2亿元净申购，基金份额升至55.7亿新高。
 
 ## 相关推荐
 
-- 2026-06-29 22:20 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-29 22:27 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 22:37 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-29 22:30 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-29 22:38 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 22:32 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-29 22:16 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-29 22:38 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-29 22:26 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-29 22:31 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 22:26 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 22:29 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 22:36 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-29 22:25 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-29 22:39 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 22:29 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 22:21 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 22:34 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-29 22:21 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 22:38 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-29 22:26 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 22:25 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 22:27 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 22:31 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-29 22:31 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 22:44 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 22:38 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-29 22:33 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-29 22:31 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:38 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/1446105077.shtml)
-- 2026-06-29 22:24 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/950389832502.shtml)
-- 2026-06-29 22:32 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/891856975611.shtml)
-- 2026-06-29 22:17 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/131026759.shtml)
-- 2026-06-29 22:29 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/46966835876.shtml)
-- 2026-06-29 22:19 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/60143.shtml)
-- 2026-06-29 22:20 - [巴西队主帅称日本队是世界最佳之一](https://www.share.kurohicncr.top/Article/details/7530727591.shtml)
-- 2026-06-29 22:22 - [曼城官宣马雷斯卡出任主教练](http://www.share.minike.top/Article/details/02811.shtml)
-- 2026-06-29 22:21 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/5210800168.shtml)
-- 2026-06-29 22:29 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/60634308.shtml)
-- 2026-06-29 22:20 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/8881872.shtml)
-- 2026-06-29 22:39 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/5584358961.shtml)
-- 2026-06-29 22:34 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/63841436.shtml)
-- 2026-06-29 22:18 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/479990910227.shtml)
-- 2026-06-29 22:33 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/56405.shtml)
+- 2026-06-29 22:19 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/6970470.shtml)
+- 2026-06-29 22:35 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.minike.top/Article/details/86402972718.shtml)
+- 2026-06-29 22:40 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/3305684.shtml)
+- 2026-06-29 22:42 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/32867.shtml)
+- 2026-06-29 22:39 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/60679.shtml)
+- 2026-06-29 22:27 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/6945505.shtml)
+- 2026-06-29 22:28 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/565022.shtml)
+- 2026-06-29 22:40 - [乌克兰发广告全球征兵](http://www.blog.kurohicncr.top/Article/details/349818783243.shtml)
+- 2026-06-29 22:30 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/480470858004.shtml)
+- 2026-06-29 22:18 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/2882726.shtml)
+- 2026-06-29 22:26 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/19995834.shtml)
+- 2026-06-29 22:23 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/44249.shtml)
+- 2026-06-29 22:26 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/04153119.shtml)
+- 2026-06-29 22:18 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/93726392008.shtml)
+- 2026-06-29 22:21 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/19203.shtml)

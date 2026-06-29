@@ -1,56 +1,60 @@
-# 中国加速打造一个百万亿级产业
+# 9连板后一字跌停，*ST准油澄清“注入算力资产”传闻
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 18:56 来源：三里河 6月17日，国家发展改革委在《人民日报》发表署名文章《努力开创服务业高质量发展新局面》。当前，中国正在努力打造一个百万亿级产业，这就是服务业。今年以来，国家有关服务业的重磅动作频频。全国服务业大会在4月初召开，国务院4月21日发布《关于推进服务业扩能提质的意见》，明确提出到2030年服务业总规模迈上100万亿元台阶。如
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月18日，*ST准油（维权）（002207.SZ）一字跌停，报9.64元/股。此前，该股曾连收9个涨停板。 其全天封死跌停的导火索，是5月17日的一则澄清公告。*ST准油称，近期东方财富股吧有投资者发帖称公司有“可能注入算力资产”的计划， 公司特此澄清，公司、控股股东和实际控制人并无注入算力资产的计划。截
 
 ## 正文
 
-发布时间：2026年06月17日 18:56 来源：三里河 6月17日，国家发展改革委在《人民日报》发表署名文章《努力开创服务业高质量发展新局面》。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-当前，中国正在努力打造一个百万亿级产业，这就是服务业。
+5月18日，*ST准油（维权）（002207.SZ）一字跌停，报9.64元/股。
 
-今年以来，国家有关服务业的重磅动作频频。
+此前，该股曾连收9个涨停板。
 
-全国服务业大会在4月初召开，国务院4月21日发布《关于推进服务业扩能提质的意见》，明确提出到2030年服务业总规模迈上100万亿元台阶。
+其全天封死跌停的导火索，是5月17日的一则澄清公告。
 
-如何促进服务业高质量发展，实现百万亿目标？
+*ST准油称，近期东方财富股吧有投资者发帖称公司有“可能注入算力资产”的计划， 公司特此澄清，公司、控股股东和实际控制人并无注入算力资产的计划。
 
-国家发展改革委的这篇文章给出了详细路径，信息量很大，释放出重要信号。
+截至目前，公司不存在应披露而未披露的重大事项，或处于筹划阶段的重大事项，包括但不限于重大资产 重组、股份发行、收购、债务重组、业务重组、资产剥离及资产注入等。
 
-(戴悦 陈庆洋） 责任编辑：【程春雨】
+澎湃新闻注意到，近一个月，*ST准油累计上涨超35%。
+
+因2025年度利润总额、净利润、扣除非经常性损益后的净利润均为负值，且扣除后营业收入低于3亿元，该股4月29日起被实施“退市风险警示”特别处理。
 
 ## 相关推荐
 
-- 2026-06-29 22:25 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-29 22:39 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 22:24 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-29 22:34 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 22:41 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 22:40 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 22:36 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 22:38 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-29 22:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-29 22:33 - [夫妻生活太无聊，所以我……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 22:39 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 22:24 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-29 22:41 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 22:20 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 22:28 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 22:34 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 22:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 22:41 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 22:44 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 22:45 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-29 22:21 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 22:46 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-29 22:21 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-29 22:29 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 22:43 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-29 22:34 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:36 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.kurohicncr.top/Article/details/53074.shtml)
-- 2026-06-29 22:40 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/5491856.shtml)
-- 2026-06-29 22:20 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/084679179413.shtml)
-- 2026-06-29 22:14 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/51521.shtml)
-- 2026-06-29 22:28 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/120767988823.shtml)
-- 2026-06-29 22:39 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/9453418.shtml)
-- 2026-06-29 22:12 - [广东水利防汛Ⅳ级应急响应结束](https://www.share.kurohicncr.top/Article/details/76640941677.shtml)
-- 2026-06-29 22:22 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/76835.shtml)
-- 2026-06-29 22:34 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/226696668.shtml)
-- 2026-06-29 22:13 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/61707881261.shtml)
-- 2026-06-29 22:26 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/849786850.shtml)
-- 2026-06-29 22:24 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/09044633424.shtml)
-- 2026-06-29 22:32 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/0902150080.shtml)
-- 2026-06-29 22:26 - [高考1357分的同学如何报志愿？](http://www.blog.kurohicncr.top/Article/details/63783014429.shtml)
-- 2026-06-29 22:40 - [周生如故](https://www.share.kurohicncr.top/Article/details/5928191292.shtml)
+- 2026-06-29 22:46 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/19493.shtml)
+- 2026-06-29 22:29 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/051114.shtml)
+- 2026-06-29 22:40 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/15437.shtml)
+- 2026-06-29 22:20 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/5584658.shtml)
+- 2026-06-29 22:28 - [爱很美味](https://www.share.kurohicncr.top/Article/details/02439592.shtml)
+- 2026-06-29 22:31 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/059635.shtml)
+- 2026-06-29 22:23 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.minike.top/Article/details/73640461.shtml)
+- 2026-06-29 22:46 - [王鸿薇要求删陆委会百余万特别费](http://www.share.kurohicncr.top/Article/details/311188766.shtml)
+- 2026-06-29 22:28 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/932241394.shtml)
+- 2026-06-29 22:25 - [世界杯](http://www.blog.minike.top/Article/details/36070603762.shtml)
+- 2026-06-29 22:30 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/39190621142.shtml)
+- 2026-06-29 22:27 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/8466202.shtml)
+- 2026-06-29 22:36 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/32965.shtml)
+- 2026-06-29 22:38 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/4418388.shtml)
+- 2026-06-29 22:34 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/20800071745.shtml)

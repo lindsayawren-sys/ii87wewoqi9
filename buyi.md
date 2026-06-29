@@ -1,61 +1,58 @@
-# 西十高铁启动全线拉通试运行
+# 国家统计局：1—4月份规模以上工业增加值增长5.6%
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-中新社西安6月16日电 (张远 李一璠)55302次试验动车组16日上午从西安东站缓缓驶出，沿西十高铁正线驶向十堰东站，标志着西十高铁启动全线拉通试运行。 西十高铁起自西安东站，途经陕西省西安市、商洛市及湖北省十堰市，接入已建成投用的武汉至十堰高铁十堰东站，新建正线长256.938公里，设计时速350公里。 试验期间，铁路部门将开展列车运行图参数测试、设备故障模拟、应急救援演练
+中新网5月18日电 据国家统计局网站消息，1—4月份，规模以上工业增加值同比实际增长5.6%(增加值增速均为扣除价格因素的实际增长率)。4月份，规模以上工业增加值同比增长4.1%。从环比看，4月份，规模以上工业增加值比上月增长0.05%。 分三大门类看，4月份，采矿业增加值同比增长3.8%，制造业增长4.0%，电力、热力、燃气及水生产和供应业增长5.3%。 分经济类型看，4月份
 
 ## 正文
 
-中新社西安6月16日电 (张远 李一璠)55302次试验动车组16日上午从西安东站缓缓驶出，沿西十高铁正线驶向十堰东站，标志着西十高铁启动全线拉通试运行。
+中新网5月18日电 据国家统计局网站消息，1—4月份，规模以上工业增加值同比实际增长5.6%(增加值增速均为扣除价格因素的实际增长率)。
 
-西十高铁起自西安东站，途经陕西省西安市、商洛市及湖北省十堰市，接入已建成投用的武汉至十堰高铁十堰东站，新建正线长256.938公里，设计时速350公里。
+4月份，规模以上工业增加值同比增长4.1%。
 
-试验期间，铁路部门将开展列车运行图参数测试、设备故障模拟、应急救援演练、按图行车试验等，全面验证线路运输组织效率、列车接发能力、开行密度合理性、旅客服务设备状态及各系统协同匹配性。
+从环比看，4月份，规模以上工业增加值比上月增长0.05%。
 
-记者了解到，全线共设西安东、蓝田、商洛西、山阳、漫川关、郧西、十堰东7站，十堰东站为既有站，其他为新建车站。
+分三大门类看，4月份，采矿业增加值同比增长3.8%，制造业增长4.0%，电力、热力、燃气及水生产和供应业增长5.3%。
 
-线路沿线车站立足地域文化特色，打造一站一景的建筑风貌。
+分经济类型看，4月份，国有控股企业增加值同比增长3.0%；股份制企业增长4.2%，外商及港澳台投资企业增长4.1%；私营企业增长2.8%。
 
-其中，西安东站作为西十高铁关键枢纽站，年旅客发送能力可达3650万人次。
+分行业看，4月份，41个大类行业中有29个行业增加值保持同比增长。
 
-车站采用“三面进站”布局，实现干线铁路、城际铁路、城市轨道交通“三网融合”，是中国国内首座修建于台塬地形之上的大型综合铁路枢纽。
+其中，煤炭开采和洗选业增长3.8%，石油和天然气开采业增长4.6%，农副食品加工业增长3.5%，酒、饮料和精制茶制造业下降1.4%，纺织业增长2.3%，化学原料和化学制品制造业增长5.3%，非金属矿物制品业下降6.5%，黑色金属冶炼和压延加工业增长1.0%，有色金属冶炼和压延加工业下降1.0%，通用设备制造业增长5.5%，专用设备制造业增长6.2%，汽车制造业增长9.2%，铁路、船舶、航空航天和其他运输设备制造业增长8.2%，电气机械和器材制造业增长3.1%，计算机、通信和其他电子设备制造业增长15.6%，电力、热力生产和供应业增长6.2%。
 
-西十高铁是国家高速铁路网的重要组成部分。
+分产品看，4月份，规模以上工业626种产品中有321种产品产量同比增长。
 
 ## 相关推荐
 
-- 2026-06-29 22:30 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-29 22:35 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 22:27 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 22:19 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 22:31 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-29 22:32 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-29 22:36 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-29 22:25 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-29 22:28 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-29 22:30 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 22:28 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 22:13 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-29 22:26 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 22:26 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-29 22:26 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-29 22:25 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-29 22:26 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-29 22:35 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 22:39 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 22:26 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 22:36 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 22:43 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 22:44 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 22:42 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-29 22:34 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 22:39 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 22:22 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:17 - [一生一世](http://www.share.minike.top/Article/details/975786429.shtml)
-- 2026-06-29 22:27 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.minike.top/Article/details/28360925313.shtml)
-- 2026-06-29 22:19 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/684258918745.shtml)
-- 2026-06-29 22:36 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/6009136532.shtml)
-- 2026-06-29 22:21 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/5902773.shtml)
-- 2026-06-29 22:15 - [女生学医适合选什么专业](https://www.blog.kurohicncr.top/Article/details/102307076096.shtml)
-- 2026-06-29 22:16 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/90949.shtml)
-- 2026-06-29 22:41 - [曝iPhone涨价后不会再降](https://www.share.kurohicncr.top/Article/details/86833.shtml)
-- 2026-06-29 22:17 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/795004.shtml)
-- 2026-06-29 22:32 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/52814369505.shtml)
-- 2026-06-29 22:14 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/23267491.shtml)
-- 2026-06-29 22:30 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/78978811.shtml)
-- 2026-06-29 22:39 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/216308650292.shtml)
-- 2026-06-29 22:40 - [105岁女红军看到自己长征时的模样](https://www.share.kurohicncr.top/Article/details/214010466.shtml)
-- 2026-06-29 22:28 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/89751.shtml)
+- 2026-06-29 22:25 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/83775749873.shtml)
+- 2026-06-29 22:33 - [日防卫省正考虑引进美企人工智能系统](http://www.share.minike.top/Article/details/4700484066.shtml)
+- 2026-06-29 22:40 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/17000300.shtml)
+- 2026-06-29 22:23 - [半导体和股市为何没让韩国人起飞](http://www.share.kurohicncr.top/Article/details/5795766796.shtml)
+- 2026-06-29 22:36 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/99956407.shtml)
+- 2026-06-29 22:26 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/561658595.shtml)
+- 2026-06-29 22:40 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/905394689616.shtml)
+- 2026-06-29 22:37 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/095094.shtml)
+- 2026-06-29 22:36 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/31654610502.shtml)
+- 2026-06-29 22:18 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/78437.shtml)
+- 2026-06-29 22:45 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/586141750407.shtml)
+- 2026-06-29 22:38 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/3919734.shtml)
+- 2026-06-29 22:33 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/34273.shtml)
+- 2026-06-29 22:30 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.kurohicncr.top/Article/details/060866.shtml)
+- 2026-06-29 22:35 - [朱雀三号完成静态点火试验](http://www.blog.minike.top/Article/details/83861701598.shtml)

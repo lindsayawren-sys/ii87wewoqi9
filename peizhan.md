@@ -1,57 +1,56 @@
-# 保健品618大促：热销与乱象并存，如何走出野蛮生长困境？
+# 2026年亚太经合组织第二次高官会在上海举行
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者 韩利明 “考研备考失眠，有什么助眠补剂？”“上班族精力不足，保健品该怎么选？”“27岁打工人常年回购保健品清单”……打开小红书、抖音等社交平台，以保健品为关键词的种草、咨询帖层出不穷，健康食补、营养补充俨然成为全民健康消费新风尚。 消费需求的释放也带动行业规模稳步扩容。中国医药保健品进出口商会数据显示，传统货架电商仍是保健品销售核心阵地，但内容电商的增长势
+2026年亚太经合组织第二次高官会于今天（18日）下午在上海举行。会期将从18日持续至19日。本次会议将对今年APEC合作进行年中盘点，汇聚早期收获，为下半年各场活动和领导人会议成果做好铺垫。 APEC高官会是为领导人会议准备成果的主渠道，每年举办4至5次。2026年亚太经合组织第一次高官会已于今年2月在广州举行。 （总台央视记者 黄达 高博远）责任编辑：刘万里 SF014
 
 ## 正文
 
-21世纪经济报道记者 韩利明 “考研备考失眠，有什么助眠补剂？
+2026年亚太经合组织第二次高官会于今天（18日）下午在上海举行。
 
-”“上班族精力不足，保健品该怎么选？
+会期将从18日持续至19日。
 
-”“27岁打工人常年回购保健品清单”……打开小红书、抖音等社交平台，以保健品为关键词的种草、咨询帖层出不穷，健康食补、营养补充俨然成为全民健康消费新风尚。
+本次会议将对今年APEC合作进行年中盘点，汇聚早期收获，为下半年各场活动和领导人会议成果做好铺垫。
 
-消费需求的释放也带动行业规模稳步扩容。
+APEC高官会是为领导人会议准备成果的主渠道，每年举办4至5次。
 
-中国医药保健品进出口商会数据显示，传统货架电商仍是保健品销售核心阵地，但内容电商的增长势头尤为显著。
+2026年亚太经合组织第一次高官会已于今年2月在广州举行。
 
-2025年，中国营养保健食品电商渠道销售总额达到1537亿元，继续保持稳健增长态势。
-
-市场一路向好的同时，行业发展痛点与乱象也随之暴露：不少消费者质疑保健品是“智商税”，难以辨别进口产品真伪，大量中老年群体深陷保健品推销骗局；虚假宣传、功效夸大、贴牌代工、“假洋牌”横行等乱象持续困扰市场。
-
-天津宝恒福豆生物科技集团董事长李宝恒在第十六届中国国际健康产品展览会、2026亚洲天然及营养保健品展上向21世纪经济报道记者直言：“大健康是国家重点战略赛道，全民健康刚需支撑行业长期向好，但目前行业仍处于野蛮生长阶段，各类不合规经营问题多发。
+（总台央视记者 黄达 高博远）责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 22:20 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-29 22:36 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-29 22:15 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-29 22:34 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 22:29 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-29 22:20 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-29 22:29 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-29 22:31 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 22:19 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-29 22:31 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 22:23 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-29 22:35 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-29 22:24 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 22:37 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-29 22:43 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-29 22:45 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 22:26 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 22:23 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 22:33 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-29 22:18 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 22:29 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 22:44 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-29 22:46 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 22:40 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 22:46 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:39 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/23959.shtml)
-- 2026-06-29 22:26 - [返利科技盘中上演“天地板”](https://www.share.minike.top/Article/details/524759737904.shtml)
-- 2026-06-29 22:40 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/20636428.shtml)
-- 2026-06-29 22:15 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/044237588159.shtml)
-- 2026-06-29 22:36 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/74413.shtml)
-- 2026-06-29 22:22 - [女生学医适合选什么专业](https://www.share.minike.top/Article/details/79317.shtml)
-- 2026-06-29 22:27 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/1910304578.shtml)
-- 2026-06-29 22:36 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/445380.shtml)
-- 2026-06-29 22:39 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/28710.shtml)
-- 2026-06-29 22:14 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.minike.top/Article/details/013677.shtml)
-- 2026-06-29 22:14 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/577251.shtml)
-- 2026-06-29 22:22 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/14011.shtml)
-- 2026-06-29 22:16 - [肝不好身体这几处会“说话”](http://www.share.minike.top/Article/details/8208933.shtml)
-- 2026-06-29 22:41 - [马光远谈马斯克最大的价值](http://www.blog.minike.top/Article/details/02847760645.shtml)
-- 2026-06-29 22:40 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/21252.shtml)
+- 2026-06-29 22:33 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/2667881.shtml)
+- 2026-06-29 22:42 - [恋与深空致歉](http://www.blog.minike.top/Article/details/715888349006.shtml)
+- 2026-06-29 22:26 - [浙江进入梅雨最强“攻击时段”](http://www.blog.minike.top/Article/details/47976476214.shtml)
+- 2026-06-29 22:35 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/673461503207.shtml)
+- 2026-06-29 22:46 - [国际清算银行警告AI投资热潮](http://www.blog.minike.top/Article/details/47087078.shtml)
+- 2026-06-29 22:45 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/849680.shtml)
+- 2026-06-29 22:23 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/81096570105.shtml)
+- 2026-06-29 22:29 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/852090626824.shtml)
+- 2026-06-29 22:45 - [欧洲缘何成为变暖最快的大洲](http://www.blog.kurohicncr.top/Article/details/10637191482.shtml)
+- 2026-06-29 22:36 - [绿营污蔑大陆“海上袭扰”被批](http://www.share.minike.top/Article/details/232243294183.shtml)
+- 2026-06-29 22:39 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/9521064692.shtml)
+- 2026-06-29 22:29 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/6184714111.shtml)
+- 2026-06-29 22:35 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/14869953200.shtml)
+- 2026-06-29 22:19 - [月亮](http://www.share.kurohicncr.top/Article/details/5140359956.shtml)
+- 2026-06-29 22:36 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/86972.shtml)

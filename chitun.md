@@ -1,61 +1,58 @@
-# 身处AI时代，青年如何前行？重邮校长寄语学子以本心掌舵
+# 中原农谷国际引种中心在河南新乡揭牌
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-中新网重庆6月17日电 (记者 钟旖)重庆邮电大学17日举行2026年毕业典礼暨学位授予仪式。该校5302位本科生、2414位硕士生、48位博士生圆满完成学业，即将奔赴山海、逐梦远方。该校校长苏森以“在AI变局中向远方坚定前行”为题寄语毕业生，勉励大家“坚定地向内建设自我，坚定地向外拥抱变化，坚定地向远方前行。” 苏森提到，几年前同学们入学时，大模型刚刚走入大众视野；今天毕业时
+中新社河南新乡5月16日电 (韩章云 赵梦阳)国际玉米小麦改良中心——中原农谷国际引种中心16日在河南新乡中原农谷揭牌，旨在深化国际合作，引进优质种质资源。 国际玉米小麦改良中心作为国际农业研究磋商组织(CGIAR)的重要成员，是专门为发展中国家服务的国际农业研究和培训机构。 揭牌仪式上，国际玉米小麦改良中心中国办事处主任、中国工程院院士何中虎致辞称，成立中原农谷国际引种中心，
 
 ## 正文
 
-中新网重庆6月17日电 (记者 钟旖)重庆邮电大学17日举行2026年毕业典礼暨学位授予仪式。
+中新社河南新乡5月16日电 (韩章云 赵梦阳)国际玉米小麦改良中心——中原农谷国际引种中心16日在河南新乡中原农谷揭牌，旨在深化国际合作，引进优质种质资源。
 
-该校5302位本科生、2414位硕士生、48位博士生圆满完成学业，即将奔赴山海、逐梦远方。
+国际玉米小麦改良中心作为国际农业研究磋商组织(CGIAR)的重要成员，是专门为发展中国家服务的国际农业研究和培训机构。
 
-该校校长苏森以“在AI变局中向远方坚定前行”为题寄语毕业生，勉励大家“坚定地向内建设自我，坚定地向外拥抱变化，坚定地向远方前行。
+揭牌仪式上，国际玉米小麦改良中心中国办事处主任、中国工程院院士何中虎致辞称，成立中原农谷国际引种中心，就是要把国际玉米小麦改良中心育成的最新品种、品系引到河南，发放给国内同行，搭建河南与世界种质资源交换的枢纽，形成面向黄淮海乃至全国麦区重要的种质资源共享网络。
 
-” 苏森提到，几年前同学们入学时，大模型刚刚走入大众视野；今天毕业时，大模型、智能体等已渗透科研、工作、生活全场景。
+河南是中国农业大省，粮食总产量连续9年稳定在1300亿斤以上。
 
-在人工智能引领新一轮科技革命与产业变革的时代，充满了可能性和不确定性，期待与迷茫相伴，憧憬与焦虑交织。
+河南省农业农村厅副厅长魏国强表示，河南农业科技进步贡献率达67%，该省将全力支持中原农谷国际引种中心高效运行，加速前沿成果转化为大田生产力，持续夯实河南小麦稳产增效提质的种源基础与科技支撑。
 
-据不完全统计，本届毕业生中有3065人选择直接投身信息科技行业，有1744人选择赴国内外名校深造，有121人选择携笔从戎或奔赴西部。
+“我期待通过这个中心，加强与中国育种专家的交流与合作。
 
-苏森说，AI技术变革，既带来个人发展的黄金赛道，也抛出全新的时代考卷。
+”巴基斯坦开伯尔——普赫图赫瓦省农业研究所所长阿卜杜勒·巴里表示，他期待中原农谷国际引种中心能系统引进和鉴定优异种质资源，为南亚、非洲等地区的韧性品种培育提供支撑，同时搭建联合育种与技术共享平台，共同应对气候变化和粮食安全带来的调整，并加强培养青年农业科技人才，让先进技术落地。
 
-在这个“年轻人的事业”中，希望同学们循大道而进，坚定做变局中与祖国同行的奋进者。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:40 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-29 22:32 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 22:30 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 22:25 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 22:16 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-29 22:36 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 22:13 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-29 22:18 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-29 22:30 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 22:20 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 22:41 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 22:24 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-29 22:19 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-29 22:18 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 22:40 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-29 22:40 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 22:39 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-29 22:27 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-29 22:45 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-29 22:37 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 22:36 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 22:33 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-29 22:35 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 22:29 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 22:33 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 22:25 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-29 22:28 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:26 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.kurohicncr.top/Article/details/826819748079.shtml)
-- 2026-06-29 22:35 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/10236.shtml)
-- 2026-06-29 22:37 - [巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/572167614.shtml)
-- 2026-06-29 22:13 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/496299808204.shtml)
-- 2026-06-29 22:15 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/89151.shtml)
-- 2026-06-29 22:41 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/1733294.shtml)
-- 2026-06-29 22:33 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/285892665780.shtml)
-- 2026-06-29 22:25 - [谁在推动“成都造”影视持续出圈](https://www.blog.kurohicncr.top/Article/details/8084710.shtml)
-- 2026-06-29 22:28 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/68804269.shtml)
-- 2026-06-29 22:14 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/4504781.shtml)
-- 2026-06-29 22:17 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/5358086313.shtml)
-- 2026-06-29 22:17 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/5559942.shtml)
-- 2026-06-29 22:21 - [6.5万观众40分钟“丝滑”离场](https://www.blog.kurohicncr.top/Article/details/842234505637.shtml)
-- 2026-06-29 22:40 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/76019.shtml)
-- 2026-06-29 22:35 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/63151789.shtml)
+- 2026-06-29 22:39 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/5322696.shtml)
+- 2026-06-29 22:36 - [刘宇宁 好听](https://www.blog.minike.top/Article/details/024878.shtml)
+- 2026-06-29 22:47 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/6331574054.shtml)
+- 2026-06-29 22:44 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/12288.shtml)
+- 2026-06-29 22:24 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/714324.shtml)
+- 2026-06-29 22:32 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/6041741181.shtml)
+- 2026-06-29 22:38 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/05170.shtml)
+- 2026-06-29 22:43 - [曼城官宣马雷斯卡出任主教练](https://www.blog.kurohicncr.top/Article/details/830788663773.shtml)
+- 2026-06-29 22:29 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/46623970339.shtml)
+- 2026-06-29 22:40 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/40017540.shtml)
+- 2026-06-29 22:44 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.minike.top/Article/details/93999472914.shtml)
+- 2026-06-29 22:31 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/4716791456.shtml)
+- 2026-06-29 22:36 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/63492.shtml)
+- 2026-06-29 22:21 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/20440331493.shtml)
+- 2026-06-29 22:32 - [逃狱兄弟](https://www.blog.minike.top/Article/details/12735206890.shtml)

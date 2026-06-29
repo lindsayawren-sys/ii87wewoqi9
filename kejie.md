@@ -1,60 +1,57 @@
-# 海南推出21条政策举措强化自然资源要素精准供给
+# 塞尔维亚主流媒体代表团四川采风 冀讲好中国故事
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-中新网海口6月16日电 (尹建军 黄丹)海南省自然资源和规划厅16日介绍，海南省多部门近日印发《进一步强化自然资源要素精准供给若干政策措施》，围绕空间规划、耕地保护、土地征收、用地审批等8个方面，出台21条具体政策举措，提升自然资源要素保障精准度和实效性。在优化要素保障审批流程方面，海南进一步放权赋能、精简环节。用地预审环节，将省级自然资源和规划部门权限内的用地预审事项，全部授
+中新网成都5月17日电 (记者 岳依桐)记者17日从四川省友协获悉，应中国人民对外友好协会邀请，由塞尔维亚国家广播电视台、南斯拉夫通讯社、讯息电视台、PINK电视台的8名资深记者和摄影师组成的主流媒体代表团近日来川采风。 代表团一行从科技、开放、人文、生态等维度“沉浸式”感受四川发展活力与文化底蕴，以镜头为媒、以四川为窗口，讲述中国故事、中塞友好故事，冀进一步加深两国民众相知相
 
 ## 正文
 
-中新网海口6月16日电 (尹建军 黄丹)海南省自然资源和规划厅16日介绍，海南省多部门近日印发《进一步强化自然资源要素精准供给若干政策措施》，围绕空间规划、耕地保护、土地征收、用地审批等8个方面，出台21条具体政策举措，提升自然资源要素保障精准度和实效性。
+中新网成都5月17日电 (记者 岳依桐)记者17日从四川省友协获悉，应中国人民对外友好协会邀请，由塞尔维亚国家广播电视台、南斯拉夫通讯社、讯息电视台、PINK电视台的8名资深记者和摄影师组成的主流媒体代表团近日来川采风。
 
-在优化要素保障审批流程方面，海南进一步放权赋能、精简环节。
+代表团一行从科技、开放、人文、生态等维度“沉浸式”感受四川发展活力与文化底蕴，以镜头为媒、以四川为窗口，讲述中国故事、中塞友好故事，冀进一步加深两国民众相知相亲，增进中塞友谊。
 
-用地预审环节，将省级自然资源和规划部门权限内的用地预审事项，全部授权市县相关部门办理，实现审批权限下沉。
+采风期间，代表团深入产业开放、科创赋能与绿色发展一线，先后走访中国—欧洲中心、宝马—阿里云创新中心、成都国际铁路港、农夫山泉都江堰青城山工厂和都江堰猕猴桃灌区优品汇，全面了解四川对欧合作布局、科技创新生态、国际物流枢纽建设与现代农业发展成就。
 
-土地征收环节，实行征地前期工作并联开展，取消单独编制土地征收成片开发方案的要求，有效压缩征地周期、减少用地主体投入。
+代表团一行还漫步宽窄巷子，亲身感受巴蜀人文风情与城市魅力；在熊猫谷邂逅大熊猫，近距离跟拍憨态可掬的萌宝，点赞四川生态文明建设和生物多样性保护取得的成效；在都江堰水利工程惊叹中国先人治水的东方智慧，并参访四川省人大历史陈列馆，系统了解中国、四川民主法治建设的发展历程与地方治理实践。
 
-在用地报批环节，精简审查要件，不再开展压覆重要矿产资源、详细规划相关内容审查，大幅缩减申报材料。
+塞尔维亚国家广播电视台记者焦尔杰·斯拉夫科维奇表示，此行旨在记录真实立体的四川、客观鲜活的中国，向塞尔维亚民众传递最直观、最真切的见闻感受。
 
-规划许可环节，明确建立零星公共设施项目等三大类项目豁免清单，符合条件项目可免于办理工程规划许可、乡村建设规划许可，切实提升项目落地效率。
+南斯拉夫通讯社摄像师阿莱克桑达尔·帕拉伊奇表示，回国后将第一时间整理采风素材，精心制作专题宣传片并在塞尔维亚主流媒体播出，全方位、多角度展现中国式现代化的生动实践与发展成就。
 
-此次新政出台举措，解决存量难题和历史遗留问题。
-
-殡葬设施用地方面，经市县政府认定的殡葬设施用地需求，可纳入国土空间规划统一保障，补齐公共服务配套短板。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:25 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-29 22:35 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-29 22:14 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 22:36 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-29 22:32 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-29 22:20 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 22:12 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-29 22:31 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-29 22:25 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 22:21 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 22:18 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 22:42 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 22:21 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-29 22:26 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-29 22:43 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-29 22:42 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-29 22:41 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 22:36 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 22:22 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-29 22:18 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 22:37 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 22:20 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 22:27 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-29 22:37 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 22:27 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 22:38 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-29 22:19 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:16 - [上世纪90年代玩具成新宠](http://www.blog.minike.top/Article/details/645047179884.shtml)
-- 2026-06-29 22:33 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/835071526.shtml)
-- 2026-06-29 22:28 - [明星大侦探第四季](https://www.share.minike.top/Article/details/40981344312.shtml)
-- 2026-06-29 22:29 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/51727.shtml)
-- 2026-06-29 22:17 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/8317871664.shtml)
-- 2026-06-29 22:14 - [把邻居裸体发群算维权还是侵权](http://www.share.minike.top/Article/details/72662756468.shtml)
-- 2026-06-29 22:28 - [记者乘坐无人驾驶汽车去采访](http://www.share.kurohicncr.top/Article/details/4089228416.shtml)
-- 2026-06-29 22:27 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/2626997077.shtml)
-- 2026-06-29 22:16 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/5165765059.shtml)
-- 2026-06-29 22:35 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/125122212488.shtml)
-- 2026-06-29 22:28 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/1763611.shtml)
-- 2026-06-29 22:29 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.minike.top/Article/details/88358651.shtml)
-- 2026-06-29 22:27 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/9008352529.shtml)
-- 2026-06-29 22:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/843825928730.shtml)
-- 2026-06-29 22:12 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/132902910.shtml)
+- 2026-06-29 22:36 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/5589280098.shtml)
+- 2026-06-29 22:29 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/91437.shtml)
+- 2026-06-29 22:23 - [韩国队回国欢迎仪式取消](https://www.share.kurohicncr.top/Article/details/610765280.shtml)
+- 2026-06-29 22:31 - [回顾世界杯争议事件](https://www.share.kurohicncr.top/Article/details/71781611.shtml)
+- 2026-06-29 22:45 - [王安宇聪明到导演组炸了](http://www.blog.minike.top/Article/details/019745012255.shtml)
+- 2026-06-29 22:37 - [穆祉丞东方风云榜红毯](https://www.share.minike.top/Article/details/824645.shtml)
+- 2026-06-29 22:28 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/20410.shtml)
+- 2026-06-29 22:37 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/4706532.shtml)
+- 2026-06-29 22:29 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/6401069.shtml)
+- 2026-06-29 22:46 - [孙俪开QQ的蛮好生活](https://www.share.kurohicncr.top/Article/details/2709261.shtml)
+- 2026-06-29 22:18 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/642694772524.shtml)
+- 2026-06-29 22:37 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/40740827601.shtml)
+- 2026-06-29 22:24 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/4218257.shtml)
+- 2026-06-29 22:25 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/22804486.shtml)
+- 2026-06-29 22:22 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/352233.shtml)

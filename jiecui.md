@@ -1,61 +1,56 @@
-# 帮境外机构解决人民币流动性问题，央行出手了
+# 金玉流光贯古今 386件文物齐聚青城诉说中华文脉
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者 唐婧 6月17日，央行行长潘功胜在2026陆家嘴论坛上宣布，将创设境外央行类机构回购工具。同日，央行发布公告，披露了该工具的操作框架。 潘功胜介绍，境外央行或货币当局、国际金融组织、主权财富基金，都可以用中国国债等高等级债券回购的方式，从中国人民银行获得人民币流动性，便利境外央行类机构的人民币流动性管理和人民币资产配置。 公告指出，该工具操作方式包括买断式
+中新网呼和浩特5月18日电 题：金玉流光贯古今 386件文物齐聚青城诉说中华文脉 中新网记者 刘文华 “金玉华光 多彩中华”特展18日在内蒙古博物院开幕。作为2026年“5·18国际博物馆日”中国主会场特展，该展通过金、玉等文物见证中华文明演进历史。 展品共计386件(套)，来自辽宁、四川、内蒙古等地58家文博机构，其中珍贵文物占比达69%，时间跨度从新石器时代延伸至明清时期。
 
 ## 正文
 
-21世纪经济报道记者 唐婧 6月17日，央行行长潘功胜在2026陆家嘴论坛上宣布，将创设境外央行类机构回购工具。
+中新网呼和浩特5月18日电 题：金玉流光贯古今 386件文物齐聚青城诉说中华文脉 中新网记者 刘文华 “金玉华光 多彩中华”特展18日在内蒙古博物院开幕。
 
-同日，央行发布公告，披露了该工具的操作框架。
+作为2026年“5·18国际博物馆日”中国主会场特展，该展通过金、玉等文物见证中华文明演进历史。
 
-潘功胜介绍，境外央行或货币当局、国际金融组织、主权财富基金，都可以用中国国债等高等级债券回购的方式，从中国人民银行获得人民币流动性，便利境外央行类机构的人民币流动性管理和人民币资产配置。
+展品共计386件(套)，来自辽宁、四川、内蒙古等地58家文博机构，其中珍贵文物占比达69%，时间跨度从新石器时代延伸至明清时期。
 
-公告指出，该工具操作方式包括买断式逆回购和质押式逆回购，操作期限涵盖7天、1个月、3个月，回购利率在公开市场7天期逆回购操作利率上加点确定。
+在展览开篇部分，一件来自赤峰市敖汉旗下洼镇八旗村的红山文化玉猪龙引起关注。
 
-境外机构可使用中国国债、央行票据、政策性金融债等高等级人民币债券作为合格抵押品。
+该文物高15.8厘米，为目前考古发现中体量最大的玉猪龙。
 
-换言之，境外央行类机构可凭合格抵押品从中国人民银行融入资金，从而有效便利其人民币流动性管理，增强持有人民币资产的信心。
+展线另一端，赤峰市翁牛特旗黄谷屯出土的“中华第一龙”C形黄玉龙与之相对。
 
-‌远东资信研究院副院长张林告诉记者，境外机构持有人民币资产有时会面临短期流动性缺口，该工具有助于解决他们“变现渠道不畅”问题。
+两件红山玉龙在同一展厅相遇，并不常见。
 
-此举可以降低境外机构持有人民币资产的流动性风险溢价，从而增强人民币资产对全球配置机构的吸引力。
+展览设“玉出东方”“金玉并重”“金玉交辉”“华彩纷呈”“金玉满堂”5个单元，对应新石器时代、青铜时代、春秋至秦汉、魏晋至宋元、明清5个阶段。
 
 ## 相关推荐
 
-- 2026-06-29 22:27 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 22:36 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 22:33 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-29 22:19 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-29 22:13 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-29 22:19 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-29 22:34 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 22:25 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-29 22:38 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 22:32 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-29 22:26 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-29 22:17 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 22:39 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 22:39 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-29 22:20 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-29 22:33 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 22:42 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-29 22:23 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 22:38 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 22:42 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 22:36 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-29 22:28 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-29 22:44 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-29 22:25 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 22:22 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:34 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/720504277.shtml)
-- 2026-06-29 22:37 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/3994162.shtml)
-- 2026-06-29 22:12 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/21591.shtml)
-- 2026-06-29 22:13 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/10043590.shtml)
-- 2026-06-29 22:36 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/16233.shtml)
-- 2026-06-29 22:33 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/8698931905.shtml)
-- 2026-06-29 22:18 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.minike.top/Article/details/408789481635.shtml)
-- 2026-06-29 22:12 - [多人将马路护栏当球网打羽毛球](http://www.blog.kurohicncr.top/Article/details/541102167.shtml)
-- 2026-06-29 22:31 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/86330.shtml)
-- 2026-06-29 22:34 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/187184871811.shtml)
-- 2026-06-29 22:19 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/704502121.shtml)
-- 2026-06-29 22:36 - [速度与激情9](http://www.blog.minike.top/Article/details/853934.shtml)
-- 2026-06-29 22:32 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/173905.shtml)
-- 2026-06-29 22:13 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/0862068248.shtml)
-- 2026-06-29 22:29 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/0593682163.shtml)
+- 2026-06-29 22:33 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/642299676566.shtml)
+- 2026-06-29 22:44 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/6811778.shtml)
+- 2026-06-29 22:41 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/0834741.shtml)
+- 2026-06-29 22:19 - [白玉兰答谢宴合影](https://www.blog.minike.top/Article/details/60929850354.shtml)
+- 2026-06-29 22:29 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/74410.shtml)
+- 2026-06-29 22:38 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/288970.shtml)
+- 2026-06-29 22:42 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/858029.shtml)
+- 2026-06-29 22:27 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/230054978.shtml)
+- 2026-06-29 22:39 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/2679851.shtml)
+- 2026-06-29 22:33 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/9702031.shtml)
+- 2026-06-29 22:45 - [女生学医适合选什么专业](http://www.share.kurohicncr.top/Article/details/920675.shtml)
+- 2026-06-29 22:39 - [男子称在京东买到“同仁堂”假药](https://www.share.minike.top/Article/details/1458325.shtml)
+- 2026-06-29 22:31 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/7243992344.shtml)
+- 2026-06-29 22:36 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/574047274840.shtml)
+- 2026-06-29 22:42 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/877469.shtml)

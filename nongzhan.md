@@ -1,55 +1,57 @@
-# 国防部：中国军队将同老方持续深化合作
+# 国家统计局：1—4月份国民经济保持稳中有进发展态势
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-中新社北京6月16日电 (记者 李纯)中国国防部新闻发言人陈曦16日就近期涉军问题发布消息。他表示，中国军队将同老方一道，加强战略沟通，增进各层级交往，持续深化合作。 有记者问，近日，中共中央总书记、国家主席习近平同来华进行国事访问的老挝人民革命党中央总书记、国家主席通伦举行会谈，两国发表联合声明一致同意加强防务安全合作。请介绍中老两军推进合作考虑举措。 陈曦表示，中老两国是命
+今天上午，国务院新闻办召开新闻发布会，国家统计局新闻发言人表示，今年1—4月份，我国有效实施更加积极有为的宏观政策，着力稳就业、稳企业、稳市场、稳预期，生产供给平稳增长，市场销售继续扩大，外贸韧性持续彰显，就业物价总体稳定，新动能成长壮大，高质量发展向新向优。 具体来看，工业生产较快增长，装备制造业和高技术制造业增长较快，1—4月份，全国规模以上工业增加值同比增长5.6%。服务
 
 ## 正文
 
-中新社北京6月16日电 (记者 李纯)中国国防部新闻发言人陈曦16日就近期涉军问题发布消息。
+今天上午，国务院新闻办召开新闻发布会，国家统计局新闻发言人表示，今年1—4月份，我国有效实施更加积极有为的宏观政策，着力稳就业、稳企业、稳市场、稳预期，生产供给平稳增长，市场销售继续扩大，外贸韧性持续彰显，就业物价总体稳定，新动能成长壮大，高质量发展向新向优。
 
-他表示，中国军队将同老方一道，加强战略沟通，增进各层级交往，持续深化合作。
+具体来看，工业生产较快增长，装备制造业和高技术制造业增长较快，1—4月份，全国规模以上工业增加值同比增长5.6%。
 
-有记者问，近日，中共中央总书记、国家主席习近平同来华进行国事访问的老挝人民革命党中央总书记、国家主席通伦举行会谈，两国发表联合声明一致同意加强防务安全合作。
+服务业平稳增长，现代服务业发展向好，1—4月份，全国服务业生产指数同比增长4.9%。
 
-请介绍中老两军推进合作考虑举措。
+市场销售规模扩大，服务零售增长加快，1—4月份，社会消费品零售总额164941亿元，同比增长1.9%。
 
-陈曦表示，中老两国是命运与共的社会主义邻邦，“同志加兄弟”情谊始终坚如磐石、牢不可破。
+货物进出口较快增长，贸易结构继续优化，1—4月份，货物进出口总额162252亿元，同比增长14.9%。
 
-中国军队将同老方一道，认真落实两党两国最高领导人重要共识，以建立外交、国防、公安“3+3”战略对话机制为契机，加强战略沟通，增进各层级交往，办好边境国防友好交流活动，持续深化政治工作、联演联训、医疗卫勤、人员培训等领域合作，密切多边安全事务协调配合，为打造新时代全天候中老命运共同体作出新贡献。
-
-(完)
+（总台央视记者 吴昊 宋菀）责任编辑：韦子蓉
 
 ## 相关推荐
 
-- 2026-06-29 22:26 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 22:34 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-29 22:14 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 22:31 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 22:18 - [东方风云榜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 22:38 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-29 22:34 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 22:39 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-29 22:34 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 22:41 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-29 22:16 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-29 22:32 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 22:40 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 22:47 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 22:28 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-29 22:27 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-29 22:24 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 22:30 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-29 22:46 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 22:45 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-29 22:26 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-29 22:25 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-29 22:22 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-29 22:29 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-29 22:39 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 22:25 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:12 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/865529884400.shtml)
-- 2026-06-29 22:13 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/55063954.shtml)
-- 2026-06-29 22:20 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/65302.shtml)
-- 2026-06-29 22:39 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/47563.shtml)
-- 2026-06-29 22:34 - [温网](https://www.share.minike.top/Article/details/2580479499.shtml)
-- 2026-06-29 22:15 - [恋与深空7天掉粉超50万](http://www.share.kurohicncr.top/Article/details/703669265691.shtml)
-- 2026-06-29 22:16 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/01579263851.shtml)
-- 2026-06-29 22:15 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/663555644.shtml)
-- 2026-06-29 22:22 - [金鹰奖第二阶段投票明日开启](https://www.share.kurohicncr.top/Article/details/9165907962.shtml)
-- 2026-06-29 22:16 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/52029876.shtml)
-- 2026-06-29 22:15 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/8347625163.shtml)
-- 2026-06-29 22:24 - [绘画区你赢了](https://www.blog.minike.top/Article/details/2962095.shtml)
-- 2026-06-29 22:38 - [返利科技盘中上演“天地板”](https://www.share.kurohicncr.top/Article/details/352348484067.shtml)
-- 2026-06-29 22:12 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/657135.shtml)
-- 2026-06-29 22:31 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/59632.shtml)
+- 2026-06-29 22:26 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/45449.shtml)
+- 2026-06-29 22:44 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/778418124543.shtml)
+- 2026-06-29 22:43 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/16248051.shtml)
+- 2026-06-29 22:26 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/83683970234.shtml)
+- 2026-06-29 22:44 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/5787988768.shtml)
+- 2026-06-29 22:39 - [葫芦岛居民楼闪爆事故致3死](http://www.share.kurohicncr.top/Article/details/898010141289.shtml)
+- 2026-06-29 22:43 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/7899376963.shtml)
+- 2026-06-29 22:44 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/1909592.shtml)
+- 2026-06-29 22:42 - [宜宾地震已转移安置225人](http://www.blog.minike.top/Article/details/06031.shtml)
+- 2026-06-29 22:19 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/92923354972.shtml)
+- 2026-06-29 22:22 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/210179.shtml)
+- 2026-06-29 22:32 - [杨德龙：创新药迎来新的发展机遇](http://www.share.minike.top/Article/details/29461351.shtml)
+- 2026-06-29 22:45 - [速度与激情9](https://www.share.minike.top/Article/details/043584693222.shtml)
+- 2026-06-29 22:40 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/51266120.shtml)
+- 2026-06-29 22:22 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/7325102195.shtml)

@@ -1,57 +1,44 @@
-# 全国多地都有“渝见小面”，总数达数十家
+# 威高股份于5月15日斥资35.1万港元回购10万股
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-中新网6月16日电(记者 吴家驹)近日，河南南阳一家“渝见小面”餐饮店被连锁品牌“遇见小面”起诉商标侵权，引发广泛关注。 6月15日，“遇见小面”创始人宋奇公开发文，就“商标风波”致歉。同日，重庆市小面协会就渝见小面被诉发声，称不支持单一企业独家垄断重庆小面。 6月16日，记者查看某餐饮平台发现，除了河南南阳的“渝见小面”，重庆、广州、深圳、长春、新疆库尔勒等全国多地，都有名为
+威高股份（01066）发布公告，于2026年5月15日斥资35.1万港元回购10万股。责任编辑：卢昱君
 
 ## 正文
 
-中新网6月16日电(记者 吴家驹)近日，河南南阳一家“渝见小面”餐饮店被连锁品牌“遇见小面”起诉商标侵权，引发广泛关注。
+威高股份（01066）发布公告，于2026年5月15日斥资35.1万港元回购10万股。
 
-6月15日，“遇见小面”创始人宋奇公开发文，就“商标风波”致歉。
-
-同日，重庆市小面协会就渝见小面被诉发声，称不支持单一企业独家垄断重庆小面。
-
-6月16日，记者查看某餐饮平台发现，除了河南南阳的“渝见小面”，重庆、广州、深圳、长春、新疆库尔勒等全国多地，都有名为“渝见小面”的餐饮店，总数达到数十家。
-
-此外，还有不少已歇业关闭的名为“渝见小面”的餐饮店。
-
-(完)
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:38 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 22:25 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 22:41 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-29 22:18 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 22:18 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-29 22:25 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 22:20 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 22:20 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 22:26 - [记者：预计热火将追求小哈达威和康利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 22:24 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 22:28 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-29 22:32 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 22:16 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-29 22:35 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 22:25 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-29 22:38 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-29 22:42 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 22:32 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-29 22:34 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-29 22:18 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-29 22:38 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-29 22:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-29 22:22 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-29 22:38 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-29 22:43 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:26 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/9445013286.shtml)
-- 2026-06-29 22:27 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/6660296009.shtml)
-- 2026-06-29 22:23 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/80648377566.shtml)
-- 2026-06-29 22:25 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/9501191651.shtml)
-- 2026-06-29 22:38 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/5424333.shtml)
-- 2026-06-29 22:33 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/96251456.shtml)
-- 2026-06-29 22:18 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/690769.shtml)
-- 2026-06-29 22:23 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/5871992781.shtml)
-- 2026-06-29 22:12 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/46466377.shtml)
-- 2026-06-29 22:30 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/3501362231.shtml)
-- 2026-06-29 22:24 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/64739658146.shtml)
-- 2026-06-29 22:35 - [流金岁月](https://www.share.kurohicncr.top/Article/details/313338822942.shtml)
-- 2026-06-29 22:29 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/4575687.shtml)
-- 2026-06-29 22:21 - [店员光脚踩入盆中清洗土豆](http://www.blog.minike.top/Article/details/7524423837.shtml)
-- 2026-06-29 22:13 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/19067961.shtml)
+- 2026-06-29 22:38 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/09849952047.shtml)
+- 2026-06-29 22:33 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/9339268.shtml)
+- 2026-06-29 22:44 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/9214067.shtml)
+- 2026-06-29 22:21 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/93554.shtml)
+- 2026-06-29 22:43 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/24720364261.shtml)
+- 2026-06-29 22:40 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/7258198838.shtml)
+- 2026-06-29 22:47 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.minike.top/Article/details/176092574.shtml)
+- 2026-06-29 22:21 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/4534437850.shtml)
+- 2026-06-29 22:33 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/40874.shtml)
+- 2026-06-29 22:24 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/38879434.shtml)
+- 2026-06-29 22:30 - [斗破苍穹](https://www.blog.minike.top/Article/details/478127.shtml)
+- 2026-06-29 22:36 - [女子发现孩子非现任亲生起诉前任](https://www.share.minike.top/Article/details/11615146718.shtml)
+- 2026-06-29 22:19 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/2448414216.shtml)
+- 2026-06-29 22:44 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/092356.shtml)
+- 2026-06-29 22:41 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/183895.shtml)

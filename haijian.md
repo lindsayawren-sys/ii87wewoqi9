@@ -1,59 +1,58 @@
-# 金融监管总局推动落实《关于支持上海国际金融中心建设行动方案》有关举措
+# 从“落选御瓷”到潮流IP 千年瓷都创新叙事促传统文化出海
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-金融监管总局推动落实《关于支持上海国际金融中心建设行动方案》有关举措 （2026年6月） 加快建设上海国际金融中心，是党中央从全面建设社会主义现代化国家高度作出的重大战略部署。金融监管总局高度重视支持上海国际金融中心建设工作，于2025年6月联合上海市人民政府发布《关于支持上海国际金融中心建设行动方案》（以下简称《行动方案》），为上海以更高标准、更大力度推进金融高水平开放提供纲
+中新社景德镇5月17日电 (记者 姜涛)一只未能进入皇宫的中国明代“瓷鸭”，如何成为连接中外文化的“使者”？在国际博物馆日前夕，千年瓷都景德镇发布全新IP形象“爆棚鸭”，并通过一场全英文跨国直播，将一件尘封地下数百年的“素三彩鸭形香薰”推向全球视野。 2026年景德镇市文化旅游活动月启动仪式17日举行，“岁岁鸭”家族新成员——“爆棚鸭”正式亮相。其造型灵感源于陶瓷烧制中的“炸窑
 
 ## 正文
 
-金融监管总局推动落实《关于支持上海国际金融中心建设行动方案》有关举措 （2026年6月） 加快建设上海国际金融中心，是党中央从全面建设社会主义现代化国家高度作出的重大战略部署。
+中新社景德镇5月17日电 (记者 姜涛)一只未能进入皇宫的中国明代“瓷鸭”，如何成为连接中外文化的“使者”？
 
-金融监管总局高度重视支持上海国际金融中心建设工作，于2025年6月联合上海市人民政府发布《关于支持上海国际金融中心建设行动方案》（以下简称《行动方案》），为上海以更高标准、更大力度推进金融高水平开放提供纲领性指引。
+在国际博物馆日前夕，千年瓷都景德镇发布全新IP形象“爆棚鸭”，并通过一场全英文跨国直播，将一件尘封地下数百年的“素三彩鸭形香薰”推向全球视野。
 
-一年多来，金融监管总局在《行动方案》确定的框架下，持续推出有力举措，取得显著成效。
+2026年景德镇市文化旅游活动月启动仪式17日举行，“岁岁鸭”家族新成员——“爆棚鸭”正式亮相。
 
-一是做实“五篇大文章”，提高金融服务实体经济质效。
+其造型灵感源于陶瓷烧制中的“炸窑”现象：蓬松的爆炸头、乌黑毛绒质感搭配怒目神态，既具潮流感，又蕴含“千窑难得、精益求精”的工匠精神。
 
-紧扣金融服务实体经济本源，统筹推进科技、绿色、普惠、养老、数字金融协同发展。
+现场直播中，景德镇御窑博物院院长翁彦俊与北京师范大学留学生何诗怡全程英文导览，带领海外网友“云逛”博物馆，深度解读瓷器背后的文化密码。
 
-深化上海国际金融中心与科技创新中心联动，打造全生命周期科技金融服务体系，推进临港新片区科技保险创新引领区建设，支持打造科技保险创新“首发地”。
+其间，明成化年间的素三彩鸭形香薰是最具人气的文物之一。
 
-支持上海打造国际绿色金融枢纽，推进绿色金融服务平台与碳普惠平台建设，深化碳市场改革实践，指导创设国内首单取水权行政管理服务信托，持续扩面提质环境污染责任保险。
+翁彦俊介绍，这件鸭形香薰为明代御窑专为宫廷烧制的祭祀用具，因当时御窑筛选制度极为严苛，稍有瑕疵即被砸碎掩埋。
 
-构建多元化普惠金融服务体系，指导行业优化升级多款普惠保险产品，深化小微企业融资协调机制，开展“千企万户大走访”行动。
+“这批鸭形香薰虽工艺精湛，却从未真正进入皇宫使用，长期埋藏于珠山之下。
 
 ## 相关推荐
 
-- 2026-06-29 22:37 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-29 22:19 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 22:24 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 22:23 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-29 22:36 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-29 22:34 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 22:40 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-29 22:41 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 22:21 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 22:17 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-29 22:27 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-29 22:36 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 22:27 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-29 22:44 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 22:18 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-29 22:32 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 22:36 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 22:47 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 22:25 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-29 22:31 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 22:46 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 22:21 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 22:26 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 22:40 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-29 22:21 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:15 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/6054440424.shtml)
-- 2026-06-29 22:41 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/936630.shtml)
-- 2026-06-29 22:29 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/355562.shtml)
-- 2026-06-29 22:32 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/99444.shtml)
-- 2026-06-29 22:36 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/6166185.shtml)
-- 2026-06-29 22:24 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/887958.shtml)
-- 2026-06-29 22:31 - [记者暗访养老机构消防安全](https://www.share.kurohicncr.top/Article/details/42239453.shtml)
-- 2026-06-29 22:14 - [MG总经理直播被冲](http://www.share.kurohicncr.top/Article/details/21665765.shtml)
-- 2026-06-29 22:15 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/56408.shtml)
-- 2026-06-29 22:17 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/2236498.shtml)
-- 2026-06-29 22:35 - [记者乘坐无人驾驶汽车去采访](http://www.blog.minike.top/Article/details/8234782303.shtml)
-- 2026-06-29 22:18 - [一汽大众黄金超混技术来袭](http://www.share.kurohicncr.top/Article/details/318734093.shtml)
-- 2026-06-29 22:26 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/126985.shtml)
-- 2026-06-29 22:33 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.kurohicncr.top/Article/details/154281.shtml)
-- 2026-06-29 22:22 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/852670.shtml)
+- 2026-06-29 22:27 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/68184.shtml)
+- 2026-06-29 22:47 - [店员光脚踩入盆中清洗土豆](http://www.blog.minike.top/Article/details/947257.shtml)
+- 2026-06-29 22:27 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.kurohicncr.top/Article/details/111856962.shtml)
+- 2026-06-29 22:33 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/254823.shtml)
+- 2026-06-29 22:30 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/38396913139.shtml)
+- 2026-06-29 22:26 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/478658362788.shtml)
+- 2026-06-29 22:36 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/873338331398.shtml)
+- 2026-06-29 22:31 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/58935022164.shtml)
+- 2026-06-29 22:27 - [《贺子珍》](http://www.blog.minike.top/Article/details/340903860068.shtml)
+- 2026-06-29 22:40 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/09727.shtml)
+- 2026-06-29 22:22 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/1320783.shtml)
+- 2026-06-29 22:46 - [爱奇艺抬高国剧新标尺](http://www.share.minike.top/Article/details/375348.shtml)
+- 2026-06-29 22:44 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/79637473.shtml)
+- 2026-06-29 22:45 - [AI接过张雪峰志愿填报衣钵](https://www.share.kurohicncr.top/Article/details/3535399.shtml)
+- 2026-06-29 22:21 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/4807733.shtml)

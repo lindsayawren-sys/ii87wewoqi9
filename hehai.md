@@ -1,59 +1,61 @@
-# 第三十二届北京图博会“中国作家馆”开馆
+# 【在希望的田野上】我国夏油作物收获进入高峰
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-中新网北京6月17日电 (记者 高凯)17日，第三十二届北京国际图书博览会(BIBF)开幕当日，由中国作家协会主办，中国作家出版集团、作家出版社承办的中国作家馆在北京国家会议中心开馆。这是中国作家馆在北京图博会的第16次亮相。 中国作协党组成员、副主席吴义勤在致辞中表示，今年是中国工农红军长征胜利90周年。中国作家馆特别聚焦这一伟大主题，展出精品力作，以文学的方式回望历史、致敬
+央视网消息(新闻联播)：我国夏油作物主要是冬油菜，产油量占国产食用植物油的40%多。眼下，主产区冬油菜收获进入高峰。 我国冬油菜种植区域主要集中在长江流域，面积和产量均占全国的85%左右。目前，长江流域冬油菜收获已过四成，进度同比略快。 湖北1900多万亩冬油菜长势良好。今年，当地将产油大县奖励资金的四成用于统一供种和技术示范，高产高油品种面积增至94%。在松滋市，当地首次推广
 
 ## 正文
 
-中新网北京6月17日电 (记者 高凯)17日，第三十二届北京国际图书博览会(BIBF)开幕当日，由中国作家协会主办，中国作家出版集团、作家出版社承办的中国作家馆在北京国家会议中心开馆。
+央视网消息(新闻联播)：我国夏油作物主要是冬油菜，产油量占国产食用植物油的40%多。
 
-这是中国作家馆在北京图博会的第16次亮相。
+眼下，主产区冬油菜收获进入高峰。
 
-中国作协党组成员、副主席吴义勤在致辞中表示，今年是中国工农红军长征胜利90周年。
+我国冬油菜种植区域主要集中在长江流域，面积和产量均占全国的85%左右。
 
-中国作家馆特别聚焦这一伟大主题，展出精品力作，以文学的方式回望历史、致敬先辈，凝聚民族复兴的强大精神力量。
+目前，长江流域冬油菜收获已过四成，进度同比略快。
 
-作为本届图博会中国作家馆的首场活动，《新时代文学研究丛书》新书发布会在开馆仪式后举行。
+湖北1900多万亩冬油菜长势良好。
 
-活动由中国作协新时代文学研究中心、中国作家出版集团、作家出版社共同主办。
+今年，当地将产油大县奖励资金的四成用于统一供种和技术示范，高产高油品种面积增至94%。
 
-中国作协副主席阎晶明表示，《新时代文学研究丛书》由中国作家协会新时代文学研究中心联合高校研究力量共同编撰，是作协系统与学术界协同合作的成果，体现了文学研究领域的重要整合与创新，具有重要意义。
+在松滋市，当地首次推广抗根肿病新品种，增产效果明显。
 
-丛书既有整体性的理论思潮现象研究，又有不同体裁的文学作品研究，宏观与微观相结合，系统梳理了新时代文学创作与研究的突出成就，见证了中国文学从高原迈向高峰的实践进程。
+安徽依托792个农机应急作业队和460家区域性农机服务中心开展机收服务。
 
 ## 相关推荐
 
-- 2026-06-29 22:26 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-29 22:16 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-29 22:32 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 22:36 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 22:28 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 22:33 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 22:20 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-29 22:29 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 22:17 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-29 22:35 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-29 22:29 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-29 22:36 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-29 22:17 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 22:42 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 22:28 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-29 22:34 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 22:30 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-29 22:20 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-29 22:47 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 22:30 - [李思潼：不会介意大家夸我运气好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 22:45 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-29 22:40 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 22:24 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 22:31 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 22:22 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 22:36 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-29 22:31 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-29 22:47 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:18 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/8640617596.shtml)
-- 2026-06-29 22:35 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/12968146.shtml)
-- 2026-06-29 22:14 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/3031524.shtml)
-- 2026-06-29 22:23 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/350409.shtml)
-- 2026-06-29 22:30 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.share.minike.top/Article/details/62574632.shtml)
-- 2026-06-29 22:17 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/417734443437.shtml)
-- 2026-06-29 22:34 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/4713479475.shtml)
-- 2026-06-29 22:14 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/191688891532.shtml)
-- 2026-06-29 22:30 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/109402932409.shtml)
-- 2026-06-29 22:19 - [法拉利车主已自行承担修理费近3万](https://www.share.kurohicncr.top/Article/details/60309654536.shtml)
-- 2026-06-29 22:19 - [上世纪90年代玩具成新宠](https://www.blog.minike.top/Article/details/379546576908.shtml)
-- 2026-06-29 22:18 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/013098.shtml)
-- 2026-06-29 22:37 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/875807.shtml)
-- 2026-06-29 22:24 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/69701976744.shtml)
-- 2026-06-29 22:32 - [夫妻生活太无聊，所以我……](https://www.blog.minike.top/Article/details/9986818873.shtml)
+- 2026-06-29 22:19 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/24201156.shtml)
+- 2026-06-29 22:20 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/789299982.shtml)
+- 2026-06-29 22:21 - [时光音乐会](https://www.share.minike.top/Article/details/4451307972.shtml)
+- 2026-06-29 22:44 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/96788.shtml)
+- 2026-06-29 22:35 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/432752.shtml)
+- 2026-06-29 22:44 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/94960.shtml)
+- 2026-06-29 22:39 - [返利科技盘中上演“天地板”](http://www.blog.kurohicncr.top/Article/details/998025339412.shtml)
+- 2026-06-29 22:34 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.minike.top/Article/details/02626.shtml)
+- 2026-06-29 22:45 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/18437.shtml)
+- 2026-06-29 22:33 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/598227287.shtml)
+- 2026-06-29 22:36 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/49932101978.shtml)
+- 2026-06-29 22:20 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/261789815906.shtml)
+- 2026-06-29 22:27 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/815679375.shtml)
+- 2026-06-29 22:47 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/536511661.shtml)
+- 2026-06-29 22:29 - [Prada在内娱首度签下偶像团体](https://www.blog.kurohicncr.top/Article/details/45800068.shtml)

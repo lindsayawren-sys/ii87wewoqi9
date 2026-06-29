@@ -1,56 +1,61 @@
-# 在电影院看世界杯！上海首个体育主题影院来了
+# 宁夏兴庆：公益义卖献爱心 温情助残暖童心
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 21:44 来源：中国新闻网 近日，上海首家体育主题影院——华夏古美影剧院正式开业，这里也是可以转播世界杯赛事的观影场所。不少新老球迷、家长带着孩子齐聚影厅观看世界杯小组赛，解锁在影院大屏观赛的全新体验。 影院配备4K放映设备，并对音响系统进行专项升级，沉浸式音效氛围感十足。针对赛事直播需求，场馆专门铺设宽带专线，保障直播全程流畅稳定。 以往民
+中新网银川5月16日电 (记者 李佩珊)5月16日，一场以关爱残疾人为核心的公益活动在宁夏银川市兴庆区温情启幕。此次活动是当地第三十六个全国助残日系列活动之一，也是兴庆区第四届“扶残助残共享阳光”关爱残疾儿童公益义卖活动，围绕“保障残疾人平等权益、促进残疾人融合发展”主题开展，凝聚社会各界爱心力量，用心守护残疾儿童健康成长。 活动现场氛围温馨热烈，精彩的开场文艺表演率先拉开活动
 
 ## 正文
 
-发布时间：2026年06月16日 21:44 来源：中国新闻网 近日，上海首家体育主题影院——华夏古美影剧院正式开业，这里也是可以转播世界杯赛事的观影场所。
+中新网银川5月16日电 (记者 李佩珊)5月16日，一场以关爱残疾人为核心的公益活动在宁夏银川市兴庆区温情启幕。
 
-不少新老球迷、家长带着孩子齐聚影厅观看世界杯小组赛，解锁在影院大屏观赛的全新体验。
+此次活动是当地第三十六个全国助残日系列活动之一，也是兴庆区第四届“扶残助残共享阳光”关爱残疾儿童公益义卖活动，围绕“保障残疾人平等权益、促进残疾人融合发展”主题开展，凝聚社会各界爱心力量，用心守护残疾儿童健康成长。
 
-影院配备4K放映设备，并对音响系统进行专项升级，沉浸式音效氛围感十足。
+活动现场氛围温馨热烈，精彩的开场文艺表演率先拉开活动帷幕。
 
-针对赛事直播需求，场馆专门铺设宽带专线，保障直播全程流畅稳定。
+当地残疾人艺术团及艺术培训机构的表演者轮番登台，以昂扬向上的节目尽显自强不息的精神风貌，展现别样生命力量，赢得现场观众阵阵热烈掌声。
 
-以往民众看球大多选择居家或是小酒馆，而影院拥有巨型银幕、舒适座椅，再加上全场球迷一同呐喊助威的热烈氛围，到场观赛的球迷纷纷表示体验感拉满。
+现场同步设置爱心捐助、公益义卖等丰富暖心环节。
 
-(记者 康玉湛） 责任编辑：【李季】
+爱心捐助环节中，多家公益组织、爱心单位携手为残疾儿童康复机构送去慰问物资与帮扶物资，全力助力特殊儿童开展康复训练，为他们成长之路保驾护航。
+
+公益义卖区人气十足、暖意融融，手工制品、特色食品、文创好物、非遗手作、创意DIY作品等义卖货品品类齐全。
+
+爱心志愿者、残疾儿童家属、热心市民化身公益摊主，热情推介好物、传递公益温情。
 
 ## 相关推荐
 
-- 2026-06-29 22:26 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 22:27 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-29 22:21 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 22:23 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-29 22:24 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-29 22:14 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 22:32 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 22:17 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-29 22:39 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 22:26 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 22:23 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 22:28 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-29 22:40 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-29 22:29 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 22:42 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-29 22:31 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-29 22:26 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-29 22:29 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 22:22 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 22:37 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-29 22:35 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-29 22:37 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-29 22:44 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-29 22:46 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 22:46 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-29 22:23 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-29 22:38 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-29 22:39 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-29 22:47 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:17 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/9946085.shtml)
-- 2026-06-29 22:20 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.minike.top/Article/details/3849858.shtml)
-- 2026-06-29 22:37 - [日防卫省正考虑引进美企人工智能系统](http://www.share.minike.top/Article/details/42870103.shtml)
-- 2026-06-29 22:23 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/027669616.shtml)
-- 2026-06-29 22:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/2956421.shtml)
-- 2026-06-29 22:35 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/19149096.shtml)
-- 2026-06-29 22:22 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/896506763.shtml)
-- 2026-06-29 22:34 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.minike.top/Article/details/722865089062.shtml)
-- 2026-06-29 22:27 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/19594.shtml)
-- 2026-06-29 22:13 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/9890555840.shtml)
-- 2026-06-29 22:34 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.kurohicncr.top/Article/details/41202738616.shtml)
-- 2026-06-29 22:18 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/6563513998.shtml)
-- 2026-06-29 22:32 - [白玉兰答谢宴合影](https://www.share.minike.top/Article/details/05964618.shtml)
-- 2026-06-29 22:29 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/76664280.shtml)
-- 2026-06-29 22:21 - [曝iPhone涨价后不会再降](http://www.share.kurohicncr.top/Article/details/6559289.shtml)
+- 2026-06-29 22:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/168006.shtml)
+- 2026-06-29 22:20 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/2919652523.shtml)
+- 2026-06-29 22:37 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/66273.shtml)
+- 2026-06-29 22:38 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/454748.shtml)
+- 2026-06-29 22:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/88450470083.shtml)
+- 2026-06-29 22:44 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/34217.shtml)
+- 2026-06-29 22:44 - [斗破苍穹](http://www.share.minike.top/Article/details/97619147300.shtml)
+- 2026-06-29 22:21 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/76599571.shtml)
+- 2026-06-29 22:44 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.kurohicncr.top/Article/details/922140816.shtml)
+- 2026-06-29 22:19 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/92821334.shtml)
+- 2026-06-29 22:31 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.kurohicncr.top/Article/details/840324379495.shtml)
+- 2026-06-29 22:25 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/586664285108.shtml)
+- 2026-06-29 22:19 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/166866285703.shtml)
+- 2026-06-29 22:47 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/4156328407.shtml)
+- 2026-06-29 22:43 - [任泽平：AI浪潮刚刚开始](http://www.blog.kurohicncr.top/Article/details/02654469.shtml)

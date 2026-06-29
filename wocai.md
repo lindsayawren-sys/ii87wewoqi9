@@ -1,59 +1,60 @@
-# 美团：优化算法治理 保障骑手合法权益
+# 中国4月银行结售汇顺差401亿美元 跨境资金恢复净流入
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-新浪科技讯 6月16日下午消息，美团官方公众号发文称，将算法治理作为践行企业社会责任的重要方面，聚焦骑手反映强烈的问题诉求，推动算法从“效率优先”向“以人为本”转变，切实保障骑手合法权益，努力增强骑手的获得感、幸福感、安全感。 美团称，“超时扣款”曾是骑手，特别是新骑手最担心的问题之一。为破解这一痛点，美团推出超时免罚措施，用得分体系代替负向扣款，于2025年实现超时免罚全国覆
+中新社北京5月18日电 中国国家外汇管理局18日公布的统计数据显示，2026年4月，按美元计值，银行结汇2573亿美元，售汇2172亿美元，结售汇顺差401亿美元。 中国国家外汇管理局副局长李斌表示，近期，地缘政治局势引发国际金融市场波动，中国外汇市场运行总体稳健。受外部扰动影响，3月跨境资金出现一定净流出，4月恢复净流入。 综合3月和4月情况看，跨境资金月均净流入149亿美元
 
 ## 正文
 
-新浪科技讯 6月16日下午消息，美团官方公众号发文称，将算法治理作为践行企业社会责任的重要方面，聚焦骑手反映强烈的问题诉求，推动算法从“效率优先”向“以人为本”转变，切实保障骑手合法权益，努力增强骑手的获得感、幸福感、安全感。
+中新社北京5月18日电 中国国家外汇管理局18日公布的统计数据显示，2026年4月，按美元计值，银行结汇2573亿美元，售汇2172亿美元，结售汇顺差401亿美元。
 
-美团称，“超时扣款”曾是骑手，特别是新骑手最担心的问题之一。
+中国国家外汇管理局副局长李斌表示，近期，地缘政治局势引发国际金融市场波动，中国外汇市场运行总体稳健。
 
-为破解这一痛点，美团推出超时免罚措施，用得分体系代替负向扣款，于2025年实现超时免罚全国覆盖，激励骑手从“安全”“准时”“服务”三个维度获得正向积分，有效减轻骑手配送压力。
+受外部扰动影响，3月跨境资金出现一定净流出，4月恢复净流入。
 
-同时，改进了针对新骑手的订单调度系统，使得“新手期”不会接到难度大的订单。
+综合3月和4月情况看，跨境资金月均净流入149亿美元，银行月均净结汇280亿美元，低于去年末和今年初的月度顺差规模。
 
-美团还提到，鼓励骑手“慢下来赚更多”。
+同时，涉外交易保持活跃。
 
-正向激励骑手遵守交通规则，将骑手交通安全表现纳入考核体系，“安全分”等级越高，奖励越多。
+4月，企业、个人等非银行部门跨境收支合计1.6万亿美元，同比增长15%。
 
-此外，还为保持零闯红灯记录的骑手发放“等灯等灯奖”。
+中国外汇市场交易量为3.7万亿美元，继续处于较高水平。
 
-2025年，“等灯等灯奖”累计覆盖近200个城市，投入7000万元，奖励骑手近128万人次。
+李斌指出，企业汇率风险管理能力逐步增强，外汇交易更趋理性。
 
 ## 相关推荐
 
-- 2026-06-29 22:28 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 22:25 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 22:19 - [记者乘坐无人驾驶汽车去采访](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-29 22:23 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 22:12 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 22:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 22:33 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 22:15 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-29 22:36 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-29 22:14 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-29 22:21 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-29 22:30 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 22:16 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-29 22:34 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 22:28 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 22:22 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 22:29 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-29 22:31 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-29 22:32 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 22:18 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-29 22:46 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-29 22:30 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 22:42 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 22:47 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 22:36 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 22:33 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-29 22:26 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:18 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/484364.shtml)
-- 2026-06-29 22:26 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/1770449.shtml)
-- 2026-06-29 22:20 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/16073949.shtml)
-- 2026-06-29 22:24 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/70655558950.shtml)
-- 2026-06-29 22:34 - [返利科技盘中上演“天地板”](http://www.blog.minike.top/Article/details/39122983063.shtml)
-- 2026-06-29 22:25 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/543738032171.shtml)
-- 2026-06-29 22:33 - [英法德葡存在什么隐患](https://www.share.kurohicncr.top/Article/details/9532471.shtml)
-- 2026-06-29 22:18 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/72278949008.shtml)
-- 2026-06-29 22:34 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/0278026861.shtml)
-- 2026-06-29 22:22 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/8249145.shtml)
-- 2026-06-29 22:19 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/2298849880.shtml)
-- 2026-06-29 22:13 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/666990.shtml)
-- 2026-06-29 22:25 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/107326.shtml)
-- 2026-06-29 22:36 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/555741.shtml)
-- 2026-06-29 22:21 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/65775931634.shtml)
+- 2026-06-29 22:21 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/37032628.shtml)
+- 2026-06-29 22:40 - [恋与深空7天掉粉超50万](https://www.blog.kurohicncr.top/Article/details/15845291.shtml)
+- 2026-06-29 22:44 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/961395180.shtml)
+- 2026-06-29 22:48 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/254313582.shtml)
+- 2026-06-29 22:31 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.minike.top/Article/details/5285149210.shtml)
+- 2026-06-29 22:24 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/608804922815.shtml)
+- 2026-06-29 22:42 - [返利科技盘中上演“天地板”](http://www.blog.kurohicncr.top/Article/details/206255616698.shtml)
+- 2026-06-29 22:43 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/118958176.shtml)
+- 2026-06-29 22:19 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/79982253665.shtml)
+- 2026-06-29 22:46 - [一汽大众黄金超混技术来袭](http://www.share.kurohicncr.top/Article/details/7589375284.shtml)
+- 2026-06-29 22:32 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/95493156603.shtml)
+- 2026-06-29 22:43 - [曝iPhone涨价后不会再降](https://www.blog.minike.top/Article/details/067557.shtml)
+- 2026-06-29 22:21 - [毒液2](http://www.blog.kurohicncr.top/Article/details/92389745.shtml)
+- 2026-06-29 22:37 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/39669066991.shtml)
+- 2026-06-29 22:32 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/51289692.shtml)

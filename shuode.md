@@ -1,61 +1,49 @@
-# 上海证券交易所主动管理ETF业务指引来了
+# 中美阿三国警方首次开展联合打击电信网络诈骗犯罪行动
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 上交所发布《上海证券交易所主动管理交易型开放式证券投资基金业务指引》 来源：上交所发布 6月17日，中国证监会主席吴清在陆家嘴论坛宣布支持在交易所推出主动ETF。为了保障主动ETF平稳推出，保护投资者合法权益，上交所同日发布了《上海证券交易所主动管理交易型开放式证券投资基金业务指引》（以下简称《指引》）。 主动ETF融合了主动管
+中新网5月17日电 据公安部微信公众号消息，近日，中国、美国、阿联酋三国警方首次开展国际执法合作，联合打击迪拜地区的电信网络诈骗犯罪，成功捣毁诈骗窝点9个，抓获犯罪嫌疑人276名。经查，相关诈骗团伙通过社交平台与受害人建立“恋爱”关系、骗取感情信任，后诱导受害人投资所谓高回报加密货币项目致使受害人被骗。 公安部有关负责人表示，此次联合打击行动是中国警方开展国际执法合作的重要成果
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 上交所发布《上海证券交易所主动管理交易型开放式证券投资基金业务指引》 来源：上交所发布 6月17日，中国证监会主席吴清在陆家嘴论坛宣布支持在交易所推出主动ETF。
+中新网5月17日电 据公安部微信公众号消息，近日，中国、美国、阿联酋三国警方首次开展国际执法合作，联合打击迪拜地区的电信网络诈骗犯罪，成功捣毁诈骗窝点9个，抓获犯罪嫌疑人276名。
 
-为了保障主动ETF平稳推出，保护投资者合法权益，上交所同日发布了《上海证券交易所主动管理交易型开放式证券投资基金业务指引》（以下简称《指引》）。
+经查，相关诈骗团伙通过社交平台与受害人建立“恋爱”关系、骗取感情信任，后诱导受害人投资所谓高回报加密货币项目致使受害人被骗。
 
-主动ETF融合了主动管理的专业投研能力与ETF的标准化运作优势，具备持仓透明、交易便捷等特点。
-
-发展主动ETF适应我国资本市场高质量发展阶段，有助于服务居民财富管理需求和赋能公募基金高质量发展，对于增强权益投资吸引力，强化资本市场功能升级，吸引中长期资金入市等具有积极意义，是贯彻落实“十五五”规划建议关于“提高资本市场制度包容性、适应性，健全投资和融资相协调的资本市场功能”，加快上海国际金融中心建设部署、提升上海市场国际竞争力的重要举措。
-
-《指引》共十五条，围绕主动ETF的特点，主要对主动ETF命名规则、管理人及基金经理资质、产品投资运作、信息披露、风险防范等方面进行规范。
-
-主要内容为：一是明确主动ETF定义和命名规则。
-
-一方面，主动ETF是指基金管理人自主选择投资策略、不以跟踪特定指数为投资目标并在交易所上市交易的开放式基金；另一方面，基金名称应当包含“主动管理交易型开放式证券投资基金”字样，场内简称应当包含“主动”字样。
-
-二是明确基金管理人资质要求。
+公安部有关负责人表示，此次联合打击行动是中国警方开展国际执法合作的重要成果，中国警方将同更多国家深化务实合作，开展联合打击行动，坚决清剿电诈窝点，全力缉捕涉电诈犯罪嫌疑人，切实维护各国人民合法权益。
 
 ## 相关推荐
 
-- 2026-06-29 22:14 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-29 22:31 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 22:15 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-29 22:39 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-29 22:17 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 22:39 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 22:20 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-29 22:17 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-29 22:28 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 22:40 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-29 22:33 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 22:19 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 22:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-29 22:18 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-29 22:24 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 22:20 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 22:32 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 22:30 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-29 22:35 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 22:45 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 22:39 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-29 22:18 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-29 22:32 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 22:22 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-29 22:22 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 22:47 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 22:44 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 22:24 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:32 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/39481299.shtml)
-- 2026-06-29 22:12 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/8539862.shtml)
-- 2026-06-29 22:40 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/58659.shtml)
-- 2026-06-29 22:37 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.kurohicncr.top/Article/details/01821.shtml)
-- 2026-06-29 22:20 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/913326053.shtml)
-- 2026-06-29 22:35 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/5964558.shtml)
-- 2026-06-29 22:20 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/192508819130.shtml)
-- 2026-06-29 22:12 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.blog.minike.top/Article/details/64373855.shtml)
-- 2026-06-29 22:19 - [天道](https://www.blog.minike.top/Article/details/60536184.shtml)
-- 2026-06-29 22:35 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/6051840449.shtml)
-- 2026-06-29 22:41 - [杨紫有3部作品入围金鹰奖](http://www.blog.kurohicncr.top/Article/details/5484292649.shtml)
-- 2026-06-29 22:33 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/91734237918.shtml)
-- 2026-06-29 22:38 - [韩国800万亿韩元押注半导体](http://www.share.minike.top/Article/details/9245413071.shtml)
-- 2026-06-29 22:20 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/98234315.shtml)
-- 2026-06-29 22:24 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/0449480.shtml)
+- 2026-06-29 22:40 - [宜宾地震已转移安置225人](http://www.blog.minike.top/Article/details/60087180438.shtml)
+- 2026-06-29 22:25 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/550365297762.shtml)
+- 2026-06-29 22:29 - [把邻居裸体发群算维权还是侵权](https://www.share.minike.top/Article/details/351535761.shtml)
+- 2026-06-29 22:22 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/589244296843.shtml)
+- 2026-06-29 22:27 - [如何看待乌空军3架米格-29被摧毁](https://www.share.minike.top/Article/details/42998.shtml)
+- 2026-06-29 22:27 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/082721533.shtml)
+- 2026-06-29 22:35 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/6060010.shtml)
+- 2026-06-29 22:18 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/379676.shtml)
+- 2026-06-29 22:33 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/6597031817.shtml)
+- 2026-06-29 22:42 - [记者乘坐无人驾驶汽车去采访](http://www.share.minike.top/Article/details/5654103586.shtml)
+- 2026-06-29 22:43 - [任泽平：AI浪潮刚刚开始](https://www.share.minike.top/Article/details/24852383606.shtml)
+- 2026-06-29 22:40 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/138112090375.shtml)
+- 2026-06-29 22:29 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/192176599961.shtml)
+- 2026-06-29 22:45 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/624693.shtml)
+- 2026-06-29 22:35 - [宜宾地震已转移安置225人](https://www.share.kurohicncr.top/Article/details/53956.shtml)

@@ -1,59 +1,57 @@
-# 产能持续恢复中！甲醇库存拐点出现了？
+# 2026年首趟“心连心·京藏号”旅游专列正式启程
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-作者：胡欣/F0299540、Z0012133/ 一德期货能源化工分析师 要点速览版 基本面 供给端：伊朗货源恢复，进口预期大幅上修； 需求端：沿海MTO重启缓慢，传统下游低迷； 库存端：拐点将至，止跌回升为大概率方向。 关注点 油价回调带来的化工品估值修复、海峡通航落地、甲醇供需再平衡。 本周初，美国总统特朗普称美伊达成临时和谈协议，美国海军解除对伊朗的封锁，霍尔木兹海峡恢复
+中新网北京5月16日电(记者 贾天勇)16日，随着T175次列车驶离北京西站，2026年首趟“心连心·京藏号”旅游专列正式启程。作为国铁北京局“京铁乐游”文化品牌核心产品，本次专列将在2026年5月至9月连续开行多趟，再次架起首都北京与雪域高原之间交流交往的桥梁，筑牢京藏文旅融合与民族团结的坚实纽带。 本次专列延续“图定列车+旅游专列”组合模式，科学设置阶梯式海拔适应行程，往返
 
 ## 正文
 
-作者：胡欣/F0299540、Z0012133/ 一德期货能源化工分析师 要点速览版 基本面 供给端：伊朗货源恢复，进口预期大幅上修； 需求端：沿海MTO重启缓慢，传统下游低迷； 库存端：拐点将至，止跌回升为大概率方向。
+中新网北京5月16日电(记者 贾天勇)16日，随着T175次列车驶离北京西站，2026年首趟“心连心·京藏号”旅游专列正式启程。
 
-关注点 油价回调带来的化工品估值修复、海峡通航落地、甲醇供需再平衡。
+作为国铁北京局“京铁乐游”文化品牌核心产品，本次专列将在2026年5月至9月连续开行多趟，再次架起首都北京与雪域高原之间交流交往的桥梁，筑牢京藏文旅融合与民族团结的坚实纽带。
 
-本周初，美国总统特朗普称美伊达成临时和谈协议，美国海军解除对伊朗的封锁，霍尔木兹海峡恢复通行。
+本次专列延续“图定列车+旅游专列”组合模式，科学设置阶梯式海拔适应行程，往返在海拔2261米的西宁安排两天一晚停留，帮助游客进藏快速适应高原环境，返程有效缓解醉氧不适。
 
-受此影响，中东地缘溢价大幅下降，原油及多数化工品承压回落，甲醇也同样走出明显的下跌行情。
+列车深度融合民族团结主题，打造“格桑花开，幸福路长”特色旅程，行程涵盖青海、西藏多地精华景区，包括布达拉宫、罗布林卡、雅鲁藏布大峡谷、羊卓雍措、青海湖、茶卡盐湖等5个5A、5个4A、2个3A级自然与人文景观，并融入藏族文化互动活动，让游客近距离感受西藏非遗传承与独特民俗风情。
 
-地缘方面 随着谅解备忘录细节的披露以及各方表态的逐渐趋同，目前看美伊达成和谈的预期愈发稳固，双方预计本周五（6月19日）在瑞士正式签署临时协议。
+在拉萨段供氧专列上，列车仅使用中下铺位，方便游客白天全程饱览青藏高原壮美风光，沿途可观赏世界海拔最高淡水湖之一措那湖、雄伟的昆仑山脉、海拔5231米的唐古拉山口，还可邂逅藏羚羊、藏野驴等高原野生动物。
 
-此外，美国将允许伊朗恢复石油和燃料出口，据报道已有多艘伊朗船只顺利通过美方海上封锁区，这是自美国今年4月实施海上封锁以来首次出现此类情况，中东地缘风险持续下降中。
+在列车服务方面，石家庄客运段专门推出“银发暖心服务”与“便民主动服务”，针对老年旅客出行特点，乘务组配备血压仪、针线包、充电器等便民物品，全程贴心照料、及时响应旅客需求。
 
-供给方面 目前甲醇国内开工处于高位水平，尽管后期内地个别装置有检修计划，但整体影响有限。
+在车辆运行保障方面，北京车辆段全面强化列车检修整备工作。
 
-伊朗上周末陆续重启3套装置，目前伊朗国内已有超7成甲醇产能恢复生产。
+列车发车前，北京车辆段组织经验丰富、技术精湛的整修人员围绕走行部、电气设备、空调机组、电茶炉等关键部位进行试验、检查与检修，严格把控客车出库质量，同时专门安排4名技术过硬的资深车辆乘务员随车值乘，实时监控列车运行状态，及时排查并消除安全隐患，确保旅客安全出行。
 
 ## 相关推荐
 
-- 2026-06-29 22:19 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 22:40 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 22:13 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-29 22:31 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 22:37 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 22:38 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-29 22:39 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-29 22:38 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-29 22:31 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 22:21 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-29 22:22 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-29 22:39 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-29 22:21 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 22:27 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 22:28 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 22:33 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 22:18 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 22:29 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 22:43 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 22:18 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 22:38 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 22:27 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 22:43 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-29 22:30 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:23 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/39402943437.shtml)
-- 2026-06-29 22:14 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/293170431.shtml)
-- 2026-06-29 22:35 - [店员光脚踩入盆中清洗土豆](https://www.blog.minike.top/Article/details/79118303.shtml)
-- 2026-06-29 22:17 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/630239669718.shtml)
-- 2026-06-29 22:28 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/039569.shtml)
-- 2026-06-29 22:33 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/504869.shtml)
-- 2026-06-29 22:13 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/28321772.shtml)
-- 2026-06-29 22:22 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/429024667.shtml)
-- 2026-06-29 22:14 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/17118630532.shtml)
-- 2026-06-29 22:34 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/99604429050.shtml)
-- 2026-06-29 22:32 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/1224361.shtml)
-- 2026-06-29 22:32 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/182120.shtml)
-- 2026-06-29 22:28 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/9608031.shtml)
-- 2026-06-29 22:38 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/3090595788.shtml)
-- 2026-06-29 22:36 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/750582.shtml)
+- 2026-06-29 22:23 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/978070411588.shtml)
+- 2026-06-29 22:20 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/15006784.shtml)
+- 2026-06-29 22:38 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/417932.shtml)
+- 2026-06-29 22:41 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/38280194692.shtml)
+- 2026-06-29 22:35 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/0247472.shtml)
+- 2026-06-29 22:41 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/423280.shtml)
+- 2026-06-29 22:26 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/836666.shtml)
+- 2026-06-29 22:33 - [127只股涨停 最大封单资金6.04亿元](https://www.share.kurohicncr.top/Article/details/59919945.shtml)
+- 2026-06-29 22:46 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/3307898.shtml)
+- 2026-06-29 22:26 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/12516719.shtml)
+- 2026-06-29 22:32 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/76978.shtml)
+- 2026-06-29 22:23 - [美以这对亲密盟友要掰了吗](https://www.blog.minike.top/Article/details/9303467.shtml)
+- 2026-06-29 22:47 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/7174932.shtml)
+- 2026-06-29 22:41 - [日本在最东端离岛部署导弹发射装置](http://www.blog.minike.top/Article/details/3538372514.shtml)
+- 2026-06-29 22:20 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/282882.shtml)

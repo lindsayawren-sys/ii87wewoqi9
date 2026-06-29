@@ -1,49 +1,52 @@
-# 敲黑板、划重点！吴清主席陆家嘴论坛最新发声
+# 【滇藏公路50年】云南贡山“一江三桥”同框 见证滇西北边疆通路变迁
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道 记者 崔文静 6月17日，2026陆家嘴论坛正式召开，证监会主席吴清发布资本市场建设系列相关政策，主要内容包括： ①扩大科创板第五套标准适用范围至人工智能领域； ②落实发展未来产业战略部署，支持量子科技、生物制造、具身智能等更多领域“硬科技”企业上市； ③有序推进深化创业板改革，加大对新型消费和现代服务业的支持力度，更好服务成长型创新创业企业发展； ④用好用足
+发布时间：2026年05月17日 20:06 来源：中国新闻网 近日，记者走进云南省怒江傈僳族自治州贡山县丙中洛镇尼大当村，怒江奔流而下，两岸三座建造年代不同的桥并立于同一江段，记录着怒江峡谷通路半个多世纪的变迁。 1975年建成的朝红桥，为第一代尼大当桥，钢索木板结构，仅供人畜通行，曾是当地群众过江的重要通道；2004年建成的第二代尼大当桥，可供车辆交替通行，让两岸往来更加便
 
 ## 正文
 
-21世纪经济报道 记者 崔文静 6月17日，2026陆家嘴论坛正式召开，证监会主席吴清发布资本市场建设系列相关政策，主要内容包括： ①扩大科创板第五套标准适用范围至人工智能领域； ②落实发展未来产业战略部署，支持量子科技、生物制造、具身智能等更多领域“硬科技”企业上市； ③有序推进深化创业板改革，加大对新型消费和现代服务业的支持力度，更好服务成长型创新创业企业发展； ④用好用足并购重组快速审核机制，积极打通并购实施过程中的堵点卡点，推动优化并购相关政策，降低交易成本； ⑤深化再融资改革，突出“扶优、扶科”导向，抓紧修订《上市公司证券发行注册管理办法》等制度规则，加快推出储架发行等机制； ⑥支持符合条件的港股上市公司境内上市，更好促进两地市场联动发展； ⑦支持在沪深交易所推出主动ETF，更好满足居民多元化的财富管理需求； ⑧推出商业不动产REITs试点
+发布时间：2026年05月17日 20:06 来源：中国新闻网 近日，记者走进云南省怒江傈僳族自治州贡山县丙中洛镇尼大当村，怒江奔流而下，两岸三座建造年代不同的桥并立于同一江段，记录着怒江峡谷通路半个多世纪的变迁。
 
-此外，吴清主席还宣布4项支持上海国际金融中心建设的政策，包括： ①增强“上海价格”国际影响力，平稳推动液化天然气期货期权上市，支持推进电力等基础性、战略性期货品种研发； ②支持上海打造金融创新“试验田”，推动股债融资、并购重组、机构发展、离岸金融等方面重大改革开放措施在上海先行先试； ③支持上海浦东、北京海淀、广东深圳、江苏苏州、浙江杭州打造首批资本市场科技金融实践样本； ④精心筹备召开首届中国资本市场学术年会，发挥好资本市场学会平台作用，助力上海国际金融中心软实力提升。
+1975年建成的朝红桥，为第一代尼大当桥，钢索木板结构，仅供人畜通行，曾是当地群众过江的重要通道；2004年建成的第二代尼大当桥，可供车辆交替通行，让两岸往来更加便利；2017年建成的第三代尼大当桥，则让车辆双向通行，将怒江峡谷进一步接入国道交通网络。
 
-责任编辑：郭栩彤
+江上风过，朝红桥的钢索仍悬于江面，新桥车辆往来不息。
+
+从人畜通行到车辆双向通行，三代桥并立同框，也让滇西北边疆通路变迁有了可见注脚。
+
+(王临梓 陈静） 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-29 22:37 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 22:31 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-29 22:21 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-29 22:12 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-29 22:30 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-29 22:15 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 22:34 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-29 22:40 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-29 22:30 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-29 22:16 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-29 22:19 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 22:24 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 22:26 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 22:34 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-29 22:31 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-29 22:37 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 22:26 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 22:33 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 22:42 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-29 22:39 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 22:25 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 22:21 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-29 22:46 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-29 22:28 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-29 22:20 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:37 - [曼城官宣马雷斯卡出任主教练](https://www.blog.minike.top/Article/details/075692047734.shtml)
-- 2026-06-29 22:13 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/98946350208.shtml)
-- 2026-06-29 22:13 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/4436002271.shtml)
-- 2026-06-29 22:38 - [起风了](http://www.share.kurohicncr.top/Article/details/46380121.shtml)
-- 2026-06-29 22:29 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/362707121.shtml)
-- 2026-06-29 22:41 - [中方在台湾岛以东海域活动合理合法](https://www.share.kurohicncr.top/Article/details/825313959.shtml)
-- 2026-06-29 22:19 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/5751959.shtml)
-- 2026-06-29 22:12 - [一生一世](https://www.share.kurohicncr.top/Article/details/84854151399.shtml)
-- 2026-06-29 22:24 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/386081.shtml)
-- 2026-06-29 22:29 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.kurohicncr.top/Article/details/153439795.shtml)
-- 2026-06-29 22:28 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/956458477396.shtml)
-- 2026-06-29 22:12 - [毒液2](https://www.blog.kurohicncr.top/Article/details/50293521110.shtml)
-- 2026-06-29 22:26 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/20575585783.shtml)
-- 2026-06-29 22:33 - [王鸿薇要求删陆委会百余万特别费](http://www.share.minike.top/Article/details/0707958.shtml)
-- 2026-06-29 22:20 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/470796357985.shtml)
+- 2026-06-29 22:28 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/73693374.shtml)
+- 2026-06-29 22:34 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/205156368.shtml)
+- 2026-06-29 22:45 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/500383845.shtml)
+- 2026-06-29 22:35 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/587559.shtml)
+- 2026-06-29 22:29 - [记者：预计热火将追求小哈达威和康利](https://www.share.minike.top/Article/details/211072.shtml)
+- 2026-06-29 22:19 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/824777878.shtml)
+- 2026-06-29 22:46 - [穆祉丞东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/7112597261.shtml)
+- 2026-06-29 22:46 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/24726198.shtml)
+- 2026-06-29 22:36 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/0323846.shtml)
+- 2026-06-29 22:40 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/347042.shtml)
+- 2026-06-29 22:25 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/43691698896.shtml)
+- 2026-06-29 22:20 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/9076598.shtml)
+- 2026-06-29 22:25 - [流金岁月](https://www.blog.minike.top/Article/details/569939679053.shtml)
+- 2026-06-29 22:29 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/686745.shtml)
+- 2026-06-29 22:24 - [网约车出事故平台拒赔称只是中介](http://www.blog.kurohicncr.top/Article/details/1566899661.shtml)

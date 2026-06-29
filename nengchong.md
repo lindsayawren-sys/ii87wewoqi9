@@ -1,47 +1,61 @@
-# 央行今日开展4203亿元7天逆回购操作
+# 精准软糖制造驱动业绩激增，Healthy Extracts一季度营收创新高
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-6月17日金融一线消息，央行今日开展4203亿元7天逆回购操作，投标量4203亿元，中标量4203亿元，操作利率为1.40%，与此前持平。 责任编辑：秦艺
+财务数据亮眼 Healthy Extracts近日公布了截至2026年3月31日的第一季度财报。财报显示，公司净营收同比增长73%，达到创纪录的160万美元，GAAP每股亏损为0.01美元。 在盈利能力方面，公司毛利润增长133%至98.9万美元，毛利率从去年同期的45.6%大幅提升至61.4%。净亏损改善50%至20.1万美元，而调整后的EBITDA亏损也进一步收窄。 增长核
 
 ## 正文
 
-6月17日金融一线消息，央行今日开展4203亿元7天逆回购操作，投标量4203亿元，中标量4203亿元，操作利率为1.40%，与此前持平。
+财务数据亮眼 Healthy Extracts近日公布了截至2026年3月31日的第一季度财报。
 
-责任编辑：秦艺
+财报显示，公司净营收同比增长73%，达到创纪录的160万美元，GAAP每股亏损为0.01美元。
+
+在盈利能力方面，公司毛利润增长133%至98.9万美元，毛利率从去年同期的45.6%大幅提升至61.4%。
+
+净亏损改善50%至20.1万美元，而调整后的EBITDA亏损也进一步收窄。
+
+增长核心驱动 营收的爆炸性增长主要得益于2025年10月对Gummy USA的战略合并，该交易不仅带来了先进的精准剂量软糖制造能力，还开拓了新的B2B渠道。
+
+此外，公司与植物基美容品牌Imaraïs Beauty建立了重大全球制造合作伙伴关系，成功进入规模达7300亿美元的健康与美容市场。
+
+公司已收到Imaraïs的首笔近400万颗软糖的大订单，将分销至全美超过4800家零售店。
+
+未来展望与战略转型 管理层重申了2026年全年净营收超过2000万美元的目标。
 
 ## 相关推荐
 
-- 2026-06-29 22:13 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-29 22:36 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 22:35 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-29 22:17 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-29 22:22 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-29 22:19 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-29 22:29 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-29 22:19 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-29 22:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-29 22:34 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 22:18 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-29 22:32 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-29 22:18 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 22:37 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 22:27 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 22:47 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 22:33 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 22:35 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-29 22:39 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-29 22:32 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-29 22:30 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 22:39 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-29 22:43 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 22:44 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 22:40 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-29 22:37 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 22:44 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-29 22:44 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:35 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/415835690575.shtml)
-- 2026-06-29 22:19 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/7224063551.shtml)
-- 2026-06-29 22:24 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/370871251.shtml)
-- 2026-06-29 22:36 - [国常会听取人工智能发展情况汇报](https://www.share.minike.top/Article/details/137562304687.shtml)
-- 2026-06-29 22:36 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/6797160690.shtml)
-- 2026-06-29 22:28 - [朱雀三号完成静态点火试验](https://www.blog.minike.top/Article/details/00459.shtml)
-- 2026-06-29 22:36 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/72930.shtml)
-- 2026-06-29 22:32 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/895296.shtml)
-- 2026-06-29 22:15 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/30649140.shtml)
-- 2026-06-29 22:41 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/442160.shtml)
-- 2026-06-29 22:29 - [乌克兰发广告全球征兵](http://www.blog.kurohicncr.top/Article/details/56211058.shtml)
-- 2026-06-29 22:40 - [第一炉香](https://www.share.kurohicncr.top/Article/details/96344967890.shtml)
-- 2026-06-29 22:16 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/3355405158.shtml)
-- 2026-06-29 22:38 - [温网](https://www.blog.kurohicncr.top/Article/details/951846.shtml)
-- 2026-06-29 22:39 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/3941871653.shtml)
+- 2026-06-29 22:34 - [爱奇艺抬高国剧新标尺](https://www.share.minike.top/Article/details/613627819785.shtml)
+- 2026-06-29 22:27 - [王安宇聪明到导演组炸了](http://www.share.minike.top/Article/details/289574.shtml)
+- 2026-06-29 22:25 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/094665852505.shtml)
+- 2026-06-29 22:37 - [105岁女红军看到自己长征时的模样](https://www.share.kurohicncr.top/Article/details/394503192611.shtml)
+- 2026-06-29 22:40 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/539302.shtml)
+- 2026-06-29 22:29 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/50377.shtml)
+- 2026-06-29 22:25 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.blog.kurohicncr.top/Article/details/36717732231.shtml)
+- 2026-06-29 22:42 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.blog.minike.top/Article/details/923731766876.shtml)
+- 2026-06-29 22:43 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/27127485.shtml)
+- 2026-06-29 22:29 - [世界杯高票价为何没劝退球迷](https://www.share.kurohicncr.top/Article/details/18328.shtml)
+- 2026-06-29 22:47 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/4266086.shtml)
+- 2026-06-29 22:27 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/31816200.shtml)
+- 2026-06-29 22:25 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/278634150.shtml)
+- 2026-06-29 22:46 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/598435229.shtml)
+- 2026-06-29 22:44 - [TFing最具影响力音乐厂牌](https://www.blog.kurohicncr.top/Article/details/8450476220.shtml)

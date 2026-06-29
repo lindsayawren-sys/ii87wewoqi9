@@ -1,59 +1,59 @@
-# SpaceX大涨17%市值超微软，专家：目前明显被高估了
+# 江西85后富豪夫妇又要IPO了，身家65亿，一年狂揽34亿
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-记者丨周蕊 北京时间6月16日晚，SpaceX股价连续第三日大涨。截至22：07，涨幅进一步扩大至17%，总市值达2.97万亿美元，继超过亚马逊后，进一步超越微软。 然而，在市场热烈追捧的背后，其高估值也引发了华尔街关于泡沫、市场集中度以及长期盈利能力的讨论。 前The Motley Fool科技投资分析师、投资研究机构7investing创始人Simon Erickson认为
+记者丨朱治宣 编辑丨蒋韵 林曦 江佩霞 继首次递表港交所失效之后，今年4月27日，总部位于广州的“电商代运营第一股”若羽臣第二次向港交所递交招股书，拟在香港主板上市，联席保荐人为中信建投国际、广发证券。 值得注意的是，为了给冲刺港股增加砝码，4月初，若羽臣国际拟以自有或自筹资金4382.21万美元（约2.99亿元）的交易价格收购百年历史的高端护肤品牌奥伦纳素，本次交易完成后，若
 
 ## 正文
 
-记者丨周蕊 北京时间6月16日晚，SpaceX股价连续第三日大涨。
+记者丨朱治宣 编辑丨蒋韵 林曦 江佩霞 继首次递表港交所失效之后，今年4月27日，总部位于广州的“电商代运营第一股”若羽臣第二次向港交所递交招股书，拟在香港主板上市，联席保荐人为中信建投国际、广发证券。
 
-截至22：07，涨幅进一步扩大至17%，总市值达2.97万亿美元，继超过亚马逊后，进一步超越微软。
+值得注意的是，为了给冲刺港股增加砝码，4月初，若羽臣国际拟以自有或自筹资金4382.21万美元（约2.99亿元）的交易价格收购百年历史的高端护肤品牌奥伦纳素，本次交易完成后，若羽臣将获得该品牌100%股权。
 
-然而，在市场热烈追捧的背后，其高估值也引发了华尔街关于泡沫、市场集中度以及长期盈利能力的讨论。
+这家曾以“电商代运营第一股”登陆A股的公司，如今想讲出品牌新故事。
 
-前The Motley Fool科技投资分析师、投资研究机构7investing创始人Simon Erickson认为，当前SpaceX明显被高估。
+5月9日，若羽臣董事长、创始人王玉在一封十五周年内部信中，将这段历程描述为“从追赶者到领跑者的蜕变”，十五年代运营积累的全链路能力正转化为品牌孵化引擎，但翻开招股书和2026年一季度财报，财务指标仍需理性审视。
 
-本次IPO定价明显偏高 南方财经：SpaceX刚刚完成了历史上规模最大的IPO。
+截至5月15日收盘，若羽臣报28.76元/股，跌幅0.52%，总市值89.46亿元。
 
-你对这次上市整体有什么评价？
+数据显示，若羽臣今年股价整体走弱，年初至今累计下跌17.76%，而2025年全年大涨146.33%。
 
-Simon Erickson：SpaceX是一家令人惊叹的公司，但我认为这次IPO定价明显偏高，而这其实也是许多大型科技公司上市时的共同特征。
+2025年10月17日，若羽臣盘中摸到48.86元/股的历史最高价。
 
-从某种意义上说，SpaceX更像是埃隆·马斯克多个项目的集合体。
+相比2024年初的3.76元低位，翻了12倍多。
 
 ## 相关推荐
 
-- 2026-06-29 22:20 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-29 22:30 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 22:31 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-29 22:22 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-29 22:28 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 22:33 - [乌克兰发广告全球征兵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-29 22:40 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-29 22:15 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 22:41 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 22:13 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 22:35 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-29 22:14 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-29 22:30 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-29 22:26 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-29 22:39 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-29 22:18 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 22:32 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-29 22:21 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 22:19 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 22:39 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 22:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 22:37 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 22:26 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 22:35 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-29 22:32 - [东方风云榜直播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 22:33 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:31 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/855793.shtml)
-- 2026-06-29 22:15 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.minike.top/Article/details/5328756241.shtml)
-- 2026-06-29 22:31 - [福建海警位金门附近海域常态执法巡查](https://www.blog.minike.top/Article/details/920547154.shtml)
-- 2026-06-29 22:15 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/50340148.shtml)
-- 2026-06-29 22:18 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/292918962.shtml)
-- 2026-06-29 22:14 - [运20对中国空军的意义是什么](http://www.share.minike.top/Article/details/44758153.shtml)
-- 2026-06-29 22:32 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/809145923.shtml)
-- 2026-06-29 22:26 - [男子称在京东买到“同仁堂”假药](https://www.blog.kurohicncr.top/Article/details/0980044060.shtml)
-- 2026-06-29 22:30 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/72032.shtml)
-- 2026-06-29 22:22 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/511188063816.shtml)
-- 2026-06-29 22:40 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/366612.shtml)
-- 2026-06-29 22:33 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/802751605618.shtml)
-- 2026-06-29 22:26 - [仙游一峡谷5人身亡知情者发声](https://www.share.minike.top/Article/details/871352622396.shtml)
-- 2026-06-29 22:27 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/411440506.shtml)
-- 2026-06-29 22:37 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/140419743035.shtml)
+- 2026-06-29 22:40 - [记者暗访养老机构消防安全](https://www.blog.minike.top/Article/details/93712583.shtml)
+- 2026-06-29 22:21 - [穆祉丞东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/7757105.shtml)
+- 2026-06-29 22:26 - [浙江进入梅雨最强“攻击时段”](https://www.share.kurohicncr.top/Article/details/54952937623.shtml)
+- 2026-06-29 22:19 - [媒体：日本边磨刀边要货是做梦](http://www.blog.kurohicncr.top/Article/details/216418577090.shtml)
+- 2026-06-29 22:31 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/72215.shtml)
+- 2026-06-29 22:40 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/81203017.shtml)
+- 2026-06-29 22:38 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/2878254174.shtml)
+- 2026-06-29 22:31 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/05829.shtml)
+- 2026-06-29 22:42 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/1595724981.shtml)
+- 2026-06-29 22:26 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/536807.shtml)
+- 2026-06-29 22:34 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/3674343213.shtml)
+- 2026-06-29 22:39 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/35619450.shtml)
+- 2026-06-29 22:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/19296648.shtml)
+- 2026-06-29 22:21 - [厨房装空调还是装冷烟机](http://www.share.minike.top/Article/details/175479282437.shtml)
+- 2026-06-29 22:23 - [新官上任三把火](https://www.blog.minike.top/Article/details/6587667.shtml)

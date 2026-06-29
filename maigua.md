@@ -1,60 +1,55 @@
-# 中国海油原副总经理袁光宇一审被判死缓
+# 中外模玩汇聚长春 国风IP引领消费新风尚
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-中新社北京6月17日电 (记者 张素)记者从中国最高人民法院获悉，6月17日，江苏省徐州市中级人民法院一审公开宣判中国海洋石油集团有限公司原党组成员、副总经理袁光宇受贿案，对被告人袁光宇以受贿罪判处死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产；对追缴在案的袁光宇受贿所得财物及孳息依法予以追缴，上缴国库。公开资料显示，袁光宇生于1959年，1982年加入中国海洋石油
+发布时间：2026年05月16日 15:22 来源：中国新闻网 5月16日，首届东北亚数字文创与模玩艺术博览会正在吉林长春举行，中外数十家模型玩具厂商、经销商及原创工作室参展。现场，相较日本、欧美动漫手办，融合中国神话、科幻题材与国风元素的国产原创模玩，更受年轻消费者追捧。 近两年，随着《黑神话：悟空》等现象级文化IP的爆发，中国模玩产业加速从海外代工向原创主导转型，国产原创产
 
 ## 正文
 
-中新社北京6月17日电 (记者 张素)记者从中国最高人民法院获悉，6月17日，江苏省徐州市中级人民法院一审公开宣判中国海洋石油集团有限公司原党组成员、副总经理袁光宇受贿案，对被告人袁光宇以受贿罪判处死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产；对追缴在案的袁光宇受贿所得财物及孳息依法予以追缴，上缴国库。
+发布时间：2026年05月16日 15:22 来源：中国新闻网 5月16日，首届东北亚数字文创与模玩艺术博览会正在吉林长春举行，中外数十家模型玩具厂商、经销商及原创工作室参展。
 
-公开资料显示，袁光宇生于1959年，1982年加入中国海洋石油总公司，2016年任中国海洋石油集团有限公司副总经理、党组成员，2019年卸任。
+现场，相较日本、欧美动漫手办，融合中国神话、科幻题材与国风元素的国产原创模玩，更受年轻消费者追捧。
 
-2025年3月，官方通报袁光宇被查。
+近两年，随着《黑神话：悟空》等现象级文化IP的爆发，中国模玩产业加速从海外代工向原创主导转型，国产原创产品逐步占据市场主流。
 
-同年7月，中央纪委国家监委通报其被开除党籍。
+业内人士表示，中国原创IP孵化能力显著增强，使得消费者愿意为优质产品买单。
 
-他被指毫无纪法底线，肆无忌惮“靠石油吃石油”，大搞权钱交易等。
+以高品质、高性价比和独特文化内涵著称的中国模玩产品，不仅在国内市场获得好评，在海外多国也大受欢迎。
 
-经审理查明，2001年至2022年，袁光宇利用担任中海石油北方钻井公司总经理，中海油田服务有限公司总经理、总裁，中海石油(中国)有限公司天津分公司总经理，中国海洋石油渤海石油管理局局长，中国海洋石油有限公司执行副总裁、总裁，中国海洋石油集团有限公司党组成员、副总经理等职务上的便利，为相关单位和个人在项目承揽、企业经营、职务调整等事项上提供帮助，直接或者通过他人非法收受财物，共计折合人民币1.52亿余元。
-
-法院认为，袁光宇的行为构成受贿罪，受贿数额特别巨大，并使国家和人民利益遭受特别重大损失，论罪应当判处死刑。
-
-鉴于其归案后如实供述自己罪行，主动交代监察机关尚未掌握的部分犯罪事实，认罪悔罪，积极退赃，受贿所得及孳息已全部追缴到案，具有法定、酌定从轻处罚情节，对其判处死刑，可不立即执行。
+(吕盛楠 刘栋 长春报道) 责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-29 22:17 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 22:39 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 22:17 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-29 22:25 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 22:33 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-29 22:37 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-29 22:30 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 22:40 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 22:18 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-29 22:41 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 22:37 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-29 22:39 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 22:40 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-29 22:20 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 22:32 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-29 22:18 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 22:41 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-29 22:21 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 22:39 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-29 22:41 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-29 22:23 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 22:28 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-29 22:39 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-29 22:47 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 22:47 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-29 22:36 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 22:45 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:28 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/718463.shtml)
-- 2026-06-29 22:12 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/6398905.shtml)
-- 2026-06-29 22:22 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/44659714.shtml)
-- 2026-06-29 22:20 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/696439571.shtml)
-- 2026-06-29 22:29 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/87107630.shtml)
-- 2026-06-29 22:38 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/79363405440.shtml)
-- 2026-06-29 22:38 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/761924.shtml)
-- 2026-06-29 22:16 - [明星大侦探第四季](https://www.share.minike.top/Article/details/551524658756.shtml)
-- 2026-06-29 22:39 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/1238988206.shtml)
-- 2026-06-29 22:29 - [千与千寻](https://www.share.kurohicncr.top/Article/details/04539387.shtml)
-- 2026-06-29 22:16 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/08274703509.shtml)
-- 2026-06-29 22:33 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/069446425767.shtml)
-- 2026-06-29 22:41 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/2436990543.shtml)
-- 2026-06-29 22:35 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/6471209127.shtml)
-- 2026-06-29 22:21 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/012565193.shtml)
+- 2026-06-29 22:46 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/17235.shtml)
+- 2026-06-29 22:37 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/5375775340.shtml)
+- 2026-06-29 22:42 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/48000619051.shtml)
+- 2026-06-29 22:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/002187.shtml)
+- 2026-06-29 22:45 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/6566278936.shtml)
+- 2026-06-29 22:23 - [谁在推动“成都造”影视持续出圈](http://www.blog.kurohicncr.top/Article/details/683437070.shtml)
+- 2026-06-29 22:38 - [刘宇宁 好听](https://www.blog.kurohicncr.top/Article/details/56533.shtml)
+- 2026-06-29 22:21 - [韩国800万亿韩元押注半导体](https://www.share.minike.top/Article/details/88621347752.shtml)
+- 2026-06-29 22:41 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/9777996496.shtml)
+- 2026-06-29 22:30 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/617840337534.shtml)
+- 2026-06-29 22:24 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/7977054401.shtml)
+- 2026-06-29 22:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/3269691.shtml)
+- 2026-06-29 22:43 - [月亮](http://www.share.kurohicncr.top/Article/details/4677919255.shtml)
+- 2026-06-29 22:42 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/52590515382.shtml)
+- 2026-06-29 22:20 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/83693466.shtml)

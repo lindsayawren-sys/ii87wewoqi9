@@ -1,56 +1,58 @@
-# 针对“幽灵外卖”等乱象，新措施试点！
+# 天津视障电竞选手许禄：从“听风者”到为无声世界“撑伞”
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-记者6月16日从市场监管总局召开的2026年二季度例行新闻发布会上获悉：针对无证假门店乱象，5月在上海启动电子证照核验试点，严查线上虚假门店。 市场监管总局新闻发言人、新闻宣传司司长王秋苹介绍，这项试点是市场监管总局以数字化手段破解监管难题的一项重要创新。它主要针对的就是“幽灵外卖”等乱象，一些不法商户利用伪造、套用证照或虚构经营地址等手段违法入网，而部分平台审核把关不严，导致
+中新网天津5月17日电 题：天津视障电竞选手许禄：从“听风者”到为无声世界“撑伞” 作者 薛淳月 指尖在键盘上快速敲击，耳机里传来的不仅是激烈的枪火声，还有方位、距离。许禄神情专注，一幅由声音构建的竞技地图在他的脑中逐渐成形。 今天是第36个全国助残日。今年助残日的主题是“保障残疾人平等权益，促进残疾人融合发展”。在天津，天生双目失明的“80后”电竞选手许禄，正用自己的方式诠释
 
 ## 正文
 
-记者6月16日从市场监管总局召开的2026年二季度例行新闻发布会上获悉：针对无证假门店乱象，5月在上海启动电子证照核验试点，严查线上虚假门店。
+中新网天津5月17日电 题：天津视障电竞选手许禄：从“听风者”到为无声世界“撑伞” 作者 薛淳月 指尖在键盘上快速敲击，耳机里传来的不仅是激烈的枪火声，还有方位、距离。
 
-市场监管总局新闻发言人、新闻宣传司司长王秋苹介绍，这项试点是市场监管总局以数字化手段破解监管难题的一项重要创新。
+许禄神情专注，一幅由声音构建的竞技地图在他的脑中逐渐成形。
 
-它主要针对的就是“幽灵外卖”等乱象，一些不法商户利用伪造、套用证照或虚构经营地址等手段违法入网，而部分平台审核把关不严，导致网上出现“假证照、假地址、假门店”。
+今天是第36个全国助残日。
 
-以“幽灵外卖”为例，他们弄虚作假，查无实体，给食品安全带来极大风险隐患，严重扰乱市场秩序。
+今年助残日的主题是“保障残疾人平等权益，促进残疾人融合发展”。
 
-试点工作的核心，是依托全国统一、权威可信的电子营业执照系统，推动入驻资质审核全流程数字化闭环管理。
+在天津，天生双目失明的“80后”电竞选手许禄，正用自己的方式诠释着这一主题。
 
-电子营业执照在其中扮演了“信任基石”和“技术抓手”的关键角色，具体体现在三个“真”上： 一是有效核验“真人”，从源头杜绝冒用。
+从“绝对音感”到电竞选手 五六岁时，父母发现许禄对声音有着超乎常人的敏感。
 
-餐饮经营者入网时，通过电子营业执照小程序，由其法定代表人完成经营主体身份认证和电子证照精准授权，确保了经营主体身份和意愿的真实性，有效拦截了“套照入网”行为。
+他给自己找的“玩具”是一桶水和几个玻璃饮料瓶——每个瓶子装不同高度的水，敲击时声音也不同。
 
-二是有效核验“真证”，实现信息精准核验。
+上学后，音乐老师弹琴给同学们听音，四五个音同时响起，他能全部听出来。
 
 ## 相关推荐
 
-- 2026-06-29 22:21 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-29 22:16 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-29 22:19 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 22:37 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-29 22:40 - [店员光脚踩入盆中清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 22:33 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-29 22:17 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-29 22:37 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-29 22:13 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 22:31 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-29 22:19 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 22:45 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 22:21 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 22:38 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 22:42 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-29 22:32 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 22:28 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-29 22:25 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-29 22:24 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 22:31 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 22:35 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-29 22:21 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:32 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/7201991.shtml)
-- 2026-06-29 22:18 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/07471984250.shtml)
-- 2026-06-29 22:38 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/3952489742.shtml)
-- 2026-06-29 22:22 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/29254.shtml)
-- 2026-06-29 22:13 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/98400654070.shtml)
-- 2026-06-29 22:27 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/63822205.shtml)
-- 2026-06-29 22:18 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/69236675.shtml)
-- 2026-06-29 22:26 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/65513.shtml)
-- 2026-06-29 22:38 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/705004466.shtml)
-- 2026-06-29 22:27 - [韩国队回国欢迎仪式取消](http://www.blog.minike.top/Article/details/19081192.shtml)
-- 2026-06-29 22:20 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/9316629895.shtml)
-- 2026-06-29 22:29 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/0752780.shtml)
-- 2026-06-29 22:40 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/914843011953.shtml)
-- 2026-06-29 22:26 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/631256960161.shtml)
-- 2026-06-29 22:39 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.minike.top/Article/details/629839558.shtml)
+- 2026-06-29 22:21 - [中方在台湾岛以东海域活动合理合法](https://www.blog.kurohicncr.top/Article/details/59483352.shtml)
+- 2026-06-29 22:43 - [律师解读滚石唱片要求万豪酒店道歉](http://www.share.minike.top/Article/details/209086246458.shtml)
+- 2026-06-29 22:45 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/1304875.shtml)
+- 2026-06-29 22:41 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/83010.shtml)
+- 2026-06-29 22:47 - [18岁高二体育生训练晕倒后离世](https://www.share.kurohicncr.top/Article/details/5732499673.shtml)
+- 2026-06-29 22:21 - [网友晒14年前支教影像等来学生评论](https://www.share.kurohicncr.top/Article/details/4554942288.shtml)
+- 2026-06-29 22:30 - [孙俪开QQ的蛮好生活](http://www.blog.kurohicncr.top/Article/details/02297.shtml)
+- 2026-06-29 22:25 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/756634409.shtml)
+- 2026-06-29 22:46 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/0766552.shtml)
+- 2026-06-29 22:28 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/92947437744.shtml)
+- 2026-06-29 22:27 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/5601570806.shtml)
+- 2026-06-29 22:27 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/732050124776.shtml)
+- 2026-06-29 22:44 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/84423.shtml)
+- 2026-06-29 22:43 - [我们的少年时代2](http://www.blog.minike.top/Article/details/721713974486.shtml)
+- 2026-06-29 22:22 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/45609219.shtml)

@@ -1,44 +1,56 @@
-# 青海海西州直辖区发生6.3级地震，震源深度10千米
+# 7天“手搓”AI微短剧 数字媒体艺术等专业迎来变革
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-中新网6月16日电 中国地震台网正式测定：6月16日17时06分在青海海西州直辖区(北纬37.80度，东经95.56度)发生6.3级地震，震源深度10千米。
+7天“手搓”一部AI微短剧，学生们对技术有了新思考 “我乃常山赵子龙是也！”电脑屏幕中，一个动漫形象挥舞银枪腾空跃起，和一条白色巨龙逐渐融为一体……这是安徽工程大学设计学院40余名师生组成的团队，用7天时间完成的国漫微短剧的一幕场景。 从剧本到镜头再到配音，均由AI软件和大模型完成。酷酷的面部棱角、炫酷的打斗场面、精致的“服化道”组合，展现三国人物赵云的英雄气概。 该校设计学院
 
 ## 正文
 
-中新网6月16日电 中国地震台网正式测定：6月16日17时06分在青海海西州直辖区(北纬37.80度，东经95.56度)发生6.3级地震，震源深度10千米。
+7天“手搓”一部AI微短剧，学生们对技术有了新思考 “我乃常山赵子龙是也！
+
+”电脑屏幕中，一个动漫形象挥舞银枪腾空跃起，和一条白色巨龙逐渐融为一体……这是安徽工程大学设计学院40余名师生组成的团队，用7天时间完成的国漫微短剧的一幕场景。
+
+从剧本到镜头再到配音，均由AI软件和大模型完成。
+
+酷酷的面部棱角、炫酷的打斗场面、精致的“服化道”组合，展现三国人物赵云的英雄气概。
+
+该校设计学院新媒体系主任李颖教授介绍，这不是团队首次制作AI动漫微短剧。
+
+如今，AI技术发展给数字媒体艺术和动画等专业带来颠覆性变革，微短剧创作项目式教学最符合学生的口味，教师将分镜、编导、剪辑、视听语言等基础知识融入AI项目式教学，发展学生综合能力。
+
+一集动漫微短剧约1分钟时间，一部剧30集到50集不等，最快7天就能完成。
+
+AI高产创作给2024级动画专业本科生陈凯带来颠覆性体验，他参与制作的微短剧涵盖国风传统文化、古风市井故事、传统神话片段、校园国风小故事等主题，题材偏向温情治愈、古风仙侠、非遗民俗类等风格。
 
 ## 相关推荐
 
-- 2026-06-29 22:14 - [任泽平：AI浪潮刚刚开始](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-29 22:14 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-29 22:39 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 22:25 - [多人将马路护栏当球网打羽毛球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-29 22:27 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 22:32 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-29 22:22 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 22:16 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-29 22:24 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 22:25 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-29 22:20 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 22:16 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-29 22:31 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 22:44 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-29 22:41 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-29 22:18 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 22:38 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-29 22:27 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-29 22:31 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 22:44 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 22:21 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 22:32 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:29 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/4072793716.shtml)
-- 2026-06-29 22:37 - [温网](http://www.blog.kurohicncr.top/Article/details/35997995.shtml)
-- 2026-06-29 22:33 - [夫妻生活太无聊，所以我……](https://www.blog.minike.top/Article/details/90132.shtml)
-- 2026-06-29 22:35 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/787541255.shtml)
-- 2026-06-29 22:28 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/8158639.shtml)
-- 2026-06-29 22:34 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/00751199.shtml)
-- 2026-06-29 22:31 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/38556991024.shtml)
-- 2026-06-29 22:19 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/014117877.shtml)
-- 2026-06-29 22:17 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/7740188.shtml)
-- 2026-06-29 22:22 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/915992647819.shtml)
-- 2026-06-29 22:41 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/73554765.shtml)
-- 2026-06-29 22:32 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/343006681046.shtml)
-- 2026-06-29 22:31 - [国际清算银行警告AI投资热潮](https://www.share.kurohicncr.top/Article/details/7750219681.shtml)
-- 2026-06-29 22:38 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/190219832173.shtml)
-- 2026-06-29 22:33 - [18岁高二体育生训练晕倒后离世](https://www.share.minike.top/Article/details/09194118220.shtml)
+- 2026-06-29 22:31 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/6750451.shtml)
+- 2026-06-29 22:21 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/3750818062.shtml)
+- 2026-06-29 22:19 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/2455062.shtml)
+- 2026-06-29 22:35 - [让AI做一个账号，它会做成什么样？](https://www.share.minike.top/Article/details/9789910689.shtml)
+- 2026-06-29 22:24 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/02725.shtml)
+- 2026-06-29 22:28 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/980194151230.shtml)
+- 2026-06-29 22:30 - [乌是否掌握了扭转战局的钥匙](http://www.share.minike.top/Article/details/1021551258.shtml)
+- 2026-06-29 22:30 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/62866737526.shtml)
+- 2026-06-29 22:30 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/28262078.shtml)
+- 2026-06-29 22:47 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/5854804914.shtml)
+- 2026-06-29 22:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/2618598476.shtml)
+- 2026-06-29 22:29 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/87574206965.shtml)
+- 2026-06-29 22:45 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/17582657263.shtml)
+- 2026-06-29 22:22 - [18岁高二体育生训练晕倒后离世](https://www.share.minike.top/Article/details/11305627251.shtml)
+- 2026-06-29 22:30 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/69331290.shtml)

@@ -1,56 +1,58 @@
-# 潘功胜：央行授权六家银行在上海开展离岸人民币交易
+# Eco Atlantic与JHI交易获法院批准，福克兰群岛海上扩张进入冲刺阶段
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 来源：财经五月花 文|唐郡 编辑|张威 明确DR001（货币市场隔夜利率）基准利率定位，建立“钱荒”应对工具，为境外央行类机构提供人民币流动性，在上海建立离岸金融体系…… 6月17日，中国人民银行（下称“央行”）行长潘功胜出席2026陆家嘴论坛，并宣布了多项政策举措。 其中，创设境外央行回购工具、在上海开展离岸人民币
+Eco（Atlantic）Oil & Gas周一宣布，其收购JHI Associates的交易已获得安大略高等法院的最终批准令。此前在5月12日的股东会议上，该交易获得了100%投票股东的一致支持。 剩余条件与审批预期 公司表示，交易完成的剩余条件包括福克兰群岛政府、多伦多证券交易所创业板和AIM的批准，以及确认PL001许可证的五年延期及Navitas Petroleum的运
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 来源：财经五月花 文|唐郡 编辑|张威 明确DR001（货币市场隔夜利率）基准利率定位，建立“钱荒”应对工具，为境外央行类机构提供人民币流动性，在上海建立离岸金融体系…… 6月17日，中国人民银行（下称“央行”）行长潘功胜出席2026陆家嘴论坛，并宣布了多项政策举措。
+Eco（Atlantic）Oil & Gas周一宣布，其收购JHI Associates的交易已获得安大略高等法院的最终批准令。
 
-其中，创设境外央行回购工具、在上海开展离岸人民币外汇交易试点、印发《上海国际金融中心发展离岸金融行动方案》等举措，指向金融领域制度型开放和进一步推进人民币国际化进程。
+此前在5月12日的股东会议上，该交易获得了100%投票股东的一致支持。
 
-潘功胜表示，30多年来，特别是党的十八大以来，中国金融市场逐步从最初以信贷市场为主，发展成为包括股票、债券、货币、黄金、票据、大宗商品、衍生品等各金融子市场协同发展、功能健全、种类完备的现代金融市场体系，有力助推了中国经济稳定增长、转型升级和高质量发展。
+剩余条件与审批预期 公司表示，交易完成的剩余条件包括福克兰群岛政府、多伦多证券交易所创业板和AIM的批准，以及确认PL001许可证的五年延期及Navitas Petroleum的运营权。
 
-目前，市场深度广度大幅提升，国际地位与影响力实现跨越式提升；发行、交易等市场化机制全面建立；双向开放稳步推进，深度融入全球金融体系。
+交易完成后的资产布局 交易完成后，Eco将获得由Navitas Petroleum运营的福克兰群岛海上PL001许可证35%的参与权益，以及圭亚那海上Canje区块的潜在敞口。
 
-“进一步建设现代化金融市场，是‘十五五’时期的一项重要任务。
+公司预计将向JHI股东发行最多9630万股新普通股，其中约45%的股份设有18个月的锁定期。
 
-站在新的历史起点，中国金融市场将坚持市场化、法治化、国际化的发展方向，持续建设规范、开放、有活力、有韧性的现代化金融市场。
+管理层表态 Eco总裁兼首席执行官Gil Holzman表示，JHI收购已进入最后阶段，政府批准预计即将获得，团队正努力在获批后尽快完成交割。
 
-”潘功胜说。
+公司正与Navitas密切合作，计划对福克兰群岛海上PL001许可证进行勘探，确保技术无缝交接。
 
-优化货币市场调控三项举措 论坛现场，潘功胜宣布了三项针对国内货币市场的政策举措。
+同时，JHI和Eco仍在与圭亚那政府就Canje区块的潜在延期或重新发放进行沟通。
 
 ## 相关推荐
 
-- 2026-06-29 22:22 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-29 22:37 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 22:22 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 22:36 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 22:22 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 22:26 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 22:23 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 22:40 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-29 22:40 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 22:33 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-29 22:39 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 22:21 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-29 22:31 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 22:19 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 22:20 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-29 22:38 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 22:33 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 22:32 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-29 22:31 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 22:47 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 22:40 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 22:40 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:26 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/83450149956.shtml)
-- 2026-06-29 22:19 - [韩国800万亿韩元押注半导体](https://www.share.kurohicncr.top/Article/details/162872331825.shtml)
-- 2026-06-29 22:29 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/47718695146.shtml)
-- 2026-06-29 22:22 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/90105252.shtml)
-- 2026-06-29 22:38 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/9857436576.shtml)
-- 2026-06-29 22:37 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/273619943205.shtml)
-- 2026-06-29 22:30 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.share.minike.top/Article/details/71848689896.shtml)
-- 2026-06-29 22:12 - [恋与深空致歉](https://www.share.minike.top/Article/details/6864260.shtml)
-- 2026-06-29 22:37 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/3936405.shtml)
-- 2026-06-29 22:22 - [一见倾心](http://www.blog.minike.top/Article/details/9615986.shtml)
-- 2026-06-29 22:20 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/7393990588.shtml)
-- 2026-06-29 22:34 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/390121827156.shtml)
-- 2026-06-29 22:40 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/9252112816.shtml)
-- 2026-06-29 22:40 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/697114316.shtml)
-- 2026-06-29 22:29 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/65919715.shtml)
+- 2026-06-29 22:18 - [李思潼：不会介意大家夸我运气好](https://www.share.minike.top/Article/details/3955120.shtml)
+- 2026-06-29 22:36 - [齐思钧回复孙怡](https://www.blog.kurohicncr.top/Article/details/921979034.shtml)
+- 2026-06-29 22:22 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/7824016362.shtml)
+- 2026-06-29 22:31 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/200382604.shtml)
+- 2026-06-29 22:41 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/73098411.shtml)
+- 2026-06-29 22:25 - [记者：预计热火将追求小哈达威和康利](http://www.share.minike.top/Article/details/54789.shtml)
+- 2026-06-29 22:45 - [韩国队回国欢迎仪式取消](https://www.blog.minike.top/Article/details/6054751.shtml)
+- 2026-06-29 22:31 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/9641688.shtml)
+- 2026-06-29 22:20 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/1578116.shtml)
+- 2026-06-29 22:41 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/2325693.shtml)
+- 2026-06-29 22:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/3036179310.shtml)
+- 2026-06-29 22:29 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/0291177.shtml)
+- 2026-06-29 22:28 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/0735699220.shtml)
+- 2026-06-29 22:41 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/81351659885.shtml)
+- 2026-06-29 22:20 - [律师解读滚石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/20759488090.shtml)

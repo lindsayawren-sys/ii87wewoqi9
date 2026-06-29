@@ -1,57 +1,45 @@
-# 暴雨大暴雨区域将转移，凶悍的龙舟水之后“暴力”梅雨接力来袭
+# 我们为什么需要博物馆？
 
-> 更新时间：2026-06-29 22:42:02 UTC+8
+> 更新时间：2026-06-29 22:48:02 UTC+8
 
 ## 摘要
 
-6月12日以来，广东、广西不少地方遭遇了凶悍的龙舟水，暴雨、大暴雨刷屏，局地遭遇特大暴雨。其中，广东揭阳、汕尾多个区域站6月12日至16日累计降雨量突破同期历史极值。 今天，龙舟水继续在线，广西、广东出现大片强降雨回波，季风气流不断北上，在原有对流的南侧，激发出新的对流，导致降雨短时强度大、持续时间较长。像广西防城港、广东恩平，6小时降雨量就超过了100毫米。 今天夜间到明天，
+作者：李秋莹 设计：宋烨姗
 
 ## 正文
 
-6月12日以来，广东、广西不少地方遭遇了凶悍的龙舟水，暴雨、大暴雨刷屏，局地遭遇特大暴雨。
-
-其中，广东揭阳、汕尾多个区域站6月12日至16日累计降雨量突破同期历史极值。
-
-今天，龙舟水继续在线，广西、广东出现大片强降雨回波，季风气流不断北上，在原有对流的南侧，激发出新的对流，导致降雨短时强度大、持续时间较长。
-
-像广西防城港、广东恩平，6小时降雨量就超过了100毫米。
-
-今天夜间到明天，广东、广西等地仍将有强降雨，中央气象台预计，重庆中部、贵州西南部、广西中南部、广东中西部等地部分地区有大暴雨，局地特大暴雨。
-
-明天开始，随着副热带高压北抬，低空西南暖湿气流也将北上，大量水汽的聚集抬升区从华南向江南、长江中下游一带转移，主雨带东段开始北抬至长江中下游一带。
-
-但贵州南部、广东西部、广西仍然会有暖区对流，雨势依旧较强。
-
-明天夜间到后天，西藏东南部、云南西部和东部、贵州南部、湖北西南部和东部、河南东南部、安徽中部、江苏中南部、浙江北部、广西北部、广东北部等地部分地区有暴雨或大暴雨。
+作者：李秋莹 设计：宋烨姗
 
 ## 相关推荐
 
-- 2026-06-29 22:24 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-29 22:15 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 22:24 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-29 22:19 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 22:26 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-29 22:36 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 22:30 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-29 22:21 - [返利科技盘中上演“天地板”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 22:37 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-29 22:23 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-29 22:32 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 22:21 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-29 22:30 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 22:47 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 22:20 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 22:41 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-29 22:28 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 22:45 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-29 22:37 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 22:21 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-29 22:22 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 22:43 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 22:37 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 22:35 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:41 - [金刚川](http://www.blog.kurohicncr.top/Article/details/33500.shtml)
-- 2026-06-29 22:27 - [斛珠夫人](http://www.blog.minike.top/Article/details/54151343269.shtml)
-- 2026-06-29 22:13 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/384415711535.shtml)
-- 2026-06-29 22:35 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/3997471685.shtml)
-- 2026-06-29 22:18 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/20307.shtml)
-- 2026-06-29 22:28 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/1821164819.shtml)
-- 2026-06-29 22:14 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/63898623356.shtml)
-- 2026-06-29 22:21 - [英法德葡存在什么隐患](http://www.share.kurohicncr.top/Article/details/98183528287.shtml)
-- 2026-06-29 22:36 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/16049.shtml)
-- 2026-06-29 22:19 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/3830019374.shtml)
-- 2026-06-29 22:27 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/84458.shtml)
-- 2026-06-29 22:33 - [葫芦岛居民楼闪爆事故致3死](http://www.share.kurohicncr.top/Article/details/6594349140.shtml)
-- 2026-06-29 22:35 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/9915119.shtml)
-- 2026-06-29 22:21 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/544365813321.shtml)
-- 2026-06-29 22:28 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/506140625377.shtml)
+- 2026-06-29 22:30 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/395320864831.shtml)
+- 2026-06-29 22:22 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/707025615.shtml)
+- 2026-06-29 22:24 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/06701.shtml)
+- 2026-06-29 22:30 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/2413362937.shtml)
+- 2026-06-29 22:31 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/17191.shtml)
+- 2026-06-29 22:38 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/79513602345.shtml)
+- 2026-06-29 22:34 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/985369.shtml)
+- 2026-06-29 22:41 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/7548052.shtml)
+- 2026-06-29 22:37 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/701740102.shtml)
+- 2026-06-29 22:39 - [MG总经理直播被冲](http://www.share.kurohicncr.top/Article/details/14878815657.shtml)
+- 2026-06-29 22:25 - [福建海警位金门附近海域常态执法巡查](http://www.share.kurohicncr.top/Article/details/2326972.shtml)
+- 2026-06-29 22:47 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/619914.shtml)
+- 2026-06-29 22:37 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/9927722934.shtml)
+- 2026-06-29 22:44 - [王鸿薇要求删陆委会百余万特别费](https://www.blog.minike.top/Article/details/67163101381.shtml)
+- 2026-06-29 22:22 - [福建海警位金门附近海域常态执法巡查](http://www.blog.kurohicncr.top/Article/details/3893424.shtml)
