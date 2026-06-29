@@ -1,59 +1,60 @@
-# 一只帝王蟹，如何“带火”一座边境小城？
+# 一周涨近8%！黄金价格上演“过山车”行情，多家银行出手了
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-你知道吗？中国人每吃掉5只俄罗斯帝王蟹，就有4只，是从一个不靠海的东北小城吉林珲春发出的。这听上去有点反常识。 凌晨，白令海峡的捕捞船刚刚收网；十几个小时后，这些在深海里横行的“大块头”，已经跨过国境线，在珲春的暂养池里吐着泡泡。再过一天，它们就会出现在北京、上海，甚至更远的餐桌上。 而这条高速运转的“鲜活通道”的中枢，不是港口城市，而是一座常住人口只有二十多万的边境小城。 跑
+近日，黄金价格出现明显回暖。截至6月17日界面新闻发稿，现货黄金报4339.59美元/盎司，上涨了0.19%。6月10日，现货黄金一度跌到4023.1美元/盎司的近期低点，随后出现明显反弹，上涨幅度达到7.87%。 面对金价“过山车”行情带来的风险敞口，近期银行密集升级贵金属业务风控体系，从上调保证金比例、实施动态限额管理、调整业务门槛与费率、收紧涨跌停板限制等多维度收紧业务边
 
 ## 正文
 
-你知道吗？
+近日，黄金价格出现明显回暖。
 
-中国人每吃掉5只俄罗斯帝王蟹，就有4只，是从一个不靠海的东北小城吉林珲春发出的。
+截至6月17日界面新闻发稿，现货黄金报4339.59美元/盎司，上涨了0.19%。
 
-这听上去有点反常识。
+6月10日，现货黄金一度跌到4023.1美元/盎司的近期低点，随后出现明显反弹，上涨幅度达到7.87%。
 
-凌晨，白令海峡的捕捞船刚刚收网；十几个小时后，这些在深海里横行的“大块头”，已经跨过国境线，在珲春的暂养池里吐着泡泡。
+面对金价“过山车”行情带来的风险敞口，近期银行密集升级贵金属业务风控体系，从上调保证金比例、实施动态限额管理、调整业务门槛与费率、收紧涨跌停板限制等多维度收紧业务边界，以防范客户穿仓风险及自身经营损失。
 
-再过一天，它们就会出现在北京、上海，甚至更远的餐桌上。
+6月以来，保证金方面，针对代理个人贵金属延期业务（如Au（T+D）），工行、建行于近日将保证金从100%上调至‌120%‌，农行跟进。
 
-而这条高速运转的“鲜活通道”的中枢，不是港口城市，而是一座常住人口只有二十多万的边境小城。
+此前工行、农行、建行等将代理个人贵金属延期业务保证金比例由80%上调至100%。
 
-跑出来的优势：一小时到口岸，几分钟通关 珲春为什么能“接住”帝王蟹？
+除了上调保证金比例之外，动态限额成为常态化风控手段。
 
-答案其实很直接——够近，也够快。
+工行在周末及法定节假日对如意金积存业务实施动态限额管理，建行对“建行金”实施动态交易限额管理，当日额度耗尽后无法继续买入。
 
 ## 相关推荐
 
-- 2026-06-30 02:53 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-30 02:54 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-30 03:05 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 02:50 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-30 03:17 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-30 03:05 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-30 03:07 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-30 03:01 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-30 03:00 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-30 03:00 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-30 03:06 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 03:06 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-30 02:48 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-30 02:56 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-30 02:56 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-30 03:00 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 03:01 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-30 02:58 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-30 03:02 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-30 03:04 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-30 03:10 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-30 03:08 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 03:15 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-30 03:02 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-30 03:09 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-30 02:56 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-30 03:06 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:05 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/007104268.shtml)
-- 2026-06-30 02:56 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/471576.shtml)
-- 2026-06-30 02:52 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/3659371.shtml)
-- 2026-06-30 02:54 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/137041.shtml)
-- 2026-06-30 02:57 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/55534355.shtml)
-- 2026-06-30 03:05 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/67067089710.shtml)
-- 2026-06-30 03:05 - [爱很美味](http://www.share.minike.top/Article/details/770123419115.shtml)
-- 2026-06-30 02:59 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/6550519713.shtml)
-- 2026-06-30 03:08 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/510294522185.shtml)
-- 2026-06-30 03:14 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/0338888.shtml)
-- 2026-06-30 03:06 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/550127121.shtml)
-- 2026-06-30 03:06 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/17064764515.shtml)
-- 2026-06-30 02:56 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/0305945373.shtml)
-- 2026-06-30 03:12 - [美股](http://www.share.kurohicncr.top/Article/details/242224130.shtml)
-- 2026-06-30 03:01 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/73500924055.shtml)
+- 2026-06-30 02:58 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/8565280011.shtml)
+- 2026-06-30 03:11 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.minike.top/Article/details/4632254851.shtml)
+- 2026-06-30 03:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/13920839.shtml)
+- 2026-06-30 02:59 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/688007195.shtml)
+- 2026-06-30 03:22 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/1021878.shtml)
+- 2026-06-30 03:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/92154950.shtml)
+- 2026-06-30 03:08 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/65088403947.shtml)
+- 2026-06-30 03:15 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/45632.shtml)
+- 2026-06-30 03:09 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/04651467.shtml)
+- 2026-06-30 02:54 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/766131969567.shtml)
+- 2026-06-30 03:08 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/503069.shtml)
+- 2026-06-30 03:12 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/44401665749.shtml)
+- 2026-06-30 03:15 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/42761.shtml)
+- 2026-06-30 02:54 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/048632.shtml)
+- 2026-06-30 03:16 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/841159551.shtml)

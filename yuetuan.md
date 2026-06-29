@@ -1,56 +1,56 @@
-# 2026年一季度我国黄金产量81.065吨，同比下降7.08%
+# AI赋能展会全流程 湖南打造内外贸一体化融合平台
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-据中国黄金协会最新统计数据显示：2026年一季度，国内原料产金81.065吨，同比减少6.178吨，同比下降7.08%；进口原料产金55.165吨，同比增加1.578吨，同比增长2.94%。国内原料和进口原料共计生产黄金136.230吨，同比减少4.600吨，同比下降3.27%。 2026年一季度，黄金行业矿山与冶炼厂集中开展安全检查，对各类生产设施进行隐患排查，部分企业依规停
+中新网长沙6月16日电 (付敬懿)湖南作为中国9个、中部唯一的内外贸一体化试点省份，连续两年举办“内外贸一体化”主题博览会，帮湖南好物走出去、把外贸优品引进来。16日在长沙举行的2026湖南内外贸一体化融合发展博览会新闻发布会透露，本届博览会将于6月26日至28日在“制造名城”株洲举办，目前报名参展企业530家。 本届博览会展览总面积5万平方米，规划四大主题展馆、十大特色展区，
 
 ## 正文
 
-据中国黄金协会最新统计数据显示：2026年一季度，国内原料产金81.065吨，同比减少6.178吨，同比下降7.08%；进口原料产金55.165吨，同比增加1.578吨，同比增长2.94%。
+中新网长沙6月16日电 (付敬懿)湖南作为中国9个、中部唯一的内外贸一体化试点省份，连续两年举办“内外贸一体化”主题博览会，帮湖南好物走出去、把外贸优品引进来。
 
-国内原料和进口原料共计生产黄金136.230吨，同比减少4.600吨，同比下降3.27%。
+16日在长沙举行的2026湖南内外贸一体化融合发展博览会新闻发布会透露，本届博览会将于6月26日至28日在“制造名城”株洲举办，目前报名参展企业530家。
 
-2026年一季度，黄金行业矿山与冶炼厂集中开展安全检查，对各类生产设施进行隐患排查，部分企业依规停产检修。
+本届博览会展览总面积5万平方米，规划四大主题展馆、十大特色展区，其中内外贸优品馆设立外贸优品体验区、品牌直播间，集中展示绿色智能消费品、国潮好物与“三同”产品，观众可现场体验、扫码下单。
 
-系列管控举措在一定程度上影响了一季度国内黄金产量。
+品牌服饰馆创新采用“秀展结合”模式，同步打造实体展示区与直播互动区，对接当下个性化、潮流化消费需求。
 
-同时，行业资源整合持续推进，紫金矿业公告拟收购赤峰黄金股权，进一步集中优质资源。
+产业集群馆聚焦工业消费与配套产品，展示适配国内外市场的智能装备与零部件。
 
-大型黄金集团境外产能释放强劲，一季度实现矿产金产量24.173吨，同比增长30.77%。
+综合特色馆展示各地非遗技艺、民间手工艺品、农特产品、地理标志产品，让传统文化产品走向大众消费市场。
 
-2026年一季度，我国黄金消费量303.292吨，同比增长4.41%。
+本次博览会将人工智能深度融入展会运营、企业经营、商贸对接全流程，其中AI赋能商业新生态交流分享会，搭建“技术+工具+服务”一体化AI生态体系，现场开设AI问诊、AI路演对接等实操环节，直面企业在营销推广、供应链管理、客户维护等方面的痛点，手把手帮助传统商贸、制造企业运用数字化工具降本增效、拓展客源。
 
-其中：黄金首饰84.620吨，同比下降37.10%；金条及金币202.062吨，同比增长46.40%；工业及其他用金16.610吨，同比下降7.43%。
+同时，博览会将举办“人工智能+消费提质”交流会和“人工智能赋能产品出海”交流会，邀请AI技术企业现场设置体验台，展示智能选品、AI虚拟主播、智慧仓储等场景，帮助企业利用AI技术降低获客成本，提升跨境运营效率。
 
 ## 相关推荐
 
-- 2026-06-30 03:07 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-30 03:07 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-30 02:55 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-30 03:16 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-30 02:49 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-30 02:50 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-30 02:56 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-30 03:02 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 02:49 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-30 02:49 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 02:59 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-30 03:13 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-30 02:59 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 03:19 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-30 03:03 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-30 03:15 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-30 03:03 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-30 03:20 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-30 03:08 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-30 03:12 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:54 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/35865.shtml)
-- 2026-06-30 03:06 - [千与千寻](https://www.share.minike.top/Article/details/45675.shtml)
-- 2026-06-30 03:17 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/15453.shtml)
-- 2026-06-30 02:58 - [巴西绝杀日本](https://www.share.minike.top/Article/details/670600955835.shtml)
-- 2026-06-30 03:12 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/087932.shtml)
-- 2026-06-30 02:54 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/97870718999.shtml)
-- 2026-06-30 02:51 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/53450921.shtml)
-- 2026-06-30 02:56 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/324377564065.shtml)
-- 2026-06-30 03:15 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/80317754.shtml)
-- 2026-06-30 03:09 - [《贺子珍》](https://www.share.minike.top/Article/details/3457801.shtml)
-- 2026-06-30 02:49 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/7403710261.shtml)
-- 2026-06-30 02:58 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/61400799.shtml)
-- 2026-06-30 02:53 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/165244.shtml)
-- 2026-06-30 03:07 - [一见倾心](http://www.share.minike.top/Article/details/186985553.shtml)
-- 2026-06-30 02:49 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/0457181.shtml)
+- 2026-06-30 02:59 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/593115534.shtml)
+- 2026-06-30 02:54 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/479385871.shtml)
+- 2026-06-30 03:14 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/434207178334.shtml)
+- 2026-06-30 03:13 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/156780890498.shtml)
+- 2026-06-30 03:14 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/680150.shtml)
+- 2026-06-30 03:01 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/004728407707.shtml)
+- 2026-06-30 02:58 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/1457897.shtml)
+- 2026-06-30 03:19 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/598350.shtml)
+- 2026-06-30 03:15 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/77573.shtml)
+- 2026-06-30 03:13 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/870677536.shtml)
+- 2026-06-30 03:07 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/892506413.shtml)
+- 2026-06-30 02:55 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/7208686212.shtml)
+- 2026-06-30 03:21 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/186027579610.shtml)
+- 2026-06-30 03:06 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/16799783.shtml)
+- 2026-06-30 02:54 - [法媒点赞分享中国小区降温方案](http://www.share.kurohicncr.top/Article/details/27331.shtml)

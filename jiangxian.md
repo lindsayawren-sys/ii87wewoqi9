@@ -1,46 +1,57 @@
-# 大连电瓷：预计公司2026年海外收入占比与2025年基本持平
+# 青海海西州6.3级地震后首夜：全力做好救灾处置工作 保障受灾民众平安过夜
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:03 UTC+8
 
 ## 摘要
 
-证券日报网5月8日讯，大连电瓷在接受调研者提问时表示，随着公司江西工厂两期产能完全释放，结合后续海外电力需求，预计公司2026年海外收入占比与2025年基本持平。
+中新网西宁6月17日电 (李隽)青海省海西州大柴旦6.3级地震发生后，青海省抗震救灾指挥部全力开展救灾处置工作，经过两轮全面人员排查，截至6月16日23时，地震已造成1人遇难，8人受伤，受伤人员经包扎处理后已离开医院。为有效防范余震及震后次生灾害，当地设置了5处集中安置点，妥善安置约3000名受灾民众，优先安置并转移中小学、幼儿园师生1286人，水及方便食品充足，并采取投亲靠友
 
 ## 正文
 
-证券日报网5月8日讯，大连电瓷在接受调研者提问时表示，随着公司江西工厂两期产能完全释放，结合后续海外电力需求，预计公司2026年海外收入占比与2025年基本持平。
+中新网西宁6月17日电 (李隽)青海省海西州大柴旦6.3级地震发生后，青海省抗震救灾指挥部全力开展救灾处置工作，经过两轮全面人员排查，截至6月16日23时，地震已造成1人遇难，8人受伤，受伤人员经包扎处理后已离开医院。
+
+为有效防范余震及震后次生灾害，当地设置了5处集中安置点，妥善安置约3000名受灾民众，优先安置并转移中小学、幼儿园师生1286人，水及方便食品充足，并采取投亲靠友、异地转移等方式，有序疏散受灾民众。
+
+震中附近煤矿企业作业人员全部撤离并完成身份核对。
+
+当地景区已实施临时闭园，9成以上游客已分批疏导至格尔木市、德令哈市。
+
+16日夜间至17日震区有中雨，且气温较低，当地优先保障老人、儿童、学生等群体，及时发放帐篷、折叠床、毛毯、被褥等救援物资，民众情绪稳定。
+
+迅速排查学校、医院、矿井、水库、铁路、公路、桥梁、地质灾害隐患点等重点场所和关键部位，排除潜在风险隐患，周边7个尾矿库未发现开裂等险情，7列避震扣停的在途旅客列车逐级限速恢复运行。
+
+经初步排查，当地房屋没有明显倒塌，但部分房屋出现裂缝。
+
+目前，国家有关部门向青海省调拨中央救灾物资1万件，省州两级调拨救灾物资2500件；现场投入救援人员1051人，车辆178台，物资保障、救援力量充足。
 
 ## 相关推荐
 
-- 2026-06-30 02:54 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-30 02:48 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 03:16 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 02:49 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 03:13 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-30 03:03 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-30 03:06 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-30 02:57 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-30 02:49 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-30 03:02 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-30 03:03 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-30 03:16 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-30 02:57 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-30 03:06 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-30 03:13 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-30 03:08 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-30 03:14 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-30 02:57 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-30 03:13 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-30 02:54 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 03:11 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 03:07 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-30 03:20 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 03:15 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-30 02:56 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:15 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/93841.shtml)
-- 2026-06-30 02:51 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/2063996.shtml)
-- 2026-06-30 03:07 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/562316.shtml)
-- 2026-06-30 02:48 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/8369946.shtml)
-- 2026-06-30 03:06 - [月亮](http://www.share.minike.top/Article/details/5587039771.shtml)
-- 2026-06-30 03:14 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/733312906564.shtml)
-- 2026-06-30 02:56 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/49309639638.shtml)
-- 2026-06-30 03:15 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/63434.shtml)
-- 2026-06-30 02:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/526299476469.shtml)
-- 2026-06-30 03:00 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/2224489948.shtml)
-- 2026-06-30 03:08 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/97117018168.shtml)
-- 2026-06-30 03:10 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/01001057978.shtml)
-- 2026-06-30 03:03 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/42358.shtml)
-- 2026-06-30 02:49 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/1205605401.shtml)
-- 2026-06-30 02:50 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/49594.shtml)
+- 2026-06-30 03:17 - [《贺子珍》](https://www.blog.minike.top/Article/details/59964366250.shtml)
+- 2026-06-30 03:12 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/9659019.shtml)
+- 2026-06-30 02:58 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/205700.shtml)
+- 2026-06-30 03:16 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/3002819522.shtml)
+- 2026-06-30 03:12 - [沉睡花园](https://www.share.minike.top/Article/details/143316.shtml)
+- 2026-06-30 03:09 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/19342280797.shtml)
+- 2026-06-30 03:09 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/37006350.shtml)
+- 2026-06-30 03:21 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/152646122798.shtml)
+- 2026-06-30 03:01 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/344924020.shtml)
+- 2026-06-30 03:22 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/441958444.shtml)
+- 2026-06-30 03:12 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/686096962.shtml)
+- 2026-06-30 03:19 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/4220662878.shtml)
+- 2026-06-30 03:05 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/1963986440.shtml)
+- 2026-06-30 03:03 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/129207905.shtml)
+- 2026-06-30 03:12 - [爱很美味](https://www.share.kurohicncr.top/Article/details/56399280656.shtml)

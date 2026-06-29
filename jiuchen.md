@@ -1,50 +1,48 @@
-# 新疆乌恰：伪装零食寄递假烟 公安联合烟草部门严格查处
+# 中金：泡泡玛特维持“跑赢行业”评级 目标价218港元
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月09日 11:10 来源：中国新闻网 5月8日，新疆克州乌恰县公安局刑事侦查大队在工作中发现辖区一快递站点有可疑线索，第一时间联合县烟草专卖局启动联合执法机制，迅速对可疑寄递线索开展落地核查。经查，违法行为人刻意假借邮寄零食作为伪装掩护，暗中违规寄递假冒香烟共计6条(假冒中华香烟2条、假冒外国香烟4条)。目前，该案已按照行刑衔接相关工作要求，依法移交烟
+中金发布研报称，维持泡泡玛特（09992）26/27年经调整净利润预测133/155亿元，当前股价对应26/27年16/13倍经调整P/E，公司作为稀缺性、空间广的全球龙头，目前处于历史估值低位，短期具备事件催化、中期业绩环比改善可期，重申板块内首推标的，维持“跑赢行业”评级，目标价218港元，对应26/27年19/16倍经调整P/E，较当前有19%上行空间。责任编辑：卢昱君
 
 ## 正文
 
-发布时间：2026年05月09日 11:10 来源：中国新闻网 5月8日，新疆克州乌恰县公安局刑事侦查大队在工作中发现辖区一快递站点有可疑线索，第一时间联合县烟草专卖局启动联合执法机制，迅速对可疑寄递线索开展落地核查。
+中金发布研报称，维持泡泡玛特（09992）26/27年经调整净利润预测133/155亿元，当前股价对应26/27年16/13倍经调整P/E，公司作为稀缺性、空间广的全球龙头，目前处于历史估值低位，短期具备事件催化、中期业绩环比改善可期，重申板块内首推标的，维持“跑赢行业”评级，目标价218港元，对应26/27年19/16倍经调整P/E，较当前有19%上行空间。
 
-经查，违法行为人刻意假借邮寄零食作为伪装掩护，暗中违规寄递假冒香烟共计6条(假冒中华香烟2条、假冒外国香烟4条)。
-
-目前，该案已按照行刑衔接相关工作要求，依法移交烟草部门作进一步处理。
-
-(作者：沙辉) 责任编辑：【魏聪聪】
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 03:08 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-30 02:49 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-30 03:03 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-30 03:16 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-30 03:01 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-30 02:56 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 03:05 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-30 03:12 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-30 02:57 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-30 02:48 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-30 02:57 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-30 02:52 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 03:04 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-30 03:02 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-30 03:08 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-30 03:23 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-30 03:16 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-30 03:08 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 03:22 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-30 02:56 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-30 03:16 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-30 02:58 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-30 03:01 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-30 03:07 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-30 03:07 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-30 03:09 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:13 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/12010959.shtml)
-- 2026-06-30 03:04 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/74782795.shtml)
-- 2026-06-30 03:05 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/157889454.shtml)
-- 2026-06-30 03:15 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/56886291483.shtml)
-- 2026-06-30 03:11 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/312058813008.shtml)
-- 2026-06-30 02:49 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/8029358.shtml)
-- 2026-06-30 02:52 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/1738410187.shtml)
-- 2026-06-30 02:49 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/959584218.shtml)
-- 2026-06-30 03:12 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.minike.top/Article/details/35639157368.shtml)
-- 2026-06-30 02:56 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/233492677.shtml)
-- 2026-06-30 03:10 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/175352452697.shtml)
-- 2026-06-30 03:13 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/953931065680.shtml)
-- 2026-06-30 03:01 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/288039225.shtml)
-- 2026-06-30 03:00 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/84569.shtml)
-- 2026-06-30 02:51 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/232673651260.shtml)
+- 2026-06-30 03:18 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/103236.shtml)
+- 2026-06-30 03:22 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/121184362.shtml)
+- 2026-06-30 03:06 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/48543.shtml)
+- 2026-06-30 03:00 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/90948970.shtml)
+- 2026-06-30 02:54 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/4197231.shtml)
+- 2026-06-30 03:08 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/13498835.shtml)
+- 2026-06-30 03:01 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/531856605.shtml)
+- 2026-06-30 03:21 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/9593160906.shtml)
+- 2026-06-30 03:20 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/53755128.shtml)
+- 2026-06-30 02:59 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/98170.shtml)
+- 2026-06-30 03:18 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/693909366.shtml)
+- 2026-06-30 02:57 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/67638982.shtml)
+- 2026-06-30 02:56 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/044845216635.shtml)
+- 2026-06-30 02:58 - [格力遥控器里有黄金](https://www.share.minike.top/Article/details/32067281219.shtml)
+- 2026-06-30 03:11 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.kurohicncr.top/Article/details/6934132.shtml)

@@ -1,44 +1,59 @@
-# 元征科技：转换1.94亿股公司非上市股份为1.94亿股公司H股
+# 世界黄金协会：更多央行正将黄金储备转回国内，以规避地缘政治风险
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-元征科技（02488）发布公告，于2026年5月8日转换1.94亿股公司非上市股份为1.94亿股公司H股，该等股份于2026年5月11日在香港联合交易所有限公司上市。责任编辑：卢昱君
+世界黄金协会（WGC）的年度央行黄金储备调查发现，越来越多的央行选择在国内而非海外储存黄金，因为它们预计在地缘政治紧张局势加剧的情况下，需要购买更多这种避险资产。 调查发现，尽管近期伊朗冲突导致金价有所回落，但货币当局仍然将黄金视为对冲通胀、地缘政治冲击和货币风险的关键工具。 调查显示，过去四年，各国央行平均每年购入1000吨黄金，是过去十年平均水平的两倍。近九成受访央行表示，
 
 ## 正文
 
-元征科技（02488）发布公告，于2026年5月8日转换1.94亿股公司非上市股份为1.94亿股公司H股，该等股份于2026年5月11日在香港联合交易所有限公司上市。
+世界黄金协会（WGC）的年度央行黄金储备调查发现，越来越多的央行选择在国内而非海外储存黄金，因为它们预计在地缘政治紧张局势加剧的情况下，需要购买更多这种避险资产。
 
-责任编辑：卢昱君
+调查发现，尽管近期伊朗冲突导致金价有所回落，但货币当局仍然将黄金视为对冲通胀、地缘政治冲击和货币风险的关键工具。
+
+调查显示，过去四年，各国央行平均每年购入1000吨黄金，是过去十年平均水平的两倍。
+
+近九成受访央行表示，预计未来一年全球央行黄金储备将会增加，45%的央行预计自身黄金储备也会增长。
+
+仅有1%的央行预计储备会下降。
+
+这项于今年2月至5月期间进行的调查基于74家央行的回复，结果还显示，越来越多的央行选择将更多黄金储备存放在国内，而不是存放在英国央行或纽约联储等常用场所。
+
+共有9%的受访央行表示，他们在过去12个月中增加了国内储备，高于一年前的5%。
+
+另有10%的受访央行表示，他们分散了海外储备地点，而去年调查中这一比例仅为2%。
 
 ## 相关推荐
 
-- 2026-06-30 02:52 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-30 02:59 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-30 02:54 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-30 03:05 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-30 02:52 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 03:14 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 03:11 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-30 02:54 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-30 03:00 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-30 02:48 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 03:13 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-30 03:19 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-30 02:59 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-30 02:59 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 03:22 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-30 03:11 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 03:13 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-30 03:16 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 03:19 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 02:55 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 03:16 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-30 03:10 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-30 02:57 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:50 - [AI接过张雪峰志愿填报衣钵](http://www.blog.minike.top/Article/details/22715931421.shtml)
-- 2026-06-30 03:13 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/1808862254.shtml)
-- 2026-06-30 02:58 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/53408930.shtml)
-- 2026-06-30 03:01 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/31908504088.shtml)
-- 2026-06-30 02:58 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/113372544.shtml)
-- 2026-06-30 03:10 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/6216057.shtml)
-- 2026-06-30 02:57 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/43424891099.shtml)
-- 2026-06-30 02:57 - [千与千寻](https://www.share.minike.top/Article/details/47867630600.shtml)
-- 2026-06-30 03:05 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/705922365.shtml)
-- 2026-06-30 02:59 - [金牌调解](https://www.share.minike.top/Article/details/89174.shtml)
-- 2026-06-30 03:17 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/575848052698.shtml)
-- 2026-06-30 03:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/51830753.shtml)
-- 2026-06-30 03:00 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/77868078794.shtml)
-- 2026-06-30 02:54 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/44408.shtml)
-- 2026-06-30 03:02 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/6221234415.shtml)
+- 2026-06-30 03:02 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/2781226.shtml)
+- 2026-06-30 03:19 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/037526381.shtml)
+- 2026-06-30 03:11 - [一见倾心](http://www.share.kurohicncr.top/Article/details/1092185834.shtml)
+- 2026-06-30 03:15 - [明星大侦探第一季](http://www.share.minike.top/Article/details/8689895.shtml)
+- 2026-06-30 03:19 - [毒液2](http://www.blog.minike.top/Article/details/18983197476.shtml)
+- 2026-06-30 02:59 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/543232827257.shtml)
+- 2026-06-30 03:07 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/51963893.shtml)
+- 2026-06-30 03:12 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/292603.shtml)
+- 2026-06-30 03:12 - [啊啊啊](https://www.share.minike.top/Article/details/756460377.shtml)
+- 2026-06-30 03:21 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/14437.shtml)
+- 2026-06-30 03:13 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/4381247.shtml)
+- 2026-06-30 03:20 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/22234426.shtml)
+- 2026-06-30 02:56 - [沙丘](http://www.share.minike.top/Article/details/1508714142.shtml)
+- 2026-06-30 03:22 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/197097909977.shtml)
+- 2026-06-30 03:03 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/304240574261.shtml)

@@ -1,59 +1,57 @@
-# 国防部：决不姑息、决不容忍“台独”
+# 【豆菜粕半年报】丰年假想
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-中新社北京5月9日电 (记者 李纯)“‘台独’是破坏台海和平的罪魁祸首，我们决不姑息、决不容忍。”国防部新闻发言人蒋斌9日就近期涉军问题发布消息时说。 有记者问，据报道，解放军近期组织海空兵力位台岛周边开展联合战备警巡、主战舰艇编队进入澎湖西南海域。有分析认为，解放军舰机越过“海峡中线”数量增加，可能与近期台高层窜访活动有关。请问对此有何评论？ 蒋斌指出，台湾是中国的一部分，根
+紫金天风期货 观点小结 北美：预计6月面积较3月种植意向小幅上调。美豆出口方面暂无新增利好消息，USDA给的26/27季美豆平衡表较为中性。全球大豆26/27季期末库存维持稳定且巴西丰产，美豆新作种植进度快，通胀逻辑下，美豆价格受全球供需及宏观因素制约，波动区间或受限。 南美：丰产前景明朗、阿根廷大豆优良率高。据IMEA或者更高频一些的数据，反映当前销售进度不慢，预计巴西贴水下
 
 ## 正文
 
-中新社北京5月9日电 (记者 李纯)“‘台独’是破坏台海和平的罪魁祸首，我们决不姑息、决不容忍。
+紫金天风期货 观点小结 北美：预计6月面积较3月种植意向小幅上调。
 
-”国防部新闻发言人蒋斌9日就近期涉军问题发布消息时说。
+美豆出口方面暂无新增利好消息，USDA给的26/27季美豆平衡表较为中性。
 
-有记者问，据报道，解放军近期组织海空兵力位台岛周边开展联合战备警巡、主战舰艇编队进入澎湖西南海域。
+全球大豆26/27季期末库存维持稳定且巴西丰产，美豆新作种植进度快，通胀逻辑下，美豆价格受全球供需及宏观因素制约，波动区间或受限。
 
-有分析认为，解放军舰机越过“海峡中线”数量增加，可能与近期台高层窜访活动有关。
+南美：丰产前景明朗、阿根廷大豆优良率高。
 
-请问对此有何评论？
+据IMEA或者更高频一些的数据，反映当前销售进度不慢，预计巴西贴水下跌幅度有限。
 
-蒋斌指出，台湾是中国的一部分，根本不存在所谓“海峡中线”。
+天气：可以期待，但降低厄尔尼诺不利南北美大豆生长的期待，警惕厄尔尼诺对水产养殖的不利影响。
 
-解放军位相关区域开展军事行动，完全正当合理。
+国内基本面：后续三月进口大豆到港预估虽然均在千吨以上，但不及去年同期的水平。
 
-“台独”是破坏台海和平的罪魁祸首，我们决不姑息、决不容忍。
+豆粕上半年成交整体好于上半年，特别是年初的远月基差成交。
 
 ## 相关推荐
 
-- 2026-06-30 03:04 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-30 02:50 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-30 03:17 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-30 02:56 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-30 03:16 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-30 03:08 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-30 03:03 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-30 03:04 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-30 03:14 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-30 03:12 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-30 03:14 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-30 02:58 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-30 03:12 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 03:21 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-30 03:17 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-30 03:20 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 03:10 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-30 03:00 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-30 03:16 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-30 03:17 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-30 03:09 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 03:12 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 03:04 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-30 03:21 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:55 - [沉睡花园](https://www.share.minike.top/Article/details/7618779.shtml)
-- 2026-06-30 02:50 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/77298472093.shtml)
-- 2026-06-30 03:07 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/033904951653.shtml)
-- 2026-06-30 03:04 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/20995.shtml)
-- 2026-06-30 03:00 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/01214631.shtml)
-- 2026-06-30 02:50 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.minike.top/Article/details/127143.shtml)
-- 2026-06-30 03:11 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/378770984548.shtml)
-- 2026-06-30 03:10 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/14895109934.shtml)
-- 2026-06-30 03:04 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/603521422254.shtml)
-- 2026-06-30 03:14 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/664019048.shtml)
-- 2026-06-30 02:51 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/552722789.shtml)
-- 2026-06-30 03:01 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/0881305388.shtml)
-- 2026-06-30 03:06 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/557144895.shtml)
-- 2026-06-30 03:08 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/643342954.shtml)
-- 2026-06-30 03:01 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/560200.shtml)
+- 2026-06-30 03:02 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/2356933.shtml)
+- 2026-06-30 03:04 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/8284463099.shtml)
+- 2026-06-30 03:17 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/875012220.shtml)
+- 2026-06-30 03:03 - [DeepSeek V4正式版要来了](https://www.blog.kurohicncr.top/Article/details/281427995.shtml)
+- 2026-06-30 02:59 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/263095066325.shtml)
+- 2026-06-30 02:59 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/5054111630.shtml)
+- 2026-06-30 03:10 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/5882168192.shtml)
+- 2026-06-30 03:14 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/630550020.shtml)
+- 2026-06-30 03:14 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/5899192.shtml)
+- 2026-06-30 03:14 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/7117781892.shtml)
+- 2026-06-30 03:03 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/19039011.shtml)
+- 2026-06-30 03:00 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/743196498654.shtml)
+- 2026-06-30 03:08 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/8719358.shtml)
+- 2026-06-30 02:54 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/181201.shtml)
+- 2026-06-30 03:22 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/44132.shtml)

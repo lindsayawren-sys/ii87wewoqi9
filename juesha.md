@@ -1,58 +1,59 @@
-# 7年低息车贷“闪电”退场，为何按下终止键？
+# 金价“跌跌不休”，老铺黄金坐不住了？
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-“7年低息”“降低买车门槛”——几个月前还在多个新能源汽车品牌门店被销售人员频繁提及的促销信息，突然“闪电”退场。 这场由特斯拉于今年1月6日率先点燃，小米、理想、小鹏等10余家车企迅速跟进的“抢单大战”，仅持续了3个多月，在4月底便迎来集体“降温”。 取而代之的是，“5年低息”“3年期0息贷款”等金融方案，正成为新的促销工具。 此前，7年低息购车方案主要呈现三个特点：低首付、
+文|壹DU财经 2026年的黄金市场，充分验证了资本的变脸速度比翻书还快。 近期，国际现货黄金一路绿灯、向下跌破4100美元/盎司的大关，抹去了2026年内的全部涨幅。跟着国际金价一起跳水的，还有曾在港股市场横着走、号称“黄金界爱马仕”的老铺黄金，截至6月11日，其盘中股价一度下跌至434港元，市值较历史高点跌超59%。 无差别的暴跌不仅让追高买入的股民心痛，更戳破了老铺黄金精
 
 ## 正文
 
-“7年低息”“降低买车门槛”——几个月前还在多个新能源汽车品牌门店被销售人员频繁提及的促销信息，突然“闪电”退场。
+文|壹DU财经 2026年的黄金市场，充分验证了资本的变脸速度比翻书还快。
 
-这场由特斯拉于今年1月6日率先点燃，小米、理想、小鹏等10余家车企迅速跟进的“抢单大战”，仅持续了3个多月，在4月底便迎来集体“降温”。
+近期，国际现货黄金一路绿灯、向下跌破4100美元/盎司的大关，抹去了2026年内的全部涨幅。
 
-取而代之的是，“5年低息”“3年期0息贷款”等金融方案，正成为新的促销工具。
+跟着国际金价一起跳水的，还有曾在港股市场横着走、号称“黄金界爱马仕”的老铺黄金，截至6月11日，其盘中股价一度下跌至434港元，市值较历史高点跌超59%。
 
-此前，7年低息购车方案主要呈现三个特点：低首付、低利息和月供普遍控制在2000元左右。
+无差别的暴跌不仅让追高买入的股民心痛，更戳破了老铺黄金精心打造的顶奢滤镜，在如今波及全球的下行周期中，它的好日子真的要到头了吗？
 
-而随着购车金融方案的切换，带来的直接影响是月供的上涨。
+|金价波动，成“最后一根稻草” 单看账面数据，老铺黄金2025年交出的成绩单绝对是业内佼佼者。
 
-以特斯拉Model 3后轮驱动版车型为例，随着贷款期限从7年缩短至5年，月供上涨500多元。
+其全年营收超过273亿元人民币，同比暴增221%；净利润逼近50.3亿元，增幅更是高达234.9%。
 
-多家车企调整车贷金融方案，最长期数缩至60个月 “7年低息车贷在4月29日凌晨就全面下线了。
+一家金饰公司一年能净赚50个小目标，老板做梦都该笑醒了。
 
-”北京一家特斯拉直营店销售人员介绍，现在特斯拉官网上线的限时0息贷款方案、限时低息贷款方案等金融产品，最长期数均为60个月。
+可辉煌之下，导致如今股价暴跌的隐患也十分明显，截至2025年底，老铺黄金的经营性现金流已流出68.48亿元。
 
 ## 相关推荐
 
-- 2026-06-30 03:06 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-30 03:06 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-30 03:07 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-30 02:50 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-30 03:06 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-30 03:05 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-30 03:01 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-30 03:04 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-30 02:56 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-30 03:14 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-30 02:54 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-30 03:15 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-30 03:05 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-30 03:07 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-30 02:56 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-30 03:21 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-30 03:08 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-30 03:13 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-30 03:08 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-30 02:55 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-30 03:13 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 03:01 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 03:19 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 03:06 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-30 02:55 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:14 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/574771897.shtml)
-- 2026-06-30 02:49 - [送你一朵小红花](https://www.blog.minike.top/Article/details/919594177355.shtml)
-- 2026-06-30 02:57 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/5844895099.shtml)
-- 2026-06-30 03:12 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/53046778819.shtml)
-- 2026-06-30 03:12 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/556834264.shtml)
-- 2026-06-30 02:57 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/5796729087.shtml)
-- 2026-06-30 03:15 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/59121.shtml)
-- 2026-06-30 03:13 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/570370.shtml)
-- 2026-06-30 02:53 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/85068545718.shtml)
-- 2026-06-30 03:16 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/67292044.shtml)
-- 2026-06-30 02:51 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/68500029.shtml)
-- 2026-06-30 03:09 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/133323446053.shtml)
-- 2026-06-30 03:02 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/665279628213.shtml)
-- 2026-06-30 02:56 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/036010.shtml)
-- 2026-06-30 03:15 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/56816541.shtml)
+- 2026-06-30 03:08 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/42354942.shtml)
+- 2026-06-30 03:00 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/2264228.shtml)
+- 2026-06-30 03:11 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/73667.shtml)
+- 2026-06-30 03:08 - [上半年全国特种设备安全形势总体平稳](http://www.blog.minike.top/Article/details/8430427.shtml)
+- 2026-06-30 02:54 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/2419006887.shtml)
+- 2026-06-30 03:15 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/7904475080.shtml)
+- 2026-06-30 03:18 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/5475477906.shtml)
+- 2026-06-30 03:02 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/0811075.shtml)
+- 2026-06-30 03:13 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/500616021.shtml)
+- 2026-06-30 02:56 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/62035736872.shtml)
+- 2026-06-30 03:17 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/72247382.shtml)
+- 2026-06-30 03:16 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/9798077.shtml)
+- 2026-06-30 03:02 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/846626.shtml)
+- 2026-06-30 03:01 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/8846531775.shtml)
+- 2026-06-30 03:09 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/2637436.shtml)

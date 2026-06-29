@@ -1,59 +1,60 @@
-# 险资Q1增配红利股！红利低波ETF华泰柏瑞（512890）近10个交易日吸金4.4亿
+# 保健品618大促：热销与乱象并存，如何走出野蛮生长困境？
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-5月8日，市场震荡调整，创业板指、深成指盘中均跌超1%，科创50指数跌超2%，沪指收平。在此背景下，红利低波ETF华泰柏瑞（512890）跌0.08%，报1.177元，换手率1.82%，成交额5.55亿元，居同类标的ETF首位。 资金流向方面，红利低波ETF华泰柏瑞（512890）长期受资金青睐。近5个交易日资金净流入2.4亿元，近10个交易日资金净流入4.4亿元，近60个交易
+21世纪经济报道记者 韩利明 “考研备考失眠，有什么助眠补剂？”“上班族精力不足，保健品该怎么选？”“27岁打工人常年回购保健品清单”……打开小红书、抖音等社交平台，以保健品为关键词的种草、咨询帖层出不穷，健康食补、营养补充俨然成为全民健康消费新风尚。 消费需求的释放也带动行业规模稳步扩容。中国医药保健品进出口商会数据显示，传统货架电商仍是保健品销售核心阵地，但内容电商的增长势
 
 ## 正文
 
-5月8日，市场震荡调整，创业板指、深成指盘中均跌超1%，科创50指数跌超2%，沪指收平。
+21世纪经济报道记者 韩利明 “考研备考失眠，有什么助眠补剂？
 
-在此背景下，红利低波ETF华泰柏瑞（512890）跌0.08%，报1.177元，换手率1.82%，成交额5.55亿元，居同类标的ETF首位。
+”“上班族精力不足，保健品该怎么选？
 
-资金流向方面，红利低波ETF华泰柏瑞（512890）长期受资金青睐。
+”“27岁打工人常年回购保健品清单”……打开小红书、抖音等社交平台，以保健品为关键词的种草、咨询帖层出不穷，健康食补、营养补充俨然成为全民健康消费新风尚。
 
-近5个交易日资金净流入2.4亿元，近10个交易日资金净流入4.4亿元，近60个交易日资金净流入16.2亿元。
+消费需求的释放也带动行业规模稳步扩容。
 
-流动性方面，截止5月8日，红利低波ETF华泰柏瑞（512890）近20个交易日累计成交金额135.54亿元，日均成交金额6.78亿元。
+中国医药保健品进出口商会数据显示，传统货架电商仍是保健品销售核心阵地，但内容电商的增长势头尤为显著。
 
-截止5月7日，红利低波ETF华泰柏瑞（512890）流通规模为305.79亿元。
+2025年，中国营养保健食品电商渠道销售总额达到1537亿元，继续保持稳健增长态势。
 
-消息面上，一季度，保险资金调整A股权益资产的配置，增持以银行、公用事业为代表的红利股，微调成长股的持仓结构。
+市场一路向好的同时，行业发展痛点与乱象也随之暴露：不少消费者质疑保健品是“智商税”，难以辨别进口产品真伪，大量中老年群体深陷保健品推销骗局；虚假宣传、功效夸大、贴牌代工、“假洋牌”横行等乱象持续困扰市场。
 
-险资增持的前20只个股，主要包括金融股、交通运输、制造业等，其中金融股红利特征明显的是4只银行股、2只非银金融股。
+天津宝恒福豆生物科技集团董事长李宝恒在第十六届中国国际健康产品展览会、2026亚洲天然及营养保健品展上向21世纪经济报道记者直言：“大健康是国家重点战略赛道，全民健康刚需支撑行业长期向好，但目前行业仍处于野蛮生长阶段，各类不合规经营问题多发。
 
 ## 相关推荐
 
-- 2026-06-30 02:52 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 03:08 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-30 03:04 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 03:16 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-30 03:16 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 02:55 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-30 03:07 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-30 02:54 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-30 03:16 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-30 03:16 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-30 03:16 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-30 02:50 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 03:08 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-30 02:56 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-30 02:59 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-30 03:08 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-30 02:55 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-30 03:04 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-30 02:57 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-30 02:59 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 02:54 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-30 03:14 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 02:54 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-30 02:57 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-30 02:59 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 03:19 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-30 02:57 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:01 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/584555949545.shtml)
-- 2026-06-30 03:16 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/79184307.shtml)
-- 2026-06-30 02:53 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/31193489329.shtml)
-- 2026-06-30 02:57 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/814775367156.shtml)
-- 2026-06-30 03:17 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/0378709586.shtml)
-- 2026-06-30 03:05 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/17011734742.shtml)
-- 2026-06-30 03:09 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/27209121.shtml)
-- 2026-06-30 03:16 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/7233975.shtml)
-- 2026-06-30 03:14 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/4106513749.shtml)
-- 2026-06-30 03:13 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/330766404.shtml)
-- 2026-06-30 03:02 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/9758151307.shtml)
-- 2026-06-30 02:49 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/7565828025.shtml)
-- 2026-06-30 03:07 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/700415586842.shtml)
-- 2026-06-30 02:54 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/96001.shtml)
-- 2026-06-30 02:52 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/156376524.shtml)
+- 2026-06-30 03:05 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/908126157.shtml)
+- 2026-06-30 03:01 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/83031059168.shtml)
+- 2026-06-30 03:11 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/68095.shtml)
+- 2026-06-30 03:20 - [世界杯](http://www.blog.kurohicncr.top/Article/details/338626324429.shtml)
+- 2026-06-30 03:11 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/6180671614.shtml)
+- 2026-06-30 03:22 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/29812585218.shtml)
+- 2026-06-30 03:00 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/71216792638.shtml)
+- 2026-06-30 02:56 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/129489463465.shtml)
+- 2026-06-30 03:00 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/9735448.shtml)
+- 2026-06-30 03:05 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/4244028172.shtml)
+- 2026-06-30 03:04 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/697936.shtml)
+- 2026-06-30 03:18 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/31448818327.shtml)
+- 2026-06-30 03:08 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/8515305.shtml)
+- 2026-06-30 03:17 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/2180822.shtml)
+- 2026-06-30 02:56 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/170577152.shtml)

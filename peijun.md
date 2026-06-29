@@ -1,57 +1,57 @@
-# “天舟小哥”即将送货太空，一起看看超6吨的“快递”包裹有多丰富
+# 暴雨橙色预警、强对流黄色预警齐发 注意防范
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-央视网消息：据中国载人航天工程办公室消息，5月8日，天舟十号货运飞船与长征七号遥十一运载火箭组合体垂直转运至发射区。 目前，文昌航天发射场设施设备状态良好，后续将按计划开展发射前的各项功能检查、联合测试等工作，计划于近日择机实施发射。 天舟十号船箭组合体今天进行垂直转运 天舟十号船箭组合体是在8日8时开始进行垂直转运的。货运飞船此次将上行哪些物资？将有哪些发射准备工作？来看总台
+中新网6月16日电 据中央气象台网站消息，6月16日6时，中央气象台发布暴雨橙色预警和强对流天气黄色预警。 中央气象台6月16日6时继续发布暴雨橙色预警 预计，6月16日8时至17日8时，广东中南部、广西东南部和西部、海南岛东北部、福建东南部、云南东部和西北部、四川南部、西藏东南部等地有大到暴雨，其中，广东西南部、珠江口及以东沿海、广西东南部、福建东南部、云南东部等地部分地区有
 
 ## 正文
 
-央视网消息：据中国载人航天工程办公室消息，5月8日，天舟十号货运飞船与长征七号遥十一运载火箭组合体垂直转运至发射区。
+中新网6月16日电 据中央气象台网站消息，6月16日6时，中央气象台发布暴雨橙色预警和强对流天气黄色预警。
 
-目前，文昌航天发射场设施设备状态良好，后续将按计划开展发射前的各项功能检查、联合测试等工作，计划于近日择机实施发射。
+中央气象台6月16日6时继续发布暴雨橙色预警 预计，6月16日8时至17日8时，广东中南部、广西东南部和西部、海南岛东北部、福建东南部、云南东部和西北部、四川南部、西藏东南部等地有大到暴雨，其中，广东西南部、珠江口及以东沿海、广西东南部、福建东南部、云南东部等地部分地区有大暴雨，局地特大暴雨(250～300毫米)；此外，北京西部和东北部、天津北部、河北北部、辽宁西部和北部、吉林中部等地部分地区也有大到暴雨，局地大暴雨。
 
-天舟十号船箭组合体今天进行垂直转运 天舟十号船箭组合体是在8日8时开始进行垂直转运的。
+上述部分地区伴有短时强降水(最大小时降雨量30～50毫米，华南局地可超过90毫米)，局地有雷暴大风等强对流天气。
 
-货运飞船此次将上行哪些物资？
+防御指南： 1.政府及相关部门按照职责做好防暴雨应急工作； 2.切断有危险的室外电源，暂停户外作业； 3.处于危险地带的单位应当停课、停业，采取专门措施保护已到校学生、幼儿和其他上班人员的安全； 4.做好城市、农田的排涝，注意防范可能引发的山洪、滑坡、泥石流等灾害。
 
-将有哪些发射准备工作？
+中央气象台6月16日6时继续发布强对流天气黄色预警 预计6月16日8时至17日8时，华北中北部、东北地区南部、华南南部等地的部分地区将有8级以上雷暴大风或冰雹天气，其中，内蒙古中南部、辽宁西部、山西北部、河北中部、天津中南部等地的部分地区将有10级以上雷暴大风，最大风力可达11级以上；华北中北部、江南东部、华南、西南地区东部等地的部分地区将有小时雨量大于20毫米的短时强降水天气，其中，福建东南部、广西东南部、广东南部等地的部分地区小时雨量大于50毫米，最大可达90毫米以上。
 
-来看总台记者稍早前的现场报道。
-
-在文昌航天发射场，垂直转运工作是从早上8时正式开始。
-
-搭载着天舟十号货运飞船的长征七号遥十一运载火箭，在活动发射平台的托举下，沿着专用的无缝钢轨，向着火箭发射塔架的方向已经平稳运行了2个小时。
+防御指南： 1.政府及相关部门按照职责做好防短时暴雨、防雷、防大风应急防御工作，气象部门做好人工防雹作业准备并择机进行作业； 2.驾驶员通过积水路段应减速慢行确认安全后再通过，交管部门应当根据路况在强降雨路段和积水路段采取交通管制措施和交通引导； 3.户外人员应减少或暂停空旷地方的户外作业，选择进入抗风能力较强并具有防雷措施的建筑内，同时关闭门窗远离危险电源； 4.机场、铁路、高速公路和水上交通等单位应采取限飞、限速或暂时关闭等措施保障人员和交通安全，相关水域水上作业和过往船舶应回港规避，加固港口设施； 5.检查城市、农田、鱼塘排水系统，做好必要的排涝措施和对山洪、滑坡、泥石流等灾害的防御准备。
 
 ## 相关推荐
 
-- 2026-06-30 02:52 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-30 03:05 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-30 03:17 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-30 02:51 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-30 03:15 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-30 03:01 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-30 03:06 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-30 02:55 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-30 03:04 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-30 03:02 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-30 03:07 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-30 03:01 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-30 03:21 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-30 03:23 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-30 03:20 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-30 03:09 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-30 02:58 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-30 02:59 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-30 03:21 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-30 03:04 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 02:54 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-30 03:08 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 03:08 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-30 03:01 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-30 03:14 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-30 03:09 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:14 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/1108608.shtml)
-- 2026-06-30 03:13 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/37830097279.shtml)
-- 2026-06-30 02:56 - [女心理师](https://www.share.minike.top/Article/details/03869.shtml)
-- 2026-06-30 03:16 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/775907846.shtml)
-- 2026-06-30 03:00 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/2126836168.shtml)
-- 2026-06-30 03:14 - [斛珠夫人](https://www.blog.minike.top/Article/details/979299.shtml)
-- 2026-06-30 03:00 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/31306207.shtml)
-- 2026-06-30 03:17 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/42229.shtml)
-- 2026-06-30 03:14 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/66005.shtml)
-- 2026-06-30 02:58 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/013773908.shtml)
-- 2026-06-30 02:50 - [千香](https://www.blog.kurohicncr.top/Article/details/07291603849.shtml)
-- 2026-06-30 03:16 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/771088066.shtml)
-- 2026-06-30 03:05 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/9394813.shtml)
-- 2026-06-30 02:52 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/7609645280.shtml)
-- 2026-06-30 02:57 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/065750056897.shtml)
+- 2026-06-30 03:10 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/31734592276.shtml)
+- 2026-06-30 02:55 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/860048383.shtml)
+- 2026-06-30 03:00 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/495264.shtml)
+- 2026-06-30 03:05 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/631325.shtml)
+- 2026-06-30 02:57 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/1106587799.shtml)
+- 2026-06-30 03:12 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/2638682.shtml)
+- 2026-06-30 02:57 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/156181.shtml)
+- 2026-06-30 02:57 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/79139226942.shtml)
+- 2026-06-30 03:19 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/97533.shtml)
+- 2026-06-30 02:56 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/002663.shtml)
+- 2026-06-30 03:01 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/171069599082.shtml)
+- 2026-06-30 02:59 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/3788688754.shtml)
+- 2026-06-30 03:07 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/81123343838.shtml)
+- 2026-06-30 03:04 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/53549280.shtml)
+- 2026-06-30 03:16 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/6402135958.shtml)

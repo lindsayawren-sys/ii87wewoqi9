@@ -1,58 +1,56 @@
-# 甘肃省运会主场定西“焕新颜”
+# 年内超700只理财提前“退场”！年化不到3%即止盈，有产品仅存续半年多便终止
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-中新网兰州5月8日电 (戴文昌)作为甘肃省第十六届运动会承办地，昔日贫瘠的甘肃省定西市已然蝶变，如今以整洁靓丽的城市风貌，蓬勃向上的发展活力，向该省展现本届运动会主场的温度与力量。 8日，甘肃省第十六届运动会新闻发布会在兰州召开。据介绍，本届运动会拟定于2026年8月19日20时开幕，8月26日9时闭幕，会期8天，开、闭幕式分别在定西市体育场和体育馆举办。 承办甘肃省第十六届运
+来源： 时代财经 来自河北的投资者林女士近日发现，其在某家城商行认购的一款固收类理财产品，因产品投资管理需要，于6月初被提前终止。 “最怕的就是两件事，一个是定期存款到期不知道往哪儿转，一个就是理财终止还要重新选。”林女士告诉时代财经。 林女士的遭遇并非个例，越来越多的投资者发现，自己买的理财还没到期就被强制清盘。时代财经根据Wind数据不完全统计，今年以来，多家理财公司旗下已
 
 ## 正文
 
-中新网兰州5月8日电 (戴文昌)作为甘肃省第十六届运动会承办地，昔日贫瘠的甘肃省定西市已然蝶变，如今以整洁靓丽的城市风貌，蓬勃向上的发展活力，向该省展现本届运动会主场的温度与力量。
+来源： 时代财经 来自河北的投资者林女士近日发现，其在某家城商行认购的一款固收类理财产品，因产品投资管理需要，于6月初被提前终止。
 
-8日，甘肃省第十六届运动会新闻发布会在兰州召开。
+“最怕的就是两件事，一个是定期存款到期不知道往哪儿转，一个就是理财终止还要重新选。
 
-据介绍，本届运动会拟定于2026年8月19日20时开幕，8月26日9时闭幕，会期8天，开、闭幕式分别在定西市体育场和体育馆举办。
+”林女士告诉时代财经。
 
-承办甘肃省第十六届运动会，是甘肃省委、省政府赋予定西市的重要使命，更是其推动体育发展、提升城市品质、增进民生福祉的重要平台。
+林女士的遭遇并非个例，越来越多的投资者发现，自己买的理财还没到期就被强制清盘。
 
-定西市副市长徐兰军说，自接过办赛使命，该市锚定简约、安全、精彩理念，以办好一次会、提升一座城为目标，举全市之力精心筹备，各项工作有序推进。
+时代财经根据Wind数据不完全统计，今年以来，多家理财公司旗下已有约720只理财产品被提前终止，明显高于去年同期。
 
-除了明确的办赛目标，定西市独特的地理与气候条件也为赛事举办增添了独特优势。
+这一趋势在今年二季度更加明显，仅4月以来，市场上就有约400只理财产品宣布提前退场。
 
-该市地处内陆腹地，位于黄土高原、西秦岭和青藏高原交会地带，平均海拔1800米，夏季气候温凉，平均气温仅22℃，不仅是避暑纳凉的好去处，更成为理想的亚高原体育训练基地。
+从发行机构看，被提前终止的产品既涉及多家国有大行、股份行、城商行系理财子公司，也包括部分中小银行的自营理财；从产品类型看，其中既有日开型现金管理类产品，也有最低持有期产品、定期开放类产品、封闭式产品。
 
-基于清晰的办赛目标和独特的先天优势，定西市将赛事筹备作为核心任务，把赛事筹备作为重点工作。
+一个值得关注的现象是，在提前终止的产品中，因触发止盈条件而“提前收手”的目标盈类产品占据了相当比例。
 
 ## 相关推荐
 
-- 2026-06-30 02:51 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-30 03:14 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-30 02:53 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-30 03:16 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-30 02:49 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-30 02:49 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-30 02:57 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-30 02:52 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-30 03:00 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-30 03:08 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-30 02:54 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 02:59 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 03:21 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-30 03:17 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-30 03:05 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-30 03:08 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-30 03:14 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-30 03:18 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-30 03:19 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-30 03:08 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-30 03:01 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-30 02:54 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:54 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/4225143.shtml)
-- 2026-06-30 02:55 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/219168.shtml)
-- 2026-06-30 03:12 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/327695883.shtml)
-- 2026-06-30 03:14 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/5614715.shtml)
-- 2026-06-30 02:50 - [我们的少年时代2](https://www.blog.minike.top/Article/details/15186.shtml)
-- 2026-06-30 03:16 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/823401612748.shtml)
-- 2026-06-30 02:52 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/53589348.shtml)
-- 2026-06-30 03:04 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/462722196651.shtml)
-- 2026-06-30 03:08 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.kurohicncr.top/Article/details/163845367597.shtml)
-- 2026-06-30 03:15 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/7805148756.shtml)
-- 2026-06-30 03:05 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/622988186.shtml)
-- 2026-06-30 03:13 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/876738193.shtml)
-- 2026-06-30 03:11 - [流金岁月](http://www.share.minike.top/Article/details/22632.shtml)
-- 2026-06-30 03:17 - [刘念回应](http://www.share.kurohicncr.top/Article/details/653365393.shtml)
-- 2026-06-30 03:15 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/79152448.shtml)
+- 2026-06-30 03:21 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/6099193405.shtml)
+- 2026-06-30 03:18 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/82532.shtml)
+- 2026-06-30 03:03 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/993162066580.shtml)
+- 2026-06-30 03:00 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/81953277889.shtml)
+- 2026-06-30 03:21 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/491669013.shtml)
+- 2026-06-30 03:01 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/08866432090.shtml)
+- 2026-06-30 03:19 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/3292939.shtml)
+- 2026-06-30 03:09 - [沙丘](https://www.blog.kurohicncr.top/Article/details/12369441.shtml)
+- 2026-06-30 03:04 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/47349123639.shtml)
+- 2026-06-30 03:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/822965794409.shtml)
+- 2026-06-30 03:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/51322134658.shtml)
+- 2026-06-30 03:17 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/348656.shtml)
+- 2026-06-30 03:14 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/479166211610.shtml)
+- 2026-06-30 03:03 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/31319093.shtml)
+- 2026-06-30 03:15 - [巴西把自己踢晕了](https://www.blog.minike.top/Article/details/04225644820.shtml)

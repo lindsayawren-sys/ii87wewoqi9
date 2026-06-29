@@ -1,52 +1,52 @@
-# 精神病医院炒股成为上市公司前十大股东？江西一医院最新回应
+# 台防务部门暴增预算给美国送保护费 国台办回应
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月8日，针对“医院新晋升为某上市公司前十大股东”一事，江西上饶广丰区十五岭山精神病医院有限公司发布情况说明。 5月8日，网传我院“新晋升为某上市公司前十大股东”，现将相关情况说明如下：我院是一所二级精神病专科医院，为营利性民营医院，我院按照《中华人民共和国公司法》《中华人民共和国证券法》等相关规定，正常参
+中新网6月17日电 6月17日，国台办举行例行新闻发布会。有记者问：近日，岛内有舆论质疑，台防务部门2026年度预算中，“台美防务部门共同合作评估案”预算由去年41万美元暴增至500万美元，是巧立名目给美国送“保护费”，或是用于对美国国会的“游说费用”。请问对此有何评论？ 国台办发言人陈斌华表示，民进党当局为了“谋独拒统”，不择手段、拿钱开路，蝇营狗苟、令人不齿。(中新网#燕新
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网6月17日电 6月17日，国台办举行例行新闻发布会。
 
-5月8日，针对“医院新晋升为某上市公司前十大股东”一事，江西上饶广丰区十五岭山精神病医院有限公司发布情况说明。
+有记者问：近日，岛内有舆论质疑，台防务部门2026年度预算中，“台美防务部门共同合作评估案”预算由去年41万美元暴增至500万美元，是巧立名目给美国送“保护费”，或是用于对美国国会的“游说费用”。
 
-5月8日，网传我院“新晋升为某上市公司前十大股东”，现将相关情况说明如下：我院是一所二级精神病专科医院，为营利性民营医院，我院按照《中华人民共和国公司法》《中华人民共和国证券法》等相关规定，正常参与资本市场行为。
+请问对此有何评论？
 
-感谢媒体朋友监督，也恳请广大网友不信谣、不传谣！
+国台办发言人陈斌华表示，民进党当局为了“谋独拒统”，不择手段、拿钱开路，蝇营狗苟、令人不齿。
 
-责任编辑：凌辰
+(中新网#燕新台#工作室)
 
 ## 相关推荐
 
-- 2026-06-30 03:12 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-30 03:04 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-30 03:08 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-30 03:03 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-30 03:11 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-30 03:07 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-30 03:15 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-30 03:17 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-30 03:11 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-30 03:08 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-30 03:12 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-30 03:08 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-30 03:21 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-30 03:17 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 03:17 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-30 03:15 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-30 02:59 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-30 03:16 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-30 03:09 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 03:12 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-30 03:04 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-30 03:18 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-30 03:02 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-30 02:57 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:09 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/417577499326.shtml)
-- 2026-06-30 03:01 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/646828.shtml)
-- 2026-06-30 02:53 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/583187.shtml)
-- 2026-06-30 02:56 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/123385858341.shtml)
-- 2026-06-30 03:00 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/0710068568.shtml)
-- 2026-06-30 03:10 - [爱很美味](http://www.blog.minike.top/Article/details/02890107.shtml)
-- 2026-06-30 02:54 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/60226837880.shtml)
-- 2026-06-30 03:06 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/4128433286.shtml)
-- 2026-06-30 03:15 - [巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/81456799.shtml)
-- 2026-06-30 03:09 - [流金岁月](https://www.share.minike.top/Article/details/76213605.shtml)
-- 2026-06-30 02:51 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/02302464.shtml)
-- 2026-06-30 03:16 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/12524.shtml)
-- 2026-06-30 02:55 - [起风了](https://www.blog.minike.top/Article/details/7302082.shtml)
-- 2026-06-30 03:12 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/6819863.shtml)
-- 2026-06-30 02:49 - [法媒点赞分享中国小区降温方案](http://www.blog.minike.top/Article/details/3073830.shtml)
+- 2026-06-30 03:16 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/825765083782.shtml)
+- 2026-06-30 02:59 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/35623.shtml)
+- 2026-06-30 02:55 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/2328938934.shtml)
+- 2026-06-30 03:03 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/46594.shtml)
+- 2026-06-30 03:24 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/71123313.shtml)
+- 2026-06-30 02:56 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/933607533.shtml)
+- 2026-06-30 03:16 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/52507.shtml)
+- 2026-06-30 03:12 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/07059256.shtml)
+- 2026-06-30 03:18 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/1995633.shtml)
+- 2026-06-30 03:21 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/39440103110.shtml)
+- 2026-06-30 03:09 - [点菜也要教吗](https://www.blog.minike.top/Article/details/14879445139.shtml)
+- 2026-06-30 03:21 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/23431711.shtml)
+- 2026-06-30 03:14 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/131657582.shtml)
+- 2026-06-30 03:14 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/865612715.shtml)
+- 2026-06-30 03:15 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/74421.shtml)

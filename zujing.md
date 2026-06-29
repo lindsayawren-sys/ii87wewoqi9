@@ -1,57 +1,56 @@
-# 高盛：美图公司维持“买入”评级 目标价14.30港元
+# 央行行长潘功胜：在上海自贸区开展离岸人民币外汇交易试点
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-高盛发布研报称，美图公司（01357）公布影像与设计产品收入，同比升34%至8.52亿元人民币。首季生产力工具收入同比增长45%，休闲工具收入同比增长36%。该行认为，付费订户数量的增长是关键驱动因素。截至2026年3月底，付费订户总数达1，790万户，去年同期为1，690万户。该行指，美图受惠于AI功能提升及AI代理的整合，对付费用户数量及每用户平均收入的增长均持正面看法；
+中新网上海6月17日电 (高志苗 康玉湛)2026陆家嘴论坛17日在上海开幕。中国人民银行行长潘功胜在开幕式上宣布，在上海自贸区开展离岸人民币外汇交易试点。授权工行、农行、中行、建行、交行、中信等6家银行，利用中国外汇交易中心平台在上海自贸区开展离岸人民币外汇交易。将根据试点情况，进一步推动离岸人民币外汇交易市场发展。 他同时介绍，将会同上海市政府有关部门出台《上海国际金融中心
 
 ## 正文
 
-高盛发布研报称，美图公司（01357）公布影像与设计产品收入，同比升34%至8.52亿元人民币。
+中新网上海6月17日电 (高志苗 康玉湛)2026陆家嘴论坛17日在上海开幕。
 
-首季生产力工具收入同比增长45%，休闲工具收入同比增长36%。
+中国人民银行行长潘功胜在开幕式上宣布，在上海自贸区开展离岸人民币外汇交易试点。
 
-该行认为，付费订户数量的增长是关键驱动因素。
+授权工行、农行、中行、建行、交行、中信等6家银行，利用中国外汇交易中心平台在上海自贸区开展离岸人民币外汇交易。
 
-截至2026年3月底，付费订户总数达1，790万户，去年同期为1，690万户。
+将根据试点情况，进一步推动离岸人民币外汇交易市场发展。
 
-该行指，美图受惠于AI功能提升及AI代理的整合，对付费用户数量及每用户平均收入的增长均持正面看法； 维持对公司“买入”评级； 目标价维持14.3港元。
+他同时介绍，将会同上海市政府有关部门出台《上海国际金融中心发展离岸金融行动方案》。
 
-责任编辑：卢昱君
+人民银行将逐步健全适应离岸金融的业务规则、风险管理、营商环境等制度体系。
+
+稳妥推进自贸离岸债、离岸贸易金融服务、国际财资中心等离岸金融业务，支持上海率先构建与国际金融中心相匹配的离岸金融业务体系。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:54 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 03:16 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-30 03:04 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-30 03:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-30 02:55 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-30 03:10 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-30 03:10 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-30 03:13 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-30 02:56 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-30 03:08 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-30 03:09 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-30 03:14 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-30 03:17 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-30 03:15 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-30 02:53 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-30 03:00 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-30 03:03 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-30 02:57 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-30 03:00 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 03:13 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-30 03:06 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-30 03:21 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-30 03:04 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-30 03:04 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-30 02:58 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:49 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/629463740250.shtml)
-- 2026-06-30 02:49 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/7431320826.shtml)
-- 2026-06-30 03:05 - [勇敢的心第二部](https://www.share.minike.top/Article/details/59162.shtml)
-- 2026-06-30 03:08 - [德约科维奇向温网对手放狠话](https://www.blog.minike.top/Article/details/053818.shtml)
-- 2026-06-30 02:50 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/5243087810.shtml)
-- 2026-06-30 03:03 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/257502.shtml)
-- 2026-06-30 03:15 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/143837816513.shtml)
-- 2026-06-30 03:10 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/07220.shtml)
-- 2026-06-30 03:09 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/020806.shtml)
-- 2026-06-30 02:55 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/55154718959.shtml)
-- 2026-06-30 03:10 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/27411019698.shtml)
-- 2026-06-30 03:08 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/89986503.shtml)
-- 2026-06-30 03:14 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/66402302094.shtml)
-- 2026-06-30 02:48 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/15643.shtml)
-- 2026-06-30 02:58 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/09445.shtml)
+- 2026-06-30 03:21 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/47461165057.shtml)
+- 2026-06-30 03:12 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/324076.shtml)
+- 2026-06-30 03:15 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/512567355639.shtml)
+- 2026-06-30 02:57 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/2846516919.shtml)
+- 2026-06-30 02:56 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.minike.top/Article/details/8946108925.shtml)
+- 2026-06-30 03:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/0571499121.shtml)
+- 2026-06-30 03:18 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/49663.shtml)
+- 2026-06-30 02:57 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/73814836417.shtml)
+- 2026-06-30 03:13 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/747087673.shtml)
+- 2026-06-30 03:10 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/39420.shtml)
+- 2026-06-30 03:07 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/3216399.shtml)
+- 2026-06-30 02:58 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/1539770.shtml)
+- 2026-06-30 03:16 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/97156485941.shtml)
+- 2026-06-30 03:01 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/699428.shtml)
+- 2026-06-30 03:17 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/44952144.shtml)

@@ -1,56 +1,57 @@
-# 安徽到2028年将建30家省级制造业中试平台
+# 逆势而动！部分银行上调理财业绩比较基准 警惕与实际收益的区别
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-中新网合肥5月9日电 (记者 张俊)记者9日从安徽省工业和信息化厅获悉，到2028年，安徽计划培育建设30家省级制造业中试平台，以打通科技成果转化的“最后一公里”。 中试是产品正式投产前的中间阶段试验，是科技成果从实验室走向生产线的关键环节。据安徽省工业和信息化厅副厅长蒋晨捷介绍，《安徽省制造业中试平台建设实施方案》(以下简称《方案》)近日印发，旨在破解“实验室成果走不出、生产
+登录新浪财经APP 搜索【信披】查看更多考评等级 21世纪经济报道记者 叶麦穗 流动性宽松背景下，银行理财市场收益“跌跌不休”，行业整体定价中枢持续下沉。国有大行、股份行旗下理财子公司下调理财产品业绩比较基准，已然成为行业常态化操作。 值得关注的是，近期多家地方农商行逆向而动，调整定价策略，上调旗下多款理财产品业绩比较基准，走出独立行情。 多位受访专家分析认为，此番地方城商行、
 
 ## 正文
 
-中新网合肥5月9日电 (记者 张俊)记者9日从安徽省工业和信息化厅获悉，到2028年，安徽计划培育建设30家省级制造业中试平台，以打通科技成果转化的“最后一公里”。
+登录新浪财经APP 搜索【信披】查看更多考评等级 21世纪经济报道记者 叶麦穗 流动性宽松背景下，银行理财市场收益“跌跌不休”，行业整体定价中枢持续下沉。
 
-中试是产品正式投产前的中间阶段试验，是科技成果从实验室走向生产线的关键环节。
+国有大行、股份行旗下理财子公司下调理财产品业绩比较基准，已然成为行业常态化操作。
 
-据安徽省工业和信息化厅副厅长蒋晨捷介绍，《安徽省制造业中试平台建设实施方案》(以下简称《方案》)近日印发，旨在破解“实验室成果走不出、生产线需求接不上”的难题，通过体系化布局中试平台，弥合研发与生产之间的鸿沟。
+值得关注的是，近期多家地方农商行逆向而动，调整定价策略，上调旗下多款理财产品业绩比较基准，走出独立行情。
 
-《方案》显示，安徽将围绕智能网联新能源汽车、新一代信息技术、人工智能等优势产业，以及量子科技、生物制造、氢能等未来产业，分类推进中试平台建设。
+多位受访专家分析认为，此番地方城商行、农商行逆市抬升理财产品业绩比较基准，核心是中小银行的差异化突围策略。
 
-同时，为充分调动各方积极性，《方案》提出了四种建设模式，包括支持企业自主建设运营、鼓励高校院所聚焦成果转化、政府投资建设公共服务平台，以及推动政产学研用联合共建。
+具体而言，一方面意在拉高产品收益优势、强化资管产品市场竞争力；另一方面也意图抢抓储蓄与理财客群，实现存量客户留存、增量客户引流，最终破解银行存款负债端承压、负债成本高企的行业共性难题。
 
-针对中小企业的具体举措是该《方案》的一大亮点。
+部分中小银行上调理财业绩比较基准 今年以来，包括农银理财、中邮理财、交银理财、招银理财、兴银理财、民生理财等在内的多家机构密集下调理财产品业绩比较基准，部分产品基准下限跌破2%，部分产品调整幅度超过100个基点。
 
-《方案》明确将培育中试优质企业列为重点任务，支持中小企业聚焦中试环节的专用设备、工具、软件和服务等细分市场，通过精耕细作增强创新能力，培育更多省级“专精特新”中小企业。
+博通咨询金融行业资深分析师王蓬博此前分析认为，银行理财产品下调业绩比较基准，最主要是受整体利率的影响，尤其是像货基类这种占绝对比例的理财产品，其收益在下调，所以整体收益标准是一定会随市场“重心”而下降的。
 
-同时，中试平台将加大对专精特新中小企业的服务支持力度，为其提供工程开发、技术熟化、工艺创新等专业化公共服务，助力其成长为创新链上的关键节点。
+不过与大型银行理财子公司普遍下调理财产品业绩比较基准不同，部分地方农商行，城商行近期发布公告，宣布小幅上调旗下低风险固收类产品业绩比较基准。
 
 ## 相关推荐
 
-- 2026-06-30 02:51 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-30 02:58 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-30 03:11 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-30 03:10 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-30 03:05 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-30 03:14 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-30 02:54 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-30 02:53 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-30 03:12 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-30 03:16 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-30 03:20 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-30 03:17 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-30 02:56 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 02:55 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 03:07 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-30 03:07 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 03:23 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-30 03:22 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-30 03:01 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-30 03:12 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-30 02:57 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:03 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/23375.shtml)
-- 2026-06-30 02:53 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/2811071607.shtml)
-- 2026-06-30 03:00 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/0496780.shtml)
-- 2026-06-30 02:56 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/55134876135.shtml)
-- 2026-06-30 02:55 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/08056.shtml)
-- 2026-06-30 03:02 - [大范围高温会带来哪些经济影响](http://www.blog.minike.top/Article/details/727715.shtml)
-- 2026-06-30 03:11 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/900293.shtml)
-- 2026-06-30 02:56 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/63950485.shtml)
-- 2026-06-30 03:10 - [日本进球](https://www.share.kurohicncr.top/Article/details/34644524046.shtml)
-- 2026-06-30 02:48 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/619242101.shtml)
-- 2026-06-30 03:01 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/13056078447.shtml)
-- 2026-06-30 02:59 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/3296637.shtml)
-- 2026-06-30 03:07 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/5251585.shtml)
-- 2026-06-30 03:10 - [《贺子珍》](https://www.share.minike.top/Article/details/671054.shtml)
-- 2026-06-30 03:01 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/6878722.shtml)
+- 2026-06-30 03:08 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/14071.shtml)
+- 2026-06-30 03:20 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/41552777275.shtml)
+- 2026-06-30 03:03 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/0642718.shtml)
+- 2026-06-30 03:08 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/21066729.shtml)
+- 2026-06-30 03:02 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/68099.shtml)
+- 2026-06-30 03:20 - [沉睡花园](https://www.share.minike.top/Article/details/55849.shtml)
+- 2026-06-30 03:01 - [我们的少年时代2](http://www.share.minike.top/Article/details/4074799.shtml)
+- 2026-06-30 03:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/3258713.shtml)
+- 2026-06-30 03:10 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/6434655.shtml)
+- 2026-06-30 03:15 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/2991796.shtml)
+- 2026-06-30 02:56 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/6953090.shtml)
+- 2026-06-30 03:13 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/504139.shtml)
+- 2026-06-30 03:13 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/14615995296.shtml)
+- 2026-06-30 02:56 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/6310457.shtml)
+- 2026-06-30 02:56 - [女子发现孩子非现任亲生起诉前任](http://www.share.minike.top/Article/details/3197851550.shtml)

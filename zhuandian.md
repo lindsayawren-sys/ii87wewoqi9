@@ -1,59 +1,60 @@
-# 海南省第七届运动会8月举行 筹办工作已基本就绪
+# 中老两国迎来建交65周年暨“中老友好年”——山水连中老 侨心续华章（侨界关注）
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-中新网海口5月8日电 (张茜翼 黄方舟)记者8日从海南省第七届运动会倒计时100天新闻发布会获悉，海南省第七届运动会将于2026年8月16日至26日在琼海市举行。这是海南自贸港封关后首次举办的全省综合性体育盛会。海南省第七届运动会执行委员会主任，省旅游和文化广电体育厅副厅长、新闻发言人李海钢表示，目前赛会各项筹办工作已基本就绪、进入最后的冲刺阶段。 据介绍，本届省运会竞赛场馆(
+近日，老挝人民革命党中央总书记、国家主席通伦应邀对中国进行国事访问。两党两国领导人一致同意，推动中老关系实现新的跃升，携手打造新时代全天候中老命运共同体。今年是中老建交65周年暨“中老友好年”。65年来，两国始终相互依赖、守望相助，双边关系历久弥坚。特别是近些年，在两党两国最高领导人战略引领下，中老关系进入历史最好时期。在两国友好交往的长河中，旅居老挝的华侨华人扎根当地、奔走两
 
 ## 正文
 
-中新网海口5月8日电 (张茜翼 黄方舟)记者8日从海南省第七届运动会倒计时100天新闻发布会获悉，海南省第七届运动会将于2026年8月16日至26日在琼海市举行。
+近日，老挝人民革命党中央总书记、国家主席通伦应邀对中国进行国事访问。
 
-这是海南自贸港封关后首次举办的全省综合性体育盛会。
+两党两国领导人一致同意，推动中老关系实现新的跃升，携手打造新时代全天候中老命运共同体。
 
-海南省第七届运动会执行委员会主任，省旅游和文化广电体育厅副厅长、新闻发言人李海钢表示，目前赛会各项筹办工作已基本就绪、进入最后的冲刺阶段。
+今年是中老建交65周年暨“中老友好年”。
 
-据介绍，本届省运会竞赛场馆(场地)已基本完成建设或适应性改造；接待酒店已遴选完毕；赛会志愿者已完成选拔；住宿、餐饮、交通、医疗、安保等服务保障方案已细化完善并开展多轮压力测试。
+65年来，两国始终相互依赖、守望相助，双边关系历久弥坚。
 
-在场馆建设方面，海南省第七届运动会执行委员会常务副主任、秘书长，中共琼海市委常委、市人民政府常务副市长陈陟表示，新落成的文体中心具备较高的建设标准，体育场的跑道取得中国田协一类场地认证；足球场部分也达到国际足联指定的实验室LOBOSPORT(法国)最高级的5级认证标准。
+特别是近些年，在两党两国最高领导人战略引领下，中老关系进入历史最好时期。
 
-此外，游泳馆严格按照国际泳联(FINA)标准设计和建造，拥有50米×25米标准比赛池、10条专业泳道及4.5米深跳水池，可满足承办国际国内顶级水上赛事要求。
+在两国友好交往的长河中，旅居老挝的华侨华人扎根当地、奔走两地，既是岁月变迁的亲历者，也是民心相通的架桥人，更是务实合作的推动者，以拳拳侨心为中老友谊续写崭新篇章。
 
-同时，海南还对10个公共场馆进行提升改造，所有涉赛场馆已具备办赛条件。
+绘就人文交流新画卷 国之交在于民相亲，民相亲在于心相通。
 
-李海钢说，海南近年来力推“赛事+旅游”融合发展，“跟着赛事去旅游”已成为海南旅游发展的新亮点和新趋势。
+步入“中老友好年”以来，老挝侨界联动当地政府、中资企业、民间社团，策划开展形式多样的交流活动，推动中老两国民众越走越近 “华侨华人既是中老友谊的受益者，也是推动者。
 
 ## 相关推荐
 
-- 2026-06-30 03:14 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-30 03:06 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-30 03:12 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 03:07 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 02:55 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-30 03:01 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-30 02:51 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-30 03:02 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-30 03:01 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-30 03:04 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-30 02:55 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-30 02:57 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-30 03:06 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-30 03:08 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 03:04 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-30 02:59 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-30 03:00 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 03:16 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-30 03:15 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-30 03:18 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 03:11 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-30 03:21 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 02:55 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-30 03:11 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-30 02:57 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-30 02:55 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 03:18 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:04 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/021396997.shtml)
-- 2026-06-30 03:00 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/0708572.shtml)
-- 2026-06-30 02:49 - [足球“出口导向”造就佛得角奇迹](https://www.blog.minike.top/Article/details/661960.shtml)
-- 2026-06-30 02:59 - [本届世界杯已有5名球员被控强奸](http://www.blog.minike.top/Article/details/054285024.shtml)
-- 2026-06-30 03:13 - [卡塞米罗头球破门](https://www.share.kurohicncr.top/Article/details/89472623.shtml)
-- 2026-06-30 02:57 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/715229540467.shtml)
-- 2026-06-30 02:57 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/852918037060.shtml)
-- 2026-06-30 03:05 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/776174887927.shtml)
-- 2026-06-30 03:17 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/57038588589.shtml)
-- 2026-06-30 03:14 - [《贺子珍》](https://www.share.minike.top/Article/details/296474.shtml)
-- 2026-06-30 03:16 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/8330293242.shtml)
-- 2026-06-30 03:07 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/84763617.shtml)
-- 2026-06-30 02:52 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/769507.shtml)
-- 2026-06-30 02:58 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/99524384399.shtml)
-- 2026-06-30 03:13 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/1995044265.shtml)
+- 2026-06-30 03:04 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/96715165053.shtml)
+- 2026-06-30 03:23 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/9908829697.shtml)
+- 2026-06-30 02:54 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/95573092.shtml)
+- 2026-06-30 03:12 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/68177.shtml)
+- 2026-06-30 03:07 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/82129329.shtml)
+- 2026-06-30 02:55 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/963496.shtml)
+- 2026-06-30 03:03 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/5288427441.shtml)
+- 2026-06-30 03:12 - [足球“出口导向”造就佛得角奇迹](http://www.blog.kurohicncr.top/Article/details/4665577096.shtml)
+- 2026-06-30 02:55 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/37710.shtml)
+- 2026-06-30 03:14 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/100008645590.shtml)
+- 2026-06-30 03:03 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/4520548.shtml)
+- 2026-06-30 03:19 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/313401994798.shtml)
+- 2026-06-30 03:15 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/267967278867.shtml)
+- 2026-06-30 02:56 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/86929528299.shtml)
+- 2026-06-30 03:14 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/96889680719.shtml)

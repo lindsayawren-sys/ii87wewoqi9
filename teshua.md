@@ -1,53 +1,58 @@
-# 外交部：希望欧方全面客观积极看待中欧经贸关系
+# 文远知行-W盘中涨超20% 传公司正在尝试分拆Robovan业务进行独立融资
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-5月8日，外交部发言人林剑主持例行记者会。有记者就有报告称，欧盟正推进出台“网络安全法”，禁止中国企业参与欧关键基础设施建设一事提问。 对此，林剑表示，日前，中方的主管部门就欧盟“网络安全法修订案”等向欧方提交了评估意见，表达了中方严正关切和政治立场，希望欧方认真对待。中方正密切关注欧方有关的立法动向，愿与欧方就此进行对话沟通，希望欧方全面客观、积极看待中欧经贸关系，遵守世贸组
+文远知行-W（00800）盘中涨超20%，截至发稿，股价上涨13.55%，现报18.86元，成交额4036.46万港元。 据每日经济新闻报道，有消息称文远知行正在尝试分拆其Robovan（自动驾驶货运车）业务进行独立融资，该业务估值已达4亿美元（约合人民币27亿元）。据悉，文远知行于2025年2月正式发布Robovan产品，并已在广州获得道路测试牌照并开启路测。对于上述消息，记
 
 ## 正文
 
-5月8日，外交部发言人林剑主持例行记者会。
+文远知行-W（00800）盘中涨超20%，截至发稿，股价上涨13.55%，现报18.86元，成交额4036.46万港元。
 
-有记者就有报告称，欧盟正推进出台“网络安全法”，禁止中国企业参与欧关键基础设施建设一事提问。
+据每日经济新闻报道，有消息称文远知行正在尝试分拆其Robovan（自动驾驶货运车）业务进行独立融资，该业务估值已达4亿美元（约合人民币27亿元）。
 
-对此，林剑表示，日前，中方的主管部门就欧盟“网络安全法修订案”等向欧方提交了评估意见，表达了中方严正关切和政治立场，希望欧方认真对待。
+据悉，文远知行于2025年2月正式发布Robovan产品，并已在广州获得道路测试牌照并开启路测。
 
-中方正密切关注欧方有关的立法动向，愿与欧方就此进行对话沟通，希望欧方全面客观、积极看待中欧经贸关系，遵守世贸组织规则和市场原则，停止损人不利己的做法。
+对于上述消息，记者向文远知行方面求证，一位内部人士回应称：“暂无消息分享。
 
-如欧方执意惩罚、歧视性对待中国企业，中方将采取坚决措施维护中国企业的合法权益。
+” 值得注意的是，公司将在斯洛伐克全面部署旗下L4级自动驾驶产品矩阵。
 
-(总台央视记者 黄惠馨 赵超逸)
+项目先在布拉迪斯拉发启动测试，后扩展至科希策及高塔特拉山区，部分车型计划2026年内实现公开商业化运营，满足欧盟法规后推进纯无人运营。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 03:11 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-30 02:58 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-30 02:56 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-30 03:16 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-30 03:16 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-30 03:15 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-30 03:02 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-30 03:10 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 03:04 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-30 03:10 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-30 02:59 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 03:00 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-30 03:09 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-30 03:12 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 03:04 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 02:57 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-30 02:58 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-30 03:12 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-30 03:16 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-30 03:11 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 02:55 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-30 02:59 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-30 03:14 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-30 02:58 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-30 02:54 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:10 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/3345547108.shtml)
-- 2026-06-30 03:14 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/630197.shtml)
-- 2026-06-30 03:16 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/5687772.shtml)
-- 2026-06-30 02:59 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/05058940111.shtml)
-- 2026-06-30 03:01 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/596889276460.shtml)
-- 2026-06-30 02:50 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/144096747210.shtml)
-- 2026-06-30 02:56 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/3938425806.shtml)
-- 2026-06-30 02:54 - [这几秒成世界杯最值钱广告位](https://www.blog.kurohicncr.top/Article/details/79622671558.shtml)
-- 2026-06-30 03:03 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/07672.shtml)
-- 2026-06-30 03:13 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/57656175.shtml)
-- 2026-06-30 03:12 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/7990961458.shtml)
-- 2026-06-30 02:51 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/30147136018.shtml)
-- 2026-06-30 03:10 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/19106389039.shtml)
-- 2026-06-30 03:13 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/018786428.shtml)
-- 2026-06-30 03:13 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/3887697602.shtml)
+- 2026-06-30 03:04 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/58653.shtml)
+- 2026-06-30 03:04 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/3905801469.shtml)
+- 2026-06-30 03:10 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/352629.shtml)
+- 2026-06-30 03:20 - [王楚钦谈表演球](http://www.share.kurohicncr.top/Article/details/545992417.shtml)
+- 2026-06-30 03:11 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/1672756159.shtml)
+- 2026-06-30 02:56 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.kurohicncr.top/Article/details/95079277.shtml)
+- 2026-06-30 02:54 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/488755.shtml)
+- 2026-06-30 03:20 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/4779898.shtml)
+- 2026-06-30 03:23 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/698625389934.shtml)
+- 2026-06-30 03:21 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/92661042823.shtml)
+- 2026-06-30 03:22 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/2377386099.shtml)
+- 2026-06-30 03:09 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/96433752.shtml)
+- 2026-06-30 02:55 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/16644518438.shtml)
+- 2026-06-30 03:04 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/08693287455.shtml)
+- 2026-06-30 03:06 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/67251605153.shtml)

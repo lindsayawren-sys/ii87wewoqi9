@@ -1,48 +1,56 @@
-# 【SMM光伏】光伏91.2%！2026年3月全国新能源并网消纳情况
+# 中国民主同盟成立85周年暨民盟江苏省委员会成立70周年庆祝大会在南京召开
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-根据《国家能源局关于2021年风电、光伏发电开发建设有关事项的通知》（国能发新能〔2021〕25号），为引导新能源理性投资、有序建设，现将2026年3月各省级区域新能源并网消纳情况公布如下。责任编辑：陈平
+6月16日，民盟江苏省委员会在南京召开会议，庆祝中国民主同盟成立85周年暨民盟江苏省委员会成立70周年。 全国政协副秘书长、民盟中央副主席吴为山，中共江苏省委常委、省委统战部部长胡广杰出席大会并致辞。江苏省政协副主席、民盟江苏省委会主委胡刚，民盟中央原副主席、江苏省委会原主委曹卫星，民盟中央副秘书长、宣传部部长张峰，中共江苏省委统战部常务副部长顾万峰等领导出席大会。各民主党派省
 
 ## 正文
 
-根据《国家能源局关于2021年风电、光伏发电开发建设有关事项的通知》（国能发新能〔2021〕25号），为引导新能源理性投资、有序建设，现将2026年3月各省级区域新能源并网消纳情况公布如下。
+6月16日，民盟江苏省委员会在南京召开会议，庆祝中国民主同盟成立85周年暨民盟江苏省委员会成立70周年。
 
-责任编辑：陈平
+全国政协副秘书长、民盟中央副主席吴为山，中共江苏省委常委、省委统战部部长胡广杰出席大会并致辞。
+
+江苏省政协副主席、民盟江苏省委会主委胡刚，民盟中央原副主席、江苏省委会原主委曹卫星，民盟中央副秘书长、宣传部部长张峰，中共江苏省委统战部常务副部长顾万峰等领导出席大会。
+
+各民主党派省委会、省工商联及民盟省委会对口联系单位有关负责同志到会祝贺，江苏省政协副主席、九三学社江苏省委会主委周岚代表各兄弟民主党派省委会、省工商联致贺词。
+
+民盟江苏省委会专职副主委冯泉主持大会。
+
+吴为山代表民盟中央向大会召开表示热烈祝贺，对民盟江苏省委会的各项工作和取得的成绩表示充分肯定。
+
+他指出，85年来民盟始终紧密追随、坚决拥护中国共产党，结下了肝胆相照、荣辱与共的深厚情谊。
+
+70年来，江苏民盟始终坚持中国共产党的领导，秉承民盟优良传统，在江苏革命、建设、改革各个历史时期留下了坚实足迹。
 
 ## 相关推荐
 
-- 2026-06-30 03:13 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-30 02:50 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-30 03:00 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-30 02:51 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-30 03:02 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-30 02:53 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-30 03:04 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-30 03:04 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-30 03:13 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 03:06 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-30 03:00 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-30 02:48 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-30 03:17 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-30 03:10 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-30 02:58 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-30 03:18 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-30 03:09 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-30 03:18 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 03:03 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-30 02:59 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-30 03:08 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 03:12 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-30 03:23 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-30 03:17 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:17 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/20414996186.shtml)
-- 2026-06-30 02:54 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/544116.shtml)
-- 2026-06-30 03:11 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/7742711523.shtml)
-- 2026-06-30 03:04 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/66653259.shtml)
-- 2026-06-30 03:09 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/157806152653.shtml)
-- 2026-06-30 03:12 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/98787364.shtml)
-- 2026-06-30 03:14 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/8781454076.shtml)
-- 2026-06-30 02:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/9716218700.shtml)
-- 2026-06-30 02:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/78847252.shtml)
-- 2026-06-30 02:50 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/850980919.shtml)
-- 2026-06-30 02:48 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/68336.shtml)
-- 2026-06-30 03:10 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/3707336.shtml)
-- 2026-06-30 03:09 - [巴西绝杀日本](https://www.share.kurohicncr.top/Article/details/168538.shtml)
-- 2026-06-30 02:58 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/614135751.shtml)
-- 2026-06-30 03:08 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/0734355578.shtml)
+- 2026-06-30 03:06 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/0196781991.shtml)
+- 2026-06-30 03:18 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/9912596135.shtml)
+- 2026-06-30 03:13 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/9390886914.shtml)
+- 2026-06-30 02:55 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/986826101991.shtml)
+- 2026-06-30 03:21 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/14710266.shtml)
+- 2026-06-30 03:21 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/5702036551.shtml)
+- 2026-06-30 03:23 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/931216729.shtml)
+- 2026-06-30 02:57 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/89245461457.shtml)
+- 2026-06-30 03:00 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/383237146.shtml)
+- 2026-06-30 03:22 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/840166811517.shtml)
+- 2026-06-30 03:04 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/6956789.shtml)
+- 2026-06-30 03:08 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/88516568074.shtml)
+- 2026-06-30 03:02 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/438281751862.shtml)
+- 2026-06-30 02:56 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/952436.shtml)
+- 2026-06-30 03:22 - [日本16强魔咒](http://www.blog.minike.top/Article/details/8188181781.shtml)

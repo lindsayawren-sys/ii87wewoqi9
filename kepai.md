@@ -1,60 +1,61 @@
-# 新石器发布“来电岛”无人车运营中心，目标3年落地100+城市
+# 剑指“鬼秤”等乱象 首个集贸市场诚信计量评价规范发布
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-新浪科技讯 5月9日下午消息，新石器无人车联合特来电发布无人车自动充电及运营中心“来电岛”，同步启动“全球百城计划”，目标3年内在国内外超百座城市落地来电岛。同日，由新石器和特来电合资成立的无人车运营公司揭牌，双方战略合作全面落地。 据悉，“来电岛”并非简单的充电桩，而是一个自动化运营枢纽，一站式满足无人车自动停泊、补能、清洗、自检、运维全需求。单座“来电岛”可规划100个车位
+中新网6月16日电 据“市说新语”微信公众号消息，6月16日，市场监管总局召开例行新闻发布会。 会上，市场监管总局新闻发言人、新闻宣传司司长王秋苹表示，市场监管总局发布我国首个集贸市场计量信用评价规范性文件《集贸市场诚信计量评价规范》，标志着民生计量监管从传统器具管理向现代化信用治理迈出关键一步。 王秋苹指出，集贸市场是城乡居民日常消费的重要场所，“鬼秤”问题频发的本质，在于经
 
 ## 正文
 
-新浪科技讯 5月9日下午消息，新石器无人车联合特来电发布无人车自动充电及运营中心“来电岛”，同步启动“全球百城计划”，目标3年内在国内外超百座城市落地来电岛。
+中新网6月16日电 据“市说新语”微信公众号消息，6月16日，市场监管总局召开例行新闻发布会。
 
-同日，由新石器和特来电合资成立的无人车运营公司揭牌，双方战略合作全面落地。
+会上，市场监管总局新闻发言人、新闻宣传司司长王秋苹表示，市场监管总局发布我国首个集贸市场计量信用评价规范性文件《集贸市场诚信计量评价规范》，标志着民生计量监管从传统器具管理向现代化信用治理迈出关键一步。
 
-据悉，“来电岛”并非简单的充电桩，而是一个自动化运营枢纽，一站式满足无人车自动停泊、补能、清洗、自检、运维全需求。
+王秋苹指出，集贸市场是城乡居民日常消费的重要场所，“鬼秤”问题频发的本质，在于经营主体诚信缺失。
 
-单座“来电岛”可规划100个车位及自动充电终端，实现高密度立体泊车，满足城市中心区域无人车“停得下”的需求；一小时可充满90辆车，同时依托特来电现有7万座公共充电网改扩建“中继岛”，1座来电岛+10座中继岛可支撑1200-1500辆无人车充电运营，实现了“充得快”，保障了车队的高效周转。
+数据显示，全国现有集贸市场约2.7万家，涉及商户约200万家。
 
-除了充电，“来电岛”还集成了自动清洗、自检、维护等功能，实现了“跑得稳”，将原本分散的运维工作集中化、自动化，降低了运营成本。
+在如此庞大复杂的交易场景中，缺斤短两，看似小事，实则是伤民心、损公信、破秩序的大事。
 
-启用来电岛后，可实现高功率自动充电和立体泊车，将补能时间窗口最小化，车辆得以高效周转，大幅提升单车配送趟次和里程。
+新出台的《规范》创新构建了集贸市场诚信计量信用评价指标体系。
 
-成本方面，实现了“调度-充电-运维”全流程自动化与集中化，一个中心可服务上千辆车，运营边际成本随着车队规模扩大而显著降低。
+根据《规范》，诚信计量信用评价由县级以上市场监管部门遵循公益性原则组织开展，主要服务政府管理需要。
 
-从城市管理角度来说，来电岛让无人车的停泊、补能集中解决，简化了城市交通、市容的监管难度。
+评价结果划分为A、B、C、D四个信用等级，将作为实施差异化监管的重要依据。
 
 ## 相关推荐
 
-- 2026-06-30 03:12 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-30 02:54 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 03:10 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-30 03:16 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-30 03:10 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-30 02:59 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-30 02:58 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-30 02:51 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-30 03:02 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-30 03:09 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-30 03:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-30 02:59 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-30 02:52 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 03:08 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-30 03:21 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-30 03:21 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 03:22 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-30 03:00 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-30 03:23 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-30 03:15 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-30 03:09 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-30 03:20 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 03:06 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-30 03:20 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 03:10 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 03:18 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 03:11 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-30 03:15 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-30 03:07 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:09 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/966939277.shtml)
-- 2026-06-30 02:49 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/536886219323.shtml)
-- 2026-06-30 03:14 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/431209150498.shtml)
-- 2026-06-30 02:55 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/60850.shtml)
-- 2026-06-30 03:06 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/8647764583.shtml)
-- 2026-06-30 03:00 - [这几秒成世界杯最值钱广告位](https://www.blog.kurohicncr.top/Article/details/9146249.shtml)
-- 2026-06-30 02:55 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/42056838751.shtml)
-- 2026-06-30 02:48 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/75911557.shtml)
-- 2026-06-30 02:56 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/865644.shtml)
-- 2026-06-30 03:03 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/87803466809.shtml)
-- 2026-06-30 03:08 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/655087.shtml)
-- 2026-06-30 03:16 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/9173528.shtml)
-- 2026-06-30 03:01 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/1354504.shtml)
-- 2026-06-30 03:10 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/9901753.shtml)
-- 2026-06-30 03:11 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/26413268.shtml)
+- 2026-06-30 03:09 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/664452493.shtml)
+- 2026-06-30 03:11 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/121890.shtml)
+- 2026-06-30 03:18 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/6242195.shtml)
+- 2026-06-30 03:06 - [起风了](https://www.blog.kurohicncr.top/Article/details/46976.shtml)
+- 2026-06-30 02:55 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/1449798139.shtml)
+- 2026-06-30 03:20 - [内马尔替补](http://www.share.minike.top/Article/details/3933075.shtml)
+- 2026-06-30 03:08 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/77981064962.shtml)
+- 2026-06-30 03:11 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/337402887.shtml)
+- 2026-06-30 03:20 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/599298973015.shtml)
+- 2026-06-30 03:17 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/363004273323.shtml)
+- 2026-06-30 02:55 - [美股](https://www.blog.minike.top/Article/details/651371.shtml)
+- 2026-06-30 03:10 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/309925.shtml)
+- 2026-06-30 03:13 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/513328001523.shtml)
+- 2026-06-30 03:04 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/55662.shtml)
+- 2026-06-30 02:55 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/257147.shtml)

@@ -1,57 +1,56 @@
-# 夏季养生防范动物咬伤 医护人员传授“应急处置指南”
+# 水涨荷花高 建交76载，中缅“胞波”情谊深长
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-中新网长沙5月8日电 (付敬懿)入夏之后晴雨交替、湿热交织、冷暖多变，人体脾胃运化不畅、呼吸道不适、心神不宁等季节性问题进入高发时段。湖南省卫生健康委员会8日召开“时令节气与健康湖南·立夏篇”，围绕立夏时节的夏季养生、哮喘防治、动物咬伤、运动康复等普及时令养生、疾病防控健康知识。 夏季整体湿气偏重，湿邪侵入人体，容易阻滞脾胃运化，进而让人普遍感到困倦乏力、精神不振；暑热邪气容易
+中新网6月17日电 缅甸总统敏昂莱于6月15日至19日对中国进行国事访问。 中缅是传统友好邻邦和命运共同体。建交76年来，双方秉持共同倡导的和平共处五项原则精神，同甘共苦、守望相助、团结协作，中缅关系取得长足发展。 “亲戚越走越亲，朋友越走越近”。从共同倡导践行和平共处五项原则，到携手共建中缅命运共同体，跨越千年的“胞波”情谊，越来越深入人心。 中国有诗云：“今年花胜去年红。”
 
 ## 正文
 
-中新网长沙5月8日电 (付敬懿)入夏之后晴雨交替、湿热交织、冷暖多变，人体脾胃运化不畅、呼吸道不适、心神不宁等季节性问题进入高发时段。
+中新网6月17日电 缅甸总统敏昂莱于6月15日至19日对中国进行国事访问。
 
-湖南省卫生健康委员会8日召开“时令节气与健康湖南·立夏篇”，围绕立夏时节的夏季养生、哮喘防治、动物咬伤、运动康复等普及时令养生、疾病防控健康知识。
+中缅是传统友好邻邦和命运共同体。
 
-夏季整体湿气偏重，湿邪侵入人体，容易阻滞脾胃运化，进而让人普遍感到困倦乏力、精神不振；暑热邪气容易侵扰心神，极易引发心绪烦躁、睡眠不宁等问题。
+建交76年来，双方秉持共同倡导的和平共处五项原则精神，同甘共苦、守望相助、团结协作，中缅关系取得长足发展。
 
-湖南省人民医院中医学科副主任医师谭浩表示，中医有个名字叫“疰夏”，最早人们就是希望“立夏吃了蛋，热天不疰夏”，通过立夏茶叶蛋来补虚、强体质。
+“亲戚越走越亲，朋友越走越近”。
 
-谭浩表示，立夏时节的饮食，要清补养心不燥热：优先选择湖南时令食材，比如莲子、百合、桑葚、樱桃，可煮制麦冬莲子粥，既能清心火，又能养心阴；同时避免过辣等重口味食物，以免加重心火耗损。
+从共同倡导践行和平共处五项原则，到携手共建中缅命运共同体，跨越千年的“胞波”情谊，越来越深入人心。
 
-立夏时节湿热交错容易诱发哮喘、咳嗽、过敏性呼吸道问题。
+中国有诗云：“今年花胜去年红。
 
-谭浩表示，可以通过百合茯苓山药粥、乌梅山楂饮、紫苏生姜茶等食疗调理；每天按摩肺俞穴、定喘穴、足三里、丰隆穴四个关键穴位两次，每次3至5分钟；日常要注意勤通风、除霉菌、少吹直冷风、出汗后及时避风，抓住立夏到三伏的黄金期进行冬病夏治。
+”缅甸谚语说：“水涨荷花高。
 
-入夏后猫狗抓咬伤、蛇咬伤等动物致伤进入高发期。
+”相信中缅命运共同体建设将取得更多务实成果，更好地造福两国人民，中缅关系也将迎来更加美好的明天。
 
 ## 相关推荐
 
-- 2026-06-30 03:11 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-30 03:11 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-30 02:54 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-30 03:14 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-30 02:56 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-30 02:54 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-30 03:09 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-30 02:49 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-30 02:50 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-30 02:59 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-30 02:49 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-30 03:18 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-30 03:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 02:56 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-30 03:00 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-30 03:12 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-30 03:05 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-30 03:06 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-30 03:07 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-30 03:05 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-30 03:16 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:54 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/643430.shtml)
-- 2026-06-30 03:04 - [足球小将的剧本成真了](http://www.blog.minike.top/Article/details/3577452.shtml)
-- 2026-06-30 02:51 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/817685.shtml)
-- 2026-06-30 02:59 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/339994.shtml)
-- 2026-06-30 02:49 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/258659.shtml)
-- 2026-06-30 02:53 - [荷兰VS摩洛哥你看好谁](https://www.share.minike.top/Article/details/27180.shtml)
-- 2026-06-30 03:09 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/326069026579.shtml)
-- 2026-06-30 02:55 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/139250369.shtml)
-- 2026-06-30 02:51 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/7254433.shtml)
-- 2026-06-30 03:07 - [王楚钦谈表演球](https://www.share.minike.top/Article/details/99386764316.shtml)
-- 2026-06-30 02:55 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/54287212.shtml)
-- 2026-06-30 03:05 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/1755564131.shtml)
-- 2026-06-30 02:58 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/008241.shtml)
-- 2026-06-30 02:51 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/0206737585.shtml)
-- 2026-06-30 02:48 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.kurohicncr.top/Article/details/7847760.shtml)
+- 2026-06-30 03:02 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/002947505.shtml)
+- 2026-06-30 03:05 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/7980995.shtml)
+- 2026-06-30 03:03 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/605969703805.shtml)
+- 2026-06-30 03:08 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/75331084279.shtml)
+- 2026-06-30 02:54 - [爱很美味](http://www.blog.minike.top/Article/details/274174589775.shtml)
+- 2026-06-30 03:23 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/864998462.shtml)
+- 2026-06-30 03:05 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/84878305.shtml)
+- 2026-06-30 03:04 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/33656413579.shtml)
+- 2026-06-30 03:21 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/99613739287.shtml)
+- 2026-06-30 03:15 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/46200074.shtml)
+- 2026-06-30 03:23 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/72044876.shtml)
+- 2026-06-30 03:07 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/476002858895.shtml)
+- 2026-06-30 02:58 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/20033602841.shtml)
+- 2026-06-30 03:15 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/781467.shtml)
+- 2026-06-30 03:13 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/90154955.shtml)

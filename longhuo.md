@@ -1,57 +1,55 @@
-# 碳酸锂周度观察（5.6-5.8）：期现联动上涨 现货周涨幅达2.37%
+# 黑龙江省纪委副书记姜宏伟任上被查
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-来源：长江有色金属网 根据长江有色金属网及广州期货交易所2026年5月6日至8日的数据，本周国内碳酸锂市场呈现“先扬后抑、高位整固”的强势格局。现货方面，电池级碳酸锂（99.5%）均价从5月6日的190，000元/吨上涨至5月8日的194，500元/吨，周内累计上涨4，500元/吨，涨幅约2.37%；工业级碳酸锂（99.2%）均价从188，000元/吨上涨至191，500元/吨
+中新社北京6月16日电 中国官方16日通报，黑龙江省纪委副书记、省监委副主任姜宏伟涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。 公开资料显示，姜宏伟，生于1968年1月，黑龙江五常人。他长期在黑龙江工作，曾任省森林工业总局政策法规处处长，省森工总局(中国龙江森工集团总公司)党委委员、组织部部长，佳木斯市委常委、纪委书记等职。2020年，姜宏伟任黑龙江省纪委副
 
 ## 正文
 
-来源：长江有色金属网 根据长江有色金属网及广州期货交易所2026年5月6日至8日的数据，本周国内碳酸锂市场呈现“先扬后抑、高位整固”的强势格局。
+中新社北京6月16日电 中国官方16日通报，黑龙江省纪委副书记、省监委副主任姜宏伟涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。
 
-现货方面，电池级碳酸锂（99.5%）均价从5月6日的190，000元/吨上涨至5月8日的194，500元/吨，周内累计上涨4，500元/吨，涨幅约2.37%；工业级碳酸锂（99.2%）均价从188，000元/吨上涨至191，500元/吨，周涨幅同样为1.86%。
+公开资料显示，姜宏伟，生于1968年1月，黑龙江五常人。
 
-期货市场波动更为剧烈，广期所碳酸锂主力合约（LC2609）在5月6日单日暴涨7.31%后，于7日、8日围绕20万元/吨整数关口展开激烈争夺，最终收于196，560元/吨，全周结算价重心显著上移。
+他长期在黑龙江工作，曾任省森林工业总局政策法规处处长，省森工总局(中国龙江森工集团总公司)党委委员、组织部部长，佳木斯市委常委、纪委书记等职。
 
-市场交投活跃，持仓量维持在51万手以上的高位，显示多空博弈激烈。
+2020年，姜宏伟任黑龙江省纪委副书记、省监委副主任。
 
-本周行情的核心驱动力，源于供给端突发性收缩、需求端结构性爆发、产业链极低库存以及政策利好预期的多重共振。
-
-从供给端审视，国内外锂资源供应正遭遇一系列“黑天鹅”事件的同步冲击，有效增量释放远低于市场预期，构成了价格上行的刚性约束。
-
-海外方面，非洲重要锂资源国此前实施的锂精矿出口禁令虽在后期有所松动，但受物流周期影响，首批货源大规模到港预计将延迟至下个季度，导致近期国内原料供应出现实质性真空。
-
-与此同时，全球最大的硬岩锂矿大幅下调了年度产量指引，减产幅度明显。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:53 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-30 02:57 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-30 03:00 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-30 03:09 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-30 03:06 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-30 03:16 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-30 02:59 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 02:54 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-30 03:02 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-30 03:10 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-30 02:59 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-30 03:19 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-30 03:02 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-30 03:17 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-30 03:02 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-30 03:15 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 02:54 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-30 02:54 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-30 03:18 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-30 02:58 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-30 03:20 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-30 03:05 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-30 03:07 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 03:04 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-30 03:14 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-30 03:06 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:04 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/28172868.shtml)
-- 2026-06-30 03:06 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/984486763.shtml)
-- 2026-06-30 02:53 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/055720.shtml)
-- 2026-06-30 02:48 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/278721213.shtml)
-- 2026-06-30 03:02 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/566153.shtml)
-- 2026-06-30 02:54 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/954524551031.shtml)
-- 2026-06-30 02:56 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/776410208790.shtml)
-- 2026-06-30 03:07 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/701081599.shtml)
-- 2026-06-30 02:51 - [张帅时隔四年再取温网正赛胜利](https://www.share.kurohicncr.top/Article/details/88533892.shtml)
-- 2026-06-30 03:04 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/26934378260.shtml)
-- 2026-06-30 03:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/209834.shtml)
-- 2026-06-30 03:15 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/83466788.shtml)
-- 2026-06-30 02:49 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/428008735.shtml)
-- 2026-06-30 02:51 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/68475092847.shtml)
-- 2026-06-30 03:06 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/0540523.shtml)
+- 2026-06-30 03:19 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/824278522.shtml)
+- 2026-06-30 03:07 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/081409697.shtml)
+- 2026-06-30 02:56 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/874642.shtml)
+- 2026-06-30 02:58 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/16816470.shtml)
+- 2026-06-30 03:00 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/86171753.shtml)
+- 2026-06-30 03:08 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/6650769.shtml)
+- 2026-06-30 03:09 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/62426082.shtml)
+- 2026-06-30 03:06 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/71893.shtml)
+- 2026-06-30 03:10 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/916681247.shtml)
+- 2026-06-30 03:03 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/80414962446.shtml)
+- 2026-06-30 03:11 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/013071217.shtml)
+- 2026-06-30 03:13 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/515144417.shtml)
+- 2026-06-30 03:13 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/924332790080.shtml)
+- 2026-06-30 03:16 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/23669076.shtml)
+- 2026-06-30 02:55 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/4680878.shtml)

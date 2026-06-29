@@ -1,57 +1,60 @@
-# 市场监管总局通报42批次食品抽检不合格情况
+# 市场监管总局修订严重违法失信名单管理办法 这些行为将被严惩
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-中新网5月9日电 据国家市场监督管理总局网站消息，近期，市场监管总局组织食品安全监督抽检2166批次样品，检出42批次样品不合格。对抽检发现的不合格食品，有关省级市场监管部门已组织开展核查处置。 监督抽检不合格食品具体情况如下： (一)蒙森薯业(经营者为内蒙古蒙森农业科技股份有限公司)在淘宝(手机APP)销售的、标称内蒙古蒙森农业科技股份有限公司生产的马铃薯粉条，其中铝的残留量
+中新网6月16日电 据“市说新语”微信公众号消息，6月16日，市场监管总局召开例行新闻发布会。 会上，有记者问：近日，市场监管总局修订出台了《市场监督管理严重违法失信名单管理办法》，请问主要修订了哪些内容？ 对此，市场监管总局新闻发言人、新闻宣传司司长王秋苹介绍，本次失信名单办法修订，是完善信用监管、净化市场环境、护航高质量发展的重要制度升级，重点从4个维度，补短板、强弱项、立
 
 ## 正文
 
-中新网5月9日电 据国家市场监督管理总局网站消息，近期，市场监管总局组织食品安全监督抽检2166批次样品，检出42批次样品不合格。
+中新网6月16日电 据“市说新语”微信公众号消息，6月16日，市场监管总局召开例行新闻发布会。
 
-对抽检发现的不合格食品，有关省级市场监管部门已组织开展核查处置。
+会上，有记者问：近日，市场监管总局修订出台了《市场监督管理严重违法失信名单管理办法》，请问主要修订了哪些内容？
 
-监督抽检不合格食品具体情况如下： (一)蒙森薯业(经营者为内蒙古蒙森农业科技股份有限公司)在淘宝(手机APP)销售的、标称内蒙古蒙森农业科技股份有限公司生产的马铃薯粉条，其中铝的残留量(干样品，以Al计)符合食品安全国家标准规定，但不符合产品标签标示要求。
+对此，市场监管总局新闻发言人、新闻宣传司司长王秋苹介绍，本次失信名单办法修订，是完善信用监管、净化市场环境、护航高质量发展的重要制度升级，重点从4个维度，补短板、强弱项、立新规。
 
-(二)Un糖糖家(经营者为广东省阳江市阳东区美味坊电商行)在抖音(手机APP)销售的、标称广东省东莞市中堂镇镇寻味园食品有限公司生产的白胡椒粒，其中苋菜红、柠檬黄、日落黄检验值不符合食品安全国家标准规定。
+第一，优化监管机制。
 
-经广东省市场监管局核实，不存在广东省东莞市中堂镇镇寻味园食品有限公司，该批次产品实际是经营者自行通过拼多多购买后销售的。
+打通行政处罚与失信认定流程，完善告知、异议、复核全流程，既提升了监管效能，又保障了企业合法权益。
 
-(三)江苏省南京市江宁区汪瑜调味品店销售的红薯粉丝，其中亮蓝、苋菜红、日落黄、柠檬黄检验值不符合食品安全国家标准规定。
+第二，严惩虚假公示。
 
-(四)四川省成都市郫都区鑫忠诚冷冻食品销售中心销售的、标称安徽省阜阳金厨房食品科技有限公司生产的梅菜扣肉，其中诱惑红、日落黄检验值不符合食品安全国家标准规定。
+从严约束企业信息公示行为，对隐瞒实情、弄虚作假、情节严重的，列入严重违法失信名单，进一步压实企业信息公示主体责任，强化对企业信息公示行为的刚性约束。
 
-(五)铭思源肉制品官方旗舰店(经营者为河南优多多食品有限公司)在京东商城(网店)销售的、标称河南多多优品食品科技有限公司生产的韩式冷鲜肠，其中诱惑红检验值不符合食品安全国家标准规定。
+第三，紧盯民生安全。
 
 ## 相关推荐
 
-- 2026-06-30 03:12 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-30 02:52 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-30 03:15 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-30 03:15 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-30 03:00 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-30 03:12 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-30 03:01 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-30 03:13 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-30 02:57 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-30 03:15 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 03:17 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-30 03:23 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-30 03:13 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-30 02:59 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 03:10 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-30 03:08 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-30 03:23 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-30 02:57 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-30 03:06 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-30 03:07 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-30 03:11 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-30 03:04 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-30 03:22 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 03:20 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-30 02:55 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:15 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/6772784.shtml)
-- 2026-06-30 03:14 - [速度与激情9](https://www.blog.minike.top/Article/details/3938385352.shtml)
-- 2026-06-30 03:07 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/9152829.shtml)
-- 2026-06-30 03:02 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/920069.shtml)
-- 2026-06-30 03:04 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.minike.top/Article/details/091809056380.shtml)
-- 2026-06-30 03:10 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/8397865.shtml)
-- 2026-06-30 03:16 - [日本 高位逼抢](https://www.share.kurohicncr.top/Article/details/55689.shtml)
-- 2026-06-30 03:01 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.kurohicncr.top/Article/details/072240878190.shtml)
-- 2026-06-30 02:52 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/8441484.shtml)
-- 2026-06-30 02:51 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/3403698.shtml)
-- 2026-06-30 02:55 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/260937.shtml)
-- 2026-06-30 03:04 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/337162.shtml)
-- 2026-06-30 03:03 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/407329.shtml)
-- 2026-06-30 02:51 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/245336499.shtml)
-- 2026-06-30 03:16 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/211989151.shtml)
+- 2026-06-30 03:22 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/313630745973.shtml)
+- 2026-06-30 02:54 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/660975.shtml)
+- 2026-06-30 03:10 - [点菜也要教吗](https://www.blog.minike.top/Article/details/497198361564.shtml)
+- 2026-06-30 03:05 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/9772988854.shtml)
+- 2026-06-30 03:04 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.kurohicncr.top/Article/details/5270168.shtml)
+- 2026-06-30 03:17 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/818291.shtml)
+- 2026-06-30 03:18 - [日本领先巴西](https://www.blog.minike.top/Article/details/678178.shtml)
+- 2026-06-30 03:01 - [Prada在内娱首度签下偶像团体](https://www.share.minike.top/Article/details/601526017.shtml)
+- 2026-06-30 03:03 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/67836229.shtml)
+- 2026-06-30 03:19 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/939568165.shtml)
+- 2026-06-30 02:56 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/660830964713.shtml)
+- 2026-06-30 03:10 - [荷兰vs摩洛哥前瞻](http://www.blog.kurohicncr.top/Article/details/932313953507.shtml)
+- 2026-06-30 03:06 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/47562559.shtml)
+- 2026-06-30 03:21 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/03774704.shtml)
+- 2026-06-30 02:55 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/5972704079.shtml)

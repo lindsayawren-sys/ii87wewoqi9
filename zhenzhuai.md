@@ -1,57 +1,56 @@
-# 花旗集团计划大规模扩招财富管理部门
+# 国际最新研究：摄食花粉蝴蝶物种比近亲寿命长约3倍
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-花旗集团周五宣布，计划在未来三年内为其财富管理部门新增约2500名客户顾问和财富管理专员，以追赶在财富管理领域领先的摩根士丹利、美国银行等竞争对手。 扩招计划详情 花旗财富管理全球主管表示，此次扩招将使花旗的客户顾问团队规模扩大约40%。新增岗位将分布在美国、亚洲和欧洲等主要市场，重点招募服务于高净值客户的私人银行家和投资顾问。花旗计划在未来三年内将财富管理业务的客户资产规模从
+中新网北京6月17日电 (记者 孙自法)施普林格·自然旗下学术期刊《自然-通讯》最新发表一篇生物学论文称，一项研究显示，吃花粉的袖蝶属物种演化出比其不吃花粉的近亲长约3倍的寿命，有些可以存活近一年。因而它们可能是迄今发现最长寿的蝴蝶之一，或可作为研究长寿的新模型。 该论文介绍，袖蝶属蝴蝶拥有蝴蝶中已知最长的成虫寿命，一些个体被观察到能在野外生存至少6个月。这远比它们釉蛱蝶族的亲
 
 ## 正文
 
-花旗集团周五宣布，计划在未来三年内为其财富管理部门新增约2500名客户顾问和财富管理专员，以追赶在财富管理领域领先的摩根士丹利、美国银行等竞争对手。
+中新网北京6月17日电 (记者 孙自法)施普林格·自然旗下学术期刊《自然-通讯》最新发表一篇生物学论文称，一项研究显示，吃花粉的袖蝶属物种演化出比其不吃花粉的近亲长约3倍的寿命，有些可以存活近一年。
 
-扩招计划详情 花旗财富管理全球主管表示，此次扩招将使花旗的客户顾问团队规模扩大约40%。
+因而它们可能是迄今发现最长寿的蝴蝶之一，或可作为研究长寿的新模型。
 
-新增岗位将分布在美国、亚洲和欧洲等主要市场，重点招募服务于高净值客户的私人银行家和投资顾问。
+该论文介绍，袖蝶属蝴蝶拥有蝴蝶中已知最长的成虫寿命，一些个体被观察到能在野外生存至少6个月。
 
-花旗计划在未来三年内将财富管理业务的客户资产规模从当前的约1.2万亿美元提升至1.5万亿美元。
+这远比它们釉蛱蝶族的亲属寿命长，后者大约能活6周。
 
-该主管称，扩招是为了填补市场空白，花旗在财富管理领域的市场份额与商业银行龙头地位并不匹配。
+目前还不清楚是什么促成了袖蝶独有的长寿，但有观点认为其成年后摄食花粉的行为可能起到了作用。
 
-背景与战略 此次扩招正值花旗集团推进其“Project Phoenix”重组计划的收尾阶段，该计划旨在简化管理层级、削减成本并聚焦核心业务。
+在本项研究中，论文第一作者和共同通讯作者、英国布里斯托大学Jessica Foley与同事及合作者一起，结合蝴蝶饲养室、标记重捕研究，以及受控昆虫饲养实验的数据，比较了毒蝶族物种的寿命和衰老。
 
-财富管理与交易咨询业务被列为优先增长领域。
+他们研究发现，该族蝴蝶不同物种的寿命上限差异可达25倍，从天后银纹袖蝶的14天，到有记录的最长寿蝴蝶的348天，平均寿命约177天。
 
-花旗此前在财富管理领域的投入不及同业，其财富管理营收占公司总营收约15%，而摩根士丹利这一比例超过40%。
+总体上，与不食花粉的近亲物种相比，袖蝶属的中位寿命和最大寿命更长、基线死亡率较低，衰老速度较慢。
 
 ## 相关推荐
 
-- 2026-06-30 03:15 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-30 02:58 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-30 03:17 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-30 03:10 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-30 03:00 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-30 03:09 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-30 02:51 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-30 03:14 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-30 03:03 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-30 03:17 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-30 03:03 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-30 03:01 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-30 03:11 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-30 03:15 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-30 03:22 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-30 03:01 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-30 03:23 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-30 03:05 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-30 03:06 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-30 02:56 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-30 03:17 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:57 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/53935.shtml)
-- 2026-06-30 03:10 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/7794409.shtml)
-- 2026-06-30 02:58 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/278904.shtml)
-- 2026-06-30 03:13 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/56415.shtml)
-- 2026-06-30 02:58 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/75940.shtml)
-- 2026-06-30 02:55 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/377861792959.shtml)
-- 2026-06-30 03:17 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/3170613.shtml)
-- 2026-06-30 03:01 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/86633.shtml)
-- 2026-06-30 02:59 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/88903310469.shtml)
-- 2026-06-30 02:49 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/381378548.shtml)
-- 2026-06-30 03:04 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/2872939418.shtml)
-- 2026-06-30 02:48 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/31711.shtml)
-- 2026-06-30 03:17 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/36027.shtml)
-- 2026-06-30 03:06 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/95904939.shtml)
-- 2026-06-30 03:10 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/766725845742.shtml)
+- 2026-06-30 03:15 - [第一炉香](http://www.share.kurohicncr.top/Article/details/01996086.shtml)
+- 2026-06-30 03:18 - [千与千寻](http://www.share.minike.top/Article/details/059367769.shtml)
+- 2026-06-30 02:55 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/47110.shtml)
+- 2026-06-30 03:19 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/71912227978.shtml)
+- 2026-06-30 02:55 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/02903.shtml)
+- 2026-06-30 03:05 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/3612403370.shtml)
+- 2026-06-30 03:19 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/3597341337.shtml)
+- 2026-06-30 03:12 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/47242109.shtml)
+- 2026-06-30 02:58 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/2102716478.shtml)
+- 2026-06-30 02:57 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/9437432318.shtml)
+- 2026-06-30 03:15 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/11784295.shtml)
+- 2026-06-30 03:17 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/5558494922.shtml)
+- 2026-06-30 03:20 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/15797.shtml)
+- 2026-06-30 03:16 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/690544.shtml)
+- 2026-06-30 03:22 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/62055659.shtml)

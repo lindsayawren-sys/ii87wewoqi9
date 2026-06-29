@@ -1,60 +1,61 @@
-# 达里奥警告美国“滞胀型金融危机”风险，呼吁配置“终极货币”黄金！
+# 国家统计局：进一步强化宏观政策调节，持续扩大内需、优化供给
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-来源：财联社 财联社5月8日讯（编辑 黄君芝）随着美伊战争进入第三个月、双方仍僵持不下，亿万富翁投资者、全球最大对冲基金桥水基金创始人达里奥（Ray Dalio）再次对世界经济秩序的现状发出警告。 达里奥表示，他看到了令人担忧的迹象，表明美国经济正走向一个“混乱”时期，其特点是赤字增加、通货膨胀加剧以及人们对美国金融帝国的信心减弱。在最新播出的一档播客节目中，他概述了一种美国可
+中新网6月16日电 国新办16日举行新闻发布会，国家统计局相关负责人介绍2026年5月份国民经济运行情况。 会上，有记者问：5月份主要经济指标已发布，请问如何评价5月份国民经济运行总体表现？另外，当前经济运行中主要亮点有哪些？ 国家统计局新闻发言人、总经济师、国民经济综合统计司司长付凌晖表示，5月份，尽管国际环境复杂多变，中东地缘政治冲突外溢影响持续显现，国内部分地区出现高温多
 
 ## 正文
 
-来源：财联社 财联社5月8日讯（编辑 黄君芝）随着美伊战争进入第三个月、双方仍僵持不下，亿万富翁投资者、全球最大对冲基金桥水基金创始人达里奥（Ray Dalio）再次对世界经济秩序的现状发出警告。
+中新网6月16日电 国新办16日举行新闻发布会，国家统计局相关负责人介绍2026年5月份国民经济运行情况。
 
-达里奥表示，他看到了令人担忧的迹象，表明美国经济正走向一个“混乱”时期，其特点是赤字增加、通货膨胀加剧以及人们对美国金融帝国的信心减弱。
+会上，有记者问：5月份主要经济指标已发布，请问如何评价5月份国民经济运行总体表现？
 
-在最新播出的一档播客节目中，他概述了一种美国可能陷入金融危机的情景，这主要是由于过度借贷和货币增发造成的。
+另外，当前经济运行中主要亮点有哪些？
 
-他说道：“金融危机意味着消费能力将非常有限。
+国家统计局新闻发言人、总经济师、国民经济综合统计司司长付凌晖表示，5月份，尽管国际环境复杂多变，中东地缘政治冲突外溢影响持续显现，国内部分地区出现高温多雨，冲击着市场需求和供给。
 
-”达里奥推测，在这种情况下，美国将无力承担其军事和社会支出。
+但各地区各部门有效实施更加积极有为的宏观政策，积极应对外部挑战，克服内部困难，生产供给平稳增长，新动能加快成长，就业民生保障有力，国民经济延续总体平稳、向新向优的发展态势。
 
-“你会受到很大的限制。
+具体来看有以下几个特点： 一是生产平稳增长。
 
-由于需求无法满足供给，利率将会上升，这将抑制借贷，损害市场等等。
+从农业看，今年夏粮生产形势较好，有望实现丰收。
 
-”他补充道。
+从工业看，创新引领作用增强，生产稳中有升。
 
 ## 相关推荐
 
-- 2026-06-30 02:58 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-30 03:05 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-30 02:52 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-30 03:15 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-30 03:11 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-30 02:51 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-30 03:12 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-30 02:49 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 03:15 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-30 02:49 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 03:08 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-30 02:59 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-30 02:48 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-30 03:02 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 03:15 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-30 03:15 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-30 02:57 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-30 03:11 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-30 03:04 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-30 03:03 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-30 03:02 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-30 03:10 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-30 03:24 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 03:10 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-30 03:00 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 02:58 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-30 03:09 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-30 03:04 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-30 03:03 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:57 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/584193405.shtml)
-- 2026-06-30 03:16 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/660712506.shtml)
-- 2026-06-30 03:04 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/45719254.shtml)
-- 2026-06-30 03:10 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/32696.shtml)
-- 2026-06-30 03:15 - [DRG官宣选手Akeman离队](https://www.share.kurohicncr.top/Article/details/816139.shtml)
-- 2026-06-30 03:06 - [恋与深空回应争议](http://www.share.minike.top/Article/details/415335210948.shtml)
-- 2026-06-30 03:02 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/15967803749.shtml)
-- 2026-06-30 03:11 - [上半年全国特种设备安全形势总体平稳](https://www.blog.kurohicncr.top/Article/details/894406.shtml)
-- 2026-06-30 03:15 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/686249637384.shtml)
-- 2026-06-30 03:06 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/89892349.shtml)
-- 2026-06-30 03:05 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/39730078142.shtml)
-- 2026-06-30 03:03 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/6649142.shtml)
-- 2026-06-30 03:16 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/71614.shtml)
-- 2026-06-30 02:51 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/35003079932.shtml)
-- 2026-06-30 03:17 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/061015104919.shtml)
+- 2026-06-30 03:15 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/33658962071.shtml)
+- 2026-06-30 03:01 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/195451374.shtml)
+- 2026-06-30 03:05 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/777644211608.shtml)
+- 2026-06-30 03:16 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/238620376668.shtml)
+- 2026-06-30 03:02 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/4663013734.shtml)
+- 2026-06-30 02:56 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/97760580.shtml)
+- 2026-06-30 03:04 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/5503791.shtml)
+- 2026-06-30 03:02 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/208832962623.shtml)
+- 2026-06-30 03:12 - [本届世界杯已有5名球员被控强奸](http://www.blog.minike.top/Article/details/807416193.shtml)
+- 2026-06-30 03:23 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/283261.shtml)
+- 2026-06-30 03:13 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/16673628.shtml)
+- 2026-06-30 03:14 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/00855194286.shtml)
+- 2026-06-30 03:08 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/925523233.shtml)
+- 2026-06-30 03:24 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/811274002.shtml)
+- 2026-06-30 03:23 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/39909666063.shtml)

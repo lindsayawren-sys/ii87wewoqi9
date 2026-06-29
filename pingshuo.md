@@ -1,61 +1,59 @@
-# 五家机构被剔除，微众银行入围，公开市场一级交易商名单再调整
+# 第九届中德U16青少年足球友谊赛新闻发布会举办
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-来源：华夏时报 日前，央行发布2026年公开市场业务一级交易商名单。对比2025年，2026年度一级交易商名单看似维持51家机构总数不变，实则完成了一次深刻的结构调整——中资银行席位从43家微调至41家，券商阵营从2家扩容至4家，民营银行实现零突破，外资机构实现轮换。 对此，方正证券固收首席分析师李清荷在接受《华夏时报》记者采访时表示，这是2025年考评新规落地后的首次完整名单
+中新社柏林6月16日电 曼海姆消息：第九届中德U16青少年足球友谊赛新闻发布会16日在德国曼海姆市政厅举办。 中国驻法兰克福总领事黄昳扬表示，中德U16青少年足球友谊赛既是竞技舞台也是成长课堂，为中德青少年理解不同文化、结交新的朋友提供了良好契机。该项赛事也是一项播撒友谊与梦想的“种子工程”，承载着青年之间、城市之间、两国人民之间的相互理解与尊重。总领馆期待参赛的德国青少年在中
 
 ## 正文
 
-来源：华夏时报 日前，央行发布2026年公开市场业务一级交易商名单。
+中新社柏林6月16日电 曼海姆消息：第九届中德U16青少年足球友谊赛新闻发布会16日在德国曼海姆市政厅举办。
 
-对比2025年，2026年度一级交易商名单看似维持51家机构总数不变，实则完成了一次深刻的结构调整——中资银行席位从43家微调至41家，券商阵营从2家扩容至4家，民营银行实现零突破，外资机构实现轮换。
+中国驻法兰克福总领事黄昳扬表示，中德U16青少年足球友谊赛既是竞技舞台也是成长课堂，为中德青少年理解不同文化、结交新的朋友提供了良好契机。
 
-对此，方正证券固收首席分析师李清荷在接受《华夏时报》记者采访时表示，这是2025年考评新规落地后的首次完整名单调整，核心释放两大信号。
+该项赛事也是一项播撒友谊与梦想的“种子工程”，承载着青年之间、城市之间、两国人民之间的相互理解与尊重。
 
-一是央行流动性管理告别单纯总量投放，转向精准分层、多元直达；二是货币政策框架加速向价格型转型，弱化规模导向，通过丰富交易商主体，搭建银行、券商、民营银行并行的网状传导体系，弱化单一银行渠道依赖，完善利率走廊与政策传导机制。
+总领馆期待参赛的德国青少年在中国度过精彩难忘旅程，愿继续发挥桥梁作用，支持赛事越办越好。
 
-一级交易商名单结构重构 公开市场操作是央行实施货币政策的核心工具之一，而一级交易商则是央行在公开市场上进行流动性调节的“第一站”。
+曼海姆市副市长普罗芬表示，该项赛事发端于曼海姆，已成为曼海姆推进对华友好交往、深化双方友城合作的重要纽带。
 
-只有被纳入一级交易商名单的机构，才有资格直接与央行开展回购、现券买卖等公开市场操作。
+本届赛事期间还将安排一系列丰富多彩的文化活动。
 
-这一制度设计，既保证了央行流动性投放的效率和精准度，也要求一级交易商承担起做市、传导信息、稳定市场的重要责任。
+他将随团访华，期待见证德中青少年通过足球等活动增进了解、收获友谊。
 
-不过，自1996年央行首次组建一级交易商以来，我国公开市场业务一级交易商阵营长期由商业银行主导。
+曼海姆市愿继续支持赛事举办，推动两国青少年在体育、文化和教育等领域开展更多交流。
 
 ## 相关推荐
 
-- 2026-06-30 02:48 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-30 02:53 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-30 03:13 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-30 02:56 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-30 03:13 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-30 03:12 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-30 02:50 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-30 02:55 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-30 02:58 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-30 03:06 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-30 02:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-30 03:08 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-30 03:11 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-30 03:08 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-30 03:03 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-30 03:19 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-30 03:10 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-30 03:14 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-30 02:55 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-30 03:05 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 03:06 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 03:02 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-30 03:08 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-30 03:16 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-30 03:06 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-30 02:56 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-30 02:56 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-30 02:54 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:17 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/391670321.shtml)
-- 2026-06-30 03:01 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/64645.shtml)
-- 2026-06-30 02:49 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/4948719053.shtml)
-- 2026-06-30 03:07 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/395444.shtml)
-- 2026-06-30 03:07 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/47733731.shtml)
-- 2026-06-30 03:12 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/5197912747.shtml)
-- 2026-06-30 03:17 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/98478402.shtml)
-- 2026-06-30 03:16 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/027095450292.shtml)
-- 2026-06-30 02:50 - [日本16强魔咒](http://www.blog.minike.top/Article/details/81495.shtml)
-- 2026-06-30 02:56 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/13063.shtml)
-- 2026-06-30 03:00 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/9905724340.shtml)
-- 2026-06-30 03:14 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/537213971.shtml)
-- 2026-06-30 02:57 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/743768597.shtml)
-- 2026-06-30 03:02 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/36004694327.shtml)
-- 2026-06-30 03:16 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/58974282.shtml)
+- 2026-06-30 03:03 - [点菜也要教吗](https://www.share.kurohicncr.top/Article/details/30281977.shtml)
+- 2026-06-30 03:01 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/789365216.shtml)
+- 2026-06-30 03:19 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/88266120.shtml)
+- 2026-06-30 03:15 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/480980.shtml)
+- 2026-06-30 03:23 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/324685650.shtml)
+- 2026-06-30 03:13 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/8320412972.shtml)
+- 2026-06-30 03:23 - [金刚川](https://www.share.minike.top/Article/details/69921905735.shtml)
+- 2026-06-30 03:00 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/640299.shtml)
+- 2026-06-30 03:04 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/9729724.shtml)
+- 2026-06-30 02:57 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/77646.shtml)
+- 2026-06-30 03:02 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/12560766808.shtml)
+- 2026-06-30 02:58 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/41781.shtml)
+- 2026-06-30 03:07 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/601779.shtml)
+- 2026-06-30 03:16 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/75791087682.shtml)
+- 2026-06-30 03:03 - [德约科维奇向温网对手放狠话](https://www.blog.minike.top/Article/details/7214331435.shtml)

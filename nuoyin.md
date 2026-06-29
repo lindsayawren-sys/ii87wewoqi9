@@ -1,58 +1,44 @@
-# 一艘印度船只在霍尔木兹海峡附近起火沉没 致1死4伤
+# 云天化：截至2026年6月10日公司股东人数为16.88万户
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-中新社北京5月9日电 综合消息：据印度媒体及印度驻迪拜领事馆9日消息，一艘印度木质帆船8日在霍尔木兹海峡附近起火沉没，造成1名印度水手死亡，4人受伤。 综合《印度时报》、新德里电视台以及《印度斯坦时报》等媒体消息，涉事船只7日离开迪拜前往也门一处港口。17名印度籍船员被一艘经过事发海域的船只救起，其中4人被烧伤。伤者正在迪拜接受治疗，目前情况稳定。 印度驻迪拜领事馆称，该馆工作
+证券日报网讯6月16日，云天化在互动平台回答投资者提问时表示，截至2026年6月10日，公司股东人数为16.88万户。
 
 ## 正文
 
-中新社北京5月9日电 综合消息：据印度媒体及印度驻迪拜领事馆9日消息，一艘印度木质帆船8日在霍尔木兹海峡附近起火沉没，造成1名印度水手死亡，4人受伤。
-
-综合《印度时报》、新德里电视台以及《印度斯坦时报》等媒体消息，涉事船只7日离开迪拜前往也门一处港口。
-
-17名印度籍船员被一艘经过事发海域的船只救起，其中4人被烧伤。
-
-伤者正在迪拜接受治疗，目前情况稳定。
-
-印度驻迪拜领事馆称，该馆工作人员8日晚与获救的印度公民碰面。
-
-馆方正与涉事船只的船东保持联系以核实更多细节，同时向受影响的船员提供帮助。
-
-目前，印度当局正在调查船只起火原因。
-
-(完)
+证券日报网讯6月16日，云天化在互动平台回答投资者提问时表示，截至2026年6月10日，公司股东人数为16.88万户。
 
 ## 相关推荐
 
-- 2026-06-30 03:03 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-30 02:50 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-30 03:08 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-30 03:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-30 03:16 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-30 03:12 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-30 03:06 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-30 03:01 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-30 02:48 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-30 03:00 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-30 03:03 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-30 02:59 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-30 02:59 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 03:08 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-30 03:19 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-30 03:16 - [85花告别古偶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 02:57 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 02:58 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 03:10 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-30 03:05 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-30 02:58 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 03:03 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-30 03:11 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 03:23 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:00 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/68914342.shtml)
-- 2026-06-30 03:08 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/713339458.shtml)
-- 2026-06-30 02:51 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/45487992365.shtml)
-- 2026-06-30 03:08 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/887875.shtml)
-- 2026-06-30 02:59 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/245566738.shtml)
-- 2026-06-30 03:10 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/894865.shtml)
-- 2026-06-30 03:02 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/739900043.shtml)
-- 2026-06-30 03:13 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/32182007.shtml)
-- 2026-06-30 02:55 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/37072672.shtml)
-- 2026-06-30 02:49 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/412767757.shtml)
-- 2026-06-30 02:57 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/80563922828.shtml)
-- 2026-06-30 03:17 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/69923643027.shtml)
-- 2026-06-30 02:50 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/429306221.shtml)
-- 2026-06-30 02:48 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/7524479773.shtml)
-- 2026-06-30 03:11 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/55845.shtml)
+- 2026-06-30 03:10 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/904011.shtml)
+- 2026-06-30 03:19 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/725313875047.shtml)
+- 2026-06-30 03:10 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/413848123.shtml)
+- 2026-06-30 03:05 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/5629116.shtml)
+- 2026-06-30 02:55 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/7728337397.shtml)
+- 2026-06-30 03:08 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/260988019.shtml)
+- 2026-06-30 03:18 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/11372914.shtml)
+- 2026-06-30 03:19 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/4446301.shtml)
+- 2026-06-30 03:22 - [扫黑风暴](https://www.share.minike.top/Article/details/0670960533.shtml)
+- 2026-06-30 03:17 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/09811745746.shtml)
+- 2026-06-30 02:54 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/87236348786.shtml)
+- 2026-06-30 02:57 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/5608481391.shtml)
+- 2026-06-30 03:05 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/7615358.shtml)
+- 2026-06-30 03:22 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/98071318.shtml)
+- 2026-06-30 03:23 - [巴西绝杀](http://www.blog.kurohicncr.top/Article/details/58773156.shtml)

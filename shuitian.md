@@ -1,56 +1,59 @@
-# 糖果公司阿麦斯赴港IPO：超七成收入来自海外，上市前突击十倍分红
+# 第四届深圳国际眼镜业博览会构筑光学与AI融合新坐标
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-近日，糖果公司阿麦斯食品（集团）股份有限公司（下称“阿麦斯”）向港交所正式递交上市申请书。美银证券（BofA Securities）、招商证券国际及摩根大通担任联席保荐人。这家起步于深圳的糖果企业，是一家主打创意糖果与营养软糖的中国食品企业，旗下拥有“阿麦斯”“贝欧宝”两大自有品牌。按2025年零售额计，弗若斯特沙利文数据显示，阿麦斯为最大的中国糖果公司、全球第五大软糖公司。自
+中新网深圳6月16日电 (索有为 李若瑜)第四届深圳国际眼镜业博览会暨2026首届人工智能眼镜展16日在深圳会展中心开幕。展会以“AI视界，深链未来”为主题，汇聚超300个国际采购团，联动全国8万家眼镜门店推动供需精准对接。 本届博览会为期三天，由深圳市商业联合会、深圳市AI眼镜产业联盟主办，深圳市企业服务集团龙岗企业服务有限公司承办，配套人工智能眼镜生态大会、新品首发首秀、设
 
 ## 正文
 
-近日，糖果公司阿麦斯食品（集团）股份有限公司（下称“阿麦斯”）向港交所正式递交上市申请书。
+中新网深圳6月16日电 (索有为 李若瑜)第四届深圳国际眼镜业博览会暨2026首届人工智能眼镜展16日在深圳会展中心开幕。
 
-美银证券（BofA Securities）、招商证券国际及摩根大通担任联席保荐人。
+展会以“AI视界，深链未来”为主题，汇聚超300个国际采购团，联动全国8万家眼镜门店推动供需精准对接。
 
-这家起步于深圳的糖果企业，是一家主打创意糖果与营养软糖的中国食品企业，旗下拥有“阿麦斯”“贝欧宝”两大自有品牌。
+本届博览会为期三天，由深圳市商业联合会、深圳市AI眼镜产业联盟主办，深圳市企业服务集团龙岗企业服务有限公司承办，配套人工智能眼镜生态大会、新品首发首秀、设计先锋对话、供需对接会等十余场活动。
 
-按2025年零售额计，弗若斯特沙利文数据显示，阿麦斯为最大的中国糖果公司、全球第五大软糖公司。
+“希望行业坚持创新驱动突破核心技术，加快构建全链条标准体系，丰富多元应用场景，推动产业从单品突破迈向生态构建。
 
-自有品牌收入占比超七成这家公司的前身是2004年9月在深圳注册成立的深圳市金多多食品有限公司，2026年3月改制为股份有限公司，并正式更名为阿麦斯食品（集团）股份有限公司。
+”工信部消费品工业司二级巡视员肖杜宇在开幕式上说，眼镜已从光学工具转变为智能交互载体。
 
-从阿麦斯的发展来看，其最初是依托广交会等平台做糖果外贸代工，后来为与国内同行进行差异化竞争开启自主品牌并进军欧美中高端市场。
+深圳市委原副书记、深商总会创会会长庄礼祥在致辞时回顾深圳眼镜产业完成了从制造到智造、从配件到生态的跨越。
 
-阿麦斯联合创始人、董事长马恩多曾在受访时回忆，公司创业之初发展重心集中于亚洲与非洲市场，主打中低端糖果贸易。
+他提到，依托完善的供应链与应用场景，深圳致力于打造全球AI眼镜技术、标准、产品高地。
 
-彼时的金多多尚未建立生产设施，而是采用OEM（原始设备制造商）模式，通过广交会等交易平台获取订单，随后将产品的制造任务外包给第三方生产厂家。
+意大利光学与眼镜制品制造商协会副主席达维德·德格·因切蒂·托奇说：“希望通过展会进一步加强彼此联系，增进相互理解，并推动双方产业建立长期、稳定、共赢的合作伙伴关系。
 
 ## 相关推荐
 
-- 2026-06-30 03:13 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 02:53 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 02:50 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-30 03:11 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-30 03:15 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-30 03:14 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-30 03:01 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-30 02:50 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-30 03:00 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-30 03:04 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-30 03:15 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-30 03:21 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-30 03:10 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 02:59 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-30 03:20 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-30 03:21 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-30 02:55 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-30 03:11 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-30 03:11 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-30 03:23 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-30 03:07 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-30 03:17 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-30 03:17 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:49 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/96976909.shtml)
-- 2026-06-30 03:08 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/5376432.shtml)
-- 2026-06-30 02:53 - [这几秒成世界杯最值钱广告位](https://www.blog.kurohicncr.top/Article/details/009829.shtml)
-- 2026-06-30 02:49 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.minike.top/Article/details/0129680691.shtml)
-- 2026-06-30 03:09 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/528155117.shtml)
-- 2026-06-30 02:48 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/5984040008.shtml)
-- 2026-06-30 03:16 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/621275785521.shtml)
-- 2026-06-30 02:53 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/30931384.shtml)
-- 2026-06-30 02:57 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/0092251675.shtml)
-- 2026-06-30 02:57 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/55619694597.shtml)
-- 2026-06-30 03:02 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/15214.shtml)
-- 2026-06-30 03:02 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/7969605.shtml)
-- 2026-06-30 02:58 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/727556.shtml)
-- 2026-06-30 03:04 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/267523.shtml)
-- 2026-06-30 02:59 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/8353941.shtml)
+- 2026-06-30 03:09 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/40152420299.shtml)
+- 2026-06-30 02:58 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/2208585122.shtml)
+- 2026-06-30 03:00 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/652567308248.shtml)
+- 2026-06-30 03:21 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/307329.shtml)
+- 2026-06-30 02:57 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/881871.shtml)
+- 2026-06-30 03:19 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/48756.shtml)
+- 2026-06-30 02:58 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/03109.shtml)
+- 2026-06-30 03:05 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/511695.shtml)
+- 2026-06-30 03:11 - [斗破苍穹](http://www.blog.minike.top/Article/details/480041.shtml)
+- 2026-06-30 02:58 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/6530625.shtml)
+- 2026-06-30 03:02 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/83144083.shtml)
+- 2026-06-30 03:21 - [金刚川](http://www.share.minike.top/Article/details/60131446795.shtml)
+- 2026-06-30 03:17 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/133732.shtml)
+- 2026-06-30 03:05 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/7803398.shtml)
+- 2026-06-30 03:23 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/064373081.shtml)

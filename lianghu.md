@@ -1,60 +1,60 @@
-# 哈萨克斯坦首都民众纪念卫国战争胜利81周年
+# 猪价连续下行超40个月
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-《目瑙纵歌》3爆火，这位80后北京音乐人有更大的计划香港何时能加入RCEP？还想用“双标定价”收割中国市场？国际足联该看看这些前车之鉴今年首轮高温过程来袭，之后要一直热下去了吗？一纸侨批寄深情 《给阿嬷的情书》出圈带来何种启示？一文速览俄罗斯胜利日红场阅兵：五大看点，一个变化美国黄牛半夜笑醒？有世界杯决赛三层门票标价1150万美元网购常规扣款变“贷款” 支付捆绑乱象如何整治？为
+来源：饲料行业信息网 自2022年生猪行业步入下行周期后，国内猪价连续下行超40个月，谷底震荡时长刷新历史纪录。今年4月多地生猪出栏价跌破4元/斤，全国生猪均价跌至近17年低位，漫长低价行情压垮整个养殖板块，一众上市头部猪企在一季度均出现大额亏损。针对行业这场颠覆性变局，中国农业科学院北京畜牧兽医研究所研究员朱增勇、王立刚接受访谈，结合数据与产业现状拆解本轮猪价持续低迷的深层逻
 
 ## 正文
 
-《目瑙纵歌》3爆火，这位80后北京音乐人有更大的计划香港何时能加入RCEP？
+来源：饲料行业信息网 自2022年生猪行业步入下行周期后，国内猪价连续下行超40个月，谷底震荡时长刷新历史纪录。
 
-还想用“双标定价”收割中国市场？
+今年4月多地生猪出栏价跌破4元/斤，全国生猪均价跌至近17年低位，漫长低价行情压垮整个养殖板块，一众上市头部猪企在一季度均出现大额亏损。
 
-国际足联该看看这些前车之鉴今年首轮高温过程来袭，之后要一直热下去了吗？
+针对行业这场颠覆性变局，中国农业科学院北京畜牧兽医研究所研究员朱增勇、王立刚接受访谈，结合数据与产业现状拆解本轮猪价持续低迷的深层逻辑，同时直言传统猪周期已经彻底改变，养猪行业将迎来全新发展格局。
 
-一纸侨批寄深情 《给阿嬷的情书》出圈带来何种启示？
+谈及本轮猪价长期深陷低谷的根源，朱增勇表示：“核心问题还是生猪市场供给长期处于过剩状态。
 
-一文速览俄罗斯胜利日红场阅兵：五大看点，一个变化美国黄牛半夜笑醒？
+行业有一套成熟规律，当年商品猪出栏总量，基本由上一年能繁母猪存栏规模和整体养殖效率决定。
 
-有世界杯决赛三层门票标价1150万美元网购常规扣款变“贷款” 支付捆绑乱象如何整治？
+” 他说道，2024年前三季度，即便猪价持续走低，饲料原料价格回落依旧让养殖户保有微薄利润，这也直接导致能繁母猪产能仅小幅缩水，为2025年上半年生猪出栏量居高不下埋下隐患。
 
-为啥越来越多的人开始追求“活人感”？
+直到2024年10月全行业全面陷入深度亏损，养殖场才集中加速淘汰母猪、调减产能。
 
-为什么有些人更容易上当？
+在他看来，本轮周期最鲜明的特征就是上涨周期短、下跌周期漫长，属于典型的“窄峰长坡”走势，眼下猪价虽从最低点小幅回弹，但整体始终在低位小幅震荡，很难走出强势上涨行情。
 
 ## 相关推荐
 
-- 2026-06-30 02:50 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-30 02:56 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 03:06 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-30 03:10 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-30 03:10 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-30 03:01 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-30 03:05 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-30 02:51 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-30 02:53 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-30 02:48 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-30 03:07 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 02:58 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-30 03:14 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-30 02:52 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-30 03:06 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-30 03:17 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 03:21 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-30 03:09 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-30 02:55 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-30 03:19 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-30 03:02 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-30 03:14 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-30 03:15 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-30 03:13 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-30 02:59 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-30 03:10 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 03:09 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-30 02:54 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:07 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/00880103602.shtml)
-- 2026-06-30 02:58 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/41020738711.shtml)
-- 2026-06-30 02:57 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/884779.shtml)
-- 2026-06-30 02:49 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/523554.shtml)
-- 2026-06-30 02:58 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/0659260682.shtml)
-- 2026-06-30 03:15 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/04708450852.shtml)
-- 2026-06-30 02:52 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/8005955.shtml)
-- 2026-06-30 03:15 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/707636251310.shtml)
-- 2026-06-30 02:58 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/1236992440.shtml)
-- 2026-06-30 03:17 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/257577363.shtml)
-- 2026-06-30 03:04 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/567940399338.shtml)
-- 2026-06-30 03:07 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/574604938079.shtml)
-- 2026-06-30 03:14 - [周生如故](https://www.share.minike.top/Article/details/1418082.shtml)
-- 2026-06-30 03:09 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/3078988.shtml)
-- 2026-06-30 03:10 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/4530611241.shtml)
+- 2026-06-30 02:55 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/955606959.shtml)
+- 2026-06-30 03:01 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/1432439.shtml)
+- 2026-06-30 03:01 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/2969256143.shtml)
+- 2026-06-30 03:00 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/812725217518.shtml)
+- 2026-06-30 03:13 - [流金岁月](https://www.share.minike.top/Article/details/56198610.shtml)
+- 2026-06-30 03:12 - [上半年全国特种设备安全形势总体平稳](http://www.blog.kurohicncr.top/Article/details/718311527761.shtml)
+- 2026-06-30 03:13 - [足球小将的剧本成真了](http://www.blog.minike.top/Article/details/268325695833.shtml)
+- 2026-06-30 03:01 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/9513890178.shtml)
+- 2026-06-30 03:15 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/0133195.shtml)
+- 2026-06-30 03:19 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/84751.shtml)
+- 2026-06-30 03:23 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/72068433208.shtml)
+- 2026-06-30 03:10 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/11614214.shtml)
+- 2026-06-30 03:08 - [一生一世](https://www.blog.minike.top/Article/details/904731665.shtml)
+- 2026-06-30 03:13 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/7986620145.shtml)
+- 2026-06-30 03:13 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/290571592059.shtml)

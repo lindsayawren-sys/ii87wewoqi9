@@ -1,59 +1,56 @@
-# 电工岗位被AI热潮带火，“老行当”如何讲好就业“新故事”？
+# 上海举办侨界高层次青年人才研修营 搭建科创交流桥梁
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-入行门槛低、人才需求旺，但临时用工多、站稳脚跟难 电工岗位被AI热潮带火，“老行当”如何讲好就业“新故事”？ 阅读提示 AI热潮下，一些劳动者“另寻出路”转行电工，但拿证容易入行难，部分从业者面临劳动关系不清、出事故后责任互相推诿等问题。专家表示，AI浪潮下，电工行业迎来了新的发展机遇，但若想真正吸引并留住人才，行业必须走向规范化、专业化。5月6日清晨6点半，整座城市还在苏醒中
+中新网上海6月16日电(范宇斌)近日，“相聚上海 共话明天”侨界高层次青年人才研修营暨澳大利亚青年校友上海行活动举办。 本次活动汇聚优质青年人才资源，邀请10位怀揣创新创业梦想的澳大利亚青年校友和10位深耕上海创新创业领域的侨界青年共同参与，参与人员中80%拥有博士学历。参与者涵盖新南威尔士大学、悉尼大学、帝国理工大学等知名高校博士后，以及海外科研机构、企业的研究员、工程师等各
 
 ## 正文
 
-入行门槛低、人才需求旺，但临时用工多、站稳脚跟难 电工岗位被AI热潮带火，“老行当”如何讲好就业“新故事”？
+中新网上海6月16日电(范宇斌)近日，“相聚上海 共话明天”侨界高层次青年人才研修营暨澳大利亚青年校友上海行活动举办。
 
-阅读提示 AI热潮下，一些劳动者“另寻出路”转行电工，但拿证容易入行难，部分从业者面临劳动关系不清、出事故后责任互相推诿等问题。
+本次活动汇聚优质青年人才资源，邀请10位怀揣创新创业梦想的澳大利亚青年校友和10位深耕上海创新创业领域的侨界青年共同参与，参与人员中80%拥有博士学历。
 
-专家表示，AI浪潮下，电工行业迎来了新的发展机遇，但若想真正吸引并留住人才，行业必须走向规范化、专业化。
+参与者涵盖新南威尔士大学、悉尼大学、帝国理工大学等知名高校博士后，以及海外科研机构、企业的研究员、工程师等各类高层次青年人才。
 
-5月6日清晨6点半，整座城市还在苏醒中，北京某建筑工地的电力工人冯祥已经到达施工现场。
+上海市政府侨办主任王霄汉表示，本次活动旨在搭建交流互鉴、互学共进的平台，希望侨界青年人才更深刻地走进上海、感受上海、读懂上海。
 
-写施工日志、整理工具、布设电线……和往常一样，他早早开始了一天的工作。
+上海市政府侨办将继续做好服务工作，做广大侨胞海外奋斗的后盾、回国发展的伙伴与情感链接的桥梁。
 
-这是冯祥转行做电工的第二个年头。
+活动期间，侨界青年参观了上海侨史发展陈列展，从百年侨史中汲取同心共识。
 
-近年来随着AI(人工智能)算力基础设施加速布局，电力运维等领域人才缺口持续扩大，电工岗位迎来需求爆发期，有不少像冯祥一样的人选择转行电工。
+上海交通大学细胞和基因治疗研究院院长郑颂国，上海仟寻网络科技有限公司创始人、上海市侨界专业人士联谊会专业服务委员会副主任王向导分别结合自身归国创业历程，分享爱国报国初心与创新创业实践经验。
 
-然而，记者采访发现，电工岗位真正入行并站稳脚跟，远非想象的那样轻松…… 学门技术好就业 两年前，由于经济压力，冯祥决定辞职转行。
+同时，本次活动聚焦上海城市发展与人才需求，解读城市发展机遇。
 
 ## 相关推荐
 
-- 2026-06-30 02:56 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-30 02:53 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-30 03:05 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-30 03:09 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 02:48 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-30 03:07 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-30 03:01 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-30 02:49 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-30 02:50 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-30 02:56 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-30 03:14 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-30 03:08 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-30 02:59 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 03:04 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-30 02:59 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-30 03:00 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-30 03:04 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-30 03:11 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-30 03:05 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 03:13 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-30 03:07 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-30 03:09 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-30 03:09 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:02 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/36469811538.shtml)
-- 2026-06-30 03:10 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/18708582883.shtml)
-- 2026-06-30 03:12 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/2268486.shtml)
-- 2026-06-30 02:48 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/0743081.shtml)
-- 2026-06-30 03:06 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/722879.shtml)
-- 2026-06-30 03:09 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/7276689766.shtml)
-- 2026-06-30 02:52 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/2197475.shtml)
-- 2026-06-30 03:09 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/841923279549.shtml)
-- 2026-06-30 03:08 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/409884027.shtml)
-- 2026-06-30 03:16 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/216485574349.shtml)
-- 2026-06-30 02:48 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/60917720593.shtml)
-- 2026-06-30 03:12 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/275150.shtml)
-- 2026-06-30 03:16 - [周生如故](https://www.blog.minike.top/Article/details/2920316.shtml)
-- 2026-06-30 03:16 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/7307652517.shtml)
-- 2026-06-30 02:59 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/087579.shtml)
+- 2026-06-30 03:19 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/22735.shtml)
+- 2026-06-30 03:03 - [一生一世](http://www.blog.kurohicncr.top/Article/details/4450302.shtml)
+- 2026-06-30 02:57 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/4548020668.shtml)
+- 2026-06-30 03:09 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/3447308975.shtml)
+- 2026-06-30 03:04 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/15197.shtml)
+- 2026-06-30 03:01 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/886921.shtml)
+- 2026-06-30 03:18 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/043980.shtml)
+- 2026-06-30 03:13 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/68154.shtml)
+- 2026-06-30 03:06 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/2356701659.shtml)
+- 2026-06-30 03:01 - [天道](http://www.share.kurohicncr.top/Article/details/700910.shtml)
+- 2026-06-30 02:58 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/62064.shtml)
+- 2026-06-30 03:00 - [女心理师](http://www.blog.kurohicncr.top/Article/details/99428585.shtml)
+- 2026-06-30 03:16 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/8827260.shtml)
+- 2026-06-30 03:02 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/1631668342.shtml)
+- 2026-06-30 03:22 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/497693299559.shtml)

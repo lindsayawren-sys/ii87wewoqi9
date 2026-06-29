@@ -1,60 +1,60 @@
-# 首家！法巴农银理财资产管理规模突破1000亿元
+# 特朗普在七国集团峰会会晤盟友时否认：美国不会向伊朗投入一分钱
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-来源：中国农业银行 近日，法巴农银理财有限责任公司（以下称“法巴农银理财”）资产管理规模（AUM）突破1000亿元，成为首家AUM跨越千亿大关的合资理财公司。 法巴农银理财由中国农业银行全资子公司农银理财与法国巴黎银行旗下法国巴黎资产管理公司合资设立，是农业银行贯彻落实国家关于金融高水平开放决策部署，深化国际资管合作、完善集团大资管业务布局的重要举措。自2023年开业以来，公司
+核心要点 美国总统特朗普于周二表示，在美国与伊朗签署谅解备忘录之后，美国不会向伊朗投入任何资金。 他在法国埃维昂举办的七国集团峰会间隙接受记者采访时称：“顺便说一句，我们绝不会向伊朗投资一分钱。昨天流传的相关谣言简直荒谬。即便未来某天我们有权采取相关行动，无论我或是其他方想要出台相关举措，我们都不会对伊朗进行投资。” 美国、英国、法国、德国、加拿大、意大利、日本七大发达经济体领
 
 ## 正文
 
-来源：中国农业银行 近日，法巴农银理财有限责任公司（以下称“法巴农银理财”）资产管理规模（AUM）突破1000亿元，成为首家AUM跨越千亿大关的合资理财公司。
+核心要点 美国总统特朗普于周二表示，在美国与伊朗签署谅解备忘录之后，美国不会向伊朗投入任何资金。
 
-法巴农银理财由中国农业银行全资子公司农银理财与法国巴黎银行旗下法国巴黎资产管理公司合资设立，是农业银行贯彻落实国家关于金融高水平开放决策部署，深化国际资管合作、完善集团大资管业务布局的重要举措。
+他在法国埃维昂举办的七国集团峰会间隙接受记者采访时称：“顺便说一句，我们绝不会向伊朗投资一分钱。
 
-自2023年开业以来，公司深耕中国市场，充分整合中外股东资源禀赋与专业优势，秉持客户至上和稳健经营理念，走出了一条合资理财公司开放融合、行稳致远的新路子。
+昨天流传的相关谣言简直荒谬。
 
-创新多元产品体系 满足客户需求 法巴农银理财始终将保障客户利益、提供稳健回报作为重要使命，创新推出“珐琅彩”产品体系，以珐琅青、蓝、金、紫、红五种色彩，对应不同风险收益等级的理财产品，打造梯度完整的多元产品矩阵，满足客户差异化投资需求。
+即便未来某天我们有权采取相关行动，无论我或是其他方想要出台相关举措，我们都不会对伊朗进行投资。
 
-法巴农银理财坚持稳健审慎的投资风格，遵循“合理预期、合格交付”理念，基于市场测算审慎确定产品业绩比较基准。
+” 美国、英国、法国、德国、加拿大、意大利、日本七大发达经济体领导人齐聚这座阿尔卑斯小城召开 G7 年度峰会，欧盟、乌克兰代表也受邀参会。
 
-截至目前，公司已到期的60余支封闭式理财产品兑付收益均达业绩比较基准，以稳健的投资风格和扎实的产品业绩赢得了客户信任和市场认可。
+在启程前往法国的数小时前，特朗普宣布美国与伊朗达成协议，结束双方在中东地区的战事。
 
-发挥中法股东优势 提升服务体验 法巴农银理财的快速发展，离不开中法股东的资源禀赋和农业银行的渠道优势。
+周一晚间，特朗普在其真实社交平台发文，将 “美国将向伊朗支付巨额资金” 的相关报道斥为 “假新闻”。
 
-中方股东农银理财作为国内首批成立的银行理财子公司，为合资公司带来深刻的本土市场洞察和理财产品管理经验；法方股东法巴资管提供了国际化资产管理经验和全面风险管理体系。
+这番表态针对的是此前流传的和平协议条款传闻：有消息称美方或将牵头设立一笔 3000 亿美元的伊朗投资基金。
 
 ## 相关推荐
 
-- 2026-06-30 03:12 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-30 03:08 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-30 02:53 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-30 03:17 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 02:50 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-30 03:05 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-30 02:55 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 03:11 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-30 02:48 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-30 02:53 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-30 03:06 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-30 03:00 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-30 02:52 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-30 03:11 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-30 03:09 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-30 03:12 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-30 03:13 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-30 03:00 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-30 03:20 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-30 03:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-30 03:03 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-30 03:07 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-30 03:17 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-30 02:58 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 03:12 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-30 03:23 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-30 03:12 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-30 03:21 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:00 - [一生一世](http://www.share.minike.top/Article/details/11191611.shtml)
-- 2026-06-30 03:14 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/004160.shtml)
-- 2026-06-30 03:05 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/80264.shtml)
-- 2026-06-30 03:01 - [绘画区你赢了](https://www.blog.minike.top/Article/details/0881024.shtml)
-- 2026-06-30 02:54 - [宗元舞2.0 迟来的50万女装福利](http://www.share.minike.top/Article/details/189325714790.shtml)
-- 2026-06-30 03:17 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/87946801.shtml)
-- 2026-06-30 03:02 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/548565497755.shtml)
-- 2026-06-30 02:59 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/045559096447.shtml)
-- 2026-06-30 03:00 - [流金岁月](http://www.share.kurohicncr.top/Article/details/1278993.shtml)
-- 2026-06-30 03:13 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/3004100.shtml)
-- 2026-06-30 02:51 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/073977661.shtml)
-- 2026-06-30 02:57 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/566162365.shtml)
-- 2026-06-30 03:02 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/40432759.shtml)
-- 2026-06-30 03:09 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/146873.shtml)
-- 2026-06-30 03:01 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/942296201.shtml)
+- 2026-06-30 03:23 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/924378194.shtml)
+- 2026-06-30 03:00 - [扬名立万](https://www.share.kurohicncr.top/Article/details/1133881970.shtml)
+- 2026-06-30 03:21 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/650218497284.shtml)
+- 2026-06-30 03:00 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/462314004382.shtml)
+- 2026-06-30 02:55 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/5378434080.shtml)
+- 2026-06-30 03:11 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/340292353912.shtml)
+- 2026-06-30 03:22 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/23138780578.shtml)
+- 2026-06-30 03:10 - [金牌调解](https://www.blog.minike.top/Article/details/769102.shtml)
+- 2026-06-30 03:03 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/9162772.shtml)
+- 2026-06-30 03:13 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/008505361.shtml)
+- 2026-06-30 02:59 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/8405398.shtml)
+- 2026-06-30 03:18 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/092568056.shtml)
+- 2026-06-30 03:03 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/766248408571.shtml)
+- 2026-06-30 03:04 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/51056327.shtml)
+- 2026-06-30 02:58 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/72862.shtml)

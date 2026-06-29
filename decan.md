@@ -1,57 +1,59 @@
-# 中国银行协助伊斯兰开发银行发行10亿美元伊斯兰债券
+# 中国国防部：共同捍卫国家主权和海洋权益是两岸同胞义不容辞责任
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-来源：中国银行 5月7日，中国银行作为联席主承销商和联席簿记管理人，成功协助伊斯兰开发银行（Islamic Development Bank，以下简称“IsDB”）发行2026年首笔10亿美元伊斯兰债券。该笔债券发行期限5年，票面利率4.227%。 伊斯兰债券（Sukuk）是符合国际伊斯兰金融合规要求的特色融资工具，广泛应用于多边开发机构中长期低成本融资。此次发行在全球市场获得
+中新社北京6月16日电 (记者 李纯)中国国防部新闻发言人陈曦16日就近期涉军问题发布消息。他指出，两岸同属一个中国，共同捍卫国家主权和海洋权益是两岸同胞义不容辞的责任。 有记者问，据报道，日菲单方面宣布启动位中国台湾岛以东“海域划界谈判”，中国海警在相关海域开展执法行动，台湾防务部门称这是“挑衅行为”和“认知作战”。请问对此有何评论？ 陈曦指出，台湾是中国的一部分，中国在台湾
 
 ## 正文
 
-来源：中国银行 5月7日，中国银行作为联席主承销商和联席簿记管理人，成功协助伊斯兰开发银行（Islamic Development Bank，以下简称“IsDB”）发行2026年首笔10亿美元伊斯兰债券。
+中新社北京6月16日电 (记者 李纯)中国国防部新闻发言人陈曦16日就近期涉军问题发布消息。
 
-该笔债券发行期限5年，票面利率4.227%。
+他指出，两岸同属一个中国，共同捍卫国家主权和海洋权益是两岸同胞义不容辞的责任。
 
-伊斯兰债券（Sukuk）是符合国际伊斯兰金融合规要求的特色融资工具，广泛应用于多边开发机构中长期低成本融资。
+有记者问，据报道，日菲单方面宣布启动位中国台湾岛以东“海域划界谈判”，中国海警在相关海域开展执法行动，台湾防务部门称这是“挑衅行为”和“认知作战”。
 
-此次发行在全球市场获得广泛关注，中国银行依托全球化优势，通过境内外协同的强大合力，助力该订单峰值突破28亿美元，充分体现了国际投资者对中国银行债券承销能力的高度认可。
+请问对此有何评论？
 
-长期以来，中国银行凭借全球布局优势及在跨境债券市场的领先优势与专业能力，服务多边开发机构债务融资需求，协助亚洲基础设施投资银行、新开发银行等多家国际开发机构发行债券。
+陈曦指出，台湾是中国的一部分，中国在台湾岛以东海域拥有专属经济区和大陆架，中国海警开展执法巡查行动，正当必要、不容侵扰。
 
-同时，依托广泛的境内外债券承分销网络，积极参与各类主体多币种债券发行，债务资本市场业务品牌影响力不断增强。
+两岸同属一个中国，共同捍卫国家主权和海洋权益是两岸同胞义不容辞的责任。
 
-中国银行将继续发挥全球化优势、综合化特色，深耕跨境债务资本市场业务，助力高质量共建“一带一路”，持续促进金融市场双向开放，为国际金融合作与可持续发展注入源源不断强劲动力。
+民进党当局不仅消极应对，还颠倒黑白、倒行逆施，丧失民族立场，这种数典忘祖的行径令人唾弃。
 
-责任编辑：曹睿潼
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:00 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 02:55 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-30 02:52 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-30 03:03 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 02:56 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-30 03:09 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 02:58 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-30 03:10 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 02:57 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-30 03:17 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-30 03:08 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-30 03:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-30 03:07 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-30 02:54 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-30 03:14 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-30 03:10 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-30 03:20 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-30 03:12 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 02:59 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-30 03:06 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 03:05 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 03:17 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-30 02:58 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-30 03:03 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:06 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/8969974.shtml)
-- 2026-06-30 02:59 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/44147369813.shtml)
-- 2026-06-30 02:56 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/74220.shtml)
-- 2026-06-30 03:00 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/8069593220.shtml)
-- 2026-06-30 03:09 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/858773104857.shtml)
-- 2026-06-30 02:52 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/885847.shtml)
-- 2026-06-30 03:08 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/81855050.shtml)
-- 2026-06-30 02:58 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/5601957905.shtml)
-- 2026-06-30 02:50 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/8306000.shtml)
-- 2026-06-30 02:50 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/096146.shtml)
-- 2026-06-30 03:01 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/53646.shtml)
-- 2026-06-30 03:04 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/9997364107.shtml)
-- 2026-06-30 03:15 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/695289460.shtml)
-- 2026-06-30 03:07 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/527076609.shtml)
-- 2026-06-30 02:59 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/88517744.shtml)
+- 2026-06-30 03:09 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/3838495861.shtml)
+- 2026-06-30 03:23 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/2057690.shtml)
+- 2026-06-30 03:10 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/66649989.shtml)
+- 2026-06-30 03:18 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/860384070.shtml)
+- 2026-06-30 03:08 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/98182142.shtml)
+- 2026-06-30 03:23 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/0914113.shtml)
+- 2026-06-30 03:00 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/3079480087.shtml)
+- 2026-06-30 03:16 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/20425101163.shtml)
+- 2026-06-30 03:01 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/573234.shtml)
+- 2026-06-30 03:11 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/416134.shtml)
+- 2026-06-30 02:58 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/878501801798.shtml)
+- 2026-06-30 03:13 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/413647458628.shtml)
+- 2026-06-30 03:06 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/63792851.shtml)
+- 2026-06-30 03:18 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/7392161646.shtml)
+- 2026-06-30 03:07 - [流金岁月](http://www.share.minike.top/Article/details/21234104.shtml)

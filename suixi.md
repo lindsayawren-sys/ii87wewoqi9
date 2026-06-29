@@ -1,60 +1,59 @@
-# 【每周经济观察】“两新”成绩单里的民生温度
+# 告别0.75%，日本央行利率重返1%！购债缩减却踩刹车
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-国家发展改革委近日发布一份名为《“两新”政策实施两周年成效显著》的报告，用一系列扎实数据，勾勒出大规模设备更新和消费品以旧换新政策对生产生活带来的改变，传递出政策设计背后的民生温度。 “两新”政策实施两年多来，其意义已远超单纯的“扩消费、促投资”，它更像一个从供需两端协同发力的系统工程，在促进经济稳增长的同时，持续提升亿万民众的幸福感、获得感。 这份民生温度体现在对消费扩容提质
+汇通财经APP讯——北京时间6月16日，日本央行完成了一场令全球金融市场屏息的重要决策——将政策利率由0.75%上调25个基点至1.00%，利率水平重返1995年以来的最高水位。 这是自2024年3月日本央行结束负利率政策以来的第五次加息，也是继此前连续三次会议按兵不动之后的首次行动，但并非令市场感到意外的决策。彭博此前的调查显示，受调的51位经济学家中多达49人预计本月将加息
 
 ## 正文
 
-国家发展改革委近日发布一份名为《“两新”政策实施两周年成效显著》的报告，用一系列扎实数据，勾勒出大规模设备更新和消费品以旧换新政策对生产生活带来的改变，传递出政策设计背后的民生温度。
+汇通财经APP讯——北京时间6月16日，日本央行完成了一场令全球金融市场屏息的重要决策——将政策利率由0.75%上调25个基点至1.00%，利率水平重返1995年以来的最高水位。
 
-“两新”政策实施两年多来，其意义已远超单纯的“扩消费、促投资”，它更像一个从供需两端协同发力的系统工程，在促进经济稳增长的同时，持续提升亿万民众的幸福感、获得感。
+这是自2024年3月日本央行结束负利率政策以来的第五次加息，也是继此前连续三次会议按兵不动之后的首次行动，但并非令市场感到意外的决策。
 
-这份民生温度体现在对消费扩容提质的直接回应上。
+彭博此前的调查显示，受调的51位经济学家中多达49人预计本月将加息。
 
-“两新”政策通过4500亿元超长期特别国债资金安排，撬动了超3.9万亿元的汽车、家电、数码产品销售额，直接惠及4.8亿人次。
+一、利率政策：如期加息，分歧之下一人反对 日本央行决策委员会以7票赞成、1票反对的票数通过加息决议。
 
-沉甸甸的数字背后，是亿万家庭以更低的成本实现了更多的消费迭代。
+审议委员浅田统一郎对利率决定持反对意见，他在会上指出，中东局势对生产和就业的下行风险大于物价的上行风险，央行宜维持当前的政策指引。
 
-值得一提的是，政策没有停留在简单的“汰旧”上，而是敏锐地捕捉并顺应了民众对绿色、智能、高品质生活的向往，将补贴精准导向技术更先进、能效更优的产品，使得消费升级与绿色转型同步发生。
+受加息落地影响，日经225指数期货在决议公布后几乎未有变化。
 
-对“换优”“换绿”的市场引导，既满足了当下改善生活的需求，也为节能减排目标夯实了基础。
+外汇市场上，美元兑日元短线上扬逾10点，报160.22。
 
-有数据显示，超过60%的消费者在换车时选择了新能源汽车，一级能效家电的销售额占比高达90%。
+这一汇率水平早已成为日本当局高度关注的心理关口，160附近被市场普遍视为潜在干预线。
 
 ## 相关推荐
 
-- 2026-06-30 03:14 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-30 03:16 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-30 03:17 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-30 03:06 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-30 03:02 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-30 03:03 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-30 03:05 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-30 03:15 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-30 03:05 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 03:10 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-30 02:51 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-30 03:01 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-30 03:07 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-30 03:00 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-30 03:06 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-30 02:54 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-30 03:23 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-30 03:08 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-30 03:20 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-30 02:54 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-30 03:19 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 03:16 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-30 03:12 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-30 02:55 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-30 03:20 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-30 03:13 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-30 02:56 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:08 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/4589312.shtml)
-- 2026-06-30 03:16 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/35294421.shtml)
-- 2026-06-30 03:16 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/9456528532.shtml)
-- 2026-06-30 03:01 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/97135.shtml)
-- 2026-06-30 03:13 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/14215.shtml)
-- 2026-06-30 03:13 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/243391976.shtml)
-- 2026-06-30 02:57 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/28929633923.shtml)
-- 2026-06-30 02:56 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/12742.shtml)
-- 2026-06-30 03:14 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/14803.shtml)
-- 2026-06-30 02:59 - [世界杯](http://www.blog.minike.top/Article/details/27924079310.shtml)
-- 2026-06-30 03:02 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/1468068.shtml)
-- 2026-06-30 02:50 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/15521886512.shtml)
-- 2026-06-30 02:48 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/109046.shtml)
-- 2026-06-30 03:16 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/026009929.shtml)
-- 2026-06-30 02:57 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/6469919.shtml)
+- 2026-06-30 03:19 - [新官上任三把火](https://www.share.minike.top/Article/details/77971.shtml)
+- 2026-06-30 02:59 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/348595884.shtml)
+- 2026-06-30 03:11 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.minike.top/Article/details/2087656.shtml)
+- 2026-06-30 03:15 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/3748047.shtml)
+- 2026-06-30 03:17 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/26720099.shtml)
+- 2026-06-30 03:09 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/3990549.shtml)
+- 2026-06-30 02:57 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/221608735029.shtml)
+- 2026-06-30 03:22 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/3340514080.shtml)
+- 2026-06-30 03:23 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/682318608160.shtml)
+- 2026-06-30 02:59 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/812727036.shtml)
+- 2026-06-30 03:18 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/709847.shtml)
+- 2026-06-30 03:05 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/7835423552.shtml)
+- 2026-06-30 03:14 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/347030361.shtml)
+- 2026-06-30 03:04 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/773958828.shtml)
+- 2026-06-30 03:03 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/555781129896.shtml)

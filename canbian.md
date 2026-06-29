@@ -1,50 +1,61 @@
-# OPPO就母亲节文案致歉：已第一时间下架全部相关物料，全面审查内容审核机制
+# 新疆首批地产樱桃直供香港
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-新浪科技讯 5月8日下午消息，OPPO官微今日发布声明称，关于本次母亲节宣传文案引起的争议，诚恳表示歉意。 声明称，“我们的创作初衷，是希望打破刻板印象，呈现更多元、更立体的当代母亲形象：母亲可以热爱马拉松，可以沉浸文字创作，也可以拥有自己的追星爱好。我们已第一时间下架全部相关物料。我们将认真倾听各方批评，全面审查内容审核机制，确保此类问题不再发生。” 责任编辑：刘万里 SF0
+中新社乌鲁木齐6月16日电 (胡嘉琛)记者16日从喀什海关获悉，一批产自新疆喀什地区的优质樱桃，经冷链运输至深圳的口岸后运往香港。这是新疆首批地产樱桃直供香港。 喀什地区地处新疆南部，光热资源丰富、昼夜温差大，产出的樱桃汁水丰盈、甜度出众。 “在高效通关与冷链物流双重保障下，香港民众可以品尝到新疆鲜果的风味。”销售此批樱桃的喀什市一家合作社负责人高起方说。 据悉，喀什海关指导企
 
 ## 正文
 
-新浪科技讯 5月8日下午消息，OPPO官微今日发布声明称，关于本次母亲节宣传文案引起的争议，诚恳表示歉意。
+中新社乌鲁木齐6月16日电 (胡嘉琛)记者16日从喀什海关获悉，一批产自新疆喀什地区的优质樱桃，经冷链运输至深圳的口岸后运往香港。
 
-声明称，“我们的创作初衷，是希望打破刻板印象，呈现更多元、更立体的当代母亲形象：母亲可以热爱马拉松，可以沉浸文字创作，也可以拥有自己的追星爱好。
+这是新疆首批地产樱桃直供香港。
 
-我们已第一时间下架全部相关物料。
+喀什地区地处新疆南部，光热资源丰富、昼夜温差大，产出的樱桃汁水丰盈、甜度出众。
 
-我们将认真倾听各方批评，全面审查内容审核机制，确保此类问题不再发生。
+“在高效通关与冷链物流双重保障下，香港民众可以品尝到新疆鲜果的风味。
 
-” 责任编辑：刘万里 SF014
+”销售此批樱桃的喀什市一家合作社负责人高起方说。
+
+据悉，喀什海关指导企业完成出境水果果园注册登记，并协助建立质量追溯体系，确保果品来源可查、去向可追，符合香港食品安全标准。
+
+喀什海关稽查处处长杨晓怡称，截至今年5月，喀什海关累计帮助19家企业完成供港水果包装厂及出境水果果园注册登记，助力当地企业开拓粤港澳大湾区市场、深化两地经贸合作。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:48 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-30 03:14 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 02:59 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-30 03:04 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-30 03:08 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-30 03:12 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-30 03:11 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 03:09 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-30 02:54 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-30 03:11 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-30 03:05 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-30 02:59 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-30 03:11 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-30 03:20 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-30 03:19 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-30 03:22 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-30 03:09 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-30 03:01 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-30 03:01 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-30 03:17 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-30 03:09 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-30 02:55 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-30 03:20 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-30 03:01 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-30 03:01 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:50 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/96311.shtml)
-- 2026-06-30 02:57 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/6199342917.shtml)
-- 2026-06-30 02:59 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/080498932799.shtml)
-- 2026-06-30 03:15 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/6441592.shtml)
-- 2026-06-30 03:06 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/9682226.shtml)
-- 2026-06-30 02:57 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/76134.shtml)
-- 2026-06-30 02:54 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/54166.shtml)
-- 2026-06-30 03:03 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/015307621679.shtml)
-- 2026-06-30 03:03 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/16012613.shtml)
-- 2026-06-30 03:09 - [DeepSeek V4正式版要来了](https://www.blog.minike.top/Article/details/03405270.shtml)
-- 2026-06-30 03:08 - [绘画区你赢了](http://www.share.minike.top/Article/details/40254164.shtml)
-- 2026-06-30 03:05 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/87121260596.shtml)
-- 2026-06-30 02:52 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/14733.shtml)
-- 2026-06-30 02:55 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/746881231.shtml)
-- 2026-06-30 03:17 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/457974767141.shtml)
+- 2026-06-30 03:07 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/743301.shtml)
+- 2026-06-30 03:03 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/51754.shtml)
+- 2026-06-30 03:15 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/253098.shtml)
+- 2026-06-30 03:17 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/022466.shtml)
+- 2026-06-30 02:58 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/50720984403.shtml)
+- 2026-06-30 03:03 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/298755.shtml)
+- 2026-06-30 03:12 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/902262630.shtml)
+- 2026-06-30 02:55 - [月亮](http://www.blog.minike.top/Article/details/88371097.shtml)
+- 2026-06-30 03:16 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/391092032.shtml)
+- 2026-06-30 02:59 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/68761.shtml)
+- 2026-06-30 02:56 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/69148765894.shtml)
+- 2026-06-30 03:03 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/878920146.shtml)
+- 2026-06-30 03:12 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/10539.shtml)
+- 2026-06-30 03:06 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/72756648129.shtml)
+- 2026-06-30 02:56 - [沙丘](https://www.blog.minike.top/Article/details/400414.shtml)

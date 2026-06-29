@@ -1,58 +1,56 @@
-# Alpha Tau新型放射疗法在美国完成临床试验患者招募
+# 刘国中出席非洲应对埃博拉疫情特别视频峰会并致辞
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-以色列医疗企业Alpha Tau Medical Ltd．今日宣布，其评估新型放射疗法Alpha DaRT治疗复发性皮肤鳞状细胞癌（cSCC）的美国多中心关键临床试验（ReSTART）已完成全部88名患者招募。这标志着该疗法向获取美国食品和药物管理局（FDA）上市前审批（PMA）迈进重要阶段。 ReSTART试验是一项前瞻性、多中心、单臂的开放标签研究。入组者均为活检确诊的复发
+新华社银川6月16日电(记者邹欣媛)6月16日，中共中央政治局委员、国务院副总理刘国中应邀出席非洲应对埃博拉疫情特别视频峰会并致辞。 刘国中表示，习近平主席提出构建人类命运共同体重要理念，倡导构建人类卫生健康共同体，为国际抗疫合作指明了方向。中非从来都是命运共同体。中方已向刚果(金)和非洲联盟提供紧急人道主义援助，向刚果(金)派遣医疗专家组，近千名医疗队专业人员会同非洲民众并肩
 
 ## 正文
 
-以色列医疗企业Alpha Tau Medical Ltd．今日宣布，其评估新型放射疗法Alpha DaRT治疗复发性皮肤鳞状细胞癌（cSCC）的美国多中心关键临床试验（ReSTART）已完成全部88名患者招募。
+新华社银川6月16日电(记者邹欣媛)6月16日，中共中央政治局委员、国务院副总理刘国中应邀出席非洲应对埃博拉疫情特别视频峰会并致辞。
 
-这标志着该疗法向获取美国食品和药物管理局（FDA）上市前审批（PMA）迈进重要阶段。
+刘国中表示，习近平主席提出构建人类命运共同体重要理念，倡导构建人类卫生健康共同体，为国际抗疫合作指明了方向。
 
-ReSTART试验是一项前瞻性、多中心、单臂的开放标签研究。
+中非从来都是命运共同体。
 
-入组者均为活检确诊的复发性cSCC患者，其既往一线标准治疗均告失败，且已不适用外科手术、常规放疗或根治性系统性治疗。
+中方已向刚果(金)和非洲联盟提供紧急人道主义援助，向刚果(金)派遣医疗专家组，近千名医疗队专业人员会同非洲民众并肩抗疫。
 
-该研究共同主要终点设定为客观缓解率（ORR）以及自初次观察到缓解起持续六个月的缓解持续时间（DOR）。
+中方将在中非合作论坛框架内，落实好中非卫生健康伙伴行动，呼吁国际社会加强团结合作、向非洲提供更多支持。
 
-随着招募工作结束，该研究正式转入随访与数据采集期。
-
-皮肤鳞状细胞癌是全球发病率第二的皮肤癌类型。
-
-针对传统手术和常规疗法无法控制的复发病例，临床存在显著的未满足需求。
+峰会由非盟轮值主席、布隆迪总统恩达伊施米耶主持，南非、赤道几内亚、津巴布韦等十余个非洲国家元首和政府首脑，以及世界卫生组织等国际和地区组织、非洲域外伙伴代表等参会。
 
 ## 相关推荐
 
-- 2026-06-30 02:51 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-30 02:52 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-30 03:01 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-30 02:57 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-30 03:01 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 03:16 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-30 03:04 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-30 03:13 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-30 02:55 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-30 03:15 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-30 03:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-30 02:50 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-30 03:04 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-30 03:00 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-30 03:22 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-30 03:23 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-30 03:02 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-30 02:56 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-30 03:11 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-30 03:05 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-30 03:23 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-30 03:16 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-30 03:12 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-30 03:12 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-30 03:16 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-30 03:10 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:07 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/026299.shtml)
-- 2026-06-30 03:12 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/279573811618.shtml)
-- 2026-06-30 02:56 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/094911627722.shtml)
-- 2026-06-30 02:59 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/493015829557.shtml)
-- 2026-06-30 02:55 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/62679907.shtml)
-- 2026-06-30 02:54 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/1536317532.shtml)
-- 2026-06-30 03:07 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/3110098580.shtml)
-- 2026-06-30 03:00 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/3273438637.shtml)
-- 2026-06-30 02:51 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/419717788161.shtml)
-- 2026-06-30 03:04 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/54422776.shtml)
-- 2026-06-30 03:11 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/402731180.shtml)
-- 2026-06-30 03:09 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/937115921044.shtml)
-- 2026-06-30 02:49 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/03837.shtml)
-- 2026-06-30 03:16 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.kurohicncr.top/Article/details/9006915.shtml)
-- 2026-06-30 02:55 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/51770977.shtml)
+- 2026-06-30 03:22 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/6663337384.shtml)
+- 2026-06-30 03:17 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/43384.shtml)
+- 2026-06-30 03:14 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/952981.shtml)
+- 2026-06-30 03:20 - [沙丘](http://www.blog.kurohicncr.top/Article/details/130052470509.shtml)
+- 2026-06-30 03:00 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/42616143.shtml)
+- 2026-06-30 03:11 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/0367678.shtml)
+- 2026-06-30 02:57 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/421084534090.shtml)
+- 2026-06-30 03:08 - [田曦薇没招了](http://www.share.minike.top/Article/details/20365485.shtml)
+- 2026-06-30 03:18 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/9790066.shtml)
+- 2026-06-30 03:04 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/0465593675.shtml)
+- 2026-06-30 02:57 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/5289944951.shtml)
+- 2026-06-30 02:54 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/00528.shtml)
+- 2026-06-30 02:56 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/562841.shtml)
+- 2026-06-30 02:55 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/30035.shtml)
+- 2026-06-30 02:54 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/352647001.shtml)

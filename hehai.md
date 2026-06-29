@@ -1,57 +1,57 @@
-# （近观中国）政绩观｜习近平：政策好不好，要看乡亲们是哭还是笑
+# 国家统计局：5月份一二三线城市商品住宅销售价格同比降幅总体收窄
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-中新社北京5月9日电 题：习近平：政策好不好，要看乡亲们是哭还是笑 中新社记者 国璇 “党中央制定的政策好不好，要看乡亲们是哭还是笑。要是笑，就说明政策好。要是有人哭，我们就要注意，需要改正的就要改正，需要完善的就要完善。” 2015年，中共中央总书记、国家主席、中央军委主席习近平在贵州调研时强调，“群众拥护不拥护是我们检验工作的重要标准”，道出了为民造福是最大政绩的根本遵循。
+中新网6月16日电 据国家统计局网站消息，国家统计局城市司高级统计师杨彩芳解读2026年5月份商品住宅销售价格变动情况统计数据指出，2026年5月份，70个大中城市中，一线城市商品住宅销售价格环比上涨，二三线城市环比下降，一二三线城市同比降幅总体收窄。新建商品住宅销售价格环比上涨城市个数比上月增加。一、一线城市商品住宅销售价格环比上涨，二三线城市环比下降 5月份，一线城市新建商
 
 ## 正文
 
-中新社北京5月9日电 题：习近平：政策好不好，要看乡亲们是哭还是笑 中新社记者 国璇 “党中央制定的政策好不好，要看乡亲们是哭还是笑。
+中新网6月16日电 据国家统计局网站消息，国家统计局城市司高级统计师杨彩芳解读2026年5月份商品住宅销售价格变动情况统计数据指出，2026年5月份，70个大中城市中，一线城市商品住宅销售价格环比上涨，二三线城市环比下降，一二三线城市同比降幅总体收窄。
 
-要是笑，就说明政策好。
+新建商品住宅销售价格环比上涨城市个数比上月增加。
 
-要是有人哭，我们就要注意，需要改正的就要改正，需要完善的就要完善。
+一、一线城市商品住宅销售价格环比上涨，二三线城市环比下降 5月份，一线城市新建商品住宅销售价格环比上涨0.2%，涨幅比上月扩大0.1个百分点。
 
-” 2015年，中共中央总书记、国家主席、中央军委主席习近平在贵州调研时强调，“群众拥护不拥护是我们检验工作的重要标准”，道出了为民造福是最大政绩的根本遵循。
+其中，上海、广州和深圳分别上涨0.2%、0.2%和0.4%，北京下降0.2%。
 
-为什么人的问题，是政绩观的首要问题，检验着一个政党的执政宗旨。
+二线城市新建商品住宅销售价格环比下降0.1%，降幅与上月相同。
 
-现实中，一些干部脱离群众、脱离实际，盲目决策、急功近利，“为人民服务”只停留在口号上，搞华而不实、劳民伤财的“形象工程”“政绩工程”。
+三线城市新建商品住宅销售价格环比下降0.4%，降幅比上月扩大0.1个百分点。
 
-这里面有短期利益与长期利益、局部利益与全局利益等关系问题，但归根结底是政绩观发生扭曲和偏差。
+70个大中城市中，新建商品住宅销售价格环比上涨城市有16个，比上月增加2个。
 
-习近平曾指出，“以百姓心为心，与人民同呼吸、共命运、心连心，是党的初心，也是党的恒心”。
+5月份，一线城市二手住宅销售价格环比上涨0.4%，涨幅与上月相同。
 
 ## 相关推荐
 
-- 2026-06-30 03:12 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-30 03:13 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 03:03 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-30 02:50 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-30 03:13 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-30 03:09 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-30 03:04 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-30 03:16 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-30 02:49 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-30 02:50 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-30 02:59 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-30 03:18 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 03:06 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 03:22 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 03:14 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-30 03:04 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-30 02:56 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 03:06 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-30 03:06 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-30 03:10 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 03:19 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-30 03:17 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:14 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/930944.shtml)
-- 2026-06-30 03:16 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/73935.shtml)
-- 2026-06-30 03:09 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/550921572.shtml)
-- 2026-06-30 02:56 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/08624046.shtml)
-- 2026-06-30 03:10 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/01253.shtml)
-- 2026-06-30 02:53 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/942453277334.shtml)
-- 2026-06-30 02:50 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/12274.shtml)
-- 2026-06-30 03:17 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/5446410.shtml)
-- 2026-06-30 03:11 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/087843556976.shtml)
-- 2026-06-30 03:08 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/2474320.shtml)
-- 2026-06-30 03:04 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/77039.shtml)
-- 2026-06-30 03:09 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/375791.shtml)
-- 2026-06-30 03:15 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/76352116.shtml)
-- 2026-06-30 02:53 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/523017963181.shtml)
-- 2026-06-30 03:14 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/529310000870.shtml)
+- 2026-06-30 03:04 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/76120.shtml)
+- 2026-06-30 03:23 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/4261545.shtml)
+- 2026-06-30 03:14 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/155210001.shtml)
+- 2026-06-30 02:57 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/62088069.shtml)
+- 2026-06-30 03:19 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/5562829.shtml)
+- 2026-06-30 03:10 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/6951820714.shtml)
+- 2026-06-30 03:20 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/3674081837.shtml)
+- 2026-06-30 03:07 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/33843.shtml)
+- 2026-06-30 03:03 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/3315895466.shtml)
+- 2026-06-30 03:17 - [蔚来车主罚站](https://www.share.minike.top/Article/details/08680519.shtml)
+- 2026-06-30 03:22 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/7524672.shtml)
+- 2026-06-30 03:13 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/779800.shtml)
+- 2026-06-30 03:05 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/75882129.shtml)
+- 2026-06-30 03:16 - [金刚川](http://www.blog.kurohicncr.top/Article/details/460737740.shtml)
+- 2026-06-30 03:18 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.minike.top/Article/details/295346128876.shtml)

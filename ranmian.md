@@ -1,60 +1,57 @@
-# 新疆锚定“十五五”时期民生福祉：稳就业、优服务、强保障
+# 上海：防灾减灾不过度依赖硬性工程 系统性增强城市韧性
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-中新网乌鲁木齐5月9日电 (胡嘉琛)新疆维吾尔自治区人民政府党组成员、秘书长王岿然9日在乌鲁木齐表示，“十五五”时期，新疆将始终锚定人民幸福，持续完善普惠性、基础性、兜底性民生建设，通过稳定扩大就业、优化公共服务、强化社会保障三大举措，让高质量发展成果惠及民众。当日，新疆维吾尔自治区人民政府新闻办公室举行“开局起步‘十五五’”新疆专场新闻发布会。据王岿然介绍，过去五年，新疆地区
+中新网上海6月17日电 (记者 陈静)记者17日采访获悉，面对全球气候变暖引发的极端天气多发、城市复合型风险加剧的现实，上海跳出传统防灾减灾过度依赖硬性工程的单一思维，以系统性治理理念统筹城市韧性建设与生态发展。上海搭建跨部门协同工作机制，逐步形成闭环式、常态化的气候治理运行模式，实现气候风险管理从零散管控走向规范化、系统化治理。 立足超大城市禀赋与风险特征，上海将适应气候变化
 
 ## 正文
 
-中新网乌鲁木齐5月9日电 (胡嘉琛)新疆维吾尔自治区人民政府党组成员、秘书长王岿然9日在乌鲁木齐表示，“十五五”时期，新疆将始终锚定人民幸福，持续完善普惠性、基础性、兜底性民生建设，通过稳定扩大就业、优化公共服务、强化社会保障三大举措，让高质量发展成果惠及民众。
+中新网上海6月17日电 (记者 陈静)记者17日采访获悉，面对全球气候变暖引发的极端天气多发、城市复合型风险加剧的现实，上海跳出传统防灾减灾过度依赖硬性工程的单一思维，以系统性治理理念统筹城市韧性建设与生态发展。
 
-当日，新疆维吾尔自治区人民政府新闻办公室举行“开局起步‘十五五’”新疆专场新闻发布会。
+上海搭建跨部门协同工作机制，逐步形成闭环式、常态化的气候治理运行模式，实现气候风险管理从零散管控走向规范化、系统化治理。
 
-据王岿然介绍，过去五年，新疆地区生产总值年均增长5.9%，全体居民人均可支配收入年均增长6.6%。
+立足超大城市禀赋与风险特征，上海将适应气候变化纳入生态文明建设与城市治理现代化全局。
 
-展望未来五年，新疆将把稳就业作为首要民生工程。
+相关部门优先选取水资源、能源、交通、人居环境等上海受气候变化影响较大的领域实施基础设施适应气候变化能力提升项目；在海洋及海岸带、陆地生态系统、综合防灾减灾等方面，进一步加大适应气候变化措施力度。
 
-王岿然表示，新疆将锚定年均新增城镇就业47万人以上的目标，通过加强产业与就业协同、出台稳就业政策、完善重点群体就业支持体系等举措，多渠道促进民众增收。
+同时，上海加快构建“气候系统观测—影响风险评估—采取适应行动—行动效果评估”闭环工作体系；积极开展区域适应气候变化行动试点，在临港新片区、崇明世界级生态岛以及五个新城安排适应气候变化重点项目。
 
-在提升公共服务“温度”方面，新疆将推动基础教育扩优提质、高等教育提质扩容，力争将劳动年龄人口平均受教育年限努力提高至11.7年。
+以“绿色转型，全民同行”为主题的2026年全国低碳日·上海市主场活动当日举办。
 
-医疗健康领域，新疆将深入实施医疗卫生强基工程，构建县乡村三级养老服务网络，目标到2030年，人均预期寿命达到79岁。
+活动由上海市生态环境局、静安区人民政府主办，上海市节能减排中心、静安区生态环境局等单位承办。
 
-此外，新疆还将通过健全多层次社会保障体系，进一步厚植民生“幸福成色”。
+据了解，结合气候特征，上海建立起基于天气气候的流感、腹泻、手足口病预警预报模型，基于蚊虫观测建立了全市/分区的蚊虫密度预测模型。
 
 ## 相关推荐
 
-- 2026-06-30 03:17 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 02:58 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-30 03:07 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 02:56 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-30 02:53 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 03:10 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-30 02:49 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-30 03:17 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-30 03:03 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-30 02:58 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-30 03:01 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-30 02:55 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-30 02:53 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-30 03:02 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-30 03:21 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 03:04 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 03:14 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-30 03:05 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 03:04 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-30 03:05 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-30 03:23 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-30 03:19 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-30 03:05 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 03:14 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-30 03:20 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:05 - [世界杯](http://www.blog.kurohicncr.top/Article/details/904176.shtml)
-- 2026-06-30 02:56 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/87543.shtml)
-- 2026-06-30 03:16 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/02832316653.shtml)
-- 2026-06-30 02:55 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/9732829.shtml)
-- 2026-06-30 03:08 - [日本进球](http://www.share.minike.top/Article/details/90329451.shtml)
-- 2026-06-30 03:17 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/265951386552.shtml)
-- 2026-06-30 02:55 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/2510161245.shtml)
-- 2026-06-30 03:05 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/388690344.shtml)
-- 2026-06-30 02:55 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/846028763490.shtml)
-- 2026-06-30 02:50 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/737159052.shtml)
-- 2026-06-30 02:50 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/2607780.shtml)
-- 2026-06-30 03:14 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/7362665224.shtml)
-- 2026-06-30 02:58 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/6132484652.shtml)
-- 2026-06-30 02:54 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/4409908244.shtml)
-- 2026-06-30 03:00 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/62885682940.shtml)
+- 2026-06-30 03:20 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/29892176.shtml)
+- 2026-06-30 03:16 - [美人鱼](http://www.blog.minike.top/Article/details/4047452570.shtml)
+- 2026-06-30 03:15 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/365209036.shtml)
+- 2026-06-30 03:09 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/7571030.shtml)
+- 2026-06-30 02:59 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/912573.shtml)
+- 2026-06-30 03:07 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/8112402321.shtml)
+- 2026-06-30 03:16 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/06878614.shtml)
+- 2026-06-30 03:03 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/6952773263.shtml)
+- 2026-06-30 03:00 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/17995804271.shtml)
+- 2026-06-30 03:01 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/2490373052.shtml)
+- 2026-06-30 02:55 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/58513865117.shtml)
+- 2026-06-30 03:00 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/12661980804.shtml)
+- 2026-06-30 03:14 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/0776663.shtml)
+- 2026-06-30 03:01 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/301960.shtml)
+- 2026-06-30 03:03 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/190357199.shtml)

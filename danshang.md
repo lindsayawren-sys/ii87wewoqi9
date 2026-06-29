@@ -1,47 +1,60 @@
-# 勇立潮头大湾区丨APEC记者来湾区 追着中国企业问什么？
+# 选择新鲜食材，保障存储安全
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-来自APEC成员经济体的 16名外媒记者 近日沉浸式打卡大湾区名企 触摸中国企业创新脉动 全程充满好奇与惊喜 创新·升级 当秘鲁记者埃利亚斯 得知格力电器在巴西 年产100万套空调 销售网点遍及27个州 产品拓展至全品类智能家电时 他立刻现场找到总台记者 请求帮忙对接企业负责人 “真希望你们加快布局南美市场 让更多智能产品进入秘鲁 带动整个家电市场提质升级” 随后，埃利亚斯在比
+选择新鲜食材，保障存储安全丨健康素养加油站 “健康素养66条”之“生、熟食品要分开存放和加工，生吃蔬菜水果要洗净，不吃变质、超过保质期的食品”。 选择新鲜食材是保证饮食安全的关键。学会辨别和采购新鲜、卫生的食材，是从源头上把控饮食安全的第一关。 合理储存食物、生熟分开存放和加工食物合理存储的目的是保持新鲜，避免污染。对于粮食、干果类食物而言，在低温、避光、通风和干燥的地方保存即
 
 ## 正文
 
-来自APEC成员经济体的 16名外媒记者 近日沉浸式打卡大湾区名企 触摸中国企业创新脉动 全程充满好奇与惊喜 创新·升级 当秘鲁记者埃利亚斯 得知格力电器在巴西 年产100万套空调 销售网点遍及27个州 产品拓展至全品类智能家电时 他立刻现场找到总台记者 请求帮忙对接企业负责人 “真希望你们加快布局南美市场 让更多智能产品进入秘鲁 带动整个家电市场提质升级” 随后，埃利亚斯在比亚迪总部 挑战全球速度最快 已实现量产的纯电跑车 最高速度达496.22km/h 零百加速2.3秒的炫酷漂移 他惊叹中国新电池技术与 新能源汽车的飞速发展 “这是我人生中体验过的最快速度” 比亚迪的新能源汽车 已经销往APEC多个成员经济体 泰国、印尼、新加坡、墨西哥等 都是其重要市场 泰国记者迪坦对此深有同感 他说：“比亚迪在泰国建厂 年产能达15万辆 为当地创造就业岗位 更
+选择新鲜食材，保障存储安全丨健康素养加油站 “健康素养66条”之“生、熟食品要分开存放和加工，生吃蔬菜水果要洗净，不吃变质、超过保质期的食品”。
 
-来源：大湾区之声
+选择新鲜食材是保证饮食安全的关键。
+
+学会辨别和采购新鲜、卫生的食材，是从源头上把控饮食安全的第一关。
+
+合理储存食物、生熟分开存放和加工食物合理存储的目的是保持新鲜，避免污染。
+
+对于粮食、干果类食物而言，在低温、避光、通风和干燥的地方保存即可。
+
+平时要注意防尘、防蝇、防鼠、防虫及防止霉变。
+
+不建议家庭大量存储粮食、干果类食品。
+
+家庭采购时，应结合家庭成员情况，按月或按季度做采购计划，并注意食品的保存条件和保质期。
 
 ## 相关推荐
 
-- 2026-06-30 02:56 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-30 03:16 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-30 03:16 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-30 02:59 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-30 03:00 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-30 03:07 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-30 03:04 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-30 03:02 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-30 03:12 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-30 03:14 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-30 02:50 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 02:54 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-30 03:09 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-30 03:13 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-30 02:55 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 03:22 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-30 03:23 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 03:06 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 03:20 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-30 03:04 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-30 02:59 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-30 03:05 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-30 03:11 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-30 02:55 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 02:55 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-30 03:03 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-30 02:57 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:56 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/658995388797.shtml)
-- 2026-06-30 02:58 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/98920152031.shtml)
-- 2026-06-30 03:15 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/7724937.shtml)
-- 2026-06-30 03:04 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/89852121.shtml)
-- 2026-06-30 03:12 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/944909895.shtml)
-- 2026-06-30 02:52 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/715828153.shtml)
-- 2026-06-30 02:59 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/268754605.shtml)
-- 2026-06-30 03:15 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/879616549422.shtml)
-- 2026-06-30 02:56 - [日本16强魔咒](http://www.share.minike.top/Article/details/508448043526.shtml)
-- 2026-06-30 02:51 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/0104560517.shtml)
-- 2026-06-30 03:14 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/9789061.shtml)
-- 2026-06-30 02:58 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/022333262.shtml)
-- 2026-06-30 02:50 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/748334.shtml)
-- 2026-06-30 03:13 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/985182931497.shtml)
-- 2026-06-30 02:58 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/2837950.shtml)
+- 2026-06-30 03:10 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/749787.shtml)
+- 2026-06-30 02:57 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/246238376009.shtml)
+- 2026-06-30 02:54 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/583592.shtml)
+- 2026-06-30 03:19 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/690058936.shtml)
+- 2026-06-30 03:13 - [绘画区你赢了](http://www.blog.minike.top/Article/details/6465375338.shtml)
+- 2026-06-30 03:09 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/794408.shtml)
+- 2026-06-30 02:57 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/76694352.shtml)
+- 2026-06-30 03:13 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/56260.shtml)
+- 2026-06-30 03:18 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/70443894.shtml)
+- 2026-06-30 03:10 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/174819431.shtml)
+- 2026-06-30 03:22 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/486403.shtml)
+- 2026-06-30 03:23 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/256062476639.shtml)
+- 2026-06-30 03:22 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/201106754005.shtml)
+- 2026-06-30 03:21 - [爱很美味](http://www.blog.minike.top/Article/details/69034930.shtml)
+- 2026-06-30 02:54 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/221626335.shtml)

@@ -1,57 +1,58 @@
-# 铁海联运+江海联运 平陆运河成我国西部对外联通“大动脉”
+# 预测市场交易员押注Anthropic或将很快恢复Fable 5的使用权限
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-平陆运河是西部陆海新通道的骨干工程，位于广西，全长134.2公里，是新中国第一条通江达海的大运河，今年9月将全线通航。 距离出海口最近的运河枢纽——青年枢纽，从5月1日开始引水，今天(8日)引水完成，船闸开始密封检查，枢纽有水调试进入通航前的关键阶段。 作为西部陆海新通道的骨干工程，这条通江达海的运河与西部陆海新通道之间有着怎样的紧密联系？平陆运河如何能激活西部陆海新通道潜能？
+核心要点 人工智能巨头 Anthropic 上周五晚间官宣，为遵守美国政府的监管指令，公司关停了 Fable 5、Mythos 5 两款大模型的公开访问权限，这一举措令业内大为震惊。 不过预测交易平台卡尔希的交易员认为，Fable 系列模型大概率最快将于 7 月重新对美国普通用户开放。 交易数据显示，市场测算该公司在 7 月 1 日前恢复 Fable 5 访问权限的概率为 58
 
 ## 正文
 
-平陆运河是西部陆海新通道的骨干工程，位于广西，全长134.2公里，是新中国第一条通江达海的大运河，今年9月将全线通航。
+核心要点 人工智能巨头 Anthropic 上周五晚间官宣，为遵守美国政府的监管指令，公司关停了 Fable 5、Mythos 5 两款大模型的公开访问权限，这一举措令业内大为震惊。
 
-距离出海口最近的运河枢纽——青年枢纽，从5月1日开始引水，今天(8日)引水完成，船闸开始密封检查，枢纽有水调试进入通航前的关键阶段。
+不过预测交易平台卡尔希的交易员认为，Fable 系列模型大概率最快将于 7 月重新对美国普通用户开放。
 
-作为西部陆海新通道的骨干工程，这条通江达海的运河与西部陆海新通道之间有着怎样的紧密联系？
+交易数据显示，市场测算该公司在 7 月 1 日前恢复 Fable 5 访问权限的概率为 58%；若放宽至 7 月 10 日，恢复权限的概率则升至 74%。
 
-平陆运河如何能激活西部陆海新通道潜能？
+只有当该 模型面向美国所有用户全面重新开放，这份事件预测合约才能判定为 “预测成立”。
 
-一个小片了解一下。
+美国政府要求 Anthropic 禁止所有外籍人员使用该 AI 技术，无论外籍用户身处美国境内还是海外。
 
-正在建设中的平陆运河，是加快建设交通强国的标志性工程。
+为确保合规落地，Anthropic 最终选择暂时对全部用户关停 Fable 5 模型访问通道。
 
-作为新中国成立以来建设的第一条通江达海的大运河，平陆运河2022年8月28日正式开工，全长134.2公里，预计2026年建成通航。
+就在该模型正式发布数日之后，这一监管限制便接踵而至。
 
-平陆运河是西部陆海新通道的骨干工程，与西部陆海新通道是“骨干工程与主骨架”的核心关系，更是激活通道潜能的关键。
+早在今年 3 月，美国国防部就曾将 Anthropic 列为供应链安全风险企业，彼时这家公司就曾与特朗普政府产生监管摩擦。
 
 ## 相关推荐
 
-- 2026-06-30 02:56 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-30 02:52 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-30 02:51 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-30 02:48 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-30 03:08 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-30 03:12 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-30 02:59 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-30 03:11 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-30 02:50 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-30 02:58 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-30 02:56 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-30 03:03 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 03:14 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-30 03:00 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 03:10 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-30 03:20 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-30 03:03 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-30 03:12 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-30 03:13 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-30 03:07 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-30 02:57 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 03:14 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-30 03:15 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:02 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/41984.shtml)
-- 2026-06-30 03:08 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/71136.shtml)
-- 2026-06-30 02:58 - [起风了](http://www.blog.minike.top/Article/details/484988117.shtml)
-- 2026-06-30 02:48 - [足球“出口导向”造就佛得角奇迹](https://www.share.kurohicncr.top/Article/details/600087713.shtml)
-- 2026-06-30 02:52 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/343366605.shtml)
-- 2026-06-30 02:52 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/378233935858.shtml)
-- 2026-06-30 03:11 - [TOP Prada](http://www.blog.minike.top/Article/details/473367053357.shtml)
-- 2026-06-30 02:51 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/899244902.shtml)
-- 2026-06-30 02:51 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/108365905.shtml)
-- 2026-06-30 02:54 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/0254766.shtml)
-- 2026-06-30 02:58 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/6679438.shtml)
-- 2026-06-30 02:49 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/181915.shtml)
-- 2026-06-30 03:08 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/1966184.shtml)
-- 2026-06-30 03:08 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/9572610128.shtml)
-- 2026-06-30 03:04 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/35036930.shtml)
+- 2026-06-30 03:13 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/519451.shtml)
+- 2026-06-30 03:02 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/319113.shtml)
+- 2026-06-30 03:02 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/110048.shtml)
+- 2026-06-30 03:07 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/98087.shtml)
+- 2026-06-30 02:58 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/6553508.shtml)
+- 2026-06-30 03:02 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/192340320.shtml)
+- 2026-06-30 03:22 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/882941493022.shtml)
+- 2026-06-30 03:02 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/7695079.shtml)
+- 2026-06-30 03:21 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/69388972687.shtml)
+- 2026-06-30 03:06 - [毒液2](https://www.share.minike.top/Article/details/3448014.shtml)
+- 2026-06-30 03:07 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/18609.shtml)
+- 2026-06-30 02:58 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/00557.shtml)
+- 2026-06-30 03:17 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/61868605.shtml)
+- 2026-06-30 03:17 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/346882651220.shtml)
+- 2026-06-30 03:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/85165333243.shtml)

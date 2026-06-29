@@ -1,57 +1,59 @@
-# 突发，美军空袭多艘伊朗油轮！霍尔木兹海峡连续两日无大型商船通过！俄乌同意延长停火！A股震荡上行
+# 中金：智谱维持“跑赢行业”评级 目标价上调至1250港元
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:03 UTC+8
 
 ## 摘要
 
-来源：期货日报 截至5月8日收盘，纽约现货黄金涨0.63%，报4715.23美元/盎司，本周累计上涨2.19%。COMEX黄金期货涨0.35%，报4727.40美元/盎司，本周累计上涨1.78%。 纽约商品交易所6月交货的轻质原油期货价格收于95.42美元/桶，涨幅为0.64%；7月交货的伦敦布伦特原油期货价格收于101.29美元/桶，涨幅为1.23%。 道琼斯指数涨0.02%
+中金发布研报称，维持智谱（02513）盈利预测基本不变，由于公司模型能力快速迭代并且超市场和该行预期，该行对公司远期API加速释放较为乐观，上调目标价39%至1250港元（对应2027年67倍P/S），较当前股价有14%上行空间，维持“跑赢行业”评级，公司当前交易于2027年58倍P/S。 中金主要观点如下： 公司近况 6月13日，公司最新模型GLM-5.2面向GLM Codi
 
 ## 正文
 
-来源：期货日报 截至5月8日收盘，纽约现货黄金涨0.63%，报4715.23美元/盎司，本周累计上涨2.19%。
+中金发布研报称，维持智谱（02513）盈利预测基本不变，由于公司模型能力快速迭代并且超市场和该行预期，该行对公司远期API加速释放较为乐观，上调目标价39%至1250港元（对应2027年67倍P/S），较当前股价有14%上行空间，维持“跑赢行业”评级，公司当前交易于2027年58倍P/S。
 
-COMEX黄金期货涨0.35%，报4727.40美元/盎司，本周累计上涨1.78%。
+中金主要观点如下： 公司近况 6月13日，公司最新模型GLM-5.2面向GLM Coding Plan全量用户开放，覆盖Lite/Pro/Max/团队版；同时，公司宣布GLM-5.2 API将于6月第三周正式上线并开源，遵循MIT协议。
 
-纽约商品交易所6月交货的轻质原油期货价格收于95.42美元/桶，涨幅为0.64%；7月交货的伦敦布伦特原油期货价格收于101.29美元/桶，涨幅为1.23%。
+GLM-5.2作为公司目前最新一代和最智能的开源模型，持续聚焦Coding方向，并且将长上下文提升至1M Tokens，长程任务能力取得进步，在众多开发者测评反馈中都取得优异口碑，是国产模型中首款真实能力达到Claude-Opus 4.6的模型，编程能力稳居国产模型第一位并对标海外模型第一梯队。
 
-道琼斯指数涨0.02%，标普500指数涨0.84%，纳斯达克指数涨1.68%。
+持续聚焦Coding赛道，前/后端编程能力大幅提升 根据该行和众多开发者测评，GLM-5.2整体编程能力相较GLM-5.1均有明显进步，在具备优势的后端领域多项测评任务已可以对标Claude Opus 4.6；前端任务的审美、精细度和可控性也有明显提高，综合编程能力继续稳居国产模型第一，也是国模首个真实能力达到Opus 4.6的模型，并逐步拉开和其他国产模型的差距。
 
-标普500指数与纳斯达克指数录得连续第六周上涨，创2024年10月以来最长连涨周期，并创历史新高。
+上下文提升至1M Tokens，长程任务能力明显提高 该行认为，GLM-5.2在模型基础架构层面做了较多优化，上下文长度从200K提升至1M Tokens，补齐了此前GLM-5.1在长程任务方面的能力短板，在真实复杂编程场景中的可用度大幅提升，同时完成复杂多轮次Agent任务的能力也进步明显。
 
-个股方面，美光涨15.46%，英特尔涨13.86%，特斯拉涨4.02%，苹果涨1.99%，英伟达涨1.69%。
+积极解决算力瓶颈，提升用户体验与有效供给 由于公司模型能力突出，整体处于供不应求状态，模型会受到算力供给限制的问题。
 
-消息面上，美国密歇根大学8日发布的初步调查数据显示，由于伊朗战事导致汽油价格飙升，通胀担忧上升，5月份美国消费者信心连续第三个月下滑。
+GLM-5.2在使用过程中也会出现思考时间较长的问题，该行判断主要由于高并发和算力受限影响所致。
 
-调查显示，美国2026年5月份消费者信心指数初值为48.2，低于4月份的终值49.8，低于2025年5月份的终值52.2。
+该行认为，公司会通过各种方式积极解决算力问题，有效缓解供给端的瓶颈。
 
 ## 相关推荐
 
-- 2026-06-30 02:57 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 03:01 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-30 02:57 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-30 03:03 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-30 02:53 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-30 03:06 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-30 03:15 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-30 03:07 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-30 03:03 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-30 03:02 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-30 02:54 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-30 03:14 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-30 03:17 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-30 03:21 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-30 02:54 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-30 03:14 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-30 02:56 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-30 03:04 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-30 02:58 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-30 03:11 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-30 03:01 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-30 03:08 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-30 03:21 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-30 03:19 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:15 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/89299933.shtml)
-- 2026-06-30 03:05 - [女心理师](http://www.blog.minike.top/Article/details/500668086660.shtml)
-- 2026-06-30 03:01 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/85333311.shtml)
-- 2026-06-30 03:06 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/2422400.shtml)
-- 2026-06-30 03:06 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/5677536563.shtml)
-- 2026-06-30 02:50 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/87977328.shtml)
-- 2026-06-30 03:06 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/1402058.shtml)
-- 2026-06-30 03:01 - [美股](https://www.blog.kurohicncr.top/Article/details/428590.shtml)
-- 2026-06-30 03:15 - [美人鱼](http://www.blog.minike.top/Article/details/544743896284.shtml)
-- 2026-06-30 02:55 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/100785845808.shtml)
-- 2026-06-30 02:49 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/69006178.shtml)
-- 2026-06-30 03:12 - [千香](http://www.blog.minike.top/Article/details/224104.shtml)
-- 2026-06-30 02:55 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/3800681.shtml)
-- 2026-06-30 02:56 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/08885341.shtml)
-- 2026-06-30 03:16 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/94543903.shtml)
+- 2026-06-30 03:13 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/13126.shtml)
+- 2026-06-30 03:22 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/235610518080.shtml)
+- 2026-06-30 03:12 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/31739.shtml)
+- 2026-06-30 03:00 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/39627002.shtml)
+- 2026-06-30 03:15 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/6889535374.shtml)
+- 2026-06-30 03:11 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/509389905207.shtml)
+- 2026-06-30 03:13 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/22406.shtml)
+- 2026-06-30 03:15 - [千与千寻](http://www.blog.minike.top/Article/details/093148341.shtml)
+- 2026-06-30 03:10 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/87727.shtml)
+- 2026-06-30 03:03 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/4570899888.shtml)
+- 2026-06-30 03:17 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/969798667348.shtml)
+- 2026-06-30 02:56 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/1178836.shtml)
+- 2026-06-30 03:15 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/197369669.shtml)
+- 2026-06-30 02:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/090698.shtml)
+- 2026-06-30 03:04 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/6369230.shtml)

@@ -1,59 +1,50 @@
-# 光大期货：5月8日软商品日报
+# “数爱无疆”数字公益故事展播 | 一颗耙耙柑的数字公益与生态守望
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，据印度糖厂协会（ISMA）数据，截至4月30日，印度2025/26榨季剩余开榨糖厂5家，同比减少14家；累计产糖2752.8万吨，同比增加187.9万吨。现货报价方面，广西制糖集团报价区间为5340~5420元/吨，部分调整10元/吨，涨跌不一；云南制糖集团报价5150~5220元/吨
+发布时间：2026年06月16日 20:40 来源：中国新闻网 2026年5月，中国网络文明大会期间，网络公益建设分论坛发布了2025“数爱无疆”数字公益故事征集展播活动结果。 2025年11月起，中国网络社会组织联合会携手中国互联网发展基金会、中国新闻网组织开展2025“数爱无疆”数字公益故事征集展播活动，最终遴选出50个具有代表性的数字公益故事，由小红书科技有限公司推送的“
 
 ## 正文
 
-白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，据印度糖厂协会（ISMA）数据，截至4月30日，印度2025/26榨季剩余开榨糖厂5家，同比减少14家；累计产糖2752.8万吨，同比增加187.9万吨。
+发布时间：2026年06月16日 20:40 来源：中国新闻网 2026年5月，中国网络文明大会期间，网络公益建设分论坛发布了2025“数爱无疆”数字公益故事征集展播活动结果。
 
-现货报价方面，广西制糖集团报价区间为5340~5420元/吨，部分调整10元/吨，涨跌不一；云南制糖集团报价5150~5220元/吨，下调10元/吨；加工糖厂主流报价区间为5620~5880元/吨，少数上调30~50元/吨。
+2025年11月起，中国网络社会组织联合会携手中国互联网发展基金会、中国新闻网组织开展2025“数爱无疆”数字公益故事征集展播活动，最终遴选出50个具有代表性的数字公益故事，由小红书科技有限公司推送的“一颗耙耙柑的数字公益与生态守望”作品入选。
 
-近几日原糖紧跟原油走势波动，宽幅震荡，国内现货销售进度一般，多空分歧加剧，两者都有诸多理由，预计震荡延续短期略偏强，关注4月产销数据。
-
-棉花： （孙成震，从业资格号：F03099994；交易咨询资格号：Z0021057） 周四，ICE美棉下跌1.61%，报收82.7美分/磅，郑棉主力合约环比下降1.04%，报收16640元/吨，主力合约持仓环比增加15297手至84.61万手，棉花3128B现货价格指数17760元/吨，较前一日下降60元/吨。
-
-国际市场方面，近期原油价格波动较大，价格环比下降，对美棉价格支撑减弱。
-
-天气方面，干旱仍然偏高，但我们认为美棉价格已经体现，警惕后续干旱程度下降出现的预期差。
-
-国内市场方面，近期郑棉期价小幅回调，持仓环比增加。
-
-预期本年度末期末库存偏低以及下一年度减产是近期主要驱动，但是近期棉花价格涨幅大于棉纱，挤压纺企生产利润，后续需求可持续性将被考验。
+责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 03:13 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-30 02:56 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-30 03:02 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-30 03:07 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 03:04 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-30 03:08 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-30 03:07 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-30 03:09 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-30 03:01 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-30 02:50 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-30 02:53 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-30 02:57 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-30 03:14 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-30 03:05 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-30 02:54 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 03:10 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-30 03:02 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-30 03:19 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-30 03:21 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-30 03:14 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 03:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-30 03:14 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-30 03:19 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-30 02:56 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-30 03:14 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-30 03:04 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-30 03:15 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:04 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/51996.shtml)
-- 2026-06-30 02:59 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/94254.shtml)
-- 2026-06-30 03:07 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/239187.shtml)
-- 2026-06-30 02:53 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/71207370662.shtml)
-- 2026-06-30 03:04 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/809133068863.shtml)
-- 2026-06-30 03:05 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/2087753687.shtml)
-- 2026-06-30 02:55 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/78971850419.shtml)
-- 2026-06-30 03:06 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/164842.shtml)
-- 2026-06-30 03:11 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/717630309.shtml)
-- 2026-06-30 02:59 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/93050.shtml)
-- 2026-06-30 03:14 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/618717.shtml)
-- 2026-06-30 02:55 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/46780485.shtml)
-- 2026-06-30 02:57 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/5315076.shtml)
-- 2026-06-30 02:55 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/147982844612.shtml)
-- 2026-06-30 03:04 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/4002939.shtml)
+- 2026-06-30 03:07 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/51239687.shtml)
+- 2026-06-30 03:04 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/579797.shtml)
+- 2026-06-30 02:57 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/74098037.shtml)
+- 2026-06-30 03:09 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/870406523.shtml)
+- 2026-06-30 03:06 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/62865.shtml)
+- 2026-06-30 03:17 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/83883.shtml)
+- 2026-06-30 03:12 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/317044.shtml)
+- 2026-06-30 03:12 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/222426.shtml)
+- 2026-06-30 03:10 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/0893566.shtml)
+- 2026-06-30 03:15 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/651773598979.shtml)
+- 2026-06-30 03:17 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/7005844.shtml)
+- 2026-06-30 03:23 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/547697357.shtml)
+- 2026-06-30 02:59 - [金刚川](https://www.blog.kurohicncr.top/Article/details/5425314728.shtml)
+- 2026-06-30 03:13 - [一见倾心](http://www.share.kurohicncr.top/Article/details/510658328.shtml)
+- 2026-06-30 03:11 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/80083435101.shtml)

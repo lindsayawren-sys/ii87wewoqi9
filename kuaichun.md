@@ -1,54 +1,59 @@
-# 习言道｜父母是孩子的第一任老师
+# 集体押注世界杯，AI为何要扮演“懂球佬”
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月10日 07:30 来源：中国新闻网 “只要你把工作做好了，就是对爸爸妈妈最大的孝心。”母亲的言传身教让习近平受用一生。多年来，习近平总书记谨记母亲的教诲，夙夜在公、勤勉工作。一起重温总书记和母亲的暖心瞬间。 责任编辑：【任帅】
+每经记者｜温梦华 2026年美加墨世界杯才刚刚拉开帷幕，而赛场外的AI(人工智能)赛事研判、实力比拼，早已先行开启。 日前，国产大模型Kimi(月之暗面)称将通过Agent(智能体)集群同时调度300个子Agent，公开预测104场世界杯赛事结果，并提出德国队或爆冷夺冠。Kimi同时上线了一场“押注”活动：奖池中有1万亿Tokens(词元)，用户选队后球队赢了就可以瓜分Toke
 
 ## 正文
 
-发布时间：2026年05月10日 07:30 来源：中国新闻网 “只要你把工作做好了，就是对爸爸妈妈最大的孝心。
+每经记者｜温梦华 2026年美加墨世界杯才刚刚拉开帷幕，而赛场外的AI(人工智能)赛事研判、实力比拼，早已先行开启。
 
-”母亲的言传身教让习近平受用一生。
+日前，国产大模型Kimi(月之暗面)称将通过Agent(智能体)集群同时调度300个子Agent，公开预测104场世界杯赛事结果，并提出德国队或爆冷夺冠。
 
-多年来，习近平总书记谨记母亲的教诲，夙夜在公、勤勉工作。
+Kimi同时上线了一场“押注”活动：奖池中有1万亿Tokens(词元)，用户选队后球队赢了就可以瓜分Token，将体育赛事与AI用户运营深度绑定。
 
-一起重温总书记和母亲的暖心瞬间。
+《每日经济新闻》记者(以下简称每经记者)注意到，千问也紧随其后上线了相关活动。
 
-责任编辑：【任帅】
+每经记者实测发现，豆包、元宝、DeepSeek(深度求索)、文心一言等国产大模型在被问及“2026年世界杯谁会夺冠”时，多数预测答案为“西班牙队”，判断逻辑也高度趋同。
+
+热闹之下，Kelly Bench(一个大模型评估测试平台)最新数据却显示，包括ChatGPT等在内的顶级模型在足球赌盘上表现惨淡。
+
+Kimi、千问等AI大模型为何要“押注”世界杯？
+
+这背后，实际上是AI大模型行业的集体焦虑：当写诗、做题、对话的极致竞争走到尽头，各家厂商急于证明自己的产品能够理解复杂、动态、充满不确定性的现实世界。
 
 ## 相关推荐
 
-- 2026-06-30 03:10 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-30 03:12 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-30 03:16 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-30 03:10 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-30 02:55 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-30 02:55 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-30 02:53 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-30 02:48 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-30 03:10 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-30 02:50 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 02:52 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-30 02:57 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 03:12 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-30 03:00 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 03:01 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-30 03:13 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-30 03:02 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 02:54 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 03:02 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 03:06 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-30 02:56 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-30 03:22 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-30 02:54 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-30 02:57 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-30 03:15 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-30 03:23 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-30 03:05 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:03 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/771067.shtml)
-- 2026-06-30 03:05 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/37665635843.shtml)
-- 2026-06-30 03:14 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/25409918622.shtml)
-- 2026-06-30 03:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/61360.shtml)
-- 2026-06-30 03:16 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/02461.shtml)
-- 2026-06-30 02:55 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/8454843037.shtml)
-- 2026-06-30 03:15 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/293823.shtml)
-- 2026-06-30 03:03 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/0719078.shtml)
-- 2026-06-30 03:13 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/83224201.shtml)
-- 2026-06-30 03:02 - [急先锋](https://www.blog.kurohicncr.top/Article/details/8183022.shtml)
-- 2026-06-30 03:01 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/92082181.shtml)
-- 2026-06-30 02:52 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/265252.shtml)
-- 2026-06-30 03:09 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/5792930779.shtml)
-- 2026-06-30 02:50 - [明星大侦探第一季](http://www.share.minike.top/Article/details/17597791.shtml)
-- 2026-06-30 02:57 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/160048077652.shtml)
+- 2026-06-30 03:08 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/8543604464.shtml)
+- 2026-06-30 03:02 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/610719490706.shtml)
+- 2026-06-30 03:20 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/27548005.shtml)
+- 2026-06-30 03:06 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/31311.shtml)
+- 2026-06-30 02:59 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/557676416.shtml)
+- 2026-06-30 03:21 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/01066136.shtml)
+- 2026-06-30 02:54 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/892438.shtml)
+- 2026-06-30 03:06 - [巴西绝杀日本](https://www.share.minike.top/Article/details/304126.shtml)
+- 2026-06-30 03:15 - [警犬“多多”助民警寻回失联老人](https://www.share.kurohicncr.top/Article/details/00726494025.shtml)
+- 2026-06-30 03:02 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/1874666.shtml)
+- 2026-06-30 03:19 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/170541313.shtml)
+- 2026-06-30 02:54 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/73481656.shtml)
+- 2026-06-30 03:20 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/29702.shtml)
+- 2026-06-30 03:19 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/52422117180.shtml)
+- 2026-06-30 03:05 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/53058326.shtml)

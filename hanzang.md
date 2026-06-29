@@ -1,59 +1,56 @@
-# 连续三年财务造假，又一A股公司或将被强制退市，监管重拳出击
+# 中方决定近期向伊朗和黎巴嫩提供新一批人道主义援助
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-记者丨崔文静编辑丨包芳鸣 江佩霞视频丨许婷婷一夜之间，一份罚单公告，将ST清越推向了悬崖边缘。2026年5月8日晚间，苏州清越光电科技股份有限公司（下称“ST清越”）公告，收到证监会下发的《行政处罚事先告知书》（以下简称《告知书》）。因涉嫌欺诈发行和年报虚假记载，ST清越被拟处罚约1.73亿元，四名高管拟被合计罚款3300万元，总计罚金高达2.06亿元。更令投资者揪心的是，根据
+中新网北京6月17日电 (记者 谢雁冰)中国外交部发言人林剑17日主持例行记者会。 有记者提问：美以伊战事及其外溢影响造成中东地区大量平民伤亡和设施损毁，百姓生活困难。中方此前已向部分地区国家提供人道主义援助，是否有继续提供援助的计划？ 林剑：中方对美以伊战事及其外溢在中东地区造成人道主义灾难深感痛心。今年3月，中方向伊朗等国提供了紧急人道主义援助。考虑到相关国家的实际情况，中
 
 ## 正文
 
-记者丨崔文静编辑丨包芳鸣 江佩霞视频丨许婷婷一夜之间，一份罚单公告，将ST清越推向了悬崖边缘。
+中新网北京6月17日电 (记者 谢雁冰)中国外交部发言人林剑17日主持例行记者会。
 
-2026年5月8日晚间，苏州清越光电科技股份有限公司（下称“ST清越”）公告，收到证监会下发的《行政处罚事先告知书》（以下简称《告知书》）。
+有记者提问：美以伊战事及其外溢影响造成中东地区大量平民伤亡和设施损毁，百姓生活困难。
 
-因涉嫌欺诈发行和年报虚假记载，ST清越被拟处罚约1.73亿元，四名高管拟被合计罚款3300万元，总计罚金高达2.06亿元。
+中方此前已向部分地区国家提供人道主义援助，是否有继续提供援助的计划？
 
-更令投资者揪心的是，根据《告知书》认定事项，ST清越可能触及科创板重大违法强制退市红线。
+林剑：中方对美以伊战事及其外溢在中东地区造成人道主义灾难深感痛心。
 
-公司股票已被实施退市风险警示，一旦正式处罚决定书落地，退市将成定局。
+今年3月，中方向伊朗等国提供了紧急人道主义援助。
 
-就在罚单公布的同一夜，另一个消息同步传出——保荐机构广发证券、审计机构立信会计师事务所与ST清越实控人高裕弟三方，宣布拟共同出资设立先行赔付专项基金。
+考虑到相关国家的实际情况，中方决定近期向伊朗和黎巴嫩提供新一批人道主义援助，进一步帮助两国民众推进恢复重建、改善经济民生。
 
-这意味着，投资者的赔偿通道已在第一时间打开。
+作为中东国家的好朋友和负责任的大国，中方将继续在力所能及范围内提供支持和帮助。
 
-从追责到赔付，监管的“组合拳”没有丝毫迟延。
+中方也将进一步致力于劝和促谈，为早日恢复中东和平安宁发挥积极作用。
 
 ## 相关推荐
 
-- 2026-06-30 02:48 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-30 03:06 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-30 03:08 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-30 03:01 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-30 02:57 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-30 02:56 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-30 03:15 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-30 02:55 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-30 03:02 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-30 03:02 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-30 03:01 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-30 02:57 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-30 03:11 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 03:05 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-30 02:54 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-30 03:08 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-30 03:19 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-30 03:13 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 03:08 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-30 03:22 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-30 03:20 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 03:00 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-30 03:16 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:57 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/689322683.shtml)
-- 2026-06-30 03:17 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/5662871.shtml)
-- 2026-06-30 02:52 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/48097849631.shtml)
-- 2026-06-30 03:01 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/7571918.shtml)
-- 2026-06-30 03:10 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/973071.shtml)
-- 2026-06-30 03:16 - [AI接过张雪峰志愿填报衣钵](https://www.blog.minike.top/Article/details/35423.shtml)
-- 2026-06-30 03:00 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/11620.shtml)
-- 2026-06-30 03:00 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/1986297218.shtml)
-- 2026-06-30 02:49 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/98246909.shtml)
-- 2026-06-30 03:15 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/8125836.shtml)
-- 2026-06-30 03:08 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/82989360612.shtml)
-- 2026-06-30 03:05 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/11810473.shtml)
-- 2026-06-30 03:15 - [啊啊啊](https://www.share.minike.top/Article/details/379240.shtml)
-- 2026-06-30 03:12 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/8781211217.shtml)
-- 2026-06-30 03:05 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/162623160341.shtml)
+- 2026-06-30 03:12 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/124884869.shtml)
+- 2026-06-30 03:13 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/917717171.shtml)
+- 2026-06-30 03:02 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/54375.shtml)
+- 2026-06-30 03:12 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/367631.shtml)
+- 2026-06-30 03:15 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/321453911.shtml)
+- 2026-06-30 03:08 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/942319050415.shtml)
+- 2026-06-30 03:20 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/526780.shtml)
+- 2026-06-30 02:55 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/925270123871.shtml)
+- 2026-06-30 03:00 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/00952683.shtml)
+- 2026-06-30 03:04 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/217392.shtml)
+- 2026-06-30 02:57 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/9669997256.shtml)
+- 2026-06-30 02:54 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/43415250.shtml)
+- 2026-06-30 03:19 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/37120013630.shtml)
+- 2026-06-30 02:57 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/37082044.shtml)
+- 2026-06-30 02:57 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/6413347.shtml)

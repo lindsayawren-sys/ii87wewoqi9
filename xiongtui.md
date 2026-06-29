@@ -1,59 +1,56 @@
-# 又一百亿基金经理产品线调整 刘彦春三只基金增聘基金经理
+# 一群90后、00后活跃在田野，他们在忙啥？
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-5月9日，景顺长城基金公告，景顺长城内需、内需贰号、鼎益三只基金增聘基金经理，与刘彦春共同管理。此次增聘后，刘彦春管理的六只产品，将有三只基金与其他基金经理共管，还有三只仍是独立管理，管理总规模为265.5亿元（数据来自wind，截至今年3月末）。 其中，景顺长城鼎益增聘基金经理柯海东，景顺长城内需、内需贰号增聘基金经理徐亦达，均是具有投资经验的成熟基金经理。公告显示，柯海东曾
+原标题：推动组织管理规范化、作业接单网络化、农机调配共享化 青年农机手赋能现代农业(三夏进行时) 麦熟一晌，贵在争抢。“三夏”时节，田野里活跃着一群90后、00后农机手，他们驾驶收割机抢收小麦，操控无人机开展植保作业，依托智慧中控系统远程管控农机运行…… 2025年我国农作物耕种收综合机械化率达76.7%。充分发挥农机的农业生产和应急救灾主力军作用，需建设一支高素质的农机手队伍
 
 ## 正文
 
-5月9日，景顺长城基金公告，景顺长城内需、内需贰号、鼎益三只基金增聘基金经理，与刘彦春共同管理。
+原标题：推动组织管理规范化、作业接单网络化、农机调配共享化 青年农机手赋能现代农业(三夏进行时) 麦熟一晌，贵在争抢。
 
-此次增聘后，刘彦春管理的六只产品，将有三只基金与其他基金经理共管，还有三只仍是独立管理，管理总规模为265.5亿元（数据来自wind，截至今年3月末）。
+“三夏”时节，田野里活跃着一群90后、00后农机手，他们驾驶收割机抢收小麦，操控无人机开展植保作业，依托智慧中控系统远程管控农机运行…… 2025年我国农作物耕种收综合机械化率达76.7%。
 
-其中，景顺长城鼎益增聘基金经理柯海东，景顺长城内需、内需贰号增聘基金经理徐亦达，均是具有投资经验的成熟基金经理。
+充分发挥农机的农业生产和应急救灾主力军作用，需建设一支高素质的农机手队伍。
 
-公告显示，柯海东曾是食品饮料分析师出身，曾在前海开源基金、国联基金任职，具有16年证券、基金行业从业经验。
+更多青年农机手投身田间，为这支队伍注入了青春活力。
 
-徐亦达曾任职于东吴基金、湘财基金，具有11年证券、基金行业从业经验。
+“现在开农机收麦子用时短、效率高” 凌晨四五点，雨脚刚收。
 
-这是继广发、中欧旗下百亿基金经理增聘或卸任举动之后，又一百亿基金经理的产品出现调整的情况。
+河北省邯郸市曲周县槐桥镇西漳头村，收割机轰鸣着切开麦浪，饱满的麦穗被齐茬切断、卷入滚筒。
 
-此前发布的《推动公募基金高质量发展行动方案》强调，要加快“平台式、一体化、多策略”投研体系建设，支持基金经理团队制管理模式，做大做强投研团队。
+驾驶室里，90后农机手任晓微全神贯注地把控作业进度，抢抓农时。
 
-在此背景下，为规模较大的基金经理增强投研力量，进一步丰富投研视角，使得相关产品的投资风格更加多元化，已成为行业趋势。
+“从天气预报得知今年麦收时可能下雨，我们就着手准备了。
 
 ## 相关推荐
 
-- 2026-06-30 03:15 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-30 03:07 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-30 02:51 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-30 02:58 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-30 03:15 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-30 03:11 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-30 03:01 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-30 02:53 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 02:51 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-30 03:03 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-30 03:06 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-30 03:11 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-30 03:07 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 03:16 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-30 03:13 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-30 03:09 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-30 03:01 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-30 03:01 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-30 03:08 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-30 03:10 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 03:02 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-30 03:07 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 02:55 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:00 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/78414006.shtml)
-- 2026-06-30 03:06 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/41851.shtml)
-- 2026-06-30 03:01 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/52680087.shtml)
-- 2026-06-30 02:53 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/15374659.shtml)
-- 2026-06-30 03:03 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/00877.shtml)
-- 2026-06-30 03:10 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/2999050519.shtml)
-- 2026-06-30 03:03 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/503132470.shtml)
-- 2026-06-30 03:04 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/18813322.shtml)
-- 2026-06-30 02:53 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/75885355.shtml)
-- 2026-06-30 02:56 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/610148876713.shtml)
-- 2026-06-30 03:09 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/360696368147.shtml)
-- 2026-06-30 02:51 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/040930.shtml)
-- 2026-06-30 03:13 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/4372179999.shtml)
-- 2026-06-30 03:14 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/3139566892.shtml)
-- 2026-06-30 03:03 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/081151.shtml)
+- 2026-06-30 03:08 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/533954.shtml)
+- 2026-06-30 03:10 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/9856799044.shtml)
+- 2026-06-30 02:54 - [刘念回应](http://www.share.minike.top/Article/details/7490100554.shtml)
+- 2026-06-30 02:54 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/18143489.shtml)
+- 2026-06-30 02:56 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/5050695.shtml)
+- 2026-06-30 03:14 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/2186377.shtml)
+- 2026-06-30 03:10 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/764695603.shtml)
+- 2026-06-30 03:21 - [天道](https://www.blog.minike.top/Article/details/4085543.shtml)
+- 2026-06-30 03:11 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/246227.shtml)
+- 2026-06-30 03:00 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/73586.shtml)
+- 2026-06-30 02:54 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/53948112.shtml)
+- 2026-06-30 03:15 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/892300.shtml)
+- 2026-06-30 03:08 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/7968350053.shtml)
+- 2026-06-30 03:09 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/7973137.shtml)
+- 2026-06-30 02:59 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/783026461540.shtml)

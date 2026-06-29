@@ -1,58 +1,56 @@
-# Molina预计2029年调整后每股收益最高达30美元
+# 艺人黄百鸣，今天入狱服刑
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-医疗健康保险公司Molina Healthcare周四在投资者日上公布了2029年财务目标，预计调整后每股收益将达到28至30美元，较当前年化约22美元的水平有显著提升。 财务目标 Molina预计2029年全年营收在500亿至520亿美元之间。调整后每股收益目标为28至30美元，到2029年的累计经营现金流预计在55亿至60亿美元之间。公司重申2026年调整后每股收益指引为2
+据多家港媒报道，现年80岁的资深电影人黄百鸣17日主动前往香港西九龙裁判法院申请撤销保释，裁判官高伟雄批准其申请，黄百鸣须即时入狱服刑。 黄百鸣本月9日因内幕交易罪被判监禁5个月，当时获准以20万港元保释等候上诉。该案宣判仅相隔8天，黄百鸣便主动到庭申请撤销保释，获准即时收监服刑。 案情回顾 2017年8月至10月，黄百鸣担任天马影视文化控股有限公司(现更名为传递娱乐有限公司)
 
 ## 正文
 
-医疗健康保险公司Molina Healthcare周四在投资者日上公布了2029年财务目标，预计调整后每股收益将达到28至30美元，较当前年化约22美元的水平有显著提升。
+据多家港媒报道，现年80岁的资深电影人黄百鸣17日主动前往香港西九龙裁判法院申请撤销保释，裁判官高伟雄批准其申请，黄百鸣须即时入狱服刑。
 
-财务目标 Molina预计2029年全年营收在500亿至520亿美元之间。
+黄百鸣本月9日因内幕交易罪被判监禁5个月，当时获准以20万港元保释等候上诉。
 
-调整后每股收益目标为28至30美元，到2029年的累计经营现金流预计在55亿至60亿美元之间。
+该案宣判仅相隔8天，黄百鸣便主动到庭申请撤销保释，获准即时收监服刑。
 
-公司重申2026年调整后每股收益指引为22至23美元，2027年为24至26美元。
+案情回顾 2017年8月至10月，黄百鸣担任天马影视文化控股有限公司(现更名为传递娱乐有限公司)主席期间，知悉公司即将被收购的内幕消息，怂恿胞妹购入天马影视文化控股有限公司股份。
 
-增长战略 管理层阐述了实现上述目标的三支柱战略：通过现有市场的渗透和新市场的扩张增加会员基数，目标新增会员约100万人；通过Carelon等医疗服务和药房福利管理业务提升会员人均收入；通过自动化和管理式医疗技术降低运营费用率。
+判刑详情 裁判官高伟雄以监禁9个月作为量刑基准，综合考量案件拖延近10年、黄百鸣热心公益及对香港电影业的贡献等因素，最终将刑期减至5个月。
 
-财务基础与资本配置 Molina预计2026年至2029年间，调整后EBITDA复合年增长率约为8%至10%。
+法庭另判处其罚款逾9.9万港元，并要求他支付合计约37.4万港元的调查费与诉讼费。
 
-公司目前持有现金约45亿美元，无重大债务到期压力。
+审讯期间，黄百鸣辩称口中“尽买”是反话，本意是劝阻胞妹购入股票，裁判官驳斥该说法既荒谬又牵强，不予采信其证供。
 
-并购方面，公司计划每年投入5亿至10亿美元用于中小型收购，重点关注居家健康管理和数字医疗领域。
+黄百鸣是香港资深电影人，曾打造《开心鬼》《家有喜事》《叶问》等经典影视作品。
 
 ## 相关推荐
 
-- 2026-06-30 02:51 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 02:53 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 03:04 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-30 02:48 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-30 03:02 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-30 03:03 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-30 03:01 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-30 03:08 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-30 02:57 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-30 03:00 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-30 02:59 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-30 02:58 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-30 03:13 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-30 03:01 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-30 03:04 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-30 03:21 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 02:58 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-30 03:18 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-30 03:17 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-30 03:15 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-30 03:04 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-30 03:17 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:16 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/44817602858.shtml)
-- 2026-06-30 02:48 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/629555.shtml)
-- 2026-06-30 02:54 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/06277.shtml)
-- 2026-06-30 03:00 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/73428868.shtml)
-- 2026-06-30 03:05 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/41724869552.shtml)
-- 2026-06-30 03:09 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/829672.shtml)
-- 2026-06-30 02:54 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/91842351.shtml)
-- 2026-06-30 02:56 - [斗破苍穹](http://www.share.minike.top/Article/details/127970445.shtml)
-- 2026-06-30 03:14 - [勇敢的心第二部](https://www.share.minike.top/Article/details/7299398892.shtml)
-- 2026-06-30 03:03 - [巴西vs日本](http://www.blog.minike.top/Article/details/497665742392.shtml)
-- 2026-06-30 02:49 - [金牌调解](http://www.share.minike.top/Article/details/970906713.shtml)
-- 2026-06-30 03:03 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/91577510359.shtml)
-- 2026-06-30 03:06 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/240902395956.shtml)
-- 2026-06-30 03:17 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/2677331.shtml)
-- 2026-06-30 03:14 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/7251083577.shtml)
+- 2026-06-30 03:05 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/3340497.shtml)
+- 2026-06-30 02:58 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/11866.shtml)
+- 2026-06-30 02:55 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/275813.shtml)
+- 2026-06-30 03:13 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/192075573.shtml)
+- 2026-06-30 03:02 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/16815.shtml)
+- 2026-06-30 03:03 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/74542.shtml)
+- 2026-06-30 02:57 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/457520272.shtml)
+- 2026-06-30 03:23 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/157177655.shtml)
+- 2026-06-30 03:08 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/05854018184.shtml)
+- 2026-06-30 03:08 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/1504695.shtml)
+- 2026-06-30 03:15 - [金牌调解](http://www.share.minike.top/Article/details/874437716564.shtml)
+- 2026-06-30 03:02 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/843585556044.shtml)
+- 2026-06-30 03:13 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/555792215.shtml)
+- 2026-06-30 03:21 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/94543319.shtml)
+- 2026-06-30 03:08 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/85933.shtml)

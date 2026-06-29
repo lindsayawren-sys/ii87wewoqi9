@@ -1,60 +1,60 @@
-# 湖北加速打造光电子信息产业世界级集群
+# 震荡行情港股红利类资产获青睐，港股通红利ETF华泰柏瑞（513530）基金份额突破25亿份连续创历史新高！
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-中新网武汉5月9日电 (记者 武一力)记者从湖北省政府新闻办9日召开的新闻发布会上获悉，“十五五”时期，湖北省将加速构建高速全光通信产品链，抢占千亿级增量市场，建设具有全球影响力的光通信产业高地。 据介绍，光电子信息产业是湖北优势产业、支柱产业。2025年，该省光电子信息产业规模超过1.1万亿元人民币。今年一季度，光电子信息领域中的“计算机、通信和其他电子设备制造业”累计增加值
+进入6月，美联储释放偏鹰信号、加息预期升温，美伊冲突反复，全球资本市场风险偏好有所抬升。与此同时，近一个季度以来南向资金整体延续积极买入态势。其中金融业和能源业分别吸金303亿港元、205亿港元，均位居净买入行业前三，高分红行业依然是“南水”的青睐方向之一。在经济弱复苏、海外流动性与地缘政治变数交织的环境中，具备较高股息特征的港股红利类资产，正成为资金青睐的底仓配置方向之一。
 
 ## 正文
 
-中新网武汉5月9日电 (记者 武一力)记者从湖北省政府新闻办9日召开的新闻发布会上获悉，“十五五”时期，湖北省将加速构建高速全光通信产品链，抢占千亿级增量市场，建设具有全球影响力的光通信产业高地。
+进入6月，美联储释放偏鹰信号、加息预期升温，美伊冲突反复，全球资本市场风险偏好有所抬升。
 
-据介绍，光电子信息产业是湖北优势产业、支柱产业。
+与此同时，近一个季度以来南向资金整体延续积极买入态势。
 
-2025年，该省光电子信息产业规模超过1.1万亿元人民币。
+其中金融业和能源业分别吸金303亿港元、205亿港元，均位居净买入行业前三，高分红行业依然是“南水”的青睐方向之一。
 
-今年一季度，光电子信息领域中的“计算机、通信和其他电子设备制造业”累计增加值增速达到50.8%，对全省工业增加值增长贡献率接近60%，成为支撑工业经济增长的重要力量。
+在经济弱复苏、海外流动性与地缘政治变数交织的环境中，具备较高股息特征的港股红利类资产，正成为资金青睐的底仓配置方向之一。
 
-面向“十五五”，湖北将从四个方面加速打造光电子信息产业世界级集群：一是提能级，深耕存储、半导体等领域，打造世界级产业高地；二是扩优势，攻坚关键领域技术，加快形成一批具有全球影响力的原创性、标志性科技成果；三是育主体，壮大龙头企业，培育专精特新企业，精准招商引资；四是优生态，办好品牌展会，拓展融合应用场景，推动产业上下游技术、市场、资金等要素对接，巩固产业领先优势。
+Wind和交易所数据显示，全市场首只通过QDII模式投资港股通高股息（CNY）指数的ETF——港股通红利ETF华泰柏瑞（513530）上周以来连续7个交易日录得净申购，累计资金净流入达2.42亿元。
 
-作为湖北推动光电子信息产业发展的重要举措，第二十一届“中国光谷”国际光电子博览会(简称光博会)将于5月18日至20日在武汉举办，目前已确认参展企业近400家，国际展商覆盖11个国家和地区。
+持续涌入的买盘推动该ETF基金规模突破40亿元，基金份额突破25亿份，双双刷新成立以来纪录，流动性与规模优势进一步巩固。
 
-本届光博会首设“中越光电产业合作交流日”，聚焦东南亚市场拓展需求，邀请境外采购团参与，助力企业开拓新兴市场。
+资金青睐的背后，是低利率环境下港股红利资产较为突出的股息率。
 
-(完)
+截至最新（26/6/16），港股通红利ETF华泰柏瑞（513530）跟踪的港股通高股息（CNY）指数近一年股息率来到4.79%，与同期1.73%的10年期国债收益率存在3.06%的利差。
 
 ## 相关推荐
 
-- 2026-06-30 03:12 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-30 02:59 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-30 03:12 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-30 02:51 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-30 03:12 - [点菜也要教吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-30 03:06 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-30 03:01 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-30 02:53 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-30 03:13 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-30 02:50 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-30 03:11 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-30 02:52 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-30 03:12 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-30 02:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-30 03:12 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-30 03:16 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 03:15 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-30 03:11 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 03:09 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 03:11 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 03:09 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-30 02:55 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-30 03:14 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-30 03:03 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-30 03:19 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 03:16 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-30 03:06 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-30 03:04 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:57 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/283327439.shtml)
-- 2026-06-30 03:02 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/7673862.shtml)
-- 2026-06-30 02:56 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/599986873.shtml)
-- 2026-06-30 03:04 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/6201941731.shtml)
-- 2026-06-30 03:10 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/123959266740.shtml)
-- 2026-06-30 03:08 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/9749300263.shtml)
-- 2026-06-30 03:16 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/78150313841.shtml)
-- 2026-06-30 03:03 - [美股](http://www.blog.minike.top/Article/details/93774703.shtml)
-- 2026-06-30 02:54 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/2428472829.shtml)
-- 2026-06-30 03:13 - [送你一朵小红花](https://www.blog.minike.top/Article/details/68741808.shtml)
-- 2026-06-30 03:07 - [足球小将的剧本成真了](http://www.share.kurohicncr.top/Article/details/014008712.shtml)
-- 2026-06-30 02:53 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/8954433949.shtml)
-- 2026-06-30 03:06 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/52426.shtml)
-- 2026-06-30 03:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/4245520820.shtml)
-- 2026-06-30 03:10 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/96644.shtml)
+- 2026-06-30 03:00 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/32245525561.shtml)
+- 2026-06-30 03:20 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/579532.shtml)
+- 2026-06-30 03:23 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/5892152197.shtml)
+- 2026-06-30 03:20 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/810520026610.shtml)
+- 2026-06-30 03:09 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/58411.shtml)
+- 2026-06-30 03:05 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/563291422384.shtml)
+- 2026-06-30 03:01 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/74501135.shtml)
+- 2026-06-30 02:55 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/8906508842.shtml)
+- 2026-06-30 03:14 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/56280.shtml)
+- 2026-06-30 03:18 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/59761.shtml)
+- 2026-06-30 03:19 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/5598574.shtml)
+- 2026-06-30 03:10 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/1655075.shtml)
+- 2026-06-30 03:19 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/9620843.shtml)
+- 2026-06-30 03:17 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/138849.shtml)
+- 2026-06-30 03:02 - [荷兰VS摩洛哥你看好谁](https://www.share.minike.top/Article/details/812645789801.shtml)

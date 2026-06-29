@@ -1,59 +1,48 @@
-# 海辰储能重庆基地成为全球首座储能电池“灯塔工厂”
+# 特朗普称美伊协议谈判进入第二阶段
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-5月8日消息，近日，世界经济论坛（WEF）公布了2026年新晋全球“灯塔工厂”名单，海辰储能重庆基地成功入选，成为全球首座储能电池“灯塔工厂”。该基地同时也是全球首款千安时长时储能专用电池量产工厂。 “灯塔工厂”由世界经济论坛与麦肯锡咨询公司于2018年共同发起评选，旨在从全球范围内甄选在第四次工业革命中具备领先示范意义的智能制造标杆。评选围绕生产力、可持续发展等维度展开，代表
+新华社巴黎6月16日电 美国总统特朗普16日称，美国和伊朗已成功在线上签署谅解备忘录，现在美伊协议谈判已进入第二阶段，“这应该比第一阶段更容易”。他还称，美国不会在伊朗投入任何资金。
 
 ## 正文
 
-5月8日消息，近日，世界经济论坛（WEF）公布了2026年新晋全球“灯塔工厂”名单，海辰储能重庆基地成功入选，成为全球首座储能电池“灯塔工厂”。
+新华社巴黎6月16日电 美国总统特朗普16日称，美国和伊朗已成功在线上签署谅解备忘录，现在美伊协议谈判已进入第二阶段，“这应该比第一阶段更容易”。
 
-该基地同时也是全球首款千安时长时储能专用电池量产工厂。
-
-“灯塔工厂”由世界经济论坛与麦肯锡咨询公司于2018年共同发起评选，旨在从全球范围内甄选在第四次工业革命中具备领先示范意义的智能制造标杆。
-
-评选围绕生产力、可持续发展等维度展开，代表着全球工业数字化与智能化的最高水平。
-
-截至目前，全球共有灯塔工厂224座，而储能电池领域此前从未有工厂入选。
-
-海辰储能重庆基地以近零缺陷制造、系统性降本增效、全流程智能化运营三大维度入手，全面推进数字化与智能化升级，持续探索精益生产与极限制造，实现了优品率、产能、设备综合效率等大幅提升。
-
-目前，重庆基地已建成全球首条长时储能专用电池产线。
-
-2025年6月，∞Cell 1175Ah 长时储能电池实现量产下线；10 月搭载该电池的 ∞Power 6.25MWh 4h长时储能系统开启全球交付；12 月该系统作为储能行业唯一代表，入选中国制造“十四五”成就展。
+他还称，美国不会在伊朗投入任何资金。
 
 ## 相关推荐
 
-- 2026-06-30 03:16 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-30 03:01 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-30 03:08 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-30 02:56 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-30 02:49 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-30 03:01 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-30 03:07 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-30 03:06 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-30 02:52 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 02:57 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 03:12 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-30 03:12 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-30 02:54 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 03:07 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 03:08 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 03:18 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-30 02:54 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-30 02:54 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-30 03:22 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-30 03:07 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-30 03:21 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-30 03:04 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-30 03:04 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-30 03:18 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 02:56 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-30 02:56 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-30 03:15 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:57 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/71031664622.shtml)
-- 2026-06-30 02:54 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.minike.top/Article/details/938378553007.shtml)
-- 2026-06-30 03:12 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/84541586133.shtml)
-- 2026-06-30 02:52 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/604689007.shtml)
-- 2026-06-30 03:14 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/779336047.shtml)
-- 2026-06-30 03:18 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/857204040814.shtml)
-- 2026-06-30 02:50 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/190535.shtml)
-- 2026-06-30 03:08 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/85619513.shtml)
-- 2026-06-30 02:53 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/269396231.shtml)
-- 2026-06-30 02:54 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/78922836429.shtml)
-- 2026-06-30 03:15 - [巴西绝杀](https://www.share.kurohicncr.top/Article/details/65794321659.shtml)
-- 2026-06-30 03:10 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/758539823.shtml)
-- 2026-06-30 03:03 - [日本16强魔咒](http://www.blog.minike.top/Article/details/795869182819.shtml)
-- 2026-06-30 03:05 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/595989864.shtml)
-- 2026-06-30 03:01 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/027554.shtml)
+- 2026-06-30 03:01 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/71880.shtml)
+- 2026-06-30 03:20 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/1411984.shtml)
+- 2026-06-30 03:17 - [电影后室值得看吗](https://www.share.minike.top/Article/details/730387.shtml)
+- 2026-06-30 03:06 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/829062750.shtml)
+- 2026-06-30 03:07 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/7595356.shtml)
+- 2026-06-30 03:14 - [内马尔替补](http://www.share.minike.top/Article/details/51347567.shtml)
+- 2026-06-30 03:22 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/2551228.shtml)
+- 2026-06-30 03:23 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/52421.shtml)
+- 2026-06-30 02:57 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/520319943155.shtml)
+- 2026-06-30 03:16 - [这几秒成世界杯最值钱广告位](https://www.blog.kurohicncr.top/Article/details/83499561813.shtml)
+- 2026-06-30 03:14 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/044242.shtml)
+- 2026-06-30 02:57 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/615360331463.shtml)
+- 2026-06-30 03:18 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/723306023.shtml)
+- 2026-06-30 03:05 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/68093634692.shtml)
+- 2026-06-30 03:01 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/66171.shtml)

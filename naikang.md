@@ -1,49 +1,57 @@
-# 不止是一幅画！黄胄笔下的库尔班，藏着最朴素的家国与感恩
+# 开国大典记（伟大征程）
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-一代丹青大家黄胄，以炎黄之名立志，以笔墨扎根山河人民，绘边疆风情、叙家国情怀，用一幅幅经典画作，镌刻时代记忆与民族同心。 1949年 东方雄狮豁然觉醒 神州大地万众同心 人人满怀热忱与期盼 有一位画家 以丹青描绘山河新气象 歌颂时代新风貌 这位画家，便是黄胄 毛主席曾评价 “黄胄是新中国自己培养出来的有为的青年画家 他能画我们的人民。” 走进炎黄艺术馆 一幅幅笔法奔放，刻画生动
+人民日报 本报记者 李昌禹 北京，长安街，晨曦微露，雄壮的国歌声中，五星红旗冉冉升起，人们肃立注目，天安门广场迎来新的一天。 历史的强音仿佛仍在回响。1949年10月1日，毛泽东在天安门城楼庄严宣告中华人民共和国中央人民政府成立。 习近平总书记指出，建立中华人民共和国，“彻底结束了旧中国半殖民地半封建社会的历史，彻底结束了旧中国一盘散沙的局面，彻底废除了列强强加给中国的不平等条
 
 ## 正文
 
-一代丹青大家黄胄，以炎黄之名立志，以笔墨扎根山河人民，绘边疆风情、叙家国情怀，用一幅幅经典画作，镌刻时代记忆与民族同心。
+人民日报 本报记者 李昌禹 北京，长安街，晨曦微露，雄壮的国歌声中，五星红旗冉冉升起，人们肃立注目，天安门广场迎来新的一天。
 
-1949年 东方雄狮豁然觉醒 神州大地万众同心 人人满怀热忱与期盼 有一位画家 以丹青描绘山河新气象 歌颂时代新风貌 这位画家，便是黄胄 毛主席曾评价 “黄胄是新中国自己培养出来的有为的青年画家 他能画我们的人民。
+历史的强音仿佛仍在回响。
 
-” 走进炎黄艺术馆 一幅幅笔法奔放，刻画生动的人物画展现眼前 艺术馆的“镇馆之宝” 是创作于1976年9月的《日夜想念毛主席》 画面里 维吾尔族老人弹奏冬不拉 骑驴坚定向东而行 这位老人 是新疆的库尔班·吐鲁木 他自幼沦为孤儿 在地主压迫下长大 羊圈是他的居所 后来新疆解放了 中国共产党让穷苦百姓翻身做主 生活随之变好的他许下心愿 一定要去北京，当面见见毛主席 北京何其远 他意志坚定 只要毛驴不倒 一路前行，终能抵达北京 “能让我亲眼见见毛主席 我这辈子也就心满意足了。
+1949年10月1日，毛泽东在天安门城楼庄严宣告中华人民共和国中央人民政府成立。
 
-” 最终，库尔班跟随观礼团奔赴首都 1958年6月28日 库尔班如愿受到毛主席亲切接见 经典瞬间被摄影师定格留存 王洛宾以此创作歌曲 黄胄也深受触动，提笔作画 记录这份跨越山河的赤诚与感恩 黄胄原名梁淦堂 年少亲历日军战机轰炸潼关和西安 一次校园体育比赛中 收获一面写着“炎黄之胄”的锦旗 读懂词义，心有共鸣 他毅然改名黄胄 以炎黄后裔自勉 立志做有志有为的中华儿女 二十世纪五十年代 新中国建设事业蒸蒸日上 黄胄跑遍祖国各地 紧紧围绕当时的重大事件 用画作描绘 昂扬的民族自信心和向上的时代面貌 黄胄的创作中 边疆人物是重要主题之一 青海、新疆、西藏、海南...... 祖国各地都有他写生的足迹 家国热爱、民族团结、烟火生活 是他作品的内核 他热爱新疆 一生七次赴疆写生 “新疆图画”成了他极具代表性的艺术符号 他一改学院画固定模特的习惯 画中人物均来自真实
+习近平总书记指出，建立中华人民共和国，“彻底结束了旧中国半殖民地半封建社会的历史，彻底结束了旧中国一盘散沙的局面，彻底废除了列强强加给中国的不平等条约和帝国主义在中国的一切特权，实现了中国从几千年封建专制政治向人民民主的伟大飞跃。
+
+” 1948年，随着解放战争胜利推进，建立新中国的任务被提上了议事日程。
+
+4月30日，中共中央发布“五一口号”，主张迅速召开政治协商会议，成立民主联合政府。
+
+1949年6月，以毛泽东为主任的新政协筹备会常务委员会成立，负责起草共同纲领、拟定政府方案等，全面展开筹建新中国政权的工作。
+
+9月21日，中国人民政治协商会议第一届全体会议在中南海怀仁堂隆重开幕。
 
 ## 相关推荐
 
-- 2026-06-30 03:08 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-30 02:51 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-30 03:05 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-30 02:59 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 02:58 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-30 03:04 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 02:49 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-30 03:16 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-30 03:06 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-30 03:12 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-30 02:49 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-30 03:09 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-30 03:02 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-30 03:08 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-30 02:56 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-30 02:57 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-30 03:06 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-30 03:07 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 03:18 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-30 02:54 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-30 03:06 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-30 03:06 - [世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:12 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/76629.shtml)
-- 2026-06-30 03:12 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/34229182.shtml)
-- 2026-06-30 03:00 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/71230107.shtml)
-- 2026-06-30 03:12 - [周杰伦的歌勾起25年友情](http://www.blog.kurohicncr.top/Article/details/884449.shtml)
-- 2026-06-30 02:58 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/17324821.shtml)
-- 2026-06-30 03:00 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/06282408.shtml)
-- 2026-06-30 03:16 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/241951260.shtml)
-- 2026-06-30 03:11 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/3060351761.shtml)
-- 2026-06-30 02:51 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/26645461.shtml)
-- 2026-06-30 03:06 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/732741985080.shtml)
-- 2026-06-30 03:08 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/06965343.shtml)
-- 2026-06-30 03:04 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/5851621701.shtml)
-- 2026-06-30 03:03 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/740227905156.shtml)
-- 2026-06-30 02:57 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/455179268046.shtml)
-- 2026-06-30 02:49 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.kurohicncr.top/Article/details/95624.shtml)
+- 2026-06-30 03:08 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/5232536.shtml)
+- 2026-06-30 03:14 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/674596.shtml)
+- 2026-06-30 02:55 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/12793230.shtml)
+- 2026-06-30 02:55 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/6434164425.shtml)
+- 2026-06-30 02:54 - [巴西vs日本](http://www.share.minike.top/Article/details/9621387256.shtml)
+- 2026-06-30 03:12 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/301958701266.shtml)
+- 2026-06-30 03:04 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/626197642.shtml)
+- 2026-06-30 03:13 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/41795.shtml)
+- 2026-06-30 03:10 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/4100699759.shtml)
+- 2026-06-30 02:55 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/03775308510.shtml)
+- 2026-06-30 03:11 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/42866025.shtml)
+- 2026-06-30 03:03 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/67270293.shtml)
+- 2026-06-30 03:15 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/5444655816.shtml)
+- 2026-06-30 02:59 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/197079.shtml)
+- 2026-06-30 03:10 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/890458.shtml)

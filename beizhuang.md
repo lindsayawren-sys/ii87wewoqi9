@@ -1,58 +1,59 @@
-# 博茨瓦纳前总统费斯图斯·莫哈埃去世
+# 火箭“烧煤”成现实 煤炭产业转型打开价值新空间
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:03 UTC+8
 
 ## 摘要
 
-中新网约翰内斯堡5月8日电 博茨瓦纳总统府8日通过官方社交账号宣布，前总统费斯图斯·莫哈埃去世，终年86岁。政府同时宣布全国哀悼三天。 莫哈埃是博茨瓦纳第三任总统，于1998年至2008年执政。莫哈埃曾领导这个以钻石资源丰富著称的国家长达十年，被认为成功推动了博茨瓦纳经济发展。 莫哈埃因积极应对艾滋病问题而广受赞誉。在博茨瓦纳艾滋病感染率一度位居全球前列时期，他公开直面艾滋病问
+提起煤炭，很多人第一印象就是用来烧火发电的燃料。如今，煤炭已“变身”航空煤油，成功把火箭送上太空。从地下黑煤到航天燃料，煤炭是怎么一步步“脱胎换骨”，变成高精尖产品？ 成本更低 火箭“烧煤”成现实 2026年6月1日16时40分，长征十二号乙运载火箭在东风商业航天创新试验区点火升空。 早在2023年，我国商业航天就已进入液体运载火箭时代，其燃料是煤基航天煤油，中国率先用煤炼出了
 
 ## 正文
 
-中新网约翰内斯堡5月8日电 博茨瓦纳总统府8日通过官方社交账号宣布，前总统费斯图斯·莫哈埃去世，终年86岁。
+提起煤炭，很多人第一印象就是用来烧火发电的燃料。
 
-政府同时宣布全国哀悼三天。
+如今，煤炭已“变身”航空煤油，成功把火箭送上太空。
 
-莫哈埃是博茨瓦纳第三任总统，于1998年至2008年执政。
+从地下黑煤到航天燃料，煤炭是怎么一步步“脱胎换骨”，变成高精尖产品？
 
-莫哈埃曾领导这个以钻石资源丰富著称的国家长达十年，被认为成功推动了博茨瓦纳经济发展。
+成本更低 火箭“烧煤”成现实 2026年6月1日16时40分，长征十二号乙运载火箭在东风商业航天创新试验区点火升空。
 
-莫哈埃因积极应对艾滋病问题而广受赞誉。
+早在2023年，我国商业航天就已进入液体运载火箭时代，其燃料是煤基航天煤油，中国率先用煤炼出了航空煤油。
 
-在博茨瓦纳艾滋病感染率一度位居全球前列时期，他公开直面艾滋病问题，并推动实施了非洲大陆最全面的抗艾项目之一。
+火箭烧煤的段子变成了现实。
 
-莫哈埃于1939年8月21日出生于博茨瓦纳中部城镇塞罗韦(Serowe)。
+在宁夏银川的化工厂里，有用煤提炼出的航空煤油，它的成本比石油中提取的航空煤油低30%至50%，纯净、密度、燃烧性能更优。
 
-他曾赴英国求学，并在博茨瓦纳于1966年独立后不久进入公务员系统工作。
+富煤贫油少气的能源格局，决定了不能完全依赖石油。
 
 ## 相关推荐
 
-- 2026-06-30 03:16 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-30 03:15 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-30 03:08 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-30 03:01 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-30 03:04 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-30 03:17 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-30 03:03 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-30 02:54 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-30 03:01 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-30 02:54 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-30 03:08 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-30 02:57 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 02:56 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-30 03:11 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-30 03:22 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-30 02:58 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-30 02:59 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-30 03:07 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-30 03:01 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-30 03:09 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-30 03:17 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-30 02:58 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-30 02:55 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-30 03:17 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 03:16 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:55 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/99104.shtml)
-- 2026-06-30 03:11 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/06857603660.shtml)
-- 2026-06-30 03:04 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/8990546.shtml)
-- 2026-06-30 03:05 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/505094.shtml)
-- 2026-06-30 02:58 - [逃狱兄弟](http://www.blog.minike.top/Article/details/581171085.shtml)
-- 2026-06-30 02:53 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/724076083.shtml)
-- 2026-06-30 03:03 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/26668074548.shtml)
-- 2026-06-30 03:16 - [千与千寻](https://www.share.minike.top/Article/details/875409.shtml)
-- 2026-06-30 02:48 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/94072999.shtml)
-- 2026-06-30 02:49 - [警犬“多多”助民警寻回失联老人](https://www.share.kurohicncr.top/Article/details/50255764.shtml)
-- 2026-06-30 02:52 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/937381.shtml)
-- 2026-06-30 03:17 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/26546.shtml)
-- 2026-06-30 03:04 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/63033460111.shtml)
-- 2026-06-30 03:10 - [庆祝中国共产党成立105周年音乐会](http://www.blog.kurohicncr.top/Article/details/628924193806.shtml)
-- 2026-06-30 03:12 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/823388001308.shtml)
+- 2026-06-30 02:58 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/9369402.shtml)
+- 2026-06-30 03:11 - [斗破苍穹](https://www.blog.minike.top/Article/details/899083.shtml)
+- 2026-06-30 03:08 - [爱很美味](http://www.share.kurohicncr.top/Article/details/40783080557.shtml)
+- 2026-06-30 03:15 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/0085311107.shtml)
+- 2026-06-30 03:03 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/41449103.shtml)
+- 2026-06-30 03:09 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/179009283057.shtml)
+- 2026-06-30 03:01 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/1012489500.shtml)
+- 2026-06-30 03:22 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/50049087428.shtml)
+- 2026-06-30 03:08 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/634929.shtml)
+- 2026-06-30 03:23 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/3331127.shtml)
+- 2026-06-30 03:03 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/17083057.shtml)
+- 2026-06-30 03:10 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/899111659.shtml)
+- 2026-06-30 03:16 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/49178561140.shtml)
+- 2026-06-30 03:08 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/287455.shtml)
+- 2026-06-30 03:23 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/3094000472.shtml)

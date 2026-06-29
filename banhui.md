@@ -1,51 +1,58 @@
-# 母亲节将至 致敬中国烟台SOS儿童村“专职妈妈”
+# 对接国家战略 辽宁高校人才培养呈现“冷热”新图景
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月08日 19:18 来源：中国新闻网 5月7日，山东烟台。母亲节将至，中国烟台SOS儿童村的“专职妈妈”们，为孤困儿童提供家庭式养育，用陪伴为孩子们撑起温暖的家，致敬这份平凡伟大的母爱。(刘昊 曲正扬 制作 王佳琪) 责任编辑：【卢岩】
+中新网沈阳6月16日电(姜月恒 禹瑞斋)在高校毕业生就业市场与高等教育专业调整的双重坐标下，一幅人才供需精准匹配的新图景正在辽宁展开。一边是看似“冷门”的工科专业凭借高就业率成为就业市场的“硬通货”；另一边是高校敏锐地捕捉社会需求，新设专业。近日，记者走进辽宁省两所高校，了解到高等教育正加速从“供给导向”向“需求导向”深刻转型。 “冷门”不冷：安全领域人才需求旺盛 沈阳理工大学
 
 ## 正文
 
-发布时间：2026年05月08日 19:18 来源：中国新闻网 5月7日，山东烟台。
+中新网沈阳6月16日电(姜月恒 禹瑞斋)在高校毕业生就业市场与高等教育专业调整的双重坐标下，一幅人才供需精准匹配的新图景正在辽宁展开。
 
-母亲节将至，中国烟台SOS儿童村的“专职妈妈”们，为孤困儿童提供家庭式养育，用陪伴为孩子们撑起温暖的家，致敬这份平凡伟大的母爱。
+一边是看似“冷门”的工科专业凭借高就业率成为就业市场的“硬通货”；另一边是高校敏锐地捕捉社会需求，新设专业。
 
-(刘昊 曲正扬 制作 王佳琪) 责任编辑：【卢岩】
+近日，记者走进辽宁省两所高校，了解到高等教育正加速从“供给导向”向“需求导向”深刻转型。
+
+“冷门”不冷：安全领域人才需求旺盛 沈阳理工大学，其特色专业常年因名称带有“安全”“爆炸”等字眼而被部分考生视为“冷门”。
+
+然而，在近年来的就业市场上，这些专业却呈现出供不应求的火热态势。
+
+6月的沈阳理工大学，弹药工程与爆炸技术、安全工程等专业的教学与实训正在有序进行。
+
+“弹药工程与爆炸技术专业毕业生服务于民用爆破等领域，可替代性非常低。
+
+”沈阳理工大学弹药工程与爆炸技术专业教研室主任郭文凤介绍到，此专业融合多学科知识，适配行业复合型技术人才需求。
 
 ## 相关推荐
 
-- 2026-06-30 02:49 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-30 02:55 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-30 03:06 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-30 02:59 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-30 03:13 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-30 03:04 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-30 02:51 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 03:01 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-30 02:51 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-30 03:07 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-30 03:00 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-30 02:59 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-30 03:00 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-30 03:11 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-30 02:58 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-30 03:11 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-30 03:06 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-30 03:20 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-30 03:11 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-30 03:18 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-30 03:07 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-30 03:02 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-30 03:17 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-30 02:57 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-30 02:54 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 03:20 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-30 02:55 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:02 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/5670211989.shtml)
-- 2026-06-30 03:08 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/16837601.shtml)
-- 2026-06-30 03:14 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/152764518291.shtml)
-- 2026-06-30 03:13 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/946740.shtml)
-- 2026-06-30 03:06 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/043962.shtml)
-- 2026-06-30 03:07 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/668607521355.shtml)
-- 2026-06-30 03:12 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/9777153595.shtml)
-- 2026-06-30 02:59 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/340508.shtml)
-- 2026-06-30 03:05 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/0999371208.shtml)
-- 2026-06-30 02:57 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/919104058131.shtml)
-- 2026-06-30 02:59 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/0329095343.shtml)
-- 2026-06-30 03:00 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/409239088027.shtml)
-- 2026-06-30 03:08 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/9664292333.shtml)
-- 2026-06-30 03:14 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/949289875322.shtml)
-- 2026-06-30 03:08 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/0748310962.shtml)
+- 2026-06-30 03:01 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/136463204.shtml)
+- 2026-06-30 03:19 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/592544.shtml)
+- 2026-06-30 03:07 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/556784428.shtml)
+- 2026-06-30 03:07 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/728626725.shtml)
+- 2026-06-30 03:00 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/954340.shtml)
+- 2026-06-30 03:20 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/0140573180.shtml)
+- 2026-06-30 03:04 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/417326.shtml)
+- 2026-06-30 02:56 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/21541.shtml)
+- 2026-06-30 02:58 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/307304.shtml)
+- 2026-06-30 03:13 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/267114.shtml)
+- 2026-06-30 02:55 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/6367087.shtml)
+- 2026-06-30 02:56 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/984587.shtml)
+- 2026-06-30 03:00 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/20114810789.shtml)
+- 2026-06-30 03:16 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/4181875899.shtml)
+- 2026-06-30 03:20 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/81097186.shtml)

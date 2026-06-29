@@ -1,57 +1,56 @@
-# 2026世界杯美加墨三国将分别举办开幕式
+# 邦达亚洲:如期加息25个基点 美元日元早盘下滑
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-新华社华盛顿5月8日电(记者杨伶)国际足联8日宣布，2026年世界杯举办国墨西哥、加拿大和美国将分别举办开幕式。 国际足联主席因凡蒂诺表示：“从墨西哥城开始，接下来是多伦多和洛杉矶，这些开幕式将音乐、文化和足球融为一体，既体现了每个国家的独特性，也展现了本届赛事所代表的团结精神……这将是开启一场全球盛会的有力方式。” 美加墨世界杯将于6月11日开幕，揭幕战是墨西哥队对阵南非队，
+6月16日，澳洲联储周二宣布维持官方基准利率在4.35%不变，符合市场预期，此前连续三次会议加息。本轮决策出台背景是国内经济活动显著降温，失业率攀升至四年以来新高。市场此前已普遍预判本次暂停加息，但对于背负房贷压力的居民而言，该结果难以带来实质减负。澳洲联储表示，今天的利率决定获得一致通过，并指出最新数据显示整体和核心通胀仍然过高，将采取必要措施以实现目标，包括在必要时进一步提
 
 ## 正文
 
-新华社华盛顿5月8日电(记者杨伶)国际足联8日宣布，2026年世界杯举办国墨西哥、加拿大和美国将分别举办开幕式。
+6月16日，澳洲联储周二宣布维持官方基准利率在4.35%不变，符合市场预期，此前连续三次会议加息。
 
-国际足联主席因凡蒂诺表示：“从墨西哥城开始，接下来是多伦多和洛杉矶，这些开幕式将音乐、文化和足球融为一体，既体现了每个国家的独特性，也展现了本届赛事所代表的团结精神……这将是开启一场全球盛会的有力方式。
+本轮决策出台背景是国内经济活动显著降温，失业率攀升至四年以来新高。
 
-” 美加墨世界杯将于6月11日开幕，揭幕战是墨西哥队对阵南非队，比赛将在墨西哥城举行。
+市场此前已普遍预判本次暂停加息，但对于背负房贷压力的居民而言，该结果难以带来实质减负。
 
-国际足联在声明中说，比赛开始前90分钟，墨西哥将以一场“史无前例的开幕式拉开这场地球上最盛大演出的序幕”。
+澳洲联储表示，今天的利率决定获得一致通过，并指出最新数据显示整体和核心通胀仍然过高，将采取必要措施以实现目标，包括在必要时进一步提高现金利率目标。
 
-加拿大将于6月12日在多伦多举办开幕式，之后加拿大队将迎战波黑队。
+澳洲联储在声明中表示：“自年初以来，现金利率目标已三次上调，当前的金融环境较此前更为紧缩，经济放缓的迹象也如预期般显现。
 
-美国将于6月12日在洛杉矶举行开幕式，之后美国队将迎来与巴拉圭队的小组赛。
+”此次暂停加息标志着澳洲联储对其激进的紧缩政策有所收敛，此前该行因采取此类政策而在主要央行中显得格格不入。
 
-美加墨世界杯将于6月11日至7月19日在美国、
+另外，日本央行宣布将基准利率上调25个基点至1%，达到1995年以来最高水平，并宣布将于2027年4月起暂停缩减国债购买规模。
+
+两项决议均以7比1的投票比例通过。
 
 ## 相关推荐
 
-- 2026-06-30 03:01 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-30 02:50 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-30 03:14 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-30 02:56 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 03:15 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-30 03:00 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-30 02:58 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 03:08 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-30 02:51 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-30 03:17 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-30 03:09 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-30 03:04 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-30 03:02 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 02:58 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-30 03:19 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-30 02:58 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-30 02:59 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-30 03:10 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 03:07 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 03:19 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-30 02:58 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-30 03:01 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-30 03:09 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:49 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/441990.shtml)
-- 2026-06-30 02:56 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/89044327.shtml)
-- 2026-06-30 03:03 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/6690684485.shtml)
-- 2026-06-30 03:02 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/23597545763.shtml)
-- 2026-06-30 03:11 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/31310224.shtml)
-- 2026-06-30 03:14 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/76582.shtml)
-- 2026-06-30 03:15 - [巴西绝杀日本](http://www.share.minike.top/Article/details/465801.shtml)
-- 2026-06-30 02:56 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/21148.shtml)
-- 2026-06-30 02:54 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/32947.shtml)
-- 2026-06-30 03:12 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/62577.shtml)
-- 2026-06-30 02:48 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.minike.top/Article/details/0699840.shtml)
-- 2026-06-30 03:06 - [仙游一峡谷5人身亡知情者发声](https://www.share.minike.top/Article/details/40528381.shtml)
-- 2026-06-30 03:08 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/0384219.shtml)
-- 2026-06-30 03:02 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/0843508.shtml)
-- 2026-06-30 03:11 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/1335086299.shtml)
+- 2026-06-30 02:58 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/677805.shtml)
+- 2026-06-30 02:55 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/57707.shtml)
+- 2026-06-30 03:04 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/664667428713.shtml)
+- 2026-06-30 02:55 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/042063.shtml)
+- 2026-06-30 02:57 - [急先锋](http://www.blog.minike.top/Article/details/55465.shtml)
+- 2026-06-30 03:00 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/310112137.shtml)
+- 2026-06-30 02:57 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/1704982.shtml)
+- 2026-06-30 03:12 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/905181.shtml)
+- 2026-06-30 03:21 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/9844108.shtml)
+- 2026-06-30 03:07 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/2297959977.shtml)
+- 2026-06-30 03:17 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/2957958.shtml)
+- 2026-06-30 03:06 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/32604524395.shtml)
+- 2026-06-30 03:15 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/9678174.shtml)
+- 2026-06-30 02:57 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/3839045.shtml)
+- 2026-06-30 03:16 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/7215516603.shtml)

@@ -1,57 +1,61 @@
-# 国务院成立浏阳烟花爆炸事故调查组
+# 高盛下调油价预期：海湾地区原油供给恢复速度快于此前预判
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-【#国务院成立浏阳烟花爆炸事故调查组#】#国务院事故调查组第一次全体会议# #国务院事故调查组会议现场默哀# 5月4日16时43分许，湖南省长沙市浏阳市华盛烟花制造燃放有限公司发生特别重大爆炸事故，截至5月8日12时，事故造成37人死亡、1人失联，在医救治51人。为认真贯彻落实习近平总书记重要指示精神，按照李强总理等中央领导同志批示要求，根据国家有关法律法规规定，国务院成立事故
+该行表示，即便霍尔木兹海峡航运量仅恢复至战前约 70%，海湾地区原油出口量也有望重回战前水平 在美国与伊朗达成终止敌对行动的临时协议后，高盛下调了油价预测。该行表示，波斯湾原油出口最早将于 7 月下旬恢复至战前水平，较此前预期提前约一个月。 高盛最新预测，作为国际原油定价基准的布伦特原油今年均价为每桶 85 美元，西德克萨斯轻质原油（WTI）均价为每桶 80 美元，此前预测值分
 
 ## 正文
 
-【#国务院成立浏阳烟花爆炸事故调查组#】#国务院事故调查组第一次全体会议# #国务院事故调查组会议现场默哀# 5月4日16时43分许，湖南省长沙市浏阳市华盛烟花制造燃放有限公司发生特别重大爆炸事故，截至5月8日12时，事故造成37人死亡、1人失联，在医救治51人。
+该行表示，即便霍尔木兹海峡航运量仅恢复至战前约 70%，海湾地区原油出口量也有望重回战前水平 在美国与伊朗达成终止敌对行动的临时协议后，高盛下调了油价预测。
 
-为认真贯彻落实习近平总书记重要指示精神，按照李强总理等中央领导同志批示要求，根据国家有关法律法规规定，国务院成立事故调查组，由应急管理部牵头，公安部、海关总署、市场监管总局、全国总工会和湖南省人民政府等相关方面参加，对湖南长沙浏阳市华盛烟花制造燃放有限公司“5·4”特别重大爆炸事故进行调查。
+该行表示，波斯湾原油出口最早将于 7 月下旬恢复至战前水平，较此前预期提前约一个月。
 
-5月8日下午，国务院湖南长沙浏阳市华盛烟花制造燃放有限公司“5·4”特别重大爆炸事故调查组召开第一次全体会议。
+高盛最新预测，作为国际原油定价基准的布伦特原油今年均价为每桶 85 美元，西德克萨斯轻质原油（WTI）均价为每桶 80 美元，此前预测值分别为每桶 90 美元、85 美元。
 
-国务院事故调查组组长、应急管理部部长张成中主持会议，通报调查安排、提出工作要求。
+对于明年油价，高盛预计布伦特原油均价 75 美元 / 桶，WTI 原油均价 70 美元 / 桶。
 
-会议开始前，与会同志全体肃立，向湖南长沙浏阳市华盛烟花制造燃放有限公司“5·4”特别重大爆炸事故遇难者默哀。
+特朗普总统表示，美国将解除对伊朗港口的海上封锁，至关重要的霍尔木兹海峡航道将于本周重新开放。
 
-会议强调，事故调查工作要认真贯彻落实习近平总书记重要指示精神和党中央、国务院决策部署，按照“科学严谨、依法依规、实事求是、注重实效”和“四不放过”的原则，把事实查清楚、把问题查清楚、把责任查清楚，以高度的政治责任感做好事故调查工作。
+目前双方尚未公布协议详细条款，正式签约仪式定于本周五举行。
 
-同时，会议要求地方政府深刻汲取教训，采取果断措施加强烟花爆竹安全监管，举一反三抓好重点行业领域隐患排查整治，坚决防范遏制重特大事故。
+高盛称，本次油价预测仍存在双向风险。
 
-国务院事故调查组全体成员，中央纪委国家监委有关部门负责同志出席会议。
+一方面，原油供给的修复速度可能超出预期：即便霍尔木兹海峡航运量仅恢复至战前约 70%，海湾地区原油出口总量依旧可以回到战前水平。
 
 ## 相关推荐
 
-- 2026-06-30 03:18 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-30 02:51 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-30 03:00 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-30 03:17 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-30 02:50 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-30 03:17 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-30 03:14 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-30 02:58 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 03:06 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 02:53 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-30 03:11 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-30 03:12 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-30 02:55 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-30 02:54 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-30 03:15 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-30 03:06 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-30 02:59 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-30 03:20 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-30 02:57 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-30 03:07 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-30 02:54 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 03:10 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 02:59 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 03:04 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-30 03:04 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-30 03:20 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:11 - [美股](http://www.share.kurohicncr.top/Article/details/36066.shtml)
-- 2026-06-30 03:17 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/47654.shtml)
-- 2026-06-30 03:09 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/84080.shtml)
-- 2026-06-30 03:01 - [巴西醒醒 这是淘汰赛](https://www.blog.minike.top/Article/details/0968353453.shtml)
-- 2026-06-30 02:55 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/568961362.shtml)
-- 2026-06-30 02:56 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/05243.shtml)
-- 2026-06-30 02:49 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/135511514.shtml)
-- 2026-06-30 03:12 - [绘画区你赢了](http://www.share.minike.top/Article/details/09267.shtml)
-- 2026-06-30 03:02 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/31312686305.shtml)
-- 2026-06-30 02:53 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/773898503233.shtml)
-- 2026-06-30 03:17 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/66312934037.shtml)
-- 2026-06-30 02:51 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/390826.shtml)
-- 2026-06-30 03:15 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/39031856375.shtml)
-- 2026-06-30 03:05 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/91992.shtml)
-- 2026-06-30 02:51 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/474727.shtml)
+- 2026-06-30 02:56 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/090781749.shtml)
+- 2026-06-30 03:16 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/0758377.shtml)
+- 2026-06-30 03:07 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/5469132.shtml)
+- 2026-06-30 03:22 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/18220894.shtml)
+- 2026-06-30 02:57 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/4017211486.shtml)
+- 2026-06-30 02:55 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/09256.shtml)
+- 2026-06-30 03:03 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/62583.shtml)
+- 2026-06-30 02:59 - [流金岁月](http://www.share.kurohicncr.top/Article/details/96953065.shtml)
+- 2026-06-30 03:16 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/5082999.shtml)
+- 2026-06-30 03:14 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/12656145695.shtml)
+- 2026-06-30 03:02 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/79300899.shtml)
+- 2026-06-30 03:00 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/0462780108.shtml)
+- 2026-06-30 03:11 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/72609170.shtml)
+- 2026-06-30 03:06 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/105477.shtml)
+- 2026-06-30 03:18 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/533587.shtml)

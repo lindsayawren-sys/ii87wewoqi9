@@ -1,57 +1,57 @@
-# 汇丰中国新推300亿元信贷基金助绿色产业链出海
+# 印尼中苏拉威西省6.7级地震已致1死38伤
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-中新社上海5月8日电 (记者 姜煜)汇丰银行(中国)有限公司(下称“汇丰中国”)8日宣布，以总计300亿元人民币的全新专项信贷基金定向支持中资企业低碳转型，并联动集团海外资源重点推动中国绿色产业链加速布局全球市场。上述专项信贷基金将侧重支持清洁能源、交通电气化等绿色相关产业，此外还纳入了数据中心和人工智能等可以赋能绿色智慧转型的新兴产业，合力推动经济的可持续发展。 汇丰中国曾于
+中新网雅加达6月17日电 印度尼西亚国家抗灾署16日晚通报，截至当地时间16日19时，中苏拉威西省6.7级地震已造成1人死亡、25人轻伤、13人重伤。 初步统计显示，地震已导致约110户家庭、312人受灾。至少67栋房屋受到影响，其中26栋轻度受损、6栋中度受损、12栋重度受损。 此外，地震还造成多处桥梁、公共设施、办公楼、商业场所及省级公路等受损。 印尼国家抗灾署表示，截至1
 
 ## 正文
 
-中新社上海5月8日电 (记者 姜煜)汇丰银行(中国)有限公司(下称“汇丰中国”)8日宣布，以总计300亿元人民币的全新专项信贷基金定向支持中资企业低碳转型，并联动集团海外资源重点推动中国绿色产业链加速布局全球市场。
+中新网雅加达6月17日电 印度尼西亚国家抗灾署16日晚通报，截至当地时间16日19时，中苏拉威西省6.7级地震已造成1人死亡、25人轻伤、13人重伤。
 
-上述专项信贷基金将侧重支持清洁能源、交通电气化等绿色相关产业，此外还纳入了数据中心和人工智能等可以赋能绿色智慧转型的新兴产业，合力推动经济的可持续发展。
+初步统计显示，地震已导致约110户家庭、312人受灾。
 
-汇丰中国曾于2023年推出相同额度的绿色信贷基金，并已顺利收官。
+至少67栋房屋受到影响，其中26栋轻度受损、6栋中度受损、12栋重度受损。
 
-本次新推的信贷基金将信贷支持重点从绿色产业链核心企业延展至整个产业链供应链生态体系，助力“链主”企业及其上下游配套企业的业务拓展和转型，尤其是绿色产能的海外扩建，打造中国绿色产能“成链集群”出海的强大竞争力。
+此外，地震还造成多处桥梁、公共设施、办公楼、商业场所及省级公路等受损。
 
-此外，该基金将结合企业的行业特性、外部市场条件和境内外金融需求等，为企业提供专属信贷审批通道，加快其可持续发展转型项目特别是海外绿色项目的审批，并联动汇丰集团境内外产品团队为中企海外绿色基础设施项目的扩建提供支持。
+印尼国家抗灾署表示，截至16日下午，余震仍持续发生。
 
-汇丰中国副行长兼企业及机构银行业务部总监唐臻怡表示：“随着中国产业结构升级，新兴绿色产业在全球绿色转型方面扮演着日益关键的角色。
+该机构正联合相关部门和地方政府持续开展灾情评估与应急处置工作，并呼吁民众保持冷静，及时关注官方发布的预警和灾情信息。
 
-在此进程中，绿色金融可以成为重要驱动力，推动中国低碳高效的产业链在更多海外市场落地，让更多当地企业和消费者获益。
-
-”(完)
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:54 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 02:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-30 03:04 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-30 03:03 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-30 03:15 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-30 03:07 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-30 03:09 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-30 03:14 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-30 03:02 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-30 02:54 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-30 03:11 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-30 03:03 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-30 03:13 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-30 02:59 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-30 03:14 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-30 03:11 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-30 03:10 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-30 03:09 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 02:58 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 02:59 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-30 03:01 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-30 03:15 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-30 02:59 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-30 03:18 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:15 - [流金岁月](http://www.blog.minike.top/Article/details/01011.shtml)
-- 2026-06-30 03:10 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/846308403298.shtml)
-- 2026-06-30 03:15 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/997357798358.shtml)
-- 2026-06-30 03:14 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/59719.shtml)
-- 2026-06-30 03:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/3838723.shtml)
-- 2026-06-30 03:10 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.minike.top/Article/details/7030819138.shtml)
-- 2026-06-30 03:02 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/5963765928.shtml)
-- 2026-06-30 02:53 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/919432.shtml)
-- 2026-06-30 03:03 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/6833015229.shtml)
-- 2026-06-30 03:17 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/817123136.shtml)
-- 2026-06-30 03:15 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/000558.shtml)
-- 2026-06-30 02:55 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/19986.shtml)
-- 2026-06-30 02:50 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/82227.shtml)
-- 2026-06-30 03:07 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/18890909122.shtml)
-- 2026-06-30 03:15 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/585766560048.shtml)
+- 2026-06-30 03:01 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/7195603.shtml)
+- 2026-06-30 03:09 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/889869.shtml)
+- 2026-06-30 03:12 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/763615.shtml)
+- 2026-06-30 03:16 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/47914409.shtml)
+- 2026-06-30 02:55 - [一生一世](http://www.blog.minike.top/Article/details/770070246.shtml)
+- 2026-06-30 02:55 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/030069.shtml)
+- 2026-06-30 03:02 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/9409649.shtml)
+- 2026-06-30 03:05 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/88944819.shtml)
+- 2026-06-30 03:16 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/543466408667.shtml)
+- 2026-06-30 03:11 - [世界杯](https://www.blog.kurohicncr.top/Article/details/377811.shtml)
+- 2026-06-30 03:02 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/969059530.shtml)
+- 2026-06-30 02:54 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/824779349800.shtml)
+- 2026-06-30 02:59 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/079876476421.shtml)
+- 2026-06-30 03:22 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/10351.shtml)
+- 2026-06-30 03:05 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/43720091.shtml)

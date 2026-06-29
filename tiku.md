@@ -1,58 +1,49 @@
-# 公安部公布无人机影响铁路安全典型案例
+# 多项指标稳步增长 国民经济持续向新向优
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-中新网5月9日电 据公安部微信公众号消息，近年来，我国无人机保有量持续攀升、应用场景不断拓展。但个别人员操控无人机在铁路沿线开展飞行拍摄、从事农林作业等活动时，因安全意识淡薄、操作不当侵入高铁线路区域或违法飞越铁路线路上空，严重影响铁路运输秩序，危害高铁运行安全。公安部今日公布今年以来公安机关查处的无人机影响铁路安全典型案例。公安机关提醒广大群众，无人机侵入铁路线路及两侧规定范
+原标题：权威数读｜多项指标稳步增长 国民经济持续向新向优 国家统计局16日发布数据显示，2026年1至5月，全国规模以上工业增加值同比增长5.4%，全国服务业生产指数同比增长4.8%，货物进出口总额同比增长15.3%，社会消费商品和服务零售总额同比增长2.8%。国民经济延续总体平稳、向新向优发展态势，经济发展韧性持续显现。 统筹：陈知春 文案、制作：孙尉轩
 
 ## 正文
 
-中新网5月9日电 据公安部微信公众号消息，近年来，我国无人机保有量持续攀升、应用场景不断拓展。
+原标题：权威数读｜多项指标稳步增长 国民经济持续向新向优 国家统计局16日发布数据显示，2026年1至5月，全国规模以上工业增加值同比增长5.4%，全国服务业生产指数同比增长4.8%，货物进出口总额同比增长15.3%，社会消费商品和服务零售总额同比增长2.8%。
 
-但个别人员操控无人机在铁路沿线开展飞行拍摄、从事农林作业等活动时，因安全意识淡薄、操作不当侵入高铁线路区域或违法飞越铁路线路上空，严重影响铁路运输秩序，危害高铁运行安全。
+国民经济延续总体平稳、向新向优发展态势，经济发展韧性持续显现。
 
-公安部今日公布今年以来公安机关查处的无人机影响铁路安全典型案例。
-
-公安机关提醒广大群众，无人机侵入铁路线路及两侧规定范围管制空域，飞越铁路线路行为，违反《中华人民共和国治安管理处罚法》《无人驾驶航空器飞行管理暂行条例》《高速铁路安全防护管理办法》等法律法规，依法应予行政处罚；构成犯罪的，还将依法追究刑事责任。
-
-广大无人机使用者要严格遵守法律法规，规范操作，守法飞行，共同守护低空秩序，维护铁路运行安全。
-
-一、吴某某过失损坏交通工具案 2026年4月，吴某某在河北省沧州市境内京沪高铁沿线操控无人机为麦田喷洒农药，其间无人机违法从铁路高架桥下穿越飞行，之后又上升到高架桥面，随后失控坠入铁路线路。
-
-G15次列车途经坠落点撞击无人机，造成车辆故障，停车32分钟，63趟列车晚点。
-
-吴某某因涉嫌过失损坏交通工具罪，被公安机关依法采取刑事强制措施。
+统筹：陈知春 文案、制作：孙尉轩
 
 ## 相关推荐
 
-- 2026-06-30 02:55 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-30 03:13 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-30 02:55 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-30 03:02 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-30 02:53 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-30 02:54 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 03:16 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-30 03:11 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-30 02:52 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-30 02:52 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-30 02:58 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-30 03:06 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 03:07 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-30 03:05 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-30 03:19 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-30 02:54 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-30 03:20 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-30 03:19 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-30 03:15 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 03:11 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 03:23 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-30 02:54 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 03:07 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 03:08 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-30 02:56 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:09 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/01726.shtml)
-- 2026-06-30 02:59 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/656014696007.shtml)
-- 2026-06-30 02:57 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/46040009.shtml)
-- 2026-06-30 03:14 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/3065277842.shtml)
-- 2026-06-30 03:00 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/28616459307.shtml)
-- 2026-06-30 03:05 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/42952853.shtml)
-- 2026-06-30 02:48 - [警犬“多多”助民警寻回失联老人](http://www.blog.kurohicncr.top/Article/details/699881038.shtml)
-- 2026-06-30 03:03 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/083927.shtml)
-- 2026-06-30 02:57 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/614999.shtml)
-- 2026-06-30 02:52 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/012996160.shtml)
-- 2026-06-30 02:58 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/66290.shtml)
-- 2026-06-30 03:11 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/519482822.shtml)
-- 2026-06-30 03:05 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/60708644925.shtml)
-- 2026-06-30 03:11 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/268238900738.shtml)
-- 2026-06-30 02:59 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/2661987.shtml)
+- 2026-06-30 02:57 - [千香](https://www.share.kurohicncr.top/Article/details/242331014743.shtml)
+- 2026-06-30 03:13 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/89258545265.shtml)
+- 2026-06-30 03:06 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/37336605675.shtml)
+- 2026-06-30 03:08 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/671939.shtml)
+- 2026-06-30 03:14 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/9318770941.shtml)
+- 2026-06-30 03:11 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/35846731.shtml)
+- 2026-06-30 03:11 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/70060852902.shtml)
+- 2026-06-30 03:23 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/5911376.shtml)
+- 2026-06-30 03:13 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/274028509.shtml)
+- 2026-06-30 02:55 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/19457.shtml)
+- 2026-06-30 03:07 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/3357939.shtml)
+- 2026-06-30 03:15 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/55181558.shtml)
+- 2026-06-30 03:10 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/05460354887.shtml)
+- 2026-06-30 03:21 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/8426630855.shtml)
+- 2026-06-30 03:17 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/059115947183.shtml)

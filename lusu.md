@@ -1,56 +1,52 @@
-# 双鹭药业：炒股巨亏、信托暴雷、主业萎缩，曾经的“白马股”还能撑多久？
+# 李氏大药厂拟回购不多于5000万港元公司股份
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-2025年营收6.24亿元，炒股亏损2亿元，7.64亿元信托本金难以追回，董事长“自掏腰包”补缺，却难掩公司内控崩塌、业绩断崖、主业疲软的现实。双鹭药业正陷入一场难以轻松脱身的“中年危机”。 一、内控失灵：信托迷局背后的管理黑洞 双鹭药业在2026年5月公告中承认，公司原财务人员隋某某涉嫌利用职务便利侵占公司利益，导致通过信托产品对外提供的7.64亿元本金难以收回。尽管公司已报
+李氏大药厂（00950）发布公告，公司已决定透过行使公司股东于2026年5月21日举行的公司股东周年大会上授予董事会购回公司股份的一般授权，实行一项股份购回计划。公司将于公开市场上购回其股份。在购回授权的规限下，股份购回计划将授权公司于自2026年6月16日起至公司下届股东周年大会结束时或公司的组织章程大纲及细则或任何适用法律规定公司须举行下届股东周年大会的期限届满时或公司股东
 
 ## 正文
 
-2025年营收6.24亿元，炒股亏损2亿元，7.64亿元信托本金难以追回，董事长“自掏腰包”补缺，却难掩公司内控崩塌、业绩断崖、主业疲软的现实。
+李氏大药厂（00950）发布公告，公司已决定透过行使公司股东于2026年5月21日举行的公司股东周年大会上授予董事会购回公司股份的一般授权，实行一项股份购回计划。
 
-双鹭药业正陷入一场难以轻松脱身的“中年危机”。
+公司将于公开市场上购回其股份。
 
-一、内控失灵：信托迷局背后的管理黑洞 双鹭药业在2026年5月公告中承认，公司原财务人员隋某某涉嫌利用职务便利侵占公司利益，导致通过信托产品对外提供的7.64亿元本金难以收回。
+在购回授权的规限下，股份购回计划将授权公司于自2026年6月16日起至公司下届股东周年大会结束时或公司的组织章程大纲及细则或任何适用法律规定公司须举行下届股东周年大会的期限届满时或公司股东于股东大会上以普通决议案撤销或更改购回授权之日（以最早者为准）止期间，以不多于5000万港元的总代价购回股份。
 
-尽管公司已报案并立案，但事件暴露出其内部控制的严重缺陷——不仅未履行必要的审议程序，信披也不准确，深交所因此对公司及高管给予公开谴责。
+根据购回授权，公司获准购回最多达于授出购回授权的相关决议案通过当日已发行股份总数10%的本身股份（即58，883，534股股份）。
 
-更令人担忧的是，董事长徐明波虽承诺补足差额并已先行缴纳5000万元，但其年薪仅31.85万元（2025年），持股比例22.62%，能否真正兜底仍是未知数。
-
-对于一家年营收刚过6亿元的企业来说，7.64亿元的潜在损失几乎是“灭顶之灾”。
-
-二、沉迷“炒股”与投资：业绩的过山车游戏 近年来，双鹭药业的业绩表现与资本市场波动高度绑定，已然偏离了制药主业的稳健逻辑。
-
-2023年，持仓股价上涨，贡献公允价值收益1.97亿元；2024年，股价回调，公允价值变动损失1.78亿元，导致公司上市以来首次年度净利润亏损；2025年前三季度，公允价值“由亏转盈”，归母净利润短暂暴增943.1%；2025年全年，理财投资亏损6.04亿元，公允价值收益3.54亿元，净拖累2.5亿元，全年净亏损3.47亿元。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 03:15 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-30 02:51 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-30 02:50 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-30 03:11 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-30 03:10 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-30 02:59 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-30 02:54 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-30 03:05 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-30 02:49 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-30 03:04 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-30 02:58 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-30 03:03 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-30 02:56 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-30 03:21 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-30 03:05 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-30 02:58 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-30 02:59 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-30 03:19 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-30 03:22 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-30 03:09 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 03:11 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-30 03:12 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:11 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/578342.shtml)
-- 2026-06-30 03:14 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/50635363745.shtml)
-- 2026-06-30 03:04 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/13500.shtml)
-- 2026-06-30 03:03 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/314051432674.shtml)
-- 2026-06-30 03:12 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/3762622.shtml)
-- 2026-06-30 03:06 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/092219635.shtml)
-- 2026-06-30 03:04 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/890584947187.shtml)
-- 2026-06-30 03:13 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/3493257.shtml)
-- 2026-06-30 02:50 - [斛珠夫人](https://www.blog.minike.top/Article/details/38008.shtml)
-- 2026-06-30 03:17 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/9202741794.shtml)
-- 2026-06-30 02:53 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/774188.shtml)
-- 2026-06-30 02:49 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/18166675836.shtml)
-- 2026-06-30 02:49 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/0539353063.shtml)
-- 2026-06-30 03:08 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/11000.shtml)
-- 2026-06-30 02:54 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/63772.shtml)
+- 2026-06-30 03:20 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/9359285028.shtml)
+- 2026-06-30 02:58 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/1581228085.shtml)
+- 2026-06-30 03:14 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/2716840256.shtml)
+- 2026-06-30 03:08 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/807022136259.shtml)
+- 2026-06-30 03:03 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/276347688882.shtml)
+- 2026-06-30 02:55 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/446368042812.shtml)
+- 2026-06-30 03:22 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/146579729584.shtml)
+- 2026-06-30 03:20 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/461470407.shtml)
+- 2026-06-30 03:16 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/8086582.shtml)
+- 2026-06-30 03:06 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/2617375724.shtml)
+- 2026-06-30 03:06 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/517690717847.shtml)
+- 2026-06-30 03:20 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/8147899.shtml)
+- 2026-06-30 03:00 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/426533889211.shtml)
+- 2026-06-30 03:03 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/011579018682.shtml)
+- 2026-06-30 02:58 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/849781.shtml)

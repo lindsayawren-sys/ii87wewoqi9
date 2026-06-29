@@ -1,57 +1,58 @@
-# 《智能体规范应用与创新发展实施意见》答记者问
+# 男子一人分饰三角诈骗多年好友 网恋竟是熟人自导自演
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-近日，国家网信办、国家发展改革委、工业和信息化部联合印发《智能体规范应用与创新发展实施意见》(以下简称《实施意见》)。国家网信办有关负责同志就《实施意见》回答了记者提问。 1.问：请介绍一下《实施意见》的出台背景。 答：近年来，以手机助手、终端智能管家、云端智能体等为代表的智能体产品加速涌现，呈现规模化应用态势，极大便利人们工作生活。同时，智能体高自主性、高权限等特性也带来了隐
+本报讯(通讯员蒋世举) 一人分饰三角，虚构“介绍女友”骗局，在近一年时间里，骗取好友14万余元。经河南省洛阳市老城区检察院提起公诉，近日，法院以诈骗罪判处被告人杨某飞有期徒刑三年，缓刑四年，并处罚金2万元。小王与杨某飞是相识十余年的朋友。2024年1月，杨某飞主动提出要给小王介绍一个女朋友，对方是自己女友“王亚楠”的闺密，名叫“乔语馨”。 随后，小王添加了“乔语馨”的微信，一来
 
 ## 正文
 
-近日，国家网信办、国家发展改革委、工业和信息化部联合印发《智能体规范应用与创新发展实施意见》(以下简称《实施意见》)。
+本报讯(通讯员蒋世举) 一人分饰三角，虚构“介绍女友”骗局，在近一年时间里，骗取好友14万余元。
 
-国家网信办有关负责同志就《实施意见》回答了记者提问。
+经河南省洛阳市老城区检察院提起公诉，近日，法院以诈骗罪判处被告人杨某飞有期徒刑三年，缓刑四年，并处罚金2万元。
 
-1.问：请介绍一下《实施意见》的出台背景。
+小王与杨某飞是相识十余年的朋友。
 
-答：近年来，以手机助手、终端智能管家、云端智能体等为代表的智能体产品加速涌现，呈现规模化应用态势，极大便利人们工作生活。
+2024年1月，杨某飞主动提出要给小王介绍一个女朋友，对方是自己女友“王亚楠”的闺密，名叫“乔语馨”。
 
-同时，智能体高自主性、高权限等特性也带来了隐私泄露、越权操作、行为失控等安全风险，需要统筹发展与安全，促进智能体规范应用和创新发展。
+随后，小王添加了“乔语馨”的微信，一来二去，两人确立了“恋爱关系”。
 
-党中央、国务院高度重视人工智能发展。
+在交往过程中，“乔语馨”先后以“父亲生病”“出车祸”“日常购物”等理由，频繁向小王索要钱财，并以微信无法收款为由，要求小王将钱款转给杨某飞或闺密“王亚楠”。
 
-习近平总书记在中共中央政治局第二十次集体学习时强调，要把握人工智能发展趋势和规律，加紧制定完善相关法律法规、政策制度、应用规范、伦理准则，构建技术监测、风险预警、应急响应体系，确保人工智能安全、可靠、可控。
+让小王困惑的是，“乔语馨”一直拒绝见面。
 
-2025年8月，国务院印发《关于深入实施“人工智能+”行动的意见》，以科学技术、产业发展、消费提质、民生福祉、治理能力等领域为重点，提出到2027年，率先实现人工智能与重点领域广泛深度融合，新一代智能终端、智能体等应用普及率超70%的阶段性目标。
+其间，杨某飞多次安慰小王不要着急，并陪其前往“乔语馨”居住的小区附近等待见面，但“乔语馨”始终以各种理由推脱，从未露面。
 
 ## 相关推荐
 
-- 2026-06-30 02:51 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-30 03:04 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-30 03:01 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-30 02:56 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-30 03:00 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 02:56 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-30 03:07 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-30 03:09 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-30 03:12 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-30 02:55 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-30 02:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-30 03:07 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-30 03:02 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-30 03:05 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 02:59 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-30 03:19 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 03:02 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-30 03:14 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-30 03:10 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 03:10 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-30 03:08 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-30 03:02 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 03:05 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:17 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/9987703.shtml)
-- 2026-06-30 02:51 - [佐野海舟远射破门](https://www.share.minike.top/Article/details/25531219.shtml)
-- 2026-06-30 02:56 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/63268.shtml)
-- 2026-06-30 03:09 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/75010893883.shtml)
-- 2026-06-30 03:07 - [请回答王牌2019](https://www.share.minike.top/Article/details/05699192897.shtml)
-- 2026-06-30 02:57 - [美股](http://www.share.kurohicncr.top/Article/details/174167185894.shtml)
-- 2026-06-30 03:05 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/106658.shtml)
-- 2026-06-30 03:13 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/0903275793.shtml)
-- 2026-06-30 02:59 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/664307947.shtml)
-- 2026-06-30 02:55 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/40227379896.shtml)
-- 2026-06-30 02:52 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/4837639634.shtml)
-- 2026-06-30 03:07 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/902305.shtml)
-- 2026-06-30 03:17 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/4655074.shtml)
-- 2026-06-30 02:48 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/349276434.shtml)
-- 2026-06-30 03:04 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/754344958.shtml)
+- 2026-06-30 02:57 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/831519269433.shtml)
+- 2026-06-30 03:21 - [请回答王牌2019](https://www.share.minike.top/Article/details/77778.shtml)
+- 2026-06-30 02:54 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/5363018.shtml)
+- 2026-06-30 03:16 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/42090.shtml)
+- 2026-06-30 03:04 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/910587.shtml)
+- 2026-06-30 02:56 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/60283824557.shtml)
+- 2026-06-30 03:22 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/758891594273.shtml)
+- 2026-06-30 03:08 - [巴西扳平比分](http://www.share.minike.top/Article/details/780278.shtml)
+- 2026-06-30 03:10 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/198897.shtml)
+- 2026-06-30 03:22 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/452298649.shtml)
+- 2026-06-30 02:54 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/758295854.shtml)
+- 2026-06-30 02:54 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/4486673211.shtml)
+- 2026-06-30 03:14 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/421290.shtml)
+- 2026-06-30 03:07 - [问心2金世佳追妻火葬场](https://www.share.minike.top/Article/details/6296437259.shtml)
+- 2026-06-30 03:12 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/9955846.shtml)

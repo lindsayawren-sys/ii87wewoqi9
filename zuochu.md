@@ -1,61 +1,58 @@
-# Koppers拟2026年关闭伊利诺伊工厂，预计自由现金流增2500万美元
+# 鹏华基金设立香港子公司获证监会反馈意见：与QDII业务涉及的利益冲突和输送风险进行补充说明
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-特种化学品制造商Koppers Holdings宣布，计划在2026年底前关闭其位于伊利诺伊州富兰克林公园的生产设施。公司预计，此举将在关闭完成后每年带来约2500万美元的自由现金流增量。 工厂关闭详情 该工厂主要生产用于铁路和木制品处理行业的防腐化学品。Koppers表示，由于设施老化、运营成本上升以及环保合规投入不断增加，工厂的盈利能力持续受到挤压。此次关闭是公司为期三年的
+6月12日，证监会对鹏华基金设立香港子公司的申请文件出具反馈意见，要求公司在30个工作日内就相关问题逐项落实并提交书面回复。 反馈意见共涉及四方面内容：一是要求说明香港子公司的管理架构，包括部门设置、客户尽职调查与适当性管理相关制度安排等；二是鉴于公司已开展QDII业务，需就香港子公司与QDII业务之间可能涉及的利益冲突和利益输送风险补充说明相关安排；三是要求进一步明确香港子公
 
 ## 正文
 
-特种化学品制造商Koppers Holdings宣布，计划在2026年底前关闭其位于伊利诺伊州富兰克林公园的生产设施。
+6月12日，证监会对鹏华基金设立香港子公司的申请文件出具反馈意见，要求公司在30个工作日内就相关问题逐项落实并提交书面回复。
 
-公司预计，此举将在关闭完成后每年带来约2500万美元的自由现金流增量。
+反馈意见共涉及四方面内容：一是要求说明香港子公司的管理架构，包括部门设置、客户尽职调查与适当性管理相关制度安排等；二是鉴于公司已开展QDII业务，需就香港子公司与QDII业务之间可能涉及的利益冲突和利益输送风险补充说明相关安排；三是要求进一步明确香港子公司潜在客户的具体情况，包括客户数量、资产规模及表达合作意向的概要情况，并评估相关客户资源是否能够有效支持境外子公司展业；四是针对香港子公司拟任总经理拟由公司部门负责人兼基金经理担任的安排，要求说明该安排是否符合《证券基金经营机构董事、监事、高级管理人员及从业人员监督管理办法》第三十一条关于从业人员应保证有足够时间和精力履行职责的规定。
 
-工厂关闭详情 该工厂主要生产用于铁路和木制品处理行业的防腐化学品。
+根据监管流程，鹏华基金需在30个工作日内完成反馈回复，证监会将根据回复情况决定是否再次发出反馈意见。
 
-Koppers表示，由于设施老化、运营成本上升以及环保合规投入不断增加，工厂的盈利能力持续受到挤压。
+如不能按期回复，公司需提交延期申请。
 
-此次关闭是公司为期三年的“运营卓越”计划的最后一步，该计划此前已包括宾夕法尼亚州和西弗吉尼亚州工厂的整合。
+以下是公告全文 鹏华基金管理有限公司申请设立香港子公司反馈意见 鹏华基金管理有限公司： 现对你公司设立香港子公司申请文件提出反馈意见，请你公司在30个工作日内对下列问题逐项落实并提供书面回复和电子文档。
 
-关闭预计在2026年第四季度完成，约120名员工将受影响。
+我会收到你公司的回复后，将根据情况决定是否再次向你公司发出反馈意见。
 
-生产任务将转移至佐治亚州和俄亥俄州的现有工厂。
+如在30个工作日内不能提供书面回复，请向我会提交延期回复的申请。
 
-财务影响 Koppers预计，2026财年将产生约3000万至3500万美元的重组和减值费用，其中大部分为非现金支出。
+若对本反馈意见有任何问题，请致电我会证券基金机构监管司审核员。
 
 ## 相关推荐
 
-- 2026-06-30 03:08 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-30 02:58 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-30 03:15 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 02:54 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-30 02:59 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-30 03:09 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-30 03:17 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-30 03:00 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-30 03:10 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-30 03:04 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-30 03:02 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 02:53 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 03:00 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-30 03:02 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-30 03:17 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-30 03:03 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-30 03:20 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-30 02:56 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-30 03:10 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-30 02:56 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 03:07 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-30 03:21 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-30 02:57 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-30 02:55 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-30 03:23 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-30 03:15 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-30 03:05 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:55 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/57044415339.shtml)
-- 2026-06-30 02:59 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/97398593.shtml)
-- 2026-06-30 02:50 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/487468673825.shtml)
-- 2026-06-30 03:02 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/7849633667.shtml)
-- 2026-06-30 03:13 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/131379948.shtml)
-- 2026-06-30 02:49 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/69178.shtml)
-- 2026-06-30 02:55 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/40981446934.shtml)
-- 2026-06-30 02:52 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/183521877932.shtml)
-- 2026-06-30 03:01 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/72587622.shtml)
-- 2026-06-30 03:00 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/4635053332.shtml)
-- 2026-06-30 02:55 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/1466973407.shtml)
-- 2026-06-30 03:12 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/0363167465.shtml)
-- 2026-06-30 02:52 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/731599918.shtml)
-- 2026-06-30 03:15 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/1915626.shtml)
-- 2026-06-30 02:50 - [佐野海舟远射破门](https://www.share.minike.top/Article/details/764912260224.shtml)
+- 2026-06-30 03:07 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/7288482.shtml)
+- 2026-06-30 03:16 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/2192102.shtml)
+- 2026-06-30 03:19 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/858236993.shtml)
+- 2026-06-30 03:12 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/66358215102.shtml)
+- 2026-06-30 03:05 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/406754903.shtml)
+- 2026-06-30 03:18 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/20200.shtml)
+- 2026-06-30 03:15 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/43462557280.shtml)
+- 2026-06-30 03:01 - [周生如故](http://www.blog.minike.top/Article/details/99051810.shtml)
+- 2026-06-30 03:08 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/01984145.shtml)
+- 2026-06-30 03:13 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/23073286577.shtml)
+- 2026-06-30 03:20 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/10528.shtml)
+- 2026-06-30 03:11 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/2579697007.shtml)
+- 2026-06-30 03:00 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/41297.shtml)
+- 2026-06-30 03:17 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/9279747136.shtml)
+- 2026-06-30 03:21 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/063263575734.shtml)

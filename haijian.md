@@ -1,61 +1,60 @@
-# 猪周期拐点将至？华宝基金农牧渔ETF（159275）逆市飘红！券商高呼：产能加速去化，新一轮周期上行可期
+# Wells Fargo上调标普500指数年底目标 因美伊协议签署临近
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-农牧渔板块今日（5月8日）震荡盘整，全市场首只农牧渔ETF（159275）开盘后迅速拉升，而后略有回落，截至发稿，场内价格逆市涨0.21%。 成份股方面，农产品加工、动保、种植等板块部分个股涨幅居前。截至发稿，宏辉果蔬、星湖科技、众兴菌业等涨超2%，亚盛集团、海南橡胶、中水渔业等多股涨超1%。 国金证券指出，短期来看，生猪价格的低迷叠加政策驱动，行业产能去化有望进一步加速，新一
+Wells Fargo Securities LLC表示，宏观经济担忧缓解、情绪改善以及加息预期已被市场消化，这些因素将推动美国股市走高。 该行将标普500指数的年末目标位从7，300点上调至7，950点，较该股指周一收盘水平有约5%的上涨空间。 Wells Fargo上调目标之际，美国和伊朗准备周五在瑞士正式签署临时和平协议。协议将结束持续数月的冲突，恢复关键水道霍尔木兹海峡
 
 ## 正文
 
-农牧渔板块今日（5月8日）震荡盘整，全市场首只农牧渔ETF（159275）开盘后迅速拉升，而后略有回落，截至发稿，场内价格逆市涨0.21%。
+Wells Fargo Securities LLC表示，宏观经济担忧缓解、情绪改善以及加息预期已被市场消化，这些因素将推动美国股市走高。
 
-成份股方面，农产品加工、动保、种植等板块部分个股涨幅居前。
+该行将标普500指数的年末目标位从7，300点上调至7，950点，较该股指周一收盘水平有约5%的上涨空间。
 
-截至发稿，宏辉果蔬、星湖科技、众兴菌业等涨超2%，亚盛集团、海南橡胶、中水渔业等多股涨超1%。
+Wells Fargo上调目标之际，美国和伊朗准备周五在瑞士正式签署临时和平协议。
 
-国金证券指出，短期来看，生猪价格的低迷叠加政策驱动，行业产能去化有望进一步加速，新一轮周期上行可期。
+协议将结束持续数月的冲突，恢复关键水道霍尔木兹海峡的通行。
 
-中长期来看，生猪养殖行业依旧有较为优秀的中枢利润，且非洲猪瘟之后行业的快速扩张中，仍有大量企业是低质量扩充产能，行业成本方差依旧巨大，头部企业有充足的超额利润释放，建议优选低成本优质企业。
+Wells Fargo股票分析师Ohsung Kwon表示，华盛顿与德黑兰之间紧张局势降温正在缓解宏观经济担忧。
 
-天风证券认为，行业深度亏损、过冬压力突出，供给过剩下产能去化及加速逻辑持续兑现；反内卷使出栏弹性系统性收窄，建议关注资金充足、经营稳定、成本优秀的高质量“好”公司。
+他表示，油价上涨带来的通胀压力可能会消退。
 
-从估值方面来看，当前农牧渔板块估值水平仍处相对低位，当前或为板块较好配置时机。
+此外，纳斯达克100指数的市场情绪已稳处中性区间，这为人工智能（AI）股票提供了助力。
 
-数据显示，截至昨日（5月7日）收盘，全市场首只农牧渔ETF（159275）标的指数中证全指农牧渔指数市净率为2.5倍，位于近5年来25.2%分位点的低位，中长期配置性价比凸显。
+“情绪已经重置，为AI交易提供了上涨空间，”Kwon在周二发布的报告中写道。
 
 ## 相关推荐
 
-- 2026-06-30 02:56 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-30 03:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-30 02:52 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-30 03:08 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-30 03:06 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-30 03:15 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-30 03:03 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 02:56 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-30 03:06 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-30 02:53 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-30 02:54 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-30 03:04 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-30 02:58 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 03:00 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-30 03:03 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 03:19 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-30 03:03 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-30 03:15 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-30 02:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-30 03:07 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-30 02:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-30 03:08 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-30 03:10 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-30 03:15 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-30 03:23 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-30 03:05 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-30 03:18 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-30 02:58 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-30 03:14 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:05 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/31710469.shtml)
-- 2026-06-30 03:12 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/252782415.shtml)
-- 2026-06-30 02:52 - [勇敢的心第二部](http://www.share.minike.top/Article/details/50009012.shtml)
-- 2026-06-30 03:08 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/08906598756.shtml)
-- 2026-06-30 02:53 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/004995419182.shtml)
-- 2026-06-30 02:57 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/00056.shtml)
-- 2026-06-30 02:51 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/42763995963.shtml)
-- 2026-06-30 03:16 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/5796724.shtml)
-- 2026-06-30 03:14 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/419068812521.shtml)
-- 2026-06-30 03:13 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/28975526337.shtml)
-- 2026-06-30 03:11 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/1353794.shtml)
-- 2026-06-30 02:54 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/1957178.shtml)
-- 2026-06-30 03:17 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/6713670.shtml)
-- 2026-06-30 03:14 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/19229144935.shtml)
-- 2026-06-30 02:53 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/04681365.shtml)
+- 2026-06-30 02:55 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/147345282242.shtml)
+- 2026-06-30 02:58 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/1682610.shtml)
+- 2026-06-30 02:59 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/804774452065.shtml)
+- 2026-06-30 03:09 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/312247.shtml)
+- 2026-06-30 03:20 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/73855715981.shtml)
+- 2026-06-30 03:19 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/48982.shtml)
+- 2026-06-30 03:03 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/962350591.shtml)
+- 2026-06-30 03:13 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/38582670066.shtml)
+- 2026-06-30 03:20 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/2988588.shtml)
+- 2026-06-30 03:10 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/289408288.shtml)
+- 2026-06-30 03:12 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/986491991.shtml)
+- 2026-06-30 02:56 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/6232857.shtml)
+- 2026-06-30 03:11 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/47494363882.shtml)
+- 2026-06-30 03:01 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/8232521089.shtml)
+- 2026-06-30 02:59 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/5879566.shtml)

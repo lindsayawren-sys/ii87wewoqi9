@@ -1,49 +1,56 @@
-# 视频|李大霄：如何看待美股金融板块的背离？
+# 中央宣传部、应急管理部联合发布“最美应急管理工作者”
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！责任编辑：石秀珍 SF183
+新华社北京6月16日电 为深入学习贯彻习近平总书记关于应急管理的重要论述，充分展现广大应急管理工作者的为民情怀和优良作风，在全社会营造关爱生命、关注安全的浓厚氛围，中央宣传部、应急管理部向全社会公开发布“最美应急管理工作者”。张岩、张东方、邬鑫、刘庆、吴凯、韩磊、郑海周、姜伟、周福宝等9名同志光荣入选。他们忠于职守、敢于担当，有的苦练技术本领，在灭火救援、抗洪抢险等急难险重任务
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+新华社北京6月16日电 为深入学习贯彻习近平总书记关于应急管理的重要论述，充分展现广大应急管理工作者的为民情怀和优良作风，在全社会营造关爱生命、关注安全的浓厚氛围，中央宣传部、应急管理部向全社会公开发布“最美应急管理工作者”。
 
-责任编辑：石秀珍 SF183
+张岩、张东方、邬鑫、刘庆、吴凯、韩磊、郑海周、姜伟、周福宝等9名同志光荣入选。
+
+他们忠于职守、敢于担当，有的苦练技术本领，在灭火救援、抗洪抢险等急难险重任务中冲锋在前；有的铁面无私、秉公执法，用安监利剑保障矿山安全；有的以科技赋能智慧防汛，有力守护湖河安澜；有的奔走于烟火街巷，以真情守护万家平安；有的坚持面向国家重大战略需求和公共安全需要，把论文写在祖国大地上，让研究成果广泛应用于安全生产和应急一线……他们的先进事迹，生动展现了新时代应急管理工作者的良好精神风貌和崇高价值追求。
+
+广大应急管理工作者表示，应急管理队伍为人民而生、为人民而建、为人民而战，要以“最美应急管理工作者”为榜样，练就科学高效、专业精准的过硬本领，发扬英勇顽强、不怕牺牲的战斗作风，在人民需要的时候敢于冲锋、勇于担当，坚定守护人民幸福平安，更好维护社会和谐稳定。
+
+发布仪式现场播放了“最美应急管理工作者”先进事迹短片，生动讲述了他们的学习、工作方法和生活感悟。
+
+中央宣传部、应急管理部负责同志为他们颁发“最美应急管理工作者”证书。
 
 ## 相关推荐
 
-- 2026-06-30 03:13 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-30 02:49 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-30 03:08 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-30 03:07 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-30 03:02 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-30 03:08 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-30 03:08 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-30 03:05 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-30 03:03 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-30 03:02 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-30 02:48 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-30 02:49 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-30 03:17 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-30 03:10 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-30 03:14 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 02:57 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-30 03:09 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-30 02:59 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-30 03:22 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-30 03:08 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-30 03:02 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-30 03:21 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-30 03:17 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-30 02:59 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-30 03:22 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-30 03:19 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-30 03:22 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-30 03:14 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-30 03:16 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:56 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/5701802.shtml)
-- 2026-06-30 02:49 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/09392197815.shtml)
-- 2026-06-30 02:59 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/448201790089.shtml)
-- 2026-06-30 03:04 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/9228706047.shtml)
-- 2026-06-30 02:57 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/68630332.shtml)
-- 2026-06-30 03:01 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/932098190116.shtml)
-- 2026-06-30 02:52 - [千香](https://www.share.minike.top/Article/details/366178877.shtml)
-- 2026-06-30 02:54 - [TOP Prada](http://www.blog.minike.top/Article/details/209491.shtml)
-- 2026-06-30 03:16 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/82297906304.shtml)
-- 2026-06-30 02:58 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/0995799.shtml)
-- 2026-06-30 03:18 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/0754463.shtml)
-- 2026-06-30 02:54 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/747090330643.shtml)
-- 2026-06-30 03:09 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/192378.shtml)
-- 2026-06-30 03:03 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/15056.shtml)
-- 2026-06-30 03:12 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/974480688309.shtml)
+- 2026-06-30 03:01 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/56743131.shtml)
+- 2026-06-30 03:15 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/2855382721.shtml)
+- 2026-06-30 02:56 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/806936439114.shtml)
+- 2026-06-30 02:54 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/38277712.shtml)
+- 2026-06-30 03:04 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/656689.shtml)
+- 2026-06-30 03:04 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/882302.shtml)
+- 2026-06-30 03:10 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/34374261.shtml)
+- 2026-06-30 03:11 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/47247660.shtml)
+- 2026-06-30 03:10 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/677980704.shtml)
+- 2026-06-30 03:18 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/7119974.shtml)
+- 2026-06-30 02:58 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/764451.shtml)
+- 2026-06-30 03:02 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/33920.shtml)
+- 2026-06-30 03:14 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/6599369.shtml)
+- 2026-06-30 03:21 - [UP主复刻百万英镑牛排套餐](http://www.blog.kurohicncr.top/Article/details/49965380641.shtml)
+- 2026-06-30 02:58 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/726167.shtml)

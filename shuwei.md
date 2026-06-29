@@ -1,61 +1,48 @@
-# 日本法律界人士：日政府修改和平宪法将加剧东亚紧张局势
+# 看实验室里如何仿真测试城市电网和桥梁安全
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-针对日本政府持续扩大防卫预算、推进安保政策调整以及鼓吹修改和平宪法、强化军备扩张等动向，日本法律界人士表示，日本政府的相关政策将加剧东亚地区紧张局势，并破坏亚洲国家对日本的信任。 日本律师 杉浦瞳：随着(日本)防卫费增加，其他领域(的预算)就会被迫压缩，比如福利、教育或者地方的灾后重建等等。更大的问题在于，加强军备究竟会对周边国家造成怎样的影响？(日本政府)把大量资金投入军备，
+发布时间：2026年06月17日 17:39 来源：中国新闻网 澳门大学智慧城市物联网全国重点实验室是中国首个智慧城市和物联网领域的全国重点实验室，聚焦智慧能源、智能交通与城市安全与灾害防治等核心问题。6月17日，在“机遇澳门”主题采访活动中，记者实地探访该实验室，近距离了解其在智慧能源系统仿真与桥梁监测等领域的最新科研成果。(记者 陈子彦 制作 徐妙巧) 责任编辑：【李季】
 
 ## 正文
 
-针对日本政府持续扩大防卫预算、推进安保政策调整以及鼓吹修改和平宪法、强化军备扩张等动向，日本法律界人士表示，日本政府的相关政策将加剧东亚地区紧张局势，并破坏亚洲国家对日本的信任。
+发布时间：2026年06月17日 17:39 来源：中国新闻网 澳门大学智慧城市物联网全国重点实验室是中国首个智慧城市和物联网领域的全国重点实验室，聚焦智慧能源、智能交通与城市安全与灾害防治等核心问题。
 
-日本律师 杉浦瞳：随着(日本)防卫费增加，其他领域(的预算)就会被迫压缩，比如福利、教育或者地方的灾后重建等等。
+6月17日，在“机遇澳门”主题采访活动中，记者实地探访该实验室，近距离了解其在智慧能源系统仿真与桥梁监测等领域的最新科研成果。
 
-更大的问题在于，加强军备究竟会对周边国家造成怎样的影响？
-
-(日本政府)把大量资金投入军备，只会让周边国家感到危险。
-
-再加上日本本来就是曾经发动过战争的国家，这样做会破坏亚洲国家对日本的信任。
-
-所以对于(日本政府)扩大防卫费这件事，我是强烈反对的。
-
-杉浦瞳认为，日本应坚持和平宪法，不应依赖强化军备来寻求安全感。
-
-日本律师 杉浦瞳：在东亚地区，很大程度上正是因为日本拥有宪法第九条，是一个“不发动战争的国家”，日本才能够获得信任。
+(记者 陈子彦 制作 徐妙巧) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 03:16 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 03:02 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 02:52 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-30 03:03 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-30 02:56 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 03:00 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-30 03:06 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-30 03:01 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-30 03:15 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-30 02:51 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-30 02:53 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 03:07 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-30 03:00 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-30 03:16 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 03:01 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-30 02:59 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 03:07 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 03:09 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-30 02:59 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-30 03:01 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-30 03:17 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-30 03:08 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-30 02:55 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 03:03 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-30 03:00 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-30 03:22 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-30 03:15 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:56 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/75439959.shtml)
-- 2026-06-30 02:54 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/64373061791.shtml)
-- 2026-06-30 03:08 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/928416.shtml)
-- 2026-06-30 03:11 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/733182467.shtml)
-- 2026-06-30 02:59 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/6055768.shtml)
-- 2026-06-30 03:14 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/0591391.shtml)
-- 2026-06-30 03:08 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/09144357.shtml)
-- 2026-06-30 03:02 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/200782170071.shtml)
-- 2026-06-30 02:57 - [流金岁月](https://www.share.minike.top/Article/details/729123963017.shtml)
-- 2026-06-30 03:17 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/27314918.shtml)
-- 2026-06-30 03:02 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/752825718.shtml)
-- 2026-06-30 03:08 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/475250093.shtml)
-- 2026-06-30 02:57 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/452551285.shtml)
-- 2026-06-30 02:54 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/401458941.shtml)
-- 2026-06-30 02:54 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/1588490.shtml)
+- 2026-06-30 03:04 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/65097329.shtml)
+- 2026-06-30 02:58 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/933700115.shtml)
+- 2026-06-30 03:19 - [金刚川](https://www.blog.kurohicncr.top/Article/details/87609494.shtml)
+- 2026-06-30 03:20 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/845683908.shtml)
+- 2026-06-30 03:04 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/1348923681.shtml)
+- 2026-06-30 03:06 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/8583480.shtml)
+- 2026-06-30 03:14 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/34620867.shtml)
+- 2026-06-30 03:22 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/978804.shtml)
+- 2026-06-30 02:59 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/2925050.shtml)
+- 2026-06-30 02:58 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/7854061.shtml)
+- 2026-06-30 03:09 - [小娘惹](https://www.share.kurohicncr.top/Article/details/8765518.shtml)
+- 2026-06-30 02:59 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/6402941195.shtml)
+- 2026-06-30 03:20 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/621397581.shtml)
+- 2026-06-30 03:22 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/00167.shtml)
+- 2026-06-30 03:13 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/3199065631.shtml)

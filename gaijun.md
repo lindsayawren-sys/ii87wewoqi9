@@ -1,59 +1,56 @@
-# 陕股2025年亏损图鉴：谁在失血，谁在止血？
+# 高盛下调油价预测，因美伊达成协议有望重开霍尔木兹海峡
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 每经记者|张文瑜 每经编辑|贺娟娟 “一年一度”年报季落幕，陕西85家A股上市公司悉数交出2025年成绩单。 整体来看，板块业绩分化态势愈发明显。 陕西煤业以1582亿元营收、167亿元净利润继续稳坐陕股头把交椅；陕西能源、金钼股份等资源型企业利润保持稳定；航空航天板块中，中航成飞、航发动力、西部超导、三角防务等企业贡献了扎实业
+高盛将第四季布伦特原油价格预测从之前的90美元下调至80美元，并将2027年布伦特原油平均价格预测从80美元下调至75美元，此前美国与伊朗签署了一项初步协议以重开霍尔木兹海峡。 这家投行的分析师在周一晚间发布的研究报告中表示，目前预计海湾地区的原油出口将在7月底前恢复至战前水平，而此前预期为8月底。 油价周二回落，此前在美国总统特朗普表示已签署谅解备忘录以结束美以与伊朗的冲突后
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 每经记者|张文瑜 每经编辑|贺娟娟 “一年一度”年报季落幕，陕西85家A股上市公司悉数交出2025年成绩单。
+高盛将第四季布伦特原油价格预测从之前的90美元下调至80美元，并将2027年布伦特原油平均价格预测从80美元下调至75美元，此前美国与伊朗签署了一项初步协议以重开霍尔木兹海峡。
 
-整体来看，板块业绩分化态势愈发明显。
+这家投行的分析师在周一晚间发布的研究报告中表示，目前预计海湾地区的原油出口将在7月底前恢复至战前水平，而此前预期为8月底。
 
-陕西煤业以1582亿元营收、167亿元净利润继续稳坐陕股头把交椅；陕西能源、金钼股份等资源型企业利润保持稳定；航空航天板块中，中航成飞、航发动力、西部超导、三角防务等企业贡献了扎实业绩；源杰科技借AI算力东风脱颖而出，股价年内上涨10倍，一跃成为A股“新贵”。
+油价周二回落，此前在美国总统特朗普表示已签署谅解备忘录以结束美以与伊朗的冲突后，油价一度下跌近5%，至3月10日以来的最低水平。
 
-与此同时，盈利剧变也在上演。
+这场冲突导致霍尔木兹海峡基本关闭。
 
-除新能源、房地产等周期性行业普遍承压外，一批公司意外由盈转亏，包括陕西金叶、中再资环、陕西华达、爱科赛博等。
+在冲突之前，全球约五分之一的石油及液化天然气需经该海峡运输，其关闭导致每日约1400万桶产量被迫中断。
 
-这些企业并非热衷跨界折腾的玩家，却也跌入了业绩陡谷。
+高盛预计，WTI期货今年第四季度均价为75美元，2027年均价为70美元。
 
-连续亏损的公司中，兴化股份、康惠股份（维权）等企业2025年亏损进一步扩大；达刚控股、荣信文化、炬光科技等虽也连续亏损，但2025年同比实现减亏，显露些许修复迹象。
+该行还预计，随着可负担性改善，2026年下半年至2027年期间需求复苏将略有增强。
 
-陕西金叶业务涵盖烟草配套、教育及医养三大板块。
+高盛表示，中东石油供应前景面临双向风险，并指出，如果霍尔木兹海峡运输量较当前水平增加1200万桶/日，海湾产油国的出口有望恢复至战前水平。
 
 ## 相关推荐
 
-- 2026-06-30 02:54 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-30 02:52 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-30 03:12 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-30 03:05 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-30 03:15 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-30 02:58 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-30 02:49 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-30 03:07 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-30 03:14 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-30 03:09 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 02:53 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-30 03:05 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-30 02:57 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-30 02:55 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-30 03:12 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 03:07 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-30 03:11 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-30 03:04 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 03:19 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-30 03:06 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-30 03:12 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-30 03:21 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-30 03:09 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:59 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/66069051.shtml)
-- 2026-06-30 03:03 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/615170579.shtml)
-- 2026-06-30 02:50 - [逃狱兄弟](https://www.blog.minike.top/Article/details/504164672.shtml)
-- 2026-06-30 03:06 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/0211257418.shtml)
-- 2026-06-30 02:53 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/4698009132.shtml)
-- 2026-06-30 02:59 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/363606400493.shtml)
-- 2026-06-30 03:01 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/114802743.shtml)
-- 2026-06-30 02:51 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/23085940299.shtml)
-- 2026-06-30 03:12 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/54269.shtml)
-- 2026-06-30 03:11 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/68253805927.shtml)
-- 2026-06-30 02:53 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/62774780969.shtml)
-- 2026-06-30 02:48 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/35405379.shtml)
-- 2026-06-30 02:52 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/68199058821.shtml)
-- 2026-06-30 03:10 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/49089550910.shtml)
-- 2026-06-30 02:49 - [毒液2](https://www.share.minike.top/Article/details/31033692234.shtml)
+- 2026-06-30 03:18 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/36757427345.shtml)
+- 2026-06-30 02:57 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/15751900.shtml)
+- 2026-06-30 03:22 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/4550089.shtml)
+- 2026-06-30 02:55 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/81308.shtml)
+- 2026-06-30 03:13 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/07626602.shtml)
+- 2026-06-30 02:55 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/522274036.shtml)
+- 2026-06-30 03:15 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/095409163675.shtml)
+- 2026-06-30 02:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/048581521.shtml)
+- 2026-06-30 03:19 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/6825715.shtml)
+- 2026-06-30 03:16 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/5156209.shtml)
+- 2026-06-30 03:22 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/952685.shtml)
+- 2026-06-30 03:19 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/820060.shtml)
+- 2026-06-30 03:13 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/22630.shtml)
+- 2026-06-30 03:21 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/906417018260.shtml)
+- 2026-06-30 03:10 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/322816816.shtml)

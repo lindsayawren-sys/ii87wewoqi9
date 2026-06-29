@@ -1,59 +1,57 @@
-# 小动作大危险！出行避免“开门杀”正确开车门方法一定要记牢
+# 国家禁毒办介绍中美禁毒合作情况
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-“开门杀”是指车辆驾乘人员在未观察后方情况下贸然开车门，导致行人或车辆碰撞的交通危险行为，很容易引起伤亡事故。 开车门前不观察 容易造成事故 近日，在江苏无锡市，一名驾驶员开门时未观察后方，导致一名女子骑电动车撞上了车门，女子受到了轻微擦伤。 在江阴市也发生了类似的事故。一辆白色汽车的驾驶员未观察后方就打开了车门，骑电动车路过的浦某被撞倒。所幸电动车车速不快，浦某仅轻微擦伤。大
+今天上午(6月17日)国家禁毒办召开新闻发布会。国家禁毒办常务副主任、公安部禁毒局局长魏晓军介绍中美双方禁毒合作情况及下步合作展望。 一是双方开展了很多机制性交流和务实合作，我们与美国白宫国家禁毒政策办公室等政策部门保持联络沟通，定期相互通报工作进展，商讨下步合作优先事项；与美国缉毒署、联邦调查局和移民海关执法局等执法部门联合侦办多起案件，合作遣返涉毒逃犯，具体情况已对外发布。
 
 ## 正文
 
-“开门杀”是指车辆驾乘人员在未观察后方情况下贸然开车门，导致行人或车辆碰撞的交通危险行为，很容易引起伤亡事故。
+今天上午(6月17日)国家禁毒办召开新闻发布会。
 
-开车门前不观察 容易造成事故 近日，在江苏无锡市，一名驾驶员开门时未观察后方，导致一名女子骑电动车撞上了车门，女子受到了轻微擦伤。
+国家禁毒办常务副主任、公安部禁毒局局长魏晓军介绍中美双方禁毒合作情况及下步合作展望。
 
-在江阴市也发生了类似的事故。
+一是双方开展了很多机制性交流和务实合作，我们与美国白宫国家禁毒政策办公室等政策部门保持联络沟通，定期相互通报工作进展，商讨下步合作优先事项；与美国缉毒署、联邦调查局和移民海关执法局等执法部门联合侦办多起案件，合作遣返涉毒逃犯，具体情况已对外发布。
 
-一辆白色汽车的驾驶员未观察后方就打开了车门，骑电动车路过的浦某被撞倒。
+二是为积极合作应对非列管化学品流入北美制毒渠道问题，2025年11月，商务部等五部委联合发布公告，将13种芬太尼类物质前体化学品和美国、墨西哥、加拿大分别增列到《向特定国家(地区)出口易制毒化学品管理目录》《特定国家(地区)目录》，今年5月又针对上述三国增列了3种芬太尼类物质前体化学品；2025年11月和今年5月，国家禁毒办连续两次发布警示通告，提醒相关企业和个人在从事相关经营活动时严格遵守相关国家法律法规，防范前体化学品和设备流入制毒渠道；海关部门加强了对相关品种化学品的出口监管和风险分析，提醒出口企业识别客户、防范风险；邮政部门敦促寄递企业严格落实“实名收寄、收寄验视、过机安检”三项制度，持续开展宣传教育，切实提升寄递行业从业人员对重点敏感化学品的防范意识。
 
-所幸电动车车速不快，浦某仅轻微擦伤。
+三是针对国内少数不法分子向境外贩运列管或非列管前体化学品及新精神活性物质等敏感化学品的情况，在全国范围内多轮次部署开展打击管控专项行动，全面强化案件侦办。
 
-大部分市民有一定的防范意识 停车开门，看似是简单的动作，如果不注意，就可能造成“开门杀”。
+去年12月中国石油和化学工业联合会还主办了“清朗网络空间·共筑禁毒防线”全国化工行业净网倡议活动，有效提高行业自律，取得良好效果。
 
-大家在日常出行中是否对此有足够的防范意识呢？
+今年以来，美方在多个场合积极评价中美禁毒合作，并向中方表示感谢；美国的一些专家学者还在《科学》等权威期刊上发表文章，肯定中方禁毒工作成效。
 
-来看记者的实地采访。
+通过合作，还根据美方提供的信息和线索侦办了一些案件，对提升我国内毒品问题治理起到了一定的积极作用。
 
 ## 相关推荐
 
-- 2026-06-30 03:04 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-30 03:07 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-30 03:15 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-30 03:10 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-30 03:08 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-30 03:05 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-30 03:02 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-30 02:55 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-30 02:54 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-30 03:02 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-30 03:05 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-30 03:03 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-30 02:50 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-30 03:13 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 02:57 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 03:21 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-30 03:09 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 03:05 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-30 03:15 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 03:04 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-30 03:16 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-30 03:17 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-30 03:07 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-30 03:00 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:56 - [电影后室值得看吗](https://www.share.minike.top/Article/details/55543.shtml)
-- 2026-06-30 03:00 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/828108839701.shtml)
-- 2026-06-30 03:17 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/7721883.shtml)
-- 2026-06-30 02:58 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/57717370769.shtml)
-- 2026-06-30 03:12 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/519718.shtml)
-- 2026-06-30 02:55 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/469721408.shtml)
-- 2026-06-30 03:17 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/710050698517.shtml)
-- 2026-06-30 03:14 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/84634615.shtml)
-- 2026-06-30 02:59 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/551690277754.shtml)
-- 2026-06-30 02:54 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/32947885892.shtml)
-- 2026-06-30 03:04 - [刘念回应](https://www.share.minike.top/Article/details/19344033458.shtml)
-- 2026-06-30 02:57 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/60876462.shtml)
-- 2026-06-30 02:59 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/8834289595.shtml)
-- 2026-06-30 03:15 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/94649.shtml)
-- 2026-06-30 03:00 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/97181.shtml)
+- 2026-06-30 03:00 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/5917507.shtml)
+- 2026-06-30 03:12 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/75144.shtml)
+- 2026-06-30 03:09 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/12681648648.shtml)
+- 2026-06-30 03:16 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/37762115.shtml)
+- 2026-06-30 03:19 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/9019461.shtml)
+- 2026-06-30 03:20 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/8542199.shtml)
+- 2026-06-30 03:23 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/49297265876.shtml)
+- 2026-06-30 02:55 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/7679565.shtml)
+- 2026-06-30 03:03 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/2282248769.shtml)
+- 2026-06-30 03:18 - [上半年全国特种设备安全形势总体平稳](http://www.share.kurohicncr.top/Article/details/35708425546.shtml)
+- 2026-06-30 03:19 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/9450194603.shtml)
+- 2026-06-30 03:15 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/1223829.shtml)
+- 2026-06-30 03:17 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/875604.shtml)
+- 2026-06-30 03:12 - [一见倾心](https://www.share.kurohicncr.top/Article/details/635000322.shtml)
+- 2026-06-30 02:55 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/7380682.shtml)

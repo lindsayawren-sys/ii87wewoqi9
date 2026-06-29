@@ -1,56 +1,50 @@
-# 北京部分地铁线将试点“携自行车上地铁”，单次30元
+# 中国证监会：扩大科创板第五套标准适用范围至人工智能领域
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:03 UTC+8
 
 ## 摘要
 
-中新网5月9日电(吴家驹)据北京市交通委员会公众号消息，为服务骑行爱好者携车出行，在借鉴国内先进城市成熟经验、深入开展实地调研的基础上，结合北京市轨道交通运营特性、客流时空分布规律及市民骑行接驳实际需求，5月10日起，北京市在6号线、17号线、昌平线、S1线等4条线路的11座车站开展“轨道+骑行”试点服务。在11座试点车站，乘客可携带轮径不超过28英寸(约71cm)的两轮自行车
+在今天上午举行的2026陆家嘴论坛上，中国证监会主席吴清表示，将有序推进深化创业板改革，加大对新型消费和现代服务业的支持力度，更好服务成长型创新创业企业发展。将持续深化科创板改革，扩大科创板第五套标准适用范围至人工智能领域。 (总台央视记者 孙艳 白廷俊）
 
 ## 正文
 
-中新网5月9日电(吴家驹)据北京市交通委员会公众号消息，为服务骑行爱好者携车出行，在借鉴国内先进城市成熟经验、深入开展实地调研的基础上，结合北京市轨道交通运营特性、客流时空分布规律及市民骑行接驳实际需求，5月10日起，北京市在6号线、17号线、昌平线、S1线等4条线路的11座车站开展“轨道+骑行”试点服务。
+在今天上午举行的2026陆家嘴论坛上，中国证监会主席吴清表示，将有序推进深化创业板改革，加大对新型消费和现代服务业的支持力度，更好服务成长型创新创业企业发展。
 
-在11座试点车站，乘客可携带轮径不超过28英寸(约71cm)的两轮自行车进站乘车。
+将持续深化科创板改革，扩大科创板第五套标准适用范围至人工智能领域。
 
-试点服务时间为每周双休日全天运营时段(工作日及法定节假日不开放)。
-
-在票务组织方面，本次试点实行专属骑行多样化票种票价管理，采用单一票价30元/人次。
-
-该票价包含乘客本人及1辆自行车当日单次试点线路通行权限，无超时限制。
-
-乘客可通过“亿通行App”购买近30个自然日内(含当日)常规双休日运营时段的车票。
-
-未使用的车票可在线退票，超过指定日期未使用将自动退票，票款按原渠道返还。
-
-(完)
+(总台央视记者 孙艳 白廷俊）
 
 ## 相关推荐
 
-- 2026-06-30 02:48 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-30 02:59 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-30 02:49 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-30 03:09 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-30 02:53 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 03:10 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-30 02:56 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-30 03:07 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-30 03:13 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 02:49 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 02:56 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-30 03:16 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-30 03:19 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 03:14 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-30 03:17 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-30 03:02 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-30 02:55 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 03:16 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-30 03:03 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-30 03:11 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-30 02:59 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-30 03:13 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-30 03:18 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-30 02:56 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:01 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/85406.shtml)
-- 2026-06-30 02:53 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/500164.shtml)
-- 2026-06-30 03:11 - [青春环游记第三季](https://www.blog.minike.top/Article/details/3646929.shtml)
-- 2026-06-30 03:10 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/118113999.shtml)
-- 2026-06-30 02:56 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/911280.shtml)
-- 2026-06-30 02:49 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/815870.shtml)
-- 2026-06-30 02:53 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/401526.shtml)
-- 2026-06-30 03:11 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/29303.shtml)
-- 2026-06-30 03:06 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/716465.shtml)
-- 2026-06-30 02:52 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/56436.shtml)
-- 2026-06-30 03:01 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/4554575.shtml)
-- 2026-06-30 02:58 - [本西奇成本届温网女单首位晋级球员](http://www.share.kurohicncr.top/Article/details/941935851010.shtml)
-- 2026-06-30 02:58 - [一见倾心](https://www.share.kurohicncr.top/Article/details/6648868258.shtml)
-- 2026-06-30 02:56 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/8723521257.shtml)
-- 2026-06-30 03:03 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/0201407.shtml)
+- 2026-06-30 03:04 - [起风了](https://www.share.kurohicncr.top/Article/details/96706666986.shtml)
+- 2026-06-30 02:55 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/94207.shtml)
+- 2026-06-30 03:18 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/2156168754.shtml)
+- 2026-06-30 03:15 - [足球小将的剧本成真了](http://www.share.kurohicncr.top/Article/details/0416052635.shtml)
+- 2026-06-30 03:20 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/679822722568.shtml)
+- 2026-06-30 03:19 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/20961777765.shtml)
+- 2026-06-30 02:58 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/671113.shtml)
+- 2026-06-30 02:55 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/95481.shtml)
+- 2026-06-30 03:15 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/33818537.shtml)
+- 2026-06-30 02:54 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/454081.shtml)
+- 2026-06-30 02:54 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/92295.shtml)
+- 2026-06-30 03:11 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/79094450259.shtml)
+- 2026-06-30 03:01 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/683769396.shtml)
+- 2026-06-30 02:58 - [恋与深空 日服](https://www.share.minike.top/Article/details/18998556.shtml)
+- 2026-06-30 03:21 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/576686.shtml)

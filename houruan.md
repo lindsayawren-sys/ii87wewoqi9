@@ -1,58 +1,60 @@
-# 运动穿戴设备品牌Whoop 将向美国用户提供按需在线医师问诊服务
+# 侨见重庆荣昌：昨天镌刻文明，今天崛起新城，明天繁荣昌盛
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-核心要点 运动穿戴追踪品牌 Whoop 于周五宣布，将为美国用户上线 App 内持证医师即时问诊功能。 伴随这项新服务，品牌还将在全球推出一系列健康及人工智能驱动功能，可让用户将自身连续生理指标数据与医疗指导实时关联。 多项新功能已包含在会员订阅权益内，但面向美国用户的真人视频问诊需额外付费。公司表示，该功能将于今年夏季上线，届时公布具体定价与细则。 Whoop 首席产品官埃德
+中新网重庆6月16日电 (马佳欣)6月14日至15日，“2026海外华媒侨领川渝行——聚焦成渝地区双城经济圈建设”联合参访活动走进重庆市荣昌区。20余家海外主流华文媒体代表和10余位知名侨领走访荣昌安陶小镇、万灵古镇、夏布小镇、国家生猪大数据中心、西部电子电路产业园等地，在千年非遗的指尖传承与现代化工厂的机器轰鸣中，感受这座成渝腹地历史文化名城的古韵、今姿与新程。 昨天，一部镌
 
 ## 正文
 
-核心要点 运动穿戴追踪品牌 Whoop 于周五宣布，将为美国用户上线 App 内持证医师即时问诊功能。
+中新网重庆6月16日电 (马佳欣)6月14日至15日，“2026海外华媒侨领川渝行——聚焦成渝地区双城经济圈建设”联合参访活动走进重庆市荣昌区。
 
-伴随这项新服务，品牌还将在全球推出一系列健康及人工智能驱动功能，可让用户将自身连续生理指标数据与医疗指导实时关联。
+20余家海外主流华文媒体代表和10余位知名侨领走访荣昌安陶小镇、万灵古镇、夏布小镇、国家生猪大数据中心、西部电子电路产业园等地，在千年非遗的指尖传承与现代化工厂的机器轰鸣中，感受这座成渝腹地历史文化名城的古韵、今姿与新程。
 
-多项新功能已包含在会员订阅权益内，但面向美国用户的真人视频问诊需额外付费。
+昨天，一部镌刻文明的厚重史书 “荣昌的昨天，是一部镌刻文明的厚重史书。
 
-公司表示，该功能将于今年夏季上线，届时公布具体定价与细则。
+”在6月15日举行的推介座谈会上，重庆市荣昌区委书记万容以此开篇，向参访团娓娓道来这座千年历史文化名城的文脉传承。
 
-Whoop 首席产品官埃德・贝克在新闻稿中表示：“Whoop 本质是会员制服务，我们对此十分重视。
+唐乾元元年设昌州、置昌元县，开启1268年建城史；明洪武六年定名“荣昌”，寓意繁荣昌盛，得名至今已有653年，所以荣昌历来是共繁荣、同昌盛的地方。
 
-我们始终思考如何为会员创造更多价值，此次即将上线的一系列功能，是品牌迄今最具实际意义的升级之一。
+这里非遗璀璨，232项非遗代表性项目承载千年技艺——汉代起源的荣昌陶、汉代传承的荣昌夏布、宋代问世的荣昌折扇，三大国家级非遗撑起文化脊梁。
 
-” Whoop 全球用户已超 250 万。
+作为“湖广填四川”核心聚集地，荣昌被誉为“客家文化活化石”，河包粉条、血橙等特产与卤鹅、羊肉汤、黄凉粉等美食，共同勾勒出历史文化名城的千年图景。
 
-公司于 3 月完成 5.75 亿美元融资，估值升至 101 亿美元。
+参访团走进了这部史书：在安陶小镇，触摸了千年窑火传承的匠心；在万灵古镇，感受了巴蜀人文的厚重；在天运夏布，亲手体验了非遗技艺的温度；在湖广会馆，了解了移民文化的历史…… “荣昌不仅有厚重的历史，更有鲜活的文化传承。
 
 ## 相关推荐
 
-- 2026-06-30 03:02 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-30 03:03 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-30 02:53 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-30 03:00 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-30 03:11 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-30 03:13 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-30 02:48 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-30 03:04 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-30 03:15 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 03:03 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-30 03:09 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-30 02:49 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-30 03:10 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-30 03:04 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-30 02:55 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 02:55 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-30 03:08 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-30 03:19 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-30 02:58 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-30 02:54 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 03:17 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-30 03:13 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-30 02:57 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-30 03:19 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-30 03:07 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 03:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:10 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/1544055875.shtml)
-- 2026-06-30 03:10 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/64884.shtml)
-- 2026-06-30 03:01 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/559510971.shtml)
-- 2026-06-30 03:05 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/6209511328.shtml)
-- 2026-06-30 03:10 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/8369397117.shtml)
-- 2026-06-30 02:49 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.minike.top/Article/details/956025.shtml)
-- 2026-06-30 03:04 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/615240688.shtml)
-- 2026-06-30 02:51 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/94990444529.shtml)
-- 2026-06-30 02:52 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/0873580171.shtml)
-- 2026-06-30 03:14 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/9868472941.shtml)
-- 2026-06-30 03:07 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/14124036.shtml)
-- 2026-06-30 03:15 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/6421361.shtml)
-- 2026-06-30 03:17 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/03702159188.shtml)
-- 2026-06-30 02:55 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/010633977.shtml)
-- 2026-06-30 03:13 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/50377151645.shtml)
+- 2026-06-30 03:06 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/852001.shtml)
+- 2026-06-30 03:07 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/658152627.shtml)
+- 2026-06-30 02:54 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/985148266.shtml)
+- 2026-06-30 02:55 - [周生如故](http://www.share.kurohicncr.top/Article/details/0163901883.shtml)
+- 2026-06-30 03:10 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/924322.shtml)
+- 2026-06-30 03:02 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/0896562543.shtml)
+- 2026-06-30 02:58 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/320860199827.shtml)
+- 2026-06-30 03:00 - [毒液2](https://www.blog.minike.top/Article/details/19326649.shtml)
+- 2026-06-30 03:00 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/37761949722.shtml)
+- 2026-06-30 03:05 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/2805920.shtml)
+- 2026-06-30 03:13 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/378678277078.shtml)
+- 2026-06-30 03:22 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/3317111301.shtml)
+- 2026-06-30 03:22 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/820274252.shtml)
+- 2026-06-30 03:11 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/167717.shtml)
+- 2026-06-30 02:58 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/344360.shtml)

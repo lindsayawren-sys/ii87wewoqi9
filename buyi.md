@@ -1,61 +1,58 @@
-# CoreWeave二季度营收指引不及预期，周五盘前下跌6.5%
+# 湖南多举措推进智能建造产业发展 2025年产值达4090亿元
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:03 UTC+8
 
 ## 摘要
 
-AI云计算基础设施公司CoreWeave周五盘前交易中股价下跌约6.5%，此前该公司发布的第二季度营收指引让华尔街失望，同时一季度净亏损进一步扩大。 财报显示，CoreWeave一季度营收达20.8亿美元，同比增长逾一倍，超出市场预期的19.7亿美元。然而，调整后每股亏损1.12美元，逊于分析师预期的亏损0.90美元。 公司预计第二季度营收在24.5亿至26亿美元之间，其中位值
+中新网长沙6月16日电(向一鹏)16日召开的2026长沙国际绿色智能建造与建筑工业化博览会新闻发布会透露，湖南省智能建造产业发展成效凸显，2025年产值增至4090亿元，产业保持高速增长态势。 湖南立足新型建筑工业化多年积淀的产业基础，依托完备的研发、制造、施工、建材全链条配套体系，锚定全产业链培育目标，坚持政策引领、试点破局、科创驱动、技术攻坚、展会赋能多路并进，系统性推进智
 
 ## 正文
 
-AI云计算基础设施公司CoreWeave周五盘前交易中股价下跌约6.5%，此前该公司发布的第二季度营收指引让华尔街失望，同时一季度净亏损进一步扩大。
+中新网长沙6月16日电(向一鹏)16日召开的2026长沙国际绿色智能建造与建筑工业化博览会新闻发布会透露，湖南省智能建造产业发展成效凸显，2025年产值增至4090亿元，产业保持高速增长态势。
 
-财报显示，CoreWeave一季度营收达20.8亿美元，同比增长逾一倍，超出市场预期的19.7亿美元。
+湖南立足新型建筑工业化多年积淀的产业基础，依托完备的研发、制造、施工、建材全链条配套体系，锚定全产业链培育目标，坚持政策引领、试点破局、科创驱动、技术攻坚、展会赋能多路并进，系统性推进智能建造落地实施，取得阶段性实效。
 
-然而，调整后每股亏损1.12美元，逊于分析师预期的亏损0.90美元。
+以《湖南省绿色建筑发展条例》为法治依托，湖南叠加新型建筑工业化专项配套政策，构建起层级完善的“1+N”政策框架。
 
-公司预计第二季度营收在24.5亿至26亿美元之间，其中位值25.3亿美元，低于伦敦证券交易所集团调查分析师预期的26.9亿美元。
+依托长沙智能建造试点城市，湖南在项目实践中提炼标准化建设路径与管理范式，形成可复制、可推广的实施经验。
 
-受此影响，该股在盘后交易中一度大跌超9%，最终收跌约7.4%至119.28美元。
+目前全省建成国家级智能建造产业基地20家、省级74家，产业规模化布局基本成型。
 
-尽管利润端承压，CoreWeave的订单积压规模却飙升至994亿美元，同比激增284%，其中Meta贡献了210亿美元的大单。
+同时，湖南聚力科创平台建设，组建湖南省智能建造与新型建筑工业化技术创新中心，由中国工程院院士余志武担任首席科学家，统筹多家共建单位资源，围绕智能建造、智能装备、数信融合、智能监测、成果转化五大领域搭建协同创新体系，集中攻坚BIM一模到底、建筑机器人、建筑3D打印等关键核心技术。
 
-公司解释称，一季度调整后运营利润率仅为1%，创阶段性低点，主要因基础设施部署相关费用先于收入确认。
+此外，湖南加快新技术规模化场景应用，一方面全面落地北斗+智能监测体系，建成空天地一体化城市基础设施全域感知网络，攻克毫米级形变监测、AI智能预警、数字孪生等关键技术，搭建省级基础设施安全监测平台，在深基坑、超高层建筑、地下管网、城市桥梁等工程大范围投用，夯实城市生命线安全保障；另一方面持续推进建筑3D打印产业化，依托本届筑博会打造实景沉浸式展示区，直观展现智能建造新工艺、新模式。
 
-公司维持2026年全年营收指引在120亿至130亿美元不变。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:17 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-30 02:52 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-30 03:15 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-30 03:14 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-30 03:09 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 02:53 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-30 02:48 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-30 03:01 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-30 02:59 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-30 03:06 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 03:09 - [日本进球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-30 02:53 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-30 03:16 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-30 02:50 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-30 03:05 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-30 03:12 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-30 03:10 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-30 02:55 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-30 03:04 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-30 03:18 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-30 03:15 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-30 03:10 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-30 03:17 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-30 02:56 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-30 02:55 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-30 03:06 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-30 03:00 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:06 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/50659342133.shtml)
-- 2026-06-30 02:58 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/381508638.shtml)
-- 2026-06-30 03:11 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/361309475793.shtml)
-- 2026-06-30 03:01 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/6767418.shtml)
-- 2026-06-30 02:50 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/56157.shtml)
-- 2026-06-30 02:55 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/528832225880.shtml)
-- 2026-06-30 02:56 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/071660795910.shtml)
-- 2026-06-30 03:10 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/7946456.shtml)
-- 2026-06-30 03:05 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/52109793003.shtml)
-- 2026-06-30 03:07 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.minike.top/Article/details/999816492672.shtml)
-- 2026-06-30 02:48 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/9352711.shtml)
-- 2026-06-30 02:49 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/1281323072.shtml)
-- 2026-06-30 02:57 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/05611404.shtml)
-- 2026-06-30 02:50 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/210211.shtml)
-- 2026-06-30 03:05 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/0922386473.shtml)
+- 2026-06-30 03:14 - [速度与激情9](https://www.share.minike.top/Article/details/11092.shtml)
+- 2026-06-30 03:07 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/734151311650.shtml)
+- 2026-06-30 03:10 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/001109520649.shtml)
+- 2026-06-30 03:23 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/83894.shtml)
+- 2026-06-30 03:16 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/964984479672.shtml)
+- 2026-06-30 03:07 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/244001583357.shtml)
+- 2026-06-30 02:57 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/3578632850.shtml)
+- 2026-06-30 03:08 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/366915.shtml)
+- 2026-06-30 03:13 - [长沙菜农公交的人间烟火气](https://www.share.kurohicncr.top/Article/details/50339432074.shtml)
+- 2026-06-30 02:58 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/35728343.shtml)
+- 2026-06-30 03:10 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/146624.shtml)
+- 2026-06-30 02:59 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/5361118003.shtml)
+- 2026-06-30 02:58 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/0807307841.shtml)
+- 2026-06-30 03:21 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.kurohicncr.top/Article/details/24647.shtml)
+- 2026-06-30 02:55 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/195867232.shtml)

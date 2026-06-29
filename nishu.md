@@ -1,56 +1,57 @@
-# 中方船只在霍尔木兹海峡遭袭？外交部回应
+# 美军一架B-52轰炸机加州坠毁 机上8人恐全部遇难
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-中新网北京5月8日电 (记者 黄钰钦)中国外交部发言人林剑8日主持例行记者会。 有记者提问：据报道，一艘由中方所有的成品油轮在霍尔木兹海峡附近遭到袭击。据称，该船甲板上发生了火灾。中方能否就此事件提供更多信息？此外，为确保在该地区航行的中国船只安全，中方正在采取哪些应对措施？ 林剑：根据目前掌握的情况，相关遇袭船只系马绍尔群岛籍，船上有中国籍的船员。截至目前，该船只未报告有船员
+中新社洛杉矶6月15日电 美国军方15日称，一架B-52战略轰炸机当天在加利福尼亚州南部的莫哈韦沙漠地区坠毁，机上8人恐全部遇难。 据美国加州爱德华兹空军基地发布的消息，当天上午11时20分左右，这架轰炸机从该基地起飞不久后坠毁。初步调查显示，此次事故“无生还机会”。 美联社报道说，爱德华兹空军基地位于洛杉矶以北约160公里处，是美国空军主要的飞行测试与研发基地，承担着大部分军
 
 ## 正文
 
-中新网北京5月8日电 (记者 黄钰钦)中国外交部发言人林剑8日主持例行记者会。
+中新社洛杉矶6月15日电 美国军方15日称，一架B-52战略轰炸机当天在加利福尼亚州南部的莫哈韦沙漠地区坠毁，机上8人恐全部遇难。
 
-有记者提问：据报道，一艘由中方所有的成品油轮在霍尔木兹海峡附近遭到袭击。
+据美国加州爱德华兹空军基地发布的消息，当天上午11时20分左右，这架轰炸机从该基地起飞不久后坠毁。
 
-据称，该船甲板上发生了火灾。
+初步调查显示，此次事故“无生还机会”。
 
-中方能否就此事件提供更多信息？
+美联社报道说，爱德华兹空军基地位于洛杉矶以北约160公里处，是美国空军主要的飞行测试与研发基地，承担着大部分军用飞机及航空技术的试验和开发任务。
 
-此外，为确保在该地区航行的中国船只安全，中方正在采取哪些应对措施？
+目前，军方尚未公布机组人员身份及执行任务情况，也未说明飞机是否携带武器。
 
-林剑：根据目前掌握的情况，相关遇袭船只系马绍尔群岛籍，船上有中国籍的船员。
+报道说，事故发生后，现场航拍画面显示，这架轰炸机几乎完全损毁，坠机地点上空有滚滚浓烟，周边沙漠区域被烧成了焦黑色。
 
-截至目前，该船只未报告有船员伤亡的情况。
+随着救援行动展开，爱德华兹空军基地机场紧急关闭。
 
-霍尔木兹海峡是用于国际航行的海峡，中方对大量船只和船员受战事影响被困海峡深表关切，认为尽早恢复海峡通行畅通，维护民用船只和船员安全，符合地区国家和国际社会共同利益。
+事故原因正在调查中。
 
 ## 相关推荐
 
-- 2026-06-30 02:50 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-30 03:14 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-30 03:06 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-30 03:14 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 03:02 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
-- 2026-06-30 02:52 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-30 02:48 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-30 02:55 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-30 03:15 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-30 03:17 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-30 03:08 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-30 03:06 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-30 03:23 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 03:23 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-30 03:00 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 02:56 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-30 03:12 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-30 03:03 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-30 03:22 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-30 03:21 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-30 03:08 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:17 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/883855477.shtml)
-- 2026-06-30 02:57 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/21552323.shtml)
-- 2026-06-30 02:57 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/92659.shtml)
-- 2026-06-30 02:52 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/110839776538.shtml)
-- 2026-06-30 02:52 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/722389710665.shtml)
-- 2026-06-30 03:17 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/766732740.shtml)
-- 2026-06-30 03:09 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/2474475.shtml)
-- 2026-06-30 03:14 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/70106.shtml)
-- 2026-06-30 02:57 - [巴西醒醒 这是淘汰赛](https://www.share.minike.top/Article/details/490441000410.shtml)
-- 2026-06-30 03:17 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/856919884744.shtml)
-- 2026-06-30 03:06 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/307622.shtml)
-- 2026-06-30 02:50 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/668917192412.shtml)
-- 2026-06-30 02:53 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/92649804537.shtml)
-- 2026-06-30 03:00 - [荷兰vs摩洛哥前瞻](http://www.blog.kurohicncr.top/Article/details/434915.shtml)
-- 2026-06-30 03:03 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/03427394324.shtml)
+- 2026-06-30 03:06 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/50956002.shtml)
+- 2026-06-30 03:20 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/38366.shtml)
+- 2026-06-30 03:19 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/699842653.shtml)
+- 2026-06-30 03:07 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/67811.shtml)
+- 2026-06-30 02:55 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/681599357943.shtml)
+- 2026-06-30 03:18 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/750326573714.shtml)
+- 2026-06-30 03:06 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/145295.shtml)
+- 2026-06-30 03:04 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/78982.shtml)
+- 2026-06-30 02:57 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/5312713.shtml)
+- 2026-06-30 03:01 - [孙兴慜道歉](https://www.share.minike.top/Article/details/40989.shtml)
+- 2026-06-30 03:04 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/1486098611.shtml)
+- 2026-06-30 02:54 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/9904520419.shtml)
+- 2026-06-30 02:59 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/47130.shtml)
+- 2026-06-30 03:04 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/517451254.shtml)
+- 2026-06-30 03:12 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/7960624.shtml)

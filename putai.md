@@ -1,57 +1,57 @@
-# 个人办事，不只“能办”还要“好办、易办”
+# “孔子文化书画展”在莫斯科开幕
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-各地优化政务服务，推动新一批便民服务事项落地 个人办事，不只“能办”还要“好办、易办”(高效办成一件事) 编者按：今年1月，国务院办公厅印发《“高效办成一件事”2026年度第一批重点事项清单》，内容涵盖就业、置业、养老等群众关切的民生领域，推动政务服务从“能办”向“好办、易办”转变。又一份清单，又一批便民服务事项，此次“高效办成一件事”改革给群众生活带来哪些新变化？各地又有哪些
+中新网莫斯科6月16日电 (记者 田冰)“孔子文化书画展”当地时间15日在俄罗斯莫斯科国立苏里科夫美术学院美术馆开幕。展览汇聚了中国山东省60位书画艺术家精心创作的以孔子文化、齐鲁风貌为主题的优秀作品，展现当代山东书画艺术的发展成果和创作水平。 本次展览由孔子第76代直系后裔、旅俄著名书法家孔令民担任学术指导，苏里科夫美院助理教授柳洁修担任策展人。中国驻俄罗斯大使馆公使衔参赞封
 
 ## 正文
 
-各地优化政务服务，推动新一批便民服务事项落地 个人办事，不只“能办”还要“好办、易办”(高效办成一件事) 编者按：今年1月，国务院办公厅印发《“高效办成一件事”2026年度第一批重点事项清单》，内容涵盖就业、置业、养老等群众关切的民生领域，推动政务服务从“能办”向“好办、易办”转变。
+中新网莫斯科6月16日电 (记者 田冰)“孔子文化书画展”当地时间15日在俄罗斯莫斯科国立苏里科夫美术学院美术馆开幕。
 
-又一份清单，又一批便民服务事项，此次“高效办成一件事”改革给群众生活带来哪些新变化？
+展览汇聚了中国山东省60位书画艺术家精心创作的以孔子文化、齐鲁风貌为主题的优秀作品，展现当代山东书画艺术的发展成果和创作水平。
 
-各地又有哪些改革机制、创新举措？
+本次展览由孔子第76代直系后裔、旅俄著名书法家孔令民担任学术指导，苏里科夫美院助理教授柳洁修担任策展人。
 
-近期，本报记者探访内蒙古、山东、云南等地，看各地如何优化政务服务，推动落实“高效办成一件事”，不断增强群众获得感、幸福感。
+中国驻俄罗斯大使馆公使衔参赞封立涛，苏里科夫美院副院长让娜·尤里耶芙娜、津科娃·斯韦特兰娜、马洛娃·塔季扬娜等嘉宾出席开幕式并致辞。
 
-老龄补贴申领—— 一张表单，实现一次申请、一网通办 “您好，请问老龄补贴申领在哪办理？
+来自俄政府机构、高校、文化艺术机构、企业及社会团体代表，以及在俄华侨华人、留学生、中资机构和企业代表等百余人参加活动。
 
-”内蒙古自治区乌海市海勃湾区政务服务中心办事大厅内，61岁的居民刘桂兰向办事大厅工作人员询问。
+让娜·尤里耶芙娜表示，孔子是中国古代伟大的思想家、教育家和儒家学派创始人，其思想不仅深刻影响了中华文明的发展进程，也为世界文明交流与教育事业发展提供了重要智慧。
 
-“阿姨，咱们现在直接在手机上就能办。
+值此“俄中教育年”之际举办孔子文化主题展览，既是对中华优秀传统文化的弘扬与传播，也是俄中两国教育合作、人文交流不断深化的重要体现。
 
-”办事大厅负责人李倩向刘桂兰耐心解释，并帮助她在手机上搜索“海区e家”微信小程序，找到“补贴申请”板块里的“老龄补贴”，再指导她输入姓名、身份证号和住址进行登录。
+展览现场，中俄艺术家以笔会交流、作品研讨等形式深入互动。
 
 ## 相关推荐
 
-- 2026-06-30 02:56 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-30 03:03 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-30 03:04 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-30 03:09 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-30 02:53 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 02:48 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-30 03:16 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-30 03:07 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 03:04 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-30 02:59 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-30 03:15 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-30 02:57 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-30 03:19 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-30 02:57 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-30 03:18 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-30 02:56 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-30 03:01 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-30 02:59 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-30 03:20 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-30 03:04 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-30 03:06 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-30 03:22 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:51 - [千香](https://www.share.minike.top/Article/details/69306556.shtml)
-- 2026-06-30 02:54 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/7495992395.shtml)
-- 2026-06-30 02:54 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/808367927.shtml)
-- 2026-06-30 03:14 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/25372729.shtml)
-- 2026-06-30 03:10 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/15418668529.shtml)
-- 2026-06-30 02:59 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/456555938.shtml)
-- 2026-06-30 02:54 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/58933.shtml)
-- 2026-06-30 03:01 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/225567128000.shtml)
-- 2026-06-30 02:59 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/4304649.shtml)
-- 2026-06-30 02:52 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/97366.shtml)
-- 2026-06-30 02:52 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/108777.shtml)
-- 2026-06-30 03:04 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/072501.shtml)
-- 2026-06-30 03:04 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/636477132365.shtml)
-- 2026-06-30 03:11 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/9067776698.shtml)
-- 2026-06-30 02:58 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/81547251.shtml)
+- 2026-06-30 03:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/83111912.shtml)
+- 2026-06-30 03:18 - [乔家的儿女](http://www.share.minike.top/Article/details/49938884.shtml)
+- 2026-06-30 03:18 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/0533809.shtml)
+- 2026-06-30 03:13 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/285064178530.shtml)
+- 2026-06-30 03:18 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/6853898600.shtml)
+- 2026-06-30 03:23 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/214196550.shtml)
+- 2026-06-30 03:16 - [世界杯](http://www.share.minike.top/Article/details/207071770.shtml)
+- 2026-06-30 03:08 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/44200.shtml)
+- 2026-06-30 03:11 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/421664992.shtml)
+- 2026-06-30 03:12 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/53880324688.shtml)
+- 2026-06-30 03:12 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/789440.shtml)
+- 2026-06-30 03:06 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/06888043.shtml)
+- 2026-06-30 02:57 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/885554759.shtml)
+- 2026-06-30 02:54 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/869907.shtml)
+- 2026-06-30 02:59 - [这一刀 会很帅](http://www.share.minike.top/Article/details/28675.shtml)

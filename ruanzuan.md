@@ -1,57 +1,56 @@
-# 因时机器人房海南：希望灵巧手真正可以帮助“干活”
+# 光大期货：6月17日农产品日报
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:03 UTC+8
 
 ## 摘要
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。因时机器人CMO房海南出席并演讲。 房海南引用“莫拉维克悖论”并以医疗行业举例，AI或许能比专业医生更快做出决策，但很难具体执行手术任务。而当前行业所需要的探索，正是让机器人真正“做事”。 莫拉维克悖论是人工智能领域一个著名的反直觉现象，它指出对于计算机而言，实现人类的高
+蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周二，CBOT大豆收高，受出口需求希望提振。盘后的作物报告显示，美豆优良率66%，较前一周增加1个百分点。美豆种植率95%，比预期低1个百分点。NOPA报告显示，美豆5月压榨量处于预估区间下沿，美豆油库存降至17.35亿帮，为5个月最低水平。南美方面，阿根廷大豆丰收兑现，预计巴西6月大豆出口1
 
 ## 正文
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。
+蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周二，CBOT大豆收高，受出口需求希望提振。
 
-因时机器人CMO房海南出席并演讲。
+盘后的作物报告显示，美豆优良率66%，较前一周增加1个百分点。
 
-房海南引用“莫拉维克悖论”并以医疗行业举例，AI或许能比专业医生更快做出决策，但很难具体执行手术任务。
+美豆种植率95%，比预期低1个百分点。
 
-而当前行业所需要的探索，正是让机器人真正“做事”。
+NOPA报告显示，美豆5月压榨量处于预估区间下沿，美豆油库存降至17.35亿帮，为5个月最低水平。
 
-莫拉维克悖论是人工智能领域一个著名的反直觉现象，它指出对于计算机而言，实现人类的高级认知能力（如逻辑推理、数学计算）相对容易，而复制人类看似简单的低级感知与运动能力（如视觉识别、行走抓取）却异常困难。
+南美方面，阿根廷大豆丰收兑现，预计巴西6月大豆出口1531万吨，比去年同期增加150万吨。
 
-2025年，因时机器人实现了灵巧手10000台交付数。
+阿根廷大豆产量预计在5150万吨附近。
 
-房海南介绍，灵巧手在行业内普遍被认为存在“成本、性能、可靠性”的不可能三角。
+国内方面，蛋白粕震荡运行，资金观望情绪浓厚。
 
-“目前市面上没有任何一个产品能够突破不可能三角。
+现货市场成交清淡，同样观望为主。
 
 ## 相关推荐
 
-- 2026-06-30 03:17 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-30 02:59 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-30 03:01 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-30 03:04 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-30 03:04 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-30 03:13 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 02:55 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-30 03:14 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-30 03:03 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-30 03:04 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-30 02:58 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-30 03:08 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-30 03:13 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-30 03:17 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 03:09 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-30 03:12 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 03:14 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-30 02:58 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-30 02:57 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 03:21 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-30 03:23 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:13 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/7536210104.shtml)
-- 2026-06-30 02:58 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/323622.shtml)
-- 2026-06-30 03:12 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/0228636103.shtml)
-- 2026-06-30 03:17 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/2717649915.shtml)
-- 2026-06-30 03:06 - [AI接过张雪峰志愿填报衣钵](https://www.share.kurohicncr.top/Article/details/698430.shtml)
-- 2026-06-30 03:16 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/441925115.shtml)
-- 2026-06-30 02:54 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/8703027.shtml)
-- 2026-06-30 03:07 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/638728489705.shtml)
-- 2026-06-30 03:12 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/45281.shtml)
-- 2026-06-30 03:09 - [长沙菜农公交的人间烟火气](https://www.share.minike.top/Article/details/9841732828.shtml)
-- 2026-06-30 03:15 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/53589846363.shtml)
-- 2026-06-30 03:10 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/588321786317.shtml)
-- 2026-06-30 03:01 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/9100595281.shtml)
-- 2026-06-30 02:57 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/35283.shtml)
-- 2026-06-30 02:55 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/546290359.shtml)
+- 2026-06-30 03:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/8954807.shtml)
+- 2026-06-30 03:19 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/3941689.shtml)
+- 2026-06-30 03:01 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/036824879.shtml)
+- 2026-06-30 03:01 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/9724141483.shtml)
+- 2026-06-30 03:02 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/602199.shtml)
+- 2026-06-30 03:16 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/1047389.shtml)
+- 2026-06-30 03:20 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/11258475.shtml)
+- 2026-06-30 03:06 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/8679305742.shtml)
+- 2026-06-30 03:10 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/9846525210.shtml)
+- 2026-06-30 03:12 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/85189014162.shtml)
+- 2026-06-30 02:59 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/317984.shtml)
+- 2026-06-30 02:56 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/18005.shtml)
+- 2026-06-30 03:18 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/2732692.shtml)
+- 2026-06-30 03:23 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/969047509113.shtml)
+- 2026-06-30 03:04 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/62806.shtml)

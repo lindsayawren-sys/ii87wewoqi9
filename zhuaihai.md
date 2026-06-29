@@ -1,58 +1,58 @@
-# 2026年汛期长江流域或出现旱涝并存局面
+# 以赛育才 全国多地“10后”摔跤新星长春争锋
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:03 UTC+8
 
 ## 摘要
 
-中新社武汉5月8日电 (张芹 王凡)记者8日从长江防汛抗旱总指挥部了解到，今年汛期长江流域气候年景总体偏差，部分时段流域内或出现旱涝并存局面。 据流域气象中心最新预测，2026年长江流域汛期涝旱并重，长江中游旱重于涝，强对流天气将多发重发。预计主汛期(6月-8月)降水总体偏少。降雨空间分布上，金沙江、岷江、嘉陵江、长江下游等流域偏多一至二成，长江中上游面上偏少一至二成，其中中游
+中新网长春6月16日电 (高龙安 李彦国)赛场上，来自广东的“10后”摔跤小将麦政炫发挥沉稳，精准捕捉对手破绽连续得分，以近10分优势拿下一局。 由国家体育总局举重摔跤柔道运动管理中心、中国摔跤协会主办的2026年全国U15国际式摔跤锦标赛正在吉林长春举行，北京、广东、浙江、吉林等地的80余支队伍参赛，参赛运动员、教练员总计近千人。 本次比赛采用单败淘汰单复活赛制，赛程自6月1
 
 ## 正文
 
-中新社武汉5月8日电 (张芹 王凡)记者8日从长江防汛抗旱总指挥部了解到，今年汛期长江流域气候年景总体偏差，部分时段流域内或出现旱涝并存局面。
+中新网长春6月16日电 (高龙安 李彦国)赛场上，来自广东的“10后”摔跤小将麦政炫发挥沉稳，精准捕捉对手破绽连续得分，以近10分优势拿下一局。
 
-据流域气象中心最新预测，2026年长江流域汛期涝旱并重，长江中游旱重于涝，强对流天气将多发重发。
+由国家体育总局举重摔跤柔道运动管理中心、中国摔跤协会主办的2026年全国U15国际式摔跤锦标赛正在吉林长春举行，北京、广东、浙江、吉林等地的80余支队伍参赛，参赛运动员、教练员总计近千人。
 
-预计主汛期(6月-8月)降水总体偏少。
+本次比赛采用单败淘汰单复活赛制，赛程自6月13日至17日，分男子自由式摔跤、男子古典式摔跤、女子自由式摔跤三大组别，依次开展资格赛、淘汰赛、复活赛，决出各级别决赛参赛选手。
 
-降雨空间分布上，金沙江、岷江、嘉陵江、长江下游等流域偏多一至二成，长江中上游面上偏少一至二成，其中中游干流区偏少二至四成。
+麦政炫参与的是52公斤级男子自由式摔跤角逐。
 
-根据预测，6月下旬至7月上旬长江中下游地区有雨水集中期，7月中旬后随着副热带高压北抬，岷江、嘉陵江流域降雨将增多，四川盆地东部至长江中游将出现阶段性高温天气，盛夏期台风影响将增多。
+本届比赛广东队共派出5名选手，均为队内新人。
 
-长江防汛抗旱总指挥部要求，流域各地相关部门和单位要切实提高水旱灾害防御的科学性、预见性、针对性和实效性，强化监测预警、做实工作预案、加强宣传引导、超前整治隐患。
+教练洪晓槟表示，全国高水平赛事参赛机会难得，队员通过与各地选手同场竞技，能够快速熟悉多元技术打法，积累宝贵的大赛实战经验。
 
-同时，强化应急能力和物资储备，动态完善应急预案，确保灾害发生时能够及时、安全、高效施救。
+全国U15国际式摔跤锦标赛已连续两年落户长春，这两届赛事也是该锦标赛创办以来参赛规模最大的两届，所有参赛选手均为“10后”，堪称国内摔跤后备人才的集中大检阅。
 
-此外，要统筹江河湖库资源、加快构建现代安全韧性水网，强化数智化技术应用、增强水旱灾害治理能力。
+赛事裁判长董文侠介绍，近年来，摔跤运动在青少年群体普及度持续提升。
 
 ## 相关推荐
 
-- 2026-06-30 03:07 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-30 03:08 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-30 02:55 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-30 02:51 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-30 03:10 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-30 02:48 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-30 03:14 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-30 02:49 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-30 02:59 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-30 03:01 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-30 03:09 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-30 02:57 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 03:23 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-30 03:05 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 03:22 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-30 03:05 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-30 02:57 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 03:07 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-30 03:09 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-30 03:21 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-30 03:17 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 03:14 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-30 03:00 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 02:56 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:10 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/349315247505.shtml)
-- 2026-06-30 03:14 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/01671041.shtml)
-- 2026-06-30 03:08 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/840683863204.shtml)
-- 2026-06-30 03:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/05311338.shtml)
-- 2026-06-30 03:02 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/80223602611.shtml)
-- 2026-06-30 03:10 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/3711648.shtml)
-- 2026-06-30 02:56 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/67448802591.shtml)
-- 2026-06-30 02:54 - [一见倾心](https://www.share.minike.top/Article/details/613869.shtml)
-- 2026-06-30 02:56 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/43589.shtml)
-- 2026-06-30 03:12 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/1033549.shtml)
-- 2026-06-30 03:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/547896.shtml)
-- 2026-06-30 03:02 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/46060204668.shtml)
-- 2026-06-30 03:02 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/10810350.shtml)
-- 2026-06-30 02:58 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/106300.shtml)
-- 2026-06-30 02:49 - [上半年全国特种设备安全形势总体平稳](https://www.share.minike.top/Article/details/524742425184.shtml)
+- 2026-06-30 03:06 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/99821.shtml)
+- 2026-06-30 03:04 - [长沙菜农公交的人间烟火气](http://www.blog.minike.top/Article/details/4701010408.shtml)
+- 2026-06-30 03:03 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/52485622728.shtml)
+- 2026-06-30 03:10 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/0015728.shtml)
+- 2026-06-30 03:03 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/4062919709.shtml)
+- 2026-06-30 03:05 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/689784683419.shtml)
+- 2026-06-30 02:57 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/56114656.shtml)
+- 2026-06-30 03:21 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/36095.shtml)
+- 2026-06-30 03:02 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/728384263.shtml)
+- 2026-06-30 03:08 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/413593384.shtml)
+- 2026-06-30 02:56 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/410319983935.shtml)
+- 2026-06-30 03:13 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/7233150996.shtml)
+- 2026-06-30 03:23 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/7672438.shtml)
+- 2026-06-30 03:17 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/49048772.shtml)
+- 2026-06-30 03:14 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/876322.shtml)

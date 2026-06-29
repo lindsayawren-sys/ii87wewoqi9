@@ -1,58 +1,61 @@
-# 检察机关对丁雄军、赵成武、白春明、俞志明提起公诉
+# 两岸共潮生｜台湾姑娘四川媳 凉山鲜果卖出去
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-中新网5月8日电 据最高人民检察院微信公众号消息，日前，检察机关依法分别对丁雄军、赵成武、白春明、俞志明提起公诉。 贵州检察机关依法对丁雄军涉嫌受贿、洗钱案提起公诉 日前，贵州省市场监督管理局原党组书记、局长丁雄军(正厅级)涉嫌受贿罪、洗钱罪一案，由贵州省监察委员会调查终结，移送检察机关审查起诉。经贵州省人民检察院指定管辖，由黔东南州人民检察院依法向黔东南州中级人民法院提起公诉
+发布时间：2026年06月17日 08:37 来源：中国新闻网 作为台湾姑娘、四川媳妇，宓欣怡在成都创业十几年。紧跟乡村振兴的浪潮，她选择落脚风光物产兼备的四川凉山。宓欣怡凭借当地原生态鲜果优势，逐步打造出成熟的产运销体系，让凉山特色鲜果走出深山，奔赴更广阔的市场。“现在我儿子自己都可以说我妈妈是做乡村振兴的！”宓欣怡提起儿子对她的肯定，一脸自豪。在大陆打拼的日子里，“农林 2
 
 ## 正文
 
-中新网5月8日电 据最高人民检察院微信公众号消息，日前，检察机关依法分别对丁雄军、赵成武、白春明、俞志明提起公诉。
+发布时间：2026年06月17日 08:37 来源：中国新闻网 作为台湾姑娘、四川媳妇，宓欣怡在成都创业十几年。
 
-贵州检察机关依法对丁雄军涉嫌受贿、洗钱案提起公诉 日前，贵州省市场监督管理局原党组书记、局长丁雄军(正厅级)涉嫌受贿罪、洗钱罪一案，由贵州省监察委员会调查终结，移送检察机关审查起诉。
+紧跟乡村振兴的浪潮，她选择落脚风光物产兼备的四川凉山。
 
-经贵州省人民检察院指定管辖，由黔东南州人民检察院依法向黔东南州中级人民法院提起公诉。
+宓欣怡凭借当地原生态鲜果优势，逐步打造出成熟的产运销体系，让凉山特色鲜果走出深山，奔赴更广阔的市场。
 
-案件正在进一步办理中。
+“现在我儿子自己都可以说我妈妈是做乡村振兴的！
 
-检察机关在审查起诉阶段，依法告知了被告人丁雄军享有的诉讼权利，并依法讯问了被告人，听取了辩护人的意见。
+”宓欣怡提起儿子对她的肯定，一脸自豪。
 
-黔东南州人民检察院起诉指控：被告人丁雄军利用担任贵州省清镇市委常委、副市长，贵阳市两湖一库管理局党委书记、局长，贵阳国家高新技术产业开发区党工委书记、贵阳市白云区委书记，贵阳市人民政府秘书长，毕节市委常委、市人民政府副市长，贵州省能源局党组书记、局长，中国贵州茅台酒厂(集团)有限责任公司党委书记、董事长等职务上的便利，以及职权或地位形成的便利条件，为他人谋取利益，非法收受他人财物，数额特别巨大；掩饰、隐瞒部分受贿所得的来源和性质，情节严重，依法应当以受贿罪、洗钱罪追究其刑事责任。
+在大陆打拼的日子里，“农林 22 条” “川台 70 条” 等惠台政策，让宓欣怡感受到十足的温暖与便利。
 
-云南检察机关依法对赵成武涉嫌受贿案提起公诉 日前，云南省昆明市人民检察院原党组书记、检察长赵成武(副厅级)涉嫌受贿罪一案，由云南省监察委员会调查终结，移送检察机关审查起诉。
+她希望架起两岸连心桥，鼓励更多台湾青年来到大陆，开辟属于自己的天地。
 
-经云南省人民检察院指定管辖，由怒江州人民检察院依法向怒江州中级人民法院提起公诉。
+责任编辑：【黄钰涵】
 
 ## 相关推荐
 
-- 2026-06-30 03:13 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-30 02:54 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-30 03:09 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 03:17 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-30 03:15 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-30 03:04 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-30 03:09 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-30 03:06 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-30 03:07 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-30 02:48 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-30 02:56 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 02:56 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-30 02:57 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-30 03:15 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-30 03:07 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-30 02:55 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-30 03:11 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-30 03:17 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-30 03:05 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 03:19 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-30 03:22 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-30 03:03 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-30 03:21 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-30 02:59 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-30 03:10 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-30 03:09 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 03:15 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:07 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/34542160838.shtml)
-- 2026-06-30 02:48 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/32599487.shtml)
-- 2026-06-30 02:52 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/263965.shtml)
-- 2026-06-30 02:56 - [我们的少年时代2](https://www.blog.minike.top/Article/details/53726171133.shtml)
-- 2026-06-30 03:15 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/481761.shtml)
-- 2026-06-30 03:02 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/314953017.shtml)
-- 2026-06-30 02:57 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/0847391.shtml)
-- 2026-06-30 02:49 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/9958116.shtml)
-- 2026-06-30 02:52 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/9743223.shtml)
-- 2026-06-30 03:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/100423.shtml)
-- 2026-06-30 02:58 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/453275733.shtml)
-- 2026-06-30 02:49 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/502809849.shtml)
-- 2026-06-30 03:03 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/9717754907.shtml)
-- 2026-06-30 02:56 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/09449.shtml)
-- 2026-06-30 03:13 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/428530020.shtml)
+- 2026-06-30 03:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/32022753077.shtml)
+- 2026-06-30 03:21 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/322581446.shtml)
+- 2026-06-30 02:56 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/445797.shtml)
+- 2026-06-30 02:57 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/07868.shtml)
+- 2026-06-30 03:17 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/85473970951.shtml)
+- 2026-06-30 03:19 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/66810546729.shtml)
+- 2026-06-30 02:56 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/135322348.shtml)
+- 2026-06-30 03:04 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/277677907729.shtml)
+- 2026-06-30 03:18 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/248423200766.shtml)
+- 2026-06-30 03:03 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/27368677665.shtml)
+- 2026-06-30 03:09 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/601853.shtml)
+- 2026-06-30 03:06 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/40807422984.shtml)
+- 2026-06-30 03:21 - [金牌调解](http://www.blog.minike.top/Article/details/50143.shtml)
+- 2026-06-30 03:02 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/7973270.shtml)
+- 2026-06-30 03:15 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/566603926941.shtml)

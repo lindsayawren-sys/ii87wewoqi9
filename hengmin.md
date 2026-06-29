@@ -1,56 +1,59 @@
-# 2110万元！“钟薛高”名下508件无形资产被拍卖，溢价超900%成交
+# 中国联塑午前涨近4% 与天怀数智达成战略合作进军AI算力领域
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-仅用了一天时间，钟薛高食品（上海）有限公司名下的508件无形资产就以2110万元卖出。 5月7日下午，钟薛高食品公司的这笔资产在京东资产交易平台一拍成交。一天前，这些无形资产被打包拍卖，起拍价为207万元。 竞拍公告显示，此次被打包拍卖的无形资产包括492项注册商标、8项授权专利以及8项著作权。其中，被拍卖的商标包括“钟薛高”“钟薛低”“钟薛高的糕” “半巧主义”等；钟薛高食品
+中国联塑（02128）盘中涨超5%，截至发稿，股价上涨3.50%，现报4.44港元，成交额2952.42万港元。 6月16日，中国联塑集团旗下的联塑算力设施供应有限公司与浙江天怀数智科技有限公司在香港签订战略合作协议。此次合作，双方在AIDC 项目建设过程中，将优先使用联塑相关产品及解决方案。此外，双方将共同开拓海外AIDC市场。联塑利用海外生产基地布局及国际客户网络，浙江天怀
 
 ## 正文
 
-仅用了一天时间，钟薛高食品（上海）有限公司名下的508件无形资产就以2110万元卖出。
+中国联塑（02128）盘中涨超5%，截至发稿，股价上涨3.50%，现报4.44港元，成交额2952.42万港元。
 
-5月7日下午，钟薛高食品公司的这笔资产在京东资产交易平台一拍成交。
+6月16日，中国联塑集团旗下的联塑算力设施供应有限公司与浙江天怀数智科技有限公司在香港签订战略合作协议。
 
-一天前，这些无形资产被打包拍卖，起拍价为207万元。
+此次合作，双方在AIDC 项目建设过程中，将优先使用联塑相关产品及解决方案。
 
-竞拍公告显示，此次被打包拍卖的无形资产包括492项注册商标、8项授权专利以及8项著作权。
+此外，双方将共同开拓海外AIDC市场。
 
-其中，被拍卖的商标包括“钟薛高”“钟薛低”“钟薛高的糕” “半巧主义”等；钟薛高食品（上海）公司管理人于2026年5月6日10时起至2026年5月7日10时止（延时除外）在京东拍卖平台进行公开拍卖活动。
+联塑利用海外生产基地布局及国际客户网络，浙江天怀数智利用技术服务能力及产业资源，合作推进“一带一路”沿线国家及东南亚地区的算力中心项目。
 
-此次拍卖评估价与起拍价均为207万元，保证金20万元，加价幅度为1万元。
+公司指出，通过合作，双方致力于构建“资本+产业”、“资源+技术”深度融合的战略合作模式，共同推进国内外AIDC智算中心项目的落地与运营，实现联塑产品及业务进军AI算力领域并进行深入布局，拓宽产品应用领域。
 
-因竞价持续延时，直至下午14：00才落槌。
-
-界面新闻查询京东资产交易平台获悉，共有14人参与竞拍，出价631次，最终成交价2110万元，溢价率超900%。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:59 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-30 03:05 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-30 02:55 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-30 03:13 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-30 02:55 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-30 02:50 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-30 02:57 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-30 03:15 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-30 03:07 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-30 03:09 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-30 03:12 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-30 03:15 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-30 03:07 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-30 03:21 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-30 03:12 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-30 03:20 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-30 03:19 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-30 03:03 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-30 03:02 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-30 02:57 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-30 03:03 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-30 03:10 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-30 03:16 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-30 03:13 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-30 03:22 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:09 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/748612968.shtml)
-- 2026-06-30 02:57 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/71739370386.shtml)
-- 2026-06-30 03:06 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/347685035.shtml)
-- 2026-06-30 02:52 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/9508856769.shtml)
-- 2026-06-30 03:04 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/584692038475.shtml)
-- 2026-06-30 02:56 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/0084128.shtml)
-- 2026-06-30 03:02 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/50729550281.shtml)
-- 2026-06-30 03:05 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/473560520903.shtml)
-- 2026-06-30 03:04 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/704605.shtml)
-- 2026-06-30 02:57 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/5586929.shtml)
-- 2026-06-30 03:01 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/697343.shtml)
-- 2026-06-30 02:57 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/68624.shtml)
-- 2026-06-30 03:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/7853190.shtml)
-- 2026-06-30 02:53 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/93682128816.shtml)
-- 2026-06-30 02:56 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/82284.shtml)
+- 2026-06-30 03:14 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/2361319960.shtml)
+- 2026-06-30 03:21 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/8226114798.shtml)
+- 2026-06-30 03:03 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/760838.shtml)
+- 2026-06-30 02:56 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/32539940.shtml)
+- 2026-06-30 03:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/82791044410.shtml)
+- 2026-06-30 03:13 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/42295009.shtml)
+- 2026-06-30 03:24 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/46159713063.shtml)
+- 2026-06-30 03:23 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/763742199011.shtml)
+- 2026-06-30 02:58 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/324176.shtml)
+- 2026-06-30 03:02 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/150385819255.shtml)
+- 2026-06-30 02:57 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/553538.shtml)
+- 2026-06-30 02:59 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/28601925.shtml)
+- 2026-06-30 03:13 - [天道](http://www.share.minike.top/Article/details/12090776520.shtml)
+- 2026-06-30 03:15 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/03943.shtml)
+- 2026-06-30 03:18 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/767605219692.shtml)

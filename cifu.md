@@ -1,52 +1,58 @@
-# 中国汽车工业协会：网传“新能源车企因锁电问题被约谈、立案”为不实信息
+# 社区投票复盘：市场总在分歧中前进，四场热门预测结果揭晓
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-记者今天(9日)从中国汽车工业协会了解到，网传“新能源车企因锁电问题被约谈、立案”为不实信息。 中国汽车工业协会相关负责人表示，针对近日网络上盛传的关于“8家新能源车企因锁电问题被约谈”“3家车企被立案”的说法，网传内容无官方来源，与事实严重不符，一切行业监管动态与执法举措以主管部门官方正式信息为准。 同时，希望新能源车企在优化电池管理系统的同时，保持信息透明原则，保障消费者知
+过去一周，社区围绕纳斯达克、黄金、原油和SpaceX IPO展开了四场热门投票。从最终结果来看，用户整体判断准确率较高，但过程中也经历了明显的情绪反复。这恰恰反映出当前市场最大的特点——消息驱动强、波动加剧、预期变化快。 一、纳斯达克100能否突破31000点？ 正确答案：不会（88%用户预测正确）。 最终共有超过1.1万人参与投票，其中88%的用户认为纳指无法突破31000点
 
 ## 正文
 
-记者今天(9日)从中国汽车工业协会了解到，网传“新能源车企因锁电问题被约谈、立案”为不实信息。
+过去一周，社区围绕纳斯达克、黄金、原油和SpaceX IPO展开了四场热门投票。
 
-中国汽车工业协会相关负责人表示，针对近日网络上盛传的关于“8家新能源车企因锁电问题被约谈”“3家车企被立案”的说法，网传内容无官方来源，与事实严重不符，一切行业监管动态与执法举措以主管部门官方正式信息为准。
+从最终结果来看，用户整体判断准确率较高，但过程中也经历了明显的情绪反复。
 
-同时，希望新能源车企在优化电池管理系统的同时，保持信息透明原则，保障消费者知情权与选择权，并建立畅通高效的售后沟通渠道，积极处理锁电相关的投诉争议，用诚信经营守护品牌口碑。
+这恰恰反映出当前市场最大的特点——消息驱动强、波动加剧、预期变化快。
 
-(总台央视记者 王世玉 罗宏进)
+一、纳斯达克100能否突破31000点？
+
+正确答案：不会（88%用户预测正确）。
+
+最终共有超过1.1万人参与投票，其中88%的用户认为纳指无法突破31000点。
+
+从投票曲线来看，市场信心持续回落：6月8日仍有约20%的用户认为会突破。
+
+随着美联储会议临近、科技股涨幅扩大，看多比例一路下降至10%左右。
 
 ## 相关推荐
 
-- 2026-06-30 03:03 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-30 03:14 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-30 03:04 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-30 02:48 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-30 03:12 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-30 03:09 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-30 03:09 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-30 03:14 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-30 03:07 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-30 03:11 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-30 03:01 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-30 02:50 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-30 03:13 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-30 02:51 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-30 02:56 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-30 03:16 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-30 02:55 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-30 03:05 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-30 02:58 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-30 03:13 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-30 03:00 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-30 03:05 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-30 03:09 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 02:59 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-30 03:13 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-30 03:06 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:03 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/63134.shtml)
-- 2026-06-30 03:06 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/7134302.shtml)
-- 2026-06-30 02:56 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/41070.shtml)
-- 2026-06-30 03:11 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/5879302.shtml)
-- 2026-06-30 02:51 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/6048862635.shtml)
-- 2026-06-30 03:02 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/48053.shtml)
-- 2026-06-30 03:16 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/7944129.shtml)
-- 2026-06-30 03:16 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/091360632257.shtml)
-- 2026-06-30 02:54 - [斗破苍穹](https://www.share.minike.top/Article/details/208903659135.shtml)
-- 2026-06-30 03:13 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/121522802552.shtml)
-- 2026-06-30 02:51 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/686423614.shtml)
-- 2026-06-30 02:55 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/569950508.shtml)
-- 2026-06-30 03:08 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/050226.shtml)
-- 2026-06-30 03:04 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/22006.shtml)
-- 2026-06-30 02:52 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/7734668440.shtml)
+- 2026-06-30 03:10 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/0602055.shtml)
+- 2026-06-30 03:22 - [巴西vs日本首发名单](http://www.blog.minike.top/Article/details/2691868370.shtml)
+- 2026-06-30 02:54 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/69353521.shtml)
+- 2026-06-30 03:21 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/120784482.shtml)
+- 2026-06-30 03:09 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/029717606412.shtml)
+- 2026-06-30 03:13 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/0844556548.shtml)
+- 2026-06-30 03:01 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/7422000.shtml)
+- 2026-06-30 03:20 - [极限挑战第一季](https://www.share.minike.top/Article/details/5436837.shtml)
+- 2026-06-30 03:05 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/4708646.shtml)
+- 2026-06-30 03:20 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/310436.shtml)
+- 2026-06-30 02:58 - [周生如故](https://www.share.minike.top/Article/details/532265.shtml)
+- 2026-06-30 03:10 - [周生如故](http://www.blog.minike.top/Article/details/343178.shtml)
+- 2026-06-30 03:17 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/7295063864.shtml)
+- 2026-06-30 03:22 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/068643776.shtml)
+- 2026-06-30 03:14 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/5511576047.shtml)

@@ -1,55 +1,56 @@
-# 卡塔尔再度尝试派遣LNG运输船穿越霍尔木兹海峡
+# 千里科技2倍溢价收购关联方资不抵债标的 关联交易额预计超200亿涨幅超80%
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-一艘载有卡塔尔液化天然气的运输船正尝试通过霍尔木兹海峡，如果成功，这将标志着自伊朗战争爆发以来该国首次向该地区外出口液化天然气。 根据船舶追踪数据，本月早些时候在Ras Laffan出口设施装货的Al Kharaitiyat号目前位于阿曼与伊朗之间的水道。数据显示，该船将巴基斯坦列为下一个目的地。 追踪数据显示，该船正沿着伊朗批准的北部航线航行，并已驶过Larak Island
+核心观点：千里科技关联交易不断，一方面，公司溢价2倍收购关联方资不抵债标的；另一方面，公司较为依赖关联交易，吉利系多个财年为公司大客户与大供应商。此外，公司2026年关联交易预计额进一步上调至218亿元，较上年同期增幅超80%。 近日，千里科技高溢价收购关联资产引发关注。 公告显示，公司控股子公司重庆千里智驾科技有限公司（下简称千里智驾）拟以自有资金2590.80万元，收购宁波
 
 ## 正文
 
-一艘载有卡塔尔液化天然气的运输船正尝试通过霍尔木兹海峡，如果成功，这将标志着自伊朗战争爆发以来该国首次向该地区外出口液化天然气。
+核心观点：千里科技关联交易不断，一方面，公司溢价2倍收购关联方资不抵债标的；另一方面，公司较为依赖关联交易，吉利系多个财年为公司大客户与大供应商。
 
-根据船舶追踪数据，本月早些时候在Ras Laffan出口设施装货的Al Kharaitiyat号目前位于阿曼与伊朗之间的水道。
+此外，公司2026年关联交易预计额进一步上调至218亿元，较上年同期增幅超80%。
 
-数据显示，该船将巴基斯坦列为下一个目的地。
+近日，千里科技高溢价收购关联资产引发关注。
 
-追踪数据显示，该船正沿着伊朗批准的北部航线航行，并已驶过Larak Island。
+公告显示，公司控股子公司重庆千里智驾科技有限公司（下简称千里智驾）拟以自有资金2590.80万元，收购宁波市融感科技有限公司（下简称融感科技）100%股权。
 
-卡塔尔此前多次尝试通过霍尔木兹海峡运输，但每艘油轮都不得不折返。
+本次交易对方之一的芜湖旷沄人工智能产业投资基金（有限合伙）系公司副董事长鲍毅先生的关联企业，本次交易构成关联交易。
 
-作为去年供应了全球近五分之一液化天然气的国家，自2月底伊朗冲突爆发以来，卡塔尔一直无法从波斯湾运出任何液化天然气。
+溢价2倍收购标的净资产为负 无业绩承诺 据公告显示，此次收购标的融感科技是国内专注于毫米波雷达及融合感知技术的车规级技术企业，聚焦于智能驾驶感知层核心硬件的研发、生产与销售，致力于为L2+及以上级别智能驾驶系统提供高性能、高可靠的感知解决方案。
 
-责任编辑：李桐
+融感科技依托核心研发团队在雷达射频设计、信号处理、多传感器融合算法领域的多年技术沉淀，打造了兼具探测精度、恶劣环境适应性与成本优势的4D成像毫米波雷达产品，已实现多家主流主机厂的定点验证与小批量交付，同时构建了完善的车规级质量管控体系与量产供应链，具备较强的技术壁垒与市场拓展潜力。
+
+公司控股子公司千里智驾是公司智能驾驶业务板块的核心企业，为进一步构建覆盖L2至L4级别的全栈式智能驾驶解决方案，践行“软硬一体、全栈交付”的战略部署，巩固其在智能驾驶产业的核心竞争力，千里智驾拟收购专注于毫米波雷达及融合感知技术的车规级技术企业融感科技100%股权，交易价格为2590.80万元。
 
 ## 相关推荐
 
-- 2026-06-30 03:06 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-30 02:52 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-30 03:02 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-30 03:00 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-30 03:10 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-30 03:15 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-30 03:07 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-30 03:01 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-30 02:57 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-30 02:50 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-30 03:02 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-30 02:58 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 03:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-30 02:58 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-30 02:54 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 03:12 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-30 03:23 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-30 03:18 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-30 03:14 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-30 03:08 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-30 03:23 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:02 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/17722560054.shtml)
-- 2026-06-30 02:56 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/30770542.shtml)
-- 2026-06-30 02:53 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/245031452.shtml)
-- 2026-06-30 03:05 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/52594708921.shtml)
-- 2026-06-30 02:52 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/768073584683.shtml)
-- 2026-06-30 03:06 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/84528587484.shtml)
-- 2026-06-30 02:57 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/3186779.shtml)
-- 2026-06-30 03:03 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/5727725.shtml)
-- 2026-06-30 03:12 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/58520.shtml)
-- 2026-06-30 03:09 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/750942877699.shtml)
-- 2026-06-30 03:09 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/5057944.shtml)
-- 2026-06-30 03:06 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/380937639.shtml)
-- 2026-06-30 03:04 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/396093529.shtml)
-- 2026-06-30 02:49 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/709776321.shtml)
-- 2026-06-30 02:56 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/658107.shtml)
+- 2026-06-30 03:10 - [普京间接喊话特朗普有何考量](https://www.share.kurohicncr.top/Article/details/818595.shtml)
+- 2026-06-30 03:22 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/24960.shtml)
+- 2026-06-30 03:10 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/73671.shtml)
+- 2026-06-30 03:08 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/22748.shtml)
+- 2026-06-30 03:21 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/92930452984.shtml)
+- 2026-06-30 03:07 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/26127684.shtml)
+- 2026-06-30 03:22 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/23823275326.shtml)
+- 2026-06-30 03:17 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/533467.shtml)
+- 2026-06-30 03:07 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/994469.shtml)
+- 2026-06-30 03:11 - [斛珠夫人](https://www.share.minike.top/Article/details/2324470.shtml)
+- 2026-06-30 02:55 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/1767284.shtml)
+- 2026-06-30 03:10 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/52152.shtml)
+- 2026-06-30 03:10 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/53482117565.shtml)
+- 2026-06-30 02:54 - [巴西vs日本](http://www.blog.minike.top/Article/details/271060389.shtml)
+- 2026-06-30 03:14 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/3172015209.shtml)

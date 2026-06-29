@@ -1,57 +1,48 @@
-# 青海玛沁突发山体崩塌导致227国道部分路段中断
+# 一航班降落滑行时起落架冒烟，首都机场通报：已正常下客，未造成其他影响
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-新华社西宁5月8日电(记者王浡)记者从青海省交通运输厅获悉，受持续降雨天气影响，5月7日10时09分，G227张(掖)孟(连)公路青海段，果洛藏族自治州玛沁县拉加镇赞根村K748+500米处突发山体崩塌，造成道路全幅中断、车辆滞留，并引发道路交通安全事故。目前，该路段实行全幅封闭、双向交通阻断，暂不具备通行条件。据现场勘查核实，本次崩塌山体地势陡峭，山体近乎垂直呈90度，山体高
+6月16日，@首都机场 发文称，6月15日18时许，首都机场一进港航班降落后在滑行时起落架冒烟，机场应急部门第一时间到场进行处置，后续该航班正常下客。事件未对机场运行造成其他影响。 责任编辑：凌辰
 
 ## 正文
 
-新华社西宁5月8日电(记者王浡)记者从青海省交通运输厅获悉，受持续降雨天气影响，5月7日10时09分，G227张(掖)孟(连)公路青海段，果洛藏族自治州玛沁县拉加镇赞根村K748+500米处突发山体崩塌，造成道路全幅中断、车辆滞留，并引发道路交通安全事故。
+6月16日，@首都机场 发文称，6月15日18时许，首都机场一进港航班降落后在滑行时起落架冒烟，机场应急部门第一时间到场进行处置，后续该航班正常下客。
 
-目前，该路段实行全幅封闭、双向交通阻断，暂不具备通行条件。
+事件未对机场运行造成其他影响。
 
-据现场勘查核实，本次崩塌山体地势陡峭，山体近乎垂直呈90度，山体高度50余米，临路绵延长度200余米。
-
-经无人机航拍勘查，山体表层覆盖30厘米厚度腐殖土，岩体风化裸露严重，山体顶部存在明显裂隙，地质结构稳定性较差。
-
-本次崩塌起始于距地面2米位置，塌面贯通至山体顶部，塌方总量约2000立方米，受阻路段长度200米，导致双向滞留车辆50余辆。
-
-险情发生后，省、州、县各级交通、应急、自然资源、公安交警等部门快速响应、协同处置，目前，滞留车辆已全部疏散，现场正进行危岩体清理工作。
-
-据悉，该路段具体恢复通行时间将根据山体稳定性监测及抢险施工进度另行通告，交通运输部门将持续跟踪险情动态，及时发布最新处置进展，尽快抢通受损道路。
+责任编辑：凌辰
 
 ## 相关推荐
 
-- 2026-06-30 03:02 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-30 02:50 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-30 03:05 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-30 02:55 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-30 03:12 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-30 02:59 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-30 02:51 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-30 03:13 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-30 02:56 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-30 02:58 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 03:01 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-30 03:16 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 03:05 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-30 03:03 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 02:57 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-30 03:12 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-30 03:10 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-30 03:20 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-30 03:03 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-30 03:15 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-30 03:23 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-30 03:08 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-30 03:17 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-30 03:14 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 03:10 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:57 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/96672.shtml)
-- 2026-06-30 02:56 - [卡塞米罗头球破门](https://www.share.kurohicncr.top/Article/details/104948.shtml)
-- 2026-06-30 03:10 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/322631401.shtml)
-- 2026-06-30 03:16 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/826109856.shtml)
-- 2026-06-30 03:01 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/749831.shtml)
-- 2026-06-30 03:17 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/746896.shtml)
-- 2026-06-30 03:15 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/238403627177.shtml)
-- 2026-06-30 03:11 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.minike.top/Article/details/9723351.shtml)
-- 2026-06-30 03:08 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/7818740.shtml)
-- 2026-06-30 03:04 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/71578594.shtml)
-- 2026-06-30 03:02 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/359331968519.shtml)
-- 2026-06-30 02:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/63885.shtml)
-- 2026-06-30 03:07 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/22013453430.shtml)
-- 2026-06-30 03:00 - [美股](http://www.blog.minike.top/Article/details/953909562732.shtml)
-- 2026-06-30 02:49 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/7718116.shtml)
+- 2026-06-30 02:59 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/5355365.shtml)
+- 2026-06-30 03:14 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/66395.shtml)
+- 2026-06-30 03:00 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/94836.shtml)
+- 2026-06-30 03:17 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/90078.shtml)
+- 2026-06-30 03:10 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/83770.shtml)
+- 2026-06-30 03:06 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/560936833076.shtml)
+- 2026-06-30 03:11 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/869794115307.shtml)
+- 2026-06-30 03:22 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/47245.shtml)
+- 2026-06-30 03:16 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/726046843.shtml)
+- 2026-06-30 03:18 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/53819434.shtml)
+- 2026-06-30 03:03 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/144247970.shtml)
+- 2026-06-30 03:05 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/00329827412.shtml)
+- 2026-06-30 03:14 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/2281103971.shtml)
+- 2026-06-30 03:08 - [小娘惹](http://www.share.minike.top/Article/details/749229593.shtml)
+- 2026-06-30 03:04 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/059727664330.shtml)

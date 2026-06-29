@@ -1,60 +1,57 @@
-# 从“看海”迈向“悦海” 多元海洋旅游业态激活新体验
+# 公安部网安局公布5起打击“银狐”木马病毒典型案例
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-自然资源部数据显示，一季度我国海洋旅游业表现亮眼。在福建，帆船、低空飞行等多元海上旅游业态蓬勃兴起，让游客从“看海”真正迈向“悦海”。 刚过去的“五一”假期，福建东山岛旅游人气持续高涨。马銮湾月牙形沙滩上，游客踏浪亲水、尽享海滨风光；南门湾帆船基地内，不少游客在专业教练护航下扬帆出海，换个视角感受海岛魅力，沿途18处特色景观一览无余。 与帆船基地相邻的渔人码头，游艇环线航线带领
+中新网6月16日电 据公安部网安局微信公众号消息，近期，新型“银狐”木马病毒在网络空间出现，该类“银狐”木马病毒伪装性强，专门针对企事业单位工作人员，特别是财务人员实施精准攻击，可实现远程控制计算机、窃取账号密码、拦截短信验证码、盗取私密数据等违法操作，严重侵害群众财产安全、扰乱正常网络秩序。公安机关网安部门主动出击，成功侦破系列“银狐”木马网络犯罪案件，坚决打击此类新型涉网违
 
 ## 正文
 
-自然资源部数据显示，一季度我国海洋旅游业表现亮眼。
+中新网6月16日电 据公安部网安局微信公众号消息，近期，新型“银狐”木马病毒在网络空间出现，该类“银狐”木马病毒伪装性强，专门针对企事业单位工作人员，特别是财务人员实施精准攻击，可实现远程控制计算机、窃取账号密码、拦截短信验证码、盗取私密数据等违法操作，严重侵害群众财产安全、扰乱正常网络秩序。
 
-在福建，帆船、低空飞行等多元海上旅游业态蓬勃兴起，让游客从“看海”真正迈向“悦海”。
+公安机关网安部门主动出击，成功侦破系列“银狐”木马网络犯罪案件，坚决打击此类新型涉网违法犯罪嚣张气焰，守护网络空间安全。
 
-刚过去的“五一”假期，福建东山岛旅游人气持续高涨。
+案例1 吉林公安网安部门侦破陈某等人制作“银狐”木马病毒案 吉林公安网安部门查明，以陈某为首的犯罪团伙开发“银狐”木马病毒变种，通过技术手段对抗安全检测，批量发送钓鱼邮件，窃取企业数据、搭建诈骗场景实施犯罪，涉案金额700余万元。
 
-马銮湾月牙形沙滩上，游客踏浪亲水、尽享海滨风光；南门湾帆船基地内，不少游客在专业教练护航下扬帆出海，换个视角感受海岛魅力，沿途18处特色景观一览无余。
+目前，属地公安机关已对陈某等27名犯罪嫌疑人依法采取刑事强制措施。
 
-与帆船基地相邻的渔人码头，游艇环线航线带领游客依次打卡风动石、铜山古城等知名景点。
+案例2 浙江杭州公安网安部门侦破纪某飞等人制作并贩卖“银狐”木马病毒案 浙江杭州公安网安部门查明，以纪某飞为首的犯罪团伙制作并贩卖“银狐”木马病毒，非法控制他人计算机信息系统，盗取网络资产，涉案金额300余万元。
 
-特色海上休闲渔排则让游客亲身参与放笼捕蟹，体验原汁原味的渔家生活。
+目前，属地公安机关已对纪某飞等5名犯罪嫌疑人依法采取刑事强制措施。
 
-一路向北，平潭同样活力迸发。
+案例3 山东公安网安部门侦破杨某等人非法控制他人计算机信息系统案 山东公安网安部门查明，以杨某为首的犯罪团伙搭建多个钓鱼网站，诱导用户下载捆绑“银狐”木马病毒的软件安装包，非法控制他人计算机信息系统，盗取网络资产，涉案金额300余万元。
 
-22号码头，摩托艇、水上超跑穿梭不停；龙王头低空飞行器带游客俯瞰全岛；沙滩排球、风筝冲浪吸引着年轻客群。
+目前，属地公安机关已对杨某等15名犯罪嫌疑人依法采取刑事强制措施。
 
 ## 相关推荐
 
-- 2026-06-30 02:55 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-30 02:51 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-30 03:00 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-30 03:10 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-30 02:59 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 03:01 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-30 03:08 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-30 03:00 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-30 03:06 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-30 03:12 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-30 03:05 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-30 03:16 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-30 03:08 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-30 02:59 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-30 03:16 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-30 03:15 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-30 03:05 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-30 03:14 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 02:59 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-30 03:16 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-30 03:13 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-30 03:20 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-30 02:58 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-30 03:17 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-30 03:07 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:02 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/844322.shtml)
-- 2026-06-30 03:03 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/552164433314.shtml)
-- 2026-06-30 02:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/90497743.shtml)
-- 2026-06-30 02:50 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/85839335.shtml)
-- 2026-06-30 03:13 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/4795709702.shtml)
-- 2026-06-30 02:57 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/249600.shtml)
-- 2026-06-30 03:12 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/04858428474.shtml)
-- 2026-06-30 02:59 - [急先锋](http://www.share.minike.top/Article/details/223236.shtml)
-- 2026-06-30 03:01 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/614222.shtml)
-- 2026-06-30 03:02 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/705484666786.shtml)
-- 2026-06-30 03:03 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/4857380564.shtml)
-- 2026-06-30 03:14 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/1346490.shtml)
-- 2026-06-30 02:55 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/16560.shtml)
-- 2026-06-30 03:01 - [庆祝中国共产党成立105周年音乐会](https://www.blog.kurohicncr.top/Article/details/65015928.shtml)
-- 2026-06-30 02:54 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/05068007606.shtml)
+- 2026-06-30 03:13 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/480866563.shtml)
+- 2026-06-30 03:10 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/641703842277.shtml)
+- 2026-06-30 03:15 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/769101372153.shtml)
+- 2026-06-30 03:05 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/779317081140.shtml)
+- 2026-06-30 03:22 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/69092781.shtml)
+- 2026-06-30 03:03 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/435082347641.shtml)
+- 2026-06-30 03:18 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/00113644199.shtml)
+- 2026-06-30 02:58 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/629563675464.shtml)
+- 2026-06-30 03:17 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/51272945844.shtml)
+- 2026-06-30 03:01 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/064347592.shtml)
+- 2026-06-30 03:21 - [《贺子珍》](https://www.blog.minike.top/Article/details/5687203.shtml)
+- 2026-06-30 03:23 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/7324121845.shtml)
+- 2026-06-30 03:03 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/1631872.shtml)
+- 2026-06-30 02:59 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/052254339.shtml)
+- 2026-06-30 02:56 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/46621.shtml)

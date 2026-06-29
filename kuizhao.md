@@ -1,56 +1,57 @@
-# 国防部：“航母五件套”是人民海军加速转型建设重要成果
+# 广州南沙与湛江徐闻协作提速 签约总投资超27.8亿元
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-5月9日下午，国防部新闻局副局长、国防部新闻发言人蒋斌大校就近期涉军问题发布消息。 记者：据报道，随着多型新式战机列装，人民海军成功配齐隐身舰载战斗机、多用途弹射舰载战斗机、固定翼舰载预警机、固定翼电子战机和反潜直升机等“航母五件套”。请问对此有何评论？ 蒋斌：感谢大家对中国海军发展建设的关注。关于媒体所说的“航母五件套”，这是形成航母编队体系作战能力的重要一环，也是人民海军加
+中新网广州6月17日电 (记者 王坚)由广州市南沙区政府、湛江市徐闻县政府主办的2026年南沙·徐闻联合招商推介会16日在南沙举行。会上，南沙·徐闻产业创新孵化基地首个合作项目揭牌，7家企业现场签约，总投资金额超27.8亿元，标志着两地“南沙研发+徐闻转化”的协作模式进入全面提速新阶段。 徐闻县委副书记、县长张方明指出，南沙·徐闻产业创新孵化基地是两地深化帮扶、创新协作模式的标
 
 ## 正文
 
-5月9日下午，国防部新闻局副局长、国防部新闻发言人蒋斌大校就近期涉军问题发布消息。
+中新网广州6月17日电 (记者 王坚)由广州市南沙区政府、湛江市徐闻县政府主办的2026年南沙·徐闻联合招商推介会16日在南沙举行。
 
-记者：据报道，随着多型新式战机列装，人民海军成功配齐隐身舰载战斗机、多用途弹射舰载战斗机、固定翼舰载预警机、固定翼电子战机和反潜直升机等“航母五件套”。
+会上，南沙·徐闻产业创新孵化基地首个合作项目揭牌，7家企业现场签约，总投资金额超27.8亿元，标志着两地“南沙研发+徐闻转化”的协作模式进入全面提速新阶段。
 
-请问对此有何评论？
+徐闻县委副书记、县长张方明指出，南沙·徐闻产业创新孵化基地是两地深化帮扶、创新协作模式的标志性成果，也是徐闻立足湾区前沿打造的反向飞地科创平台。
 
-蒋斌：感谢大家对中国海军发展建设的关注。
+期待以该基地为桥梁，借助南沙的金融、科创和人才优势，努力实现“孵化在南沙，转化在徐闻”“总部在南沙，基地在徐闻”双赢合作模式。
 
-关于媒体所说的“航母五件套”，这是形成航母编队体系作战能力的重要一环，也是人民海军加速转型建设的重要成果。
+张方明表示，徐闻将针对本次签约的项目组建服务专班，确保项目早落地、早开工、早投产、早见效，持续深化与南沙的全方位协作，打通要素流通壁垒，共筑产业合作新高地，共谱山海协作新篇章。
 
-建设一支强大的人民海军，寄托着中华民族向海图强的世代夙愿，是实现中华民族伟大复兴的重要保障。
+南沙区副区长马洁红表示，本次联合招商推介会，是两地深化帮扶协作、拓宽合作维度的重要举措，更是整合双向资源、共拓市场机遇的关键载体。
 
-进入新时代，在党中央、中央军委和习主席坚强领导下，人民海军现代化建设步伐愈发坚实有力，从空中到水下，从近海到远洋，各型武器平台种类、功能不断完善，实现跨越式发展、创新性突破，为捍卫国家主权、安全、发展利益提供更强有力的保障。
+南沙将持续深化与徐闻的协作，立足自身平台、产业、政策优势，全力赋能徐闻高质量发展。
 
-中国海军始终秉持海洋命运共同体理念，无论是亚丁湾护航、国际人道主义救援，还是医院船执行“和谐使命”任务，实践证明，一支强大的中国海军始终是世界的和平之锚、合作之桥。
+活动现场，集中签约7个项目，涵盖高端装备制造、现代农业、食品加工、文旅康养、低空经济等领域。
 
 ## 相关推荐
 
-- 2026-06-30 02:48 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-30 02:56 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-30 03:11 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-30 02:56 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 03:01 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-30 03:08 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-30 03:13 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-30 03:11 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-30 02:54 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-30 03:03 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-30 03:21 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-30 02:55 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-30 03:20 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-30 03:13 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-30 02:54 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-30 02:58 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-30 02:59 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-30 03:08 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-30 03:13 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-30 03:04 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 03:15 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:05 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/2674141342.shtml)
-- 2026-06-30 03:02 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/308755432029.shtml)
-- 2026-06-30 03:01 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/267070957310.shtml)
-- 2026-06-30 03:01 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/204086927.shtml)
-- 2026-06-30 02:52 - [警犬“多多”助民警寻回失联老人](https://www.share.kurohicncr.top/Article/details/153109.shtml)
-- 2026-06-30 03:15 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/774088182218.shtml)
-- 2026-06-30 03:04 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/770141.shtml)
-- 2026-06-30 02:49 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/144724969000.shtml)
-- 2026-06-30 02:50 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/07730505.shtml)
-- 2026-06-30 02:48 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/685472.shtml)
-- 2026-06-30 02:54 - [审核了不止十年的低创鬼畜](http://www.share.minike.top/Article/details/63813160.shtml)
-- 2026-06-30 03:05 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/16269780501.shtml)
-- 2026-06-30 03:17 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/57277756865.shtml)
-- 2026-06-30 02:57 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/9367592521.shtml)
-- 2026-06-30 02:52 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/057487.shtml)
+- 2026-06-30 02:56 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/985202677276.shtml)
+- 2026-06-30 03:15 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/00196335990.shtml)
+- 2026-06-30 03:10 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/34472942426.shtml)
+- 2026-06-30 03:03 - [极限挑战第一季](https://www.blog.minike.top/Article/details/49395423260.shtml)
+- 2026-06-30 03:20 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/2900018.shtml)
+- 2026-06-30 02:58 - [沉睡花园](https://www.share.minike.top/Article/details/630181516.shtml)
+- 2026-06-30 02:54 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/936874014657.shtml)
+- 2026-06-30 02:57 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/02128692398.shtml)
+- 2026-06-30 03:01 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/6062228.shtml)
+- 2026-06-30 03:09 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/774842360281.shtml)
+- 2026-06-30 02:55 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/6725802341.shtml)
+- 2026-06-30 03:14 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/732546806.shtml)
+- 2026-06-30 03:02 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/5189400.shtml)
+- 2026-06-30 03:13 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/414687549.shtml)
+- 2026-06-30 03:19 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/0580519237.shtml)

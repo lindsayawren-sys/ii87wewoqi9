@@ -1,56 +1,54 @@
-# 青年赋能亚太未来 APEC首个青年学者论坛在深举办
+# 直击北京高考阅卷：预计6月24日评卷工作全部结束
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:03 UTC+8
 
 ## 摘要
 
-中新网深圳5月8日电 (记者 索有为)“APEC研究中心联席会议青年学者论坛”5月7日在香港中文大学(深圳)举办。这是亚太经合组织(APEC)大家庭历史上首次专为青年学者举办的学术论坛，列入了“APEC中国年”系列活动。 论坛以“共塑发展新动能：青年、创新与可持续未来”为主题，澳大利亚、智利、中国等13个经济体的青年学者代表及APEC秘书处高级官员出席论坛，并特邀中国澳门学者参
+发布时间：2026年06月17日 08:06 来源：中国新闻网 北京市2026年高考于6月7日至10日顺利完成。6月16日，北京市2026年高考评卷媒体开放日活动举行。记者了解到，2026年高考评卷工作已于6月11日正式开始。本市预计6月24日评卷工作全部结束，6月25日中午前发布考生高考成绩。(记者 刘子衿 制作 王宁) 责任编辑：【黄钰涵】
 
 ## 正文
 
-中新网深圳5月8日电 (记者 索有为)“APEC研究中心联席会议青年学者论坛”5月7日在香港中文大学(深圳)举办。
+发布时间：2026年06月17日 08:06 来源：中国新闻网 北京市2026年高考于6月7日至10日顺利完成。
 
-这是亚太经合组织(APEC)大家庭历史上首次专为青年学者举办的学术论坛，列入了“APEC中国年”系列活动。
+6月16日，北京市2026年高考评卷媒体开放日活动举行。
 
-论坛以“共塑发展新动能：青年、创新与可持续未来”为主题，澳大利亚、智利、中国等13个经济体的青年学者代表及APEC秘书处高级官员出席论坛，并特邀中国澳门学者参与，共话亚太发展新动能。
+记者了解到，2026年高考评卷工作已于6月11日正式开始。
 
-论坛由香港中文大学(深圳)与南开大学APEC研究中心联合主办，前海国际事务研究院协办。
+本市预计6月24日评卷工作全部结束，6月25日中午前发布考生高考成绩。
 
-教育部副部长任友群通过视频致辞，勉励APEC成员经济体青年学者做前沿科技的探索者、绿色发展的践行者、文明互鉴的推动者，为构建开放包容、互利共赢的亚太命运共同体贡献源源不断的青春力量。
-
-香港中文大学(深圳)校长徐扬生教授鼓励青年学者重视三种实践：一是国际实践，通过跨文化直接接触成为未来的桥梁建设者；二是与社会深度连接的实践，在人工智能时代，青年对人性、文化和社会动态的综合理解才是赋予AI驱动时代以灵魂的关键；三是亲身经历的实践，培养判断力、同理心，将知识与责任联系起来。
-
-APEC秘书处执行主任爱德华多·佩德罗萨在致辞中表示，青年学者代表着新一轮创新与研究浪潮，将为亚太合作和学术发展注入新的活力。
-
-当前世界正处于深刻变革之中，青年学者拥有独特视角与创新能力，将为建设更加开放、充满活力和韧性的APEC大家庭作出重要贡献。
+(记者 刘子衿 制作 王宁) 责任编辑：【黄钰涵】
 
 ## 相关推荐
 
-- 2026-06-30 02:55 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-30 02:53 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-30 03:17 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-30 03:01 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-30 03:00 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-30 03:07 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-30 02:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-30 03:16 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-30 03:01 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-30 02:54 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-30 02:55 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-30 02:58 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 03:17 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-30 03:22 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-30 03:21 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-30 03:05 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-30 03:00 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-30 03:15 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-30 03:07 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-30 03:12 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-30 02:57 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-30 03:10 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-30 02:55 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-30 03:04 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:17 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/9647209.shtml)
-- 2026-06-30 03:12 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/7078364.shtml)
-- 2026-06-30 02:52 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/023566841.shtml)
-- 2026-06-30 02:54 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/48679964.shtml)
-- 2026-06-30 03:10 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/767810533818.shtml)
-- 2026-06-30 02:56 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/68861444.shtml)
-- 2026-06-30 03:01 - [日本反击率先破门](http://www.share.minike.top/Article/details/250608619770.shtml)
-- 2026-06-30 02:55 - [扬名立万](http://www.share.minike.top/Article/details/533436.shtml)
-- 2026-06-30 03:07 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/50198273.shtml)
-- 2026-06-30 03:09 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/46400689.shtml)
-- 2026-06-30 03:09 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/374383366540.shtml)
-- 2026-06-30 03:06 - [周生如故](https://www.blog.kurohicncr.top/Article/details/71275.shtml)
-- 2026-06-30 03:02 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/4471157577.shtml)
-- 2026-06-30 03:04 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/836192123562.shtml)
-- 2026-06-30 03:04 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/057878.shtml)
+- 2026-06-30 02:57 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/76775.shtml)
+- 2026-06-30 02:56 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/88827278608.shtml)
+- 2026-06-30 02:57 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/01916420619.shtml)
+- 2026-06-30 03:18 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/807049058608.shtml)
+- 2026-06-30 02:54 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/18318.shtml)
+- 2026-06-30 03:00 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/40159323544.shtml)
+- 2026-06-30 03:04 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/084967329.shtml)
+- 2026-06-30 03:10 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/75936.shtml)
+- 2026-06-30 03:12 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/07012072437.shtml)
+- 2026-06-30 03:07 - [日本进球](http://www.share.kurohicncr.top/Article/details/665748325.shtml)
+- 2026-06-30 03:23 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/62640076.shtml)
+- 2026-06-30 03:10 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/0745219350.shtml)
+- 2026-06-30 02:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/487145815859.shtml)
+- 2026-06-30 03:03 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/86888.shtml)
+- 2026-06-30 02:57 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/58479.shtml)

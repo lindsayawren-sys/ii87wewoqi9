@@ -1,56 +1,56 @@
-# 广州职业教育院校特色凸显 国际化步伐加快
+# 高通CEO：智能AI代理将取代各类应用，公司正研发超40款全新AI驱动设备
 
-> 更新时间：2026-06-30 03:18:02 UTC+8
+> 更新时间：2026-06-30 03:24:04 UTC+8
 
 ## 摘要
 
-中新网广州5月9日电 (记者 张璐)2026年广东省职业教育活动周系列活动8日至10日在广州、佛山、珠海等地举办。记者8日跟随采访团走访广州多所职业教育院校。 据悉，截至2025年12月，广州现有市属高职院校8所、市和区属(含管理)中职学校29所，在校生合计约17.3万人，学校数及在校生规模均位列全国各大城市前列。 走进广州铁路职业技术学院，一辆印刻着“和谐”的电力机车吸引了采
+核心要点 高通首席执行官克里斯蒂亚诺・安蒙在接受采访时透露，这家芯片设计企业正为消费电子领域即将迎来的 AI 智能代理浪潮，布局超过 40 款全新 AI 设备设计方案。 在《科技下载》播客的深度专访中，安蒙分享了诸多观点：智能手机与手机应用的角色正在转变、智能眼镜有望成为下一款主流消费电子产品、即将推向市场的新型电子设备，以及微型便携设备所需的芯片架构革新方向。 安蒙的此番言论
 
 ## 正文
 
-中新网广州5月9日电 (记者 张璐)2026年广东省职业教育活动周系列活动8日至10日在广州、佛山、珠海等地举办。
+核心要点 高通首席执行官克里斯蒂亚诺・安蒙在接受采访时透露，这家芯片设计企业正为消费电子领域即将迎来的 AI 智能代理浪潮，布局超过 40 款全新 AI 设备设计方案。
 
-记者8日跟随采访团走访广州多所职业教育院校。
+在《科技下载》播客的深度专访中，安蒙分享了诸多观点：智能手机与手机应用的角色正在转变、智能眼镜有望成为下一款主流消费电子产品、即将推向市场的新型电子设备，以及微型便携设备所需的芯片架构革新方向。
 
-据悉，截至2025年12月，广州现有市属高职院校8所、市和区属(含管理)中职学校29所，在校生合计约17.3万人，学校数及在校生规模均位列全国各大城市前列。
+安蒙的此番言论也提及消费电子赛道的新晋入局者，随着人工智能在各类设备中全面普及，苹果、三星等主流手机厂商或将被迫调整自身的竞争策略。
 
-走进广州铁路职业技术学院，一辆印刻着“和谐”的电力机车吸引了采访团的关注。
+安蒙在节目中表示：“各行各业都会尝试探索多元化的硬件形态。
 
-只见众多学生正围着高铁进行模拟检修工作。
+” “目前我们已经落地了 40 多款设备设计方案，硬件的形态种类十分丰富。
 
-据了解，广州铁路职业技术学院构建了订单培养特色就业体系。
+” 他介绍，这批可穿戴智能设备涵盖智能首饰、搭载摄像头的无线耳机、智能胸针以及智能手表。
 
-“订单式”培养精准定岗，与广铁集团、广州地铁等开展订单培养，占轨道类专业学生总数60%以上。
+“这类产品的设计理念就是贴身佩戴、时刻相伴，能够感知周边环境，依托场景信息，让用户随时唤醒 AI 智能代理、与其语音交互。
 
-“产教式”融合推进就业，组建轨道交通产教融合联盟，推行“校内实训+企业实操”育人模式。
+” AI 智能代理 AI 智能代理被视作苹果 Siri、谷歌 Gemini 这类传统语音数字助手的迭代升级产物。
 
 ## 相关推荐
 
-- 2026-06-30 03:05 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-30 03:03 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-30 03:01 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-30 03:08 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-30 02:56 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-30 03:15 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-30 03:09 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-30 03:09 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-30 03:04 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-30 02:49 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 03:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-30 03:21 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-30 03:00 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-30 02:57 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-30 03:15 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-30 03:03 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-30 03:06 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 03:22 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-30 02:56 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-30 03:06 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:51 - [金刚川](http://www.share.minike.top/Article/details/090058417.shtml)
-- 2026-06-30 03:00 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/0174802907.shtml)
-- 2026-06-30 03:08 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/9821308.shtml)
-- 2026-06-30 02:56 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/48549.shtml)
-- 2026-06-30 03:13 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/412210985759.shtml)
-- 2026-06-30 03:17 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/45538589158.shtml)
-- 2026-06-30 03:15 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/6190671.shtml)
-- 2026-06-30 03:15 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/4787499135.shtml)
-- 2026-06-30 03:17 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/394450860.shtml)
-- 2026-06-30 02:59 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/725922.shtml)
-- 2026-06-30 03:02 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/742472.shtml)
-- 2026-06-30 03:13 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/71144136453.shtml)
-- 2026-06-30 02:54 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/984508086.shtml)
-- 2026-06-30 03:17 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/7709837.shtml)
-- 2026-06-30 02:55 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/911493400885.shtml)
+- 2026-06-30 03:21 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/00519714.shtml)
+- 2026-06-30 03:03 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/283231.shtml)
+- 2026-06-30 03:06 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/559080.shtml)
+- 2026-06-30 03:01 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/9839955859.shtml)
+- 2026-06-30 03:14 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/6158542227.shtml)
+- 2026-06-30 03:05 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/373399513.shtml)
+- 2026-06-30 03:22 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/50647118.shtml)
+- 2026-06-30 03:04 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/722562.shtml)
+- 2026-06-30 03:10 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/04148.shtml)
+- 2026-06-30 03:00 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/90878.shtml)
+- 2026-06-30 03:04 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/825843318.shtml)
+- 2026-06-30 03:14 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/9977853368.shtml)
+- 2026-06-30 02:57 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/676950.shtml)
+- 2026-06-30 03:20 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/1950558.shtml)
+- 2026-06-30 03:22 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/80785126.shtml)
