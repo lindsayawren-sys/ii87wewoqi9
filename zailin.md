@@ -1,60 +1,60 @@
-# 贺兰山下的微醺时光：一杯尽揽岁月风华
+# 中信建投期货：5月13日工业品早报
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-中新网银川4月14日电 题：贺兰山下的微醺时光：一杯尽揽岁月风华 中新网记者 李佩珊 “贺兰山的风里藏着酒香，抿一口就能尝到戈壁的阳光与韧劲。”4月14日，在宁夏贺兰山东麓新近亮相的贺兰山宿集酒庄露台上，来自西安的游客张轶凡举杯远眺，黛色山影与杯中酒液相映成趣。随着宁夏“葡萄酒+文旅”融合不断升温，贺兰山下一座座特色酒庄如同塞上“会客厅”，以佳酿为媒，让八方游客在微醺间触摸塞上
+铜：供应约束支撑，铜价偏强震荡 周二晚沪铜主力涨近1%至10.77万元，盘中最高触及108470，伦铜亦涨超1%突破1.4万美元大关。 宏观中性。美国4月CPI同比上涨3.8%，创近三年新高，核心CPI同比亦超预期升2.8%，通胀回升主要与能源分项同比涨幅持续扩张有关，而当前美伊谈判陷入僵局，货币政策宽松前景受阻，市场聚焦中美最高领导人会见进展。 基本面偏多。昨日上期所铜仓单增
 
 ## 正文
 
-中新网银川4月14日电 题：贺兰山下的微醺时光：一杯尽揽岁月风华 中新网记者 李佩珊 “贺兰山的风里藏着酒香，抿一口就能尝到戈壁的阳光与韧劲。
+铜：供应约束支撑，铜价偏强震荡 周二晚沪铜主力涨近1%至10.77万元，盘中最高触及108470，伦铜亦涨超1%突破1.4万美元大关。
 
-”4月14日，在宁夏贺兰山东麓新近亮相的贺兰山宿集酒庄露台上，来自西安的游客张轶凡举杯远眺，黛色山影与杯中酒液相映成趣。
+宏观中性。
 
-随着宁夏“葡萄酒+文旅”融合不断升温，贺兰山下一座座特色酒庄如同塞上“会客厅”，以佳酿为媒，让八方游客在微醺间触摸塞上风土、读懂宁夏韵味。
+美国4月CPI同比上涨3.8%，创近三年新高，核心CPI同比亦超预期升2.8%，通胀回升主要与能源分项同比涨幅持续扩张有关，而当前美伊谈判陷入僵局，货币政策宽松前景受阻，市场聚焦中美最高领导人会见进展。
 
-四月的宁夏，酿酒葡萄正值展藤时节。
+基本面偏多。
 
-戈壁清风裹挟着泥土与新藤的温润气息，拂过贺兰山东麓绵延百里的酒庄群落。
+昨日上期所铜仓单增加470吨至8.8万吨，LME铜去库1000吨至40万吨。
 
-作为宁夏重点打造的国际葡萄酒旅游目的地核心区，贺兰山东麓正以“葡萄酒+文旅”“葡萄酒+研学”等多元模式，推动传统酿酒产业升级为集观光体验、文化交流于一体的新业态。
+随着近期铜价的持续上涨，再生原料出货大增符合预期，但当前铜供应链自铜矿到冶炼环节均面临紧缺压力，供应赋予价格高位支撑。
 
-不少特色酒庄建筑与戈壁地貌相融，依地势而建、贴近自然本真，成为产区文旅融合中一抹亮眼的存在。
+总体来看，全球主要铜产量地区供应紧张，商品具备结构性支撑，价格中枢进一步抬升，警惕地缘及流动性环境反转风险。
 
-不同于传统酒庄的走马观花，贺兰山东麓的酒庄游更注重让游客放慢脚步、沉浸式感受产区魅力。
+今日沪铜主力运行参考10.62万-10.86万元/吨。
 
 ## 相关推荐
 
-- 2026-06-29 20:06 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 20:23 - [德国医生在没有空调的手术室工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-29 20:28 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 20:29 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-29 20:04 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-29 20:08 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-29 20:20 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-29 20:14 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-29 20:15 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 20:12 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 20:10 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 20:14 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-29 20:16 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-29 20:22 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-29 20:17 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 20:14 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-29 20:28 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 20:28 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-29 20:25 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 20:35 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 20:30 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 20:21 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-29 20:35 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-29 20:26 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-29 20:06 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-29 20:18 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 20:24 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 20:31 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:09 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/05920513.shtml)
-- 2026-06-29 20:03 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/074739.shtml)
-- 2026-06-29 20:11 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/226825.shtml)
-- 2026-06-29 20:21 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/8752236963.shtml)
-- 2026-06-29 20:23 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/10158228105.shtml)
-- 2026-06-29 20:26 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/36975234605.shtml)
-- 2026-06-29 20:23 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/93011024510.shtml)
-- 2026-06-29 20:25 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/95255106.shtml)
-- 2026-06-29 20:06 - [TTG KSG](http://www.share.minike.top/Article/details/96852494.shtml)
-- 2026-06-29 20:13 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/5644330.shtml)
-- 2026-06-29 20:26 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.kurohicncr.top/Article/details/65935615659.shtml)
-- 2026-06-29 20:10 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/833214.shtml)
-- 2026-06-29 20:26 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/466781991671.shtml)
-- 2026-06-29 20:05 - [中外合作办学是“低分捷径”吗](https://www.blog.kurohicncr.top/Article/details/463869938872.shtml)
-- 2026-06-29 20:27 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/07090077412.shtml)
+- 2026-06-29 20:13 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/39369425.shtml)
+- 2026-06-29 20:32 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.minike.top/Article/details/12467.shtml)
+- 2026-06-29 20:19 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/9231480.shtml)
+- 2026-06-29 20:21 - [张杰我九岁就跟你了](http://www.share.minike.top/Article/details/3055503795.shtml)
+- 2026-06-29 20:11 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/837006509.shtml)
+- 2026-06-29 20:28 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/409980910740.shtml)
+- 2026-06-29 20:25 - [金鹰奖第二阶段投票明日开启](http://www.blog.kurohicncr.top/Article/details/0353051.shtml)
+- 2026-06-29 20:24 - [金牌调解](http://www.blog.minike.top/Article/details/30587771.shtml)
+- 2026-06-29 20:24 - [直击委内瑞拉加拉加斯救援现场](https://www.share.minike.top/Article/details/1174828.shtml)
+- 2026-06-29 20:14 - [金鹰奖第二阶段投票明日开启](https://www.blog.kurohicncr.top/Article/details/551887.shtml)
+- 2026-06-29 20:32 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/04399962567.shtml)
+- 2026-06-29 20:12 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/2955864708.shtml)
+- 2026-06-29 20:29 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/0148897422.shtml)
+- 2026-06-29 20:07 - [店员光脚踩入盆中清洗土豆](http://www.blog.minike.top/Article/details/241410353619.shtml)
+- 2026-06-29 20:23 - [朱雀三号重复使用遥二运载火箭新进展](https://www.share.minike.top/Article/details/335106551.shtml)

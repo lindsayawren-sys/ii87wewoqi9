@@ -1,60 +1,57 @@
-# 涪陵海关暖通工程改造项目监理服务项目采购公告
+# 长江有色：13日锡价上涨 刚需托底但观望情绪难消
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-中华人民共和国涪陵海关对关区暖通工程改造项目监理服务进行比选，现邀请符合资格的监理方参加比选。 一、项目基本情况 1、工程名称：涪陵海关暖通工程改造项目监理服务。 2、工程地址：重庆市涪陵区大鹅居委6组(涪陵新区大厦对面)。3、工程规模：改造总面积4611.1㎡，含中央空调、新风系统、强电改造、智能控制系统升级等；工程总投资158万元。具体施工内容以招标人发出的工程量清单、施工
+今日午盘后沪锡走势：今日沪锡合约2606上涨，开盘价报427560元/吨，盘中最高报435000元/吨，最低报424350元/吨，结算价报429820元/吨，收盘报434410元/吨，上涨3250元，涨幅为0.75%；沪锡主力月2606合约成交量263036手，持仓量51686手，较前一日增加1651手，沪锡主力合约高位运行，交投活跃度显著提升，资金博弈氛围浓厚，锡价在内外宏观
 
 ## 正文
 
-中华人民共和国涪陵海关对关区暖通工程改造项目监理服务进行比选，现邀请符合资格的监理方参加比选。
+今日午盘后沪锡走势：今日沪锡合约2606上涨，开盘价报427560元/吨，盘中最高报435000元/吨，最低报424350元/吨，结算价报429820元/吨，收盘报434410元/吨，上涨3250元，涨幅为0.75%；沪锡主力月2606合约成交量263036手，持仓量51686手，较前一日增加1651手，沪锡主力合约高位运行，交投活跃度显著提升，资金博弈氛围浓厚，锡价在内外宏观面与供需格局共振下强势上行。
 
-一、项目基本情况 1、工程名称：涪陵海关暖通工程改造项目监理服务。
+今日现货锡价走势：据长江有色金属网获悉，5月13日ccmn长江综合市场1#锡价报431000元/吨-434000元/吨，均价报432500元/吨,较前一日价格上涨1200元；今日长江现货市场1#锡价报431750元/吨-433750元/吨，均价432750元/吨，较上一交易价格上涨1250元/吨。
 
-2、工程地址：重庆市涪陵区大鹅居委6组(涪陵新区大厦对面)。
+ccmn锡市分析：宏观层面，海外市场降息预期延后，美元指数震荡运行，美股走势分化，科技板块表现亮眼，带动电子产业链需求预期升温。
 
-3、工程规模：改造总面积4611.1㎡，含中央空调、新风系统、强电改造、智能控制系统升级等；工程总投资158万元。
+；国内稳增长政策持续发力，电子产业链需求预期升温，内外宏观环境形成对冲，为锡价提供关键支撑。
 
-具体施工内容以招标人发出的工程量清单、施工图及图说为准。
+产业链端，供应约束持续强化：主产国锡矿供应偏紧，原生锡冶炼产能释放受限，再生锡回收量不足，无铅锡合金、锡铋合金等焊锡材料流通偏紧；需求端，电子、半导体领域刚需平稳，高价下终端观望情绪有所升温，供需紧平衡格局成为锡价上行核心动力。
 
-4、服务内容：本次监理范围主要包括施工图所示全部工程内容，含暖通、强电、智能化、利旧利用等施工阶段及缺陷责任期全过程监理，对进度、质量、造价、安全、合同、信息、协调实施全过程控制。
+现货市场随期货高位波动，刚需采购为主，贸易商报价谨慎，升贴水窄幅波动，市场呈现刚需支撑与高价观望并存的特征。
 
-5、服务费用：本项目监理费最高限价52140元(总价包干)，超过按废标处理。
+短期来看，市场将聚焦美联储政策信号、美元指数波动及国内电子订单数据。
 
-费用包含完成本工程全部监理工作(含施工设计图示工作范围、工程变更等)的附加工作费用、额外工作费用、风险费用等，包括但不限于完成本合同约定全部监理工作对应的工作人员工资、劳保、医疗、福利、津贴、保险、差旅费，监理机构的管理费、利润、税金，且包含办公用品、交通工具、通讯设备等，以及协助对主要材料及设备询价咨询以及相关造价的初步审查工作等所有发生的费用，比选人将不再另行支付任何费用。
+锡价短期或维持高位震荡偏强格局，但需警惕美元反弹及需求不及预期的风险，后续需重点关注供应释放与下游实际成交变化，以判断锡价上涨节奏的持续性大。
 
 ## 相关推荐
 
-- 2026-06-29 20:27 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-29 20:14 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-29 20:09 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 20:13 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-29 20:20 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-29 20:03 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-29 20:02 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 20:11 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-29 20:02 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 20:20 - [周杰伦演唱会含星量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-29 20:02 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-29 20:23 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-29 20:14 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-29 20:26 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 20:26 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-29 20:25 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-29 20:31 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 20:19 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 20:31 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-29 20:08 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-29 20:26 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 20:27 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-29 20:23 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-29 20:23 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-29 20:19 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:11 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/775328890.shtml)
-- 2026-06-29 20:22 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/82686.shtml)
-- 2026-06-29 20:26 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/4864014492.shtml)
-- 2026-06-29 20:22 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/317238603012.shtml)
-- 2026-06-29 20:07 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/52067838026.shtml)
-- 2026-06-29 20:26 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/9143957.shtml)
-- 2026-06-29 20:11 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/03958407998.shtml)
-- 2026-06-29 20:27 - [天气热脾气都变差了](http://www.blog.kurohicncr.top/Article/details/05718526.shtml)
-- 2026-06-29 20:21 - [爱奇艺抬高国剧新标尺](http://www.blog.kurohicncr.top/Article/details/5693324534.shtml)
-- 2026-06-29 20:12 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/5877986558.shtml)
-- 2026-06-29 20:18 - [扩军害了世界杯吗](https://www.share.kurohicncr.top/Article/details/563007.shtml)
-- 2026-06-29 20:03 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/8540712.shtml)
-- 2026-06-29 20:00 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/3142716225.shtml)
-- 2026-06-29 20:09 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/69958.shtml)
-- 2026-06-29 20:15 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.kurohicncr.top/Article/details/9409486371.shtml)
+- 2026-06-29 20:34 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/9812916.shtml)
+- 2026-06-29 20:20 - [欧洲多国高温突破40摄氏度](http://www.blog.minike.top/Article/details/4579885.shtml)
+- 2026-06-29 20:21 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/1334285.shtml)
+- 2026-06-29 20:29 - [毒液2](https://www.blog.minike.top/Article/details/588645749755.shtml)
+- 2026-06-29 20:34 - [林逸向方筱然求婚了](https://www.share.minike.top/Article/details/37575850585.shtml)
+- 2026-06-29 20:18 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/88233069.shtml)
+- 2026-06-29 20:34 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/78901038917.shtml)
+- 2026-06-29 20:17 - [主力抛售电子和通信板块](https://www.blog.kurohicncr.top/Article/details/84068.shtml)
+- 2026-06-29 20:14 - [互助版模拟高考志愿填报](http://www.blog.minike.top/Article/details/5913520779.shtml)
+- 2026-06-29 20:20 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.kurohicncr.top/Article/details/8442157.shtml)
+- 2026-06-29 20:24 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/2740427.shtml)
+- 2026-06-29 20:33 - [夫妻生活太无聊，所以我……](http://www.blog.kurohicncr.top/Article/details/72218.shtml)
+- 2026-06-29 20:30 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/467429.shtml)
+- 2026-06-29 20:11 - [王安宇聪明到导演组炸了](http://www.share.minike.top/Article/details/074118505.shtml)
+- 2026-06-29 20:19 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/1291019.shtml)

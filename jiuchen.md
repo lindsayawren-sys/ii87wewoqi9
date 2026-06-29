@@ -1,60 +1,44 @@
-# 光大期货：4月14日能源化工日报
+# 猪肉概念涨幅扩大 天域生物等多只个股涨停
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-原油： （钟美燕，从业资格号：F3045334；交易咨询资格号：Z0002410） 周一油价高开低走，WTI 5月合约收盘上涨2.51美元至99.08美元/桶，涨幅2.6%。布伦特6月原油收盘上涨4.16美元至99.36美元/桶，涨幅4.37%。SC2605以653.4元/桶收盘，上涨4.2元/桶，涨幅0.65%。尽管美国对霍尔木兹海峡实施海上封锁的实施与执行仍存在诸多不确定性
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！人民财讯5月14日电，猪肉概念涨幅扩大，华统股份、天域生物、天邦食品、神农集团等多只个股涨停，立华股份涨逾11%，巨星农牧涨逾7%。
 
 ## 正文
 
-原油： （钟美燕，从业资格号：F3045334；交易咨询资格号：Z0002410） 周一油价高开低走，WTI 5月合约收盘上涨2.51美元至99.08美元/桶，涨幅2.6%。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-布伦特6月原油收盘上涨4.16美元至99.36美元/桶，涨幅4.37%。
-
-SC2605以653.4元/桶收盘，上涨4.2元/桶，涨幅0.65%。
-
-尽管美国对霍尔木兹海峡实施海上封锁的实施与执行仍存在诸多不确定性，但这一军事行动将考验脆弱的停火前景，并可能限制冲突爆发以来少数仍在持续的海湾原油流动。
-
-在周末和平谈判破裂后，特朗普宣称伊朗希望达成协议，这一说法限制了油价涨幅。
-
-消息面，美国和伊朗之间的下一轮“直接谈判”可能于16日在巴基斯坦首都伊斯兰堡举行。
-
-在现货市场上，即期运往欧洲的实物原油价格交易于每桶约150美元的历史高位。
-
-如果特朗普确实动用实际舰船来兑现封锁威胁，期货市场与现货市场的价格可能很快就会趋同。
+人民财讯5月14日电，猪肉概念涨幅扩大，华统股份、天域生物、天邦食品、神农集团等多只个股涨停，立华股份涨逾11%，巨星农牧涨逾7%。
 
 ## 相关推荐
 
-- 2026-06-29 20:01 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 20:09 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 20:01 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 20:11 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-29 20:29 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-29 20:25 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-29 20:17 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-29 20:17 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-29 20:19 - [上世纪90年代玩具成新宠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 20:15 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 20:07 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-29 20:04 - [大马同意延长马航370残骸搜寻工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-29 20:09 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 20:29 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 20:15 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-29 20:34 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-29 20:27 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-29 20:06 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 20:28 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 20:14 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 20:11 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 20:12 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 20:28 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 20:16 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:13 - [RAY评乘风2026总决赛](https://www.blog.minike.top/Article/details/09194.shtml)
-- 2026-06-29 20:22 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/19310234270.shtml)
-- 2026-06-29 20:14 - [华工科技龙虎榜数据](http://www.share.kurohicncr.top/Article/details/225540396012.shtml)
-- 2026-06-29 20:23 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/362769.shtml)
-- 2026-06-29 20:15 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.minike.top/Article/details/5297107.shtml)
-- 2026-06-29 20:00 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/75199.shtml)
-- 2026-06-29 20:02 - [沙丘](http://www.share.minike.top/Article/details/49192578.shtml)
-- 2026-06-29 20:10 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/4768612.shtml)
-- 2026-06-29 20:11 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/709996950814.shtml)
-- 2026-06-29 20:22 - [章若楠包场白敬亭特立独行](https://www.blog.minike.top/Article/details/34268049577.shtml)
-- 2026-06-29 20:13 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/6494855.shtml)
-- 2026-06-29 20:27 - [不烧钱的低成本爱好](https://www.blog.minike.top/Article/details/50529893313.shtml)
-- 2026-06-29 20:05 - [天道](https://www.share.kurohicncr.top/Article/details/929611263.shtml)
-- 2026-06-29 20:06 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/329019515472.shtml)
-- 2026-06-29 20:03 - [高考1357分的同学如何报志愿？](http://www.share.minike.top/Article/details/473336877731.shtml)
+- 2026-06-29 20:10 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/25896181678.shtml)
+- 2026-06-29 20:15 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/87140.shtml)
+- 2026-06-29 20:26 - [白玉兰答谢宴合影](https://www.share.minike.top/Article/details/8380152059.shtml)
+- 2026-06-29 20:31 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/58797.shtml)
+- 2026-06-29 20:06 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/95146.shtml)
+- 2026-06-29 20:08 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/443862765.shtml)
+- 2026-06-29 20:26 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/022478369.shtml)
+- 2026-06-29 20:30 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/136434513.shtml)
+- 2026-06-29 20:29 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/7724079814.shtml)
+- 2026-06-29 20:21 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/531855617.shtml)
+- 2026-06-29 20:32 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/7009415504.shtml)
+- 2026-06-29 20:25 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/9786614020.shtml)
+- 2026-06-29 20:35 - [东宫女主是不是顶级恋爱脑](https://www.blog.minike.top/Article/details/152135118.shtml)
+- 2026-06-29 20:22 - [锐评白玉兰提名片段](http://www.blog.kurohicncr.top/Article/details/087872250763.shtml)
+- 2026-06-29 20:29 - [互助版模拟高考志愿填报](http://www.share.minike.top/Article/details/908938466.shtml)

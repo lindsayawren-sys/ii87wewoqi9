@@ -1,57 +1,55 @@
-# 导演贾樟柯执导短片《都灵之影》完成拍摄
+# 机构：全球4月电动汽车需求连续第二个月增长
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-中新网太原4月13日电 (记者 胡健)记者13日从贾樟柯艺术中心获悉，由中国导演贾樟柯执导的电影短片《都灵之影》正式完成拍摄，该片是为庆祝意大利国家电影博物馆新馆落成25周年拍摄的作品。 该片于2026年2月在中国广东台山开机，之后远赴意大利都灵进行拍摄。 故事讲述一位女性在从广东前往都灵探望丈夫的过程中，意外地找回了自我，也发现了电影。该片片长为32分钟，将被意大利国家电影博
+咨询公司Benchmark Mineral Intelligence（BMI）周三公布的数据显示，随着汽油价格高企持续促使消费者远离燃油车，4月全球电动汽车需求连续第二个月增长。BMI表示，4月份纯电动汽车和插电式混合动力汽车的新车注册量（可视为销量指标）同比增长6%，达到160万辆，不过较3月创下的月度纪录高位下降了9%。BMI在声明中表示：“需求继续受到政策激励、汽油价格上
 
 ## 正文
 
-中新网太原4月13日电 (记者 胡健)记者13日从贾樟柯艺术中心获悉，由中国导演贾樟柯执导的电影短片《都灵之影》正式完成拍摄，该片是为庆祝意大利国家电影博物馆新馆落成25周年拍摄的作品。
+咨询公司Benchmark Mineral Intelligence（BMI）周三公布的数据显示，随着汽油价格高企持续促使消费者远离燃油车，4月全球电动汽车需求连续第二个月增长。
 
-该片于2026年2月在中国广东台山开机，之后远赴意大利都灵进行拍摄。
+BMI表示，4月份纯电动汽车和插电式混合动力汽车的新车注册量（可视为销量指标）同比增长6%，达到160万辆，不过较3月创下的月度纪录高位下降了9%。
 
-故事讲述一位女性在从广东前往都灵探望丈夫的过程中，意外地找回了自我，也发现了电影。
+BMI在声明中表示：“需求继续受到政策激励、汽油价格上涨以及中国制造商影响力提升等因素支撑。
 
-该片片长为32分钟，将被意大利国家电影博物馆永久馆藏。
+”BMI数据显示，尽管欧盟征收关税，中国品牌在欧洲市场的份额仍在提升：2026年前四个月，欧洲售出的电动汽车和插电式混合动力车中，22%产自中国，高于上年同期的19%。
 
-《都灵之影》由山西籍演员、贾樟柯夫人赵涛主演，中国知名乐队“五条人”成员茂涛、仁科主演，贾樟柯、万佳欢联合编剧，梁嘉艳监制。
-
-片中，赵涛的对白涉及粤语、意大利语，这也是赵涛继《我是丽》之后，第二次在意大利拍摄影片。
-
-该片由意大利都灵国家电影博物馆、贾樟柯艺术中心、“NOWNESS现在”联合出品。
-
-2025年，意大利国家电影博物馆为庆祝新馆落成25周年，前柏林国际电影节艺术总监卡洛·沙特里安特别策划“邂逅都灵”短片项目，邀请罗马尼亚导演拉杜·裘德、德国导演海因茨·艾米高斯和中国导演贾樟柯各自拍摄一部短片，致敬电影。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 20:09 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-29 20:21 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-29 20:19 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-29 20:03 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 20:26 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-29 20:25 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 20:06 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-29 20:16 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-29 20:29 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 20:03 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-29 20:18 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 20:33 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 20:27 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 20:15 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 20:23 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 20:14 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-29 20:28 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 20:35 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 20:32 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 20:14 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-29 20:22 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 20:33 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-29 20:24 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 20:19 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 20:28 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 20:24 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:11 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/6076442.shtml)
-- 2026-06-29 20:26 - [美人鱼](http://www.blog.minike.top/Article/details/23851.shtml)
-- 2026-06-29 20:08 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/6649716396.shtml)
-- 2026-06-29 20:09 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/13996752.shtml)
-- 2026-06-29 20:05 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/746358207283.shtml)
-- 2026-06-29 20:28 - [世界杯预测史上最不吃压力之物](http://www.blog.kurohicncr.top/Article/details/5306233315.shtml)
-- 2026-06-29 20:14 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/100948134925.shtml)
-- 2026-06-29 20:08 - [上世纪90年代玩具成新宠](https://www.blog.minike.top/Article/details/2447147248.shtml)
-- 2026-06-29 20:24 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/7052536.shtml)
-- 2026-06-29 20:14 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.blog.minike.top/Article/details/42279506.shtml)
-- 2026-06-29 20:11 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/85536.shtml)
-- 2026-06-29 20:12 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/7082169068.shtml)
-- 2026-06-29 20:26 - [大学专业未来如何洗牌](https://www.blog.kurohicncr.top/Article/details/70651981.shtml)
-- 2026-06-29 20:18 - [电动车主等红灯遭三轮车上横杆砸头](http://www.blog.minike.top/Article/details/7903927232.shtml)
-- 2026-06-29 20:08 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/42648.shtml)
+- 2026-06-29 20:18 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/298509436.shtml)
+- 2026-06-29 20:13 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/821983920.shtml)
+- 2026-06-29 20:22 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/42171524.shtml)
+- 2026-06-29 20:06 - [赵今麦时隔五年再演李诗情](https://www.blog.minike.top/Article/details/391315566.shtml)
+- 2026-06-29 20:15 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/54960254873.shtml)
+- 2026-06-29 20:13 - [温网](http://www.share.minike.top/Article/details/22822964151.shtml)
+- 2026-06-29 20:25 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/798911022796.shtml)
+- 2026-06-29 20:30 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/3226474.shtml)
+- 2026-06-29 20:13 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/05020.shtml)
+- 2026-06-29 20:18 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/953152283.shtml)
+- 2026-06-29 20:09 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/0508639.shtml)
+- 2026-06-29 20:15 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/29556428.shtml)
+- 2026-06-29 20:14 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/81850157.shtml)
+- 2026-06-29 20:14 - [一诺变着花样秀新驾照](https://www.blog.kurohicncr.top/Article/details/52266.shtml)
+- 2026-06-29 20:23 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/86409955.shtml)

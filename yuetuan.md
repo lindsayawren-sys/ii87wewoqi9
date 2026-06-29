@@ -1,59 +1,60 @@
-# 柳化股份业绩预盈变巨亏3628万！退市风险警示在即，投资者索赔开启
+# 科技赋能城市治理 杭州城市巡检服务机器人吸引民众
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-公司是一家以化工生产销售为一体的制造企业，目前主要产品为双氧水。公司拥有便利的地理优势。 根据申万行业分类（2021），柳化股份（维权）属于基础化工-化学原料-其他化学原料。 2026年1月21日，公司披露《2025年年度业绩预减公告》：预计2025年年度实现归属于上市公司股东的净利润628万元，与上年同期（法定披露数据）相比，将减少2389.53万元，同比下降79.19%。
+电动化替代速度超预期，中国新能源汽车创新纪录《给阿嬷的情书》取景地走红，守宅人曾无偿借出老宅拍摄从手工编织到拼豆定制 消费者为何开始偏爱自己“造”？门店企微骚扰顾客5000陪一晚 沪上阿姨致歉称被异地盗号降噪耳机或致听力受损？专家提醒：要关注使用时长、音量打了网红“气血针”，能否“一针提神”？专家提醒己所不欲勿施于人，这条东方智慧我们免费送给欧洲朋友六旬环卫工11次跳海救人：自
 
 ## 正文
 
-公司是一家以化工生产销售为一体的制造企业，目前主要产品为双氧水。
+电动化替代速度超预期，中国新能源汽车创新纪录《给阿嬷的情书》取景地走红，守宅人曾无偿借出老宅拍摄从手工编织到拼豆定制 消费者为何开始偏爱自己“造”？
 
-公司拥有便利的地理优势。
+门店企微骚扰顾客5000陪一晚 沪上阿姨致歉称被异地盗号降噪耳机或致听力受损？
 
-根据申万行业分类（2021），柳化股份（维权）属于基础化工-化学原料-其他化学原料。
+专家提醒：要关注使用时长、音量打了网红“气血针”，能否“一针提神”？
 
-2026年1月21日，公司披露《2025年年度业绩预减公告》：预计2025年年度实现归属于上市公司股东的净利润628万元，与上年同期（法定披露数据）相比，将减少2389.53万元，同比下降79.19%。
+专家提醒己所不欲勿施于人，这条东方智慧我们免费送给欧洲朋友六旬环卫工11次跳海救人：自学心肺复苏 报酬分文不取中英“乒乓外交”手记：小球轻转处，自有山海来人这一辈子，一定要三顾南阳！
 
-2026年4月11日，公司披露了《2025年年度业绩预告更正暨股票可能被实施退市风险警示的风险提示公告》：更正后的业绩预告情况：预计2025年归属于上市公司股东的净利润为-3000万元，归属于上市公司股东的扣除非经常性损益后的净利润为-3020万元；预计2025年实现营业收入1.37亿元，低于3亿元。
+遭党内“逼宫” 斯塔默能迈过这道坎吗？
 
-4月11日前的股票交易情况如下图。
+Wi-Fi会让记忆力下降系谣言达巍：今年有机会为“调适”中美关系构建新基础日本如何一步步挣脱战后束缚？
 
-索赔条件为：2026年1月21日到2026年4月10日之间买入，且2026年4月11日后卖出或继续持有股票的投资者，包括个人投资者和机构投资者。
+专家：警惕“新型军国主义”死灰复燃创新高后三大指数涨跌不一，该见好就收还是加速入场？
 
-（本文由万商天勤（上海）律师事务所刘彦梅律师供稿，不代表新浪财经的观点。
+央行最新报告释信号：提升债券市场功能汶川大地震中被埋72小时的女孩，如今怎么样了？
 
 ## 相关推荐
 
-- 2026-06-29 20:26 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-29 20:27 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-29 20:25 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 20:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-29 20:11 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 20:20 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 20:03 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 20:19 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-29 20:16 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-29 20:20 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 20:24 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 20:19 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-29 20:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 20:11 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-29 20:08 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-29 20:32 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-29 20:12 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-29 20:07 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 20:35 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 20:31 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-29 20:23 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-29 20:19 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-29 20:14 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-29 20:34 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 20:21 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 20:12 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 20:31 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:22 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/7620491288.shtml)
-- 2026-06-29 20:23 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/4116544.shtml)
-- 2026-06-29 20:24 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/4707130561.shtml)
-- 2026-06-29 20:15 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/27987.shtml)
-- 2026-06-29 20:10 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/61868017.shtml)
-- 2026-06-29 20:11 - [王楚钦开门红](https://www.share.minike.top/Article/details/1748273840.shtml)
-- 2026-06-29 20:12 - [世界杯在中国观看最多的比赛](http://www.share.minike.top/Article/details/965054638156.shtml)
-- 2026-06-29 20:25 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/980305.shtml)
-- 2026-06-29 20:17 - [世界杯预测史上最不吃压力之物](http://www.share.kurohicncr.top/Article/details/6090366641.shtml)
-- 2026-06-29 20:21 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/3158456211.shtml)
-- 2026-06-29 20:17 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/20921.shtml)
-- 2026-06-29 20:07 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/57296.shtml)
-- 2026-06-29 20:05 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/9750298137.shtml)
-- 2026-06-29 20:26 - [曝屠颖去世和酒店失责有关](http://www.blog.kurohicncr.top/Article/details/81222894055.shtml)
-- 2026-06-29 20:17 - [东宫女主是不是顶级恋爱脑](https://www.share.kurohicncr.top/Article/details/11969207180.shtml)
+- 2026-06-29 20:18 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.kurohicncr.top/Article/details/70463.shtml)
+- 2026-06-29 20:32 - [北京市发布雷电黄色预警](https://www.blog.minike.top/Article/details/1252789842.shtml)
+- 2026-06-29 20:25 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/6374177830.shtml)
+- 2026-06-29 20:31 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/06283485.shtml)
+- 2026-06-29 20:17 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/42047.shtml)
+- 2026-06-29 20:19 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/302034.shtml)
+- 2026-06-29 20:25 - [济南航空航天全面起势](https://www.share.kurohicncr.top/Article/details/5686485642.shtml)
+- 2026-06-29 20:22 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/902301990.shtml)
+- 2026-06-29 20:35 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/0640032844.shtml)
+- 2026-06-29 20:29 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/86187.shtml)
+- 2026-06-29 20:08 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/85100.shtml)
+- 2026-06-29 20:23 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/58807999.shtml)
+- 2026-06-29 20:33 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/98616.shtml)
+- 2026-06-29 20:29 - [网友晒14年前支教影像等来学生评论](https://www.blog.minike.top/Article/details/174061016.shtml)
+- 2026-06-29 20:10 - [请回答王牌2019](http://www.blog.minike.top/Article/details/77303967.shtml)

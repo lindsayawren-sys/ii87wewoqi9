@@ -1,45 +1,48 @@
-# 总书记引领强国之路｜擘画中国制造新蓝图
+# 香港科技探索获王维基增持11.4万股 每股均价约1.10港元
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月13日 20:55 来源：新华社 责任编辑：【韦俊龙】
+香港联交所最新资料显示，5月8日，王维基增持香港科技探索（01137）11.4万股，每股均价1.0988港元，总金额约为12.53万港元。增持后最新持股数目约为3.57亿股，最新持股比例为45.17%。责任编辑：卢昱君
 
 ## 正文
 
-发布时间：2026年04月13日 20:55 来源：新华社 责任编辑：【韦俊龙】
+香港联交所最新资料显示，5月8日，王维基增持香港科技探索（01137）11.4万股，每股均价1.0988港元，总金额约为12.53万港元。
+
+增持后最新持股数目约为3.57亿股，最新持股比例为45.17%。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 20:29 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-29 20:28 - [世界杯预测史上最不吃压力之物](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 20:06 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-29 20:14 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-29 20:14 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-29 20:29 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 20:10 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-29 20:15 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 20:06 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-29 20:06 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 20:18 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 20:28 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 20:17 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 20:19 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-29 20:15 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 20:30 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 20:24 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 20:27 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-29 20:32 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-29 20:14 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-29 20:30 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 20:13 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-29 20:08 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-29 20:31 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 20:31 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:25 - [无畏为自己的猫正名了](https://www.share.minike.top/Article/details/603669544.shtml)
-- 2026-06-29 20:18 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/1486997258.shtml)
-- 2026-06-29 20:18 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/847972142.shtml)
-- 2026-06-29 20:16 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/31860165133.shtml)
-- 2026-06-29 20:12 - [网红小徐直播时突遇地震](http://www.blog.minike.top/Article/details/97094241190.shtml)
-- 2026-06-29 20:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/3448382275.shtml)
-- 2026-06-29 20:09 - [《贺子珍》](https://www.share.minike.top/Article/details/60351771772.shtml)
-- 2026-06-29 20:22 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/36884279339.shtml)
-- 2026-06-29 20:17 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/512846651358.shtml)
-- 2026-06-29 20:04 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/8956130.shtml)
-- 2026-06-29 20:15 - [伊朗足球队将启程回国](https://www.share.kurohicncr.top/Article/details/738798982416.shtml)
-- 2026-06-29 20:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/5528800058.shtml)
-- 2026-06-29 20:15 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/742134.shtml)
-- 2026-06-29 20:12 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/920556812.shtml)
-- 2026-06-29 20:24 - [C罗10球7球对垫底队](https://www.share.kurohicncr.top/Article/details/3271098828.shtml)
+- 2026-06-29 20:35 - [啊啊啊](http://www.blog.minike.top/Article/details/048643.shtml)
+- 2026-06-29 20:07 - [店员光脚踩入盆中清洗土豆](https://www.share.kurohicncr.top/Article/details/375971653429.shtml)
+- 2026-06-29 20:19 - [北京发布地质灾害气象风险蓝色预警](http://www.blog.minike.top/Article/details/08322066846.shtml)
+- 2026-06-29 20:35 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/755193713.shtml)
+- 2026-06-29 20:08 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/41201056.shtml)
+- 2026-06-29 20:18 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/907108.shtml)
+- 2026-06-29 20:10 - [湖南姑娘被东北同事带偏口音](https://www.share.minike.top/Article/details/2155039131.shtml)
+- 2026-06-29 20:07 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/0569093154.shtml)
+- 2026-06-29 20:17 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/50669140.shtml)
+- 2026-06-29 20:09 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/62326318051.shtml)
+- 2026-06-29 20:10 - [美人鱼](https://www.share.kurohicncr.top/Article/details/42217688.shtml)
+- 2026-06-29 20:13 - [《新闻联播》正在直播](http://www.blog.kurohicncr.top/Article/details/62269607.shtml)
+- 2026-06-29 20:32 - [让AI做一个账号，它会做成什么样？](https://www.share.kurohicncr.top/Article/details/9909744426.shtml)
+- 2026-06-29 20:20 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/304061697.shtml)
+- 2026-06-29 20:32 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/752070965.shtml)

@@ -1,61 +1,61 @@
-# 人员混同、无证上岗，同花顺基金被监管点名！母公司回应
+# 美4月批发物价数据大幅超预期，加剧通胀担忧
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-浙江同花顺基金销售有限公司（下称“同花顺基金”）因多项业务违规及内部管理不到位，被浙江证监局点名。 4月10日，浙江证监局披露的《关于对浙江同花顺基金销售有限公司采取责令改正措施的决定》表示，经查，同花顺基金存在五方面问题。 一是公司在从业人员、经营场所等方面存在与股东、实际控制人、关联方混同的情况。 二是未将基金销售保有规模等纳入考核体系。 三是未对基金管理人、基金产品进行审
+美国 4 月生产者物价涨幅远超市场预期，创下 2022 年初以来最大单月增幅，进一步表明受伊朗战争影响，美国通胀正在加速上行。 美国劳工统计局周三公布，4 月最终需求生产者物价指数（PPI）环比大涨1.4%；3 月数据已上修至环比上涨 0.7%。4 月涨幅为 2022 年 3 月以来最高，且商品、服务价格同步全面走高。 路透调查经济学家此前预期 4 月 PPI 仅环比上涨 0.
 
 ## 正文
 
-浙江同花顺基金销售有限公司（下称“同花顺基金”）因多项业务违规及内部管理不到位，被浙江证监局点名。
+美国 4 月生产者物价涨幅远超市场预期，创下 2022 年初以来最大单月增幅，进一步表明受伊朗战争影响，美国通胀正在加速上行。
 
-4月10日，浙江证监局披露的《关于对浙江同花顺基金销售有限公司采取责令改正措施的决定》表示，经查，同花顺基金存在五方面问题。
+美国劳工统计局周三公布，4 月最终需求生产者物价指数（PPI）环比大涨1.4%；3 月数据已上修至环比上涨 0.7%。
 
-一是公司在从业人员、经营场所等方面存在与股东、实际控制人、关联方混同的情况。
+4 月涨幅为 2022 年 3 月以来最高，且商品、服务价格同步全面走高。
 
-二是未将基金销售保有规模等纳入考核体系。
+路透调查经济学家此前预期 4 月 PPI 仅环比上涨 0.5%，原预估 3 月涨幅为 0.5%。
 
-三是未对基金管理人、基金产品进行审慎调查和风险评估，未对销售的部分产品划分风险等级。
+截至 4 月的PPI 同比飙升 6.0%，创 2022 年 12 月以来最大同比涨幅，3 月同比涨幅为 4.0%。
 
-四是未建立私募基金销售利益冲突评估机制，对存在关联关系的私募基金管理人及其私募基金未进行利益冲突评估。
+同比大幅走高部分原因是去年同期低基数效应退出统计基数。
 
-五是部分运营人员、客服、大客户经理未取得基金从业资格。
+市场反应 股市：数据公布后美股三大指数走势分化；道琼斯工业平均指数跌 0.4%，标普 500 指数跌 0.1%，纳斯达克综合指数微涨 0.1%。
 
-浙江证监局指出，上述问题违反了《公开募集证券投资基金销售机构监督管理办法》及《证券期货投资者适当性管理办法》等多项规定。
+债市：美债收益率基本持平，2 年期美债收益率报 3.99%，10 年期美债收益率报 4.47%。
 
 ## 相关推荐
 
-- 2026-06-29 20:05 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-29 20:25 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 20:27 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-29 20:22 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-29 20:14 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-29 20:25 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-29 20:20 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 20:18 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-29 20:21 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-29 20:13 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 20:11 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-29 20:22 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-29 20:19 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 20:01 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-29 20:18 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-29 20:06 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-29 20:23 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 20:07 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 20:28 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 20:14 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 20:19 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 20:06 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 20:09 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 20:20 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 20:35 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 20:26 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-29 20:26 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-29 20:25 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-29 20:07 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-29 20:23 - [河南高院审委会原委员曲海滨被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:22 - [扩军害了世界杯吗](http://www.blog.minike.top/Article/details/873792256.shtml)
-- 2026-06-29 20:22 - [4位大妈跳舞爆火多地景区争相邀约](http://www.blog.kurohicncr.top/Article/details/69092.shtml)
-- 2026-06-29 20:05 - [法生态部长反对装空调却自己吹空调](http://www.share.minike.top/Article/details/224571646420.shtml)
-- 2026-06-29 20:05 - [第一炉香](http://www.blog.minike.top/Article/details/81836979711.shtml)
-- 2026-06-29 20:27 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/672807.shtml)
-- 2026-06-29 20:21 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/8958054.shtml)
-- 2026-06-29 20:27 - [上世纪90年代玩具成新宠](http://www.share.minike.top/Article/details/25459979.shtml)
-- 2026-06-29 20:12 - [流金岁月](http://www.share.minike.top/Article/details/79738768456.shtml)
-- 2026-06-29 20:01 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/86233716.shtml)
-- 2026-06-29 20:15 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/65268011095.shtml)
-- 2026-06-29 20:10 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/34640798.shtml)
-- 2026-06-29 20:07 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/114380055.shtml)
-- 2026-06-29 20:13 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/0686877.shtml)
-- 2026-06-29 20:09 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/595840574.shtml)
-- 2026-06-29 20:28 - [女生学医适合选什么专业](http://www.share.minike.top/Article/details/1077490823.shtml)
+- 2026-06-29 20:14 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/51610.shtml)
+- 2026-06-29 20:19 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/49171.shtml)
+- 2026-06-29 20:06 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/215594197.shtml)
+- 2026-06-29 20:16 - [新官上任三把火](http://www.share.minike.top/Article/details/284368474050.shtml)
+- 2026-06-29 20:30 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.blog.kurohicncr.top/Article/details/2567959633.shtml)
+- 2026-06-29 20:20 - [女心理师](https://www.share.minike.top/Article/details/950702287.shtml)
+- 2026-06-29 20:34 - [曝腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/79117.shtml)
+- 2026-06-29 20:09 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/007333896227.shtml)
+- 2026-06-29 20:17 - [胡光宇一审获刑13年](https://www.blog.minike.top/Article/details/478618.shtml)
+- 2026-06-29 20:34 - [王安宇聪明到导演组炸了](http://www.share.minike.top/Article/details/4707923.shtml)
+- 2026-06-29 20:20 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.minike.top/Article/details/3986577084.shtml)
+- 2026-06-29 20:13 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/12205893.shtml)
+- 2026-06-29 20:16 - [北京市发布雷电黄色预警](http://www.share.minike.top/Article/details/7015181.shtml)
+- 2026-06-29 20:17 - [特朗普两大核心赌注将迎高院裁决](https://www.blog.minike.top/Article/details/204302311172.shtml)
+- 2026-06-29 20:10 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/532575.shtml)

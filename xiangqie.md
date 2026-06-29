@@ -1,53 +1,59 @@
-# 大摩：料中远海能未来60天内股价上涨
+# 光大期货0514黄金点评：通胀预期升温，金价走势承压
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-大摩发布研报称，认为中远海能（01138）未来60天内股价上涨，发生机率料介乎70%至80%，评级“增持”，目标价26港元。报告指，这是因为中远海能近期走势疲软，使得短期估值更具吸引力。若来自中东或美国墨西哥湾的原油运输量增加，油轮的基本面应能获得支撑。责任编辑：史丽君
+5月13日，COMEX黄金震荡回落，但跌幅有限，报收4697.1美元/盎司，涨幅0.22%。国内SHFE金夜盘低开低走，随后反弹回填跳空缺口，报收1029.20元/克，涨幅0.11%。 美国4月PPI数据大幅超预期，同比上涨6%，月环比涨幅为2022年以来最大，核心PPI同比上涨5.2%，为三年多来最高水平。这也是本周连续第二份高于预期的通胀报告。美国长短债券收益率连续三天上行
 
 ## 正文
 
-大摩发布研报称，认为中远海能（01138）未来60天内股价上涨，发生机率料介乎70%至80%，评级“增持”，目标价26港元。
+5月13日，COMEX黄金震荡回落，但跌幅有限，报收4697.1美元/盎司，涨幅0.22%。
 
-报告指，这是因为中远海能近期走势疲软，使得短期估值更具吸引力。
+国内SHFE金夜盘低开低走，随后反弹回填跳空缺口，报收1029.20元/克，涨幅0.11%。
 
-若来自中东或美国墨西哥湾的原油运输量增加，油轮的基本面应能获得支撑。
+美国4月PPI数据大幅超预期，同比上涨6%，月环比涨幅为2022年以来最大，核心PPI同比上涨5.2%，为三年多来最高水平。
 
-责任编辑：史丽君
+这也是本周连续第二份高于预期的通胀报告。
+
+美国长短债券收益率连续三天上行，10年期美债收益率小幅走高1.4基点，维持在4.47%。
+
+市场继续调整对美联储政策路径的预期，年内加息25个基点的概率升至50%。
+
+在降息预期进一步降温的情况下，黄金走势略显承压。
+
+后续来看，据OPEC发布的月度报告，俄罗斯4月原油日均产量降至905.7万桶，较经修正后的3月数据减少10.7万桶，创下去年6月以来最低水平。
 
 ## 相关推荐
 
-- 2026-06-29 20:06 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 20:07 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 20:19 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-29 20:02 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-29 20:03 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-29 20:28 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-29 20:02 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-29 20:07 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-29 20:10 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-29 20:05 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 20:18 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-29 20:10 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-29 20:28 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 20:28 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 20:02 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 20:23 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 20:35 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-29 20:12 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-29 20:23 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 20:31 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 20:13 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 20:25 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 20:21 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 20:09 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-29 20:28 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 20:27 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-29 20:10 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 20:27 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:02 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/8716895894.shtml)
-- 2026-06-29 20:11 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/298132.shtml)
-- 2026-06-29 20:11 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/18591528372.shtml)
-- 2026-06-29 20:11 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/419691788.shtml)
-- 2026-06-29 20:26 - [我和我的家乡](http://www.share.minike.top/Article/details/9347268.shtml)
-- 2026-06-29 20:05 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/410724530.shtml)
-- 2026-06-29 20:00 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/84537579941.shtml)
-- 2026-06-29 20:27 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.share.kurohicncr.top/Article/details/8269872.shtml)
-- 2026-06-29 20:08 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/5799076.shtml)
-- 2026-06-29 20:07 - [韩国800万亿韩元押注半导体](http://www.blog.kurohicncr.top/Article/details/0264605.shtml)
-- 2026-06-29 20:00 - [C罗10球7球对垫底队](https://www.blog.kurohicncr.top/Article/details/03896.shtml)
-- 2026-06-29 20:29 - [厨房装空调还是装冷烟机](http://www.blog.minike.top/Article/details/6108928.shtml)
-- 2026-06-29 20:22 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/351371161.shtml)
-- 2026-06-29 20:26 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/749552.shtml)
-- 2026-06-29 20:16 - [主力抛售电子和通信板块](https://www.blog.minike.top/Article/details/95856.shtml)
+- 2026-06-29 20:32 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/841493019407.shtml)
+- 2026-06-29 20:10 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/78989544.shtml)
+- 2026-06-29 20:06 - [网红小徐直播时突遇地震](https://www.blog.minike.top/Article/details/6263573.shtml)
+- 2026-06-29 20:09 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/3108250124.shtml)
+- 2026-06-29 20:19 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/6053478230.shtml)
+- 2026-06-29 20:27 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/41584.shtml)
+- 2026-06-29 20:30 - [海口塔吊事故处罚结果公布](http://www.blog.kurohicncr.top/Article/details/01470.shtml)
+- 2026-06-29 20:09 - [起风了](http://www.blog.kurohicncr.top/Article/details/02477.shtml)
+- 2026-06-29 20:33 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/063478.shtml)
+- 2026-06-29 20:19 - [锐评白玉兰提名片段](http://www.blog.minike.top/Article/details/2671974657.shtml)
+- 2026-06-29 20:29 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/078267240066.shtml)
+- 2026-06-29 20:19 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.minike.top/Article/details/4939571.shtml)
+- 2026-06-29 20:14 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/05991.shtml)
+- 2026-06-29 20:06 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/19197614272.shtml)
+- 2026-06-29 20:30 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/31499588.shtml)

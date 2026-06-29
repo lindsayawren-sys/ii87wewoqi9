@@ -1,47 +1,59 @@
-# 美能源部长：霍尔木兹海峡通航前 美国能源将持续涨价
+# 京通APP推英文版 让外国游客“丝滑”逛北京
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-美国能源部长克里斯·赖特13日承认，在霍尔木兹海峡恢复“有意义”的船只通行前，美国能源价格可能持续上涨。 克里斯·赖特称，霍尔木兹海峡的航运将在未来数周内恢复。
+一站式平台上线 城市门户网站升级 京通APP推英文版 两大机场设服务点 四大入口协同发力 让外国游客“丝滑”逛北京 不用换现金、不用绑银行卡、不用愁语言不通、不用跑窗口排队——如今，越来越多外籍游客来京后发现，逛北京正变得越来越轻松。北京青年报记者了解到，今年4月底，“入京通GO BEIJING”一站式综合服务平台正式上线，搭配升级后的北京国际版门户网站、京通APP英文版以及两
 
 ## 正文
 
-美国能源部长克里斯·赖特13日承认，在霍尔木兹海峡恢复“有意义”的船只通行前，美国能源价格可能持续上涨。
+一站式平台上线 城市门户网站升级 京通APP推英文版 两大机场设服务点 四大入口协同发力 让外国游客“丝滑”逛北京 不用换现金、不用绑银行卡、不用愁语言不通、不用跑窗口排队——如今，越来越多外籍游客来京后发现，逛北京正变得越来越轻松。
 
-克里斯·赖特称，霍尔木兹海峡的航运将在未来数周内恢复。
+北京青年报记者了解到，今年4月底，“入京通GO BEIJING”一站式综合服务平台正式上线，搭配升级后的北京国际版门户网站、京通APP英文版以及两大机场的北京服务点，四大涉外服务入口协同发力，为境外游客打造“行前—落地—在京—诉求”全链条便利服务，让来自世界各地的友人能够“零障碍”“一站式”丝滑游北京。
+
+服务升级从“四处奔波”到“一站集成” 四大涉外服务入口织密服务网 “以前订酒店、打车、买门票都要用不同的APP，常常手忙脚乱。
+
+”来自塞尔维亚的游客叶琳娜说，如今，她只需通过支付宝国际版进入“入京通GO BEIJING”平台，这些问题都能一站搞定。
+
+叶琳娜所说的“入京通GO BEIJING”平台，是由北京市政务服务和数据管理局联合支付宝，会同北京市文旅局、北京市商务局、北京市税务局等部门共同打造的。
+
+平台从来京境外人员出行、餐饮、文旅、购物等核心场景需求出发，推动景点购票、外卡支付、离境退税、多语种导览等本地生活服务全面聚合，同时整合高频涉外政务及公共服务功能，实现“一站式、多语种、全场景”便利化服务。
+
+境外游客来京后，只需通过手机一键注册登录，即可便捷使用打车、购票、酒店预订等39项服务，并可自由切换中、英、俄、韩、阿等16种语言。
+
+平台还打造了“畅游北京大礼包”优惠专区、“探索北京”专区、“北京服务”专区，并推出AI智能体“京京”，提供“AI伴游”等数字服务，相当于为每位外籍游客配备了一位24小时在线专属导游，让他们游览北京更加轻松便捷。
 
 ## 相关推荐
 
-- 2026-06-29 20:03 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 20:05 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-29 20:12 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-29 20:02 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-29 20:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-29 20:07 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 20:27 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-29 20:28 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-29 20:25 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 20:14 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 20:17 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-29 20:16 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 20:13 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 20:13 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 20:24 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 20:08 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 20:34 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 20:17 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 20:13 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 20:07 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-29 20:11 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 20:33 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 20:06 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-29 20:28 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 20:17 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-29 20:18 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:19 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/280571152.shtml)
-- 2026-06-29 20:29 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/65679.shtml)
-- 2026-06-29 20:15 - [德国医生在没有空调的手术室工作](https://www.share.kurohicncr.top/Article/details/89124284.shtml)
-- 2026-06-29 20:29 - [日美楼市危机复盘：见底顺序曝光](https://www.blog.minike.top/Article/details/804589.shtml)
-- 2026-06-29 20:22 - [金刚川](http://www.blog.minike.top/Article/details/069574864623.shtml)
-- 2026-06-29 20:26 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/76816604.shtml)
-- 2026-06-29 20:14 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/7016201516.shtml)
-- 2026-06-29 20:08 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/0037145976.shtml)
-- 2026-06-29 20:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/3938330.shtml)
-- 2026-06-29 20:18 - [主力抛售电子和通信板块](http://www.blog.minike.top/Article/details/660665.shtml)
-- 2026-06-29 20:20 - [蔚来回应车漆洗车时被冲掉](https://www.blog.kurohicncr.top/Article/details/06226475287.shtml)
-- 2026-06-29 20:19 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/9018179717.shtml)
-- 2026-06-29 20:22 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/62740976.shtml)
-- 2026-06-29 20:11 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/94169727.shtml)
-- 2026-06-29 20:03 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/50644595001.shtml)
+- 2026-06-29 20:31 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/893672.shtml)
+- 2026-06-29 20:31 - [日媒：日本高价采购“战斧”变冤大头](https://www.share.kurohicncr.top/Article/details/372747249.shtml)
+- 2026-06-29 20:10 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/54552699.shtml)
+- 2026-06-29 20:24 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/93866821561.shtml)
+- 2026-06-29 20:30 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/29040610596.shtml)
+- 2026-06-29 20:21 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/3460567.shtml)
+- 2026-06-29 20:29 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/058745413.shtml)
+- 2026-06-29 20:09 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.kurohicncr.top/Article/details/0263671.shtml)
+- 2026-06-29 20:19 - [卢卡申科发布解放军仪仗队视频](http://www.share.kurohicncr.top/Article/details/689456.shtml)
+- 2026-06-29 20:34 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/5138556278.shtml)
+- 2026-06-29 20:08 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/97558521862.shtml)
+- 2026-06-29 20:07 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/8328488459.shtml)
+- 2026-06-29 20:35 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/9893176923.shtml)
+- 2026-06-29 20:19 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/95987302.shtml)
+- 2026-06-29 20:06 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.kurohicncr.top/Article/details/51114040977.shtml)

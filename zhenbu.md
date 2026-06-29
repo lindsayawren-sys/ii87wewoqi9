@@ -1,61 +1,50 @@
-# 厦门向首来台胞发放“服务包”
+# （近观中国）习近平：为中美关系这艘大船领好航、掌好舵
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-中新社厦门4月13日电 (吴冠标)4月13日起，福建厦门面向首次来大陆且从厦门口岸入境的台湾同胞推出“首来台胞厦门服务包”，提供交通、旅游、住宿三重福利。 交通出行方面，该服务包配备了“7日免费畅行”交通优惠服务。首来台胞凭服务包内的e通卡，抵厦后即可在7日内不限次数免费乘坐厦门公交、地铁、BRT。服务包内还有厦鼓游客航线免费船票，首来台胞可在7日内免费搭乘厦鼓游客航线往返鼓浪
+5月14日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。这是美国总统时隔9年再次访华。习近平主席在关键时刻把舵定向，引领中美关系巨轮破浪前行。
 
 ## 正文
 
-中新社厦门4月13日电 (吴冠标)4月13日起，福建厦门面向首次来大陆且从厦门口岸入境的台湾同胞推出“首来台胞厦门服务包”，提供交通、旅游、住宿三重福利。
+5月14日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。
 
-交通出行方面，该服务包配备了“7日免费畅行”交通优惠服务。
+这是美国总统时隔9年再次访华。
 
-首来台胞凭服务包内的e通卡，抵厦后即可在7日内不限次数免费乘坐厦门公交、地铁、BRT。
-
-服务包内还有厦鼓游客航线免费船票，首来台胞可在7日内免费搭乘厦鼓游客航线往返鼓浪屿。
-
-旅游观光方面，厦门2024年10月已向首来台胞免费开放9个A级旅游景区；在此基础上，服务包新增6个深受台湾同胞喜爱的景区及特色旅游项目，总数达到15个。
-
-其中包括鼓浪屿日光岩、厦门园林博览苑、胡里山炮台、集美鳌园等。
-
-此外，厦门还推出了邮轮专属优惠，首来台胞报名从厦门出发的邮轮航线，均可享受每人每次立减300元人民币的优惠福利。
-
-住宿方面，厦门26家酒店为首来台胞推出住宿优惠，覆盖高端度假、精品商务等多种类型，遍布厦门岛内外。
+习近平主席在关键时刻把舵定向，引领中美关系巨轮破浪前行。
 
 ## 相关推荐
 
-- 2026-06-29 20:01 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-29 20:15 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-29 20:03 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-29 20:20 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 20:13 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 20:01 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-29 20:03 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-29 20:03 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-29 20:02 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-29 20:29 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-29 20:20 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-29 20:07 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-29 20:21 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-29 20:16 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-29 20:06 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-29 20:34 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-29 20:15 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 20:25 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 20:22 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 20:09 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-29 20:26 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-29 20:36 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 20:34 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-29 20:10 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 20:21 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 20:29 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-29 20:27 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-29 20:16 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-29 20:20 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:28 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/296991903817.shtml)
-- 2026-06-29 20:05 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/355485.shtml)
-- 2026-06-29 20:29 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/8803107.shtml)
-- 2026-06-29 20:23 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/8012364.shtml)
-- 2026-06-29 20:02 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/17896969.shtml)
-- 2026-06-29 20:15 - [Ella回应SHE何时合体](http://www.blog.kurohicncr.top/Article/details/246172.shtml)
-- 2026-06-29 20:05 - [韩国队回国欢迎仪式取消](http://www.share.minike.top/Article/details/83984463460.shtml)
-- 2026-06-29 20:19 - [温网](http://www.blog.kurohicncr.top/Article/details/313618775.shtml)
-- 2026-06-29 20:16 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/35378.shtml)
-- 2026-06-29 20:03 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.kurohicncr.top/Article/details/1110787021.shtml)
-- 2026-06-29 20:22 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/768320095.shtml)
-- 2026-06-29 20:12 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/167549.shtml)
-- 2026-06-29 20:01 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/624202409076.shtml)
-- 2026-06-29 20:17 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/900281856877.shtml)
-- 2026-06-29 20:27 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/46587777914.shtml)
+- 2026-06-29 20:18 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/76619140.shtml)
+- 2026-06-29 20:12 - [曝iPhone涨价后不会再降](https://www.share.kurohicncr.top/Article/details/63506.shtml)
+- 2026-06-29 20:28 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/737799.shtml)
+- 2026-06-29 20:24 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/0811405.shtml)
+- 2026-06-29 20:09 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/8613368387.shtml)
+- 2026-06-29 20:31 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/147171192579.shtml)
+- 2026-06-29 20:32 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/70008924521.shtml)
+- 2026-06-29 20:22 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/94212.shtml)
+- 2026-06-29 20:28 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/967337592913.shtml)
+- 2026-06-29 20:11 - [千与千寻](http://www.blog.minike.top/Article/details/938035.shtml)
+- 2026-06-29 20:29 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/803786223.shtml)
+- 2026-06-29 20:32 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/548025155.shtml)
+- 2026-06-29 20:31 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/6446214.shtml)
+- 2026-06-29 20:06 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/633459000.shtml)
+- 2026-06-29 20:30 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.kurohicncr.top/Article/details/18298726.shtml)

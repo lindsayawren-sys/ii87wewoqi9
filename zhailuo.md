@@ -1,58 +1,59 @@
-# 旧笔记换新篇，带兵人放下“小我”扎根兵心
+# 日本一家炼油商采购墨西哥石油 避开霍尔木兹海峡混乱局面
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-旧时飞行训练笔记，如今变成兵情日记—— 指导员的转变，战士也看在眼里 -蒋进赵阳韩腾飞 “班长，指导员咋有一个带战机标志的本子呢？”上个月的一天傍晚，第82集团军某旅某连罗指导员正和一名战士在连队楼前拉家常，不时还掏出一个藏青色的旧本子，在上面快速记几笔。刚下连的新兵姚博文从旁边路过时看到本子封皮上有一个战机的标志，回到班里便好奇地问起了班长汪志豪。 汪志豪告诉姚博文：“咱们指
+随着伊朗战事和霍尔木兹海峡几乎关闭导致供应中断，一家日本炼油商采购了墨西哥原油，为自2023年以来首次。 据航运报告，未来几天船只Eagle Kuantan和Eagle Kangar计划共装载100万桶Isthmus原油，买方是日本企业Cosmo能源控股株式会社。这批石油由墨西哥石油公司（Pemex）的贸易部门PMI供应，正从位于大西洋沿岸的Pajaritos码头装船。 日本9
 
 ## 正文
 
-旧时飞行训练笔记，如今变成兵情日记—— 指导员的转变，战士也看在眼里 -蒋进赵阳韩腾飞 “班长，指导员咋有一个带战机标志的本子呢？
+随着伊朗战事和霍尔木兹海峡几乎关闭导致供应中断，一家日本炼油商采购了墨西哥原油，为自2023年以来首次。
 
-”上个月的一天傍晚，第82集团军某旅某连罗指导员正和一名战士在连队楼前拉家常，不时还掏出一个藏青色的旧本子，在上面快速记几笔。
+据航运报告，未来几天船只Eagle Kuantan和Eagle Kangar计划共装载100万桶Isthmus原油，买方是日本企业Cosmo能源控股株式会社。
 
-刚下连的新兵姚博文从旁边路过时看到本子封皮上有一个战机的标志，回到班里便好奇地问起了班长汪志豪。
+这批石油由墨西哥石油公司（Pemex）的贸易部门PMI供应，正从位于大西洋沿岸的Pajaritos码头装船。
 
-汪志豪告诉姚博文：“咱们指导员当过飞行员！
+日本90%以上的原油供应来自中东，主要来自沙特阿拉伯、阿联酋、科威特和卡塔尔，这些国家都受到了霍尔木兹海峡近乎关闭的影响。
 
-那本子是他当飞行员时的训练笔记。
+总部东京的Cosmo表示，已经能够从别处确保供应，例如墨西哥和美国，以确保三个炼油厂未来三个月的需求。
 
-不过现在，记的是咱们连的兵情日记。
+今年4月日本首相高市早苗与墨西哥总统克劳迪娅·辛鲍姆讨论了中东冲突期间Pemex向日本供应石油的可能性。
 
-” 一向对飞机感兴趣的姚博文瞪大了眼：“来头不小哩，拿来记我们的小事，可真舍得！
-
-” “那本笔记指导员也珍视得很，刚来时谁都碰不得！
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 20:00 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 20:19 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 20:02 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 20:22 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 20:04 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-29 20:00 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 20:21 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 20:02 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-29 20:15 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-29 20:14 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 20:18 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 20:24 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-29 20:17 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 20:20 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 20:31 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-29 20:35 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 20:22 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 20:20 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-29 20:24 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 20:09 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-29 20:29 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 20:32 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 20:18 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 20:23 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 20:24 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 20:24 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-29 20:22 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:10 - [外交部回应中日经贸问题](https://www.share.kurohicncr.top/Article/details/64087.shtml)
-- 2026-06-29 20:05 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.minike.top/Article/details/605653.shtml)
-- 2026-06-29 20:09 - [天气热脾气都变差了](https://www.blog.minike.top/Article/details/0570422.shtml)
-- 2026-06-29 20:25 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/760315819.shtml)
-- 2026-06-29 20:10 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.minike.top/Article/details/4870559.shtml)
-- 2026-06-29 20:28 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/125729.shtml)
-- 2026-06-29 20:15 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/743663018.shtml)
-- 2026-06-29 20:13 - [老板回应员工光脚清洗土豆](http://www.share.minike.top/Article/details/034990.shtml)
-- 2026-06-29 20:17 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/52961.shtml)
-- 2026-06-29 20:14 - [半导体和股市为何没让韩国人起飞](http://www.share.minike.top/Article/details/934500328073.shtml)
-- 2026-06-29 20:19 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/24546.shtml)
-- 2026-06-29 20:03 - [回顾世界杯争议事件](https://www.share.kurohicncr.top/Article/details/806294.shtml)
-- 2026-06-29 20:13 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/30228039.shtml)
-- 2026-06-29 20:21 - [福建海警位金门附近海域常态执法巡查](http://www.share.minike.top/Article/details/51996051.shtml)
-- 2026-06-29 20:22 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.blog.kurohicncr.top/Article/details/35376060.shtml)
+- 2026-06-29 20:25 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/625826521.shtml)
+- 2026-06-29 20:30 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/18664886644.shtml)
+- 2026-06-29 20:06 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.kurohicncr.top/Article/details/846688727369.shtml)
+- 2026-06-29 20:13 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/503817.shtml)
+- 2026-06-29 20:23 - [扫黑风暴](http://www.share.minike.top/Article/details/67510.shtml)
+- 2026-06-29 20:07 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.kurohicncr.top/Article/details/228142892055.shtml)
+- 2026-06-29 20:14 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/575953.shtml)
+- 2026-06-29 20:11 - [韩国队主帅遭极端网友死亡威胁](https://www.share.kurohicncr.top/Article/details/108453.shtml)
+- 2026-06-29 20:35 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/9221754.shtml)
+- 2026-06-29 20:28 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/76971532331.shtml)
+- 2026-06-29 20:09 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/439884.shtml)
+- 2026-06-29 20:08 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/7612698.shtml)
+- 2026-06-29 20:18 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/04230513372.shtml)
+- 2026-06-29 20:10 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/47980.shtml)
+- 2026-06-29 20:11 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/07428275853.shtml)

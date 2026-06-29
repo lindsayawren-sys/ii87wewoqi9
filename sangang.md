@@ -1,57 +1,56 @@
-# Loop Capital重申对苹果的买入评级和325美元目标价
+# 一项英国房价指标跌至 2023 年以来最低水平
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-Loop Capital表示，随着苹果有史以来最便宜的笔记本电脑上市，苹果有望实现强劲增长。 这家投资公司重申了对苹果的买入评级，同时维持对该股325美元的目标价。 Neo的起售价为599美元，几乎是苹果部分高端笔记本电脑价格的一半。苹果新款13英寸M5芯片MacBook Air起售价为1099美元，而16英寸M5 Max芯片MacBook Pro起售价为3899美元。 这些笔
+一项备受关注的调查显示，受伊朗局势冲突及借贷成本高企打击买家信心影响，4 月份有更多英国房产中介反馈房价出现下跌。英国皇家特许测量师学会（RICS）房价景气指标下滑 9 个百分点至 - 34，创下 2023 年 11 月以来新低。该数据意味着，看跌房价的中介数量远超看涨者。在全球整体环境承压的背景下，短期内房价预计仍将走低。学会市场研究与分析主管塔兰特・帕森斯表示，房地产市场
 
 ## 正文
 
-Loop Capital表示，随着苹果有史以来最便宜的笔记本电脑上市，苹果有望实现强劲增长。
+一项备受关注的调查显示，受伊朗局势冲突及借贷成本高企打击买家信心影响，4 月份有更多英国房产中介反馈房价出现下跌。
 
-这家投资公司重申了对苹果的买入评级，同时维持对该股325美元的目标价。
+英国皇家特许测量师学会（RICS）房价景气指标下滑 9 个百分点至 - 34，创下 2023 年 11 月以来新低。
 
-Neo的起售价为599美元，几乎是苹果部分高端笔记本电脑价格的一半。
+该数据意味着，看跌房价的中介数量远超看涨者。
 
-苹果新款13英寸M5芯片MacBook Air起售价为1099美元，而16英寸M5 Max芯片MacBook Pro起售价为3899美元。
+在全球整体环境承压的背景下，短期内房价预计仍将走低。
 
-这些笔记本电脑是在上个月公司为期三天的硬件集中发布活动中亮相的。
+学会市场研究与分析主管塔兰特・帕森斯表示，房地产市场 “仍深陷中东地缘冲突带来的宏观逆风拖累之中”。
 
-Loop Capital分析师写道：“简单来说，我们预计2026年Neo的初始销量为300万台，并且我们正在调整产品毛利率——从12月季度的40.7%和3月季度的37.7%（在经历6月季度的33.0%-34.0%之后），调整至9月季度的35.0%。
-
-”责任编辑：张俊 SF065
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 20:10 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-29 20:03 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-29 20:23 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 20:24 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 20:12 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 20:19 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-29 20:18 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 20:25 - [女生每天戴耳机18小时突发耳聋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-29 20:06 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 20:26 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-29 20:03 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-29 20:25 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-29 20:00 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 20:32 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 20:21 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 20:19 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 20:10 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 20:13 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 20:09 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 20:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 20:23 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 20:09 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 20:23 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-29 20:14 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 20:08 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 20:16 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 20:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:21 - [夫妻生活太无聊，所以我……](https://www.share.minike.top/Article/details/3895824143.shtml)
-- 2026-06-29 20:16 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.share.minike.top/Article/details/7050833.shtml)
-- 2026-06-29 20:23 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/433985.shtml)
-- 2026-06-29 20:09 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/9690389.shtml)
-- 2026-06-29 20:25 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/540343421.shtml)
-- 2026-06-29 20:14 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/88801324156.shtml)
-- 2026-06-29 20:06 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/829926.shtml)
-- 2026-06-29 20:18 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/167357560.shtml)
-- 2026-06-29 20:18 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/47379286915.shtml)
-- 2026-06-29 20:01 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/32921292.shtml)
-- 2026-06-29 20:16 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/06020155676.shtml)
-- 2026-06-29 20:02 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/3330568.shtml)
-- 2026-06-29 20:11 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/599312882.shtml)
-- 2026-06-29 20:20 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/5765913810.shtml)
-- 2026-06-29 20:10 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/728631.shtml)
+- 2026-06-29 20:11 - [C罗10球7球对垫底队](http://www.share.minike.top/Article/details/42351184499.shtml)
+- 2026-06-29 20:16 - [蔚来回应车漆洗车时被冲掉](https://www.share.minike.top/Article/details/73251.shtml)
+- 2026-06-29 20:19 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/341585874484.shtml)
+- 2026-06-29 20:24 - [一家三口吃溪石斑鱼中毒](https://www.blog.minike.top/Article/details/73034.shtml)
+- 2026-06-29 20:34 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/4916522.shtml)
+- 2026-06-29 20:07 - [媒体评恋与深空用“引狼入室”台词](http://www.share.kurohicncr.top/Article/details/0973836.shtml)
+- 2026-06-29 20:13 - [扩军害了世界杯吗](http://www.blog.kurohicncr.top/Article/details/284656826.shtml)
+- 2026-06-29 20:34 - [杨紫视后第一场线下活动](http://www.share.kurohicncr.top/Article/details/5569205.shtml)
+- 2026-06-29 20:15 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/997969481.shtml)
+- 2026-06-29 20:18 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/4619639020.shtml)
+- 2026-06-29 20:27 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/297828278431.shtml)
+- 2026-06-29 20:24 - [日本在最东端离岛部署导弹发射装置](https://www.share.kurohicncr.top/Article/details/739990661.shtml)
+- 2026-06-29 20:35 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/70242778.shtml)
+- 2026-06-29 20:12 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/40738291585.shtml)
+- 2026-06-29 20:28 - [哈兰德玩游戏连女友都不让着](https://www.blog.kurohicncr.top/Article/details/36119651.shtml)

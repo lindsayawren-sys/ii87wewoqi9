@@ -1,61 +1,58 @@
-# 让老人颐养天年 “一站式”暖心服务阵地让民生温度在烟火气中接力传递
+# 特朗普政府扣留加州13亿美元医疗补助款项
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-央视网消息：“民以食为天”。对农村老年人而言，一顿热乎、可口、安全的饭菜是晚年幸福感与安全感的重要支撑。随着人口老龄化加快，农村老龄化程度远高于城市，空巢、独居、失能老人逐年增多，“做饭难、吃饭难、吃得差”成为农村养老的突出痛点。破解这一民生难题，让农村老年人“食有所依、食有所安、食有所乐”是推进乡村振兴、完善农村养老服务体系的重要课题。老人“以菜换餐” 共享食堂吃饭无忧 一大
+特朗普政府以加州未能严厉打击医保欺诈为由，扣留该州13亿美元医疗补助计划（Medicaid）报销款项，进一步升级双方在临终关怀监管问题上的对立矛盾。 美国副总统万斯周三在白宫记者会上表示：“加州一直没有严肃对待医保欺诈问题。” 尽管联邦政府多次批评加州的医保欺诈监管不力，但这是美国医疗保险和医疗补助服务中心（CMS）首次直接扣留该州拨付资金。近几个月，该机构已以可疑理赔为由，扣
 
 ## 正文
 
-央视网消息：“民以食为天”。
+特朗普政府以加州未能严厉打击医保欺诈为由，扣留该州13亿美元医疗补助计划（Medicaid）报销款项，进一步升级双方在临终关怀监管问题上的对立矛盾。
 
-对农村老年人而言，一顿热乎、可口、安全的饭菜是晚年幸福感与安全感的重要支撑。
+美国副总统万斯周三在白宫记者会上表示：“加州一直没有严肃对待医保欺诈问题。
 
-随着人口老龄化加快，农村老龄化程度远高于城市，空巢、独居、失能老人逐年增多，“做饭难、吃饭难、吃得差”成为农村养老的突出痛点。
+” 尽管联邦政府多次批评加州的医保欺诈监管不力，但这是美国医疗保险和医疗补助服务中心（CMS）首次直接扣留该州拨付资金。
 
-破解这一民生难题，让农村老年人“食有所依、食有所安、食有所乐”是推进乡村振兴、完善农村养老服务体系的重要课题。
+近几个月，该机构已以可疑理赔为由，扣留明尼苏达州超3亿美元的Medicaid报销款。
 
-老人“以菜换餐” 共享食堂吃饭无忧 一大早，浙江省衢州江山市石门镇溪底村的几位村民，提着刚从地里采摘的新鲜蔬菜来到共享食堂，准备用菜换“饭钱”。
+Medicaid是联邦与州联合出资的医保项目。
 
-鸡蛋、油麦菜、苋菜，这些村民自家产的农产品，共享食堂会按不低于市场价折现，充值进他们的就餐卡中。
+加州已先行向服务低收入群体的医疗机构完成付款；但若该州无法按CMS要求，证明参保患者确实接受了合规服务，联邦部分配套资金将不予拨付。
 
-今年71岁的姜春亮在共享食堂就餐，每顿需4.5元。
+目前加州官方尚未就CMS此举作出回应。
 
-通过“以菜换餐”，他只需将自家地里的蔬菜送到食堂就能抵扣饭钱。
+CMS局长梅赫梅特・奥兹在记者会上称，此次13亿美元扣款是该机构有史以来最大规模暂缓拨付金额，不过仅占加州全年联邦Medicaid总资金的一小部分。
 
 ## 相关推荐
 
-- 2026-06-29 20:14 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-29 20:02 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-29 20:04 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 20:04 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-29 20:29 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 20:08 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-29 20:22 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-29 20:23 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 20:07 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-29 20:04 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-29 20:19 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 20:05 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-29 20:28 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 20:07 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-29 20:29 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 20:08 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 20:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-29 20:12 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-29 20:30 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 20:10 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-29 20:24 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-29 20:08 - [本届世界杯已有5人涉性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-29 20:21 - [北京市发布雷电黄色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 20:31 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-29 20:18 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-29 20:08 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 20:19 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:25 - [周生如故](http://www.blog.minike.top/Article/details/81832305417.shtml)
-- 2026-06-29 20:02 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/96658696.shtml)
-- 2026-06-29 20:11 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/6277464854.shtml)
-- 2026-06-29 20:14 - [高质量发展看新疆](https://www.blog.minike.top/Article/details/213876152530.shtml)
-- 2026-06-29 20:01 - [温网](https://www.share.minike.top/Article/details/456370.shtml)
-- 2026-06-29 20:16 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/05257879555.shtml)
-- 2026-06-29 20:16 - [天道](https://www.share.minike.top/Article/details/6400700.shtml)
-- 2026-06-29 20:22 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/85239739387.shtml)
-- 2026-06-29 20:08 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/3125005.shtml)
-- 2026-06-29 20:07 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/0362676.shtml)
-- 2026-06-29 20:06 - [厨房装空调还是装冷烟机](http://www.blog.kurohicncr.top/Article/details/9880789.shtml)
-- 2026-06-29 20:03 - [专家预计全球央行加息节奏将出现反复](https://www.share.kurohicncr.top/Article/details/261098.shtml)
-- 2026-06-29 20:26 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/63504.shtml)
-- 2026-06-29 20:17 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/6486555.shtml)
-- 2026-06-29 20:03 - [金鹰奖第二阶段投票明日开启](https://www.share.minike.top/Article/details/93198.shtml)
+- 2026-06-29 20:28 - [扩军害了世界杯吗](https://www.blog.kurohicncr.top/Article/details/232629196.shtml)
+- 2026-06-29 20:22 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/7584917.shtml)
+- 2026-06-29 20:24 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/25526193.shtml)
+- 2026-06-29 20:27 - [中国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/30852551.shtml)
+- 2026-06-29 20:31 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/17022072.shtml)
+- 2026-06-29 20:17 - [北京发布地质灾害气象风险蓝色预警](http://www.blog.minike.top/Article/details/5115698.shtml)
+- 2026-06-29 20:28 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/409559070717.shtml)
+- 2026-06-29 20:25 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/0867612176.shtml)
+- 2026-06-29 20:23 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/541587496735.shtml)
+- 2026-06-29 20:29 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/472314177.shtml)
+- 2026-06-29 20:27 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.minike.top/Article/details/0546117914.shtml)
+- 2026-06-29 20:17 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/928269.shtml)
+- 2026-06-29 20:34 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/1514622.shtml)
+- 2026-06-29 20:26 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/35783608.shtml)
+- 2026-06-29 20:07 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/8124321.shtml)

@@ -1,61 +1,59 @@
-# 琼桂携手建设海南自贸港和面向东盟开放合作的前沿高地
+# 688347，业绩大增超500%！氢氟酸价格或迎大涨，这些公司积极布局
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-中新网海口4月14日电 (王子谦 林浩)4月13日晚，广西壮族自治区人民政府与海南省人民政府在海口市签署协议，将进一步深化合作，加强资源共享、产业共建、开放协同，携手建设海南自贸港和面向东盟开放合作的前沿高地。 当天，“潮涌消博会燃动北部湾——2026购在中国·广西主题推介活动”在海口举行，琼桂两省区在活动中签署上述合作协议。 广西壮族自治区主席韦韬表示，今年9月，平陆运河建成
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！氢氟酸价格或迎来大涨。 今日（5月14日）盘后，华虹公司（688347）发布2026年第一季度报告。公司一季度实现营收46.25亿元，同比增长18.22%；归母净利润为1.4亿元，同比增长513.1%；毛利率为13.0%，同比上升3.8个百分点。 公司董事会主席兼总裁白鹏表示，华虹半导体始终坚守特色工艺晶圆
 
 ## 正文
 
-中新网海口4月14日电 (王子谦 林浩)4月13日晚，广西壮族自治区人民政府与海南省人民政府在海口市签署协议，将进一步深化合作，加强资源共享、产业共建、开放协同，携手建设海南自贸港和面向东盟开放合作的前沿高地。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-当天，“潮涌消博会燃动北部湾——2026购在中国·广西主题推介活动”在海口举行，琼桂两省区在活动中签署上述合作协议。
+氢氟酸价格或迎来大涨。
 
-广西壮族自治区主席韦韬表示，今年9月，平陆运河建成通航后，将开辟广西及西南地区通往东盟运距最短、最经济、最便捷的水运大通道。
+今日（5月14日）盘后，华虹公司（688347）发布2026年第一季度报告。
 
-广西期待持续加强与海南在制度引领、产业联动、通道协同、人工智能等领域合作。
+公司一季度实现营收46.25亿元，同比增长18.22%；归母净利润为1.4亿元，同比增长513.1%；毛利率为13.0%，同比上升3.8个百分点。
 
-海南省省长刘小明表示，琼桂两地隔海相望，合作基础深厚，协同空间广阔，海南愿用好海南自贸港政策和消博会平台，深化与广西在交通互联、产业协作、文旅融合、商贸互通、消费联动等领域的务实合作，促进琼桂旅游客源双向互送与共享，深挖区域消费协同潜力。
+公司董事会主席兼总裁白鹏表示，华虹半导体始终坚守特色工艺晶圆代工龙头企业的战略目标，持续聚焦市场需求、不断强化工艺能力并提升产能规模。
 
-接下来，两地将推动制度型开放合作有效衔接，壮大跨区域产业链供应链，协力打造中国—东盟人工智能合作高地，以及跨区域合作示范样板，力争成为中国开放发展新的增长极。
+第一季度，公司12英寸产能爬坡稳步推进、收入占比已提升至62.7%；8英寸产线继续保持良好盈利能力。
 
-此次活动中，两地相关部门签署系列合作协议，将合力推进粤桂琼自贸试验区(港)建设，深化在海事、旅游、物流、医疗、消费维权、育种等领域协作，共同加密北部湾港至海南港口的集装箱航线，拓展中国—东盟区域医药交易集采平台应用范围，促进琼桂两地创新链、政策链、资源链深度融合。
+白鹏同时表示，华虹公司拟议收购华力微事项已获上交所受理并进入实质审核阶段，正在按照既定计划推进，预期可于今年下半年完成。
 
-(完)
+氢氟酸价格或迎来大涨 据韩媒TheElec报道，韩国无水氢氟酸生产商，包括Solbrain、ENF Technology、Huseong等，将自本月起开始从中国采购无水氢氟酸，价格较年初上涨约40%。
 
 ## 相关推荐
 
-- 2026-06-29 20:07 - [店员光脚踩入盆中清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-29 20:11 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 20:09 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-29 20:28 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-29 20:18 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-29 20:13 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-29 20:02 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-29 20:19 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 20:24 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 20:23 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-29 20:01 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 20:26 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-29 20:06 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 20:27 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-29 20:24 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-29 20:22 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-29 20:35 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-29 20:15 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 20:07 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-29 20:20 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-29 20:30 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 20:12 - [LPL第三赛段赛制公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-29 20:16 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-29 20:32 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 20:14 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-29 20:11 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 20:33 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 20:08 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:12 - [《新闻联播》正在直播](https://www.blog.minike.top/Article/details/375292008302.shtml)
-- 2026-06-29 20:25 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/31192.shtml)
-- 2026-06-29 20:24 - [女生学医适合选什么专业](https://www.share.minike.top/Article/details/938848.shtml)
-- 2026-06-29 20:24 - [金刚川](https://www.blog.minike.top/Article/details/991860187.shtml)
-- 2026-06-29 20:20 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/77239.shtml)
-- 2026-06-29 20:25 - [不烧钱的低成本爱好](http://www.share.kurohicncr.top/Article/details/2359565.shtml)
-- 2026-06-29 20:00 - [教育部高校学生资助热线7月1日开通](https://www.share.kurohicncr.top/Article/details/2414354598.shtml)
-- 2026-06-29 20:18 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/067975703.shtml)
-- 2026-06-29 20:28 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/3375521.shtml)
-- 2026-06-29 20:12 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/4415388814.shtml)
-- 2026-06-29 20:04 - [杨紫视后第一场线下活动](https://www.blog.kurohicncr.top/Article/details/382622055.shtml)
-- 2026-06-29 20:25 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/90768682616.shtml)
-- 2026-06-29 20:16 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/38572.shtml)
-- 2026-06-29 20:20 - [郑钦文谈再战西尼亚科娃](http://www.blog.minike.top/Article/details/0654034.shtml)
-- 2026-06-29 20:18 - [半导体和股市为何没让韩国人起飞](https://www.blog.kurohicncr.top/Article/details/5491524.shtml)
+- 2026-06-29 20:34 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.kurohicncr.top/Article/details/73412.shtml)
+- 2026-06-29 20:28 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/585995.shtml)
+- 2026-06-29 20:25 - [每天通勤往返3h的感觉](https://www.share.minike.top/Article/details/24597995.shtml)
+- 2026-06-29 20:25 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.kurohicncr.top/Article/details/4404645984.shtml)
+- 2026-06-29 20:35 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/25107378383.shtml)
+- 2026-06-29 20:22 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.minike.top/Article/details/4624951890.shtml)
+- 2026-06-29 20:15 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/94875.shtml)
+- 2026-06-29 20:25 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/97501214.shtml)
+- 2026-06-29 20:15 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/99353136422.shtml)
+- 2026-06-29 20:06 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/977426343.shtml)
+- 2026-06-29 20:16 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/805617.shtml)
+- 2026-06-29 20:32 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/1971477601.shtml)
+- 2026-06-29 20:30 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/25378888546.shtml)
+- 2026-06-29 20:14 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/74833233899.shtml)
+- 2026-06-29 20:14 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/1233135559.shtml)

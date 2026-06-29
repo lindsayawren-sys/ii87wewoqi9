@@ -1,59 +1,60 @@
-# 国台办：推进十项促进两岸交流合作政策措施落实落细
+# 日本央行前行长黑田东彦：干预行动不大可能对日元产生持久影响
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-4月15日，国务院台办举行例行新闻发布会。有记者问，中央台办4月12日受权发布十项促进两岸交流合作的政策措施，受到台湾各界肯定和欢迎。请发言人对十项政策措施作进一步说明，对于符合检验检疫标准的台湾农渔产品输入大陆、推动恢复上海市及福建省居民赴台(本岛)个人游试点等措施颇受关注，请问有无落实时间安排？发言人陈斌华答问表示，我们秉持两岸一家亲理念，坚持以交流融合增进民生福祉，着眼让
+日本央行前行长黑田东彦周三表示，日本近期的干预汇市行动或许阻止了日元兑美元跌破160关口，但这不太可能对支撑日元产生持久影响。 黑田东彦在一场研讨会上表示，只有当外汇干预对投机者造成巨大打击，或是其力度足以扭转市场情绪时，才会产生长期影响。 “日本当局此次针对日元过度贬值采取了果断行动。但很难指望这一举措对日元产生持久影响，”黑田东彦表示。他在担任日本央行行长之前，曾担任主管日
 
 ## 正文
 
-4月15日，国务院台办举行例行新闻发布会。
+日本央行前行长黑田东彦周三表示，日本近期的干预汇市行动或许阻止了日元兑美元跌破160关口，但这不太可能对支撑日元产生持久影响。
 
-有记者问，中央台办4月12日受权发布十项促进两岸交流合作的政策措施，受到台湾各界肯定和欢迎。
+黑田东彦在一场研讨会上表示，只有当外汇干预对投机者造成巨大打击，或是其力度足以扭转市场情绪时，才会产生长期影响。
 
-请发言人对十项政策措施作进一步说明，对于符合检验检疫标准的台湾农渔产品输入大陆、推动恢复上海市及福建省居民赴台(本岛)个人游试点等措施颇受关注，请问有无落实时间安排？
+“日本当局此次针对日元过度贬值采取了果断行动。
 
-发言人陈斌华答问表示，我们秉持两岸一家亲理念，坚持以交流融合增进民生福祉，着眼让两岸同胞过上更美好的生活，聚焦台湾同胞实际需求，出台十项促进两岸交流合作的政策措施。
+但很难指望这一举措对日元产生持久影响，”黑田东彦表示。
 
-十项政策措施涵盖两岸政党党际交流、青年交流以及经济、民生、文旅等领域，是我们推动两岸人员往来和各领域交流合作、增进同胞亲情福祉的又一重要举措，顺应了两岸同胞要和平、要发展、要交流、要合作的共同心声，回应了岛内民众的热烈期盼。
+他在担任日本央行行长之前，曾担任主管日本汇率政策的财务省官员。
 
-陈斌华表示，下一步，我们将会同有关部门、地方推进相关政策措施落实落细，让两岸同胞早蒙其利、共享利好。
+“最近这轮干预确实起到了一定作用，阻止日元兑美元跌破160关口，否则日元将进一步下跌，”他说。
 
-希望民进党当局顺应岛内民意、回应业界呼声，尽快取消种种人为限制，为两岸人员往来和各领域交流合作正常化、常态化撤除障碍。
+“但干预的影响通常不会持续太久。
 
-(记者许晓静、李妍）
+” 知情人士向路透透露，日本在4月30日开始的这轮干预中已花费近10万亿日元，这是日本近两年来首次采取官方外汇干预行动。
 
 ## 相关推荐
 
-- 2026-06-29 20:22 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-29 20:28 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 20:21 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-29 20:00 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 20:18 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-29 20:27 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 20:26 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-29 20:05 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 20:00 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-29 20:17 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-29 20:19 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-29 20:02 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-29 20:25 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 20:35 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 20:24 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 20:21 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-29 20:12 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 20:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-29 20:08 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 20:09 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-29 20:17 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-29 20:19 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 20:15 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-29 20:18 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-29 20:07 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-29 20:26 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 20:23 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:19 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/3942952.shtml)
-- 2026-06-29 20:26 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/3572139908.shtml)
-- 2026-06-29 20:26 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/77648496.shtml)
-- 2026-06-29 20:13 - [Ella回应SHE何时合体](http://www.share.minike.top/Article/details/75447029.shtml)
-- 2026-06-29 20:03 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/643559158291.shtml)
-- 2026-06-29 20:00 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/5207483.shtml)
-- 2026-06-29 20:24 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/3971931695.shtml)
-- 2026-06-29 20:02 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/696956.shtml)
-- 2026-06-29 20:02 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/3084757109.shtml)
-- 2026-06-29 20:18 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/2713339491.shtml)
-- 2026-06-29 20:25 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/83891.shtml)
-- 2026-06-29 20:16 - [做完数学题 韩国队回家了](http://www.share.kurohicncr.top/Article/details/187497.shtml)
-- 2026-06-29 20:09 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/695853167.shtml)
-- 2026-06-29 20:07 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/0145367.shtml)
-- 2026-06-29 20:22 - [女生学医适合选什么专业](http://www.share.kurohicncr.top/Article/details/454058718341.shtml)
+- 2026-06-29 20:24 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/606885.shtml)
+- 2026-06-29 20:29 - [啊啊啊](https://www.share.minike.top/Article/details/405193.shtml)
+- 2026-06-29 20:23 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/52174.shtml)
+- 2026-06-29 20:15 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/4394977.shtml)
+- 2026-06-29 20:35 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/32051693013.shtml)
+- 2026-06-29 20:06 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/936804966705.shtml)
+- 2026-06-29 20:28 - [葛军透露高考出题思路](http://www.share.kurohicncr.top/Article/details/91572406492.shtml)
+- 2026-06-29 20:26 - [我们的少年时代2](http://www.share.minike.top/Article/details/611410.shtml)
+- 2026-06-29 20:16 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/19496693912.shtml)
+- 2026-06-29 20:26 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/5541029.shtml)
+- 2026-06-29 20:32 - [斗破苍穹](http://www.blog.minike.top/Article/details/103699624135.shtml)
+- 2026-06-29 20:19 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/38625969594.shtml)
+- 2026-06-29 20:12 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/392829569.shtml)
+- 2026-06-29 20:29 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/18583.shtml)
+- 2026-06-29 20:33 - [店员光脚踩入盆中清洗土豆](http://www.blog.kurohicncr.top/Article/details/076922.shtml)

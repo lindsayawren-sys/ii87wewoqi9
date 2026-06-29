@@ -1,58 +1,61 @@
-# 消博会观察：前沿科技“飞入寻常百姓家”
+# 多元化文旅场景赋能入境游提质扩容
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-中新社海口4月15日电 题：消博会观察：前沿科技“飞入寻常百姓家” 作者 陶思阅 智能眼镜进行导航指引、即时翻译；康养机器人提醒用药、联系医生；按摩椅根据使用者身体状态生成专属按摩方案……第六届中国国际消费品博览会(下称“消博会”)正在海南海口举行，众多参展企业带来前沿科技新品，一个个“科技+消费”新场景生动上演。 “智能眼镜不仅能跟人对话、安排行程、实时导航，还能翻译80多种
+央视网消息(新闻联播)：安全的社会环境、越来越便利化的出入境政策，加上各地持续优化文旅供给、提升国际化水平，让越来越多的海外游客来到中国感受这里独特的自然风光、人文风情和时代变化。 在陕西西安唐乐宫，沉浸式唐代歌舞实景表演和文化体验类项目成为入境游客的热门选择。 在江苏周庄，来自多个国家的大型入境旅游团接连到访，在古镇中体验非遗民俗，感受江南烟火与千年文脉。 四川多个景区优化多
 
 ## 正文
 
-中新社海口4月15日电 题：消博会观察：前沿科技“飞入寻常百姓家” 作者 陶思阅 智能眼镜进行导航指引、即时翻译；康养机器人提醒用药、联系医生；按摩椅根据使用者身体状态生成专属按摩方案……第六届中国国际消费品博览会(下称“消博会”)正在海南海口举行，众多参展企业带来前沿科技新品，一个个“科技+消费”新场景生动上演。
+央视网消息(新闻联播)：安全的社会环境、越来越便利化的出入境政策，加上各地持续优化文旅供给、提升国际化水平，让越来越多的海外游客来到中国感受这里独特的自然风光、人文风情和时代变化。
 
-“智能眼镜不仅能跟人对话、安排行程、实时导航，还能翻译80多种语言。
+在陕西西安唐乐宫，沉浸式唐代歌舞实景表演和文化体验类项目成为入境游客的热门选择。
 
-”工作人员边介绍边演示产品功能。
+在江苏周庄，来自多个国家的大型入境旅游团接连到访，在古镇中体验非遗民俗，感受江南烟火与千年文脉。
 
-观众张道伟体验后说，“很实用，我频繁往返于中国和加拿大，有了它就像带了一位智能助手。
+四川多个景区优化多语种服务与国际支付配套。
 
-” 同为穿戴类产品的智能戒指，兼具心电监测、情绪识别、睡眠跟踪等功能，最轻款式仅重2克，续航可达10天。
+一季度，入境游客量同比增长超五成。
 
-“35岁以上，对于健康管理有更高要求，且追求无感佩戴的消费者是我们的主要客户群体。
+文旅体验提质升级的同时，国际化消费服务体系同步完善。
 
-”展台工作人员说。
+北京还在重点涉外商圈搭建多语种服务平台，覆盖二十余种外语，配备专业人员与智能翻译设备，为外籍游客提供消费咨询、投诉受理、纠纷调解“一站式”服务。
 
-除穿戴类产品，智慧康养设备也颇为吸睛。
+浙江义乌凭借丰富的中国制造和科技新品，还让大批海外游客从单一的“中国游”转向“中国购”。
 
 ## 相关推荐
 
-- 2026-06-29 20:23 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 20:15 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-29 20:00 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 20:20 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 20:17 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 20:25 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-29 20:19 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-29 20:22 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-29 20:15 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-29 20:20 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-29 20:22 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-29 20:06 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-29 20:34 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 20:09 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-29 20:20 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 20:12 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-29 20:18 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-29 20:34 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-29 20:25 - [官媒首曝六代机？大V解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-29 20:13 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 20:08 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-29 20:09 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 20:32 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-29 20:25 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-29 20:27 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-29 20:21 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 20:10 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:20 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/410190.shtml)
-- 2026-06-29 20:05 - [世界杯高票价为何没劝退球迷](http://www.blog.kurohicncr.top/Article/details/082595008033.shtml)
-- 2026-06-29 20:18 - [高考1357分的同学如何报志愿？](https://www.blog.minike.top/Article/details/088470648.shtml)
-- 2026-06-29 20:24 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/0371290.shtml)
-- 2026-06-29 20:04 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/0569048134.shtml)
-- 2026-06-29 20:06 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/152858.shtml)
-- 2026-06-29 20:05 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/79210857442.shtml)
-- 2026-06-29 20:14 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/8803208.shtml)
-- 2026-06-29 20:09 - [日本在最东端离岛部署导弹发射装置](http://www.share.minike.top/Article/details/239404.shtml)
-- 2026-06-29 20:11 - [白玉兰答谢宴合影](https://www.blog.minike.top/Article/details/743365.shtml)
-- 2026-06-29 20:00 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.blog.kurohicncr.top/Article/details/225199324620.shtml)
-- 2026-06-29 20:10 - [德国医生在没有空调的手术室工作](http://www.share.minike.top/Article/details/362043784.shtml)
-- 2026-06-29 20:19 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/20425.shtml)
-- 2026-06-29 20:25 - [小龙女配音去世 李若彤发文悼念](https://www.blog.kurohicncr.top/Article/details/241448067308.shtml)
-- 2026-06-29 20:00 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/79009.shtml)
+- 2026-06-29 20:20 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/52776719511.shtml)
+- 2026-06-29 20:06 - [2026全国田径冠军赛江苏队4金收官](https://www.blog.kurohicncr.top/Article/details/23683.shtml)
+- 2026-06-29 20:35 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/47706.shtml)
+- 2026-06-29 20:24 - [AG 宫斗](http://www.blog.minike.top/Article/details/9519647042.shtml)
+- 2026-06-29 20:06 - [世界杯预测史上最不吃压力之物](http://www.blog.kurohicncr.top/Article/details/201294249.shtml)
+- 2026-06-29 20:28 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/802846.shtml)
+- 2026-06-29 20:33 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/36502693968.shtml)
+- 2026-06-29 20:08 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/28758.shtml)
+- 2026-06-29 20:21 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/4781836.shtml)
+- 2026-06-29 20:31 - [天道](http://www.blog.kurohicncr.top/Article/details/10236353.shtml)
+- 2026-06-29 20:07 - [地震来临时铁路工作人员果断拦停列车](https://www.share.kurohicncr.top/Article/details/349479217.shtml)
+- 2026-06-29 20:16 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/8402731.shtml)
+- 2026-06-29 20:32 - [本届世界杯已有5人涉性侵风波](http://www.share.minike.top/Article/details/2061590090.shtml)
+- 2026-06-29 20:30 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/05185030644.shtml)
+- 2026-06-29 20:24 - [林逸向方筱然求婚了](http://www.blog.minike.top/Article/details/781786130955.shtml)

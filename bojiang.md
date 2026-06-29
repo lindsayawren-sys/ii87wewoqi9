@@ -1,56 +1,56 @@
-# 沪指涨0.95%重返4000点大关，半导体、算力硬件板块全天强势
+# 受能源价格飙升影响，印度4月批发物价通胀率创三年半新高
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-市场复盘01 主要指数上证指数今日收盘4026.63点，涨0.95%深证成指今日收盘14639.95点，涨1.61%创业板指今日收盘3558.53点，涨2.36%02 行业表现//今日领涨：房地产：2.53%电子：2.47%有色金属：2.15%//今日领跌：煤炭：-1.05%石油石化：-0.64%钢铁：-0.23%03 个股涨跌//上涨：3716股//下跌：1591股04 成交
+受中东地区冲突导致能源价格大幅上涨的冲击，印度4月份批发物价通胀率意外攀升至8.3%，创下近三年半以来的最高水平。 这一通胀数据大幅超出市场普遍预期。根据此前预计，外界对该数值的预测均值为4.4%。相较于印度3月份3.88%的整体增速，4月数据呈现显著的加速态势。印度批发物价通胀率上一次触及高位是在2022年10月，当时该指标达到8.67%。 分项数据显示，4月份燃料和电力价格
 
 ## 正文
 
-市场复盘01 主要指数上证指数今日收盘4026.63点，涨0.95%深证成指今日收盘14639.95点，涨1.61%创业板指今日收盘3558.53点，涨2.36%02 行业表现//今日领涨：房地产：2.53%电子：2.47%有色金属：2.15%//今日领跌：煤炭：-1.05%石油石化：-0.64%钢铁：-0.23%03 个股涨跌//上涨：3716股//下跌：1591股04 成交情况A股成交额2.4万亿元，较上一交易日增加2337.12亿元。
+受中东地区冲突导致能源价格大幅上涨的冲击，印度4月份批发物价通胀率意外攀升至8.3%，创下近三年半以来的最高水平。
 
-今日解析01 盘面回顾消息面上，据彭博社报道，美伊双方正在讨论举行另一轮面对面的谈判以达成更长期的停火协议，此外，欧洲多国表示不会参与封锁伊朗海上交通的行动，随着中东紧张局势的暂时缓和，全球市场风险偏好上升。
+这一通胀数据大幅超出市场普遍预期。
 
-今日A股三大指数集体高开高走，沪指涨近1%收复4000点，创指涨超2%再创阶段新高。
+根据此前预计，外界对该数值的预测均值为4.4%。
 
-截至收盘，沪指涨0.95%，深成指涨1.61%，创指涨2.36%，科创综指涨2.13%。
+相较于印度3月份3.88%的整体增速，4月数据呈现显著的加速态势。
 
-30个中信一级行业仅煤炭、石油石化、钢铁3个板块下跌。
+印度批发物价通胀率上一次触及高位是在2022年10月，当时该指标达到8.67%。
 
-盘面上，算力硬件、半导体产业链全天强势，存储器方向领涨；锂电池、商业航天概念午后崛起，AI应用、消费电子等题材走势活跃。
+分项数据显示，4月份燃料和电力价格同比暴涨24.71%，较3月份1.05%的涨幅出现跃升；制造品价格的同比涨幅也从3月份的3.39%进一步扩大至4.62%。
 
-个股涨多跌少，全市场超3700只个股上涨。
+在民生消费领域，4月份批发食品价格同比上涨2.31%，略高于3月份1.85%的涨幅；蔬菜价格涨速有所回落，当月同比仅微涨0.53%，而前一个月的涨幅为1.45%。
 
-今日A股成交额放量至2.4万亿元，较上一个交易日增加2337.12亿元。
+责任编辑：龙运翔
 
 ## 相关推荐
 
-- 2026-06-29 20:10 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 20:02 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-29 20:02 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-29 20:15 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 20:02 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-29 20:10 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-29 20:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 20:14 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 20:11 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 20:16 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 20:07 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 20:19 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 20:26 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-29 20:11 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-29 20:16 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 20:19 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 20:18 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 20:35 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-29 20:25 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 20:30 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:23 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/295962.shtml)
-- 2026-06-29 20:08 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/5997751778.shtml)
-- 2026-06-29 20:04 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/192446760116.shtml)
-- 2026-06-29 20:01 - [一诺变着花样秀新驾照](http://www.blog.kurohicncr.top/Article/details/13455.shtml)
-- 2026-06-29 20:20 - [蔚来回应车漆洗车时被冲掉](https://www.blog.kurohicncr.top/Article/details/59191516.shtml)
-- 2026-06-29 20:20 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/296045849452.shtml)
-- 2026-06-29 20:19 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.kurohicncr.top/Article/details/6407958.shtml)
-- 2026-06-29 20:27 - [上世纪90年代玩具成新宠](https://www.blog.kurohicncr.top/Article/details/92930477.shtml)
-- 2026-06-29 20:05 - [记者暗访养老机构消防安全](http://www.share.minike.top/Article/details/72355.shtml)
-- 2026-06-29 20:04 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/9304770922.shtml)
-- 2026-06-29 20:24 - [赵今麦时隔五年再演李诗情](https://www.blog.minike.top/Article/details/0868237.shtml)
-- 2026-06-29 20:10 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/3311741727.shtml)
-- 2026-06-29 20:28 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/47579831.shtml)
-- 2026-06-29 20:01 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/28357.shtml)
-- 2026-06-29 20:02 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/74540.shtml)
+- 2026-06-29 20:33 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.minike.top/Article/details/53754417.shtml)
+- 2026-06-29 20:08 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/9562474.shtml)
+- 2026-06-29 20:22 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/9336399099.shtml)
+- 2026-06-29 20:16 - [老板回应员工光脚清洗土豆](https://www.blog.minike.top/Article/details/845943760941.shtml)
+- 2026-06-29 20:27 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/04884636.shtml)
+- 2026-06-29 20:29 - [天气热脾气都变差了](http://www.share.minike.top/Article/details/59276.shtml)
+- 2026-06-29 20:10 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/4501697.shtml)
+- 2026-06-29 20:14 - [网友晒14年前支教影像等来学生评论](http://www.share.kurohicncr.top/Article/details/13502119.shtml)
+- 2026-06-29 20:14 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/59471.shtml)
+- 2026-06-29 20:27 - [小龙女配音去世 李若彤发文悼念](http://www.blog.kurohicncr.top/Article/details/617222.shtml)
+- 2026-06-29 20:07 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/9075199.shtml)
+- 2026-06-29 20:15 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/636603352275.shtml)
+- 2026-06-29 20:21 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/332625.shtml)
+- 2026-06-29 20:30 - [沉睡花园](http://www.share.minike.top/Article/details/785804270090.shtml)
+- 2026-06-29 20:24 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/9423330166.shtml)

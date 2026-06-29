@@ -1,60 +1,56 @@
-# 聚焦“边贸+算力” 内蒙自贸试验区将打造向北开放新格局
+# 黄仁勋押注这家英国初创企业，布局人工智能 “下一个前沿领域”
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-中新网北京4月15日电(记者 莫红娥)中国(内蒙古)自由贸易试验区4月11日正式揭牌，成为我国第23个自贸试验区。相关领域专家学者在接受中新网采访时表示，区别于沿海自贸区，内蒙古自贸区依托区位优势，重点聚焦沿边开放、绿色算力、农牧业与能源产业，为国内外投资者提供新的发展机遇。 国务院发展研究中心对外经济研究部综合研究室主任赵福军指出，内蒙古与蒙古、俄罗斯接壤，具有发展边民互市贸
+核心要点 两家公司于周三联合宣布，英伟达将与英国初创公司Ineffable Intelligence合作研发全新人工智能系统。 不同于众多主流 AI 模型依托人类数据进行训练，Ineffable Intelligence 专注强化学习，即让 AI 模型从自身经验中自主学习。 英伟达创始人兼首席执行官黄仁勋表示：人工智能的下一个前沿是超级学习体 —— 能够从经验中持续自主学习的智
 
 ## 正文
 
-中新网北京4月15日电(记者 莫红娥)中国(内蒙古)自由贸易试验区4月11日正式揭牌，成为我国第23个自贸试验区。
+核心要点 两家公司于周三联合宣布，英伟达将与英国初创公司Ineffable Intelligence合作研发全新人工智能系统。
 
-相关领域专家学者在接受中新网采访时表示，区别于沿海自贸区，内蒙古自贸区依托区位优势，重点聚焦沿边开放、绿色算力、农牧业与能源产业，为国内外投资者提供新的发展机遇。
+不同于众多主流 AI 模型依托人类数据进行训练，Ineffable Intelligence 专注强化学习，即让 AI 模型从自身经验中自主学习。
 
-国务院发展研究中心对外经济研究部综合研究室主任赵福军指出，内蒙古与蒙古、俄罗斯接壤，具有发展边民互市贸易的基础，因此，创新发展边民互市贸易是区域发展的重要内容。
+英伟达创始人兼首席执行官黄仁勋表示：人工智能的下一个前沿是超级学习体 —— 能够从经验中持续自主学习的智能系统。
 
-国务院近日公布的《中国(内蒙古)自由贸易试验区总体方案》将农牧业、能源等行业作为重点产业领域。
+英伟达官宣与一家人工智能初创企业达成合作；这家初创公司由谷歌深度思维（DeepMind）前顶尖科学家创办，成立仅数月。
 
-赵福军解读称，这与沿海自贸区形成差异化发展，体现了内蒙古依托自身区位和资源的优势特色。
+Ineffable Intelligence 致力于研发超级智能，由伦敦大学学院教授、前 DeepMind 强化学习团队负责人大卫・西尔弗于 2025 年末创立。
 
-谈及《方案》中的政策亮点，赵福军还表示，多项举措将受国内外投资者关注。
+公司周三表示，将与这家芯片巨头开展工程级深度合作，共同打造可通过试错自主学习的 AI 系统。
 
-例如：允许中国—蒙古国博览会办展人依法就展品向海关办理免担保手续；支持呼和浩特片区建设数字服务出口平台，探索跨境算力服务；大力引进优质畜牧品种资源等。
+这家总部位于伦敦的企业今年 4 月完成创纪录的11 亿美元种子轮融资，由美国风投红杉资本与光速创投联合领投，英伟达、DST 全球资本、指数创投、谷歌以及英国主权人工智能基金均参与跟投。
 
-他还特别提到，将推动赛马、摔跤等体育项目与跨境游深度融合，以拓展对蒙俄的多领域交流。
+英伟达 CEO 黄仁勋表示：“人工智能的下一个前沿是超级学习体，也就是能够从经验中持续迭代学习的智能系统。
 
 ## 相关推荐
 
-- 2026-06-29 20:21 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-29 20:04 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-29 20:27 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 20:23 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 20:03 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-29 20:07 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-29 20:12 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 20:00 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-29 20:28 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-29 20:13 - [委内瑞拉发生余震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-29 20:24 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 20:10 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-29 20:02 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 20:28 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-29 20:14 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 20:23 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 20:24 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-29 20:09 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 20:06 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-29 20:12 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 20:21 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 20:12 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 20:24 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-29 20:17 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:09 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/76865447.shtml)
-- 2026-06-29 20:03 - [起风了](https://www.share.minike.top/Article/details/764206035598.shtml)
-- 2026-06-29 20:07 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.share.minike.top/Article/details/78810.shtml)
-- 2026-06-29 20:01 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/76491436.shtml)
-- 2026-06-29 20:07 - [《新闻联播》正在直播](https://www.share.kurohicncr.top/Article/details/106811308548.shtml)
-- 2026-06-29 20:16 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/1659723273.shtml)
-- 2026-06-29 20:22 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/7535780.shtml)
-- 2026-06-29 20:24 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/491494488.shtml)
-- 2026-06-29 20:21 - [胡光宇一审获刑13年](http://www.share.kurohicncr.top/Article/details/13202441.shtml)
-- 2026-06-29 20:29 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/006096.shtml)
-- 2026-06-29 20:05 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/73715887937.shtml)
-- 2026-06-29 20:27 - [曝屠颖去世和酒店失责有关](https://www.share.kurohicncr.top/Article/details/717055731838.shtml)
-- 2026-06-29 20:23 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/996028.shtml)
-- 2026-06-29 20:28 - [青春环游记第三季](http://www.blog.minike.top/Article/details/099174098.shtml)
-- 2026-06-29 20:28 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/469475434.shtml)
+- 2026-06-29 20:15 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/7781707472.shtml)
+- 2026-06-29 20:17 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/845052027.shtml)
+- 2026-06-29 20:27 - [世界杯1/16决赛对阵出炉](https://www.blog.minike.top/Article/details/97924.shtml)
+- 2026-06-29 20:34 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/72685986.shtml)
+- 2026-06-29 20:34 - [巴西球员：日本队有点傲慢了](https://www.blog.minike.top/Article/details/51733502.shtml)
+- 2026-06-29 20:33 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/230874.shtml)
+- 2026-06-29 20:31 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.kurohicncr.top/Article/details/3238944.shtml)
+- 2026-06-29 20:16 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/208895207749.shtml)
+- 2026-06-29 20:13 - [高质量发展看新疆](https://www.blog.kurohicncr.top/Article/details/416398276.shtml)
+- 2026-06-29 20:20 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/35790.shtml)
+- 2026-06-29 20:31 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/552556725.shtml)
+- 2026-06-29 20:13 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.share.minike.top/Article/details/800209761.shtml)
+- 2026-06-29 20:10 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/493490.shtml)
+- 2026-06-29 20:31 - [白玉兰答谢宴合影](http://www.blog.minike.top/Article/details/5651705615.shtml)
+- 2026-06-29 20:12 - [普京建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/39420238.shtml)

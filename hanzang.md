@@ -1,52 +1,61 @@
-# 封关后首秀！第六届消博会三大亮点全揭秘
+# 全国首个城市取景地图点亮活动在京启动
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月15日 08:06 来源：中国新闻网 4月13日到18日，第六届中国国际消费品博览会在海南海口举办。本届消博会共有来自60多个国家和地区的超3400个品牌参展，瑞士、捷克等12个国家组织官方团参展，俄罗斯、保加利亚等国首次设立国家馆。作为海南自贸港全岛封关运作以后的“首秀”，本届消博会凸显国际范、精品化、首发三大亮点，国际展品占比达65%，主宾国加拿大
+老胡同的砖瓦里生长出古都的人间烟火，CBD的霓虹灯跃动着年轻人的时尚与潮流。在影视作品的镜头中，北京不仅仅是地理坐标，更是承载着历史厚度与时代温度的创作热土。 5月12日，由中国广播电视社会组织联合会、中共北京市委宣传部、北京市广电局联合主办的第六届中国(北京)广电媒体融合发展大会在北京召开，开幕式主论坛上，一场关于城市与视听精品的浪漫约定正式达成——我们“视”好朋友呀！全国首
 
 ## 正文
 
-发布时间：2026年04月15日 08:06 来源：中国新闻网 4月13日到18日，第六届中国国际消费品博览会在海南海口举办。
+老胡同的砖瓦里生长出古都的人间烟火，CBD的霓虹灯跃动着年轻人的时尚与潮流。
 
-本届消博会共有来自60多个国家和地区的超3400个品牌参展，瑞士、捷克等12个国家组织官方团参展，俄罗斯、保加利亚等国首次设立国家馆。
+在影视作品的镜头中，北京不仅仅是地理坐标，更是承载着历史厚度与时代温度的创作热土。
 
-作为海南自贸港全岛封关运作以后的“首秀”，本届消博会凸显国际范、精品化、首发三大亮点，国际展品占比达65%，主宾国加拿大以最大规模亮相，国潮精品集中展示，众多新品首发首秀。
+5月12日，由中国广播电视社会组织联合会、中共北京市委宣传部、北京市广电局联合主办的第六届中国(北京)广电媒体融合发展大会在北京召开，开幕式主论坛上，一场关于城市与视听精品的浪漫约定正式达成——我们“视”好朋友呀！
 
-此外，本届消博会还在三亚、博鳌乐城分别设置国际游艇和国际健康两大分展区。
+全国首个城市取景地图正式点亮。
 
-(王严 陶思阅） 责任编辑：【苏亦瑜】
+活动现场，国家广播电视总局电视剧司副司长朱正文，北京市广电局党组书记、局长王杰群，中国广播电视社会组织联合会党委副书记施化芬，北京市文化和旅游局党组书记、局长郭怀刚，北京市重点站区管理委员会党组书记、主任刘海涛，北京市中医药局党组书记、局长罗增刚共同点亮这张“数字地图”，向全国乃至全球影视创作者发出邀请：来北京，拍摄不迷路，创作更自由！
+
+首创之举！
+
+北京以影视剧激活城市发展新活力 “北京大视听”影视拍摄服务机制是全国首个实现市区两级高效联动的影视取景协调服务平台，为影视创作提供全方位、智能化、便捷化的拍摄支持。
+
+两年来，这一服务机制深度联动全市相关委办局及“16+1”区，系统梳理并建成涵盖1200余个点位的优质取景资源库，交出了一份硬核成绩单：北京市广电局累计协助50余部影视作品在京拍摄，取景地覆盖钟鼓楼、国贸、什刹海、大运河等425个标志性点位，有效带动景点游览、餐饮住宿、文艺演出及文创消费等相关业态发展，累计拉动消费超3.5亿元，实现影视创作与城市消费双向赋能、协同发展。
 
 ## 相关推荐
 
-- 2026-06-29 20:07 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-29 20:12 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 20:12 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-29 20:01 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-29 20:10 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-29 20:04 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-29 20:10 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 20:09 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 20:14 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-29 20:14 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 20:13 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 20:09 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-29 20:08 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 20:12 - [刘冰任河南南阳市代市长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 20:06 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 20:31 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-29 20:32 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 20:09 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 20:12 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 20:19 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 20:34 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-29 20:32 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-29 20:22 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 20:09 - [东宫女主是不是顶级恋爱脑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-29 20:23 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 20:35 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-29 20:17 - [河南高院审委会原委员曲海滨被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:17 - [小龙女配音去世 李若彤发文悼念](https://www.blog.kurohicncr.top/Article/details/426656766216.shtml)
-- 2026-06-29 20:09 - [杨紫视后第一场线下活动](https://www.blog.minike.top/Article/details/968005266715.shtml)
-- 2026-06-29 20:15 - [蔚来回应车漆洗车时被冲掉](http://www.blog.kurohicncr.top/Article/details/10378534.shtml)
-- 2026-06-29 20:10 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/32159139704.shtml)
-- 2026-06-29 20:19 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/869625.shtml)
-- 2026-06-29 20:23 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/2242478.shtml)
-- 2026-06-29 20:05 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/00377295736.shtml)
-- 2026-06-29 20:29 - [北京发布地质灾害气象风险蓝色预警](http://www.share.kurohicncr.top/Article/details/55706491.shtml)
-- 2026-06-29 20:28 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.share.kurohicncr.top/Article/details/7887723.shtml)
-- 2026-06-29 20:14 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/176049663877.shtml)
-- 2026-06-29 20:22 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/70479394.shtml)
-- 2026-06-29 20:10 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/096190249.shtml)
-- 2026-06-29 20:25 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/9889624536.shtml)
-- 2026-06-29 20:27 - [胡光宇一审获刑13年](http://www.share.minike.top/Article/details/02589898022.shtml)
-- 2026-06-29 20:12 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/472669.shtml)
+- 2026-06-29 20:27 - [福建海警位金门附近海域常态执法巡查](http://www.share.kurohicncr.top/Article/details/50376004196.shtml)
+- 2026-06-29 20:11 - [第二波数码涨价潮来袭](https://www.blog.minike.top/Article/details/2566536986.shtml)
+- 2026-06-29 20:21 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/2657176.shtml)
+- 2026-06-29 20:13 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/8862391251.shtml)
+- 2026-06-29 20:32 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/9733550.shtml)
+- 2026-06-29 20:19 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/6609703.shtml)
+- 2026-06-29 20:23 - [一见倾心](http://www.share.kurohicncr.top/Article/details/89953.shtml)
+- 2026-06-29 20:09 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/26777268.shtml)
+- 2026-06-29 20:08 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/8179459.shtml)
+- 2026-06-29 20:07 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/79686729205.shtml)
+- 2026-06-29 20:18 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.share.minike.top/Article/details/6082586.shtml)
+- 2026-06-29 20:14 - [网红小徐直播时突遇地震](http://www.blog.kurohicncr.top/Article/details/331437.shtml)
+- 2026-06-29 20:13 - [回顾世界杯争议事件](http://www.blog.kurohicncr.top/Article/details/498812.shtml)
+- 2026-06-29 20:34 - [逃狱兄弟](https://www.share.minike.top/Article/details/8530662.shtml)
+- 2026-06-29 20:25 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/548189529637.shtml)

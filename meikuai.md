@@ -1,60 +1,57 @@
-# 东莞农商信用卡不良率11.03%
+# 吉林释放空域红利 构建完整低空经济产业生态
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-来源：城商行研究 前些年野蛮生长的银行信用卡业务，一直是银行零售战略的重点，也是中间业务收入的重要来源之一，受到各大银行的重视。但随着快速生长，信用卡业务的不少问题也暴露出来。 尤其是城商行的信用卡部门更尴尬，和其他大行股份制银行的信用卡业务相比，根本无法形成错位竞争，尤其疫情过后，大家钱越来越难挣，还不上钱了，发现信用卡业务逾期金额越来越高，据某些城商行透露，其信用卡不良率高
+中新社长春5月14日电 (李彦国 高龙安)吉林省优化后的无人驾驶航空器适飞空域14日零时起正式启用。这一关键政策突破，为该省打造低空经济产业集群注入强劲动力。 目前，吉林省已将低空经济与新材料、人工智能、氢能与新型储能等一并纳入“十五五”现代化产业体系。吉林省发展和改革委员会主任李平介绍，该省不仅在无人机研发、零部件配套等领域积累了成熟技术，构建起覆盖研发、制造、运营的全产业链
 
 ## 正文
 
-来源：城商行研究 前些年野蛮生长的银行信用卡业务，一直是银行零售战略的重点，也是中间业务收入的重要来源之一，受到各大银行的重视。
+中新社长春5月14日电 (李彦国 高龙安)吉林省优化后的无人驾驶航空器适飞空域14日零时起正式启用。
 
-但随着快速生长，信用卡业务的不少问题也暴露出来。
+这一关键政策突破，为该省打造低空经济产业集群注入强劲动力。
 
-尤其是城商行的信用卡部门更尴尬，和其他大行股份制银行的信用卡业务相比，根本无法形成错位竞争，尤其疫情过后，大家钱越来越难挣，还不上钱了，发现信用卡业务逾期金额越来越高，据某些城商行透露，其信用卡不良率高达60%。
+目前，吉林省已将低空经济与新材料、人工智能、氢能与新型储能等一并纳入“十五五”现代化产业体系。
 
-近日，东莞农村商业银行发布了2025年度业绩报告，其中一项数据引发了市场广泛关注：截至2025年末，该行信用卡透支不良率高达11.03%，较2024年末的6.02%飙升了5.01个百分点。
+吉林省发展和改革委员会主任李平介绍，该省不仅在无人机研发、零部件配套等领域积累了成熟技术，构建起覆盖研发、制造、运营的全产业链条，还凭借丰富多元的应用场景、坚实的科教人才支撑和独特寒地气候，成为全国开展低空飞行器商业化测试服务的理想区域。
 
-数据背后的惊人事实：高居行业榜首的“异常值” 11.03%这个数字意味着什么？
+2025年2月，长春市发布中国首个低空行业大模型“紫东长空”，由长春净月高新区承建的吉林省低空飞行服务管理平台已集成该大模型，完成长春市主城区约500平方公里的数字地图建模与北斗网格编码布设。
 
-根据2025年上市银行年报数据，在已披露信息的银行中，东莞农商银行的信用卡不良率高居榜首，是行业中一个刺眼的“异常值”。
+被誉为“中国碳谷”的吉林市，是全球最大的碳纤维原丝生产基地、全国最大的碳纤维生产基地。
 
-行业对比：在同期已公布数据的银行里，信用卡不良率最低的邮储银行仅为1.45%，行业平均水平约在2%-3%的区间。
+当地已与多家中外无人机龙头企业开展深度合作，生产无人机结构件、碳纤维预浸料等产品，推动碳纤维材料在无人机领域的应用进程。
 
-这意味着东莞农商银行11.03%的不良率，远超行业平均水平约4倍，甚至数倍于其他排名靠前的银行，呈现出严峻态势。
+李平介绍说，吉林省正在大力培养低空经济人才，吉林大学等18所院校已开设相关专业，全省每年可培养输送3000余名低空经济专业人才，为产业智能化、创新化发展提供坚实智力支撑。
 
 ## 相关推荐
 
-- 2026-06-29 20:10 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 20:03 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 20:02 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-29 20:16 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-29 20:08 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 20:14 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 20:04 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-29 20:25 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-29 20:21 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-29 20:27 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-29 20:08 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 20:22 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-29 20:12 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 20:10 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 20:16 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-29 20:23 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 20:22 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 20:07 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-29 20:19 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 20:12 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-29 20:19 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-29 20:10 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-29 20:31 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 20:11 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 20:15 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:01 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/710177198.shtml)
-- 2026-06-29 20:23 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/171746.shtml)
-- 2026-06-29 20:21 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/455593121.shtml)
-- 2026-06-29 20:09 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.kurohicncr.top/Article/details/33048.shtml)
-- 2026-06-29 20:02 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/3260978856.shtml)
-- 2026-06-29 20:14 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/19351.shtml)
-- 2026-06-29 20:03 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/0642810453.shtml)
-- 2026-06-29 20:09 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/68736395.shtml)
-- 2026-06-29 20:14 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/2606479.shtml)
-- 2026-06-29 20:24 - [林逸向方筱然求婚了](https://www.blog.minike.top/Article/details/241511818.shtml)
-- 2026-06-29 20:13 - [海清4次陪跑白玉兰](http://www.blog.minike.top/Article/details/7936686.shtml)
-- 2026-06-29 20:12 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/295312792.shtml)
-- 2026-06-29 20:29 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.share.minike.top/Article/details/05830490346.shtml)
-- 2026-06-29 20:26 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/9971348.shtml)
-- 2026-06-29 20:07 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/912273582170.shtml)
+- 2026-06-29 20:06 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.minike.top/Article/details/527505882935.shtml)
+- 2026-06-29 20:22 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/1519755.shtml)
+- 2026-06-29 20:29 - [一诺变着花样秀新驾照](http://www.share.minike.top/Article/details/2689172236.shtml)
+- 2026-06-29 20:32 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/196700.shtml)
+- 2026-06-29 20:18 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/585454842.shtml)
+- 2026-06-29 20:17 - [河南高院审委会原委员曲海滨被查](http://www.blog.minike.top/Article/details/9087707780.shtml)
+- 2026-06-29 20:16 - [海口塔吊事故处罚结果公布](https://www.blog.kurohicncr.top/Article/details/0670030.shtml)
+- 2026-06-29 20:35 - [特朗普两大核心赌注将迎高院裁决](http://www.share.minike.top/Article/details/32995918946.shtml)
+- 2026-06-29 20:19 - [恋与深空客服的回应](http://www.blog.minike.top/Article/details/9411647.shtml)
+- 2026-06-29 20:27 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/964056866014.shtml)
+- 2026-06-29 20:11 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/8394770.shtml)
+- 2026-06-29 20:07 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/2013315.shtml)
+- 2026-06-29 20:29 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/71813790.shtml)
+- 2026-06-29 20:18 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/381312443557.shtml)
+- 2026-06-29 20:14 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.minike.top/Article/details/025372359996.shtml)

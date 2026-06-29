@@ -1,48 +1,58 @@
-# 美联航曾提出与美国航空公司合作
+# 亚洲皮划艇激流回旋锦标赛在贵州开赛
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-美联航首席执行官斯科特·柯比与官员讨论了与美国航空合并的可能性，不过任何交易都将面临重大的反垄断审查。责任编辑：张俊 SF065
+中新社贵州凯里5月13日电 (曾琪男 袁超)2026年亚洲皮划艇激流回旋锦标赛13日在贵州省黔东南苗族侗族自治州凯里市下司皮划艇激流回旋基地正式开赛。来自亚洲多国的参赛选手开启为期4天的逐浪竞速之旅。 本次赛事是亚洲皮划艇联合会主办的顶级年度专项赛事，同时为国际皮划艇联合会认证的世界积分赛。赛事吸引了中国、乌兹别克斯坦、哈萨克斯坦、日本、韩国、印度等7个国家和地区的百余名运动员
 
 ## 正文
 
-美联航首席执行官斯科特·柯比与官员讨论了与美国航空合并的可能性，不过任何交易都将面临重大的反垄断审查。
+中新社贵州凯里5月13日电 (曾琪男 袁超)2026年亚洲皮划艇激流回旋锦标赛13日在贵州省黔东南苗族侗族自治州凯里市下司皮划艇激流回旋基地正式开赛。
 
-责任编辑：张俊 SF065
+来自亚洲多国的参赛选手开启为期4天的逐浪竞速之旅。
+
+本次赛事是亚洲皮划艇联合会主办的顶级年度专项赛事，同时为国际皮划艇联合会认证的世界积分赛。
+
+赛事吸引了中国、乌兹别克斯坦、哈萨克斯坦、日本、韩国、印度等7个国家和地区的百余名运动员参赛。
+
+赛事共设男子单人皮艇、男子单人划艇、女子单人皮艇、女子单人划艇等12个小项，其中6项为洛杉矶奥运会正式竞赛项目。
+
+作为赛事承办地，下司基地拥有全长490米、落差达6.8米的奥运标准赛道，水流量大(15—20米/秒)，融合了国际典型水流特征，被誉为“世界上最具挑战性的激流回旋赛场”之一。
+
+此次赛事在贵州举办，既为亚洲各国皮划艇健儿搭建了切磋技艺、交流互鉴的专业平台，也进一步擦亮了黔东南州山地户外赛事名片，提升地方国际知名度与美誉度，为区域文旅体高质量融合发展持续注入动能。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 20:22 - [委内瑞拉发生余震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-29 20:14 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-29 20:00 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-29 20:26 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 20:06 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 20:12 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 20:09 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-29 20:02 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-29 20:15 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 20:14 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-29 20:09 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-29 20:07 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 20:29 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 20:23 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 20:25 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-29 20:20 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 20:20 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 20:31 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 20:07 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 20:27 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 20:18 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 20:21 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-29 20:12 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 20:31 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-29 20:14 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 20:14 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:25 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/719072.shtml)
-- 2026-06-29 20:14 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/2655242861.shtml)
-- 2026-06-29 20:13 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/7302582.shtml)
-- 2026-06-29 20:15 - [当家电外通风口出现鸟窝](http://www.blog.minike.top/Article/details/0314651671.shtml)
-- 2026-06-29 20:22 - [巴西球员：日本队有点傲慢了](https://www.blog.minike.top/Article/details/610026295.shtml)
-- 2026-06-29 20:08 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/17808330.shtml)
-- 2026-06-29 20:00 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/8928371874.shtml)
-- 2026-06-29 20:25 - [本届世界杯已有5人涉性侵风波](https://www.blog.kurohicncr.top/Article/details/64401278612.shtml)
-- 2026-06-29 20:23 - [女生学医适合选什么专业](https://www.share.kurohicncr.top/Article/details/3457091.shtml)
-- 2026-06-29 20:27 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/3542886376.shtml)
-- 2026-06-29 20:30 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.minike.top/Article/details/94842586.shtml)
-- 2026-06-29 20:14 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/796723096384.shtml)
-- 2026-06-29 20:09 - [乔家的儿女](http://www.share.minike.top/Article/details/85750.shtml)
-- 2026-06-29 20:09 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/058334.shtml)
-- 2026-06-29 20:08 - [恋与深空7天掉粉超50万](https://www.share.kurohicncr.top/Article/details/15428580352.shtml)
+- 2026-06-29 20:11 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.minike.top/Article/details/617802538.shtml)
+- 2026-06-29 20:26 - [爱奇艺抬高国剧新标尺](http://www.blog.kurohicncr.top/Article/details/3992062470.shtml)
+- 2026-06-29 20:34 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/885106438417.shtml)
+- 2026-06-29 20:13 - [官媒首曝六代机？大V解读](https://www.blog.minike.top/Article/details/699952.shtml)
+- 2026-06-29 20:20 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/83439677.shtml)
+- 2026-06-29 20:26 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.share.kurohicncr.top/Article/details/54345259554.shtml)
+- 2026-06-29 20:07 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.minike.top/Article/details/4754006.shtml)
+- 2026-06-29 20:10 - [青春环游记第三季](http://www.blog.minike.top/Article/details/7790114321.shtml)
+- 2026-06-29 20:23 - [胡光宇一审获刑13年](http://www.share.kurohicncr.top/Article/details/234555.shtml)
+- 2026-06-29 20:34 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/527172265.shtml)
+- 2026-06-29 20:10 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/110647424925.shtml)
+- 2026-06-29 20:30 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/84744.shtml)
+- 2026-06-29 20:17 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/300718804.shtml)
+- 2026-06-29 20:11 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/4444095699.shtml)
+- 2026-06-29 20:12 - [扬名立万](http://www.share.kurohicncr.top/Article/details/76643.shtml)

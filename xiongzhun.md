@@ -1,51 +1,58 @@
-# 成都：智元西南具身智能产业基地将亮相 推动自主化作业技术落地
+# 详讯：习近平同美国总统特朗普参观天坛
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月15日 12:29 来源：中国新闻网 近日，成都郫都区智元西南具身智能产业基地(以下简称基地)核心生产线已进入试产阶段，预计4月底正式投产亮相。 基地规划建设生产制造中心、数据采集中心、产业应用联合实验中心、人才培养中心等，将聚焦人形机器人、智能交互、自主决策等前沿技术，全力推动技术成果产业化。 据悉，智元创新(上海)科技股份有限公司与郫都区于2025
+中新社北京5月14日电 5月14日，中国国家主席习近平同来华进行国事访问的美国总统特朗普参观天坛。 初夏的天坛，古柏含章，清风送爽。习近平在祈年殿迎接特朗普到访。 习近平同特朗普在轩朗开阔的祈年殿广场合影。 祈年殿气势恢宏，重檐琉光。两国元首拾阶而上，步入祈年殿，共同欣赏榫卯斗拱精准契合、天文历法与殿宇结构完美融合的建筑特点，感受其中和谐万物、顺天应时的理念。 习近平指出，20
 
 ## 正文
 
-发布时间：2026年04月15日 12:29 来源：中国新闻网 近日，成都郫都区智元西南具身智能产业基地(以下简称基地)核心生产线已进入试产阶段，预计4月底正式投产亮相。
+中新社北京5月14日电 5月14日，中国国家主席习近平同来华进行国事访问的美国总统特朗普参观天坛。
 
-基地规划建设生产制造中心、数据采集中心、产业应用联合实验中心、人才培养中心等，将聚焦人形机器人、智能交互、自主决策等前沿技术，全力推动技术成果产业化。
+初夏的天坛，古柏含章，清风送爽。
 
-据悉，智元创新(上海)科技股份有限公司与郫都区于2025年11月正式签约，共建西南具身智能产业基地。
+习近平在祈年殿迎接特朗普到访。
 
-(杨予頔） 责任编辑：【苏亦瑜】
+习近平同特朗普在轩朗开阔的祈年殿广场合影。
+
+祈年殿气势恢宏，重檐琉光。
+
+两国元首拾阶而上，步入祈年殿，共同欣赏榫卯斗拱精准契合、天文历法与殿宇结构完美融合的建筑特点，感受其中和谐万物、顺天应时的理念。
+
+习近平指出，2017年我们沿着北京中轴线参观了故宫。
+
+今天参观的天坛和故宫同龄，寓意“天圆地方”，展现出中国人的宇宙观和处世哲学。
 
 ## 相关推荐
 
-- 2026-06-29 20:28 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 20:13 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-29 20:14 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 20:14 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 20:25 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-29 20:26 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 20:18 - [女生学医适合选什么专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 20:08 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 20:12 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-29 20:08 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-29 20:12 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 20:10 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 20:08 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 20:27 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-29 20:16 - [伊朗足球队将启程回国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 20:08 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 20:28 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-29 20:35 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 20:26 - [CORTIS 小牌大耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 20:22 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-29 20:24 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 20:17 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-29 20:13 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 20:27 - [专家预计全球央行加息节奏将出现反复](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-29 20:21 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:17 - [美国一牛仔表演发生事故](http://www.blog.minike.top/Article/details/77165493497.shtml)
-- 2026-06-29 20:20 - [男子40度高温下骑行严重晒伤](http://www.blog.minike.top/Article/details/42809059906.shtml)
-- 2026-06-29 20:14 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/3447197.shtml)
-- 2026-06-29 20:06 - [美人鱼](https://www.blog.minike.top/Article/details/700625060458.shtml)
-- 2026-06-29 20:22 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/957721617.shtml)
-- 2026-06-29 20:21 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/649637.shtml)
-- 2026-06-29 20:08 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/445732796.shtml)
-- 2026-06-29 20:22 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/71724.shtml)
-- 2026-06-29 20:03 - [电动车主等红灯遭三轮车上横杆砸头](http://www.share.kurohicncr.top/Article/details/9685303826.shtml)
-- 2026-06-29 20:02 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/56503.shtml)
-- 2026-06-29 20:20 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/4742418.shtml)
-- 2026-06-29 20:17 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/96671315178.shtml)
-- 2026-06-29 20:23 - [周杰伦演唱会含星量](http://www.share.minike.top/Article/details/23107995933.shtml)
-- 2026-06-29 20:18 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/2424350.shtml)
-- 2026-06-29 20:18 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/4073907.shtml)
+- 2026-06-29 20:31 - [2026全国田径冠军赛江苏队4金收官](http://www.share.minike.top/Article/details/18356518725.shtml)
+- 2026-06-29 20:34 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/6274931365.shtml)
+- 2026-06-29 20:25 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.share.kurohicncr.top/Article/details/1816785779.shtml)
+- 2026-06-29 20:27 - [高质量发展看新疆](https://www.blog.minike.top/Article/details/07034.shtml)
+- 2026-06-29 20:30 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.kurohicncr.top/Article/details/659691.shtml)
+- 2026-06-29 20:28 - [宜宾地震后铁路工作人员叫停列车](http://www.share.kurohicncr.top/Article/details/6130257.shtml)
+- 2026-06-29 20:09 - [极限挑战第一季](https://www.share.minike.top/Article/details/68119659.shtml)
+- 2026-06-29 20:22 - [日媒：日本高价采购“战斧”变冤大头](https://www.share.minike.top/Article/details/1985804.shtml)
+- 2026-06-29 20:29 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/2372425548.shtml)
+- 2026-06-29 20:30 - [王冰冰向全网安利哈兰德](http://www.share.kurohicncr.top/Article/details/7812366.shtml)
+- 2026-06-29 20:27 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/3501310926.shtml)
+- 2026-06-29 20:06 - [电影《抓特务》总票房破亿](http://www.blog.minike.top/Article/details/70342858.shtml)
+- 2026-06-29 20:27 - [曝屠颖去世和酒店失责有关](http://www.blog.minike.top/Article/details/057555.shtml)
+- 2026-06-29 20:11 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/89147465185.shtml)
+- 2026-06-29 20:09 - [不烧钱的低成本爱好](https://www.blog.minike.top/Article/details/666083107474.shtml)

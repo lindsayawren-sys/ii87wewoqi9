@@ -1,59 +1,59 @@
-# 英伟达否认收购传闻 盘中大涨的戴尔和惠普在盘后交易中下跌
+# 日本Eneos斥资22亿美元收购雪佛龙部分亚洲石油资产
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-英伟达公司否认了网站SemiAccurate的一篇报道。该报道称，英伟达正寻求收购一家大型公司，此举将“重塑个人电脑行业格局”。 该网站称，英伟达就这笔交易的谈判已持续了一年多。这篇报道引发个人电脑制造商戴尔科技和惠普公司的股价在周一上涨。 英伟达公司一位发言人表示：“媒体报道不实，英伟达没有在磋商收购任何个人电脑制造商。” 戴尔和惠普都在全球最大的个人电脑供应商之列。根据行业
+日本炼油企业Eneos控股株式会社已同意以21.7亿美元收购雪佛龙公司在亚太地区的部分炼油和零售资产，从而大幅扩大其在该地区的业务版图。 据这家东京上市公司发布的声明，此次收购的资产包括雪佛龙在新加坡一家炼油厂持有的50%股份，以及在新加坡、马来西亚、菲律宾、澳大利亚和印尼的其他资产。Eneos是日本最大的炼油商，在日本各地运营原油加工厂和燃油零售网络。 此次交易使Eneos首
 
 ## 正文
 
-英伟达公司否认了网站SemiAccurate的一篇报道。
+日本炼油企业Eneos控股株式会社已同意以21.7亿美元收购雪佛龙公司在亚太地区的部分炼油和零售资产，从而大幅扩大其在该地区的业务版图。
 
-该报道称，英伟达正寻求收购一家大型公司，此举将“重塑个人电脑行业格局”。
+据这家东京上市公司发布的声明，此次收购的资产包括雪佛龙在新加坡一家炼油厂持有的50%股份，以及在新加坡、马来西亚、菲律宾、澳大利亚和印尼的其他资产。
 
-该网站称，英伟达就这笔交易的谈判已持续了一年多。
+Eneos是日本最大的炼油商，在日本各地运营原油加工厂和燃油零售网络。
 
-这篇报道引发个人电脑制造商戴尔科技和惠普公司的股价在周一上涨。
+此次交易使Eneos首次在日本以外的炼油厂持有股份，并增强其在亚洲石油贸易和供应中心新加坡的影响力。
 
-英伟达公司一位发言人表示：“媒体报道不实，英伟达没有在磋商收购任何个人电脑制造商。
+今年早些时候雪佛龙同意以2.7亿美元，将香港燃料业务售予Bangchak Corp．。
 
-” 戴尔和惠普都在全球最大的个人电脑供应商之列。
+而包括埃克森美孚公司在内的其他石油巨头近年来也在出售东南亚资产。
 
-根据行业研究公司Gartner的数据，总部位于加利福尼亚州帕洛阿尔托的惠普在第一季度占全球市场的19%，仅次于联想集团，后者的市场占有率接近27%。
-
-总部位于德克萨斯州Round Rock的戴尔的市场份额约为17%。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 20:11 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 20:18 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 20:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-29 20:00 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 20:02 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-29 20:24 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-29 20:04 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-29 20:06 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 20:22 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-29 20:11 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 20:26 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-29 20:28 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-29 20:17 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 20:28 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 20:28 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 20:23 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 20:26 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 20:28 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 20:15 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 20:22 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 20:13 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-29 20:16 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 20:28 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 20:18 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 20:19 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-29 20:15 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 20:26 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 20:33 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:18 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/323889540187.shtml)
-- 2026-06-29 20:15 - [斛珠夫人](https://www.share.minike.top/Article/details/230841182.shtml)
-- 2026-06-29 20:27 - [欧洲安装一台空调要花近8000元](http://www.share.kurohicncr.top/Article/details/3941959696.shtml)
-- 2026-06-29 20:01 - [宜宾地震后铁路工作人员叫停列车](http://www.share.kurohicncr.top/Article/details/496205802.shtml)
-- 2026-06-29 20:24 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/2724891.shtml)
-- 2026-06-29 20:26 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/45983.shtml)
-- 2026-06-29 20:02 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/88728637.shtml)
-- 2026-06-29 20:11 - [佛得角队长门德斯被控强奸](http://www.share.minike.top/Article/details/6311136.shtml)
-- 2026-06-29 20:06 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/30538.shtml)
-- 2026-06-29 20:24 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/709057.shtml)
-- 2026-06-29 20:16 - [韩国股市绑架日本？高盛警告](https://www.share.kurohicncr.top/Article/details/5654929114.shtml)
-- 2026-06-29 20:23 - [穆祉丞东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/365190093.shtml)
-- 2026-06-29 20:26 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.share.minike.top/Article/details/203008218571.shtml)
-- 2026-06-29 20:12 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/800073522.shtml)
-- 2026-06-29 20:20 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.share.kurohicncr.top/Article/details/2274011.shtml)
+- 2026-06-29 20:30 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/6890200.shtml)
+- 2026-06-29 20:12 - [《新闻联播》正在直播](https://www.share.kurohicncr.top/Article/details/921671162.shtml)
+- 2026-06-29 20:34 - [央视曝光高价回收老物件骗局](http://www.blog.kurohicncr.top/Article/details/45469696.shtml)
+- 2026-06-29 20:20 - [张杰我九岁就跟你了](https://www.share.minike.top/Article/details/4807602500.shtml)
+- 2026-06-29 20:34 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/91770094328.shtml)
+- 2026-06-29 20:33 - [TOP Prada](https://www.share.minike.top/Article/details/948054677340.shtml)
+- 2026-06-29 20:08 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/943149.shtml)
+- 2026-06-29 20:06 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.kurohicncr.top/Article/details/434439693412.shtml)
+- 2026-06-29 20:22 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/096259621.shtml)
+- 2026-06-29 20:14 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/2415215035.shtml)
+- 2026-06-29 20:17 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/861398878389.shtml)
+- 2026-06-29 20:13 - [日本足球能掀翻巴西吗](http://www.share.kurohicncr.top/Article/details/175331748.shtml)
+- 2026-06-29 20:09 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/411265754.shtml)
+- 2026-06-29 20:15 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/92378841866.shtml)
+- 2026-06-29 20:26 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.kurohicncr.top/Article/details/428941.shtml)

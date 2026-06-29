@@ -1,46 +1,56 @@
-# 快讯：多晶硅主力合约日内涨幅扩大至6.00%，触及35950元/吨
+# 2026年广州将新建500个低空起降设施
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-北京时间4月14日上午，多晶硅主力合约日内涨幅扩大至6.00%，最高触及35950元/吨。 责任编辑：朱赫楠
+中新社广州5月13日电 (王华 潘俊林)“机遇之城 热气腾腾”系列招商发布活动之低空经济产业专场13日在广州举行。广州市政府官员在活动上表示，2026年该市将新建500个低空起降设施。 活动中，广州市发展和改革委员会发布了广州低空经济产业发展机会以及广州空天产业投资基金。 广州市低空航天产业办常务副主任、市发改委副主任乐茂表示，2026年，广州市将新建500个低空起降设施；规划
 
 ## 正文
 
-北京时间4月14日上午，多晶硅主力合约日内涨幅扩大至6.00%，最高触及35950元/吨。
+中新社广州5月13日电 (王华 潘俊林)“机遇之城 热气腾腾”系列招商发布活动之低空经济产业专场13日在广州举行。
 
-责任编辑：朱赫楠
+广州市政府官员在活动上表示，2026年该市将新建500个低空起降设施。
+
+活动中，广州市发展和改革委员会发布了广州低空经济产业发展机会以及广州空天产业投资基金。
+
+广州市低空航天产业办常务副主任、市发改委副主任乐茂表示，2026年，广州市将新建500个低空起降设施；规划建设长测试跑道，为吨级重载无人机研发制造提供测试条件；打造沿珠江6公里低空安全管控测试区。
+
+乐茂还称，广州正加快推进珠江两岸文旅测试航线，探索在广州城区沿江公园及珠江沿岸人口密度较低区域设立典型运营示范点，打造“穗港码头-琶洲临江公园-海心沙-白鹅潭-太古仓”载人低空飞行应用示范航线，推动商业化运营。
+
+据了解，广州将提升eVTOL、无人机等新型航空器供应链本地化能力，推进电池电机电控、导航系统、智能飞控等零部件企业适配性改造，培育本土零部件领域标杆企业，实现“不出广州就能造飞机”“广州造、卖全球”。
+
+活动期间发布的广州空天产业投资基金，目标总规模为200亿元人民币，由广州市级财政、各级国有企业和政府性基金以及金融机构等多方主体共同出资。
+
+该基金投资范围为低空经济与航空航天全产业链，包括关键原材料供应，核心零部件制造，航空器及配套设施以及低空物流、文旅、出行、政务飞行和航空运输、航天发射等应用和服务场景项目。
 
 ## 相关推荐
 
-- 2026-06-29 20:08 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-29 20:00 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 20:17 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-29 20:29 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 20:16 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-29 20:04 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-29 20:22 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 20:24 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-29 20:16 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-29 20:17 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 20:27 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-29 20:29 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-29 20:12 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 20:31 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 20:15 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 20:11 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 20:10 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 20:10 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-29 20:15 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 20:29 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-29 20:26 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-29 20:31 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:24 - [李思潼：不会介意大家夸我运气好](https://www.blog.minike.top/Article/details/4063626424.shtml)
-- 2026-06-29 20:23 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/9754173293.shtml)
-- 2026-06-29 20:05 - [一生一世](https://www.blog.kurohicncr.top/Article/details/43919.shtml)
-- 2026-06-29 20:29 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/124266850.shtml)
-- 2026-06-29 20:03 - [朱雀三号完成静态点火试验](https://www.blog.minike.top/Article/details/69202480340.shtml)
-- 2026-06-29 20:13 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/4257198.shtml)
-- 2026-06-29 20:09 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/4830133.shtml)
-- 2026-06-29 20:09 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/18443255.shtml)
-- 2026-06-29 20:09 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/19231.shtml)
-- 2026-06-29 20:06 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/512998.shtml)
-- 2026-06-29 20:00 - [王楚钦称抽签结果出来心情不好](http://www.blog.kurohicncr.top/Article/details/00709511215.shtml)
-- 2026-06-29 20:15 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/157471.shtml)
-- 2026-06-29 20:08 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/08920279.shtml)
-- 2026-06-29 20:02 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/7812613958.shtml)
-- 2026-06-29 20:23 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/3222780975.shtml)
+- 2026-06-29 20:18 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/12039529.shtml)
+- 2026-06-29 20:28 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/9346500245.shtml)
+- 2026-06-29 20:28 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/31764848317.shtml)
+- 2026-06-29 20:14 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/3913714.shtml)
+- 2026-06-29 20:28 - [恋与深空7天掉粉超50万](https://www.share.kurohicncr.top/Article/details/213959731.shtml)
+- 2026-06-29 20:25 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/329317066.shtml)
+- 2026-06-29 20:34 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/04574.shtml)
+- 2026-06-29 20:08 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/17549.shtml)
+- 2026-06-29 20:28 - [急先锋](https://www.blog.kurohicncr.top/Article/details/536468.shtml)
+- 2026-06-29 20:17 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/02799.shtml)
+- 2026-06-29 20:07 - [欧洲高温会成下个印度吗](http://www.share.kurohicncr.top/Article/details/813117.shtml)
+- 2026-06-29 20:27 - [曝屠颖去世和酒店失责有关](https://www.share.minike.top/Article/details/453115.shtml)
+- 2026-06-29 20:25 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/18597327919.shtml)
+- 2026-06-29 20:21 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/10846560395.shtml)
+- 2026-06-29 20:35 - [日美楼市危机复盘：见底顺序曝光](https://www.blog.kurohicncr.top/Article/details/6241973.shtml)

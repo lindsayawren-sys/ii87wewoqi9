@@ -1,61 +1,54 @@
-# 得州就“永久性化学品”问题调查Lululemon，公司称已停止使用
+# 江西乐安县牧原养殖场污水疑似排入河道？官方：已立案调查
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-得克萨斯州总检察长肯·帕克斯顿（Ken Paxton）已对知名运动休闲品牌Lululemon正式发起调查，以核实其产品中是否含有对人体健康构成潜在风险的“永久性化学品”，以及该公司是否在相关问题上误导了消费者。这一调查由帕克斯顿办公室于本周一（4月13日）通过向Lululemon美国公司发出民事调查令正式启动。 调查的焦点与担忧 此次调查的核心是全氟烷基和多氟烷基物质（PFAS
+中新网5月14日电 据“乐安发布”微信公众号消息，江西抚州乐安县联合调查组14日发布情况通报称，2026年5月13日，有网友反映乐安县牧原养殖场污水疑似排入河道。乐安县高度重视，立即成立由县生态环境局、县农业农村局等部门组成的联合调查组，现场开展调查处置工作。 经核查，污水系乐安牧原农牧有限公司开展水肥还田作业时，水肥渗漏流入下游沟渠。事情发生后，已采取沟渠封堵、水肥回抽、石灰
 
 ## 正文
 
-得克萨斯州总检察长肯·帕克斯顿（Ken Paxton）已对知名运动休闲品牌Lululemon正式发起调查，以核实其产品中是否含有对人体健康构成潜在风险的“永久性化学品”，以及该公司是否在相关问题上误导了消费者。
+中新网5月14日电 据“乐安发布”微信公众号消息，江西抚州乐安县联合调查组14日发布情况通报称，2026年5月13日，有网友反映乐安县牧原养殖场污水疑似排入河道。
 
-这一调查由帕克斯顿办公室于本周一（4月13日）通过向Lululemon美国公司发出民事调查令正式启动。
+乐安县高度重视，立即成立由县生态环境局、县农业农村局等部门组成的联合调查组，现场开展调查处置工作。
 
-调查的焦点与担忧 此次调查的核心是全氟烷基和多氟烷基物质（PFAS），即俗称的“永久性化学品”。
+经核查，污水系乐安牧原农牧有限公司开展水肥还田作业时，水肥渗漏流入下游沟渠。
 
-这类合成化学品因其在环境和人体中极难分解而得名，长期接触可能带来一系列健康风险。
+事情发生后，已采取沟渠封堵、水肥回抽、石灰消杀等应急处理措施，污水渗漏已控制。
 
-帕克斯顿办公室在声明中指出，已有研究将PFAS与内分泌紊乱、不孕不育甚至某些癌症等健康问题相关联。
-
-调查的核心争议点在于，Lululemon一直以“健康”和“可持续发展”作为品牌核心进行市场营销，其消费者多为注重健康生活方式的群体。
-
-总检察长办公室认为，若其产品中确实含有PFAS，则与品牌宣传的健康形象不符，可能构成对消费者的“欺骗”。
-
-德克萨斯州总检察长肯·帕克斯顿在声明中强调：“美国人不应该在为自己和家人做出健康选择时，还担心自己是否被欺骗”，“我不会允许任何公司在健康与可持续发展的幌子下，向消费者高价销售有害、有毒的材料”。
+目前，生态环境部门已对乐安牧原农牧有限公司进行立案调查。
 
 ## 相关推荐
 
-- 2026-06-29 20:24 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-29 20:21 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-29 20:06 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-29 20:24 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-29 20:19 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-29 20:01 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-29 20:02 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 20:19 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-29 20:25 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 20:25 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-29 20:10 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-29 20:11 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 20:28 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-29 20:10 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 20:11 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 20:09 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 20:08 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 20:14 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 20:24 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 20:26 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 20:14 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 20:34 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-29 20:36 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 20:29 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 20:14 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-29 20:26 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 20:18 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-29 20:35 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 20:06 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:16 - [张杰我九岁就跟你了](http://www.blog.kurohicncr.top/Article/details/942483575.shtml)
-- 2026-06-29 20:20 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/93386151875.shtml)
-- 2026-06-29 20:14 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/91491160739.shtml)
-- 2026-06-29 20:21 - [东宫女主是不是顶级恋爱脑](http://www.share.kurohicncr.top/Article/details/463385.shtml)
-- 2026-06-29 20:01 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/77876786.shtml)
-- 2026-06-29 20:23 - [爱很美味](http://www.share.kurohicncr.top/Article/details/77799.shtml)
-- 2026-06-29 20:11 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/258318166.shtml)
-- 2026-06-29 20:21 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/45353.shtml)
-- 2026-06-29 20:02 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/2147425.shtml)
-- 2026-06-29 20:22 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/14814.shtml)
-- 2026-06-29 20:08 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/7064411006.shtml)
-- 2026-06-29 20:06 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/5333407843.shtml)
-- 2026-06-29 20:09 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/9164994.shtml)
-- 2026-06-29 20:24 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/833893857980.shtml)
-- 2026-06-29 20:28 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/207156709.shtml)
+- 2026-06-29 20:30 - [请回答王牌2019](http://www.share.minike.top/Article/details/94858.shtml)
+- 2026-06-29 20:28 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.blog.minike.top/Article/details/3036743.shtml)
+- 2026-06-29 20:24 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/865019763.shtml)
+- 2026-06-29 20:12 - [曝屠颖去世和酒店失责有关](http://www.blog.minike.top/Article/details/11557.shtml)
+- 2026-06-29 20:21 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/49682944.shtml)
+- 2026-06-29 20:18 - [郑钦文谈再战西尼亚科娃](https://www.blog.minike.top/Article/details/5801245380.shtml)
+- 2026-06-29 20:12 - [宜宾地震后铁路工作人员叫停列车](http://www.share.kurohicncr.top/Article/details/416815812610.shtml)
+- 2026-06-29 20:33 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/448220.shtml)
+- 2026-06-29 20:34 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/0880967524.shtml)
+- 2026-06-29 20:20 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/901064958.shtml)
+- 2026-06-29 20:23 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/09944440.shtml)
+- 2026-06-29 20:09 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/93649958.shtml)
+- 2026-06-29 20:22 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/447930102.shtml)
+- 2026-06-29 20:24 - [高考1357分的同学如何报志愿？](http://www.share.kurohicncr.top/Article/details/2815510.shtml)
+- 2026-06-29 20:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/23498196711.shtml)

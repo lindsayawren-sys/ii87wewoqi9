@@ -1,58 +1,61 @@
-# 欧盟中国商会呼吁同方威视诉欧盟委员会案听证会切勿成为“程序秀”
+# 郑氏宗亲代表：传承郑成功忠义精神 坚决反对“台独”分裂
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-中新网布鲁塞尔4月14日电 (记者 德永健)总部设在布鲁塞尔的欧盟中国商会13日发表声明，呼吁中国企业同方威视诉欧盟委员会案听证会应成为还原事实真相的契机，而非“一场走过场的程序秀”。 声明表示，4月14日，同方威视诉欧盟委员会案听证会将在欧盟司法机构欧盟普通法院举行，听证会距离欧盟委员会对同方威视进行突袭检查及同方威视提起诉讼已有近两年时间，凸显案件审理的复杂性和紧迫性。 声
+发布时间：2026年05月13日 14:40 来源：中国新闻网 5月13日，第三届海峡两岸中华文化峰会宗亲文化论坛在北京台湾会馆举办。台湾世界郑氏宗亲总会总会长郑传兴接受中新社记者专访时介绍，国民党主席郑丽文现任世界郑氏宗亲总会名誉总会长，总会召开大会时，郑丽文均到场莅临支持与鼓励。他表示，团结才有力量，搞“台独”就是搞分裂。他指出，郑成功是民族英雄，身上承载着忠义精神。目前台
 
 ## 正文
 
-中新网布鲁塞尔4月14日电 (记者 德永健)总部设在布鲁塞尔的欧盟中国商会13日发表声明，呼吁中国企业同方威视诉欧盟委员会案听证会应成为还原事实真相的契机，而非“一场走过场的程序秀”。
+发布时间：2026年05月13日 14:40 来源：中国新闻网 5月13日，第三届海峡两岸中华文化峰会宗亲文化论坛在北京台湾会馆举办。
 
-声明表示，4月14日，同方威视诉欧盟委员会案听证会将在欧盟司法机构欧盟普通法院举行，听证会距离欧盟委员会对同方威视进行突袭检查及同方威视提起诉讼已有近两年时间，凸显案件审理的复杂性和紧迫性。
+台湾世界郑氏宗亲总会总会长郑传兴接受中新社记者专访时介绍，国民党主席郑丽文现任世界郑氏宗亲总会名誉总会长，总会召开大会时，郑丽文均到场莅临支持与鼓励。
 
-声明表示，同方威视采取法律行动是被迫的，也是必要的，旨在澄清事实、纠正不当执法行为。
+他表示，团结才有力量，搞“台独”就是搞分裂。
 
-欧盟中国商会坚定支持同方威视通过法律途径维护自身合法权益。
+他指出，郑成功是民族英雄，身上承载着忠义精神。
 
-声明指出，欧盟委员会对中国企业发起《外国补贴条例》(FSR)调查的程序长期缺乏透明度和可预测性，且针对性过强，构成事实上的歧视性执法，严重打击中资企业在欧发展的信心。
+目前台湾仅有两大宗祠祭典，分别为孔子祭典与郑成功祭典。
 
-如果“公平”因执法者的倾向而失衡，那么所谓的“市场公平”将无从谈起。
+每年的4月29日举行郑成功宗祠祭典，台湾全省各地及海内外宗亲都会参与祭拜。
 
-声明呼吁，同方威视诉欧盟委员会案听证会应成为还原事实真相的契机，而非一场走过场的程序秀。
+郑传兴表示，必须将郑成功的伟大精神延续传承下去，让年轻一代知晓历史渊源，明白有郑成功，才有如今的台湾。
 
-希望欧方停止以“监管”为名、行“排挤”之实的做法，确保在欧中企获得非歧视的法律保护和市场待遇。
+(记者 范思忆 制作 王佳琪) 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-29 20:09 - [郑钦文谈再战西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-29 20:01 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-29 20:23 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-29 20:05 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 20:18 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 20:19 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 20:05 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-29 20:13 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 20:03 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 20:07 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-29 20:18 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-29 20:17 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 20:31 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 20:29 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-29 20:24 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 20:10 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-29 20:15 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 20:24 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 20:24 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-29 20:20 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 20:18 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 20:10 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 20:19 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 20:18 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-29 20:10 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-29 20:20 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-29 20:12 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:28 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/277597505017.shtml)
-- 2026-06-29 20:00 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/012674682501.shtml)
-- 2026-06-29 20:22 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.minike.top/Article/details/639317.shtml)
-- 2026-06-29 20:17 - [哈兰德玩游戏连女友都不让着](http://www.share.kurohicncr.top/Article/details/043005.shtml)
-- 2026-06-29 20:24 - [赵今麦时隔五年再演李诗情](http://www.blog.kurohicncr.top/Article/details/2991073894.shtml)
-- 2026-06-29 20:00 - [流金岁月](https://www.share.kurohicncr.top/Article/details/139611750689.shtml)
-- 2026-06-29 20:09 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/543060844.shtml)
-- 2026-06-29 20:18 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/510463255.shtml)
-- 2026-06-29 20:07 - [夫妻生活太无聊，所以我……](https://www.blog.minike.top/Article/details/53966702839.shtml)
-- 2026-06-29 20:22 - [周杰伦千禧年就有小卡了](https://www.blog.kurohicncr.top/Article/details/43667096150.shtml)
-- 2026-06-29 20:25 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/56510462703.shtml)
-- 2026-06-29 20:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/1493426114.shtml)
-- 2026-06-29 20:00 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/0157761.shtml)
-- 2026-06-29 20:03 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/229007.shtml)
-- 2026-06-29 20:01 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/67881902273.shtml)
+- 2026-06-29 20:35 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/106702661587.shtml)
+- 2026-06-29 20:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/2279789391.shtml)
+- 2026-06-29 20:12 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/74607448923.shtml)
+- 2026-06-29 20:11 - [《贺子珍》](http://www.blog.minike.top/Article/details/2909341.shtml)
+- 2026-06-29 20:12 - [王楚钦称抽签结果出来心情不好](http://www.blog.minike.top/Article/details/37145116348.shtml)
+- 2026-06-29 20:13 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/3336431.shtml)
+- 2026-06-29 20:24 - [第二波数码涨价潮来袭](https://www.share.minike.top/Article/details/50443823767.shtml)
+- 2026-06-29 20:22 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/42993738113.shtml)
+- 2026-06-29 20:29 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/67754.shtml)
+- 2026-06-29 20:11 - [德国医生在没有空调的手术室工作](https://www.share.kurohicncr.top/Article/details/01902525921.shtml)
+- 2026-06-29 20:15 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/14764.shtml)
+- 2026-06-29 20:12 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/053977309.shtml)
+- 2026-06-29 20:31 - [新官上任三把火](https://www.share.minike.top/Article/details/76684641716.shtml)
+- 2026-06-29 20:25 - [2026全国田径冠军赛江苏队4金收官](https://www.blog.minike.top/Article/details/919698140473.shtml)
+- 2026-06-29 20:30 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/32736400594.shtml)

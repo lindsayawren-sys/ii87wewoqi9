@@ -1,59 +1,56 @@
-# 凌锐控股控股权易主获折让约34.0%提全购要约 4月15日复牌
+# 声声鼓劲同筑梦 处处关情促振兴——农工党中央定点帮扶大方县工作综述
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-凌锐控股（00784）及要约人HAPBIOTECH INVESTMENT HOLDING LIMITED联合公布，于2026年4月9日，要约人已完成购买约5.6亿股股份，相当于公司于本联合公告日期已发行股本总额的70.02%。代价为约1.33亿港元（相当于每股待售股份0.2375港元）。 紧随完成后及于本联合公告日期，要约人及其一致行动人共持有约5.6亿股股份，占已发行股份的7
+1988年毕节试验区建立，农工党中央就和大方县结下深情厚谊。1994年11月，农工党中央正式定点帮扶大方县，从此与这片土地同频共振。30多年来，农工党中央充分发挥医药卫生人才密集的界别优势，推行“中央统筹、项目依托、结对帮扶、沉底乡镇”帮扶模式，举全党之力帮扶大方县。2021年，实现全国30个省级组织、15个副省级城市组织和12个专委会“一对多”“多对一”结对帮扶大方县29个乡
 
 ## 正文
 
-凌锐控股（00784）及要约人HAPBIOTECH INVESTMENT HOLDING LIMITED联合公布，于2026年4月9日，要约人已完成购买约5.6亿股股份，相当于公司于本联合公告日期已发行股本总额的70.02%。
+1988年毕节试验区建立，农工党中央就和大方县结下深情厚谊。
 
-代价为约1.33亿港元（相当于每股待售股份0.2375港元）。
+1994年11月，农工党中央正式定点帮扶大方县，从此与这片土地同频共振。
 
-紧随完成后及于本联合公告日期，要约人及其一致行动人共持有约5.6亿股股份，占已发行股份的70.02%。
+30多年来，农工党中央充分发挥医药卫生人才密集的界别优势，推行“中央统筹、项目依托、结对帮扶、沉底乡镇”帮扶模式，举全党之力帮扶大方县。
 
-根据收购守则规则26.1，要约人须作出强制性无条件现金要约，以收购公司已发行股本中的全部股份（不包括要约人及其一致行动人士已拥有及╱或同意收购的股份）。
+2021年，实现全国30个省级组织、15个副省级城市组织和12个专委会“一对多”“多对一”结对帮扶大方县29个乡(镇、街道)，帮扶全域覆盖。
 
-财务顾问红日资本（代表要约人）将遵照收购守则及按照根据收购守则将予刊发的综合文件所载的条款，按以下基准作出要约，每股要约股份现金0.2375港元，较于最后交易日在联交所所报收市价每股0.360港元折让约34.0%。
+2023年7月，中央统战部启动统一战线“地域+领域”组团式帮扶毕节新机制，农工党中央绵绵用力，对大方开展全方位、立体式精准帮扶。
 
-此外，董事会建议将公司英文名称由“Ling Yui Holdings Limited”更改为“AiLife International Group Limited”，及将公司中文名称由“凌锐控股有限公司”更改为“爱生命国际集团有限公司”。
+三十余载倾情相守，农工党中央运用健康、产业、智力、公益、消费等组合拳，汇聚各方智慧力量，助力大方县打赢脱贫攻坚战，打造“同心助医工程”“同心全科医生特岗人才计划”“同心圆博爱家园乡村振兴项目”“贫困人口精准医疗爱心行动”“四川大学华西医院协作医院”“同心助学”等一批特色帮扶品牌，同心携手书写共谋发展的动人篇章。
 
-公司已申请于2026年4月15日上午九时正起恢复股份在联交所买卖。
+秉持“大方脱了贫，农工党不断线”的庄严承诺，30多年来，农工党中央、农工党贵州省委先后选派17名干部到大方挂职帮扶。
 
-截至本联合公告日期，要约人的全部已发行股本由海普洛斯实益拥有。
+各级组织累计引进实施帮扶项目近300个，投入资金70多亿元，捐赠款物3.498亿元，推动大方县如期实现全面小康，以崭新姿态迈步高质量发展新征程。
 
 ## 相关推荐
 
-- 2026-06-29 20:21 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 20:25 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 20:19 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-29 20:03 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 20:00 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-29 20:00 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-29 20:07 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 20:03 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-29 20:08 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-29 20:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-29 20:23 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-29 20:28 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 20:07 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 20:10 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 20:13 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-29 20:27 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 20:08 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-29 20:14 - [LPL第三赛段赛制公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-29 20:12 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 20:29 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-29 20:22 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 20:20 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-29 20:24 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:18 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/740727409314.shtml)
-- 2026-06-29 20:04 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/744344.shtml)
-- 2026-06-29 20:08 - [无畏为自己的猫正名了](http://www.share.minike.top/Article/details/202727108419.shtml)
-- 2026-06-29 20:29 - [恋与深空7天掉粉超50万](https://www.blog.kurohicncr.top/Article/details/69647173.shtml)
-- 2026-06-29 20:03 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/9791788.shtml)
-- 2026-06-29 20:04 - [RAY评乘风2026总决赛](http://www.share.minike.top/Article/details/7642792.shtml)
-- 2026-06-29 20:11 - [网友晒14年前支教影像等来学生评论](http://www.share.minike.top/Article/details/6961863.shtml)
-- 2026-06-29 20:20 - [胡光宇一审获刑13年](http://www.share.minike.top/Article/details/3467993254.shtml)
-- 2026-06-29 20:09 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/051827.shtml)
-- 2026-06-29 20:10 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/634998664049.shtml)
-- 2026-06-29 20:06 - [孙俪开QQ的蛮好生活](http://www.share.kurohicncr.top/Article/details/27170763.shtml)
-- 2026-06-29 20:17 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/435236883.shtml)
-- 2026-06-29 20:16 - [官媒首曝六代机？大V解读](https://www.share.minike.top/Article/details/233792.shtml)
-- 2026-06-29 20:18 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/5566609485.shtml)
-- 2026-06-29 20:24 - [网友晒14年前支教影像等来学生评论](http://www.blog.kurohicncr.top/Article/details/2290467.shtml)
+- 2026-06-29 20:25 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/11344027.shtml)
+- 2026-06-29 20:16 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/60614187.shtml)
+- 2026-06-29 20:30 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/86026.shtml)
+- 2026-06-29 20:24 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/5310889.shtml)
+- 2026-06-29 20:08 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/41554257.shtml)
+- 2026-06-29 20:06 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/74804157.shtml)
+- 2026-06-29 20:12 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.minike.top/Article/details/7285684.shtml)
+- 2026-06-29 20:22 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/179586.shtml)
+- 2026-06-29 20:31 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/167944.shtml)
+- 2026-06-29 20:23 - [我们的少年时代2](https://www.blog.minike.top/Article/details/972679443.shtml)
+- 2026-06-29 20:19 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/50554713890.shtml)
+- 2026-06-29 20:11 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/26606051.shtml)
+- 2026-06-29 20:14 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/400616.shtml)
+- 2026-06-29 20:12 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/211833795.shtml)
+- 2026-06-29 20:08 - [面对热浪欧洲人为何陷入空调内耗](http://www.share.minike.top/Article/details/1362140645.shtml)

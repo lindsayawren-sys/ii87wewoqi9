@@ -1,58 +1,56 @@
-# 全球媒体聚焦丨巴基斯坦媒体：“十五五”规划纲要不止关乎中国 更将影响全球贸易与投资格局
+# 进口套利窗口关闭！LPG后市紧盯三大变量
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-巴基斯坦《国际新闻报》近日刊文称，“十五五”规划纲要对中国而言不仅仅是一份经济路线图，更是一项战略方针。它不仅关乎中国自身的发展轨迹，也影响未来全球贸易和投资格局。 文章认为，“十五五”规划纲要最具分量的支柱，在于对科技自立自强的强力推进。中国明确提出，研发经费支出年均增长将超过7.0%，并力争到2030年，核心数字经济产业增加值占GDP的比重提升至12.5%。这些并非渐进式目
+来源：期货日报 2026年以来，国内LPG价格经历了从地缘驱动暴涨到需求拖累回落的剧烈震荡，进口套利窗口更是走出“关闭—开启—宽幅波动—彻底关闭”的“过山车”行情。期货日报记者注意到，截至4月底，LPG进口套利深度倒挂，均值为-794元/吨。在高进口成本与弱需求的双重压力下，市场偏弱震荡格局基本确立。 记者采访了解到，春节后至3月初，国内LPG市场持续低迷，民用需求疲软叠加化工
 
 ## 正文
 
-巴基斯坦《国际新闻报》近日刊文称，“十五五”规划纲要对中国而言不仅仅是一份经济路线图，更是一项战略方针。
+来源：期货日报 2026年以来，国内LPG价格经历了从地缘驱动暴涨到需求拖累回落的剧烈震荡，进口套利窗口更是走出“关闭—开启—宽幅波动—彻底关闭”的“过山车”行情。
 
-它不仅关乎中国自身的发展轨迹，也影响未来全球贸易和投资格局。
+期货日报记者注意到，截至4月底，LPG进口套利深度倒挂，均值为-794元/吨。
 
-文章认为，“十五五”规划纲要最具分量的支柱，在于对科技自立自强的强力推进。
+在高进口成本与弱需求的双重压力下，市场偏弱震荡格局基本确立。
 
-中国明确提出，研发经费支出年均增长将超过7.0%，并力争到2030年，核心数字经济产业增加值占GDP的比重提升至12.5%。
+记者采访了解到，春节后至3月初，国内LPG市场持续低迷，民用需求疲软叠加化工端采购谨慎，进口套利窗口长期处于关闭状态。
 
-这些并非渐进式目标，而是一场以创新为核心、系统重构经济体系的战略转型。
+转折点来自中东局势的急剧升级，成为驱动LPG价格反转的核心因素。
 
-人工智能、量子计算、生物制造与机器人技术，已全面上升为国家战略的核心。
+数据显示，3月中国LPG进口套利窗口呈现“大幅走扩”的波动特征。
 
-文章进一步分析，对全球贸易而言，这标志着一次根本性转变。
+隆众资讯分析师祝素荣介绍，3月LPG进口套利空间可观，3月下旬单吨利润已超过2000元。
 
-比较优势不再仅仅由劳动力成本或资源禀赋决定，而是越来越取决于谁掌握了核心技术和生产生态系统。
+这一轮进口套利窗口开启，核心源于成本端与市场端的时间错配——3月沙特CP官方报价在2月28日中东冲突爆发前就已出台，进口成本被提前锁定在冲突溢价之前。
 
 ## 相关推荐
 
-- 2026-06-29 20:24 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-29 20:03 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-29 20:02 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-29 20:05 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-29 20:03 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-29 20:26 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-29 20:29 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-29 20:19 - [世界杯高票价为何没劝退球迷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 20:20 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 20:20 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-29 20:25 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-29 20:29 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 20:24 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-29 20:13 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 20:18 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-29 20:15 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 20:06 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-29 20:12 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 20:23 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 20:12 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 20:14 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-29 20:29 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:16 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/154468147.shtml)
-- 2026-06-29 20:26 - [齐思钧回复孙怡](http://www.blog.kurohicncr.top/Article/details/60381583.shtml)
-- 2026-06-29 20:14 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/274557805.shtml)
-- 2026-06-29 20:06 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/623780920819.shtml)
-- 2026-06-29 20:08 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/0039311815.shtml)
-- 2026-06-29 20:17 - [韩国队回国欢迎仪式取消](https://www.blog.minike.top/Article/details/031581564136.shtml)
-- 2026-06-29 20:18 - [滚石点名酒店员工说有急救培训](https://www.blog.minike.top/Article/details/405018.shtml)
-- 2026-06-29 20:17 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/4426956751.shtml)
-- 2026-06-29 20:27 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/9941914.shtml)
-- 2026-06-29 20:03 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/889462016.shtml)
-- 2026-06-29 20:02 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/187981.shtml)
-- 2026-06-29 20:23 - [哈兰德玩游戏连女友都不让着](https://www.blog.kurohicncr.top/Article/details/4109828.shtml)
-- 2026-06-29 20:05 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/263327726.shtml)
-- 2026-06-29 20:25 - [特朗普两大核心赌注将迎高院裁决](http://www.blog.minike.top/Article/details/6140217.shtml)
-- 2026-06-29 20:01 - [海清4次陪跑白玉兰](http://www.share.kurohicncr.top/Article/details/5868493873.shtml)
+- 2026-06-29 20:30 - [105岁女红军看到自己长征时的模样](https://www.blog.kurohicncr.top/Article/details/261728414.shtml)
+- 2026-06-29 20:18 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/926083859.shtml)
+- 2026-06-29 20:25 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/33996.shtml)
+- 2026-06-29 20:18 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/8521286.shtml)
+- 2026-06-29 20:17 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/7361815.shtml)
+- 2026-06-29 20:34 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/077561993.shtml)
+- 2026-06-29 20:15 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/203843285629.shtml)
+- 2026-06-29 20:08 - [运20对中国空军的意义是什么](https://www.share.kurohicncr.top/Article/details/807597.shtml)
+- 2026-06-29 20:25 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/4106639.shtml)
+- 2026-06-29 20:19 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/3513985.shtml)
+- 2026-06-29 20:08 - [女心理师](https://www.blog.minike.top/Article/details/994324.shtml)
+- 2026-06-29 20:11 - [互助版模拟高考志愿填报](http://www.share.kurohicncr.top/Article/details/976211432148.shtml)
+- 2026-06-29 20:26 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/55968239.shtml)
+- 2026-06-29 20:12 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/27998968.shtml)
+- 2026-06-29 20:30 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/890840.shtml)

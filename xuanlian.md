@@ -1,60 +1,51 @@
-# 2026年广东计划发放妇女创业贷款1.36亿元
+# 商务部：中方愿同美方一道不断拉长合作清单
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-中新网广州4月14日电(记者 张璐)广东省妇联十四届二次执委会议13日在广州召开。会议发布了2026年广东十件妇女儿童民生实事。 据介绍，2026年，广东省妇联计划为农村妇女创业提供资金支持。实施妇女创业小额担保贷款贴息项目，发放妇女创业贷款1.36亿元，带动1.6万名妇女群众创业就业。此外，广东省妇联将动员妇女共建共享美丽家园。开展“美丽庭院”提质扩容“五美”行动，因地制宜高
+新华社北京5月14日电(记者谢希瑶、黄韬铭)商务部新闻发言人何咏前在14日举行的例行新闻发布会上表示，当地时间5月13日，中美经贸中方牵头人、国务院副总理何立峰与美方牵头人、美国财政部长贝森特在韩国举行经贸磋商。双方以两国元首重要共识为指引，秉持相互尊重、和平共处、合作共赢的原则，就解决彼此关注的经贸问题和进一步拓展务实合作进行了坦诚、深入、建设性交流。下一步，中方愿同美方一道
 
 ## 正文
 
-中新网广州4月14日电(记者 张璐)广东省妇联十四届二次执委会议13日在广州召开。
+新华社北京5月14日电(记者谢希瑶、黄韬铭)商务部新闻发言人何咏前在14日举行的例行新闻发布会上表示，当地时间5月13日，中美经贸中方牵头人、国务院副总理何立峰与美方牵头人、美国财政部长贝森特在韩国举行经贸磋商。
 
-会议发布了2026年广东十件妇女儿童民生实事。
+双方以两国元首重要共识为指引，秉持相互尊重、和平共处、合作共赢的原则，就解决彼此关注的经贸问题和进一步拓展务实合作进行了坦诚、深入、建设性交流。
 
-据介绍，2026年，广东省妇联计划为农村妇女创业提供资金支持。
-
-实施妇女创业小额担保贷款贴息项目，发放妇女创业贷款1.36亿元，带动1.6万名妇女群众创业就业。
-
-此外，广东省妇联将动员妇女共建共享美丽家园。
-
-开展“美丽庭院”提质扩容“五美”行动，因地制宜高质量建设一批“美丽庭院”，五级联动共建一批“美丽庭院”特色村。
-
-据了解，广东省妇联2026年将促进女大学生高质量就业。
-
-开展“金凤展翅”女大学生就业创业服务活动，为不少于4万名在校女大学生搭建就业平台、开展创业就业指导、提供就业实习机会。
+下一步，中方愿同美方一道，本着平等、尊重、互惠的原则，不断拉长合作清单，压缩问题清单，推动中美经贸关系健康、稳定、可持续发展。
 
 ## 相关推荐
 
-- 2026-06-29 20:12 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 20:26 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 20:04 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-29 20:25 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-29 20:23 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-29 20:13 - [伊朗足球队将启程回国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-29 20:17 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-29 20:02 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-29 20:17 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 20:27 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 20:08 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 20:21 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-29 20:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-29 20:13 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 20:13 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 20:20 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 20:32 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-29 20:24 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 20:29 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-29 20:34 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-29 20:20 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-29 20:17 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-29 20:06 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 20:21 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 20:15 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-29 20:18 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 20:23 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-29 20:25 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-29 20:29 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:24 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/437615988.shtml)
-- 2026-06-29 20:00 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/50171387.shtml)
-- 2026-06-29 20:17 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/872066719435.shtml)
-- 2026-06-29 20:27 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/85158162.shtml)
-- 2026-06-29 20:17 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/589719019661.shtml)
-- 2026-06-29 20:07 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/24740147019.shtml)
-- 2026-06-29 20:29 - [绘画区你赢了](http://www.share.minike.top/Article/details/13483945.shtml)
-- 2026-06-29 20:14 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/86876892645.shtml)
-- 2026-06-29 20:23 - [恋与深空客服的回应](http://www.blog.kurohicncr.top/Article/details/029895.shtml)
-- 2026-06-29 20:23 - [半导体和股市为何没让韩国人起飞](http://www.share.kurohicncr.top/Article/details/73189.shtml)
-- 2026-06-29 20:08 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/801873758.shtml)
-- 2026-06-29 20:13 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/21617349773.shtml)
-- 2026-06-29 20:18 - [日美楼市危机复盘：见底顺序曝光](http://www.share.minike.top/Article/details/8897128815.shtml)
-- 2026-06-29 20:17 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/15591.shtml)
-- 2026-06-29 20:09 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/67234555712.shtml)
+- 2026-06-29 20:34 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.minike.top/Article/details/7082399.shtml)
+- 2026-06-29 20:08 - [朱雀三号重复使用遥二运载火箭新进展](https://www.share.minike.top/Article/details/619908264.shtml)
+- 2026-06-29 20:10 - [葛军透露高考出题思路](http://www.share.minike.top/Article/details/82293392669.shtml)
+- 2026-06-29 20:31 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/565631.shtml)
+- 2026-06-29 20:07 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/9181906311.shtml)
+- 2026-06-29 20:32 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.kurohicncr.top/Article/details/5635513081.shtml)
+- 2026-06-29 20:18 - [爱奇艺抬高国剧新标尺](https://www.share.kurohicncr.top/Article/details/3917778004.shtml)
+- 2026-06-29 20:11 - [铜价上涨 日本住宅水表失窃严重](http://www.share.kurohicncr.top/Article/details/4986442336.shtml)
+- 2026-06-29 20:16 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/08952680.shtml)
+- 2026-06-29 20:09 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/68694937131.shtml)
+- 2026-06-29 20:17 - [胡光宇一审获刑13年](http://www.blog.minike.top/Article/details/0736265.shtml)
+- 2026-06-29 20:19 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/792190.shtml)
+- 2026-06-29 20:24 - [郑钦文谈再战西尼亚科娃](http://www.blog.kurohicncr.top/Article/details/22411988.shtml)
+- 2026-06-29 20:20 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/435362.shtml)
+- 2026-06-29 20:08 - [一生一世](https://www.share.minike.top/Article/details/619804.shtml)

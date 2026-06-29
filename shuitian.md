@@ -1,57 +1,56 @@
-# 蔚蓝锂芯2025年实现净利润7.11亿元 今年锂电池营业收入目标增长40%以上
+# 卖瓷砖、搞装修、做职教的公司股价都被爆炒 热门概念不能“我说你有你就有”
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-4月13日晚间，蔚蓝锂芯(002245)披露年报，2025年度，公司实现营业总收入81.13亿元，同比增长20.09%；净利润7.11亿元，同比增长45.66%。公司拟每10股转增4.8股并派发现金红利1元(含税)。年报显示，2025年度，公司锂电池业务继续保持快速增长态势，销量与利润均同比大幅增长。锂电池整体出货量增长约52%，其中电动工具国际客货订单量修复明显，智能出行应用
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经评论员 杜恒峰 5月13日早盘，主营职业教育业务及不动产运营的*ST高科再次涨停，这是其连续第9天涨停。就在12日晚间，公司才发布了风险提示公告，告知投资者股价短期涨幅较大、后续有下跌的风险，及存在“财务退”的风险；公司主营业务未发生重大变化，公司未实际开展半导体业务，间接控股股东与长江存储科技有限责任
 
 ## 正文
 
-4月13日晚间，蔚蓝锂芯(002245)披露年报，2025年度，公司实现营业总收入81.13亿元，同比增长20.09%；净利润7.11亿元，同比增长45.66%。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-公司拟每10股转增4.8股并派发现金红利1元(含税)。
+每经评论员 杜恒峰 5月13日早盘，主营职业教育业务及不动产运营的*ST高科再次涨停，这是其连续第9天涨停。
 
-年报显示，2025年度，公司锂电池业务继续保持快速增长态势，销量与利润均同比大幅增长。
+就在12日晚间，公司才发布了风险提示公告，告知投资者股价短期涨幅较大、后续有下跌的风险，及存在“财务退”的风险；公司主营业务未发生重大变化，公司未实际开展半导体业务，间接控股股东与长江存储科技有限责任公司不存在任何实质关系。
 
-锂电池整体出货量增长约52%，其中电动工具国际客货订单量修复明显，智能出行应用出货量快速提升，BBU备用电源、AI机器人/机器狗等新兴应用领域实现了领先布局与出货。
+但从市场表现看，这份详尽的风险提示未能给狂热的市场情绪降温。
 
-报告期内，公司锂电池业务实现营业收入35.97亿元，同比增长39.00%；毛利率21.56%。
+也就在12日晚间，主营为建筑陶瓷产品的蒙娜丽莎也发布风险提示，公司的陶瓷产品用于建筑、装修领域，半导体材料业务的收入和利润都是零。
 
-此外，报告期内，蔚蓝锂芯LED业务表现出色，LED业务整体营业收入约15.84亿元。
+在此之前，从5月8日到12日期间的3个交易日，其股价连续涨停，而大涨的原因是沾上了陶瓷基板概念，这种材料的核心功能包括导热、电绝缘、机械支撑和热膨胀匹配，和AI（人工智能）算力的硬件需求挂钩。
 
-淮安顺昌实现净利润约1.45亿元；毛利率22.86%，同比增长3.48%。
+蒙娜丽莎确实有投资陶瓷基板研发公司，但资本市场的概念炒作明显超前于实际业务进展。
 
-公司金属物流配送业务继续保持良好的经营状态，营业收入、毛利率和利润贡献均保持小幅增长。
+5月13日早盘，主营为装修工程的金螳螂盘中股价再度冲高，最大涨幅一度接近6%。
 
 ## 相关推荐
 
-- 2026-06-29 20:10 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 20:24 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 20:10 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-29 20:06 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-29 20:18 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 20:19 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-29 20:23 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-29 20:24 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 20:29 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-29 20:09 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 20:07 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 20:14 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-29 20:25 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 20:26 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 20:20 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 20:34 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 20:32 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 20:23 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-29 20:23 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-29 20:27 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 20:29 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:02 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/4921811634.shtml)
-- 2026-06-29 20:11 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/588142503.shtml)
-- 2026-06-29 20:14 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/5351285.shtml)
-- 2026-06-29 20:14 - [法生态部长反对装空调却自己吹空调](https://www.share.kurohicncr.top/Article/details/552202.shtml)
-- 2026-06-29 20:13 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/52732.shtml)
-- 2026-06-29 20:16 - [让AI做一个账号，它会做成什么样？](http://www.share.kurohicncr.top/Article/details/0968089683.shtml)
-- 2026-06-29 20:07 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/250745871827.shtml)
-- 2026-06-29 20:06 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.kurohicncr.top/Article/details/2527684821.shtml)
-- 2026-06-29 20:09 - [东宫女主是不是顶级恋爱脑](http://www.share.minike.top/Article/details/172954.shtml)
-- 2026-06-29 20:19 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/3578287651.shtml)
-- 2026-06-29 20:12 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/52619303898.shtml)
-- 2026-06-29 20:22 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/77286500.shtml)
-- 2026-06-29 20:28 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.share.minike.top/Article/details/7900027820.shtml)
-- 2026-06-29 20:09 - [刘冰任河南南阳市代市长](http://www.share.kurohicncr.top/Article/details/7622817515.shtml)
-- 2026-06-29 20:09 - [TTG KSG](https://www.blog.kurohicncr.top/Article/details/634232876687.shtml)
+- 2026-06-29 20:14 - [港股爆发 美团百度阿里等集体大涨](http://www.share.kurohicncr.top/Article/details/9619475.shtml)
+- 2026-06-29 20:18 - [明星大侦探第一季](https://www.share.minike.top/Article/details/74125105322.shtml)
+- 2026-06-29 20:18 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/3273835686.shtml)
+- 2026-06-29 20:30 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/979677240587.shtml)
+- 2026-06-29 20:08 - [朱雀三号完成静态点火试验](http://www.share.minike.top/Article/details/85213083396.shtml)
+- 2026-06-29 20:34 - [绘画区你赢了](http://www.blog.minike.top/Article/details/373726918718.shtml)
+- 2026-06-29 20:23 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/0219035.shtml)
+- 2026-06-29 20:15 - [起风了](http://www.blog.minike.top/Article/details/45812748446.shtml)
+- 2026-06-29 20:32 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/9215722.shtml)
+- 2026-06-29 20:12 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/7442141.shtml)
+- 2026-06-29 20:16 - [穆祉丞东方风云榜红毯](https://www.blog.minike.top/Article/details/67606587.shtml)
+- 2026-06-29 20:07 - [外交部谈对日出口管制措施](https://www.share.minike.top/Article/details/4690414.shtml)
+- 2026-06-29 20:31 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/98545094383.shtml)
+- 2026-06-29 20:26 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.blog.minike.top/Article/details/890431277.shtml)
+- 2026-06-29 20:27 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/919391964023.shtml)

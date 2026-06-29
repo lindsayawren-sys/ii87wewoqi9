@@ -1,48 +1,57 @@
-# 伊朗政府：美以军事行动致伊朗损失2700亿美元
+# 退保“降温”明显！一季度九成险企综合退保率低于1%
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-中新网4月14日电 据伊朗英语新闻电视台(PressTV)14日报道，伊朗政府发言人说，据初步估计，美国和以色列的军事打击给伊朗已造成2700亿美元损失。 该估计尚未最终确定，但伊朗政府发言人表示，损失通常需从多个层面进行评估。 该发言人还表示，战争赔偿问题正通过外交渠道进行跟进，这是伊朗谈判团队正在努力推进的议题之一，也是与美国谈判代表团在巴基斯坦首都伊斯兰堡会谈中讨论的问题
+综合退保率是评估人身险公司现金流情况的重要指标，也是衡量保险公司业务质量的关键窗口。5月13日，北京商报记者梳理70家人身险公司的综合退保率数据发现，今年一季度，人身险行业退保情况总体趋稳，行业综合退保率优化明显。不仅多数公司的综合退保率降至1%以下的低位，全行业均值更是降至0.59%的低位。这一数据背后，折射出行业经营逻辑、消费者行为以及宏观环境的深层次变化。 综合退保率优化
 
 ## 正文
 
-中新网4月14日电 据伊朗英语新闻电视台(PressTV)14日报道，伊朗政府发言人说，据初步估计，美国和以色列的军事打击给伊朗已造成2700亿美元损失。
+综合退保率是评估人身险公司现金流情况的重要指标，也是衡量保险公司业务质量的关键窗口。
 
-该估计尚未最终确定，但伊朗政府发言人表示，损失通常需从多个层面进行评估。
+5月13日，北京商报记者梳理70家人身险公司的综合退保率数据发现，今年一季度，人身险行业退保情况总体趋稳，行业综合退保率优化明显。
 
-该发言人还表示，战争赔偿问题正通过外交渠道进行跟进，这是伊朗谈判团队正在努力推进的议题之一，也是与美国谈判代表团在巴基斯坦首都伊斯兰堡会谈中讨论的问题。
+不仅多数公司的综合退保率降至1%以下的低位，全行业均值更是降至0.59%的低位。
+
+这一数据背后，折射出行业经营逻辑、消费者行为以及宏观环境的深层次变化。
+
+综合退保率优化 综合退保率是保险行业高度关注的指标，它不仅反映了消费者对产品的持有信心，更直接关系到险企的资产负债匹配与流动性安全。
+
+据北京商报记者不完全统计，目前已经披露一季度偿付能力报告的人身险公司中，70家险企披露了综合退保率指标，整体来看，行业的退保率情况来到了低位。
+
+数据显示，这70家公司的综合退保率平均值为0.59%，去年同期为0.8%；中位数为0.48%，去年同期为0.55%，两项指标优化明显。
+
+更值得注意的是，一季度共有63家险企的综合退保率保持在1%以内，占比高达90%；另有6家险企综合退保率控制在1%—2%之间。
 
 ## 相关推荐
 
-- 2026-06-29 20:13 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-29 20:14 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-29 20:27 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-29 20:00 - [河南高院审委会原委员曲海滨被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-29 20:00 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 20:14 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-29 20:04 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 20:00 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 20:03 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-29 20:15 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-29 20:05 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 20:12 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 20:07 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-29 20:16 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-29 20:10 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-29 20:35 - [德国医生在没有空调的手术室工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 20:12 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 20:35 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 20:12 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-29 20:10 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 20:32 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-29 20:17 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 20:24 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:30 - [每天通勤往返3h的感觉](https://www.share.kurohicncr.top/Article/details/7769518829.shtml)
-- 2026-06-29 20:00 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.minike.top/Article/details/21571233163.shtml)
-- 2026-06-29 20:22 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.minike.top/Article/details/658656.shtml)
-- 2026-06-29 20:08 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/7463223560.shtml)
-- 2026-06-29 20:17 - [MG总经理直播被冲](https://www.share.kurohicncr.top/Article/details/1415448.shtml)
-- 2026-06-29 20:18 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/237538844.shtml)
-- 2026-06-29 20:09 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/968636726067.shtml)
-- 2026-06-29 20:12 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/366817540.shtml)
-- 2026-06-29 20:07 - [恋与深空7天掉粉超50万](https://www.blog.minike.top/Article/details/545576243433.shtml)
-- 2026-06-29 20:24 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/54749.shtml)
-- 2026-06-29 20:14 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/72748.shtml)
-- 2026-06-29 20:19 - [港股爆发 美团百度阿里等集体大涨](https://www.share.minike.top/Article/details/3640200.shtml)
-- 2026-06-29 20:26 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.minike.top/Article/details/12055886735.shtml)
-- 2026-06-29 20:17 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/237862.shtml)
-- 2026-06-29 20:28 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/828408849419.shtml)
+- 2026-06-29 20:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/23798.shtml)
+- 2026-06-29 20:19 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/17293095.shtml)
+- 2026-06-29 20:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/832567.shtml)
+- 2026-06-29 20:13 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/9401374.shtml)
+- 2026-06-29 20:29 - [张杰我九岁就跟你了](https://www.blog.minike.top/Article/details/74381432752.shtml)
+- 2026-06-29 20:32 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/6793935132.shtml)
+- 2026-06-29 20:25 - [MG总经理直播被冲](http://www.share.minike.top/Article/details/91901.shtml)
+- 2026-06-29 20:07 - [不烧钱的低成本爱好](http://www.blog.kurohicncr.top/Article/details/90467182.shtml)
+- 2026-06-29 20:28 - [王楚钦称抽签结果出来心情不好](https://www.share.kurohicncr.top/Article/details/556364.shtml)
+- 2026-06-29 20:10 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/52772.shtml)
+- 2026-06-29 20:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/002653.shtml)
+- 2026-06-29 20:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/739362857.shtml)
+- 2026-06-29 20:35 - [郑钦文谈再战西尼亚科娃](https://www.share.kurohicncr.top/Article/details/74099.shtml)
+- 2026-06-29 20:23 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/696297665.shtml)
+- 2026-06-29 20:21 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/59289398817.shtml)

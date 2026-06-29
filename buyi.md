@@ -1,61 +1,59 @@
-# 香港交易所推出两只科技指数 易方达香港获授权
+# 机构：油价飙升推动全球电动汽车需求连续两个月增长
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-4月13日，香港交易及结算所有限公司（以下简称“香港交易所”）推出两只科技类指数，分别是香港交易所韩国交易所半导体指数、香港交易所科技及美国科技100指数，并宣布已与易方达资产管理（香港）有限公司（以下简称“易方达香港”）等资产管理机构签订授权协议。 随着越来越多不同领域的科技公司选择在香港市场上市，投资者对相关金融产品的需求日益多元。此次推出的两只指数旨在助力投资者布局全球及
+咨询机构Benchmark Mineral Intelligence（BMI）周三公布的数据显示，由于高企的汽油价格持续推动消费者转向电动汽车，4月份全球对电动汽车的需求连续第二个月增长。 BMI表示，4月份全球新注册的纯电动汽车和插电式混合动力汽车数量同比增长6%，达到160万辆，尽管较3月份创下的月度最高纪录下降了9%。 BMI在一份声明中表示：“政策激励、汽油价格上涨以及
 
 ## 正文
 
-4月13日，香港交易及结算所有限公司（以下简称“香港交易所”）推出两只科技类指数，分别是香港交易所韩国交易所半导体指数、香港交易所科技及美国科技100指数，并宣布已与易方达资产管理（香港）有限公司（以下简称“易方达香港”）等资产管理机构签订授权协议。
+咨询机构Benchmark Mineral Intelligence（BMI）周三公布的数据显示，由于高企的汽油价格持续推动消费者转向电动汽车，4月份全球对电动汽车的需求连续第二个月增长。
 
-随着越来越多不同领域的科技公司选择在香港市场上市，投资者对相关金融产品的需求日益多元。
+BMI表示，4月份全球新注册的纯电动汽车和插电式混合动力汽车数量同比增长6%，达到160万辆，尽管较3月份创下的月度最高纪录下降了9%。
 
-此次推出的两只指数旨在助力投资者布局全球及区域科技领域的投资主题，提供更广泛的跨市场投资机遇，同时推动市场开发更多ETF纳入南向ETF通，为内地投资者提供更丰富的跨市场投资选择。
+BMI在一份声明中表示：“政策激励、汽油价格上涨以及中国车企影响力的不断提升，持续支撑着市场需求。
 
-相关ETF产品待获批后，预计将在香港市场推出。
+” 中东冲突中断了一条重要的石油运输路线后，各国政府继续采取措施限制燃油价格。
 
-具体来看，香港交易所韩国交易所半导体指数追踪符合港股通资格的香港上市半导体公司，以及韩国交易所半导体15指数所有成份股的表现；香港交易所科技及美国科技100指数追踪香港交易所科技100指数所有成份股以及在纳斯达克上市的100家市值最高的科技公司（包括美股七大科技巨头）的表现。
+最近的一项研究显示，4月份欧洲电动汽车注册量增长了27%，达到约40万辆。
 
-两只指数中，符合港股通资格的香港上市公司占约60%、海外上市公司占约40%。
+与此同时，欧洲经济区和瑞士已承诺向其电动汽车生态系统投入近2000亿欧元（约合2350亿美元）。
 
-香港交易所集团行政总裁陈翊庭表示，“我们很高兴宣布推出两项全新指数，进一步丰富香港交易所的指数产品，致力实现我们构建交易所主导的指数生态圈，体现对推动产品创新和市场发展的长远承诺。
+不过，BMI的数据显示，全球纯电动汽车和插电式混动汽车的需求情况并不均衡。
 
-本次扩展涵盖自营及联合冠名的新基准指数，并着重把握科技发展带来的机遇，旨在促进指数挂钩产品多元化，加强市场参与度，从而提升集资和二级市场之流动性与活力。
+在中国市场，4月份新车注册量同比下降8%，约为85万辆。
 
 ## 相关推荐
 
-- 2026-06-29 20:27 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 20:07 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-29 20:24 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-29 20:15 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 20:11 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-29 20:03 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 20:19 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-29 20:27 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 20:22 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-29 20:20 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-29 20:04 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-29 20:09 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-29 20:01 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 20:13 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-29 20:06 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 20:20 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 20:27 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 20:10 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 20:19 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-29 20:14 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 20:14 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 20:09 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 20:31 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 20:25 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-29 20:25 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 20:24 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 20:29 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-29 20:17 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:22 - [明星大侦探第四季](https://www.share.minike.top/Article/details/4759469.shtml)
-- 2026-06-29 20:24 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/284444.shtml)
-- 2026-06-29 20:18 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/866287.shtml)
-- 2026-06-29 20:28 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/1541124.shtml)
-- 2026-06-29 20:21 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/754828.shtml)
-- 2026-06-29 20:03 - [扩军害了世界杯吗](https://www.blog.kurohicncr.top/Article/details/25806458037.shtml)
-- 2026-06-29 20:02 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/39133.shtml)
-- 2026-06-29 20:09 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/911521.shtml)
-- 2026-06-29 20:02 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/148149.shtml)
-- 2026-06-29 20:22 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/9374194.shtml)
-- 2026-06-29 20:10 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/62064470398.shtml)
-- 2026-06-29 20:22 - [C罗10球7球对垫底队](http://www.share.minike.top/Article/details/63339754182.shtml)
-- 2026-06-29 20:06 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/553638822.shtml)
-- 2026-06-29 20:25 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.kurohicncr.top/Article/details/7493021.shtml)
-- 2026-06-29 20:23 - [新官上任三把火](https://www.blog.minike.top/Article/details/2011797992.shtml)
+- 2026-06-29 20:09 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/76241180.shtml)
+- 2026-06-29 20:31 - [世界杯预测史上最不吃压力之物](http://www.blog.minike.top/Article/details/570860832531.shtml)
+- 2026-06-29 20:13 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/6427909.shtml)
+- 2026-06-29 20:34 - [爱奇艺抬高国剧新标尺](http://www.blog.kurohicncr.top/Article/details/040585.shtml)
+- 2026-06-29 20:24 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/05456.shtml)
+- 2026-06-29 20:33 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/7588950.shtml)
+- 2026-06-29 20:31 - [夫妻生活太无聊，所以我……](http://www.share.minike.top/Article/details/861729.shtml)
+- 2026-06-29 20:33 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/491713.shtml)
+- 2026-06-29 20:08 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/74012.shtml)
+- 2026-06-29 20:14 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/678213.shtml)
+- 2026-06-29 20:35 - [日美楼市危机复盘：见底顺序曝光](http://www.share.minike.top/Article/details/8761814458.shtml)
+- 2026-06-29 20:08 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/77578383677.shtml)
+- 2026-06-29 20:18 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/05723.shtml)
+- 2026-06-29 20:18 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.kurohicncr.top/Article/details/707398.shtml)
+- 2026-06-29 20:34 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/9498520.shtml)

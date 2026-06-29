@@ -1,56 +1,58 @@
-# Adobe与Figma前景看好但存隐忧 市场等待更清晰的变现趋势
+# 第79届戛纳电影节开幕
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-Adobe和Figma均获得BTIG的谨慎认可，其犹豫的根本原因在于AI将从现在开始如何改变一切。 从表面上看，Adobe依然强劲。它是创意软件领域无可争议的领导者，年收入约240亿美元，利润率令大多数公司难以企及。但目前的问题不在于Adobe今天的地位，而在于随着AI开始重塑内容创作方式，接下来会发生什么。BTIG实际上认可Adobe在AI方面的布局，甚至认为其估值看起来合理
+中新社巴黎5月12日电 (记者 李洋)第79届戛纳电影节当地时间12日开幕。电影节开幕典礼当晚在戛纳节庆宫举行。 本届戛纳电影节评委会主席由韩国导演朴赞郁担任。本届电影节荣誉金棕榈奖颁给新西兰导演彼得·杰克逊和美国老牌影星芭芭拉·斯特赖桑德。影星巩俐在开幕典礼上致辞并以中文宣布本届电影节开幕。 法国导演皮埃尔·沙尔瓦多利的作品《电动维纳斯》成为本届电影节的开幕影片。电影节官方海
 
 ## 正文
 
-Adobe和Figma均获得BTIG的谨慎认可，其犹豫的根本原因在于AI将从现在开始如何改变一切。
+中新社巴黎5月12日电 (记者 李洋)第79届戛纳电影节当地时间12日开幕。
 
-从表面上看，Adobe依然强劲。
+电影节开幕典礼当晚在戛纳节庆宫举行。
 
-它是创意软件领域无可争议的领导者，年收入约240亿美元，利润率令大多数公司难以企及。
+本届戛纳电影节评委会主席由韩国导演朴赞郁担任。
 
-但目前的问题不在于Adobe今天的地位，而在于随着AI开始重塑内容创作方式，接下来会发生什么。
+本届电影节荣誉金棕榈奖颁给新西兰导演彼得·杰克逊和美国老牌影星芭芭拉·斯特赖桑德。
 
-BTIG实际上认可Adobe在AI方面的布局，甚至认为其估值看起来合理，但尚未准备好全面投入。
+影星巩俐在开幕典礼上致辞并以中文宣布本届电影节开幕。
 
-Figma处境类似，只是处于更早期的阶段。
+法国导演皮埃尔·沙尔瓦多利的作品《电动维纳斯》成为本届电影节的开幕影片。
 
-市场对其AI工具充满热情，尤其是使用量正在迅速增长。
+电影节官方海报采用的是1991年美国电影《末路狂花》的画面。
 
-但一旦用户开始为这些功能付费，有多少需求能够持续尚不清楚。
+共有22部影片入围本届电影节主竞赛单元，角逐最高奖项“金棕榈奖”。
 
 ## 相关推荐
 
-- 2026-06-29 20:04 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-29 20:02 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 20:05 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 20:03 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-29 20:24 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 20:10 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-29 20:26 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-29 20:12 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-29 20:22 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-29 20:00 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 20:12 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 20:13 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-29 20:26 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-29 20:32 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 20:17 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-29 20:07 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 20:25 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 20:08 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 20:21 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 20:27 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 20:31 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 20:11 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:22 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/66776.shtml)
-- 2026-06-29 20:11 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/0687900.shtml)
-- 2026-06-29 20:12 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.kurohicncr.top/Article/details/04221205.shtml)
-- 2026-06-29 20:29 - [欧洲极端高温如何影响家电股](http://www.share.kurohicncr.top/Article/details/1675584249.shtml)
-- 2026-06-29 20:25 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/1232510.shtml)
-- 2026-06-29 20:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/2136305168.shtml)
-- 2026-06-29 20:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/08999330.shtml)
-- 2026-06-29 20:05 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/20318944075.shtml)
-- 2026-06-29 20:22 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.minike.top/Article/details/612241.shtml)
-- 2026-06-29 20:25 - [医药生物行业今日涨5.91%](https://www.share.minike.top/Article/details/908484258983.shtml)
-- 2026-06-29 20:29 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.minike.top/Article/details/936803121.shtml)
-- 2026-06-29 20:04 - [欧洲极端高温如何影响家电股](http://www.share.kurohicncr.top/Article/details/42974010.shtml)
-- 2026-06-29 20:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/403636.shtml)
-- 2026-06-29 20:11 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/14531563.shtml)
-- 2026-06-29 20:19 - [一生一世](https://www.blog.minike.top/Article/details/75755955044.shtml)
+- 2026-06-29 20:12 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/93968.shtml)
+- 2026-06-29 20:30 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/0016705.shtml)
+- 2026-06-29 20:14 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.minike.top/Article/details/13623222521.shtml)
+- 2026-06-29 20:23 - [起风了](https://www.share.kurohicncr.top/Article/details/709723.shtml)
+- 2026-06-29 20:19 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.kurohicncr.top/Article/details/502146767355.shtml)
+- 2026-06-29 20:23 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/68901351670.shtml)
+- 2026-06-29 20:26 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.kurohicncr.top/Article/details/301396698097.shtml)
+- 2026-06-29 20:08 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/79650151449.shtml)
+- 2026-06-29 20:18 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/1046842734.shtml)
+- 2026-06-29 20:19 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/05382606.shtml)
+- 2026-06-29 20:29 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/82952915459.shtml)
+- 2026-06-29 20:16 - [电动车主等红灯遭三轮车上横杆砸头](http://www.blog.minike.top/Article/details/91610061.shtml)
+- 2026-06-29 20:21 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/252198892.shtml)
+- 2026-06-29 20:29 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/4697969566.shtml)
+- 2026-06-29 20:35 - [锐评白玉兰提名片段](https://www.share.kurohicncr.top/Article/details/33807.shtml)

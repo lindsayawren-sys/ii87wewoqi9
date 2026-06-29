@@ -1,50 +1,57 @@
-# 巴基斯坦谴责以色列对黎巴嫩的袭击
+# 台当局放宽美国致癌潜力农药 国台办回应
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-据巴基斯坦方面4月14日消息，巴基斯坦在联合国总部举行的伊斯兰合作组织的一次会议上谴责了以色列对黎巴嫩的袭击。 巴基斯坦常驻联合国副代表乌斯曼·贾杜恩大使说，巴基斯坦全力支持黎巴嫩的主权、统一和领土完整。贾杜恩表示，为防止地区安全局势进一步恶化，亟需缓和局势、保持克制并重启外交接触。 (总台记者 黄铮铮）
+中新网5月13日电 5月13日，国台办举行例行新闻发布会。有记者问，据报道，民进党当局为落实所谓“美台对等贸易协议”(ART)，继“毒马铃薯”后，将大规模放宽174项美国农产品的农药残留标准，其中甚至包括被美国环保署列为“具致癌潜力”的农药，频频引发台湾民众对食品安全的恐慌，岛内舆论纷纷谴责民进党当局为迎合美国丧失食安底线。请问对此有何评论？ 国台办发言人张晗表示，食品安全是民
 
 ## 正文
 
-据巴基斯坦方面4月14日消息，巴基斯坦在联合国总部举行的伊斯兰合作组织的一次会议上谴责了以色列对黎巴嫩的袭击。
+中新网5月13日电 5月13日，国台办举行例行新闻发布会。
 
-巴基斯坦常驻联合国副代表乌斯曼·贾杜恩大使说，巴基斯坦全力支持黎巴嫩的主权、统一和领土完整。
+有记者问，据报道，民进党当局为落实所谓“美台对等贸易协议”(ART)，继“毒马铃薯”后，将大规模放宽174项美国农产品的农药残留标准，其中甚至包括被美国环保署列为“具致癌潜力”的农药，频频引发台湾民众对食品安全的恐慌，岛内舆论纷纷谴责民进党当局为迎合美国丧失食安底线。
 
-贾杜恩表示，为防止地区安全局势进一步恶化，亟需缓和局势、保持克制并重启外交接触。
+请问对此有何评论？
 
-(总台记者 黄铮铮）
+国台办发言人张晗表示，食品安全是民生底线。
+
+如果报道属实，民进党当局继开放含瘦肉精的“莱猪”、放行发芽的“毒马铃薯”后，将又添一桩无底线迎合美方需求、不断踩踏食品安全红线、弃岛内民众生命健康于不顾的恶行。
+
+民进党当局一味谋“独”、漠视民生的行径，祸台殃民，必遭反对。
+
+(中新网“燕新台”工作室)
 
 ## 相关推荐
 
-- 2026-06-29 20:24 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 20:12 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-29 20:06 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 20:04 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-29 20:01 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-29 20:29 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 20:10 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 20:15 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-29 20:03 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-29 20:15 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 20:19 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-29 20:13 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 20:12 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 20:07 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 20:06 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 20:27 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 20:17 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
+- 2026-06-29 20:27 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-29 20:13 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 20:13 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 20:10 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 20:24 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-29 20:30 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 20:14 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 20:10 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:19 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/89087921165.shtml)
-- 2026-06-29 20:08 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/620133015086.shtml)
-- 2026-06-29 20:08 - [郑钦文谈再战西尼亚科娃](https://www.blog.kurohicncr.top/Article/details/9983422649.shtml)
-- 2026-06-29 20:24 - [穆祉丞东方风云榜红毯](https://www.share.minike.top/Article/details/8232671809.shtml)
-- 2026-06-29 20:24 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/5066365.shtml)
-- 2026-06-29 20:26 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/418073130012.shtml)
-- 2026-06-29 20:04 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/89162098.shtml)
-- 2026-06-29 20:05 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.minike.top/Article/details/092863.shtml)
-- 2026-06-29 20:27 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/715081598102.shtml)
-- 2026-06-29 20:26 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/625690292.shtml)
-- 2026-06-29 20:10 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/97881731613.shtml)
-- 2026-06-29 20:28 - [剧宣天才虞书欣发力了](https://www.blog.kurohicncr.top/Article/details/24182.shtml)
-- 2026-06-29 20:14 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/082451178.shtml)
-- 2026-06-29 20:09 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/02742587548.shtml)
-- 2026-06-29 20:09 - [曝屠颖去世和酒店失责有关](https://www.blog.kurohicncr.top/Article/details/01052704388.shtml)
+- 2026-06-29 20:29 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/407107968.shtml)
+- 2026-06-29 20:23 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/81151.shtml)
+- 2026-06-29 20:08 - [T1零封KC MSI](http://www.share.minike.top/Article/details/89523.shtml)
+- 2026-06-29 20:35 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/11275097139.shtml)
+- 2026-06-29 20:17 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/362851.shtml)
+- 2026-06-29 20:13 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/842881619937.shtml)
+- 2026-06-29 20:27 - [王楚钦称抽签结果出来心情不好](https://www.share.kurohicncr.top/Article/details/64138839795.shtml)
+- 2026-06-29 20:25 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/6122354.shtml)
+- 2026-06-29 20:19 - [曝屠颖去世和酒店失责有关](http://www.share.minike.top/Article/details/194431303019.shtml)
+- 2026-06-29 20:29 - [胡光宇一审获刑13年](https://www.blog.kurohicncr.top/Article/details/39392363.shtml)
+- 2026-06-29 20:33 - [锐评白玉兰提名片段](https://www.blog.minike.top/Article/details/964203.shtml)
+- 2026-06-29 20:17 - [佛得角队长门德斯被控强奸](https://www.share.minike.top/Article/details/1055496452.shtml)
+- 2026-06-29 20:29 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/09539007570.shtml)
+- 2026-06-29 20:10 - [海口塔吊事故处罚结果公布](http://www.share.minike.top/Article/details/8849727.shtml)
+- 2026-06-29 20:34 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.kurohicncr.top/Article/details/364262351.shtml)

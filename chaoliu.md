@@ -1,59 +1,59 @@
-# 中信建投期货：4月14日能化早报
+# 探访河南南阳张仲景博物院 感受医圣文化
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-橡胶：风险仍存 周一，国产全乳胶16650/吨，环比上日持平；泰国20号混合胶15900元/吨，环比上日持平。 原料端：泰国宋干节假期，原料市场休市；云南胶水报收16.0元/公斤，环比上日持平；海南胶水报收15.8元/公斤，环比上日上涨0.3元/公斤。 截至2026年4月12日，青岛地区天胶保税和一般贸易合计库存量71.44万吨，环比上期增加1.43万吨，增幅2.05%。保税区
+中美元首共同参观祈年殿！告诉你一个你所不知道的天坛天热了车里别放这些东西！已有车辆遭“封印”用AI、大蒜鉴别野生菌毒性靠谱吗？专家提示科幻走进现实！首款载人变形机甲发布 核心看点详解铬铁矿新增资源量73.83万吨，意义几何？电动化替代速度超预期，中国新能源汽车创新纪录《给阿嬷的情书》取景地走红，守宅人曾无偿借出老宅拍摄从手工编织到拼豆定制 消费者为何开始偏爱自己“造”？门店企微
 
 ## 正文
 
-橡胶：风险仍存 周一，国产全乳胶16650/吨，环比上日持平；泰国20号混合胶15900元/吨，环比上日持平。
+中美元首共同参观祈年殿！
 
-原料端：泰国宋干节假期，原料市场休市；云南胶水报收16.0元/公斤，环比上日持平；海南胶水报收15.8元/公斤，环比上日上涨0.3元/公斤。
+告诉你一个你所不知道的天坛天热了车里别放这些东西！
 
-截至2026年4月12日，青岛地区天胶保税和一般贸易合计库存量71.44万吨，环比上期增加1.43万吨，增幅2.05%。
+已有车辆遭“封印”用AI、大蒜鉴别野生菌毒性靠谱吗？
 
-保税区库存12.51万吨，增幅2.49%；一般贸易库存58.92万吨，增幅1.96%。
+专家提示科幻走进现实！
 
-青岛天然橡胶样本保税仓库入率减少1.43个百分点，出库率减少3.74个百分点；一般贸易仓库入库率减少1.39百分点，出库率减少2.25个百分点。
+首款载人变形机甲发布 核心看点详解铬铁矿新增资源量73.83万吨，意义几何？
 
-观点：近期偏北产区（泰国东北部、越南、国内云南海南）迎来持续的高温天气，国内产区暂停开割，科特迪瓦与印尼南部未出现明显少雨天气，目前出现比较明显干旱的产区占比全球产量的比例大约30%（泰国东北15%，越南9%，国内6%），集中在主产浅色胶与乳胶的产区。
+电动化替代速度超预期，中国新能源汽车创新纪录《给阿嬷的情书》取景地走红，守宅人曾无偿借出老宅拍摄从手工编织到拼豆定制 消费者为何开始偏爱自己“造”？
 
-需求端，国内下游轮胎企业随着成品库存的堆积，生产有所下滑，短期下游生产需求阶段性放缓。
+门店企微骚扰顾客5000陪一晚 沪上阿姨致歉称被异地盗号降噪耳机或致听力受损？
 
-由于天气出现异常的产区范围并不算大，在需求侧未有相对持续的增长前，平衡表的矛盾或并不出突出，RU&NR冲高回落，短期或仍呈现震荡。
+专家提醒：要关注使用时长、音量打了网红“气血针”，能否“一针提神”？
 
 ## 相关推荐
 
-- 2026-06-29 20:23 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-29 20:26 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 20:25 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-29 20:20 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 20:26 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-29 20:21 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 20:14 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 20:03 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-29 20:03 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-29 20:28 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 20:03 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 20:00 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-29 20:29 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 20:17 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 20:32 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-29 20:30 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 20:17 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-29 20:18 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 20:16 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 20:34 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-29 20:16 - [济南航空航天全面起势](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-29 20:08 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 20:14 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-29 20:13 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-29 20:12 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 20:06 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:12 - [高质量发展看新疆](http://www.share.kurohicncr.top/Article/details/143973976514.shtml)
-- 2026-06-29 20:24 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/402363.shtml)
-- 2026-06-29 20:19 - [爱奇艺抬高国剧新标尺](http://www.blog.minike.top/Article/details/580264904.shtml)
-- 2026-06-29 20:22 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/1475373.shtml)
-- 2026-06-29 20:04 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/749264537.shtml)
-- 2026-06-29 20:07 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/594630917710.shtml)
-- 2026-06-29 20:20 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/738968.shtml)
-- 2026-06-29 20:05 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/1935558924.shtml)
-- 2026-06-29 20:02 - [记者暗访养老机构消防安全](http://www.blog.minike.top/Article/details/82428059.shtml)
-- 2026-06-29 20:25 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.minike.top/Article/details/29436851565.shtml)
-- 2026-06-29 20:22 - [逃狱兄弟](http://www.share.minike.top/Article/details/425360.shtml)
-- 2026-06-29 20:18 - [媒体：听清自己内心的声音再填志愿](http://www.share.minike.top/Article/details/3047803224.shtml)
-- 2026-06-29 20:26 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/766552.shtml)
-- 2026-06-29 20:22 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/275208046688.shtml)
-- 2026-06-29 20:25 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/0269982498.shtml)
+- 2026-06-29 20:24 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/6146093.shtml)
+- 2026-06-29 20:19 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/13632.shtml)
+- 2026-06-29 20:31 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/58141240.shtml)
+- 2026-06-29 20:28 - [王冰冰向全网安利哈兰德](https://www.blog.minike.top/Article/details/9091171497.shtml)
+- 2026-06-29 20:23 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/493885.shtml)
+- 2026-06-29 20:21 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/22241.shtml)
+- 2026-06-29 20:20 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.share.kurohicncr.top/Article/details/88863718016.shtml)
+- 2026-06-29 20:24 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/824717.shtml)
+- 2026-06-29 20:06 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.share.kurohicncr.top/Article/details/9442722.shtml)
+- 2026-06-29 20:31 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/161579585024.shtml)
+- 2026-06-29 20:22 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/05941177980.shtml)
+- 2026-06-29 20:29 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/908341.shtml)
+- 2026-06-29 20:06 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/8318230.shtml)
+- 2026-06-29 20:08 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/055481884.shtml)
+- 2026-06-29 20:10 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/10172.shtml)

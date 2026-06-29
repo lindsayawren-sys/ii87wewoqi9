@@ -1,57 +1,59 @@
-# 泡泡玛特暴涨8%，新IP国内卖断货，高盛确认“需求爆了”！
+# 北约拟邀海湾国家参加峰会 伊朗战争将成议题
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-高盛最新研报显示，泡泡玛特3月新推两大IP系列——与三丽鸥及FIFA联名的毛绒玩具——在国内线上渠道全线售罄，需求强劲。与此同时，知名投资人段永平高调宣布"开张"，通过卖出看跌期权布局，直言"连续好几天研究，很久没有这种兴奋感"。双重催化下，泡泡玛特周二股价单日劲涨逾6%。不过，美国市场3月销售同比骤降46%，二手市场亦现降温，隐忧不容忽视。泡泡玛特迎来强劲提振，高盛最新研报指
+知情人士称，北大西洋公约组织（NATO）计划邀请四个海湾国家的代表出席在安卡拉举行的峰会，伊朗战争和跨大西洋关系裂痕可能将成为此次会谈的焦点。 这些国家 —— 巴林、科威特、卡塔尔和阿联酋 —— 均为“伊斯坦布尔合作倡议”（Istanbul Cooperation Initiative）成员，该倡议为北约与更广泛中东地区非成员国之间的合作机制。 知情人士表示，这些国家的外交部长
 
 ## 正文
 
-高盛最新研报显示，泡泡玛特3月新推两大IP系列——与三丽鸥及FIFA联名的毛绒玩具——在国内线上渠道全线售罄，需求强劲。
+知情人士称，北大西洋公约组织（NATO）计划邀请四个海湾国家的代表出席在安卡拉举行的峰会，伊朗战争和跨大西洋关系裂痕可能将成为此次会谈的焦点。
 
-与此同时，知名投资人段永平高调宣布"开张"，通过卖出看跌期权布局，直言"连续好几天研究，很久没有这种兴奋感"。
+这些国家 —— 巴林、科威特、卡塔尔和阿联酋 —— 均为“伊斯坦布尔合作倡议”（Istanbul Cooperation Initiative）成员，该倡议为北约与更广泛中东地区非成员国之间的合作机制。
 
-双重催化下，泡泡玛特周二股价单日劲涨逾6%。
+知情人士表示，这些国家的外交部长预计将受邀出席7月7日至8日在土耳其首都举行的会议。
 
-不过，美国市场3月销售同比骤降46%，二手市场亦现降温，隐忧不容忽视。
+此次会议召开之际，在伊朗战争爆发后，跨大西洋关系日益紧张。
 
-泡泡玛特迎来强劲提振，高盛最新研报指出，该公司3月新推出的IP系列在国内线上渠道需求旺盛，全线售罄。
+此前，美国总统唐纳德·特朗普批评北约盟友未能协助重启霍尔木兹海峡航运，随后又宣布将从德国撤出约5000名驻军。
 
-此前，知名投资人段永平公开宣布入场，也进一步点燃市场情绪。
+其中一位知情人士称，此举部分源于北约强化其所谓南翼的计划，尤其是在伊朗战争背景下。
 
-周二泡泡玛特股价一度大涨超8%，高盛分析师Michelle Cheng等人在4月13日发布的研报中写道，截至4月10日，该公司所有毛绒玩具系列在官方线上渠道均已售罄，"表明市场需求强劲，新IP人气很高"。
+知情人士表示，本次峰会将设有一个核心会议，仅限32个成员国领导人参加，与去年类似；同时，北约也在考虑邀请印太地区或乌克兰等其他国家领导人，他们将参与周边活动。
 
-该公司3月发布了两个备受瞩目的系列，分别与三丽鸥和国际足联（FIFA）合作。
+他们还表示，此次峰会连续第二年计划以极为精简和压缩的形式举行，以配合美国总统的安排。
 
 ## 相关推荐
 
-- 2026-06-29 20:10 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-29 20:06 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-29 20:26 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 20:24 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 20:15 - [王俊凯命名方式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 20:19 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-29 20:25 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 20:28 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-29 20:26 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 20:23 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-29 20:19 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 20:14 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-29 20:20 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-29 20:24 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 20:14 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 20:30 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-29 20:14 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 20:10 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 20:23 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 20:14 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 20:12 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 20:20 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-29 20:31 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 20:24 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:17 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.minike.top/Article/details/56811194.shtml)
-- 2026-06-29 20:08 - [委内瑞拉发生余震](http://www.share.minike.top/Article/details/2963393.shtml)
-- 2026-06-29 20:08 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/2977210770.shtml)
-- 2026-06-29 20:26 - [日本在最东端离岛部署导弹发射装置](https://www.share.kurohicncr.top/Article/details/80228415485.shtml)
-- 2026-06-29 20:20 - [回顾世界杯争议事件](http://www.blog.kurohicncr.top/Article/details/71982851748.shtml)
-- 2026-06-29 20:15 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/01669771.shtml)
-- 2026-06-29 20:02 - [章若楠包场白敬亭特立独行](https://www.share.kurohicncr.top/Article/details/21513387205.shtml)
-- 2026-06-29 20:28 - [RAY评乘风2026总决赛](http://www.blog.minike.top/Article/details/1468216170.shtml)
-- 2026-06-29 20:12 - [周生如故](http://www.share.minike.top/Article/details/936524.shtml)
-- 2026-06-29 20:06 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/08800414076.shtml)
-- 2026-06-29 20:29 - [宜宾地震已转移安置225人](https://www.share.minike.top/Article/details/157883595.shtml)
-- 2026-06-29 20:09 - [世界杯预测史上最不吃压力之物](http://www.blog.kurohicncr.top/Article/details/36669094543.shtml)
-- 2026-06-29 20:13 - [勇敢的心第二部](https://www.share.minike.top/Article/details/61852.shtml)
-- 2026-06-29 20:12 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/4724250.shtml)
-- 2026-06-29 20:03 - [美人鱼](http://www.share.kurohicncr.top/Article/details/120047261.shtml)
+- 2026-06-29 20:18 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/8306300315.shtml)
+- 2026-06-29 20:27 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/559076748.shtml)
+- 2026-06-29 20:15 - [歼-15型舰载机为何被歼-15T替代](https://www.share.kurohicncr.top/Article/details/801238099.shtml)
+- 2026-06-29 20:11 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/16734783.shtml)
+- 2026-06-29 20:21 - [LPL第三赛段赛制公布](https://www.blog.minike.top/Article/details/163060.shtml)
+- 2026-06-29 20:25 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/20197465.shtml)
+- 2026-06-29 20:09 - [福建海警位金门附近海域常态执法巡查](http://www.share.kurohicncr.top/Article/details/566213.shtml)
+- 2026-06-29 20:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/79707100.shtml)
+- 2026-06-29 20:17 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/62732044577.shtml)
+- 2026-06-29 20:18 - [沉睡花园](https://www.blog.minike.top/Article/details/43958052804.shtml)
+- 2026-06-29 20:21 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/99647682431.shtml)
+- 2026-06-29 20:30 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/44675207.shtml)
+- 2026-06-29 20:28 - [王鸿薇要求删陆委会百余万特别费](http://www.blog.minike.top/Article/details/31221.shtml)
+- 2026-06-29 20:13 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/45637205.shtml)
+- 2026-06-29 20:30 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/73619.shtml)

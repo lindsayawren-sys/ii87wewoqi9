@@ -1,58 +1,55 @@
-# 多位外国政要，密集访华！
+# 中国团队构建全球首例原型气固电池 实现常温常压高效储氢
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-越共中央总书记、国家主席苏林访华 越共中央总书记、国家主席苏林于4月14日至17日对中国进行国事访问。 越共中央总书记、国家主席苏林4月14日上午开始对中国进行为期四天的国事访问。抵达北京后，他随即乘高铁前往雄安新区参访。 阿联酋阿布扎比王储哈立德访华 阿联酋阿布扎比王储哈立德于4月12日至14日对中国进行访问。4月14日，国家主席习近平在北京会见来华进行访问的阿联酋阿布扎比王
+发布时间：2026年05月14日 11:31 来源：中国新闻网 中国科学院大连化学物理研究所(大连化物所)陈萍研究员团队最近成功构建全球首例以氢气和金属为电极的气-固氢负离子原型电池(原型气固电池)，并通过充氢放电、充电放氢，以“氢电共储”方式为实现常温、常压、高效储氢提供了验证。 北京时间5月13日夜间，这项在新型氢负离子电池研发和功能开拓上取得的重要进展，相关成果论文在国际
 
 ## 正文
 
-越共中央总书记、国家主席苏林访华 越共中央总书记、国家主席苏林于4月14日至17日对中国进行国事访问。
+发布时间：2026年05月14日 11:31 来源：中国新闻网 中国科学院大连化学物理研究所(大连化物所)陈萍研究员团队最近成功构建全球首例以氢气和金属为电极的气-固氢负离子原型电池(原型气固电池)，并通过充氢放电、充电放氢，以“氢电共储”方式为实现常温、常压、高效储氢提供了验证。
 
-越共中央总书记、国家主席苏林4月14日上午开始对中国进行为期四天的国事访问。
+北京时间5月13日夜间，这项在新型氢负离子电池研发和功能开拓上取得的重要进展，相关成果论文在国际专业学术期刊《焦耳》上线发表。
 
-抵达北京后，他随即乘高铁前往雄安新区参访。
+陈萍研究员表示，这一原创性成果为破解制约氢能利用半个多世纪的储氢核心技术难题提供了全新技术路线，摆脱了传统储氢所需的高压(700标准大气压)或深冷(-253°C)等极端条件，有望催生新型储氢技术。
 
-阿联酋阿布扎比王储哈立德访华 阿联酋阿布扎比王储哈立德于4月12日至14日对中国进行访问。
+她透露，研究团队未来将聚力发展更高性能氢负离子导体和电极材料，提升电池性能，形成专有技术，加快氢负离子电池向实用化迈进，推动氢能产业发展。
 
-4月14日，国家主席习近平在北京会见来华进行访问的阿联酋阿布扎比王储哈立德。
-
-视频：习近平会见阿联酋阿布扎比王储来源：央视新闻客户端 西班牙首相桑切斯访华 西班牙首相桑切斯于4月11日至15日对中国进行正式访问。
-
-4月11日上午，国家主席习近平在北京钓鱼台国宾馆会见来华访问的西班牙首相桑切斯。
-
-视频：习近平会见西班牙首相桑切斯：共同捍卫真正的多边主义 守护全球和平与发展来源：央视新闻客户端 俄罗斯外长拉夫罗夫访华 俄罗斯外长拉夫罗夫于4月14日至15日对中国进行正式访问。
+(记者 孙自法 制作 王佳琪 视频来源 中国科学院大连化物所） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 20:16 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 20:25 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 20:20 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 20:17 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 20:02 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-29 20:27 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-29 20:17 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-29 20:15 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-29 20:25 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 20:03 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 20:10 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 20:07 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-29 20:34 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 20:17 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 20:18 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-29 20:27 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-29 20:25 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 20:17 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-29 20:27 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 20:25 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 20:06 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-29 20:31 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 20:28 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 20:28 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 20:35 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 20:24 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 20:08 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:01 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.share.minike.top/Article/details/92764923.shtml)
-- 2026-06-29 20:12 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.kurohicncr.top/Article/details/819046163016.shtml)
-- 2026-06-29 20:04 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/595080.shtml)
-- 2026-06-29 20:16 - [《新闻联播》正在直播](http://www.blog.minike.top/Article/details/566529.shtml)
-- 2026-06-29 20:08 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/126944.shtml)
-- 2026-06-29 20:15 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/592040985157.shtml)
-- 2026-06-29 20:13 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/27888.shtml)
-- 2026-06-29 20:27 - [TLAW零封DCG MSI](https://www.share.kurohicncr.top/Article/details/58795928804.shtml)
-- 2026-06-29 20:01 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.share.kurohicncr.top/Article/details/96424837.shtml)
-- 2026-06-29 20:20 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/35800821.shtml)
-- 2026-06-29 20:01 - [湖南耒阳“轮椅女孩”高考546分](http://www.share.kurohicncr.top/Article/details/64520732027.shtml)
-- 2026-06-29 20:11 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.blog.kurohicncr.top/Article/details/7784791.shtml)
-- 2026-06-29 20:19 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/7701394.shtml)
-- 2026-06-29 20:09 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/289112923723.shtml)
-- 2026-06-29 20:02 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/112349548748.shtml)
+- 2026-06-29 20:06 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/89945612.shtml)
+- 2026-06-29 20:09 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/5335995106.shtml)
+- 2026-06-29 20:28 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/301912635277.shtml)
+- 2026-06-29 20:30 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/2044915.shtml)
+- 2026-06-29 20:29 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/772733297.shtml)
+- 2026-06-29 20:14 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/8667734.shtml)
+- 2026-06-29 20:19 - [恋与深空客服的回应](http://www.blog.kurohicncr.top/Article/details/246915279071.shtml)
+- 2026-06-29 20:16 - [日本在最东端离岛部署导弹发射装置](https://www.share.minike.top/Article/details/5050027695.shtml)
+- 2026-06-29 20:34 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/69928.shtml)
+- 2026-06-29 20:28 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/827802.shtml)
+- 2026-06-29 20:31 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/06821351.shtml)
+- 2026-06-29 20:35 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/670901165850.shtml)
+- 2026-06-29 20:22 - [运20对中国空军的意义是什么](https://www.share.kurohicncr.top/Article/details/75532816.shtml)
+- 2026-06-29 20:12 - [被中方管控的20家日本实体什么来头](http://www.share.minike.top/Article/details/98954.shtml)
+- 2026-06-29 20:23 - [济南航空航天全面起势](https://www.blog.kurohicncr.top/Article/details/0644048.shtml)

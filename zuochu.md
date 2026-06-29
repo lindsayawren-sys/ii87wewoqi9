@@ -1,58 +1,61 @@
-# 纪念“乒乓外交”友谊赛在沪举行 中美亲历者冀两国青年接续友谊
+# 太空视角看长江巨变 褪去“工业锈带” 绘就生态新画卷
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-中新网上海4月13日电 (记者 国璇 许婧)4月13日在上海体育大学中国乒乓球学院训练馆，中美青年进行了“乒乓外交”55周年纪念活动上海友谊赛。一旁认真观赛的美方亲历者朱迪·霍夫罗斯特想起了当年15岁的自己在中国打友谊赛的场景，她告诉中新网记者，希望有更多青年成为两国的友谊使者，将“乒乓外交”精神永远传承下去。 上海是中国乒乓球运动的发源地之一，有着深厚的乒乓文化底蕴。1971
+长江是中华民族的母亲河，也是中华民族发展的重要支撑。十年来，长江经济带优良水质比例从67%提升到96.5%，地区生产总值翻了一番多，占全国比重从42.2%提升到47.3%，绘就了人与自然和谐共生的中国式现代化长江画卷。 接下来，切换为太空视角，顺流而下，一览长江十年巨变。 卫星瞰十年 长江焕新颜 从太空俯瞰，万里长江自青藏高原奔涌而下，与群山相拥、与沃野相依，激荡出一幅恢宏的壮
 
 ## 正文
 
-中新网上海4月13日电 (记者 国璇 许婧)4月13日在上海体育大学中国乒乓球学院训练馆，中美青年进行了“乒乓外交”55周年纪念活动上海友谊赛。
+长江是中华民族的母亲河，也是中华民族发展的重要支撑。
 
-一旁认真观赛的美方亲历者朱迪·霍夫罗斯特想起了当年15岁的自己在中国打友谊赛的场景，她告诉中新网记者，希望有更多青年成为两国的友谊使者，将“乒乓外交”精神永远传承下去。
+十年来，长江经济带优良水质比例从67%提升到96.5%，地区生产总值翻了一番多，占全国比重从42.2%提升到47.3%，绘就了人与自然和谐共生的中国式现代化长江画卷。
 
-上海是中国乒乓球运动的发源地之一，有着深厚的乒乓文化底蕴。
+接下来，切换为太空视角，顺流而下，一览长江十年巨变。
 
-1971年4月，美国乒乓球队访华，在访问了北京后到达上海，并与上海乒乓球队进行了友谊比赛。
+卫星瞰十年 长江焕新颜 从太空俯瞰，万里长江自青藏高原奔涌而下，与群山相拥、与沃野相依，激荡出一幅恢宏的壮美图景。
 
-纪念“乒乓外交”55周年之际，中美年轻一代在上海再续“友谊第一、比赛第二”的“乒乓情缘”。
+从“灰漫天”到“绿满园” 生态修复焕新颜 重庆，是长江上游生态屏障的最后一道关口。
 
-美国乒乓球协会会员德文·德利昂早早输了比赛，不过这并未影响他的观赛热情。
+这是一幅2016年卫星拍摄的影像，可以看到，位于涪陵区南岸浦的长江边，曾经有一座化工厂区，灰白色的废渣堆成了一座高达130米的“污染山”，占用了土地、破坏了环境。
 
-“‘小球转动大球’，这听起来是个很不可思议的故事，但体育的确有连接人们的独特力量。
+2019年，当地关停了这座老旧厂区，并全面启动环保治理，对占地约900亩的废渣堆场进行覆土复绿、生态重塑。
 
-”他说，“当你和对方打球的时候，你们两人也在同时享受着乒乓球的乐趣，好像有一条纽带将你们连接成一个社群。
+昔日白灰蔽日、尘土飞扬的废弃矿区，如今褪去斑驳旧貌，变身草木葱茏、步道蜿蜒的城市滨江公园。
 
 ## 相关推荐
 
-- 2026-06-29 20:05 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 20:12 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 20:06 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-29 20:04 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-29 20:01 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 20:08 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-29 20:09 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-29 20:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 20:25 - [伊朗足球队将启程回国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 20:05 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-29 20:21 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-29 20:28 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 20:19 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-29 20:07 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-29 20:06 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-29 20:35 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-29 20:33 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-29 20:19 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 20:09 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 20:09 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 20:19 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 20:35 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 20:27 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 20:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 20:27 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-29 20:10 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 20:26 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:19 - [中方在台湾岛以东海域活动合理合法](https://www.share.minike.top/Article/details/249876.shtml)
-- 2026-06-29 20:12 - [笔记本电脑一年涨价近一倍](http://www.share.kurohicncr.top/Article/details/45956890010.shtml)
-- 2026-06-29 20:18 - [媒体评恋与深空用“引狼入室”台词](http://www.share.minike.top/Article/details/450389085272.shtml)
-- 2026-06-29 20:20 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/8590068.shtml)
-- 2026-06-29 20:12 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/2853456.shtml)
-- 2026-06-29 20:15 - [博主：比亚迪赢了销量却输给资本](http://www.blog.minike.top/Article/details/756597427167.shtml)
-- 2026-06-29 20:02 - [TTG KSG](http://www.blog.kurohicncr.top/Article/details/81219921108.shtml)
-- 2026-06-29 20:00 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.kurohicncr.top/Article/details/8979729.shtml)
-- 2026-06-29 20:21 - [爱奇艺抬高国剧新标尺](https://www.share.kurohicncr.top/Article/details/42358344.shtml)
-- 2026-06-29 20:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/70088540.shtml)
-- 2026-06-29 20:06 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/553919588531.shtml)
-- 2026-06-29 20:08 - [逃狱兄弟](http://www.share.minike.top/Article/details/37290.shtml)
-- 2026-06-29 20:23 - [互助版模拟高考志愿填报](http://www.blog.kurohicncr.top/Article/details/57416425.shtml)
-- 2026-06-29 20:13 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/94815.shtml)
-- 2026-06-29 20:26 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/75298152.shtml)
+- 2026-06-29 20:23 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/912067362071.shtml)
+- 2026-06-29 20:31 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/2840523102.shtml)
+- 2026-06-29 20:16 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/09811513009.shtml)
+- 2026-06-29 20:32 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.blog.minike.top/Article/details/442854700.shtml)
+- 2026-06-29 20:16 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/0655593134.shtml)
+- 2026-06-29 20:27 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/34525.shtml)
+- 2026-06-29 20:21 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/32730190850.shtml)
+- 2026-06-29 20:19 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/901591.shtml)
+- 2026-06-29 20:06 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/65018789457.shtml)
+- 2026-06-29 20:12 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/39762428.shtml)
+- 2026-06-29 20:15 - [恋与深空致歉](https://www.blog.kurohicncr.top/Article/details/90905.shtml)
+- 2026-06-29 20:25 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/902259102601.shtml)
+- 2026-06-29 20:28 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/7237137698.shtml)
+- 2026-06-29 20:27 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/43879.shtml)
+- 2026-06-29 20:34 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/7175507.shtml)

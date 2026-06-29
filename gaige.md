@@ -1,61 +1,58 @@
-# IDC：2026年Q1全球智能手机出货量下滑4.1%，三星、苹果逆势增长
+# 元首外交即将开启中美关系新篇章（国际论坛）
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！（来源：IT之家）IT之家 4 月 15 日消息，根据 IDC 今日最新发布的《全球季度手机跟踪报告》初步数据显示，2026 年第一季度，全球智能手机出货量同比下降 4.1%，至 2.897 亿部。这打破了自 2023 年年中以来市场连续十个季度的增长势头。预计，第一季度的放缓只是 2026 年全年形势一个
+人民日报 章思远 应中国国家主席习近平邀请，美国总统特朗普将于5月13日至15日对中国进行国事访问。这是美国总统时隔9年再次访华，是特朗普总统第二个任期内首次访华，亦是今年以来中美元首首次面对面会晤。中美元首即将聚首北京，举世瞩目。此访对新时代中美关系发展具有重要历史意义。 今年中美两国各自都有不少重要议程。中国十四届全国人大四次会议审查批准了“十五五”规划纲要，为“十五五”时
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+人民日报 章思远 应中国国家主席习近平邀请，美国总统特朗普将于5月13日至15日对中国进行国事访问。
 
-（来源：IT之家）IT之家 4 月 15 日消息，根据 IDC 今日最新发布的《全球季度手机跟踪报告》初步数据显示，2026 年第一季度，全球智能手机出货量同比下降 4.1%，至 2.897 亿部。
+这是美国总统时隔9年再次访华，是特朗普总统第二个任期内首次访华，亦是今年以来中美元首首次面对面会晤。
 
-这打破了自 2023 年年中以来市场连续十个季度的增长势头。
+中美元首即将聚首北京，举世瞩目。
 
-预计，第一季度的放缓只是 2026 年全年形势一个温和的前兆，因为存储相关的供应紧张和价格上涨将进一步抑制市场增长。
+此访对新时代中美关系发展具有重要历史意义。
 
-IT之家从数据中获悉，三星和苹果这两家头部公司也是全球前五名中仅有的两家实现同比正增长的厂商。
+今年中美两国各自都有不少重要议程。
 
-它们专注于高端市场，并且对存储芯片供应商有更强的议价能力，因而能更好地应对这场危机并获取市场份额。
+中国十四届全国人大四次会议审查批准了“十五五”规划纲要，为“十五五”时期经济社会发展指明了方向，全国人民正为努力实现“十五五”良好开局而努力奋斗。
 
-随着智能手机市场为了抵消 BOM 成本上升而向更高价位段转移，所有厂商都面临巨大压力，尤其是那些低端机型占比较高的厂商。
+中国式现代化进程稳步推进，将为包括美国在内的各国带来更多机遇。
 
-尽管如此，小米、OPPO 和 vivo 在本季度基本保住了市场份额，仅有小幅流失。
+美国迎来独立250周年。
 
 ## 相关推荐
 
-- 2026-06-29 20:25 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 20:04 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 20:24 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-29 20:18 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-29 20:29 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-29 20:16 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 20:01 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-29 20:11 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 20:09 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-29 20:16 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 20:21 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-29 20:18 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 20:03 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-29 20:09 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 20:27 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-29 20:31 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 20:32 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-29 20:12 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-29 20:31 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 20:35 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 20:33 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 20:09 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 20:31 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 20:28 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-29 20:24 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 20:24 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 20:27 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:15 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.minike.top/Article/details/68832.shtml)
-- 2026-06-29 20:04 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.kurohicncr.top/Article/details/04409831486.shtml)
-- 2026-06-29 20:14 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/93631912.shtml)
-- 2026-06-29 20:07 - [沙丘](https://www.blog.kurohicncr.top/Article/details/758940.shtml)
-- 2026-06-29 20:14 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/4944439.shtml)
-- 2026-06-29 20:12 - [世界杯在中国观看最多的比赛](http://www.share.kurohicncr.top/Article/details/358282480.shtml)
-- 2026-06-29 20:01 - [天气热脾气都变差了](http://www.share.kurohicncr.top/Article/details/41363335346.shtml)
-- 2026-06-29 20:28 - [河南高院审委会原委员曲海滨被查](https://www.blog.minike.top/Article/details/6592364511.shtml)
-- 2026-06-29 20:11 - [东方风云榜](https://www.blog.minike.top/Article/details/43631339876.shtml)
-- 2026-06-29 20:20 - [中方绝不允许日菲侵害我海洋权益](http://www.share.kurohicncr.top/Article/details/457385592.shtml)
-- 2026-06-29 20:28 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/22623045260.shtml)
-- 2026-06-29 20:28 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.blog.minike.top/Article/details/142872.shtml)
-- 2026-06-29 20:01 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/126720.shtml)
-- 2026-06-29 20:21 - [RAY评乘风2026总决赛](http://www.blog.kurohicncr.top/Article/details/3787054.shtml)
-- 2026-06-29 20:17 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.blog.minike.top/Article/details/6580995041.shtml)
+- 2026-06-29 20:30 - [中方向委方追加1亿元援助](https://www.share.kurohicncr.top/Article/details/5815247093.shtml)
+- 2026-06-29 20:08 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.minike.top/Article/details/77343887652.shtml)
+- 2026-06-29 20:16 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/059999430713.shtml)
+- 2026-06-29 20:27 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/727960600.shtml)
+- 2026-06-29 20:08 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/62617379.shtml)
+- 2026-06-29 20:33 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/0354365731.shtml)
+- 2026-06-29 20:17 - [歼-15型舰载机为何被歼-15T替代](https://www.blog.kurohicncr.top/Article/details/7328340.shtml)
+- 2026-06-29 20:16 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/694670468915.shtml)
+- 2026-06-29 20:33 - [韩国队回国欢迎仪式取消](https://www.share.kurohicncr.top/Article/details/19743.shtml)
+- 2026-06-29 20:12 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/41990296.shtml)
+- 2026-06-29 20:34 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/4220886.shtml)
+- 2026-06-29 20:11 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/82104.shtml)
+- 2026-06-29 20:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/41798.shtml)
+- 2026-06-29 20:21 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.kurohicncr.top/Article/details/45563011182.shtml)
+- 2026-06-29 20:30 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/602583.shtml)

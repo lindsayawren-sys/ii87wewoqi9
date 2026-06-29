@@ -1,60 +1,59 @@
-# 九岭锂业冲A折戟！谁还卡在IPO“问询关”
+# 光大期货：5月13日农产品日报
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-来源：资本秘闻 在问询阶段“排队”约三年时间后，江西九岭锂业股份有限公司（以下简称“九岭锂业”）冲A进程于近日宣告终止。上交所官网显示，公司已撤回主板IPO申请。北京商报记者注意到，在当前沪深交易所IPO审核明显提速的背景下，仍有部分企业已在问询阶段停滞较长时间。经梳理，截至目前，沪深交易所共有10家企业在2025年前就已进入问询阶段，但至今未能等到上会机会。其中，海康机器、环
+蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周二，CBOT大豆收高，因USDA公布的26/27的美豆库存和产量低于预期。美豆、美豆粕和美豆油均走高。USDA 5月供需报告预估，26/27年度美豆库存将从3.4亿蒲下降至3.1亿蒲，低于分析师预估的3.64亿蒲。小麦价格飙升提振了美豆和美玉米价格。原油价格走高，因霍尔木兹海峡继续关闭。国内
 
 ## 正文
 
-来源：资本秘闻 在问询阶段“排队”约三年时间后，江西九岭锂业股份有限公司（以下简称“九岭锂业”）冲A进程于近日宣告终止。
+蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周二，CBOT大豆收高，因USDA公布的26/27的美豆库存和产量低于预期。
 
-上交所官网显示，公司已撤回主板IPO申请。
+美豆、美豆粕和美豆油均走高。
 
-北京商报记者注意到，在当前沪深交易所IPO审核明显提速的背景下，仍有部分企业已在问询阶段停滞较长时间。
+USDA 5月供需报告预估，26/27年度美豆库存将从3.4亿蒲下降至3.1亿蒲，低于分析师预估的3.64亿蒲。
 
-经梳理，截至目前，沪深交易所共有10家企业在2025年前就已进入问询阶段，但至今未能等到上会机会。
+小麦价格飙升提振了美豆和美玉米价格。
 
-其中，海康机器、环动科技两宗IPO均涉及“A拆A”。
+原油价格走高，因霍尔木兹海峡继续关闭。
 
-问询历时三年后撤单 九岭锂业冲A进程告败。
+国内方面，两粕增仓坚挺，今日有望跟随外盘走高。
 
-近日，上交所官网显示，因公司及保荐人撤回发行上市申请，根据有关规定，终止公司发行上市审核。
+5月国内大豆到港压力大，以及养殖端亏损严重，现货滞涨期货，基差走弱。
 
-从冲击上市进程来看，九岭锂业主板IPO于2023年2月28日获得上交所受理，随后于同年3月26日进入问询阶段。
+操作上，短线参与。
 
 ## 相关推荐
 
-- 2026-06-29 20:07 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-29 20:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 20:02 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 20:04 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 20:11 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 20:01 - [佛得角队长门德斯被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-29 20:10 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-29 20:24 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 20:05 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 20:07 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-29 20:14 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-29 20:08 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 20:19 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-29 20:01 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-29 20:24 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-29 20:16 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 20:25 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-29 20:14 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-29 20:21 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-29 20:17 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 20:11 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-29 20:18 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 20:16 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 20:15 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-29 20:20 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-29 20:35 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 20:36 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:15 - [《贺子珍》](http://www.share.minike.top/Article/details/4975853977.shtml)
-- 2026-06-29 20:08 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/74211938.shtml)
-- 2026-06-29 20:10 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/2855413772.shtml)
-- 2026-06-29 20:29 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/7134302.shtml)
-- 2026-06-29 20:24 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/07743802379.shtml)
-- 2026-06-29 20:00 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/13237.shtml)
-- 2026-06-29 20:19 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/60312.shtml)
-- 2026-06-29 20:18 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/919333256520.shtml)
-- 2026-06-29 20:10 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/21150270663.shtml)
-- 2026-06-29 20:11 - [扬名立万](http://www.share.kurohicncr.top/Article/details/8150594764.shtml)
-- 2026-06-29 20:15 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/732393238.shtml)
-- 2026-06-29 20:16 - [特朗普两大核心赌注将迎高院裁决](https://www.blog.minike.top/Article/details/355055606344.shtml)
-- 2026-06-29 20:13 - [恋与深空7天掉粉超50万](http://www.share.kurohicncr.top/Article/details/40936.shtml)
-- 2026-06-29 20:01 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/898240.shtml)
-- 2026-06-29 20:13 - [网友晒14年前支教影像等来学生评论](http://www.blog.minike.top/Article/details/40142058.shtml)
+- 2026-06-29 20:26 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/57322434597.shtml)
+- 2026-06-29 20:34 - [河南高院审委会原委员曲海滨被查](http://www.blog.minike.top/Article/details/2567633504.shtml)
+- 2026-06-29 20:13 - [《贺子珍》](http://www.blog.minike.top/Article/details/9470634.shtml)
+- 2026-06-29 20:33 - [每天通勤往返3h的感觉](http://www.share.kurohicncr.top/Article/details/110005563.shtml)
+- 2026-06-29 20:26 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/5756121328.shtml)
+- 2026-06-29 20:14 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/9227103178.shtml)
+- 2026-06-29 20:10 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.minike.top/Article/details/117937161294.shtml)
+- 2026-06-29 20:09 - [世界杯高票价为何没劝退球迷](https://www.blog.minike.top/Article/details/89905672.shtml)
+- 2026-06-29 20:11 - [金牌调解](https://www.share.minike.top/Article/details/35600.shtml)
+- 2026-06-29 20:30 - [一汽大众黄金超混技术来袭](http://www.blog.minike.top/Article/details/394486404.shtml)
+- 2026-06-29 20:26 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/947708.shtml)
+- 2026-06-29 20:32 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/85254.shtml)
+- 2026-06-29 20:22 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/60354902.shtml)
+- 2026-06-29 20:08 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/730051240129.shtml)
+- 2026-06-29 20:36 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/3091141.shtml)

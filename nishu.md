@@ -1,59 +1,59 @@
-# 太原重工索赔已提交立案，符合要求还可加入
+# 中金：京东物流目标价升至19.4港元 维持“跑赢行业”评级
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 一、已有案件递交立案 近日，上海沪紫律师事务所刘鹏律师团队已递交了上百位投资者案件提交至全国证券期货交易纠纷调解平台登记。 回溯本案，太原重工于2025年12月26日公告，公司及相关当事人收到西监管局下发的《行政处罚决定书》。一张涉及近2500万元罚款的行政处罚决定书，揭开了太原重工一场持续七年的财务数据粉饰游戏。 据调查，太原
+中金发布研报称，维持京东物流（02618）2026年和2027年盈利预测，预计2026及27年non-IFRS净利润分别为97.4亿元及107.7亿元。维持“跑赢行业”评级，但由于看好未来盈利及股东回报稳健增长、综合考虑市场风险偏好，上调目标价22%至19.4港元。 京东物流首季业绩胜该行及市场预期。收入同比增长29%至606亿元人民币（下同）； 净利润同比增长95%至8.8亿
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 一、已有案件递交立案 近日，上海沪紫律师事务所刘鹏律师团队已递交了上百位投资者案件提交至全国证券期货交易纠纷调解平台登记。
+中金发布研报称，维持京东物流（02618）2026年和2027年盈利预测，预计2026及27年non-IFRS净利润分别为97.4亿元及107.7亿元。
 
-回溯本案，太原重工于2025年12月26日公告，公司及相关当事人收到西监管局下发的《行政处罚决定书》。
+维持“跑赢行业”评级，但由于看好未来盈利及股东回报稳健增长、综合考虑市场风险偏好，上调目标价22%至19.4港元。
 
-一张涉及近2500万元罚款的行政处罚决定书，揭开了太原重工一场持续七年的财务数据粉饰游戏。
+京东物流首季业绩胜该行及市场预期。
 
-据调查，太原重工的信息披露违法行为主要涉及公司与黑龙江瑞好科技集团有限公司合作的“拉弹泡300MW风电工程项目”。
+收入同比增长29%至606亿元人民币（下同）； 净利润同比增长95%至8.8亿元；non-IFRS净利润同比增长40.1%至10.5亿元。
 
-公司在相关年度通过多种方式操纵财务数据。
+首季业绩超出该行预期，主由海外业务加速扩张、供应链业务客户合作加深、快递业务服务优化带动量收增长。
 
-依据处罚，于2015年4月11日-2025年7月25日（含当日）期间买入，并在2025年7月26日之后卖出或仍持有而亏损的投资者可报名索赔。
+报告指，公司首季一体化供应链客户收入同比增长25.9%至292亿元，其中：来自京东集团的收入同比增长32%至194亿元，主要受益于海外业务加速扩张、零售主要品类稳健增长； 外部一体化供应链客户收入同比增长15.5%至98亿元，公司加深与各行业龙头客户的战略合作，实现单客平均收入同比增长7%至14.4万元，客户数量同比增长7.5%达6.8万个。
 
-二、多年财报存在造假 具体来看，2014年公司多计营业收入7.57亿元，占当期披露营收的8.39%；多计利润总额1.55亿元，占当期披露利润总额的763.89%，虚增幅度极为显著。
+其他客户收入同比增长32%至314亿元，估计主要受益于并表秒送，以及快递时效优化、量价双升。
 
-造假行为并非孤例。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 20:13 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-29 20:23 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-29 20:00 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-29 20:23 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-29 20:10 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 20:16 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 20:19 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 20:28 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 20:22 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 20:11 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-29 20:14 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-29 20:18 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-29 20:13 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 20:15 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 20:29 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-29 20:07 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-29 20:31 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-29 20:25 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-29 20:12 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-29 20:29 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 20:29 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 20:35 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 20:15 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 20:33 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 20:13 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-29 20:29 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:20 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/707636338354.shtml)
-- 2026-06-29 20:11 - [李思潼回应运气好演《给阿嬷的情书》](http://www.share.kurohicncr.top/Article/details/714558823045.shtml)
-- 2026-06-29 20:12 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/6681185552.shtml)
-- 2026-06-29 20:16 - [德国医生在没有空调的手术室工作](http://www.share.kurohicncr.top/Article/details/724310016.shtml)
-- 2026-06-29 20:18 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/82161.shtml)
-- 2026-06-29 20:10 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/771606.shtml)
-- 2026-06-29 20:19 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/47811952400.shtml)
-- 2026-06-29 20:00 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.kurohicncr.top/Article/details/455507674.shtml)
-- 2026-06-29 20:07 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/873908998721.shtml)
-- 2026-06-29 20:15 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/3071704.shtml)
-- 2026-06-29 20:24 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.kurohicncr.top/Article/details/906728912842.shtml)
-- 2026-06-29 20:16 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/223957138542.shtml)
-- 2026-06-29 20:00 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/00939702622.shtml)
-- 2026-06-29 20:21 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/0524748084.shtml)
-- 2026-06-29 20:05 - [宜宾地震已转移安置225人](http://www.blog.minike.top/Article/details/55164752418.shtml)
+- 2026-06-29 20:16 - [每天通勤往返3h的感觉](http://www.share.kurohicncr.top/Article/details/5534597.shtml)
+- 2026-06-29 20:07 - [湖南耒阳“轮椅女孩”高考546分](https://www.blog.kurohicncr.top/Article/details/444751905.shtml)
+- 2026-06-29 20:27 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/366851087998.shtml)
+- 2026-06-29 20:34 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/06688.shtml)
+- 2026-06-29 20:24 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/535030.shtml)
+- 2026-06-29 20:14 - [一生一世](https://www.blog.minike.top/Article/details/28121.shtml)
+- 2026-06-29 20:07 - [《贺子珍》](http://www.blog.minike.top/Article/details/110356995.shtml)
+- 2026-06-29 20:09 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/03851.shtml)
+- 2026-06-29 20:30 - [吴建豪和老婆差20岁](http://www.blog.minike.top/Article/details/648634053816.shtml)
+- 2026-06-29 20:21 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/32823510645.shtml)
+- 2026-06-29 20:34 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.kurohicncr.top/Article/details/688239293147.shtml)
+- 2026-06-29 20:08 - [起风了](http://www.share.kurohicncr.top/Article/details/18213212.shtml)
+- 2026-06-29 20:06 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/579870517.shtml)
+- 2026-06-29 20:28 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/054281.shtml)
+- 2026-06-29 20:07 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/3386150.shtml)

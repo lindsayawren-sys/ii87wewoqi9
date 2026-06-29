@@ -1,58 +1,57 @@
-# 丹麦研究：孕期服用泰诺不会导致自闭症
+# 英国最大商业游说机构：钢铁关税调整将引发重大困境
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-根据一项来自丹麦的大型研究，孕期服用对乙酰氨基酚（泰诺为该药的美国常见商品名）与儿童患自闭症、多动症或智力障碍的风险之间没有关联。该研究结果与此前引发公众担忧的结论相悖，为孕期使用该药的安全性提供了有力证据。 研究方法：覆盖超百万人群的追踪分析 这项由丹麦研究团队主导、发表于《新英格兰医学杂志》的研究，利用丹麦全国医疗登记系统，对超过230万名儿童进行了最长14年的追踪随访。这
+英国最大商业游说机构警告称，英国政府拟从7月起将钢铁进口关税翻倍，此举将给本国制造商和建筑行业带来严重的财务及供应链物流难题。 英国媒体看到的一封信件显示，英国商会正寻求与商业及贸易大臣紧急会面，敦促其重新考量政府今年3月出台的钢铁行业保护政策。 英国计划自7月1日起，将钢铁免关税进口配额削减60%，其余所有钢铁进口产品关税翻倍至50%。业内表示，这一政策将重创依赖钢铁进口的制
 
 ## 正文
 
-根据一项来自丹麦的大型研究，孕期服用对乙酰氨基酚（泰诺为该药的美国常见商品名）与儿童患自闭症、多动症或智力障碍的风险之间没有关联。
+英国最大商业游说机构警告称，英国政府拟从7月起将钢铁进口关税翻倍，此举将给本国制造商和建筑行业带来严重的财务及供应链物流难题。
 
-该研究结果与此前引发公众担忧的结论相悖，为孕期使用该药的安全性提供了有力证据。
+英国媒体看到的一封信件显示，英国商会正寻求与商业及贸易大臣紧急会面，敦促其重新考量政府今年3月出台的钢铁行业保护政策。
 
-研究方法：覆盖超百万人群的追踪分析 这项由丹麦研究团队主导、发表于《新英格兰医学杂志》的研究，利用丹麦全国医疗登记系统，对超过230万名儿童进行了最长14年的追踪随访。
+英国计划自7月1日起，将钢铁免关税进口配额削减60%，其余所有钢铁进口产品关税翻倍至50%。
 
-这是迄今该领域规模最大、设计最严谨的研究之一。
+业内表示，这一政策将重创依赖钢铁进口的制造企业。
 
-研究采用兄弟姐妹对照设计，即比较同一母亲所生、但孕期用药情况不同的子女。
+新关税政策初衷是保护处境艰难的英国钢铁产业。
 
-这种方法可以有效排除遗传和家庭环境因素的干扰，比常规观察性研究更能接近因果关系的判断。
+英国首相基尔·斯塔默本周已推出立法，拟将英国钢铁公司国有化，以此扶持本土钢铁行业。
 
-核心发现：对乙酰氨基酚不增加神经发育障碍风险 研究结果显示： 研究人员指出，此前一些显示关联的研究可能受到“混淆偏倚”的影响——即真正导致风险增加的可能是母亲服药背后的疾病本身，如感染或发热，而非药物本身。
+但制造业行业协会坚持认为，新规将对汽车制造、航空航天、医疗科技等依赖境外进口钢材的行业造成严重冲击。
 
-研究意义：平息争议，指导临床实践 自2025年以来，关于孕期使用泰诺与自闭症之间的潜在关联引发了广泛公众担忧。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 20:21 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-29 20:03 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 20:24 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 20:06 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-29 20:27 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 20:12 - [东宫女主是不是顶级恋爱脑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-29 20:18 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 20:06 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 20:18 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-29 20:18 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 20:05 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-29 20:25 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-29 20:33 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-29 20:20 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 20:30 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-29 20:21 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 20:17 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 20:23 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-29 20:19 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 20:33 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 20:14 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 20:32 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-29 20:23 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:12 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/675709444.shtml)
-- 2026-06-29 20:17 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.kurohicncr.top/Article/details/49995387.shtml)
-- 2026-06-29 20:16 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/195179419.shtml)
-- 2026-06-29 20:26 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/5691629.shtml)
-- 2026-06-29 20:11 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/25530133372.shtml)
-- 2026-06-29 20:27 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.blog.minike.top/Article/details/7127098759.shtml)
-- 2026-06-29 20:02 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/57423.shtml)
-- 2026-06-29 20:15 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/690556.shtml)
-- 2026-06-29 20:03 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/05887.shtml)
-- 2026-06-29 20:29 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/6489841470.shtml)
-- 2026-06-29 20:28 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.kurohicncr.top/Article/details/07387978816.shtml)
-- 2026-06-29 20:16 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/057931626.shtml)
-- 2026-06-29 20:14 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/039483285.shtml)
-- 2026-06-29 20:06 - [中方向委方追加1亿元援助](http://www.share.kurohicncr.top/Article/details/70991122270.shtml)
-- 2026-06-29 20:21 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/12163361214.shtml)
+- 2026-06-29 20:35 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/78516429.shtml)
+- 2026-06-29 20:25 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/56581.shtml)
+- 2026-06-29 20:30 - [湖南姑娘被东北同事带偏口音](http://www.share.minike.top/Article/details/09654455864.shtml)
+- 2026-06-29 20:18 - [中方向委方追加1亿元援助](https://www.blog.minike.top/Article/details/97033.shtml)
+- 2026-06-29 20:06 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.minike.top/Article/details/05869470.shtml)
+- 2026-06-29 20:34 - [勇敢的心第二部](https://www.share.minike.top/Article/details/726068.shtml)
+- 2026-06-29 20:10 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/08305.shtml)
+- 2026-06-29 20:12 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/15820.shtml)
+- 2026-06-29 20:15 - [中方绝不允许日菲侵害我海洋权益](http://www.share.kurohicncr.top/Article/details/98684673687.shtml)
+- 2026-06-29 20:32 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/103978.shtml)
+- 2026-06-29 20:34 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/24462474551.shtml)
+- 2026-06-29 20:13 - [李思潼回应运气好演《给阿嬷的情书》](https://www.blog.minike.top/Article/details/26670.shtml)
+- 2026-06-29 20:21 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/016879496493.shtml)
+- 2026-06-29 20:10 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/4591828068.shtml)
+- 2026-06-29 20:33 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/847809947171.shtml)

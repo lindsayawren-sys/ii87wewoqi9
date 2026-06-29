@@ -1,57 +1,58 @@
-# 香港发布法律专业服务提供者名册 助力内地企业“出海”
+# 东兴海关综合技术服务中心AB Triple Quad4500超高效液相色谱串联质谱仪维保服务项目竞争性协商公告
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-中新网香港4月14日电 香港特区政府律政司14日发布《支援“出海”香港法律专业服务提供者名册》(简称“名册”)，涵盖逾70个香港法律服务单位，协助中国内地企业按需与香港法律专业服务对接。 据介绍，名册包括国际仲裁机构、执业大律师，以及60家不同规模的香港本地、国际以及注册外地律师事务所，并依据法律服务提供者的业务专长将其分为12个类别，包括合规及规管、资本市场、银行及金融、税务
+东兴海关综合技术服务中心委托广西建通工程咨询有限责任公司，对东兴海关综合技术服务中心AB Triple Quad4500超高效液相色谱串联质谱仪维保服务项目进行竞争性协商采购，该项目为非政府采购项目，欢迎符合条件的供应商前来参加协商活动，现将有关事项通知如下：一、采购项目名称：东兴海关综合技术服务中心AB Triple Quad4500超高效液相色谱串联质谱仪维保服务项目 二、
 
 ## 正文
 
-中新网香港4月14日电 香港特区政府律政司14日发布《支援“出海”香港法律专业服务提供者名册》(简称“名册”)，涵盖逾70个香港法律服务单位，协助中国内地企业按需与香港法律专业服务对接。
+东兴海关综合技术服务中心委托广西建通工程咨询有限责任公司，对东兴海关综合技术服务中心AB Triple Quad4500超高效液相色谱串联质谱仪维保服务项目进行竞争性协商采购，该项目为非政府采购项目，欢迎符合条件的供应商前来参加协商活动，现将有关事项通知如下：一、采购项目名称：东兴海关综合技术服务中心AB Triple Quad4500超高效液相色谱串联质谱仪维保服务项目 二、采购项目编号： GXJTZ\[2026\]1100416 三、采购项目的名称、数量、简要规格描述或项目基本概况介绍： 东兴海关综合技术服务中心AB Triple Quad4500超高效液相色谱串联质谱仪维保服务项目一项，详情见协商文件。
 
-据介绍，名册包括国际仲裁机构、执业大律师，以及60家不同规模的香港本地、国际以及注册外地律师事务所，并依据法律服务提供者的业务专长将其分为12个类别，包括合规及规管、资本市场、银行及金融、税务等。
+四、采购预算金额(人民币)：12.7万元 五、协商供应商资格要求： 1.符合中华人民共和国法律法规要求，具有经营本次采购货物或服务能力的企事业单位； 2.本项目不接受联合体参与协商。
 
-名册上的服务提供者亦可向香港贸易发展局设立的出海专班跨界别专业服务平台提交资料，方便有出海需求的企业通过该网站查阅相关信息并进行业务配对。
+3.本项目不接受未购买本竞争性协商文件的供应商参与协商。
 
-香港特区政府律政司副司长张国钧表示，名册充分体现香港法律专业服务的广度与深度。
+六、竞争性协商文件的获取： 1.凡有意参加协商者，请于公告发布之日起至2026年5月19日17时30分止(法定公休日、法定节假日除外)，每日上午9时至12时，下午15时00分至17时30分(北京时间，下同)，由法定代表人或委托代理人携带本人身份证原件和复印件(委托代理人须携带法定代表人授权书原件)、主体资格证明(如营业执照或事业单位法人证书)副本复印件获取，以上复印件均须加盖单位公章。
 
-香港法律界具备回应不同出海模式、不同发展阶段及不同行业对高质量法律服务需求的能力，能够为企业提供全商业周期、全方位的法律专业支援。
+地址：南宁市金凯路26号广西建通中心3楼商务中心 2.采购文件每套售价300元，售后不退。
 
-名册的发布将助力香港专业服务出海平台发挥“金牌媒人”的角色。
+七、协商保证金(人民币)：人民币壹仟贰佰元整 (￥1200.00)(须一次性足额交纳)； 协商供应商应于响应文件递交截止时间前将协商保证金以电汇、转账等非现金形式交至以下账户并确保到账。
 
-此外，律政司亦正筹备发布第二辑出海成功案例实录，为有意深入了解香港法律及其他专业服务的企业提供实用参考。
+账户名称：广西建通工程咨询有限责任公司南宁第三分公司； 账号：805007933300001； 开户行：广西北部湾银行股份有限公司营业部。
 
-张国钧期望通过实际案例，讲好“成功出海，首选香港”的故事，向内地以及海外企业和持份者展示香港作为世界级跳板的独特角色。
+八、响应文件递交截止时间和地点： 协商供应商应于2026年5月26日15时00分前将响应文件密封送交到开标厅(防城港市港口区金港街明珠园5栋903号房)，逾期送达将予以拒收。
 
 ## 相关推荐
 
-- 2026-06-29 20:29 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-29 20:28 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 20:21 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 20:03 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 20:06 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-29 20:07 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 20:21 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-29 20:25 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 20:25 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 20:11 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-29 20:08 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-29 20:06 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-29 20:17 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-29 20:31 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-29 20:22 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 20:11 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-29 20:21 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 20:24 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 20:14 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 20:11 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 20:24 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 20:08 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 20:31 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:05 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/555308487312.shtml)
-- 2026-06-29 20:09 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/301946719.shtml)
-- 2026-06-29 20:22 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/872390208.shtml)
-- 2026-06-29 20:00 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/589930338.shtml)
-- 2026-06-29 20:08 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.kurohicncr.top/Article/details/120591.shtml)
-- 2026-06-29 20:07 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/850441836.shtml)
-- 2026-06-29 20:15 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/849932698.shtml)
-- 2026-06-29 20:06 - [宜宾地震已转移安置225人](http://www.blog.kurohicncr.top/Article/details/274617635897.shtml)
-- 2026-06-29 20:18 - [济南航空航天全面起势](http://www.blog.kurohicncr.top/Article/details/595015.shtml)
-- 2026-06-29 20:17 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/062264495.shtml)
-- 2026-06-29 20:02 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.kurohicncr.top/Article/details/8113757.shtml)
-- 2026-06-29 20:02 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/423226193841.shtml)
-- 2026-06-29 20:09 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/3555033333.shtml)
-- 2026-06-29 20:09 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/92937.shtml)
-- 2026-06-29 20:26 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/157603.shtml)
+- 2026-06-29 20:23 - [高质量发展看新疆](https://www.share.kurohicncr.top/Article/details/2954367.shtml)
+- 2026-06-29 20:21 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/8649197895.shtml)
+- 2026-06-29 20:23 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/3800052053.shtml)
+- 2026-06-29 20:26 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/9240637142.shtml)
+- 2026-06-29 20:34 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/1127673294.shtml)
+- 2026-06-29 20:08 - [黄金也扛不住了](https://www.blog.kurohicncr.top/Article/details/468619.shtml)
+- 2026-06-29 20:15 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/513230302036.shtml)
+- 2026-06-29 20:20 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/52385650073.shtml)
+- 2026-06-29 20:20 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.blog.kurohicncr.top/Article/details/27342.shtml)
+- 2026-06-29 20:27 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/50020.shtml)
+- 2026-06-29 20:19 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/622103915.shtml)
+- 2026-06-29 20:07 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/36156.shtml)
+- 2026-06-29 20:12 - [乔家的儿女](https://www.blog.minike.top/Article/details/334689374.shtml)
+- 2026-06-29 20:26 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/30828971709.shtml)
+- 2026-06-29 20:11 - [媒体：日本边磨刀边要货是做梦](http://www.blog.kurohicncr.top/Article/details/11251274.shtml)

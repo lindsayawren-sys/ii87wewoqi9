@@ -1,59 +1,51 @@
-# 飞行汽车、AI眼镜：外国参展商点赞消博会让“未来已来”
+# 习近平：共同书写时代答卷
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-中新网海口4月15日电(张嘉豪)第六届中国国际消费品博览会正在海南省海口市举行，从飞行汽车、AI眼镜，到传统珠宝与非遗工艺，展会集中呈现出中国消费市场“未来科技”与“文化传承”交汇的生动图景。 在科技消费展区，前沿产品吸引了大量外国观众关注。来自俄罗斯的安德烈夫·阿列克谢(Andreev Aleksei)已连续四年参加消博会。他表示，展会内容不断升级，每年都有明显变化，“体验一
+新华社北京5月14日电 5月14日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。 习近平指出，当前百年变局加速演进，国际形势变乱交织，世界又走到新的十字路口，中美能不能跨越“修昔底德陷阱”，开创大国关系新范式？能不能携手应对全球性挑战，为世界注入更多稳定性？能不能着眼两国人民福祉和人类前途命运，共同开创两国关系的美好未来？这些是历史之问、世界之
 
 ## 正文
 
-中新网海口4月15日电(张嘉豪)第六届中国国际消费品博览会正在海南省海口市举行，从飞行汽车、AI眼镜，到传统珠宝与非遗工艺，展会集中呈现出中国消费市场“未来科技”与“文化传承”交汇的生动图景。
+新华社北京5月14日电 5月14日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。
 
-在科技消费展区，前沿产品吸引了大量外国观众关注。
+习近平指出，当前百年变局加速演进，国际形势变乱交织，世界又走到新的十字路口，中美能不能跨越“修昔底德陷阱”，开创大国关系新范式？
 
-来自俄罗斯的安德烈夫·阿列克谢(Andreev Aleksei)已连续四年参加消博会。
+能不能携手应对全球性挑战，为世界注入更多稳定性？
 
-他表示，展会内容不断升级，每年都有明显变化，“体验一年比一年好”。
+能不能着眼两国人民福祉和人类前途命运，共同开创两国关系的美好未来？
 
-他特别提到，此次展会上，人工智能和未来出行领域等前沿科技的占比明显提升。
-
-“比如AI眼镜和飞行汽车，这些去年还不多见”。
-
-在阿列克谢看来，中国在智能设备和高科技领域已具备全球竞争力，“相关产品在全球范围内是最好的，尤其是在智能设备和高科技方面”。
-
-来自巴基斯坦的参展商阿西夫·伊斯梅尔(Asif Ismail)对此也深有同感。
+这些是历史之问、世界之问、人民之问，也是大国领导人需要共同书写的时代答卷。
 
 ## 相关推荐
 
-- 2026-06-29 20:26 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 20:07 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-29 20:28 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-29 20:25 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-29 20:02 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 20:17 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-29 20:15 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-29 20:20 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 20:27 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-29 20:23 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 20:11 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 20:24 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 20:06 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 20:35 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-29 20:21 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 20:06 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-29 20:32 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-29 20:34 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-29 20:13 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 20:20 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 20:31 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 20:15 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 20:28 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-29 20:12 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:20 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/6944823420.shtml)
-- 2026-06-29 20:15 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/678920524014.shtml)
-- 2026-06-29 20:04 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/5274164.shtml)
-- 2026-06-29 20:13 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/922486269426.shtml)
-- 2026-06-29 20:15 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/8222479481.shtml)
-- 2026-06-29 20:03 - [中方在台湾岛以东海域活动合理合法](http://www.share.minike.top/Article/details/467003.shtml)
-- 2026-06-29 20:19 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/9101057877.shtml)
-- 2026-06-29 20:18 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/2481997.shtml)
-- 2026-06-29 20:00 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/025903679638.shtml)
-- 2026-06-29 20:00 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/85494485934.shtml)
-- 2026-06-29 20:22 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.kurohicncr.top/Article/details/60672532.shtml)
-- 2026-06-29 20:23 - [爱很美味](https://www.share.minike.top/Article/details/01493963882.shtml)
-- 2026-06-29 20:20 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.minike.top/Article/details/401856.shtml)
-- 2026-06-29 20:04 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/588548.shtml)
-- 2026-06-29 20:00 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/55444.shtml)
+- 2026-06-29 20:31 - [MG总经理直播被冲](http://www.blog.kurohicncr.top/Article/details/608186801.shtml)
+- 2026-06-29 20:08 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/238272752245.shtml)
+- 2026-06-29 20:07 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/889699.shtml)
+- 2026-06-29 20:10 - [上世纪90年代玩具成新宠](http://www.share.minike.top/Article/details/93860.shtml)
+- 2026-06-29 20:24 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/1722104788.shtml)
+- 2026-06-29 20:07 - [朱雀三号完成静态点火试验](http://www.blog.kurohicncr.top/Article/details/13950.shtml)
+- 2026-06-29 20:22 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.minike.top/Article/details/726652321974.shtml)
+- 2026-06-29 20:30 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/545828801197.shtml)
+- 2026-06-29 20:35 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/04836519913.shtml)
+- 2026-06-29 20:28 - [李思潼：不会介意大家夸我运气好](https://www.share.minike.top/Article/details/64602.shtml)
+- 2026-06-29 20:19 - [德国医生在没有空调的手术室工作](https://www.blog.kurohicncr.top/Article/details/17216795980.shtml)
+- 2026-06-29 20:31 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/77029637330.shtml)
+- 2026-06-29 20:11 - [青春环游记第三季](http://www.share.minike.top/Article/details/75671145.shtml)
+- 2026-06-29 20:34 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/8948308.shtml)
+- 2026-06-29 20:21 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/94877.shtml)

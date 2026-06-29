@@ -1,54 +1,59 @@
-# 大摩：降统一企业中国目标价至9.27港元 下调盈利预测
+# 五粮液下场开餐饮店：从“卖酒”到“卖餐桌体验”的押注
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-摩根士丹利发布研报称，将统一企业中国（00220）目标价由10.7港元下调至9.2港元，评级“与大市同步”，对应2026年预测市盈率16倍。 该行下调统一今明两年盈利预测14%，主要反映饮料销售预期下降，收入预测亦下调4%及5%； 原材料价格上升拖累毛利率； 上调今明两年营运开支比率0.6个百分点。该行预期公司今年收入同比增长5%，纯利同比增长7%。 该行表示，饮料业务增长将受
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 文 | 红餐网 白酒企业，也盯上了餐饮生意。 最近，五粮液（000858.SZ）在成都开了一家新店——五粮液体验馆·五粮炙造，主打日咖夜酒模式，除了白酒，还卖咖啡、鸡尾酒、烧烤、川菜融合菜等产品。 作为一家以白酒为主业的上市公司，五粮液挤进竞争激烈的餐饮业，难道只是为了多卖几杯咖啡？ 当然不是。 近几年，白酒的传统阵地—
 
 ## 正文
 
-摩根士丹利发布研报称，将统一企业中国（00220）目标价由10.7港元下调至9.2港元，评级“与大市同步”，对应2026年预测市盈率16倍。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 文 | 红餐网 白酒企业，也盯上了餐饮生意。
 
-该行下调统一今明两年盈利预测14%，主要反映饮料销售预期下降，收入预测亦下调4%及5%； 原材料价格上升拖累毛利率； 上调今明两年营运开支比率0.6个百分点。
+最近，五粮液（000858.SZ）在成都开了一家新店——五粮液体验馆·五粮炙造，主打日咖夜酒模式，除了白酒，还卖咖啡、鸡尾酒、烧烤、川菜融合菜等产品。
 
-该行预期公司今年收入同比增长5%，纯利同比增长7%。
+作为一家以白酒为主业的上市公司，五粮液挤进竞争激烈的餐饮业，难道只是为了多卖几杯咖啡？
 
-该行表示，饮料业务增长将受惠餐饮业复苏，惟竞争加剧； 即食面行业需求复苏仍然疲弱，但同业加价将有助统一夺取市占率。
+当然不是。
 
-该行引入2028年每股盈利预测为0.59元人民币。
+近几年，白酒的传统阵地——商务宴请、礼赠、酒桌文化逐渐消退，酒企不得不重新思考一个问题：消费者不买酒了，他们会去哪里喝酒？
 
-责任编辑：史丽君
+答案或许是：餐饮场景。
+
+五粮液下场开店：不只卖酒，还卖咖啡、鸡尾酒和烧烤 先来看看，五粮液新开的这家店到底长什么样子？
+
+据了解，这家五粮液体验馆·五粮炙造开在成都的交子大道上，邻近金融城地铁站，典型的街边店。
 
 ## 相关推荐
 
-- 2026-06-29 20:26 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 20:22 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-29 20:08 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-29 20:26 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 20:26 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-29 20:18 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-29 20:02 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-29 20:04 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 20:06 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-29 20:17 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-29 20:06 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-29 20:17 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 20:26 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 20:16 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 20:28 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 20:22 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-29 20:07 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 20:30 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 20:06 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-29 20:08 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-29 20:24 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 20:08 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 20:29 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-29 20:14 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-29 20:22 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:10 - [天柱山回应网红打卡树枝被砍](http://www.share.kurohicncr.top/Article/details/317035898351.shtml)
-- 2026-06-29 20:19 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.minike.top/Article/details/29109952572.shtml)
-- 2026-06-29 20:12 - [刘冰任河南南阳市代市长](http://www.share.kurohicncr.top/Article/details/16251403.shtml)
-- 2026-06-29 20:15 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/253503.shtml)
-- 2026-06-29 20:25 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/3083435.shtml)
-- 2026-06-29 20:01 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/81173496.shtml)
-- 2026-06-29 20:11 - [一台空调背后的全球化逻辑](https://www.share.kurohicncr.top/Article/details/708374.shtml)
-- 2026-06-29 20:23 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/240304371.shtml)
-- 2026-06-29 20:04 - [周杰伦千禧年就有小卡了](https://www.blog.kurohicncr.top/Article/details/160122621.shtml)
-- 2026-06-29 20:08 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/961168404.shtml)
-- 2026-06-29 20:14 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/7337634630.shtml)
-- 2026-06-29 20:21 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/11109.shtml)
-- 2026-06-29 20:01 - [佛得角队长门德斯被控强奸](https://www.share.kurohicncr.top/Article/details/3029465.shtml)
-- 2026-06-29 20:02 - [刘冰任河南南阳市代市长](https://www.blog.minike.top/Article/details/864917267.shtml)
-- 2026-06-29 20:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/12481.shtml)
+- 2026-06-29 20:35 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/148745.shtml)
+- 2026-06-29 20:12 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/627866530.shtml)
+- 2026-06-29 20:20 - [让AI做一个账号，它会做成什么样？](http://www.blog.kurohicncr.top/Article/details/017445.shtml)
+- 2026-06-29 20:08 - [湖南姑娘被东北同事带偏口音](https://www.blog.minike.top/Article/details/33608714.shtml)
+- 2026-06-29 20:24 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/68118.shtml)
+- 2026-06-29 20:14 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/582992705.shtml)
+- 2026-06-29 20:19 - [欧洲安装一台空调要花近8000元](http://www.blog.kurohicncr.top/Article/details/123533.shtml)
+- 2026-06-29 20:11 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/3852459609.shtml)
+- 2026-06-29 20:23 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/4700239.shtml)
+- 2026-06-29 20:34 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/261006941544.shtml)
+- 2026-06-29 20:22 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/7696512185.shtml)
+- 2026-06-29 20:28 - [让AI做一个账号，它会做成什么样？](http://www.blog.kurohicncr.top/Article/details/435160565.shtml)
+- 2026-06-29 20:17 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/69686.shtml)
+- 2026-06-29 20:25 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/8464099.shtml)
+- 2026-06-29 20:08 - [被中方管控的20家日本实体什么来头](http://www.share.minike.top/Article/details/830880831.shtml)

@@ -1,48 +1,59 @@
-# 能源价格回落后 交易员下调对欧洲央行加息的押注
+# “北京地下城”重新开放 红色人防历史遗迹焕发新生
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-交易员大幅削减对欧洲央行和英国央行加息的押注，因为在有迹象显示美国和伊朗可能重启谈判后石油和天然气价格下挫。 互换市场预计欧洲央行年内将加息56个基点，低于周一预计的68个基点和一周前预计的80个基点；交易员预计本月政策会议加息8个基点。 交易员预计英国央行年内加息39个基点，低于此前预计的46个基点。责任编辑：李桐
+中新网北京5月13日电(记者 陈杭)北京人民防空历史文化馆启动仪式12日举行，并全新推出人民防空历史文化主题展览。场馆由始建于1969年的早期人防工程——“北京地下城”，自2008年关停后，经重修转型而来，标志着首都又一重要红色人防历史遗迹焕发新生。 “北京地下城”位于前门街道西兴隆街北侧，西侧紧邻草厂三条胡同，东侧紧邻新革路，北侧紧邻西打磨厂街，始建于1969年，1979年完
 
 ## 正文
 
-交易员大幅削减对欧洲央行和英国央行加息的押注，因为在有迹象显示美国和伊朗可能重启谈判后石油和天然气价格下挫。
+中新网北京5月13日电(记者 陈杭)北京人民防空历史文化馆启动仪式12日举行，并全新推出人民防空历史文化主题展览。
 
-互换市场预计欧洲央行年内将加息56个基点，低于周一预计的68个基点和一周前预计的80个基点；交易员预计本月政策会议加息8个基点。
+场馆由始建于1969年的早期人防工程——“北京地下城”，自2008年关停后，经重修转型而来，标志着首都又一重要红色人防历史遗迹焕发新生。
 
-交易员预计英国央行年内加息39个基点，低于此前预计的46个基点。
+“北京地下城”位于前门街道西兴隆街北侧，西侧紧邻草厂三条胡同，东侧紧邻新革路，北侧紧邻西打磨厂街，始建于1969年，1979年完工，是目前北京为数不多保留完好的早期地道式人防工程。
 
-责任编辑：李桐
+2008年，“北京地下城”关闭，暂时淡出人们的视野。
+
+2019年，相关部门在位于西兴隆街110号建起了北京地下城微展厅，利用人防工程的口部房，展现了当年北京市民“深挖洞广积粮”的那段历史。
+
+据介绍，场馆以历史脉络为主线，设置防空初创、使命神圣；全民挖洞、应急备战；平战结合、稳步推进；服务首都、创新发展四大主题篇章，全方位、立体化展现北京国防动员发展历程、人民防空战备建设光辉岁月，完整还原首都人防工程建设时代记忆与使命传承。
+
+步入主场核心展厅，可见北京地下城历史专题影像资料，以及歼-20、长征系列火箭、神舟飞船返回舱和月球车等模型。
+
+场馆同步配备月球车VR沉浸式体验、返回舱实景VR互动体验，以科技赋能国防科普，让观众直观感受国防实力的发展变化。
 
 ## 相关推荐
 
-- 2026-06-29 20:03 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 20:29 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 20:23 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-29 20:08 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 20:18 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-29 20:26 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 20:10 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 20:03 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-29 20:15 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 20:05 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-29 20:22 - [世界杯高票价为何没劝退球迷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-29 20:21 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 20:13 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 20:27 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-29 20:24 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 20:31 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 20:12 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 20:15 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-29 20:27 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 20:07 - [主力抛售电子和通信板块](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-29 20:33 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 20:17 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 20:33 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:00 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/54292.shtml)
-- 2026-06-29 20:26 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/383681.shtml)
-- 2026-06-29 20:23 - [夫妻生活太无聊，所以我……](https://www.blog.minike.top/Article/details/376636.shtml)
-- 2026-06-29 20:13 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.kurohicncr.top/Article/details/20057414939.shtml)
-- 2026-06-29 20:11 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/7972211883.shtml)
-- 2026-06-29 20:15 - [韩国队主帅遭极端网友死亡威胁](https://www.share.minike.top/Article/details/6078614407.shtml)
-- 2026-06-29 20:13 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/394169240.shtml)
-- 2026-06-29 20:16 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/53524.shtml)
-- 2026-06-29 20:15 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/31102.shtml)
-- 2026-06-29 20:08 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/30309.shtml)
-- 2026-06-29 20:09 - [委内瑞拉发生余震](http://www.blog.kurohicncr.top/Article/details/38102144.shtml)
-- 2026-06-29 20:09 - [第二波数码涨价潮来袭](http://www.blog.kurohicncr.top/Article/details/0831376.shtml)
-- 2026-06-29 20:22 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/035167660.shtml)
-- 2026-06-29 20:16 - [无畏为自己的猫正名了](https://www.share.minike.top/Article/details/194214582122.shtml)
-- 2026-06-29 20:23 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.share.minike.top/Article/details/622055.shtml)
+- 2026-06-29 20:32 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/99345300.shtml)
+- 2026-06-29 20:35 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.minike.top/Article/details/02835.shtml)
+- 2026-06-29 20:18 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/3051633.shtml)
+- 2026-06-29 20:18 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/04367294314.shtml)
+- 2026-06-29 20:21 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/0186321.shtml)
+- 2026-06-29 20:27 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/72879741.shtml)
+- 2026-06-29 20:14 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/657626522.shtml)
+- 2026-06-29 20:27 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/09589952.shtml)
+- 2026-06-29 20:19 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/358502486.shtml)
+- 2026-06-29 20:10 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/834058462007.shtml)
+- 2026-06-29 20:20 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/471604.shtml)
+- 2026-06-29 20:34 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/226646.shtml)
+- 2026-06-29 20:11 - [不烧钱的低成本爱好](https://www.blog.minike.top/Article/details/07318313737.shtml)
+- 2026-06-29 20:28 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.kurohicncr.top/Article/details/056477103.shtml)
+- 2026-06-29 20:27 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/26355530885.shtml)

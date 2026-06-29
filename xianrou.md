@@ -1,58 +1,56 @@
-# A股“三连涨” 沪指周二重回4000点
+# 国台办回应刘世芳外甥被台企解职：依法惩“独”利剑高悬
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-中新社北京4月14日电 (记者 陈康亮)中国A股14日(周二)延续涨势，主要股指悉数飘红，实现“三连涨”。其中，上证指数当天高开震荡，尾盘明显拉升，收盘成功站上4000点之上。 截至当天收盘，上证指数报4026点，涨幅为0.95%；深证成指报14639点，涨幅为1.61%；创业板指报3558点，涨2.36%。沪深两市成交总额约23837亿元人民币，较上一个交易日放量约2334亿
+发布时间：2026年05月13日 12:55 来源：中国新闻网 5月13日，国务院台办举行例行新闻发布会。有记者问，对于“台独”顽固分子刘世芳外甥颜文群被所在台企解职，刘世芳称，“台湾民众前往大陆务必慎思，否则人身安全、财产安全都会受到威胁”；台陆委会称“将研议反制做法”，海基会也提醒台湾民众“赴大陆投资有风险”。请问对此有何评论？ 发言人张晗在答问时表示，刘世芳搞“台独”是分
 
 ## 正文
 
-中新社北京4月14日电 (记者 陈康亮)中国A股14日(周二)延续涨势，主要股指悉数飘红，实现“三连涨”。
+发布时间：2026年05月13日 12:55 来源：中国新闻网 5月13日，国务院台办举行例行新闻发布会。
 
-其中，上证指数当天高开震荡，尾盘明显拉升，收盘成功站上4000点之上。
+有记者问，对于“台独”顽固分子刘世芳外甥颜文群被所在台企解职，刘世芳称，“台湾民众前往大陆务必慎思，否则人身安全、财产安全都会受到威胁”；台陆委会称“将研议反制做法”，海基会也提醒台湾民众“赴大陆投资有风险”。
 
-截至当天收盘，上证指数报4026点，涨幅为0.95%；深证成指报14639点，涨幅为1.61%；创业板指报3558点，涨2.36%。
+请问对此有何评论？
 
-沪深两市成交总额约23837亿元人民币，较上一个交易日放量约2334亿元人民币。
+发言人张晗在答问时表示，刘世芳搞“台独”是分裂国家、煽动分裂国家的犯罪行为。
 
-巨丰投顾投资顾问总监郭一鸣表示，A股近期持续上涨的重要原因之一在于中东局势的缓和。
+颜文群长期从大陆获取利益，却为刘提供政治献金，两人依法遭到惩治、罪有应得。
 
-美国和伊朗谈判有望重启的消息释放积极信号，市场关于地缘政治风险的担忧缓解，全球风险偏好回升，海外资金回流意愿增强，为A股市场带来增量流动性支撑。
+刘世芳不思悔过，却编造谎言，企图拉台湾民众垫背，制造“寒蝉效应”。
 
-消息面上，据美国媒体近日报道，美国和伊朗仍在接触，美政府正商讨举行第二次面对面谈判的相关细节。
+近年来，台湾同胞不惧民进党当局的阻挠恐吓，来大陆持续热络，其中台湾青年占比不断提高，表明刘世芳之流恐吓台湾民众的图谋没有得逞，也不会得逞。
 
-板块方面，当天A股多数行业板块上涨。
+她说，我们的态度是一贯的，依法惩“独”，利剑高悬，针对的是极少数“台独”顽固分子，不涉及广大台胞台企。
 
 ## 相关推荐
 
-- 2026-06-29 20:09 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-29 20:13 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 20:07 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 20:05 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 20:30 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-29 20:29 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-29 20:23 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-29 20:14 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-29 20:10 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 20:12 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 20:11 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-29 20:27 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 20:14 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-29 20:25 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 20:23 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-29 20:26 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-29 20:06 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 20:12 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 20:20 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 20:20 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-29 20:33 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-29 20:06 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:00 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/47979.shtml)
-- 2026-06-29 20:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/2581713538.shtml)
-- 2026-06-29 20:12 - [东宫女主是不是顶级恋爱脑](http://www.blog.minike.top/Article/details/3585886.shtml)
-- 2026-06-29 20:06 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/267743118372.shtml)
-- 2026-06-29 20:11 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/5094097.shtml)
-- 2026-06-29 20:09 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/15388733.shtml)
-- 2026-06-29 20:13 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/97363948.shtml)
-- 2026-06-29 20:12 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/57284783136.shtml)
-- 2026-06-29 20:09 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/522372.shtml)
-- 2026-06-29 20:08 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/92397.shtml)
-- 2026-06-29 20:09 - [官媒首曝六代机？大V解读](https://www.blog.kurohicncr.top/Article/details/89915155124.shtml)
-- 2026-06-29 20:24 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/4480176.shtml)
-- 2026-06-29 20:02 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/1761018.shtml)
-- 2026-06-29 20:07 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/109883.shtml)
-- 2026-06-29 20:16 - [青春环游记第三季](https://www.blog.minike.top/Article/details/56842.shtml)
+- 2026-06-29 20:20 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/8694632806.shtml)
+- 2026-06-29 20:16 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/171924630.shtml)
+- 2026-06-29 20:24 - [湖南耒阳“轮椅女孩”高考546分](http://www.blog.kurohicncr.top/Article/details/17683514.shtml)
+- 2026-06-29 20:08 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/46529789.shtml)
+- 2026-06-29 20:18 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/646409736465.shtml)
+- 2026-06-29 20:31 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/36873.shtml)
+- 2026-06-29 20:34 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/29214.shtml)
+- 2026-06-29 20:12 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/8693554200.shtml)
+- 2026-06-29 20:33 - [中方在台湾岛以东海域活动合理合法](https://www.share.minike.top/Article/details/33432.shtml)
+- 2026-06-29 20:35 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/2755011893.shtml)
+- 2026-06-29 20:23 - [爱很美味](https://www.share.kurohicncr.top/Article/details/330220225755.shtml)
+- 2026-06-29 20:22 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.kurohicncr.top/Article/details/6545778080.shtml)
+- 2026-06-29 20:09 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/65805932980.shtml)
+- 2026-06-29 20:17 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/43751879684.shtml)
+- 2026-06-29 20:17 - [如果你一直单身，你准备怎么养老？](http://www.share.minike.top/Article/details/5535688.shtml)

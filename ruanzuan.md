@@ -1,59 +1,55 @@
-# 美国和伊朗酝酿新一轮会谈 以期推动达成长期停火
+# 中美关系新定位！
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-据知情人士透露，在副总统万斯主导的伊斯兰堡会谈未取得突破后，美国与伊朗正就举行新一轮面对面谈判展开磋商，以寻求达成更长期的停火协议。 知情人士表示，目标是在4月7日宣布的为期两周停火协议于下周到期前举行新一轮会谈。一个设想是重返伊斯兰堡进行第二轮谈判，但也在考虑其他地点。 宫官员正讨论再次举行会晤的可能性。巴基斯坦总理夏巴兹·谢里夫表示，解决美国和伊朗之间悬而未决问题的努力仍在
+5月14日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。 习近平强调，中方致力于中美关系稳定、健康、可持续发展。我同特朗普总统赞同将构建“中美建设性战略稳定关系”作为中美关系新定位，将为未来3年乃至更长时间的中美关系提供战略指引，相信会受到两国人民和国际社会的欢迎。“建设性战略稳定”应该是合作为主的积极稳定，应该是竞争有度的良性稳定，应该是分歧
 
 ## 正文
 
-据知情人士透露，在副总统万斯主导的伊斯兰堡会谈未取得突破后，美国与伊朗正就举行新一轮面对面谈判展开磋商，以寻求达成更长期的停火协议。
+5月14日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。
 
-知情人士表示，目标是在4月7日宣布的为期两周停火协议于下周到期前举行新一轮会谈。
+习近平强调，中方致力于中美关系稳定、健康、可持续发展。
 
-一个设想是重返伊斯兰堡进行第二轮谈判，但也在考虑其他地点。
+我同特朗普总统赞同将构建“中美建设性战略稳定关系”作为中美关系新定位，将为未来3年乃至更长时间的中美关系提供战略指引，相信会受到两国人民和国际社会的欢迎。
 
-宫官员正讨论再次举行会晤的可能性。
+“建设性战略稳定”应该是合作为主的积极稳定，应该是竞争有度的良性稳定，应该是分歧可控的常态稳定，应该是和平可期的持久稳定。
 
-巴基斯坦总理夏巴兹·谢里夫表示，解决美国和伊朗之间悬而未决问题的努力仍在进行中。
+“中美建设性战略稳定关系”不是一句口号，而应该是相向而行的行动。
 
-美国总统特朗普周一早些时候也释放出对更多谈判持开放态度的信号，称伊朗已与美方接触。
-
-与此同时，他仍推进对霍尔木兹海峡的海上封锁，以加大对德黑兰的压力。
-
-“今天早上，我们接到了来自合适的人、正确的人的电话，他们想推动达成一项协议，”特朗普在白宫表示。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 20:26 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-29 20:26 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-29 20:19 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-29 20:16 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-29 20:26 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 20:24 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-29 20:16 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 20:14 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 20:11 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-29 20:03 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 20:19 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-29 20:23 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 20:05 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-29 20:26 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-29 20:09 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-29 20:14 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-29 20:08 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 20:09 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 20:24 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 20:08 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-29 20:34 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 20:15 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-29 20:15 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-29 20:29 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-29 20:19 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 20:06 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/01827615.shtml)
-- 2026-06-29 20:20 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/84940838565.shtml)
-- 2026-06-29 20:04 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/560352309.shtml)
-- 2026-06-29 20:21 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/787561.shtml)
-- 2026-06-29 20:28 - [穆祉丞东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/824722.shtml)
-- 2026-06-29 20:02 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/02621906.shtml)
-- 2026-06-29 20:29 - [店员光脚踩入盆中清洗土豆](https://www.share.minike.top/Article/details/322730502432.shtml)
-- 2026-06-29 20:29 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/26170.shtml)
-- 2026-06-29 20:01 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.share.minike.top/Article/details/8094128677.shtml)
-- 2026-06-29 20:16 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/4330759153.shtml)
-- 2026-06-29 20:14 - [温网](http://www.blog.minike.top/Article/details/59074274.shtml)
-- 2026-06-29 20:15 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.minike.top/Article/details/63806406314.shtml)
-- 2026-06-29 20:18 - [CORTIS 小牌大耍](https://www.blog.minike.top/Article/details/47676933318.shtml)
-- 2026-06-29 20:17 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/43760.shtml)
-- 2026-06-29 20:12 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/4405115.shtml)
+- 2026-06-29 20:19 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/044621609.shtml)
+- 2026-06-29 20:35 - [小龙女配音去世 李若彤发文悼念](http://www.blog.kurohicncr.top/Article/details/1928505565.shtml)
+- 2026-06-29 20:31 - [白玉兰答谢宴合影](http://www.blog.minike.top/Article/details/68958974.shtml)
+- 2026-06-29 20:35 - [夫妻生活太无聊，所以我……](http://www.share.kurohicncr.top/Article/details/143245821.shtml)
+- 2026-06-29 20:08 - [华工科技龙虎榜数据](https://www.blog.kurohicncr.top/Article/details/31668830.shtml)
+- 2026-06-29 20:17 - [宜宾地震后铁路工作人员叫停列车](http://www.share.kurohicncr.top/Article/details/58010808349.shtml)
+- 2026-06-29 20:14 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.blog.minike.top/Article/details/5528489406.shtml)
+- 2026-06-29 20:25 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.kurohicncr.top/Article/details/7849471911.shtml)
+- 2026-06-29 20:09 - [林逸向方筱然求婚了](http://www.blog.kurohicncr.top/Article/details/952204.shtml)
+- 2026-06-29 20:11 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/02602628108.shtml)
+- 2026-06-29 20:14 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/2182062.shtml)
+- 2026-06-29 20:24 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/48801333325.shtml)
+- 2026-06-29 20:17 - [急先锋](https://www.share.minike.top/Article/details/80361045.shtml)
+- 2026-06-29 20:08 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/962097.shtml)
+- 2026-06-29 20:34 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/063470.shtml)

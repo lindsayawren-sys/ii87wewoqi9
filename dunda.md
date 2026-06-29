@@ -1,57 +1,61 @@
-# 巴基斯坦获沙特30亿美元资金承诺 有助缓冲偿还阿联酋贷款带来的影响
+# 加拿大黄金勘探公司Bonterra首席执行官Pelletier辞职 董事长临时代理
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-巴基斯坦表示，已从沙特阿拉伯获得30亿美元的金融支持，这将有助于增强巴基斯坦外汇储备，并抵消该国将向阿联酋偿还贷款造成的影响。 巴基斯坦财政部长Muhammad Aurangzeb周三在声明中表示，沙特阿拉伯已承诺追加资金，“预计将于未来一周到款”。此外，沙特还延长了原有50亿美元存款的存期。 声明称，“这一支持举动正值巴基斯坦外部融资需求的关键时期，将有助于增强外汇储备，并加
+加拿大黄金勘探公司Bonterra Resources周三宣布，总裁兼首席执行官Marc-André Pelletier已辞去职务，辞呈于5月31日生效。Pelletier为寻求其他职业机会而主动离职，同时辞去了公司董事职位。 过渡安排与临时接任 为确保平稳过渡，Pelletier已同意以顾问身份继续为公司服务至2026年12月31日。董事会已任命现任董事长Cesar Gonz
 
 ## 正文
 
-巴基斯坦表示，已从沙特阿拉伯获得30亿美元的金融支持，这将有助于增强巴基斯坦外汇储备，并抵消该国将向阿联酋偿还贷款造成的影响。
+加拿大黄金勘探公司Bonterra Resources周三宣布，总裁兼首席执行官Marc-André Pelletier已辞去职务，辞呈于5月31日生效。
 
-巴基斯坦财政部长Muhammad Aurangzeb周三在声明中表示，沙特阿拉伯已承诺追加资金，“预计将于未来一周到款”。
+Pelletier为寻求其他职业机会而主动离职，同时辞去了公司董事职位。
 
-此外，沙特还延长了原有50亿美元存款的存期。
+过渡安排与临时接任 为确保平稳过渡，Pelletier已同意以顾问身份继续为公司服务至2026年12月31日。
 
-声明称，“这一支持举动正值巴基斯坦外部融资需求的关键时期，将有助于增强外汇储备，并加强国家的外部账户。
+董事会已任命现任董事长Cesar Gonzalez为临时首席执行官，在寻找正式继任者期间负责公司日常运营。
 
-” 此前，巴基斯坦未能就约30亿美元债务展期与阿联酋达成协议，为七年来首次。
+董事会表示将启动全面的CEO搜寻工作，考虑内部和外部候选人。
 
-伊斯兰堡将于本月底前偿还这笔款项，这将对其约160亿美元的外汇储备造成巨大压力，该储备规模仅够覆盖三个月的进口额。
+公司战略与运营不受影响 Bonterra在声明中强调，此次管理层变动不会影响公司的战略优先事项和日常运营。
 
-责任编辑：于健 SF069
+董事长在感谢Pelletier多年贡献的同时表示，董事会将与管理层密切合作，确保过渡期间的业务连续性。
+
+公司背景 Bonterra Resources是一家总部位于魁北克省瓦多尔的黄金勘探公司，在魁北克省拥有多个金矿资产组合。
 
 ## 相关推荐
 
-- 2026-06-29 20:26 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 20:12 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 20:14 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 20:22 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-29 20:24 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 20:16 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 20:29 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 20:06 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-29 20:23 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-29 20:11 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 20:13 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-29 20:09 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 20:19 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 20:24 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-29 20:26 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 20:30 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 20:31 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 20:08 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 20:22 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 20:09 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 20:26 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-29 20:32 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-29 20:34 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 20:19 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 20:34 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-29 20:19 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-29 20:07 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-29 20:18 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:02 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.kurohicncr.top/Article/details/95885721028.shtml)
-- 2026-06-29 20:06 - [高考1357分的同学如何报志愿？](https://www.blog.minike.top/Article/details/5798391177.shtml)
-- 2026-06-29 20:19 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/8085532.shtml)
-- 2026-06-29 20:23 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/064111502340.shtml)
-- 2026-06-29 20:11 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/994406830.shtml)
-- 2026-06-29 20:03 - [北京市发布雷电黄色预警](https://www.blog.minike.top/Article/details/3608878445.shtml)
-- 2026-06-29 20:24 - [高质量发展看新疆](http://www.share.kurohicncr.top/Article/details/2490764.shtml)
-- 2026-06-29 20:09 - [海清4次陪跑白玉兰](https://www.blog.minike.top/Article/details/1191098.shtml)
-- 2026-06-29 20:14 - [欧洲极端高温如何影响家电股](https://www.blog.minike.top/Article/details/890556.shtml)
-- 2026-06-29 20:26 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/15827969.shtml)
-- 2026-06-29 20:05 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/791497144086.shtml)
-- 2026-06-29 20:25 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/99144043942.shtml)
-- 2026-06-29 20:21 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/23638054.shtml)
-- 2026-06-29 20:27 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.kurohicncr.top/Article/details/8034552.shtml)
-- 2026-06-29 20:08 - [LPL第三赛段赛制公布](http://www.share.kurohicncr.top/Article/details/29955.shtml)
+- 2026-06-29 20:13 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/9050583867.shtml)
+- 2026-06-29 20:12 - [毒液2](https://www.share.kurohicncr.top/Article/details/32110597.shtml)
+- 2026-06-29 20:34 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/9899211.shtml)
+- 2026-06-29 20:14 - [李小璐回应无戏可拍](https://www.share.minike.top/Article/details/742382.shtml)
+- 2026-06-29 20:28 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/97873468001.shtml)
+- 2026-06-29 20:16 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/34779324458.shtml)
+- 2026-06-29 20:34 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/40325028336.shtml)
+- 2026-06-29 20:34 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.kurohicncr.top/Article/details/72181883236.shtml)
+- 2026-06-29 20:13 - [白玉兰答谢宴合影](http://www.share.kurohicncr.top/Article/details/35506196467.shtml)
+- 2026-06-29 20:31 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/6039346.shtml)
+- 2026-06-29 20:19 - [叠纸](http://www.blog.kurohicncr.top/Article/details/4371314748.shtml)
+- 2026-06-29 20:06 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/27052.shtml)
+- 2026-06-29 20:10 - [韩国队主帅遭极端网友死亡威胁](http://www.share.minike.top/Article/details/5080285.shtml)
+- 2026-06-29 20:13 - [第一炉香](http://www.share.minike.top/Article/details/2639174910.shtml)
+- 2026-06-29 20:21 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/289012.shtml)

@@ -1,53 +1,53 @@
-# 英媒：两艘货船模糊目的地信息后经霍尔木兹海峡驶向伊朗
+# 花旗：韩国央行加息步伐或快于预期
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-新华社伦敦4月14日电（记者高文成）据英国航运媒体《劳埃德船舶日报》14日报道，美国对所有进出伊朗港口的船舶实施封锁后，至少两艘货船在模糊船舶自动识别系统中的目的地信息后，通过霍尔木兹海峡驶向伊朗港口。 报道称，有两艘集装箱船，此前显示霍尔木兹海峡北岸的伊朗阿巴斯港为最终目的地，但在美国封锁生效后，迅速将船舶自动识别系统中的目的地改为更通用的“波斯湾港口”，14日通过霍尔木兹海
+花旗集团的Jin-Wook Kim表示，韩国央行加息步伐可能快于预期，或从7月开始。该经济学家指出，在半导体公司企业税收支持下，财政支出有望增加，在此情况下，韩国央行可能会进入一个长于预期的紧缩周期。考虑到经济增长和通货膨胀的上行风险，Kim目前预计韩国央行到2027年4月底将进行四次25个基点的加息，多于先前预测的到2026年10月底加息两次。花旗将该国2026年和2027年
 
 ## 正文
 
-新华社伦敦4月14日电（记者高文成）据英国航运媒体《劳埃德船舶日报》14日报道，美国对所有进出伊朗港口的船舶实施封锁后，至少两艘货船在模糊船舶自动识别系统中的目的地信息后，通过霍尔木兹海峡驶向伊朗港口。
+花旗集团的Jin-Wook Kim表示，韩国央行加息步伐可能快于预期，或从7月开始。
 
-报道称，有两艘集装箱船，此前显示霍尔木兹海峡北岸的伊朗阿巴斯港为最终目的地，但在美国封锁生效后，迅速将船舶自动识别系统中的目的地改为更通用的“波斯湾港口”，14日通过霍尔木兹海峡驶向阿巴斯港。
+该经济学家指出，在半导体公司企业税收支持下，财政支出有望增加，在此情况下，韩国央行可能会进入一个长于预期的紧缩周期。
 
-报道援引分析人士的话说，这是为了干扰美方在封锁行动中的目标选定，“使美军封锁行动的情报收集阶段更加复杂”，并需要更多资源来搜索和识别船舶。
+考虑到经济增长和通货膨胀的上行风险，Kim目前预计韩国央行到2027年4月底将进行四次25个基点的加息，多于先前预测的到2026年10月底加息两次。
 
-美军中央司令部14日在社交媒体上说，超过1万名美国海军、海军陆战队和空军人员，十余艘军舰和数十架飞机正在执行封锁进出伊朗港口船舶的任务。
+花旗将该国2026年和2027年的经济增长预测分别上调至3.0%和2.8%，高于早先预测的2.9%和2.4%。
 
-责任编辑：郭建
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 20:13 - [福建海警位金门附近海域常态执法巡查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-29 20:13 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 20:00 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 20:25 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 20:19 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-29 20:28 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-29 20:10 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-29 20:08 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 20:28 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-29 20:04 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-29 20:12 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-29 20:14 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-29 20:03 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-29 20:06 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 20:20 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 20:13 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 20:25 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-29 20:15 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-29 20:14 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 20:34 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-29 20:32 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 20:31 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 20:07 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 20:30 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-29 20:17 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-29 20:24 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:08 - [《贺子珍》](https://www.share.minike.top/Article/details/905861925.shtml)
-- 2026-06-29 20:24 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/92905170064.shtml)
-- 2026-06-29 20:13 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/95999.shtml)
-- 2026-06-29 20:23 - [急先锋](http://www.share.minike.top/Article/details/080069117054.shtml)
-- 2026-06-29 20:25 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.minike.top/Article/details/37576.shtml)
-- 2026-06-29 20:17 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/1428000.shtml)
-- 2026-06-29 20:04 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/016398.shtml)
-- 2026-06-29 20:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/967632166120.shtml)
-- 2026-06-29 20:22 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/631856.shtml)
-- 2026-06-29 20:04 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.kurohicncr.top/Article/details/31372.shtml)
-- 2026-06-29 20:29 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/00231.shtml)
-- 2026-06-29 20:16 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/4873970.shtml)
-- 2026-06-29 20:22 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.blog.minike.top/Article/details/385904036890.shtml)
-- 2026-06-29 20:23 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/124889248.shtml)
-- 2026-06-29 20:17 - [C罗10球7球对垫底队](http://www.blog.minike.top/Article/details/147457703.shtml)
+- 2026-06-29 20:13 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/62593734.shtml)
+- 2026-06-29 20:11 - [美人鱼](http://www.share.kurohicncr.top/Article/details/51820.shtml)
+- 2026-06-29 20:18 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/518583891712.shtml)
+- 2026-06-29 20:14 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.minike.top/Article/details/489246.shtml)
+- 2026-06-29 20:08 - [专家预计全球央行加息节奏将出现反复](http://www.share.minike.top/Article/details/3139038954.shtml)
+- 2026-06-29 20:31 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/75034679.shtml)
+- 2026-06-29 20:09 - [主力抛售电子和通信板块](https://www.share.kurohicncr.top/Article/details/03283.shtml)
+- 2026-06-29 20:27 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/938214274.shtml)
+- 2026-06-29 20:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/03245.shtml)
+- 2026-06-29 20:30 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/69374.shtml)
+- 2026-06-29 20:22 - [运20对中国空军的意义是什么](http://www.blog.minike.top/Article/details/9783783.shtml)
+- 2026-06-29 20:26 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/93889.shtml)
+- 2026-06-29 20:31 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/62704109990.shtml)
+- 2026-06-29 20:13 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/850602545250.shtml)
+- 2026-06-29 20:10 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/72842504276.shtml)

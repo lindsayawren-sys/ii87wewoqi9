@@ -1,57 +1,61 @@
-# 土耳其呼吁北约 7 月安卡拉峰会与特朗普重置关系，为美国可能缩减参与做准备
+# 一季度营业收入同比增长10.6% 广州文化新业态发展势头迅猛
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-土耳其周一表示，北约盟国应利用 7 月 7 日至 8 日在安卡拉举行的北约峰会，与美国总统特朗普重置关系，并为美国未来可能减少对北约的参与做好预案。 土耳其外长哈坎・菲丹称，鉴于特朗普对总统埃尔多安的 “个人尊重”，他预计特朗普将出席此次峰会，但也理解特朗普原本对此态度消极。特朗普多年来一直批评北约，上周更因欧洲成员国拒绝派船协助疏通伊朗附近的霍尔木兹海峡，威胁退出北约，此前他
+广州文化产业一季度营业收入同比增长10.6% 文化新业态发展势头迅猛 截至一季度末，广州共有规模以上文化产业企业3922个，一季度实现营业收入1628.01亿元，按可比口径计算，同比增长10.6%，增速比上年同期提高6.0个百分点。 一季度实现利润总额133.15亿元，同比增长29.9%。营业收入利润率达8.2%，比上年同期提高1.2个百分点。2026年第一季度，广州演艺经济持
 
 ## 正文
 
-土耳其周一表示，北约盟国应利用 7 月 7 日至 8 日在安卡拉举行的北约峰会，与美国总统特朗普重置关系，并为美国未来可能减少对北约的参与做好预案。
+广州文化产业一季度营业收入同比增长10.6% 文化新业态发展势头迅猛 截至一季度末，广州共有规模以上文化产业企业3922个，一季度实现营业收入1628.01亿元，按可比口径计算，同比增长10.6%，增速比上年同期提高6.0个百分点。
 
-土耳其外长哈坎・菲丹称，鉴于特朗普对总统埃尔多安的 “个人尊重”，他预计特朗普将出席此次峰会，但也理解特朗普原本对此态度消极。
+一季度实现利润总额133.15亿元，同比增长29.9%。
 
-特朗普多年来一直批评北约，上周更因欧洲成员国拒绝派船协助疏通伊朗附近的霍尔木兹海峡，威胁退出北约，此前他计划收购格陵兰岛的举动也加剧了联盟内部矛盾。
+营业收入利润率达8.2%，比上年同期提高1.2个百分点。
 
-菲丹表示，盟友们长期将特朗普的批评视为口头说辞，但如今正围绕 “美国减少参与” 的可能性进行规划，并加强自身防御能力。
+2026年第一季度，广州演艺经济持续活跃，文化艺术业实现营业收入增长39.3%、文体娱乐活动与经纪代理服务增长22.7%。
 
-“北约国家需借此次安卡拉峰会，将与美国的关系纳入制度化轨道，” 他称，“若美国退出部分北约机制，须有逐步过渡的方案，以防盟友陷入被动。
+一季度全市审批演出960宗，累计演出超2.5万场，大型精品演出密集落地，5000人以上大型演出达32场，汇聚超110万名观众，直接斩获票房8.8亿元。
 
-” 北约秘书长吕特表示，他理解特朗普对北约的不满，但 “绝大多数欧洲国家” 曾协助美国在伊朗的军事行动。
+记者从广州市统计局获悉，2026年一季度，广州文化及相关产业(以下简称“文化产业”)规模持续壮大，增长动能显著增强，新业态蓄势崛起。
 
-一名白宫高级官员上周透露，因对北约不满，特朗普还考虑从欧洲撤出部分美军。
+各项亮眼的数据，彰显广州文化产业厚积薄发之势。
 
-责任编辑：江学思
+产业“量质齐升”的成绩单背后，广州的发展密码是什么？
 
 ## 相关推荐
 
-- 2026-06-29 20:21 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-29 20:15 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 20:04 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-29 20:27 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-29 20:24 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 20:28 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-29 20:10 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 20:06 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-29 20:01 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-29 20:29 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-29 20:22 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-29 20:18 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-29 20:06 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-29 20:22 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-29 20:22 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 20:08 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 20:20 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 20:33 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 20:10 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-29 20:20 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 20:17 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-29 20:22 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 20:20 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-29 20:29 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 20:14 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-29 20:25 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:12 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/4230198612.shtml)
-- 2026-06-29 20:08 - [媒体评恋与深空用“引狼入室”台词](https://www.share.kurohicncr.top/Article/details/97290460.shtml)
-- 2026-06-29 20:01 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/71625301.shtml)
-- 2026-06-29 20:06 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/27304854745.shtml)
-- 2026-06-29 20:09 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/57285713509.shtml)
-- 2026-06-29 20:00 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/32336654.shtml)
-- 2026-06-29 20:12 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/16252.shtml)
-- 2026-06-29 20:21 - [MG总经理直播被冲](http://www.blog.kurohicncr.top/Article/details/6870733472.shtml)
-- 2026-06-29 20:26 - [滚石点名酒店员工说有急救培训](https://www.blog.minike.top/Article/details/429685594857.shtml)
-- 2026-06-29 20:08 - [世界杯预测史上最不吃压力之物](https://www.share.minike.top/Article/details/502941313.shtml)
-- 2026-06-29 20:14 - [蔚来回应车漆洗车时被冲掉](https://www.share.minike.top/Article/details/10706.shtml)
-- 2026-06-29 20:18 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/2832247.shtml)
-- 2026-06-29 20:22 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/893861136671.shtml)
-- 2026-06-29 20:04 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/752904125714.shtml)
-- 2026-06-29 20:06 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.kurohicncr.top/Article/details/995676580.shtml)
+- 2026-06-29 20:29 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/252640772000.shtml)
+- 2026-06-29 20:28 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.kurohicncr.top/Article/details/5117354367.shtml)
+- 2026-06-29 20:13 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/81050741.shtml)
+- 2026-06-29 20:35 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.kurohicncr.top/Article/details/383883572.shtml)
+- 2026-06-29 20:29 - [如果你一直单身，你准备怎么养老？](http://www.share.kurohicncr.top/Article/details/30517.shtml)
+- 2026-06-29 20:20 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/82148657071.shtml)
+- 2026-06-29 20:14 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/984665237219.shtml)
+- 2026-06-29 20:06 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/57558891337.shtml)
+- 2026-06-29 20:34 - [互助版模拟高考志愿填报](http://www.blog.kurohicncr.top/Article/details/34058171675.shtml)
+- 2026-06-29 20:23 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/10082868.shtml)
+- 2026-06-29 20:33 - [穆祉丞东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/6905480.shtml)
+- 2026-06-29 20:19 - [天道](http://www.blog.kurohicncr.top/Article/details/777098216052.shtml)
+- 2026-06-29 20:15 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/4128497026.shtml)
+- 2026-06-29 20:16 - [赵今麦时隔五年再演李诗情](http://www.blog.kurohicncr.top/Article/details/884520837366.shtml)
+- 2026-06-29 20:17 - [海清4次陪跑白玉兰](https://www.share.kurohicncr.top/Article/details/7607658281.shtml)

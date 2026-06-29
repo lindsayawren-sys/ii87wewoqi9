@@ -1,58 +1,61 @@
-# 韩元走弱推高韩国通胀，经济增长面临双重夹击
+# 华泰期货：伊朗局势尚不明朗，昨日能源板块整体上涨
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——根据 汇通财经APP 报道，韩国央行行长提名人申铉松近日向议员明确警告，油价持续高位运行叠加韩元贬值压力，将显著推升国内通货膨胀率，同时对经济增长形成明显拖累。这一表态凸显其上任初期需面对的典型政策两难：外部不确定性高企，国内需平衡物价稳定与经济韧性。 当前全球布伦特原油价格已稳定在95美元/桶附近，较中东冲突前水平大幅抬升约20%-30%，远高于战前基准。
+来源：华泰期货 作者： 能源组 昨日国内能源板块商品整体出现大幅上涨。截至下午收盘时，原油SC主力合约涨幅达到2.06%，燃料油FU主力合约涨幅达到2.79%，低硫燃料油LU主力合约涨幅达到4.06%，石油沥青BU主力合约涨幅达到3.09%，液化石油气PG主力合约涨幅达到7.43%。 从昨日上涨背后的驱动因素来看，宏观层面是由于美伊和谈缺乏实质性进展，双方对协议达成的条件存在较
 
 ## 正文
 
-汇通财经APP讯——根据 汇通财经APP 报道，韩国央行行长提名人申铉松近日向议员明确警告，油价持续高位运行叠加韩元贬值压力，将显著推升国内通货膨胀率，同时对经济增长形成明显拖累。
+来源：华泰期货 作者： 能源组 昨日国内能源板块商品整体出现大幅上涨。
 
-这一表态凸显其上任初期需面对的典型政策两难：外部不确定性高企，国内需平衡物价稳定与经济韧性。
+截至下午收盘时，原油SC主力合约涨幅达到2.06%，燃料油FU主力合约涨幅达到2.79%，低硫燃料油LU主力合约涨幅达到4.06%，石油沥青BU主力合约涨幅达到3.09%，液化石油气PG主力合约涨幅达到7.43%。
 
-当前全球布伦特原油价格已稳定在95美元/桶附近，较中东冲突前水平大幅抬升约20%-30%，远高于战前基准。
+从昨日上涨背后的驱动因素来看，宏观层面是由于美伊和谈缺乏实质性进展，双方对协议达成的条件存在较大分歧，霍尔木兹海峡仍处于封锁状态，原油与成品油供应端矛盾持续积累，国际油价呈现反弹态势，并带动下游能化品价格上涨。
 
-作为纯能源进口国，韩国原油、天然气等成本快速传导至交通、化工及制造业环节，直接抬高消费者价格指数。
+从细分品种表现来看，今天LPG上涨幅度最大，一方面是由于中东供应占比较大，美国出口虽增加但无法完全填补缺口。
 
-最新数据显示，韩国3月消费者物价指数同比上涨2.2%，较2月回升0.2个百分点，已突破央行2%中期目标上限。
+此外，前期PG盘面相对国内民用气现货以及丙烷表现较差，基差偏高，主要受到醚后碳四等产品的拖累。
 
-同期，美元兑韩元汇率徘徊于1472附近，韩元兑美元阶段性走弱进一步放大了进口品价格压力，形成典型的输入型通胀循环。
+但随着烷基化开工率从底部企稳回升，醚后碳四市场情绪边际改善，近几日山东价格从低点反复幅度达到400元/吨，对盘面的额外压制有所减轻。
 
-申铉松在听证会上强调，中东地缘政治紧张局势依旧严峻，全球能源价格居高不下，主要经济体货币与财政政策路径仍存变数。
+往前看，考虑到伊朗局势尚不明朗，消息面变化可能造成板块大幅波动，建议保持谨慎。
 
-他指出：“通胀上行风险明显大于经济增长下行风险，基于当前预测偏差程度判断，物价压力将成为首要关注点。
+可适当关注原油下游品种的逢低正套机会。
 
 ## 相关推荐
 
-- 2026-06-29 20:24 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-29 20:01 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-29 20:28 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-29 20:27 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 20:15 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 20:00 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 20:12 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-29 20:04 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 20:21 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 20:21 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-29 20:01 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 20:22 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 20:13 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-29 20:12 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 20:26 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 20:08 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 20:35 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 20:27 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 20:30 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 20:19 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 20:28 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-29 20:19 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-29 20:34 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-29 20:17 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 20:35 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-29 20:34 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 20:20 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:01 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.blog.minike.top/Article/details/830082349184.shtml)
-- 2026-06-29 20:03 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/9413639840.shtml)
-- 2026-06-29 20:08 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/2204271.shtml)
-- 2026-06-29 20:19 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/11513.shtml)
-- 2026-06-29 20:20 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/0670857449.shtml)
-- 2026-06-29 20:13 - [千与千寻](https://www.share.kurohicncr.top/Article/details/65680434.shtml)
-- 2026-06-29 20:24 - [华工科技龙虎榜数据](https://www.blog.kurohicncr.top/Article/details/004687164.shtml)
-- 2026-06-29 20:10 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/897400287.shtml)
-- 2026-06-29 20:10 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/601324.shtml)
-- 2026-06-29 20:25 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/384199.shtml)
-- 2026-06-29 20:18 - [CORTIS 小牌大耍](https://www.share.minike.top/Article/details/75189216.shtml)
-- 2026-06-29 20:16 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/2453686.shtml)
-- 2026-06-29 20:28 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/7403599301.shtml)
-- 2026-06-29 20:11 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/3318306.shtml)
-- 2026-06-29 20:18 - [吴建豪和老婆差20岁](https://www.share.minike.top/Article/details/560663.shtml)
+- 2026-06-29 20:20 - [东方风云榜直播](http://www.blog.kurohicncr.top/Article/details/5785048.shtml)
+- 2026-06-29 20:08 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/168154627.shtml)
+- 2026-06-29 20:09 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.kurohicncr.top/Article/details/1549666.shtml)
+- 2026-06-29 20:11 - [葛军透露高考出题思路](https://www.share.minike.top/Article/details/5834251.shtml)
+- 2026-06-29 20:27 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/608120390.shtml)
+- 2026-06-29 20:22 - [宜宾地震后铁路工作人员叫停列车](http://www.share.kurohicncr.top/Article/details/125282312.shtml)
+- 2026-06-29 20:35 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/21218.shtml)
+- 2026-06-29 20:26 - [高考1357分的同学如何报志愿？](https://www.blog.minike.top/Article/details/836371526.shtml)
+- 2026-06-29 20:10 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/754102.shtml)
+- 2026-06-29 20:18 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/77564867.shtml)
+- 2026-06-29 20:34 - [TOP Prada](https://www.share.minike.top/Article/details/119249.shtml)
+- 2026-06-29 20:24 - [扩军害了世界杯吗](https://www.share.minike.top/Article/details/778277134245.shtml)
+- 2026-06-29 20:10 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/5928248.shtml)
+- 2026-06-29 20:33 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.minike.top/Article/details/756184.shtml)
+- 2026-06-29 20:10 - [韩文体部对韩足协开展审计 查出局原因](http://www.blog.minike.top/Article/details/94928771910.shtml)

@@ -1,58 +1,59 @@
-# 五大险企2025年总投资收益率普升 新华保险6.6%领跑
+# 国台办：台胞到大陆旅行交流完全可以高高兴兴来、平平安安回
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者 林汉垚、实习生 徐若萱 2025年，中国人寿、中国平安、中国人保、中国太保、新华保险五大A股上市险企在复杂宏观环境下交出了一份亮眼的投资成绩单。 截至2025年年末，五家机构合计投资资产规模突破20.7万亿元，总投资收益率普遍提高。 在监管引导长期资金入市与新会计准则落地的双重背景下，上市险企的投资策略呈现鲜明特征：一方面，固收资产作为“压舱石”地位稳固，
+中新社北京5月13日电 (记者 徐雪莹 刘大炜)对于台陆委会再次称赴大陆旅游风险居高不下，国务院台办新闻发言人张晗13日在北京应询指，大陆良好的社会治安环境为世界公认。 她表示，只要不从事违法犯罪活动，广大台湾同胞到大陆旅行交流，完全可以高高兴兴来、平平安安回。 国台办例行新闻发布会当天举行，张晗答问时说，广大台湾同胞在大陆旅游观光、探亲访友，拥有安全舒适、便捷舒心的出行体验，
 
 ## 正文
 
-21世纪经济报道记者 林汉垚、实习生 徐若萱 2025年，中国人寿、中国平安、中国人保、中国太保、新华保险五大A股上市险企在复杂宏观环境下交出了一份亮眼的投资成绩单。
+中新社北京5月13日电 (记者 徐雪莹 刘大炜)对于台陆委会再次称赴大陆旅游风险居高不下，国务院台办新闻发言人张晗13日在北京应询指，大陆良好的社会治安环境为世界公认。
 
-截至2025年年末，五家机构合计投资资产规模突破20.7万亿元，总投资收益率普遍提高。
+她表示，只要不从事违法犯罪活动，广大台湾同胞到大陆旅行交流，完全可以高高兴兴来、平平安安回。
 
-在监管引导长期资金入市与新会计准则落地的双重背景下，上市险企的投资策略呈现鲜明特征：一方面，固收资产作为“压舱石”地位稳固，通过拉长久期、增配政府债来对冲利率下行风险；另一方面，险企抓住市场机遇，大幅加仓权益资产，“股票+基金”平均占比提升，并将新质生产力作为核心配置主线。
+国台办例行新闻发布会当天举行，张晗答问时说，广大台湾同胞在大陆旅游观光、探亲访友，拥有安全舒适、便捷舒心的出行体验，这是有目共睹的事实。
 
-与此同时，非标债权与地产等另类投资敞口持续压降，资产配置结构进一步优化，形成了固收打底、权益增强、另类补位的全新格局。
+民进党当局不断蓄意抹黑，编造所谓“风险”，意图制造恐慌，阻挠破坏两岸交流和人员往来，升高两岸对立对抗。
 
-固收类资产仍是险资配置绝对主体 2025年，新华保险总投资收益率达6.6%，同比提升0.8个百分点，位居行业前列。
+回答有关提问时，张晗还表示，我们一贯鼓励、支持包括旅游在内的两岸各领域交流往来，依法保护台湾同胞的正当权益。
 
-中国人寿实现总投资收益3876.94亿元，同比增加794.43亿元，总投资收益率为6.09%。
+2025年台湾同胞来大陆近500万人次。
 
-中国人保总投资收益923.23亿元，同比增长12.4%，创历史最好水平，总投资收益率为5.7%。
+她指出，民进党当局出于政治私利，恶意炒作、造谣抹黑大陆，企图制造“寒蝉效应”，目的是阻挠破坏两岸交流合作，升高两岸对立对抗，不得人心，不会得逞。
 
-总投资收益率涵盖所有投资活动的收益，包含股票买卖价差等主动交易收益及以公允价值计量且其变动计入当期损益（FVTPL）资产的市值波动，更能反映险企对权益市场机会的把握能力。
+就台陆委会称，国务院近日公布的《关于产业链供应链安全的规定》对在大陆外资与台商造成压力，张晗回应指出，该规定着力推进高水平对外开放，促进全球产业链供应链稳定畅通，填补了大陆在相关领域的立法空白，在大陆合法合规经营的台资企业受其保护。
 
 ## 相关推荐
 
-- 2026-06-29 20:08 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-29 20:15 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-29 20:26 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 20:21 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 20:08 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-29 20:01 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-29 20:21 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-29 20:25 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-29 20:07 - [世界杯在中国观看最多的比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-29 20:20 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 20:23 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-29 20:05 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 20:18 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-29 20:25 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 20:17 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 20:09 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 20:08 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 20:23 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 20:20 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 20:25 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 20:06 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-29 20:30 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 20:07 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 20:18 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-29 20:06 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:02 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/71011.shtml)
-- 2026-06-29 20:23 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/605538213.shtml)
-- 2026-06-29 20:19 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/9518910.shtml)
-- 2026-06-29 20:27 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/966788212557.shtml)
-- 2026-06-29 20:25 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/4662312.shtml)
-- 2026-06-29 20:05 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/23925.shtml)
-- 2026-06-29 20:14 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/043866223619.shtml)
-- 2026-06-29 20:24 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/31581081796.shtml)
-- 2026-06-29 20:21 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.minike.top/Article/details/7257402443.shtml)
-- 2026-06-29 20:11 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.minike.top/Article/details/640195144896.shtml)
-- 2026-06-29 20:16 - [华工科技龙虎榜数据](https://www.blog.kurohicncr.top/Article/details/28189711581.shtml)
-- 2026-06-29 20:17 - [章若楠包场白敬亭特立独行](https://www.share.kurohicncr.top/Article/details/2113170.shtml)
-- 2026-06-29 20:05 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/221565.shtml)
-- 2026-06-29 20:18 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.kurohicncr.top/Article/details/811696.shtml)
-- 2026-06-29 20:11 - [大学专业未来如何洗牌](http://www.share.kurohicncr.top/Article/details/98173890.shtml)
+- 2026-06-29 20:10 - [青春环游记第三季](https://www.blog.minike.top/Article/details/1374080.shtml)
+- 2026-06-29 20:30 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/9056254881.shtml)
+- 2026-06-29 20:11 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/02606.shtml)
+- 2026-06-29 20:14 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/093576757.shtml)
+- 2026-06-29 20:24 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/4166842556.shtml)
+- 2026-06-29 20:28 - [扬名立万](https://www.share.minike.top/Article/details/90825999.shtml)
+- 2026-06-29 20:20 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/04489425.shtml)
+- 2026-06-29 20:24 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/186748890382.shtml)
+- 2026-06-29 20:13 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/5008928.shtml)
+- 2026-06-29 20:31 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.minike.top/Article/details/080124748.shtml)
+- 2026-06-29 20:08 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/109618720.shtml)
+- 2026-06-29 20:16 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/8903801.shtml)
+- 2026-06-29 20:17 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/8385563.shtml)
+- 2026-06-29 20:14 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/620162829433.shtml)
+- 2026-06-29 20:08 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/9653546.shtml)

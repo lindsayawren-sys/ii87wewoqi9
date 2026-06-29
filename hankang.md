@@ -1,50 +1,59 @@
-# 浙商银行：“e家银”资产池将不再提供资产入池、积铢贷续贷等功能
+# 毕马威中国蔡伟：四大动能支撑二季度中国经济延续稳健复苏
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-4月15日金融一线消息，浙商银行发布公告称，因业务调整，自2026年5月8日起，“e家银”资产池不再提供资产入池、积铢贷续贷、标准信用卡提额、浙银在线卡提额等功能。针对使用资产池融资额度为标准信用卡或浙银在线卡提额的客户，该行将自2026年6月1日起，陆续对标准信用卡和浙银在线卡中未使用的资产池融资额度进行降额。 责任编辑：王馨茹
+中新社北京5月13日电 题：毕马威中国蔡伟：四大动能支撑二季度中国经济延续稳健复苏 中新社记者 庞无忌 一季度中国经济起步有力，GDP(国内生产总值)同比增长5.0%，站稳全年增长目标上沿。尽管面临地缘冲突延宕升级、国内供强需弱矛盾等的扰动，毕马威中国经济研究院院长蔡伟近日在接受中新社记者专访时指出，但在外需韧性、服务消费拉动、新动能加速成长、政策靠前发力等多重因素支撑下，二季
 
 ## 正文
 
-4月15日金融一线消息，浙商银行发布公告称，因业务调整，自2026年5月8日起，“e家银”资产池不再提供资产入池、积铢贷续贷、标准信用卡提额、浙银在线卡提额等功能。
+中新社北京5月13日电 题：毕马威中国蔡伟：四大动能支撑二季度中国经济延续稳健复苏 中新社记者 庞无忌 一季度中国经济起步有力，GDP(国内生产总值)同比增长5.0%，站稳全年增长目标上沿。
 
-针对使用资产池融资额度为标准信用卡或浙银在线卡提额的客户，该行将自2026年6月1日起，陆续对标准信用卡和浙银在线卡中未使用的资产池融资额度进行降额。
+尽管面临地缘冲突延宕升级、国内供强需弱矛盾等的扰动，毕马威中国经济研究院院长蔡伟近日在接受中新社记者专访时指出，但在外需韧性、服务消费拉动、新动能加速成长、政策靠前发力等多重因素支撑下，二季度中国经济有望延续稳健复苏态势。
 
-责任编辑：王馨茹
+首先，在一季度表现强劲的外贸预计仍有韧性。
+
+日前，毕马威发布的二季度《中国经济观察》报告认为，二季度外需韧性仍存。
+
+中国一季度出口同比增长11.9%；4月出口同比增速加快至14.1%，较3月显著提升，增幅超市场预期。
+
+蔡伟表示，全球人工智能产业链的高景气，持续拉动中国集成电路等产品出口。
+
+同时，全球能源转型趋势推动“新三样”(电动载人汽车、锂电池和太阳能电池)等产品出口保持较高增长。
+
+从4月PMI(制造业采购经理指数)等先行指标看，全球需求保持偏强格局，叠加国内完备的产业配套优势，即便存在地缘风险扰动，二季度外贸仍将维持结构性韧性。
 
 ## 相关推荐
 
-- 2026-06-29 20:25 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 20:18 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-29 20:22 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-29 20:09 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-29 20:18 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 20:14 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 20:21 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 20:10 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 20:14 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-29 20:03 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-29 20:17 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 20:19 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 20:15 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 20:09 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 20:06 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 20:28 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 20:10 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 20:12 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-29 20:15 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-29 20:34 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-29 20:27 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 20:34 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-29 20:15 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-29 20:07 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 20:18 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-29 20:15 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 20:22 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:09 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.minike.top/Article/details/155141549105.shtml)
-- 2026-06-29 20:06 - [AG 宫斗](http://www.share.minike.top/Article/details/213307.shtml)
-- 2026-06-29 20:15 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/70754269.shtml)
-- 2026-06-29 20:03 - [网友晒14年前支教影像等来学生评论](http://www.share.minike.top/Article/details/23059.shtml)
-- 2026-06-29 20:13 - [战略导弹部队60年如何炼成大国长剑](https://www.share.minike.top/Article/details/0631788.shtml)
-- 2026-06-29 20:14 - [华工科技龙虎榜数据](http://www.share.kurohicncr.top/Article/details/912681353039.shtml)
-- 2026-06-29 20:26 - [刘冰任河南南阳市代市长](https://www.share.kurohicncr.top/Article/details/778510857.shtml)
-- 2026-06-29 20:11 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.kurohicncr.top/Article/details/03485505008.shtml)
-- 2026-06-29 20:05 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/062231.shtml)
-- 2026-06-29 20:01 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/66105182669.shtml)
-- 2026-06-29 20:16 - [2026全国田径冠军赛江苏队4金收官](https://www.blog.kurohicncr.top/Article/details/161496406906.shtml)
-- 2026-06-29 20:22 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.blog.kurohicncr.top/Article/details/44468877.shtml)
-- 2026-06-29 20:01 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/71662049225.shtml)
-- 2026-06-29 20:17 - [扬名立万](https://www.share.kurohicncr.top/Article/details/94549.shtml)
-- 2026-06-29 20:28 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/31283006.shtml)
+- 2026-06-29 20:29 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.kurohicncr.top/Article/details/337886500.shtml)
+- 2026-06-29 20:12 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/8977783982.shtml)
+- 2026-06-29 20:15 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/739880717.shtml)
+- 2026-06-29 20:27 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/3883768.shtml)
+- 2026-06-29 20:20 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/10770288098.shtml)
+- 2026-06-29 20:10 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.share.minike.top/Article/details/12732367.shtml)
+- 2026-06-29 20:16 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/4083989.shtml)
+- 2026-06-29 20:24 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/76392769134.shtml)
+- 2026-06-29 20:18 - [海口塔吊事故处罚结果公布](https://www.share.minike.top/Article/details/841173264332.shtml)
+- 2026-06-29 20:26 - [福建海警位金门附近海域常态执法巡查](https://www.share.kurohicncr.top/Article/details/72803443.shtml)
+- 2026-06-29 20:29 - [C罗10球7球对垫底队](https://www.share.minike.top/Article/details/851229.shtml)
+- 2026-06-29 20:29 - [TOP Prada](http://www.share.minike.top/Article/details/95184108019.shtml)
+- 2026-06-29 20:31 - [女心理师](http://www.blog.minike.top/Article/details/4370665798.shtml)
+- 2026-06-29 20:11 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/05677087284.shtml)
+- 2026-06-29 20:18 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/40841741.shtml)

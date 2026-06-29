@@ -1,58 +1,46 @@
-# 李强同阿联酋阿布扎比王储哈立德会谈
+# 收评|国内期货主力合约跌多涨少 碳酸锂跌近5%
 
-> 更新时间：2026-06-29 20:30:02 UTC+8
+> 更新时间：2026-06-29 20:36:02 UTC+8
 
 ## 摘要
 
-中新社北京4月13日电 4月13日下午，中国国务院总理李强在北京人民大会堂同来华访问的阿联酋阿布扎比王储哈立德举行会谈。 李强表示，中国和阿联酋是全面战略伙伴，两国传统友谊深厚，在涉及彼此核心利益问题上长期相互支持。近年来，在习近平主席和穆罕默德总统战略引领下，中阿关系持续深化发展，各领域合作成果丰硕，为两国人民带来了实实在在的利益。中方愿同阿方继续在共同发展的道路上结伴前行，
+2026年5月14日，国内期货主力合约跌多涨少。沪银、鸡蛋、多晶硅、焦炭涨超1%；跌幅方面，碳酸锂跌近5%，SC原油、液化石油气（LPG）、集运欧线、瓶片、乙二醇（EG）跌超3%，苯乙烯（EB）、低硫燃料油（LU）、PX跌超2%。 责任编辑：赵思远
 
 ## 正文
 
-中新社北京4月13日电 4月13日下午，中国国务院总理李强在北京人民大会堂同来华访问的阿联酋阿布扎比王储哈立德举行会谈。
+2026年5月14日，国内期货主力合约跌多涨少。
 
-李强表示，中国和阿联酋是全面战略伙伴，两国传统友谊深厚，在涉及彼此核心利益问题上长期相互支持。
+沪银、鸡蛋、多晶硅、焦炭涨超1%；跌幅方面，碳酸锂跌近5%，SC原油、液化石油气（LPG）、集运欧线、瓶片、乙二醇（EG）跌超3%，苯乙烯（EB）、低硫燃料油（LU）、PX跌超2%。
 
-近年来，在习近平主席和穆罕默德总统战略引领下，中阿关系持续深化发展，各领域合作成果丰硕，为两国人民带来了实实在在的利益。
-
-中方愿同阿方继续在共同发展的道路上结伴前行，加强沟通协调，筑牢政治互信，推动中阿关系与合作不断迈上新台阶，取得更多实际成果，更好实现互利共赢。
-
-李强指出，中方愿同阿方夯实能源合作基础，拓展储能、氢能、新能源汽车、动力电池等领域合作，促进两国绿色转型。
-
-双方要打造更多贸易增长点，既扩大规模，也优化结构。
-
-中方愿进口阿方更多优质产品，欢迎阿方积极参与“共享大市场·出口中国”系列活动，用好中国进博会、服贸会等平台加大产品推介。
-
-中阿在创新发展领域的合作前景广阔，中方欢迎阿方加大在人工智能、数字经济、先进制造、生命科学等领域的对华投资，支持两国高校、科研机构和企业加强联合研究和人才培养，共同培育壮大新兴和未来产业。
+责任编辑：赵思远
 
 ## 相关推荐
 
-- 2026-06-29 20:12 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-29 20:29 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 20:11 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-29 20:27 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 20:22 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 20:00 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-29 20:02 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-29 20:22 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-29 20:29 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-29 20:22 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 20:14 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-29 20:14 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-29 20:32 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-29 20:29 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 20:32 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 20:35 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-29 20:21 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-29 20:26 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-29 20:35 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-29 20:23 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-29 20:34 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 20:35 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:13 - [日媒：日本高价采购“战斧”变冤大头](https://www.blog.minike.top/Article/details/1285791721.shtml)
-- 2026-06-29 20:00 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/892989.shtml)
-- 2026-06-29 20:26 - [恋与深空各大应用商店评分](https://www.share.kurohicncr.top/Article/details/76141921.shtml)
-- 2026-06-29 20:26 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/5682382390.shtml)
-- 2026-06-29 20:02 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/832577121475.shtml)
-- 2026-06-29 20:15 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/991896593.shtml)
-- 2026-06-29 20:26 - [朱雀三号重复使用遥二运载火箭新进展](http://www.share.minike.top/Article/details/06395371.shtml)
-- 2026-06-29 20:29 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/338696026041.shtml)
-- 2026-06-29 20:26 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/523450.shtml)
-- 2026-06-29 20:28 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/07526199429.shtml)
-- 2026-06-29 20:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/514808229.shtml)
-- 2026-06-29 20:12 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/264271508.shtml)
-- 2026-06-29 20:01 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/87430761.shtml)
-- 2026-06-29 20:28 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/65429962763.shtml)
-- 2026-06-29 20:24 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/660270.shtml)
+- 2026-06-29 20:13 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.minike.top/Article/details/26411.shtml)
+- 2026-06-29 20:25 - [《新闻联播》正在直播](http://www.blog.kurohicncr.top/Article/details/35169133033.shtml)
+- 2026-06-29 20:30 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/00660090.shtml)
+- 2026-06-29 20:27 - [不烧钱的低成本爱好](https://www.share.kurohicncr.top/Article/details/737709.shtml)
+- 2026-06-29 20:09 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/697991320590.shtml)
+- 2026-06-29 20:34 - [AG 宫斗](http://www.blog.minike.top/Article/details/49655449.shtml)
+- 2026-06-29 20:35 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/473238387.shtml)
+- 2026-06-29 20:33 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/3785521.shtml)
+- 2026-06-29 20:17 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/39332.shtml)
+- 2026-06-29 20:15 - [哈兰德玩游戏连女友都不让着](https://www.blog.kurohicncr.top/Article/details/6642598611.shtml)
+- 2026-06-29 20:21 - [小娘惹](https://www.share.kurohicncr.top/Article/details/1490636866.shtml)
+- 2026-06-29 20:33 - [夫妻生活太无聊，所以我……](http://www.share.minike.top/Article/details/7109089.shtml)
+- 2026-06-29 20:32 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/9384441.shtml)
+- 2026-06-29 20:31 - [朱雀三号重复使用遥二运载火箭新进展](http://www.share.kurohicncr.top/Article/details/00482723006.shtml)
+- 2026-06-29 20:21 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/47367124832.shtml)
