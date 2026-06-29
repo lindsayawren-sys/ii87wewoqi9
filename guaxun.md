@@ -1,60 +1,57 @@
-# 日本本轮核污染水排放量近8000吨
+# 乌克兰总理：欧盟成员国均已同意开启乌方入盟谈判
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社东京6月22日电日本东京电力公司22日宣布，第20次核污染水排海结束，总计排放核污染水近8000吨。 根据东京电力公司22日发布的新闻公报，本轮排放自6月1日上午开始，当地时间20日下午结束，共排放核污染水7927吨，含放射性氚总量约1.3万亿贝克勒尔。 这次排放结束时间比原计划推迟了一天。10日和1
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！乌克兰总理尤利娅·斯维里坚科3日在社交媒体上说，欧盟27个成员国均已同意开启乌克兰和摩尔多瓦加入欧盟的谈判。当天早些时候，匈牙利政府说，已与乌克兰就扩大乌境内匈牙利族居民权利达成协议，该举措被认为扫除了开启乌克兰入盟谈判的一大障碍。 “我们离获得欧盟成员国资格又近了一步：正稳步朝着我们的目标迈进。”斯维里坚
 
 ## 正文
 
 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-新华社东京6月22日电日本东京电力公司22日宣布，第20次核污染水排海结束，总计排放核污染水近8000吨。
+乌克兰总理尤利娅·斯维里坚科3日在社交媒体上说，欧盟27个成员国均已同意开启乌克兰和摩尔多瓦加入欧盟的谈判。
 
-根据东京电力公司22日发布的新闻公报，本轮排放自6月1日上午开始，当地时间20日下午结束，共排放核污染水7927吨，含放射性氚总量约1.3万亿贝克勒尔。
+当天早些时候，匈牙利政府说，已与乌克兰就扩大乌境内匈牙利族居民权利达成协议，该举措被认为扫除了开启乌克兰入盟谈判的一大障碍。
 
-这次排放结束时间比原计划推迟了一天。
+“我们离获得欧盟成员国资格又近了一步：正稳步朝着我们的目标迈进。
 
-10日和13日先后两次中断排放，原因分别是水路电动阀故障和雷电造成输电线路短暂断电。
+”斯维里坚科在X平台上写道。
 
-2023年8月，日方无视国际社会的质疑和反对，单方面强行启动福岛第一核电站核污染水排海。
+据乌克兰《基辅独立报》报道，入盟谈判正式启动日期尚未确定，不过欧盟和乌方外交官透露，理想预期是6月15日在卢森堡一场欧盟外长会间隙启动，若当天不行，则挪到次日进行。
 
-截至目前已完成20次核污染水排放，累计排放量约15.7万吨。
+乌克兰危机2022年2月全面升级后，欧盟于同年6月授予乌克兰和摩尔多瓦候选成员国地位。
 
-（完）责任编辑：宋雅芳
+欧盟官员多次表示，这一决定很大程度上是为支持这两国对抗俄罗斯而采取的象征性举措。
 
 ## 相关推荐
 
-- 2026-06-29 17:49 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 17:59 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 18:10 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-29 18:05 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 17:42 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 18:00 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-29 17:52 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-29 18:10 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-29 17:45 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-29 17:43 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 17:55 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-29 17:43 - [娜扎搂着我的腰和我合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-29 18:05 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 17:50 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 18:08 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-29 18:11 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 17:59 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 18:08 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-29 18:08 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-29 18:08 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 18:05 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 18:11 - [存储三巨头被告了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 17:57 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 18:13 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 17:50 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:07 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/8886273.shtml)
-- 2026-06-29 17:52 - [恋与深空 731](https://www.blog.kurohicncr.top/Article/details/3998564594.shtml)
-- 2026-06-29 17:54 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/242176293065.shtml)
-- 2026-06-29 17:51 - [一生一世](http://www.blog.kurohicncr.top/Article/details/550657.shtml)
-- 2026-06-29 17:45 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/56902986527.shtml)
-- 2026-06-29 18:08 - [运20对中国空军的意义是什么](http://www.blog.kurohicncr.top/Article/details/48518007956.shtml)
-- 2026-06-29 17:42 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/18083.shtml)
-- 2026-06-29 18:00 - [王楚钦开门红](https://www.blog.minike.top/Article/details/793333.shtml)
-- 2026-06-29 17:52 - [每天通勤往返3h的感觉](https://www.blog.kurohicncr.top/Article/details/380951.shtml)
-- 2026-06-29 17:50 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/8381315295.shtml)
-- 2026-06-29 18:01 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/691174.shtml)
-- 2026-06-29 17:47 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/1067355612.shtml)
-- 2026-06-29 17:58 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/2472560.shtml)
-- 2026-06-29 17:58 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/82196249.shtml)
-- 2026-06-29 18:04 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/780578082770.shtml)
+- 2026-06-29 17:59 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/87691.shtml)
+- 2026-06-29 17:49 - [河南四位大妈景区跳舞爆火](https://www.blog.kurohicncr.top/Article/details/46875769922.shtml)
+- 2026-06-29 17:54 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.kurohicncr.top/Article/details/9337177365.shtml)
+- 2026-06-29 18:01 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/274167342772.shtml)
+- 2026-06-29 17:53 - [绘画区你赢了](https://www.blog.minike.top/Article/details/684232849.shtml)
+- 2026-06-29 17:56 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/353000742.shtml)
+- 2026-06-29 18:12 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/158230483343.shtml)
+- 2026-06-29 18:14 - [王曼昱被突如其来的话筒逗笑了](http://www.share.kurohicncr.top/Article/details/407667420855.shtml)
+- 2026-06-29 18:11 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.kurohicncr.top/Article/details/02241.shtml)
+- 2026-06-29 18:02 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/74678.shtml)
+- 2026-06-29 17:48 - [美国大满贯首日国乒主力均取胜](https://www.share.minike.top/Article/details/730025.shtml)
+- 2026-06-29 17:57 - [CORTIS登机迟到致航班延误](http://www.share.kurohicncr.top/Article/details/1953227.shtml)
+- 2026-06-29 17:56 - [王楚钦开门红](http://www.share.minike.top/Article/details/57287.shtml)
+- 2026-06-29 17:56 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.minike.top/Article/details/430849187.shtml)
+- 2026-06-29 17:48 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/9695789388.shtml)

@@ -1,61 +1,49 @@
-# 海思科环泊酚获FDA批准上市，中国原研静脉麻醉药“上桌”全球舞台
+# 威海银行：将于7月30日派发末期股息每100股10元
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-“她一进手术室就把手藏起来，不让我们从手上给药。”在海思科医药集团首届媒体日上，四川大学华西医院麻醉手术中心主任医师、博士生导师左云霞教授讲述了一个因多次手术而对打针产生心理创伤的小女孩的故事。让她“藏手”的，正是临床上广泛使用的麻醉药丙泊酚带来的注射痛。而一款由中国企业自主研发的静脉麻醉新药环泊酚，正在改变这一困境。 左云霞指出，临床上广泛使用的麻醉药物丙泊酚自1980年问世
+6月5日金融一线消息，威海银行发布公告称，将于2026年7月30日派发末期股息每100股10人民币。 责任编辑：秦艺
 
 ## 正文
 
-“她一进手术室就把手藏起来，不让我们从手上给药。
+6月5日金融一线消息，威海银行发布公告称，将于2026年7月30日派发末期股息每100股10人民币。
 
-”在海思科医药集团首届媒体日上，四川大学华西医院麻醉手术中心主任医师、博士生导师左云霞教授讲述了一个因多次手术而对打针产生心理创伤的小女孩的故事。
-
-让她“藏手”的，正是临床上广泛使用的麻醉药丙泊酚带来的注射痛。
-
-而一款由中国企业自主研发的静脉麻醉新药环泊酚，正在改变这一困境。
-
-左云霞指出，临床上广泛使用的麻醉药物丙泊酚自1980年问世以来，虽起效快、恢复快，但存在注射痛、呼吸抑制强、安全窗狭窄等长期痛点。
-
-“基本上一起效患者的呼吸就受到抑制，一起效循环就受到抑制，血压就降低。
-
-” 环泊酚的研发正是为了解决这些问题。
-
-据海思科医药集团研发副总经理窦赢介绍，环泊酚的代号HSK3486，意味着它是团队合成的第3486个化合物。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 17:57 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 17:58 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-29 17:50 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-29 17:47 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-29 17:51 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-29 17:52 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 18:07 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-29 17:58 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-29 18:00 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 17:49 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-29 17:51 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 17:44 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 18:03 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 18:06 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 18:02 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-29 18:05 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 18:08 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 18:03 - [博主：AI泡沫必须破灭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 18:00 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 17:48 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 18:13 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 18:06 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-29 17:58 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 18:01 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 17:50 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 18:02 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 18:08 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 18:13 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 18:04 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 18:07 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:59 - [评论员：日菲勾连各有盘算](https://www.blog.minike.top/Article/details/806524776.shtml)
-- 2026-06-29 18:01 - [虞书欣好辣的剧宣](https://www.share.minike.top/Article/details/36709474788.shtml)
-- 2026-06-29 17:47 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/1674338761.shtml)
-- 2026-06-29 17:44 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/8395112808.shtml)
-- 2026-06-29 18:00 - [我和我的家乡](https://www.share.minike.top/Article/details/4713475.shtml)
-- 2026-06-29 18:00 - [世界杯在中国观看最多的比赛](http://www.blog.kurohicncr.top/Article/details/0471755.shtml)
-- 2026-06-29 18:02 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/21493768035.shtml)
-- 2026-06-29 18:10 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/796205079819.shtml)
-- 2026-06-29 17:57 - [女生每天戴耳机18小时突发耳聋](http://www.share.kurohicncr.top/Article/details/68235795.shtml)
-- 2026-06-29 17:58 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/65181243.shtml)
-- 2026-06-29 18:09 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/4891703.shtml)
-- 2026-06-29 17:50 - [日本主教练回应迎战巴西](http://www.blog.kurohicncr.top/Article/details/61211027.shtml)
-- 2026-06-29 18:09 - [女生每天戴耳机18小时突发耳聋](https://www.share.kurohicncr.top/Article/details/917385878319.shtml)
-- 2026-06-29 17:52 - [沙特外交大臣将访华](http://www.blog.minike.top/Article/details/680733.shtml)
-- 2026-06-29 18:07 - [王安宇尊重田曦薇的一切选择](https://www.share.minike.top/Article/details/360433546136.shtml)
+- 2026-06-29 17:55 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/989537944.shtml)
+- 2026-06-29 18:15 - [蔚来回应车漆洗车时被冲掉](http://www.blog.kurohicncr.top/Article/details/28722.shtml)
+- 2026-06-29 18:16 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/763286521288.shtml)
+- 2026-06-29 18:14 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/38017035.shtml)
+- 2026-06-29 17:55 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/439936.shtml)
+- 2026-06-29 18:09 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/81516145730.shtml)
+- 2026-06-29 17:57 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/924567394905.shtml)
+- 2026-06-29 18:08 - [官方通报一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/68114.shtml)
+- 2026-06-29 17:54 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/57856578.shtml)
+- 2026-06-29 17:57 - [重度抑郁女孩没钱去做心理咨询](http://www.blog.kurohicncr.top/Article/details/8406144.shtml)
+- 2026-06-29 17:53 - [韩国队回国欢迎仪式取消](http://www.blog.minike.top/Article/details/006146.shtml)
+- 2026-06-29 18:13 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/971792.shtml)
+- 2026-06-29 17:58 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.kurohicncr.top/Article/details/45595272.shtml)
+- 2026-06-29 18:16 - [天柱山回应网红打卡树枝被砍](https://www.blog.kurohicncr.top/Article/details/23960186496.shtml)
+- 2026-06-29 17:50 - [盛秋平任南昌市委书记](http://www.blog.minike.top/Article/details/797682407030.shtml)

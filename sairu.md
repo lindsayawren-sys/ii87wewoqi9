@@ -1,59 +1,48 @@
-# 中国铁路端午假期运输收官 发送旅客超8000万人次
+# 又帅又飒！看云南专业舞者把目瑙纵歌跳出全网“天花板”
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-中新社北京6月23日电 (记者 刘文文)记者23日从中国国家铁路集团有限公司(下称“国铁集团”)获悉，6月18日至22日铁路端午假期运输期间，全国铁路累计发送旅客8258.8万人次、同比增长4.9%。 国铁集团客运中心方面表示，今年端午假期以探亲流、旅游流为主，铁路客流总体保持高位。假日期间，铁路部门实行高峰列车运行图，日均开行旅客列车12659列，及时在热门方向、区间增加运力
+发布时间：2026年06月05日 14:42 来源：中国新闻网 近日，一段创新版景颇刀舞刷屏各大社交平台。云南省歌舞剧院首席舞者袁志平以一把长刀、将景颇族千年民俗跳出全网“天花板”，让海内外观众直呼“帅气”。一起来看袁志平现场教学景颇刀技，分享“出圈”的幕后故事！(袁鸿凯) 责任编辑：【罗攀】
 
 ## 正文
 
-中新社北京6月23日电 (记者 刘文文)记者23日从中国国家铁路集团有限公司(下称“国铁集团”)获悉，6月18日至22日铁路端午假期运输期间，全国铁路累计发送旅客8258.8万人次、同比增长4.9%。
+发布时间：2026年06月05日 14:42 来源：中国新闻网 近日，一段创新版景颇刀舞刷屏各大社交平台。
 
-国铁集团客运中心方面表示，今年端午假期以探亲流、旅游流为主，铁路客流总体保持高位。
+云南省歌舞剧院首席舞者袁志平以一把长刀、将景颇族千年民俗跳出全网“天花板”，让海内外观众直呼“帅气”。
 
-假日期间，铁路部门实行高峰列车运行图，日均开行旅客列车12659列，及时在热门方向、区间增加运力投放，累计增开跨局夜间高铁列车520列、动卧列车34列。
+一起来看袁志平现场教学景颇刀技，分享“出圈”的幕后故事！
 
-端午假期，铁旅融合成效显著。
-
-铁路部门在热门旅游城市间增开旅客列车，推动“火车向着景区开”，安排开行“星光·燕赵号”“中原铁道·大河之南号”“熊猫专列·成都号”“新东方快车”“秦岭号”“大美上饶”等各具特色的旅游列车49列，促进假日服务消费。
-
-为进一步提升旅客体验，铁路部门持续优化购票、候车、乘降、中转、接驳等各环节流程，精心做好老幼病残孕等重点旅客出行服务。
-
-部分车站和列车举行“美好旅途‘粽’享端午”文化互动活动，邀请旅客包粽子、编五彩绳、趣味问答，感受别样的端午文化体验。
-
-(完)
+(袁鸿凯) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 17:49 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 17:47 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 17:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-29 18:02 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 18:10 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-29 18:09 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-29 17:53 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-29 17:50 - [世界杯在中国观看最多的比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-29 18:01 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-29 17:52 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 17:53 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-29 18:05 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-29 17:54 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 17:52 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 17:49 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-29 17:57 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-29 17:56 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-29 18:08 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 18:02 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-29 17:49 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-29 17:59 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 18:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-29 18:02 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:43 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/64375194434.shtml)
-- 2026-06-29 17:45 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.kurohicncr.top/Article/details/11031730796.shtml)
-- 2026-06-29 18:11 - [A股收评：科创50指数大涨4.61%](https://www.share.kurohicncr.top/Article/details/6557745935.shtml)
-- 2026-06-29 17:43 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/41125547.shtml)
-- 2026-06-29 18:05 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/749141930.shtml)
-- 2026-06-29 18:08 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/99912.shtml)
-- 2026-06-29 17:50 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/40061449111.shtml)
-- 2026-06-29 17:56 - [五只军犬招募领养人](https://www.share.minike.top/Article/details/68514727.shtml)
-- 2026-06-29 17:53 - [小说《无悔追踪》翻红](https://www.blog.kurohicncr.top/Article/details/222860407.shtml)
-- 2026-06-29 17:42 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/332011475084.shtml)
-- 2026-06-29 17:50 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.blog.kurohicncr.top/Article/details/3911232.shtml)
-- 2026-06-29 18:07 - [世界杯在中国观看最多的比赛](https://www.blog.kurohicncr.top/Article/details/92190988.shtml)
-- 2026-06-29 18:03 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/798314.shtml)
-- 2026-06-29 18:10 - [李在镕：计划将光州作为芯片生产基地](http://www.share.minike.top/Article/details/374909486.shtml)
-- 2026-06-29 17:43 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/90317277.shtml)
+- 2026-06-29 18:15 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.minike.top/Article/details/83951.shtml)
+- 2026-06-29 18:04 - [黄金也扛不住了](https://www.share.minike.top/Article/details/20305.shtml)
+- 2026-06-29 18:06 - [日本在最东端离岛部署导弹发射装置](http://www.blog.minike.top/Article/details/34770614099.shtml)
+- 2026-06-29 18:00 - [直击委内瑞拉加拉加斯救援现场](http://www.share.kurohicncr.top/Article/details/601627222.shtml)
+- 2026-06-29 17:49 - [唐国强打卡贵阳孔学堂](http://www.share.minike.top/Article/details/6075044241.shtml)
+- 2026-06-29 18:06 - [小鹏MONAL03预售定档7月2日](https://www.share.kurohicncr.top/Article/details/763278494.shtml)
+- 2026-06-29 18:05 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/60817267142.shtml)
+- 2026-06-29 17:58 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/962099560.shtml)
+- 2026-06-29 18:16 - [断骨增高灰产拉一人提成1.5万元](http://www.share.kurohicncr.top/Article/details/94691.shtml)
+- 2026-06-29 18:13 - [美人鱼](http://www.blog.minike.top/Article/details/2197993731.shtml)
+- 2026-06-29 18:14 - [普京承认俄出现燃料危机](https://www.share.minike.top/Article/details/144923093292.shtml)
+- 2026-06-29 18:04 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/518648.shtml)
+- 2026-06-29 18:00 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/35769.shtml)
+- 2026-06-29 18:15 - [周生如故](https://www.share.kurohicncr.top/Article/details/402534765.shtml)
+- 2026-06-29 18:04 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/61808880.shtml)

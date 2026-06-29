@@ -1,61 +1,60 @@
-# 梅雨季全面开启 警惕强降雨致灾
+# 澳门大学生福建宁德参访：愿做两地交流合作的“探索者”
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-新华社北京6月21日电 题：梅雨季全面开启 警惕强降雨致灾 新华社记者刘诗平 根据国家气候中心21日公布的监测结果，江南地区、长江中下游地区和江淮地区已于近日入梅，梅雨季节全面开启。入梅后，短时强降水、雷雨大风、龙卷风、冰雹将频繁发生，局地强降水发生的频率和强度均有增加趋势，需做好中小河流洪水、城市暴雨积涝、山洪和地质灾害防范。 同时，未来数日，南方多暴雨、北方多雷阵雨，需注意
+中新网宁德6月4日电 (记者 叶茂)来自澳门城市大学大健康学院社会工作学系的林燕琳，4日傍晚从福建省宁德市离开时说，下次再来时，希望自己不是作为一个“参观者”，而是作为一个“探索者”，未来可以转向“项目式”或“实习式”的深度互动。 6月3日至4日，“闽澳大学生阳光交流营”活动走进宁德市，近30名来自澳门多所高校，覆盖金融、文旅、大健康、智慧科技等多个专业的大学生实地探访产业园区
 
 ## 正文
 
-新华社北京6月21日电 题：梅雨季全面开启 警惕强降雨致灾 新华社记者刘诗平 根据国家气候中心21日公布的监测结果，江南地区、长江中下游地区和江淮地区已于近日入梅，梅雨季节全面开启。
+中新网宁德6月4日电 (记者 叶茂)来自澳门城市大学大健康学院社会工作学系的林燕琳，4日傍晚从福建省宁德市离开时说，下次再来时，希望自己不是作为一个“参观者”，而是作为一个“探索者”，未来可以转向“项目式”或“实习式”的深度互动。
 
-入梅后，短时强降水、雷雨大风、龙卷风、冰雹将频繁发生，局地强降水发生的频率和强度均有增加趋势，需做好中小河流洪水、城市暴雨积涝、山洪和地质灾害防范。
+6月3日至4日，“闽澳大学生阳光交流营”活动走进宁德市，近30名来自澳门多所高校，覆盖金融、文旅、大健康、智慧科技等多个专业的大学生实地探访产业园区、海洋牧场、红色旧址与历史人文，近距离触摸宁德产业腾飞脉络、品读山海人文底蕴，探寻宁澳多元合作新机遇。
 
-同时，未来数日，南方多暴雨、北方多雷阵雨，需注意防范暴雨、强对流天气及其次生灾害。
+澳门城市大学校董、澳门福建同乡总会副会长兼专业事务委员会主任陈倩雯表示，此行的目的，就是希望为澳门的年轻一代创造一个机会，让他们走出课堂，实地看看这里的发展，增进对家乡、对国家的认识，把所见所闻、所思所感带回澳门。
 
-梅雨季全面开启 强对流天气活跃 根据国家相关标准，我国梅雨盛行的区域分为江南地区、长江中下游地区和江淮地区。
+探产业、品人文，解码闽东魅力 其间，参访团一行先后走进企业生产一线、海上养殖基地，实地观摩锂电新能源、不锈钢领域、电机装备等特色产业发展实况，现代渔业转型升级图景让澳门学子耳目一新。
 
-国家气候中心预测，江南地区和长江中下游地区已于6月18日入梅，较常年来得晚，预计梅雨期较常年偏短。
+参访团还走进宁德市博物馆品读畲族民俗与闽东历史；参观宁德市“摆脱贫困”主题展览，回望宁德从东南沿海“黄金断裂带”迈向“福建省高质量发展新增长极”的蜕变历程；前往福安闽东苏区纪念馆寻访红色足迹，沉浸式感悟闽东红色文脉。
 
-其中，江南地区强度偏强，梅雨量较常年偏多一至三成；长江中下游地区降水阶段性偏强，出现局地致灾性强降水过程的可能性大。
+澳门理工大学中葡翻译专业的黄希怡坦言，新能源工业参访震撼人心，红色场馆研学让人热血沸腾，宁德坚持科技实业与人文传承双线并行的发展路径令她印象深刻，“短短两天便让我生出如同‘第二故乡’的归属感”。
 
-江淮地区6月19日入梅，较常年偏早，预计梅雨期较常年偏短，梅雨量接近常年，强度阶段性偏强。
+话乡情、共追梦，激荡青年共鸣 在福安市举行的青年联谊交流会上，一场关于“留下”与“离开”的话题研讨成为交流焦点。
 
-国家气候中心专家表示，入梅后，强对流天气会频繁发生。
+本土青年分享了从大城市返乡创业扎根乡土的亲身经历，有人深耕乡村文旅、有人投身本土实业，用实践印证“在家乡同样能实现人生理想”，这份扎根故土建设家乡的笃定与热忱，深深打动在场澳门学子。
 
 ## 相关推荐
 
-- 2026-06-29 17:59 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 18:09 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-29 18:06 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-29 17:54 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-29 18:03 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-29 18:05 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-29 17:57 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-29 17:52 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 17:47 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-29 17:45 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-29 18:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-29 17:44 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-29 17:54 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-29 17:54 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-29 17:58 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 17:52 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 18:15 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-29 18:07 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 17:49 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-29 18:17 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-29 18:00 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-29 18:09 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 17:55 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-29 18:02 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 17:52 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 17:50 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-29 18:04 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-29 18:12 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-29 18:08 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:57 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/5083735.shtml)
-- 2026-06-29 18:04 - [扬名立万](https://www.blog.minike.top/Article/details/9620874296.shtml)
-- 2026-06-29 17:49 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/755126.shtml)
-- 2026-06-29 18:00 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/299905309.shtml)
-- 2026-06-29 17:56 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/59343257.shtml)
-- 2026-06-29 17:47 - [T1零封KC MSI](https://www.share.minike.top/Article/details/32417.shtml)
-- 2026-06-29 17:55 - [日本在最东端离岛部署导弹发射装置](http://www.share.minike.top/Article/details/491025.shtml)
-- 2026-06-29 17:45 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/27746.shtml)
-- 2026-06-29 17:55 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/204761457.shtml)
-- 2026-06-29 17:53 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/588039383.shtml)
-- 2026-06-29 17:55 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/62424619.shtml)
-- 2026-06-29 18:00 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/74943.shtml)
-- 2026-06-29 17:47 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/3470544032.shtml)
-- 2026-06-29 17:58 - [小娘惹](https://www.share.kurohicncr.top/Article/details/3931253561.shtml)
-- 2026-06-29 17:43 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/019885.shtml)
+- 2026-06-29 18:05 - [四川地震前夕 街头电线上站满燕子](https://www.share.minike.top/Article/details/82035794314.shtml)
+- 2026-06-29 18:06 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/5312002307.shtml)
+- 2026-06-29 18:08 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.minike.top/Article/details/60638485.shtml)
+- 2026-06-29 17:56 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/57046.shtml)
+- 2026-06-29 18:10 - [世界杯预测史上最不吃压力之物](https://www.blog.kurohicncr.top/Article/details/148467922585.shtml)
+- 2026-06-29 18:07 - [世界杯预测史上最不吃压力之物](https://www.blog.minike.top/Article/details/38956165.shtml)
+- 2026-06-29 18:12 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/3291142.shtml)
+- 2026-06-29 17:57 - [专家预计全球央行加息节奏将出现反复](http://www.share.minike.top/Article/details/62697491.shtml)
+- 2026-06-29 18:13 - [苹果回应恋与深空低分](http://www.blog.kurohicncr.top/Article/details/706378791.shtml)
+- 2026-06-29 18:00 - [中央气象台发布强对流天气蓝色预警](https://www.blog.minike.top/Article/details/8684398313.shtml)
+- 2026-06-29 18:14 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/815229460518.shtml)
+- 2026-06-29 17:59 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/95740431.shtml)
+- 2026-06-29 18:17 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/60680.shtml)
+- 2026-06-29 17:53 - [李在镕：计划将光州作为芯片生产基地](http://www.blog.minike.top/Article/details/20539239.shtml)
+- 2026-06-29 18:16 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.minike.top/Article/details/86839845.shtml)

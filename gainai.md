@@ -1,60 +1,61 @@
-# 粽香里传承中华文化 云南宗教界端午迎佳节
+# “吃粉遇王祖蓝进店被清场”，官方通报
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-中新网昆明6月22日电 (陈静)仲夏端午，粽叶飘香。在2026年端午节期间，云南省佛教、道教、伊斯兰教、基督教、天主教等宗教团体及宗教活动场所主动开展形式多样、内涵丰富的主题文化活动。从包粽子、送香包到普法讲座、文艺汇演，云南宗教界以中华传统节日为载体，将民俗活动转化为传承中华文化、铸牢中华民族共同体意识的生动实践。 指尖上的端午：粽叶包裹中华文韵 2026年端午节期间，昆明市
+广西玉林市玉州区文化体育和旅游局6月3日发布情况通报： 今日，关注到有网民反映“吃粉遇王祖蓝进店被清场”的相关信息，我局高度重视，立刻开展核查，现将有关情况通报如下： 6月2日，演员王祖蓝受邀到玉州区宣传推广本地特色美食文化。为取得更好的宣传效果，拍摄前工作组已与店家充分沟通，征得完全同意后进场筹备。因门店空间较小，拍摄实行分区管理，明确划分拍摄区与正常就餐区，确保食客能正常用
 
 ## 正文
 
-中新网昆明6月22日电 (陈静)仲夏端午，粽叶飘香。
+广西玉林市玉州区文化体育和旅游局6月3日发布情况通报： 今日，关注到有网民反映“吃粉遇王祖蓝进店被清场”的相关信息，我局高度重视，立刻开展核查，现将有关情况通报如下： 6月2日，演员王祖蓝受邀到玉州区宣传推广本地特色美食文化。
 
-在2026年端午节期间，云南省佛教、道教、伊斯兰教、基督教、天主教等宗教团体及宗教活动场所主动开展形式多样、内涵丰富的主题文化活动。
+为取得更好的宣传效果，拍摄前工作组已与店家充分沟通，征得完全同意后进场筹备。
 
-从包粽子、送香包到普法讲座、文艺汇演，云南宗教界以中华传统节日为载体，将民俗活动转化为传承中华文化、铸牢中华民族共同体意识的生动实践。
+因门店空间较小，拍摄实行分区管理，明确划分拍摄区与正常就餐区，确保食客能正常用餐，并未作清场安排。
 
-指尖上的端午：粽叶包裹中华文韵 2026年端午节期间，昆明市五华区顺城清真寺与富民县城区清真寺先后举办“粽香传情·文化润心”“弘扬中华优秀传统文化·端午安康”主题活动，向教职人员及穆斯林群众发放粽子、咸鸭蛋，现场讲述屈原的家国情怀，引导信教群众体悟端午节承载的民族精神。
+拍摄过程中，由于围观市民较多，我局一工作人员出于安全和便于拍摄的考虑，请求食客配合。
 
-昆明盘龙区集大基督教会开展“情暖端午粽香传爱”活动，教牧人员与信众共同包粽相赠，以《圣经》中“爱是凡事包容”呼应端午粽叶包裹食材象征的包容与共融。
+但因沟通方式简单、举措不当，引起误解。
 
-云南佛学院西双版纳分院邀请景洪市曼弄枫街道办事处工作人员走进学院，与师生共同开展“粽香传情·法治同行”端午节主题活动。
+对此，我局深表歉意，并对该工作人员进行了严肃的批评教育。
 
-大家一道包粽子、话习俗、参与普法小游戏，在欢声笑语中感受中华传统节日氛围。
+此次事件，暴露出我局工作中还存在沟通不细致、方式方法简单等问题，我局将以此为戒、举一反三，努力提升公共服务的温度和精细化水平。
 
-宁蒗县藏传佛教寺庙管理局联合扎美寺管理委员会，举办“粽香传情·同心筑梦”端午节主题系列活动，组织局机关全体干部职工、扎美寺教职人员代表前往阿七独支玛摩梭非遗博物馆开展传统文化观摩学习，解读中华优秀传统文化多元一体的深刻内涵。
+衷心感谢网友和媒体对玉州文旅事业的关注与监督。
 
 ## 相关推荐
 
-- 2026-06-29 18:06 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 18:08 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-29 17:44 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-29 18:12 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-29 17:48 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 17:48 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 17:42 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-29 18:08 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-29 17:49 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 18:07 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 17:59 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 17:47 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 17:51 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-29 17:53 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-29 18:11 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 18:17 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-29 18:11 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-29 18:13 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 18:15 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 18:11 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 18:09 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-29 18:04 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-29 17:52 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 18:11 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-29 18:13 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-29 18:16 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 17:51 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 18:02 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-29 18:02 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:04 - [女心理师](http://www.blog.minike.top/Article/details/5717241637.shtml)
-- 2026-06-29 17:58 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.minike.top/Article/details/30520.shtml)
-- 2026-06-29 17:44 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/5115046.shtml)
-- 2026-06-29 17:45 - [省市招考专家解读山西高考志愿政策](http://www.blog.minike.top/Article/details/15414.shtml)
-- 2026-06-29 18:02 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/27060.shtml)
-- 2026-06-29 18:06 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/0830156.shtml)
-- 2026-06-29 17:43 - [专家预计全球央行加息节奏将出现反复](https://www.blog.kurohicncr.top/Article/details/882794261.shtml)
-- 2026-06-29 17:51 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/91846.shtml)
-- 2026-06-29 17:48 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/55833.shtml)
-- 2026-06-29 17:53 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/234263001.shtml)
-- 2026-06-29 17:46 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.kurohicncr.top/Article/details/369655433.shtml)
-- 2026-06-29 18:04 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/457823599.shtml)
-- 2026-06-29 17:51 - [扬名立万](http://www.blog.minike.top/Article/details/613077931380.shtml)
-- 2026-06-29 18:07 - [美国大满贯首日国乒主力均取胜](https://www.share.minike.top/Article/details/380113.shtml)
-- 2026-06-29 17:49 - [税务总局披露5起合规申报个税案例](http://www.blog.minike.top/Article/details/93187.shtml)
+- 2026-06-29 17:55 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/917587535670.shtml)
+- 2026-06-29 18:10 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/141688032041.shtml)
+- 2026-06-29 18:07 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.kurohicncr.top/Article/details/2898657.shtml)
+- 2026-06-29 17:51 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/44909472.shtml)
+- 2026-06-29 17:48 - [大 周 礼 时 代(4)](https://www.blog.minike.top/Article/details/1130060.shtml)
+- 2026-06-29 17:53 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/730743.shtml)
+- 2026-06-29 18:04 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/24243832024.shtml)
+- 2026-06-29 18:03 - [苹果回应恋与深空低分](http://www.blog.kurohicncr.top/Article/details/994374.shtml)
+- 2026-06-29 17:59 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/31002.shtml)
+- 2026-06-29 18:08 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/0850650007.shtml)
+- 2026-06-29 17:57 - [TTG KSG](https://www.blog.kurohicncr.top/Article/details/39852.shtml)
+- 2026-06-29 17:53 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.minike.top/Article/details/230406884054.shtml)
+- 2026-06-29 17:53 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/5523413995.shtml)
+- 2026-06-29 17:57 - [海口塔吊事故处罚结果公布](http://www.blog.kurohicncr.top/Article/details/5648432842.shtml)
+- 2026-06-29 18:12 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.kurohicncr.top/Article/details/54971.shtml)

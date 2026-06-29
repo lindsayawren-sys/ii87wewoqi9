@@ -1,52 +1,58 @@
-# 楚韵薪火 端阳永续
+# 核心驱动力并未动摇 五大券商把脉A股下半年机遇
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月22日 14:13 来源：中国新闻网 峡江涌浪，粽叶凝香。6月19日—6月21日，2026屈原故里端午文化节在湖北秭归举行。两岸同胞同祭诗祖，共裹青粽、共读楚辞，一脉文脉连海峡；多国青年齐聚原乡，亲手制香囊、观龙舟竞渡，沉浸式解锁千年端午非遗。民俗展演轮番登场，游江招魂、骚坛诵诗复刻“三过端午”峡江古俗。一湾江水承家国情怀，一场盛会融古今中外，让屈子求
+进入年中时点，各大券商机构对于A股下半年行情走势的研判陆续出炉，相关内容成为投资者提前布局、捕捉市场机遇的重要参考。就在近期，国泰海通、中信证券、中金公司、华泰证券、中信建投等多家头部券商陆续发布2026年A股中期策略报告，受到市场各方重视。 在前述券商看来，当前推动本轮市场上行、中国资产重估的核心驱动力并未发生根本性动摇，市场整体估值合理，但部分高估值板块需警惕出现波动风险；
 
 ## 正文
 
-发布时间：2026年06月22日 14:13 来源：中国新闻网 峡江涌浪，粽叶凝香。
+进入年中时点，各大券商机构对于A股下半年行情走势的研判陆续出炉，相关内容成为投资者提前布局、捕捉市场机遇的重要参考。
 
-6月19日—6月21日，2026屈原故里端午文化节在湖北秭归举行。
+就在近期，国泰海通、中信证券、中金公司、华泰证券、中信建投等多家头部券商陆续发布2026年A股中期策略报告，受到市场各方重视。
 
-两岸同胞同祭诗祖，共裹青粽、共读楚辞，一脉文脉连海峡；多国青年齐聚原乡，亲手制香囊、观龙舟竞渡，沉浸式解锁千年端午非遗。
+在前述券商看来，当前推动本轮市场上行、中国资产重估的核心驱动力并未发生根本性动摇，市场整体估值合理，但部分高估值板块需警惕出现波动风险；对于AI主线，当前全球AI革命处于景气度持续扩散而非全面泡沫化的阶段。
 
-民俗展演轮番登场，游江招魂、骚坛诵诗复刻“三过端午”峡江古俗。
+就后市布局而言，新兴科技、优势制造以及具备估值修复潜力的部分传统行业是值得把握的主线，通信设备、高端装备、电力设备与新能源、工程机械、创新药等品种受到青睐。
 
-一湾江水承家国情怀，一场盛会融古今中外，让屈子求索精神跨越山海，焕发时代新声。
+● 本报记者 胡雨 市场风格未必发生切换 5月中旬以来，A股三大股指走势分化，呈现出明显的结构性行情：截至6月4日收盘，上证指数震荡调整至4100点关口下方，深证成指呈现区间震荡态势，创业板指则震荡走高。
 
-(周星亮) 责任编辑：【罗攀】
+从行业板块看，推动创业板指走强的通信、电子等成长板块近期涨势放缓，煤炭、公用事业等周期板块接力上涨，市场板块轮动态势持续。
+
+如何看待A股下半年行情走势？
+
+多家头部券商研判，支撑A股行情延续的核心条件并未改变，基本面方面看好A股整体盈利水平改善，市场风格未必发生切换但或将更加均衡。
 
 ## 相关推荐
 
-- 2026-06-29 18:08 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 17:48 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 17:58 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-29 18:02 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 17:46 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-29 17:51 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 17:52 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-29 17:56 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-29 18:05 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-29 17:51 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 17:52 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 18:02 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-29 18:08 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-29 17:59 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 18:04 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 18:08 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-29 18:05 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 17:55 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 18:09 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 18:08 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-29 18:10 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 18:09 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:00 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/4237583.shtml)
-- 2026-06-29 17:44 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/3503835.shtml)
-- 2026-06-29 17:54 - [税务总局披露5起合规申报个税案例](https://www.share.kurohicncr.top/Article/details/72216950.shtml)
-- 2026-06-29 18:06 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/46472590.shtml)
-- 2026-06-29 17:59 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.minike.top/Article/details/097393823708.shtml)
-- 2026-06-29 18:00 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.minike.top/Article/details/970903.shtml)
-- 2026-06-29 17:51 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/8653037563.shtml)
-- 2026-06-29 17:52 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/04013.shtml)
-- 2026-06-29 17:46 - [港股蓝筹股的落寞才刚刚开始吗](http://www.share.minike.top/Article/details/63317611658.shtml)
-- 2026-06-29 17:45 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/3350545089.shtml)
-- 2026-06-29 18:08 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/481614010.shtml)
-- 2026-06-29 17:43 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/811679539049.shtml)
-- 2026-06-29 18:01 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/9509239.shtml)
-- 2026-06-29 18:01 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.minike.top/Article/details/8964705115.shtml)
-- 2026-06-29 17:48 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/20535.shtml)
+- 2026-06-29 18:16 - [送你一朵小红花](http://www.blog.minike.top/Article/details/839813284384.shtml)
+- 2026-06-29 17:49 - [每天通勤往返3h的感觉](http://www.blog.kurohicncr.top/Article/details/86889366.shtml)
+- 2026-06-29 18:03 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/82729390801.shtml)
+- 2026-06-29 17:52 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/174451361139.shtml)
+- 2026-06-29 17:51 - [首个靠AI躺赢的国家](http://www.blog.kurohicncr.top/Article/details/30020.shtml)
+- 2026-06-29 18:16 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.kurohicncr.top/Article/details/935284.shtml)
+- 2026-06-29 18:00 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.kurohicncr.top/Article/details/134068.shtml)
+- 2026-06-29 17:58 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.minike.top/Article/details/71716.shtml)
+- 2026-06-29 18:00 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/55347.shtml)
+- 2026-06-29 17:54 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/932690.shtml)
+- 2026-06-29 17:52 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.blog.minike.top/Article/details/122749.shtml)
+- 2026-06-29 18:09 - [许建琼任湖南省检察院副检察长](http://www.blog.minike.top/Article/details/628008.shtml)
+- 2026-06-29 17:51 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/7228449289.shtml)
+- 2026-06-29 17:49 - [滚石点名酒店员工说有急救培训](https://www.share.kurohicncr.top/Article/details/1895878977.shtml)
+- 2026-06-29 18:04 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/51259.shtml)

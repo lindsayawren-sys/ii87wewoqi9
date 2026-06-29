@@ -1,60 +1,60 @@
-# 敦豪将采用新型风力货运船舶承运货物
+# 创投月报 | 深创投：近三成投向人工智能赛道 半年内两轮押注AI芯片「墨芯」
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-旗下货运代理部门计划借助特制帆船开展大西洋跨洋货运业务 内容速览 敦豪全球货运将与维拉公司合作，从明年开始投入风力驱动货船运输货物，以此降低货运碳排放。 国际物流巨头敦豪宣布，将与一家运营风力驱动货船的法国企业达成合作，旨在削减货运环节的温室气体排放。 两家企业向《华尔街曰报》可持续商业专业版透露，敦豪旗下专业货运板块 —— 敦豪全球货运，将于明年启用维拉公司的风力船舶开展货运
+国内一级市场展现出显著的“K型”分化特征。基于公开数据不完全统计，2026年5月新增登记私募股权、创业投资基金管理人3家，同比增长50.0%、环比“腰斩”；新增备案私募股权基金123只、创业投资基金469只，合计新增592只，环比虽下降11.0%，但较2025年同期增长74.6%。 投资端呈“量跌价增”趋势，资金加速向头部项目集中。5月国内共发生股权投资事件568起，同比增长3
 
 ## 正文
 
-旗下货运代理部门计划借助特制帆船开展大西洋跨洋货运业务 内容速览 敦豪全球货运将与维拉公司合作，从明年开始投入风力驱动货船运输货物，以此降低货运碳排放。
+国内一级市场展现出显著的“K型”分化特征。
 
-国际物流巨头敦豪宣布，将与一家运营风力驱动货船的法国企业达成合作，旨在削减货运环节的温室气体排放。
+基于公开数据不完全统计，2026年5月新增登记私募股权、创业投资基金管理人3家，同比增长50.0%、环比“腰斩”；新增备案私募股权基金123只、创业投资基金469只，合计新增592只，环比虽下降11.0%，但较2025年同期增长74.6%。
 
-两家企业向《华尔街曰报》可持续商业专业版透露，敦豪旗下专业货运板块 —— 敦豪全球货运，将于明年启用维拉公司的风力船舶开展货运业务。
+投资端呈“量跌价增”趋势，资金加速向头部项目集中。
 
-该类船舶为三体船（拥有三个船体），船长 220 英尺，可运载 415 吨货物。
+5月国内共发生股权投资事件568起，同比增长33.6%，环比下降16.5%；披露投资总额达768.63亿元，再次刷新近一年内纪录，与4月相比提高2.7%，约为2025年5月的4.22倍。
 
-其载货容积约为货运飞机的五倍，不过船体长度仅为常规集装箱货轮的五分之一。
+创投Plus本月聚焦市场活跃度较高的3家机构，围绕其投资节奏、阶段、行业偏好以及被投项目等方面展开解读。
 
-维拉公司联合创始人米歇尔・费尔南德斯 - 费里介绍，船舶采用铝合金材质打造，轻量化特性能够助力船只提速，设计目标航速约 14 节（折合每小时 16 英里）。
+5月投资节奏回落 深耕大本营辐射长三角 中国证券投资基金业协会和天眼查披露的公开信息显示，深圳市创新投资集团有限公司（下文简称：深创投）是由深圳市政府出资并引导社会资本设立的政府引导基金，目前累计管理各类资产总规模超5200亿元，参投企业超1700家。
 
-“这本质上是一艘巨型帆船，” 他介绍道，“我们依托风能，完全依靠风力为船舶提供航行动力。
+截至2026年5月，深创投只登记备案了一只新基金——粤港澳大湾区创业投资引导基金合伙企业（有限合伙），注册出资总额高达504.50亿元，基金出资方LP包括顺络电子、建信投资、华润资本、工银投资、东莞科创、中兴创投、珠海科创投、粤财基金、深润国创等产业资本及国有出资平台。
 
-” 常规远洋货轮一般沿固定航线横渡大西洋，而这款三体船会避开常规航道，顺着风向选择最优航行路线。
+公开报道显示，该基金是国家创投引导基金下设的区域基金，由国家发展改革委和财政部组建，存续期最长可达20年。
 
 ## 相关推荐
 
-- 2026-06-29 17:51 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 17:49 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-29 18:05 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 17:57 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 18:08 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-29 17:44 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-29 18:10 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-29 17:53 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 18:01 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 18:02 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-29 18:09 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 17:43 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 17:42 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 17:42 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 18:12 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 17:57 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 17:54 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-29 17:54 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-29 17:54 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 17:52 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 18:17 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 18:07 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 17:53 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 18:10 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 18:05 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 18:04 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-29 17:56 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-29 18:07 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:59 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/64735550526.shtml)
-- 2026-06-29 17:52 - [波兰创该国高温纪录](https://www.share.kurohicncr.top/Article/details/1256442.shtml)
-- 2026-06-29 17:56 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/64204985845.shtml)
-- 2026-06-29 18:02 - [TLAW零封DCG MSI](https://www.share.minike.top/Article/details/6032811.shtml)
-- 2026-06-29 17:47 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/770573723140.shtml)
-- 2026-06-29 18:04 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/513811565873.shtml)
-- 2026-06-29 17:48 - [恋与深空 731](https://www.blog.kurohicncr.top/Article/details/124674.shtml)
-- 2026-06-29 17:54 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/206937979.shtml)
-- 2026-06-29 17:52 - [韩国主帅洪明甫辞职](https://www.blog.kurohicncr.top/Article/details/39515485.shtml)
-- 2026-06-29 17:48 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/493166563577.shtml)
-- 2026-06-29 18:10 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/271837377838.shtml)
-- 2026-06-29 17:57 - [外交部回应中日经贸问题](https://www.share.kurohicncr.top/Article/details/6607411367.shtml)
-- 2026-06-29 18:02 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/33191777.shtml)
-- 2026-06-29 17:58 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/19918.shtml)
-- 2026-06-29 17:47 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/4561933295.shtml)
+- 2026-06-29 18:03 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/077422061584.shtml)
+- 2026-06-29 17:58 - [第一炉香](https://www.share.kurohicncr.top/Article/details/56330.shtml)
+- 2026-06-29 17:50 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/75457.shtml)
+- 2026-06-29 17:57 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/7831309096.shtml)
+- 2026-06-29 17:56 - [存储三巨头被告了](http://www.share.minike.top/Article/details/12270.shtml)
+- 2026-06-29 18:14 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/56562360.shtml)
+- 2026-06-29 18:14 - [papi酱在救赎窦文涛](https://www.blog.kurohicncr.top/Article/details/39051.shtml)
+- 2026-06-29 17:50 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/3460255.shtml)
+- 2026-06-29 18:12 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/7281679321.shtml)
+- 2026-06-29 18:13 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/38781.shtml)
+- 2026-06-29 18:15 - [2026世界杯谁能一黑到底](https://www.share.kurohicncr.top/Article/details/915297.shtml)
+- 2026-06-29 18:16 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/71147.shtml)
+- 2026-06-29 18:02 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/02376.shtml)
+- 2026-06-29 17:59 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/3506710255.shtml)
+- 2026-06-29 17:48 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/723832525063.shtml)

@@ -1,45 +1,61 @@
-# 时政微视频丨拳拳赤子心
+# 手势作战术 听障女足这样踢球
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月21日 20:25 来源：央视新闻客户端 责任编辑：【王祎】
+发布时间：2026年06月04日 20:45 来源：中国新闻网 6月3日，吉林长春细雨绵绵，气温微凉，长春大学特教学院8名听障女足队员准时现身户外球场开展日常训练，湿滑的草坪并未消减姑娘们的训练热情。上月，这支队伍代表吉林省出征2026年全国残疾人足球公开赛斩获桂冠，夺冠佳绩进一步点燃了全队深耕训练、精进球技的劲头。 记者在训练现场看到，无论是单人带球基本功练习，还是分组模拟比
 
 ## 正文
 
-发布时间：2026年06月21日 20:25 来源：央视新闻客户端 责任编辑：【王祎】
+发布时间：2026年06月04日 20:45 来源：中国新闻网 6月3日，吉林长春细雨绵绵，气温微凉，长春大学特教学院8名听障女足队员准时现身户外球场开展日常训练，湿滑的草坪并未消减姑娘们的训练热情。
+
+上月，这支队伍代表吉林省出征2026年全国残疾人足球公开赛斩获桂冠，夺冠佳绩进一步点燃了全队深耕训练、精进球技的劲头。
+
+记者在训练现场看到，无论是单人带球基本功练习，还是分组模拟比赛对抗，队员们全程依靠队内自创手势交流，搭配场外教练手势指令，形成一套默契十足的“手语战术体系”，高效完成场上攻防配合。
+
+教练张天一说，像我有一个跟她们约好做这个动作，我只要(在场外)一做这个动作就是说明我们在罚一个界外球，我们需要队员投入兵力到对方禁区里，全部进到对方禁区里进行进攻。
+
+我要做这个动作的话，就是我直接要打门的那种，我要是做这个(动作)，就是我要传球，通过配合去打门，做战术(配合)。
+
+手语的学习时间比较漫长，如果很多单词我还没接触到，想说的(时候)我就会提前把训练想法都编辑成文字，发给她们每个人，然后我们再训练。
+
+训练中如果有大的问题，我再集中进行纠错。
+
+(记者 吕盛楠 制作 王嘉怡） 责任编辑：【叶攀】
 
 ## 相关推荐
 
-- 2026-06-29 17:56 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-29 18:08 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-29 17:56 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-29 18:04 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-29 17:55 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 17:43 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 18:04 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-29 17:56 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 17:47 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-29 18:04 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-29 17:44 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 17:42 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-29 18:04 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 18:07 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 17:53 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-29 17:55 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 18:02 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 17:52 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 17:58 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-29 17:56 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-29 18:14 - [南昌市委书记调整](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 18:14 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-29 18:11 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 17:50 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 17:58 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-29 18:16 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-29 18:04 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 18:01 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:51 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.minike.top/Article/details/8740130.shtml)
-- 2026-06-29 17:57 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/479958.shtml)
-- 2026-06-29 18:06 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/48262689.shtml)
-- 2026-06-29 17:44 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/887731793.shtml)
-- 2026-06-29 17:56 - [王曼昱被突如其来的话筒逗笑了](https://www.share.kurohicncr.top/Article/details/24925424200.shtml)
-- 2026-06-29 17:57 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.share.minike.top/Article/details/9408450810.shtml)
-- 2026-06-29 18:05 - [盛秋平任南昌市委书记](http://www.blog.minike.top/Article/details/370192681643.shtml)
-- 2026-06-29 17:51 - [47天女婴被月嫂摔伤致颅内出血](https://www.share.kurohicncr.top/Article/details/217877.shtml)
-- 2026-06-29 18:05 - [娜扎搂着我的腰和我合照](http://www.share.kurohicncr.top/Article/details/93403789127.shtml)
-- 2026-06-29 17:54 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/3392055.shtml)
-- 2026-06-29 17:57 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/006912094.shtml)
-- 2026-06-29 18:03 - [截瘫男子心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/73574.shtml)
-- 2026-06-29 17:55 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/2779161.shtml)
-- 2026-06-29 18:02 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/9115208.shtml)
-- 2026-06-29 18:03 - [评论员：日菲勾连各有盘算](http://www.blog.kurohicncr.top/Article/details/2795727.shtml)
+- 2026-06-29 17:51 - [南昌市委书记调整](http://www.blog.kurohicncr.top/Article/details/84919066186.shtml)
+- 2026-06-29 17:50 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/34400.shtml)
+- 2026-06-29 18:08 - [业内：全球市场迎来结构性投资窗口](http://www.share.kurohicncr.top/Article/details/596901058.shtml)
+- 2026-06-29 18:12 - [扬名立万](http://www.share.minike.top/Article/details/370350549832.shtml)
+- 2026-06-29 17:51 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/534883687.shtml)
+- 2026-06-29 18:10 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/248164.shtml)
+- 2026-06-29 18:06 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.minike.top/Article/details/025376487715.shtml)
+- 2026-06-29 18:16 - [巴黎两家殡仪馆爆满](http://www.blog.kurohicncr.top/Article/details/702936.shtml)
+- 2026-06-29 18:10 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.kurohicncr.top/Article/details/898206294807.shtml)
+- 2026-06-29 18:00 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/0957899.shtml)
+- 2026-06-29 18:15 - [波兰创该国高温纪录](http://www.share.minike.top/Article/details/44756.shtml)
+- 2026-06-29 17:54 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/314783212.shtml)
+- 2026-06-29 18:17 - [滚石就音乐人屠颖去世事件发声明](https://www.share.minike.top/Article/details/6775492.shtml)
+- 2026-06-29 17:51 - [官方通报一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/5156425.shtml)
+- 2026-06-29 18:02 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/87392607833.shtml)

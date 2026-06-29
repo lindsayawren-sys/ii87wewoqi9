@@ -1,51 +1,61 @@
-# 李蓓回击嘲笑者：无论我们阶段性是不是做错，是不是运气不好，风控的底线，我们一直守的很严
+# 对话基金大咖|易方达何崇恺：A股慢牛核心逻辑已悄然生变，科技制造时代来临（全文）
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-来源：国际投行研究报告 文字内容逐条解读 第一段：批评投资者的“既要又要” “不要涨的时候就看别人的低波动，回撤的时候就去看别人的高波动产品。” 第二段：解释风控逻辑与现状 “期待我是去年的谁谁谁，继续倒霉的，不好意思你要失望了。我们风控框架一直很严，过去一周每天按照风险预算降仓位，现在已经没多少仓位可以用来倒霉的啦。” 第三段：回击嘲笑者 “高波动产品从最高点回撤10%出头，
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！视频|易方达何崇恺：中国半导体大周期才刚开始，动能有很强的持续性 视频|易方达何崇恺：信心比黄金更重要，经济转型+国运昌盛，会带来很大超额回报 作为易方达旗下成长风格基金经理，何崇恺拥有11年从业和6年半基金经理任职经历，投资领域从军工逐步拓展至制造业、TMT、创新药、新消费等全市场成长领域。 近期，易方达
 
 ## 正文
 
-来源：国际投行研究报告 文字内容逐条解读 第一段：批评投资者的“既要又要” “不要涨的时候就看别人的低波动，回撤的时候就去看别人的高波动产品。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-” 第二段：解释风控逻辑与现状 “期待我是去年的谁谁谁，继续倒霉的，不好意思你要失望了。
+视频|易方达何崇恺：中国半导体大周期才刚开始，动能有很强的持续性 视频|易方达何崇恺：信心比黄金更重要，经济转型+国运昌盛，会带来很大超额回报 作为易方达旗下成长风格基金经理，何崇恺拥有11年从业和6年半基金经理任职经历，投资领域从军工逐步拓展至制造业、TMT、创新药、新消费等全市场成长领域。
 
-我们风控框架一直很严，过去一周每天按照风险预算降仓位，现在已经没多少仓位可以用来倒霉的啦。
+近期，易方达基金权益投资管理部总经理助理、基金经理何崇恺与新浪基金对话，系统阐述能力圈拓展、主动投资价值、选股框架、市场观点及布局方向，清晰呈现一位成长型基金经理的投资哲学。
 
-” 第三段：回击嘲笑者 “高波动产品从最高点回撤10%出头，低波动产品从最高点回撤个位数，我也不知道有什么好嘲笑的，嘲笑我们的先看看自己吧。
+在主动权益基金面临被动指数产品挑战的当下，何崇恺认为，A股市场与美股存在差异，主动权益基金在中国创造超额收益的能力强于美股，未来主动基金仍然大有可为。
 
-” 责任编辑：尉旖涵
+何崇恺指出，当前A股市场的“慢牛”底层逻辑已经改变，已从2024年“924行情”时单纯的政策信心回归，转变为科技与制造业内生周期走出底部、全球竞争力超预期的基本面驱动。
+
+展望未来，何崇恺表示，看好中国科技行业，机会已从AI蔓延至半导体、PCB上游等领域。
+
+未来三年是科技与制造的时代，中国在硬科技、高端制造领域优势持续扩大，有望诞生大量牛股。
+
+此外，更长时间维度来看，新消费、创新药等存在不小的机会，但需等待居民财富结构变化——即金融资产占比超过房地产，以及房价企稳后居民信心的修复。
 
 ## 相关推荐
 
-- 2026-06-29 18:09 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-29 18:07 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-29 17:49 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 18:09 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-29 17:46 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 17:59 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-29 18:08 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 17:50 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-29 18:02 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-29 17:50 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-29 17:42 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 17:49 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-29 18:03 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-29 17:57 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-29 17:56 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 18:08 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-29 17:51 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-29 17:51 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 18:05 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 17:48 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-29 17:55 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 18:05 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-29 18:12 - [两老人多次到一洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 18:02 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 17:48 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 18:17 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:11 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/944991587625.shtml)
-- 2026-06-29 18:00 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/62155.shtml)
-- 2026-06-29 17:50 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.kurohicncr.top/Article/details/51365482626.shtml)
-- 2026-06-29 17:50 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/298360215028.shtml)
-- 2026-06-29 17:56 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/4874030431.shtml)
-- 2026-06-29 18:04 - [唐国强打卡贵阳孔学堂](http://www.blog.kurohicncr.top/Article/details/027562434670.shtml)
-- 2026-06-29 17:50 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.kurohicncr.top/Article/details/36708.shtml)
-- 2026-06-29 18:03 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.blog.minike.top/Article/details/51054916.shtml)
-- 2026-06-29 17:43 - [日本偶像龟梨和也宣布结婚](https://www.share.minike.top/Article/details/493394130248.shtml)
-- 2026-06-29 18:06 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/45957.shtml)
-- 2026-06-29 17:53 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/9046929416.shtml)
-- 2026-06-29 18:10 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/11524016131.shtml)
-- 2026-06-29 17:48 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/99425.shtml)
-- 2026-06-29 17:50 - [12所大学更正招生目录](https://www.blog.minike.top/Article/details/667516190007.shtml)
-- 2026-06-29 17:51 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/096090.shtml)
+- 2026-06-29 18:08 - [省市招考专家解读山西高考志愿政策](https://www.share.kurohicncr.top/Article/details/526166712864.shtml)
+- 2026-06-29 18:02 - [南昌市委书记调整](http://www.share.minike.top/Article/details/58243.shtml)
+- 2026-06-29 18:12 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.minike.top/Article/details/075832.shtml)
+- 2026-06-29 18:05 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.kurohicncr.top/Article/details/6494111765.shtml)
+- 2026-06-29 17:58 - [苹果回应恋与深空低分](https://www.share.minike.top/Article/details/92544.shtml)
+- 2026-06-29 17:58 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/80011508419.shtml)
+- 2026-06-29 18:03 - [人类对空调和其他家电有多双标](https://www.share.kurohicncr.top/Article/details/131825.shtml)
+- 2026-06-29 18:02 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/46436854038.shtml)
+- 2026-06-29 18:12 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/979230.shtml)
+- 2026-06-29 18:13 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/2071829906.shtml)
+- 2026-06-29 17:49 - [机器人学校开学了](https://www.blog.minike.top/Article/details/206096.shtml)
+- 2026-06-29 18:04 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/274499144.shtml)
+- 2026-06-29 18:16 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/466530912781.shtml)
+- 2026-06-29 18:03 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/8058405679.shtml)
+- 2026-06-29 17:54 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/75368959507.shtml)

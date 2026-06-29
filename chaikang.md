@@ -1,60 +1,56 @@
-# 溢达集团董事长杨敏德：绿色实践可以增强企业竞争力
+# 黑莓股价触及近一年新高后盘整：涨势能否持续？
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-专题：2026年APEC工商领导人中国论坛 2026年APEC工商领导人中国论坛于6月21日在北京举行，主题为“开放·互通·协同：链接亚太，共创未来”。 ABAC中国香港代表、溢达集团董事长杨敏德在演讲中表示，可持续增长是关乎生死存亡的，我们必须要选择它。不管有没有达成跨境的共识，整个商界必须要行动起来自救。 她认为绿色实践是可以加强企业之间的合作，也能够增强企业的竞争力。可以
+在经历了自4月初以来超过200%的惊人涨幅后，黑莓股价近日在近一年高位附近进入盘整。这家曾经的手机巨头凭借“物理AI”叙事和基本面实质改善，成功上演了转型大戏，但关于其究竟是成长股还是迷因股的争论仍在继续。 转型完成：从手机制造商到AI软件公司 黑莓管理层在近日举行的2026年贝尔德全球消费者科技与服务会议上明确表示，公司重组已经完成。首席财务官蒂姆·富特直言：“重组已经完成，
 
 ## 正文
 
-专题：2026年APEC工商领导人中国论坛 2026年APEC工商领导人中国论坛于6月21日在北京举行，主题为“开放·互通·协同：链接亚太，共创未来”。
+在经历了自4月初以来超过200%的惊人涨幅后，黑莓股价近日在近一年高位附近进入盘整。
 
-ABAC中国香港代表、溢达集团董事长杨敏德在演讲中表示，可持续增长是关乎生死存亡的，我们必须要选择它。
+这家曾经的手机巨头凭借“物理AI”叙事和基本面实质改善，成功上演了转型大戏，但关于其究竟是成长股还是迷因股的争论仍在继续。
 
-不管有没有达成跨境的共识，整个商界必须要行动起来自救。
+转型完成：从手机制造商到AI软件公司 黑莓管理层在近日举行的2026年贝尔德全球消费者科技与服务会议上明确表示，公司重组已经完成。
 
-她认为绿色实践是可以加强企业之间的合作，也能够增强企业的竞争力。
+首席财务官蒂姆·富特直言：“重组已经完成，黑莓现在是一家成长型公司。
 
-可以从良好的管理开始，比如说做精密管理，生产率就会提升，而且整个过程会更加的环保，企业也会有更大的竞争力。
+” 这一转型的核心是QNX操作系统。
 
-“希望APEC的所有经济体的政府能够达成共识，这样企业界可以先行一步，实施绿色生产和绿色消费。
+QNX是黑莓旗下一款嵌入式实时操作系统，以高安全性、低延迟和实时性著称，已部署在超过2.75亿辆汽车中。
 
-”她说。
+如今，QNX正从汽车领域向机器人、医疗设备、工业自动化等新场景扩张，被定位为“物理AI”的构建模块。
 
-新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
+基本面改善：盈利拐点已至 与以往单纯的题材炒作不同，本轮上涨有实实在在的业绩支撑。
 
 ## 相关推荐
 
-- 2026-06-29 17:52 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-29 18:01 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-29 17:50 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-29 17:52 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 17:58 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 18:08 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-29 17:47 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-29 18:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-29 17:46 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-29 17:59 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-29 17:48 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-29 17:54 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 17:53 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-29 17:58 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-29 17:50 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-29 17:50 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 17:52 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 18:12 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-29 18:10 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 18:06 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 18:17 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 18:16 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 17:52 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 17:55 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:07 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/21360.shtml)
-- 2026-06-29 18:01 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/32613525.shtml)
-- 2026-06-29 17:55 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/6319828.shtml)
-- 2026-06-29 18:07 - [V8](https://www.blog.minike.top/Article/details/53855664283.shtml)
-- 2026-06-29 17:46 - [小鹏MONAL03预售定档7月2日](https://www.share.minike.top/Article/details/9664072.shtml)
-- 2026-06-29 17:51 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/15589482558.shtml)
-- 2026-06-29 17:54 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.kurohicncr.top/Article/details/5363120168.shtml)
-- 2026-06-29 18:03 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/90409512.shtml)
-- 2026-06-29 17:42 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/445601.shtml)
-- 2026-06-29 18:08 - [T1 KC](http://www.share.kurohicncr.top/Article/details/815594.shtml)
-- 2026-06-29 17:51 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.minike.top/Article/details/975309.shtml)
-- 2026-06-29 17:44 - [日本偶像龟梨和也宣布结婚](http://www.share.minike.top/Article/details/6679350.shtml)
-- 2026-06-29 17:45 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/345796783.shtml)
-- 2026-06-29 18:04 - [为何说今日日本似战前日本](http://www.blog.minike.top/Article/details/202108108.shtml)
-- 2026-06-29 18:07 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.kurohicncr.top/Article/details/757144.shtml)
+- 2026-06-29 17:58 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/79353025212.shtml)
+- 2026-06-29 17:56 - [老板回应员工光脚清洗土豆](http://www.blog.kurohicncr.top/Article/details/328720567270.shtml)
+- 2026-06-29 18:14 - [上海小区惊现鳄鱼](http://www.share.kurohicncr.top/Article/details/3609038.shtml)
+- 2026-06-29 18:17 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/81681119.shtml)
+- 2026-06-29 17:59 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/372515287.shtml)
+- 2026-06-29 17:55 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/898520999399.shtml)
+- 2026-06-29 17:53 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/36712277686.shtml)
+- 2026-06-29 18:01 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/471826215373.shtml)
+- 2026-06-29 17:52 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/678890889.shtml)
+- 2026-06-29 17:48 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.kurohicncr.top/Article/details/5089016775.shtml)
+- 2026-06-29 18:10 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/22913986751.shtml)
+- 2026-06-29 18:07 - [47天女婴被月嫂摔伤致颅内出血](http://www.blog.kurohicncr.top/Article/details/449728.shtml)
+- 2026-06-29 17:57 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/96513.shtml)
+- 2026-06-29 18:15 - [滚石就音乐人屠颖去世事件发声明](https://www.share.kurohicncr.top/Article/details/79233856.shtml)
+- 2026-06-29 17:48 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/4303663.shtml)

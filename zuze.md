@@ -1,55 +1,58 @@
-# 国内股票私募平均仓位创近9周新高
+# FPG财盛国际:路径推演回归技术面
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！中国证券报·中证金牛座记者最新独家获悉，根据第三方机构私募排排网的实时监测数据，截至6月12日（因信息披露合规等原因，私募净值及仓位测算数据相对滞后），国内股票私募平均仓位为81.55%，较前一周上涨0.56个百分点，一举创出近9周新高。 具体来看，截至6月
+6月4日，主流币阶段性承压后，市场对多个币种的短线路径推演再度升温，FPG财盛国际表示，当前行情更适合从技术结构与关键位置出发，而不是用单一事件去解释全部波动。 从价格分布看，FPG财盛国际认为，主流币之间虽然强弱不同，但共通点在于都进入了更依赖支撑与阻力的阶段。这样的市场环境里，交易者通常会更重视关键均线、前低位置和反弹力度，因为这些因素直接决定反抽是延续修复，还是只是弱势中
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+6月4日，主流币阶段性承压后，市场对多个币种的短线路径推演再度升温，FPG财盛国际表示，当前行情更适合从技术结构与关键位置出发，而不是用单一事件去解释全部波动。
 
-中国证券报·中证金牛座记者最新独家获悉，根据第三方机构私募排排网的实时监测数据，截至6月12日（因信息披露合规等原因，私募净值及仓位测算数据相对滞后），国内股票私募平均仓位为81.55%，较前一周上涨0.56个百分点，一举创出近9周新高。
+从价格分布看，FPG财盛国际认为，主流币之间虽然强弱不同，但共通点在于都进入了更依赖支撑与阻力的阶段。
 
-具体来看，截至6月12日，重仓或满仓（仓位大于80%）的股票私募占比为65.95%，中等偏重仓位（仓位在50%至80%之间）的股票私募占比为19.15%，而中低仓（仓位低于50%）和轻仓（仓位低于20%）的股票私募占比依次为11.23%和3.67%。
+这样的市场环境里，交易者通常会更重视关键均线、前低位置和反弹力度，因为这些因素直接决定反抽是延续修复，还是只是弱势中的短暂喘息。
 
-分不同规模组别来看，在6月12日当周，不同规模的股票私募一致加仓，其中大规模私募加仓力度最晚突出。
+技术推演之所以在当前阶段重新受到关注，是因为基本面没有在短时间内出现足以扭转情绪的新增变量。
 
-私募排排网数据显示，截至6月12日，100亿元以上、50亿至100亿元、20亿至50亿元、10亿至20亿元、5亿至10亿元和0-5亿元规模的股票私募平均仓位依次为85.98%、94.41%、78.14%、81.11%、83.52%和80.36%，均较前一周有不同程度加仓。
+于是，资金会把更多注意力转移到图形结构与区间边界，希望借此判断谁能先止跌，谁又会继续受压。
 
-其中，50亿至100亿元规模组别的股票私募，平均仓位在当周大涨近10个百分点，创今年以来新高；而100亿元以上规模组别的股票私募平均仓位，也在6月12日创出了今年以来的次高水平。
+对跨资产观察而言，这种状态也意味着分化正在加深。
 
-责任编辑：宋雅芳
+并非所有主流资产都会同步修复，成交量、资金偏好与链上活跃度不同，都会让技术面呈现不一样的强弱层次，市场很难再用一套模板解释全部币种。
+
+后续走势上，FPG财盛国际分析称，投资者可继续跟踪关键支撑是否守稳、反弹是否伴随成交放大，以及板块之间的强弱切换；这些信号会比单日涨跌更能说明市场下一步的方向。
 
 ## 相关推荐
 
-- 2026-06-29 17:57 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-29 18:10 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 17:56 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 17:55 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-29 18:07 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-29 17:44 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-29 17:50 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 18:05 - [许建琼任湖南省检察院副检察长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 17:56 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 17:57 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-29 17:57 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 18:01 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-29 18:15 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 18:10 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-29 17:54 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 17:54 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-29 17:49 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 17:55 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-29 18:15 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 18:08 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 18:02 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 18:06 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 18:09 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:56 - [葛军谈AI时代理科生出路](https://www.share.minike.top/Article/details/9958550.shtml)
-- 2026-06-29 18:02 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/5509650547.shtml)
-- 2026-06-29 17:58 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/08433.shtml)
-- 2026-06-29 17:57 - [葛军谈AI时代理科生出路](http://www.share.minike.top/Article/details/8332474270.shtml)
-- 2026-06-29 17:42 - [博主：AI泡沫必须破灭](https://www.blog.kurohicncr.top/Article/details/686582815.shtml)
-- 2026-06-29 18:05 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/2380558143.shtml)
-- 2026-06-29 18:08 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/264206068534.shtml)
-- 2026-06-29 17:57 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/0229760.shtml)
-- 2026-06-29 17:45 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.share.minike.top/Article/details/64064727144.shtml)
-- 2026-06-29 18:01 - [2026世界杯谁能一黑到底](http://www.blog.kurohicncr.top/Article/details/72005402.shtml)
-- 2026-06-29 18:02 - [女心理师](http://www.blog.kurohicncr.top/Article/details/15367.shtml)
-- 2026-06-29 18:05 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/07715719.shtml)
-- 2026-06-29 18:02 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/092969.shtml)
-- 2026-06-29 17:46 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/088593170316.shtml)
-- 2026-06-29 18:11 - [22岁民警拦截违法车辆被撞牺牲](https://www.blog.kurohicncr.top/Article/details/100457892.shtml)
+- 2026-06-29 18:15 - [张杰我九岁就跟你了](https://www.blog.kurohicncr.top/Article/details/79586296566.shtml)
+- 2026-06-29 17:51 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/3911274522.shtml)
+- 2026-06-29 17:59 - [许建琼任湖南省检察院副检察长](https://www.blog.minike.top/Article/details/208036.shtml)
+- 2026-06-29 17:52 - [韩国小学生都来吐槽了](http://www.share.kurohicncr.top/Article/details/897860609.shtml)
+- 2026-06-29 18:17 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/6391784.shtml)
+- 2026-06-29 17:59 - [媒体：听清自己内心的声音再填志愿](http://www.blog.kurohicncr.top/Article/details/7770512.shtml)
+- 2026-06-29 18:14 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/45674285.shtml)
+- 2026-06-29 18:03 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/3885582.shtml)
+- 2026-06-29 18:11 - [省市招考专家解读山西高考志愿政策](http://www.share.minike.top/Article/details/884808331002.shtml)
+- 2026-06-29 18:05 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/109548400441.shtml)
+- 2026-06-29 18:13 - [音乐人屠颖离世家属追责涉事酒店](https://www.blog.minike.top/Article/details/6585942.shtml)
+- 2026-06-29 18:05 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/34535212.shtml)
+- 2026-06-29 18:09 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/3233526.shtml)
+- 2026-06-29 18:09 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/237356.shtml)
+- 2026-06-29 18:11 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/82852912243.shtml)

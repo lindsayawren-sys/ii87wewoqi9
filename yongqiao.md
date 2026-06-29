@@ -1,58 +1,48 @@
-# 王毅会见南非总统府部长恩特沙韦尼
+# 来看海警用“镜头签”为高考学子送祝福
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-中新社北京6月23日电 6月22日，中共中央政治局委员、中央外办主任王毅在新德里会见南非总统府部长恩特沙韦尼。 王毅表示，中国和南非作为新兴经济体代表和金砖创始成员国，始终坚定维护多边主义，倡导国际关系民主化，保持密切高层交往，深化各领域务实合作，成为全球南方团结合作的典范。当前单边主义、丛林法则损害各国正当权益，破坏国际关系准则，金砖国家作为全球南方的中坚力量，有必要加强团结
+发布时间：2026年06月05日 08:58 来源：中国新闻网 相信奇迹的人，本身和奇迹一样了不起。祝愿高考学子金榜题名，前程似锦，高考加油！(来源：中国海警局直属第六局 作者：王艺璇 王振球 吴治邦) 责任编辑：【魏聪聪】
 
 ## 正文
 
-中新社北京6月23日电 6月22日，中共中央政治局委员、中央外办主任王毅在新德里会见南非总统府部长恩特沙韦尼。
+发布时间：2026年06月05日 08:58 来源：中国新闻网 相信奇迹的人，本身和奇迹一样了不起。
 
-王毅表示，中国和南非作为新兴经济体代表和金砖创始成员国，始终坚定维护多边主义，倡导国际关系民主化，保持密切高层交往，深化各领域务实合作，成为全球南方团结合作的典范。
+祝愿高考学子金榜题名，前程似锦，高考加油！
 
-当前单边主义、丛林法则损害各国正当权益，破坏国际关系准则，金砖国家作为全球南方的中坚力量，有必要加强团结协作，共同擦亮金砖这块发展中国家联合自强的金字招牌，携手捍卫国际公平正义，维护世界和平稳定。
-
-王毅说，中国是南非和非洲可以信赖的朋友和伙伴。
-
-当前中南关系保持稳定发展势头，双方要落实好两国元首重要共识，坚持相互尊重、合作共赢，不断完善各层级交流机制，巩固和深化战略互信，共同做大合作蛋糕，充分发挥零关税、非洲农食产品输华“绿色通道”2.0等政策红利，为中南和中非携手推进现代化注入强劲动力。
-
-恩特沙韦尼表示，南非高度重视发展对华关系，始终视中国为可靠的朋友，感谢中方长期以来对南非和非洲的支持帮助，特别是零关税政策为非洲各国人民带来的福祉，期待同中方密切高层交往，加强贸易投资、网络安全、基础设施等领域合作，推动南中和非中关系再上新台阶。
-
-南非坚定奉行一个中国政策，愿同中方加强在金砖等多边平台协调配合，共同维护发展中国家权益，提振多边机制，推进世界多极化进程。
-
-(完)
+(来源：中国海警局直属第六局 作者：王艺璇 王振球 吴治邦) 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 17:49 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 17:46 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-29 18:05 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-29 17:55 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 17:47 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 18:01 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-29 17:56 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 18:06 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-29 18:08 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-29 17:53 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 18:02 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-29 17:56 - [王安宇尊重田曦薇的一切选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-29 18:13 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 18:08 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 18:12 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-29 18:08 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-29 18:01 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 17:48 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 17:48 - [女生每天戴耳机18小时突发耳聋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-29 18:03 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 18:01 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-29 18:03 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 17:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-29 18:08 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:53 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/748137.shtml)
-- 2026-06-29 18:06 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/6463163.shtml)
-- 2026-06-29 18:11 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/8085811.shtml)
-- 2026-06-29 17:57 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/60668974462.shtml)
-- 2026-06-29 17:45 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/976649843.shtml)
-- 2026-06-29 18:04 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/98189574.shtml)
-- 2026-06-29 17:54 - [截瘫男子心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/96643833.shtml)
-- 2026-06-29 18:02 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/1309973983.shtml)
-- 2026-06-29 17:50 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/1210234.shtml)
-- 2026-06-29 17:44 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/96997327002.shtml)
-- 2026-06-29 17:50 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/83420.shtml)
-- 2026-06-29 18:03 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/72033009.shtml)
-- 2026-06-29 17:54 - [谢依霖夸杨幂靠谱](https://www.share.minike.top/Article/details/5305461.shtml)
-- 2026-06-29 17:43 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.kurohicncr.top/Article/details/70154.shtml)
-- 2026-06-29 17:44 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/261170558.shtml)
+- 2026-06-29 18:00 - [日本在最东端离岛部署导弹发射装置](http://www.blog.minike.top/Article/details/257991398192.shtml)
+- 2026-06-29 17:59 - [急先锋](http://www.share.minike.top/Article/details/990140038.shtml)
+- 2026-06-29 17:57 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/26689707.shtml)
+- 2026-06-29 18:13 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/301685398081.shtml)
+- 2026-06-29 18:10 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/549412652362.shtml)
+- 2026-06-29 18:15 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/01795.shtml)
+- 2026-06-29 17:57 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/18154.shtml)
+- 2026-06-29 18:10 - [中国空间站为什么要升级扩容](http://www.blog.kurohicncr.top/Article/details/57483.shtml)
+- 2026-06-29 18:04 - [V8](https://www.blog.kurohicncr.top/Article/details/9151471808.shtml)
+- 2026-06-29 18:11 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/749019782104.shtml)
+- 2026-06-29 18:07 - [两老人多次到一洗车店泼粪](https://www.share.kurohicncr.top/Article/details/1836522322.shtml)
+- 2026-06-29 17:53 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/724804.shtml)
+- 2026-06-29 17:55 - [范志毅看好日本淘汰巴西](https://www.share.minike.top/Article/details/99655112199.shtml)
+- 2026-06-29 18:02 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/250486680.shtml)
+- 2026-06-29 17:50 - [金刚川](http://www.blog.kurohicncr.top/Article/details/79401142.shtml)

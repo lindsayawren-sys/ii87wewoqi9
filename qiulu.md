@@ -1,61 +1,57 @@
-# 今年以来自上海口岸出入境旅客数量突破2000万人次
+# 深圳楼市新政满月，外地客户热捧下5月成交再破万套
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-中新网上海6月22日电 (记者 陈静)上海边检总站方面22日披露，今年截至6月22日，逾2000万人次中外旅客从上海口岸出入境。今年以来，上海口岸出入境外籍人员总数达671.2万人次，同比增长20.8%；其中，入境外籍人员总数达330.8万人次，同比增长20.2%。 今年端午假期(6月19日至6月21日)，上海边检机关累计查验出入境人员数31.3万人次，同比增长9.4%。其间，
+深圳二手住宅在售库存降至近1年的最低水平。 “‘429’新政之后，前来咨询看房的外地客户明显变多了。”位于深圳福田区的中原地产香蜜湖水榭花都店店董杨志雄告诉第一财经，这些客户大多为企业主，来自广州、北京、上海和周边城市，“客户看好深圳的竞争力，在新政放松了核心区限购政策之后，他们也觉得有必要在深圳进行一些资产配置。” 4月底深圳出台的新政定向针对福田区、南山区、宝安新安街道的购
 
 ## 正文
 
-中新网上海6月22日电 (记者 陈静)上海边检总站方面22日披露，今年截至6月22日，逾2000万人次中外旅客从上海口岸出入境。
+深圳二手住宅在售库存降至近1年的最低水平。
 
-今年以来，上海口岸出入境外籍人员总数达671.2万人次，同比增长20.8%；其中，入境外籍人员总数达330.8万人次，同比增长20.2%。
+“‘429’新政之后，前来咨询看房的外地客户明显变多了。
 
-今年端午假期(6月19日至6月21日)，上海边检机关累计查验出入境人员数31.3万人次，同比增长9.4%。
+”位于深圳福田区的中原地产香蜜湖水榭花都店店董杨志雄告诉第一财经，这些客户大多为企业主，来自广州、北京、上海和周边城市，“客户看好深圳的竞争力，在新政放松了核心区限购政策之后，他们也觉得有必要在深圳进行一些资产配置。
 
-其间，上海口岸出境内地居民数近10万人次，占出境旅客总量的56.9%。
+” 4月底深圳出台的新政定向针对福田区、南山区、宝安新安街道的购房资格进行了松绑，凭居住证即可在前述区域购房，符合要求的购房者则可加购一套。
 
-韩国、泰国、新加坡、马来西亚仍是民众热门出境目的地，不少旅客通过“年假+小长假”方式错峰出行，跨境短途游热度明显上升。
+政策立竿见影，“五一”小长假期间，深圳本地中介机构乐有家就接待了来自浙江、沈阳、长沙、香港等地的客户，其中便有客户在办好居住证后直接线上签约。
 
-同时，毕业季带动的“青春出行”也成为假期出境客流的一大亮点。
+新政影响之下，作为直接受益的核心区，福田区和南山区的成交保持活跃，成交量在5月份明显向好。
 
-端午假期，外籍旅客来华旅游热度不减。
+乐有家研究中心数据显示，5月份，福田区一手住宅网签环比上涨52%，二手环比上涨12%，合计网签1068套，环比增长约14%；南山区一手住宅网签环比上涨45%，二手环比上涨24%，合计网签1319套，环比上涨24%。
 
-据统计，端午假期上海口岸入境外籍旅客达4.5万人次。
+由于两大核心区是深圳传统的改善聚集地，新政大幅降低了入场门槛，有效推动改善需求集中释放，进一步推高了区域内高端房源成交占比。
 
 ## 相关推荐
 
-- 2026-06-29 18:09 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 17:52 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 17:47 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 17:49 - [机器人学校开学了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-29 17:53 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-29 17:45 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-29 17:58 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-29 17:49 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-29 17:53 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-29 18:04 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-29 17:45 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-29 17:49 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-29 17:44 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-29 18:00 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-29 17:44 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 17:49 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-29 17:59 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 18:01 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 17:54 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 18:12 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 18:00 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 17:51 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-29 18:06 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-29 18:17 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-29 17:51 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 18:00 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:05 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/16544446882.shtml)
-- 2026-06-29 18:02 - [T1 KC](http://www.share.minike.top/Article/details/8391991350.shtml)
-- 2026-06-29 17:58 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/95003930461.shtml)
-- 2026-06-29 18:12 - [南昌市委书记调整](https://www.share.kurohicncr.top/Article/details/6591432000.shtml)
-- 2026-06-29 17:54 - [挪威王储妃长子两次强奸获刑](http://www.blog.kurohicncr.top/Article/details/3754864393.shtml)
-- 2026-06-29 18:08 - [啊啊啊](https://www.share.minike.top/Article/details/0218476.shtml)
-- 2026-06-29 17:59 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/3441095014.shtml)
-- 2026-06-29 18:09 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/89916240052.shtml)
-- 2026-06-29 18:02 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/2853687936.shtml)
-- 2026-06-29 18:10 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/047106.shtml)
-- 2026-06-29 18:10 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/3329623.shtml)
-- 2026-06-29 17:55 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/11441323775.shtml)
-- 2026-06-29 17:47 - [滚石就音乐人屠颖去世事件发声明](https://www.blog.minike.top/Article/details/769193243915.shtml)
-- 2026-06-29 17:45 - [王楚钦开门红](http://www.blog.kurohicncr.top/Article/details/874923.shtml)
-- 2026-06-29 17:52 - [存储三巨头被告了](https://www.share.minike.top/Article/details/911399717.shtml)
+- 2026-06-29 17:50 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/45057.shtml)
+- 2026-06-29 17:56 - [曝屠颖去世和酒店失责有关](http://www.share.minike.top/Article/details/134563.shtml)
+- 2026-06-29 18:01 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/29122885.shtml)
+- 2026-06-29 18:10 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/9002150117.shtml)
+- 2026-06-29 17:50 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.kurohicncr.top/Article/details/116425845.shtml)
+- 2026-06-29 17:56 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/174550.shtml)
+- 2026-06-29 17:53 - [人类对空调和其他家电有多双标](http://www.blog.kurohicncr.top/Article/details/65107.shtml)
+- 2026-06-29 18:06 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/86664297.shtml)
+- 2026-06-29 18:06 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/311445322802.shtml)
+- 2026-06-29 17:57 - [疑似吴建豪老婆正脸照](https://www.share.kurohicncr.top/Article/details/568880854.shtml)
+- 2026-06-29 18:11 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.share.minike.top/Article/details/69442170.shtml)
+- 2026-06-29 18:14 - [首个靠AI躺赢的国家](https://www.share.kurohicncr.top/Article/details/441086478.shtml)
+- 2026-06-29 18:06 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/29397.shtml)
+- 2026-06-29 17:51 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/834657514.shtml)
+- 2026-06-29 18:06 - [依法管制阻遏日方军事化危险动向](http://www.share.kurohicncr.top/Article/details/5821732.shtml)

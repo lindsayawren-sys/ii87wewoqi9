@@ -1,54 +1,58 @@
-# 南非副总统：链博会为重塑全球贸易体系信心搭建重要合作平台
+# 多股午后拉升涨停！000725，一天获超55亿元主力资金净流入！
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月22日 19:49 来源：中国新闻网 6月22日，第四届中国国际供应链促进博览会在北京开幕。南非副总统保罗·马沙蒂莱在致辞中介绍，当前，全球经济正处关键变革节点，地缘政治格局调整，科技飞速进步，气候治理紧迫需求以及生产模式变革正在重塑全球经贸体系的格局。与此同时，各国与企业都致力于提升全球产业链供应链的韧性、多元化水平、脱碳以及可持续发展能力。 保罗·
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月4日，A股整体震荡调整，科技成长股相对活跃，科创综指逆市飘红，北证50创1年多来新低，上证指数、深证成指、创业板指等均小幅飘绿。成交萎缩至2.78万亿元，创1个多月来新低。 盘面上，元器件、工业气体、次新股、航海装备等板块涨幅居前，工业金属、电池、一般零售、养殖业等板块跌幅居前。 Wind实时监测数据显
 
 ## 正文
 
-发布时间：2026年06月22日 19:49 来源：中国新闻网 6月22日，第四届中国国际供应链促进博览会在北京开幕。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-南非副总统保罗·马沙蒂莱在致辞中介绍，当前，全球经济正处关键变革节点，地缘政治格局调整，科技飞速进步，气候治理紧迫需求以及生产模式变革正在重塑全球经贸体系的格局。
+6月4日，A股整体震荡调整，科技成长股相对活跃，科创综指逆市飘红，北证50创1年多来新低，上证指数、深证成指、创业板指等均小幅飘绿。
 
-与此同时，各国与企业都致力于提升全球产业链供应链的韧性、多元化水平、脱碳以及可持续发展能力。
+成交萎缩至2.78万亿元，创1个多月来新低。
 
-保罗·马沙蒂莱表示，在此背景下，链博会为我们深化多方伙伴关系，重塑全球贸易体系信心，推动包容可持续的经济增长搭建了至关重要的合作平台。
+盘面上，元器件、工业气体、次新股、航海装备等板块涨幅居前，工业金属、电池、一般零售、养殖业等板块跌幅居前。
 
-(记者 李佳悦 制作 王佳琪) 责任编辑：【罗攀】
+Wind实时监测数据显示，电子行业再度成为主力资金的最爱，大幅净流入逾535亿元，远远超过其他行业净流入总和，机械设备获得逾96亿元净流入，汽车、通信、国防军工均获得超30亿元净流入，公用事业则连续11日获得净流入。
+
+银行遭主力资金净流出逾30亿元，有色金属净流出逾29亿元，食品饮料、非银金融等也净流出超10亿元。
+
+概念板块方面，消费电子、华为概念、AI手机等板块均获得超200亿元主力资金净流入，存储芯片、5G概念、半导体材料等板块也都获得超百亿元净流入。
+
+茅指数遭净流出逾43亿元，汇金持股概念净流出逾38亿元，央企指数净流出逾29亿元。
 
 ## 相关推荐
 
-- 2026-06-29 17:56 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-29 18:05 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 18:07 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 17:50 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 18:08 - [韩国小学生都来吐槽了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 17:48 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 17:56 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 17:58 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-29 17:47 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-29 17:50 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-29 18:04 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 17:58 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-29 17:58 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 18:08 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 18:00 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-29 18:08 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 18:12 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 18:02 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 18:17 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 18:16 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 18:03 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 18:08 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 18:00 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 18:01 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 18:06 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 18:05 - [看大国重器“云端穿针引线”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:00 - [一见倾心](http://www.blog.minike.top/Article/details/0452827.shtml)
-- 2026-06-29 18:08 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.share.kurohicncr.top/Article/details/9743429.shtml)
-- 2026-06-29 17:59 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/39596690.shtml)
-- 2026-06-29 17:59 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/518087548029.shtml)
-- 2026-06-29 17:56 - [曝iPhone涨价后不会再降](http://www.share.kurohicncr.top/Article/details/1497779.shtml)
-- 2026-06-29 17:56 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/635222764690.shtml)
-- 2026-06-29 18:01 - [重度抑郁女孩没钱去做心理咨询](http://www.share.minike.top/Article/details/66674571.shtml)
-- 2026-06-29 18:06 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/649192.shtml)
-- 2026-06-29 17:43 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/40872532.shtml)
-- 2026-06-29 17:43 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/628373.shtml)
-- 2026-06-29 18:02 - [急先锋](https://www.share.kurohicncr.top/Article/details/524878050281.shtml)
-- 2026-06-29 17:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/875788.shtml)
-- 2026-06-29 18:11 - [和周杰伦在演唱会合唱了](https://www.share.kurohicncr.top/Article/details/567522600401.shtml)
-- 2026-06-29 17:55 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/928589536684.shtml)
-- 2026-06-29 17:56 - [世界杯预测史上最不吃压力之物](http://www.blog.kurohicncr.top/Article/details/854422972.shtml)
+- 2026-06-29 17:58 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/566390.shtml)
+- 2026-06-29 18:04 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/16420086.shtml)
+- 2026-06-29 18:15 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/13505452.shtml)
+- 2026-06-29 17:52 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/35297.shtml)
+- 2026-06-29 18:04 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/5438572237.shtml)
+- 2026-06-29 17:56 - [滚石点名酒店员工说有急救培训](http://www.blog.minike.top/Article/details/56923.shtml)
+- 2026-06-29 18:13 - [音乐人屠颖离世家属追责涉事酒店](http://www.share.minike.top/Article/details/95899.shtml)
+- 2026-06-29 18:05 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/950638972.shtml)
+- 2026-06-29 17:49 - [T1 KC](https://www.blog.minike.top/Article/details/65725.shtml)
+- 2026-06-29 17:50 - [22岁民警拦截违法车辆被撞牺牲](http://www.share.minike.top/Article/details/458394.shtml)
+- 2026-06-29 18:17 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/00291914892.shtml)
+- 2026-06-29 18:09 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/718105887985.shtml)
+- 2026-06-29 18:09 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/0673050304.shtml)
+- 2026-06-29 17:54 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.kurohicncr.top/Article/details/23466.shtml)
+- 2026-06-29 17:52 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/802997922533.shtml)

@@ -1,56 +1,57 @@
-# 凭祥海关关于开展2026年6月份“关长接待日”的公告
+# 华尔街预计到2030年SpaceX的人工智能业务收入将增长100倍
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-为了解社会各界的建议和意见，并切实解决实际问题和困难，现就凭祥海关2026年6月份关长接待日有关事项预告如下： 一、接待时间：2026年6月29日(8：30-12：00)。 二、当值领导：凭祥海关党委委员、副关长王中艺。 三、接待地点：凭祥市友谊关大道6号凭祥海关办公楼。四、有关要求 (一)为做好接待安排工作，请来访者提前预约，预约的主要内容包括： 1.来访者的姓名、人数、单位
+华尔街研究分析师告诉SpaceX首次公开募股（IPO）的潜在投资者，模型预计该公司人工智能（AI）部门收入将在本十年末增长100倍，以此来证明1.8万亿美元的目标估值是合理的。 据一位知情人士透露，Evercore ISI研究分析师预计，SpaceX的AI部门到2031年销售额将达到7550亿美元，远高于去年的32亿美元。知情人士还表示，研究团队预计到2031年的总收入将超过1
 
 ## 正文
 
-为了解社会各界的建议和意见，并切实解决实际问题和困难，现就凭祥海关2026年6月份关长接待日有关事项预告如下： 一、接待时间：2026年6月29日(8：30-12：00)。
+华尔街研究分析师告诉SpaceX首次公开募股（IPO）的潜在投资者，模型预计该公司人工智能（AI）部门收入将在本十年末增长100倍，以此来证明1.8万亿美元的目标估值是合理的。
 
-二、当值领导：凭祥海关党委委员、副关长王中艺。
+据一位知情人士透露，Evercore ISI研究分析师预计，SpaceX的AI部门到2031年销售额将达到7550亿美元，远高于去年的32亿美元。
 
-三、接待地点：凭祥市友谊关大道6号凭祥海关办公楼。
+知情人士还表示，研究团队预计到2031年的总收入将超过1万亿美元，而2025年的收入为187亿美元。
 
-四、有关要求 (一)为做好接待安排工作，请来访者提前预约，预约的主要内容包括： 1.来访者的姓名、人数、单位、联系电话或其他联系方式、身份证号码； 2.来访目的，如反映问题、咨询业务、提供工作建议、个人诉求等； 3.其他需要预约的事项。
+由于信息尚未公开，知情人士要求匿名。
 
-(二)来访者可通过拨打电话(0771-8537255)告知有关预约信息；也可以填写《预约表》(详见附件)发送传真(0771-8537255)或邮箱(pxhg_bgs@customs.gov.cn)进行预约，若您选择电子邮箱发送，务必请您在发送邮件后拨打电话与我们确认您的邮件是否发送成功。
+华尔街公司周四上午与潜在买家会面，推介埃隆·马斯克麾下这家集火箭、卫星和AI业务于一身公司的历史性IPO交易。
 
-预约截止时间：2026年6月26日12：00前。
+该公司此前启动规模750亿美元IPO的推介流程，预计将成为有史以来规模最大的IPO交易，发行价为每股135美元。
 
-特此公告。
+高盛集团的研究团队列出了本十年结束之前的宏大预期目标，据部分知情人士透露，分析师预计到2030年总收入将达到4740亿美元，AI收入预计届时将增长约100倍，达到近3220亿美元。
 
-附件：凭祥海关关长接待日预约表.doc 来源：南宁海关
+一位知情人士表示，Evercore预测2030年总收入将达到4860亿美元，AI收入将达到3310亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 17:42 - [12所大学更正招生目录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 17:54 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 17:57 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-29 18:04 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-29 18:01 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-29 18:09 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 17:53 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 17:50 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 17:45 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-29 18:01 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 18:08 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 18:02 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 18:04 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 18:07 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-29 18:13 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 18:07 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 18:06 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-29 18:04 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-29 18:01 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-29 18:11 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-29 17:49 - [人形机器人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:05 - [蔚来回应车漆洗车时被冲掉](http://www.blog.kurohicncr.top/Article/details/1169819.shtml)
-- 2026-06-29 18:06 - [沙特外交大臣将访华](https://www.share.kurohicncr.top/Article/details/038496291771.shtml)
-- 2026-06-29 17:59 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/75319.shtml)
-- 2026-06-29 17:44 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/6416328023.shtml)
-- 2026-06-29 17:54 - [花万元相亲对象是50元雇的演员](http://www.share.minike.top/Article/details/58601.shtml)
-- 2026-06-29 18:01 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/974057.shtml)
-- 2026-06-29 17:57 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/9434513459.shtml)
-- 2026-06-29 17:48 - [疑似吴建豪老婆正脸照](http://www.blog.minike.top/Article/details/042387931025.shtml)
-- 2026-06-29 17:52 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/81404.shtml)
-- 2026-06-29 17:56 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/10720517.shtml)
-- 2026-06-29 18:11 - [毒液2](https://www.share.kurohicncr.top/Article/details/8069823247.shtml)
-- 2026-06-29 17:49 - [四川达州发生一起交通事故致2死](http://www.blog.kurohicncr.top/Article/details/4155719.shtml)
-- 2026-06-29 18:05 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/75094.shtml)
-- 2026-06-29 18:12 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/86634358385.shtml)
-- 2026-06-29 18:06 - [依法管制阻遏日方军事化危险动向](http://www.blog.kurohicncr.top/Article/details/1707287.shtml)
+- 2026-06-29 17:55 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.kurohicncr.top/Article/details/19610.shtml)
+- 2026-06-29 18:12 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/3176073.shtml)
+- 2026-06-29 17:48 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.kurohicncr.top/Article/details/6109965671.shtml)
+- 2026-06-29 18:09 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.kurohicncr.top/Article/details/839801.shtml)
+- 2026-06-29 18:04 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/970248.shtml)
+- 2026-06-29 17:54 - [美人鱼](http://www.share.kurohicncr.top/Article/details/545363601051.shtml)
+- 2026-06-29 17:51 - [挪威王储妃长子两次强奸获刑](http://www.share.minike.top/Article/details/18205890809.shtml)
+- 2026-06-29 17:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/939393.shtml)
+- 2026-06-29 17:52 - [滚石点名酒店员工说有急救培训](https://www.blog.minike.top/Article/details/36887092989.shtml)
+- 2026-06-29 17:53 - [机器人学校开学了](https://www.share.minike.top/Article/details/130574386286.shtml)
+- 2026-06-29 17:55 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/32057201601.shtml)
+- 2026-06-29 18:00 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/84706477.shtml)
+- 2026-06-29 18:04 - [和周杰伦在演唱会合唱了](http://www.share.minike.top/Article/details/157086290.shtml)
+- 2026-06-29 17:49 - [王俊凯命名方式](http://www.blog.kurohicncr.top/Article/details/841115553.shtml)
+- 2026-06-29 18:13 - [博主：黄金和原油回落不等于风险消失](https://www.share.minike.top/Article/details/678607863654.shtml)

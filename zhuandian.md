@@ -1,50 +1,60 @@
-# 华夏银行：上调个人贵金属交易业务延期合约保证金比例
+# 5月份中国大宗商品价格指数同比上涨20.2%
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-6月22日金融一线消息，华夏银行发布公告称，近期贵金属市场波动较大，为有效防范市场风险，顺应市场形势变化，该行拟对代理个人贵金属交易延期合约保证金比例进行调整。具体事项公告如下： 自2026年6月22日（周一）15：30收盘后，代理个人贵金属延期交易Au（T+D）、mAu（T+D）、Au（T+N1）、Au（T+N2）等保证金比例从35%调整为120%，Ag（T+D）合约的保证金
+中新社北京6月5日电 中国物流与采购联合会发布5日发布数据显示，2026年5月份，中国大宗商品价格指数(CBPI)为132.5点，同比上涨20.2%，环比上涨0.3%，环比涨幅连续两个月收窄。 从指数运行情况看，随着国内需求稳定释放、企业生产活动保持扩张，5月份指数继续上扬，大宗商品市场运行总体保持稳定。 分商品看，在中国物流与采购联合会重点监测的50种大宗商品中，5月份价格环
 
 ## 正文
 
-6月22日金融一线消息，华夏银行发布公告称，近期贵金属市场波动较大，为有效防范市场风险，顺应市场形势变化，该行拟对代理个人贵金属交易延期合约保证金比例进行调整。
+中新社北京6月5日电 中国物流与采购联合会发布5日发布数据显示，2026年5月份，中国大宗商品价格指数(CBPI)为132.5点，同比上涨20.2%，环比上涨0.3%，环比涨幅连续两个月收窄。
 
-具体事项公告如下： 自2026年6月22日（周一）15：30收盘后，代理个人贵金属延期交易Au（T+D）、mAu（T+D）、Au（T+N1）、Au（T+N2）等保证金比例从35%调整为120%，Ag（T+D）合约的保证金比例从42%调整为120%。
+从指数运行情况看，随着国内需求稳定释放、企业生产活动保持扩张，5月份指数继续上扬，大宗商品市场运行总体保持稳定。
 
-请投资者做好仓位控制，理性投资。
+分商品看，在中国物流与采购联合会重点监测的50种大宗商品中，5月份价格环比上涨的大宗商品有21种。
 
-责任编辑：曹睿潼
+其中，碳酸锂、精炼锡和天然橡胶涨幅居前。
+
+分行业看，黑色系与有色价格指数环比分别上涨3.3%和1.8%，主要是制造业进入消费旺季，市场需求回升，叠加缅甸、印尼锡矿和津巴布韦锂矿等矿端供应扰动。
+
+能源与化工价格指数则双双走低，环比分别下跌5.3%和2.1%，主要受中东局势缓和，国际油价回落等因素影响。
+
+中国物流与采购联合会大宗商品交易市场流通分会副会长周旭表示，5月份中国大宗商品市场保持稳定运行，面对外部冲击展现较好韧性。
+
+能源、化工等行业价格指数环比回落，有助于缓解企业原材料成本压力，改善下游行业利润，为经济恢复向好蓄力。
 
 ## 相关推荐
 
-- 2026-06-29 18:07 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-29 18:08 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-29 17:47 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-29 17:59 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-29 18:10 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-29 17:47 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 17:46 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 17:44 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 17:55 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 18:00 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 18:03 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 17:58 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 18:01 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 18:09 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 17:50 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-29 18:00 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-29 18:11 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 18:07 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 18:06 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 17:59 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-29 17:49 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 17:49 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-29 17:48 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 18:01 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 18:09 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 17:54 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:49 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/384447.shtml)
-- 2026-06-29 17:52 - [日本偶像龟梨和也宣布结婚](https://www.blog.kurohicncr.top/Article/details/673649484.shtml)
-- 2026-06-29 17:52 - [范志毅看好日本淘汰巴西](https://www.blog.kurohicncr.top/Article/details/07395337547.shtml)
-- 2026-06-29 17:46 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/8919745.shtml)
-- 2026-06-29 18:08 - [天柱山回应网红打卡树枝被砍](https://www.share.minike.top/Article/details/0963907.shtml)
-- 2026-06-29 17:59 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/7186985.shtml)
-- 2026-06-29 18:01 - [央视曝光高价回收老物件骗局](https://www.share.minike.top/Article/details/6928942.shtml)
-- 2026-06-29 18:00 - [美国大满贯首日国乒主力均取胜](http://www.share.minike.top/Article/details/26119669.shtml)
-- 2026-06-29 18:04 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/5986629.shtml)
-- 2026-06-29 18:08 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/96047934612.shtml)
-- 2026-06-29 17:53 - [为何说今日日本似战前日本](https://www.share.kurohicncr.top/Article/details/40763.shtml)
-- 2026-06-29 17:58 - [法国紧急下单3万台空调](https://www.share.kurohicncr.top/Article/details/6506822.shtml)
-- 2026-06-29 17:58 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/577705.shtml)
-- 2026-06-29 18:01 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.minike.top/Article/details/042438515386.shtml)
-- 2026-06-29 17:58 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.minike.top/Article/details/006737069.shtml)
+- 2026-06-29 18:09 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/84183269.shtml)
+- 2026-06-29 18:05 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/75072401.shtml)
+- 2026-06-29 18:00 - [女心理师](http://www.blog.kurohicncr.top/Article/details/3501904354.shtml)
+- 2026-06-29 17:56 - [普京承认俄出现燃料危机](https://www.share.minike.top/Article/details/557173.shtml)
+- 2026-06-29 18:01 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/59787803.shtml)
+- 2026-06-29 18:04 - [T1 KC](https://www.share.minike.top/Article/details/01040.shtml)
+- 2026-06-29 18:02 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/2526635.shtml)
+- 2026-06-29 17:50 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/34368.shtml)
+- 2026-06-29 18:09 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.blog.kurohicncr.top/Article/details/38520.shtml)
+- 2026-06-29 17:51 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/606303647.shtml)
+- 2026-06-29 18:16 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/74522485.shtml)
+- 2026-06-29 17:50 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/236271.shtml)
+- 2026-06-29 18:10 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/532207969220.shtml)
+- 2026-06-29 18:13 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/195592030.shtml)
+- 2026-06-29 18:07 - [湖北钟祥市委书记张勇拟任新职](http://www.share.minike.top/Article/details/771908.shtml)

@@ -1,58 +1,60 @@
-# 酒价内参6月22日价格发布：五粮液1618上涨2元
+# 600年白沙壁画景区焕新开放 数字技术让白沙壁画“活起来”
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月22日整体小幅走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9897元，较昨日下跌2元，自昨日创下的三日新高小幅回落。今日总价仍处于9900元关口下方，低位震荡态势仍在延续，终端交投情绪整体偏谨慎，核心单品的涨跌分化依然显著。
+中国青年网北京6月3日电(见习记者 菅浩云 记者 杨月)高考临近，一场融合传统文化与数字科技的祝福活动在云南丽江白沙古镇启动。 近日，位于丽江白沙古镇的白沙壁画景区，已完成保护性提升与数字化改造。其中，拥有600余年历史的文昌宫，以“白沙纳祥·文运永昌”为主题重新开放。游客不仅可以走进古建筑感受传统文昌文化，还能通过数字化展示、沉浸式互动等方式近距离了解白沙壁画这一珍贵文化遗产
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月22日整体小幅走弱。
+中国青年网北京6月3日电(见习记者 菅浩云 记者 杨月)高考临近，一场融合传统文化与数字科技的祝福活动在云南丽江白沙古镇启动。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9897元，较昨日下跌2元，自昨日创下的三日新高小幅回落。
+近日，位于丽江白沙古镇的白沙壁画景区，已完成保护性提升与数字化改造。
 
-今日总价仍处于9900元关口下方，低位震荡态势仍在延续，终端交投情绪整体偏谨慎，核心单品的涨跌分化依然显著。
+其中，拥有600余年历史的文昌宫，以“白沙纳祥·文运永昌”为主题重新开放。
 
-今日11大白酒单品四涨七跌，输家占据明显优势。
+游客不仅可以走进古建筑感受传统文昌文化，还能通过数字化展示、沉浸式互动等方式近距离了解白沙壁画这一珍贵文化遗产。
 
-上涨方面，青花汾20涨幅居前，上涨6元/瓶，低位四连涨，平进入六月以来最高价纪录；习酒君品上涨5元/瓶，重新逼近630元关口；五粮液1618与古井贡古20均上涨2元/瓶，其中自昨日创下的近一月最低价小幅反弹，仍处于近一月次低位。
+白沙壁画是世界文化遗产丽江古城的重要组成部分，与敦煌莫高窟壁画、北京法海寺壁画、山西永乐宫壁画并称我国四大壁画艺术瑰宝。
 
-下跌方面，精品茅台与国窖1573跌幅居前，均下跌4元/瓶，其中前者回落至近一月次低位，后者结束此前两日反弹，但仍守住880元关口；水晶剑南春下跌3元/瓶；飞天茅台与青花郎均下跌2元/瓶；五粮液普五八代与洋河梦之蓝M6+均小幅下跌1元/瓶，其中前者已五连阴，失守800元关口后继续下探，创今年2月2日以来最低价，后者结束此前连续三日上扬走势，但价格回落后仍处于近一月次高位。
+现存壁画55幅，分布于文昌宫、大宝积宫、琉璃殿和大定阁等建筑群中。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+始建于明洪武年间的文昌宫，则见证了丽江木氏土司崇尚汉学、兴办科举、推行教化的历史进程。
 
-随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台（5月16日上调至2359元/瓶），这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
+院内保留的清代科举主题壁画，生动再现古代科举风貌与文昌文化内涵，成为解读西南地区民族融合与民俗发展的珍贵实物遗存。
 
 ## 相关推荐
 
-- 2026-06-29 18:07 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-29 18:06 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 17:55 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-29 18:02 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 17:52 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-29 17:52 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 18:09 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-29 17:43 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-29 18:09 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 18:00 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-29 18:06 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-29 17:50 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-29 18:07 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-29 17:59 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 17:51 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-29 17:53 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-29 17:48 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 17:56 - [学者：建设性战略稳定重塑中美关系](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 18:17 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-29 17:53 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-29 18:00 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 18:10 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 17:52 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-29 18:13 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-29 17:59 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 18:14 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:01 - [博主：AI泡沫必须破灭](http://www.share.kurohicncr.top/Article/details/442114286.shtml)
-- 2026-06-29 18:08 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/90074613679.shtml)
-- 2026-06-29 18:11 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.kurohicncr.top/Article/details/6993652113.shtml)
-- 2026-06-29 17:45 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/91436.shtml)
-- 2026-06-29 17:52 - [A股割裂行情有变化了吗](http://www.share.kurohicncr.top/Article/details/48794.shtml)
-- 2026-06-29 17:58 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/606327886.shtml)
-- 2026-06-29 18:09 - [河南四位大妈景区跳舞爆火](http://www.share.minike.top/Article/details/88662.shtml)
-- 2026-06-29 18:09 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/959578.shtml)
-- 2026-06-29 17:58 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/651695.shtml)
-- 2026-06-29 18:06 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/65318.shtml)
-- 2026-06-29 18:05 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/643025810945.shtml)
-- 2026-06-29 18:00 - [毒液2](https://www.share.kurohicncr.top/Article/details/6974151035.shtml)
-- 2026-06-29 18:00 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/870137081.shtml)
-- 2026-06-29 18:03 - [中国空间站为什么要升级扩容](https://www.share.minike.top/Article/details/47887825195.shtml)
-- 2026-06-29 17:47 - [一生一世](http://www.share.minike.top/Article/details/545374225103.shtml)
+- 2026-06-29 18:03 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/801277.shtml)
+- 2026-06-29 18:07 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/305874.shtml)
+- 2026-06-29 18:14 - [葛军谈AI时代理科生出路](http://www.share.minike.top/Article/details/36947036261.shtml)
+- 2026-06-29 17:50 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/52060.shtml)
+- 2026-06-29 18:15 - [天柱山回应网红打卡树枝被砍](http://www.share.kurohicncr.top/Article/details/8188049.shtml)
+- 2026-06-29 17:56 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/42055667624.shtml)
+- 2026-06-29 17:57 - [博主：黄金和原油回落不等于风险消失](https://www.share.minike.top/Article/details/4362450297.shtml)
+- 2026-06-29 17:52 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/536014091.shtml)
+- 2026-06-29 18:05 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/071184.shtml)
+- 2026-06-29 18:06 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/482840068.shtml)
+- 2026-06-29 17:48 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/0360578.shtml)
+- 2026-06-29 18:08 - [12所大学更正招生目录](https://www.share.minike.top/Article/details/4006374.shtml)
+- 2026-06-29 18:11 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/4036544.shtml)
+- 2026-06-29 17:53 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.minike.top/Article/details/5303030201.shtml)
+- 2026-06-29 17:52 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/75673777.shtml)

@@ -1,57 +1,58 @@
-# AH硬科技巨震！规模最大港股通信息技术ETF华宝（159131）新高后首回调跌逾5%，实时申购9900万份！
+# 大型歌舞剧《那山·那水·那天琴》在广西南宁上演
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-今日（6月23日），AH硬科技大幅回调，港股方面，智谱、胜宏科技、澜起科技、建滔集团等多股跌逾10%。同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）继昨日创上市新高后迎来回踩，场内价格现跌5.75%，溢价走阔，实时申购9900万份，净申购6400万份！ 银河证券指出，展望2026年下半年，港股市场“洼地”是事实，“迷局”是现状，“长坡”是方向，“蓄力”是过
+中新网南宁6月5日电 (陈冠言)由广西艺术基金扶持，崇左市委宣传部、崇左市文化旅游和体育广电局主办，崇左市花山民族文化艺术传承创作中心出品的大型歌舞剧《那山·那水·那天琴》，4日在广西南宁精彩上演。 作为2026年文化和自然遗产日期间的重点展演剧目，该剧为绿城市民献上一场融合非遗传承、民族风情与时代思考于一体的文艺盛宴。 《那山·那水·那天琴》以国家级非物质文化遗产“壮族天琴艺
 
 ## 正文
 
-今日（6月23日），AH硬科技大幅回调，港股方面，智谱、胜宏科技、澜起科技、建滔集团等多股跌逾10%。
+中新网南宁6月5日电 (陈冠言)由广西艺术基金扶持，崇左市委宣传部、崇左市文化旅游和体育广电局主办，崇左市花山民族文化艺术传承创作中心出品的大型歌舞剧《那山·那水·那天琴》，4日在广西南宁精彩上演。
 
-同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）继昨日创上市新高后迎来回踩，场内价格现跌5.75%，溢价走阔，实时申购9900万份，净申购6400万份！
+作为2026年文化和自然遗产日期间的重点展演剧目，该剧为绿城市民献上一场融合非遗传承、民族风情与时代思考于一体的文艺盛宴。
 
-银河证券指出，展望2026年下半年，港股市场“洼地”是事实，“迷局”是现状，“长坡”是方向，“蓄力”是过程。
+《那山·那水·那天琴》以国家级非物质文化遗产“壮族天琴艺术”为创作内核，立足崇左边关山水与广西乡土人文，将左江风光、壮乡民俗浓缩于方寸舞台，总时长约110分钟。
 
-当前基本面（营收、盈利、ROE）已确认拐点，但市场信心和资金流向尚未形成合力。
+该剧故事发生在“天琴村”。
 
-在加快科技创新、扩大内需等利好政策带动下，若中美关系于四季度明显改善，基本面反弹信号确认，港股上市公司盈利水平有望实现实质性提升，港股总体有望迎来盈利与估值共振上行的行情。
+世代以天琴为精神图腾的村落，因长期固守传统古调、拘泥旧有唱法而在时代变迁中日渐落寞。
 
-配置方面，科技创新将是港股投资的一大主线。
+40年前，怀揣现代新声的青年林羽，如一道闪电闯入村寨——他不受拘束的现代唱腔，直接挑战了阿山、阿水所代表的传统权威，一场关乎天琴艺术存续走向的激烈博弈就此爆发。
 
-随着AI行情从纯硬件向算力租赁、云服务、半导体、人形机器人、MaaS服务全产业链等领域扩散，港股结构劣势有望转化为相对优势。
+新旧理念冲突不断，历经悲欢离合与岁月洗礼，人们终于放下对立，领悟到传承的真谛：守护的是民族精神根脉，延续的更需要创新。
 
-数据来源：iFind，截至2026.6.22。
+最终，传统曲调与现代编曲相融共生，沉寂许久的天琴奏响崭新乐章，在兼容并蓄中重焕生命力。
 
 ## 相关推荐
 
-- 2026-06-29 17:45 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-29 17:59 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 18:08 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 18:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-29 18:06 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-29 17:58 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 17:53 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-29 17:58 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 18:04 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 18:05 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 17:52 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 18:05 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-29 18:06 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 17:53 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 17:56 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 17:48 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-29 17:51 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 18:02 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 18:15 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-29 17:55 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 17:54 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-29 18:12 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-29 17:51 - [依法管制阻遏日方军事化危险动向](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/432736452.shtml)
-- 2026-06-29 17:48 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/7534470.shtml)
-- 2026-06-29 17:45 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/23424.shtml)
-- 2026-06-29 18:09 - [当地回应林区违规放羊遭豹啃食](http://www.share.minike.top/Article/details/1853586.shtml)
-- 2026-06-29 18:11 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/355810.shtml)
-- 2026-06-29 18:08 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/18231179.shtml)
-- 2026-06-29 18:00 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.kurohicncr.top/Article/details/024059.shtml)
-- 2026-06-29 17:52 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/38993043.shtml)
-- 2026-06-29 17:51 - [舒行钢任湖南省交通运输厅厅长](https://www.share.minike.top/Article/details/93268623.shtml)
-- 2026-06-29 17:56 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/95892.shtml)
-- 2026-06-29 17:51 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/766632249.shtml)
-- 2026-06-29 17:53 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.kurohicncr.top/Article/details/3994174.shtml)
-- 2026-06-29 17:45 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/05716599293.shtml)
-- 2026-06-29 18:03 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/8822457430.shtml)
-- 2026-06-29 17:52 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/839303108.shtml)
+- 2026-06-29 18:02 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.minike.top/Article/details/153986808.shtml)
+- 2026-06-29 18:10 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/1288172199.shtml)
+- 2026-06-29 17:57 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/651033.shtml)
+- 2026-06-29 17:55 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/90210.shtml)
+- 2026-06-29 18:00 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/6629059520.shtml)
+- 2026-06-29 17:56 - [普京承认俄出现燃料危机](https://www.blog.kurohicncr.top/Article/details/53015.shtml)
+- 2026-06-29 18:17 - [吴建豪和老婆差20岁](https://www.blog.minike.top/Article/details/78277190854.shtml)
+- 2026-06-29 17:59 - [章若楠包场白敬亭特立独行](https://www.blog.kurohicncr.top/Article/details/4585188.shtml)
+- 2026-06-29 18:12 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/950096384408.shtml)
+- 2026-06-29 17:48 - [世界杯预测史上最不吃压力之物](http://www.share.kurohicncr.top/Article/details/536209939.shtml)
+- 2026-06-29 18:04 - [小说《无悔追踪》翻红](https://www.blog.minike.top/Article/details/69723.shtml)
+- 2026-06-29 18:11 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/20616155859.shtml)
+- 2026-06-29 18:05 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/12941219.shtml)
+- 2026-06-29 18:10 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/334512378073.shtml)
+- 2026-06-29 18:09 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/2879554.shtml)

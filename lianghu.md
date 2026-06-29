@@ -1,60 +1,58 @@
-# 多地洪涝灾害严重 广西电力部门快速响应全力保电
+# Accel Entertainment收购路易斯安那州Rice Palace卡车停靠站赌场
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-中新网南宁6月22日电(林艳华 毛雨贤 罗洋)连日来，“龙舟水”持续影响广西，河池、柳州、桂林、百色等地出现大雨或暴雨，龙江全线、柳江上游都柳江、洛清江中上游、古宜河上游及红水河部分支流等多条河流出现超警戒洪水，多地城区和乡镇出现严重内涝，部分电力线路和设施因灾停运。 洪灾当前，南方电网广西电网公司快速响应，全力应对，按照“先复电后抢修”的原则，及时采用发电车、发电机等进行应急
+Accel Entertainment（纽交所代码：ACEL）周三宣布，其子公司Toucan Gaming已完成对Rice Palace Inc．和South Louisiana Gaming Inc．资产的收购。这两家公司是位于路易斯安那州克劳利市的Rice Palace卡车停靠站赌场的所有者与运营商。 此次战略性收购为Accel在路易斯安那州的业务组合新增了50台视频游戏设
 
 ## 正文
 
-中新网南宁6月22日电(林艳华 毛雨贤 罗洋)连日来，“龙舟水”持续影响广西，河池、柳州、桂林、百色等地出现大雨或暴雨，龙江全线、柳江上游都柳江、洛清江中上游、古宜河上游及红水河部分支流等多条河流出现超警戒洪水，多地城区和乡镇出现严重内涝，部分电力线路和设施因灾停运。
+Accel Entertainment（纽交所代码：ACEL）周三宣布，其子公司Toucan Gaming已完成对Rice Palace Inc．和South Louisiana Gaming Inc．资产的收购。
 
-洪灾当前，南方电网广西电网公司快速响应，全力应对，按照“先复电后抢修”的原则，及时采用发电车、发电机等进行应急供电，满足受灾地区基本用电需求。
+这两家公司是位于路易斯安那州克劳利市的Rice Palace卡车停靠站赌场的所有者与运营商。
 
-同时，组织力量全面开展抢修。
+此次战略性收购为Accel在路易斯安那州的业务组合新增了50台视频游戏设备。
 
-6月21日18时20分，龙江出现192.44米洪峰水位，超警戒水位4.44米，为1970年以来最大洪水。
+公司计划在短期内将该地点的设备容量扩展至60台，相比Accel截至2026年3月31日在该州线路业务中拥有的728台视频游戏设备，增幅约为8%。
 
-受持续强降雨及龙江水位上涨影响，河池市金城江区城区多处出现严重积水，当地医院、学校、居民小区、农贸市场等遭受洪水浸泡。
+本次交易的财务条款未予披露。
 
-面对河池严重汛情，南方电网广西电网公司从南宁等地跨区域调配排涝车、排涝方舱、发电车等共47台，从桂林、百色、来宾等地协调300多人的成建制抢修队伍支援河池抗汛抢修保电。
+Accel Entertainment首席执行官Andy Rubenstein表示：“这一增值性收购彰显了我们在路易斯安那州持续推进的发展势头，以及我们对该市场长期增长潜力的信心。
 
-6月21日凌晨，河池市人民医院外科楼一楼内涝，河池供电局第一时间前置一辆400千瓦应急发电车至医院，在配电房被水浸泡紧急避险停电时及时接入，保障了医院稳定供电。
+Rice Palace已建立起稳固的业务基础，扎根于本地客户关系、全天候服务、地道餐饮体验和运营纪律，我们热烈欢迎他们加入Toucan Gaming大家庭。
 
-目前，河池市人民医院门诊大楼由市电供电，外科楼、宿舍区由发电车应急供电，医院用电不受影响。
+” Toucan Gaming首席执行官Stan Guidroz补充道：“通过此次协议，Toucan正在扩大我们在路易斯安那州的规模和路线覆盖。
 
 ## 相关推荐
 
-- 2026-06-29 18:05 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-29 17:48 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 17:57 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 17:56 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-29 17:57 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-29 18:07 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 17:53 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 17:49 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-29 17:49 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-29 17:50 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-29 17:52 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 17:44 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-29 17:57 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 17:54 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 17:50 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-29 17:54 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 17:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 17:53 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 17:58 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 18:12 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-29 18:08 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-29 17:48 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 18:10 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 18:00 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 17:59 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 18:16 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:05 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/177476.shtml)
-- 2026-06-29 17:49 - [欧洲人买空调难点在哪](https://www.share.kurohicncr.top/Article/details/6281781848.shtml)
-- 2026-06-29 17:54 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/7167280.shtml)
-- 2026-06-29 18:02 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/18107456091.shtml)
-- 2026-06-29 17:52 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/8538045567.shtml)
-- 2026-06-29 18:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/722349455688.shtml)
-- 2026-06-29 17:48 - [娜扎搂着我的腰和我合照](https://www.blog.kurohicncr.top/Article/details/269872795.shtml)
-- 2026-06-29 18:06 - [沉睡花园](https://www.share.minike.top/Article/details/5886604736.shtml)
-- 2026-06-29 17:59 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/413445216.shtml)
-- 2026-06-29 18:10 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/237072242.shtml)
-- 2026-06-29 17:52 - [挪威王储妃长子两次强奸获刑](https://www.share.kurohicncr.top/Article/details/476188560705.shtml)
-- 2026-06-29 18:04 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/032831.shtml)
-- 2026-06-29 18:10 - [TLAW零封DCG MSI](https://www.share.minike.top/Article/details/174842885.shtml)
-- 2026-06-29 18:06 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/2532568028.shtml)
-- 2026-06-29 18:01 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/48119132.shtml)
+- 2026-06-29 18:03 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/11927.shtml)
+- 2026-06-29 18:11 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.share.kurohicncr.top/Article/details/875031.shtml)
+- 2026-06-29 18:06 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/8110360684.shtml)
+- 2026-06-29 17:49 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/272147.shtml)
+- 2026-06-29 18:05 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/32768.shtml)
+- 2026-06-29 18:17 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.kurohicncr.top/Article/details/635586930.shtml)
+- 2026-06-29 18:11 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/3237231.shtml)
+- 2026-06-29 18:15 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/628695670.shtml)
+- 2026-06-29 18:12 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/62857710557.shtml)
+- 2026-06-29 18:11 - [杨紫下沉市场口碑](http://www.blog.minike.top/Article/details/991956804.shtml)
+- 2026-06-29 18:04 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/70508.shtml)
+- 2026-06-29 17:56 - [金刚川](http://www.share.kurohicncr.top/Article/details/76728276485.shtml)
+- 2026-06-29 18:17 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/090295760969.shtml)
+- 2026-06-29 17:53 - [胡光宇一审获刑13年](https://www.blog.kurohicncr.top/Article/details/7705143.shtml)
+- 2026-06-29 18:08 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/25812.shtml)

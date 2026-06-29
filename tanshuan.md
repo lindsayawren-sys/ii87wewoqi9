@@ -1,59 +1,56 @@
-# 李强会见几内亚总理乌里·巴
+# 悦心健康拟以0元收购斯米克健康科技36%股权 需担1800万认缴出资义务
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-中新社大连6月23日电 (记者 李京泽)6月23日上午，中国国务院总理李强在大连会见来华出席夏季达沃斯论坛的几内亚总理乌里·巴。 李强表示，几内亚是同新中国建交的第一个撒哈拉以南非洲国家，两国虽然相隔万里，但是友好情谊源远流长。过去数十年，无论是在捍卫国家主权和独立的斗争中，还是在推动经济社会发展的道路上，中几始终风雨同舟、守望相助，取得一系列合作成果。当前，在习近平主席同敦布
+6月4日，悦心健康（002162）发布公告，拟与关联方共同收购斯米克健康科技（上海）有限公司75%股权。公司将受让36%股权，上海斯米克有限公司受让39%股权。交易对价合计为0元，因标的公司尚未实缴注册资本，也未开展实际生产经营活动。本次交易完成后，上海斯米克有限公司叠加其原持有的25%标的公司股权，合计持有标的公司64%股权，为标的公司控股股东；公司持有标的公司36%股权，需
 
 ## 正文
 
-中新社大连6月23日电 (记者 李京泽)6月23日上午，中国国务院总理李强在大连会见来华出席夏季达沃斯论坛的几内亚总理乌里·巴。
+6月4日，悦心健康（002162）发布公告，拟与关联方共同收购斯米克健康科技（上海）有限公司75%股权。
 
-李强表示，几内亚是同新中国建交的第一个撒哈拉以南非洲国家，两国虽然相隔万里，但是友好情谊源远流长。
+公司将受让36%股权，上海斯米克有限公司受让39%股权。
 
-过去数十年，无论是在捍卫国家主权和独立的斗争中，还是在推动经济社会发展的道路上，中几始终风雨同舟、守望相助，取得一系列合作成果。
+交易对价合计为0元，因标的公司尚未实缴注册资本，也未开展实际生产经营活动。
 
-当前，在习近平主席同敦布亚总统的战略引领下，中几关系持续深化发展。
+本次交易完成后，上海斯米克有限公司叠加其原持有的25%标的公司股权，合计持有标的公司64%股权，为标的公司控股股东；公司持有标的公司36%股权，需承担1800万元的认缴出资义务，具体出资进度将根据标的公司实际经营需求逐步到位。
 
-今年两国迎来建立全面战略合作伙伴关系10周年，中方愿同几方以此为契机，进一步弘扬传统友谊，在涉及彼此核心利益问题上坚定相互支持，推动各领域合作走深走实，更好惠及两国人民。
+本次交易构成关联交易，因上海斯米克有限公司与悦心科技发展均为公司实际控制人李慈雄控制的企业。
 
-李强指出，中方愿同几方加强中国“十五五”规划和几内亚“西芒杜2040”战略规划对接，用好用足中方零关税、非洲农产品输华“绿色通道”升级等政策便利，提升贸易、农业、矿业等合作水平，确保西芒杜等重点项目稳定运营，发掘金融、产业园区、电力等领域合作潜力，实现更高水平的互利共赢。
-
-希望几方为中国企业赴几投资提供稳定政策保障和良好营商环境。
-
-双方还要深入落实中非合作论坛北京峰会“十大伙伴行动”，加强教育、减贫、医疗、人力资源开发等方面交流合作，提升民众对两国友好合作的获得感。
+2026年一季度，悦心健康实现收入2.11亿元，归母净利润-337万元。
 
 ## 相关推荐
 
-- 2026-06-29 18:00 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-29 18:06 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 18:07 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-29 17:42 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-29 17:59 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-29 18:04 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-29 17:54 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-29 17:44 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-29 17:45 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 18:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-29 18:05 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-29 17:52 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-29 17:46 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-29 17:59 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 18:00 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-29 18:09 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 18:12 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 18:10 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 18:15 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-29 18:05 - [花万元相亲对象是50元雇的演员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 18:11 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 17:49 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 18:13 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-29 17:49 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-29 18:14 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-29 18:12 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 18:00 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:05 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/14886.shtml)
-- 2026-06-29 18:00 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/85129.shtml)
-- 2026-06-29 18:02 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.kurohicncr.top/Article/details/46131053.shtml)
-- 2026-06-29 18:08 - [周生如故](https://www.blog.minike.top/Article/details/00317526.shtml)
-- 2026-06-29 17:46 - [哈基米歌王争霸赛](http://www.share.minike.top/Article/details/671509.shtml)
-- 2026-06-29 17:56 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/616625.shtml)
-- 2026-06-29 18:01 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/501225024445.shtml)
-- 2026-06-29 17:44 - [外交部谈对日出口管制措施](https://www.blog.kurohicncr.top/Article/details/9585658158.shtml)
-- 2026-06-29 17:50 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/77927984.shtml)
-- 2026-06-29 18:06 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/57830194.shtml)
-- 2026-06-29 17:43 - [急先锋](http://www.blog.minike.top/Article/details/5684365.shtml)
-- 2026-06-29 17:44 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/814883212.shtml)
-- 2026-06-29 18:04 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/9240936418.shtml)
-- 2026-06-29 18:00 - [朱必达辞去湖南人大常委会委员职务](https://www.share.kurohicncr.top/Article/details/59501125.shtml)
-- 2026-06-29 18:07 - [V8](http://www.share.minike.top/Article/details/39074.shtml)
+- 2026-06-29 18:08 - [当家电外通风口出现鸟窝](http://www.share.minike.top/Article/details/737057795.shtml)
+- 2026-06-29 18:11 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/053518200333.shtml)
+- 2026-06-29 18:15 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/21208872027.shtml)
+- 2026-06-29 18:15 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/19628425.shtml)
+- 2026-06-29 18:07 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/7918088.shtml)
+- 2026-06-29 17:48 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/318009.shtml)
+- 2026-06-29 17:48 - [赵今麦时隔五年再演李诗情](http://www.share.minike.top/Article/details/88033261.shtml)
+- 2026-06-29 18:09 - [沙特外交大臣将访华](http://www.blog.minike.top/Article/details/39511400601.shtml)
+- 2026-06-29 18:13 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/109401245.shtml)
+- 2026-06-29 17:59 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.share.minike.top/Article/details/78409.shtml)
+- 2026-06-29 17:54 - [NBA交易](http://www.share.minike.top/Article/details/159765796.shtml)
+- 2026-06-29 18:17 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/72778230.shtml)
+- 2026-06-29 17:49 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/71932.shtml)
+- 2026-06-29 18:15 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.minike.top/Article/details/80874744862.shtml)
+- 2026-06-29 17:53 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/98457429.shtml)

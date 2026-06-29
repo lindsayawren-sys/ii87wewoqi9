@@ -1,56 +1,58 @@
-# 雷军自曝：后悔跟董明珠打赌，小米汽车“1300公里只充一次电”被断章取义
+# 美国就收购OpenAI等多家人工智能公司股份举行了初步讨论
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-6月21日，北京国家会议中心，第三十二届北京国际图书博览会“BIBF大使会客厅·特别场”。作家刘震云、小米集团董事长雷军、主持人张蕾三人对谈，聊刘震云的新书《咸的玩笑》。 雷军提起2013年和董明珠的赌局 雷军谈如何理解刘震云的新书《咸的玩笑》，说到自己人生里最贴合“咸的玩笑”的经历，主动提起2013年和董明珠的这场赌局。 “2013年我参加央视一个活动，我跟格力的董明珠董大姐
+NOTUS援引三位知情人士报道，美国高级官员已与多家大型人工智能公司进行初步讨论，探讨联邦政府收购这些公司部分股份的可能性。 报道称，自特朗普开启第二个任期以来，OpenAI首席执行官Sam Altman曾与特朗普政府高级官员定期讨论过这一想法。 据报道，Altman早在2025年初就直接向特朗普提出了这一概念；最近几周，他又与高级官员再次讨论了此事。 讨论的重点在于由这些公司
 
 ## 正文
 
-6月21日，北京国家会议中心，第三十二届北京国际图书博览会“BIBF大使会客厅·特别场”。
+NOTUS援引三位知情人士报道，美国高级官员已与多家大型人工智能公司进行初步讨论，探讨联邦政府收购这些公司部分股份的可能性。
 
-作家刘震云、小米集团董事长雷军、主持人张蕾三人对谈，聊刘震云的新书《咸的玩笑》。
+报道称，自特朗普开启第二个任期以来，OpenAI首席执行官Sam Altman曾与特朗普政府高级官员定期讨论过这一想法。
 
-雷军提起2013年和董明珠的赌局 雷军谈如何理解刘震云的新书《咸的玩笑》，说到自己人生里最贴合“咸的玩笑”的经历，主动提起2013年和董明珠的这场赌局。
+据报道，Altman早在2025年初就直接向特朗普提出了这一概念；最近几周，他又与高级官员再次讨论了此事。
 
-“2013年我参加央视一个活动，我跟格力的董明珠董大姐打了个赌，本来就打个赌，本来开玩笑，后来麻烦了，董大姐当真了。
+讨论的重点在于由这些公司自愿向政府让渡股份。
 
-” 后果超出预期。
+投资回报可用于公共用途，例如向所有美国家庭发放股息。
 
-“董大姐在很多场合讲得都特别特别难听，我就不服了。
+白宫发言人拒绝就此事发表评论。
 
-”雷军说，后来董明珠甚至说她要做手机。
-
-“那在这种局面下，我们压力很大，后来我们就做了空调。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 18:04 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 17:59 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-29 18:03 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 17:59 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-29 17:46 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-29 17:59 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-29 18:03 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 18:02 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-29 18:03 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-29 17:59 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 18:16 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 18:11 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 18:02 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 18:13 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-29 18:01 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-29 18:08 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 17:48 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 18:17 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-29 18:06 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 18:11 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 18:16 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 18:00 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-29 17:59 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 17:50 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:50 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.share.kurohicncr.top/Article/details/0171373563.shtml)
-- 2026-06-29 17:44 - [NBA交易](https://www.share.kurohicncr.top/Article/details/4732634912.shtml)
-- 2026-06-29 17:55 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.minike.top/Article/details/2024093342.shtml)
-- 2026-06-29 18:09 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/596496566846.shtml)
-- 2026-06-29 18:04 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/3399749313.shtml)
-- 2026-06-29 17:45 - [央视曝光涉黄App诈骗陷阱](https://www.blog.minike.top/Article/details/649586363205.shtml)
-- 2026-06-29 17:54 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/82887186.shtml)
-- 2026-06-29 18:07 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/39622926.shtml)
-- 2026-06-29 17:53 - [韩国队启程回国 全员羞愧低头](https://www.blog.minike.top/Article/details/481026709.shtml)
-- 2026-06-29 17:42 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/322887971.shtml)
-- 2026-06-29 17:52 - [货车司机雨中帮交警挪树获表扬](https://www.blog.kurohicncr.top/Article/details/16007151507.shtml)
-- 2026-06-29 17:49 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/27681076682.shtml)
-- 2026-06-29 18:00 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/109191764331.shtml)
-- 2026-06-29 17:43 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/910999188.shtml)
-- 2026-06-29 18:09 - [四川地震前夕 街头电线上站满燕子](http://www.blog.minike.top/Article/details/32592717539.shtml)
+- 2026-06-29 17:57 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/088829.shtml)
+- 2026-06-29 17:54 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/7025704.shtml)
+- 2026-06-29 17:51 - [白玉兰答谢宴合影](https://www.share.kurohicncr.top/Article/details/837498.shtml)
+- 2026-06-29 17:50 - [看大国重器“云端穿针引线”](http://www.share.minike.top/Article/details/048410.shtml)
+- 2026-06-29 18:10 - [一台空调背后的全球化逻辑](https://www.share.kurohicncr.top/Article/details/444080583.shtml)
+- 2026-06-29 18:17 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.kurohicncr.top/Article/details/55393.shtml)
+- 2026-06-29 18:15 - [张雪机车杀向海外](https://www.share.minike.top/Article/details/86149443606.shtml)
+- 2026-06-29 18:13 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.kurohicncr.top/Article/details/255389260.shtml)
+- 2026-06-29 17:49 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/547420595317.shtml)
+- 2026-06-29 18:02 - [笔记本电脑一年涨价近一倍](https://www.blog.kurohicncr.top/Article/details/301246.shtml)
+- 2026-06-29 17:52 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/822627462603.shtml)
+- 2026-06-29 18:09 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.kurohicncr.top/Article/details/57390573933.shtml)
+- 2026-06-29 18:03 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/1853490.shtml)
+- 2026-06-29 18:03 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/876092548715.shtml)
+- 2026-06-29 18:07 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/33859174305.shtml)

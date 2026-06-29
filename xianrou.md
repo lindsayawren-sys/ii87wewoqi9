@@ -1,59 +1,58 @@
-# （乡村行·看振兴）两人可养30万只鸡 河南西平智能鸡舍走俏海内外
+# 山东部署民主党派、无党派人士民主监督工作 推动黄河流域生态保护和高质量发展
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-中新网驻马店6月22日电 (记者 韩章云)“这些设备能节约土地、人力，提高生产效率，我很感兴趣。”盛夏时节，埃及经销商海赛姆再次来到河南省驻马店市西平县考察智能化养鸡设备。 20世纪80年代，当地依托畜禽养殖传统，从家庭小作坊加工简易鸡笼起步，如今，西平发展成中国规模最大的畜禽养殖设备生产基地，年产值超40亿元人民币。 海赛姆每年往返中国3次，将西平制造的畜牧设备销往埃及以及非
+中新网济南6月4日电(吕妍)各民主党派山东省委会、无党派人士黄河流域生态保护和高质量发展民主监督工作部署会6月4日在济南召开。山东省委常委、统战部部长邓云锋出席会议并讲话。山东省副省长温暖主持会议。 邓云锋表示，各民主党派、无党派人士要不断增强开展民主监督工作的责任感和使命感，精准对标黄河重大国家战略的目标任务，以多党合作所长服务中心大局所需。要准确把握民主监督方向，细化对口民
 
 ## 正文
 
-中新网驻马店6月22日电 (记者 韩章云)“这些设备能节约土地、人力，提高生产效率，我很感兴趣。
+中新网济南6月4日电(吕妍)各民主党派山东省委会、无党派人士黄河流域生态保护和高质量发展民主监督工作部署会6月4日在济南召开。
 
-”盛夏时节，埃及经销商海赛姆再次来到河南省驻马店市西平县考察智能化养鸡设备。
+山东省委常委、统战部部长邓云锋出席会议并讲话。
 
-20世纪80年代，当地依托畜禽养殖传统，从家庭小作坊加工简易鸡笼起步，如今，西平发展成中国规模最大的畜禽养殖设备生产基地，年产值超40亿元人民币。
+山东省副省长温暖主持会议。
 
-海赛姆每年往返中国3次，将西平制造的畜牧设备销往埃及以及非洲地区。
+邓云锋表示，各民主党派、无党派人士要不断增强开展民主监督工作的责任感和使命感，精准对标黄河重大国家战略的目标任务，以多党合作所长服务中心大局所需。
 
-近日，记者跟随海赛姆走进当地的某畜牧设备生产企业考察，该企业生产的超高层恒温养鸡设备吸引了他的注意。
+要准确把握民主监督方向，细化对口民主监督安排，突出监督重点，丰富监督形式，着力提升监督质效。
 
-“依靠这套智能养殖系统，两个人可养30万只鸡。
+要与开展“参政为公、实干为民”主题教育、履行参政党职能、加强自身建设相结合，更好发挥中国新型政党制度效能。
 
-”该企业外联部总监谢向丽在生产车间指着即将出口中东地区的超高层恒温养鸡设备介绍道，该套设备共12层、高10米，鸡舍上下温差控制在1℃以内，集成喂饮、清粪、集蛋、环境监测、故障报警等全流程功能，工人通过中控大屏或手机终端可远程监控养鸡。
+各级各有关部门要加强统筹协调，明确职责分工，凝聚工作合力，支持配合民主党派中央、无党派人士开展对口民主监督工作，更好助力山东省在推动黄河流域生态保护和高质量发展上走在前。
 
-除了上述智能养殖系统，禽舍智能巡检机器人、智能抓鸡机器人同样吸引海赛姆的目光。
+会议以视频会议形式在沿黄9市设分会场。
 
 ## 相关推荐
 
-- 2026-06-29 18:08 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-29 17:56 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 17:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-29 17:58 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-29 17:43 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 17:46 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-29 18:09 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 18:11 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-29 18:05 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-29 18:11 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 18:01 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-29 17:53 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 17:46 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-29 18:01 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-29 18:02 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 18:10 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 17:59 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 18:04 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 17:50 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-29 18:14 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 18:04 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 17:59 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 18:08 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 18:09 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-29 18:12 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:47 - [博主：AI泡沫必须破灭](https://www.share.minike.top/Article/details/34348497.shtml)
-- 2026-06-29 18:08 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/26076662293.shtml)
-- 2026-06-29 17:52 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/943036.shtml)
-- 2026-06-29 17:58 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/2438669359.shtml)
-- 2026-06-29 17:52 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/45285733240.shtml)
-- 2026-06-29 18:10 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/69226228403.shtml)
-- 2026-06-29 18:02 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/583672.shtml)
-- 2026-06-29 17:47 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/829303013.shtml)
-- 2026-06-29 17:55 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.minike.top/Article/details/89868498.shtml)
-- 2026-06-29 17:42 - [白玉兰答谢宴合影](https://www.share.kurohicncr.top/Article/details/178531188.shtml)
-- 2026-06-29 18:09 - [T1 KC](https://www.blog.minike.top/Article/details/527452884318.shtml)
-- 2026-06-29 18:00 - [中国战机大片上新](http://www.blog.kurohicncr.top/Article/details/244551.shtml)
-- 2026-06-29 17:59 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/22184.shtml)
-- 2026-06-29 18:03 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.kurohicncr.top/Article/details/352870185912.shtml)
-- 2026-06-29 18:09 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/630975658006.shtml)
+- 2026-06-29 18:07 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/6259192549.shtml)
+- 2026-06-29 17:54 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/6981791.shtml)
+- 2026-06-29 17:52 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.minike.top/Article/details/130532421.shtml)
+- 2026-06-29 18:08 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.minike.top/Article/details/613237303036.shtml)
+- 2026-06-29 17:57 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/66826142859.shtml)
+- 2026-06-29 18:10 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/92830540.shtml)
+- 2026-06-29 18:05 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/17385.shtml)
+- 2026-06-29 17:48 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/575707.shtml)
+- 2026-06-29 17:49 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/515566.shtml)
+- 2026-06-29 18:00 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/37178657.shtml)
+- 2026-06-29 17:48 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/80253.shtml)
+- 2026-06-29 18:15 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/8417215555.shtml)
+- 2026-06-29 18:16 - [四川地震前夕 街头电线上站满燕子](http://www.share.kurohicncr.top/Article/details/222921904.shtml)
+- 2026-06-29 17:57 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/51015613095.shtml)
+- 2026-06-29 18:10 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/409665546168.shtml)

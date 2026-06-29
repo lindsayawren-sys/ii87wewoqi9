@@ -1,61 +1,61 @@
-# 中国国家能源集团发电总装机突破4亿千瓦
+# 华北黄淮等地将有较强降水 南方地区将再现强降水过程
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-中新社北京6月22日电 (陶思阅)中国国家能源集团22日发布消息称，随着龙源电力海南东方启源海风场9号机组成功并网发电，集团发电总装机容量突破4亿千瓦。其中，可再生能源装机占比超41%。 近年来，随着中国经济社会快速发展和人民生活水平持续提升，全社会用电总量不断攀升，2025年用电量首超10万亿千瓦时，为全球首次。目前，全国发电总装机约40亿千瓦，国家能源集团装机规模约占全国总
+中新网6月5日电 据中央气象台网站消息，昨日，云南、湖南、浙江、吉林、黑龙江等地出现大到暴雨，局地大暴雨，河北、陕西等地出现雷暴大风。预计5日，华南、华北南部、东北地区东部等地有较强降雨，关注局地强降雨可能引发的次生灾害，6日夜间起，南方地区将有新一轮大范围降雨过程，关注降雨叠加影响，以及对高考、农业生产等的影响。关注南海热带低压发展趋势，东海、南海相关海域及东南沿海防范大风影
 
 ## 正文
 
-中新社北京6月22日电 (陶思阅)中国国家能源集团22日发布消息称，随着龙源电力海南东方启源海风场9号机组成功并网发电，集团发电总装机容量突破4亿千瓦。
+中新网6月5日电 据中央气象台网站消息，昨日，云南、湖南、浙江、吉林、黑龙江等地出现大到暴雨，局地大暴雨，河北、陕西等地出现雷暴大风。
 
-其中，可再生能源装机占比超41%。
+预计5日，华南、华北南部、东北地区东部等地有较强降雨，关注局地强降雨可能引发的次生灾害，6日夜间起，南方地区将有新一轮大范围降雨过程，关注降雨叠加影响，以及对高考、农业生产等的影响。
 
-近年来，随着中国经济社会快速发展和人民生活水平持续提升，全社会用电总量不断攀升，2025年用电量首超10万亿千瓦时，为全球首次。
+关注南海热带低压发展趋势，东海、南海相关海域及东南沿海防范大风影响。
 
-目前，全国发电总装机约40亿千瓦，国家能源集团装机规模约占全国总量的十分之一。
+华北黄淮等地将有较强降水 6月5日至6日，西北地区东部、华北、黄淮、东北地区东部、江南东南部、华南北部等地部分地区有大到暴雨，局地大暴雨，并伴有短时强降水或雷暴大风等强对流天气。
 
-此次投产的海南东方海上风电项目创新采用“差异化施工”工艺，攻克复杂地质瓶颈，在海缆施工环节，融合非开挖定向钻与无人机磁场探测技术，用时31天完成两根1536米保护管敷设。
+中央气象台6月5日6时继续发布暴雨蓝色预警：预计，6月5日8时至6日8时，黑龙江东部、吉林东北部、甘肃东部、陕西北部、山西中南部、河北中南部、广西中部和东北部、福建中东部、台湾岛等地部分地区有大到暴雨，其中，吉林东部、福建东南部、台湾岛南部等地部分地区有大暴雨(100～130毫米)。
 
-据介绍，该集团已建成多个百万千瓦级风电集群，形成覆盖中国西北、华北、东北等区域的大规模风电基地；光伏装机实现跨越式增长，在西北沙漠、戈壁、荒漠地区布局多个大型光伏基地；在大渡河、金沙江、开都河等流域推进水电梯级成组开发。
+上述部分地区伴有短时强降水(最大小时降雨量20～50毫米，局地可超过60毫米)，局地有雷暴大风等强对流天气。
 
-装机规模持续提升的同时，能源生产到运输消费的全链条协同体系建成，形成了强健、稳定、可靠的能源保供能力。
+南方地区将再次出现强降水过程 6月6日至9日，西南地区东部、江南、华南将再次出现强降雨过程，部分地区有大到暴雨，局地大暴雨，并伴有强对流天气。
 
-国家能源集团发电量连续两年突破1.2万亿千瓦时，年供热量5.7亿吉焦。
+国内未来三天具体预报 6月5日8时至6日8时，东北地区东部、新疆南疆西部山区、西北地区东北部、华北大部、黄淮东北部、江南东部和南部、华南中北部和西南部、台湾岛等地部分地区有中到大雨，其中，黑龙江东南部、吉林东北部、陕西北部、山西中南部、河北中南部、福建东南部、台湾岛南部等地部分地区有暴雨或大暴雨(100～130毫米)。
 
 ## 相关推荐
 
-- 2026-06-29 18:10 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 17:52 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-29 17:56 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-29 17:44 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 17:56 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-29 17:59 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-29 18:10 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-29 17:51 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 18:05 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 17:44 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 18:03 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 17:49 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 17:58 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 17:44 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 17:46 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-29 18:15 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 18:05 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 18:11 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-29 17:51 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-29 18:03 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-29 18:14 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 18:07 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 18:16 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 18:03 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 18:07 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 17:54 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 18:04 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 18:12 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-29 18:00 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-29 17:48 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:58 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/15298921207.shtml)
-- 2026-06-29 17:47 - [内马尔打日本前先买百万美元豪表](http://www.blog.kurohicncr.top/Article/details/39708599.shtml)
-- 2026-06-29 18:09 - [AG 宫斗](https://www.blog.minike.top/Article/details/21773702578.shtml)
-- 2026-06-29 17:42 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/09712092467.shtml)
-- 2026-06-29 17:53 - [白宇摘下白玉兰送给杨幂](http://www.share.minike.top/Article/details/95301121540.shtml)
-- 2026-06-29 18:11 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/577739532.shtml)
-- 2026-06-29 18:07 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/35243510802.shtml)
-- 2026-06-29 17:50 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/0591588379.shtml)
-- 2026-06-29 18:05 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/353812194.shtml)
-- 2026-06-29 18:08 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/6993140.shtml)
-- 2026-06-29 17:57 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/845655266.shtml)
-- 2026-06-29 18:00 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.share.kurohicncr.top/Article/details/448299521854.shtml)
-- 2026-06-29 17:46 - [花万元相亲对象是50元雇的演员](https://www.blog.kurohicncr.top/Article/details/25521.shtml)
-- 2026-06-29 17:52 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/666972278466.shtml)
-- 2026-06-29 18:03 - [韩国队出局是因为内讧吗](https://www.blog.minike.top/Article/details/17873778.shtml)
+- 2026-06-29 17:53 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/592035218351.shtml)
+- 2026-06-29 18:13 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/07593.shtml)
+- 2026-06-29 18:07 - [啊啊啊](https://www.share.minike.top/Article/details/80099578466.shtml)
+- 2026-06-29 18:06 - [T1 KC](https://www.blog.minike.top/Article/details/317874.shtml)
+- 2026-06-29 18:16 - [媒体：中国田径压力与期待并存](http://www.blog.minike.top/Article/details/8515865.shtml)
+- 2026-06-29 18:16 - [未成年少女长期吸毒导致卧床不起](http://www.blog.kurohicncr.top/Article/details/402613859.shtml)
+- 2026-06-29 18:15 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/468097608896.shtml)
+- 2026-06-29 17:57 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/752457723.shtml)
+- 2026-06-29 18:08 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/08462769400.shtml)
+- 2026-06-29 18:12 - [当地回应林区违规放羊遭豹啃食](https://www.share.kurohicncr.top/Article/details/60626833477.shtml)
+- 2026-06-29 18:02 - [1个视频看懂2026志愿填报新专业](https://www.share.kurohicncr.top/Article/details/03196933.shtml)
+- 2026-06-29 17:52 - [范志毅看好日本淘汰巴西](https://www.blog.kurohicncr.top/Article/details/331900.shtml)
+- 2026-06-29 18:08 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/6097045916.shtml)
+- 2026-06-29 18:13 - [欧洲人买空调难点在哪](https://www.share.kurohicncr.top/Article/details/04805.shtml)
+- 2026-06-29 17:54 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/86889869900.shtml)

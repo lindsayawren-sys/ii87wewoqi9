@@ -1,59 +1,57 @@
-# 美伊在瑞士开始谈判 万斯：预计将取得更多进展
+# 银河基金迎来新任副总陈勇 跨券商、投行、基金复合背景加持
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-中新网6月21日电 据卡塔尔半岛电视台报道，当地时间21日，卡塔尔外交部宣布，美国与伊朗代表团已开始在瑞士展开谈判。 这是美伊签署谅解备忘录后的首轮会谈。伊朗代表团包括伊朗外长阿拉格齐、伊朗伊斯兰议会议长卡利巴夫等人。美国方面，副总统万斯、总统特使威特科夫和美国总统特朗普的女婿库什纳参加谈判。 据英国天空电视台等多家外媒报道，万斯在瑞士表示，美伊面对面会谈是一次“历史性”的会议
+6月5日，银河基金发布关于高级管理人员变更的公告，新任陈勇为副总经理，任职日期2026年6月3日。此次高管补强，有望为公司投研及管理团队注入新的经验与活力。 副总经理陈勇履历丰富：横跨券商、投行、基金领域 公开资料显示，陈勇拥有扎实的金融从业履历。早年，他先后任职于哈尔滨证券公司友谊路证券营业部、和平路证券营业部、联合证券公司哈尔滨和平路证券营业部，从基层技术岗起步，逐步走向管
 
 ## 正文
 
-中新网6月21日电 据卡塔尔半岛电视台报道，当地时间21日，卡塔尔外交部宣布，美国与伊朗代表团已开始在瑞士展开谈判。
+6月5日，银河基金发布关于高级管理人员变更的公告，新任陈勇为副总经理，任职日期2026年6月3日。
 
-这是美伊签署谅解备忘录后的首轮会谈。
+此次高管补强，有望为公司投研及管理团队注入新的经验与活力。
 
-伊朗代表团包括伊朗外长阿拉格齐、伊朗伊斯兰议会议长卡利巴夫等人。
+副总经理陈勇履历丰富：横跨券商、投行、基金领域 公开资料显示，陈勇拥有扎实的金融从业履历。
 
-美国方面，副总统万斯、总统特使威特科夫和美国总统特朗普的女婿库什纳参加谈判。
+早年，他先后任职于哈尔滨证券公司友谊路证券营业部、和平路证券营业部、联合证券公司哈尔滨和平路证券营业部，从基层技术岗起步，逐步走向管理岗位。
 
-据英国天空电视台等多家外媒报道，万斯在瑞士表示，美伊面对面会谈是一次“历史性”的会议。
+此后，他加入中国银河证券股份有限公司，在投资银行总部及总裁办秘书处、总裁办等多个核心部门任职，积累了深厚的投行与行政管理经验。
 
-万斯称，“在过去几个小时内，我们已经取得了巨大的进展，预计在接下来的几个小时内我们将取得更多进展。
+随后，陈勇转战中国银河金融控股有限责任公司，担任战略发展部执行总经理。
 
-”据报道，伊朗方面称，其主要目标是确保各方全面落实结束战事的临时协议。
+在银河基金管理有限公司，他曾任党委委员、副总经理，后任大成基金管理有限公司监事长。
 
-据此前报道，截至当地时间21日中午，已有多场双边会谈在瑞士中部下瓦尔登州的比尔根山举行，为美国和伊朗谈判做技术性准备。
+此次回归银河基金出任副总经理，可谓“老将归来”，熟悉公司文化与业务脉络，有望更快发挥效能。
 
 ## 相关推荐
 
-- 2026-06-29 17:58 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-29 18:03 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-29 17:47 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 18:09 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-29 17:48 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-29 18:06 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 18:05 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-29 18:03 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-29 18:11 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 17:46 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-29 18:09 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 17:46 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-29 17:57 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-29 17:57 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 18:04 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 18:06 - [花万元相亲对象是50元雇的演员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 18:11 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 17:48 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 17:48 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 18:15 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 18:02 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-29 17:55 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 18:06 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-29 17:51 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:07 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.kurohicncr.top/Article/details/9164002162.shtml)
-- 2026-06-29 18:01 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/057549751811.shtml)
-- 2026-06-29 17:57 - [沙特外交大臣将访华](http://www.share.minike.top/Article/details/0040477602.shtml)
-- 2026-06-29 17:51 - [滚石点名酒店员工说有急救培训](https://www.share.kurohicncr.top/Article/details/980828.shtml)
-- 2026-06-29 17:49 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/90400793363.shtml)
-- 2026-06-29 18:09 - [未成年少女长期吸毒导致卧床不起](http://www.blog.kurohicncr.top/Article/details/6952965.shtml)
-- 2026-06-29 18:09 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.kurohicncr.top/Article/details/94468338446.shtml)
-- 2026-06-29 17:48 - [金刚川](https://www.share.minike.top/Article/details/80554684.shtml)
-- 2026-06-29 18:07 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.share.kurohicncr.top/Article/details/72260.shtml)
-- 2026-06-29 18:11 - [TTG KSG](https://www.share.kurohicncr.top/Article/details/6244176429.shtml)
-- 2026-06-29 17:59 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/9114551.shtml)
-- 2026-06-29 17:51 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/00249897.shtml)
-- 2026-06-29 18:03 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/35761524.shtml)
-- 2026-06-29 17:57 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/40832018.shtml)
-- 2026-06-29 18:02 - [恋与深空道歉就够了吗](https://www.blog.kurohicncr.top/Article/details/49117.shtml)
+- 2026-06-29 18:02 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/8794603465.shtml)
+- 2026-06-29 18:03 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/10698962.shtml)
+- 2026-06-29 18:14 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/7457286274.shtml)
+- 2026-06-29 18:12 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/796259374.shtml)
+- 2026-06-29 18:12 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/391673380.shtml)
+- 2026-06-29 17:48 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/2914820.shtml)
+- 2026-06-29 18:09 - [依法管制阻遏日方军事化危险动向](http://www.share.minike.top/Article/details/485380.shtml)
+- 2026-06-29 18:14 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/387890061967.shtml)
+- 2026-06-29 18:05 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/1734333.shtml)
+- 2026-06-29 18:13 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/92479430.shtml)
+- 2026-06-29 17:53 - [张雪机车杀向海外](http://www.blog.minike.top/Article/details/588729129318.shtml)
+- 2026-06-29 17:56 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/43056586811.shtml)
+- 2026-06-29 17:53 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.minike.top/Article/details/423614025236.shtml)
+- 2026-06-29 18:01 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/62229066.shtml)
+- 2026-06-29 18:07 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/9093741176.shtml)

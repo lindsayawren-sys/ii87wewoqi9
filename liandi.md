@@ -1,51 +1,43 @@
-# 金融法草案首次提请全国人大常委会会议审议
+# 国务院食安办成立工作组督导查处“望奎双汇猪肉抗生素超标问题”
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-原标题：新华社权威快报|金融法草案首次提请全国人大常委会会议审议 2026年6月23日，《中华人民共和国金融法(草案)》提请十四届全国人大常委会第二十三次会议首次审议。 金融法是我国金融领域管总的基础性、综合性、统领性法律，定位于金融法律体系中的“1”，发挥指导、统领、规范作用。银行、保险、证券等领域的法律“N”以及其他金融法律法规“X”，需与“1”确定的基本规定对标对表、立修
+中新网6月5日电 据“市说新语”微信公众号消息，针对近日媒体反映的“望奎双汇猪肉抗生素超标问题”，国务院食安办高度重视，会同公安部、农业农村部、市场监管总局成立工作组，赴实地督促指导核查处置工作，严肃查处违法违规行为，切实守牢食用农产品质量安全底线。
 
 ## 正文
 
-原标题：新华社权威快报|金融法草案首次提请全国人大常委会会议审议 2026年6月23日，《中华人民共和国金融法(草案)》提请十四届全国人大常委会第二十三次会议首次审议。
-
-金融法是我国金融领域管总的基础性、综合性、统领性法律，定位于金融法律体系中的“1”，发挥指导、统领、规范作用。
-
-银行、保险、证券等领域的法律“N”以及其他金融法律法规“X”，需与“1”确定的基本规定对标对表、立修并重，具体规范各领域的金融活动，“1+N+X”共同构建科学完备统一的金融法律体系。
-
-金融法草案坚持强监管、防风险、促高质量发展的主题主线，注重统筹发展和安全，着力解决制约金融高质量发展中的法治难题。
-
-记者：李延霞、张千千 海报制作：张千千 新华社国内部出品
+中新网6月5日电 据“市说新语”微信公众号消息，针对近日媒体反映的“望奎双汇猪肉抗生素超标问题”，国务院食安办高度重视，会同公安部、农业农村部、市场监管总局成立工作组，赴实地督促指导核查处置工作，严肃查处违法违规行为，切实守牢食用农产品质量安全底线。
 
 ## 相关推荐
 
-- 2026-06-29 17:52 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 18:00 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 17:55 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-29 17:50 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 17:56 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 17:43 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 18:11 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-29 17:44 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-29 17:48 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 17:55 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-29 17:57 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-29 18:15 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-29 17:50 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 17:52 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 17:52 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 17:53 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-29 18:04 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 18:12 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 18:10 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 17:59 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-29 18:02 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-29 17:48 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:44 - [直击委内瑞拉加拉加斯救援现场](https://www.share.minike.top/Article/details/2991576.shtml)
-- 2026-06-29 17:51 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.kurohicncr.top/Article/details/1478990284.shtml)
-- 2026-06-29 17:43 - [业内：全球市场迎来结构性投资窗口](http://www.share.kurohicncr.top/Article/details/53261805202.shtml)
-- 2026-06-29 17:51 - [直击委内瑞拉加拉加斯救援现场](http://www.share.kurohicncr.top/Article/details/30337.shtml)
-- 2026-06-29 17:44 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/33747.shtml)
-- 2026-06-29 17:49 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/44236698493.shtml)
-- 2026-06-29 17:59 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/69739005.shtml)
-- 2026-06-29 17:58 - [王安宇尊重田曦薇的一切选择](http://www.share.minike.top/Article/details/6486839128.shtml)
-- 2026-06-29 17:51 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/87195653364.shtml)
-- 2026-06-29 18:09 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/228994786366.shtml)
-- 2026-06-29 18:11 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/759251.shtml)
-- 2026-06-29 17:48 - [TLAW零封DCG MSI](https://www.share.kurohicncr.top/Article/details/489568.shtml)
-- 2026-06-29 17:53 - [明星大侦探第一季](https://www.share.minike.top/Article/details/46602996106.shtml)
-- 2026-06-29 18:01 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/4755935613.shtml)
-- 2026-06-29 18:04 - [博主：黄金和原油回落不等于风险消失](https://www.blog.minike.top/Article/details/7178408.shtml)
+- 2026-06-29 18:09 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/943444701.shtml)
+- 2026-06-29 18:12 - [中国战机大片上新](https://www.blog.minike.top/Article/details/7228360.shtml)
+- 2026-06-29 18:11 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/372385661.shtml)
+- 2026-06-29 18:01 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/603584926.shtml)
+- 2026-06-29 18:02 - [流金岁月](https://www.blog.minike.top/Article/details/616291.shtml)
+- 2026-06-29 18:10 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/307856068381.shtml)
+- 2026-06-29 17:56 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/992773.shtml)
+- 2026-06-29 17:52 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/594758.shtml)
+- 2026-06-29 18:08 - [世界杯预测史上最不吃压力之物](http://www.blog.minike.top/Article/details/901113447535.shtml)
+- 2026-06-29 18:16 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.minike.top/Article/details/876295421.shtml)
+- 2026-06-29 18:12 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/9206486890.shtml)
+- 2026-06-29 18:18 - [互助版模拟高考志愿填报](https://www.blog.kurohicncr.top/Article/details/603404523.shtml)
+- 2026-06-29 18:14 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/9357436300.shtml)
+- 2026-06-29 17:52 - [税务总局披露5起合规申报个税案例](https://www.blog.minike.top/Article/details/006265.shtml)
+- 2026-06-29 18:05 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/228048.shtml)

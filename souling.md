@@ -1,60 +1,58 @@
-# 【讲习所】跨越山海的牵挂
+# Anthropic联合创始人称高昂的AI模型开发成本推动公司寻求上市
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-“在世界各地有几千万海外侨胞，大家都是中华大家庭的成员。”长期以来，中共中央总书记、国家主席习近平一直心系海外华侨华人。无论是在地方，还是到了中央，习近平对海外华侨华人的关心、帮助与惦念，跨越山海，成为人们心中温暖感怀的美好记忆。 “我到福建16年，工作中都有一个‘侨’字” 福建是著名侨乡，如今，约有2000万闽籍华侨华人，遍布世界190多个国家和地区。 在闽工作期间，习近平高
+Anthropic PBC联合创始人兼总裁Daniela Amodei表示，开发人工智能模型的高昂成本正迫使像Anthropic这样的公司寻求上市融资。几天前，这家人工智能工具Claude的制造商保密提交了IPO注册文件草案。 “训练人工智能模型是一项高度资本密集型的业务，”Amodei周四在彭博科技大会上被问及像Anthropic这样的公司上市的利弊时说道。她补充说，公开市场
 
 ## 正文
 
-“在世界各地有几千万海外侨胞，大家都是中华大家庭的成员。
+Anthropic PBC联合创始人兼总裁Daniela Amodei表示，开发人工智能模型的高昂成本正迫使像Anthropic这样的公司寻求上市融资。
 
-”长期以来，中共中央总书记、国家主席习近平一直心系海外华侨华人。
+几天前，这家人工智能工具Claude的制造商保密提交了IPO注册文件草案。
 
-无论是在地方，还是到了中央，习近平对海外华侨华人的关心、帮助与惦念，跨越山海，成为人们心中温暖感怀的美好记忆。
+“训练人工智能模型是一项高度资本密集型的业务，”Amodei周四在彭博科技大会上被问及像Anthropic这样的公司上市的利弊时说道。
 
-“我到福建16年，工作中都有一个‘侨’字” 福建是著名侨乡，如今，约有2000万闽籍华侨华人，遍布世界190多个国家和地区。
+她补充说，公开市场“非常适合这种情况”。
 
-在闽工作期间，习近平高度重视“引侨、引台、引外”工作。
+Anthropic一度被视为OpenAI的追赶者，但却抢先一步推进IPO进程。
 
-1990年10月底，离乡多年的侨领林绍良率队来闽进行经济考察，在福州受到时任福州市委书记习近平的热情接待。
+据早前报道，OpenAI计划在未来几周内提交IPO申请。
 
-林绍良表达了自己的期待，希望福建改革开放方面的政策更加健全些。
+两家公司都计划最早于今年秋季上市。
 
-1991年8月，习近平带领考察组访问印度尼西亚，专程拜访了林绍良。
+Anthropic总裁兼联合创始人Daniela Amodei在旧金山举行的2026年彭博科技大会上与彭博的Shirin Ghaffary讨论了最新的模型开发、商业化战略以及与美国政府的当前关系。
 
 ## 相关推荐
 
-- 2026-06-29 17:59 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-29 17:55 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-29 18:06 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-29 18:01 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 18:02 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 17:58 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-29 17:52 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-29 18:04 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-29 17:43 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 17:46 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 17:47 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 17:51 - [许建琼任湖南省检察院副检察长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 18:07 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-29 17:51 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 18:05 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-29 17:52 - [日本偶像龟梨和也宣布结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 18:12 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-29 17:50 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-29 18:00 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 18:12 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-29 17:51 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-29 17:58 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 18:04 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 18:16 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-29 18:13 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-29 17:57 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:46 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.kurohicncr.top/Article/details/00342001.shtml)
-- 2026-06-29 18:02 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/0727224.shtml)
-- 2026-06-29 17:47 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/9929720.shtml)
-- 2026-06-29 18:05 - [起风了](http://www.share.kurohicncr.top/Article/details/44206.shtml)
-- 2026-06-29 17:44 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/30440.shtml)
-- 2026-06-29 18:00 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/57271162.shtml)
-- 2026-06-29 18:08 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/6570001008.shtml)
-- 2026-06-29 18:09 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/57670512.shtml)
-- 2026-06-29 17:42 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/20986.shtml)
-- 2026-06-29 17:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/25154.shtml)
-- 2026-06-29 18:07 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/6389875123.shtml)
-- 2026-06-29 18:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/03422717827.shtml)
-- 2026-06-29 17:44 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/0670082284.shtml)
-- 2026-06-29 18:03 - [毛朝晖任湖南省农业农村厅厅长](https://www.share.kurohicncr.top/Article/details/26320223793.shtml)
-- 2026-06-29 18:03 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/16241015764.shtml)
+- 2026-06-29 17:52 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/59244.shtml)
+- 2026-06-29 17:54 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/65495304.shtml)
+- 2026-06-29 18:12 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/051604.shtml)
+- 2026-06-29 18:06 - [千与千寻](http://www.blog.minike.top/Article/details/7017210563.shtml)
+- 2026-06-29 18:11 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/506099997.shtml)
+- 2026-06-29 17:58 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/60077985987.shtml)
+- 2026-06-29 17:49 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.share.kurohicncr.top/Article/details/54100.shtml)
+- 2026-06-29 17:56 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/62245170053.shtml)
+- 2026-06-29 18:14 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/797347.shtml)
+- 2026-06-29 17:49 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/370678209.shtml)
+- 2026-06-29 18:07 - [千与千寻](https://www.blog.minike.top/Article/details/4889673.shtml)
+- 2026-06-29 17:54 - [韩剧编剧又升级了](https://www.share.minike.top/Article/details/9912619.shtml)
+- 2026-06-29 18:09 - [学者：建设性战略稳定重塑中美关系](https://www.blog.minike.top/Article/details/11542605.shtml)
+- 2026-06-29 18:01 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/506106140.shtml)
+- 2026-06-29 18:11 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/854874531.shtml)

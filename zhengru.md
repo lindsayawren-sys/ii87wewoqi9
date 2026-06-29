@@ -1,56 +1,58 @@
-# 现货黄金持续下挫，大摩仍看好长线行情
+# 日本图谋扩军，又拿“周边威胁”作幌子
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-截至13：52，现货黄金报4119.27美元/盎司，日内大跌61.60美元，跌幅1.47%。宏观面多空交织：美联储6月维持利率3.75%不变，但点阵图显示年内仍有加息可能，美债10年期收益率上行施压无息资产黄金。但中东地缘局势持续紧张、全球央行购金趋势未改，金价下方支撑依然牢固。上期所黄金库存111639千克，周减少24千克，维持平稳。 市场资金面上，COMEX黄金期货持仓维持
+日本图谋扩军，又拿“周边威胁”作幌子(钟声) 炒作“周边威胁”是日本军国主义惯用的伎俩。日本军事扩张动作不断，正对东北亚乃至整个亚太安全格局造成多重冲击 近日，日本媒体披露高市早苗政府任内首份《防卫白皮书》草案内容。草案大肆渲染所谓中国国力发展带来的安全挑战，将中方在太平洋的正常活动歪曲为“安全威胁”。炒作“周边威胁”是日本军国主义的惯用伎俩，这套陈旧说辞再次清晰暴露了日本右翼
 
 ## 正文
 
-截至13：52，现货黄金报4119.27美元/盎司，日内大跌61.60美元，跌幅1.47%。
+日本图谋扩军，又拿“周边威胁”作幌子(钟声) 炒作“周边威胁”是日本军国主义惯用的伎俩。
 
-宏观面多空交织：美联储6月维持利率3.75%不变，但点阵图显示年内仍有加息可能，美债10年期收益率上行施压无息资产黄金。
+日本军事扩张动作不断，正对东北亚乃至整个亚太安全格局造成多重冲击 近日，日本媒体披露高市早苗政府任内首份《防卫白皮书》草案内容。
 
-但中东地缘局势持续紧张、全球央行购金趋势未改，金价下方支撑依然牢固。
+草案大肆渲染所谓中国国力发展带来的安全挑战，将中方在太平洋的正常活动歪曲为“安全威胁”。
 
-上期所黄金库存111639千克，周减少24千克，维持平稳。
+炒作“周边威胁”是日本军国主义的惯用伎俩，这套陈旧说辞再次清晰暴露了日本右翼势力加速军事扩张、推动安保政策全面转向的真实意图。
 
-市场资金面上，COMEX黄金期货持仓维持高位，ETF持仓近期小幅流入，黄金避险资产属性持续获得资金认可。
+草案使用“安全威胁”“警惕”“十分担忧”等表述，继续编造所谓“中国威胁论”的虚假论调。
 
-摩根士丹利表示，如果没有ETF资金流入的显著回升，其关于下半年金价达到5200美元的看涨目标将变得更加难以实现。
+中华民族历来崇尚和平，新中国成立后，中国始终不渝走和平发展道路，坚定奉行防御性国防政策，坚决反对任何形式的霸权主义、侵略扩张和军备竞赛。
 
-摩根士丹利仍看好黄金的长期前景，因为中东紧张局势缓和以及油价下跌有助于缓解对通胀的担忧。
+中国有限的国防支出完全是捍卫国家主权安全发展利益的需要，是维护世界和平的需要。
 
-不过，美联储在最近一次会议上措辞偏鹰，强化了利率将在更长时间内维持高位的预期，增加了持有黄金等不生息资产的机会成本。
+日方将一个始终坚持走和平发展道路的国家刻意塑造成“安全威胁”，既违背客观事实，也与亚太各国求和平、谋合作、促发展的主流愿望背道而驰。
 
 ## 相关推荐
 
-- 2026-06-29 18:08 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-29 17:50 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-29 18:07 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-29 17:43 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 17:47 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-29 17:59 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-29 17:45 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-29 17:55 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 18:01 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-29 18:06 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 17:54 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-29 18:01 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 17:58 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 18:01 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 18:16 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 18:17 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-29 17:57 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 18:10 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-29 17:55 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 18:03 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-29 18:13 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 18:15 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:56 - [世界杯在中国观看最多的比赛](https://www.share.minike.top/Article/details/78422798.shtml)
-- 2026-06-29 17:57 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/67251733045.shtml)
-- 2026-06-29 17:50 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/16826.shtml)
-- 2026-06-29 18:08 - [沙丘](http://www.share.kurohicncr.top/Article/details/515009071.shtml)
-- 2026-06-29 17:57 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/158208771481.shtml)
-- 2026-06-29 17:57 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/4799907.shtml)
-- 2026-06-29 17:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/9824136399.shtml)
-- 2026-06-29 18:00 - [倪春青跨市履新苏州市委组织部部长](http://www.share.kurohicncr.top/Article/details/376283934811.shtml)
-- 2026-06-29 17:47 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/4176559.shtml)
-- 2026-06-29 18:10 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/899722992.shtml)
-- 2026-06-29 18:03 - [互助版模拟高考志愿填报](http://www.share.minike.top/Article/details/032132967372.shtml)
-- 2026-06-29 17:54 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.kurohicncr.top/Article/details/37710929.shtml)
-- 2026-06-29 17:58 - [扬名立万](http://www.blog.minike.top/Article/details/33726.shtml)
-- 2026-06-29 18:02 - [47天女婴被月嫂摔伤致颅内出血](http://www.blog.kurohicncr.top/Article/details/62845119412.shtml)
-- 2026-06-29 17:51 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/66584.shtml)
+- 2026-06-29 18:10 - [AG 宫斗](https://www.blog.minike.top/Article/details/642152.shtml)
+- 2026-06-29 18:03 - [2026年，如果你有100万，你会怎么投资？](http://www.share.minike.top/Article/details/086691667112.shtml)
+- 2026-06-29 18:10 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/09311431.shtml)
+- 2026-06-29 18:01 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/4219697933.shtml)
+- 2026-06-29 18:12 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/57462674972.shtml)
+- 2026-06-29 18:00 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/69422815427.shtml)
+- 2026-06-29 17:53 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.blog.kurohicncr.top/Article/details/429401359.shtml)
+- 2026-06-29 17:59 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/21662441.shtml)
+- 2026-06-29 17:57 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/4896489.shtml)
+- 2026-06-29 18:10 - [人类对空调和其他家电有多双标](https://www.blog.minike.top/Article/details/300065374.shtml)
+- 2026-06-29 18:14 - [周生如故](http://www.share.minike.top/Article/details/81331835.shtml)
+- 2026-06-29 17:53 - [金牌调解](https://www.share.kurohicncr.top/Article/details/08396040907.shtml)
+- 2026-06-29 18:13 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/66466070495.shtml)
+- 2026-06-29 18:17 - [啊啊啊](http://www.share.minike.top/Article/details/252292833605.shtml)
+- 2026-06-29 18:04 - [世界杯在中国观看最多的比赛](http://www.blog.minike.top/Article/details/438060.shtml)

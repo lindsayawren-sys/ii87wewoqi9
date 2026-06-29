@@ -1,56 +1,56 @@
-# 中金：巨子生物维持“跑赢行业”评级 目标价降至40港元
+# OpenAI首席执行官到访华盛顿，赴白宫及国会山参加会晤
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-中金发布研报称，维持巨子生物（02367）“跑赢行业”评级，基于港股消费板块整体估值中枢承压，下调目标价18%至40港元。该行维持巨子生物26至27年盈利预测。当前股价对应预测26及27年市盈率12及11倍。 报告中称，巨子生物旗下“交联重组胶原蛋白填充剂”三类医疗器械获批，该产品为全球首款颈纹适应症的交联重组III型全长序列胶原蛋白填充剂，差异化优势突出。同时公司首款获批医美
+据一位了解奥特曼行程、获匿名授权透露相关安排的知情人士消息，OpenAI 首席执行官萨姆・奥特曼将于周三到访华盛顿，分别会晤白宫高级官员与国会两党议员。 此番特朗普政府刚出台一份人工智能相关行政令，奥特曼便赶赴华盛顿。该政令搭建自愿参与机制，要求前沿人工智能模型在正式对外发布前，需经过政府为期 30 天的审查。此前白宫曾撤回这份行政令草案，美国总统特朗普已于周二签署修订后的版本
 
 ## 正文
 
-中金发布研报称，维持巨子生物（02367）“跑赢行业”评级，基于港股消费板块整体估值中枢承压，下调目标价18%至40港元。
+据一位了解奥特曼行程、获匿名授权透露相关安排的知情人士消息，OpenAI 首席执行官萨姆・奥特曼将于周三到访华盛顿，分别会晤白宫高级官员与国会两党议员。
 
-该行维持巨子生物26至27年盈利预测。
+此番特朗普政府刚出台一份人工智能相关行政令，奥特曼便赶赴华盛顿。
 
-当前股价对应预测26及27年市盈率12及11倍。
+该政令搭建自愿参与机制，要求前沿人工智能模型在正式对外发布前，需经过政府为期 30 天的审查。
 
-报告中称，巨子生物旗下“交联重组胶原蛋白填充剂”三类医疗器械获批，该产品为全球首款颈纹适应症的交联重组III型全长序列胶原蛋白填充剂，差异化优势突出。
+此前白宫曾撤回这份行政令草案，美国总统特朗普已于周二签署修订后的版本。
 
-同时公司首款获批医美产品已于6月9日正式发布上市，化妆品业务边际提速趋势显现，看好公司基本面改善趋势，建议关注底部布局机会。
+据一位了解奥特曼行程、获匿名授权透露相关安排的知情人士消息，OpenAI 首席执行官萨姆・奥特曼将于周三到访华盛顿，分别会晤白宫高级官员与国会两党议员。
 
-责任编辑：卢昱君
+此番特朗普政府刚出台一份人工智能相关行政令，奥特曼便赶赴华盛顿。
+
+该政令搭建自愿参与机制，要求前沿人工智能模型在正式对外发布前，需经过政府为期 30 天的审查。
+
+此前白宫曾撤回这份行政令草案，美国总统特朗普已于周二签署修订后的版本。
 
 ## 相关推荐
 
-- 2026-06-29 17:55 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 18:09 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 17:46 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 17:54 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-29 17:53 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-29 18:07 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 18:04 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-29 18:04 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-29 17:42 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 18:02 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 18:00 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-29 18:04 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 17:58 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 17:43 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 18:03 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-29 17:51 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-29 17:52 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-29 18:12 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 18:09 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 18:14 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-29 17:59 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-29 17:58 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-29 18:00 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 17:48 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:58 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/373224.shtml)
-- 2026-06-29 17:54 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/363595.shtml)
-- 2026-06-29 17:44 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/9522023893.shtml)
-- 2026-06-29 18:09 - [金牌调解](http://www.blog.minike.top/Article/details/63686.shtml)
-- 2026-06-29 17:55 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/5716305.shtml)
-- 2026-06-29 18:09 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/7498404444.shtml)
-- 2026-06-29 18:00 - [小鹏MONAL03预售定档7月2日](http://www.share.kurohicncr.top/Article/details/5377366279.shtml)
-- 2026-06-29 17:47 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/5735370.shtml)
-- 2026-06-29 18:08 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.minike.top/Article/details/65616565.shtml)
-- 2026-06-29 18:09 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.blog.minike.top/Article/details/85665316586.shtml)
-- 2026-06-29 18:06 - [职业选手禁止参赛！](https://www.share.kurohicncr.top/Article/details/098907436319.shtml)
-- 2026-06-29 18:09 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/38499.shtml)
-- 2026-06-29 17:47 - [首个靠AI躺赢的国家](https://www.blog.kurohicncr.top/Article/details/01014.shtml)
-- 2026-06-29 18:04 - [人形机器人](https://www.blog.minike.top/Article/details/89771092.shtml)
-- 2026-06-29 17:58 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/72482125483.shtml)
+- 2026-06-29 17:56 - [中国空间站为什么要升级扩容](https://www.share.kurohicncr.top/Article/details/07781.shtml)
+- 2026-06-29 18:06 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/1807347193.shtml)
+- 2026-06-29 18:07 - [天柱山回应网红打卡树枝被砍](https://www.share.minike.top/Article/details/034894099.shtml)
+- 2026-06-29 17:55 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/3017194.shtml)
+- 2026-06-29 18:00 - [日本偶像龟梨和也宣布结婚](http://www.share.kurohicncr.top/Article/details/247066398.shtml)
+- 2026-06-29 17:58 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/511322.shtml)
+- 2026-06-29 18:04 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/461536563.shtml)
+- 2026-06-29 18:11 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.kurohicncr.top/Article/details/13487676.shtml)
+- 2026-06-29 18:09 - [李连杰否认不管前妻两女儿](https://www.blog.kurohicncr.top/Article/details/9400596698.shtml)
+- 2026-06-29 17:55 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/849998.shtml)
+- 2026-06-29 17:57 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/38516203.shtml)
+- 2026-06-29 18:10 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/321177.shtml)
+- 2026-06-29 17:52 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/0134924648.shtml)
+- 2026-06-29 17:58 - [速度与激情9](http://www.blog.minike.top/Article/details/11307148.shtml)
+- 2026-06-29 18:14 - [拍到真的赛博朋克边缘行者了！](http://www.blog.kurohicncr.top/Article/details/19958.shtml)

@@ -1,53 +1,57 @@
-# 开盘|国内期货主力合约涨跌不一 低硫燃料油（LU）涨超3%
+# 加快布局权益类产品——银行理财“打新”热度上升
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-2026年6月22日，早盘开盘，国内期货主力合约涨跌不一。低硫燃料油（LU）涨超3%，集运欧线涨超2%，SC原油、瓶片涨超1%。跌幅方面，碳酸锂跌超5%，沪银跌超4%，钯、鸡蛋、铂跌超3%。 责任编辑：赵思远
+理财“打新”是指银行理财子公司以机构投资者身份，直接参与首次公开募股的新股申购行为。近期，银行理财子公司加快布局权益类产品投资，宁银理财、工银理财、招银理财等多家银行理财子公司参与A股首次公开募股（IPO）网下配售或港股IPO基石投资。数据显示，截至今年4月底，宁银理财累计直投参与沪深交易所64次新股申购；截至4月28日开盘，工银理财年内累计参与16笔港股IPO投资。从实际配置
 
 ## 正文
 
-2026年6月22日，早盘开盘，国内期货主力合约涨跌不一。
+理财“打新”是指银行理财子公司以机构投资者身份，直接参与首次公开募股的新股申购行为。
 
-低硫燃料油（LU）涨超3%，集运欧线涨超2%，SC原油、瓶片涨超1%。
+近期，银行理财子公司加快布局权益类产品投资，宁银理财、工银理财、招银理财等多家银行理财子公司参与A股首次公开募股（IPO）网下配售或港股IPO基石投资。
 
-跌幅方面，碳酸锂跌超5%，沪银跌超4%，钯、鸡蛋、铂跌超3%。
+数据显示，截至今年4月底，宁银理财累计直投参与沪深交易所64次新股申购；截至4月28日开盘，工银理财年内累计参与16笔港股IPO投资。
 
-责任编辑：赵思远
+从实际配置方向看，理财公司重点聚焦半导体、人工智能、新能源、高端制造等硬科技领域，契合硬科技企业技术壁垒较高、新股上市表现相对活跃的市场逻辑，也体现出理财资金服务实体经济、助力科技自立自强的战略导向。
+
+理财公司“打新”业务流程看似简便，实则对其专业能力提出了系统性、高标准要求。
+
+网下“打新”设置明确的权益底仓市值门槛，对长期以固收投资为主导的银行理财形成业务约束。
+
+如何在权益市场高波动环境下，平稳维系底仓规模、有效控制净值回撤，并持续达标“打新”市值要求，充分考验理财公司跨大类资产的配置研判与实操能力。
+
+普益标准研究员屈颖表示，新股从招股公告到询价报价时间窗口紧凑，亟需投研、交易、合规、运营等部门高效协同、闭环运作，对理财公司内部治理机制与全面风控体系升级提出更高要求。
 
 ## 相关推荐
 
-- 2026-06-29 17:47 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 18:05 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-29 17:46 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 17:57 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-29 17:42 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-29 18:08 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-29 18:11 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-29 17:44 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 17:42 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 17:50 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 17:52 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-29 17:42 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 17:57 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-29 17:47 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-29 17:49 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 18:08 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 17:56 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 18:01 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-29 18:13 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 17:51 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 18:09 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 17:53 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 17:48 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 18:06 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-29 17:53 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-29 17:53 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:02 - [机器人学校开学了](http://www.blog.kurohicncr.top/Article/details/94316579960.shtml)
-- 2026-06-29 18:07 - [女心理师](http://www.share.kurohicncr.top/Article/details/79341050.shtml)
-- 2026-06-29 18:06 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/5731134.shtml)
-- 2026-06-29 17:50 - [首个靠AI躺赢的国家](https://www.blog.kurohicncr.top/Article/details/64553586.shtml)
-- 2026-06-29 17:47 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/9502441.shtml)
-- 2026-06-29 17:54 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/56048681.shtml)
-- 2026-06-29 18:09 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/970491856.shtml)
-- 2026-06-29 17:53 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/5826969.shtml)
-- 2026-06-29 17:56 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/06532.shtml)
-- 2026-06-29 18:03 - [花万元相亲对象是50元雇的演员](http://www.blog.minike.top/Article/details/8845833.shtml)
-- 2026-06-29 17:49 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.minike.top/Article/details/048068553.shtml)
-- 2026-06-29 18:05 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/046461845657.shtml)
-- 2026-06-29 17:58 - [央视曝光涉黄App诈骗陷阱](https://www.blog.kurohicncr.top/Article/details/97034.shtml)
-- 2026-06-29 18:00 - [港股蓝筹股的落寞才刚刚开始吗](https://www.blog.kurohicncr.top/Article/details/62044.shtml)
-- 2026-06-29 17:42 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/8745232.shtml)
+- 2026-06-29 18:13 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/025745690930.shtml)
+- 2026-06-29 18:00 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.kurohicncr.top/Article/details/96222513681.shtml)
+- 2026-06-29 17:52 - [速度与激情9](http://www.share.minike.top/Article/details/117128819.shtml)
+- 2026-06-29 17:51 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/5869075683.shtml)
+- 2026-06-29 17:51 - [教育部发布预警 事关高招录取](https://www.blog.kurohicncr.top/Article/details/001208015.shtml)
+- 2026-06-29 17:56 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/72663089211.shtml)
+- 2026-06-29 18:06 - [湖北钟祥市委书记张勇拟任新职](http://www.share.kurohicncr.top/Article/details/0422552893.shtml)
+- 2026-06-29 18:07 - [许建琼任湖南省检察院副检察长](http://www.share.minike.top/Article/details/13182.shtml)
+- 2026-06-29 17:53 - [周生如故](http://www.share.kurohicncr.top/Article/details/706979851190.shtml)
+- 2026-06-29 17:51 - [天柱山回应网红打卡树枝被砍](https://www.share.minike.top/Article/details/77956490120.shtml)
+- 2026-06-29 18:06 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/4223348.shtml)
+- 2026-06-29 17:57 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/6008570.shtml)
+- 2026-06-29 17:57 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/942359.shtml)
+- 2026-06-29 17:56 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/14002704.shtml)
+- 2026-06-29 18:00 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/75557864948.shtml)

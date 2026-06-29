@@ -1,56 +1,51 @@
-# 尼泊尔青年青海西宁感知中国传统文化
+# 100ml茅台礼盒价格上调20元
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-“航母+两攻”对中国海军远海体系意味着什么？专家解读2026高考成绩今起陆续可查，多地公布志愿填报安排“中国建造”托起佛得角世界杯梦想斯塔默何以黯然下台？佛得角队的世界杯奇迹，为什么打动人心？观影总场次创历史新高，暑期档的“好戏”才刚刚开场美甲店免费为老人做“摘豆角美甲” 收获网友点赞“小城游”火爆背后：优质文旅供给成为消费“催化剂”端午食粽习俗为何成为具有广泛影响力的文化现象
+6月4日，近日，i茅台App上，“53%vol 100ml×6茅台礼盒”零售价上调至1819元/盒，较此前的1799元/盒上涨20元。 据悉，100ml小茅台于2022年正式上线i茅台平台。其中，单瓶装在今年年初曾进行价格下调，售价从399元/瓶调整为299元/瓶，彼时礼盒装价格未跟着改变。 责任编辑：郭栩彤
 
 ## 正文
 
-“航母+两攻”对中国海军远海体系意味着什么？
+6月4日，近日，i茅台App上，“53%vol 100ml×6茅台礼盒”零售价上调至1819元/盒，较此前的1799元/盒上涨20元。
 
-专家解读2026高考成绩今起陆续可查，多地公布志愿填报安排“中国建造”托起佛得角世界杯梦想斯塔默何以黯然下台？
+据悉，100ml小茅台于2022年正式上线i茅台平台。
 
-佛得角队的世界杯奇迹，为什么打动人心？
+其中，单瓶装在今年年初曾进行价格下调，售价从399元/瓶调整为299元/瓶，彼时礼盒装价格未跟着改变。
 
-观影总场次创历史新高，暑期档的“好戏”才刚刚开场美甲店免费为老人做“摘豆角美甲” 收获网友点赞“小城游”火爆背后：优质文旅供给成为消费“催化剂”端午食粽习俗为何成为具有广泛影响力的文化现象？
-
-“桑巴军团”卷土重来，内马尔去哪了？
-
-比尔根山会谈临时取消，美伊僵局是否难破？
-
-一道西湖蟹酿橙，品出中缅胞波情大疆与影石，到底为啥打这么狠？
-
-浙江河阳：千年“古村落活化石”以新业态赋能文化新消费虎蝶蟾绣于一包，是中华文明共情世界的符号姑蔑国，是什么国？
+责任编辑：郭栩彤
 
 ## 相关推荐
 
-- 2026-06-29 18:07 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 18:02 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-29 17:57 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 18:05 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-29 17:48 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 17:44 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-29 18:00 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 18:06 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-29 17:54 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 18:02 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 17:52 - [和周杰伦在演唱会合唱了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 18:04 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 18:13 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-29 17:51 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-29 17:52 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 18:11 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-29 18:07 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 18:10 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-29 18:00 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 18:06 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 18:14 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-29 18:08 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-29 18:12 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:45 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/02677192.shtml)
-- 2026-06-29 17:46 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/18831395.shtml)
-- 2026-06-29 17:45 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/57496.shtml)
-- 2026-06-29 17:43 - [22岁民警拦截违法车辆被撞牺牲](http://www.share.minike.top/Article/details/49435.shtml)
-- 2026-06-29 17:53 - [王安宇尊重田曦薇的一切选择](http://www.share.kurohicncr.top/Article/details/4491171680.shtml)
-- 2026-06-29 17:52 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/565434.shtml)
-- 2026-06-29 17:57 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/232061.shtml)
-- 2026-06-29 17:59 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.blog.minike.top/Article/details/459227545620.shtml)
-- 2026-06-29 17:44 - [评论员：日菲勾连各有盘算](https://www.blog.kurohicncr.top/Article/details/407710429334.shtml)
-- 2026-06-29 18:06 - [A股收评：科创50指数大涨4.61%](https://www.blog.minike.top/Article/details/809396.shtml)
-- 2026-06-29 18:10 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/6135520110.shtml)
-- 2026-06-29 17:54 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/39738114.shtml)
-- 2026-06-29 17:45 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.minike.top/Article/details/208909884.shtml)
-- 2026-06-29 18:03 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/70076.shtml)
-- 2026-06-29 17:46 - [如何看法国总统候选人称加强与华合作](https://www.share.minike.top/Article/details/3494965353.shtml)
+- 2026-06-29 18:01 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.minike.top/Article/details/27624177.shtml)
+- 2026-06-29 17:57 - [乔家的儿女](http://www.blog.minike.top/Article/details/006115483535.shtml)
+- 2026-06-29 17:49 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/330907.shtml)
+- 2026-06-29 18:06 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.kurohicncr.top/Article/details/5406287.shtml)
+- 2026-06-29 18:04 - [运20对中国空军的意义是什么](http://www.share.minike.top/Article/details/481848640946.shtml)
+- 2026-06-29 18:14 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/4479837019.shtml)
+- 2026-06-29 17:48 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.minike.top/Article/details/14897474268.shtml)
+- 2026-06-29 18:00 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/6999165434.shtml)
+- 2026-06-29 18:14 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/54925.shtml)
+- 2026-06-29 17:59 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/96882683.shtml)
+- 2026-06-29 17:58 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.minike.top/Article/details/6262411759.shtml)
+- 2026-06-29 18:04 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/47980893.shtml)
+- 2026-06-29 17:50 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/47552627519.shtml)
+- 2026-06-29 18:10 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/615819222.shtml)
+- 2026-06-29 17:53 - [TFING全员黑西装](http://www.share.minike.top/Article/details/033183545.shtml)

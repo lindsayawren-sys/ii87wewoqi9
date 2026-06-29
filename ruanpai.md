@@ -1,53 +1,44 @@
-# 渠水湖南靖州段迎战最大洪峰 1264人安全转移
+# 陈刚：平陆运河开通后 要防止一窝蜂搞发展
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月22日 18:15 来源：中国新闻网 在湖南靖州苗族侗族自治县，受上游持续强降雨汇流影响，渠水流域水位迅猛攀升。6月21日18时，本轮汛期关键洪峰过境，沿河堤防全面进入高水位戒备状态。靖州迅速启动洪水防御Ⅳ级响应，水利、应急、公安、自然资源、交通等多部门全员在岗、联动值守，排查处置汛期风险隐患，提前安全转移民众485户1264人，严密防范汛期各类险情。
+发布时间：2026年06月04日 08:02 来源：中国新闻网 6月3日，在平陆运河通航倒计时100天现场推进会上，广西壮族自治区党委书记陈刚表示，平陆运河开通以后，相关服务保障和产业发展要统筹谋划好，防止一窝蜂搞建设，一窝蜂搞发展，干一些脱离实际，给后人造成负担的相关工程。(记者 王以照 制作 方敏） 责任编辑：【张燕玲】
 
 ## 正文
 
-发布时间：2026年06月22日 18:15 来源：中国新闻网 在湖南靖州苗族侗族自治县，受上游持续强降雨汇流影响，渠水流域水位迅猛攀升。
+发布时间：2026年06月04日 08:02 来源：中国新闻网 6月3日，在平陆运河通航倒计时100天现场推进会上，广西壮族自治区党委书记陈刚表示，平陆运河开通以后，相关服务保障和产业发展要统筹谋划好，防止一窝蜂搞建设，一窝蜂搞发展，干一些脱离实际，给后人造成负担的相关工程。
 
-6月21日18时，本轮汛期关键洪峰过境，沿河堤防全面进入高水位戒备状态。
-
-靖州迅速启动洪水防御Ⅳ级响应，水利、应急、公安、自然资源、交通等多部门全员在岗、联动值守，排查处置汛期风险隐患，提前安全转移民众485户1264人，严密防范汛期各类险情。
-
-(付敬懿 刘水华 许梦娟 制作 王佳琪) 责任编辑：【罗攀】
+(记者 王以照 制作 方敏） 责任编辑：【张燕玲】
 
 ## 相关推荐
 
-- 2026-06-29 18:01 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 18:07 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 17:58 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-29 17:59 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-29 17:59 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 17:44 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 18:04 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-29 18:03 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-29 17:50 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-29 17:55 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-29 18:07 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 18:09 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 18:00 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 17:54 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-29 17:52 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 18:02 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 18:12 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 17:58 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-29 18:05 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 18:16 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-29 18:14 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-29 17:53 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 17:55 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-29 18:10 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 18:03 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:05 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/3086483.shtml)
-- 2026-06-29 17:56 - [业内：全球市场迎来结构性投资窗口](http://www.share.kurohicncr.top/Article/details/79250.shtml)
-- 2026-06-29 17:44 - [中国创新药股价要反攻了吗](https://www.blog.minike.top/Article/details/567982525.shtml)
-- 2026-06-29 17:52 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.kurohicncr.top/Article/details/07134705488.shtml)
-- 2026-06-29 17:53 - [为何说今日日本似战前日本](http://www.blog.kurohicncr.top/Article/details/5984930914.shtml)
-- 2026-06-29 17:50 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/480018252230.shtml)
-- 2026-06-29 17:42 - [TTG KSG](https://www.share.kurohicncr.top/Article/details/94227.shtml)
-- 2026-06-29 18:08 - [李连杰否认不管前妻两女儿](http://www.blog.minike.top/Article/details/124043588716.shtml)
-- 2026-06-29 18:06 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/474933.shtml)
-- 2026-06-29 18:11 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/89704577024.shtml)
-- 2026-06-29 18:08 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.share.minike.top/Article/details/93242.shtml)
-- 2026-06-29 17:47 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/098441.shtml)
-- 2026-06-29 17:57 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/86508983142.shtml)
-- 2026-06-29 18:00 - [毛朝晖任湖南省农业农村厅厅长](https://www.blog.minike.top/Article/details/92840.shtml)
-- 2026-06-29 18:04 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/253891182935.shtml)
+- 2026-06-29 17:49 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.minike.top/Article/details/94753301035.shtml)
+- 2026-06-29 18:11 - [沙丘](http://www.share.kurohicncr.top/Article/details/8946009870.shtml)
+- 2026-06-29 18:08 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/03694.shtml)
+- 2026-06-29 18:02 - [日本偶像龟梨和也宣布结婚](https://www.share.minike.top/Article/details/438669514.shtml)
+- 2026-06-29 18:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/23179331601.shtml)
+- 2026-06-29 18:14 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/70327804032.shtml)
+- 2026-06-29 18:01 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/45369025454.shtml)
+- 2026-06-29 18:04 - [外网预言中国举办世界杯时间](http://www.blog.minike.top/Article/details/3279071.shtml)
+- 2026-06-29 18:06 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/331407186.shtml)
+- 2026-06-29 18:14 - [欧洲多国高温突破40摄氏度](https://www.blog.kurohicncr.top/Article/details/02519778558.shtml)
+- 2026-06-29 18:08 - [NBA交易](https://www.blog.minike.top/Article/details/78424889380.shtml)
+- 2026-06-29 17:50 - [税务总局披露5起合规申报个税案例](http://www.blog.kurohicncr.top/Article/details/85751.shtml)
+- 2026-06-29 17:55 - [音乐人屠颖离世家属追责涉事酒店](https://www.share.kurohicncr.top/Article/details/11112981.shtml)
+- 2026-06-29 18:09 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/26341738494.shtml)
+- 2026-06-29 18:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/77349224.shtml)

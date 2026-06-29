@@ -1,44 +1,56 @@
-# 王沪宁主持召开全国政协主席会议
+# 长城基金投资札记：极致分化后，市场有望再平衡
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月22日 22:04 来源：央视网 责任编辑：【李骏】
+回顾5月，A股呈现明显分化、成长领涨的结构性行情，市场活跃度维持高位，但资金偏好高度集中于高景气赛道。 步入6月，在部分赛道交易拥挤度抬升、估值分化的压力下，市场结构性分化是否会进一步加剧？来围观下长城基金权益基金经理们的最新观点~ 杨建华：市场有望再平衡 科技板块短期内交易拥挤，部分个股已经透支到2028年的业绩，短期超额收益显著，面临较大的调整压力。而前期一直调整的资源股走
 
 ## 正文
 
-发布时间：2026年06月22日 22:04 来源：央视网 责任编辑：【李骏】
+回顾5月，A股呈现明显分化、成长领涨的结构性行情，市场活跃度维持高位，但资金偏好高度集中于高景气赛道。
+
+步入6月，在部分赛道交易拥挤度抬升、估值分化的压力下，市场结构性分化是否会进一步加剧？
+
+来围观下长城基金权益基金经理们的最新观点~ 杨建华：市场有望再平衡 科技板块短期内交易拥挤，部分个股已经透支到2028年的业绩，短期超额收益显著，面临较大的调整压力。
+
+而前期一直调整的资源股走出了与商品价格背离的股票走势，这一格局有望收敛。
+
+此外，低位的顺周期个股有反弹需求，但是长逻辑还需要等待宏观基本面的支撑。
+
+红利股短期内有望成为资金的“防御”选择。
+
+因此，6月市场有望再平衡。
+
+科技股或将去伪存真，业绩兑现度高、竞争格局好、估值泡沫化程度不高的个股有望获得相对收益。
 
 ## 相关推荐
 
-- 2026-06-29 18:07 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 17:59 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-29 18:03 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-29 17:52 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 17:53 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 18:02 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-29 17:46 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-29 18:11 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-29 17:48 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-29 17:47 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-29 18:02 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 17:47 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-29 18:11 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 18:12 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 17:58 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-29 18:16 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 18:15 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-29 17:51 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-29 18:13 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-29 18:11 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 17:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 18:02 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:45 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/7530965.shtml)
-- 2026-06-29 18:03 - [7款高价创新药有望降价](http://www.share.minike.top/Article/details/518915932.shtml)
-- 2026-06-29 18:06 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/64805296.shtml)
-- 2026-06-29 17:43 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/435771928.shtml)
-- 2026-06-29 18:08 - [欧洲多国高温突破40摄氏度](https://www.blog.minike.top/Article/details/1485700.shtml)
-- 2026-06-29 18:02 - [勇敢的心第二部](https://www.share.minike.top/Article/details/7158701562.shtml)
-- 2026-06-29 17:48 - [我和我的家乡](https://www.share.minike.top/Article/details/13906682861.shtml)
-- 2026-06-29 17:47 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/57074341969.shtml)
-- 2026-06-29 18:02 - [德国连续三天刷新本国最高气温纪录](http://www.blog.kurohicncr.top/Article/details/654773826997.shtml)
-- 2026-06-29 17:50 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/8852088702.shtml)
-- 2026-06-29 18:11 - [倪春青跨市履新苏州市委组织部部长](https://www.share.kurohicncr.top/Article/details/022790929.shtml)
-- 2026-06-29 18:11 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/76707546313.shtml)
-- 2026-06-29 18:00 - [葛军谈AI时代理科生出路](http://www.share.kurohicncr.top/Article/details/039784079217.shtml)
-- 2026-06-29 18:03 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/58969486850.shtml)
-- 2026-06-29 17:54 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/768520.shtml)
+- 2026-06-29 18:16 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/3122722350.shtml)
+- 2026-06-29 17:48 - [起风了](http://www.blog.minike.top/Article/details/3723430.shtml)
+- 2026-06-29 18:13 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.kurohicncr.top/Article/details/621169406.shtml)
+- 2026-06-29 17:55 - [虞书欣好辣的剧宣](http://www.blog.kurohicncr.top/Article/details/53206.shtml)
+- 2026-06-29 17:51 - [存储三巨头被告了](http://www.share.minike.top/Article/details/56162.shtml)
+- 2026-06-29 17:57 - [截瘫男子心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/300807.shtml)
+- 2026-06-29 18:06 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.blog.kurohicncr.top/Article/details/525378.shtml)
+- 2026-06-29 18:15 - [扬名立万](https://www.share.minike.top/Article/details/13489400006.shtml)
+- 2026-06-29 18:13 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/145718666.shtml)
+- 2026-06-29 18:17 - [截瘫男子心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/80943.shtml)
+- 2026-06-29 18:17 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/5415481.shtml)
+- 2026-06-29 18:01 - [博主：AI泡沫必须破灭](http://www.blog.kurohicncr.top/Article/details/660067.shtml)
+- 2026-06-29 18:13 - [小说《无悔追踪》翻红](http://www.blog.minike.top/Article/details/001329.shtml)
+- 2026-06-29 17:53 - [人类对空调和其他家电有多双标](https://www.blog.kurohicncr.top/Article/details/859650743798.shtml)
+- 2026-06-29 18:11 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/8672199020.shtml)

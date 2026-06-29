@@ -1,57 +1,58 @@
-# 广西柳江现2026年第1号洪水 63个渡口全部停航
+# 英特尔携手富士康扩大AI基础设施布局
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-中新网柳州6月21日电 (余强 许娴静)受持续强降雨及上游来水影响，广西柳州迎来“柳江2026年第1号洪水”，截至6月21日14时，柳江水位涨至83米的超警水位(警戒水位82.50米)，并持续上涨，相应流量15600立方米每秒。 柳州海事局于6月21日8时20分将防汛四级应急响应上调为三级应急响应，并严格按照禁限航规定对辖区水上交通实施管控。柳州辖区63个渡口、95艘渡船全部停
+在Computex 2026上，英特尔与全球最大电子制造商富士康宣布达成战略合作，共同开发下一代AI基础设施及智能计算平台。此次合作旨在应对AI工作负载从训练向推理迁移带来的结构性变革，解决现代数据中心面临的关键瓶颈问题。 该合作将整合英特尔在处理器架构、硅技术和软件生态方面的优势，以及富士康的全球制造规模和系统集成专长，共同打造从芯片到机架的完整AI系统。双方将重点开发搭载英
 
 ## 正文
 
-中新网柳州6月21日电 (余强 许娴静)受持续强降雨及上游来水影响，广西柳州迎来“柳江2026年第1号洪水”，截至6月21日14时，柳江水位涨至83米的超警水位(警戒水位82.50米)，并持续上涨，相应流量15600立方米每秒。
+在Computex 2026上，英特尔与全球最大电子制造商富士康宣布达成战略合作，共同开发下一代AI基础设施及智能计算平台。
 
-柳州海事局于6月21日8时20分将防汛四级应急响应上调为三级应急响应，并严格按照禁限航规定对辖区水上交通实施管控。
+此次合作旨在应对AI工作负载从训练向推理迁移带来的结构性变革，解决现代数据中心面临的关键瓶颈问题。
 
-柳州辖区63个渡口、95艘渡船全部停航，柳州市区水上公交航线8艘船舶、夜游船航线9艘船舶全线停航。
+该合作将整合英特尔在处理器架构、硅技术和软件生态方面的优势，以及富士康的全球制造规模和系统集成专长，共同打造从芯片到机架的完整AI系统。
 
-为做好防汛应急工作，海事部门向各航运企业、渡口及船员发布安全预警，督促停航船舶加强系固和24小时值班值守；派出执法人员对辖区各渡口水域进行巡查管控，严防自用船冒险航行及违规载客。
+双方将重点开发搭载英特尔至强处理器和先进AI性能提升架构的服务器机架，并推进高速互连技术、系统遥测和液冷设计等领域的创新。
 
-同时，柳州海事部门统筹调度海事巡逻船艇、联合水上搜救志愿者队伍，针对主城区滨江路沿线漫水积水、涉水险情易发路段开展不间断水上巡航。
+此次合作瞄准了AI工作负载结构的根本性转变。
 
-据水文部门预计，未来18-19小时，柳江柳州市河段将出现86米左右(超警戒水位3.5米)的洪水，海事部门提醒沿江各单位及市民密切关注雨水情变化，远离河边低洼地带及亲水平台，注意出行安全。
+市场分析指出，随着AI应用从模型训练向智能体推理扩展，长期以来每颗CPU配比四颗GPU的格局正在向接近1：1的方向演变，CPU在数据中心中的地位正在回归。
 
-(完)
+英特尔首席执行官陈立武在主题演讲中表示：“五十多年来，英特尔携手生态伙伴推动PC、互联网及AI时代关键基础技术的发展。
+
+当前推理、智能体和物理AI加速演进，英特尔正推进从芯片到系统级的创新突破。
 
 ## 相关推荐
 
-- 2026-06-29 17:52 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 17:43 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-29 18:07 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 18:03 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 17:42 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-29 17:43 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-29 18:11 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 17:54 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 18:01 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-29 18:00 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-29 17:42 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 17:52 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 17:47 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-29 18:17 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-29 18:04 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 18:08 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 18:14 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-29 18:04 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 18:10 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 18:00 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 17:53 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 18:14 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 17:56 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-29 17:57 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 17:55 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:56 - [杨紫视后第一场线下活动](http://www.share.minike.top/Article/details/7482698053.shtml)
-- 2026-06-29 17:43 - [谢依霖夸杨幂靠谱](http://www.share.kurohicncr.top/Article/details/750640.shtml)
-- 2026-06-29 18:02 - [专家预计全球央行加息节奏将出现反复](https://www.share.minike.top/Article/details/91007.shtml)
-- 2026-06-29 18:02 - [李在镕：计划将光州作为芯片生产基地](http://www.share.kurohicncr.top/Article/details/908413953454.shtml)
-- 2026-06-29 17:45 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/629799464716.shtml)
-- 2026-06-29 18:03 - [日本前锋言论激怒巴西](https://www.share.kurohicncr.top/Article/details/216736120.shtml)
-- 2026-06-29 18:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/6595158.shtml)
-- 2026-06-29 17:53 - [首个靠AI躺赢的国家](https://www.blog.kurohicncr.top/Article/details/012375687.shtml)
-- 2026-06-29 17:56 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/311947519.shtml)
-- 2026-06-29 17:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/072171901870.shtml)
-- 2026-06-29 17:43 - [运20对中国空军的意义是什么](http://www.blog.kurohicncr.top/Article/details/5446648500.shtml)
-- 2026-06-29 18:08 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/3901380.shtml)
-- 2026-06-29 17:47 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/656675678992.shtml)
-- 2026-06-29 17:44 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/123070429.shtml)
-- 2026-06-29 17:52 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/46348697.shtml)
+- 2026-06-29 18:10 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/782313972527.shtml)
+- 2026-06-29 17:52 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/71530274881.shtml)
+- 2026-06-29 17:58 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/52309381.shtml)
+- 2026-06-29 18:14 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.kurohicncr.top/Article/details/15987.shtml)
+- 2026-06-29 17:54 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/887305979.shtml)
+- 2026-06-29 18:05 - [专家预计全球央行加息节奏将出现反复](https://www.share.minike.top/Article/details/40058187719.shtml)
+- 2026-06-29 17:53 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/482430175950.shtml)
+- 2026-06-29 17:48 - [滚石点名酒店员工说有急救培训](https://www.share.kurohicncr.top/Article/details/8676981867.shtml)
+- 2026-06-29 18:14 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/20555620898.shtml)
+- 2026-06-29 18:15 - [普京：俄罗斯面临命运攸关时刻](https://www.share.minike.top/Article/details/38488081060.shtml)
+- 2026-06-29 18:06 - [2026年，如果你有100万，你会怎么投资？](https://www.blog.minike.top/Article/details/7217960349.shtml)
+- 2026-06-29 18:12 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/070772628505.shtml)
+- 2026-06-29 18:03 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.blog.kurohicncr.top/Article/details/754850014608.shtml)
+- 2026-06-29 17:59 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/27674926613.shtml)
+- 2026-06-29 18:12 - [妹妹的正确用法！](https://www.share.kurohicncr.top/Article/details/69095750.shtml)

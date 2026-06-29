@@ -1,51 +1,59 @@
-# 天宫TV丨各项任务稳步推进 神二十三乘组工作Vlog更新
+# 印度取消境外债券投资者相关税负，引资托底卢比汇率
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月21日 12:49 来源：央视新闻客户端 炎炎夏日，岁逢夏至。在“四季如春”的中国空间站内，神二十三乘组正稳步推进各项既定任务。一起来了解他们的工作日常。(来源：中国载人航天工程办公室） 责任编辑：【王祎】
+核心要点 在资本外流创出新高的背景下，印度加码出台政策，吸引境外组合投资资金流入。 印度政府周五官宣：豁免境外投资者、由各国央行参股的国际清算银行（BIS）在印度国债投资产生的利息所得税与资本利得税，该项免税政策自 2026 年 4 月 1 日起正式落地生效。 此前法规：境外投资者持有上市股票、债券超 12 个月，需缴纳 12.5% 长期资本利得税；投资印度国债取得的利息，预提
 
 ## 正文
 
-发布时间：2026年06月21日 12:49 来源：央视新闻客户端 炎炎夏日，岁逢夏至。
+核心要点 在资本外流创出新高的背景下，印度加码出台政策，吸引境外组合投资资金流入。
 
-在“四季如春”的中国空间站内，神二十三乘组正稳步推进各项既定任务。
+印度政府周五官宣：豁免境外投资者、由各国央行参股的国际清算银行（BIS）在印度国债投资产生的利息所得税与资本利得税，该项免税政策自 2026 年 4 月 1 日起正式落地生效。
 
-一起来了解他们的工作日常。
+此前法规：境外投资者持有上市股票、债券超 12 个月，需缴纳 12.5% 长期资本利得税；投资印度国债取得的利息，预提所得税率为 20%。
 
-(来源：中国载人航天工程办公室） 责任编辑：【王祎】
+印度央行同日在货币政策会议中披露：扩充可供境外资金配置的国债品类，同时取消境外组合投资者在短期投资、持仓集中度、单只债券方面的投资限额。
+
+印度央行行长桑杰・马尔霍特拉在周五记者会上表示，叠加印度陆续签署的多项商贸协定，系列新政将显著改善本年度国际收支（BOP）表现。
+
+央行同步上调准入规则：非居民印度公民、印度海外护照持有者，在不用在印度证券交易委员会（SEBI）注册的前提下，股票投资上限提升。
+
+受全球油价大涨推高进口账单、外资持续抛售资产双重冲击，卢比承压走弱，年内跌幅位居亚洲主要货币前列。
+
+印度存托机构 NSDL 统计：年初至今外资抛售印度股票规模达 276 亿美元，远超 2025 全年 188 亿美元的净卖出额。
 
 ## 相关推荐
 
-- 2026-06-29 18:06 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-29 17:58 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-29 17:50 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-29 17:57 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 17:51 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 17:45 - [12所大学更正招生目录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-29 17:55 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 17:42 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-29 18:10 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-29 18:01 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 18:06 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 17:55 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-29 17:42 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 18:08 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 18:09 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 18:01 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-29 17:59 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-29 18:06 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-29 17:57 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-29 18:01 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-29 17:50 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-29 17:51 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 17:54 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-29 17:59 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 18:01 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-29 18:07 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:53 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/65420.shtml)
-- 2026-06-29 18:10 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/04500412031.shtml)
-- 2026-06-29 17:48 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/31036069744.shtml)
-- 2026-06-29 17:58 - [12所大学更正招生目录](https://www.blog.kurohicncr.top/Article/details/04102149608.shtml)
-- 2026-06-29 17:43 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/5262898.shtml)
-- 2026-06-29 18:06 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.kurohicncr.top/Article/details/1284185.shtml)
-- 2026-06-29 17:51 - [逆天祖国人](http://www.blog.minike.top/Article/details/553355840482.shtml)
-- 2026-06-29 17:53 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/92510.shtml)
-- 2026-06-29 17:51 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.kurohicncr.top/Article/details/94686.shtml)
-- 2026-06-29 17:58 - [金牌调解](https://www.share.minike.top/Article/details/6400465.shtml)
-- 2026-06-29 17:55 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.share.minike.top/Article/details/46455983277.shtml)
-- 2026-06-29 18:08 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/184639454828.shtml)
-- 2026-06-29 17:52 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/375056930.shtml)
-- 2026-06-29 18:06 - [一家三口吃溪石斑鱼中毒](https://www.blog.kurohicncr.top/Article/details/65605220442.shtml)
-- 2026-06-29 17:49 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/9058026.shtml)
+- 2026-06-29 18:17 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/25269505.shtml)
+- 2026-06-29 18:17 - [王曼昱被突如其来的话筒逗笑了](https://www.share.minike.top/Article/details/4667999426.shtml)
+- 2026-06-29 17:48 - [官媒首曝六代机？大V解读](http://www.share.minike.top/Article/details/5251863.shtml)
+- 2026-06-29 18:09 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/299166.shtml)
+- 2026-06-29 17:59 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/3341797360.shtml)
+- 2026-06-29 18:02 - [截瘫男子心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/38104262178.shtml)
+- 2026-06-29 17:59 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/81607554899.shtml)
+- 2026-06-29 17:52 - [逆天祖国人](http://www.blog.minike.top/Article/details/81417325550.shtml)
+- 2026-06-29 18:09 - [7款高价创新药有望降价](http://www.blog.minike.top/Article/details/991422423787.shtml)
+- 2026-06-29 18:15 - [首个靠AI躺赢的国家](https://www.blog.minike.top/Article/details/81428179.shtml)
+- 2026-06-29 18:12 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.share.kurohicncr.top/Article/details/6825238019.shtml)
+- 2026-06-29 18:10 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.kurohicncr.top/Article/details/8462271.shtml)
+- 2026-06-29 18:09 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/44684713868.shtml)
+- 2026-06-29 18:00 - [王俊凯命名方式](https://www.blog.minike.top/Article/details/50080.shtml)
+- 2026-06-29 17:53 - [外网预言中国举办世界杯时间](https://www.share.minike.top/Article/details/502879932346.shtml)

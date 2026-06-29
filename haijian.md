@@ -1,61 +1,57 @@
-# 2026年APEC工商领导人中国论坛在京举办
+# 大幅溢价！全天仅交易1小时
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-专题：第四届中国国际供应链促进博览会 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国国际商会 6月21日，2026年APEC工商领导人中国论坛在京成功举办。2026年APEC工商领导人峰会主席、中国贸促会会长任鸿斌，2026年APEC高官会主席、中国公共外交协会会长陈旭，中国商务部国际贸易谈判副代表（副部长级）蒋成华，APEC国际秘书处执行主
+01 今天，科创板块走强，半导体、消费电子、TMT等主题ETF涨幅明显。而工业有色、黄金、养殖等主题ETF表现疲软。 02 今天，纳指科技ETF景顺、中韩半导体ETF华泰柏瑞、纳指ETF嘉实等多只ETF有较高溢价。其中，纳指科技ETF景顺溢价率近20%。基金管理人于盘后发布公告称，该基金将于6月5日开市起停牌，自10：30起复牌。 03 财通多策略福鑫定开混合LOF今日开市停牌
 
 ## 正文
 
-专题：第四届中国国际供应链促进博览会 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+01 今天，科创板块走强，半导体、消费电子、TMT等主题ETF涨幅明显。
 
-来源：中国国际商会 6月21日，2026年APEC工商领导人中国论坛在京成功举办。
+而工业有色、黄金、养殖等主题ETF表现疲软。
 
-2026年APEC工商领导人峰会主席、中国贸促会会长任鸿斌，2026年APEC高官会主席、中国公共外交协会会长陈旭，中国商务部国际贸易谈判副代表（副部长级）蒋成华，APEC国际秘书处执行主任爱德华多·佩德罗萨，2026年APEC工商咨询理事会（ABAC）主席、中国中化董事长李凡荣出席论坛开幕式并致辞。
+02 今天，纳指科技ETF景顺、中韩半导体ETF华泰柏瑞、纳指ETF嘉实等多只ETF有较高溢价。
 
-任鸿斌表示，亚太地区占世界经济总量超六成、贸易总量近一半，亚太工商界应同心协力维护以世贸组织为核心的多边贸易体制，持续推动区域贸易投资自由化便利化，深化亚太经济一体化进程。
+其中，纳指科技ETF景顺溢价率近20%。
 
-今年是中国第三次担任APEC东道主，也是中国“十五五”开局之年，中国贸促会、中国国际商会愿携手亚太工商界深挖合作潜力，推动产业链、供应链、价值链深度融合，为建设亚太共同体贡献力量。
+基金管理人于盘后发布公告称，该基金将于6月5日开市起停牌，自10：30起复牌。
 
-本次论坛作为2026年APEC工商界系列活动之一，以“开放·互通·协同：链接亚太·共创未来”为主题，邀请亚太经济体政府、工商界和国际组织代表齐聚一堂，系统宣介2026年ABAC前两次会议成果，并围绕“开放合作凝聚亚太自贸区新共识”“互联互通推进亚太合作新历程”“数字创新赋能亚太经济新增长”等议题深入开展交流研讨，为推动亚太开放共赢合作、促进区域经济增长贡献了工商界智慧和力量。
+03 财通多策略福鑫定开混合LOF今日开市停牌一小时，复牌后场内价格冲高，上涨超8%。
 
-中国银行董事长葛海蛟，中国工商银行行长刘珺，中国银联董事长董俊峰，厦门建发集团董事长许晓曦，京东集团创始人、董事局主席刘强东，TCL创始人、董事长李东生，“可持续市场倡议”首席执行官塞菲，溢达集团董事长杨敏德，波音中国总裁陆一鸣，印度尼西亚工商会主席巴克里，香港中华总商会会长蔡冠深等跨国企业和机构代表与会发言。
+财通基金午盘休市时紧急公告，于4日下午继续停牌。
 
-中国贸促会副会长李庆霜、刘健男出席论坛开幕式。
+该产品今天的交易时间仅有1小时。
 
 ## 相关推荐
 
-- 2026-06-29 17:50 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 17:53 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-29 17:53 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-29 17:53 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-29 17:55 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-29 17:44 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 17:50 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-29 17:55 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 17:44 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-29 17:46 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 17:54 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 17:51 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 18:04 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-29 18:00 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-29 18:08 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 17:51 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 17:50 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-29 18:08 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 18:13 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 18:05 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-29 18:12 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 18:09 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 18:13 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 18:05 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 18:03 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 18:13 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:45 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/296381.shtml)
-- 2026-06-29 17:58 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/04459.shtml)
-- 2026-06-29 18:02 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/28305072475.shtml)
-- 2026-06-29 17:57 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/58256099134.shtml)
-- 2026-06-29 17:57 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/912699.shtml)
-- 2026-06-29 17:47 - [央视曝光高价回收老物件骗局](https://www.share.kurohicncr.top/Article/details/8510007.shtml)
-- 2026-06-29 18:03 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/0277064.shtml)
-- 2026-06-29 18:02 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/51725675810.shtml)
-- 2026-06-29 17:47 - [滚石就音乐人屠颖去世事件发声明](https://www.share.minike.top/Article/details/42205687.shtml)
-- 2026-06-29 17:49 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/90641537729.shtml)
-- 2026-06-29 17:48 - [许建琼任湖南省检察院副检察长](https://www.share.minike.top/Article/details/09012.shtml)
-- 2026-06-29 17:56 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/53124462694.shtml)
-- 2026-06-29 17:46 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/085980080.shtml)
-- 2026-06-29 17:49 - [铜价上涨 日本住宅水表失窃严重](https://www.share.minike.top/Article/details/237602.shtml)
-- 2026-06-29 18:11 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/17118287087.shtml)
+- 2026-06-29 18:15 - [TTG KSG](https://www.blog.minike.top/Article/details/56148249.shtml)
+- 2026-06-29 17:51 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.kurohicncr.top/Article/details/7827994801.shtml)
+- 2026-06-29 18:06 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/2794587087.shtml)
+- 2026-06-29 17:56 - [朱必达辞去湖南人大常委会委员职务](https://www.blog.minike.top/Article/details/4068834030.shtml)
+- 2026-06-29 18:08 - [普京承认俄出现燃料危机](https://www.share.minike.top/Article/details/00370896342.shtml)
+- 2026-06-29 18:17 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.minike.top/Article/details/279129865267.shtml)
+- 2026-06-29 17:58 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.share.kurohicncr.top/Article/details/03804655038.shtml)
+- 2026-06-29 17:50 - [沙丘](http://www.blog.minike.top/Article/details/43115.shtml)
+- 2026-06-29 17:50 - [铜价上涨 日本住宅水表失窃严重](http://www.share.kurohicncr.top/Article/details/911600.shtml)
+- 2026-06-29 18:02 - [95后小伙突然确诊癌症 医生提醒](http://www.blog.minike.top/Article/details/37698.shtml)
+- 2026-06-29 18:09 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/469446755.shtml)
+- 2026-06-29 17:54 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.share.minike.top/Article/details/00661914.shtml)
+- 2026-06-29 18:09 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/3426075218.shtml)
+- 2026-06-29 17:54 - [绘画区你赢了](http://www.share.minike.top/Article/details/228408.shtml)
+- 2026-06-29 18:04 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/448303140100.shtml)

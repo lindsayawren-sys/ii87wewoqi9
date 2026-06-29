@@ -1,58 +1,42 @@
-# 海清智元首挂上市 盘初大涨超316%市场份额在中国多光谱AI行业中排名第一
+# 广东茂名：良种良技稳产能 荔枝出海量价升
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-海清智元（01392）首挂上市，公告显示，每股定价7.2港元，共发行8516.25万股股份，每手500股，所得款项净额约5.37亿港元。盘初大涨超316%，报30港元，截至发稿，股价上涨283.06%，现报27.58港元，成交额4.08亿港元。 公开资料显示，海清智元作为中国多光谱AI行业第一，多光谱AI大模型服务第一的双龙头企业，依托全栈自研技术体系，构建了从多光谱感知模组到
+发布时间：2026年06月05日 10:16 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-海清智元（01392）首挂上市，公告显示，每股定价7.2港元，共发行8516.25万股股份，每手500股，所得款项净额约5.37亿港元。
-
-盘初大涨超316%，报30港元，截至发稿，股价上涨283.06%，现报27.58港元，成交额4.08亿港元。
-
-公开资料显示，海清智元作为中国多光谱AI行业第一，多光谱AI大模型服务第一的双龙头企业，依托全栈自研技术体系，构建了从多光谱感知模组到端云协同解决方案的完整闭环，技术壁垒显著。
-
-弗若斯特沙利文数据显示，海清智元目前在中国多光谱AI市场份额为3.3%，位列第一，而前五企业合计市占率仅8%，可见海清智元凭借先发优势，稳居行业龙头，未来市场整合与份额提升空间广阔。
-
-财务层面，业绩增长表现亮眼：2023至2025年，其营业收入分别为1.17亿元、5.23亿元、6.69亿元，三年复合增长率达到138.9%。
-
-毛利率由2023年的12.2%逐年上升至2025年的22.3%，经营质量持续改善。
-
-2025年，多光谱AI大模型服务收入占比达到53.1%，成为第一大收入来源。
-
-责任编辑：卢昱君
+发布时间：2026年06月05日 10:16 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 18:02 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-29 18:06 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 17:51 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 18:02 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-29 17:54 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-29 17:58 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-29 18:08 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 17:58 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-29 17:52 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 18:07 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-29 18:03 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 17:43 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-29 18:17 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 18:00 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 17:54 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 18:13 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-29 18:00 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 18:05 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 18:02 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-29 18:11 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 18:07 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 17:53 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:56 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/67328.shtml)
-- 2026-06-29 17:46 - [范志毅看好日本淘汰巴西](http://www.share.kurohicncr.top/Article/details/097118.shtml)
-- 2026-06-29 17:53 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/8113624.shtml)
-- 2026-06-29 18:03 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.minike.top/Article/details/7676315.shtml)
-- 2026-06-29 17:42 - [47天女婴被月嫂摔伤致颅内出血](http://www.blog.minike.top/Article/details/829408246.shtml)
-- 2026-06-29 17:45 - [税务总局披露5起合规申报个税案例](https://www.blog.minike.top/Article/details/4454559477.shtml)
-- 2026-06-29 17:42 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/333931813.shtml)
-- 2026-06-29 18:02 - [杨紫视后第一场线下活动](https://www.share.kurohicncr.top/Article/details/195983915.shtml)
-- 2026-06-29 17:59 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.kurohicncr.top/Article/details/554278582195.shtml)
-- 2026-06-29 18:11 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/28286171470.shtml)
-- 2026-06-29 18:00 - [时光音乐会](https://www.share.minike.top/Article/details/834664530086.shtml)
-- 2026-06-29 17:59 - [盛秋平任南昌市委书记](http://www.share.minike.top/Article/details/49335499.shtml)
-- 2026-06-29 17:56 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/635944347.shtml)
-- 2026-06-29 18:09 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/362054100704.shtml)
-- 2026-06-29 18:11 - [五只军犬招募领养人](https://www.share.minike.top/Article/details/854182294143.shtml)
+- 2026-06-29 17:59 - [互助版模拟高考志愿填报](https://www.blog.minike.top/Article/details/823988.shtml)
+- 2026-06-29 18:14 - [当地回应林区违规放羊遭豹啃食](https://www.share.kurohicncr.top/Article/details/16534089164.shtml)
+- 2026-06-29 18:08 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/02326486.shtml)
+- 2026-06-29 18:03 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/55331.shtml)
+- 2026-06-29 18:17 - [普京承认俄出现燃料危机](http://www.share.kurohicncr.top/Article/details/881967.shtml)
+- 2026-06-29 17:54 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/00382524594.shtml)
+- 2026-06-29 17:50 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/9441495.shtml)
+- 2026-06-29 18:15 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.share.minike.top/Article/details/50729909.shtml)
+- 2026-06-29 18:00 - [小S在香港被偶遇](http://www.share.kurohicncr.top/Article/details/46797.shtml)
+- 2026-06-29 17:59 - [许建琼任湖南省检察院副检察长](https://www.blog.minike.top/Article/details/70920627332.shtml)
+- 2026-06-29 18:01 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/4386644372.shtml)
+- 2026-06-29 17:54 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/29453.shtml)
+- 2026-06-29 18:10 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/59354089448.shtml)
+- 2026-06-29 17:52 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/6107297258.shtml)
+- 2026-06-29 17:53 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/123115476405.shtml)

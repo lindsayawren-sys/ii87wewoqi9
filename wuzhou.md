@@ -1,51 +1,61 @@
-# 商务部：今年前5个月近4000家外资企业追加在华投资
+# 山西长治：大医“未病” “健康中国”的基层答案
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-人民财讯6月22日电，6月22日，商务部副部长兼国际贸易谈判副代表凌激在国新办新闻发布会上表示，我们就“稳外资”问题提出了三句话：稳存量、扩增量、提质量。 凌激认为，稳外资首先要看存量稳不稳。从规模上看，当前我国外资企业数量不断增加，截至2025年底，外资企业数量达到53.3万家，与2020年底相比，年均增长4.5%；存量外资规模接近4万亿美元，5年内年均存量增长3.6%。 凌
+中新网太原6月4日电 (任丽娜)一张覆盖近10万太行山区居民的“体质地图”，正在悄然改变着山西长治这座革命老区的健康底色。 近日，由中国工程院院士、国医大师王琦领衔制定的《中医体质分类与判定》正式发布为新的国家标准。与旧版相比，60道题简化为27道，晦涩的医学术语变成了“你怕冷吗？”“你容易累吗？”这样的家常问答。 而这份“国标”背后，有一个特殊的发生地——山西长治。三年前，王
 
 ## 正文
 
-人民财讯6月22日电，6月22日，商务部副部长兼国际贸易谈判副代表凌激在国新办新闻发布会上表示，我们就“稳外资”问题提出了三句话：稳存量、扩增量、提质量。
+中新网太原6月4日电 (任丽娜)一张覆盖近10万太行山区居民的“体质地图”，正在悄然改变着山西长治这座革命老区的健康底色。
 
-凌激认为，稳外资首先要看存量稳不稳。
+近日，由中国工程院院士、国医大师王琦领衔制定的《中医体质分类与判定》正式发布为新的国家标准。
 
-从规模上看，当前我国外资企业数量不断增加，截至2025年底，外资企业数量达到53.3万家，与2020年底相比，年均增长4.5%；存量外资规模接近4万亿美元，5年内年均存量增长3.6%。
+与旧版相比，60道题简化为27道，晦涩的医学术语变成了“你怕冷吗？
 
-凌激指出，据不完全统计，2025年有8000多家外资企业增加对华投资，同比增长超过10%；今年前5个月，有近4000家外资企业追加投资。
+”“你容易累吗？
 
-责任编辑：宋雅芳
+”这样的家常问答。
+
+而这份“国标”背后，有一个特殊的发生地——山西长治。
+
+三年前，王琦国医大师团队与这座地级市签约共建“中医药传承创新治未病示范中心”。
+
+一千多个日夜过去，太行山深处的百姓，开始用自己的方式理解“未病”二字。
 
 ## 相关推荐
 
-- 2026-06-29 17:50 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 17:53 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 18:00 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-29 18:10 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-29 17:48 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-29 17:46 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-29 17:46 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-29 18:11 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-29 17:44 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 17:55 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-29 17:48 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 18:06 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-29 17:54 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-29 17:48 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-29 17:52 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 17:48 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 18:08 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 17:55 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 18:05 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 18:00 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-29 17:54 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 18:07 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 18:13 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-29 18:14 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-29 17:54 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-29 18:07 - [T1 KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:11 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/5558714.shtml)
-- 2026-06-29 17:52 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/773390.shtml)
-- 2026-06-29 17:55 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/1694162535.shtml)
-- 2026-06-29 18:09 - [斛珠夫人](https://www.share.minike.top/Article/details/86041693294.shtml)
-- 2026-06-29 17:50 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/95153.shtml)
-- 2026-06-29 18:04 - [外交部谈对日出口管制措施](http://www.share.minike.top/Article/details/66994784411.shtml)
-- 2026-06-29 18:00 - [天道](http://www.share.kurohicncr.top/Article/details/2231839120.shtml)
-- 2026-06-29 18:07 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/00388048623.shtml)
-- 2026-06-29 17:55 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/1372559598.shtml)
-- 2026-06-29 17:48 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.minike.top/Article/details/638597572.shtml)
-- 2026-06-29 18:05 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/02961685044.shtml)
-- 2026-06-29 18:09 - [评论员：日菲勾连各有盘算](https://www.share.kurohicncr.top/Article/details/227888363705.shtml)
-- 2026-06-29 17:42 - [花万元相亲对象是50元雇的演员](http://www.share.kurohicncr.top/Article/details/08948.shtml)
-- 2026-06-29 17:51 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/86034.shtml)
-- 2026-06-29 17:53 - [张雪机车杀向海外](http://www.blog.minike.top/Article/details/75933462949.shtml)
+- 2026-06-29 17:50 - [永远有话聊的原因](http://www.blog.minike.top/Article/details/3012054599.shtml)
+- 2026-06-29 18:12 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/7261084.shtml)
+- 2026-06-29 17:50 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.kurohicncr.top/Article/details/35116500.shtml)
+- 2026-06-29 18:12 - [湖北钟祥市委书记张勇拟任新职](https://www.share.minike.top/Article/details/1586759.shtml)
+- 2026-06-29 18:17 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/441158040.shtml)
+- 2026-06-29 18:01 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.kurohicncr.top/Article/details/2220540259.shtml)
+- 2026-06-29 17:50 - [中方将20家日本实体列入管控名单](http://www.share.minike.top/Article/details/92806697.shtml)
+- 2026-06-29 17:49 - [女心理师](https://www.blog.kurohicncr.top/Article/details/1066186.shtml)
+- 2026-06-29 18:16 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.minike.top/Article/details/5097103.shtml)
+- 2026-06-29 18:00 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.blog.minike.top/Article/details/1563699203.shtml)
+- 2026-06-29 18:12 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/455374.shtml)
+- 2026-06-29 17:53 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.kurohicncr.top/Article/details/71159120.shtml)
+- 2026-06-29 18:05 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/7408873.shtml)
+- 2026-06-29 17:49 - [媒体：听清自己内心的声音再填志愿](https://www.blog.minike.top/Article/details/71507.shtml)
+- 2026-06-29 18:07 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/4374350.shtml)

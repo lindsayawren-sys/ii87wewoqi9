@@ -1,59 +1,58 @@
-# 第十七届夏季达沃斯论坛开幕——开启多元对话 探寻务实良策
+# 央行7天期逆回购连续两日零操作 资金面仍显宽松
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-黄渤海之滨，世界目光再次齐聚大连。 6月23日至25日，以“规模化创新”为主题的世界经济论坛第十七届新领军者年会(夏季达沃斯论坛)将在这里举行。本届年会专题会议超200场。来自全球90多个国家和地区的1700余名政、商、学、媒体界代表将围绕增长、技术、就业、能源与全球经济未来发展等核心议题，激荡思想火花，探寻务实良策。 步入年会主会场大连国际会议中心，新领军者村、演播厅、前瞻空
+每经记者|张寿林 今天，人民银行公开市场业务操作室披露，根据公开市场业务一级交易商的需求，当日7天期逆回购操作量为零。值得注意的是，这已是公开市场业务7天期逆回购连续第二日零操作。 回溯5月，央行通过各类货币政策工具合计净回笼流动性3809亿元，结合货币市场多项监测指标来看，近期市场流动性整体处于偏充裕状态。 东方金诚首席宏观分析师王青指出，近期公开市场逆回购持续调减至0元，释
 
 ## 正文
 
-黄渤海之滨，世界目光再次齐聚大连。
+每经记者|张寿林 今天，人民银行公开市场业务操作室披露，根据公开市场业务一级交易商的需求，当日7天期逆回购操作量为零。
 
-6月23日至25日，以“规模化创新”为主题的世界经济论坛第十七届新领军者年会(夏季达沃斯论坛)将在这里举行。
+值得注意的是，这已是公开市场业务7天期逆回购连续第二日零操作。
 
-本届年会专题会议超200场。
+回溯5月，央行通过各类货币政策工具合计净回笼流动性3809亿元，结合货币市场多项监测指标来看，近期市场流动性整体处于偏充裕状态。
 
-来自全球90多个国家和地区的1700余名政、商、学、媒体界代表将围绕增长、技术、就业、能源与全球经济未来发展等核心议题，激荡思想火花，探寻务实良策。
+东方金诚首席宏观分析师王青指出，近期公开市场逆回购持续调减至0元，释放了稳定资金面、避免主要市场利率过度向下偏离政策利率、防范资金空转的信号，有助于稳定市场预期。
 
-步入年会主会场大连国际会议中心，新领军者村、演播厅、前瞻空间、互动空间等密集分布，连通各个空间的走廊上摆放着沙发，参会者可随时坐下交流。
+从资金面看，截至6月4日发稿前，DR001加权平均值为1.3247%，DR007加权平均值为1.3478%；6月3日，DR001加权平均值为1.3229%，DR007加权平均值为1.3428%。
 
-“本届年会创新会场布局，首次将各类会议功能区集中整合至同一楼层，大幅提升参会通行与交流效率。
+货币市场DR007运行于政策利率锚下方较低水平，提示即便流动性连续0元投放，资金面依然宽松。
 
-”世界经济论坛全球会议运营总监塞维林·波多洛克介绍。
+当前公开市场操作7天期逆回购利率为政策利率锚，利率水平为1.4%。
 
-本届年会备受关注，参会嘉宾数量实现新突破。
+《每日经济新闻》记者注意到，就在上周四（5月28日），同业存单发行加权平均利率低至1.36%。
 
 ## 相关推荐
 
-- 2026-06-29 18:07 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-29 18:04 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 17:47 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 18:00 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 17:44 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-29 17:59 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-29 17:59 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-29 17:57 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-29 17:52 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-29 17:52 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 17:43 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-29 18:03 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-29 17:50 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-29 17:49 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 18:01 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 18:12 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 17:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-29 18:12 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-29 18:07 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-29 18:17 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 17:55 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 18:00 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-29 18:12 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 18:11 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 18:13 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:05 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/10755156.shtml)
-- 2026-06-29 17:56 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/78253.shtml)
-- 2026-06-29 17:56 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/64621.shtml)
-- 2026-06-29 18:10 - [被中方管控的20家日本实体什么来头](http://www.share.minike.top/Article/details/427586.shtml)
-- 2026-06-29 18:03 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/05012132409.shtml)
-- 2026-06-29 18:04 - [评论员：日菲勾连各有盘算](https://www.blog.kurohicncr.top/Article/details/399716789.shtml)
-- 2026-06-29 17:46 - [波兰创该国高温纪录](http://www.share.minike.top/Article/details/4747837050.shtml)
-- 2026-06-29 17:45 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/7226213554.shtml)
-- 2026-06-29 17:57 - [业内：全球市场迎来结构性投资窗口](http://www.blog.minike.top/Article/details/538966.shtml)
-- 2026-06-29 17:56 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/59598.shtml)
-- 2026-06-29 18:00 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.blog.minike.top/Article/details/42934348.shtml)
-- 2026-06-29 18:04 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/873505.shtml)
-- 2026-06-29 18:10 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/266145076.shtml)
-- 2026-06-29 18:04 - [曝iPhone涨价后不会再降](https://www.share.minike.top/Article/details/97983554100.shtml)
-- 2026-06-29 17:59 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/5485987.shtml)
+- 2026-06-29 18:01 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/23278.shtml)
+- 2026-06-29 18:10 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/8078999599.shtml)
+- 2026-06-29 18:02 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/697684870712.shtml)
+- 2026-06-29 18:11 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.minike.top/Article/details/34591529.shtml)
+- 2026-06-29 18:13 - [千与千寻](https://www.share.minike.top/Article/details/414004158509.shtml)
+- 2026-06-29 18:13 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/9183498.shtml)
+- 2026-06-29 17:59 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/62566056.shtml)
+- 2026-06-29 17:59 - [港股蓝筹股的落寞才刚刚开始吗](http://www.share.kurohicncr.top/Article/details/92582.shtml)
+- 2026-06-29 18:06 - [世界杯在中国观看最多的比赛](http://www.blog.minike.top/Article/details/86512322985.shtml)
+- 2026-06-29 17:52 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/25400.shtml)
+- 2026-06-29 17:52 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/74222865059.shtml)
+- 2026-06-29 18:03 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/35511147150.shtml)
+- 2026-06-29 17:55 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/109077827.shtml)
+- 2026-06-29 17:53 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.share.minike.top/Article/details/32285.shtml)
+- 2026-06-29 17:54 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/791389461784.shtml)

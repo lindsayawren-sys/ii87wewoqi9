@@ -1,58 +1,57 @@
-# 全球灯塔工厂新名单公布，中国占比过半
+# 中国成品油价年内第二次下调
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-专题：2026第十七届夏季达沃斯论坛 世界经济论坛 世界经济论坛公布16个新工厂加入全球灯塔网络，至此该网络已汇聚全球238个一流工厂。 新晋灯塔工厂折射出工业竞争力的三大变革方向：端到端智能化、人机协同、以可持续发展赋能经营绩效。 世界经济论坛同步推出全新项目“影响力之星”（Impact Stars），表彰有望重塑行业运营模式的突破性工业创新成果。 了解2026年新领军者年会
+中新社北京6月4日电 中国成品油价年内第二次下调。 中国国家发改委4日消息，5月21日国内成品油价格调整以来，国际市场原油价格震荡下行后近日有所回升，本次调价的前10个工作日平均价格低于上次调价前10个工作日平均价格。根据国际市场油价变化情况，自6月4日24时起，国内汽、柴油价格每吨分别下调525元(人民币，下同)、505元。 折合升价，92号汽油、95号汽油、0号柴油每升分别
 
 ## 正文
 
-专题：2026第十七届夏季达沃斯论坛 世界经济论坛 世界经济论坛公布16个新工厂加入全球灯塔网络，至此该网络已汇聚全球238个一流工厂。
+中新社北京6月4日电 中国成品油价年内第二次下调。
 
-新晋灯塔工厂折射出工业竞争力的三大变革方向：端到端智能化、人机协同、以可持续发展赋能经营绩效。
+中国国家发改委4日消息，5月21日国内成品油价格调整以来，国际市场原油价格震荡下行后近日有所回升，本次调价的前10个工作日平均价格低于上次调价前10个工作日平均价格。
 
-世界经济论坛同步推出全新项目“影响力之星”（Impact Stars），表彰有望重塑行业运营模式的突破性工业创新成果。
+根据国际市场油价变化情况，自6月4日24时起，国内汽、柴油价格每吨分别下调525元(人民币，下同)、505元。
 
-了解2026年新领军者年会的更多信息，请访问世界经济论坛官网。
+折合升价，92号汽油、95号汽油、0号柴油每升分别下调0.41元、0.44元、0.43元。
 
-在社交媒体上关注年会动态，欢迎使用话题标签#2026夏季达沃斯。
+这是中国成品油价年内第二次下调。
 
-详细了解全球灯塔网络，请点击阅读原文。
+调价落地后，消费者用油成本将有所降低。
 
-世界经济论坛今日宣布，全球灯塔网络新增16家成员，目前网络已汇聚全球238座顶尖制造及供应链运营基地。
+卓创资讯成品油分析师曹莹莹表示，油箱容量50升的小型私家车加满一箱92号汽油，将比之前少花20.5元。
 
-这些灯塔工厂充分展示了企业正通过规模化应用先进技术，持续提升生产效率、供应链韧性、可持续发展能力、客户服务水平与人才发展成效。
+以月跑2000公里，百公里油耗8升的小型私家车为例，到下次调价窗口开启(6月18日24时)前，消费者用油成本将减少31元。
 
 ## 相关推荐
 
-- 2026-06-29 17:58 - [谢依霖夸杨幂靠谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 17:54 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-29 17:56 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-29 17:49 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-29 17:50 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 17:42 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-29 18:07 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-29 17:54 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-29 17:52 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 18:10 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 17:55 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 18:04 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 17:48 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 17:53 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 18:08 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 17:54 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-29 17:54 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 18:13 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-29 18:05 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 17:53 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 18:10 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-29 17:59 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 18:05 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:03 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/266557.shtml)
-- 2026-06-29 18:02 - [12所大学更正招生目录](https://www.blog.minike.top/Article/details/553172785.shtml)
-- 2026-06-29 17:53 - [和周杰伦在演唱会合唱了](https://www.share.minike.top/Article/details/6655026333.shtml)
-- 2026-06-29 17:42 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/3241304.shtml)
-- 2026-06-29 17:42 - [德国连续三天刷新本国最高气温纪录](http://www.blog.kurohicncr.top/Article/details/642884197.shtml)
-- 2026-06-29 17:53 - [断骨增高灰产拉一人提成1.5万元](http://www.share.minike.top/Article/details/504658327.shtml)
-- 2026-06-29 17:52 - [世界杯预测史上最不吃压力之物](http://www.blog.kurohicncr.top/Article/details/2807326292.shtml)
-- 2026-06-29 17:44 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/91386.shtml)
-- 2026-06-29 17:57 - [勇敢的心第二部](https://www.share.minike.top/Article/details/184192.shtml)
-- 2026-06-29 17:43 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/48181558761.shtml)
-- 2026-06-29 18:00 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/84687.shtml)
-- 2026-06-29 17:43 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.kurohicncr.top/Article/details/74024140.shtml)
-- 2026-06-29 17:47 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.share.minike.top/Article/details/5310667.shtml)
-- 2026-06-29 17:59 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/55640107.shtml)
-- 2026-06-29 18:00 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/464941451287.shtml)
+- 2026-06-29 18:11 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/0038010837.shtml)
+- 2026-06-29 17:49 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/0232888340.shtml)
+- 2026-06-29 17:56 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/535918502551.shtml)
+- 2026-06-29 17:52 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/55578976611.shtml)
+- 2026-06-29 17:54 - [韩国队出局是因为内讧吗](http://www.blog.kurohicncr.top/Article/details/70809.shtml)
+- 2026-06-29 17:48 - [老板回应员工光脚清洗土豆](http://www.share.minike.top/Article/details/41949047354.shtml)
+- 2026-06-29 17:57 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/317534.shtml)
+- 2026-06-29 17:59 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/867960.shtml)
+- 2026-06-29 17:48 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/04870722316.shtml)
+- 2026-06-29 18:13 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/254349736017.shtml)
+- 2026-06-29 18:02 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/11205235231.shtml)
+- 2026-06-29 18:10 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/110719475.shtml)
+- 2026-06-29 18:00 - [金牌调解](https://www.share.kurohicncr.top/Article/details/314944392.shtml)
+- 2026-06-29 18:06 - [小鹏MONAL03预售定档7月2日](http://www.share.minike.top/Article/details/057860.shtml)
+- 2026-06-29 18:16 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.minike.top/Article/details/9347816.shtml)

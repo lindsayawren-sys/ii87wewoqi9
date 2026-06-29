@@ -1,61 +1,61 @@
-# 金融科技显著领涨，大智慧涨停！软件开发ETF华宝（159036）大涨3%！日k线低位攀升，右侧信号显现？
+# 湖北仙桃市委统一战线工作领导小组会议召开
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-今日（6月22日）午后，金融科技概念股显著领涨，大智慧涨停，艾融软件领涨超18%，同花顺涨超12%，囊括金融科技、AI应用等热门概念的——软件开发ETF华宝（159036）午后快速拉升，场内价格现涨3.15%，其标的指数（软件开发指数）冲击日线6连阳，日k线呈现低位攀升态势。 金融科技方面，业内人士指出，当前AI在金融领域的应用大多仍停留在“辅助工具”阶段，但未来3至5年，AI
+仙桃市委统一战线工作领导小组会议召开 6月3日，仙桃市委书记孙道军主持召开市委统一战线工作领导小组会议，深入学习贯彻习近平总书记关于做好新时代党的统一战线工作的重要思想，传达贯彻省委统一战线工作领导小组会议精神，听取全市统战工作情况汇报，审议相关文件，研究部署下阶段重点任务。市委常委、统战部部长颜志超参加会议。 会议指出 今年是中国共产党成立105周年，是“十五五”开局之年，做
 
 ## 正文
 
-今日（6月22日）午后，金融科技概念股显著领涨，大智慧涨停，艾融软件领涨超18%，同花顺涨超12%，囊括金融科技、AI应用等热门概念的——软件开发ETF华宝（159036）午后快速拉升，场内价格现涨3.15%，其标的指数（软件开发指数）冲击日线6连阳，日k线呈现低位攀升态势。
+仙桃市委统一战线工作领导小组会议召开 6月3日，仙桃市委书记孙道军主持召开市委统一战线工作领导小组会议，深入学习贯彻习近平总书记关于做好新时代党的统一战线工作的重要思想，传达贯彻省委统一战线工作领导小组会议精神，听取全市统战工作情况汇报，审议相关文件，研究部署下阶段重点任务。
 
-金融科技方面，业内人士指出，当前AI在金融领域的应用大多仍停留在“辅助工具”阶段，但未来3至5年，AI将深度渗透至金融全场景核心工作，中国“金融Agent”时代即将到来。
+市委常委、统战部部长颜志超参加会议。
 
-这一变革将呈现三大特征：从被动响应到主动执行、从单点功能到全流程闭环、从黑箱操作到合规可溯。
+会议指出 今年是中国共产党成立105周年，是“十五五”开局之年，做好统战工作意义重大。
 
-AI应用方面，中国银河证券指出，随着国内大模型的持续迭代与落地，AI应用商业化具备广阔发展空间，相关企业有望受益于需求上升带来的新增量，建议关注大模型厂商。
+要把稳统战之“舵”，在思想引领上同向同行。
 
-同时，用户习惯的培育亦有利于AI垂类应用的发展，建议关注AI赋能不断深化的AI应用及产业链相关相关子板块。
+以深入开展树立和践行正确政绩观学习教育为抓手，统筹抓好党外知识分子和新的社会阶层人士、非公有制经济人士、民族宗教界人士的学习教育，确保新时代统战工作沿着正确方向前进。
 
-估值方面，截至上周五（6月19日），软件开发ETF华宝（159036）标的指数（软件开发指数）市盈率PE（TTM）为174.72倍，位于上市以来21.82%分位点，估值性价比、安全边际较高。
+要彰显统战之“为”，在服务发展上敢闯敢干。
 
-【硬件的尽头，或是软件的春天】 纵观历次科技革命，利润皆由硬件流向应用，硬件的尽头，或是软件的春天。
+要当好服务企业的“先锋”，深入开展“大调研、大走访、解难题”活动，推动优化营商环境“五件套”工作机制落到实处，让更多企业扎根仙桃、大展宏图。
 
-今年年初受“大模型吞噬软件”叙事发酵扰动，AI应用板块较算力、模型端估值折价显著，软件板块成为AI产业链中“水位”较低的细分领域，估值性价比、安全边际较高，叠加AI赋能+信创驱动，软件开发方向有望乘势而起。
+要当好对外招商的“红娘”，打好沔商牌、小米牌，充分发挥台商的资源优势和台协的桥梁纽带作用，配合开展好湖北·武汉台湾周等鄂台经贸交流，擦亮海峡两岸产业合作创新服务示范基地“金字招牌”。
 
 ## 相关推荐
 
-- 2026-06-29 18:08 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-29 17:46 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 18:08 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 17:43 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 17:46 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-29 17:54 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 17:47 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-29 17:52 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-29 17:52 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-29 17:46 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 17:49 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-29 18:09 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 18:04 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-29 18:06 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 17:51 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 17:54 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 17:59 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 18:14 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 18:07 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-29 17:59 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-29 18:03 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 18:04 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 18:02 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 18:09 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-29 18:10 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-29 18:06 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 18:12 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 18:10 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 18:12 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 18:08 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/3873877.shtml)
-- 2026-06-29 17:57 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/6805940.shtml)
-- 2026-06-29 17:46 - [世界杯在中国观看最多的比赛](https://www.blog.minike.top/Article/details/297318.shtml)
-- 2026-06-29 18:00 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/904514430798.shtml)
-- 2026-06-29 18:07 - [啊啊啊](http://www.blog.minike.top/Article/details/1587351.shtml)
-- 2026-06-29 18:10 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/657753525.shtml)
-- 2026-06-29 17:55 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/28345.shtml)
-- 2026-06-29 18:09 - [四川达州发生一起交通事故致2死](https://www.share.minike.top/Article/details/87820675.shtml)
-- 2026-06-29 17:58 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/8512454961.shtml)
-- 2026-06-29 18:05 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/476418318.shtml)
-- 2026-06-29 18:05 - [天道](https://www.blog.kurohicncr.top/Article/details/325367162640.shtml)
-- 2026-06-29 17:55 - [河南四位大妈景区跳舞爆火](https://www.blog.minike.top/Article/details/12339539.shtml)
-- 2026-06-29 17:53 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/31260732.shtml)
-- 2026-06-29 17:59 - [中国战机大片上新](https://www.blog.minike.top/Article/details/84365471888.shtml)
-- 2026-06-29 17:58 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/365654.shtml)
+- 2026-06-29 17:52 - [徐昕暂不参加NBA夏季联赛](http://www.blog.kurohicncr.top/Article/details/425881804388.shtml)
+- 2026-06-29 18:11 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.kurohicncr.top/Article/details/62082835208.shtml)
+- 2026-06-29 18:00 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/83784.shtml)
+- 2026-06-29 18:02 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/896582218057.shtml)
+- 2026-06-29 17:59 - [滚石就音乐人屠颖去世事件发声明](https://www.share.kurohicncr.top/Article/details/17590314.shtml)
+- 2026-06-29 18:03 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/8331818.shtml)
+- 2026-06-29 18:15 - [小S在香港被偶遇](https://www.share.minike.top/Article/details/46080447.shtml)
+- 2026-06-29 17:58 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/580559.shtml)
+- 2026-06-29 17:55 - [青春环游记第三季](http://www.share.minike.top/Article/details/96337777.shtml)
+- 2026-06-29 18:00 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.minike.top/Article/details/549102.shtml)
+- 2026-06-29 18:10 - [周生如故](https://www.share.kurohicncr.top/Article/details/55244706.shtml)
+- 2026-06-29 18:09 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/751926.shtml)
+- 2026-06-29 17:59 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/539431076.shtml)
+- 2026-06-29 18:13 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/879460.shtml)
+- 2026-06-29 17:55 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/165295825.shtml)

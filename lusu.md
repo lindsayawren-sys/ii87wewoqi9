@@ -1,47 +1,53 @@
-# 中远海能遭摩根大通减持约726.15万股 每股作价17.019港元
+# 韩国股市一度重挫5% 芯片股随美国同业下滑
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，6月15日，摩根大通减持中远海能（01138）726.1481万股，每股作价17.019港元，总金额约为1.24亿港元。减持后最新持股数目约为8748万股，最新持股比例为6.75%。责任编辑：卢昱君
+韩国Kospi指数一度暴跌5%，连续第二天走低，在隔夜美国芯片股下跌后，韩国相关业者股价也走低。SK海力士、三星电子和SK Square领跌。美国芯片股指数周四收跌2.2%，其中美光科技下跌7.7%。韩国小盘股Kosdaq指数一度下跌2.9%。周五早盘，韩国股市成为亚洲跌幅最大的股市，MSCI亚太指数下跌约1%。责任编辑：王永生
 
 ## 正文
 
-香港联交所最新资料显示，6月15日，摩根大通减持中远海能（01138）726.1481万股，每股作价17.019港元，总金额约为1.24亿港元。
+韩国Kospi指数一度暴跌5%，连续第二天走低，在隔夜美国芯片股下跌后，韩国相关业者股价也走低。
 
-减持后最新持股数目约为8748万股，最新持股比例为6.75%。
+SK海力士、三星电子和SK Square领跌。
 
-责任编辑：卢昱君
+美国芯片股指数周四收跌2.2%，其中美光科技下跌7.7%。
+
+韩国小盘股Kosdaq指数一度下跌2.9%。
+
+周五早盘，韩国股市成为亚洲跌幅最大的股市，MSCI亚太指数下跌约1%。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 18:07 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-29 18:04 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-29 17:52 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 18:03 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 18:03 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 18:09 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 18:10 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-29 18:04 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-29 18:09 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-29 17:53 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-29 18:03 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 18:00 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 17:50 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-29 17:51 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 18:07 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 17:56 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-29 17:56 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-29 17:51 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-29 18:12 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 18:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 18:12 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-29 18:16 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:44 - [挪威王储妃长子两次强奸获刑](https://www.blog.minike.top/Article/details/86295384631.shtml)
-- 2026-06-29 18:08 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/2467942.shtml)
-- 2026-06-29 17:44 - [5万块的威力](https://www.share.minike.top/Article/details/4893533784.shtml)
-- 2026-06-29 17:44 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/692817555452.shtml)
-- 2026-06-29 17:51 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/07238.shtml)
-- 2026-06-29 18:04 - [斛珠夫人](http://www.blog.minike.top/Article/details/34275465.shtml)
-- 2026-06-29 17:48 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/580886214477.shtml)
-- 2026-06-29 17:46 - [盛秋平任南昌市委书记](https://www.share.minike.top/Article/details/424628.shtml)
-- 2026-06-29 17:53 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/432500.shtml)
-- 2026-06-29 17:48 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/46539.shtml)
-- 2026-06-29 18:07 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.minike.top/Article/details/0191273397.shtml)
-- 2026-06-29 17:44 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/615589461.shtml)
-- 2026-06-29 17:42 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/16499494.shtml)
-- 2026-06-29 18:10 - [王安宇尊重田曦薇的一切选择](https://www.share.kurohicncr.top/Article/details/901869.shtml)
-- 2026-06-29 18:11 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.kurohicncr.top/Article/details/04868506.shtml)
+- 2026-06-29 18:17 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/077808.shtml)
+- 2026-06-29 18:05 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/24555789.shtml)
+- 2026-06-29 17:57 - [许建琼任湖南省检察院副检察长](http://www.blog.kurohicncr.top/Article/details/46987587.shtml)
+- 2026-06-29 17:50 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/023713731502.shtml)
+- 2026-06-29 18:07 - [看大国重器“云端穿针引线”](https://www.blog.minike.top/Article/details/553907373302.shtml)
+- 2026-06-29 18:12 - [张杰我九岁就跟你了](https://www.blog.kurohicncr.top/Article/details/2179895.shtml)
+- 2026-06-29 18:08 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/8726829813.shtml)
+- 2026-06-29 18:02 - [日本前锋言论激怒巴西](http://www.blog.kurohicncr.top/Article/details/734762595898.shtml)
+- 2026-06-29 18:13 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/69252770.shtml)
+- 2026-06-29 18:00 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/0790764004.shtml)
+- 2026-06-29 18:08 - [白宇摘下白玉兰送给杨幂](http://www.blog.kurohicncr.top/Article/details/26374706.shtml)
+- 2026-06-29 18:13 - [林昀儒不敌17岁小将止步首轮](https://www.share.minike.top/Article/details/868763983.shtml)
+- 2026-06-29 18:00 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/55553.shtml)
+- 2026-06-29 18:17 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/61606992.shtml)
+- 2026-06-29 17:54 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/379408945741.shtml)

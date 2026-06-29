@@ -1,60 +1,57 @@
-# 网警依法查处编造传播涉农网络谣言案 全力护航“三夏”生产
+# 做空浪潮难挡 日元沦为“全球最弱货币”
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-当前，正值“三夏”生产关键时期，各地抢抓农时、争分夺秒开展夏收，全力保障夏粮颗粒归仓。个别不法网民为博取关注、吸粉引流，通过网络平台肆意编造、摆拍、发布涉农虚假信息，误导公众认知，制造社会焦虑，扰乱农业生产秩序，挑战法律底线。近日，河南公安机关网安部门迅速行动，依法查处一批涉农网络谣言案件，坚决维护网络环境清朗和农业生产大局稳定。 经查，网民祁某、刘某、周某、吴某、张某、侯某、
+“日元下跌后，我家买4包纸尿裤从4月的6174日元一下子猛涨到这个月的6946日元。”住在日本福冈的陈女士向21世纪经济报道晒出了购物账单。 6月3日，东京外汇市场上，日元对美元汇率再度跌至1美元兑160日元。截至北京时间6月3日晚上7点，日元对美元汇率略有回升，录得1美元兑159.8日元。 国际清算银行数据显示，以2020年为基准计算，日元实际有效汇率指数今年4月已跌至65.
 
 ## 正文
 
-当前，正值“三夏”生产关键时期，各地抢抓农时、争分夺秒开展夏收，全力保障夏粮颗粒归仓。
+“日元下跌后，我家买4包纸尿裤从4月的6174日元一下子猛涨到这个月的6946日元。
 
-个别不法网民为博取关注、吸粉引流，通过网络平台肆意编造、摆拍、发布涉农虚假信息，误导公众认知，制造社会焦虑，扰乱农业生产秩序，挑战法律底线。
+”住在日本福冈的陈女士向21世纪经济报道晒出了购物账单。
 
-近日，河南公安机关网安部门迅速行动，依法查处一批涉农网络谣言案件，坚决维护网络环境清朗和农业生产大局稳定。
+6月3日，东京外汇市场上，日元对美元汇率再度跌至1美元兑160日元。
 
-经查，网民祁某、刘某、周某、吴某、张某、侯某、刘某、王某、马某等多人发布涉安阳、商丘、周口、济源等地“毁粮卖青”“谁在麦田下投毒”“麦田流血水”等多条涉农网络谣言信息，引发大范围传播，误导公众认知，造成不良社会影响。
+截至北京时间6月3日晚上7点，日元对美元汇率略有回升，录得1美元兑159.8日元。
 
-目前，属地公安机关已对上述人员依法作出行政处罚。
+国际清算银行数据显示，以2020年为基准计算，日元实际有效汇率指数今年4月已跌至65.70，为1973年日本实行浮动汇率制度以来的最低水平。
 
-网警提醒：网络空间不是法外之地！
+实际有效汇率综合了通胀水平、贸易状况、一篮子货币相对表现，能真实反映一国货币的对外购买力。
 
-“三夏”生产关乎国家粮食安全和千家万户生计，请广大网民自觉遵守法律法规，不造谣、不信谣、不传谣。
+日元贬值最切身的“痛”，不仅体现在普通人的菜篮子里，也显现在日本企业日益攀升的经营成本中。
 
-公安网安部门将持续保持严打高压态势，对造谣传谣行为依法打处，全力为“三夏”生产保驾护航。
+从国家财政收入的角度看，有分析称，日元贬值带来的输入性压力还会推升日债收益率，增加日本的财政压力。
 
 ## 相关推荐
 
-- 2026-06-29 18:05 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-29 17:47 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-29 17:59 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 17:44 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-29 18:06 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-29 17:56 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-29 18:00 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-29 18:03 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 18:03 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-29 18:07 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 17:43 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-29 17:45 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 18:10 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-29 17:55 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-29 18:01 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-29 18:13 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-29 17:51 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 18:13 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-29 18:16 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-29 18:14 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-29 17:55 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-29 17:53 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 18:04 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-29 18:17 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 17:58 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:11 - [森保一坚信日本能赢巴西](http://www.blog.minike.top/Article/details/797022135.shtml)
-- 2026-06-29 18:06 - [唐国强打卡贵阳孔学堂](http://www.share.kurohicncr.top/Article/details/32065029116.shtml)
-- 2026-06-29 18:09 - [李小璐回应无戏可拍](https://www.share.kurohicncr.top/Article/details/0489778.shtml)
-- 2026-06-29 17:51 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/1814206622.shtml)
-- 2026-06-29 17:55 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/841311623505.shtml)
-- 2026-06-29 18:00 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.kurohicncr.top/Article/details/9644535938.shtml)
-- 2026-06-29 18:04 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/729716870918.shtml)
-- 2026-06-29 18:03 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/039280404.shtml)
-- 2026-06-29 17:54 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/1251686643.shtml)
-- 2026-06-29 18:07 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/9866286838.shtml)
-- 2026-06-29 18:08 - [女心理师](https://www.share.kurohicncr.top/Article/details/045140428.shtml)
-- 2026-06-29 17:55 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/75983639.shtml)
-- 2026-06-29 18:09 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/311448.shtml)
-- 2026-06-29 17:45 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/754442.shtml)
-- 2026-06-29 18:00 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/2265133886.shtml)
+- 2026-06-29 17:48 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/393663485.shtml)
+- 2026-06-29 18:01 - [美人鱼](http://www.share.minike.top/Article/details/74337.shtml)
+- 2026-06-29 18:08 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/98556910.shtml)
+- 2026-06-29 18:06 - [苹果回应恋与深空低分](https://www.share.kurohicncr.top/Article/details/530236412073.shtml)
+- 2026-06-29 18:12 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/457074.shtml)
+- 2026-06-29 17:54 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/79127.shtml)
+- 2026-06-29 17:53 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/90425424539.shtml)
+- 2026-06-29 18:10 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/90992828.shtml)
+- 2026-06-29 17:57 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/767532.shtml)
+- 2026-06-29 18:06 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/03340.shtml)
+- 2026-06-29 18:03 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/4639946983.shtml)
+- 2026-06-29 17:51 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/262242.shtml)
+- 2026-06-29 18:05 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.minike.top/Article/details/5954979436.shtml)
+- 2026-06-29 18:16 - [送你一朵小红花](http://www.blog.minike.top/Article/details/459693.shtml)
+- 2026-06-29 17:55 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/098618524804.shtml)

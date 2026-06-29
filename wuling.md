@@ -1,56 +1,53 @@
-# 高盛：中国人寿给予“中性”评级 目标价28.5港元
+# 张小龙关于人大讲座事件的说明与致歉：那一瞬间我破防了 希望大家把我当一条疯狗放了
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-高盛发布研报称，对中国人寿（02628）评级为中性，基于总资产回报率计算的12个月目标价为28.5港元，对应1.0倍的2027年预期市净率。投资者问题主要集中于销售前景、银保渠道的潜在增长和干扰情况、投资及股息方面。中国人寿重申2026年的目标是实现新业务价值两位数增长，并强调了银保渠道的竞争优势。2026年二季度股市的强劲走势已推动投资表现改善。对于担忧三季度基数效应的投资者
+专题：在中国人民大学演讲时言行失当，粉笔CEO张小龙发文致歉 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月4日上午10 时，国内头部考公培训机构粉笔科技通过官方微博发布致歉信。下午，张小龙再发关于人大讲座事件的说明与致歉。说那一瞬间我破防了 希望大家把我当一条疯狗放了。 责任编辑：刘万里 SF014
 
 ## 正文
 
-高盛发布研报称，对中国人寿（02628）评级为中性，基于总资产回报率计算的12个月目标价为28.5港元，对应1.0倍的2027年预期市净率。
+专题：在中国人民大学演讲时言行失当，粉笔CEO张小龙发文致歉 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-投资者问题主要集中于销售前景、银保渠道的潜在增长和干扰情况、投资及股息方面。
+6月4日上午10 时，国内头部考公培训机构粉笔科技通过官方微博发布致歉信。
 
-中国人寿重申2026年的目标是实现新业务价值两位数增长，并强调了银保渠道的竞争优势。
+下午，张小龙再发关于人大讲座事件的说明与致歉。
 
-2026年二季度股市的强劲走势已推动投资表现改善。
+说那一瞬间我破防了 希望大家把我当一条疯狗放了。
 
-对于担忧三季度基数效应的投资者，中国人寿表示应该关注全年利润，尤其是考虑到四季度较低的基数。
-
-管理层还将努力降低每股股息的波动幅度。
-
-责任编辑：卢昱君
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 17:56 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-29 18:08 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-29 18:08 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 17:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-29 17:55 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-29 17:53 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-29 18:05 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 18:02 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 17:58 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 18:06 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 17:47 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-29 17:59 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-29 17:50 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-29 17:49 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 17:52 - [世界杯在中国观看最多的比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 17:58 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-29 17:55 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 18:13 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-29 18:02 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-29 17:58 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-29 18:15 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 18:12 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 18:16 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-29 17:54 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 17:51 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:06 - [存储三巨头被告了](https://www.share.minike.top/Article/details/677279181.shtml)
-- 2026-06-29 18:07 - [周生如故](http://www.share.kurohicncr.top/Article/details/872653.shtml)
-- 2026-06-29 18:03 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/044376392924.shtml)
-- 2026-06-29 17:55 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.kurohicncr.top/Article/details/5129838.shtml)
-- 2026-06-29 18:00 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/298496.shtml)
-- 2026-06-29 18:05 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.share.minike.top/Article/details/571386493740.shtml)
-- 2026-06-29 17:52 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.kurohicncr.top/Article/details/55265.shtml)
-- 2026-06-29 17:56 - [papi酱在救赎窦文涛](http://www.blog.minike.top/Article/details/11315049.shtml)
-- 2026-06-29 17:44 - [三轮车过马路 车上木材砸中路边男子](https://www.share.minike.top/Article/details/608648695.shtml)
-- 2026-06-29 17:45 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/381981172.shtml)
-- 2026-06-29 17:52 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/31130517.shtml)
-- 2026-06-29 17:50 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/4173850.shtml)
-- 2026-06-29 17:47 - [谢依霖夸杨幂靠谱](http://www.blog.minike.top/Article/details/77652506699.shtml)
-- 2026-06-29 18:03 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/49402932.shtml)
-- 2026-06-29 18:02 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/7640943.shtml)
+- 2026-06-29 18:01 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/31143.shtml)
+- 2026-06-29 17:49 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.kurohicncr.top/Article/details/959103378.shtml)
+- 2026-06-29 18:13 - [李在镕：计划将光州作为芯片生产基地](http://www.share.minike.top/Article/details/65587626.shtml)
+- 2026-06-29 17:54 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.kurohicncr.top/Article/details/49911235.shtml)
+- 2026-06-29 18:09 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/5319174.shtml)
+- 2026-06-29 18:12 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/934294.shtml)
+- 2026-06-29 17:55 - [四川地震前夕 街头电线上站满燕子](http://www.share.kurohicncr.top/Article/details/0304166.shtml)
+- 2026-06-29 17:50 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/26020.shtml)
+- 2026-06-29 18:10 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.kurohicncr.top/Article/details/9895647.shtml)
+- 2026-06-29 18:14 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/40157.shtml)
+- 2026-06-29 18:13 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.minike.top/Article/details/15747146004.shtml)
+- 2026-06-29 18:10 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/75623123.shtml)
+- 2026-06-29 17:49 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/8123465.shtml)
+- 2026-06-29 18:08 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/51432591564.shtml)
+- 2026-06-29 17:59 - [王楚钦开门红](https://www.blog.minike.top/Article/details/48700.shtml)

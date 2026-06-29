@@ -1,58 +1,42 @@
-# AI解锁宁夏枸杞出海新渠道
+# 重情重义的领袖、实干家——老挝奔舍那家族眼中的习近平
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-中新网宁夏中宁6月22日电 (杨迪 孔婷婷 李晓歌)6月22日，宁夏枸杞AI赋能国际宣传推广项目阶段性成果亮相第九届枸杞产业博览会，该项目通过打造数字传播体系，解锁宁夏枸杞出海新渠道。 据介绍，项目团队从零搭建海外社交官方账号，累计发布252条枸杞相关内容，涵盖田间采摘实景、枸杞养生食谱、日常冲泡技巧等多元内容，吸引近3.5万名海外网友互动留言。 与此同时，项目聚焦全球Z世代群
+发布时间：2026年06月04日 20:33 来源：人民日报英文客户端 责任编辑：【韦俊龙】
 
 ## 正文
 
-中新网宁夏中宁6月22日电 (杨迪 孔婷婷 李晓歌)6月22日，宁夏枸杞AI赋能国际宣传推广项目阶段性成果亮相第九届枸杞产业博览会，该项目通过打造数字传播体系，解锁宁夏枸杞出海新渠道。
-
-据介绍，项目团队从零搭建海外社交官方账号，累计发布252条枸杞相关内容，涵盖田间采摘实景、枸杞养生食谱、日常冲泡技巧等多元内容，吸引近3.5万名海外网友互动留言。
-
-与此同时，项目聚焦全球Z世代群体，在海外主流社交平台开设宁夏枸杞专属账号，持续输出枸杞美食制作、产地自然风光等年轻化内容，自今年2月账号运营以来，相关内容累计触达170万海外青年用户，不少海外年轻人主动创作分享枸杞茶饮、枸杞烘焙等创意作品，让枸杞文化自发传播。
-
-线下方面，项目组织邀请40多个国家的在宁留学生走进枸杞田、加工厂，亲手体验鲜果采摘、干果加工，并将真实体验分享至社交平台，以普通人视角实现柔性传播。
-
-该项目还打造出适配中小枸杞企业的AI智能工具。
-
-企业登录系统后，输入展会、海外市场受众信息，就能一键产出多语种图文、宣传文案。
-
-此外，针对宁夏枸杞对外推广面临的产业资料零散杂乱、海外发声渠道少等困境，项目团队搭建起一套专属枸杞的数字知识体系，梳理出枸杞溯源、产地风土、种植加工等六大核心板块，配套搭建中、英、日、阿、俄文五套标准化表达模板。
-
-目前项目已储备1430万字、642条中文枸杞相关语料，多语种素材同步完善；并可通过AI调取素材产出宣传内容，人工审核优化后，优质稿件、短片又回流系统持续更新，进一步贴合海外受众喜好。
+发布时间：2026年06月04日 20:33 来源：人民日报英文客户端 责任编辑：【韦俊龙】
 
 ## 相关推荐
 
-- 2026-06-29 18:06 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 17:47 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-29 18:09 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 17:44 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 17:58 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 18:03 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 18:09 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-29 18:05 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 18:08 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-29 18:01 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 18:11 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 17:58 - [博主：AI泡沫必须破灭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 18:13 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 18:04 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 17:56 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 18:11 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 17:52 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 18:00 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-29 18:09 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 18:17 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 18:05 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 18:02 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:00 - [港股蓝筹股的落寞才刚刚开始吗](https://www.blog.minike.top/Article/details/28910661633.shtml)
-- 2026-06-29 18:00 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/790770.shtml)
-- 2026-06-29 17:53 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/368239.shtml)
-- 2026-06-29 17:59 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/9727175.shtml)
-- 2026-06-29 17:58 - [小说《无悔追踪》翻红](https://www.blog.minike.top/Article/details/1440843.shtml)
-- 2026-06-29 17:57 - [葛军谈AI时代理科生出路](http://www.share.kurohicncr.top/Article/details/509044385764.shtml)
-- 2026-06-29 17:48 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/808795988.shtml)
-- 2026-06-29 17:59 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/54086963318.shtml)
-- 2026-06-29 17:52 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/9291744424.shtml)
-- 2026-06-29 18:00 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/793018425.shtml)
-- 2026-06-29 17:46 - [小众羞耻点是吃麻辣烫](http://www.blog.kurohicncr.top/Article/details/8649454975.shtml)
-- 2026-06-29 17:47 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.minike.top/Article/details/4036799.shtml)
-- 2026-06-29 18:10 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/970466506038.shtml)
-- 2026-06-29 17:54 - [22岁民警拦截违法车辆被撞牺牲](https://www.blog.minike.top/Article/details/14092.shtml)
-- 2026-06-29 17:46 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.share.minike.top/Article/details/250230962405.shtml)
+- 2026-06-29 18:00 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/95754362.shtml)
+- 2026-06-29 18:14 - [挪威王储妃长子两次强奸获刑](http://www.share.kurohicncr.top/Article/details/3499101.shtml)
+- 2026-06-29 18:16 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/56772744470.shtml)
+- 2026-06-29 18:04 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/901643.shtml)
+- 2026-06-29 18:03 - [谢依霖夸杨幂靠谱](http://www.blog.kurohicncr.top/Article/details/5226885993.shtml)
+- 2026-06-29 17:57 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/758086.shtml)
+- 2026-06-29 17:53 - [呼兰赵晓卉来东风奕派开专场了](https://www.blog.kurohicncr.top/Article/details/7757260.shtml)
+- 2026-06-29 18:15 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/814411.shtml)
+- 2026-06-29 17:54 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/763534176.shtml)
+- 2026-06-29 17:58 - [女心理师](https://www.blog.kurohicncr.top/Article/details/682064857.shtml)
+- 2026-06-29 18:17 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/6007998089.shtml)
+- 2026-06-29 18:13 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/34953411807.shtml)
+- 2026-06-29 18:11 - [日本偶像龟梨和也宣布结婚](https://www.blog.kurohicncr.top/Article/details/54736793.shtml)
+- 2026-06-29 18:16 - [恋与深空道歉就够了吗](http://www.blog.minike.top/Article/details/97738.shtml)
+- 2026-06-29 17:51 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/17471119.shtml)

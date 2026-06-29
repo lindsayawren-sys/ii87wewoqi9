@@ -1,61 +1,47 @@
-# 特朗普签署量子研究行政令 以推动技术应用并提振网络防御能力
+# 福建省住房和城乡建设厅党组成员、副厅长蒋金明被查
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-特朗普周一签署旨在加速量子研究的行政命令，为联邦机构采用该技术、加强美国抵御网络攻击的能力奠定基础。 特朗普在白宫表示，这些行政命令将提升美国“在这个非常重要的新兴领域中的全球领导地位。我们已经遥遥领先，现在我们将进一步扩大领先优势。” 量子计算是一个新兴领域，但它对国家安全有着深远的影响，美国和中国都在竞相确立自己的主导地位。与特朗普一道现身的还有Alphabet高管Ruth
+中新网6月4日电 据福建省纪委监委消息：福建省住房和城乡建设厅党组成员、副厅长蒋金明涉嫌严重违纪违法，目前正接受福建省纪委监委纪律审查和监察调查。
 
 ## 正文
 
-特朗普周一签署旨在加速量子研究的行政命令，为联邦机构采用该技术、加强美国抵御网络攻击的能力奠定基础。
-
-特朗普在白宫表示，这些行政命令将提升美国“在这个非常重要的新兴领域中的全球领导地位。
-
-我们已经遥遥领先，现在我们将进一步扩大领先优势。
-
-” 量子计算是一个新兴领域，但它对国家安全有着深远的影响，美国和中国都在竞相确立自己的主导地位。
-
-与特朗普一道现身的还有Alphabet高管Ruth Porat以及IBM首席执行官Arvind Krishna。
-
-IBM股票在盘后交易中上涨2.4%。
-
-特朗普表示，第一项行政命令将启动项目，以研发能够执行重要科学计算的量子计算机。
-
-不愿透露姓名的白宫官员在签署仪式前向记者透露，他们相信到2028年就能研制出这样的计算机。
+中新网6月4日电 据福建省纪委监委消息：福建省住房和城乡建设厅党组成员、副厅长蒋金明涉嫌严重违纪违法，目前正接受福建省纪委监委纪律审查和监察调查。
 
 ## 相关推荐
 
-- 2026-06-29 17:55 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 18:10 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-29 17:45 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-29 17:56 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-29 18:02 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-29 17:54 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 18:08 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 17:53 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-29 18:06 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-29 18:06 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-29 17:55 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-29 18:10 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 17:59 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 18:06 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-29 17:42 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 18:12 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 18:15 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-29 18:14 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 17:56 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-29 17:59 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-29 18:12 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 17:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-29 17:52 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 18:17 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-29 18:02 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 18:08 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 17:49 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 17:48 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 17:50 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-29 17:51 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:06 - [欧洲人买空调难点在哪](http://www.blog.minike.top/Article/details/17093.shtml)
-- 2026-06-29 18:09 - [法拉利被4个孩子当滑梯玩](https://www.blog.kurohicncr.top/Article/details/69177991.shtml)
-- 2026-06-29 18:09 - [盛秋平任南昌市委书记](http://www.blog.kurohicncr.top/Article/details/792596543324.shtml)
-- 2026-06-29 17:48 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.kurohicncr.top/Article/details/79837119.shtml)
-- 2026-06-29 17:42 - [TLAW零封DCG MSI](https://www.share.minike.top/Article/details/077860678905.shtml)
-- 2026-06-29 17:51 - [德云色预测世界杯16强](http://www.blog.minike.top/Article/details/4192578.shtml)
-- 2026-06-29 18:04 - [铜价上涨 日本住宅水表失窃严重](https://www.share.minike.top/Article/details/80611.shtml)
-- 2026-06-29 18:04 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/19918.shtml)
-- 2026-06-29 17:48 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/285443803560.shtml)
-- 2026-06-29 18:04 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/31754.shtml)
-- 2026-06-29 17:58 - [外交部谈对日出口管制措施](http://www.share.minike.top/Article/details/3707242515.shtml)
-- 2026-06-29 17:54 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.blog.kurohicncr.top/Article/details/54652.shtml)
-- 2026-06-29 18:09 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/252184282897.shtml)
-- 2026-06-29 17:49 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/3271032.shtml)
-- 2026-06-29 17:54 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/27183592348.shtml)
+- 2026-06-29 18:08 - [四川达州发生一起交通事故致2死](https://www.blog.minike.top/Article/details/955629.shtml)
+- 2026-06-29 17:53 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/5433152844.shtml)
+- 2026-06-29 18:04 - [周生如故](https://www.share.kurohicncr.top/Article/details/7230618784.shtml)
+- 2026-06-29 18:16 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/39224.shtml)
+- 2026-06-29 18:04 - [沉睡花园](https://www.share.minike.top/Article/details/6543651.shtml)
+- 2026-06-29 18:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/29614.shtml)
+- 2026-06-29 18:03 - [曝屠颖去世和酒店失责有关](http://www.share.kurohicncr.top/Article/details/81766010.shtml)
+- 2026-06-29 18:03 - [葛军谈AI时代理科生出路](https://www.blog.kurohicncr.top/Article/details/4301623739.shtml)
+- 2026-06-29 18:02 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.minike.top/Article/details/56475431631.shtml)
+- 2026-06-29 17:56 - [在家赤身裸体是否绝对自由](https://www.blog.kurohicncr.top/Article/details/789711662802.shtml)
+- 2026-06-29 18:02 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/9374107992.shtml)
+- 2026-06-29 18:14 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/49162781185.shtml)
+- 2026-06-29 18:10 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/5639514392.shtml)
+- 2026-06-29 18:09 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/700628438333.shtml)
+- 2026-06-29 18:15 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/916764.shtml)

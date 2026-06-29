@@ -1,56 +1,57 @@
-# 高弹性“旗手”归来！金融科技ETF华宝（159851）放量涨逾5%！银之杰20CM涨停，同花顺涨超10%
+# 《新时代治国理政纪实》第一卷俄文版在俄首发
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-6月22日午后，大金融异动飙涨，新旧旗手高弹性归来，金融科技午后直线猛攻！其中，银之杰20CM涨停，中科金财封板，艾融软件、新国都、兆日科技、同花顺、赢时胜等多股大涨超10%。 热门ETF方面，同类规模最大的金融科技ETF华宝（159851）午后冲高逾5%，一举收复20日线，成交近4亿元，量能放大明显。 中长期来看，当前金融科技板块强催化与低估值共振。一方面，市场交投持续活跃，
+新华社圣彼得堡6月3日电(记者赵冰 陈畅)《新时代治国理政纪实》第一卷俄文版3日在俄罗斯圣彼得堡国际经济论坛发布。来自中国、俄罗斯等国家的媒体、智库和政府机构百余名代表参加发布会。新华社社长傅华、塔斯社社长孔德拉绍夫、中国驻圣彼得堡总领事罗占辉共同为新书揭幕。参会中外嘉宾认为，《新时代治国理政纪实》是讲述新时代中国治国理政伟大实践和卓越成就的新闻纪实，该书俄文版以详实案例、客观
 
 ## 正文
 
-6月22日午后，大金融异动飙涨，新旧旗手高弹性归来，金融科技午后直线猛攻！
+新华社圣彼得堡6月3日电(记者赵冰 陈畅)《新时代治国理政纪实》第一卷俄文版3日在俄罗斯圣彼得堡国际经济论坛发布。
 
-其中，银之杰20CM涨停，中科金财封板，艾融软件、新国都、兆日科技、同花顺、赢时胜等多股大涨超10%。
+来自中国、俄罗斯等国家的媒体、智库和政府机构百余名代表参加发布会。
 
-热门ETF方面，同类规模最大的金融科技ETF华宝（159851）午后冲高逾5%，一举收复20日线，成交近4亿元，量能放大明显。
+新华社社长傅华、塔斯社社长孔德拉绍夫、中国驻圣彼得堡总领事罗占辉共同为新书揭幕。
 
-中长期来看，当前金融科技板块强催化与低估值共振。
+参会中外嘉宾认为，《新时代治国理政纪实》是讲述新时代中国治国理政伟大实践和卓越成就的新闻纪实，该书俄文版以详实案例、客观视角和系统阐述全景呈现了新时代中国攻坚克难、砥砺奋进的发展历程，将为俄罗斯各界深入了解中国何以发展、中国之治何以有效提供权威、鲜活的参考读本，为推动中俄思想文化深入交流搭建坚实桥梁。
 
-一方面，市场交投持续活跃，叠加AI技术赋能，为互联网券商及金融IT提供坚实的基本面支撑；另一方面，板块经历回调后估值回落至近三年历史低位，安全边际与弹性空间并存。
+《新时代治国理政纪实》第一卷由新华通讯社编撰，新华出版社出版，面向海内外发行。
 
-西部证券表示，金融科技板块或迎盈利兑现驱动估值修复的奇点时刻。
-
-* 交投方面，A股成交连续突破2.5万亿元。
-
-金融科技强贝塔属性突出，高流动性下板块有望持续受益：互联网券商基本面预期有望持续改善，金融IT等作为顺周期高弹性品种，也持续受益于高流动性，C端炒股软件景气度向上，B端金融IT需求逐步释放。
+目前已出版了中文、英文、阿拉伯文、俄文等语种版本。
 
 ## 相关推荐
 
-- 2026-06-29 18:07 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-29 17:48 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-29 17:59 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-29 17:59 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-29 17:51 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-29 18:08 - [王安宇尊重田曦薇的一切选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 18:11 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 18:00 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-29 17:46 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-29 18:01 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 17:48 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 18:10 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-29 18:00 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 17:51 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-29 18:08 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 18:06 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 17:59 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-29 17:59 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 18:04 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-29 18:16 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 18:15 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 18:04 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 18:16 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-29 18:10 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 17:48 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:06 - [曝iPhone涨价后不会再降](https://www.blog.minike.top/Article/details/179678492.shtml)
-- 2026-06-29 17:54 - [2026年，如果你有100万，你会怎么投资？](https://www.blog.minike.top/Article/details/289147910.shtml)
-- 2026-06-29 18:09 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/8396070691.shtml)
-- 2026-06-29 17:44 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/08246.shtml)
-- 2026-06-29 17:56 - [日本前锋言论激怒巴西](http://www.share.minike.top/Article/details/50557.shtml)
-- 2026-06-29 17:44 - [博主：AI泡沫必须破灭](https://www.blog.minike.top/Article/details/990172817.shtml)
-- 2026-06-29 18:05 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/6506309872.shtml)
-- 2026-06-29 17:50 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/83529283.shtml)
-- 2026-06-29 17:49 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/782643.shtml)
-- 2026-06-29 17:58 - [省市招考专家解读山西高考志愿政策](http://www.share.kurohicncr.top/Article/details/7486455658.shtml)
-- 2026-06-29 17:46 - [日本前锋言论激怒巴西](https://www.share.minike.top/Article/details/5167448420.shtml)
-- 2026-06-29 18:04 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/57719096263.shtml)
-- 2026-06-29 18:09 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/41854.shtml)
-- 2026-06-29 18:11 - [夏天被这些虫子咬了可能致命](http://www.blog.kurohicncr.top/Article/details/202056.shtml)
-- 2026-06-29 18:03 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/561511922.shtml)
+- 2026-06-29 18:04 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.minike.top/Article/details/409321164.shtml)
+- 2026-06-29 18:02 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/15731.shtml)
+- 2026-06-29 18:10 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/554625141734.shtml)
+- 2026-06-29 18:09 - [大 周 礼 时 代(4)](https://www.blog.kurohicncr.top/Article/details/319412.shtml)
+- 2026-06-29 17:51 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/692123.shtml)
+- 2026-06-29 18:10 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/93440.shtml)
+- 2026-06-29 17:54 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/79334.shtml)
+- 2026-06-29 17:53 - [日本前锋言论激怒巴西](http://www.share.minike.top/Article/details/5085864.shtml)
+- 2026-06-29 17:55 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/153236699.shtml)
+- 2026-06-29 18:17 - [赵今麦时隔五年再演李诗情](https://www.share.kurohicncr.top/Article/details/6117677247.shtml)
+- 2026-06-29 18:04 - [当家电外通风口出现鸟窝](http://www.share.minike.top/Article/details/975090.shtml)
+- 2026-06-29 18:14 - [一见倾心](http://www.share.kurohicncr.top/Article/details/288247104036.shtml)
+- 2026-06-29 18:12 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/3151495.shtml)
+- 2026-06-29 17:57 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/19461.shtml)
+- 2026-06-29 17:53 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/0213831.shtml)

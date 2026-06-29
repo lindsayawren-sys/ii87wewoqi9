@@ -1,61 +1,58 @@
-# 云南通报中考历史试卷问题：成立调查组 相关人员停职检查
+# 2026中国水博览会在合肥开幕
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-中新网6月21日电 据云南省招生考试院网站消息，云南省招生考试院21日发布情况通报称，针对云南省2026年中考历史科目试卷第29题展板二内容有误的情况，云南省教育厅责成云南省招生考试院立即对命题工作开展核查，对答题影响开展评估。 现将有关情况通报如下： 一、试题核实情况 (一)爱迪生“1882年出生于纽约”表述错误，应为“1847年出生于俄亥俄州”。 (二)“爱迪生一生发明了电
+中新网合肥6月3日电 (记者 张强)2026中国水博览会3日在安徽省合肥市开幕。 开幕式上，中国水利学会2025年组织制定的18项团体标准集中发布。这些团体标准主要覆盖水旱灾害防御、国家水网建设、河湖生态环境复苏、水资源节约集约利用、智慧水利等重点领域。 该博览会以“新科技塑造美好水未来”为主题，设国家水网现代化建设、数字孪生水利创新、水旱灾害防御与应急保障、水生态复苏与流域治
 
 ## 正文
 
-中新网6月21日电 据云南省招生考试院网站消息，云南省招生考试院21日发布情况通报称，针对云南省2026年中考历史科目试卷第29题展板二内容有误的情况，云南省教育厅责成云南省招生考试院立即对命题工作开展核查，对答题影响开展评估。
+中新网合肥6月3日电 (记者 张强)2026中国水博览会3日在安徽省合肥市开幕。
 
-现将有关情况通报如下： 一、试题核实情况 (一)爱迪生“1882年出生于纽约”表述错误，应为“1847年出生于俄亥俄州”。
+开幕式上，中国水利学会2025年组织制定的18项团体标准集中发布。
 
-(二)“爱迪生一生发明了电灯、电话、电影等1000多项专利技术”表述不严谨，应为 “爱迪生一生取得了电灯、电话、电影等领域的1000多项发明专利”。
+这些团体标准主要覆盖水旱灾害防御、国家水网建设、河湖生态环境复苏、水资源节约集约利用、智慧水利等重点领域。
 
-针对以上问题，云南省招生考试院及时组织历史学科专家、一线教师、基层招考机构负责人代表组成专家组，调阅命题素材，溯源命题、审题过程，从试题材料构成和设问、对考生答题影响、试题评分标准等方面开展审核评估。
+该博览会以“新科技塑造美好水未来”为主题，设国家水网现代化建设、数字孪生水利创新、水旱灾害防御与应急保障、水生态复苏与流域治理、智慧灌区与城乡供水保障、节水产业技术与装备六大展区，吸引来自全国各地的近200家科研院所、高校、涉水企业等参加。
 
-经综合研判认为：展板二内容包括人物姓名、国籍、早年经历和主要贡献，问题(2)要求简析爱迪生的发明对社会生产生活的影响，考生主要根据展板二中的“主要贡献”内容和所学知识作答。
+安徽是水利大省，地跨长江、淮河、新安江三大流域。
 
-评分标准不涉及爱迪生出生时间地点。
+“十四五”期间，该省入选全国省级水网先导区，累计完成水利投资2867亿元人民币。
 
-云南省招生考试院已统一制定该题评分细则，将进一步加强监督指导，实事求是、客观公正组织评卷，并逐一认真复核评卷结果。
-
-二、有关处理情况 云南省教育厅已成立调查组，对相关责任单位和责任人进行调查。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 17:46 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 17:55 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-29 17:43 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-29 17:56 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-29 17:50 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 17:56 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 18:04 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-29 17:49 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 18:01 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-29 17:53 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-29 17:47 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 18:00 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-29 18:07 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 17:42 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-29 18:09 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-29 17:57 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 18:12 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 18:04 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 18:16 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 18:10 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 17:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-29 18:14 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-29 17:56 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-29 18:12 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-29 17:58 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 17:48 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-29 17:55 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 18:10 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 18:02 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:00 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/89260799.shtml)
-- 2026-06-29 17:51 - [孙怡告别浪姐千字文](https://www.blog.minike.top/Article/details/442880542.shtml)
-- 2026-06-29 18:10 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/0884058.shtml)
-- 2026-06-29 17:46 - [中国空间站为什么要升级扩容](https://www.share.kurohicncr.top/Article/details/37143.shtml)
-- 2026-06-29 18:12 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/46675980268.shtml)
-- 2026-06-29 17:50 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/23012520.shtml)
-- 2026-06-29 18:11 - [博主：AI泡沫必须破灭](https://www.share.kurohicncr.top/Article/details/1276019593.shtml)
-- 2026-06-29 17:42 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/74051.shtml)
-- 2026-06-29 18:10 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/692840915678.shtml)
-- 2026-06-29 18:01 - [巴西国脚说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/50529025.shtml)
-- 2026-06-29 18:02 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/55855056826.shtml)
-- 2026-06-29 17:50 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/054586.shtml)
-- 2026-06-29 17:50 - [中国战机大片上新](https://www.share.minike.top/Article/details/901060839.shtml)
-- 2026-06-29 18:00 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/8455090714.shtml)
-- 2026-06-29 17:44 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.minike.top/Article/details/187329761963.shtml)
+- 2026-06-29 17:48 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/10818006.shtml)
+- 2026-06-29 18:04 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/5199339.shtml)
+- 2026-06-29 17:59 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/174435204481.shtml)
+- 2026-06-29 17:58 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/41913637608.shtml)
+- 2026-06-29 17:53 - [业内：全球市场迎来结构性投资窗口](https://www.blog.kurohicncr.top/Article/details/54016966.shtml)
+- 2026-06-29 17:51 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/645800244.shtml)
+- 2026-06-29 17:56 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/601053841.shtml)
+- 2026-06-29 18:16 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/392073.shtml)
+- 2026-06-29 18:13 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/814069206182.shtml)
+- 2026-06-29 18:15 - [滚石就音乐人屠颖去世事件发声明](http://www.share.kurohicncr.top/Article/details/806572016740.shtml)
+- 2026-06-29 18:12 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.share.kurohicncr.top/Article/details/25061.shtml)
+- 2026-06-29 18:17 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/826421295229.shtml)
+- 2026-06-29 17:58 - [世界杯预测史上最不吃压力之物](http://www.share.kurohicncr.top/Article/details/58187011.shtml)
+- 2026-06-29 18:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/3988659783.shtml)
+- 2026-06-29 17:58 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/281143104.shtml)

@@ -1,57 +1,61 @@
-# 高盛：对冲基金五周来首次净卖出全球股票
+# 韩国5月外汇储备因汇市维稳操作出现回落
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-高盛主经纪商业务部门的数据显示，就在上周，对冲基金五周以来首次成为全球股票的净卖方，其中北美和欧洲市场的卖出量最大。 由Vincent Lin领导的高盛团队指出，卖空规模与做多买入规模之比为1.3比1，除亚洲发达市场外，所有主要地区均为净卖出。 宏观产品录得一个月以来的首次净卖出，而个股则出现净买入。从行业层面看，全球11个行业板块中有7个出现净买入。按美元价值计算，买入最多的
+韩国央行周四公布的数据显示，受当局出手管控汇率波动影响，韩国上月外汇储备小幅回落。 截至5月底，韩国外汇储备规模为4269.9亿美元，较4月底减少8.8亿美元。 韩国央行将外汇储备上月的下滑归因于监管部门实施的市场维稳举措，例如与韩国国民年金公团开展外汇掉期操作。 受中东局势持续紧张、外资净抛售韩国本土股票影响，韩元兑美元汇率自 5 月 15 日起跌破1500关键心理关口。 韩
 
 ## 正文
 
-高盛主经纪商业务部门的数据显示，就在上周，对冲基金五周以来首次成为全球股票的净卖方，其中北美和欧洲市场的卖出量最大。
+韩国央行周四公布的数据显示，受当局出手管控汇率波动影响，韩国上月外汇储备小幅回落。
 
-由Vincent Lin领导的高盛团队指出，卖空规模与做多买入规模之比为1.3比1，除亚洲发达市场外，所有主要地区均为净卖出。
+截至5月底，韩国外汇储备规模为4269.9亿美元，较4月底减少8.8亿美元。
 
-宏观产品录得一个月以来的首次净卖出，而个股则出现净买入。
+韩国央行将外汇储备上月的下滑归因于监管部门实施的市场维稳举措，例如与韩国国民年金公团开展外汇掉期操作。
 
-从行业层面看，全球11个行业板块中有7个出现净买入。
+受中东局势持续紧张、外资净抛售韩国本土股票影响，韩元兑美元汇率自 5 月 15 日起跌破1500关键心理关口。
 
-按美元价值计算，买入最多的是金融、材料和能源板块，而工业、信息技术和公用事业板块则成为净卖出最多的板块。
+韩国央行持有的外国证券（包括美国国债）较上月减少了 33.9 亿美元，至 5 月底时降至 3806.8 亿美元，占外汇储备总额的近90%。
 
-责任编辑：江学思
+外汇存款增加了 25.9 亿美元，达到 213.5 亿美元；特别提款权（SDR）则增加了 3000 万美元，达到 157.8 亿美元。
+
+黄金实物持有量保持在 47.9 亿美元不变。
+
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 17:57 - [机器人学校开学了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 17:42 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 17:49 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 17:51 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 18:03 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-29 18:08 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-29 17:58 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-29 17:47 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-29 18:04 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 17:50 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-29 17:44 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-29 18:01 - [评论员：日菲勾连各有盘算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 18:00 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 17:45 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-29 18:01 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 18:14 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 18:00 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-29 18:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-29 17:48 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 18:04 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 17:53 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 18:09 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-29 17:52 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-29 18:02 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 17:50 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-29 18:13 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 17:56 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-29 18:15 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-29 18:15 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 18:12 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:46 - [绘画区你赢了](https://www.blog.minike.top/Article/details/5745461.shtml)
-- 2026-06-29 17:51 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/8947247.shtml)
-- 2026-06-29 17:53 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/8810920460.shtml)
-- 2026-06-29 17:49 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.kurohicncr.top/Article/details/330495.shtml)
-- 2026-06-29 17:50 - [逆天祖国人](https://www.blog.minike.top/Article/details/528294.shtml)
-- 2026-06-29 18:06 - [沙丘](https://www.blog.kurohicncr.top/Article/details/23845.shtml)
-- 2026-06-29 17:57 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/18693.shtml)
-- 2026-06-29 18:02 - [世界杯在中国观看最多的比赛](https://www.blog.kurohicncr.top/Article/details/24469696184.shtml)
-- 2026-06-29 17:59 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.minike.top/Article/details/25571765718.shtml)
-- 2026-06-29 17:45 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/79034.shtml)
-- 2026-06-29 18:00 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/99080261.shtml)
-- 2026-06-29 18:07 - [谢依霖夸杨幂靠谱](http://www.blog.minike.top/Article/details/439141038.shtml)
-- 2026-06-29 17:49 - [虞书欣好辣的剧宣](http://www.share.kurohicncr.top/Article/details/8343710899.shtml)
-- 2026-06-29 17:46 - [TFING全员黑西装](http://www.share.minike.top/Article/details/2413544310.shtml)
-- 2026-06-29 17:45 - [挪威王储妃长子两次强奸获刑](https://www.blog.kurohicncr.top/Article/details/9795185.shtml)
+- 2026-06-29 18:16 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/739703151800.shtml)
+- 2026-06-29 17:56 - [世界杯预测史上最不吃压力之物](http://www.blog.minike.top/Article/details/86387.shtml)
+- 2026-06-29 18:15 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/173685136.shtml)
+- 2026-06-29 17:53 - [互助版模拟高考志愿填报](https://www.share.minike.top/Article/details/8561964291.shtml)
+- 2026-06-29 17:59 - [世界杯1/16决赛对阵出炉](http://www.blog.kurohicncr.top/Article/details/497411105.shtml)
+- 2026-06-29 17:57 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/42740.shtml)
+- 2026-06-29 18:06 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/16354.shtml)
+- 2026-06-29 17:55 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/609190.shtml)
+- 2026-06-29 18:13 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/169854.shtml)
+- 2026-06-29 17:53 - [47天女婴被月嫂摔伤致颅内出血](http://www.blog.minike.top/Article/details/97662.shtml)
+- 2026-06-29 17:55 - [周生如故](http://www.share.minike.top/Article/details/4638850491.shtml)
+- 2026-06-29 18:02 - [葛军谈AI时代理科生出路](https://www.share.kurohicncr.top/Article/details/742466290982.shtml)
+- 2026-06-29 17:51 - [明星大侦探第一季](http://www.share.minike.top/Article/details/6499801110.shtml)
+- 2026-06-29 18:05 - [挪威王储妃长子2次强奸被判4年](https://www.share.kurohicncr.top/Article/details/17174.shtml)
+- 2026-06-29 17:57 - [存储三巨头被告了](http://www.share.minike.top/Article/details/817386593743.shtml)

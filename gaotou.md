@@ -1,58 +1,60 @@
-# 黄金越来越“不听话”：不是规律失效，是世界变了
+# 超28万人爆仓！加密货币全线杀跌，比特币跌破62000美元
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-来源：中新经纬 中新经纬6月22日电 （宋亚芬）国际金价的走势，越来越让人看不懂了！ 同样是地缘冲突升级，有时候黄金上涨，有时候却不涨反跌；同样是美联储降息预期升温，黄金有时大涨，有时却表现平平。 例如，6月22日美伊谈判达成协议，油价下跌，金价反涨；而6月17日协议即将签署时金价却连跌3日。 传统的“乱世买黄金”经验似乎不再适用，黄金正变得越来越“不听话”。 问题或许不在黄金
+文章来源：中国基金报 【导读】加密货币市场全线大跌，超28万人被爆仓 中国基金报记者 李智 加密货币抛售潮仍在持续。 6月4日，加密货币市场集体暴跌，比特币一度跌破62000美元，日内跌超6%。 以太坊、SOL、BNB等均跌超6%。 Coinglass数据显示，过去24小时加密货币市场共有超28万人被爆仓，爆仓总金额为17.98亿美元，其中，多单爆仓15.1亿美元，空单爆仓2.
 
 ## 正文
 
-来源：中新经纬 中新经纬6月22日电 （宋亚芬）国际金价的走势，越来越让人看不懂了！
+文章来源：中国基金报 【导读】加密货币市场全线大跌，超28万人被爆仓 中国基金报记者 李智 加密货币抛售潮仍在持续。
 
-同样是地缘冲突升级，有时候黄金上涨，有时候却不涨反跌；同样是美联储降息预期升温，黄金有时大涨，有时却表现平平。
+6月4日，加密货币市场集体暴跌，比特币一度跌破62000美元，日内跌超6%。
 
-例如，6月22日美伊谈判达成协议，油价下跌，金价反涨；而6月17日协议即将签署时金价却连跌3日。
+以太坊、SOL、BNB等均跌超6%。
 
-传统的“乱世买黄金”经验似乎不再适用，黄金正变得越来越“不听话”。
+Coinglass数据显示，过去24小时加密货币市场共有超28万人被爆仓，爆仓总金额为17.98亿美元，其中，多单爆仓15.1亿美元，空单爆仓2.8亿美元。
 
-问题或许不在黄金 “乱世黄金”并非空话。
+加密货币恐惧与贪婪指数显示市场弥漫“极度恐惧”情绪。
 
-回顾历史上几次军事冲突，这条规律曾多次得到印证。
+消息面上，全球最大上市公司比特币持有者Strategy于6月1日披露的一则消息进一步放大了投资者的担忧。
 
-根据国海证券研报，在第四次中东战争、第二次石油危机、2003年伊拉克战争等时期，黄金价格在3个月和一年内均大幅上涨。
+该公司表示，在5月26日至31日期间出售了32枚比特币，获得约250万美元的资金。
 
-但也有例外。
+文件脚注显示，此次出售所得将专门用于支付公司优先股分红，为Strategy迄今首次正式披露的比特币处置操作。
 
 ## 相关推荐
 
-- 2026-06-29 18:10 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-29 17:59 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 18:02 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-29 17:56 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-29 17:57 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-29 18:08 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-29 17:49 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 18:11 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 18:10 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-29 17:55 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 17:53 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 18:11 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 18:12 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 18:09 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 18:04 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 18:10 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-29 18:09 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-29 18:03 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-29 18:11 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 18:13 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-29 17:49 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-29 18:06 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-29 18:01 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-29 18:11 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 18:13 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-29 18:04 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:59 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/942456.shtml)
-- 2026-06-29 18:06 - [普京承认俄出现燃料危机](http://www.blog.minike.top/Article/details/05927133968.shtml)
-- 2026-06-29 17:42 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/554857.shtml)
-- 2026-06-29 17:45 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.kurohicncr.top/Article/details/37716.shtml)
-- 2026-06-29 17:47 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/8852977.shtml)
-- 2026-06-29 17:51 - [中国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/255811.shtml)
-- 2026-06-29 17:49 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/471079.shtml)
-- 2026-06-29 18:08 - [范志毅看好日本淘汰巴西](http://www.blog.minike.top/Article/details/61119.shtml)
-- 2026-06-29 17:49 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/4167274663.shtml)
-- 2026-06-29 17:54 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/632269.shtml)
-- 2026-06-29 17:58 - [毛朝晖任湖南省农业农村厅厅长](https://www.blog.kurohicncr.top/Article/details/8248860.shtml)
-- 2026-06-29 18:01 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/581691607015.shtml)
-- 2026-06-29 17:53 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/53076.shtml)
-- 2026-06-29 18:11 - [上海小区惊现鳄鱼](https://www.share.minike.top/Article/details/1210008897.shtml)
-- 2026-06-29 17:56 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/49767626.shtml)
+- 2026-06-29 17:55 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/0506598544.shtml)
+- 2026-06-29 18:02 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/58230883.shtml)
+- 2026-06-29 18:02 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.kurohicncr.top/Article/details/948547845669.shtml)
+- 2026-06-29 17:55 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/20662049130.shtml)
+- 2026-06-29 18:15 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/0395194824.shtml)
+- 2026-06-29 18:13 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.kurohicncr.top/Article/details/784542.shtml)
+- 2026-06-29 18:02 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.kurohicncr.top/Article/details/1382307749.shtml)
+- 2026-06-29 17:48 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.minike.top/Article/details/868158751870.shtml)
+- 2026-06-29 18:10 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/182827759472.shtml)
+- 2026-06-29 17:55 - [王楚钦开门红](http://www.blog.minike.top/Article/details/4217384362.shtml)
+- 2026-06-29 18:09 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/14550670825.shtml)
+- 2026-06-29 18:07 - [一生一世](http://www.share.minike.top/Article/details/616914192.shtml)
+- 2026-06-29 17:52 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.kurohicncr.top/Article/details/21763111852.shtml)
+- 2026-06-29 17:57 - [小鹏MONAL03预售定档7月2日](http://www.share.kurohicncr.top/Article/details/430102441.shtml)
+- 2026-06-29 18:08 - [普京承认俄出现燃料危机](http://www.share.minike.top/Article/details/2466582.shtml)

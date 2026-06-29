@@ -1,59 +1,58 @@
-# AI陪伴“火”了，靠谱吗？
+# 美国非农就业数据即将揭晓，美联储鹰派言论支撑美元指数维持99关口上方震荡
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-【解码数智+⑨·记者观察】 过去一年，大学生王诗航陆续购入6款AI(人工智能)陪伴类产品，累计花费超过7000元。这是当下许多消费者“为情绪买单”的日常一幕——不看参数，不比价格，只凭心情。 与此同时，供给端也悄然变化。从能对话的玩偶、机器人台灯，到医疗机器人……各式各样的AI情绪陪伴类产品，正以前所未有的深度介入人类的情感生活。深圳市玩具行业协会携手京东发布的《AI玩具消费趋
+汇通财经APP讯——周五亚洲交易时段，美元指数（DXY）围绕99.40附近窄幅波动，市场整体交投相对谨慎。随着美国5月非农就业报告即将公布，投资者暂时减少方向性押注，等待关键经济数据为后续市场走势提供新的指引。 从主要货币表现来看，美元整体维持稳定。其中，澳元表现相对疲弱，美元兑澳元录得一定涨幅；而欧元、英镑、加元以及瑞郎与美元之间波动幅度相对有限，显示市场正处于重要数据公布前
 
 ## 正文
 
-【解码数智+⑨·记者观察】 过去一年，大学生王诗航陆续购入6款AI(人工智能)陪伴类产品，累计花费超过7000元。
+汇通财经APP讯——周五亚洲交易时段，美元指数（DXY）围绕99.40附近窄幅波动，市场整体交投相对谨慎。
 
-这是当下许多消费者“为情绪买单”的日常一幕——不看参数，不比价格，只凭心情。
+随着美国5月非农就业报告即将公布，投资者暂时减少方向性押注，等待关键经济数据为后续市场走势提供新的指引。
 
-与此同时，供给端也悄然变化。
+从主要货币表现来看，美元整体维持稳定。
 
-从能对话的玩偶、机器人台灯，到医疗机器人……各式各样的AI情绪陪伴类产品，正以前所未有的深度介入人类的情感生活。
+其中，澳元表现相对疲弱，美元兑澳元录得一定涨幅；而欧元、英镑、加元以及瑞郎与美元之间波动幅度相对有限，显示市场正处于重要数据公布前的观望阶段。
 
-深圳市玩具行业协会携手京东发布的《AI玩具消费趋势白皮书》预计，全球AI玩具市场规模到2030年将突破千亿元，年复合增长率超50%；中国市场规模将突破百亿元，年复合增长率超70%。
+本次非农就业报告被视为近期最重要的美国经济数据之一。
 
-年轻人为什么热衷于AI情绪消费？
+市场预计，美国5月新增非农就业人数约为8.5万人，低于4月份的11.5万人，反映美国劳动力市场扩张速度可能有所放缓。
 
-人工智能会成为当代人的“情绪解药”吗？
+与此同时，美国失业率预计维持在4.3%水平不变，显示整体就业市场依然保持相对稳定状态。
 
-带着这些问题，记者进行调研采访。
+薪资方面，平均时薪年率预计由前值3.6%放缓至3.4%，但月率预计从0.2%升至0.3%，表明薪资压力依然存在。
 
 ## 相关推荐
 
-- 2026-06-29 18:04 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-29 17:46 - [世界杯预测史上最不吃压力之物](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-29 18:08 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-29 17:52 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 18:11 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-29 17:49 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-29 17:44 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 17:44 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 17:56 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-29 17:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 17:57 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-29 17:56 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-29 17:50 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-29 18:15 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-29 18:01 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 18:12 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-29 18:15 - [叠纸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 17:56 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 17:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-29 18:15 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-29 17:53 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-29 18:04 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 18:16 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 18:12 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-29 17:51 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/50843752544.shtml)
-- 2026-06-29 17:44 - [恋与深空 731](http://www.blog.minike.top/Article/details/58116349007.shtml)
-- 2026-06-29 17:56 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.kurohicncr.top/Article/details/786122212.shtml)
-- 2026-06-29 18:05 - [叠纸客服回应恋与深空新角色争议](http://www.blog.kurohicncr.top/Article/details/39456.shtml)
-- 2026-06-29 18:00 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/2895353.shtml)
-- 2026-06-29 17:54 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/4624612.shtml)
-- 2026-06-29 17:54 - [四川地震前夕 街头电线上站满燕子](https://www.blog.kurohicncr.top/Article/details/1129184.shtml)
-- 2026-06-29 18:02 - [急先锋](http://www.share.kurohicncr.top/Article/details/452884.shtml)
-- 2026-06-29 17:51 - [博主：AI泡沫必须破灭](https://www.blog.minike.top/Article/details/158871091158.shtml)
-- 2026-06-29 17:51 - [上海小区惊现鳄鱼](http://www.share.minike.top/Article/details/22088326.shtml)
-- 2026-06-29 17:52 - [德国连续三天刷新本国最高气温纪录](http://www.blog.minike.top/Article/details/87374454772.shtml)
-- 2026-06-29 18:03 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.share.minike.top/Article/details/0931652.shtml)
-- 2026-06-29 17:44 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/973042754.shtml)
-- 2026-06-29 18:06 - [人类对空调和其他家电有多双标](http://www.share.minike.top/Article/details/703146.shtml)
-- 2026-06-29 17:59 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.kurohicncr.top/Article/details/38192097940.shtml)
+- 2026-06-29 17:50 - [天道](https://www.blog.kurohicncr.top/Article/details/22251123.shtml)
+- 2026-06-29 18:06 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/771669732.shtml)
+- 2026-06-29 18:12 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/58013.shtml)
+- 2026-06-29 17:50 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/63010308732.shtml)
+- 2026-06-29 18:02 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/099378076.shtml)
+- 2026-06-29 18:11 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/221368277632.shtml)
+- 2026-06-29 17:54 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/1420383939.shtml)
+- 2026-06-29 18:06 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/04066874859.shtml)
+- 2026-06-29 17:57 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/387533.shtml)
+- 2026-06-29 18:12 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/391351152213.shtml)
+- 2026-06-29 18:05 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/1996476.shtml)
+- 2026-06-29 18:01 - [朱必达辞去湖南人大常委会委员职务](http://www.share.kurohicncr.top/Article/details/44320.shtml)
+- 2026-06-29 18:17 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/264325.shtml)
+- 2026-06-29 18:08 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/98277.shtml)
+- 2026-06-29 18:14 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/469473440.shtml)

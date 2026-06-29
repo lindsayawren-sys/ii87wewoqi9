@@ -1,58 +1,57 @@
-# 王树国回应“院系逐步自负盈亏”：绝非以盈利为目标 坚守教育公益属性
+# 美国众院通过停止伊朗战争决议 四名共和党议员倒戈凸显特朗普压力
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-中新网福州6月21日电 (记者 龙敏)近期，福建福耀科技大学校长王树国在一次媒体专访中关于“学校各院系要逐步实现自负盈亏、自己养活自己”的表述引发舆论热议。王树国21日回应称，“绝非要求院系以盈利为目标、市场化创收”。“绝非要求院系以盈利为目标、市场化创收” 福建福耀科技大学于2025年2月获教育部批复设立，定位为“以理工科为核心、交叉融合为路径、产业应用为导向的新型研究型大学
+由共和党控制的众议院通过停止美国与伊朗战争的议案，使其与美国总统唐纳德·特朗普在一场不得人心的海外冲突上出现分歧，这场冲突正对美国人造成日益加剧的经济负担。 周三215票赞成、208票反对的投票结果显示，在距离国会选举还有五个月之际，特朗普所属的共和党也开始担忧战争扩散。一项旨在结束该战争的参议院决议案也首次通过程序性关卡，尽管该法案尚未进行正式表决。 众议院这次表决不会终止美
 
 ## 正文
 
-中新网福州6月21日电 (记者 龙敏)近期，福建福耀科技大学校长王树国在一次媒体专访中关于“学校各院系要逐步实现自负盈亏、自己养活自己”的表述引发舆论热议。
+由共和党控制的众议院通过停止美国与伊朗战争的议案，使其与美国总统唐纳德·特朗普在一场不得人心的海外冲突上出现分歧，这场冲突正对美国人造成日益加剧的经济负担。
 
-王树国21日回应称，“绝非要求院系以盈利为目标、市场化创收”。
+周三215票赞成、208票反对的投票结果显示，在距离国会选举还有五个月之际，特朗普所属的共和党也开始担忧战争扩散。
 
-“绝非要求院系以盈利为目标、市场化创收” 福建福耀科技大学于2025年2月获教育部批复设立，定位为“以理工科为核心、交叉融合为路径、产业应用为导向的新型研究型大学”，办学模式概括为“高起点、小而精、研究型、国际化”。
+一项旨在结束该战争的参议院决议案也首次通过程序性关卡，尽管该法案尚未进行正式表决。
 
-王树国表示，福耀科技大学自办学之初，即确立了“非营利、公益性”的办学性质，始终坚守教育的公益属性，绝不将学生视为营利来源。
+众议院这次表决不会终止美军对伊朗的军事攻击。
 
-为此，学校把本科生学费定为每年5460元，住宿费为每年1200元(两人间)，并郑重承诺绝不让任何一个孩子因经济原因失去读书的机会。
+参议院仍必须通过该决议案，且众议院此次援引的《1973年战争权力法》相关条款本身也存在法律上的争议。
 
-他说，基于这个办学定位，学校希望老师们要把论文写在祖国的大地上，鼓励院系依托真实的产业问题开展科研攻关，同时通过科研成果转化提升院系自我造血能力、强化办学内生动力，而这绝非要求院系以盈利为目标、市场化创收。
+尽管如此，众议院的新立场向全球传达出一个讯息：随着有关临时和平协议的谈判久拖不决，以及中东紧张局势升温，特朗普在这场战争问题上正日益陷入孤立。
 
-王树国指出，该校珍视每一位学生和家长的信任，秉承“一切为了学生”的理念，全力支持学生拓宽国际视野、实现全面发展的每一个机会。
+美国和伊朗隔夜又发生冲突，科威特和巴林也卷入了4月初停火生效以来最严重的空袭。
 
-今年暑假，学校已全额资助13名本科生赴剑桥大学参加为期半个月的学术交流项目；本科生在大学四年级前往米兰理工大学学习时，学校将实行“一人一策”，确保经济困难学子同样享有走向世界的成长机会。
+共有四名共和党议员加入所有出席的民主党议员，支持通过该决议案：肯塔基州的Thomas Massie、密歇根州的Tom Barrett、俄亥俄州的Warren Davidson和宾夕法尼亚州的Brian Fitzpatrick。
 
 ## 相关推荐
 
-- 2026-06-29 18:00 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-29 17:43 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-29 17:49 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-29 17:49 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-29 17:46 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 17:54 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-29 17:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 18:10 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 18:06 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-29 17:42 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-29 17:42 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 17:46 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-29 18:05 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 17:57 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-29 17:56 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 18:05 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-29 18:08 - [韩国小学生都来吐槽了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 17:58 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-29 18:05 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-29 18:17 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 17:59 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-29 17:51 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-29 18:03 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:42 - [娜扎搂着我的腰和我合照](http://www.share.kurohicncr.top/Article/details/929222.shtml)
-- 2026-06-29 18:07 - [95后小伙突然确诊癌症 医生提醒](http://www.blog.kurohicncr.top/Article/details/56395.shtml)
-- 2026-06-29 18:03 - [大六座SUV进入黄金时代](https://www.blog.kurohicncr.top/Article/details/61582465.shtml)
-- 2026-06-29 18:04 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/0202396.shtml)
-- 2026-06-29 18:11 - [NBA交易](http://www.share.minike.top/Article/details/570291671.shtml)
-- 2026-06-29 18:01 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.kurohicncr.top/Article/details/3029928.shtml)
-- 2026-06-29 18:05 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/827346840.shtml)
-- 2026-06-29 18:01 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/5111641.shtml)
-- 2026-06-29 18:05 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/560359.shtml)
-- 2026-06-29 18:08 - [韩国队启程回国 全员羞愧低头](https://www.share.minike.top/Article/details/94705.shtml)
-- 2026-06-29 17:54 - [王冰冰向全网安利哈兰德](https://www.blog.minike.top/Article/details/7046272.shtml)
-- 2026-06-29 17:50 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/82424.shtml)
-- 2026-06-29 18:06 - [王曼昱被突如其来的话筒逗笑了](http://www.share.kurohicncr.top/Article/details/1343322.shtml)
-- 2026-06-29 17:59 - [苹果回应恋与深空低分](http://www.share.kurohicncr.top/Article/details/30566282.shtml)
-- 2026-06-29 18:03 - [森保一坚信日本能赢巴西](http://www.share.minike.top/Article/details/43759.shtml)
+- 2026-06-29 18:05 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/374022985697.shtml)
+- 2026-06-29 17:57 - [机器人学校开学了](http://www.share.minike.top/Article/details/93872.shtml)
+- 2026-06-29 18:00 - [天柱山回应网红打卡树枝被砍](https://www.share.kurohicncr.top/Article/details/28364559.shtml)
+- 2026-06-29 17:51 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/11620157.shtml)
+- 2026-06-29 18:11 - [韩国小学生都来吐槽了](http://www.share.kurohicncr.top/Article/details/89545631737.shtml)
+- 2026-06-29 18:13 - [省市招考专家解读山西高考志愿政策](https://www.blog.kurohicncr.top/Article/details/84061.shtml)
+- 2026-06-29 17:54 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/86402201307.shtml)
+- 2026-06-29 17:48 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.minike.top/Article/details/30778.shtml)
+- 2026-06-29 18:02 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/53286.shtml)
+- 2026-06-29 18:05 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/83438.shtml)
+- 2026-06-29 17:55 - [逃狱兄弟](https://www.share.minike.top/Article/details/2598998.shtml)
+- 2026-06-29 18:01 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/25702591598.shtml)
+- 2026-06-29 18:03 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/311246.shtml)
+- 2026-06-29 18:15 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/241037179.shtml)
+- 2026-06-29 18:17 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/50078677170.shtml)

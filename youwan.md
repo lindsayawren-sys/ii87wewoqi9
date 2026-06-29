@@ -1,49 +1,60 @@
-# 南方高山草原马背节来了 策马驰骋不用去北方
+# “天下第一雄关”嘉峪关迎马拉松 6月21日开赛文化属性跃升
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月21日 17:30 来源：中国新闻网 连日来，湖南郴州，仰天湖大草原第五届马背节在端午假期上演，60名表演者身着全套明制甲胄，化身明代将士列阵草原，以明代传世经典《出警入跸图》为蓝本，再现明代军阵、骑兵、齐射等经典场景。六万亩高山草原绿意绵延、云浪翻涌，错落的风车与无垠草场相映成趣，游客可以近距离感受南方高山草原骑射文化，领略铁骑驰骋草原的雄风。(付敬
+中新网兰州6月4日电 (闫姣 王佳怡)2026“中国建设银行”嘉峪关长城马拉松，将于6月21日在甘肃嘉峪关鸣枪开跑。嘉峪关市副市长赵淑敏3日在兰州表示，此次赛事设全程马拉松和半程马拉松，总规模7000人。受众更广的健康跑、家庭跑，将首次以配套活动——“夜跑雄关”的形式，于6月20日傍晚举行，规模达5000人。 当日，甘肃省政府新闻办在兰州举行嘉峪关长城马拉松新闻发布会。 嘉峪关
 
 ## 正文
 
-发布时间：2026年06月21日 17:30 来源：中国新闻网 连日来，湖南郴州，仰天湖大草原第五届马背节在端午假期上演，60名表演者身着全套明制甲胄，化身明代将士列阵草原，以明代传世经典《出警入跸图》为蓝本，再现明代军阵、骑兵、齐射等经典场景。
+中新网兰州6月4日电 (闫姣 王佳怡)2026“中国建设银行”嘉峪关长城马拉松，将于6月21日在甘肃嘉峪关鸣枪开跑。
 
-六万亩高山草原绿意绵延、云浪翻涌，错落的风车与无垠草场相映成趣，游客可以近距离感受南方高山草原骑射文化，领略铁骑驰骋草原的雄风。
+嘉峪关市副市长赵淑敏3日在兰州表示，此次赛事设全程马拉松和半程马拉松，总规模7000人。
 
-(付敬懿 海浪 肖胜男 制作 王佳琪） 责任编辑：【李季】
+受众更广的健康跑、家庭跑，将首次以配套活动——“夜跑雄关”的形式，于6月20日傍晚举行，规模达5000人。
+
+当日，甘肃省政府新闻办在兰州举行嘉峪关长城马拉松新闻发布会。
+
+嘉峪关长城马拉松是中国独具长城特色的主题赛事，自2023年创办以来已连续举办三年。
+
+赵淑敏介绍说，相比往年，2026年的赛道实现了三大核心升级：文化属性跃升、参赛体验优化、赛事周期延长。
+
+“长城马拉松”的主题更加鲜明，沿途将串联起嘉峪关最核心的自然与人文精华景观，跑一次马拉松，就能读懂一座城，“赛事期间，参赛选手凭号码布可免费游览嘉峪关关城、悬壁长城、长城第一墩、紫轩葡萄酒庄园等景区，随行家属也可享受半价优惠。
+
+” “天下第一雄关”嘉峪关是全国长城文化重要标志地，有“河西第一隘口”“边陲锁钥”之称。
 
 ## 相关推荐
 
-- 2026-06-29 17:50 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-29 18:05 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 17:51 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-29 17:45 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-29 18:11 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 17:49 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-29 17:59 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 18:05 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-29 18:06 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 17:47 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-29 17:53 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 18:05 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 17:50 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 18:08 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 17:48 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-29 17:55 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-29 17:50 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 18:07 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 18:01 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-29 17:48 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 18:17 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 18:12 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-29 17:57 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-29 18:01 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 18:01 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 18:02 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 17:52 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:50 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.share.kurohicncr.top/Article/details/990694050.shtml)
-- 2026-06-29 17:42 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/357038779.shtml)
-- 2026-06-29 17:44 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/04271620955.shtml)
-- 2026-06-29 17:56 - [孙怡告别浪姐千字文](https://www.blog.minike.top/Article/details/1206418430.shtml)
-- 2026-06-29 17:55 - [徐昕暂不参加NBA夏季联赛](https://www.share.minike.top/Article/details/649390329453.shtml)
-- 2026-06-29 18:01 - [挪威王储妃长子两次强奸获刑](http://www.blog.kurohicncr.top/Article/details/841970.shtml)
-- 2026-06-29 17:44 - [5万块的威力](http://www.blog.kurohicncr.top/Article/details/68098492.shtml)
-- 2026-06-29 18:04 - [一生一世](http://www.blog.kurohicncr.top/Article/details/779517.shtml)
-- 2026-06-29 18:11 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.share.kurohicncr.top/Article/details/239302417.shtml)
-- 2026-06-29 17:56 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/78588732751.shtml)
-- 2026-06-29 17:56 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/48708.shtml)
-- 2026-06-29 18:04 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/03149277.shtml)
-- 2026-06-29 17:52 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/7677575169.shtml)
-- 2026-06-29 18:10 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/238622413.shtml)
-- 2026-06-29 17:52 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/676205701.shtml)
+- 2026-06-29 17:48 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/39163206.shtml)
+- 2026-06-29 17:50 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/79067.shtml)
+- 2026-06-29 18:10 - [港股蓝筹股的落寞才刚刚开始吗](https://www.share.kurohicncr.top/Article/details/843368789.shtml)
+- 2026-06-29 18:12 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/45270391.shtml)
+- 2026-06-29 17:57 - [12所大学更正招生目录](https://www.blog.kurohicncr.top/Article/details/043326231.shtml)
+- 2026-06-29 17:52 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/778425.shtml)
+- 2026-06-29 17:48 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/5639641445.shtml)
+- 2026-06-29 17:53 - [7月1日起一批新规即将落地](https://www.share.minike.top/Article/details/26831.shtml)
+- 2026-06-29 18:03 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/12241095687.shtml)
+- 2026-06-29 18:14 - [截瘫男子心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/46744904922.shtml)
+- 2026-06-29 18:10 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/36705414500.shtml)
+- 2026-06-29 18:16 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/216159682.shtml)
+- 2026-06-29 18:07 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/18202327114.shtml)
+- 2026-06-29 17:57 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/39173533529.shtml)
+- 2026-06-29 17:55 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/38036217.shtml)

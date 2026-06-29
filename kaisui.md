@@ -1,50 +1,59 @@
-# 中信建投：康方生物公司创新药产品疗效优秀 给予“买入”评级
+# 二手房挂牌量回落新房库存下降 楼市供需关系向好
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-中信建投发布研报称，考虑到公司创新药产品疗效优秀、市场空间广阔，给予康方生物（09926）“买入”评级。在研管线方面，公司多款在研产品及适应症即将获批上市，同时现有研发管线不断扩充丰富，早研管线储备丰富，具备长期可持续发展能力。产品销售方面，依达方获批上市为公司产品销售贡献增量，开坦尼增长稳定，公司产品销售收入逐年提高。责任编辑：卢昱君
+证券日报记者 张芗逸 在住房需求集中释放的背景下，房地产市场持续企稳，市场成交保持高活跃度。受此影响，市场供给端出现积极信号，供需关系向好发展。 在二手房市场，中指研究院数据显示，5月份重点25城二手房新增挂牌房源达12万套，同比下降约41%。 中指研究院指数研究部总经理曹晶晶表示，今年“小阳春”后，二手房新增挂牌量持续回落，业主挂牌预期趋于稳定。2025年二手房成交规模虽整体
 
 ## 正文
 
-中信建投发布研报称，考虑到公司创新药产品疗效优秀、市场空间广阔，给予康方生物（09926）“买入”评级。
+证券日报记者 张芗逸 在住房需求集中释放的背景下，房地产市场持续企稳，市场成交保持高活跃度。
 
-在研管线方面，公司多款在研产品及适应症即将获批上市，同时现有研发管线不断扩充丰富，早研管线储备丰富，具备长期可持续发展能力。
+受此影响，市场供给端出现积极信号，供需关系向好发展。
 
-产品销售方面，依达方获批上市为公司产品销售贡献增量，开坦尼增长稳定，公司产品销售收入逐年提高。
+在二手房市场，中指研究院数据显示，5月份重点25城二手房新增挂牌房源达12万套，同比下降约41%。
 
-责任编辑：卢昱君
+中指研究院指数研究部总经理曹晶晶表示，今年“小阳春”后，二手房新增挂牌量持续回落，业主挂牌预期趋于稳定。
+
+2025年二手房成交规模虽整体不低，但主要靠挂牌量激增驱动，价格持续承压；而今年成交放量与挂牌趋稳、价格企稳同步出现，这是本轮市场修复与去年“以价换量”模式的核心区别，后续需关注这一态势能否持续。
+
+另据中指研究院统计，5月份百城二手房均价为12692元/平方米，环比下跌0.32%，跌幅较4月份收窄0.14个百分点。
+
+其中，一线城市环比下跌0.15%，环比跌幅较4月份收窄0.01个百分点；上海保持上涨，环比上涨0.13%，深圳微跌0.04%，价格呈现修复态势。
+
+“经历前期充分调整后，上海二手房价格在2026年初已出现明确的止跌回稳信号。
 
 ## 相关推荐
 
-- 2026-06-29 17:49 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-29 17:55 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-29 17:42 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-29 17:56 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 17:44 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-29 17:52 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 18:02 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-29 17:55 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-29 18:10 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-29 17:56 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 17:55 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 17:55 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 18:11 - [货车司机雨中帮交警挪树获表扬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-29 18:07 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-29 18:14 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-29 17:55 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-29 18:17 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-29 18:03 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 18:02 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-29 17:50 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-29 18:10 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 18:17 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-29 17:55 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 18:16 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 17:59 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:47 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/773299922081.shtml)
-- 2026-06-29 17:43 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.minike.top/Article/details/441624980.shtml)
-- 2026-06-29 17:50 - [普京承认俄出现燃料危机](https://www.share.kurohicncr.top/Article/details/8948298.shtml)
-- 2026-06-29 18:00 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.share.kurohicncr.top/Article/details/57771.shtml)
-- 2026-06-29 18:10 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/074429.shtml)
-- 2026-06-29 17:42 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/34249668.shtml)
-- 2026-06-29 18:07 - [配音演员于小华病逝 享年78岁](http://www.blog.minike.top/Article/details/85743647.shtml)
-- 2026-06-29 17:56 - [杨紫视后第一场线下活动](http://www.share.kurohicncr.top/Article/details/8008333.shtml)
-- 2026-06-29 18:11 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/529535003.shtml)
-- 2026-06-29 18:00 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/38195383046.shtml)
-- 2026-06-29 18:07 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/58275260967.shtml)
-- 2026-06-29 17:52 - [千与千寻](http://www.blog.minike.top/Article/details/696323210542.shtml)
-- 2026-06-29 17:48 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/306446.shtml)
-- 2026-06-29 17:44 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.kurohicncr.top/Article/details/61190478427.shtml)
-- 2026-06-29 17:55 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/41903.shtml)
+- 2026-06-29 18:11 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/63905733787.shtml)
+- 2026-06-29 17:59 - [当地回应林区违规放羊遭豹啃食](https://www.blog.minike.top/Article/details/833500631.shtml)
+- 2026-06-29 18:01 - [张杰我九岁就跟你了](http://www.share.minike.top/Article/details/13061418069.shtml)
+- 2026-06-29 18:08 - [沉睡花园](http://www.blog.minike.top/Article/details/01947.shtml)
+- 2026-06-29 18:03 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/4076339269.shtml)
+- 2026-06-29 18:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/15138937.shtml)
+- 2026-06-29 17:59 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/67493229327.shtml)
+- 2026-06-29 17:54 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/989237.shtml)
+- 2026-06-29 18:17 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.minike.top/Article/details/87048979.shtml)
+- 2026-06-29 17:56 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/98699794.shtml)
+- 2026-06-29 18:13 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.kurohicncr.top/Article/details/144258399.shtml)
+- 2026-06-29 18:02 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/69545945900.shtml)
+- 2026-06-29 18:17 - [苹果回应恋与深空低分](https://www.blog.kurohicncr.top/Article/details/3597257785.shtml)
+- 2026-06-29 18:08 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/3863173.shtml)
+- 2026-06-29 18:05 - [央视曝光涉黄App诈骗陷阱](https://www.blog.kurohicncr.top/Article/details/62994.shtml)

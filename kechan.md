@@ -1,61 +1,59 @@
-# 安徽发布地质、山洪灾害气象双预警 相关部门提醒安全防范
+# 特斯拉扩大奥斯汀Robotaxi服务范围：无安全员车队覆盖整个都会区
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-中新网合肥6月22日电 (记者 赵强)安徽多部门21日晚间联合发布地质灾害、山洪灾害气象双预警，覆盖皖西、皖南多地， 据安徽省自然资源厅、省气象局、省应急管理厅联合发布的地灾警(2026)第15号预警，21日20时至22日20时，安庆、六安、池州部分县域地质灾害风险达橙色级别，发生滑坡、泥石流等地质灾害可能性大。橙色预警区域包括安庆桐城市、潜山市、怀宁县、岳西县、太湖县、宿松县
+特斯拉周四宣布，将其无安全员自动驾驶出租车服务扩展至得克萨斯州奥斯汀都会区全境。这是该公司在全自动驾驶商业化道路上迈出的重要一步。 特斯拉官方Robotaxi账号在社交媒体X上发文称：“无监督Robotaxi现已覆盖整个奥斯汀都会区。”这意味着用户可以在包括Pflugerville、Manor等郊区、连接Gigafactory Texas的I-35高速公路以及奥斯汀-伯格斯特罗
 
 ## 正文
 
-中新网合肥6月22日电 (记者 赵强)安徽多部门21日晚间联合发布地质灾害、山洪灾害气象双预警，覆盖皖西、皖南多地， 据安徽省自然资源厅、省气象局、省应急管理厅联合发布的地灾警(2026)第15号预警，21日20时至22日20时，安庆、六安、池州部分县域地质灾害风险达橙色级别，发生滑坡、泥石流等地质灾害可能性大。
+特斯拉周四宣布，将其无安全员自动驾驶出租车服务扩展至得克萨斯州奥斯汀都会区全境。
 
-橙色预警区域包括安庆桐城市、潜山市、怀宁县、岳西县、太湖县、宿松县，六安金安区、金寨县、霍山县、舒城县，池州东至县。
+这是该公司在全自动驾驶商业化道路上迈出的重要一步。
 
-相关地区须加密隐患点巡查，做好受威胁民众提前转移准备。
+特斯拉官方Robotaxi账号在社交媒体X上发文称：“无监督Robotaxi现已覆盖整个奥斯汀都会区。
 
-黄山、宣城、芜湖、马鞍山、铜陵全域，池州贵池、青阳、石台，合肥巢湖、庐江，滁州南谯、琅琊、来安同步挂出地质灾害黄色预警，发生地质灾害可能性较大。
+”这意味着用户可以在包括Pflugerville、Manor等郊区、连接Gigafactory Texas的I-35高速公路以及奥斯汀-伯格斯特罗姆国际机场在内的整个大奥斯汀区域呼叫无人驾驶出租车。
 
-当地要加大边坡、切坡、山区房屋隐患排查力度，遇险情第一时间组织人员撤离。
+这项服务自去年夏天起已在奥斯汀试运行近一年。
 
-同日，安徽省水利厅、省气象局、省应急管理厅同步发布山洪灾害气象预警，风险分级更为严峻。
+特斯拉在声明中表示，为确保运行安全，公司在扩张过程中采取了审慎策略，在地理围栏划定、车队规模等方面经历了多个阶段的渐进式推进。
 
-其中安庆潜山、怀宁、桐城山洪风险为Ⅰ级红色预警，发生山洪可能性很大；安庆迎江、宜秀为Ⅱ级橙色预警；安庆岳西、六安金寨、霍山，铜陵全域，芜湖湾沚、南陵、繁昌划为Ⅲ级黄色预警。
+此次覆盖全都会区的扩张是第五次，也是幅度最大的一次。
 
-安徽气象、水利、应急部门联合提示，各地要密切关注降雨情况，强化山洪灾害监测，及时发布预警信息，提前组织民众转移避险。
+然而，对于此次扩张的市场意义，外界看法存在明显分歧。
 
 ## 相关推荐
 
-- 2026-06-29 17:51 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-29 18:07 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 17:48 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-29 17:45 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-29 18:03 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 17:59 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-29 17:53 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-29 18:10 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-29 17:49 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-29 17:53 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-29 18:04 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-29 18:06 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-29 18:05 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 18:11 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-29 17:47 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-29 17:48 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 18:05 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 18:04 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 18:17 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-29 18:18 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-29 18:12 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 17:49 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 17:56 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-29 18:13 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 17:52 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 18:08 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-29 18:05 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 18:17 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:09 - [一生一世](https://www.share.minike.top/Article/details/049634191648.shtml)
-- 2026-06-29 18:02 - [哈基米歌王争霸赛](http://www.share.minike.top/Article/details/5107522231.shtml)
-- 2026-06-29 17:57 - [依法管制阻遏日方军事化危险动向](http://www.share.kurohicncr.top/Article/details/54890812.shtml)
-- 2026-06-29 18:06 - [央视曝光高价回收老物件骗局](https://www.share.kurohicncr.top/Article/details/86398.shtml)
-- 2026-06-29 18:05 - [林昀儒不敌17岁小将止步首轮](http://www.share.minike.top/Article/details/208615936541.shtml)
-- 2026-06-29 18:10 - [三轮车过马路 车上木材砸中路边男子](https://www.share.minike.top/Article/details/269425150821.shtml)
-- 2026-06-29 18:09 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/1423611.shtml)
-- 2026-06-29 18:09 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/26319.shtml)
-- 2026-06-29 18:11 - [葛军谈AI时代理科生出路](http://www.blog.minike.top/Article/details/53199317341.shtml)
-- 2026-06-29 17:49 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/34542955.shtml)
-- 2026-06-29 17:56 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/888678.shtml)
-- 2026-06-29 17:49 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/3176160374.shtml)
-- 2026-06-29 18:01 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/3926639.shtml)
-- 2026-06-29 17:54 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/1221833024.shtml)
-- 2026-06-29 18:08 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/91276681.shtml)
+- 2026-06-29 17:54 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/619892154884.shtml)
+- 2026-06-29 18:01 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/279940.shtml)
+- 2026-06-29 18:15 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.minike.top/Article/details/35662835684.shtml)
+- 2026-06-29 17:48 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/81319.shtml)
+- 2026-06-29 17:55 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/23250376949.shtml)
+- 2026-06-29 18:14 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/89948.shtml)
+- 2026-06-29 17:58 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.kurohicncr.top/Article/details/16816061269.shtml)
+- 2026-06-29 17:48 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/765717.shtml)
+- 2026-06-29 18:05 - [媒体：中国田径压力与期待并存](https://www.blog.minike.top/Article/details/41843645309.shtml)
+- 2026-06-29 18:16 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/94912.shtml)
+- 2026-06-29 17:53 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/045290232.shtml)
+- 2026-06-29 17:56 - [天柱山回应网红打卡树枝被砍](http://www.share.kurohicncr.top/Article/details/776850.shtml)
+- 2026-06-29 17:55 - [小S在香港被偶遇](https://www.blog.minike.top/Article/details/094404611.shtml)
+- 2026-06-29 18:02 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/419646908869.shtml)
+- 2026-06-29 18:12 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/76136.shtml)

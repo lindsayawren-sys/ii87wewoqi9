@@ -1,58 +1,56 @@
-# 比特币交易活动增至2024年以来最高水平
+# S4 Capital：公司需采取更多措施推动营收增长
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-CryptoQuant的分析师在一份报告中表示，比特币交易频率处于2024年以来的最高水平。尽管对冲基金资金继续逃离比特币，但交易频率依然上升。 CryptoQuant表示：“自2026年3月下旬以来，这种高于趋势的态势一直持续，与持续的价格疲软形成分化。“但平均交易规模远小于往年的典型水平。 该公司表示：“低于0.01比特币的微型交易目前占每日总交易量的80%，高于2023年
+S4 Capital执行董事长马丁·索雷尔（Martin Sorrell）表示，这家数字广告公司在推动营收增长和盈利能力方面进展不足。他还预计，因不确定性增加，客户在短期内将保持谨慎。 索雷尔在周四举行的这家英国数字广告公司年度股东大会前发表讲话说，在市场环境充满挑战、客户态度谨慎的情况下，S4 Capital今年迄今的业绩表现符合其预期。 该公司执行董事长表示，S4 Capi
 
 ## 正文
 
-CryptoQuant的分析师在一份报告中表示，比特币交易频率处于2024年以来的最高水平。
+S4 Capital执行董事长马丁·索雷尔（Martin Sorrell）表示，这家数字广告公司在推动营收增长和盈利能力方面进展不足。
 
-尽管对冲基金资金继续逃离比特币，但交易频率依然上升。
+他还预计，因不确定性增加，客户在短期内将保持谨慎。
 
-CryptoQuant表示：“自2026年3月下旬以来，这种高于趋势的态势一直持续，与持续的价格疲软形成分化。
+索雷尔在周四举行的这家英国数字广告公司年度股东大会前发表讲话说，在市场环境充满挑战、客户态度谨慎的情况下，S4 Capital今年迄今的业绩表现符合其预期。
 
-“但平均交易规模远小于往年的典型水平。
+该公司执行董事长表示，S4 Capital正专注于恢复营收增长，并提高盈利能力和流动性。
 
-该公司表示：“低于0.01比特币的微型交易目前占每日总交易量的80%，高于2023年不到50%的比例。
+索雷尔表示，可比净收入预计将符合6.32亿至6.63亿英镑（合8.48亿至8.895亿美元）的平均预期，与去年相比将出现低个位数百分比的降幅。
 
-低于0.001比特币和低于0.01比特币的交易群体在2026年均出现猛增，接近2024年的前期峰值。
+他补充说，S4 Capital赢得了一些新客户，如三星（Samsung）和Square，并扩大了与其它客户的合作关系。
 
-“ 比特币上涨2.5%，至65363美元。
+他表示，过去一年，该公司的员工人数减少了11%，至6，200人左右，公司将继续严格控制成本以提高盈利能力。
 
-责任编辑：李桐
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 17:48 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 17:56 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 17:43 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 17:50 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 17:51 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 17:45 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 17:45 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-29 17:49 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-29 18:07 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-29 17:56 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-29 18:01 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-29 17:59 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 17:54 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 17:50 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 18:07 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 18:01 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 18:11 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-29 18:08 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-29 17:54 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-29 18:11 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 18:16 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 18:10 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:43 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.kurohicncr.top/Article/details/405116482.shtml)
-- 2026-06-29 17:56 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/018888935.shtml)
-- 2026-06-29 18:02 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/992976936.shtml)
-- 2026-06-29 18:00 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/9870213.shtml)
-- 2026-06-29 17:52 - [小说《无悔追踪》翻红](https://www.share.kurohicncr.top/Article/details/374453135719.shtml)
-- 2026-06-29 17:49 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/423671609.shtml)
-- 2026-06-29 17:52 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/25935.shtml)
-- 2026-06-29 17:57 - [巴黎两家殡仪馆爆满](https://www.share.kurohicncr.top/Article/details/61904445300.shtml)
-- 2026-06-29 17:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/1909650578.shtml)
-- 2026-06-29 17:48 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/1463365822.shtml)
-- 2026-06-29 17:43 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/708940374.shtml)
-- 2026-06-29 18:03 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.share.minike.top/Article/details/3690372.shtml)
-- 2026-06-29 17:56 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/771853295408.shtml)
-- 2026-06-29 17:44 - [人类对空调和其他家电有多双标](https://www.blog.kurohicncr.top/Article/details/96534402.shtml)
-- 2026-06-29 18:01 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/8317561.shtml)
+- 2026-06-29 18:04 - [外网预言中国举办世界杯时间](http://www.blog.minike.top/Article/details/88895.shtml)
+- 2026-06-29 18:05 - [上海小区惊现鳄鱼](https://www.blog.kurohicncr.top/Article/details/59152295.shtml)
+- 2026-06-29 18:10 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/7809572388.shtml)
+- 2026-06-29 18:10 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/88024135.shtml)
+- 2026-06-29 18:09 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/19202289885.shtml)
+- 2026-06-29 18:02 - [每代父母都困在自己的时代里](http://www.blog.kurohicncr.top/Article/details/986739.shtml)
+- 2026-06-29 18:02 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/037949413274.shtml)
+- 2026-06-29 18:03 - [唐国强打卡贵阳孔学堂](https://www.share.kurohicncr.top/Article/details/024695.shtml)
+- 2026-06-29 18:04 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.kurohicncr.top/Article/details/398556.shtml)
+- 2026-06-29 18:02 - [葛军谈AI时代理科生出路](https://www.share.kurohicncr.top/Article/details/547912038256.shtml)
+- 2026-06-29 18:04 - [笔记本电脑一年涨价近一倍](http://www.share.kurohicncr.top/Article/details/4019652497.shtml)
+- 2026-06-29 18:10 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.minike.top/Article/details/957829.shtml)
+- 2026-06-29 17:54 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/297769980747.shtml)
+- 2026-06-29 17:59 - [起风了](http://www.blog.minike.top/Article/details/6790081.shtml)
+- 2026-06-29 17:56 - [王冰冰向全网安利哈兰德](http://www.share.minike.top/Article/details/974397559822.shtml)

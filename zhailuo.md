@@ -1,46 +1,58 @@
-# 温馨提醒：请抓紧办理！2025年度个税汇算6月30日截止
+# 斯里兰卡一未注册疗养院发生火灾 致12死8伤
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-来源：国家税务总局微信公众号
+中新社北京6月4日电 科伦坡消息：当地时间6月4日，斯里兰卡警方通报称，该国西部一家未注册的疗养院3日晚间发生火灾。截至目前，这起火灾已经导致12人死亡，8人受伤。 综合美联社、路透社等媒体消息，该疗养院位于安古鲁瓦托塔镇(距离首都科伦坡约55公里)。火灾发生后，当地消防员、警察等前往现场救援与灭火。 大火被扑灭后，涉事建筑及内部家具设备均已被完全烧毁。经初步统计，遇难者中包括
 
 ## 正文
 
-来源：国家税务总局微信公众号
+中新社北京6月4日电 科伦坡消息：当地时间6月4日，斯里兰卡警方通报称，该国西部一家未注册的疗养院3日晚间发生火灾。
+
+截至目前，这起火灾已经导致12人死亡，8人受伤。
+
+综合美联社、路透社等媒体消息，该疗养院位于安古鲁瓦托塔镇(距离首都科伦坡约55公里)。
+
+火灾发生后，当地消防员、警察等前往现场救援与灭火。
+
+大火被扑灭后，涉事建筑及内部家具设备均已被完全烧毁。
+
+经初步统计，遇难者中包括一名年仅17岁的男孩。
+
+斯里兰卡警方发言人弗雷德里克·伍特勒(Fredrick Wootler)通报称，救援人员共从火场中救出51人，目前他们正接受有关部门的妥善照料。
+
+该违规疗养院不仅收容老年人，还收治了部分患有精神疾病的年轻人。
 
 ## 相关推荐
 
-- 2026-06-29 18:07 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-29 18:03 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 17:44 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 17:58 - [美国大满贯首日国乒主力均取胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-29 17:48 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-29 18:02 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-29 17:52 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-29 18:08 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-29 17:43 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-29 17:48 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-29 17:42 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 18:07 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 18:03 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-29 17:55 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 17:49 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-29 18:10 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-29 18:17 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 17:51 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-29 18:01 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 18:06 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 18:05 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 17:52 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 17:51 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 18:07 - [沙特外交大臣将访华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 17:55 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 17:57 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:50 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.minike.top/Article/details/736289486553.shtml)
-- 2026-06-29 18:04 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.minike.top/Article/details/25587.shtml)
-- 2026-06-29 17:54 - [美人鱼](https://www.share.kurohicncr.top/Article/details/981270663.shtml)
-- 2026-06-29 18:04 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/56423.shtml)
-- 2026-06-29 17:55 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.kurohicncr.top/Article/details/880079832.shtml)
-- 2026-06-29 17:47 - [中国战机大片上新](https://www.share.minike.top/Article/details/419843736508.shtml)
-- 2026-06-29 18:02 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/52743211.shtml)
-- 2026-06-29 17:50 - [美议员呼吁断供以色列政府](http://www.share.minike.top/Article/details/1797706.shtml)
-- 2026-06-29 17:44 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/5396881.shtml)
-- 2026-06-29 18:03 - [叠纸](http://www.share.minike.top/Article/details/65068902567.shtml)
-- 2026-06-29 17:44 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/4915159.shtml)
-- 2026-06-29 17:57 - [首个靠AI躺赢的国家](http://www.share.minike.top/Article/details/00684727114.shtml)
-- 2026-06-29 18:01 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.minike.top/Article/details/4628908778.shtml)
-- 2026-06-29 17:56 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/83223826.shtml)
-- 2026-06-29 18:08 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/109315505.shtml)
+- 2026-06-29 18:01 - [官媒首曝六代机？大V解读](http://www.share.kurohicncr.top/Article/details/02582668599.shtml)
+- 2026-06-29 18:11 - [小说《无悔追踪》翻红](https://www.share.kurohicncr.top/Article/details/5720426.shtml)
+- 2026-06-29 18:05 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/68156655645.shtml)
+- 2026-06-29 17:51 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.minike.top/Article/details/4098119.shtml)
+- 2026-06-29 17:55 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/700387539370.shtml)
+- 2026-06-29 18:07 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.minike.top/Article/details/08677215.shtml)
+- 2026-06-29 18:11 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/5159063.shtml)
+- 2026-06-29 18:18 - [王安宇尊重田曦薇的一切选择](https://www.share.kurohicncr.top/Article/details/211659121.shtml)
+- 2026-06-29 17:57 - [笔记本电脑一年涨价近一倍](http://www.share.kurohicncr.top/Article/details/29507553.shtml)
+- 2026-06-29 18:09 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/29853279.shtml)
+- 2026-06-29 18:14 - [美国大满贯首日国乒主力均取胜](https://www.share.kurohicncr.top/Article/details/440914.shtml)
+- 2026-06-29 18:00 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/60544620145.shtml)
+- 2026-06-29 17:58 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/6416008.shtml)
+- 2026-06-29 17:57 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/4067794.shtml)
+- 2026-06-29 18:02 - [日本在最东端离岛部署导弹发射装置](http://www.share.kurohicncr.top/Article/details/77567.shtml)

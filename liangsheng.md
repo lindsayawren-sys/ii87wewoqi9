@@ -1,57 +1,61 @@
-# 夏季达沃斯论坛今起举行 将发布多份旗舰报告
+# 北京交通部门多措并举护航高考出行
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-第十七届夏季达沃斯论坛今天起在辽宁大连举行，来自90多个国家和地区的1700余名各界代表齐聚大连，共同探寻全球经济复苏与高质量发展新路径。 总台央视记者 张丛婧：大连国际会议中心是本次论坛的主会场，今天论坛活动就正式开启，现场人来人往，多个会议室正同步进行着讨论。今年的外国嘉宾比去年增长近三成，专精特新“小巨人”和独角兽企业参会数量增长40%，三天的会期将举办百余场论坛活动，议
+中新网北京6月4日电 (记者 吕少威)记者今天从北京市交通委获悉，2026年高考(6月7日至10日)在即，为保障考生、家长顺畅出行，北京交通部门围绕公交、地铁、出租车及网约车等领域，推出系列服务举措，全力营造安全、便捷、舒适的考试出行环境。公交车辆途经考点不鸣笛、不使用报站机外扩音 公交方面，6月7日至10日考试时段，相关公交线路途经考点周边时不鸣笛、不使用车辆报站机外扩音。
 
 ## 正文
 
-第十七届夏季达沃斯论坛今天起在辽宁大连举行，来自90多个国家和地区的1700余名各界代表齐聚大连，共同探寻全球经济复苏与高质量发展新路径。
+中新网北京6月4日电 (记者 吕少威)记者今天从北京市交通委获悉，2026年高考(6月7日至10日)在即，为保障考生、家长顺畅出行，北京交通部门围绕公交、地铁、出租车及网约车等领域，推出系列服务举措，全力营造安全、便捷、舒适的考试出行环境。
 
-总台央视记者 张丛婧：大连国际会议中心是本次论坛的主会场，今天论坛活动就正式开启，现场人来人往，多个会议室正同步进行着讨论。
+公交车辆途经考点不鸣笛、不使用报站机外扩音 公交方面，6月7日至10日考试时段，相关公交线路途经考点周边时不鸣笛、不使用车辆报站机外扩音。
 
-今年的外国嘉宾比去年增长近三成，专精特新“小巨人”和独角兽企业参会数量增长40%，三天的会期将举办百余场论坛活动，议题涵盖科技、经济、能源、文化等多个领域。
+高考期间，针对途经考点周边的414条公交线路，结合各场考试开考时间，加强运力安排，在开考前1小时增配运力，加密行车间隔，方便考生乘车。
 
-本届论坛的主题是“规模化创新”，将聚焦人工智能、新能源、生物医药、量子科技等前沿领域，共绘全球科技创新合作新蓝图。
+对考点周边线路采取灵活的调度措施，在大木仓胡同、彰化村、嘉园一里、龙跃苑一区西门、北京八中大兴分校、丽园北、海子角北口、海子角东口、绿色庄园、海子角等10处公交站点部分时段采取临时甩站措施，线路临时甩站和绕行期间，车内考生要求下车时，在保证安全的前提下方便考生就近下车。
 
-世界经济论坛执行董事 米雷克·杜塞克：这个主题精准点出了全球众多行业领导者当下必须解决的核心要务。
+同时，严密监控道路情况和运送速度的变化，采取场站备车、区间车、快车等措施，妥善处置突发事件，确保安全平稳运营。
 
-全球各国领导人都在面临同一个难题，因此他们十分想要了解中国规模化落地人工智能、各类能源技术所依托的发展模式。
+结合考试期间交通变化特点，开展驾驶员遵法守纪、按道行驶、控制车速、遵守路口通行规定的教育，注意避让考生和接送考生的人员及车辆，杜绝与考生及家长发生服务纠纷及行车事故。
 
-本次年会承载了探讨该议题的使命，更重要的是，它搭建起中国与世界各国围绕上述核心议题深度交流的平台。
+此外，在重点考点周边设置“高考加油站”服务岗67处，一线管理及乘务巡检员500余名在岗服务，准备2B铅笔、橡皮、尺子等应考物资以及消毒纸巾、防暑降温用品等应急物资，方便考生应急使用。
 
-论坛期间还将发布“能源转型指数”和“十大新兴技术”等多份旗舰报告。
+地铁开通“三优”绿色通道 高考期间，北京地铁继续推行“三优”绿色通道，即乘坐地铁前往考点的考生及家长，可凭准考证享受“优先购票、优先安检、优先进站”服务。
 
 ## 相关推荐
 
-- 2026-06-29 17:53 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-29 17:47 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-29 17:55 - [T1 KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-29 17:48 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 18:03 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-29 17:56 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 17:59 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 17:47 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-29 17:53 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-29 17:55 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 18:08 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-29 18:10 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 18:07 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-29 17:55 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-29 18:06 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 18:15 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 18:05 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 18:03 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 18:02 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-29 18:07 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-29 17:59 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-29 17:55 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-29 17:51 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 17:49 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 18:12 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 18:08 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:55 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/3807759.shtml)
-- 2026-06-29 17:43 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/91812447363.shtml)
-- 2026-06-29 18:06 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/079798.shtml)
-- 2026-06-29 18:01 - [世界杯在中国观看最多的比赛](https://www.blog.kurohicncr.top/Article/details/419895.shtml)
-- 2026-06-29 18:02 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.kurohicncr.top/Article/details/139562.shtml)
-- 2026-06-29 17:54 - [一见倾心](https://www.blog.minike.top/Article/details/766576.shtml)
-- 2026-06-29 17:58 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/3434415820.shtml)
-- 2026-06-29 18:09 - [周生如故](http://www.blog.kurohicncr.top/Article/details/81953724972.shtml)
-- 2026-06-29 18:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/159263188555.shtml)
-- 2026-06-29 17:51 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/02916765866.shtml)
-- 2026-06-29 17:56 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/4479047.shtml)
-- 2026-06-29 17:43 - [刘扬任湖南省副省长](http://www.share.minike.top/Article/details/41619265.shtml)
-- 2026-06-29 17:48 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/39152387220.shtml)
-- 2026-06-29 18:10 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/299898937.shtml)
-- 2026-06-29 17:56 - [流金岁月](https://www.share.minike.top/Article/details/42785.shtml)
+- 2026-06-29 17:49 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.minike.top/Article/details/553127987866.shtml)
+- 2026-06-29 18:08 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/72542.shtml)
+- 2026-06-29 18:04 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/815361.shtml)
+- 2026-06-29 18:00 - [王俊凯命名方式](https://www.blog.kurohicncr.top/Article/details/291021864336.shtml)
+- 2026-06-29 18:13 - [曝屠颖去世和酒店失责有关](https://www.blog.minike.top/Article/details/3832386.shtml)
+- 2026-06-29 17:59 - [AG 宫斗](http://www.blog.minike.top/Article/details/7140964592.shtml)
+- 2026-06-29 18:06 - [上海小区惊现鳄鱼](https://www.share.minike.top/Article/details/599295987.shtml)
+- 2026-06-29 18:17 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/649222.shtml)
+- 2026-06-29 18:02 - [永远有话聊的原因](https://www.blog.kurohicncr.top/Article/details/37536404293.shtml)
+- 2026-06-29 18:14 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/980478756.shtml)
+- 2026-06-29 17:50 - [森保一坚信日本能赢巴西](https://www.share.kurohicncr.top/Article/details/66525391603.shtml)
+- 2026-06-29 17:53 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/9758170762.shtml)
+- 2026-06-29 18:08 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/21477.shtml)
+- 2026-06-29 17:53 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/215353879931.shtml)
+- 2026-06-29 17:57 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/1153995717.shtml)

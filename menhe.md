@@ -1,46 +1,53 @@
-# 高争民爆获最高1.8亿元股份回购专项贷款承诺函
+# 商务部：愿与巴西保持沟通 共同推动双边农产品贸易高质量发展
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-6月21日，高争民爆（002827.SZ）发布公告称，公司近日取得中信银行拉萨分行出具的《贷款承诺函》，该笔贷款额度不超过1.8亿元，贷款期限最长为3年，资金专项用于上市公司股份回购。（文章来源：央广财经）
+中新网6月4日电 6月4日，商务部召开例行新闻发布会。会上，有记者问：巴西外长维埃拉本周来华访问，是否同中方谈及有关大豆检验及安全标准，以及牛肉免税配额的问题，最新进展如何？ 商务部新闻发言人何咏前表示，6月1日，商务部部长王文涛会见了来华访问的巴西外交部长维埃拉，双方就中巴经贸关系和多边框架下合作等议题进行交流。 巴西是中国大豆和牛肉第一大进口来源国。今年以来中国自巴西进口大
 
 ## 正文
 
-6月21日，高争民爆（002827.SZ）发布公告称，公司近日取得中信银行拉萨分行出具的《贷款承诺函》，该笔贷款额度不超过1.8亿元，贷款期限最长为3年，资金专项用于上市公司股份回购。
+中新网6月4日电 6月4日，商务部召开例行新闻发布会。
 
-（文章来源：央广财经）
+会上，有记者问：巴西外长维埃拉本周来华访问，是否同中方谈及有关大豆检验及安全标准，以及牛肉免税配额的问题，最新进展如何？
+
+商务部新闻发言人何咏前表示，6月1日，商务部部长王文涛会见了来华访问的巴西外交部长维埃拉，双方就中巴经贸关系和多边框架下合作等议题进行交流。
+
+巴西是中国大豆和牛肉第一大进口来源国。
+
+今年以来中国自巴西进口大豆和牛肉均呈现较快增长。
+
+中方愿就有关问题与巴方保持沟通，共同推动双边农产品贸易高质量发展。
 
 ## 相关推荐
 
-- 2026-06-29 18:08 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-29 18:06 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-29 17:51 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-29 17:59 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-29 18:03 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-29 17:45 - [韩国小学生都来吐槽了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-29 17:55 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 17:55 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-29 18:10 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-29 18:07 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 18:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 17:57 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 18:17 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-29 17:52 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-29 18:01 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-29 18:15 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-29 18:06 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-29 18:16 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-29 18:12 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-29 18:02 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 18:11 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-29 17:55 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-29 17:57 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:58 - [一生一世](http://www.share.kurohicncr.top/Article/details/424930432156.shtml)
-- 2026-06-29 17:56 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/88774756244.shtml)
-- 2026-06-29 18:10 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/419845609.shtml)
-- 2026-06-29 17:44 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/88582113190.shtml)
-- 2026-06-29 17:52 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/603615894.shtml)
-- 2026-06-29 18:03 - [AG 宫斗](http://www.blog.kurohicncr.top/Article/details/01452.shtml)
-- 2026-06-29 18:04 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.kurohicncr.top/Article/details/886759.shtml)
-- 2026-06-29 18:01 - [天柱山回应网红打卡树枝被砍](https://www.blog.minike.top/Article/details/898495118210.shtml)
-- 2026-06-29 17:57 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/2266956.shtml)
-- 2026-06-29 18:11 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/347939530929.shtml)
-- 2026-06-29 17:56 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/345148746746.shtml)
-- 2026-06-29 18:05 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.kurohicncr.top/Article/details/137442716.shtml)
-- 2026-06-29 17:47 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/49694.shtml)
-- 2026-06-29 18:11 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/214422181126.shtml)
-- 2026-06-29 17:50 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/566805.shtml)
+- 2026-06-29 17:57 - [四川达州发生一起交通事故致2死](https://www.share.minike.top/Article/details/0830101.shtml)
+- 2026-06-29 18:01 - [女生每天戴耳机18小时突发耳聋](http://www.blog.kurohicncr.top/Article/details/869087351990.shtml)
+- 2026-06-29 18:06 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/86748860.shtml)
+- 2026-06-29 18:03 - [天柱山回应网红打卡树枝被砍](https://www.share.kurohicncr.top/Article/details/52305.shtml)
+- 2026-06-29 17:49 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/2726603620.shtml)
+- 2026-06-29 18:16 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/7129843.shtml)
+- 2026-06-29 17:55 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.minike.top/Article/details/1918276929.shtml)
+- 2026-06-29 17:58 - [天道](https://www.blog.minike.top/Article/details/25238081.shtml)
+- 2026-06-29 18:04 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.minike.top/Article/details/2731617793.shtml)
+- 2026-06-29 18:09 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/628618096.shtml)
+- 2026-06-29 18:16 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.blog.kurohicncr.top/Article/details/38203396620.shtml)
+- 2026-06-29 18:14 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/901896987.shtml)
+- 2026-06-29 17:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/780509753378.shtml)
+- 2026-06-29 18:15 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/99586867610.shtml)
+- 2026-06-29 18:02 - [配音演员于小华病逝 享年78岁](http://www.share.kurohicncr.top/Article/details/523991161.shtml)

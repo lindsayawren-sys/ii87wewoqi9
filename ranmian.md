@@ -1,59 +1,60 @@
-# 5月份中国民航旅客运输量超5900万人次
+# 通伦在浙江的三声“谢谢”
 
-> 更新时间：2026-06-29 18:12:03 UTC+8
+> 更新时间：2026-06-29 18:18:02 UTC+8
 
 ## 摘要
 
-中新社北京6月22日电 (记者 刘文文)5月份中国民航旅客运输量5912.6万人次，同比下降7.1%。 中国民航局当日公布民航5月份主要生产指标统计数据。数据显示，5月份，民航运输总周转量135.3亿吨公里，同比增长0.1%。其中，国内航线运输总周转量为79.5亿吨公里，同比下降5.9%；国际航线运输总周转量为55.9亿吨公里，同比增长9.9%。 旅客运输方面，5月份，民航国内
+中新网杭州6月3日电(王逸飞 鲍梦妮)6月2日至3日，老挝人革党中央总书记、国家主席通伦访问浙江。他走进当地企业、村庄，感受科技创新活力、乡村发展面貌。 此行，从通伦满脸笑容用中文道出的三声“谢谢”中，外界既感受到了中老友谊的历久弥新，也看到了两国务实合作不断拓展的广阔空间。 第一句“谢谢”，是他与中国机器人友爱互动时。 浙江是中国的创新高地，通伦在该省参观的首站是“杭州六小龙
 
 ## 正文
 
-中新社北京6月22日电 (记者 刘文文)5月份中国民航旅客运输量5912.6万人次，同比下降7.1%。
+中新网杭州6月3日电(王逸飞 鲍梦妮)6月2日至3日，老挝人革党中央总书记、国家主席通伦访问浙江。
 
-中国民航局当日公布民航5月份主要生产指标统计数据。
+他走进当地企业、村庄，感受科技创新活力、乡村发展面貌。
 
-数据显示，5月份，民航运输总周转量135.3亿吨公里，同比增长0.1%。
+此行，从通伦满脸笑容用中文道出的三声“谢谢”中，外界既感受到了中老友谊的历久弥新，也看到了两国务实合作不断拓展的广阔空间。
 
-其中，国内航线运输总周转量为79.5亿吨公里，同比下降5.9%；国际航线运输总周转量为55.9亿吨公里，同比增长9.9%。
+第一句“谢谢”，是他与中国机器人友爱互动时。
 
-旅客运输方面，5月份，民航国内航线旅客运输量5270万人次，同比下降8%；国际航线旅客运输量642.6万人次，同比增长0.3%。
+浙江是中国的创新高地，通伦在该省参观的首站是“杭州六小龙”之一的云深处科技。
 
-货邮运输方面，5月份，民航货邮运输量87.8万吨，同比增长2.4%。
+参观期间，全球首款行业级全天候人形机器人DR02从桌上拿起一个毛绒玩具，作为礼物送给通伦。
 
-其中，国内航线货邮运输量46.9万吨，同比下降2.5%；国际航线货邮运输量40.9万吨，同比增长8.7%。
+他笑着接过玩具，对机器人说“谢谢你”。
 
-(完)
+在观看四足机器人、人形机器人产品时，通伦全程兴致满满。
 
 ## 相关推荐
 
-- 2026-06-29 18:11 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 17:53 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 18:05 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-29 18:05 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-29 18:03 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 17:51 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-29 17:44 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-29 17:55 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-29 17:57 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 17:49 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-29 17:44 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 17:58 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 18:01 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-29 17:52 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-29 17:54 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 17:49 - [南昌市委书记调整](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-29 17:55 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 18:04 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 17:59 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 18:03 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 18:16 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 18:12 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-29 18:14 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 17:55 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 18:09 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 17:53 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-29 18:05 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:06 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.kurohicncr.top/Article/details/5022451.shtml)
-- 2026-06-29 18:02 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/80508708.shtml)
-- 2026-06-29 17:59 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/41779818223.shtml)
-- 2026-06-29 17:43 - [港股蓝筹股的落寞才刚刚开始吗](https://www.blog.minike.top/Article/details/10114496.shtml)
-- 2026-06-29 17:44 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/59224846.shtml)
-- 2026-06-29 17:55 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/3712480.shtml)
-- 2026-06-29 17:58 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/52789431.shtml)
-- 2026-06-29 17:56 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/3465735.shtml)
-- 2026-06-29 18:07 - [花万元相亲对象是50元雇的演员](http://www.blog.minike.top/Article/details/80283229114.shtml)
-- 2026-06-29 17:48 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/19502510297.shtml)
-- 2026-06-29 18:09 - [TTG KSG](http://www.share.kurohicncr.top/Article/details/20179278.shtml)
-- 2026-06-29 17:56 - [韩国小学生都来吐槽了](https://www.share.kurohicncr.top/Article/details/1586808.shtml)
-- 2026-06-29 17:56 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/0990080796.shtml)
-- 2026-06-29 17:55 - [未成年少女长期吸毒导致卧床不起](https://www.share.minike.top/Article/details/2412558952.shtml)
-- 2026-06-29 17:54 - [共享单车“价格刺客”79分钟30元](http://www.share.kurohicncr.top/Article/details/6448429785.shtml)
+- 2026-06-29 18:02 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/95961.shtml)
+- 2026-06-29 18:04 - [依法管制阻遏日方军事化危险动向](http://www.blog.minike.top/Article/details/64285892.shtml)
+- 2026-06-29 18:17 - [铜价上涨 日本住宅水表失窃严重](http://www.share.kurohicncr.top/Article/details/8109893795.shtml)
+- 2026-06-29 17:51 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/60408511418.shtml)
+- 2026-06-29 18:15 - [韩剧编剧又升级了](http://www.blog.kurohicncr.top/Article/details/52071765894.shtml)
+- 2026-06-29 17:50 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.kurohicncr.top/Article/details/9851721107.shtml)
+- 2026-06-29 18:04 - [永远有话聊的原因](https://www.share.minike.top/Article/details/437485270.shtml)
+- 2026-06-29 18:00 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/35482142.shtml)
+- 2026-06-29 18:04 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/568335854.shtml)
+- 2026-06-29 17:52 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/684573.shtml)
+- 2026-06-29 17:53 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/5577602.shtml)
+- 2026-06-29 18:09 - [T1 KC](https://www.share.kurohicncr.top/Article/details/77940241.shtml)
+- 2026-06-29 18:14 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/93928820282.shtml)
+- 2026-06-29 18:17 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/4359030.shtml)
+- 2026-06-29 18:00 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/3571487443.shtml)
