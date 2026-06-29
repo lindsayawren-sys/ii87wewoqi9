@@ -1,44 +1,56 @@
-# 今年秋天将举办首届“雄安全球治理论坛”
+# 日本激活军工复合体，和平底线面临空前挑战（钟声）
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-新华社快讯：记者6月17日从国新办新闻发布会获悉，今年秋天，中方将举办首届“雄安全球治理论坛”，邀请全球各界人士共商改革完善全球治理大计。
+日本军工复合体的危险，不只在于制造武器，更在于制造对武器的需求；不只在于服务扩军，更在于推动扩军 日本政府日前公布的一组数据令人深感不安：受当局强化防卫能力方针影响，2025年度防卫省机械制造订单额达到将近2.69万亿日元，在过去5年内激增至约3倍，占到当年度政府公共需求订单的近一半。其中，地对空导弹、飞机等武器装备订单增长尤为显著。这一态势清晰表明，日本军工复合体已被重新激活
 
 ## 正文
 
-新华社快讯：记者6月17日从国新办新闻发布会获悉，今年秋天，中方将举办首届“雄安全球治理论坛”，邀请全球各界人士共商改革完善全球治理大计。
+日本军工复合体的危险，不只在于制造武器，更在于制造对武器的需求；不只在于服务扩军，更在于推动扩军 日本政府日前公布的一组数据令人深感不安：受当局强化防卫能力方针影响，2025年度防卫省机械制造订单额达到将近2.69万亿日元，在过去5年内激增至约3倍，占到当年度政府公共需求订单的近一半。
+
+其中，地对空导弹、飞机等武器装备订单增长尤为显著。
+
+这一态势清晰表明，日本军工复合体已被重新激活。
+
+这是日本右翼势力有计划、有步骤突破战后和平体制、定向扶持军工产业的必然结果，值得包括日本民众在内的全世界爱好和平的人民高度警惕。
+
+历史殷鉴不远。
+
+二战前，日本军工复合体——由军部、垄断财阀与军工产业构成的利益闭环——曾深度嵌入国家经济，绑架决策，驱动战争机器运转。
+
+三菱、三井、住友、川崎等财阀通过政治游说助推军备扩张，在殖民地掠夺资源、强征劳工，将资本增值建立在受害国人民的苦难之上。
+
+历史证明，脱离制度约束的日本军工资本，天然具有扩张逐利、煽动战争的侵略属性。
 
 ## 相关推荐
 
-- 2026-06-29 21:26 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-29 21:45 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-29 21:25 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 21:32 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-29 21:31 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 21:50 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-29 21:39 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 21:27 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-29 21:31 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-29 21:49 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 21:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-29 21:37 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 21:47 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-29 21:42 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-29 21:36 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 21:30 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 21:42 - [李思潼：不会介意大家夸我运气好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 21:39 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 21:31 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-29 21:58 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-29 21:30 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 21:34 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:28 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/6422496.shtml)
-- 2026-06-29 21:33 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/96601802061.shtml)
-- 2026-06-29 21:52 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/452348.shtml)
-- 2026-06-29 21:36 - [媒体：日本边磨刀边要货是做梦](http://www.blog.kurohicncr.top/Article/details/0109665681.shtml)
-- 2026-06-29 21:37 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/80592522.shtml)
-- 2026-06-29 21:32 - [王安宇聪明到导演组炸了](http://www.blog.minike.top/Article/details/6700482.shtml)
-- 2026-06-29 21:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/02008459393.shtml)
-- 2026-06-29 21:32 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/943041853303.shtml)
-- 2026-06-29 21:26 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/901157348.shtml)
-- 2026-06-29 21:28 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/54756750659.shtml)
-- 2026-06-29 21:53 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/81418625.shtml)
-- 2026-06-29 21:34 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/20935.shtml)
-- 2026-06-29 21:25 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/16447489.shtml)
-- 2026-06-29 21:52 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/798051774613.shtml)
-- 2026-06-29 21:48 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/685433833.shtml)
+- 2026-06-29 21:50 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/559314711.shtml)
+- 2026-06-29 21:34 - [佛得角队长门德斯被控强奸](http://www.blog.kurohicncr.top/Article/details/32873420.shtml)
+- 2026-06-29 21:32 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/5649300.shtml)
+- 2026-06-29 21:45 - [葫芦岛居民楼闪爆事故致3死](https://www.share.minike.top/Article/details/0177103885.shtml)
+- 2026-06-29 21:51 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/96560512.shtml)
+- 2026-06-29 21:38 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/46735379.shtml)
+- 2026-06-29 21:48 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/12258480628.shtml)
+- 2026-06-29 21:42 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/3120139.shtml)
+- 2026-06-29 21:54 - [夫妻生活太无聊，所以我……](https://www.share.kurohicncr.top/Article/details/894918.shtml)
+- 2026-06-29 21:44 - [卢卡申科发布解放军仪仗队视频](https://www.blog.minike.top/Article/details/4481175129.shtml)
+- 2026-06-29 21:59 - [网约车出事故平台拒赔称只是中介](https://www.share.kurohicncr.top/Article/details/38438.shtml)
+- 2026-06-29 21:36 - [半导体和股市为何没让韩国人起飞](https://www.share.minike.top/Article/details/8066780595.shtml)
+- 2026-06-29 22:00 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/792711038825.shtml)
+- 2026-06-29 21:49 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/521611598543.shtml)
+- 2026-06-29 21:49 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/07315.shtml)

@@ -1,60 +1,58 @@
-# 斯诺克武汉公开赛资格赛：中国小将王信伯连闯两关
+# 广东湛江：“绿色通道”助推世界级项目建设“加速度”
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-中新社英国莱斯特6月17日电 当地时间6月16日，2026斯诺克武汉公开赛资格赛在英国莱斯特进入第二个比赛日的争夺。中国军团8人出战，最终六负两胜。小将王信伯率先晋级64强。 此次资格赛128进96轮次的比赛于当日全部结束，中国选手继首日8人晋级后，又有姚朋成首战奏凯。该轮比赛，面对泰国球手塔纳瓦特·提拉朋派班，姚朋成尽管首局告负，但很快调整状态，最终以5比2战胜对手，成功晋级
+中新网广东湛江6月15日电 (记者 梁盛)雨后初霁的广东湛江东海岛，空气清新中带点甜。记者站在巴斯夫湛江基地不远处，看到蓝天白云下错落有致的银色管廊四下延伸，海风扑鼻而过，没有刺激的油气味。 巴斯夫湛江基地项目总投资87亿欧元，建设年产100万吨乙烯的蒸汽裂解装置以及多个下游产品生产装置，是德国企业在华投资规模最大的独资单体项目。该基地于2026年3月26日全面建成投产，成为巴
 
 ## 正文
 
-中新社英国莱斯特6月17日电 当地时间6月16日，2026斯诺克武汉公开赛资格赛在英国莱斯特进入第二个比赛日的争夺。
+中新网广东湛江6月15日电 (记者 梁盛)雨后初霁的广东湛江东海岛，空气清新中带点甜。
 
-中国军团8人出战，最终六负两胜。
+记者站在巴斯夫湛江基地不远处，看到蓝天白云下错落有致的银色管廊四下延伸，海风扑鼻而过，没有刺激的油气味。
 
-小将王信伯率先晋级64强。
+巴斯夫湛江基地项目总投资87亿欧元，建设年产100万吨乙烯的蒸汽裂解装置以及多个下游产品生产装置，是德国企业在华投资规模最大的独资单体项目。
 
-此次资格赛128进96轮次的比赛于当日全部结束，中国选手继首日8人晋级后，又有姚朋成首战奏凯。
+该基地于2026年3月26日全面建成投产，成为巴斯夫在全球的第三大生产基地，仅次于德国路德维希港基地和比利时安特卫普基地。
 
-该轮比赛，面对泰国球手塔纳瓦特·提拉朋派班，姚朋成尽管首局告负，但很快调整状态，最终以5比2战胜对手，成功晋级。
+巴斯夫集团执行董事会成员兼首席技术官柯迪文在接受媒体采访时表示，巴斯夫湛江基地的全面投产，将为汽车、电子、医药、服装、日化等产业提供稳定的高品质原材料，有助于降低中国市场对高端产品的进口依赖，为广东加快打造世界级绿色石化产业集群、构建更加强大的现代化产业体系提供有力支撑，还有利于发挥跨国化工企业资源、技术、管理等优势，推动中国高端石化产品发展，促进产业结构调整和绿色低碳转型。
 
-中国香港老将傅家俊此番首战对手为乌克兰的安东·卡扎科夫，场上比分交替上升，双方在前八局战成4比4平。
+据湛江市发展和改革局介绍，巴斯夫湛江基地的全面投产是外资企业把握中国发展新机遇、深度融入中国市场的典范，也再次印证中国市场是跨国企业实现长期盈利与可持续增长的核心战略支点。
 
-决胜局，卡扎科夫凭借更稳定的表现最终取胜，傅家俊无缘晋级。
+巴斯夫湛江基地从一开始便积极推动智能制造、数字化与绿色低碳等先进技术在基地落地。
 
-另一位亮相首战的中国球手许医尘以3比5不敌埃及球手马哈茂德·埃尔·哈雷迪，止步首轮。
+从智能管理平台到安全、公用工程、技术服务、生产、物流与供应链、智能仓库等，智能化与数字化渗透在基地的每一个角落。
 
 ## 相关推荐
 
-- 2026-06-29 21:31 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-29 21:39 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 21:49 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 21:38 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 21:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-29 21:28 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-29 21:24 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-29 21:36 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 21:44 - [返利科技盘中上演“天地板”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 21:33 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-29 21:46 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-29 21:34 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-29 21:28 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 21:33 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-29 21:37 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-29 21:56 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 21:54 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 21:42 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 21:59 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 21:30 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 21:43 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-29 21:38 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-29 21:44 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 21:53 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 21:45 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-29 21:59 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:39 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/8381452.shtml)
-- 2026-06-29 21:43 - [韩国队主帅遭极端网友死亡威胁](http://www.share.minike.top/Article/details/608951426517.shtml)
-- 2026-06-29 21:24 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/4310693.shtml)
-- 2026-06-29 21:34 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/60083.shtml)
-- 2026-06-29 21:38 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/01345.shtml)
-- 2026-06-29 21:45 - [金牌调解](https://www.blog.minike.top/Article/details/5786659345.shtml)
-- 2026-06-29 21:25 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/077401.shtml)
-- 2026-06-29 21:41 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/38271083.shtml)
-- 2026-06-29 21:45 - [运20对中国空军的意义是什么](http://www.blog.minike.top/Article/details/43401382247.shtml)
-- 2026-06-29 21:38 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/7577966.shtml)
-- 2026-06-29 21:28 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/951817017520.shtml)
-- 2026-06-29 21:27 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.minike.top/Article/details/97520797.shtml)
-- 2026-06-29 21:27 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/42958.shtml)
-- 2026-06-29 21:35 - [王鸿薇要求删陆委会百余万特别费](https://www.share.minike.top/Article/details/4316135648.shtml)
-- 2026-06-29 21:46 - [温网](http://www.share.kurohicncr.top/Article/details/2975276.shtml)
+- 2026-06-29 21:52 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.minike.top/Article/details/89369.shtml)
+- 2026-06-29 21:53 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/4548992.shtml)
+- 2026-06-29 21:46 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.kurohicncr.top/Article/details/78410978800.shtml)
+- 2026-06-29 21:58 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/8895226094.shtml)
+- 2026-06-29 21:43 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/3172906103.shtml)
+- 2026-06-29 21:54 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/012132509834.shtml)
+- 2026-06-29 21:53 - [时光音乐会](http://www.blog.minike.top/Article/details/1928871997.shtml)
+- 2026-06-29 21:51 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/04653043963.shtml)
+- 2026-06-29 21:42 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/372853420.shtml)
+- 2026-06-29 21:36 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.minike.top/Article/details/7291796369.shtml)
+- 2026-06-29 21:50 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/6512062.shtml)
+- 2026-06-29 21:55 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/7147750.shtml)
+- 2026-06-29 21:54 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/38220513769.shtml)
+- 2026-06-29 21:59 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/6928857962.shtml)
+- 2026-06-29 21:32 - [美人鱼](https://www.share.kurohicncr.top/Article/details/488626186339.shtml)

@@ -1,59 +1,47 @@
-# “只因我正考虑竞选总统” 美加州州长称遭司法部调查
+# 两广遇最强“龙舟水”多因素助推降雨持续
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-中新网6月16日电 据美国《华尔街日报》报道，当地时间15日，美国加利福尼亚州民主党籍州长加文·纽森称，美国共和党籍总统特朗普已指示联邦司法部调查自己，并指责此举出于政治动机。 据报道，纽森在一段社交媒体视频中表示，联邦工作人员最近几天一直在盘问他的家人、朋友和前助手，“翻找多年来的各种文件”。他称，司法部调查出于政治动机，“只因我正考虑竞选总统”。 报道援引知情人士的话称，加
+发布时间：2026年06月16日 13:19 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网6月16日电 据美国《华尔街日报》报道，当地时间15日，美国加利福尼亚州民主党籍州长加文·纽森称，美国共和党籍总统特朗普已指示联邦司法部调查自己，并指责此举出于政治动机。
-
-据报道，纽森在一段社交媒体视频中表示，联邦工作人员最近几天一直在盘问他的家人、朋友和前助手，“翻找多年来的各种文件”。
-
-他称，司法部调查出于政治动机，“只因我正考虑竞选总统”。
-
-报道援引知情人士的话称，加州的联邦检察官正进行几项与纽森相关的问询，其中一项涉及纽森妻子及其税务问题，另一项涉及纽森的前幕僚长。
-
-纽森的多名助手证实，联邦调查局和美国国家税务局探员上周开始接触其十余名身边人，问询范围广泛，时间跨度达五六年，涉及纽森亲属及其妻子的商业利益。
-
-英国《金融时报》称，纽森15日的表态标志着美国第一人口大州与白宫紧张关系升级。
-
-《华尔街日报》指出，纽森已将自己定位为2028年总统竞选的主要竞争者，多项民意调查显示，他在可能的民主党候选人中名列前茅。
+发布时间：2026年06月16日 13:19 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 21:30 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-29 21:29 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-29 21:26 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 21:44 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-29 21:48 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 21:37 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 21:50 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 21:36 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-29 21:48 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-29 21:37 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-29 21:35 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-29 21:45 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-29 21:42 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 21:27 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-29 21:26 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 21:40 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 21:35 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-29 21:51 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-29 21:36 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 21:35 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-29 21:42 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 21:45 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-29 21:30 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-29 21:44 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-29 21:52 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-29 21:54 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-29 21:40 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 21:39 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 21:51 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-29 21:50 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:49 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/83386568368.shtml)
-- 2026-06-29 21:44 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/63769725.shtml)
-- 2026-06-29 21:36 - [恋与深空各大应用商店评分](https://www.share.minike.top/Article/details/80967.shtml)
-- 2026-06-29 21:50 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/388260.shtml)
-- 2026-06-29 21:31 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/32564.shtml)
-- 2026-06-29 21:24 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/256289.shtml)
-- 2026-06-29 21:53 - [TI2026参赛战队出炉](https://www.blog.minike.top/Article/details/454253936158.shtml)
-- 2026-06-29 21:39 - [巴黎区长紧急采购50台中国空调](http://www.blog.minike.top/Article/details/952563.shtml)
-- 2026-06-29 21:31 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/491826.shtml)
-- 2026-06-29 21:36 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/3028075.shtml)
-- 2026-06-29 21:28 - [曝腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/528126.shtml)
-- 2026-06-29 21:27 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/09189.shtml)
-- 2026-06-29 21:45 - [网友晒14年前支教影像等来学生评论](http://www.share.minike.top/Article/details/259823475793.shtml)
-- 2026-06-29 21:27 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/992170566227.shtml)
-- 2026-06-29 21:36 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/79951.shtml)
+- 2026-06-29 21:46 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/87325803.shtml)
+- 2026-06-29 21:40 - [王鸿薇要求删陆委会百余万特别费](https://www.blog.minike.top/Article/details/0531397095.shtml)
+- 2026-06-29 21:44 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/43234232138.shtml)
+- 2026-06-29 21:38 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/2711754.shtml)
+- 2026-06-29 21:42 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.minike.top/Article/details/8124657.shtml)
+- 2026-06-29 21:51 - [第一炉香](https://www.blog.minike.top/Article/details/88921178.shtml)
+- 2026-06-29 21:32 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/84780.shtml)
+- 2026-06-29 21:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/086630177787.shtml)
+- 2026-06-29 21:37 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/480087860.shtml)
+- 2026-06-29 21:40 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.kurohicncr.top/Article/details/155117.shtml)
+- 2026-06-29 21:44 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/601165328715.shtml)
+- 2026-06-29 21:37 - [天气热脾气都变差了](http://www.blog.kurohicncr.top/Article/details/7604013.shtml)
+- 2026-06-29 21:58 - [我和我的家乡](https://www.blog.minike.top/Article/details/6758862.shtml)
+- 2026-06-29 21:32 - [乔家的儿女](http://www.blog.minike.top/Article/details/82133123209.shtml)
+- 2026-06-29 21:39 - [高考1357分的同学如何报志愿？](https://www.blog.minike.top/Article/details/61721.shtml)

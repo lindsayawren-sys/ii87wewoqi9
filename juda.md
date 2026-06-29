@@ -1,47 +1,56 @@
-# 华宝基金红利风向标：高股息方向盘整，现金流策略表现较优
+# 爆款频出+闭门拒客！科技基金火热行情下，公募基金如何布局？
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-责任编辑：常福强
+科技行情爆火背后，基金“上新”与“限购”并存。 近期，A股市场科技主线持续演绎，公募基金则出现了矛盾现象：一方面，强烈的赚钱效应带火了基金发行端，年内权益爆款频出，科技主题产品“一日售罄”已成家常便饭；另一侧却上演着绩优基金频频降额限购、“紧关车门”的画面，将汹涌而来的资金拒之门外。 这种“上新”与“限购”并存的现象，再度折射出公募基金在行情短期高位之际，需要再度面对规模与业绩
 
 ## 正文
 
-责任编辑：常福强
+科技行情爆火背后，基金“上新”与“限购”并存。
+
+近期，A股市场科技主线持续演绎，公募基金则出现了矛盾现象：一方面，强烈的赚钱效应带火了基金发行端，年内权益爆款频出，科技主题产品“一日售罄”已成家常便饭；另一侧却上演着绩优基金频频降额限购、“紧关车门”的画面，将汹涌而来的资金拒之门外。
+
+这种“上新”与“限购”并存的现象，再度折射出公募基金在行情短期高位之际，需要再度面对规模与业绩“再平衡”的难题。
+
+有公募分析人士指出，这需要公募基金、代销渠道等机构面对短期利润“诱惑”时，保持一定的克制力—公募基金要有限购的勇气，把规模控制在基金经理的能力圈里，代销渠道也得告别舒适区，在行情火爆之际做好冷静的买方投顾。
+
+新发爆款与限购现象并存 一年多以来，科技板块展现出了极强的弹性，资金对于相关赛道的共识再度达到了历史峰值。
+
+基金方面，多只重仓科技股的权益类基金净值持续上攻，“翻倍基”亦是稀松平常。
+
+赚钱效应还带动了基金在发行端的火爆，年内权益基金爆款频出，一日售罄已是家常便饭，带有“科技”“智选”等字样的基金更是尤为火爆。
+
+如平安新鑫智选发行规模高达48.6亿元，诺安科技智选发行规模高达31.88亿元，还有泉果科技领航在10天时间内募集了17.40亿元。
 
 ## 相关推荐
 
-- 2026-06-29 21:36 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-29 21:44 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-29 21:32 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-29 21:28 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 21:35 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 21:43 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 21:39 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-29 21:43 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 21:38 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-29 21:25 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 21:27 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 21:36 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-29 21:53 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-29 21:32 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-29 21:51 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 21:48 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-29 21:32 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 21:39 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-29 21:35 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 21:36 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 21:37 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 21:41 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-29 21:50 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 21:33 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 21:50 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:30 - [毒液2](http://www.blog.minike.top/Article/details/47393159.shtml)
-- 2026-06-29 21:46 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/827035.shtml)
-- 2026-06-29 21:50 - [返利科技盘中上演“天地板”](http://www.blog.minike.top/Article/details/5249690.shtml)
-- 2026-06-29 21:32 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/13359256232.shtml)
-- 2026-06-29 21:36 - [巴西vs日本前瞻](https://www.blog.minike.top/Article/details/769770979206.shtml)
-- 2026-06-29 21:49 - [恋与深空制作组回应争议](http://www.blog.minike.top/Article/details/07207430176.shtml)
-- 2026-06-29 21:28 - [穆祉丞东方风云榜红毯](https://www.share.minike.top/Article/details/2718715980.shtml)
-- 2026-06-29 21:24 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.minike.top/Article/details/66891.shtml)
-- 2026-06-29 21:24 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/9839441723.shtml)
-- 2026-06-29 21:33 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/6874324423.shtml)
-- 2026-06-29 21:38 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/841323.shtml)
-- 2026-06-29 21:47 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/50331775.shtml)
-- 2026-06-29 21:40 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/14514181041.shtml)
-- 2026-06-29 21:28 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/962631.shtml)
-- 2026-06-29 21:46 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/572672009.shtml)
+- 2026-06-29 21:58 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/1235977683.shtml)
+- 2026-06-29 21:45 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/22867492.shtml)
+- 2026-06-29 21:59 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/42369.shtml)
+- 2026-06-29 21:59 - [LPL第三赛段赛制公布](http://www.blog.minike.top/Article/details/963078535.shtml)
+- 2026-06-29 21:45 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/0919277.shtml)
+- 2026-06-29 21:36 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/3090125.shtml)
+- 2026-06-29 21:37 - [法拉利车主已自行承担修理费近3万](https://www.blog.minike.top/Article/details/403566559.shtml)
+- 2026-06-29 21:57 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/689018159.shtml)
+- 2026-06-29 21:30 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/688056.shtml)
+- 2026-06-29 21:38 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/01204186065.shtml)
+- 2026-06-29 21:45 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/897195653396.shtml)
+- 2026-06-29 21:48 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/3469317550.shtml)
+- 2026-06-29 21:56 - [小娘惹](https://www.share.minike.top/Article/details/488125224.shtml)
+- 2026-06-29 21:52 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/382000780973.shtml)
+- 2026-06-29 21:52 - [佛得角队长门德斯被控强奸](https://www.share.kurohicncr.top/Article/details/75290.shtml)

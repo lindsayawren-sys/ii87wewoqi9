@@ -1,47 +1,56 @@
-# 建滔集团遭独立非执行董事庄坚琪减持1万股 每股作价100港元
+# 新易盛，融资客大举买入，A股第一名
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，6月15日，独立非执行董事庄坚琪减持建滔集团（00148）1万股，每股作价100港元，总金额为100万港元。减持后最新持股数目约为33.00万股，持股比例为0.02%。责任编辑：卢昱君
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！上周A股市场震荡分化。 Wind数据显示，截至6月12日，A股市场融资余额报28523.23亿元，融券余额报211.59亿元，上周融资余额减少333.92亿元。 上周基础化工行业融资余额增加超26亿元，A股市场融资净买入金额最大的股票为新易盛，净卖出金额最大的股票为佰维存储。 加仓基础化工行业超26亿元 W
 
 ## 正文
 
-香港联交所最新数据显示，6月15日，独立非执行董事庄坚琪减持建滔集团（00148）1万股，每股作价100港元，总金额为100万港元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-减持后最新持股数目约为33.00万股，持股比例为0.02%。
+上周A股市场震荡分化。
 
-责任编辑：卢昱君
+Wind数据显示，截至6月12日，A股市场融资余额报28523.23亿元，融券余额报211.59亿元，上周融资余额减少333.92亿元。
+
+上周基础化工行业融资余额增加超26亿元，A股市场融资净买入金额最大的股票为新易盛，净卖出金额最大的股票为佰维存储。
+
+加仓基础化工行业超26亿元 Wind数据显示，截至6月12日，A股两融余额报28734.82亿元，融资余额报28523.23亿元，上周A股市场融资余额减少333.92亿元，已连续两周下滑。
+
+具体来看，6月8日A股融资余额减少232.73亿元，6月9日增加37.42亿元，6月10日减少82.01亿元，6月11日减少52.72亿元，6月12日减少3.87亿元。
+
+从行业情况来看，上周31个申万一级行业中有7个行业融资余额增加，基础化工、机械设备、交通运输行业融资净买入金额居前，分别为26.60亿元、3.71亿元、3.04亿元。
+
+在出现融资净卖出的24个行业中，电力设备、计算机、医药生物行业融资净卖出金额居前，分别为42.82亿元、41.24亿元、36.07亿元。
 
 ## 相关推荐
 
-- 2026-06-29 21:49 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 21:43 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 21:28 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 21:24 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 21:49 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 21:37 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 21:52 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-29 21:26 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-29 21:52 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-29 21:41 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 21:40 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 21:53 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 21:53 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-29 21:47 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-29 21:43 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 21:38 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-29 21:55 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-29 21:32 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-29 21:57 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 21:58 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 21:49 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:34 - [网约车出事故平台拒赔称只是中介](http://www.share.kurohicncr.top/Article/details/1165516088.shtml)
-- 2026-06-29 21:27 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/846713661.shtml)
-- 2026-06-29 21:45 - [TLAW零封DCG MSI](http://www.blog.minike.top/Article/details/5023673162.shtml)
-- 2026-06-29 21:24 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/28439331.shtml)
-- 2026-06-29 21:34 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/85740.shtml)
-- 2026-06-29 21:38 - [T1零封KC MSI](http://www.share.minike.top/Article/details/27947352865.shtml)
-- 2026-06-29 21:45 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/22212015471.shtml)
-- 2026-06-29 21:42 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/379470.shtml)
-- 2026-06-29 21:38 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/16952116904.shtml)
-- 2026-06-29 21:40 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.minike.top/Article/details/66403850.shtml)
-- 2026-06-29 21:42 - [店员光脚踩入盆中清洗土豆](http://www.blog.minike.top/Article/details/0982291.shtml)
-- 2026-06-29 21:44 - [直击委内瑞拉加拉加斯救援现场](https://www.share.kurohicncr.top/Article/details/66095.shtml)
-- 2026-06-29 21:49 - [绘画区你赢了](https://www.share.minike.top/Article/details/54016.shtml)
-- 2026-06-29 21:28 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/00387.shtml)
-- 2026-06-29 21:34 - [无畏为自己的猫正名了](http://www.blog.minike.top/Article/details/349500981854.shtml)
+- 2026-06-29 21:50 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/943588.shtml)
+- 2026-06-29 21:37 - [Ella回应SHE何时合体](http://www.share.minike.top/Article/details/926181386.shtml)
+- 2026-06-29 21:48 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/194910.shtml)
+- 2026-06-29 21:46 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/887118.shtml)
+- 2026-06-29 21:33 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/983819790474.shtml)
+- 2026-06-29 21:58 - [第一炉香](http://www.share.minike.top/Article/details/256869896.shtml)
+- 2026-06-29 21:31 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/46913980624.shtml)
+- 2026-06-29 21:58 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/06606.shtml)
+- 2026-06-29 21:37 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/888088.shtml)
+- 2026-06-29 21:35 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/679022974665.shtml)
+- 2026-06-29 21:42 - [一生一世](http://www.share.kurohicncr.top/Article/details/395527.shtml)
+- 2026-06-29 21:37 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.share.minike.top/Article/details/759501416227.shtml)
+- 2026-06-29 21:38 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/47313750799.shtml)
+- 2026-06-29 21:43 - [半导体和股市为何没让韩国人起飞](https://www.share.minike.top/Article/details/1838459.shtml)
+- 2026-06-29 21:57 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/7283613.shtml)

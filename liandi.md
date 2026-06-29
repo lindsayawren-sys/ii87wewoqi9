@@ -1,56 +1,57 @@
-# 西十高铁通车在即 跨省入鄂旅行团预订热度攀升
+# AI硬件再度疯狂，港股硬科技霸气领涨！规模最大港股通信息技术ETF华宝（159131）大涨逾6% ，全市场涨幅第一
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-中新网武汉6月16日电 (记者 梁婷)西十高铁通车进入倒计时，这条高铁大动脉将打通湖北与西北地区的全新文旅通道。记者16日从湖北省文旅厅获悉，该省开展陕鄂文旅交流互动，沿线城市推出多元文旅产品、深化区域合作。目前，全省已推出陕西入鄂旅行团30余个，预计组团游客将突破2万人次，预订热度持续攀升。武汉、十堰、襄阳等地旅行社集中推出西十高铁首发团，出行档期集中在6月底至7月上旬，行程
+6月15日午后，港股硬科技持续领涨全市场。智谱涨超35%，建滔积层板、建滔集团、壁仞科技、英诺赛科、华虹宏力等多股涨超10%。同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内价格持续走高，现涨6.47%，涨幅高居全市场ETF第一，实时成交额超14亿元。 消息面上，北京时间6月9日，Anthropic发布迄今最强模型Claude Fable 5与Mytho
 
 ## 正文
 
-中新网武汉6月16日电 (记者 梁婷)西十高铁通车进入倒计时，这条高铁大动脉将打通湖北与西北地区的全新文旅通道。
+6月15日午后，港股硬科技持续领涨全市场。
 
-记者16日从湖北省文旅厅获悉，该省开展陕鄂文旅交流互动，沿线城市推出多元文旅产品、深化区域合作。
+智谱涨超35%，建滔积层板、建滔集团、壁仞科技、英诺赛科、华虹宏力等多股涨超10%。
 
-目前，全省已推出陕西入鄂旅行团30余个，预计组团游客将突破2万人次，预订热度持续攀升。
+同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内价格持续走高，现涨6.47%，涨幅高居全市场ETF第一，实时成交额超14亿元。
 
-武汉、十堰、襄阳等地旅行社集中推出西十高铁首发团，出行档期集中在6月底至7月上旬，行程覆盖武当山、丹江口等核心景区。
+消息面上，北京时间6月9日，Anthropic发布迄今最强模型Claude Fable 5与Mythos 5，在软件工程、知识工作、视觉、科学研究等几乎所有基准测试中全面领先。
 
-截至6月中旬，全省已组成6个特色首发团，预订游客超500人。
+仅三天后（6月12日），美国政府以国家安全为由下达出口管制指令，要求暂停所有外籍人士对这两款模型的访问权限。
 
-除首发团外，各类中长期旅行团有序推进，涵盖精品小团、中型观光团及千人研学团。
+Anthropic因无法按国籍精准区分用户，最终选择全球全量下线。
 
-依托鄂西山水资源，多条核心景区线路已组建千人团队，预订量预计突破2万人次。
+仅隔一天（6月13日），智谱AI宣布旗下最强开源模型GLM-5.2全量开放，开放时间“17：21”精准对应美方禁令发出的美东时间，形成了一次精心策划的战略性回应。
 
-三峡、神农架等长线景区备受欢迎，兰州至武汉研学团、长安三日夏令营等主题团即将上线，暑期亲子游市场热度高涨。
+广发证券 明确指出，本次事件的核心影响不在于两款模型的短期下线，而在于海外前沿模型服务的不确定性进一步上升。
 
 ## 相关推荐
 
-- 2026-06-29 21:50 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 21:38 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 21:39 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-29 21:42 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-29 21:53 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-29 21:46 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 21:44 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-29 21:43 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-29 21:42 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-29 21:49 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 21:41 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 21:47 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 21:42 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-29 21:58 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 21:46 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-29 21:31 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-29 21:39 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-29 21:59 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-29 21:44 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-29 21:49 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-29 21:45 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:47 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/418665393705.shtml)
-- 2026-06-29 21:30 - [山东发布山洪灾害气象预警](http://www.share.minike.top/Article/details/2559135.shtml)
-- 2026-06-29 21:28 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/2513485.shtml)
-- 2026-06-29 21:34 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/36822769.shtml)
-- 2026-06-29 21:47 - [吴建豪和老婆差20岁](http://www.share.kurohicncr.top/Article/details/33935484388.shtml)
-- 2026-06-29 21:25 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/07486.shtml)
-- 2026-06-29 21:41 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/385851560706.shtml)
-- 2026-06-29 21:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/61735147962.shtml)
-- 2026-06-29 21:42 - [追觅称质量不行终身包修也没意义](https://www.share.kurohicncr.top/Article/details/57899844900.shtml)
-- 2026-06-29 21:45 - [巴西10号球衣是天才传承史](http://www.blog.kurohicncr.top/Article/details/350820588441.shtml)
-- 2026-06-29 21:36 - [女心理师](http://www.blog.minike.top/Article/details/551770187313.shtml)
-- 2026-06-29 21:40 - [肝不好身体这几处会“说话”](https://www.share.kurohicncr.top/Article/details/2745104.shtml)
-- 2026-06-29 21:30 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/6786921556.shtml)
-- 2026-06-29 21:26 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/70025073815.shtml)
-- 2026-06-29 21:48 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/9884416390.shtml)
+- 2026-06-29 21:49 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.minike.top/Article/details/639535366680.shtml)
+- 2026-06-29 21:45 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/2701176347.shtml)
+- 2026-06-29 21:33 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/1591945616.shtml)
+- 2026-06-29 21:42 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/9730432436.shtml)
+- 2026-06-29 21:37 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/0817087885.shtml)
+- 2026-06-29 21:47 - [天气热脾气都变差了](http://www.share.kurohicncr.top/Article/details/0333557109.shtml)
+- 2026-06-29 21:54 - [多人将马路护栏当球网打羽毛球](https://www.share.kurohicncr.top/Article/details/58270.shtml)
+- 2026-06-29 21:30 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/36492.shtml)
+- 2026-06-29 21:48 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/872250722629.shtml)
+- 2026-06-29 21:47 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/8562881.shtml)
+- 2026-06-29 21:54 - [被中方管控的20家日本实体什么来头](http://www.share.minike.top/Article/details/705748.shtml)
+- 2026-06-29 21:36 - [吴建豪和老婆差20岁](http://www.blog.kurohicncr.top/Article/details/163045.shtml)
+- 2026-06-29 21:43 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/46201.shtml)
+- 2026-06-29 21:55 - [日美楼市危机复盘：见底顺序曝光](https://www.blog.minike.top/Article/details/868772806305.shtml)
+- 2026-06-29 21:58 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/993612875048.shtml)

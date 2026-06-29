@@ -1,61 +1,59 @@
-# 光大期货：6月17日矿钢煤焦日报
+# 莫应丰文学艺术馆在湖南桃江开馆 构建乡村文化矩阵
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-螺纹钢： （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 昨日螺纹盘震荡下跌，截止日盘螺纹2610合约收盘价格为3169元/吨，较上一交易日收盘价格下跌18元/吨，跌幅为0.56%，持仓减少1.81万手。现货价格小幅下跌，成交回落，唐山地区迁安普方坯价格下跌10元/吨至3030元/吨，杭州市场中天螺纹价格下跌10元/吨至3220元/吨，全国建材成交量
+中新网益阳6月14日电 (李胜财 符聪 龙玺茹)14日，“竹乡文韵·薪承大华”莫应丰文学艺术馆开馆暨首届“莫应丰杯”征文比赛颁奖仪式在湖南桃江县举行，艺术馆与莫应丰故居、少年作家班教学楼、文学公园共同构成完整的文化矩阵。 莫应丰是从桃江走出去的文学大家，1938年生于大华村，其代表作《将军吟》于1982年荣获首届茅盾文学奖，开湖湘长篇问鼎国奖之先河。2020年，桃江县启动莫应丰
 
 ## 正文
 
-螺纹钢： （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 昨日螺纹盘震荡下跌，截止日盘螺纹2610合约收盘价格为3169元/吨，较上一交易日收盘价格下跌18元/吨，跌幅为0.56%，持仓减少1.81万手。
+中新网益阳6月14日电 (李胜财 符聪 龙玺茹)14日，“竹乡文韵·薪承大华”莫应丰文学艺术馆开馆暨首届“莫应丰杯”征文比赛颁奖仪式在湖南桃江县举行，艺术馆与莫应丰故居、少年作家班教学楼、文学公园共同构成完整的文化矩阵。
 
-现货价格小幅下跌，成交回落，唐山地区迁安普方坯价格下跌10元/吨至3030元/吨，杭州市场中天螺纹价格下跌10元/吨至3220元/吨，全国建材成交量8.31万吨。
+莫应丰是从桃江走出去的文学大家，1938年生于大华村，其代表作《将军吟》于1982年荣获首届茅盾文学奖，开湖湘长篇问鼎国奖之先河。
 
-据国家统计局数据，1-5月固定资产投资同比下降4.1%，较1-4月降幅扩大2.5个百分点。
+2020年，桃江县启动莫应丰故居复建工程，严格按照20世纪50年代原貌复原。
 
-其中基建投资同比增长0.6%，较1-4月回落3.7个百分点；制造业投资同比下降0.4%，较1-4月回落1.6个百分点，2021年以来首次转负；房地产开发投资同比下降16.2%，降幅较1-4月扩大2.5个百分点。
+随后，少年作家班教学楼拔地而起。
 
-房地产分项指标中，1-5月销售面积同比下降10.8%，降幅较1-4月扩大0.6个百分点；新开工面积同比下降22.6%，降幅较1-4月扩大0.6个百分点；施工面积同比下降12.3%，降幅较1-4月扩大0.2个百分点；竣工面积下降23.4%，降幅较1-4月收窄0.6个百分点。
+此次艺术馆的落成，是对文学先贤的深情告慰，也是基层文化建设的一件实事。
 
-5月中国粗钢产量8436万吨，同比下降2.7%；生铁产量7297万吨，同比下降2.6%；钢材产量12303万吨，同比下降2.8%。
+这座场馆将成为乡亲们喜爱的“文化客厅”，孩子们接受文学启蒙的“第二课堂”和文艺家的“创作基地”，让文学力量为乡村振兴注入持久动能。
 
-1-5月，中国粗钢产量41553万吨，同比下降3.9%；生铁产量35471万吨，同比下降3.1%；钢材产量59299万吨，同比下降1.5%。
+湖南省作家协会副主席水运宪向文学艺术馆捐赠了莫应丰的书法作品。
 
-目前需求不足仍是制约钢价上行的主要矛盾，不过随着煤焦连续上涨，成本支撑明显增强。
+家属欧阳慧龄深情回顾了莫应丰与家乡的血脉联系，感谢家乡对其文学精神的珍视与传承，并表示将捐赠先生遗物文献以支持场馆长远发展。
 
 ## 相关推荐
 
-- 2026-06-29 21:43 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-29 21:30 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 21:39 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-29 21:47 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 21:52 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 21:25 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 21:48 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-29 21:39 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-29 21:38 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-29 21:34 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-29 21:27 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-29 21:53 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-29 21:41 - [李思潼：不会介意大家夸我运气好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-29 21:48 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-29 21:50 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 21:36 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 21:56 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-29 21:31 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-29 21:45 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 21:31 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-29 21:46 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 21:45 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 21:58 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 21:32 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 21:50 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 21:40 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-29 21:30 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-29 21:49 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:31 - [中国妇女评网游娱乐化女性安全](https://www.share.minike.top/Article/details/988330236.shtml)
-- 2026-06-29 21:42 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/77893756622.shtml)
-- 2026-06-29 21:26 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/900899433.shtml)
-- 2026-06-29 21:49 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/76429305283.shtml)
-- 2026-06-29 21:51 - [中方在台湾岛以东海域活动合理合法](https://www.share.minike.top/Article/details/824327.shtml)
-- 2026-06-29 21:38 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/6126367.shtml)
-- 2026-06-29 21:44 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.minike.top/Article/details/4091098834.shtml)
-- 2026-06-29 21:50 - [蔚来车主罚站](http://www.share.minike.top/Article/details/078978.shtml)
-- 2026-06-29 21:30 - [任泽平：AI浪潮刚刚开始](https://www.blog.kurohicncr.top/Article/details/704227259886.shtml)
-- 2026-06-29 21:26 - [金刚川](https://www.blog.kurohicncr.top/Article/details/2153215629.shtml)
-- 2026-06-29 21:26 - [黄金也扛不住了](http://www.share.minike.top/Article/details/48869994513.shtml)
-- 2026-06-29 21:31 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/44198.shtml)
-- 2026-06-29 21:30 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/6352154637.shtml)
-- 2026-06-29 21:47 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/2077169.shtml)
-- 2026-06-29 21:53 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/9241909777.shtml)
+- 2026-06-29 21:45 - [不烧钱的低成本爱好](https://www.blog.minike.top/Article/details/60846760743.shtml)
+- 2026-06-29 21:48 - [普京建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/162041663.shtml)
+- 2026-06-29 21:57 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.share.kurohicncr.top/Article/details/388181543.shtml)
+- 2026-06-29 21:50 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/806762263093.shtml)
+- 2026-06-29 21:54 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.share.minike.top/Article/details/1838781380.shtml)
+- 2026-06-29 21:58 - [媒体评恋与深空用“引狼入室”台词](https://www.share.minike.top/Article/details/04446324.shtml)
+- 2026-06-29 21:30 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/68455.shtml)
+- 2026-06-29 21:48 - [爱奇艺抬高国剧新标尺](http://www.share.minike.top/Article/details/00018.shtml)
+- 2026-06-29 21:40 - [记者：预计热火将追求小哈达威和康利](http://www.blog.minike.top/Article/details/7865236290.shtml)
+- 2026-06-29 21:52 - [恋与深空7天掉粉超50万](https://www.share.minike.top/Article/details/296612946.shtml)
+- 2026-06-29 21:55 - [送你一朵小红花](https://www.blog.minike.top/Article/details/3043030.shtml)
+- 2026-06-29 21:34 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/67424849084.shtml)
+- 2026-06-29 21:34 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/687734735510.shtml)
+- 2026-06-29 21:58 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/647454682.shtml)
+- 2026-06-29 21:44 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/36806051.shtml)

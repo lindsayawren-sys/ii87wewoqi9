@@ -1,60 +1,57 @@
-# “数币达”首批直接参与者出炉！数字人民币国际运营中心与26家海内外金融机构签约
+# 000603及实控人，被立案
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-来源：华夏时报 文/卢梦雪 2026年6月16日，数字人民币国际运营中心与首批26家金融机构在沪签署直接参与者服务协议，上线后业务可覆盖中国香港、中国澳门、新加坡、老挝、泰国、阿联酋、卡塔尔、巴西等国家和地区。 这26家机构即为“数币达”（Cross-border e-CNY Transfer Services，简称CBETS）跨境结算综合服务平台的首批直接参与者，分别为：工银
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：中国基金报 【导读】盛达资源及其实控人被中国证监会立案 中国基金报记者 闻言 6月15日晚间，盛达资源发布公告称，当日，公司及实际控制人赵满堂均收到中国证监会下发的《立案告知书》。 《立案告知书》显示，盛达资源、赵满堂被中国证监会立案，原因均为涉嫌信息披露违法违规。 盛达资源针对上述立案调查事项进行自查，提及其2025年4
 
 ## 正文
 
-来源：华夏时报 文/卢梦雪 2026年6月16日，数字人民币国际运营中心与首批26家金融机构在沪签署直接参与者服务协议，上线后业务可覆盖中国香港、中国澳门、新加坡、老挝、泰国、阿联酋、卡塔尔、巴西等国家和地区。
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：中国基金报 【导读】盛达资源及其实控人被中国证监会立案 中国基金报记者 闻言 6月15日晚间，盛达资源发布公告称，当日，公司及实际控制人赵满堂均收到中国证监会下发的《立案告知书》。
 
-这26家机构即为“数币达”（Cross-border e-CNY Transfer Services，简称CBETS）跨境结算综合服务平台的首批直接参与者，分别为：工银亚洲、工银澳门、工行新加坡分行、工银泰国、工行万象分行、工行多哈分行、农行香港分行、农行迪拜分行、中银香港、中行澳门分行、中行新加坡分行、中银泰国、中银香港万象分行、建行亚洲、建行新加坡分行、交行香港分行、交行香港子行、交行澳门分行、交行巴西子行、渣打中国、兴业香港分行、信银国际、浦发香港分行、浦发新加坡分行、广发香港分行、广发澳门分行。
+《立案告知书》显示，盛达资源、赵满堂被中国证监会立案，原因均为涉嫌信息披露违法违规。
 
-2025年，根据中国人民银行的决策部署，中国人民银行数字货币研究所下属机构整合为数字人民币运营管理中心和国际运营中心，承担数字人民币金融基础设施运营单位的职能，支持构建国内国际双循环的“两翼”格局。
+盛达资源针对上述立案调查事项进行自查，提及其2025年4月29日披露《关于公司自查发现控股股东及其附属企业资金占用并已解决等情况的公告》。
 
-其中，数字人民币国际运营中心负责数字人民币跨境基础设施建设和运营，服务跨境和离岸体系建设。
+2024年2月至2024年12月，盛达资源的控股股东及其附属企业存在间歇性非经营性占用盛达资源资金的情形。
 
-2026年，随着数字人民币计量框架调整和基础设施体系整体架构升级，数字人民币跨境数字支付平台、区块链服务平台、数字资产平台等三大业务平台也随之升级为“数币达”（CBETS）跨境结算综合服务平台，并启动品牌化运作。
+截至2024年12月11日，盛达资源已收回前述全部被占用的资金。
 
-境外参与者可通过香港接入点一点接入，便捷开通多项业务。
+在审计盛达资源2024年度内部控制时，审计机构基于上述情况出具了带强调事项段无保留意见的内部控制审计报告。
 
-CBETS有两种合作模式：既支持与各货币当局支付系统/法定数字货币系统的跨境互联互通，便利当地机构不改变原有渠道，通过本地系统实现“一通百通”，也支持金融机构直接接入，直达7*24小时智能数字支付服务。
+盛达资源发布最新公告称，目前，公司已收回全部被占用的资金及利息。
 
-CBETS参与者可依托CBETS的系统能力为客户提供低成本、多元化和安全高效的跨境数字支付服务，助力跨境贸易和投融资便利化与金融高水平对外开放。
+公司已积极对相关问题进行整改，将依法履行相关信息披露义务。
 
 ## 相关推荐
 
-- 2026-06-29 21:27 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-29 21:28 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-29 21:31 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 21:29 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 21:44 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-29 21:32 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 21:28 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 21:51 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 21:33 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-29 21:37 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-29 21:49 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 21:44 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 21:34 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 21:30 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 21:38 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 21:40 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-29 21:47 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-29 21:54 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 21:56 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 21:34 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 21:59 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 21:53 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-29 21:57 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 21:55 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-29 21:50 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:26 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/552579.shtml)
-- 2026-06-29 21:32 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/588565257528.shtml)
-- 2026-06-29 21:30 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/36271.shtml)
-- 2026-06-29 21:46 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/9553668275.shtml)
-- 2026-06-29 21:28 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/921847954323.shtml)
-- 2026-06-29 21:36 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.minike.top/Article/details/17577.shtml)
-- 2026-06-29 21:49 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/74235995.shtml)
-- 2026-06-29 21:25 - [夫妻生活太无聊，所以我……](https://www.share.kurohicncr.top/Article/details/3787997785.shtml)
-- 2026-06-29 21:36 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/022605212.shtml)
-- 2026-06-29 21:42 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/0602838969.shtml)
-- 2026-06-29 21:28 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/41074851.shtml)
-- 2026-06-29 21:35 - [半导体和股市为何没让韩国人起飞](http://www.share.kurohicncr.top/Article/details/1530657.shtml)
-- 2026-06-29 21:48 - [日本在最东端离岛部署导弹发射装置](https://www.share.kurohicncr.top/Article/details/6684209772.shtml)
-- 2026-06-29 21:48 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/6440701598.shtml)
-- 2026-06-29 21:44 - [恋与深空致歉](http://www.share.minike.top/Article/details/7580803852.shtml)
+- 2026-06-29 21:42 - [网约车出事故平台拒赔称只是中介](https://www.share.kurohicncr.top/Article/details/6271529.shtml)
+- 2026-06-29 21:58 - [李思潼：不会介意大家夸我运气好](https://www.share.minike.top/Article/details/772011.shtml)
+- 2026-06-29 21:54 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/19362.shtml)
+- 2026-06-29 21:47 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/186826.shtml)
+- 2026-06-29 21:42 - [青春环游记第三季](https://www.blog.minike.top/Article/details/5996796.shtml)
+- 2026-06-29 21:40 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/98959265.shtml)
+- 2026-06-29 21:54 - [任泽平：AI浪潮刚刚开始](https://www.share.kurohicncr.top/Article/details/17103783026.shtml)
+- 2026-06-29 21:42 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/07416157163.shtml)
+- 2026-06-29 21:38 - [湖南姑娘被东北同事带偏口音](https://www.blog.minike.top/Article/details/62252444270.shtml)
+- 2026-06-29 21:39 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/08589.shtml)
+- 2026-06-29 21:30 - [教育部高校学生资助热线7月1日开通](http://www.blog.minike.top/Article/details/9088317496.shtml)
+- 2026-06-29 21:48 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/063439375.shtml)
+- 2026-06-29 21:38 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/388286.shtml)
+- 2026-06-29 21:30 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/200403.shtml)
+- 2026-06-29 21:40 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/04146890.shtml)

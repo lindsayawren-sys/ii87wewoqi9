@@ -1,61 +1,50 @@
-# “科技信仰式并购”浪潮的最新注脚：安德利果汁拟以6亿至8亿跨界收购半导体材料企业
+# 西安东站完成装饰装修工作 已具备开通条件
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-2026年6月15日晚间，浓缩果汁龙头企业安德利（605198.SH）的一纸公告，在A股市场投下一枚重磅炸弹。公司宣布拟以6亿元至8亿元的自有或自筹资金，收购宁波甬强科技有限公司的控制权。一家主营浓缩果汁、产品外销占比长期维持在60%至70%的食品企业，一步跨入了集成电路高端电子材料赛道。 资本市场用三个涨停板给出了最直白的回应。6月12日、15日、16日，安德利A股连续三个交
+发布时间：2026年06月15日 21:55 来源：中国新闻网 6月15日，中国铁路西安局集团有限公司对外披露，西安东站内外部装饰装修工作全面完成，标志着这座西北地区大型综合交通枢纽进入最后收尾阶段。据悉，项目投用后可实现西安东站、西安北站互联互通，进一步完善全国高速铁路网，为区域经济社会高质量发展注入新动能。 据了解，西安东站位于陕西省西安市灞桥区高铁东城核心区，站房建筑面积
 
 ## 正文
 
-2026年6月15日晚间，浓缩果汁龙头企业安德利（605198.SH）的一纸公告，在A股市场投下一枚重磅炸弹。
+发布时间：2026年06月15日 21:55 来源：中国新闻网 6月15日，中国铁路西安局集团有限公司对外披露，西安东站内外部装饰装修工作全面完成，标志着这座西北地区大型综合交通枢纽进入最后收尾阶段。
 
-公司宣布拟以6亿元至8亿元的自有或自筹资金，收购宁波甬强科技有限公司的控制权。
+据悉，项目投用后可实现西安东站、西安北站互联互通，进一步完善全国高速铁路网，为区域经济社会高质量发展注入新动能。
 
-一家主营浓缩果汁、产品外销占比长期维持在60%至70%的食品企业，一步跨入了集成电路高端电子材料赛道。
+据了解，西安东站位于陕西省西安市灞桥区高铁东城核心区，站房建筑面积达10万平方米，车场总规模13台27线，其中西渝高速场5台9线，西武高速场4台8线，西康普速场4台10线，预留城际场。
 
-资本市场用三个涨停板给出了最直白的回应。
-
-6月12日、15日、16日，安德利A股连续三个交易日涨停，总市值累计上涨超60亿元；港股安德利果汁开盘更是一度暴涨80.44%。
-
-然而，股价狂欢的另一面，是上交所当晚火速下发的监管工作函，涉及对象涵盖上市公司、董事、高级管理人员、控股股东及实际控制人。
-
-从果汁到半导体，安德利这一步跨得究竟有多大？
-
-果汁龙头的“舒适区”焦虑 安德利是国内最早涉足浓缩果汁加工的企业之一，自1996年成立以来，在原料果主产区建有10个加工基地、20条生产线，2003年和2020年先后在港股与A股上市，是国内首家果汁饮料类“A+H”双上市企业。
+(梅镱泷 刘一江 薛心如 视频来源 西安铁路局） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 21:34 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-29 21:31 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 21:52 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-29 21:45 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-29 21:27 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-29 21:29 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-29 21:53 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-29 21:33 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-29 21:52 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-29 21:47 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-29 21:53 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-29 21:30 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-29 21:42 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-29 21:24 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 21:50 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 21:47 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-29 21:43 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-29 21:45 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 21:33 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 21:59 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-29 21:42 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-29 21:53 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-29 21:42 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 21:45 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-29 21:39 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 21:43 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-29 21:58 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:31 - [毒液2](https://www.blog.minike.top/Article/details/532768576.shtml)
-- 2026-06-29 21:45 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/1997591116.shtml)
-- 2026-06-29 21:25 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/508647217.shtml)
-- 2026-06-29 21:52 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/02422102.shtml)
-- 2026-06-29 21:26 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/787554.shtml)
-- 2026-06-29 21:52 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/563114504033.shtml)
-- 2026-06-29 21:53 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/60842458.shtml)
-- 2026-06-29 21:36 - [追觅称质量不行终身包修也没意义](https://www.blog.kurohicncr.top/Article/details/362026.shtml)
-- 2026-06-29 21:33 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/4627056482.shtml)
-- 2026-06-29 21:39 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/3221602.shtml)
-- 2026-06-29 21:30 - [林逸向方筱然求婚了](https://www.blog.kurohicncr.top/Article/details/17034.shtml)
-- 2026-06-29 21:32 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/1051663.shtml)
-- 2026-06-29 21:49 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/18384613.shtml)
-- 2026-06-29 21:36 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/58663.shtml)
-- 2026-06-29 21:25 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/2169525914.shtml)
+- 2026-06-29 21:46 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/2553601.shtml)
+- 2026-06-29 21:56 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/7998252206.shtml)
+- 2026-06-29 21:40 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/6402306455.shtml)
+- 2026-06-29 21:49 - [起风了](https://www.share.minike.top/Article/details/688296.shtml)
+- 2026-06-29 21:57 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/015217.shtml)
+- 2026-06-29 21:53 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.kurohicncr.top/Article/details/67307.shtml)
+- 2026-06-29 21:48 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/478892.shtml)
+- 2026-06-29 21:55 - [恋与深空客服的回应](https://www.share.minike.top/Article/details/07202555.shtml)
+- 2026-06-29 21:51 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/9835085.shtml)
+- 2026-06-29 21:55 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/00359574.shtml)
+- 2026-06-29 21:38 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/7446551.shtml)
+- 2026-06-29 21:50 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/1642835532.shtml)
+- 2026-06-29 21:57 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/53885.shtml)
+- 2026-06-29 21:43 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/5000342721.shtml)
+- 2026-06-29 21:48 - [巴西10号球衣是天才传承史](http://www.share.minike.top/Article/details/5791234.shtml)

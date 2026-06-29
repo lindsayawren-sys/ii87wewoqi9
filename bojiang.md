@@ -1,54 +1,60 @@
-# 巴西侨胞圆了“龙舟梦”
+# 安索帕将与特朗普政府会晤，协商迈索斯模型相关争端
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 11:02 来源：中国新闻网 粽子飘香，龙舟竞渡，当地时间6月14日，“中巴文化年·传承中华情”第三届巴西华侨华人龙舟联盟竞渡活动在巴西圣保罗瓜拉皮兰加水库举行，吸引两百余名旅巴侨胞和巴西友人参与。 圣保罗是巴西最大城市，旅巴30余万华侨华人有约26万聚集在当地。中华传统龙舟活动方兴未艾。去年仅两支队伍参赛，今年由巴西瑞安商会、巴西青田同乡总会
+核心要点 安索帕公司高层工作人员将与特朗普政府会面，试图化解企业近期与美国政府产生的争端。 美国政府勒令安索帕，禁止所有外籍人士访问其最新两款人工智能模型 —— 寓言 5（Fable 5）与迈索斯 5（Mythos 5）。 有消息人士透露，政府以存在未具体说明的国家安全隐患为由，要求安索帕关停上述两款模型。 据一名熟悉安索帕内部情况的消息人士透露，该人工智能企业多名高管将于周一
 
 ## 正文
 
-发布时间：2026年06月17日 11:02 来源：中国新闻网 粽子飘香，龙舟竞渡，当地时间6月14日，“中巴文化年·传承中华情”第三届巴西华侨华人龙舟联盟竞渡活动在巴西圣保罗瓜拉皮兰加水库举行，吸引两百余名旅巴侨胞和巴西友人参与。
+核心要点 安索帕公司高层工作人员将与特朗普政府会面，试图化解企业近期与美国政府产生的争端。
 
-圣保罗是巴西最大城市，旅巴30余万华侨华人有约26万聚集在当地。
+美国政府勒令安索帕，禁止所有外籍人士访问其最新两款人工智能模型 —— 寓言 5（Fable 5）与迈索斯 5（Mythos 5）。
 
-中华传统龙舟活动方兴未艾。
+有消息人士透露，政府以存在未具体说明的国家安全隐患为由，要求安索帕关停上述两款模型。
 
-去年仅两支队伍参赛，今年由巴西瑞安商会、巴西青田同乡总会、巴西闽商联合会、巴西华人华侨青年联合会与巴西洪门南美总会联袂举办，各遣一支中华传统龙舟队参赛。
+据一名熟悉安索帕内部情况的消息人士透露，该人工智能企业多名高管将于周一在华盛顿特区与特朗普政府官员会面，争取解决公司近期引发高度关注的美政府争端。
 
-(记者 林春茵 制作 徐妙巧） 责任编辑：【罗攀】
+安索帕发布声明称，公司上周五收到一份出口管制指令，文件援引国家安全部门要求，勒令企业禁止所有外籍人士（无论身处美国境内还是海外） 访问最新 AI 模型寓言 5、迈索斯 5。
+
+为遵守该指令，这家人工智能初创企业已关停全部客户对两款模型的访问权限。
+
+此次突发管控，进一步加剧了安索帕与美国政府之间本就紧张的关系。
+
+今年早些时候，公司与美国国防部的矛盾持续升级。
 
 ## 相关推荐
 
-- 2026-06-29 21:29 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 21:32 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-29 21:46 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 21:27 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-29 21:27 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 21:30 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 21:41 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-29 21:48 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 21:43 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 21:31 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-29 21:30 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-29 21:41 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-29 21:42 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-29 21:51 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 21:50 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-29 21:38 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-29 21:32 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-29 21:35 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-29 21:30 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-29 21:59 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 21:49 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 21:39 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-29 21:51 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 21:32 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-29 21:32 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 21:46 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 21:33 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-29 21:49 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:26 - [网约车出事故平台拒赔称只是中介](http://www.blog.kurohicncr.top/Article/details/0078634085.shtml)
-- 2026-06-29 21:51 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/814217.shtml)
-- 2026-06-29 21:31 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/807430160091.shtml)
-- 2026-06-29 21:25 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/3441103.shtml)
-- 2026-06-29 21:28 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/0779156691.shtml)
-- 2026-06-29 21:30 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/3104815480.shtml)
-- 2026-06-29 21:45 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/30773559561.shtml)
-- 2026-06-29 21:31 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/462304064.shtml)
-- 2026-06-29 21:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/302492015566.shtml)
-- 2026-06-29 21:41 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/76670.shtml)
-- 2026-06-29 21:27 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/989232396.shtml)
-- 2026-06-29 21:53 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/642224.shtml)
-- 2026-06-29 21:26 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/6635987.shtml)
-- 2026-06-29 21:40 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/362655.shtml)
-- 2026-06-29 21:43 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.share.kurohicncr.top/Article/details/16119.shtml)
+- 2026-06-29 21:55 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/1256404248.shtml)
+- 2026-06-29 21:45 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/6791875.shtml)
+- 2026-06-29 21:38 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/77054972.shtml)
+- 2026-06-29 21:39 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/25792440.shtml)
+- 2026-06-29 21:55 - [欧洲缘何成为变暖最快的大洲](http://www.share.kurohicncr.top/Article/details/041143688454.shtml)
+- 2026-06-29 21:39 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/0462155.shtml)
+- 2026-06-29 21:55 - [锐评白玉兰提名片段](https://www.share.kurohicncr.top/Article/details/09047091042.shtml)
+- 2026-06-29 21:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/83267386986.shtml)
+- 2026-06-29 21:32 - [美以这对亲密盟友要掰了吗](http://www.blog.minike.top/Article/details/58252.shtml)
+- 2026-06-29 21:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/47356139758.shtml)
+- 2026-06-29 21:41 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/523432.shtml)
+- 2026-06-29 21:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/73839.shtml)
+- 2026-06-29 21:58 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/598221235057.shtml)
+- 2026-06-29 21:39 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/22178513935.shtml)
+- 2026-06-29 21:43 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/2589846.shtml)

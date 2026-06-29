@@ -1,61 +1,60 @@
-# 大湾区重点工程狮子洋通道主桥完成首套主索鞍吊装
+# 警钟长鸣！国务院安委办通报典型案例 商洛高速桥梁垮塌等事故细节公布
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-记者从广东交通集团了解到，6月14日晚，大湾区重点工程狮子洋通道的项目控制性工程、世界首座超2000米双层悬索桥——狮子洋大桥，完成主塔首套主索鞍吊装，标志着大桥施工进入工序转换关键阶段，为项目后续先导索过江、猫道架设等上部结构施工奠定基础。狮子洋通道是珠江口首条双层复合公路通道，起于广州市南沙区大岗镇，终于东莞市沙田镇、虎门镇，全长约35公里，横跨珠江口“A”字形顶端的咽喉要
+近日，国务院安委会办公室通报了五起安全生产领域弄虚作假的典型案例，其中包括陕西商洛高速公路桥梁垮塌事故、西成铁路尖扎黄河特大桥施工项目重大垮塌事故、四川阿坝马尔康市红旗大桥垮塌事故、河南三门峡陕州区境内陇海线下穿立交顶进铁路营业线边坡溜塌事故、山东招远蚕庄金矿上庄矿段坠罐事故等，涵盖桥梁、铁路、矿山等领域。五起典型案例，典型在何处？对整个安全生产领域发出了怎样的最新警示？陕西商
 
 ## 正文
 
-记者从广东交通集团了解到，6月14日晚，大湾区重点工程狮子洋通道的项目控制性工程、世界首座超2000米双层悬索桥——狮子洋大桥，完成主塔首套主索鞍吊装，标志着大桥施工进入工序转换关键阶段，为项目后续先导索过江、猫道架设等上部结构施工奠定基础。
+近日，国务院安委会办公室通报了五起安全生产领域弄虚作假的典型案例，其中包括陕西商洛高速公路桥梁垮塌事故、西成铁路尖扎黄河特大桥施工项目重大垮塌事故、四川阿坝马尔康市红旗大桥垮塌事故、河南三门峡陕州区境内陇海线下穿立交顶进铁路营业线边坡溜塌事故、山东招远蚕庄金矿上庄矿段坠罐事故等，涵盖桥梁、铁路、矿山等领域。
 
-狮子洋通道是珠江口首条双层复合公路通道，起于广州市南沙区大岗镇，终于东莞市沙田镇、虎门镇，全长约35公里，横跨珠江口“A”字形顶端的咽喉要道，是粤港澳大湾区发展的又一重要落子。
+五起典型案例，典型在何处？
 
-项目由跨江主桥和陆域引线工程组成，其中，主桥狮子洋大桥采用双层钢桁梁悬索桥方案“一跨过江”，主跨跨径、车道数量、锚碇直径、主塔高度及主缆直径均居同类型桥梁之首。
+对整个安全生产领域发出了怎样的最新警示？
 
-对于狮子洋大桥而言，全桥几乎所有承重，都将依靠两根直径约1.5米、单根重超4.3万吨的超大型主缆，它们从主跨向两岸延伸，像肩膀一样将荷载重量传递到主塔和锚碇之上。
+陕西商洛高速公路桥梁垮塌事故：施工、监理、检测层层弄虚作假 25辆车坠河，62人死亡失踪，在国务院安委会办公室本周通报的五起弄虚作假典型案例中，陕西商洛高速公路桥梁垮塌事故排在首位。
 
-主索鞍位于东、西主塔顶部，是用于支撑主缆、承受主缆荷载、平顺过渡缆形的“基座”。
+2024年7月19日，由于暴雨造成山洪，丹宁高速水阳段的一个公路桥梁突然发生单侧垮塌。
 
-狮子洋大桥共布设4套主索鞍，单套索鞍由格栅、反力架、承板及双节分体鞍体组成，其结构形似“巨型梳子”。
+从建成通车到发生事故，还不到六年时间，这座桥垮塌原因是什么？
 
-本次吊装的西主塔左幅主索鞍，鞍体总重达287吨，长约13.6米、高5.5米，对半分为两节制造、吊装。
+事发后，东南大学桥梁冲刷与水毁专家熊文被派往现场与其他专家一起进行调查。
 
-大桥主索鞍进行了轻量化结构设计，支撑结构创新采用三纵肋方案，中纵肋与横肋形成鱼骨受力体系，受力性能大幅提升。
+2025年3月，灾害调查评估报告发布，认定流水压力、漂流物推力、系梁及梁下堵塞物水阻力是导致桥梁垮塌的三个关键因素，权重分别约为35%、57%、8%。
 
 ## 相关推荐
 
-- 2026-06-29 21:27 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 21:43 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-29 21:35 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-29 21:38 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-29 21:53 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 21:53 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-29 21:51 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 21:35 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 21:47 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-29 21:25 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 21:44 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-29 21:32 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 21:42 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 21:41 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-29 21:29 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-29 21:43 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 21:48 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 21:59 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 21:50 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 21:57 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-29 21:54 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 21:58 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 21:45 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-29 21:31 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-29 21:54 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-29 21:50 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 21:53 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 21:42 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-29 21:37 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:45 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/42074.shtml)
-- 2026-06-29 21:43 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/15847.shtml)
-- 2026-06-29 21:53 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/429005066.shtml)
-- 2026-06-29 21:43 - [乌是否掌握了扭转战局的钥匙](https://www.blog.minike.top/Article/details/9376217361.shtml)
-- 2026-06-29 21:46 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/22496.shtml)
-- 2026-06-29 21:29 - [乌克兰发广告全球征兵](http://www.share.minike.top/Article/details/2197070848.shtml)
-- 2026-06-29 21:29 - [巴西vs日本前瞻](https://www.blog.minike.top/Article/details/05853.shtml)
-- 2026-06-29 21:48 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/41968823.shtml)
-- 2026-06-29 21:28 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/405057.shtml)
-- 2026-06-29 21:25 - [佛得角队长门德斯被控强奸](http://www.share.kurohicncr.top/Article/details/278959.shtml)
-- 2026-06-29 21:50 - [卢卡申科发布解放军仪仗队视频](http://www.share.kurohicncr.top/Article/details/630884555413.shtml)
-- 2026-06-29 21:51 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/17311.shtml)
-- 2026-06-29 21:42 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/724982202310.shtml)
-- 2026-06-29 21:43 - [日本在最东端离岛部署导弹发射装置](https://www.blog.minike.top/Article/details/03843080110.shtml)
-- 2026-06-29 21:36 - [沙丘](http://www.blog.minike.top/Article/details/89172829658.shtml)
+- 2026-06-29 21:35 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/5411920317.shtml)
+- 2026-06-29 21:51 - [刘宇宁 好听](http://www.share.kurohicncr.top/Article/details/376986601.shtml)
+- 2026-06-29 21:57 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/10585817.shtml)
+- 2026-06-29 21:45 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/5130255630.shtml)
+- 2026-06-29 21:59 - [宜宾地震已转移安置225人](https://www.share.kurohicncr.top/Article/details/2328110.shtml)
+- 2026-06-29 21:41 - [韩国800万亿韩元押注半导体](https://www.blog.minike.top/Article/details/250217.shtml)
+- 2026-06-29 21:59 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/842513359756.shtml)
+- 2026-06-29 21:47 - [普京建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/87794.shtml)
+- 2026-06-29 21:36 - [律师解读滚石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/49202.shtml)
+- 2026-06-29 21:36 - [我国多领域成果密集上新](http://www.share.minike.top/Article/details/434241572.shtml)
+- 2026-06-29 21:52 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/222136379.shtml)
+- 2026-06-29 21:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/45618737.shtml)
+- 2026-06-29 21:53 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/5642172257.shtml)
+- 2026-06-29 21:35 - [一见倾心](http://www.share.kurohicncr.top/Article/details/24103675.shtml)
+- 2026-06-29 21:52 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/782534819559.shtml)

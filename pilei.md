@@ -1,57 +1,60 @@
-# 白条猪肉：供需两不旺 6月上半月价格趋稳运行
+# 瑞典5:1狂胜突尼斯，12款大模型全部压中赛果，但仅阶跃星辰嗅到进球盛宴
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-卓创资讯 【导语】6月国内多高温、多雨天气，猪肉市场步入传统消费淡季，行业呈现供应、需求双向走弱的格局。生猪出栏节奏放缓，终端家庭、餐饮采购需求同步回落，供需互为掣肘，6月上半月全国白条猪肉价格低位趋稳运行。预计6月下半月价格难有明显好转，7-8月随着供应收紧，白条猪肉价格有上涨可能。 从图1看到，2026年6月上半月国内白条猪肉价格趋稳运行。据卓创资讯统计，截至2026年6月
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！北京时间6月15日，2026年世界杯F组首轮迎来一场焦点战，瑞典队在蒙特雷体育场以一场酣畅淋漓的5：1大胜，彻底击碎了突尼斯队的防线。在这场进球盛宴的背后，赛前由联想集团与咪咕视频联合推出的“人机大战”AI预测环节上演了极具戏剧性的一幕——在参与挑战的12款主流国产大模型中，所有模型全部精准命中了“瑞典胜”
 
 ## 正文
 
-卓创资讯 【导语】6月国内多高温、多雨天气，猪肉市场步入传统消费淡季，行业呈现供应、需求双向走弱的格局。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-生猪出栏节奏放缓，终端家庭、餐饮采购需求同步回落，供需互为掣肘，6月上半月全国白条猪肉价格低位趋稳运行。
+北京时间6月15日，2026年世界杯F组首轮迎来一场焦点战，瑞典队在蒙特雷体育场以一场酣畅淋漓的5：1大胜，彻底击碎了突尼斯队的防线。
 
-预计6月下半月价格难有明显好转，7-8月随着供应收紧，白条猪肉价格有上涨可能。
+在这场进球盛宴的背后，赛前由联想集团与咪咕视频联合推出的“人机大战”AI预测环节上演了极具戏剧性的一幕——在参与挑战的12款主流国产大模型中，所有模型全部精准命中了“瑞典胜”的胜负关系。
 
-从图1看到，2026年6月上半月国内白条猪肉价格趋稳运行。
+然而，在具体的比分推演上，除了阶跃星辰以外，其余11款模型集体陷入了保守的“小比分陷阱”，完美诠释了AI在宏观实力判断上的精准与微观进球预测上的局限。
 
-据卓创资讯统计，截至2026年6月16日，膘厚在2.5-3.5厘米的白条猪肉成交均价12.40元/公斤，较去年同期下降30.81%，月内价格调整空间在0.10元/公斤之内。
+8场比赛过后，人机大战的数据开始呈现出可追踪的结构性特征。
 
-长周期来看，当下猪肉价格处于偏低水平。
+第一，实力差距越大，AI越稳定。
 
-图1 2024-2026年全国白条猪肉成交均价走势图 数据来源：卓创资讯 6月上半月白条猪肉市场供需皆有减少，供需处于博弈状态，是导致价格几无调整的重要原因。
+墨西哥胜南非、美国胜巴拉圭、德国胜库拉索，AIl命中率接近满分。
 
-供应方面，前期集中出栏告一段落，养殖户对下半年行情有温和看涨预期，存一定惜售情绪。
+大数据在确定性区间的表现，依然具有优势。
 
 ## 相关推荐
 
-- 2026-06-29 21:50 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-29 21:43 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-29 21:49 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 21:35 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 21:36 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-29 21:27 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 21:32 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-29 21:44 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-29 21:31 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 21:50 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-29 21:29 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 21:39 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-29 21:35 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 21:38 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-29 21:52 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-29 21:59 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-29 21:36 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-29 21:41 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-29 21:30 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-29 21:53 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 21:57 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 21:32 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-29 21:31 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 21:40 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-29 21:40 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:49 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/83392.shtml)
-- 2026-06-29 21:50 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/576540072174.shtml)
-- 2026-06-29 21:35 - [《恋与深空》回应争议](http://www.blog.minike.top/Article/details/69322.shtml)
-- 2026-06-29 21:34 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/21453019377.shtml)
-- 2026-06-29 21:47 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/5981258603.shtml)
-- 2026-06-29 21:53 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/949419046.shtml)
-- 2026-06-29 21:48 - [金鹰奖第二阶段投票明日开启](http://www.blog.kurohicncr.top/Article/details/6757567.shtml)
-- 2026-06-29 21:28 - [山东发布山洪灾害气象预警](http://www.share.minike.top/Article/details/16939.shtml)
-- 2026-06-29 21:30 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/087230662.shtml)
-- 2026-06-29 21:52 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.minike.top/Article/details/65898.shtml)
-- 2026-06-29 21:34 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/367287.shtml)
-- 2026-06-29 21:32 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/6096796.shtml)
-- 2026-06-29 21:31 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/877652629.shtml)
-- 2026-06-29 21:45 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/69513.shtml)
-- 2026-06-29 21:27 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/685665934614.shtml)
+- 2026-06-29 21:43 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/28028.shtml)
+- 2026-06-29 21:39 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/6140628.shtml)
+- 2026-06-29 21:51 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/9535640013.shtml)
+- 2026-06-29 21:47 - [国际清算银行警告AI投资热潮](https://www.blog.kurohicncr.top/Article/details/1618729.shtml)
+- 2026-06-29 21:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/813297858.shtml)
+- 2026-06-29 21:42 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/979924.shtml)
+- 2026-06-29 21:36 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/938497217.shtml)
+- 2026-06-29 21:49 - [让AI做一个账号，它会做成什么样？](http://www.blog.minike.top/Article/details/4016497.shtml)
+- 2026-06-29 21:35 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.kurohicncr.top/Article/details/16509793229.shtml)
+- 2026-06-29 21:32 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/7131609.shtml)
+- 2026-06-29 21:46 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/310044489630.shtml)
+- 2026-06-29 21:55 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/477707607448.shtml)
+- 2026-06-29 21:35 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.minike.top/Article/details/811323.shtml)
+- 2026-06-29 21:30 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/1360943980.shtml)
+- 2026-06-29 21:33 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/275914940.shtml)

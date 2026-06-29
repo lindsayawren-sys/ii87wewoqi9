@@ -1,56 +1,57 @@
-# 华泰期货：碳酸锂价格震荡走弱，下游成交量环比提升
+# 直播海报：国新办就2026年5月份国民经济运行情况举行新闻发布会
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 师橙 市场分析 2026-06-16，碳酸锂主力合约2609开于173800元/吨，收于169980元/吨，当日收盘价较昨日结算价变化-2.98%。当日成交量为187954手，持仓量为449952手，前一交易日持仓量450397手，根据SMM现货报价，目前基差为-460元/吨（电碳均价-期货）。当日碳酸锂仓单53285手，较上个交易日变化-600手。 碳
+以发展权赋能气候正义 深化中欧绿色伙伴关系年少的话，长大后都反过来了千年丝路故城焕生机 “夜游”圈粉中外客美加墨世界杯开赛迄今，亚洲区球队仍无败绩中国制造、中国技术、中国IP，成为世界杯“隐形冠军”台舆论关注海峡论坛：释实质利好 赴陆热难挡中国汽车的AI进行时：技术渗透全链，产业格局渐变美国又对全球通讯命脉“卡脖子”，遭殃的可能是美企张凌赫喊话台胞：海峡的距离，挡不住同胞走亲走
 
 ## 正文
 
-来源：华泰期货 作者： 师橙 市场分析 2026-06-16，碳酸锂主力合约2609开于173800元/吨，收于169980元/吨，当日收盘价较昨日结算价变化-2.98%。
+以发展权赋能气候正义 深化中欧绿色伙伴关系年少的话，长大后都反过来了千年丝路故城焕生机 “夜游”圈粉中外客美加墨世界杯开赛迄今，亚洲区球队仍无败绩中国制造、中国技术、中国IP，成为世界杯“隐形冠军”台舆论关注海峡论坛：释实质利好 赴陆热难挡中国汽车的AI进行时：技术渗透全链，产业格局渐变美国又对全球通讯命脉“卡脖子”，遭殃的可能是美企张凌赫喊话台胞：海峡的距离，挡不住同胞走亲走近的交流步伐加盟店前股东借款超千万失联，周大福回应人类首位万亿美元富豪诞生，资本市场风险浮出水面比赛首日，全球各大市场同步走高！
 
-当日成交量为187954手，持仓量为449952手，前一交易日持仓量450397手，根据SMM现货报价，目前基差为-460元/吨（电碳均价-期货）。
+“世界杯魔咒”失灵了？
 
-当日碳酸锂仓单53285手，较上个交易日变化-600手。
+一封侨批、一声“唐山”，何以承载海外侨胞百年家国梦？
 
-碳酸锂现货：根据SMM数据，电池级碳酸锂报价166000-172000元/吨，较前一交易日变化-1500元/吨，工业级碳酸锂报价162000-168000元/吨，较前一交易日变化-1500元/吨。
+为何今年东北冷涡存在感这么强 背后原因有这几个特朗普提名的下任国家情报总监是谁？
 
-6%锂精矿价格2495美元/吨，较前一日变化-10美元/吨。
+新能源汽车该做“体重管理”了霍尔木兹海峡再度封锁，美伊博弈或迎重要转折谒“一代草圣”于右任墓：长眠高山，遥望故土台湾学子横跨两岸探寻“日月潭之谜”2026年中国龙舟公开赛荆州站闭幕掷纸飞机、彩虹跑！
 
-供应：据 SMM 统计，碳酸锂周度总产量26429吨，环比+85吨；其中辉石产碳酸锂15445吨，环比+230吨；云母产碳酸锂3140吨，环比+90吨；盐湖产碳酸锂4630吨，环比-315吨；回收产碳酸锂3214吨，环比+80吨。
+长沙高考毕业生花式庆祝毕业重庆冷冻浓缩果汁首次自营出口欧盟再见了按钮！
 
-库存：根据SMM最新统计数据，现货库存为97829吨，环比-857吨。
+再见了屏幕！
 
-其中冶炼厂库存为16494吨，环比-21吨；下游库存为46623吨，环比+194吨；其他库存为34712吨，环比-1030吨。
+未来AI实验室长这样这可能是海拔4600米最美的工作服 致敬青藏铁路的守护者世界杯揭幕夜：呜呜祖拉在南非响起共享设计赋能产业升级 白沟箱包智启新程做原创2034年能踢进世界杯吗？
 
 ## 相关推荐
 
-- 2026-06-29 21:25 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 21:35 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 21:41 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 21:42 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 21:37 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 21:35 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-29 21:27 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-29 21:28 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-29 21:46 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-29 21:42 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 21:36 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 21:46 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 21:53 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 21:42 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 21:36 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 21:32 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 21:32 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-29 21:31 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 21:57 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 21:53 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-29 21:49 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:46 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/949621112.shtml)
-- 2026-06-29 21:35 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/01603.shtml)
-- 2026-06-29 21:30 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/11682.shtml)
-- 2026-06-29 21:32 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/948343.shtml)
-- 2026-06-29 21:27 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/177231700.shtml)
-- 2026-06-29 21:49 - [直击委内瑞拉加拉加斯救援现场](https://www.share.minike.top/Article/details/93727972277.shtml)
-- 2026-06-29 21:27 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/3603882.shtml)
-- 2026-06-29 21:33 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/595724515.shtml)
-- 2026-06-29 21:47 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/7168164434.shtml)
-- 2026-06-29 21:25 - [曝iPhone涨价后不会再降](http://www.blog.kurohicncr.top/Article/details/479276612.shtml)
-- 2026-06-29 21:46 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/66520153.shtml)
-- 2026-06-29 21:46 - [王冰冰向全网安利哈兰德](http://www.blog.minike.top/Article/details/540408.shtml)
-- 2026-06-29 21:32 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/50095.shtml)
-- 2026-06-29 21:41 - [葫芦岛居民楼闪爆事故致3死](https://www.share.minike.top/Article/details/297505.shtml)
-- 2026-06-29 21:52 - [哈兰德玩游戏连女友都不让着](https://www.blog.kurohicncr.top/Article/details/472852136995.shtml)
+- 2026-06-29 21:37 - [TI2026参赛战队出炉](http://www.blog.kurohicncr.top/Article/details/04612.shtml)
+- 2026-06-29 21:56 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/582885.shtml)
+- 2026-06-29 21:49 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/0817604.shtml)
+- 2026-06-29 21:42 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/624943959782.shtml)
+- 2026-06-29 21:40 - [记者乘坐无人驾驶汽车去采访](http://www.blog.minike.top/Article/details/517185.shtml)
+- 2026-06-29 21:45 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/169080497.shtml)
+- 2026-06-29 21:46 - [毒液2](https://www.share.minike.top/Article/details/0205978.shtml)
+- 2026-06-29 21:38 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/1474117271.shtml)
+- 2026-06-29 21:55 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/4904168.shtml)
+- 2026-06-29 21:41 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/3944849.shtml)
+- 2026-06-29 21:49 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/22105.shtml)
+- 2026-06-29 21:40 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/723335097430.shtml)
+- 2026-06-29 21:32 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/567504.shtml)
+- 2026-06-29 21:51 - [沉睡花园](https://www.blog.minike.top/Article/details/599692437121.shtml)
+- 2026-06-29 21:38 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/717774.shtml)

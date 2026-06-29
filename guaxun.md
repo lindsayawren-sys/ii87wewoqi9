@@ -1,57 +1,61 @@
-# 台湾小吃业者冀“小摊位”撬动两岸“大市场”
+# 食品安全问题多发，山姆总部被约谈！最新回应：完全认可、深刻反思
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-中新社北京6月16日电 (张杨彬 姜姿屹)在16日北京一场台湾小吃市集上，“新北深坑臭豆腐”摊位前始终围着人，食客好奇打量着与长沙黑色臭豆腐迥异的金黄色豆腐。台湾摊主苏明和介绍，他在福州大学城的档口生意不错，这次专程赶来，是首次在北京设摊。 当日开市的“美丽乡村·洽洽GO”六月市集汇聚了三十多家台湾小吃摊，摊主大多在台湾夜市设有固定摊位，这次希望用“小摊位”探一探大陆的“大市场
+来源：华夏时报 针对一段时期以来监管发现和媒体曝光的山姆线下门店及线上网店多发的食品安全问题，近日，市场监管总局依法对沃尔玛（中国）投资有限公司（即山姆总部）负责人进行了责任约谈，要求其严格按照《中华人民共和国食品安全法》，以及《食品销售连锁企业落实食品安全主体责任监督管理规定》《网络食品销售经营者落实食品安全主体责任监督管理规定》等法律法规规定开展食品经营活动，始终树牢食品安
 
 ## 正文
 
-中新社北京6月16日电 (张杨彬 姜姿屹)在16日北京一场台湾小吃市集上，“新北深坑臭豆腐”摊位前始终围着人，食客好奇打量着与长沙黑色臭豆腐迥异的金黄色豆腐。
+来源：华夏时报 针对一段时期以来监管发现和媒体曝光的山姆线下门店及线上网店多发的食品安全问题，近日，市场监管总局依法对沃尔玛（中国）投资有限公司（即山姆总部）负责人进行了责任约谈，要求其严格按照《中华人民共和国食品安全法》，以及《食品销售连锁企业落实食品安全主体责任监督管理规定》《网络食品销售经营者落实食品安全主体责任监督管理规定》等法律法规规定开展食品经营活动，始终树牢食品安全意识，严格落实食品安全主体责任，自觉践行企业社会责任，严防全链条食品安全风险，切实保障公众饮食安全。
 
-台湾摊主苏明和介绍，他在福州大学城的档口生意不错，这次专程赶来，是首次在北京设摊。
+山姆中国方面回应称，“近日，我们接受了市场监管部门的约谈指导。
 
-当日开市的“美丽乡村·洽洽GO”六月市集汇聚了三十多家台湾小吃摊，摊主大多在台湾夜市设有固定摊位，这次希望用“小摊位”探一探大陆的“大市场”。
+针对约谈中监管部门所指出的问题与整改要求，我们完全认可、深刻反思并诚恳接受。
 
-在苏明和摊位不远处，24岁的林宗延和父亲林柏均正忙着烤制香葱肉卷。
+对于相关问题给会员带来的困扰与不便，我们深表歉意。
 
-“去年第一次来北京，产品特别火，今年就又来了。
+”山姆中国方面指出，“目前，公司已由管理层牵头成立专项整改工作组，第一时间启动全渠道、全链路专项自查整改。
 
-”林宗延说，这款小吃在台湾拥有专利认证，是林家父子打开市场的“利器”。
+我们将严格遵照相关法规及监管要求，全面优化食安管控和商品品控，严守食品安全底线、提升会员体验。
 
-如今，林家“小摊位”背后，一个“大市场”初具规模。
+我们将定期向监管部门报送整改进展，主动接受社会各界监督。
 
-林柏均在厦门、贵阳开设合作工厂，开放加盟，统一发货。
+” 相关报道： 此前，杭州山姆会员商店有限公司因销售的一款“天丝床笠”被市场监管部门抽查发现“甲醛含量”项目不符合A类纺织品要求，检验结论为不合格，因此受到了行政处罚。
 
 ## 相关推荐
 
-- 2026-06-29 21:37 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 21:34 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-29 21:33 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 21:29 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 21:38 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-29 21:26 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-29 21:48 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-29 21:51 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-29 21:32 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-29 21:30 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 21:46 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 21:48 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 21:32 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 21:51 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 21:30 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-29 21:45 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 21:34 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 21:58 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 21:48 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-29 21:46 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-29 21:54 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 21:42 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-29 21:34 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 21:32 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 21:32 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 21:53 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:28 - [18岁高二体育生训练晕倒后离世](https://www.share.minike.top/Article/details/30542.shtml)
-- 2026-06-29 21:52 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/8935305721.shtml)
-- 2026-06-29 21:41 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/8025330.shtml)
-- 2026-06-29 21:30 - [流金岁月](http://www.share.minike.top/Article/details/99524.shtml)
-- 2026-06-29 21:29 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/1561678.shtml)
-- 2026-06-29 21:43 - [东方风云榜](https://www.blog.minike.top/Article/details/41631128.shtml)
-- 2026-06-29 21:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/5580361193.shtml)
-- 2026-06-29 21:26 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/089587904552.shtml)
-- 2026-06-29 21:43 - [肝不好身体这几处会“说话”](https://www.share.kurohicncr.top/Article/details/0636871793.shtml)
-- 2026-06-29 21:30 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/754976915.shtml)
-- 2026-06-29 21:45 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/02158.shtml)
-- 2026-06-29 21:50 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.kurohicncr.top/Article/details/8665676.shtml)
-- 2026-06-29 21:37 - [欧洲安装一台空调要花近8000元](https://www.blog.minike.top/Article/details/73199346319.shtml)
-- 2026-06-29 21:40 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/94759946.shtml)
-- 2026-06-29 21:32 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.minike.top/Article/details/46132919334.shtml)
+- 2026-06-29 21:44 - [《贺子珍》](http://www.blog.minike.top/Article/details/1177202.shtml)
+- 2026-06-29 21:46 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/238502097746.shtml)
+- 2026-06-29 21:41 - [朱雀三号完成静态点火试验](http://www.blog.minike.top/Article/details/49873.shtml)
+- 2026-06-29 21:49 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/4239779082.shtml)
+- 2026-06-29 21:35 - [锐评白玉兰提名片段](http://www.blog.minike.top/Article/details/68656.shtml)
+- 2026-06-29 21:44 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/735230.shtml)
+- 2026-06-29 21:35 - [委内瑞拉发生余震](http://www.share.kurohicncr.top/Article/details/06684856.shtml)
+- 2026-06-29 21:56 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/953704.shtml)
+- 2026-06-29 21:44 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.minike.top/Article/details/2811535173.shtml)
+- 2026-06-29 21:47 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/8791707898.shtml)
+- 2026-06-29 21:33 - [世界杯高票价为何没劝退球迷](https://www.share.kurohicncr.top/Article/details/46136276.shtml)
+- 2026-06-29 21:55 - [MG总经理直播被冲](https://www.share.minike.top/Article/details/42094359159.shtml)
+- 2026-06-29 21:57 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/4375860.shtml)
+- 2026-06-29 21:59 - [蓝箭航天科创板IPO审核状态为已问询](https://www.share.kurohicncr.top/Article/details/61553921622.shtml)
+- 2026-06-29 21:49 - [韩国800万亿韩元押注半导体](https://www.share.kurohicncr.top/Article/details/72397.shtml)

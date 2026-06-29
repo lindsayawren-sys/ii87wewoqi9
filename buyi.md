@@ -1,57 +1,61 @@
-# 中国联塑午前涨近4% 与天怀数智达成战略合作进军AI算力领域
+# 安徽深山“仙草”闯世界：从林下到海外货架
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-中国联塑（02128）盘中涨超5%，截至发稿，股价上涨3.50%，现报4.44港元，成交额2952.42万港元。 6月16日，中国联塑集团旗下的联塑算力设施供应有限公司与浙江天怀数智科技有限公司在香港签订战略合作协议。此次合作，双方在AIDC 项目建设过程中，将优先使用联塑相关产品及解决方案。此外，双方将共同开拓海外AIDC市场。联塑利用海外生产基地布局及国际客户网络，浙江天怀
+发布时间：2026年06月16日 11:48 来源：中国新闻网 安徽省旌德县地处黄山东北麓，素有“中国灵芝之乡”之称。当地依托多雾多雨的优越生态，坚持林下仿野生栽培与“抛荒轮作”模式，确保灵芝酸A等核心成分达行业领先水平，已得到中国、美国、日本及欧盟的有机产品认证。 目前，旌德灵芝已形成集种植、加工、文旅于一体的全产业链。全县深山有机灵芝种植面积达8000余亩，2025年灵芝子
 
 ## 正文
 
-中国联塑（02128）盘中涨超5%，截至发稿，股价上涨3.50%，现报4.44港元，成交额2952.42万港元。
+发布时间：2026年06月16日 11:48 来源：中国新闻网 安徽省旌德县地处黄山东北麓，素有“中国灵芝之乡”之称。
 
-6月16日，中国联塑集团旗下的联塑算力设施供应有限公司与浙江天怀数智科技有限公司在香港签订战略合作协议。
+当地依托多雾多雨的优越生态，坚持林下仿野生栽培与“抛荒轮作”模式，确保灵芝酸A等核心成分达行业领先水平，已得到中国、美国、日本及欧盟的有机产品认证。
 
-此次合作，双方在AIDC 项目建设过程中，将优先使用联塑相关产品及解决方案。
+目前，旌德灵芝已形成集种植、加工、文旅于一体的全产业链。
 
-此外，双方将共同开拓海外AIDC市场。
+全县深山有机灵芝种植面积达8000余亩，2025年灵芝子实体、孢子粉总产量达1200吨，总产值6.8亿元。
 
-联塑利用海外生产基地布局及国际客户网络，浙江天怀数智利用技术服务能力及产业资源，合作推进“一带一路”沿线国家及东南亚地区的算力中心项目。
+其中，灵芝孢子粉占据长三角上游供应链30%的份额。
 
-公司指出，通过合作，双方致力于构建“资本+产业”、“资源+技术”深度融合的战略合作模式，共同推进国内外AIDC智算中心项目的落地与运营，实现联塑产品及业务进军AI算力领域并进行深入布局，拓宽产品应用领域。
+产品远销美国、加拿大、日本、新加坡等国家。
 
-责任编辑：卢昱君
+产业红利直接惠及乡村，仅陈岭村便带动百余村民就地就业，年综合收益超千万元，并衍生出灵芝宴等特色业态，实现生态效益与经济效益的双赢。
+
+(记者 储玮玮 安徽旌德报道) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 21:33 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-29 21:30 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 21:36 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-29 21:44 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 21:36 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 21:48 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 21:30 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 21:39 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-29 21:46 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 21:44 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-29 21:33 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-29 21:44 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 21:28 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 21:41 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-29 21:40 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-29 21:41 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 21:33 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 21:37 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-29 21:37 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 21:55 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-29 21:58 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 21:47 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 21:58 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 21:52 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-29 21:34 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 21:50 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 21:52 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-29 21:38 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:44 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/250813454916.shtml)
-- 2026-06-29 21:28 - [如何看待乌空军3架米格-29被摧毁](https://www.share.minike.top/Article/details/27476127890.shtml)
-- 2026-06-29 21:45 - [韩国队主帅遭极端网友死亡威胁](http://www.blog.kurohicncr.top/Article/details/8921541.shtml)
-- 2026-06-29 21:49 - [女心理师](https://www.blog.kurohicncr.top/Article/details/5167037.shtml)
-- 2026-06-29 21:30 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/06016369840.shtml)
-- 2026-06-29 21:30 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/8085649.shtml)
-- 2026-06-29 21:39 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.kurohicncr.top/Article/details/46883868.shtml)
-- 2026-06-29 21:27 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/8425826.shtml)
-- 2026-06-29 21:50 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/55590.shtml)
-- 2026-06-29 21:34 - [绘画区你赢了](https://www.blog.minike.top/Article/details/96338.shtml)
-- 2026-06-29 21:51 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/8452459.shtml)
-- 2026-06-29 21:29 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/871471501.shtml)
-- 2026-06-29 21:48 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/875867610435.shtml)
-- 2026-06-29 21:40 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/7126369.shtml)
-- 2026-06-29 21:39 - [格莱美唱作人锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/990981488943.shtml)
+- 2026-06-29 21:30 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/3363527902.shtml)
+- 2026-06-29 21:58 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/77825987.shtml)
+- 2026-06-29 21:40 - [不烧钱的低成本爱好](http://www.share.kurohicncr.top/Article/details/942703.shtml)
+- 2026-06-29 21:42 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/84791.shtml)
+- 2026-06-29 21:55 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/3421167.shtml)
+- 2026-06-29 21:32 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/55463.shtml)
+- 2026-06-29 21:42 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/075564782467.shtml)
+- 2026-06-29 21:44 - [曝iPhone涨价后不会再降](http://www.share.kurohicncr.top/Article/details/1186684.shtml)
+- 2026-06-29 21:39 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/73909341262.shtml)
+- 2026-06-29 21:55 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/03771992.shtml)
+- 2026-06-29 21:40 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/3142839301.shtml)
+- 2026-06-29 21:45 - [天气热脾气都变差了](http://www.blog.kurohicncr.top/Article/details/213724255.shtml)
+- 2026-06-29 21:33 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/082145663.shtml)
+- 2026-06-29 21:57 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/92588.shtml)
+- 2026-06-29 21:44 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/251329820774.shtml)

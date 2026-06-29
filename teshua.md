@@ -1,61 +1,58 @@
-# 美媒：再现“标志性握手” 特朗普与马克龙夫妇握手聊天
+# 本来想低调，但实力不允许！风靡全球的“液体黄金”竟然藏在这里
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-中新网6月16日电 据美国《新闻周刊》报道，当地时间15日，美国总统特朗普在法国出席七国集团峰会期间与法国总统马克龙夫妇会面，并用上了他的“标志性握手”。其中，特朗普在与法国第一夫人布丽吉特·马克龙握手时，时长超过10秒。 报道指出，特朗普和法国总统马克龙两人之间早已有过多次“拉锯战式”的握手。但这是特朗普首次以这种标志性握手方式，与法国第一夫人握手。 据此前报道，2025年1
+不好意思，本来想低调的 但实力又不允许了 风靡全世界的“黑月光” ——就是食客们小心翼翼、用珍珠母贝勺 舀着吃的“液体黄金” ——就是与鹅肝、松露并称 “世界三大美食”的鲟鱼子酱 中国产量已占全球产量一半以上 但你知道吗？ 全国最大的鲟鱼产业县不在沿海 而在云南乌蒙山深处 ——曲靖市会泽县 清晨，一辆冷链车驶出会泽，车厢里码着刚装罐的鱼子酱。当天，它们就会在昆明报关、装上飞机，
 
 ## 正文
 
-中新网6月16日电 据美国《新闻周刊》报道，当地时间15日，美国总统特朗普在法国出席七国集团峰会期间与法国总统马克龙夫妇会面，并用上了他的“标志性握手”。
+不好意思，本来想低调的 但实力又不允许了 风靡全世界的“黑月光” ——就是食客们小心翼翼、用珍珠母贝勺 舀着吃的“液体黄金” ——就是与鹅肝、松露并称 “世界三大美食”的鲟鱼子酱 中国产量已占全球产量一半以上 但你知道吗？
 
-其中，特朗普在与法国第一夫人布丽吉特·马克龙握手时，时长超过10秒。
+全国最大的鲟鱼产业县不在沿海 而在云南乌蒙山深处 ——曲靖市会泽县 清晨，一辆冷链车驶出会泽，车厢里码着刚装罐的鱼子酱。
 
-报道指出，特朗普和法国总统马克龙两人之间早已有过多次“拉锯战式”的握手。
+当天，它们就会在昆明报关、装上飞机，下一站，可能是法国、美国的米其林餐厅后厨。
 
-但这是特朗普首次以这种标志性握手方式，与法国第一夫人握手。
+6月11日至16日，第10届中国—南亚博览会在云南省昆明市举行，云南渔业首次以“云渔水产”独立展台亮相，被端上展台的，正有这罐来自乌蒙山深处的“珍馐”。
 
-据此前报道，2025年10月13日，特朗普在埃及与马克龙会面期间，曾用力握住马克龙的手，期间互相拉扯手臂，还换了几次握法，整个握手过程长达26秒。
+131处冷泉 北方鱼在云南“安了家” 鲟鱼是亚冷水性鱼类，原本是“北方原住民”。
 
-另据美国《国会山报》报道，特朗普在2026年6月15日发表的美媒采访中，谈到马克龙，他说，“我要求他不要向美国公司征税，如果他们这样做，我别无选择，只能对所有来自法国的葡萄酒征收100%的关税。
+而会泽，恰好为它提供了“舒适区”。
 
-” 对于特朗普的威胁，马克龙随后回应说，法国不会屈从美方威胁而取消针对美国科技巨头的数字税。
+这里位于滇东北高原，纬度低，一年寒暑波动小；海拔高，平均2200米以上，年平均气温只有12.7℃。
 
-他还表示，加征关税对美国没有好处，因为这无法解决美国的贸易问题，反而推高了某些商品的价格。
+金沙江支流、牛栏江等河流汇成“一江六河”密集水网，131处冷泉眼从地下涌出。
 
 ## 相关推荐
 
-- 2026-06-29 21:48 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-29 21:52 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 21:42 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-29 21:24 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 21:52 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 21:39 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-29 21:41 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-29 21:25 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-29 21:38 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-29 21:53 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-29 21:40 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-29 21:49 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 21:52 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-29 21:49 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 21:38 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 21:46 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-29 21:35 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-29 21:44 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 21:41 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-29 21:39 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 21:43 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-29 21:44 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 21:53 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-29 21:47 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 21:45 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 21:42 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-29 21:46 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:53 - [中方绝不允许日菲侵害我海洋权益](http://www.share.kurohicncr.top/Article/details/7398648036.shtml)
-- 2026-06-29 21:49 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/6866043.shtml)
-- 2026-06-29 21:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/35008.shtml)
-- 2026-06-29 21:27 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/39517498928.shtml)
-- 2026-06-29 21:42 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/125606457014.shtml)
-- 2026-06-29 21:53 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/616124391.shtml)
-- 2026-06-29 21:28 - [锐评白玉兰提名片段](https://www.blog.kurohicncr.top/Article/details/332368567584.shtml)
-- 2026-06-29 21:53 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/7059293.shtml)
-- 2026-06-29 21:39 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/2162073597.shtml)
-- 2026-06-29 21:46 - [日防卫省正考虑引进美企人工智能系统](http://www.share.kurohicncr.top/Article/details/1299621.shtml)
-- 2026-06-29 21:39 - [高考1357分的同学如何报志愿？](https://www.share.minike.top/Article/details/487472.shtml)
-- 2026-06-29 21:37 - [LPL第三赛段赛制公布](https://www.blog.kurohicncr.top/Article/details/75862536.shtml)
-- 2026-06-29 21:51 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/5712275.shtml)
-- 2026-06-29 21:43 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/24266078.shtml)
-- 2026-06-29 21:43 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/334906201519.shtml)
+- 2026-06-29 21:31 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/16960167139.shtml)
+- 2026-06-29 21:43 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/14437084.shtml)
+- 2026-06-29 21:47 - [105岁女红军看到自己长征时的模样](http://www.share.kurohicncr.top/Article/details/268968911.shtml)
+- 2026-06-29 21:38 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/85550574319.shtml)
+- 2026-06-29 21:49 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/012540.shtml)
+- 2026-06-29 21:42 - [请回答王牌2019](https://www.share.minike.top/Article/details/57938720245.shtml)
+- 2026-06-29 21:32 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/682108195.shtml)
+- 2026-06-29 21:49 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.minike.top/Article/details/696247.shtml)
+- 2026-06-29 21:50 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/8141392077.shtml)
+- 2026-06-29 21:51 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/526563592884.shtml)
+- 2026-06-29 21:46 - [一生一世](http://www.blog.kurohicncr.top/Article/details/705109214.shtml)
+- 2026-06-29 21:51 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/3108302.shtml)
+- 2026-06-29 21:53 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/8677949563.shtml)
+- 2026-06-29 21:45 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/593455816637.shtml)
+- 2026-06-29 21:51 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.minike.top/Article/details/0444939294.shtml)

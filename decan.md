@@ -1,55 +1,59 @@
-# 意大利监管机构依据欧盟数字法对苹果iCloud服务展开调查
+# （活力中国调研行）从实验室到生产线，天津科研转化出妙招
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-意大利反垄断监管机构周二表示，已对苹果公司展开调查，以查明其是否遵守了《欧洲数字市场法》规定的互操作性义务。 根据该法规定，苹果必须确保第三方消费者云服务提供商能够与通过苹果iOS和iPadOS操作系统控制的硬件和软件组件有效且免费地互操作，并享有与苹果iCloud服务同等的访问权限。 该机构在声明中表示，他们有证据表明，其他消费者云服务提供商不可能与iCloud处于相同的地位
+中新网天津6月16日电 (记者 王恩博 王梦瑶)让实验室里的科研成果能走到工厂生产线，是从0到1的跨越，也是最关键的一步。 近日，2026年“活力中国调研行”天津主题采访活动走进天开高教科创园，园区目前累计注册企业超5000家，培育天开科创专板入板企业204家，培育高新技术企业122家。 园区内，南开大学应用化学与工程研究所副研究员、天津常兴新能源科技有限公司负责人严振华告诉记
 
 ## 正文
 
-意大利反垄断监管机构周二表示，已对苹果公司展开调查，以查明其是否遵守了《欧洲数字市场法》规定的互操作性义务。
+中新网天津6月16日电 (记者 王恩博 王梦瑶)让实验室里的科研成果能走到工厂生产线，是从0到1的跨越，也是最关键的一步。
 
-根据该法规定，苹果必须确保第三方消费者云服务提供商能够与通过苹果iOS和iPadOS操作系统控制的硬件和软件组件有效且免费地互操作，并享有与苹果iCloud服务同等的访问权限。
+近日，2026年“活力中国调研行”天津主题采访活动走进天开高教科创园，园区目前累计注册企业超5000家，培育天开科创专板入板企业204家，培育高新技术企业122家。
 
-该机构在声明中表示，他们有证据表明，其他消费者云服务提供商不可能与iCloud处于相同的地位，因为它们似乎无法访问苹果服务所使用的或提供给苹果的相同组件。
+园区内，南开大学应用化学与工程研究所副研究员、天津常兴新能源科技有限公司负责人严振华告诉记者：“南开大学新能源相关专利成果转化率已经达到15%以上，远超国内3%的平均水平。
 
-这是意大利监管机构首次根据欧盟《数字市场法》展开调查，该法允许各国监管机构进行初步调查。
+” 交谈中，严振华频繁提及中试平台的作用。
 
-该机构表示，调查结果将提交给欧盟委员会。
+中试是重大科技成果从实验室走向生产线的关键环节，常兴新能源依托南开大学陈军院士团队的核心专利技术，由天津市西青区政府投资支持，打造了新能源电池及关键材料中试转化平台。
 
-责任编辑：于健 SF069
+天津这样的平台还有很多。
+
+据市工信局介绍，为打通这一环节天津在今年5月出台了《天津市制造业中试平台创新发展实施方案》，提出制造业中试平台培育目标，致力于明晰培育路径，加速创新成果产业化。
+
+在科研端，北洋海棠基金依托天津大学学科与校友资源优势，打造出专业化、市场化的硬科技创投机构。
 
 ## 相关推荐
 
-- 2026-06-29 21:28 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-29 21:39 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-29 21:51 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 21:34 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-29 21:36 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-29 21:53 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-29 21:34 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 21:40 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-29 21:24 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 21:41 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-29 21:50 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-29 21:27 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-29 21:36 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 21:34 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 21:58 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 21:48 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 21:49 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-29 21:37 - [华工科技龙虎榜数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-29 21:43 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 21:36 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 21:46 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-29 21:53 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-29 21:52 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-29 21:44 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 21:43 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 21:51 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:51 - [金刚川](https://www.blog.minike.top/Article/details/80805.shtml)
-- 2026-06-29 21:43 - [齐思钧回复孙怡](https://www.share.kurohicncr.top/Article/details/16995816851.shtml)
-- 2026-06-29 21:42 - [高质量发展看新疆](http://www.share.kurohicncr.top/Article/details/712543.shtml)
-- 2026-06-29 21:24 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/94292592.shtml)
-- 2026-06-29 21:32 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/425913.shtml)
-- 2026-06-29 21:38 - [极限挑战第一季](https://www.blog.minike.top/Article/details/46594065.shtml)
-- 2026-06-29 21:46 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/9610448644.shtml)
-- 2026-06-29 21:52 - [请回答王牌2019](http://www.blog.minike.top/Article/details/7019755296.shtml)
-- 2026-06-29 21:24 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/222686865.shtml)
-- 2026-06-29 21:51 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/084711.shtml)
-- 2026-06-29 21:52 - [曝iPhone涨价后不会再降](https://www.share.minike.top/Article/details/39427870762.shtml)
-- 2026-06-29 21:41 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/5516754846.shtml)
-- 2026-06-29 21:24 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/3552918451.shtml)
-- 2026-06-29 21:25 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/4131369.shtml)
-- 2026-06-29 21:27 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/700989710.shtml)
+- 2026-06-29 21:50 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/20032.shtml)
+- 2026-06-29 21:34 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/221037645374.shtml)
+- 2026-06-29 21:59 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/6309753.shtml)
+- 2026-06-29 21:46 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/6382906.shtml)
+- 2026-06-29 21:37 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.kurohicncr.top/Article/details/70610046.shtml)
+- 2026-06-29 21:32 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/709486.shtml)
+- 2026-06-29 21:30 - [恋与深空7天掉粉超50万](https://www.blog.minike.top/Article/details/342034546353.shtml)
+- 2026-06-29 21:30 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/425350448492.shtml)
+- 2026-06-29 21:49 - [恋与深空回应争议](http://www.share.minike.top/Article/details/821486359.shtml)
+- 2026-06-29 21:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/3041211819.shtml)
+- 2026-06-29 21:36 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/91937245.shtml)
+- 2026-06-29 21:54 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/787037621849.shtml)
+- 2026-06-29 21:33 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/14062587.shtml)
+- 2026-06-29 21:43 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/8894416575.shtml)
+- 2026-06-29 21:37 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/759740934.shtml)

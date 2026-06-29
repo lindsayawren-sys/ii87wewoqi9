@@ -1,60 +1,58 @@
-# 化工板块震荡回落，华宝基金化工ETF（516020）止步日线五连阳！资金持续加码，大行情一触即发？
+# 藏木水电站通过竣工验收 已累计发电超222亿千瓦时
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-化工板块今日（6月16日）震荡回调。反映化工板块整体走势的化工ETF华宝（516020）早盘低开后拉升，盘中一度翻红，午后再度回落，最终场内价格收跌0.97%，止步日线五连阳。 成份股方面，锂电、磷化工、钛白粉等板块部分个股涨幅居前。截至收盘，东材科技涨停，钛能化学、天赐材料双双涨超6%，星源材质、兴发集团、圣泉集团等亦涨幅居前。 资金面上，基础化工板块近日备受主力资金关注。数
+中新网拉萨6月15日电 (邱云 江波)15日，中国电建集团成都勘测设计研究院有限公司(以下简称“成都院”)介绍，西藏自治区第一座大型水电站雅鲁藏布江藏木水电站工程竣工验收会议近日召开。经专家组及竣工验收委员会全面评议，由成都院规划论证并承担全阶段勘测设计的藏木水电站，各项指标均达到设计标准和验收要求，顺利通过竣工验收。这标志着雅鲁藏布江干流上诞生了第一座通过竣工验收的大型水电站
 
 ## 正文
 
-化工板块今日（6月16日）震荡回调。
+中新网拉萨6月15日电 (邱云 江波)15日，中国电建集团成都勘测设计研究院有限公司(以下简称“成都院”)介绍，西藏自治区第一座大型水电站雅鲁藏布江藏木水电站工程竣工验收会议近日召开。
 
-反映化工板块整体走势的化工ETF华宝（516020）早盘低开后拉升，盘中一度翻红，午后再度回落，最终场内价格收跌0.97%，止步日线五连阳。
+经专家组及竣工验收委员会全面评议，由成都院规划论证并承担全阶段勘测设计的藏木水电站，各项指标均达到设计标准和验收要求，顺利通过竣工验收。
 
-成份股方面，锂电、磷化工、钛白粉等板块部分个股涨幅居前。
+这标志着雅鲁藏布江干流上诞生了第一座通过竣工验收的大型水电站工程。
 
-截至收盘，东材科技涨停，钛能化学、天赐材料双双涨超6%，星源材质、兴发集团、圣泉集团等亦涨幅居前。
+验收会上，专家组听取了成都院关于工程设计等情况汇报。
 
-资金面上，基础化工板块近日备受主力资金关注。
+验收意见指出，藏木水电站枢纽工程已按批准的设计规模和方案全部建成，水库蓄水以来安全经受11个汛期考验，枢纽建筑物和过鱼设施运行正常，机电及金属结构设备满足生产运行要求，鱼道过鱼效果显著。
 
-数据显示，截至收盘，基础化工板块近5日获主力资金净流入额超过400亿元，净流入额在30个中信一级行业中高居第3。
+竣工阶段枢纽工程等专项验收、鱼道特殊专项验收均已取得同意通过验收的明确结论。
 
-化工板块场内热门布局工具化工ETF华宝（516020）亦持续获资金回流。
+藏木水电站装机容量510兆瓦，最大坝高116米，是雅鲁藏布江干流规划建设的第一座大型水电站。
 
-交易所数据显示，截至昨日（6月15日）收盘，化工ETF华宝（516020）近5个交易日中有3个交易日获资金净流入，3日合计吸金额超过3.4亿元。
+工程于2010年9月开工建设，2015年10月实现全部机组投产发电。
 
 ## 相关推荐
 
-- 2026-06-29 21:41 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-29 21:33 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-29 21:42 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-29 21:26 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 21:51 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-29 21:30 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-29 21:29 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-29 21:45 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-29 21:43 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-29 21:42 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-29 21:38 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 21:51 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-29 21:26 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 21:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 21:44 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 21:35 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 21:50 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-29 21:48 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-29 21:32 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-29 21:33 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-29 21:50 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 21:44 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-29 21:41 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 21:41 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-29 21:48 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-29 21:33 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:51 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/5182521567.shtml)
-- 2026-06-29 21:26 - [李思潼回应运气好演《给阿嬷的情书》](http://www.share.kurohicncr.top/Article/details/7499139.shtml)
-- 2026-06-29 21:27 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/692745391.shtml)
-- 2026-06-29 21:48 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/6247009.shtml)
-- 2026-06-29 21:50 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/782774334561.shtml)
-- 2026-06-29 21:33 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/61105310.shtml)
-- 2026-06-29 21:32 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/0871732005.shtml)
-- 2026-06-29 21:50 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/055397533810.shtml)
-- 2026-06-29 21:45 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/734907783.shtml)
-- 2026-06-29 21:34 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/30275661433.shtml)
-- 2026-06-29 21:34 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/73752004.shtml)
-- 2026-06-29 21:46 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/06305.shtml)
-- 2026-06-29 21:52 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/189963.shtml)
-- 2026-06-29 21:49 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/77188192.shtml)
-- 2026-06-29 21:31 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/842478509047.shtml)
+- 2026-06-29 21:45 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/21319.shtml)
+- 2026-06-29 21:59 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/6679359.shtml)
+- 2026-06-29 21:59 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/945733.shtml)
+- 2026-06-29 21:50 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/097866807.shtml)
+- 2026-06-29 21:47 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.minike.top/Article/details/035738899238.shtml)
+- 2026-06-29 21:44 - [厨房装空调还是装冷烟机](https://www.blog.kurohicncr.top/Article/details/21438350660.shtml)
+- 2026-06-29 21:36 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/492153568673.shtml)
+- 2026-06-29 21:41 - [马光远谈马斯克最大的价值](https://www.share.minike.top/Article/details/3752557.shtml)
+- 2026-06-29 21:34 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/90777176272.shtml)
+- 2026-06-29 21:38 - [谁在推动“成都造”影视持续出圈](https://www.blog.kurohicncr.top/Article/details/692062.shtml)
+- 2026-06-29 21:54 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/227771674081.shtml)
+- 2026-06-29 21:36 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/8035009.shtml)
+- 2026-06-29 21:59 - [时光音乐会](https://www.share.minike.top/Article/details/929165.shtml)
+- 2026-06-29 21:41 - [流金岁月](http://www.share.minike.top/Article/details/4511878399.shtml)
+- 2026-06-29 21:54 - [记者暗访养老机构消防安全](http://www.blog.kurohicncr.top/Article/details/7255887.shtml)

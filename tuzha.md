@@ -1,48 +1,57 @@
-# 中教控股拟发行本金2亿美元的债券
+# （走进中国乡村）皖南深山育好物 灵芝俏销海内外
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-中教控股（00839）公布，于2026年6月16日，公司与联席牵头经办人就债券发行订立认购协议，公司将发行本金总额为2亿美元的债券，该等债券将于2029年6月24日到期，发行价将为债券本金总额的98.963%，年利率5.625%。所得净额约1.98亿美元，拟用于再融资及一般企业用途，包括资本支出及营运资本。责任编辑：卢昱君
+中新社合肥6月14日电 题：皖南深山育好物 灵芝俏销海内外 中新社记者 储玮玮 夏季清晨，在安徽省旌德县云乐镇陈岭村的深山灵芝基地里，60岁的陈学红正在查看灵芝长势。他表示，和以前在外打工相比，现在在家乡管护灵芝，不仅离家近，年收入还翻了一番有余。 灵芝，始载于《神农本草经》，自古被民间称为“仙草”。旌德地处黄山东北麓，多雾多云的气候为灵芝生长提供了优良条件。2008年，该县被
 
 ## 正文
 
-中教控股（00839）公布，于2026年6月16日，公司与联席牵头经办人就债券发行订立认购协议，公司将发行本金总额为2亿美元的债券，该等债券将于2029年6月24日到期，发行价将为债券本金总额的98.963%，年利率5.625%。
+中新社合肥6月14日电 题：皖南深山育好物 灵芝俏销海内外 中新社记者 储玮玮 夏季清晨，在安徽省旌德县云乐镇陈岭村的深山灵芝基地里，60岁的陈学红正在查看灵芝长势。
 
-所得净额约1.98亿美元，拟用于再融资及一般企业用途，包括资本支出及营运资本。
+他表示，和以前在外打工相比，现在在家乡管护灵芝，不仅离家近，年收入还翻了一番有余。
 
-责任编辑：卢昱君
+灵芝，始载于《神农本草经》，自古被民间称为“仙草”。
+
+旌德地处黄山东北麓，多雾多云的气候为灵芝生长提供了优良条件。
+
+2008年，该县被中国经济林协会授予“中国灵芝之乡”称号。
+
+“我们的灵芝不‘住’大棚，只‘住’深山。
+
+”该灵芝基地负责人周俊说，当地采用的“抛荒轮作”模式：在生长一年灵芝后，相应土地必须休养五到六年。
+
+“让土壤喘口气，灵芝才有山野灵气。
 
 ## 相关推荐
 
-- 2026-06-29 21:39 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-29 21:30 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-29 21:33 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-29 21:38 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 21:45 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 21:39 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 21:39 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-29 21:50 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-29 21:31 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 21:49 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 21:25 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 21:29 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-29 21:40 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 21:49 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 21:47 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-29 21:55 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 21:53 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 21:37 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 21:33 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-29 21:31 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 21:43 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 21:38 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-29 21:47 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:41 - [小娘惹](https://www.blog.minike.top/Article/details/69111415.shtml)
-- 2026-06-29 21:50 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/123732.shtml)
-- 2026-06-29 21:27 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/785399.shtml)
-- 2026-06-29 21:40 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/570755.shtml)
-- 2026-06-29 21:48 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/779583010.shtml)
-- 2026-06-29 21:27 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/5402819172.shtml)
-- 2026-06-29 21:45 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/616110.shtml)
-- 2026-06-29 21:30 - [朱雀三号完成静态点火试验](http://www.blog.minike.top/Article/details/4368915.shtml)
-- 2026-06-29 21:39 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.share.minike.top/Article/details/202587459725.shtml)
-- 2026-06-29 21:42 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/35646361195.shtml)
-- 2026-06-29 21:49 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/312250.shtml)
-- 2026-06-29 21:29 - [急先锋](https://www.blog.minike.top/Article/details/82239933.shtml)
-- 2026-06-29 21:40 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/043622054678.shtml)
-- 2026-06-29 21:25 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/905775.shtml)
-- 2026-06-29 21:35 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/51592.shtml)
+- 2026-06-29 21:30 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/26980035.shtml)
+- 2026-06-29 21:58 - [绿营污蔑大陆“海上袭扰”被批](https://www.blog.kurohicncr.top/Article/details/6193437.shtml)
+- 2026-06-29 21:37 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/61359737.shtml)
+- 2026-06-29 21:56 - [恋与深空7天掉粉超50万](http://www.share.kurohicncr.top/Article/details/12782049698.shtml)
+- 2026-06-29 21:52 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/19053634.shtml)
+- 2026-06-29 21:54 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/9886143720.shtml)
+- 2026-06-29 21:47 - [时光音乐会](https://www.blog.minike.top/Article/details/7149544463.shtml)
+- 2026-06-29 21:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/4820174.shtml)
+- 2026-06-29 21:54 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/588554645261.shtml)
+- 2026-06-29 21:40 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/2286667151.shtml)
+- 2026-06-29 21:53 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/22911434.shtml)
+- 2026-06-29 21:32 - [返利科技盘中上演“天地板”](https://www.share.minike.top/Article/details/367663.shtml)
+- 2026-06-29 21:30 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/070320640.shtml)
+- 2026-06-29 21:33 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/988188.shtml)
+- 2026-06-29 21:51 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/015985978.shtml)

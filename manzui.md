@@ -1,53 +1,52 @@
-# 特朗普否认美将给伊朗巨资
+# （聚焦海峡论坛）福建海事部门发布5条举措促两岸航运高质量发展
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-当地时间6月16日凌晨，正在法国出席七国集团峰会的美国总统特朗普在社交平台发文称，“伊朗已经同意永远不会拥有核武器！有关‘美国将向伊朗支付3亿美元’的报道是假新闻，是民主党人散布出来的。” 目前尚不清楚特朗普所指的“3亿美元”具体是什么。而伊朗媒体昨天披露的伊美谅解备忘录14项条款中涉及具体金额的一项为：美国及其盟友有必要提出对伊朗的重建计划，金额至少3000亿美元。（CCTV
+中新社厦门6月14日电 (吴冠标)14日在福建厦门举办的2026年海峡两岸航海文化交流活动上，福建海事部门发布了5项促进两岸航运高质量发展的工作举措。 活动开幕式上，两岸船长代表互赠瓷瓶与漆线雕，寓意“平顺安康”与“平安和美”。 福建海事部门相关负责人介绍，新发布的5项促进两岸航运高质量发展的工作举措涵盖深化涉台海事解纷中心建设、助力两岸海上客货运提速增效、推进“小三通”航线航
 
 ## 正文
 
-当地时间6月16日凌晨，正在法国出席七国集团峰会的美国总统特朗普在社交平台发文称，“伊朗已经同意永远不会拥有核武器！
+中新社厦门6月14日电 (吴冠标)14日在福建厦门举办的2026年海峡两岸航海文化交流活动上，福建海事部门发布了5项促进两岸航运高质量发展的工作举措。
 
-有关‘美国将向伊朗支付3亿美元’的报道是假新闻，是民主党人散布出来的。
+活动开幕式上，两岸船长代表互赠瓷瓶与漆线雕，寓意“平顺安康”与“平安和美”。
 
-” 目前尚不清楚特朗普所指的“3亿美元”具体是什么。
+福建海事部门相关负责人介绍，新发布的5项促进两岸航运高质量发展的工作举措涵盖深化涉台海事解纷中心建设、助力两岸海上客货运提速增效、推进“小三通”航线航运主体融合治理、打造对台客运航线多维立体安全保障体系、推行台胞在大陆参加船员培训一站式服务等。
 
-而伊朗媒体昨天披露的伊美谅解备忘录14项条款中涉及具体金额的一项为：美国及其盟友有必要提出对伊朗的重建计划，金额至少3000亿美元。
+其中，“推进‘小三通’航线航运主体融合治理”主要体现为优化厦金“小三通”客运航线运营治理，进一步推行《厦金航线客运安全主体多元融治守则》，在气象航路实时互通、作业规范两岸趋同、应急响应协同联动等领域，加快从信息共享到行动协同、从企业自律到全链同治的转变等。
 
-（CCTV国际时讯）责任编辑：郭建
+当天下午，两岸航运专家还围绕航运绿色发展转型、船员教育培训、法律纠纷解决等热点话题进行探讨，两岸近百名船员开展现场技能交流。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 21:43 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-29 21:38 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-29 21:30 - [宜宾地震已转移安置225人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-29 21:52 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 21:44 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 21:46 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-29 21:41 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-29 21:29 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 21:44 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-29 21:26 - [女生学医适合选什么专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 21:49 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-29 21:46 - [王楚钦开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 21:39 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-29 21:52 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 21:42 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 21:44 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-29 21:33 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-29 21:57 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 21:53 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 21:34 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 21:43 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 21:48 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-29 21:31 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:35 - [周杰伦千禧年就有小卡了](https://www.share.minike.top/Article/details/858367.shtml)
-- 2026-06-29 21:35 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/616069.shtml)
-- 2026-06-29 21:38 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/557303529780.shtml)
-- 2026-06-29 21:47 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/614002864.shtml)
-- 2026-06-29 21:31 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/8196177.shtml)
-- 2026-06-29 21:27 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/164596152986.shtml)
-- 2026-06-29 21:24 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/410267.shtml)
-- 2026-06-29 21:37 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/549912141005.shtml)
-- 2026-06-29 21:28 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/94361362925.shtml)
-- 2026-06-29 21:38 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/39569510425.shtml)
-- 2026-06-29 21:34 - [一汽大众黄金超混技术来袭](https://www.blog.kurohicncr.top/Article/details/919239.shtml)
-- 2026-06-29 21:38 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/34224424632.shtml)
-- 2026-06-29 21:33 - [极限挑战第一季](https://www.blog.minike.top/Article/details/14399766010.shtml)
-- 2026-06-29 21:39 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/437002997.shtml)
-- 2026-06-29 21:47 - [巴西10号球衣是天才传承史](https://www.blog.kurohicncr.top/Article/details/334175116588.shtml)
+- 2026-06-29 21:44 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/9163856.shtml)
+- 2026-06-29 21:31 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/05020.shtml)
+- 2026-06-29 21:42 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/748241.shtml)
+- 2026-06-29 21:33 - [美国一牛仔表演发生事故](http://www.share.minike.top/Article/details/7036942.shtml)
+- 2026-06-29 21:42 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/431789.shtml)
+- 2026-06-29 21:33 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.blog.kurohicncr.top/Article/details/061825.shtml)
+- 2026-06-29 21:46 - [吴建豪和老婆差20岁](https://www.share.minike.top/Article/details/4042173.shtml)
+- 2026-06-29 21:47 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/72693682203.shtml)
+- 2026-06-29 21:30 - [济南航空航天全面起势](http://www.blog.minike.top/Article/details/898479888768.shtml)
+- 2026-06-29 21:54 - [巴黎区长紧急采购50台中国空调](https://www.blog.kurohicncr.top/Article/details/04307.shtml)
+- 2026-06-29 21:38 - [济南航空航天全面起势](http://www.share.minike.top/Article/details/758061248.shtml)
+- 2026-06-29 21:57 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/594305.shtml)
+- 2026-06-29 21:52 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.minike.top/Article/details/66500281229.shtml)
+- 2026-06-29 21:57 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/8969450.shtml)
+- 2026-06-29 21:53 - [逃狱兄弟](http://www.share.minike.top/Article/details/06080645.shtml)

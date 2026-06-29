@@ -1,57 +1,59 @@
-# 002384，拟投资81亿元“追光”
+# 酒价内参6月16日价格发布：精品茅台小幅下跌1元/瓶
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！东山精密（002384）拟大手笔加码光芯片及光模块赛道。 6月16日晚，东山精密公告显示，公司董事会同意公司子公司索尔思光电及其子公司在常州等地实施光芯片及光模块扩建项目，项目总投资额为12亿美元（约合人民币81亿元），以提升索尔思光电整体产能规模，项目投资资金来源为公司自筹资金。 东山精密表示，此次投资扩
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月16日整体温和回落。如果主要单品各取一瓶整体打包售卖，今日总售价为9927元，较昨日下跌18元，结束此前连续两日回升走势，自昨日创下的23天以来最高位回落。今日总价仍处于进入六月以来的次高位，终端交投情绪环比有所修复，但核心单品的涨跌
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月16日整体温和回落。
 
-东山精密（002384）拟大手笔加码光芯片及光模块赛道。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9927元，较昨日下跌18元，结束此前连续两日回升走势，自昨日创下的23天以来最高位回落。
 
-6月16日晚，东山精密公告显示，公司董事会同意公司子公司索尔思光电及其子公司在常州等地实施光芯片及光模块扩建项目，项目总投资额为12亿美元（约合人民币81亿元），以提升索尔思光电整体产能规模，项目投资资金来源为公司自筹资金。
+今日总价仍处于进入六月以来的次高位，终端交投情绪环比有所修复，但核心单品的涨跌分化依然显著。
 
-东山精密表示，此次投资扩建可以提升公司高端光芯片、光模块产能，充分满足客户在AI算力服务器相关核心产品上的中长期采购需求，进一步增强公司核心竞争力。
+今日11大白酒单品三涨八跌，输家数量占据明显优势。
 
-12亿美元再扩产 锚定高端光芯片、光模块 当前，光芯片及光模块已成为AI算力产业的核心基础元器件，行业整体处于历史性高景气阶段，全球AI大模型研发及智算中心建设持续提速，光模块与AI PCB作为算力基础设施核心环节，市场需求持续旺盛。
+上涨方面，习酒君品涨幅居前，上涨5元/瓶，收获三连阳，价格快速升至5月20日以来最高位；洋河梦之蓝M6+上涨3元/瓶，重返600元大关；飞天茅台小幅上涨1元/瓶。
 
-作为国内PCB与精密制造领先企业，东山精密光芯片技术量产工艺及应用技术稳定可靠，下游光模块产品已实现多家行业头部客户产品落地及批量供货。
+下跌方面，青花郎跌幅居前，下跌6元/瓶，再度回落至700元关口下方；青花汾20与古井贡古20均下跌5元/瓶，其中前者价格已落至月内次低位；五粮液普五八代下跌4元/瓶，回吐昨日全部涨幅，结束此前连续三日反弹，重回810元一线；国窖1573下跌3元/瓶；水晶剑南春下跌2元/瓶，平进入六月份以来最低价纪录；精品茅台与五粮液1618均小幅下跌1元/瓶，其中后者创下近一月最低点。
 
-2025年，公司收购索尔思光电，后者是全球范围内可自主完成光芯片与光模块的设计、制造和封装的三家公司之一，也是国内少数具备100G及200G光芯片量产能力的企业。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
-记者注意到，此次12亿美元扩建项目是东山精密收购索尔思光电后最大规模的单笔产能投入。
+随着元旦官方i茅台平台开售1499元/瓶的飞天茅台(3月31日上调至1539元/瓶)，1月9日开售2299元/瓶的精品茅台(5月16日上调至2359元/瓶)，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
 
 ## 相关推荐
 
-- 2026-06-29 21:42 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-29 21:51 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-29 21:29 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 21:34 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-29 21:41 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-29 21:43 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-29 21:47 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-29 21:35 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 21:34 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-29 21:52 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-29 21:30 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-29 21:39 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 21:54 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 21:45 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 21:42 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 21:49 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 21:57 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-29 21:50 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-29 21:30 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 21:31 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 21:35 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 21:32 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 21:44 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 21:50 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:29 - [逃狱兄弟](http://www.share.minike.top/Article/details/27044764314.shtml)
-- 2026-06-29 21:28 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.kurohicncr.top/Article/details/4204312.shtml)
-- 2026-06-29 21:37 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/02364362703.shtml)
-- 2026-06-29 21:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/3381572560.shtml)
-- 2026-06-29 21:32 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/15957755757.shtml)
-- 2026-06-29 21:48 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/93648.shtml)
-- 2026-06-29 21:41 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/29810.shtml)
-- 2026-06-29 21:28 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.kurohicncr.top/Article/details/642022320384.shtml)
-- 2026-06-29 21:51 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/836728956.shtml)
-- 2026-06-29 21:26 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/1875952587.shtml)
-- 2026-06-29 21:39 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/177531743.shtml)
-- 2026-06-29 21:37 - [中方绝不允许日菲侵害我海洋权益](https://www.share.minike.top/Article/details/578163.shtml)
-- 2026-06-29 21:47 - [斗破苍穹](https://www.blog.minike.top/Article/details/3708008.shtml)
-- 2026-06-29 21:47 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/056171.shtml)
-- 2026-06-29 21:33 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/32289081.shtml)
+- 2026-06-29 21:47 - [啊啊啊](http://www.share.minike.top/Article/details/32141600.shtml)
+- 2026-06-29 21:53 - [半导体和股市为何没让韩国人起飞](http://www.blog.minike.top/Article/details/45911203703.shtml)
+- 2026-06-29 21:43 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/97949.shtml)
+- 2026-06-29 21:53 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/408839895.shtml)
+- 2026-06-29 21:32 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/33911270145.shtml)
+- 2026-06-29 21:55 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/909091690029.shtml)
+- 2026-06-29 21:56 - [店员光脚踩入盆中清洗土豆](https://www.share.minike.top/Article/details/1118865963.shtml)
+- 2026-06-29 21:34 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/346184529.shtml)
+- 2026-06-29 21:48 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/743210320.shtml)
+- 2026-06-29 21:59 - [起风了](https://www.share.minike.top/Article/details/764373130.shtml)
+- 2026-06-29 21:53 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/48256788.shtml)
+- 2026-06-29 21:41 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.kurohicncr.top/Article/details/5890955.shtml)
+- 2026-06-29 21:30 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/839898.shtml)
+- 2026-06-29 21:43 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/2114833.shtml)
+- 2026-06-29 21:46 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/8735366.shtml)

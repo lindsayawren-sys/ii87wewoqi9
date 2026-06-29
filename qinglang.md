@@ -1,59 +1,45 @@
-# 近期最火的板块！301682、300806、300136，集体披露！
+# 新疆维吾尔自治区巴音郭楞蒙古自治州党委常委徐凯被查
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！AI算力与新能源双轮驱动下，多层陶瓷电容器（MLCC）行业正经历新一轮供需紧张。A股市场上，多只概念股近日走出上涨行情。 6月16日晚间，宏明电子（301682）、斯迪克（300806）、信维通信（300136）等公司相继披露MLCC业务进展。银河证券最新发布的电子行业中期策略指出，AI服务器和新能源车正在
+中新网6月15日电 据新疆维吾尔自治区纪委监委消息：新疆维吾尔自治区巴音郭楞蒙古自治州党委常委、政法委书记徐凯涉嫌严重违纪违法，目前正接受新疆维吾尔自治区纪委监委纪律审查和监察调查。
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
-
-AI算力与新能源双轮驱动下，多层陶瓷电容器（MLCC）行业正经历新一轮供需紧张。
-
-A股市场上，多只概念股近日走出上涨行情。
-
-6月16日晚间，宏明电子（301682）、斯迪克（300806）、信维通信（300136）等公司相继披露MLCC业务进展。
-
-银河证券最新发布的电子行业中期策略指出，AI服务器和新能源车正在拉动MLCC需求高速增长，国产替代空间广阔。
-
-多家公司同日披露MLCC业务进展 本轮MLCC涨价的核心驱动力，在于AI算力需求的指数级扩张。
-
-宏明电子16日披露的机构调研指出，AI算力服务器功耗大幅提升，导致GPU等核心芯片的瞬态电流波动问题急剧恶化，对起到能量缓冲作用的电容器需求激增，高端、高容MLCC由此出现结构性短缺。
-
-数据层面，单台传统服务器约使用2000至3000颗MLCC，而AI服务器用量可突破两万颗，差距达十倍，由此形成需求跃升的核心驱动。
+中新网6月15日电 据新疆维吾尔自治区纪委监委消息：新疆维吾尔自治区巴音郭楞蒙古自治州党委常委、政法委书记徐凯涉嫌严重违纪违法，目前正接受新疆维吾尔自治区纪委监委纪律审查和监察调查。
 
 ## 相关推荐
 
-- 2026-06-29 21:31 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-29 21:44 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 21:50 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 21:44 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-29 21:48 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-29 21:27 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 21:53 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 21:53 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 21:50 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 21:51 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-29 21:29 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 21:40 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-29 21:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-29 21:48 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-29 21:57 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 21:47 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-29 21:35 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 21:41 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 21:46 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-29 21:53 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-29 21:38 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 21:58 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 21:32 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 21:59 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 21:52 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 21:42 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:43 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/057160.shtml)
-- 2026-06-29 21:45 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/4735871.shtml)
-- 2026-06-29 21:47 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/17950875076.shtml)
-- 2026-06-29 21:49 - [巴西10号球衣是天才传承史](https://www.share.minike.top/Article/details/122072158138.shtml)
-- 2026-06-29 21:51 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/971433253.shtml)
-- 2026-06-29 21:44 - [Ella回应SHE何时合体](http://www.blog.kurohicncr.top/Article/details/49105.shtml)
-- 2026-06-29 21:53 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.kurohicncr.top/Article/details/34451.shtml)
-- 2026-06-29 21:43 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/12867.shtml)
-- 2026-06-29 21:25 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/7419466320.shtml)
-- 2026-06-29 21:32 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/5008303151.shtml)
-- 2026-06-29 21:35 - [LPL第三赛段赛制公布](https://www.share.minike.top/Article/details/57600217341.shtml)
-- 2026-06-29 21:50 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/561187.shtml)
-- 2026-06-29 21:49 - [东方风云榜](http://www.blog.minike.top/Article/details/189605814.shtml)
-- 2026-06-29 21:53 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/36504517737.shtml)
-- 2026-06-29 21:48 - [运20对中国空军的意义是什么](http://www.share.minike.top/Article/details/43663.shtml)
+- 2026-06-29 21:37 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/7292892110.shtml)
+- 2026-06-29 21:55 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/21359190.shtml)
+- 2026-06-29 21:44 - [一见倾心](http://www.share.minike.top/Article/details/725364.shtml)
+- 2026-06-29 21:45 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/5250044253.shtml)
+- 2026-06-29 21:45 - [孙俪开QQ的蛮好生活](https://www.share.minike.top/Article/details/816617.shtml)
+- 2026-06-29 21:53 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/705946625064.shtml)
+- 2026-06-29 21:43 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/08589450085.shtml)
+- 2026-06-29 21:34 - [日美楼市危机复盘：见底顺序曝光](https://www.share.minike.top/Article/details/125181105104.shtml)
+- 2026-06-29 21:49 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/51300798044.shtml)
+- 2026-06-29 21:40 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/29306681.shtml)
+- 2026-06-29 21:35 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/3352831498.shtml)
+- 2026-06-29 21:59 - [天道](https://www.blog.minike.top/Article/details/90726662042.shtml)
+- 2026-06-29 21:59 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/7495491.shtml)
+- 2026-06-29 21:56 - [Ella回应SHE何时合体](https://www.blog.kurohicncr.top/Article/details/40713611.shtml)
+- 2026-06-29 21:48 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/90744230.shtml)

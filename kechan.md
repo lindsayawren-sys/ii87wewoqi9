@@ -1,43 +1,57 @@
-# 国家统计局：5月全国规上工业增加值同比增4.5%
+# PCB爆发！生益科技创新高！东山精密登顶A股吸金榜首！电子ETF华宝（515260）飙涨5.9%，近20日狂揽1.74亿元
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 09:15 来源：央视新闻 责任编辑：【王祎】
+超740亿主力资金狂涌！今日（6月15日）电子板块领涨两市，东山精密获主力资金净流入超43亿元，登顶A股吸金榜榜首！ 热门ETF方面，荟聚电子板块核心龙头的电子ETF华宝（515260）场内价格盘中飙涨超5.9%，现涨5.48%，此前3个交易日连续吸金，合计金额2552万元！拉长时间来看，近20个交易日累计狂揽1.74亿元，反映资金看好电子板块后市表现，积极进场布局！ 成份股方
 
 ## 正文
 
-发布时间：2026年06月17日 09:15 来源：央视新闻 责任编辑：【王祎】
+超740亿主力资金狂涌！
+
+今日（6月15日）电子板块领涨两市，东山精密获主力资金净流入超43亿元，登顶A股吸金榜榜首！
+
+热门ETF方面，荟聚电子板块核心龙头的电子ETF华宝（515260）场内价格盘中飙涨超5.9%，现涨5.48%，此前3个交易日连续吸金，合计金额2552万元！
+
+拉长时间来看，近20个交易日累计狂揽1.74亿元，反映资金看好电子板块后市表现，积极进场布局！
+
+成份股方面，PCB龙头生益科技、东山精密涨停，光学光电子龙头三安光电亦涨停，MLCC概念股三环集团涨近19%，半导体龙头华润微涨逾11%，寒武纪涨逾6%，消费电子龙头蓝思科技涨超10%。
+
+电子ETF华宝（515260）标的指数囊括PCB、MLCC等热门概念，细分方向来看： 1、PCB（印制电路板）方面，木林森全资子公司新余木林森电子于近日发布涨价函，自 6月12日起，对全线PCB产品价格进行上调20%，主要是因为PCB核心主材覆铜板成本大幅飙升。
+
+今年以来，在AI服务器、高速交换机等需求带动下，覆铜板、电子布、铜箔等PCB上游材料持续涨价。
+
+摩根士丹利最新报告表示，随着AI集群规模持续扩大，GPU之间的数据传输需求呈指数级增长，这将推动光模块需求快速爆发，当光模块从400G向800G、1.6T甚至3.2T升级，其内部PCB的材料、层数和制造工艺都将迎来全面升级，从而带动单块PCB价值量大幅提升。
 
 ## 相关推荐
 
-- 2026-06-29 21:47 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 21:36 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-29 21:25 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-29 21:33 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-29 21:47 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-29 21:33 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-29 21:34 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-29 21:37 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 21:29 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 21:41 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 21:50 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-29 21:34 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 21:43 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 21:58 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-29 21:32 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-29 21:59 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 21:52 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-29 21:48 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-29 21:42 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 21:54 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 21:53 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 21:31 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:45 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/988815017542.shtml)
-- 2026-06-29 21:47 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/13553180796.shtml)
-- 2026-06-29 21:24 - [起风了](http://www.blog.kurohicncr.top/Article/details/65230.shtml)
-- 2026-06-29 21:31 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/5683718.shtml)
-- 2026-06-29 21:25 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/6827954073.shtml)
-- 2026-06-29 21:44 - [周杰伦千禧年就有小卡了](https://www.blog.kurohicncr.top/Article/details/6019226221.shtml)
-- 2026-06-29 21:30 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/893605844.shtml)
-- 2026-06-29 21:33 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.minike.top/Article/details/038404803.shtml)
-- 2026-06-29 21:45 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/63914763.shtml)
-- 2026-06-29 21:27 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/36900678.shtml)
-- 2026-06-29 21:49 - [高质量发展看新疆](https://www.share.minike.top/Article/details/52542651188.shtml)
-- 2026-06-29 21:35 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/53763.shtml)
-- 2026-06-29 21:36 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/08714170.shtml)
-- 2026-06-29 21:37 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/179552.shtml)
-- 2026-06-29 21:41 - [天道](http://www.share.kurohicncr.top/Article/details/1620587042.shtml)
+- 2026-06-29 21:41 - [毒液2](https://www.share.kurohicncr.top/Article/details/04331074.shtml)
+- 2026-06-29 21:55 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/71301418039.shtml)
+- 2026-06-29 21:38 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/72843903.shtml)
+- 2026-06-29 21:37 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/4128735062.shtml)
+- 2026-06-29 21:58 - [恋与深空 巧合](https://www.share.minike.top/Article/details/57511.shtml)
+- 2026-06-29 21:31 - [毒液2](https://www.blog.minike.top/Article/details/7996652260.shtml)
+- 2026-06-29 21:50 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/2614861.shtml)
+- 2026-06-29 21:37 - [英法德葡存在什么隐患](https://www.blog.kurohicncr.top/Article/details/066434.shtml)
+- 2026-06-29 21:57 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/182534384733.shtml)
+- 2026-06-29 21:47 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/3644717.shtml)
+- 2026-06-29 21:58 - [哈兰德玩游戏连女友都不让着](http://www.blog.kurohicncr.top/Article/details/770870781.shtml)
+- 2026-06-29 21:46 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/31711609392.shtml)
+- 2026-06-29 21:52 - [2026全国田径冠军赛江苏队4金收官](http://www.share.kurohicncr.top/Article/details/77334414845.shtml)
+- 2026-06-29 21:55 - [85花告别古偶](https://www.share.minike.top/Article/details/6460414.shtml)
+- 2026-06-29 21:38 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/26013883.shtml)

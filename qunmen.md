@@ -1,55 +1,60 @@
-# 变装大秀！逛南博会玩换装，解锁不同地域服饰美学
+# “应退尽退”成市场共识 年内超20家公司退市或锁定退市
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 22:38 来源：中国新闻网 在南博会开启一场特别的变装之旅。身着景颇族传统服饰，毛球头饰灵动可爱，刺绣银泡挎包承载着目瑙纵歌的民俗韵味。再邂逅南亚诸国特色服饰，手工织物、天然扎染、精巧贝壳装饰，每一件都独具匠心。山海不同，服饰皆美，哪一种风格让你心动？ 责任编辑：【于晓】
+证券日报记者 毛艺融 2026年以来，A股市场生态持续优化。据《证券日报》记者不完全统计，截至6月15日，已有超过20家公司退市或锁定退市(含已摘牌退市、进入退市整理期、已被终止上市等)，呈现出‌“应退尽退、多元出清、优胜劣汰”‌的显著特征。 上海市信本律师事务所管理合伙人赵敬国对《证券日报》记者表示，“应退尽退”已成为市场共识。从长远来看，在退市常态化背景下，A股公司“壳价值
 
 ## 正文
 
-发布时间：2026年06月16日 22:38 来源：中国新闻网 在南博会开启一场特别的变装之旅。
+证券日报记者 毛艺融 2026年以来，A股市场生态持续优化。
 
-身着景颇族传统服饰，毛球头饰灵动可爱，刺绣银泡挎包承载着目瑙纵歌的民俗韵味。
+据《证券日报》记者不完全统计，截至6月15日，已有超过20家公司退市或锁定退市(含已摘牌退市、进入退市整理期、已被终止上市等)，呈现出‌“应退尽退、多元出清、优胜劣汰”‌的显著特征。
 
-再邂逅南亚诸国特色服饰，手工织物、天然扎染、精巧贝壳装饰，每一件都独具匠心。
+上海市信本律师事务所管理合伙人赵敬国对《证券日报》记者表示，“应退尽退”已成为市场共识。
 
-山海不同，服饰皆美，哪一种风格让你心动？
+从长远来看，在退市常态化背景下，A股公司“壳价值”将日益消亡，投资者需警惕*ST、ST企业，避免落入“炒差”陷阱。
 
-责任编辑：【于晓】
+退市包括强制终止上市(以下简称“强制退市”)和主动终止上市(以下简称“主动退市”)。
+
+强制退市分为交易类强制退市、财务类强制退市、规范类强制退市和重大违法类强制退市等4类情形。
+
+具体来看，Wind数据显示，截至6月15日，有9家公司正式从A股退市。
+
+其中，3家因“总市值低于五亿元”触发交易类退市指标，5家因审计、信息披露等规范性问题退市，1家为主动退市。
 
 ## 相关推荐
 
-- 2026-06-29 21:28 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-29 21:39 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 21:52 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-29 21:30 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 21:24 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-29 21:30 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 21:35 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 21:46 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 21:44 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 21:32 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 21:49 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-29 21:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-29 21:52 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-29 21:50 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 21:31 - [夫妻生活太无聊，所以我……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 21:31 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 21:35 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-29 21:36 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-29 21:49 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 21:53 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 21:51 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 21:46 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-29 21:49 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 21:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 21:51 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-29 21:39 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 21:43 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 21:34 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-29 21:42 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:26 - [半导体和股市为何没让韩国人起飞](http://www.blog.minike.top/Article/details/454048937188.shtml)
-- 2026-06-29 21:47 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/54550.shtml)
-- 2026-06-29 21:27 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/35513010.shtml)
-- 2026-06-29 21:50 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/43651.shtml)
-- 2026-06-29 21:45 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/90296479808.shtml)
-- 2026-06-29 21:41 - [DRG官宣选手Akeman离队](http://www.blog.kurohicncr.top/Article/details/126638870579.shtml)
-- 2026-06-29 21:26 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/095395.shtml)
-- 2026-06-29 21:44 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/213095.shtml)
-- 2026-06-29 21:42 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/6724136206.shtml)
-- 2026-06-29 21:35 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/229379801340.shtml)
-- 2026-06-29 21:48 - [MG总经理直播被冲](https://www.share.kurohicncr.top/Article/details/9381701.shtml)
-- 2026-06-29 21:48 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/37229350.shtml)
-- 2026-06-29 21:51 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/54672506.shtml)
-- 2026-06-29 21:28 - [多人将马路护栏当球网打羽毛球](https://www.blog.kurohicncr.top/Article/details/615814285.shtml)
-- 2026-06-29 21:32 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/6090390042.shtml)
+- 2026-06-29 21:56 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/26493625.shtml)
+- 2026-06-29 21:51 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/610359.shtml)
+- 2026-06-29 21:47 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/57502944661.shtml)
+- 2026-06-29 21:53 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/334026091426.shtml)
+- 2026-06-29 21:56 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/925615477801.shtml)
+- 2026-06-29 21:59 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/4177858.shtml)
+- 2026-06-29 21:31 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/3962051145.shtml)
+- 2026-06-29 21:45 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.minike.top/Article/details/629354893729.shtml)
+- 2026-06-29 21:45 - [曝腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/039168.shtml)
+- 2026-06-29 21:47 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.minike.top/Article/details/4370341803.shtml)
+- 2026-06-29 21:36 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/6683475635.shtml)
+- 2026-06-29 21:59 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.kurohicncr.top/Article/details/5429365.shtml)
+- 2026-06-29 21:31 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/852256488688.shtml)
+- 2026-06-29 21:59 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/069378052516.shtml)
+- 2026-06-29 21:37 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/88682864.shtml)

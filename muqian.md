@@ -1,59 +1,61 @@
-# 新能源车维权难在哪，消费者买车前该注意什么
+# 又一金属吃到"算力溢价"，碳酸锂期货重回17万元关口
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-最近，特斯拉FSD（完全自动驾驶监督版）系统在美国被两名联邦参议员点名质疑，要求监管机构核查其宣传的安全数据是否真实准确。这是继此前多起自动驾驶事故调查之后，特斯拉自动驾驶功能再次面临监管压力。与此同时，国内新能源车市场也风波不断，近三个月车规级存储芯片价格暴涨约180%，多家新能源车企已上调售价或收紧优惠，涨价幅度在2000元到6000元不等。 新能源车正在成为越来越多家庭的
+储能需求大增推动碳酸锂价格反弹 碳酸锂价格重拾涨势。 上周碳酸锂期货主力合约收报17.5万元/吨，周涨幅6.6%，终结了此前近一个月的回调。 5月初锂价一度重返20万元关口，随后经历一轮快速回调，6月初下探至15.7万元附近后再度反弹。从更长周期看，碳酸锂自2025年6月低点5.8万元/吨已累计反弹约200%。 行业普遍认为，目前碳酸锂价格已经走出长达两年的深度下行周期。产业层
 
 ## 正文
 
-最近，特斯拉FSD（完全自动驾驶监督版）系统在美国被两名联邦参议员点名质疑，要求监管机构核查其宣传的安全数据是否真实准确。
+储能需求大增推动碳酸锂价格反弹 碳酸锂价格重拾涨势。
 
-这是继此前多起自动驾驶事故调查之后，特斯拉自动驾驶功能再次面临监管压力。
+上周碳酸锂期货主力合约收报17.5万元/吨，周涨幅6.6%，终结了此前近一个月的回调。
 
-与此同时，国内新能源车市场也风波不断，近三个月车规级存储芯片价格暴涨约180%，多家新能源车企已上调售价或收紧优惠，涨价幅度在2000元到6000元不等。
+5月初锂价一度重返20万元关口，随后经历一轮快速回调，6月初下探至15.7万元附近后再度反弹。
 
-新能源车正在成为越来越多家庭的选择，但随之而来的消费纠纷 【下载黑猫投诉客户端】也在快速增长。
+从更长周期看，碳酸锂自2025年6月低点5.8万元/吨已累计反弹约200%。
 
-从续航虚标、电池衰减到自动驾驶功能夸大宣传、OTA升级变相收费，再到交付延期、售后服务不到位，新能源车消费者的维权之路并不平坦。
+行业普遍认为，目前碳酸锂价格已经走出长达两年的深度下行周期。
 
-新能源车消费纠纷的几大类型 第一类是续航和电池问题。
+产业层面，储能项目需求旺盛，AI算力基建、电力市场化改革与新能源增量共同推升供需紧张状态。
 
-实际续航远低于官方宣传的续航里程，是新能源车投诉中最常见的问题之一。
+“当前锂价正处于长短期逻辑的交织博弈中。
 
-尤其是在冬季低温环境下，续航缩水问题更为突出。
+”一位锂电产业链分析人士对记者称，短期宏观面上，加息预期升温令有色金属价格普遍承压，下半年锂价的核心变量不在矿山产量，而在储能需求能否持续超预期。
 
 ## 相关推荐
 
-- 2026-06-29 21:31 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-29 21:27 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 21:38 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-29 21:33 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 21:48 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-29 21:37 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-29 21:25 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 21:24 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-29 21:52 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-29 21:37 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-29 21:49 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-29 21:29 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 21:42 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-29 21:41 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 21:57 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 21:43 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 21:54 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 21:31 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 21:37 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-29 21:46 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-29 21:54 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 21:36 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 21:39 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-29 21:52 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 21:51 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-29 21:44 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-29 21:37 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-29 21:40 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:28 - [上世纪90年代玩具成新宠](https://www.blog.minike.top/Article/details/22990387541.shtml)
-- 2026-06-29 21:50 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/1327631.shtml)
-- 2026-06-29 21:36 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.minike.top/Article/details/09879819863.shtml)
-- 2026-06-29 21:49 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/39441395.shtml)
-- 2026-06-29 21:28 - [网友晒14年前支教影像等来学生评论](http://www.share.kurohicncr.top/Article/details/748395.shtml)
-- 2026-06-29 21:50 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/381134390035.shtml)
-- 2026-06-29 21:35 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.minike.top/Article/details/6054478.shtml)
-- 2026-06-29 21:36 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.minike.top/Article/details/29688923.shtml)
-- 2026-06-29 21:37 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/60312727.shtml)
-- 2026-06-29 21:29 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/03557729512.shtml)
-- 2026-06-29 21:45 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/787899991595.shtml)
-- 2026-06-29 21:28 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/58005269.shtml)
-- 2026-06-29 21:41 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/2106813455.shtml)
-- 2026-06-29 21:28 - [恋与深空制作组回应争议](https://www.share.kurohicncr.top/Article/details/55659842.shtml)
-- 2026-06-29 21:38 - [哈兰德吃饭被镜中自己吓到](http://www.share.kurohicncr.top/Article/details/2123268305.shtml)
+- 2026-06-29 21:37 - [2026全国田径冠军赛江苏队4金收官](http://www.share.kurohicncr.top/Article/details/22702918093.shtml)
+- 2026-06-29 21:38 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/7385386020.shtml)
+- 2026-06-29 21:52 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/786590.shtml)
+- 2026-06-29 21:41 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/78347.shtml)
+- 2026-06-29 21:51 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/5636785998.shtml)
+- 2026-06-29 21:30 - [世界杯高票价为何没劝退球迷](http://www.blog.minike.top/Article/details/594258829.shtml)
+- 2026-06-29 21:36 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.minike.top/Article/details/23052.shtml)
+- 2026-06-29 21:47 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/17659979.shtml)
+- 2026-06-29 21:35 - [千与千寻](http://www.share.kurohicncr.top/Article/details/162725.shtml)
+- 2026-06-29 21:58 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/093985228.shtml)
+- 2026-06-29 21:51 - [温网](https://www.blog.minike.top/Article/details/253453.shtml)
+- 2026-06-29 21:56 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/51375.shtml)
+- 2026-06-29 21:52 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/12097403219.shtml)
+- 2026-06-29 21:44 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.minike.top/Article/details/945770291.shtml)
+- 2026-06-29 21:50 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/18926887.shtml)

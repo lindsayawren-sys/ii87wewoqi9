@@ -1,54 +1,56 @@
-# 严打互联网广告违法行为 市场监管总局推出系统性治理方案
+# 华安黄金ETF规模从一月的1275亿降至最新的935亿，缩水340亿元
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-中新网6月16日电 据“市说新语”微信公众号消息，6月16日，市场监管总局召开例行新闻发布会。 会上，有记者问：总局近期出台了《关于深化互联网广告生态治理工作的通知》和《互联网广告市场秩序整治重点任务》，能否详细介绍一下背景和任务？ 对此，市场监管总局新闻发言人、新闻宣传司司长王秋苹表示，当前，我国互联网广告产业快速发展，已形成数据驱动、技术赋能的复杂生态，但互联网广告轻创意、
+近期黄金调整，相关黄金ETF普遍遭遇赎回，引发关注，头部产品华安黄金ETF调整尤为明显。该产品曾为千亿级热门单品，近三月净值下跌20%，上周单周规模锐减80亿元。 截至6月13日，华安黄金ETF最新规模935亿元，跌破千亿关口；对比1月末的1275亿元的规模，缩水超340亿元。 虽然产品规模回落，但华安黄金ETF依旧是华安基金的核心产品。从管理费收入来看，该产品为基金公司贡献颇
 
 ## 正文
 
-中新网6月16日电 据“市说新语”微信公众号消息，6月16日，市场监管总局召开例行新闻发布会。
+近期黄金调整，相关黄金ETF普遍遭遇赎回，引发关注，头部产品华安黄金ETF调整尤为明显。
 
-会上，有记者问：总局近期出台了《关于深化互联网广告生态治理工作的通知》和《互联网广告市场秩序整治重点任务》，能否详细介绍一下背景和任务？
+该产品曾为千亿级热门单品，近三月净值下跌20%，上周单周规模锐减80亿元。
 
-对此，市场监管总局新闻发言人、新闻宣传司司长王秋苹表示，当前，我国互联网广告产业快速发展，已形成数据驱动、技术赋能的复杂生态，但互联网广告轻创意、重炒作等旧问题仍然存在，滥用人工智能、过度追求流量等新问题不断凸显，亟须从深化互联网广告生态治理的高度系统施治、全面治理。
+截至6月13日，华安黄金ETF最新规模935亿元，跌破千亿关口；对比1月末的1275亿元的规模，缩水超340亿元。
 
-为此，市场监管总局印发《关于深化互联网广告生态治理工作的通知》，首次提出“互联网广告生态治理”这一创新理念，系统部署“健全监管制度体系、压实平台主体责任、强化重点领域监管、提升监测技术和执法能力、加强价值导向引领”等五方面治理任务，为推进互联网广告生态治理工作明确了方向。
+虽然产品规模回落，但华安黄金ETF依旧是华安基金的核心产品。
 
-王秋苹指出，互联网广告生态治理是一项系统性工程。
+从管理费收入来看，该产品为基金公司贡献颇丰：2023年管理人报酬0.54亿元，2024年增至1.06亿元，2025年更是达到2.95亿元。
 
-总局按照“管长远”和“立当下”相结合的工作思路，将加强互联网广告市场秩序整治作为突破口，依法从严打击群众反映强烈的互联网广告违法行为，切实维护互联网广告市场秩序，为推进互联网广告生态治理其他方面的工作打牢基础，营造良好氛围。
-
-总局制定的《互联网广告市场秩序整治重点任务》，围绕“强化广告导向监管、加强直播电商广告监管、规范人工智能生成式广告、整治弹窗广告顽疾、规范‘矩阵式’广告投放、压实平台主体责任”等六个方面，细化工作任务，聚焦突出问题精准发力，全力维护良好互联网广告市场秩序。
+责任编辑：公司观察
 
 ## 相关推荐
 
-- 2026-06-29 21:39 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-29 21:27 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 21:30 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 21:29 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-29 21:48 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 21:38 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 21:33 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 21:51 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 21:29 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 21:46 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-29 21:46 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 21:34 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 21:56 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 21:58 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-29 21:36 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 21:51 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 21:41 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 21:46 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-29 21:47 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 21:38 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-29 21:40 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-29 21:52 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 21:32 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-29 21:52 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:46 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/63074281.shtml)
-- 2026-06-29 21:33 - [欧洲高温会成下个印度吗](http://www.share.minike.top/Article/details/323221897.shtml)
-- 2026-06-29 21:39 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/2503480714.shtml)
-- 2026-06-29 21:39 - [让AI做一个账号，它会做成什么样？](https://www.share.minike.top/Article/details/03770162.shtml)
-- 2026-06-29 21:24 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.minike.top/Article/details/339945263.shtml)
-- 2026-06-29 21:42 - [孙俪开QQ的蛮好生活](http://www.share.minike.top/Article/details/30899286929.shtml)
-- 2026-06-29 21:28 - [《恋与深空》回应争议](http://www.blog.kurohicncr.top/Article/details/6945296988.shtml)
-- 2026-06-29 21:25 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/90471.shtml)
-- 2026-06-29 21:25 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/82443698.shtml)
-- 2026-06-29 21:41 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/78855.shtml)
-- 2026-06-29 21:46 - [东方风云榜直播](http://www.blog.kurohicncr.top/Article/details/6437605.shtml)
-- 2026-06-29 21:27 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/94042880.shtml)
-- 2026-06-29 21:51 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/18741941.shtml)
-- 2026-06-29 21:49 - [斗破苍穹](http://www.share.minike.top/Article/details/82149488.shtml)
-- 2026-06-29 21:41 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/01760.shtml)
+- 2026-06-29 21:54 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/32598.shtml)
+- 2026-06-29 21:40 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/0091583.shtml)
+- 2026-06-29 21:44 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/59975259128.shtml)
+- 2026-06-29 21:57 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/75147.shtml)
+- 2026-06-29 21:46 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/107491574.shtml)
+- 2026-06-29 21:39 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/6511613241.shtml)
+- 2026-06-29 21:51 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/71559.shtml)
+- 2026-06-29 21:41 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/2020876290.shtml)
+- 2026-06-29 21:45 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/94445822.shtml)
+- 2026-06-29 21:57 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/207356224.shtml)
+- 2026-06-29 21:50 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/72354062388.shtml)
+- 2026-06-29 21:56 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/356181557.shtml)
+- 2026-06-29 21:56 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/104614.shtml)
+- 2026-06-29 21:49 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/06450208.shtml)
+- 2026-06-29 21:57 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/5471467081.shtml)

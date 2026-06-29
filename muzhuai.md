@@ -1,58 +1,60 @@
-# 国台办：美台所谓“贸易协议”只会让台湾各界利益受损
+# 福州国际渔博会落下帷幕 现场零售额达5.31亿元
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-中新网6月17日电 6月17日，国台办举行例行新闻发布会。有记者提问：近期岛内最大花生产地云林县的花生采收价格疑受美国花生将零关税进口影响而下挫，尽管台农业部门负责人称“美台贸易协议尚未生效，美国花生还未进口”，依然引发当地花生种植农户的广泛担忧。请问对此有何评论？ 发言人陈斌华表示，云林县是台湾最重要的花生产区，其种植面积和产量均占全台七成以上。一旦美国花生以“零关税”输入台
+中新网福州6月15日电 (叶秋云)为期三天的第十八届中国(福州)国际渔业博览会(以下简称“渔博会”)14日在福建福州落下帷幕。据统计，渔博会双会场现场零售额达5.31亿元，意向成交额约20.76亿元，累计观展人数超27万人次。 据了解，本届展会首次联动华威西营里农产品批发市场打造双会场办展新模式，总规模突破10万平方米，其中福州海峡会展中心展览面积7.4万平方米，展位数2399
 
 ## 正文
 
-中新网6月17日电 6月17日，国台办举行例行新闻发布会。
+中新网福州6月15日电 (叶秋云)为期三天的第十八届中国(福州)国际渔业博览会(以下简称“渔博会”)14日在福建福州落下帷幕。
 
-有记者提问：近期岛内最大花生产地云林县的花生采收价格疑受美国花生将零关税进口影响而下挫，尽管台农业部门负责人称“美台贸易协议尚未生效，美国花生还未进口”，依然引发当地花生种植农户的广泛担忧。
+据统计，渔博会双会场现场零售额达5.31亿元，意向成交额约20.76亿元，累计观展人数超27万人次。
 
-请问对此有何评论？
+据了解，本届展会首次联动华威西营里农产品批发市场打造双会场办展新模式，总规模突破10万平方米，其中福州海峡会展中心展览面积7.4万平方米，展位数2399个。
 
-发言人陈斌华表示，云林县是台湾最重要的花生产区，其种植面积和产量均占全台七成以上。
+渔博会吸引俄罗斯、厄瓜多尔、泰国、越南、土耳其等30余个国家和地区的企业代表参展参会。
 
-一旦美国花生以“零关税”输入台湾，云林花生将面临美国廉价花生的倾销，当地种植农户将深陷生存困境。
+国际展区内，土耳其首次参展，带来产自爱琴海海域的海鲈鱼等产品，受到采购商关注。
 
-民进党当局漠视农户焦虑与产业难关，敷衍以对，无计可施。
+展会期间，海鲜老板娘、嘉之派等40余家电商水产品牌采用"线下展示+线上带货"模式参展。
 
-这充分暴露其施政无能，也再度证明“跪美必然卖台”，美台之间所谓“贸易协议”只会让台湾各界利益受损。
+据统计，上述品牌现场直播成交额超过千万元。
+
+主办方表示，本届展会不仅在规模和模式上实现创新突破，更在促进产业交流、推动海洋经济高质量发展方面取得了丰硕成果。
 
 ## 相关推荐
 
-- 2026-06-29 21:27 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-29 21:28 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-29 21:37 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-29 21:24 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-29 21:37 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-29 21:31 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-29 21:35 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-29 21:50 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-29 21:51 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-29 21:42 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-29 21:47 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 21:26 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-29 21:28 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-29 21:26 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 21:43 - [华工科技龙虎榜数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 21:31 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-29 21:57 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-29 21:52 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 21:41 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 21:50 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-29 21:53 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-29 21:33 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 21:49 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-29 21:39 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-29 21:55 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 21:50 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-29 21:33 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-29 21:52 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:50 - [绘画区你赢了](https://www.blog.minike.top/Article/details/180118.shtml)
-- 2026-06-29 21:44 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/9607931.shtml)
-- 2026-06-29 21:37 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/1496936.shtml)
-- 2026-06-29 21:53 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/823502509191.shtml)
-- 2026-06-29 21:48 - [逃狱兄弟](https://www.blog.minike.top/Article/details/1726928.shtml)
-- 2026-06-29 21:52 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/28764930.shtml)
-- 2026-06-29 21:46 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/418114776.shtml)
-- 2026-06-29 21:43 - [乌是否掌握了扭转战局的钥匙](http://www.share.minike.top/Article/details/640512.shtml)
-- 2026-06-29 21:35 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/020210544617.shtml)
-- 2026-06-29 21:52 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/4305673.shtml)
-- 2026-06-29 21:51 - [英法德葡存在什么隐患](https://www.blog.minike.top/Article/details/22208877395.shtml)
-- 2026-06-29 21:43 - [扫黑风暴](https://www.blog.minike.top/Article/details/385916571126.shtml)
-- 2026-06-29 21:27 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/3814554758.shtml)
-- 2026-06-29 21:52 - [东方风云榜直播](http://www.share.minike.top/Article/details/936824670284.shtml)
-- 2026-06-29 21:48 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/456222607657.shtml)
+- 2026-06-29 21:53 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/997637.shtml)
+- 2026-06-29 21:55 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/6166490.shtml)
+- 2026-06-29 21:55 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/470252258.shtml)
+- 2026-06-29 21:51 - [追觅称质量不行终身包修也没意义](http://www.share.minike.top/Article/details/41852550652.shtml)
+- 2026-06-29 21:44 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/510657356.shtml)
+- 2026-06-29 21:35 - [欧洲缘何成为变暖最快的大洲](http://www.blog.kurohicncr.top/Article/details/8793378591.shtml)
+- 2026-06-29 21:58 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/928846066.shtml)
+- 2026-06-29 21:56 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/74433155.shtml)
+- 2026-06-29 21:41 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/890651.shtml)
+- 2026-06-29 21:37 - [DRG官宣选手Akeman离队](https://www.share.kurohicncr.top/Article/details/71299859.shtml)
+- 2026-06-29 21:44 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/374811017.shtml)
+- 2026-06-29 21:53 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/2293201.shtml)
+- 2026-06-29 21:47 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/62850802664.shtml)
+- 2026-06-29 21:47 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/5820856.shtml)
+- 2026-06-29 21:30 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/282062620.shtml)

@@ -1,52 +1,59 @@
-# 东兴海关医用物资采购项目废标公告
+# 美伊停火引爆黄金做多情绪，但真正的考验在周五
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-一、采购项目名称：东兴海关医用物资采购项目 二、采购项目编号：BTJXZB2026-065 三、采购方式：竞争性协商 四、采购公告发布日期：2026年6月4日五、预算总金额：213000.00元 六、废标理由： 截标时间止递交响应文件的供应商不足三家，按废标处理。 七、其它事项 1.本项目公告期限为1个工作日，各参加采购活动的供应商认为该采购结果和采购过程等使自己的权益受到损害
+文章来源：汇通财经 周一（6月15日）亚欧时段，现货黄金高开高走，继续保持反弹态势，目前涨2.9%交投于4340附近。经过多轮密集磋商，美国与伊朗于周一凌晨正式敲定和平协议，核心内容包括永久停火条款，重启霍尔木兹海峡通航，以及在60天内推进伊核问题等遗留议题的谈判。这一突破性进展导致能源成本与真实利率回落，点燃了黄金、权益的全球做多情绪，但目前关于协议美伊双方各执一词，各方主张
 
 ## 正文
 
-一、采购项目名称：东兴海关医用物资采购项目 二、采购项目编号：BTJXZB2026-065 三、采购方式：竞争性协商 四、采购公告发布日期：2026年6月4日五、预算总金额：213000.00元 六、废标理由： 截标时间止递交响应文件的供应商不足三家，按废标处理。
+文章来源：汇通财经 周一（6月15日）亚欧时段，现货黄金高开高走，继续保持反弹态势，目前涨2.9%交投于4340附近。
 
-七、其它事项 1.本项目公告期限为1个工作日，各参加采购活动的供应商认为该采购结果和采购过程等使自己的权益受到损害的，可以自本公告期限届满之日(本公告发布之日后第2个工作日)起7个工作日内，以书面形式向采购代理机构或采购人提出质疑。
+经过多轮密集磋商，美国与伊朗于周一凌晨正式敲定和平协议，核心内容包括永久停火条款，重启霍尔木兹海峡通航，以及在60天内推进伊核问题等遗留议题的谈判。
 
-2.其他事项 网上查询地址：中国采购与招标网(http://www.chinabidding.com.cn/)、中华人民共和国南宁海关网(nanning.customs.gov.cn)。
+这一突破性进展导致能源成本与真实利率回落，点燃了黄金、权益的全球做多情绪，但目前关于协议美伊双方各执一词，各方主张的协议内容有较大出入，海峡通行需要周五协议确定签署后才能执行，同时以色列的不确定因素仍然存在，受此影响，市场整体上涨保持克制。
 
-八、联系方式 1.采购代理机构名称：广西北投建信建设项目管理有限公司 联系人：周浩、易小娟、谢国栋、邓桂艳 联系电话：0771-5345226 地址：广西南宁市良庆区金龙路2号广西能源大厦D座11楼1112室 ​2.采购人名称：中华人民共和国东兴海关 联系人： 覃工 联系电话：0770-6850980 地址：广西壮族自治区东兴市兴东路283号
+斡旋与筹备：签约细节及前期安排落地 作为关键斡旋方，巴基斯坦率先官宣协议落地，总理谢里夫表示，美伊双方已同意“所有战线（含黎巴嫩）立即永久停火”，正式签约仪式定于6月19日（周五）在瑞士举行，协议将以电子文档形式签署。
+
+另一位调解方卡塔尔的谈判团队在完成17小时密集磋商后离开德黑兰，本周各方将在多哈分别举行筹备性会晤，为后续技术谈判奠定基础。
+
+美国副总统万斯透露，白宫仍在敲定参会人员，他本人计划出席，总统特朗普也可能亲自到场；而伊朗签约代表人选尚未最终确定。
+
+美方表态：特朗普官宣海峡免费通航 美国总统特朗普在白宫举办UFC赛事庆祝80岁生日之际，通过社交媒体宣布这一消息：“祝贺各方！
+
+” 他强调，该协议将为地区带来真正的和平与安全，此前多位美国总统的尝试均以失败告终，如今终于达成历史性突破。
 
 ## 相关推荐
 
-- 2026-06-29 21:51 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 21:24 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-29 21:50 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-29 21:33 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 21:33 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 21:31 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-29 21:43 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 21:31 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-29 21:45 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 21:47 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-29 21:29 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 21:28 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 21:39 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-29 21:51 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 21:52 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 21:51 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 21:38 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 21:38 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-29 21:36 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-29 21:50 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 21:45 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 21:40 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-29 21:47 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-29 21:46 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-29 21:55 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-29 21:31 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 21:58 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:38 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/02709197198.shtml)
-- 2026-06-29 21:25 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/92633971.shtml)
-- 2026-06-29 21:25 - [蓝箭航天科创板IPO审核状态为已问询](http://www.blog.kurohicncr.top/Article/details/1085399.shtml)
-- 2026-06-29 21:24 - [中方在台湾岛以东海域活动合理合法](https://www.share.minike.top/Article/details/841796431548.shtml)
-- 2026-06-29 21:44 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/763197256.shtml)
-- 2026-06-29 21:38 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/14050125028.shtml)
-- 2026-06-29 21:48 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/896122912.shtml)
-- 2026-06-29 21:45 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/982025.shtml)
-- 2026-06-29 21:30 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/860725.shtml)
-- 2026-06-29 21:31 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/5286730095.shtml)
-- 2026-06-29 21:41 - [做完数学题 韩国队回家了](http://www.share.kurohicncr.top/Article/details/01572.shtml)
-- 2026-06-29 21:26 - [东方风云榜](https://www.share.minike.top/Article/details/630927343891.shtml)
-- 2026-06-29 21:43 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/203997240501.shtml)
-- 2026-06-29 21:51 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/4553177.shtml)
-- 2026-06-29 21:24 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/795565395.shtml)
+- 2026-06-29 21:59 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/53770073037.shtml)
+- 2026-06-29 21:59 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/71612.shtml)
+- 2026-06-29 21:32 - [美国一牛仔表演发生事故](http://www.blog.minike.top/Article/details/72857259.shtml)
+- 2026-06-29 21:39 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/6548779.shtml)
+- 2026-06-29 21:30 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/73654527.shtml)
+- 2026-06-29 21:47 - [恋与深空 巧合](https://www.share.minike.top/Article/details/5316880.shtml)
+- 2026-06-29 21:33 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/54545.shtml)
+- 2026-06-29 21:34 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/69578030.shtml)
+- 2026-06-29 21:31 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/470425257990.shtml)
+- 2026-06-29 21:55 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/4453350703.shtml)
+- 2026-06-29 21:36 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.kurohicncr.top/Article/details/13102515806.shtml)
+- 2026-06-29 21:46 - [一诺变着花样秀新驾照](http://www.share.kurohicncr.top/Article/details/62686959868.shtml)
+- 2026-06-29 21:40 - [高考1357分的同学如何报志愿？](https://www.share.kurohicncr.top/Article/details/1849711280.shtml)
+- 2026-06-29 21:33 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/9547016642.shtml)
+- 2026-06-29 21:47 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/356108.shtml)

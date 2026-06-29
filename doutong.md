@@ -1,60 +1,59 @@
-# 贵金属迎超跌修复窗口 多种因素催化筑牢底部支撑
+# 湖南双桡龙舟首次海外展演亮相马六甲河
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！● 本报记者 马爽 近期贵金属市场走出一波“先蹲后跳”的行情：在6月11日触及阶段低点后，金银铂钯集体反弹，其中伦敦现货白银从低点起一度涨超14%，黄金、铂金、钯金也分别录得7%至12%不等的涨幅，市场情绪明显回暖。不过拉长时间来看，金价距离年初高位仍下跌超两成，整体仍处于震荡修复通道。 对于贵金属这波急跌
+中新社马六甲6月15日电 (记者 刘育英)随着山歌唱起，一艘长100尺(约30.48米)的木质双桡龙舟缓缓驶离马来西亚马六甲河天地君码头。船上百余名桡手在号令声中协力划动，龙舟沿马六甲河向下游驶去。 当天亮相的“友谊号”龙舟来自中国湖南益阳，是湖南省级非物质文化遗产兰溪双桡龙舟的代表船只。 14日上午，当地举行捐赠交接仪式，由湖南益阳市赫山区双桡龙舟文化研究会将龙舟赠予马六甲龙
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社马六甲6月15日电 (记者 刘育英)随着山歌唱起，一艘长100尺(约30.48米)的木质双桡龙舟缓缓驶离马来西亚马六甲河天地君码头。
 
-● 本报记者 马爽 近期贵金属市场走出一波“先蹲后跳”的行情：在6月11日触及阶段低点后，金银铂钯集体反弹，其中伦敦现货白银从低点起一度涨超14%，黄金、铂金、钯金也分别录得7%至12%不等的涨幅，市场情绪明显回暖。
+船上百余名桡手在号令声中协力划动，龙舟沿马六甲河向下游驶去。
 
-不过拉长时间来看，金价距离年初高位仍下跌超两成，整体仍处于震荡修复通道。
+当天亮相的“友谊号”龙舟来自中国湖南益阳，是湖南省级非物质文化遗产兰溪双桡龙舟的代表船只。
 
-对于贵金属这波急跌后的反弹行情，业内人士认为，这主要是受地缘局势降温、美国通胀预期走弱以及美联储宽松政策预期升温带动，资金在边际层面快速重新定价。
+14日上午，当地举行捐赠交接仪式，由湖南益阳市赫山区双桡龙舟文化研究会将龙舟赠予马六甲龙舟促进会。
 
-从中长期看，全球央行持续增持黄金、去美元化趋势延续以及货币宽松周期尚未结束，仍在不断夯实贵金属的底部支撑，黄金的长期配置逻辑并未发生根本改变。
+本次展演既是2026年第41届马六甲龙舟文化节重点活动之一，也列为2026年马六甲河嘉年华官方开幕项目。
 
-通胀持续上行预期减弱 6月11日各大贵金属品种创下阶段新低后，市场情绪快速修复，金银铂钯迎来一波强势反弹行情。
+“双桡龙舟是马中友好合作的生动体现，也为马六甲旅游年增添文化亮点。
 
-文华财经数据显示，截至6月16日16时，伦敦现货黄金日内最高触及4332.95美元/盎司，较6月11日低点累计涨7.72%；同期现货白银、铂金、钯金表现更为强势，期间涨幅分别为14.58%、9.15%、12.85%。
+”马六甲州首席部长阿都拉勿夫在致辞中说。
 
-对于短期贵金属强势反弹的原因，中泰期货财管委-产融发展事业总部总经理助理史家亮表示，当前中东地缘局势逐步缓和，全球能源供给紧张的局面得到缓解，国际原油价格大概率震荡走弱，美国通胀持续上行的预期减弱，美联储政策转向宽松的预期将再度增强，对流动性危机乃至经济危机的预期也将弱化。
+“马来西亚的现代龙舟活动最早可追溯至20世纪80年代”，马六甲龙舟促进会会长周志明介绍，近年来，龙舟活动规模不断扩大。
 
 ## 相关推荐
 
-- 2026-06-29 21:41 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 21:46 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-29 21:24 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 21:29 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-29 21:49 - [店员光脚踩入盆中清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-29 21:47 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-29 21:27 - [济南航空航天全面起势](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 21:35 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 21:45 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 21:50 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-29 21:47 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-29 21:50 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-29 21:43 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-29 21:37 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-29 21:54 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-29 21:44 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-29 21:49 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 21:41 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 21:56 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-29 21:37 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 21:45 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-29 21:40 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-29 21:48 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 21:31 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 21:38 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 21:45 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-29 21:58 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:32 - [山东发布山洪灾害气象预警](https://www.share.minike.top/Article/details/742227.shtml)
-- 2026-06-29 21:41 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/73140.shtml)
-- 2026-06-29 21:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/08175.shtml)
-- 2026-06-29 21:35 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/88305.shtml)
-- 2026-06-29 21:53 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.minike.top/Article/details/566615171185.shtml)
-- 2026-06-29 21:38 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/824361.shtml)
-- 2026-06-29 21:40 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/05503.shtml)
-- 2026-06-29 21:39 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/79026396009.shtml)
-- 2026-06-29 21:31 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/016924.shtml)
-- 2026-06-29 21:46 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/4380399.shtml)
-- 2026-06-29 21:33 - [高质量发展看新疆](http://www.share.minike.top/Article/details/696861981208.shtml)
-- 2026-06-29 21:48 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/8099583365.shtml)
-- 2026-06-29 21:25 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/022332.shtml)
-- 2026-06-29 21:48 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/3707557382.shtml)
-- 2026-06-29 21:48 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/8561347.shtml)
+- 2026-06-29 21:35 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/3825052682.shtml)
+- 2026-06-29 21:52 - [天道](https://www.blog.kurohicncr.top/Article/details/3039481651.shtml)
+- 2026-06-29 21:50 - [爱奇艺抬高国剧新标尺](http://www.share.minike.top/Article/details/126752.shtml)
+- 2026-06-29 21:53 - [李思潼：不会介意大家夸我运气好](http://www.blog.minike.top/Article/details/98531121487.shtml)
+- 2026-06-29 21:55 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/8411531067.shtml)
+- 2026-06-29 21:30 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/993812589415.shtml)
+- 2026-06-29 21:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/10645.shtml)
+- 2026-06-29 21:41 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/497504.shtml)
+- 2026-06-29 21:37 - [被中方管控的20家日本实体什么来头](https://www.blog.minike.top/Article/details/24727453621.shtml)
+- 2026-06-29 21:49 - [欧洲多国高温突破40摄氏度](https://www.blog.minike.top/Article/details/7124866403.shtml)
+- 2026-06-29 21:59 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/8194007191.shtml)
+- 2026-06-29 21:45 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/484177042.shtml)
+- 2026-06-29 21:31 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/651740.shtml)
+- 2026-06-29 21:58 - [刘宇宁 好听](https://www.blog.kurohicncr.top/Article/details/641837920099.shtml)
+- 2026-06-29 21:30 - [天道](https://www.share.kurohicncr.top/Article/details/8113088.shtml)

@@ -1,57 +1,45 @@
-# 国家卫生健康委：严格管理麻醉药品和精神药品
+# 视频丨“遇见小面”创始人宋奇6月15日发布致“渝见小面”的一封信，就“商标风波”致歉
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-国家卫生健康委今天召开新闻发布会，介绍麻醉药品和精神药品管理有关情况。据介绍，今年6月26日是第39个国际禁毒日。根据《中华人民共和国禁毒法》，毒品不仅包括鸦片、海洛因、冰毒(甲基苯丙胺)等物质，也包括国家规定管制的其他能够使人成瘾的麻醉药品和精神药品。国家卫生健康委提醒 合理使用麻醉药品和精神药品有助于治疗疾病、控制疼痛，不当使用则可能导致成瘾及其他副作用。上述药品必须遵医嘱
+来源：北京日报 责任编辑：尉旖涵
 
 ## 正文
 
-国家卫生健康委今天召开新闻发布会，介绍麻醉药品和精神药品管理有关情况。
-
-据介绍，今年6月26日是第39个国际禁毒日。
-
-根据《中华人民共和国禁毒法》，毒品不仅包括鸦片、海洛因、冰毒(甲基苯丙胺)等物质，也包括国家规定管制的其他能够使人成瘾的麻醉药品和精神药品。
-
-国家卫生健康委提醒 合理使用麻醉药品和精神药品有助于治疗疾病、控制疼痛，不当使用则可能导致成瘾及其他副作用。
-
-上述药品必须遵医嘱凭处方购买、规范使用，使用过程中需按医嘱定期复诊，不得擅自购买使用或调整用药剂量。
-
-过期和剩余的麻醉药品和精神药品应当按规定交回医疗机构，不得向他人转售。
-
-骗购、套开、转售麻醉药品和精神药品可能涉嫌毒品犯罪，并要承担相应法律责任。
-
-愈美片、普瑞巴林等部分药品虽未纳入麻醉药品和精神药品目录管理，但同样具有成瘾性风险，不合理使用也可能对神经、呼吸系统造成损害，甚至危及生命。
+来源：北京日报 责任编辑：尉旖涵
 
 ## 相关推荐
 
-- 2026-06-29 21:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-29 21:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-29 21:29 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 21:28 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-29 21:27 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-29 21:34 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-29 21:35 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 21:42 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-29 21:30 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 21:33 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 21:38 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-29 21:39 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-29 21:57 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 21:31 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 21:30 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 21:45 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 21:39 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 21:46 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-29 21:52 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-29 21:36 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-29 21:49 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-29 21:54 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 21:48 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 21:34 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:51 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/920918647.shtml)
-- 2026-06-29 21:49 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/24119855739.shtml)
-- 2026-06-29 21:52 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/77277.shtml)
-- 2026-06-29 21:29 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/75840208.shtml)
-- 2026-06-29 21:37 - [店员光脚踩入盆中清洗土豆](http://www.share.kurohicncr.top/Article/details/83856907223.shtml)
-- 2026-06-29 21:34 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/62252.shtml)
-- 2026-06-29 21:51 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/2043233871.shtml)
-- 2026-06-29 21:44 - [记者暗访养老机构消防安全](http://www.blog.kurohicncr.top/Article/details/91967423.shtml)
-- 2026-06-29 21:24 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/823007028675.shtml)
-- 2026-06-29 21:27 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/08910142.shtml)
-- 2026-06-29 21:37 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/80915.shtml)
-- 2026-06-29 21:46 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/879306.shtml)
-- 2026-06-29 21:51 - [美国一牛仔表演发生事故](http://www.blog.minike.top/Article/details/751683670847.shtml)
-- 2026-06-29 21:32 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/932811.shtml)
-- 2026-06-29 21:24 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/3423203457.shtml)
+- 2026-06-29 21:56 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.kurohicncr.top/Article/details/9580208.shtml)
+- 2026-06-29 21:32 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/97875587.shtml)
+- 2026-06-29 21:46 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/26815082.shtml)
+- 2026-06-29 21:31 - [英法德葡存在什么隐患](http://www.blog.kurohicncr.top/Article/details/721446204649.shtml)
+- 2026-06-29 21:40 - [85花告别古偶](http://www.blog.minike.top/Article/details/78288304900.shtml)
+- 2026-06-29 21:52 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/92439873027.shtml)
+- 2026-06-29 21:42 - [小娘惹](https://www.share.kurohicncr.top/Article/details/222515348.shtml)
+- 2026-06-29 21:41 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/489792612.shtml)
+- 2026-06-29 21:51 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/2223547.shtml)
+- 2026-06-29 21:56 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/40320258.shtml)
+- 2026-06-29 21:57 - [刘宇宁 好听](http://www.blog.kurohicncr.top/Article/details/4676258478.shtml)
+- 2026-06-29 21:39 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/614736974074.shtml)
+- 2026-06-29 21:50 - [格莱美唱作人锐评歌手第6期](http://www.share.minike.top/Article/details/7262982515.shtml)
+- 2026-06-29 21:42 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/8888083.shtml)
+- 2026-06-29 21:48 - [巴西10号球衣是天才传承史](http://www.blog.kurohicncr.top/Article/details/679173760.shtml)

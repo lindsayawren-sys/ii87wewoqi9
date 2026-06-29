@@ -1,49 +1,60 @@
-# 威华达控股遭SHOG Creation Limited减持2256.9万股 每股均价约2.02港元
+# 大行净融出规模骤降，本月已下降超2.6万亿至万亿水平，但市场或并不缺钱
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，6月12日，SHOG Creation Limited减持威华达控股（00622）2256.9万股，每股均价2.0243港元，总金额约为4568.64万港元。减持后最新持股数目约为9.72亿股，持股比例为13.99%。责任编辑：卢昱君
+财联社6月15日讯（编辑 杨斌）在资金面边际收敛成为近期债市关注焦点的同时，大型银行在市场上的净融出水平正降至历史较低水平。与6月初相比，大行的净融出规模下降了超2.6万亿。不过，市场可能并未因此而缺钱，机构分析指出，银行体系钱多的现状并未发生根本变化，这决定了债市整体仍然偏多。 6月以来，大型银行净融出额出现了显著下降。Wind数据显示，上周五，大型银行净融出额已不足1.2万
 
 ## 正文
 
-香港联交所最新数据显示，6月12日，SHOG Creation Limited减持威华达控股（00622）2256.9万股，每股均价2.0243港元，总金额约为4568.64万港元。
+财联社6月15日讯（编辑 杨斌）在资金面边际收敛成为近期债市关注焦点的同时，大型银行在市场上的净融出水平正降至历史较低水平。
 
-减持后最新持股数目约为9.72亿股，持股比例为13.99%。
+与6月初相比，大行的净融出规模下降了超2.6万亿。
 
-责任编辑：卢昱君
+不过，市场可能并未因此而缺钱，机构分析指出，银行体系钱多的现状并未发生根本变化，这决定了债市整体仍然偏多。
+
+6月以来，大型银行净融出额出现了显著下降。
+
+Wind数据显示，上周五，大型银行净融出额已不足1.2万亿元。
+
+今日，大行净融出额依然仅有1.16万亿元。
+
+而6月初大行的净融出水平还在3.8万亿元的水平，再往前，4月时大行的日度净融出水平曾在6万亿元以上。
+
+华泰证券固收研究团队指出，大行是银行间市场最大的资金融出方，历史上只要大行融出下降一般都会同步带来全市场资金中枢抬升。
 
 ## 相关推荐
 
-- 2026-06-29 21:26 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-29 21:27 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-29 21:26 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-29 21:35 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-29 21:30 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-29 21:47 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-29 21:50 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-29 21:44 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-29 21:42 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 21:44 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 21:29 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-29 21:32 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 21:39 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 21:52 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-29 21:54 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 21:59 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 21:56 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-29 21:31 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 21:35 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 21:38 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 21:47 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 21:59 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 21:50 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 21:53 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-29 21:38 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 21:53 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-29 21:34 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:52 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/412245.shtml)
-- 2026-06-29 21:35 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/618786.shtml)
-- 2026-06-29 21:33 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.kurohicncr.top/Article/details/6307683615.shtml)
-- 2026-06-29 21:31 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.minike.top/Article/details/2427010753.shtml)
-- 2026-06-29 21:36 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/10855950146.shtml)
-- 2026-06-29 21:30 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/206547396744.shtml)
-- 2026-06-29 21:39 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/037985.shtml)
-- 2026-06-29 21:49 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/796919522776.shtml)
-- 2026-06-29 21:24 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/081034.shtml)
-- 2026-06-29 21:44 - [无畏为自己的猫正名了](https://www.share.minike.top/Article/details/3239094.shtml)
-- 2026-06-29 21:29 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/93255.shtml)
-- 2026-06-29 21:47 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/124041.shtml)
-- 2026-06-29 21:33 - [上世纪90年代玩具成新宠](http://www.share.kurohicncr.top/Article/details/01107493268.shtml)
-- 2026-06-29 21:51 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/66529331010.shtml)
-- 2026-06-29 21:31 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/3330353569.shtml)
+- 2026-06-29 21:53 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/08466.shtml)
+- 2026-06-29 21:34 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/48961.shtml)
+- 2026-06-29 21:55 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/5707029880.shtml)
+- 2026-06-29 21:39 - [Ella回应SHE何时合体](https://www.blog.minike.top/Article/details/534700667496.shtml)
+- 2026-06-29 21:59 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/421154307.shtml)
+- 2026-06-29 21:36 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/643687985.shtml)
+- 2026-06-29 21:31 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/0403634374.shtml)
+- 2026-06-29 21:51 - [请回答王牌2019](https://www.blog.minike.top/Article/details/66049827193.shtml)
+- 2026-06-29 21:49 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/3937982887.shtml)
+- 2026-06-29 21:58 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/67672.shtml)
+- 2026-06-29 21:55 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/508018.shtml)
+- 2026-06-29 21:47 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/023191361731.shtml)
+- 2026-06-29 21:35 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.minike.top/Article/details/60791317.shtml)
+- 2026-06-29 21:32 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/396748929.shtml)
+- 2026-06-29 21:44 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.minike.top/Article/details/532847.shtml)

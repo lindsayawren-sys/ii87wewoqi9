@@ -1,57 +1,56 @@
-# AI赋能展会全流程 湖南打造内外贸一体化融合平台
+# （机遇澳门）澳门招商局主席：让企业“引得进、留得住、发展好”
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-中新网长沙6月16日电 (付敬懿)湖南作为中国9个、中部唯一的内外贸一体化试点省份，连续两年举办“内外贸一体化”主题博览会，帮湖南好物走出去、把外贸优品引进来。16日在长沙举行的2026湖南内外贸一体化融合发展博览会新闻发布会透露，本届博览会将于6月26日至28日在“制造名城”株洲举办，目前报名参展企业530家。 本届博览会展览总面积5万平方米，规划四大主题展馆、十大特色展区，
+中新网澳门6月15日电 (记者 郑嘉伟)澳门特区政府招商投资促进局(简称“澳门招商局”)主席谢永强15日表示，澳门正持续增强对优质企业的吸引力与黏性，让企业不仅“引得进”，更“留得住、发展好”，为澳门经济适度多元发展注入持久动力。 当日，谢永强在中国与葡语国家商贸合作服务平台综合体接受“机遇澳门”主题采访活动专访时作上述表述。他指出，特区政府正围绕“1+4”经济适度多元发展策略
 
 ## 正文
 
-中新网长沙6月16日电 (付敬懿)湖南作为中国9个、中部唯一的内外贸一体化试点省份，连续两年举办“内外贸一体化”主题博览会，帮湖南好物走出去、把外贸优品引进来。
+中新网澳门6月15日电 (记者 郑嘉伟)澳门特区政府招商投资促进局(简称“澳门招商局”)主席谢永强15日表示，澳门正持续增强对优质企业的吸引力与黏性，让企业不仅“引得进”，更“留得住、发展好”，为澳门经济适度多元发展注入持久动力。
 
-16日在长沙举行的2026湖南内外贸一体化融合发展博览会新闻发布会透露，本届博览会将于6月26日至28日在“制造名城”株洲举办，目前报名参展企业530家。
+当日，谢永强在中国与葡语国家商贸合作服务平台综合体接受“机遇澳门”主题采访活动专访时作上述表述。
 
-本届博览会展览总面积5万平方米，规划四大主题展馆、十大特色展区，其中内外贸优品馆设立外贸优品体验区、品牌直播间，集中展示绿色智能消费品、国潮好物与“三同”产品，观众可现场体验、扫码下单。
+他指出，特区政府正围绕“1+4”经济适度多元发展策略，构建“机制赋能、平台支撑、政策保障”三位一体的引才引企体系。
 
-品牌服饰馆创新采用“秀展结合”模式，同步打造实体展示区与直播互动区，对接当下个性化、潮流化消费需求。
+谢永强介绍，澳门招商局在中国内地设有6个代表处，近年通过与葡萄牙、西班牙等地顾问团队合作拓展海外商业网络。
 
-产业集群馆聚焦工业消费与配套产品，展示适配国内外市场的智能装备与零部件。
+以投资者“一站式”服务为抓手，贯穿项目事前政策解读、事中跨部门协调注册及牌照申领、事后商业配对全过程，特设投资委员会统筹审批绿色通道。
 
-综合特色馆展示各地非遗技艺、民间手工艺品、农特产品、地理标志产品，让传统文化产品走向大众消费市场。
+据悉，2025年，“一站式”服务跟进286个投资项目，创造就业1611个，近五成属“1+4”重点产业；同年依托会展平台组织2200余场商务洽谈，促成240多份合作签约，推动148家葡萄牙、巴西、印尼等地企业提交投资立项，近三成已完成公司设立。
 
-本次博览会将人工智能深度融入展会运营、企业经营、商贸对接全流程，其中AI赋能商业新生态交流分享会，搭建“技术+工具+服务”一体化AI生态体系，现场开设AI问诊、AI路演对接等实操环节，直面企业在营销推广、供应链管理、客户维护等方面的痛点，手把手帮助传统商贸、制造企业运用数字化工具降本增效、拓展客源。
+谢永强表示，平台支撑方面，招商局通过“中葡商贸导航”服务，发挥“精准联络人”作用，已促成中国500强企业在巴西、安哥拉投建生产基地，以及全国前十粮油企业采购巴西大宗商品等标志性项目。
 
-同时，博览会将举办“人工智能+消费提质”交流会和“人工智能赋能产品出海”交流会，邀请AI技术企业现场设置体验台，展示智能选品、AI虚拟主播、智慧仓储等场景，帮助企业利用AI技术降低获客成本，提升跨境运营效率。
+他还指出，通过产业基金、科技园区、人才政策、首店计划等多维政策工具的协同发力，澳门正持续增强对国际高端人才与优质企业的吸引力。
 
 ## 相关推荐
 
-- 2026-06-29 21:53 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-29 21:42 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 21:28 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-29 21:33 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-29 21:47 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-29 21:33 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-29 21:48 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-29 21:27 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 21:32 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-29 21:49 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 21:30 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 21:38 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-29 21:38 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 21:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 21:53 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 21:33 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 21:30 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 21:50 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-29 21:59 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 21:30 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-29 21:41 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:49 - [恋与深空 巧合](https://www.share.minike.top/Article/details/9816251862.shtml)
-- 2026-06-29 21:36 - [谁在推动“成都造”影视持续出圈](https://www.share.minike.top/Article/details/36567.shtml)
-- 2026-06-29 21:36 - [巴黎区长紧急采购50台中国空调](https://www.share.minike.top/Article/details/75897153932.shtml)
-- 2026-06-29 21:52 - [普京建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/1220246.shtml)
-- 2026-06-29 21:31 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/98492.shtml)
-- 2026-06-29 21:37 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.kurohicncr.top/Article/details/283257597461.shtml)
-- 2026-06-29 21:52 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/7321388.shtml)
-- 2026-06-29 21:52 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/9895115837.shtml)
-- 2026-06-29 21:38 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/285024.shtml)
-- 2026-06-29 21:49 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/342223677211.shtml)
-- 2026-06-29 21:34 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/233766862.shtml)
-- 2026-06-29 21:35 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/577318.shtml)
-- 2026-06-29 21:46 - [李思潼：不会介意大家夸我运气好](http://www.share.kurohicncr.top/Article/details/871115426.shtml)
-- 2026-06-29 21:25 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/71244.shtml)
-- 2026-06-29 21:29 - [让AI做一个账号，它会做成什么样？](http://www.blog.minike.top/Article/details/21630745.shtml)
+- 2026-06-29 21:34 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/3238241414.shtml)
+- 2026-06-29 21:30 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/10611.shtml)
+- 2026-06-29 21:49 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/16727.shtml)
+- 2026-06-29 21:41 - [日防卫省正考虑引进美企人工智能系统](https://www.share.kurohicncr.top/Article/details/164936.shtml)
+- 2026-06-29 21:49 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/83563609.shtml)
+- 2026-06-29 21:50 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/4377726637.shtml)
+- 2026-06-29 21:55 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/739750718380.shtml)
+- 2026-06-29 21:52 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/74074188206.shtml)
+- 2026-06-29 21:39 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/963884903887.shtml)
+- 2026-06-29 21:50 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/0949802718.shtml)
+- 2026-06-29 21:44 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/513099645193.shtml)
+- 2026-06-29 21:57 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.minike.top/Article/details/3062955.shtml)
+- 2026-06-29 21:36 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/23240723.shtml)
+- 2026-06-29 21:35 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/470212405.shtml)
+- 2026-06-29 21:53 - [恋与深空客服的回应](https://www.blog.kurohicncr.top/Article/details/256457.shtml)

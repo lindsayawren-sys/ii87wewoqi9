@@ -1,61 +1,56 @@
-# 黄金最坏时刻已经过去？巴克莱高喊“抄底”，花旗上调目标价
+# 榴莲产品席卷南博会
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-文章来源：华尔街见闻 巴克莱与花旗同日喊多！黄金历经25%深度调整，美伊谅解备忘录签署在即，油价预期全面逆转，通胀逆风趋于消散。花旗将3个月目标价升至4500美元，6至12个月看涨5000美元；巴克莱断言：此轮是“价格重置”，不是牛市终结。 在经历长达2.5个月、幅度高达20%至25%的深度回调后，黄金正站在关键转折点上。 6月15日，巴克莱与花旗两大机构同日发声，前者明确喊出
+中新社昆明6月14日电 (记者 缪超)正在昆明举办的第10届中国—南亚博览会(南博会)上，气味浓烈的榴莲鲜果首次进入人流密集的场馆，榴莲饼、榴莲糖、榴莲蛋糕、榴莲冰淇淋，甚至榴莲形玩具和手提包，把东南亚馆打造成“榴莲宇宙”。 据中国海关总署数据，2025年中国鲜榴莲进口量达186.8万吨，进口额达74.9亿美元，稳坐中国第一大水果进口品类宝座，并保持快速增长态势。 泰国、越南、
 
 ## 正文
 
-文章来源：华尔街见闻 巴克莱与花旗同日喊多！
+中新社昆明6月14日电 (记者 缪超)正在昆明举办的第10届中国—南亚博览会(南博会)上，气味浓烈的榴莲鲜果首次进入人流密集的场馆，榴莲饼、榴莲糖、榴莲蛋糕、榴莲冰淇淋，甚至榴莲形玩具和手提包，把东南亚馆打造成“榴莲宇宙”。
 
-黄金历经25%深度调整，美伊谅解备忘录签署在即，油价预期全面逆转，通胀逆风趋于消散。
+据中国海关总署数据，2025年中国鲜榴莲进口量达186.8万吨，进口额达74.9亿美元，稳坐中国第一大水果进口品类宝座，并保持快速增长态势。
 
-花旗将3个月目标价升至4500美元，6至12个月看涨5000美元；巴克莱断言：此轮是“价格重置”，不是牛市终结。
+泰国、越南、马来西亚等东南亚国家的榴莲正角逐中国大市场。
 
-在经历长达2.5个月、幅度高达20%至25%的深度回调后，黄金正站在关键转折点上。
+曾经每公斤动辄上百元(人民币，下同)的榴莲鲜果，今年在中国部分地区已低至每公斤30余元。
 
-6月15日，巴克莱与花旗两大机构同日发声，前者明确喊出“是时候增加黄金敞口”，后者则将3个月金价目标价从4000美元/盎司上调至4500美元/盎司。
+从事热带水果进出口贸易的云南营家智慧产业投资有限责任公司总经理黄卓超表示，东南亚热带水果输华的产业竞争已逐步从单纯的商品竞争向供应链竞争转变，对产地资源整合能力、跨境物流能力、仓储分拨能力、市场渠道能力以及产业协同能力提出更高要求。
 
-两家机构的共同判断：此轮调整更像是一次价格重置，而非牛市终结。
+“特别是在榴莲等热带水果领域，越来越多的货物流、资金流、信息流正向云南聚集。
 
-触发这一轮乐观预判的核心催化剂，是美伊两国宣布将于本周五正式签署谅解备忘录（MoU）。
+”云南鸿运国际贸易港负责人李荣平说，云南正从传统意义上的消费市场，逐步向东南亚特色农产品进入中国市场的重要集散中心、供应链组织中心和资源配置中心转变。
 
-据花旗研究，这一事件有望推动霍尔木兹海峡贸易流于7月中下旬基本恢复正常，油市将重新聚焦疲软的供需基本面——花旗将2026年三季度至2027年布伦特原油预测分别下调至75美元、70美元和65美元/桶（此前预测为110美元、90美元和80美元/桶）。
+今年1月至6月初，中老铁路累计运输进口水果超13万吨、同比增长超40%，其中榴莲达12万吨、同比增长56%。
 
 ## 相关推荐
 
-- 2026-06-29 21:31 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-29 21:49 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-29 21:24 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-29 21:33 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 21:40 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 21:47 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-29 21:44 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-29 21:39 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-29 21:38 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-29 21:25 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-29 21:38 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-29 21:31 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-29 21:51 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-29 21:33 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-29 21:36 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 21:38 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-29 21:44 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 21:38 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-29 21:40 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-29 21:35 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-29 21:46 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-29 21:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 21:49 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 21:47 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-29 21:40 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:50 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.kurohicncr.top/Article/details/6671816.shtml)
-- 2026-06-29 21:26 - [肝不好身体这几处会“说话”](https://www.blog.minike.top/Article/details/739276.shtml)
-- 2026-06-29 21:28 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/8662429881.shtml)
-- 2026-06-29 21:42 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/58845.shtml)
-- 2026-06-29 21:38 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/34058.shtml)
-- 2026-06-29 21:41 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/616422956667.shtml)
-- 2026-06-29 21:39 - [急先锋](https://www.blog.minike.top/Article/details/110481448.shtml)
-- 2026-06-29 21:25 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/6371903.shtml)
-- 2026-06-29 21:50 - [李思潼：不会介意大家夸我运气好](https://www.share.kurohicncr.top/Article/details/95656504.shtml)
-- 2026-06-29 21:43 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/611749.shtml)
-- 2026-06-29 21:31 - [济南航空航天全面起势](http://www.share.kurohicncr.top/Article/details/229077040.shtml)
-- 2026-06-29 21:28 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/15516786.shtml)
-- 2026-06-29 21:32 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/88485.shtml)
-- 2026-06-29 21:38 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/580581172.shtml)
-- 2026-06-29 21:34 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/60920.shtml)
+- 2026-06-29 21:58 - [LPL第三赛段赛制公布](https://www.share.minike.top/Article/details/64757.shtml)
+- 2026-06-29 21:34 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/56583862848.shtml)
+- 2026-06-29 21:58 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/62786.shtml)
+- 2026-06-29 21:54 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/004629983.shtml)
+- 2026-06-29 21:58 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/03005959.shtml)
+- 2026-06-29 21:48 - [速度与激情9](https://www.blog.minike.top/Article/details/4316117.shtml)
+- 2026-06-29 21:57 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/43467923.shtml)
+- 2026-06-29 21:33 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/500034.shtml)
+- 2026-06-29 21:39 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/43159.shtml)
+- 2026-06-29 21:45 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.kurohicncr.top/Article/details/833339.shtml)
+- 2026-06-29 21:36 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/85981386987.shtml)
+- 2026-06-29 21:44 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/794614.shtml)
+- 2026-06-29 21:47 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/484701374154.shtml)
+- 2026-06-29 21:30 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/660024663115.shtml)
+- 2026-06-29 21:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/295562148.shtml)

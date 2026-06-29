@@ -1,53 +1,44 @@
-# 卡塔尔计划在霍尔木兹海峡开放后迅速重启LNG生产
+# 6月15日央行开展4250亿元7天期逆回购操作
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-据知情人士透露，卡塔尔计划在霍尔木兹海峡重新开放后迅速提高液化天然气（LNG）产量，目标是在两个月内恢复大部分出口能力。 知情人士说，运营着该国LNG设施的卡塔尔能源公司已告知买家，预计在恢复海峡安全通行一个月后，产量提高到产能的50%左右，并在两个月内提高到产能的80%左右。因未获授权接受媒体采访，知情人士要求匿名。 他们表示，剩余产能（相当于两条生产线）在3月伊朗导弹袭击中
+中新网6月15日电 据央行网站消息，2026年6月15日中国人民银行以固定利率、数量招标方式开展了4250亿元7天期逆回购操作，全额满足了一级交易商需求。具体情况如下：
 
 ## 正文
 
-据知情人士透露，卡塔尔计划在霍尔木兹海峡重新开放后迅速提高液化天然气（LNG）产量，目标是在两个月内恢复大部分出口能力。
+中新网6月15日电 据央行网站消息，2026年6月15日中国人民银行以固定利率、数量招标方式开展了4250亿元7天期逆回购操作，全额满足了一级交易商需求。
 
-知情人士说，运营着该国LNG设施的卡塔尔能源公司已告知买家，预计在恢复海峡安全通行一个月后，产量提高到产能的50%左右，并在两个月内提高到产能的80%左右。
-
-因未获授权接受媒体采访，知情人士要求匿名。
-
-他们表示，剩余产能（相当于两条生产线）在3月伊朗导弹袭击中受损后，需要数年时间才能完全恢复。
-
-卡塔尔能源未立即回应寻求评论的请求。
-
-责任编辑：江学思
+具体情况如下：
 
 ## 相关推荐
 
-- 2026-06-29 21:49 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-29 21:30 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-29 21:29 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 21:27 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-29 21:46 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 21:43 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-29 21:25 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-29 21:33 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 21:47 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 21:44 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 21:42 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 21:40 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-29 21:35 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-29 21:49 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 21:49 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 21:47 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-29 21:30 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-29 21:40 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-29 21:55 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 21:34 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 21:33 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:47 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/139184.shtml)
-- 2026-06-29 21:49 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.blog.kurohicncr.top/Article/details/59192.shtml)
-- 2026-06-29 21:44 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/721168395913.shtml)
-- 2026-06-29 21:44 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/162991683.shtml)
-- 2026-06-29 21:46 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/95417432.shtml)
-- 2026-06-29 21:30 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/5974353018.shtml)
-- 2026-06-29 21:37 - [巴西vs日本前瞻](https://www.blog.minike.top/Article/details/704339820601.shtml)
-- 2026-06-29 21:51 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/870576985.shtml)
-- 2026-06-29 21:39 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/92735.shtml)
-- 2026-06-29 21:34 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/940342.shtml)
-- 2026-06-29 21:36 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/335273666.shtml)
-- 2026-06-29 21:53 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/572770848.shtml)
-- 2026-06-29 21:33 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/837221059165.shtml)
-- 2026-06-29 21:53 - [日本在最东端离岛部署导弹发射装置](http://www.share.minike.top/Article/details/068697801.shtml)
-- 2026-06-29 21:35 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/30254086.shtml)
+- 2026-06-29 21:41 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/8153609732.shtml)
+- 2026-06-29 21:37 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/985041384.shtml)
+- 2026-06-29 21:34 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.minike.top/Article/details/28658.shtml)
+- 2026-06-29 21:58 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/43660987406.shtml)
+- 2026-06-29 21:31 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.kurohicncr.top/Article/details/39084119376.shtml)
+- 2026-06-29 21:30 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/7209532370.shtml)
+- 2026-06-29 21:52 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/0278343416.shtml)
+- 2026-06-29 21:44 - [美以这对亲密盟友要掰了吗](https://www.share.minike.top/Article/details/14976274984.shtml)
+- 2026-06-29 21:33 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/20484.shtml)
+- 2026-06-29 21:40 - [电影《抓特务》总票房破亿](http://www.blog.minike.top/Article/details/391013.shtml)
+- 2026-06-29 21:35 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/881270290289.shtml)
+- 2026-06-29 21:47 - [浙江进入梅雨最强“攻击时段”](https://www.share.minike.top/Article/details/280583.shtml)
+- 2026-06-29 21:41 - [沉睡花园](http://www.blog.minike.top/Article/details/2870779096.shtml)
+- 2026-06-29 21:45 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/823390108268.shtml)
+- 2026-06-29 21:33 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/54571209419.shtml)

@@ -1,44 +1,60 @@
-# 云天化：截至2026年6月10日公司股东人数为16.88万户
+# 东西问丨郝鲁怡：以发展权赋能气候正义 深化中欧绿色伙伴关系
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-证券日报网讯6月16日，云天化在互动平台回答投资者提问时表示，截至2026年6月10日，公司股东人数为16.88万户。
+中新社北京6月14日电 题：以发展权赋能气候正义深化中欧绿色伙伴关系 作者 郝鲁怡 中国社会科学院国际法研究所研究员 2026年是联合国《发展权利宣言》通过40周年。《宣言》的达成，将发展权正式确立为一项人权。《宣言》亦强调，发展应当秉持“以人为本”的理念，要求全体人民和所有个人确保有意义地参与发展，公平分配发展成果，并为此采取持久的行动。在当前全球气候危机加剧的背景下，发展权
 
 ## 正文
 
-证券日报网讯6月16日，云天化在互动平台回答投资者提问时表示，截至2026年6月10日，公司股东人数为16.88万户。
+中新社北京6月14日电 题：以发展权赋能气候正义深化中欧绿色伙伴关系 作者 郝鲁怡 中国社会科学院国际法研究所研究员 2026年是联合国《发展权利宣言》通过40周年。
+
+《宣言》的达成，将发展权正式确立为一项人权。
+
+《宣言》亦强调，发展应当秉持“以人为本”的理念，要求全体人民和所有个人确保有意义地参与发展，公平分配发展成果，并为此采取持久的行动。
+
+在当前全球气候危机加剧的背景下，发展权所蕴含的以人为中心、公平发展、可持续性、自决原则和国际合作等内涵，为推动公平有序的全球气候治理行动提供重要依据。
+
+气候变化是人类当前面临的最严峻挑战之一。
+
+联合国人权理事会曾指出，气候变化不仅对一些国家构成生存威胁，而且已经对充分实现各项人权产生了不利影响。
+
+据联合国难民署2025年的统计，过去十年间约有2.5亿人因气候相关因素被迫迁移，最不发达国家承受着与自身历史排放责任极不相称的气候代价，妇女、儿童等脆弱群体的基本权利受到严重冲击。
+
+在此背景下，“气候正义”概念正从边缘走向全球核心议程。
 
 ## 相关推荐
 
-- 2026-06-29 21:34 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 21:45 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 21:41 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-29 21:37 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 21:40 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 21:49 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 21:49 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 21:35 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-29 21:25 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-29 21:30 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 21:47 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-29 21:31 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-29 21:34 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-29 21:36 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-29 21:50 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 21:47 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 21:48 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-29 21:59 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 21:34 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 21:42 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 21:59 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 21:44 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 21:45 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 21:41 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 21:44 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 21:48 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:25 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/05258.shtml)
-- 2026-06-29 21:37 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/722046.shtml)
-- 2026-06-29 21:27 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/3361206214.shtml)
-- 2026-06-29 21:25 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/11952.shtml)
-- 2026-06-29 21:27 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/6017265.shtml)
-- 2026-06-29 21:38 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/68780758367.shtml)
-- 2026-06-29 21:31 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/3616755819.shtml)
-- 2026-06-29 21:39 - [小龙女配音去世 李若彤发文悼念](http://www.share.minike.top/Article/details/013844.shtml)
-- 2026-06-29 21:51 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/6434489115.shtml)
-- 2026-06-29 21:33 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/16507696012.shtml)
-- 2026-06-29 21:45 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/237846325.shtml)
-- 2026-06-29 21:34 - [欧洲多国高温突破40摄氏度](https://www.blog.kurohicncr.top/Article/details/334928.shtml)
-- 2026-06-29 21:33 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/38725.shtml)
-- 2026-06-29 21:52 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/749487.shtml)
-- 2026-06-29 21:43 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/459130345.shtml)
+- 2026-06-29 21:42 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/3646663.shtml)
+- 2026-06-29 21:36 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/70167697341.shtml)
+- 2026-06-29 21:43 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/044624809.shtml)
+- 2026-06-29 21:59 - [千与千寻](https://www.share.kurohicncr.top/Article/details/102876389639.shtml)
+- 2026-06-29 21:59 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/9444545255.shtml)
+- 2026-06-29 21:46 - [我和我的家乡](https://www.share.minike.top/Article/details/94366.shtml)
+- 2026-06-29 21:50 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.share.kurohicncr.top/Article/details/55497965888.shtml)
+- 2026-06-29 21:34 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/279999320270.shtml)
+- 2026-06-29 21:54 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/8572947503.shtml)
+- 2026-06-29 21:43 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/073481705235.shtml)
+- 2026-06-29 21:57 - [记者乘坐无人驾驶汽车去采访](https://www.share.minike.top/Article/details/8322328417.shtml)
+- 2026-06-29 21:57 - [日防卫省正考虑引进美企人工智能系统](http://www.share.minike.top/Article/details/393371398020.shtml)
+- 2026-06-29 21:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/54877520231.shtml)
+- 2026-06-29 21:37 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/54528645.shtml)
+- 2026-06-29 21:42 - [王安宇聪明到导演组炸了](https://www.share.kurohicncr.top/Article/details/09140.shtml)

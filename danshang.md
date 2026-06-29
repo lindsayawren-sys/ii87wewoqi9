@@ -1,56 +1,51 @@
-# 韩国宣布成为第四个与OpenAI建立AI安全合作的国家
+# 日本“航空自卫队”拟更名“航空宇宙自卫队”
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-韩国科技信息通信部周三宣布，韩国成为第四个与ChatGPT开发商OpenAI在人工智能（AI）领域建立安全合作伙伴关系的国家。 韩国科技信息通信部表示，根据双方签署的谅解备忘录，韩国人工智能安全研究院（AISI）与OpenAI将共同制定一套全球人工智能安全评估框架。 该部补充说，双方还将交流技术信息，以开发一套能够反映韩国语言和国家社会背景的人工智能安全评估框架。 此前，Ope
+中新网6月15日电 据《日本经济新闻》14日报道，日本政府正计划在2026年度内，将“航空自卫队”更名为“航空宇宙自卫队”。 据报道，目前，日本国会正在审议相关自卫队法修正案，若该法案获得通过，这将是自1954年日本成立陆上、海上和航空自卫队以来，自卫队名称首次发生变更。 报道称，这也会使得“航空自卫队”的主要任务领域延伸至“宇宙”，并指出这不仅仅是名称的更改，更可以说是日本安
 
 ## 正文
 
-韩国科技信息通信部周三宣布，韩国成为第四个与ChatGPT开发商OpenAI在人工智能（AI）领域建立安全合作伙伴关系的国家。
+中新网6月15日电 据《日本经济新闻》14日报道，日本政府正计划在2026年度内，将“航空自卫队”更名为“航空宇宙自卫队”。
 
-韩国科技信息通信部表示，根据双方签署的谅解备忘录，韩国人工智能安全研究院（AISI）与OpenAI将共同制定一套全球人工智能安全评估框架。
+据报道，目前，日本国会正在审议相关自卫队法修正案，若该法案获得通过，这将是自1954年日本成立陆上、海上和航空自卫队以来，自卫队名称首次发生变更。
 
-该部补充说，双方还将交流技术信息，以开发一套能够反映韩国语言和国家社会背景的人工智能安全评估框架。
-
-此前，OpenAI已与美国、英国和日本的人工智能安全实验室签署了合作协议。
-
-韩国科技信息通信部表示，最新达成的协议有望加强韩国在全球人工智能风险验证和风险评估标准合作网络中的地位。
-
-韩国人工智能安全研究院和OpenAI计划举行工作会议，敲定合作细节。
-
-责任编辑：于健 SF069
+报道称，这也会使得“航空自卫队”的主要任务领域延伸至“宇宙”，并指出这不仅仅是名称的更改，更可以说是日本安全保障概念扩展的一个重要节点。
 
 ## 相关推荐
 
-- 2026-06-29 21:33 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-29 21:52 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 21:49 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-29 21:27 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-29 21:51 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 21:46 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-29 21:52 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-29 21:40 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-29 21:44 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-29 21:30 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 21:34 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-29 21:31 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-29 21:47 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-29 21:56 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 21:54 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-29 21:32 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 21:34 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 21:34 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 21:41 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 21:44 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 21:43 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 21:34 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-29 21:40 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-29 21:32 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 21:44 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 21:43 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-29 21:54 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:48 - [高质量发展看新疆](https://www.blog.minike.top/Article/details/799982.shtml)
-- 2026-06-29 21:32 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/390169991427.shtml)
-- 2026-06-29 21:42 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/89783.shtml)
-- 2026-06-29 21:49 - [国际清算银行警告AI投资热潮](https://www.blog.kurohicncr.top/Article/details/61873.shtml)
-- 2026-06-29 21:44 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/217074.shtml)
-- 2026-06-29 21:35 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/6809144538.shtml)
-- 2026-06-29 21:30 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.minike.top/Article/details/815465213.shtml)
-- 2026-06-29 21:34 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/99684466588.shtml)
-- 2026-06-29 21:45 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/8021010.shtml)
-- 2026-06-29 21:30 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.kurohicncr.top/Article/details/841100590.shtml)
-- 2026-06-29 21:36 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/256020447279.shtml)
-- 2026-06-29 21:46 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/953331857566.shtml)
-- 2026-06-29 21:49 - [穆祉丞东方风云榜红毯](http://www.blog.minike.top/Article/details/31957728.shtml)
-- 2026-06-29 21:44 - [巴西10号球衣是天才传承史](http://www.share.minike.top/Article/details/6637315885.shtml)
-- 2026-06-29 21:38 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/758649456.shtml)
+- 2026-06-29 21:34 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/78920430.shtml)
+- 2026-06-29 21:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/892879546078.shtml)
+- 2026-06-29 21:44 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/95794379.shtml)
+- 2026-06-29 21:55 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/024310.shtml)
+- 2026-06-29 21:41 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/61920813.shtml)
+- 2026-06-29 21:48 - [地震来临时铁路工作人员果断拦停列车](http://www.share.kurohicncr.top/Article/details/0894423.shtml)
+- 2026-06-29 21:40 - [小娘惹](http://www.share.minike.top/Article/details/069441698.shtml)
+- 2026-06-29 21:58 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/48173479788.shtml)
+- 2026-06-29 21:54 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/967312.shtml)
+- 2026-06-29 21:39 - [王楚钦开门红](https://www.blog.minike.top/Article/details/3733654646.shtml)
+- 2026-06-29 21:46 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.minike.top/Article/details/305756257664.shtml)
+- 2026-06-29 21:54 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/83260904.shtml)
+- 2026-06-29 21:34 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/56410344383.shtml)
+- 2026-06-29 21:45 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.kurohicncr.top/Article/details/325720673856.shtml)
+- 2026-06-29 21:42 - [佛得角队长门德斯被控强奸](http://www.blog.minike.top/Article/details/39788.shtml)

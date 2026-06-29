@@ -1,61 +1,60 @@
-# 伊协议重塑定价逻辑：金属市场迎“情绪退潮”与“结构分化”，铜铝携手大跌，锌价相对抗跌
+# 端午节假期全国口岸日均出入境人员将达220万人次
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 期货早盘休市行情： ——6月16日长江现货价格动态： 1#铜价报104880元/吨，跌1070元；升水为130元/吨，跌20元；A00铝锭报23800元/吨，跌330元；贴水报80元；0#锌报24740元/吨，跌40元；1#锌报24640元/吨，跌40元；1#铅锭报16350元/吨，涨75元；1#镍报136350元/吨，跌200元；1#锡报422250元/吨，跌
+中新网6月16日电 据国家移民管理局微信公众号消息，端午佳节将至，预计全国口岸将迎来出入境客流高峰。据国家移民管理局预测，端午节假期全国口岸日均出入境人员将达220万人次，较去年端午节假期增长11.7%，单日最高通关量将突破235万人次。大型空港口岸出入境客流小幅增长，上海浦东、北京首都、广州白云、深圳宝安、北京大兴、成都天府等国际机场日均出入境人员预计分别为10.4万、5.2
 
 ## 正文
 
-长江有色金属网 期货早盘休市行情： ——6月16日长江现货价格动态： 1#铜价报104880元/吨，跌1070元；升水为130元/吨，跌20元；A00铝锭报23800元/吨，跌330元；贴水报80元；0#锌报24740元/吨，跌40元；1#锌报24640元/吨，跌40元；1#铅锭报16350元/吨，涨75元；1#镍报136350元/吨，跌200元；1#锡报422250元/吨，跌4250元； 随着美伊达成初步和平协议，霍尔木兹海峡恢复通航的预期如巨石入水，彻底搅动了全球有色金属市场的定价体系。
+中新网6月16日电 据国家移民管理局微信公众号消息，端午佳节将至，预计全国口岸将迎来出入境客流高峰。
 
-宏观叙事正从“地缘恐慌溢价”向“供需基本面回归”加速切换。
+据国家移民管理局预测，端午节假期全国口岸日均出入境人员将达220万人次，较去年端午节假期增长11.7%，单日最高通关量将突破235万人次。
 
-在这一历史性拐点下，铜、铝、锌三大品种并未走出齐涨共跌的平庸行情，而是基于自身产业逻辑呈现出极致的结构性分化。
+大型空港口岸出入境客流小幅增长，上海浦东、北京首都、广州白云、深圳宝安、北京大兴、成都天府等国际机场日均出入境人员预计分别为10.4万、5.2万、5.2万、2.1万、1.9万、1.7万人次。
 
-首当其冲的是电解铝，其遭遇了最为猛烈的估值重估。
+端午节期间粤港澳三地将举办多场龙舟赛事和大型活动，跨境旅游和返乡探亲客流叠加，毗邻港澳陆路口岸通关流量将明显增多。
 
-作为前期中东冲突的最大受益者，海湾地区产能停摆曾为铝价注入了巨大的风险溢价。
+其中，深圳罗湖、福田、深圳湾、广深港高铁西九龙站、莲塘口岸日均出入境人员预计将分别达到26万、24万、20万、13万、11万人次，珠海拱北、港珠澳大桥、青茂、横琴口岸日均出入境人员预计将分别达到37万、12.2万、11.5万、10.5万人次。
 
-然而，随着海峡重开预期落地，多头资金集中平仓引发了踩踏式下跌，伦铝单日暴跌逾5%创下四年最大跌幅。
+日前，国家移民管理局就做好端午节假期口岸边防检查工作作出专门部署，要求全国边检机关加强出入境流量监测，深入分析、精准研判口岸通关客流态势，及时发布本口岸客流高峰预警提示，为广大群众出行提供参考；科学组织勤务，开足查验通道，加强现场引导，全力保障中外旅客快速通关；密切协作配合，强化应急处置，会同口岸联检单位做好高峰期配套综合保障，防范可能出现的强降雨等极端天气不利影响，共同确保口岸通关安全高效顺畅。
 
-更为严峻的是，这不仅是情绪的退潮，更是供应端三重逆风的叠加：中国产量扩张推高国内库存至六年高点；印尼冶炼产能快速爬坡；以及中东潜在积压库存的释放预期。
+国家移民管理局提示广大中外出入境旅客，出行前及时关注口岸客流变化和通关情况，仔细检查出入境证件签证是否有效；中国公民出境时需提前了解前往地安全形势、入境政策等，避免前往存在埃博拉病毒病疫情流行风险的国家和地区。
 
-在下游传统淡季补库乏力的背景下，短期铝价的脆弱性已被充分暴露。
+通关过程中如遇困难，可随时拨打国家移民管理机构12367服务热线或向现场执勤的移民管理警察寻求帮助。
 
 ## 相关推荐
 
-- 2026-06-29 21:39 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-29 21:40 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-29 21:49 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-29 21:30 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-29 21:46 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-29 21:28 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 21:33 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-29 21:30 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-29 21:53 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 21:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-29 21:42 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-29 21:31 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-29 21:31 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 21:27 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-29 21:32 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 21:56 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 21:56 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-29 21:42 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-29 21:39 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 21:56 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 21:31 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 21:40 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 21:43 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 21:42 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-29 21:37 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 21:42 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 21:51 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 21:56 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-29 21:53 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:44 - [恋与深空制作组回应争议](http://www.blog.minike.top/Article/details/77915.shtml)
-- 2026-06-29 21:40 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/59792787.shtml)
-- 2026-06-29 21:49 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/5217784.shtml)
-- 2026-06-29 21:37 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/8250473152.shtml)
-- 2026-06-29 21:26 - [爱很美味](https://www.share.kurohicncr.top/Article/details/4090377.shtml)
-- 2026-06-29 21:30 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/1819249.shtml)
-- 2026-06-29 21:53 - [葫芦岛居民楼闪爆事故致3死](https://www.share.kurohicncr.top/Article/details/70090.shtml)
-- 2026-06-29 21:50 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/08840126792.shtml)
-- 2026-06-29 21:38 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/63061.shtml)
-- 2026-06-29 21:53 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/7284335.shtml)
-- 2026-06-29 21:51 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/187588.shtml)
-- 2026-06-29 21:49 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/3508163.shtml)
-- 2026-06-29 21:50 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/6345027927.shtml)
-- 2026-06-29 21:48 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.kurohicncr.top/Article/details/4156174.shtml)
-- 2026-06-29 21:25 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/8959137387.shtml)
+- 2026-06-29 21:55 - [日本在最东端离岛部署导弹发射装置](http://www.share.minike.top/Article/details/466394.shtml)
+- 2026-06-29 21:41 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/36745722246.shtml)
+- 2026-06-29 21:44 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/629447986887.shtml)
+- 2026-06-29 21:54 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/2873862.shtml)
+- 2026-06-29 21:52 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/372742929.shtml)
+- 2026-06-29 21:30 - [MG总经理直播被冲](https://www.blog.minike.top/Article/details/7046423.shtml)
+- 2026-06-29 21:55 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/31519882.shtml)
+- 2026-06-29 21:48 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/72687751753.shtml)
+- 2026-06-29 21:38 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/631849712.shtml)
+- 2026-06-29 21:55 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/94324768090.shtml)
+- 2026-06-29 21:36 - [《贺子珍》](http://www.blog.minike.top/Article/details/423594700114.shtml)
+- 2026-06-29 21:44 - [王安宇聪明到导演组炸了](http://www.share.minike.top/Article/details/242186346.shtml)
+- 2026-06-29 21:33 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/77381.shtml)
+- 2026-06-29 21:36 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/257686807.shtml)
+- 2026-06-29 21:53 - [无畏为自己的猫正名了](https://www.blog.kurohicncr.top/Article/details/1268275.shtml)

@@ -1,50 +1,52 @@
-# 伊朗外长：结束黎巴嫩战事是伊美协议基本要求
+# Vatee万腾:观望情绪暂未消退
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰6月16日电据伊朗伊斯兰共和国通讯社16日报道，伊朗外交部长阿拉格齐当天表示，结束黎巴嫩的战事是伊朗和美国达成协议的一项基本要求。（完）责任编辑：宋雅芳
+6月15日，黄金经历周度大幅震荡后，Vatee万腾表示市场情绪仍偏向观望，机构与个人投资者都在等待新的宏观信号来确认下一段节奏。 从调查反馈看，Vatee万腾认为贵金属投资者目前更关注政策会议、技术支撑区和收益率变化，在缺少新增催化前，趋势性押注意愿很难快速回升。 这种谨慎状态既限制了追涨动力，也让低位承接更依赖数据面的配合，因此黄金短线大概率仍会维持反复波动。 综合当前环境，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+6月15日，黄金经历周度大幅震荡后，Vatee万腾表示市场情绪仍偏向观望，机构与个人投资者都在等待新的宏观信号来确认下一段节奏。
 
-新华社德黑兰6月16日电据伊朗伊斯兰共和国通讯社16日报道，伊朗外交部长阿拉格齐当天表示，结束黎巴嫩的战事是伊朗和美国达成协议的一项基本要求。
+从调查反馈看，Vatee万腾认为贵金属投资者目前更关注政策会议、技术支撑区和收益率变化，在缺少新增催化前，趋势性押注意愿很难快速回升。
 
-（完）责任编辑：宋雅芳
+这种谨慎状态既限制了追涨动力，也让低位承接更依赖数据面的配合，因此黄金短线大概率仍会维持反复波动。
+
+综合当前环境，Vatee万腾分析称若情绪指标与价格结构同步改善，贵金属才更有机会从防守姿态转向温和修复。
+
+责任编辑：陈平
 
 ## 相关推荐
 
-- 2026-06-29 21:28 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-29 21:50 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-29 21:24 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-29 21:50 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 21:52 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-29 21:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 21:39 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 21:31 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-29 21:38 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 21:26 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-29 21:51 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 21:40 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-29 21:43 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-29 21:43 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 21:51 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 21:39 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 21:58 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-29 21:53 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 21:41 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 21:43 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-29 21:58 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 21:49 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-29 21:44 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 21:39 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 21:31 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-29 21:44 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:40 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/3031633.shtml)
-- 2026-06-29 21:27 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.minike.top/Article/details/86739.shtml)
-- 2026-06-29 21:31 - [孙俪开QQ的蛮好生活](https://www.share.minike.top/Article/details/3891213923.shtml)
-- 2026-06-29 21:27 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/098586.shtml)
-- 2026-06-29 21:36 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/63367925823.shtml)
-- 2026-06-29 21:44 - [CORTIS登机迟到致航班延误](https://www.share.minike.top/Article/details/226098559.shtml)
-- 2026-06-29 21:34 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/02440696.shtml)
-- 2026-06-29 21:40 - [急先锋](https://www.blog.kurohicncr.top/Article/details/02237985635.shtml)
-- 2026-06-29 21:43 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/338532296388.shtml)
-- 2026-06-29 21:30 - [佛得角队长门德斯被控强奸](https://www.share.kurohicncr.top/Article/details/868940.shtml)
-- 2026-06-29 21:38 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/231089.shtml)
-- 2026-06-29 21:51 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/726482423480.shtml)
-- 2026-06-29 21:41 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/81852.shtml)
-- 2026-06-29 21:49 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/502582903429.shtml)
-- 2026-06-29 21:46 - [网约车出事故平台拒赔称只是中介](https://www.share.minike.top/Article/details/478964804665.shtml)
+- 2026-06-29 21:59 - [韩国800万亿韩元押注半导体](https://www.share.kurohicncr.top/Article/details/878710924084.shtml)
+- 2026-06-29 21:41 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/6716965654.shtml)
+- 2026-06-29 21:44 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/885651058.shtml)
+- 2026-06-29 21:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/4345077.shtml)
+- 2026-06-29 21:48 - [不烧钱的低成本爱好](http://www.blog.minike.top/Article/details/190382846.shtml)
+- 2026-06-29 21:45 - [多人将马路护栏当球网打羽毛球](https://www.share.minike.top/Article/details/9816166697.shtml)
+- 2026-06-29 21:44 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/160758016585.shtml)
+- 2026-06-29 21:39 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.kurohicncr.top/Article/details/11186.shtml)
+- 2026-06-29 21:32 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/5297499838.shtml)
+- 2026-06-29 21:36 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/6739730.shtml)
+- 2026-06-29 21:37 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/66658302.shtml)
+- 2026-06-29 21:45 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/5778548675.shtml)
+- 2026-06-29 21:56 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.blog.minike.top/Article/details/548142.shtml)
+- 2026-06-29 21:56 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/37998.shtml)
+- 2026-06-29 21:52 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/78507130.shtml)

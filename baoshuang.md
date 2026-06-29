@@ -1,61 +1,55 @@
-# 小区公共收益不能成为一笔“糊涂账”
+# 个别机构在中国发布苏丹大型工程项目信息 中使馆发布风险提示
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-电梯间电子屏上滚动播放的广告、小区道路上的临时车位、楼道角落的快递柜、小区外墙上的商业海报、车辆出入口闸机上的广告……几乎每个居民小区，这些随处可见的经营性场景，背后都对应着实实在在的收入。然而，这本该属于全体业主的“集体财富”，却在一些地方成了一笔算不清、查不明的“糊涂账”。(见6月15日《检察日报》)法律对公共收益的归属有着清晰界定。民法典明确规定，建设单位、物业服务企业或
+中新网6月15日电 据中国驻苏丹大使馆微信公众号消息，近期，中国驻苏丹使馆接到一些中国企业反映，个别机构在中国发布苏丹大型工程项目信息，组织项目招标。经审阅招标文件，驻苏丹使馆谨提示有关项目风险如下：1.有关招标文件未明确项目资金来源，对中标人要求严格，项目实施风险较大。 2.有关招标单位为非政府组织，不是项目业主，没有提供以往实施类似项目业绩证明。 3.苏丹自2023年以来持
 
 ## 正文
 
-电梯间电子屏上滚动播放的广告、小区道路上的临时车位、楼道角落的快递柜、小区外墙上的商业海报、车辆出入口闸机上的广告……几乎每个居民小区，这些随处可见的经营性场景，背后都对应着实实在在的收入。
+中新网6月15日电 据中国驻苏丹大使馆微信公众号消息，近期，中国驻苏丹使馆接到一些中国企业反映，个别机构在中国发布苏丹大型工程项目信息，组织项目招标。
 
-然而，这本该属于全体业主的“集体财富”，却在一些地方成了一笔算不清、查不明的“糊涂账”。
+经审阅招标文件，驻苏丹使馆谨提示有关项目风险如下：1.有关招标文件未明确项目资金来源，对中标人要求严格，项目实施风险较大。
 
-(见6月15日《检察日报》)法律对公共收益的归属有着清晰界定。
+2.有关招标单位为非政府组织，不是项目业主，没有提供以往实施类似项目业绩证明。
 
-民法典明确规定，建设单位、物业服务企业或者其他管理人等利用业主的共有部分产生的收入，在扣除合理成本后，属于业主共有。
+3.苏丹自2023年以来持续处于武装冲突状态，总体安全风险较高，基础设施遭受严重破坏，在苏丹开展工程建设难度较大。
 
-但现实往往充满“骨感”，部分物业公司未经业主授权，单方面将这笔钱用于填补物业费缺口或冲抵日常开支；有的物业虽然迫于压力进行公示，却刻意模糊账目，用一张简单的“收支平衡表”敷衍了事，甚至出现账面“零收益”的荒诞现象。
-
-公共收益之所以沦为“糊涂账”，症结在于权力失衡与监管缺位。
-
-一方面，这笔收益分摊到每户金额有限，虽有个别业主想过维权，但诉讼成本极高，导致“人人有责、人人不管”；另一方面，部分业委会运营不够专业，甚至出现监守自盗、与物业勾结分利的情况，使得业主自治的监督体系形同虚设。
-
-此外，一些地方主管部门对此未引起足够重视。
+在此，驻苏丹使馆再次提醒中国企业，应深入了解相关机构实际情况，务实研判项目机遇和实施风险，稳妥开展项目合作。
 
 ## 相关推荐
 
-- 2026-06-29 21:41 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 21:38 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 21:37 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-29 21:47 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 21:26 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-29 21:47 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-29 21:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-29 21:39 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 21:35 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-29 21:35 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-29 21:32 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-29 21:38 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 21:40 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 21:44 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-29 21:30 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-29 21:58 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 21:50 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 21:52 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 21:50 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-29 21:47 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 21:50 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-29 21:31 - [记者：预计热火将追求小哈达威和康利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 21:30 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-29 21:37 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 21:31 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-29 21:58 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-29 21:56 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 21:39 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-29 21:55 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-29 21:52 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:44 - [小龙女配音去世 李若彤发文悼念](http://www.share.minike.top/Article/details/23407.shtml)
-- 2026-06-29 21:35 - [律师解读滚石唱片要求万豪酒店道歉](http://www.share.minike.top/Article/details/29311593293.shtml)
-- 2026-06-29 21:38 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/317588901288.shtml)
-- 2026-06-29 21:35 - [恋与深空致歉](http://www.blog.minike.top/Article/details/021950061.shtml)
-- 2026-06-29 21:40 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/2364881.shtml)
-- 2026-06-29 21:53 - [宜宾地震已转移安置225人](https://www.share.kurohicncr.top/Article/details/388022295.shtml)
-- 2026-06-29 21:37 - [韩国800万亿韩元押注半导体](https://www.share.minike.top/Article/details/51185447006.shtml)
-- 2026-06-29 21:28 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/5895651098.shtml)
-- 2026-06-29 21:39 - [天道](http://www.share.minike.top/Article/details/047168.shtml)
-- 2026-06-29 21:37 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/691965604.shtml)
-- 2026-06-29 21:33 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/6075157295.shtml)
-- 2026-06-29 21:25 - [金刚川](https://www.blog.minike.top/Article/details/90761297.shtml)
-- 2026-06-29 21:46 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/03129.shtml)
-- 2026-06-29 21:54 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/68601529255.shtml)
-- 2026-06-29 21:35 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/27667.shtml)
+- 2026-06-29 21:49 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/505286433.shtml)
+- 2026-06-29 21:40 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/4660317165.shtml)
+- 2026-06-29 21:37 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/00625945.shtml)
+- 2026-06-29 21:37 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/427929827.shtml)
+- 2026-06-29 21:31 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/9976955.shtml)
+- 2026-06-29 21:32 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/734633.shtml)
+- 2026-06-29 21:37 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/05341451700.shtml)
+- 2026-06-29 21:36 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/32543.shtml)
+- 2026-06-29 21:35 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/54872676.shtml)
+- 2026-06-29 21:43 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/38162951.shtml)
+- 2026-06-29 21:42 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/66101.shtml)
+- 2026-06-29 21:34 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/125608383513.shtml)
+- 2026-06-29 21:42 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/93315.shtml)
+- 2026-06-29 21:42 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.minike.top/Article/details/3717473.shtml)
+- 2026-06-29 21:48 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/709601503453.shtml)

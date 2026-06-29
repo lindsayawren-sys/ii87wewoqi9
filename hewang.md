@@ -1,56 +1,56 @@
-# 酷狗音乐深度接入Sonos生态 拓展中国本土化服务
+# 首批26家金融机构！数币国际运营中心签约直接参与者服务协议
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-美国音响品牌Sonos（纳斯达克股票代码：SONO） 与中国领先的流媒体音乐平台酷狗音乐联合宣布达成里程碑式合作：酷狗音乐正式深度接入 Sonos 官方App。通过打破底层软硬件的生态壁垒，本次合作将酷狗音乐海量的正版曲库与前沿音频算法，与 Sonos 行业领先的家庭音响系统完美结合。双方将联手为中国用户带来更流畅、更便捷、更震撼的家庭智能聆听新体验。 听觉复兴：流媒体时代下的
+新京报贝壳财经讯（记者姜樊）6月16日，数字人民币国际运营中心与26家金融机构在沪签署直接参与者服务协议。上线后业务可覆盖中国香港、中国澳门、新加坡、老挝、泰国、阿联酋、卡塔尔、巴西等国家和地区。 据了解，“数币达”（Cross-border e-CNY Transfer Services，简称 CBETS）参与者可依托CBETS的系统能力为客户提供低成本、多元化和安全高效的跨
 
 ## 正文
 
-美国音响品牌Sonos（纳斯达克股票代码：SONO） 与中国领先的流媒体音乐平台酷狗音乐联合宣布达成里程碑式合作：酷狗音乐正式深度接入 Sonos 官方App。
+新京报贝壳财经讯（记者姜樊）6月16日，数字人民币国际运营中心与26家金融机构在沪签署直接参与者服务协议。
 
-通过打破底层软硬件的生态壁垒，本次合作将酷狗音乐海量的正版曲库与前沿音频算法，与 Sonos 行业领先的家庭音响系统完美结合。
+上线后业务可覆盖中国香港、中国澳门、新加坡、老挝、泰国、阿联酋、卡塔尔、巴西等国家和地区。
 
-双方将联手为中国用户带来更流畅、更便捷、更震撼的家庭智能聆听新体验。
+据了解，“数币达”（Cross-border e-CNY Transfer Services，简称 CBETS）参与者可依托CBETS的系统能力为客户提供低成本、多元化和安全高效的跨境数字支付服务，助力跨境贸易和投融资便利化与金融高水平对外开放。
 
-听觉复兴：流媒体时代下的全屋情感共振 在流媒体无处不在的时代，音乐触手可及，但“好声音”却成了稀缺品。
+未来，数字人民币国际运营中心将立足职能定位和上海的区位优势，继续推进参与者扩员和能力建设，不断提升国际化服务水平。
 
-如今的聆听者不再满足于佩戴耳机的“自我封闭”体验，而是愈发追求在居家场景中，通过高品质的家庭音响系统，与家人和朋友共享音乐带来的情感连接与生活美学。
+今年，随着数字人民币计量框架调整和基础设施体系整体架构升级，数字人民币跨境数字支付平台、区块链服务平台、数字资产平台等三大业务平台也随之升级为CBETS跨境结算综合服务平台，并启动品牌化运作。
 
-作为多房间全屋音响系统的开创者，Sonos 致力于让聆听变得简单，让用户无缝连接所喜爱的音乐、播客、电视与有声故事。
+据介绍，境外参与者可通过香港接入点一点接入，便捷开通多项业务。
 
-作为一个开放式平台，Sonos 赋予用户充分的自由选择权，支持多个流媒体服务，覆盖室内与户外聆听，并实现 WiFi 与蓝牙的完美协同。
+CBETS有两种合作模式：既支持与各货币当局支付系统/法定数字货币系统的跨境互联互通，便利当地机构不改变原有渠道，通过本地系统实现“一通百通”，也支持金融机构直接接入，直达7*24小时智能数字支付服务。
 
-在当今这个充斥着“设备孤立”和“强制升级”的市场环境中，Sonos 始终坚持“延续性”的发展哲学——通过持续的平台升级、不断扩展的兼容性以及跨世代产品的协同工作，构建起一个强大的生态。
+据介绍，CBETS具有三方面优势。
 
 ## 相关推荐
 
-- 2026-06-29 21:39 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-29 21:40 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 21:30 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 21:43 - [华工科技龙虎榜数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 21:43 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 21:52 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 21:38 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-29 21:47 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-29 21:24 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-29 21:51 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-29 21:56 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 21:51 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 21:32 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-29 21:58 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-29 21:59 - [世界杯高票价为何没劝退球迷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-29 21:42 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 21:50 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 21:58 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 21:45 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 21:44 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:52 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/9539289970.shtml)
-- 2026-06-29 21:51 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.kurohicncr.top/Article/details/8770217.shtml)
-- 2026-06-29 21:47 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/549241.shtml)
-- 2026-06-29 21:50 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/246654.shtml)
-- 2026-06-29 21:38 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/513706189775.shtml)
-- 2026-06-29 21:47 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/602756850709.shtml)
-- 2026-06-29 21:41 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/982521.shtml)
-- 2026-06-29 21:32 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/9757856928.shtml)
-- 2026-06-29 21:25 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/2594265.shtml)
-- 2026-06-29 21:42 - [英法德葡存在什么隐患](http://www.share.kurohicncr.top/Article/details/18750.shtml)
-- 2026-06-29 21:48 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/42953907324.shtml)
-- 2026-06-29 21:48 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/296007.shtml)
-- 2026-06-29 21:34 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/386227.shtml)
-- 2026-06-29 21:38 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/593704625.shtml)
-- 2026-06-29 21:47 - [恋与深空各大应用商店评分](https://www.share.kurohicncr.top/Article/details/46087731773.shtml)
+- 2026-06-29 21:53 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/500759135.shtml)
+- 2026-06-29 21:30 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/5911693216.shtml)
+- 2026-06-29 21:51 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/132985.shtml)
+- 2026-06-29 21:30 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/2025285.shtml)
+- 2026-06-29 21:51 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/084687717896.shtml)
+- 2026-06-29 21:46 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/5363309.shtml)
+- 2026-06-29 21:40 - [记者乘坐无人驾驶汽车去采访](http://www.share.kurohicncr.top/Article/details/84736841172.shtml)
+- 2026-06-29 21:39 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/48286919.shtml)
+- 2026-06-29 21:56 - [委内瑞拉发生余震](https://www.share.kurohicncr.top/Article/details/779203.shtml)
+- 2026-06-29 21:52 - [炽夏](http://www.blog.minike.top/Article/details/522057.shtml)
+- 2026-06-29 21:54 - [日美楼市危机复盘：见底顺序曝光](https://www.share.kurohicncr.top/Article/details/50402697.shtml)
+- 2026-06-29 21:44 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.minike.top/Article/details/46132974.shtml)
+- 2026-06-29 21:30 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/57218681999.shtml)
+- 2026-06-29 21:40 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/6644993725.shtml)
+- 2026-06-29 21:51 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/3634128774.shtml)

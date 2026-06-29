@@ -1,59 +1,56 @@
-# 长江有色：17日铸造铝期价收涨0.82% 端午前下游按需接货
+# 俄军证实对乌国防及军事设施发动大规模打击
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 上海期货价格走势：今日铸造铝合金主力月2608合约早盘冲高后略有回落，午后盘面维持偏强运行姿态；截止当日15：00收盘，铸造铝主力合约报23340元，涨190元，涨幅0.82%，全天成交量9359手增加1350手；持仓量17188手增加664手。 据长江有色金属网数据统计，6月17日长江现货数据显示，铝合金ADC12报价23800-24000元/吨，均价报239
+俄罗斯国防部当地时间15日称，俄军对基辅市、哈尔科夫市、第聂伯罗彼得罗夫斯克市的国防工业综合体设施，以及军用机场和征兵中心发动了大规模打击，作为对“基辅政权恐怖主义行为”的回应。俄军使用了远程高精度武器和攻击型无人机。打击已完成，预定目标均已命中。 乌克兰空军当日凌晨称，乌克兰多地有俄罗斯导弹和无人机来袭风险。乌克兰基辅市军事管理局局长特卡琴科称，截至当地时间15日清晨5时40
 
 ## 正文
 
-长江有色金属网 上海期货价格走势：今日铸造铝合金主力月2608合约早盘冲高后略有回落，午后盘面维持偏强运行姿态；截止当日15：00收盘，铸造铝主力合约报23340元，涨190元，涨幅0.82%，全天成交量9359手增加1350手；持仓量17188手增加664手。
+俄罗斯国防部当地时间15日称，俄军对基辅市、哈尔科夫市、第聂伯罗彼得罗夫斯克市的国防工业综合体设施，以及军用机场和征兵中心发动了大规模打击，作为对“基辅政权恐怖主义行为”的回应。
 
-据长江有色金属网数据统计，6月17日长江现货数据显示，铝合金ADC12报价23800-24000元/吨，均价报23900元/吨，涨100元；铸造铝合金锭（A356.2）报价24200-24600元/吨，均价报24400元/吨，涨100元；铸造铝合金锭（A380）报价25900-26100元/吨，均价报26000元/吨，涨100元；铸造铝合金锭（ZL102）报价24200-24400元/吨，均价报24300元/吨，涨100元；铸造铝合金锭（ZLD104）报价24200-24400元/吨，均价报24300元/吨，涨100元； ccmn铸造铝合金市场分析： 宏观层面，美伊14点谅解备忘录曝光——永久停火、60天内核谈、霍尔木兹本周重开、伊朗可售油并获金融/航运服务（条件含销毁浓缩材料、不干涉海峡等），双方确认周五瑞士正式签。
+俄军使用了远程高精度武器和攻击型无人机。
 
-短期内地缘紧张显著缓和，美元指数继续回落、风险偏好改善，提振金属板块。
+打击已完成，预定目标均已命中。
 
-市场焦点转本周三美联储议息（沃什首秀），普遍预期维持3.50%-3.75%不变，CME FedWatch显示12月加息隐含概率降至约60%，声明是否删宽松倾向及沃什发布会是关键。
+乌克兰空军当日凌晨称，乌克兰多地有俄罗斯导弹和无人机来袭风险。
 
-产业基本面维持“强成本、弱需求”博弈格局。
+乌克兰基辅市军事管理局局长特卡琴科称，截至当地时间15日清晨5时40分，袭击导致基辅市4人死亡、23人受伤。
 
-供应端：“反向开票”政策趋严致使合规废铝进项发票枯竭，湖北、安徽、江西多地再生铝企业因无法合规抵扣被动降负或暂停收料，精废价差持续低位，再生铝成本线有实质性支撑。
-
-需求端：进入传统淡季，下游压铸企业新增订单有限，汽车及3C电子表现一般，合金锭社会库存进入季节性累积通道，供应端压力边际显现；但中汽协5月新能源车产销同比+22.4%/+14.4%、渗透率56.9%，汽车轻量化用铝提供中长线增量预期，继续为压铸铝提供消费韧性。
-
-现货市场，ADC12价格高位走强，持货商挺价意愿不改；端午前下游按需接货，部分贸易商追涨补库，带动成交环比有所好转但仍属温和。
+(总台记者 郝薇)
 
 ## 相关推荐
 
-- 2026-06-29 21:50 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 21:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-29 21:42 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-29 21:46 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-29 21:49 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 21:32 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-29 21:40 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-29 21:28 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-29 21:33 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 21:44 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-29 21:35 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 21:39 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 21:48 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-29 21:30 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 21:54 - [宜宾地震已转移安置225人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 21:40 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 21:54 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-29 21:38 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 21:44 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-29 21:46 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-29 21:42 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-29 21:30 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 21:40 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-29 21:56 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-29 21:42 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 21:46 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-29 21:33 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:32 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.blog.kurohicncr.top/Article/details/856570.shtml)
-- 2026-06-29 21:28 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/78238.shtml)
-- 2026-06-29 21:35 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/486028986496.shtml)
-- 2026-06-29 21:42 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/1391991.shtml)
-- 2026-06-29 21:40 - [一汽大众黄金超混技术来袭](http://www.blog.minike.top/Article/details/33521821.shtml)
-- 2026-06-29 21:37 - [华工科技龙虎榜数据](http://www.blog.minike.top/Article/details/060507602.shtml)
-- 2026-06-29 21:24 - [美人鱼](https://www.share.minike.top/Article/details/1633236.shtml)
-- 2026-06-29 21:33 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/29136669420.shtml)
-- 2026-06-29 21:52 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/557129.shtml)
-- 2026-06-29 21:42 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/857826422936.shtml)
-- 2026-06-29 21:31 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/91528466169.shtml)
-- 2026-06-29 21:53 - [委内瑞拉发生余震](http://www.blog.minike.top/Article/details/29343.shtml)
-- 2026-06-29 21:44 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/0940595.shtml)
-- 2026-06-29 21:25 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/99252650.shtml)
-- 2026-06-29 21:25 - [蓝箭航天科创板IPO审核状态为已问询](http://www.blog.minike.top/Article/details/776557911.shtml)
+- 2026-06-29 21:50 - [多人将马路护栏当球网打羽毛球](http://www.blog.minike.top/Article/details/9132245642.shtml)
+- 2026-06-29 21:48 - [时光音乐会](https://www.share.minike.top/Article/details/26039448818.shtml)
+- 2026-06-29 21:44 - [哈兰德玩游戏连女友都不让着](http://www.share.kurohicncr.top/Article/details/90574263514.shtml)
+- 2026-06-29 21:40 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/624526033449.shtml)
+- 2026-06-29 21:46 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/209062084409.shtml)
+- 2026-06-29 21:49 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/02858460.shtml)
+- 2026-06-29 21:59 - [欧洲缘何成为变暖最快的大洲](https://www.blog.minike.top/Article/details/130585.shtml)
+- 2026-06-29 21:50 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/615016556668.shtml)
+- 2026-06-29 21:51 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/84907.shtml)
+- 2026-06-29 21:40 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/934226321.shtml)
+- 2026-06-29 21:50 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/294319.shtml)
+- 2026-06-29 21:59 - [广东水利防汛Ⅳ级应急响应结束](https://www.blog.kurohicncr.top/Article/details/491828.shtml)
+- 2026-06-29 21:38 - [欧洲缘何成为变暖最快的大洲](https://www.blog.minike.top/Article/details/281900900641.shtml)
+- 2026-06-29 21:51 - [郑钦文谈再战西尼亚科娃](http://www.blog.kurohicncr.top/Article/details/191426.shtml)
+- 2026-06-29 21:52 - [爱奇艺抬高国剧新标尺](http://www.share.minike.top/Article/details/78430615227.shtml)

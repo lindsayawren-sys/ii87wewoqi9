@@ -1,59 +1,59 @@
-# 吴清点名的公募基金三大顽疾，这些基金都“中招”了
+# 武科大2026年71个本科专业招生 其中新增6个
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-来源：金观社 在近期一次基调鲜明的讲话中，中国证监会主席吴清直指公募基金行业三大顽疾——“赛道赌押”“风格漂移”“高位发行”，并警告“坚决遏制回到赚快钱的老路”。 对此，金观社从整个基金市场观察，发现部分基金是“赛道赌押”“风格漂移”“高位发行”的典型。 比如，德邦稳盈增长以“稳盈”为名，实则90%仓位押注AI赛道，百亿申购涌入后单季亏损超21亿元，基金管理人被责令整改。 方正
+中新网武汉6月15日电 (李玉飞)武汉科技大学近日发布，该校2026年本科招生专业共71个，其中新增低空技术与工程、网络空间安全、集成电路设计与集成系统、大数据管理与应用、功能材料、合成生物学6个招生专业。据介绍，新专业面向科技前沿和未来产业，精准对接国家战略需求、区域经济社会发展，聚焦国家网络空间安全、新一代信息技术、新材料产业发展和湖北低空经济示范区建设等，深度融合多学科知
 
 ## 正文
 
-来源：金观社 在近期一次基调鲜明的讲话中，中国证监会主席吴清直指公募基金行业三大顽疾——“赛道赌押”“风格漂移”“高位发行”，并警告“坚决遏制回到赚快钱的老路”。
+中新网武汉6月15日电 (李玉飞)武汉科技大学近日发布，该校2026年本科招生专业共71个，其中新增低空技术与工程、网络空间安全、集成电路设计与集成系统、大数据管理与应用、功能材料、合成生物学6个招生专业。
 
-对此，金观社从整个基金市场观察，发现部分基金是“赛道赌押”“风格漂移”“高位发行”的典型。
+据介绍，新专业面向科技前沿和未来产业，精准对接国家战略需求、区域经济社会发展，聚焦国家网络空间安全、新一代信息技术、新材料产业发展和湖北低空经济示范区建设等，深度融合多学科知识，具有学科交叉的鲜明特征，旨在培育适应新质生产力发展的复合型人才。
 
-比如，德邦稳盈增长以“稳盈”为名，实则90%仓位押注AI赛道，百亿申购涌入后单季亏损超21亿元，基金管理人被责令整改。
+低空经济是战略性新兴产业。
 
-方正富邦信泓从228万元迷你基金起步，孤注一掷人形机器人赛道，一年暴涨99%后规模飙至近10亿，随后暴跌22%，机构持有始终为零。
+2025年，该校已设置低空技术与工程交叉学科博士、硕士学位授权点，加上今年新增低空技术与工程本科专业，形成完整的低空技术与工程本硕博人才培养体系。
 
-财通资管消费精选白纸黑字承诺投资消费行业，前十大重仓股却无一只消费成分股，换手率高达1333%，彻底沦为“科技基”。
+武科大加强交叉复合型人才培养，“十四五”期间获批数智材料、数智冶金、智慧物流、智联化工、资源智能提取5个省级双学士学位项目，获批总数为湖北高校第一，还开发“数智+”“绿色+”等系列微专业项目21个，建立主专业、辅修专业、微专业和双学士学位项目的协同人才培养体系。
 
-财通福鑫定开混合近一年收益近500%，却因封闭期场内溢价逼近30%，密集发布13份风险提示仍难挡投机热潮。
+该校本科生院院长陈东方介绍，“十四五”期间，武科大面向国家战略急需、湖北支点建设，加快专业“瘦身扩容”，专业调整比例超37%，不断提升人才培养与社会需求的适配度，学校90%以上的专业与湖北“51020”产业集群深度对接，毕业生就业稳居湖北高校前列。
 
-话音未落，中国证券投资基金业协会于6月12日发布《主题投资风格管理指引》，加上此前已施行的《业绩比较基准指引》，监管层正以“讲话定调+基准约束+风格管理+绩效考核”的制度闭环。
-
-推动行业回归“受人之托、代客理财”的本源。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 21:35 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-29 21:39 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 21:53 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-29 21:43 - [济南航空航天全面起势](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-29 21:26 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 21:48 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 21:29 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-29 21:48 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-29 21:46 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 21:53 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-29 21:31 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-29 21:34 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-29 21:39 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-29 21:59 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-29 21:36 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 21:48 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-29 21:40 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 21:59 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 21:36 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-29 21:49 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-29 21:32 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 21:42 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 21:54 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-29 21:58 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 21:53 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 21:43 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-29 21:40 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 21:52 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:43 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/61138617047.shtml)
-- 2026-06-29 21:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/1588964298.shtml)
-- 2026-06-29 21:34 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.kurohicncr.top/Article/details/78979423.shtml)
-- 2026-06-29 21:48 - [送你一朵小红花](http://www.blog.minike.top/Article/details/2930641.shtml)
-- 2026-06-29 21:32 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/862791183774.shtml)
-- 2026-06-29 21:26 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/831838.shtml)
-- 2026-06-29 21:41 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/242225762.shtml)
-- 2026-06-29 21:26 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/04265793090.shtml)
-- 2026-06-29 21:39 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/60538.shtml)
-- 2026-06-29 21:48 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/7967231826.shtml)
-- 2026-06-29 21:25 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/9236278.shtml)
-- 2026-06-29 21:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/4864595.shtml)
-- 2026-06-29 21:48 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/29732198.shtml)
-- 2026-06-29 21:26 - [韩国队主帅遭极端网友死亡威胁](http://www.share.kurohicncr.top/Article/details/31658388662.shtml)
-- 2026-06-29 21:35 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/6875271475.shtml)
+- 2026-06-29 21:35 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/4397062249.shtml)
+- 2026-06-29 21:33 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/595567.shtml)
+- 2026-06-29 21:34 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.minike.top/Article/details/9939524221.shtml)
+- 2026-06-29 21:45 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/079334.shtml)
+- 2026-06-29 21:52 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/56734378728.shtml)
+- 2026-06-29 21:50 - [啊啊啊](https://www.share.minike.top/Article/details/016006612687.shtml)
+- 2026-06-29 21:34 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/713643073484.shtml)
+- 2026-06-29 21:56 - [记者：预计热火将追求小哈达威和康利](http://www.share.kurohicncr.top/Article/details/77867.shtml)
+- 2026-06-29 21:35 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/11761040364.shtml)
+- 2026-06-29 21:44 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/90947081484.shtml)
+- 2026-06-29 21:33 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/20376384.shtml)
+- 2026-06-29 21:39 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/123340914507.shtml)
+- 2026-06-29 21:54 - [巴黎区长紧急采购50台中国空调](http://www.share.kurohicncr.top/Article/details/88177.shtml)
+- 2026-06-29 21:34 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/069145.shtml)
+- 2026-06-29 21:38 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/51172793276.shtml)

@@ -1,61 +1,56 @@
-# 算力硬件走强！创业板人工智能ETF（159363）再涨1%强势三连阳！第四大权重股发力，江波龙涨超7%
+# SpaceX IPO将为硅谷新阶层创造数十亿美元财富
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-6月17日盘中，存储芯片发力，光模块活跃，创业板人工智能低开高走。其中，协创数据领涨超11%，江波龙涨超7%，北京君正涨超5%。此外，新易盛、中际旭创、天孚通信等光模块龙头等均飘红。 热门ETF方面，同类规模、流动性第一的创业板人工智能ETF华宝（159363）场内再涨近1%，日线三连阳，资金近五日累计净申购2.5亿元。 算力硬件方面，摩根表示，AI领域仍可持续发掘具备确定性的
+专题：SpaceX上市首秀：创纪录IPO首日涨19% 市值美股第七 SpaceX进行的首次公开募股（IPO），有望为那些早期投资埃隆·马斯克旗下这家火箭、卫星和人工智能公司的极少数幸运投资者带来数十亿美元的利润。 但除了这场具有历史意义的财富事件之外，这笔巨额交易也在重塑市场对庞大资本网络的预期——这个由初创企业、风险投资基金和高净值投机者构成的网络主导着未上市科技股的私募市场
 
 ## 正文
 
-6月17日盘中，存储芯片发力，光模块活跃，创业板人工智能低开高走。
+专题：SpaceX上市首秀：创纪录IPO首日涨19% 市值美股第七 SpaceX进行的首次公开募股（IPO），有望为那些早期投资埃隆·马斯克旗下这家火箭、卫星和人工智能公司的极少数幸运投资者带来数十亿美元的利润。
 
-其中，协创数据领涨超11%，江波龙涨超7%，北京君正涨超5%。
+但除了这场具有历史意义的财富事件之外，这笔巨额交易也在重塑市场对庞大资本网络的预期——这个由初创企业、风险投资基金和高净值投机者构成的网络主导着未上市科技股的私募市场——以及市场对此后每次重大首次公开募股的期望。
 
-此外，新易盛、中际旭创、天孚通信等光模块龙头等均飘红。
+尤其是华尔街将试图评估人工智能开发商OpenAI和Anthropic即将进行的重磅IPO将获得怎样的市场反响。
 
-热门ETF方面，同类规模、流动性第一的创业板人工智能ETF华宝（159363）场内再涨近1%，日线三连阳，资金近五日累计净申购2.5亿元。
+这三家公司构成的IPO队列，最终可能为公开市场带来高达3.6万亿美元的市值。
 
-算力硬件方面，摩根表示，AI领域仍可持续发掘具备确定性的成长机会，算力硬件景气度和业绩增速有望领先全市场，重点聚焦光模块、PCB、液冷和算力租赁等环节。
+目前华尔街正在热烈讨论：市场是否拥有足够的资金需求来消化如此大规模的新股发行，同时又不会从多年来引领市场走高的科技巨头分流资金。
 
-国金证券也认为，AI需求强劲，存储涨价趋势有望持续。
+SpaceX以约1.8万亿美元的估值筹集750亿美元资金，成为了华尔街有史以来规模最大的IPO，使其跻身全球十大上市公司之列，市值甚至超过马斯克旗下的电动汽车制造商特斯拉公司。
 
-AI短期、中期的需求都非常强劲，研判AI算力硬件核心公司二三季度业绩环比有望加速，建议关注业绩有望超预期方向。
+据悉，此次发行已出现超额认购，多家机构投资者认购100亿美元或以上的该公司股票。
 
-此外，6月15日起，创业板人工智能指数调仓信息显示，本次“纳新”直指高景气赛道：存储龙头江波龙强势入列，最新权重占比达6.73%，为指数第四大权重股。
+据知情人士透露，此次发行还吸引了超过1000亿美元的散户投资者认购订单。
 
 ## 相关推荐
 
-- 2026-06-29 21:52 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-29 21:47 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-29 21:38 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-29 21:38 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-29 21:48 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-29 21:42 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-29 21:46 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 21:38 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-29 21:36 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-29 21:52 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-29 21:33 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-29 21:38 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-29 21:27 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-29 21:35 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-29 21:42 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-29 21:52 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 21:37 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 21:52 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 21:40 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-29 21:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 21:30 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-29 21:46 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 21:32 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-29 21:36 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-29 21:46 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:43 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/6089093.shtml)
-- 2026-06-29 21:37 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.minike.top/Article/details/87845396740.shtml)
-- 2026-06-29 21:40 - [英法德葡存在什么隐患](http://www.blog.minike.top/Article/details/41684796448.shtml)
-- 2026-06-29 21:38 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/602606891.shtml)
-- 2026-06-29 21:52 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/7841328817.shtml)
-- 2026-06-29 21:31 - [小龙女配音去世 李若彤发文悼念](http://www.blog.kurohicncr.top/Article/details/906272.shtml)
-- 2026-06-29 21:35 - [朱雀三号完成静态点火试验](https://www.share.kurohicncr.top/Article/details/545889456101.shtml)
-- 2026-06-29 21:37 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/6493954.shtml)
-- 2026-06-29 21:46 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/1263066938.shtml)
-- 2026-06-29 21:36 - [曝iPhone涨价后不会再降](https://www.blog.minike.top/Article/details/25759350873.shtml)
-- 2026-06-29 21:46 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/9003900.shtml)
-- 2026-06-29 21:40 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/36681022092.shtml)
-- 2026-06-29 21:26 - [吴建豪和老婆差20岁](http://www.share.kurohicncr.top/Article/details/1670828.shtml)
-- 2026-06-29 21:52 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/7105608.shtml)
-- 2026-06-29 21:48 - [马光远谈马斯克最大的价值](https://www.share.kurohicncr.top/Article/details/829755.shtml)
+- 2026-06-29 21:56 - [郑钦文谈再战西尼亚科娃](https://www.share.kurohicncr.top/Article/details/33384.shtml)
+- 2026-06-29 21:53 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/31163367.shtml)
+- 2026-06-29 21:35 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/82129312737.shtml)
+- 2026-06-29 21:39 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.kurohicncr.top/Article/details/28096494.shtml)
+- 2026-06-29 21:39 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/767405.shtml)
+- 2026-06-29 21:30 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/0134168.shtml)
+- 2026-06-29 21:33 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/715317.shtml)
+- 2026-06-29 21:36 - [一诺变着花样秀新驾照](https://www.blog.minike.top/Article/details/795704.shtml)
+- 2026-06-29 21:50 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/8573784213.shtml)
+- 2026-06-29 21:55 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/5043539367.shtml)
+- 2026-06-29 21:59 - [恋与深空7天掉粉超50万](http://www.share.minike.top/Article/details/866580.shtml)
+- 2026-06-29 21:47 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/565119639.shtml)
+- 2026-06-29 21:37 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/183855965.shtml)
+- 2026-06-29 21:58 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/481521616925.shtml)
+- 2026-06-29 21:42 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/09975088109.shtml)

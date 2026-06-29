@@ -1,58 +1,48 @@
-# 广西发放超千万元消费券促东盟水果热销
+# 固生堂获睿远基金增持20万股 每股作价约27.75港元
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-中新社南宁6月16日电 (俞靖)6月16日，由广西壮族自治区商务厅牵头推出的“东盟水果汇聚广西”政府专享消费券上线京东平台，中国(港澳台地区除外)消费者搜索“东盟水果消费券”等关键词，均可参与领券，采购东盟以及广西优质水果等生鲜好物。此举旨在深化中国与东盟农产品贸易合作，拓宽东盟水果等优质农产品销路。此次消费券发布活动将投放超1000万元人民币东盟水果专属消费券，活动周期贯穿6
+香港联交所最新资料显示，6月10日，睿远基金增持固生堂（02273）20万股，每股作价27.7475港元，总金额为554.95万港元。增持后最新持股数目为2350.71万股，最新持股比例为10.03%。责任编辑：卢昱君
 
 ## 正文
 
-中新社南宁6月16日电 (俞靖)6月16日，由广西壮族自治区商务厅牵头推出的“东盟水果汇聚广西”政府专享消费券上线京东平台，中国(港澳台地区除外)消费者搜索“东盟水果消费券”等关键词，均可参与领券，采购东盟以及广西优质水果等生鲜好物。
+香港联交所最新资料显示，6月10日，睿远基金增持固生堂（02273）20万股，每股作价27.7475港元，总金额为554.95万港元。
 
-此举旨在深化中国与东盟农产品贸易合作，拓宽东盟水果等优质农产品销路。
+增持后最新持股数目为2350.71万股，最新持股比例为10.03%。
 
-此次消费券发布活动将投放超1000万元人民币东盟水果专属消费券，活动周期贯穿6月至9月，结合618“东盟水果汇聚广西”活动、暑期消费、中秋国庆假期等节点分批次投放，形成长期连贯的促销节奏。
-
-广西商务厅介绍，广西作为中国唯一与东盟陆海相连的省份，是东盟水果进入中国的首站枢纽。
-
-广西通过“政府引导+平台赋能”的模式发放消费券，扩大东盟水果在中国的消费市场，助力广西本地生鲜产业拓宽销路。
-
-目前，广西依托东盟水果集散枢纽区位优势，持续完善跨境生鲜供应链体系，搭建起高效数字化通道，形成可复制、可推广的跨境农产品电商促消费样板，真正实现“东盟果品入华、桂品行销全国”的双向流通。
-
-据悉，前述专享消费券发布是2026年“共享大市场·出口中国”——“东盟水果汇聚广西”活动的重要组成部分。
-
-广西正借多项活动造势，增强“东盟出产+广西集散+中国畅销”的品牌效应。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 21:36 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 21:31 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-29 21:34 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 21:42 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-29 21:34 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 21:38 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 21:47 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 21:25 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-29 21:29 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-29 21:27 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-29 21:35 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-29 21:51 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-29 21:42 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-29 21:58 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 21:33 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 21:43 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-29 21:37 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-29 21:57 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-29 21:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-29 21:44 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-29 21:55 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-29 21:46 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 21:36 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 21:57 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:36 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/361733.shtml)
-- 2026-06-29 21:31 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/54451160261.shtml)
-- 2026-06-29 21:51 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/404461410.shtml)
-- 2026-06-29 21:31 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/332630282.shtml)
-- 2026-06-29 21:40 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/832346394.shtml)
-- 2026-06-29 21:35 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/92742283525.shtml)
-- 2026-06-29 21:30 - [LPL第三赛段赛制公布](http://www.blog.minike.top/Article/details/51487438527.shtml)
-- 2026-06-29 21:44 - [记者暗访养老机构消防安全](https://www.share.kurohicncr.top/Article/details/285841565.shtml)
-- 2026-06-29 21:41 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/94776.shtml)
-- 2026-06-29 21:25 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/626874.shtml)
-- 2026-06-29 21:30 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/79685717491.shtml)
-- 2026-06-29 21:37 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/380696.shtml)
-- 2026-06-29 21:30 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/4453266390.shtml)
-- 2026-06-29 21:48 - [小龙女配音去世 李若彤发文悼念](http://www.share.kurohicncr.top/Article/details/01671610643.shtml)
-- 2026-06-29 21:26 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/4371036816.shtml)
+- 2026-06-29 21:31 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/93444638.shtml)
+- 2026-06-29 21:33 - [王鸿薇要求删陆委会百余万特别费](http://www.blog.minike.top/Article/details/32377096244.shtml)
+- 2026-06-29 21:42 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/2091886923.shtml)
+- 2026-06-29 21:52 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/46671406066.shtml)
+- 2026-06-29 21:51 - [乌克兰发广告全球征兵](http://www.blog.minike.top/Article/details/011497.shtml)
+- 2026-06-29 21:42 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/512259870567.shtml)
+- 2026-06-29 21:56 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/1447956.shtml)
+- 2026-06-29 21:51 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/65068.shtml)
+- 2026-06-29 21:39 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/91907.shtml)
+- 2026-06-29 21:42 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/109056.shtml)
+- 2026-06-29 21:37 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/958359.shtml)
+- 2026-06-29 21:44 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/055089.shtml)
+- 2026-06-29 21:38 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/75607.shtml)
+- 2026-06-29 21:53 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/307294633.shtml)
+- 2026-06-29 21:40 - [小娘惹](http://www.share.minike.top/Article/details/3290122039.shtml)

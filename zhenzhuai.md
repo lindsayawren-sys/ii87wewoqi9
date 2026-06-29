@@ -1,59 +1,52 @@
-# 美国股市：美伊临时协议提振风险偏好 纳斯达克100指数大涨3.1%
+# 马士基表示现在判断伊朗协议将如何影响物流还为时尚早
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-美国主要股指上涨，此前美国和伊朗同意达成临时协议以重开霍尔木兹海峡，此举推动油价下跌，并在美联储主席凯文·沃什本周首次主持货币政策会议前缓解了市场对通胀的担忧。SpaceX股价上涨20%，进一步提振市场风险偏好。 以科技股为主的纳斯达克100指数上涨3.1%，标普500指数上涨1.7%。 费城半导体指数上涨5.4%，触及纪录高点。 芯片股和人工智能概念股普遍走高，美光科技上涨1
+马士基表示，现在评估美伊临时和平协议将如何影响中东地区物流和海运业务仍为时过早。 这家丹麦物流公司表示，“现阶段，我们在该地区的运营安排没有任何变化”。 马士基发言人在通过电子邮件回复提问时表示，“协议的宣布是一个值得欢迎且积极的发展，但目前公开披露的细节仍然有限”。责任编辑：李安桐
 
 ## 正文
 
-美国主要股指上涨，此前美国和伊朗同意达成临时协议以重开霍尔木兹海峡，此举推动油价下跌，并在美联储主席凯文·沃什本周首次主持货币政策会议前缓解了市场对通胀的担忧。
+马士基表示，现在评估美伊临时和平协议将如何影响中东地区物流和海运业务仍为时过早。
 
-SpaceX股价上涨20%，进一步提振市场风险偏好。
+这家丹麦物流公司表示，“现阶段，我们在该地区的运营安排没有任何变化”。
 
-以科技股为主的纳斯达克100指数上涨3.1%，标普500指数上涨1.7%。
+马士基发言人在通过电子邮件回复提问时表示，“协议的宣布是一个值得欢迎且积极的发展，但目前公开披露的细节仍然有限”。
 
-费城半导体指数上涨5.4%，触及纪录高点。
-
-芯片股和人工智能概念股普遍走高，美光科技上涨11%，闪迪上涨6.5%。
-
-美国和伊朗官员定于6月19日在瑞士正式签署协议。
-
-双方尚未公布协议文本，预计最棘手的问题将留待后续阶段处理。
-
-RBC美国股票策略研究主管Lori Calvasina周一在报告中写道，“在接下来的几周里，我们将密切关注外界对美联储、利率和通胀预期的调整情况”，因为股市估值泡沫有所消退，但谈不上特别有吸引力。
+责任编辑：李安桐
 
 ## 相关推荐
 
-- 2026-06-29 21:44 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-29 21:34 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 21:33 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 21:33 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-29 21:40 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 21:25 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-29 21:53 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 21:52 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-29 21:50 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-29 21:39 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 21:52 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-29 21:44 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 21:51 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 21:57 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-29 21:54 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-29 21:40 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 21:32 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-29 21:30 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 21:49 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-29 21:39 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-29 21:42 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 21:30 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 21:39 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 21:31 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 21:53 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-29 21:37 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-29 21:55 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:53 - [我和我的家乡](http://www.blog.minike.top/Article/details/2758188796.shtml)
-- 2026-06-29 21:47 - [世界杯高票价为何没劝退球迷](http://www.blog.kurohicncr.top/Article/details/20744.shtml)
-- 2026-06-29 21:45 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/4245898.shtml)
-- 2026-06-29 21:43 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/2670027.shtml)
-- 2026-06-29 21:44 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.minike.top/Article/details/7913772870.shtml)
-- 2026-06-29 21:42 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/26650577.shtml)
-- 2026-06-29 21:41 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/447123.shtml)
-- 2026-06-29 21:53 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/127970846.shtml)
-- 2026-06-29 21:52 - [欧洲安装一台空调要花近8000元](http://www.blog.kurohicncr.top/Article/details/73101.shtml)
-- 2026-06-29 21:36 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/494275.shtml)
-- 2026-06-29 21:36 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/2464650105.shtml)
-- 2026-06-29 21:54 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/00087.shtml)
-- 2026-06-29 21:33 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/778575105.shtml)
-- 2026-06-29 21:38 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/80108.shtml)
-- 2026-06-29 21:25 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/58204.shtml)
+- 2026-06-29 21:43 - [85花告别古偶](http://www.share.minike.top/Article/details/81429571380.shtml)
+- 2026-06-29 21:55 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/6060082.shtml)
+- 2026-06-29 21:49 - [《恋与深空》回应争议](http://www.blog.minike.top/Article/details/944499224064.shtml)
+- 2026-06-29 21:36 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/3378087879.shtml)
+- 2026-06-29 21:58 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/247229.shtml)
+- 2026-06-29 21:35 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/96951814.shtml)
+- 2026-06-29 21:45 - [扫黑风暴](https://www.share.minike.top/Article/details/2700953.shtml)
+- 2026-06-29 21:45 - [高考1357分的同学如何报志愿？](https://www.blog.minike.top/Article/details/8688439.shtml)
+- 2026-06-29 21:41 - [中国小将严子怡再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/1255322731.shtml)
+- 2026-06-29 21:55 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/7638547.shtml)
+- 2026-06-29 21:53 - [乌是否掌握了扭转战局的钥匙](https://www.share.kurohicncr.top/Article/details/4320211.shtml)
+- 2026-06-29 21:52 - [记者乘坐无人驾驶汽车去采访](http://www.blog.kurohicncr.top/Article/details/9504927.shtml)
+- 2026-06-29 21:41 - [温网](https://www.share.minike.top/Article/details/0859802728.shtml)
+- 2026-06-29 21:48 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/931419657.shtml)
+- 2026-06-29 21:39 - [东宫女主是不是顶级恋爱脑](https://www.share.minike.top/Article/details/882691.shtml)

@@ -1,51 +1,58 @@
-# 潘功胜：将授权工行、农行等6家银行利用中国外汇交易中心平台在上海自贸区开展离岸人民币外汇交易
+# 英国将禁止16岁以下未成年人使用社交媒体
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 中国人民银行行长潘功胜17日上午在2026陆家嘴论坛上表示，将授权工行、农行、中行、建行、交行、中信等6家银行，利用中国外汇交易中心平台在上海自贸区开展离岸人民币外汇交易。将根据试点情况，进一步推动离岸人民币外汇交易市场发展。 责任编辑：郭建
+核心要点 全球各国政府当下都面临加强未成年人网络安全保护的巨大舆论压力，英国首相基尔・斯塔默周一正式宣布新规：全面禁止社交媒体平台为 16 岁以下人群提供服务。 禁令覆盖色拉布、抖音海外版、油管、照片墙、脸书、X（原推特）等主流平台。首批配套监管条例最快将于 2027 年春季正式落地实施。 英国计划参考澳大利亚去年年底出台的里程碑式未成年人网络立法，但管控标准更为严苛，针对各类
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 中国人民银行行长潘功胜17日上午在2026陆家嘴论坛上表示，将授权工行、农行、中行、建行、交行、中信等6家银行，利用中国外汇交易中心平台在上海自贸区开展离岸人民币外汇交易。
+核心要点 全球各国政府当下都面临加强未成年人网络安全保护的巨大舆论压力，英国首相基尔・斯塔默周一正式宣布新规：全面禁止社交媒体平台为 16 岁以下人群提供服务。
 
-将根据试点情况，进一步推动离岸人民币外汇交易市场发展。
+禁令覆盖色拉布、抖音海外版、油管、照片墙、脸书、X（原推特）等主流平台。
 
-责任编辑：郭建
+首批配套监管条例最快将于 2027 年春季正式落地实施。
+
+英国计划参考澳大利亚去年年底出台的里程碑式未成年人网络立法，但管控标准更为严苛，针对各类极易伤害青少年的平台功能增设多重限制。
+
+具体限制规则包括：禁止 16 岁以下用户开启直播、禁止与陌生网友私信交流；针对 16 至 17 岁青少年，系统将默认开启同等防护机制。
+
+英国政府还在研究夜间限时使用制度，以及限制青少年无限制下滑刷视频的相关管控手段。
+
+斯塔默发布官方声明称：“我们出台 16 岁以下人群社交媒体禁令，并配套全方位防护措施，管控力度超越全球所有国家，只为还给孩子们完整的童年。
+
+” 斯塔默在新闻发布会上表示，社交媒体容易让青少年产生负面情绪，且产品设计本身带有成瘾性，出台这项政策他经过了慎重考量。
 
 ## 相关推荐
 
-- 2026-06-29 21:45 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 21:47 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 21:50 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 21:27 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 21:30 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-29 21:53 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-29 21:35 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-29 21:26 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 21:33 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-29 21:29 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-29 21:53 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 21:51 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-29 21:25 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-29 21:52 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-29 21:28 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 21:55 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-29 21:57 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 21:45 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-29 21:47 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-29 21:34 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 21:43 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 21:43 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-29 21:44 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 21:34 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 21:54 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-29 21:44 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 21:39 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:30 - [媒体评恋与深空用“引狼入室”台词](http://www.share.minike.top/Article/details/022989456605.shtml)
-- 2026-06-29 21:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/9968658.shtml)
-- 2026-06-29 21:46 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/0296048.shtml)
-- 2026-06-29 21:41 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/943778050938.shtml)
-- 2026-06-29 21:49 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/920237233935.shtml)
-- 2026-06-29 21:34 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/51769.shtml)
-- 2026-06-29 21:28 - [半导体和股市为何没让韩国人起飞](http://www.blog.minike.top/Article/details/863297881726.shtml)
-- 2026-06-29 21:36 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/838427665731.shtml)
-- 2026-06-29 21:33 - [网约车出事故平台拒赔称只是中介](http://www.share.kurohicncr.top/Article/details/922868.shtml)
-- 2026-06-29 21:48 - [王安宇聪明到导演组炸了](http://www.share.kurohicncr.top/Article/details/76727.shtml)
-- 2026-06-29 21:24 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.blog.kurohicncr.top/Article/details/058552202.shtml)
-- 2026-06-29 21:34 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/2166812.shtml)
-- 2026-06-29 21:24 - [Ella回应SHE何时合体](https://www.share.minike.top/Article/details/7937739919.shtml)
-- 2026-06-29 21:39 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/7944237.shtml)
-- 2026-06-29 21:28 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/7836999.shtml)
+- 2026-06-29 21:52 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/3505870201.shtml)
+- 2026-06-29 21:49 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/389451421.shtml)
+- 2026-06-29 21:41 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/607394466230.shtml)
+- 2026-06-29 21:59 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/6385800.shtml)
+- 2026-06-29 21:43 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/904049.shtml)
+- 2026-06-29 21:48 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/904808.shtml)
+- 2026-06-29 21:38 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/31993057.shtml)
+- 2026-06-29 21:43 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/4812774423.shtml)
+- 2026-06-29 21:56 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/19522.shtml)
+- 2026-06-29 21:47 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/0991174675.shtml)
+- 2026-06-29 21:32 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/39445.shtml)
+- 2026-06-29 21:30 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/0557766934.shtml)
+- 2026-06-29 21:58 - [锐评白玉兰提名片段](https://www.share.kurohicncr.top/Article/details/61592.shtml)
+- 2026-06-29 21:37 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/7681957224.shtml)
+- 2026-06-29 21:34 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/512842.shtml)

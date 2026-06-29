@@ -1,45 +1,54 @@
-# 吴清：支持香港近期推出5年期人民币国债期货上市交易
+# 美伊敲定停冲突备忘录细节 伊媒披露美军撤军等关键条款
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-6月17日，在2026陆家嘴论坛开幕式上，中国证监会主席吴清表示，支持香港近期推出5年期人民币国债期货上市交易，不断提升外资长期配置中国资产的便利化水平。积极支持外资在华新设独资或合资证券基金期货机构，鼓励外资持牌机构参与基金投顾业务扩大试点。
+据伊朗半官方媒体塔斯尼姆通讯社14日援引知情人士消息报道，根据美伊双方最新达成的阶段性停冲突谅解备忘录草案，美国作战部队必须在最终协议达成后的30天内，彻底撤离伊朗周边地区。 报道指出，作为本轮停冲突阶段性安排的核心内容，美伊双方将进入为期60天的最终协议谈判期。在此期间，美方将承担严格的军事约束义务，被明确禁止向该地区增派任何新的军事力量。 分析人士指出，这一条款的披露凸显了
 
 ## 正文
 
-6月17日，在2026陆家嘴论坛开幕式上，中国证监会主席吴清表示，支持香港近期推出5年期人民币国债期货上市交易，不断提升外资长期配置中国资产的便利化水平。
+据伊朗半官方媒体塔斯尼姆通讯社14日援引知情人士消息报道，根据美伊双方最新达成的阶段性停冲突谅解备忘录草案，美国作战部队必须在最终协议达成后的30天内，彻底撤离伊朗周边地区。
 
-积极支持外资在华新设独资或合资证券基金期货机构，鼓励外资持牌机构参与基金投顾业务扩大试点。
+报道指出，作为本轮停冲突阶段性安排的核心内容，美伊双方将进入为期60天的最终协议谈判期。
+
+在此期间，美方将承担严格的军事约束义务，被明确禁止向该地区增派任何新的军事力量。
+
+分析人士指出，这一条款的披露凸显了伊方在维护国家安全及地区主权完整上的强硬立场。
+
+责任编辑：龙运翔
 
 ## 相关推荐
 
-- 2026-06-29 21:34 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-29 21:37 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-29 21:32 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-29 21:43 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-29 21:49 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-29 21:53 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-29 21:26 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 21:33 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-29 21:33 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 21:39 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 21:46 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-29 21:40 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 21:53 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 21:32 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-29 21:53 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-29 21:46 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-29 21:59 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 21:55 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 21:46 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-29 21:56 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 21:55 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 21:35 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-29 21:50 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-29 21:51 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 21:30 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:30 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.blog.minike.top/Article/details/862322223.shtml)
-- 2026-06-29 21:49 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/32789413.shtml)
-- 2026-06-29 21:32 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/5194521.shtml)
-- 2026-06-29 21:25 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/1882736630.shtml)
-- 2026-06-29 21:26 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/22717285.shtml)
-- 2026-06-29 21:26 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/915196263526.shtml)
-- 2026-06-29 21:48 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/47626.shtml)
-- 2026-06-29 21:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/43233.shtml)
-- 2026-06-29 21:44 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.kurohicncr.top/Article/details/61271.shtml)
-- 2026-06-29 21:24 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/43170813.shtml)
-- 2026-06-29 21:43 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/23239.shtml)
-- 2026-06-29 21:36 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/39229732684.shtml)
-- 2026-06-29 21:28 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/1953878887.shtml)
-- 2026-06-29 21:45 - [回顾世界杯争议事件](http://www.blog.kurohicncr.top/Article/details/26327153.shtml)
-- 2026-06-29 21:46 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/01396198.shtml)
+- 2026-06-29 21:44 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/65713.shtml)
+- 2026-06-29 21:47 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/55349728.shtml)
+- 2026-06-29 21:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/258091710885.shtml)
+- 2026-06-29 21:47 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/86842872299.shtml)
+- 2026-06-29 21:36 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/815595525.shtml)
+- 2026-06-29 21:37 - [法拉利车主已自行承担修理费近3万](https://www.blog.minike.top/Article/details/324004716568.shtml)
+- 2026-06-29 21:58 - [欧洲缘何成为变暖最快的大洲](https://www.blog.kurohicncr.top/Article/details/60341837900.shtml)
+- 2026-06-29 21:59 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/52400093568.shtml)
+- 2026-06-29 21:58 - [郑钦文谈再战西尼亚科娃](http://www.share.kurohicncr.top/Article/details/0552515004.shtml)
+- 2026-06-29 21:42 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/79814967895.shtml)
+- 2026-06-29 21:48 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/061048.shtml)
+- 2026-06-29 21:48 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/32896773330.shtml)
+- 2026-06-29 21:55 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/314631221417.shtml)
+- 2026-06-29 21:40 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/502008319.shtml)
+- 2026-06-29 21:45 - [papi酱在救赎窦文涛](http://www.blog.minike.top/Article/details/723927274301.shtml)

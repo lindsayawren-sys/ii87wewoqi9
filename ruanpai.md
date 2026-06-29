@@ -1,57 +1,56 @@
-# 印度整治升学考试舞弊：临时封禁通讯软件
+# 美国和伊朗达成临时和平协议 本周有望重开霍尔木兹海峡
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-核心要点 在上月一场重要统考因舞弊风波遭取消、全国多地爆发抗议之后，印度有关部门对通讯软件 Telegrm 实施访问限制，以此遏制考试作弊乱象。 印度国家考试局于周二在社交平台 X 上发布声明：Telegrm 在印度的访问权限将封禁至 6 月 22 日，该平台的消息编辑功能则会关停至 6 月 30 日。 国家考试局表示，此次封禁举措，是为打击 “作弊团伙有组织地借助 Teleg
+美国和伊朗达成了一项临时和平协议，以重新开放霍尔木兹海峡，并进一步推动结束这场持续15周的战争。这场冲突不仅在中东地区造成严重混乱，也对全球经济产生了广泛冲击。 这一进展推动本周交易伊始全球股市和债券市场上涨，而此前因海峡关闭而飙升的原油和天然气价格则下跌。 美国总统唐纳德·特朗普面临燃油价格上涨带来的政治压力，高油价正冲击其本人以及共和党在11月中期选举前的支持率。他称赞这是
 
 ## 正文
 
-核心要点 在上月一场重要统考因舞弊风波遭取消、全国多地爆发抗议之后，印度有关部门对通讯软件 Telegrm 实施访问限制，以此遏制考试作弊乱象。
+美国和伊朗达成了一项临时和平协议，以重新开放霍尔木兹海峡，并进一步推动结束这场持续15周的战争。
 
-印度国家考试局于周二在社交平台 X 上发布声明：Telegrm 在印度的访问权限将封禁至 6 月 22 日，该平台的消息编辑功能则会关停至 6 月 30 日。
+这场冲突不仅在中东地区造成严重混乱，也对全球经济产生了广泛冲击。
 
-国家考试局表示，此次封禁举措，是为打击 “作弊团伙有组织地借助 Telegrm 平台诈骗考生” 的违法行为，印度本次全国升学统考将于 6 月 21 日开考。
+这一进展推动本周交易伊始全球股市和债券市场上涨，而此前因海峡关闭而飙升的原油和天然气价格则下跌。
 
-印度全国医学本科入学考试（NEET-UG）是医学院入学的关键性选拔考试。
+美国总统唐纳德·特朗普面临燃油价格上涨带来的政治压力，高油价正冲击其本人以及共和党在11月中期选举前的支持率。
 
-今年 5 月，这场考试因试卷泄露传闻被紧急取消，数百万考生的升学安排受到影响。
+他称赞这是一项“将为整个地区带来和平与安全的伟大协议”。
 
-Telegrm 由俄罗斯裔科技亿万富翁帕维尔・杜罗夫创立，平台宣称全球月活跃用户超 10 亿。
+他还曾敦促伊朗在周日公布协议，而当天恰逢他的80岁生日。
 
-过去数周，印度政府经调查发现，Telegrm 上存在大量群组频道，相关账号声称可以拿到泄露试卷，并向考生及家属收取数千至数十万卢比不等的费用。
+这份协议已经由特朗普、美国副总统JD·万斯，以及伊朗议会议长卡利巴夫电子签署。
 
-印度国家考试局强调，试卷全程处于保密管控体系内，不存在外泄的可能，任何声称可以拿到考题的行为均属于诈骗。
+全球股市走高，标普500指数创4月以来最大涨幅。
 
 ## 相关推荐
 
-- 2026-06-29 21:41 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 21:24 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 21:27 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 21:45 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 21:27 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 21:43 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-29 21:35 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 21:37 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-29 21:41 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-29 21:38 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-29 21:47 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-29 21:41 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-29 21:39 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-29 21:44 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 21:52 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-29 21:32 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-29 21:43 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 21:40 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-29 21:57 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-29 21:42 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 21:43 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:37 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/960280165.shtml)
-- 2026-06-29 21:36 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/58965067036.shtml)
-- 2026-06-29 21:30 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/7452636046.shtml)
-- 2026-06-29 21:28 - [金刚川](https://www.blog.minike.top/Article/details/1364698.shtml)
-- 2026-06-29 21:44 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/31532051.shtml)
-- 2026-06-29 21:38 - [欧洲高温会成下个印度吗](https://www.share.kurohicncr.top/Article/details/471249609988.shtml)
-- 2026-06-29 21:40 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/40189582.shtml)
-- 2026-06-29 21:26 - [TI2026参赛战队出炉](http://www.share.kurohicncr.top/Article/details/9938479.shtml)
-- 2026-06-29 21:27 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/677758875982.shtml)
-- 2026-06-29 21:28 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/3821660146.shtml)
-- 2026-06-29 21:36 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/61155195.shtml)
-- 2026-06-29 21:46 - [一生一世](http://www.blog.kurohicncr.top/Article/details/238779.shtml)
-- 2026-06-29 21:26 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/223575.shtml)
-- 2026-06-29 21:44 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/211227687.shtml)
-- 2026-06-29 21:50 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/33978410940.shtml)
+- 2026-06-29 21:56 - [把邻居裸体发群算维权还是侵权](https://www.share.kurohicncr.top/Article/details/47699.shtml)
+- 2026-06-29 21:38 - [DRG官宣选手Akeman离队](http://www.blog.kurohicncr.top/Article/details/83054787.shtml)
+- 2026-06-29 21:46 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/707224742.shtml)
+- 2026-06-29 21:31 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/4392980.shtml)
+- 2026-06-29 21:37 - [刘宇宁 好听](http://www.share.kurohicncr.top/Article/details/949186.shtml)
+- 2026-06-29 21:59 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/456704.shtml)
+- 2026-06-29 21:53 - [郑钦文谈再战西尼亚科娃](http://www.blog.kurohicncr.top/Article/details/6015334451.shtml)
+- 2026-06-29 21:45 - [爱奇艺抬高国剧新标尺](http://www.blog.minike.top/Article/details/6518577294.shtml)
+- 2026-06-29 21:39 - [速度与激情9](http://www.blog.minike.top/Article/details/0393834502.shtml)
+- 2026-06-29 21:38 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/58366848.shtml)
+- 2026-06-29 21:57 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/31324342768.shtml)
+- 2026-06-29 21:43 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/3658405.shtml)
+- 2026-06-29 21:41 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/965981542.shtml)
+- 2026-06-29 21:59 - [105岁女红军看到自己长征时的模样](https://www.blog.minike.top/Article/details/03089955289.shtml)
+- 2026-06-29 21:38 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/11633573.shtml)

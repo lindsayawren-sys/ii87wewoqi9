@@ -1,53 +1,54 @@
-# 贵州省生态环境厅原党委书记、厅长杨三可被“双开”
+# 中国首批自研海洋工程柔性制造智能焊接机器人系统投用
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-中新网6月17日电 据贵州省纪委监委消息：经贵州省委批准，贵州省纪委监委对贵州省生态环境厅原党委书记、厅长杨三可严重违纪违法问题进行了立案审查调查。 经查，杨三可丧失理想信念，背弃初心使命，对抗组织审查；无视中央八项规定精神，接受可能影响公正执行公务的宴请；罔顾组织原则，不如实报告个人有关事项，在组织谈话时不如实说明问题，违规为他人谋取人事利益；廉洁底线失守，收受可能影响公正执
+中新社天津6月14日电 (记者 周亚强)记者14日从海洋石油工程股份有限公司(简称“海油工程”)获悉，中国首批自主研发的海洋工程柔性制造智能焊接机器人设备系统在天津正式投用。 该系统专为海洋油气平台组块节点、TKY管节点及深水导管架加强环及压溃环等高难度、定制化重装焊接场景研发，设计寿命20年，最大承载能力达30吨，核心软件与工艺库实现100%国产化。 海油工程柔性制造智能机器
 
 ## 正文
 
-中新网6月17日电 据贵州省纪委监委消息：经贵州省委批准，贵州省纪委监委对贵州省生态环境厅原党委书记、厅长杨三可严重违纪违法问题进行了立案审查调查。
+中新社天津6月14日电 (记者 周亚强)记者14日从海洋石油工程股份有限公司(简称“海油工程”)获悉，中国首批自主研发的海洋工程柔性制造智能焊接机器人设备系统在天津正式投用。
 
-经查，杨三可丧失理想信念，背弃初心使命，对抗组织审查；无视中央八项规定精神，接受可能影响公正执行公务的宴请；罔顾组织原则，不如实报告个人有关事项，在组织谈话时不如实说明问题，违规为他人谋取人事利益；廉洁底线失守，收受可能影响公正执行公务的礼品，接受可能影响公正执行公务的旅游活动安排，利用职权为亲属谋取利益，公车私用；将公权力当作攫取私利的工具，大搞权钱交易，利用职务便利为他人在工程项目承揽等方面提供帮助，并非法收受巨额财物。
+该系统专为海洋油气平台组块节点、TKY管节点及深水导管架加强环及压溃环等高难度、定制化重装焊接场景研发，设计寿命20年，最大承载能力达30吨，核心软件与工艺库实现100%国产化。
 
-杨三可严重违反党的政治纪律、组织纪律和廉洁纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
+海油工程柔性制造智能机器人研究课题长陈欣介绍，项目团队攻克了变截面焊接坡口识别、复杂路径规划、智能焊接工艺参数匹配及自适应调节等多项技术难题，实现焊缝AI视觉识别、三维激光视觉智能组对、多层多道智能排道焊接等10余项技术创新。
 
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经贵州省纪委常委会会议研究并报贵州省委批准，决定给予杨三可开除党籍处分；由贵州省监委给予其开除公职处分；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+机器人可一键启动自动完成焊接，具备焊接轨迹智能纠偏、智能封底、双面四丝智能填充等功能。
+
+海油工程天津智能制造基地模块结构预制车间负责人刘睿锋介绍，同步投用的还有自主研发的智能打磨机器人，已累计完成超500根型钢母材打磨，依托智能视觉定位与实时力控补偿技术，打磨效率提升15%。
+
+据悉，海油工程天津智能制造基地已构建起涵盖柔性焊接、打磨、喷涂等环节的自动化生产能力。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 21:50 - [华工科技龙虎榜数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-29 21:53 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 21:36 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-29 21:52 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 21:24 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 21:36 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 21:34 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-29 21:27 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 21:42 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-29 21:35 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-29 21:37 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-29 21:38 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 21:47 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 21:53 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 21:38 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 21:58 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-29 21:51 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-29 21:56 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 21:36 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-29 21:39 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-29 21:54 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-29 21:55 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 21:30 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 21:49 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-29 21:47 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:24 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/17823474.shtml)
-- 2026-06-29 21:30 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/063459940063.shtml)
-- 2026-06-29 21:32 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/439173034.shtml)
-- 2026-06-29 21:40 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/39355.shtml)
-- 2026-06-29 21:50 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/74813878.shtml)
-- 2026-06-29 21:40 - [委内瑞拉发生余震](https://www.share.kurohicncr.top/Article/details/345185967003.shtml)
-- 2026-06-29 21:27 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/93463586118.shtml)
-- 2026-06-29 21:36 - [一生一世](http://www.blog.kurohicncr.top/Article/details/75884794007.shtml)
-- 2026-06-29 21:38 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/266884557.shtml)
-- 2026-06-29 21:45 - [Ella回应SHE何时合体](https://www.share.kurohicncr.top/Article/details/035010.shtml)
-- 2026-06-29 21:39 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/418741.shtml)
-- 2026-06-29 21:52 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/18721047.shtml)
-- 2026-06-29 21:33 - [让AI做一个账号，它会做成什么样？](https://www.share.kurohicncr.top/Article/details/747144.shtml)
-- 2026-06-29 21:32 - [半导体和股市为何没让韩国人起飞](http://www.share.minike.top/Article/details/94079905.shtml)
-- 2026-06-29 21:28 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/42704294892.shtml)
+- 2026-06-29 21:56 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/35741248696.shtml)
+- 2026-06-29 21:57 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/671240.shtml)
+- 2026-06-29 21:47 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/13759.shtml)
+- 2026-06-29 21:31 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/98611899.shtml)
+- 2026-06-29 21:41 - [急先锋](http://www.share.kurohicncr.top/Article/details/27289361.shtml)
+- 2026-06-29 21:44 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/355481315.shtml)
+- 2026-06-29 21:48 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/561910381126.shtml)
+- 2026-06-29 21:38 - [电影《抓特务》总票房破亿](http://www.blog.minike.top/Article/details/9272317929.shtml)
+- 2026-06-29 21:51 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/271587.shtml)
+- 2026-06-29 21:32 - [半导体和股市为何没让韩国人起飞](https://www.blog.minike.top/Article/details/2168710.shtml)
+- 2026-06-29 21:51 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/98454.shtml)
+- 2026-06-29 21:34 - [青春环游记第三季](https://www.share.minike.top/Article/details/265942056.shtml)
+- 2026-06-29 21:39 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/952560134123.shtml)
+- 2026-06-29 21:46 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/793021.shtml)
+- 2026-06-29 21:36 - [夫妻生活太无聊，所以我……](https://www.share.minike.top/Article/details/394660.shtml)

@@ -1,59 +1,58 @@
-# 探访北京高考评卷现场——一张高考试卷的分数如何出炉
+# 告别0.75%，日本央行利率重返1%！购债缩减却踩刹车
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-6月16日，北京市2026年高考评卷工作媒体开放日举行。 北京教育考试院党委委员、副院长周玉玲介绍，评卷工作已于6月11日正式开始，遴选1714名评卷员，在北京大学、清华大学、北京师范大学、首都师范大学、北京第二外国语学院、北京工业大学6个评卷点进行评阅。预计6月24日评卷工作全部结束。 当天，记者在清华大学评卷点现场看到，评卷场所实行封闭管理，设有智能安检门、金属探测器、信号
+汇通财经APP讯——北京时间6月16日，日本央行完成了一场令全球金融市场屏息的重要决策——将政策利率由0.75%上调25个基点至1.00%，利率水平重返1995年以来的最高水位。 这是自2024年3月日本央行结束负利率政策以来的第五次加息，也是继此前连续三次会议按兵不动之后的首次行动，但并非令市场感到意外的决策。彭博此前的调查显示，受调的51位经济学家中多达49人预计本月将加息
 
 ## 正文
 
-6月16日，北京市2026年高考评卷工作媒体开放日举行。
+汇通财经APP讯——北京时间6月16日，日本央行完成了一场令全球金融市场屏息的重要决策——将政策利率由0.75%上调25个基点至1.00%，利率水平重返1995年以来的最高水位。
 
-北京教育考试院党委委员、副院长周玉玲介绍，评卷工作已于6月11日正式开始，遴选1714名评卷员，在北京大学、清华大学、北京师范大学、首都师范大学、北京第二外国语学院、北京工业大学6个评卷点进行评阅。
+这是自2024年3月日本央行结束负利率政策以来的第五次加息，也是继此前连续三次会议按兵不动之后的首次行动，但并非令市场感到意外的决策。
 
-预计6月24日评卷工作全部结束。
+彭博此前的调查显示，受调的51位经济学家中多达49人预计本月将加息。
 
-当天，记者在清华大学评卷点现场看到，评卷场所实行封闭管理，设有智能安检门、金属探测器、信号屏蔽仪等设备，所有人员凭有效证件入场，进出阅卷场地均需接受安检。
+一、利率政策：如期加息，分歧之下一人反对 日本央行决策委员会以7票赞成、1票反对的票数通过加息决议。
 
-公安人员在评卷场所全程值守，昼夜值班。
+审议委员浅田统一郎对利率决定持反对意见，他在会上指出，中东局势对生产和就业的下行风险大于物价的上行风险，央行宜维持当前的政策指引。
 
-据了解，评卷场所的系统设备、网络环境全部与外网物理隔离。
+受加息落地影响，日经225指数期货在决议公布后几乎未有变化。
 
-答卷数据服务器部署在专用保密机房，实行24小时无死角视频监控。
+外汇市场上，美元兑日元短线上扬逾10点，报160.22。
 
-评卷数据库每天进行双备份，实施全过程数据审计，确保评卷数据绝对安全。
+这一汇率水平早已成为日本当局高度关注的心理关口，160附近被市场普遍视为潜在干预线。
 
 ## 相关推荐
 
-- 2026-06-29 21:49 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-29 21:24 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-29 21:39 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 21:42 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 21:24 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 21:27 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-29 21:52 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 21:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 21:42 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-29 21:48 - [华工科技龙虎榜数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 21:50 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 21:38 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-29 21:52 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-29 21:46 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 21:38 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-29 21:37 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-29 21:35 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 21:54 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 21:45 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 21:31 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 21:42 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 21:39 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-29 21:37 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 21:52 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 21:35 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:29 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/008230990995.shtml)
-- 2026-06-29 21:28 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/71062905.shtml)
-- 2026-06-29 21:28 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/48192562.shtml)
-- 2026-06-29 21:50 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.minike.top/Article/details/0982295734.shtml)
-- 2026-06-29 21:24 - [不烧钱的低成本爱好](http://www.share.kurohicncr.top/Article/details/3133453160.shtml)
-- 2026-06-29 21:45 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/8506876528.shtml)
-- 2026-06-29 21:39 - [白玉兰答谢宴合影](https://www.blog.minike.top/Article/details/42609.shtml)
-- 2026-06-29 21:47 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/43506900204.shtml)
-- 2026-06-29 21:27 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/802014531.shtml)
-- 2026-06-29 21:31 - [哈兰德玩游戏连女友都不让着](http://www.share.kurohicncr.top/Article/details/260990.shtml)
-- 2026-06-29 21:24 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/68556225.shtml)
-- 2026-06-29 21:25 - [任泽平：AI浪潮刚刚开始](https://www.blog.minike.top/Article/details/86564669.shtml)
-- 2026-06-29 21:49 - [毒液2](https://www.blog.kurohicncr.top/Article/details/51478.shtml)
-- 2026-06-29 21:50 - [一见倾心](http://www.blog.minike.top/Article/details/731614551.shtml)
-- 2026-06-29 21:27 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/90380502.shtml)
+- 2026-06-29 21:48 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/672743772282.shtml)
+- 2026-06-29 21:58 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/38868821.shtml)
+- 2026-06-29 21:35 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.minike.top/Article/details/0155332626.shtml)
+- 2026-06-29 21:49 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/9957675.shtml)
+- 2026-06-29 21:32 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/539597064.shtml)
+- 2026-06-29 21:36 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/7408681894.shtml)
+- 2026-06-29 21:35 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/2799008.shtml)
+- 2026-06-29 21:44 - [本届世界杯已有5人涉性侵风波](http://www.blog.kurohicncr.top/Article/details/148383.shtml)
+- 2026-06-29 21:56 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/89139.shtml)
+- 2026-06-29 21:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/901901670501.shtml)
+- 2026-06-29 21:31 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/60518518.shtml)
+- 2026-06-29 21:39 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/51325696.shtml)
+- 2026-06-29 21:40 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/753425944.shtml)
+- 2026-06-29 21:35 - [上世纪90年代玩具成新宠](https://www.share.minike.top/Article/details/2160306639.shtml)
+- 2026-06-29 21:57 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/6394707.shtml)

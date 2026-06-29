@@ -1,60 +1,48 @@
-# 中国人民银行行长潘功胜在2026陆家嘴论坛上宣布了即将出台的政策措施
+# 中国首批自研海洋工程柔性制造智能焊接机器人系统投用
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日金融一线消息，2026陆家嘴论坛今日开幕。中国人民银行行长潘功胜宣布了即将出台的政策措施。 一是完善短端利率调控机制。为进一步推动货币政策框架向价格型转型，增强短端利率调控的精准性和有效性，人民银行将对利率调控机制进行进一步探索和优化：一方面，在2024年7月设立临时隔夜正/逆回购工具的基础上，完善工具使用
+发布时间：2026年06月15日 13:17 来源：中国新闻网 6月14日，中国首批自主研发的海洋工程柔性制造智能焊接机器人设备系统在天津正式投用。 该系统专为海洋油气平台组块节点、TKY管节点以及深水导管架加强环及压溃环等高难度、定制化重装焊接场景研发，设计寿命20年，最大承载能力达30吨，核心软件与工艺库实现100%国产化。 据悉，海油工程天津智能制造基地已构建起涵盖柔性焊
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日金融一线消息，2026陆家嘴论坛今日开幕。
+发布时间：2026年06月15日 13:17 来源：中国新闻网 6月14日，中国首批自主研发的海洋工程柔性制造智能焊接机器人设备系统在天津正式投用。
 
-中国人民银行行长潘功胜宣布了即将出台的政策措施。
+该系统专为海洋油气平台组块节点、TKY管节点以及深水导管架加强环及压溃环等高难度、定制化重装焊接场景研发，设计寿命20年，最大承载能力达30吨，核心软件与工艺库实现100%国产化。
 
-一是完善短端利率调控机制。
+据悉，海油工程天津智能制造基地已构建起涵盖柔性焊接、打磨、喷涂等环节的自动化生产能力。
 
-为进一步推动货币政策框架向价格型转型，增强短端利率调控的精准性和有效性，人民银行将对利率调控机制进行进一步探索和优化：一方面，在2024年7月设立临时隔夜正/逆回购工具的基础上，完善工具使用机制，并将操作利率调整为7天期逆回购操作利率加、减25个基点，区间由70个基点收窄为50个基点。
-
-另一方面，进一步丰富公开市场操作工具箱，适时增加隔夜逆回购操作品种，更好地匹配银行体系短期的流动性需求。
-
-二是创设境外央行回购工具（RMB Repo Facility for Foreign and International Monetary Authorities，FIMA RMB Repo）。
-
-设立境外央行类机构回购工具，包括境外央行或货币当局、国际金融组织、主权财富基金，都可以用中国国债等高等级债券回购的方式，从人民银行获得人民币流动性，便利境外央行类机构的人民币流动性管理和人民币资产配置。
-
-三是在上海自贸区开展离岸人民币外汇交易试点。
+(汤润青 视频来源 海油工程） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 21:52 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 21:30 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 21:39 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 21:29 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 21:28 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 21:31 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-29 21:34 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 21:34 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 21:45 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 21:43 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-29 21:24 - [委内瑞拉发生余震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-29 21:47 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-29 21:46 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-29 21:33 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-29 21:49 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 21:52 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 21:40 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-29 21:47 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-29 21:46 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-29 21:41 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 21:33 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-29 21:36 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-29 21:56 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 21:35 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/1311364522.shtml)
-- 2026-06-29 21:40 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/494913909434.shtml)
-- 2026-06-29 21:38 - [TI2026参赛战队出炉](http://www.blog.kurohicncr.top/Article/details/305408964.shtml)
-- 2026-06-29 21:43 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/278535426.shtml)
-- 2026-06-29 21:43 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/2203871.shtml)
-- 2026-06-29 21:45 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/945888091784.shtml)
-- 2026-06-29 21:53 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/618745.shtml)
-- 2026-06-29 21:28 - [乌是否掌握了扭转战局的钥匙](http://www.blog.kurohicncr.top/Article/details/164993670378.shtml)
-- 2026-06-29 21:32 - [把邻居裸体发群算维权还是侵权](https://www.share.minike.top/Article/details/4725392.shtml)
-- 2026-06-29 21:39 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/016917860971.shtml)
-- 2026-06-29 21:44 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/935736519.shtml)
-- 2026-06-29 21:26 - [中外合作办学是“低分捷径”吗](https://www.blog.kurohicncr.top/Article/details/18196707.shtml)
-- 2026-06-29 21:41 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/67922676.shtml)
-- 2026-06-29 21:46 - [小娘惹](https://www.share.minike.top/Article/details/327559.shtml)
-- 2026-06-29 21:43 - [恋与深空客服的回应](http://www.blog.kurohicncr.top/Article/details/750735.shtml)
+- 2026-06-29 21:52 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/7061892924.shtml)
+- 2026-06-29 21:35 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/7436011.shtml)
+- 2026-06-29 21:48 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/8044865531.shtml)
+- 2026-06-29 21:41 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.kurohicncr.top/Article/details/53058124489.shtml)
+- 2026-06-29 21:38 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/0196207727.shtml)
+- 2026-06-29 21:31 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/666138480459.shtml)
+- 2026-06-29 21:53 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/914613.shtml)
+- 2026-06-29 21:46 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/02357.shtml)
+- 2026-06-29 21:32 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/904215.shtml)
+- 2026-06-29 21:48 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/399317.shtml)
+- 2026-06-29 21:36 - [半导体和股市为何没让韩国人起飞](http://www.share.kurohicncr.top/Article/details/764408736.shtml)
+- 2026-06-29 21:30 - [第一炉香](http://www.share.kurohicncr.top/Article/details/67846756724.shtml)
+- 2026-06-29 21:36 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/03414687.shtml)
+- 2026-06-29 21:36 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/2826479681.shtml)
+- 2026-06-29 21:51 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/765913.shtml)

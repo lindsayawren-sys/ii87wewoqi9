@@ -1,52 +1,46 @@
-# 伊媒：伊朗议长卡利巴夫将代表伊朗与美国签署协议
+# 湖南道县百余龙船竞渡！民间选手水上争雄迎端午
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-据伊朗半官方的塔斯尼姆通讯社报道，伊朗副外长Majid Takht-Ravanchi表示，伊朗议长卡利巴夫将代表伊朗出席签字仪式，美国副总统JD·万斯将代表美国出席。 并称瑞士可能会举办签字仪式，但具体地点尚未确定。 Ravanchi表示，目前还不清楚将如何签字，以及是否会以电子方式进行。责任编辑：刘明亮
+发布时间：2026年06月16日 11:24 来源：中国新闻网 6月15日至17日，湖南永州市道县举行传统龙船赛，当地185支队伍6000余名民间龙船队员展开竞逐，热热闹闹迎端午。道县端午民间划龙船传承已有千年，“道州龙船习俗”2021年被列入国家级非物质文化遗产代表性项目名录，2024年以“参赛人数最多的龙舟赛(团队)”创下吉尼斯世界纪录。(唐小晴 李盈 制作 王嘉怡 ) 责
 
 ## 正文
 
-据伊朗半官方的塔斯尼姆通讯社报道，伊朗副外长Majid Takht-Ravanchi表示，伊朗议长卡利巴夫将代表伊朗出席签字仪式，美国副总统JD·万斯将代表美国出席。
+发布时间：2026年06月16日 11:24 来源：中国新闻网 6月15日至17日，湖南永州市道县举行传统龙船赛，当地185支队伍6000余名民间龙船队员展开竞逐，热热闹闹迎端午。
 
-并称瑞士可能会举办签字仪式，但具体地点尚未确定。
+道县端午民间划龙船传承已有千年，“道州龙船习俗”2021年被列入国家级非物质文化遗产代表性项目名录，2024年以“参赛人数最多的龙舟赛(团队)”创下吉尼斯世界纪录。
 
-Ravanchi表示，目前还不清楚将如何签字，以及是否会以电子方式进行。
-
-责任编辑：刘明亮
+(唐小晴 李盈 制作 王嘉怡 ) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 21:43 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 21:41 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 21:26 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-29 21:46 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-29 21:46 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-29 21:44 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 21:33 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-29 21:52 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-29 21:43 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-29 21:33 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 21:42 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-29 21:47 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-29 21:30 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-29 21:30 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-29 21:35 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 21:48 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-29 21:33 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-29 21:59 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 21:31 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 21:39 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-29 21:46 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 21:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 21:31 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-29 21:45 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:27 - [请回答王牌2019](http://www.share.minike.top/Article/details/14590.shtml)
-- 2026-06-29 21:45 - [王冰冰向全网安利哈兰德](https://www.blog.kurohicncr.top/Article/details/41564345.shtml)
-- 2026-06-29 21:48 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.share.minike.top/Article/details/2813205.shtml)
-- 2026-06-29 21:24 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/70049808901.shtml)
-- 2026-06-29 21:34 - [恋与深空7天掉粉超50万](http://www.blog.kurohicncr.top/Article/details/7763654.shtml)
-- 2026-06-29 21:33 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/4888688.shtml)
-- 2026-06-29 21:52 - [105岁女红军看到自己长征时的模样](https://www.blog.minike.top/Article/details/824815.shtml)
-- 2026-06-29 21:43 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/723647194070.shtml)
-- 2026-06-29 21:45 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/320129.shtml)
-- 2026-06-29 21:24 - [宜宾地震已转移安置225人](https://www.blog.kurohicncr.top/Article/details/45085141.shtml)
-- 2026-06-29 21:40 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/99715.shtml)
-- 2026-06-29 21:53 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/124333.shtml)
-- 2026-06-29 21:43 - [恋与深空 巧合](http://www.share.minike.top/Article/details/62521009.shtml)
-- 2026-06-29 21:26 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/264860935576.shtml)
-- 2026-06-29 21:24 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/84632.shtml)
+- 2026-06-29 21:39 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/04221020.shtml)
+- 2026-06-29 21:59 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/359500254.shtml)
+- 2026-06-29 21:51 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/6205619.shtml)
+- 2026-06-29 21:31 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/70124999220.shtml)
+- 2026-06-29 21:45 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/61967.shtml)
+- 2026-06-29 21:45 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/94971.shtml)
+- 2026-06-29 21:39 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/86329887796.shtml)
+- 2026-06-29 21:40 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/33914198213.shtml)
+- 2026-06-29 21:47 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/730932546206.shtml)
+- 2026-06-29 21:40 - [起风了](https://www.share.minike.top/Article/details/5305957179.shtml)
+- 2026-06-29 21:45 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/092656881139.shtml)
+- 2026-06-29 21:45 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/90860823061.shtml)
+- 2026-06-29 21:52 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/549602.shtml)
+- 2026-06-29 21:33 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/3841252015.shtml)
+- 2026-06-29 22:00 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/23813.shtml)

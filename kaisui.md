@@ -1,47 +1,43 @@
-# 我国成功发射卫星互联网低轨22组卫星
+# 海峡两岸体育嘉年华在福建举办 搭建两岸体育交流和青年互动广阔舞台
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-北京时间2026年6月17日10时44分，我国在海南商业航天发射场使用长征十二号运载火箭，成功将卫星互联网低轨22组卫星发射升空，卫星顺利进入预定轨道，发射任务获得圆满成功。 (总台记者 崔霞 魏安)
+发布时间：2026年06月16日 09:26 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-北京时间2026年6月17日10时44分，我国在海南商业航天发射场使用长征十二号运载火箭，成功将卫星互联网低轨22组卫星发射升空，卫星顺利进入预定轨道，发射任务获得圆满成功。
-
-(总台记者 崔霞 魏安)
+发布时间：2026年06月16日 09:26 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 21:30 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 21:43 - [华工科技龙虎榜数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-29 21:27 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 21:40 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 21:53 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-29 21:27 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-29 21:35 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 21:51 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 21:31 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 21:42 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-29 21:40 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-29 21:31 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 21:52 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 21:43 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 21:54 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-29 21:41 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 21:36 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-29 21:34 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 21:34 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 21:58 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 21:57 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-29 21:55 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 21:30 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-29 21:43 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:48 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/00431062720.shtml)
-- 2026-06-29 21:39 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.minike.top/Article/details/921418344582.shtml)
-- 2026-06-29 21:32 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/257850256.shtml)
-- 2026-06-29 21:46 - [天气热脾气都变差了](http://www.blog.kurohicncr.top/Article/details/263889098.shtml)
-- 2026-06-29 21:32 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/7195669.shtml)
-- 2026-06-29 21:28 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/771443433355.shtml)
-- 2026-06-29 21:24 - [急先锋](http://www.blog.kurohicncr.top/Article/details/05990.shtml)
-- 2026-06-29 21:46 - [恋与深空客服的回应](https://www.share.kurohicncr.top/Article/details/49880519277.shtml)
-- 2026-06-29 21:38 - [返利科技盘中上演“天地板”](http://www.share.minike.top/Article/details/3762279.shtml)
-- 2026-06-29 21:53 - [韩国队主帅遭极端网友死亡威胁](http://www.blog.kurohicncr.top/Article/details/77546888.shtml)
-- 2026-06-29 21:53 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/0135508.shtml)
-- 2026-06-29 21:36 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/345183.shtml)
-- 2026-06-29 21:40 - [papi酱在救赎窦文涛](https://www.blog.kurohicncr.top/Article/details/58842835.shtml)
-- 2026-06-29 21:40 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.kurohicncr.top/Article/details/637313.shtml)
-- 2026-06-29 21:34 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/811163160.shtml)
+- 2026-06-29 21:48 - [宜宾地震已转移安置225人](http://www.blog.minike.top/Article/details/1515353.shtml)
+- 2026-06-29 21:35 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/634095550015.shtml)
+- 2026-06-29 21:41 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/3225022606.shtml)
+- 2026-06-29 21:57 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/7959655.shtml)
+- 2026-06-29 21:48 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/02016542281.shtml)
+- 2026-06-29 21:50 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/425559200691.shtml)
+- 2026-06-29 21:39 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/381002.shtml)
+- 2026-06-29 21:41 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/8000892444.shtml)
+- 2026-06-29 21:55 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/27664939153.shtml)
+- 2026-06-29 21:33 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/8631225867.shtml)
+- 2026-06-29 21:50 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/81436206.shtml)
+- 2026-06-29 21:55 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/897902985.shtml)
+- 2026-06-29 21:33 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/64131.shtml)
+- 2026-06-29 21:57 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/920868615537.shtml)
+- 2026-06-29 21:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/848474036.shtml)

@@ -1,53 +1,60 @@
-# 卡尼称加拿大不会为3,000亿美元伊朗基金出资
+# 国家统计局：5月份一二三线城市商品住宅销售价格同比降幅总体收窄
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-加拿大总理马克·卡尼在法国Evian举行的七国集团（G7）峰会上对记者表示，加拿大不会向为伊朗计划实施的3，000亿美元经济发展计划提供任何财政援助。 卡尼表示，加拿大愿意协助落实这项协议。 “任何此类协议都需要有人协助执行，需要第三方协助落实，需要调解人监督执行”。 指出被冻结资产是加拿大可以提供帮助的一个方面。责任编辑：何云
+中新网6月16日电 据国家统计局网站消息，国家统计局城市司高级统计师杨彩芳解读2026年5月份商品住宅销售价格变动情况统计数据指出，2026年5月份，70个大中城市中，一线城市商品住宅销售价格环比上涨，二三线城市环比下降，一二三线城市同比降幅总体收窄。新建商品住宅销售价格环比上涨城市个数比上月增加。一、一线城市商品住宅销售价格环比上涨，二三线城市环比下降 5月份，一线城市新建商
 
 ## 正文
 
-加拿大总理马克·卡尼在法国Evian举行的七国集团（G7）峰会上对记者表示，加拿大不会向为伊朗计划实施的3，000亿美元经济发展计划提供任何财政援助。
+中新网6月16日电 据国家统计局网站消息，国家统计局城市司高级统计师杨彩芳解读2026年5月份商品住宅销售价格变动情况统计数据指出，2026年5月份，70个大中城市中，一线城市商品住宅销售价格环比上涨，二三线城市环比下降，一二三线城市同比降幅总体收窄。
 
-卡尼表示，加拿大愿意协助落实这项协议。
+新建商品住宅销售价格环比上涨城市个数比上月增加。
 
-“任何此类协议都需要有人协助执行，需要第三方协助落实，需要调解人监督执行”。
+一、一线城市商品住宅销售价格环比上涨，二三线城市环比下降 5月份，一线城市新建商品住宅销售价格环比上涨0.2%，涨幅比上月扩大0.1个百分点。
 
-指出被冻结资产是加拿大可以提供帮助的一个方面。
+其中，上海、广州和深圳分别上涨0.2%、0.2%和0.4%，北京下降0.2%。
 
-责任编辑：何云
+二线城市新建商品住宅销售价格环比下降0.1%，降幅与上月相同。
+
+三线城市新建商品住宅销售价格环比下降0.4%，降幅比上月扩大0.1个百分点。
+
+70个大中城市中，新建商品住宅销售价格环比上涨城市有16个，比上月增加2个。
+
+5月份，一线城市二手住宅销售价格环比上涨0.4%，涨幅与上月相同。
 
 ## 相关推荐
 
-- 2026-06-29 21:29 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 21:34 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 21:53 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 21:36 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 21:52 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 21:28 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-29 21:26 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-29 21:49 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-29 21:47 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-29 21:43 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-29 21:52 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 21:43 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 21:51 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 21:53 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-29 21:40 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 21:40 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 21:44 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 21:55 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-29 21:45 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-29 21:40 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 21:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 21:44 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 21:43 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 21:49 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-29 21:34 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-29 21:42 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-29 21:57 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:36 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/52673633.shtml)
-- 2026-06-29 21:36 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/989399195600.shtml)
-- 2026-06-29 21:46 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/696915231877.shtml)
-- 2026-06-29 21:45 - [金牌调解](https://www.share.minike.top/Article/details/98913.shtml)
-- 2026-06-29 21:39 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/157134.shtml)
-- 2026-06-29 21:29 - [恋与深空各大应用商店评分](http://www.blog.kurohicncr.top/Article/details/549655095.shtml)
-- 2026-06-29 21:24 - [扬名立万](https://www.blog.minike.top/Article/details/25019718465.shtml)
-- 2026-06-29 21:50 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/69887795.shtml)
-- 2026-06-29 21:25 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/40876324144.shtml)
-- 2026-06-29 21:45 - [记者：预计热火将追求小哈达威和康利](https://www.share.minike.top/Article/details/7752561.shtml)
-- 2026-06-29 21:33 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/225772431.shtml)
-- 2026-06-29 21:44 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/177203081.shtml)
-- 2026-06-29 21:25 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/43141193853.shtml)
-- 2026-06-29 21:47 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/81323654.shtml)
-- 2026-06-29 21:50 - [教育部高校学生资助热线7月1日开通](http://www.share.minike.top/Article/details/6482490644.shtml)
+- 2026-06-29 21:45 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/126499879.shtml)
+- 2026-06-29 21:43 - [厨房装空调还是装冷烟机](https://www.blog.kurohicncr.top/Article/details/743180521921.shtml)
+- 2026-06-29 21:44 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/94124645.shtml)
+- 2026-06-29 21:56 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/531591794343.shtml)
+- 2026-06-29 21:44 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/9363884.shtml)
+- 2026-06-29 21:38 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/10275377.shtml)
+- 2026-06-29 21:47 - [明星大侦探第一季](https://www.share.minike.top/Article/details/5791989468.shtml)
+- 2026-06-29 21:55 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/84220749.shtml)
+- 2026-06-29 21:41 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/26491990678.shtml)
+- 2026-06-29 21:59 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/924888662.shtml)
+- 2026-06-29 21:58 - [C罗10球7球对垫底队](http://www.share.kurohicncr.top/Article/details/56478233317.shtml)
+- 2026-06-29 21:58 - [教育部高校学生资助热线7月1日开通](https://www.blog.kurohicncr.top/Article/details/9994824230.shtml)
+- 2026-06-29 21:46 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/8681448217.shtml)
+- 2026-06-29 21:53 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/3905492.shtml)
+- 2026-06-29 21:32 - [千与千寻](https://www.share.minike.top/Article/details/946448.shtml)

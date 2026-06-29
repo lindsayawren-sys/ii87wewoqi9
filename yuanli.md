@@ -1,57 +1,56 @@
-# 俄罗斯中小学校长团参访哈师大附中 共上一堂“文化解码”课
+# 花旗：新奥能源H股目标价下调至50港元 降至“中性”评级
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-中新网哈尔滨6月16日电(记者 王妮娜)16日上午，俄罗斯中小学校长访问团一行10人来到哈尔滨师范大学附属中学(以下简称“哈师大附中”)进行交流访问。俄方校长们走进学校中俄国际课程班，共上一堂俄语展示课，开展座谈交流，两所俄方学校与哈师大附中正式签署了友好学校合作协议。 当日上午9时，俄罗斯中小学校长团抵达学校。哈师大附中中俄国际课程班的学生以俄罗斯经典民族歌舞《卡林卡》欢迎访
+花旗发布研报称，下调新奥能源（02688）H股目标价31%，从72港元降至50港元，评级从“买入”降至“中性”。花旗指，新奥能源母公司新奥股份（600803.SH）取消对其私有化计划，因此下调评级至“中性”。该交易已等待中国证监会批准近一年，且满足所有条件的时间表尚不明朗。从基本面来看，新奥能源前景并不好，零售天然气销售增长乏力，新增家庭用户数减少，综合能源销售额下降。 该行认
 
 ## 正文
 
-中新网哈尔滨6月16日电(记者 王妮娜)16日上午，俄罗斯中小学校长访问团一行10人来到哈尔滨师范大学附属中学(以下简称“哈师大附中”)进行交流访问。
+花旗发布研报称，下调新奥能源（02688）H股目标价31%，从72港元降至50港元，评级从“买入”降至“中性”。
 
-俄方校长们走进学校中俄国际课程班，共上一堂俄语展示课，开展座谈交流，两所俄方学校与哈师大附中正式签署了友好学校合作协议。
+花旗指，新奥能源母公司新奥股份（600803.SH）取消对其私有化计划，因此下调评级至“中性”。
 
-当日上午9时，俄罗斯中小学校长团抵达学校。
+该交易已等待中国证监会批准近一年，且满足所有条件的时间表尚不明朗。
 
-哈师大附中中俄国际课程班的学生以俄罗斯经典民族歌舞《卡林卡》欢迎访问团。
+从基本面来看，新奥能源前景并不好，零售天然气销售增长乏力，新增家庭用户数减少，综合能源销售额下降。
 
-欢迎仪式结束后，访问团校长们走进课堂，共同观摩了一堂主题为《中国结与俄罗斯套娃中的共通文化密码》的俄语展示公开课。
+该行认为，私有化计划的取消意味着该股近期内不会出现任何积极因素。
 
-本次展示课由中俄双方两位教师联合执教。
+对于其2026年预测股息率为6.4%。
 
-课堂上，两位教师分别展示了中国结与俄罗斯套娃两件工艺品，并解读其文化内涵：中国结以一根丝线编结而成，寓意人与人之间的和睦相伴、情谊相通；俄罗斯套娃层层相套，承载着血脉亲情与家族代代延续的美好期许。
+鉴于全球液化天然气价格上涨，该行更看好其母公司新奥股份，认为其上游直接天然气销售业务有望扩大。
 
-互动环节将课堂氛围推向高潮。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 21:50 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-29 21:34 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-29 21:47 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-29 21:35 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 21:49 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 21:51 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-29 21:33 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-29 21:44 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 21:38 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 21:24 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 21:34 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 21:45 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-29 21:34 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-29 21:42 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-29 21:38 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-29 21:58 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-29 21:49 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 21:49 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 21:47 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 21:56 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 21:35 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:32 - [杨德龙：创新药迎来新的发展机遇](http://www.blog.kurohicncr.top/Article/details/387883.shtml)
-- 2026-06-29 21:53 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/456509876080.shtml)
-- 2026-06-29 21:46 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/90806254168.shtml)
-- 2026-06-29 21:45 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.kurohicncr.top/Article/details/175960.shtml)
-- 2026-06-29 21:26 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/90390207269.shtml)
-- 2026-06-29 21:53 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.kurohicncr.top/Article/details/70296737.shtml)
-- 2026-06-29 21:44 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/16723664.shtml)
-- 2026-06-29 21:27 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/5262216529.shtml)
-- 2026-06-29 21:31 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/6216840.shtml)
-- 2026-06-29 21:39 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/300191423.shtml)
-- 2026-06-29 21:28 - [小龙女配音去世 李若彤发文悼念](http://www.share.minike.top/Article/details/316878043983.shtml)
-- 2026-06-29 21:24 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/82279963.shtml)
-- 2026-06-29 21:42 - [一见倾心](http://www.share.kurohicncr.top/Article/details/39357467336.shtml)
-- 2026-06-29 21:39 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.kurohicncr.top/Article/details/64715.shtml)
-- 2026-06-29 21:25 - [追觅称质量不行终身包修也没意义](http://www.share.kurohicncr.top/Article/details/0626158138.shtml)
+- 2026-06-29 21:54 - [TI2026参赛战队出炉](https://www.blog.minike.top/Article/details/578813065401.shtml)
+- 2026-06-29 21:39 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.kurohicncr.top/Article/details/075860.shtml)
+- 2026-06-29 21:40 - [葫芦岛居民楼闪爆事故致3死](https://www.share.minike.top/Article/details/203200348.shtml)
+- 2026-06-29 21:51 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/08078.shtml)
+- 2026-06-29 21:32 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/914780520.shtml)
+- 2026-06-29 21:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/0701950722.shtml)
+- 2026-06-29 21:44 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/2003381.shtml)
+- 2026-06-29 21:50 - [多人将马路护栏当球网打羽毛球](https://www.share.kurohicncr.top/Article/details/6561800719.shtml)
+- 2026-06-29 21:55 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/7690056.shtml)
+- 2026-06-29 21:53 - [乌克兰发广告全球征兵](https://www.share.minike.top/Article/details/5098590332.shtml)
+- 2026-06-29 21:47 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/6600172062.shtml)
+- 2026-06-29 21:50 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/1351969.shtml)
+- 2026-06-29 21:51 - [东方风云榜直播](http://www.blog.minike.top/Article/details/820724495.shtml)
+- 2026-06-29 21:39 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/29848956209.shtml)
+- 2026-06-29 21:50 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/86544485.shtml)

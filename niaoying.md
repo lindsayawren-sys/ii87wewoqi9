@@ -1,56 +1,61 @@
-# Wells Fargo上调标普500指数年底目标 因美伊协议签署临近
+# PCB卖铲人，业绩爆了！
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-Wells Fargo Securities LLC表示，宏观经济担忧缓解、情绪改善以及加息预期已被市场消化，这些因素将推动美国股市走高。 该行将标普500指数的年末目标位从7，300点上调至7，950点，较该股指周一收盘水平有约5%的上涨空间。 Wells Fargo上调目标之际，美国和伊朗准备周五在瑞士正式签署临时和平协议。协议将结束持续数月的冲突，恢复关键水道霍尔木兹海峡
+AI狂飙，IC载板成为关键赢家！进入2026年，海外CSP（云服务提供商）大厂持续加码资本支出，押注AI数据中心。数据显示，2026年，海外九大CSP合计资本支出将增长至8300亿美元，同比增速高达79%。这一轮资本扩张，直接拉动了AI服务器与核心硬件需求呈指数级爆发。而在这波浪潮中，一个曾被“卡脖子”的环节——IC载板，正迎来爆发拐点。那么，IC载板是什么？IC载板，又称IC
 
 ## 正文
 
-Wells Fargo Securities LLC表示，宏观经济担忧缓解、情绪改善以及加息预期已被市场消化，这些因素将推动美国股市走高。
+AI狂飙，IC载板成为关键赢家！
 
-该行将标普500指数的年末目标位从7，300点上调至7，950点，较该股指周一收盘水平有约5%的上涨空间。
+进入2026年，海外CSP（云服务提供商）大厂持续加码资本支出，押注AI数据中心。
 
-Wells Fargo上调目标之际，美国和伊朗准备周五在瑞士正式签署临时和平协议。
+数据显示，2026年，海外九大CSP合计资本支出将增长至8300亿美元，同比增速高达79%。
 
-协议将结束持续数月的冲突，恢复关键水道霍尔木兹海峡的通行。
+这一轮资本扩张，直接拉动了AI服务器与核心硬件需求呈指数级爆发。
 
-Wells Fargo股票分析师Ohsung Kwon表示，华盛顿与德黑兰之间紧张局势降温正在缓解宏观经济担忧。
+而在这波浪潮中，一个曾被“卡脖子”的环节——IC载板，正迎来爆发拐点。
 
-他表示，油价上涨带来的通胀压力可能会消退。
+那么，IC载板是什么？
 
-此外，纳斯达克100指数的市场情绪已稳处中性区间，这为人工智能（AI）股票提供了助力。
+IC载板，又称IC封装基板，是连接芯片与PCB的关键封装基板，承担着电气互连、物理支撑、散热、保护芯片等功能。
 
-“情绪已经重置，为AI交易提供了上涨空间，”Kwon在周二发布的报告中写道。
+据预测，到2031年，全球整体IC载板市场规模将飙升至264.7亿美元，年复合增长率约9.2%。
 
 ## 相关推荐
 
-- 2026-06-29 21:29 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-29 21:28 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-29 21:52 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-29 21:48 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 21:33 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-29 21:44 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-29 21:41 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-29 21:48 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 21:29 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-29 21:43 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 21:49 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 21:46 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 21:31 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-29 21:47 - [周杰伦千禧年就有小卡了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 21:32 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-29 21:37 - [记者乘坐无人驾驶汽车去采访](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 21:43 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-29 21:39 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-29 21:34 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 21:58 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-29 21:37 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 21:48 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-29 21:46 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 21:51 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 21:35 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:40 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/415881415962.shtml)
-- 2026-06-29 21:42 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/12136978.shtml)
-- 2026-06-29 21:32 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/92089.shtml)
-- 2026-06-29 21:50 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/501021777.shtml)
-- 2026-06-29 21:40 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/153719.shtml)
-- 2026-06-29 21:49 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/209464837871.shtml)
-- 2026-06-29 21:39 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/79240.shtml)
-- 2026-06-29 21:25 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/58029887648.shtml)
-- 2026-06-29 21:37 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/4311256369.shtml)
-- 2026-06-29 21:51 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/4975824.shtml)
-- 2026-06-29 21:28 - [腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/1175380.shtml)
-- 2026-06-29 21:31 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/44797932.shtml)
-- 2026-06-29 21:40 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/485596670164.shtml)
-- 2026-06-29 21:26 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/13570.shtml)
-- 2026-06-29 21:36 - [返利科技盘中上演“天地板”](https://www.share.kurohicncr.top/Article/details/836272.shtml)
+- 2026-06-29 21:36 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/752107.shtml)
+- 2026-06-29 21:59 - [美国一牛仔表演发生事故](http://www.blog.minike.top/Article/details/5002169736.shtml)
+- 2026-06-29 21:45 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/120759563273.shtml)
+- 2026-06-29 21:38 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/8068379.shtml)
+- 2026-06-29 21:38 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/71481712187.shtml)
+- 2026-06-29 21:44 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/25381498273.shtml)
+- 2026-06-29 21:57 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/194648904.shtml)
+- 2026-06-29 21:41 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/341743.shtml)
+- 2026-06-29 21:55 - [千与千寻](http://www.share.minike.top/Article/details/25669832744.shtml)
+- 2026-06-29 21:33 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/8860648519.shtml)
+- 2026-06-29 21:33 - [朱雀三号完成静态点火试验](https://www.blog.minike.top/Article/details/613925.shtml)
+- 2026-06-29 21:37 - [恋与深空致歉](http://www.share.minike.top/Article/details/8747515844.shtml)
+- 2026-06-29 21:36 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/748921735584.shtml)
+- 2026-06-29 21:52 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/229194880307.shtml)
+- 2026-06-29 21:53 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/6227193951.shtml)

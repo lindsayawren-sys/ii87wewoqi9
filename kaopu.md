@@ -1,60 +1,57 @@
-# 科学护眼联盟联合行动首站 专家示范“20-20-20”护眼法则
+# 巨额定增遭证监会“四连问”，零跑的正确姿势是什么？
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-中新网北京6月17日电 (记者 张素)北京大学第三医院眼科主任医师范翔近日在北京举行的一场公益活动上示范“20-20-20”护眼法则，即“每20分钟看20英尺外20秒”。 针对现代人长时间使用电子屏幕的现状，范翔讲解了视频显示终端综合征的发病机制，以及眼干涩、视疲劳、视力模糊等常见症状。 他还介绍了分屏幕亮度调节、背景颜色选择、读写姿势规范、合理使用人工泪液等实用技巧，并呼吁居
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：新刊财经 新能源汽车产业走到今天，已经不缺会讲故事的企业，缺的是能把故事兑现为报表、把报表沉淀为现金流、把现金流转化为长期竞争力的企业。监管问询，是压力，也是契机。对零跑而言，最好的回应不是口号，而是把毛利率拆清楚，把募资账本列清楚，把收入确认等等问题讲清楚。 一家车企的成色，不能只看销量曲线，也要看利润曲线；不能只看融资
 
 ## 正文
 
-中新网北京6月17日电 (记者 张素)北京大学第三医院眼科主任医师范翔近日在北京举行的一场公益活动上示范“20-20-20”护眼法则，即“每20分钟看20英尺外20秒”。
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：新刊财经 新能源汽车产业走到今天，已经不缺会讲故事的企业，缺的是能把故事兑现为报表、把报表沉淀为现金流、把现金流转化为长期竞争力的企业。
 
-针对现代人长时间使用电子屏幕的现状，范翔讲解了视频显示终端综合征的发病机制，以及眼干涩、视疲劳、视力模糊等常见症状。
+监管问询，是压力，也是契机。
 
-他还介绍了分屏幕亮度调节、背景颜色选择、读写姿势规范、合理使用人工泪液等实用技巧，并呼吁居民养成科学用眼习惯，从源头减少屏幕伤害。
+对零跑而言，最好的回应不是口号，而是把毛利率拆清楚，把募资账本列清楚，把收入确认等等问题讲清楚。
 
-此次，北京白求恩公益基金会等在北京市西城区展览路街道扣钟社区党群服务中心举办“全国爱眼日·科学护眼联盟联合行动”首场社区公益活动。
+一家车企的成色，不能只看销量曲线，也要看利润曲线；不能只看融资能力，也要看资金效率；不能只看股东增持，更要看市场信任能否被经营质量夯实。
 
-活动覆盖青少年近视防控、职场干眼评估、中老年眼底病及白内障筛查等需求。
+近日，零跑汽车拟募资约67.44亿元的定增事项收到证监会反馈意见。
 
-现场配备全自动免散瞳眼底相机、全自动屈光度筛查仪、手持裂隙灯及数码裂隙灯等专业设备。
+监管所问，直指要害：毛利率变动是否合理，收入确认是否审慎，募资必要性是否充分，控制权安排是否稳定。
 
-多位医学专家结合检查结果，为居民定制个性化诊疗与养护建议，并普及“早筛查、早预防、科学诊疗”的护眼理念。
+与此同时，零跑并非站在低谷。
 
-在完成眼底筛查后，不少居民感慨：“以前去医院排队很久，今天在家门口几分钟就拍好了片子，医生当场解读，太方便了。
+2025年，公司交付约59.66万辆，实现收入647.3亿元、净利润5.4亿元，首次实现全年盈利；近期公司仍在密集推出新品，董事长朱江明及股东傅利泉也公告合计增持约4.9亿港元H股。
 
 ## 相关推荐
 
-- 2026-06-29 21:35 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-29 21:41 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 21:33 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-29 21:26 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-29 21:51 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-29 21:50 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-29 21:46 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 21:42 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-29 21:51 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-29 21:31 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-29 21:36 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 21:45 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 21:30 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-29 21:34 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 21:35 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 21:45 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-29 21:39 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 21:45 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 21:45 - [网约车出事故平台拒赔称只是中介](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-29 21:48 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-29 21:50 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 21:37 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 21:47 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 21:34 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-29 21:38 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:25 - [欧洲安装一台空调要花近8000元](https://www.share.kurohicncr.top/Article/details/47469080583.shtml)
-- 2026-06-29 21:45 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/11067325.shtml)
-- 2026-06-29 21:51 - [网约车出事故平台拒赔称只是中介](http://www.share.minike.top/Article/details/81631252182.shtml)
-- 2026-06-29 21:42 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/8540519.shtml)
-- 2026-06-29 21:45 - [济南航空航天全面起势](http://www.share.kurohicncr.top/Article/details/66511.shtml)
-- 2026-06-29 21:28 - [回顾世界杯争议事件](http://www.blog.minike.top/Article/details/8343658263.shtml)
-- 2026-06-29 21:52 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/0392870335.shtml)
-- 2026-06-29 21:42 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/3639305055.shtml)
-- 2026-06-29 21:28 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/54175099.shtml)
-- 2026-06-29 21:29 - [法拉利车主已自行承担修理费近3万](https://www.blog.kurohicncr.top/Article/details/121747579.shtml)
-- 2026-06-29 21:29 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/62524.shtml)
-- 2026-06-29 21:26 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/29043028955.shtml)
-- 2026-06-29 21:34 - [一汽大众黄金超混技术来袭](http://www.blog.minike.top/Article/details/48199150942.shtml)
-- 2026-06-29 21:33 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/2080349.shtml)
-- 2026-06-29 21:42 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/867122280.shtml)
+- 2026-06-29 21:50 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.minike.top/Article/details/5721206.shtml)
+- 2026-06-29 21:46 - [湖南姑娘被东北同事带偏口音](http://www.share.kurohicncr.top/Article/details/6031717.shtml)
+- 2026-06-29 21:48 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/4842041421.shtml)
+- 2026-06-29 21:44 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/4209531602.shtml)
+- 2026-06-29 21:37 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/01174556.shtml)
+- 2026-06-29 21:47 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/156381769.shtml)
+- 2026-06-29 21:51 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/953551262259.shtml)
+- 2026-06-29 21:51 - [杨紫有3部作品入围金鹰奖](https://www.share.minike.top/Article/details/5410968.shtml)
+- 2026-06-29 21:55 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.kurohicncr.top/Article/details/81571.shtml)
+- 2026-06-29 21:47 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/1533815504.shtml)
+- 2026-06-29 21:45 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/4878602435.shtml)
+- 2026-06-29 21:45 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.kurohicncr.top/Article/details/60208.shtml)
+- 2026-06-29 21:50 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/36577.shtml)
+- 2026-06-29 21:41 - [扬名立万](https://www.share.kurohicncr.top/Article/details/5967281241.shtml)
+- 2026-06-29 21:35 - [天道](https://www.blog.minike.top/Article/details/409284331151.shtml)

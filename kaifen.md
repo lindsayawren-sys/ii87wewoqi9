@@ -1,52 +1,57 @@
-# 建滔积层板早盘涨超9% 花旗上调其目标价至100港元
+# 霍尔木兹海峡再起冲突 美国和伊朗仍接近达成和平协议
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-建滔积层板（01888）早盘涨超9%，截至发稿，股价上涨9.04%，现报87.45港元，成交额36.62亿港元。 花旗发布研报称，上调建滔积层板（01888）2026-2028年盈利预测7-16%，目标价由80港元升至100港元，以反映AI玻纤布盈利能力强于预期。花旗在过去四个月内由20.5港元起多次上调目标价，公司股价年初至今亦升了五倍，该行相信是受电子玻纤布及覆铜板的平均售
+巴基斯坦表示，一项旨在重开霍尔木兹海峡的美伊临时协议可能在24小时内敲定。在此前这一战略航道附近发生冲突后，这一表态拉高了市场对双方可能正接近达成更广泛协议的预期。 作为华盛顿与德黑兰谈判的重要斡旋方，巴基斯坦总理夏巴兹·谢里夫表示，巴方正准备“随后立即”举行和平协议的电子签署，“随后在下周进行技术层面的会谈”。 在谢里夫周六发表讲话前不久，美国中央司令部表示击落了多架针对霍尔
 
 ## 正文
 
-建滔积层板（01888）早盘涨超9%，截至发稿，股价上涨9.04%，现报87.45港元，成交额36.62亿港元。
+巴基斯坦表示，一项旨在重开霍尔木兹海峡的美伊临时协议可能在24小时内敲定。
 
-花旗发布研报称，上调建滔积层板（01888）2026-2028年盈利预测7-16%，目标价由80港元升至100港元，以反映AI玻纤布盈利能力强于预期。
+在此前这一战略航道附近发生冲突后，这一表态拉高了市场对双方可能正接近达成更广泛协议的预期。
 
-花旗在过去四个月内由20.5港元起多次上调目标价，公司股价年初至今亦升了五倍，该行相信是受电子玻纤布及覆铜板的平均售价急升带动，令其盈利及增长预期有所改善。
+作为华盛顿与德黑兰谈判的重要斡旋方，巴基斯坦总理夏巴兹·谢里夫表示，巴方正准备“随后立即”举行和平协议的电子签署，“随后在下周进行技术层面的会谈”。
 
-该行指，在与中国AI玻纤布行业龙头宏和电子材料会面后，发现由于织布机供应有限，电子玻纤布平均售价在2026年下半年将维持上升，以及AI玻纤布盈利能力高于预期，都是对建滔积层板的启示。
+在谢里夫周六发表讲话前不久，美国中央司令部表示击落了多架针对霍尔木兹海峡附近商船的伊朗无人机。
 
-责任编辑：卢昱君
+特朗普政府一位高级官员周五表示，协议将很快签署的概率达到80%至85%。
+
+伊朗外长阿巴斯·阿拉格齐周五在国家电视台播出的讲话中也表达了类似预期，并称可能在未来数日内签署。
+
+据伊朗国营的IRIB报道，伊朗外交部发言人排除了周日签署协议的可能性。
+
+美国总统唐纳德·特朗普数十次表示，自2月爆发的战争即将结束，但迄今尚未实现。
 
 ## 相关推荐
 
-- 2026-06-29 21:39 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-29 21:27 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-29 21:52 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 21:37 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 21:40 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 21:49 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 21:29 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-29 21:48 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-29 21:50 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 21:26 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-29 21:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 21:26 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 21:47 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 21:48 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 21:33 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 21:51 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 21:54 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 21:50 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 21:39 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 21:40 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-29 21:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 21:45 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 21:54 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:35 - [男子称在京东买到“同仁堂”假药](https://www.blog.minike.top/Article/details/24561.shtml)
-- 2026-06-29 21:37 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/03480.shtml)
-- 2026-06-29 21:24 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/4947663.shtml)
-- 2026-06-29 21:43 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/798546.shtml)
-- 2026-06-29 21:30 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/018292.shtml)
-- 2026-06-29 21:35 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/4535370.shtml)
-- 2026-06-29 21:51 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/947509371546.shtml)
-- 2026-06-29 21:34 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/61095533853.shtml)
-- 2026-06-29 21:38 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/56115119.shtml)
-- 2026-06-29 21:36 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.kurohicncr.top/Article/details/6003216103.shtml)
-- 2026-06-29 21:26 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/3541461917.shtml)
-- 2026-06-29 21:25 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/362337.shtml)
-- 2026-06-29 21:44 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/30435766230.shtml)
-- 2026-06-29 21:52 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/30850905.shtml)
-- 2026-06-29 21:50 - [网友晒14年前支教影像等来学生评论](http://www.share.minike.top/Article/details/134217465.shtml)
+- 2026-06-29 21:32 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/8381145338.shtml)
+- 2026-06-29 21:30 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/68935893181.shtml)
+- 2026-06-29 21:59 - [英法德葡存在什么隐患](http://www.share.minike.top/Article/details/45952.shtml)
+- 2026-06-29 21:50 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.blog.minike.top/Article/details/07207.shtml)
+- 2026-06-29 21:48 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/802309775935.shtml)
+- 2026-06-29 21:31 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/417365242.shtml)
+- 2026-06-29 21:51 - [齐思钧回复孙怡](http://www.share.kurohicncr.top/Article/details/4640691.shtml)
+- 2026-06-29 21:32 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/132262.shtml)
+- 2026-06-29 21:53 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/31654.shtml)
+- 2026-06-29 21:41 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/41909.shtml)
+- 2026-06-29 21:49 - [肝不好身体这几处会“说话”](https://www.blog.minike.top/Article/details/4375896383.shtml)
+- 2026-06-29 21:58 - [浙江进入梅雨最强“攻击时段”](https://www.share.kurohicncr.top/Article/details/433838.shtml)
+- 2026-06-29 21:41 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/51451840493.shtml)
+- 2026-06-29 21:54 - [马光远谈马斯克最大的价值](http://www.share.kurohicncr.top/Article/details/537967.shtml)
+- 2026-06-29 21:54 - [马光远谈马斯克最大的价值](http://www.blog.minike.top/Article/details/55853.shtml)

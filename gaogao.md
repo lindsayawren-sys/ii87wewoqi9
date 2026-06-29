@@ -1,56 +1,59 @@
-# 今晚！两只“大牛股”，突发公告！
+# 一艘液化天然气船驶向霍尔木兹海峡 美伊协议带来海峡重开希望
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-两只“大牛股”突然抛出减持公告。 今晚（6月16日），华正新材发布公告称，控股股东华立集团于6月10日至16日期间减持56.42万股股份。截至6月16日收盘，华正新材股价录得涨停，年内累计涨幅扩大至315.95%。 与此同时，福达合金也发布公告称，控股股东王达武及其一致行动人陈松扬计划减持公司股份不超过406.34万股，占总股本的3%。截至6月16日收盘，福达合金股价强势涨停，
+一艘在波斯湾滞留三个多月的液化天然气运输船似乎正驶向霍尔木兹海峡，与此同时，美国和伊朗称已经达成重新开放该海峡的协议。 船舶追踪数据显示，这艘与印度一家国有进口商签订了长期租约的船舶名为Disha，位于阿拉伯联合酋长国北部，正接近阿曼。 数据显示，这艘油轮于3月1日左右从卡塔尔Ras Laffan装载了一批液化天然气，但此后一直无法离开。 周一凌晨，海峡周围的其他活动似乎有限，
 
 ## 正文
 
-两只“大牛股”突然抛出减持公告。
+一艘在波斯湾滞留三个多月的液化天然气运输船似乎正驶向霍尔木兹海峡，与此同时，美国和伊朗称已经达成重新开放该海峡的协议。
 
-今晚（6月16日），华正新材发布公告称，控股股东华立集团于6月10日至16日期间减持56.42万股股份。
+船舶追踪数据显示，这艘与印度一家国有进口商签订了长期租约的船舶名为Disha，位于阿拉伯联合酋长国北部，正接近阿曼。
 
-截至6月16日收盘，华正新材股价录得涨停，年内累计涨幅扩大至315.95%。
+数据显示，这艘油轮于3月1日左右从卡塔尔Ras Laffan装载了一批液化天然气，但此后一直无法离开。
 
-与此同时，福达合金也发布公告称，控股股东王达武及其一致行动人陈松扬计划减持公司股份不超过406.34万股，占总股本的3%。
+周一凌晨，海峡周围的其他活动似乎有限，因为鉴于美国宣布并经伊朗确认的协议缺乏细节，船东和贸易商仍然保持谨慎。
 
-截至6月16日收盘，福达合金股价强势涨停，录得两连板，年内累计涨幅扩大至349.53%。
+欧洲天然气价格周一亚洲早盘交易中一度下跌5.8%。
 
-突然减持 6月16日晚间，华正新材发布《关于股东权益变动触及1%刻度的提示性公告》，其中显示，公司控股股东华立集团于2026年6月10日至6月16日期间，通过集中竞价交易减持公司股份56.42万股，占公司总股本的0.36%。
+恢复经由霍尔木兹港的液化天然气运输将有助于缓解自3月以来一直推高欧洲和亚洲天然气价格的供应紧张局面。
 
-减持后，华立集团持股比例由36.29%降至35.93%。
+原油价格开盘也大幅下跌， 布伦特跌幅超过3%。
 
-根据公告，本次权益变动系控股股东华立集团通过集中竞价方式减持其非公开发行取得的公司股份，无需预先披露减持计划。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 21:35 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-29 21:42 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-29 21:24 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-29 21:46 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 21:52 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-29 21:28 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 21:37 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-29 21:35 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 21:25 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-29 21:51 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 21:36 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-29 21:34 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-29 21:55 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 21:49 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 21:55 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 21:32 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-29 21:30 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-29 21:53 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-29 21:32 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 21:58 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-29 21:39 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 21:31 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 21:47 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:28 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/09462.shtml)
-- 2026-06-29 21:33 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/10124.shtml)
-- 2026-06-29 21:52 - [温网](http://www.share.kurohicncr.top/Article/details/3743413.shtml)
-- 2026-06-29 21:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/49654382343.shtml)
-- 2026-06-29 21:42 - [温网](http://www.blog.kurohicncr.top/Article/details/17688.shtml)
-- 2026-06-29 21:46 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/03006169.shtml)
-- 2026-06-29 21:32 - [金鹰奖第二阶段投票明日开启](http://www.blog.kurohicncr.top/Article/details/60970605348.shtml)
-- 2026-06-29 21:52 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.minike.top/Article/details/2996985342.shtml)
-- 2026-06-29 21:32 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/31418.shtml)
-- 2026-06-29 21:38 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/161362881812.shtml)
-- 2026-06-29 21:30 - [把邻居裸体发群算维权还是侵权](http://www.blog.kurohicncr.top/Article/details/783681578511.shtml)
-- 2026-06-29 21:36 - [周生如故](http://www.share.kurohicncr.top/Article/details/9998760.shtml)
-- 2026-06-29 21:26 - [佛得角队长门德斯被控强奸](https://www.share.kurohicncr.top/Article/details/80429579970.shtml)
-- 2026-06-29 21:47 - [黄金也扛不住了](https://www.share.minike.top/Article/details/10970879.shtml)
-- 2026-06-29 21:40 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/42929.shtml)
+- 2026-06-29 21:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/0753163.shtml)
+- 2026-06-29 21:31 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/589241.shtml)
+- 2026-06-29 21:40 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/58647.shtml)
+- 2026-06-29 22:00 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/30122.shtml)
+- 2026-06-29 21:31 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/61786.shtml)
+- 2026-06-29 21:50 - [王鸿薇要求删陆委会百余万特别费](https://www.share.minike.top/Article/details/667620831765.shtml)
+- 2026-06-29 21:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/39908381.shtml)
+- 2026-06-29 21:49 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/400474856168.shtml)
+- 2026-06-29 21:42 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/38219090.shtml)
+- 2026-06-29 21:58 - [天气热脾气都变差了](https://www.share.kurohicncr.top/Article/details/5004188183.shtml)
+- 2026-06-29 21:45 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/9889858.shtml)
+- 2026-06-29 21:34 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.kurohicncr.top/Article/details/7923850.shtml)
+- 2026-06-29 21:39 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/2772874205.shtml)
+- 2026-06-29 21:54 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/290683.shtml)
+- 2026-06-29 21:56 - [恋与深空致歉](https://www.blog.minike.top/Article/details/51772.shtml)

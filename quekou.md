@@ -1,57 +1,58 @@
-# （经济观察）海南封关半年 外资加速入琼
+# 践行习近平总书记重要论述深入实施能源安全新战略
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-中新社海口6月16日电 (记者 王子谦)新加坡甜品品牌Co+Nut+Ink(椰壳饮冰淇淋)中国首店近日在海口骑楼老街开业，凭借椰子口味的冰淇淋“圈粉”。椰壳饮品牌创始人邓国荣告诉中新社记者，海南是其走向全球市场的“第一站”。海南自贸港全岛封关已近半年，随着“零关税、低税率”“加工增值30%免关税”等开放优势不断凸显，外资企业纷纷登陆海南。官方披露，自封关至今年4月底，海南新增外
+能源安全是关系国家经济社会发展的全局性、战略性问题。 “抓住能源就抓住了国家发展和安全战略的牛鼻子”，2014年6月13日，习近平总书记主持召开中央财经领导小组第六次会议，提出“四个革命、一个合作”能源安全新战略，为新时代能源发展指明前进方向、提供根本遵循。 新时代新征程上，沿着习近平总书记指引的方向，我国加快构建清洁低碳安全高效的新型能源体系，推动能源供应链韧性和安全水平不断
 
 ## 正文
 
-中新社海口6月16日电 (记者 王子谦)新加坡甜品品牌Co+Nut+Ink(椰壳饮冰淇淋)中国首店近日在海口骑楼老街开业，凭借椰子口味的冰淇淋“圈粉”。
+能源安全是关系国家经济社会发展的全局性、战略性问题。
 
-椰壳饮品牌创始人邓国荣告诉中新社记者，海南是其走向全球市场的“第一站”。
+“抓住能源就抓住了国家发展和安全战略的牛鼻子”，2014年6月13日，习近平总书记主持召开中央财经领导小组第六次会议，提出“四个革命、一个合作”能源安全新战略，为新时代能源发展指明前进方向、提供根本遵循。
 
-海南自贸港全岛封关已近半年，随着“零关税、低税率”“加工增值30%免关税”等开放优势不断凸显，外资企业纷纷登陆海南。
+新时代新征程上，沿着习近平总书记指引的方向，我国加快构建清洁低碳安全高效的新型能源体系，推动能源供应链韧性和安全水平不断提升，正在走出一条符合中国国情、顺应全球发展大势、适应时代要求的能源高质量发展之路，为加快建设能源强国创造有利条件、夯实长远根基。
 
-官方披露，自封关至今年4月底，海南新增外资企业1016户，同比增长35.5%。
+强化战略引领 夯实能源安全根基 5月27日，我国渤海亿吨级油田垦利10-2油田群一期项目全面投产，油田原油日产量超2800吨，探明地质储量超1亿吨，是我国海上最大规模浅层岩性油田。
 
-看好海南自贸港的国际消费集聚优势，椰壳饮在海口注册企业并开设首店。
+加快油气增储上产步伐，持续筑牢能源战略安全底线。
 
-邓国荣说，海南企业所得税等税负低且拥有免税政策，有利于外资企业降低成本。
+当前，美以伊冲突已持续百余日，全球能源贸易秩序遇到严峻挑战，我国能源供应平稳有序，经济发展彰显韧性与底气。
 
-他希望在培育消费人群的同时，未来两年内开设冰淇淋工厂，进一步扩展中国及海外市场。
+进入新时代，我国已成为世界上最大的能源生产国和能源消费国，面临从“能源大国”向“能源强国”转变的迫切需要。
 
-普华永道中国南部税务市场主管合伙人王舜宜认为，封关以来外资企业“加速进场”，本质上是高水平制度型开放与独特战略枢纽价值叠加的可持续增长逻辑，海南从早期的“政策预期”真正兑现为全球生产要素的“降本增效高地”。
+2014年6月13日，在中央财经领导小组第六次会议上，习近平总书记强调：“面对能源供需格局新变化、国际能源发展新趋势，保障国家能源安全，必须推动能源生产和消费革命。
 
 ## 相关推荐
 
-- 2026-06-29 21:39 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-29 21:53 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 21:32 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 21:45 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 21:49 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 21:36 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-29 21:25 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-29 21:30 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 21:37 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-29 21:50 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 21:34 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 21:42 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-29 21:43 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-29 21:52 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 21:50 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 21:44 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 21:38 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 21:44 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 21:52 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-29 21:40 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 21:35 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-29 21:35 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-29 21:44 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:38 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/934720419.shtml)
-- 2026-06-29 21:42 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/312391.shtml)
-- 2026-06-29 21:27 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.minike.top/Article/details/63894990.shtml)
-- 2026-06-29 21:31 - [无畏为自己的猫正名了](http://www.share.kurohicncr.top/Article/details/9099360.shtml)
-- 2026-06-29 21:45 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/9612005468.shtml)
-- 2026-06-29 21:27 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/61216103.shtml)
-- 2026-06-29 21:38 - [本届世界杯已有5人涉性侵风波](http://www.share.kurohicncr.top/Article/details/4035146.shtml)
-- 2026-06-29 21:45 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/892815.shtml)
-- 2026-06-29 21:52 - [蔚来车主罚站](http://www.share.minike.top/Article/details/673804025994.shtml)
-- 2026-06-29 21:29 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/6082569987.shtml)
-- 2026-06-29 21:42 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/266699337.shtml)
-- 2026-06-29 21:50 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/6985489588.shtml)
-- 2026-06-29 21:46 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/561131450278.shtml)
-- 2026-06-29 21:35 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/27473534858.shtml)
-- 2026-06-29 21:46 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.blog.kurohicncr.top/Article/details/274523782356.shtml)
+- 2026-06-29 21:42 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/4662923756.shtml)
+- 2026-06-29 21:48 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/37313015.shtml)
+- 2026-06-29 21:43 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/94148274797.shtml)
+- 2026-06-29 21:37 - [日防卫省正考虑引进美企人工智能系统](https://www.share.minike.top/Article/details/793427475483.shtml)
+- 2026-06-29 21:43 - [宜宾地震已转移安置225人](http://www.blog.kurohicncr.top/Article/details/3034565309.shtml)
+- 2026-06-29 21:55 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/322319526649.shtml)
+- 2026-06-29 21:58 - [宜宾地震已转移安置225人](https://www.blog.minike.top/Article/details/881302980931.shtml)
+- 2026-06-29 21:35 - [黄金也扛不住了](https://www.share.minike.top/Article/details/02085.shtml)
+- 2026-06-29 21:34 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/92803.shtml)
+- 2026-06-29 21:54 - [小龙女配音去世 李若彤发文悼念](http://www.share.kurohicncr.top/Article/details/77002.shtml)
+- 2026-06-29 21:43 - [一诺变着花样秀新驾照](https://www.blog.minike.top/Article/details/701685795.shtml)
+- 2026-06-29 21:54 - [极限挑战第一季](http://www.blog.minike.top/Article/details/31268.shtml)
+- 2026-06-29 21:52 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/565316967066.shtml)
+- 2026-06-29 21:59 - [送你一朵小红花](http://www.blog.minike.top/Article/details/40794800675.shtml)
+- 2026-06-29 21:39 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/2292410030.shtml)

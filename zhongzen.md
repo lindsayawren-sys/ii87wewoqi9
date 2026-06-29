@@ -1,61 +1,56 @@
-# 重磅白皮书发布，为破解全球治理赤字提供中国方案
+# 官方通报“东莞地铁2号线东城站有乘客翻越闸机”
 
-> 更新时间：2026-06-29 21:54:02 UTC+8
+> 更新时间：2026-06-29 22:00:02 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 张倩楠 界面新闻编辑 | 刘海川 2026年是中国“十五五”开局之年，也是APEC中国年。6月17日，中国国务院新闻办公室发布《构建更加公正合理的全球治理体系：中国的理念、倡议与行动》白皮书，同时举行新闻发布会。中共中央政治局委员、外交部长王毅等出席并介绍白皮书主要内容。 王毅谈到，二战后建立起来的国际体系，当前受到了多重的冲击，全球治理面临逆水行舟、不进则退
+中新网6月14日电 据“东莞轨道交通”微信公众号消息，广东东莞轨道公交集团有限公司发布情况通报称，近日，网络流传“东莞地铁2号线东城站有乘客翻越闸机”相关视频，公司对此高度重视，第一时间开展核查处置。具体情况通报如下：一、事件核实情况 经调取车站监控确认，该事件发生于2026年6月11日22时44分，事发站点为东莞地铁2号线东城站，涉事乘客共计6人，在发现出闸机处有工作人员驻守
 
 ## 正文
 
-界面新闻记者 | 张倩楠 界面新闻编辑 | 刘海川 2026年是中国“十五五”开局之年，也是APEC中国年。
+中新网6月14日电 据“东莞轨道交通”微信公众号消息，广东东莞轨道公交集团有限公司发布情况通报称，近日，网络流传“东莞地铁2号线东城站有乘客翻越闸机”相关视频，公司对此高度重视，第一时间开展核查处置。
 
-6月17日，中国国务院新闻办公室发布《构建更加公正合理的全球治理体系：中国的理念、倡议与行动》白皮书，同时举行新闻发布会。
+具体情况通报如下：一、事件核实情况 经调取车站监控确认，该事件发生于2026年6月11日22时44分，事发站点为东莞地铁2号线东城站，涉事乘客共计6人，在发现出闸机处有工作人员驻守后，转移到进闸机处并利用工作人员巡视空窗间隙跳闸后迅速离站。
 
-中共中央政治局委员、外交部长王毅等出席并介绍白皮书主要内容。
+事发后经调查，东莞轨道公交集团有限公司依据《东莞市城市轨道交通运营管理办法》，按东城站出站线网单程最高票价，向涉事人员足额追缴乘车票款；通报相关部门，相关部门已根据《中华人民共和国治安管理处罚法》，依法对涉事人员均予以治安处罚。
 
-王毅谈到，二战后建立起来的国际体系，当前受到了多重的冲击，全球治理面临逆水行舟、不进则退。
+二、文明乘车呼吁 翻越闸机逃票行为，不仅违反轨道交通运营管理法规，扰乱车站正常运营秩序，也破坏公共文明出行氛围。
 
-在这个重要的关头，习近平主席郑重提出全球治理倡议，号召各国携手行动，构建更加公正合理的全球治理体系，为破解全球治理赤字、引领人类前进方向贡献了中国智慧，提供了中国方案。
+根据《东莞市城市轨道交通运营管理办法》第三十四条，乘客应当持有效车票乘车；乘客无票或者持无效车票乘车的，应当按照城市轨道交通出闸站线网单程最高票价补交票款。
 
-他指出，这一重大倡议致力于推动国际关系民主化法治化，要走出一条以共商共建共享为导向的全球治理新路径，从而超越传统国际关系理论“中心—外围”的陈旧秩序，摒弃“强权即公理”的“丛林法则”，进一步深化了对人类社会发展规律的认识，也创新了国际政治文明的理论和实践。
+对于触犯《中华人民共和国治安管理处罚法》相关规定的，将依法处予以治安处罚。
 
-“我们看到全球治理倡议一经提出，就得到国际社会的广泛和积极的响应，迄今已得到近160个国家和国际组织的欢迎和支持，还有60多个国家踊跃加入‘全球治理之友小组’。
+在此，东莞轨道公交集团有限公司郑重呼吁广大市民乘客自觉遵守轨道交通乘车规则，主动抵制翻越闸机、恶意逃票等各类不文明乘车行为。
 
-” 王毅表示，全球治理倡议已经从中国方案转化为国际实践，日益展现出强大的生命力。
+乘车途中若发现逃票、闯闸、损毁设备等违规行为，可第一时间告知车站现场工作人员，或拨打地铁服务热线0769-88176666反馈线索，携手维护有序乘车环境。
 
 ## 相关推荐
 
-- 2026-06-29 21:32 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-29 21:35 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 21:30 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 21:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 21:53 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 21:40 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-29 21:25 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-29 21:34 - [委内瑞拉发生余震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-29 21:26 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-29 21:41 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-29 21:46 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 21:51 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-29 21:35 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 21:49 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 21:25 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-29 21:47 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-29 21:58 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 21:34 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 21:41 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 21:31 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-29 21:59 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 21:38 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-29 21:49 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 21:47 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 21:52 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:54 - [王楚钦称抽签结果出来心情不好](http://www.blog.minike.top/Article/details/5650021.shtml)
-- 2026-06-29 21:28 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/250813454175.shtml)
-- 2026-06-29 21:42 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/221297381.shtml)
-- 2026-06-29 21:31 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/207089065.shtml)
-- 2026-06-29 21:48 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/9521983.shtml)
-- 2026-06-29 21:53 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/470986093053.shtml)
-- 2026-06-29 21:41 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/443603601.shtml)
-- 2026-06-29 21:51 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.kurohicncr.top/Article/details/667849316913.shtml)
-- 2026-06-29 21:40 - [欧洲多国高温突破40摄氏度](https://www.blog.kurohicncr.top/Article/details/82870162302.shtml)
-- 2026-06-29 21:34 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/1330617084.shtml)
-- 2026-06-29 21:32 - [东方风云榜](https://www.blog.minike.top/Article/details/1790191362.shtml)
-- 2026-06-29 21:46 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/30694995.shtml)
-- 2026-06-29 21:26 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/85928.shtml)
-- 2026-06-29 21:48 - [王楚钦称抽签结果出来心情不好](http://www.share.kurohicncr.top/Article/details/4880359641.shtml)
-- 2026-06-29 21:43 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/966175120.shtml)
+- 2026-06-29 21:43 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/9261282.shtml)
+- 2026-06-29 21:55 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/9529255.shtml)
+- 2026-06-29 21:33 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/34531802462.shtml)
+- 2026-06-29 21:42 - [天气热脾气都变差了](http://www.blog.minike.top/Article/details/376807920.shtml)
+- 2026-06-29 21:57 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/73072384097.shtml)
+- 2026-06-29 21:44 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/6411673081.shtml)
+- 2026-06-29 21:44 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/11366.shtml)
+- 2026-06-29 21:53 - [扬名立万](https://www.blog.minike.top/Article/details/857485587.shtml)
+- 2026-06-29 21:33 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/1041498511.shtml)
+- 2026-06-29 21:31 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/5236692.shtml)
+- 2026-06-29 21:55 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/648913265825.shtml)
+- 2026-06-29 21:30 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/83398676584.shtml)
+- 2026-06-29 21:44 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/3295803.shtml)
+- 2026-06-29 21:54 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/9683681.shtml)
+- 2026-06-29 21:39 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/474487.shtml)
