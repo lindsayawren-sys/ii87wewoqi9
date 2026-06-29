@@ -1,56 +1,57 @@
-# 5月8日收盘：美股收跌道指跌逾300点 市场关注油价与美伊局势
+# 超级牛散一家三口刚刚砸重金扫货！下一只翻倍股定了？
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-北京时间5月8日凌晨，美股周四收跌，道指收跌逾300点。纳指与标普500指数创盘中新高之后走低。油价反弹，交易员正关注美伊局势的更多进展。 道指跌313.62点，跌幅为0.63%，报49596.97点；纳指跌32.75点，跌幅为0.13%，报25806.20点；标普500指数跌28.01点，跌幅为0.38%，报7337.11点。 油价在早盘交易中曾显著跌至每桶100美元以下，随
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券市场周刊市场号 文 |牛犇 今天（5月13日），A股市场延续震荡向上趋势，存储芯片相关指数仍然强势，与其协同的光模块则继续分化。其中，以源杰科技等为代表的高价股调整明显。也因此，有官媒表示，警惕千元股“高处不胜寒”。那么，科技股泡沫吹破了吗？存储芯片行情还能持续多久？光模块行情结束了吗？ 警惕千元
 
 ## 正文
 
-北京时间5月8日凌晨，美股周四收跌，道指收跌逾300点。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-纳指与标普500指数创盘中新高之后走低。
+来源：证券市场周刊市场号 文 |牛犇 今天（5月13日），A股市场延续震荡向上趋势，存储芯片相关指数仍然强势，与其协同的光模块则继续分化。
 
-油价反弹，交易员正关注美伊局势的更多进展。
+其中，以源杰科技等为代表的高价股调整明显。
 
-道指跌313.62点，跌幅为0.63%，报49596.97点；纳指跌32.75点，跌幅为0.13%，报25806.20点；标普500指数跌28.01点，跌幅为0.38%，报7337.11点。
+也因此，有官媒表示，警惕千元股“高处不胜寒”。
 
-油价在早盘交易中曾显著跌至每桶100美元以下，随后反弹。
+那么，科技股泡沫吹破了吗？
 
-美国西得克萨斯中质原油期货上涨约1%，至每桶95美元上方；作为国际油价标准的布伦特原油期货小幅上涨至每桶101美元上方。
+存储芯片行情还能持续多久？
 
-市场继续关注美伊关系的最新发展。
+光模块行情结束了吗？
 
-受美国可能重启护航商船通过霍尔木兹海峡的“自由计划”的相关报道影响，国际油价周四反弹，美股则由涨转跌。
+警惕千元股？
 
 ## 相关推荐
 
-- 2026-06-29 20:26 - [主力抛售电子和通信板块](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 20:47 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 20:33 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 20:19 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-29 20:40 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-29 20:41 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 20:25 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-29 20:20 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-29 20:25 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 20:28 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-29 20:29 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-29 20:52 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 20:50 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-29 20:50 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-29 20:39 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-29 20:40 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-29 20:51 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 20:40 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 20:34 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-29 20:47 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 20:48 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:24 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/163321528514.shtml)
-- 2026-06-29 20:25 - [海口塔吊事故处罚结果公布](http://www.share.kurohicncr.top/Article/details/6603533.shtml)
-- 2026-06-29 20:42 - [如何看待乌空军3架米格-29被摧毁](http://www.share.minike.top/Article/details/14820422.shtml)
-- 2026-06-29 20:33 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/5952066050.shtml)
-- 2026-06-29 20:35 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/167411726.shtml)
-- 2026-06-29 20:18 - [北京发布地质灾害气象风险蓝色预警](http://www.blog.minike.top/Article/details/366128199.shtml)
-- 2026-06-29 20:32 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/7039074.shtml)
-- 2026-06-29 20:39 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/891748.shtml)
-- 2026-06-29 20:31 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/130894852.shtml)
-- 2026-06-29 20:41 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/94377.shtml)
-- 2026-06-29 20:41 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/404916490582.shtml)
-- 2026-06-29 20:27 - [逃狱兄弟](https://www.share.minike.top/Article/details/926269530055.shtml)
-- 2026-06-29 20:29 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/43593.shtml)
-- 2026-06-29 20:34 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/23617428.shtml)
-- 2026-06-29 20:31 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.kurohicncr.top/Article/details/942958411377.shtml)
+- 2026-06-29 20:36 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.kurohicncr.top/Article/details/828962.shtml)
+- 2026-06-29 20:32 - [中方绝不允许日菲侵害我海洋权益](http://www.share.kurohicncr.top/Article/details/083780.shtml)
+- 2026-06-29 20:36 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/09814324.shtml)
+- 2026-06-29 20:25 - [高质量发展看新疆](https://www.share.minike.top/Article/details/435846402997.shtml)
+- 2026-06-29 20:37 - [佛得角队长门德斯被控强奸](http://www.blog.minike.top/Article/details/16521750.shtml)
+- 2026-06-29 20:37 - [郑钦文谈再战西尼亚科娃](http://www.blog.minike.top/Article/details/8577222518.shtml)
+- 2026-06-29 20:36 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/8045222.shtml)
+- 2026-06-29 20:50 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/8496907674.shtml)
+- 2026-06-29 20:47 - [杨紫视后第一场线下活动](http://www.blog.minike.top/Article/details/990989011473.shtml)
+- 2026-06-29 20:31 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/779354.shtml)
+- 2026-06-29 20:39 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/40296.shtml)
+- 2026-06-29 20:53 - [中方在台湾岛以东海域活动合理合法](https://www.blog.kurohicncr.top/Article/details/83974033.shtml)
+- 2026-06-29 20:31 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/992964238283.shtml)
+- 2026-06-29 20:49 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/478413746.shtml)
+- 2026-06-29 20:27 - [海清4次陪跑白玉兰](https://www.blog.kurohicncr.top/Article/details/40895710209.shtml)

@@ -1,58 +1,60 @@
-# 黄金涨跌关键在美联储？大摩：年内有望冲上5200美元，还有一次降息！
+# 美国4月消费者物价再度大幅攀升 油价同比涨超28%
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-文章来源：财联社 尽管美伊冲突不断带来地缘政治不确定性，但黄金却并未展现传统避险资产属性。不过，黄金市场近期似乎正重拾上行动能，金价正测试每盎司4700美元的新阻力位。 尽管金价仍远低于1月底创下的近5600美元的峰值，但一家华尔街大行预计，黄金价格年内仍会继续走高，并“冲刺”5200美元/盎司。这意味着金价还能较当前水平上涨约10%。 摩根士丹利研究部金属与矿业商品策略师Am
+受与伊朗持续十周的战事推高能源价格影响，美国上月消费者物价再度大幅攀升。 美国劳工部周二公布的数据显示，消费者价格指数较2025年4月同比上涨3.8%。环比来看，4月物价较3月上涨0.6%，其中当月汽油价格飙升5.4%；而2至3月的环比涨幅曾达0.9%，本月涨幅有所回落。 劳工部数据显示，汽油价格同比涨幅已超28%。与此同时，美国汽车协会周二公布的数据显示，普通标号汽油均价突破
 
 ## 正文
 
-文章来源：财联社 尽管美伊冲突不断带来地缘政治不确定性，但黄金却并未展现传统避险资产属性。
+受与伊朗持续十周的战事推高能源价格影响，美国上月消费者物价再度大幅攀升。
 
-不过，黄金市场近期似乎正重拾上行动能，金价正测试每盎司4700美元的新阻力位。
+美国劳工部周二公布的数据显示，消费者价格指数较2025年4月同比上涨3.8%。
 
-尽管金价仍远低于1月底创下的近5600美元的峰值，但一家华尔街大行预计，黄金价格年内仍会继续走高，并“冲刺”5200美元/盎司。
+环比来看，4月物价较3月上涨0.6%，其中当月汽油价格飙升5.4%；而2至3月的环比涨幅曾达0.9%，本月涨幅有所回落。
 
-这意味着金价还能较当前水平上涨约10%。
+劳工部数据显示，汽油价格同比涨幅已超28%。
 
-摩根士丹利研究部金属与矿业商品策略师Amy Gower在最新报告中指出，黄金当前的核心驱动力已从避险需求转向美联储货币政策与实际收益率走势。
+与此同时，美国汽车协会周二公布的数据显示，普通标号汽油均价突破每加仑4.5美元，较去年同期上涨约44%。
 
-该行维持年底金价升至5200美元/盎司的预测，并认为未来降息预期重新升温将为黄金提供进一步上涨空间。
+剔除波动较大的食品和能源价格后，所谓核心消费者物价4月环比上涨0.4%，较2025年4月同比上涨2.8%。
 
-Gower提到，尽管伊朗持续战争加剧了地缘政治不确定性，但近几个月来黄金价格走势不佳，她对此并不感到意外。
+这一涨幅相对温和，表明能源价格暴涨尚未大范围传导至其他商品价格。
 
-她在报告中解释称：“由于冲突引发了能源供应冲击，降低了人们对美联储降息的希望，因此黄金此次难以发挥避险作用也就不足为奇了。
+受肉类价格上涨带动，4月食品杂货价格较3月上涨0.7%，而该类物价在前一个月曾小幅回落。
 
 ## 相关推荐
 
-- 2026-06-29 20:32 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-29 20:30 - [扩军害了世界杯吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-29 20:27 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 20:18 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 20:42 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-29 20:31 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 20:36 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-29 20:36 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 20:42 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-29 20:42 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-29 20:21 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 20:47 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-29 20:50 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 20:29 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-29 20:48 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-29 20:25 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-29 20:39 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 20:52 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-29 20:48 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 20:46 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 20:27 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 20:48 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 20:24 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-29 20:27 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-29 20:51 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 20:45 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:39 - [河南高院审委会原委员曲海滨被查](http://www.blog.kurohicncr.top/Article/details/3169776969.shtml)
-- 2026-06-29 20:30 - [北京市发布雷电黄色预警](https://www.share.minike.top/Article/details/28125.shtml)
-- 2026-06-29 20:34 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/762731427.shtml)
-- 2026-06-29 20:47 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/76234413975.shtml)
-- 2026-06-29 20:35 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/43936909963.shtml)
-- 2026-06-29 20:42 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/74083973276.shtml)
-- 2026-06-29 20:26 - [法生态部长反对装空调却自己吹空调](https://www.share.kurohicncr.top/Article/details/83811345.shtml)
-- 2026-06-29 20:38 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/85464724952.shtml)
-- 2026-06-29 20:47 - [世界杯预测史上最不吃压力之物](http://www.blog.minike.top/Article/details/264662845.shtml)
-- 2026-06-29 20:21 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/65547083102.shtml)
-- 2026-06-29 20:36 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/00185002585.shtml)
-- 2026-06-29 20:30 - [穆祉丞东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/0196854730.shtml)
-- 2026-06-29 20:27 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/65377573.shtml)
-- 2026-06-29 20:22 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/489055.shtml)
-- 2026-06-29 20:29 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/447958892.shtml)
+- 2026-06-29 20:51 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/44573300483.shtml)
+- 2026-06-29 20:29 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/247963.shtml)
+- 2026-06-29 20:39 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/44778348.shtml)
+- 2026-06-29 20:25 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/45656405.shtml)
+- 2026-06-29 20:27 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/18816926751.shtml)
+- 2026-06-29 20:27 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/256770799150.shtml)
+- 2026-06-29 20:32 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/457193.shtml)
+- 2026-06-29 20:45 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/24841909204.shtml)
+- 2026-06-29 20:33 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/794318234974.shtml)
+- 2026-06-29 20:44 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/8764600.shtml)
+- 2026-06-29 20:33 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/586029.shtml)
+- 2026-06-29 20:43 - [委内瑞拉发生余震](https://www.blog.minike.top/Article/details/5443787.shtml)
+- 2026-06-29 20:27 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/764920.shtml)
+- 2026-06-29 20:30 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/403681682850.shtml)
+- 2026-06-29 20:43 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/3033713.shtml)

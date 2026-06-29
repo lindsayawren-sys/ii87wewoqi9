@@ -1,60 +1,61 @@
-# 英国Quantum Motion融资1.6亿美元，押注硅基量子计算“晶体管时刻”
+# 美国副总统万斯向各州表态：整治欺诈问题，否则将失去联邦医疗补助资金
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-伦敦量子计算初创公司Quantum Motion宣布完成1.6亿美元C轮融资，致力于利用标准硅晶体管制造可扩展的量子计算机。本轮融资由DCVC和Kembara共同领投，英国商业银行、Firgun及现有投资者跟投，创下英国量子公司最大单笔VC融资纪录。 Quantum Motion采用硅基晶体管架构制造量子比特，所用技术与智能手机、电脑芯片相同。与传统量子计算方案需要大型定制设施
+据政府高级官员透露，美国副总统万斯计划向全美50个州发出最后通牒：必须严格遵守反欺诈法规，否则将面临联邦医疗补助资金被削减的风险。 特朗普政府定于周三对全美各州医疗补助欺诈监管部门（MFCU） 启动全国性审查。该监管机构依据联邦法律设立并提供资金支持，属于州级监督机构，旨在确保负责查处医疗乱象的部门严厉追责各类违规违法行为。 美国卫生与公众服务部监察长在致各州的信函中表示，拒不
 
 ## 正文
 
-伦敦量子计算初创公司Quantum Motion宣布完成1.6亿美元C轮融资，致力于利用标准硅晶体管制造可扩展的量子计算机。
+据政府高级官员透露，美国副总统万斯计划向全美50个州发出最后通牒：必须严格遵守反欺诈法规，否则将面临联邦医疗补助资金被削减的风险。
 
-本轮融资由DCVC和Kembara共同领投，英国商业银行、Firgun及现有投资者跟投，创下英国量子公司最大单笔VC融资纪录。
+特朗普政府定于周三对全美各州医疗补助欺诈监管部门（MFCU） 启动全国性审查。
 
-Quantum Motion采用硅基晶体管架构制造量子比特，所用技术与智能手机、电脑芯片相同。
+该监管机构依据联邦法律设立并提供资金支持，属于州级监督机构，旨在确保负责查处医疗乱象的部门严厉追责各类违规违法行为。
 
-与传统量子计算方案需要大型定制设施、功耗达数兆瓦不同，该公司的系统可部署于标准数据中心机架，成本与空间需求降低100倍，能耗降低1000倍。
+美国卫生与公众服务部监察长在致各州的信函中表示，拒不配合审查的州，其医疗补助项目将被认定为不合规。
 
-该公司CEO James Palles-Dimmock表示：“量子计算只有建立在可扩展的平台上才能发挥全部潜力，而硅是实现这一目标的最强路径。
+美国卫生与公众服务部监察长在信中写道：“这意味着，若各州未尽监管职责，本州全部医疗补助资金都将陷入被取消的风险之中。
 
-”2025年，Quantum Motion已在英国国家量子计算中心部署了全球首台全栈式硅CMOS量子计算机，并已进入DARPA量子基准测试计划的B阶段。
+” 医疗补助计划是美国联邦与州政府联合推行的医保项目，为数百万民众提供医疗保障，覆盖低收入群体、孕妇、儿童及残障人士。
 
-该公司由牛津大学和伦敦大学学院教授于2017年创立，目前已拓展至西班牙和澳大利亚，并与GlobalFoundries深化制造合作。
+此举态度强硬，是本届政府打击欺诈行动的最新举措。
 
-英国商业银行直接投资总监Charlotte Lawrence指出：“我们不再仅仅停留在理论层面，而是在英国切实开始构建量子计算平台。
+该专项行动由特朗普总统于今年早些时候发起，由副总统统筹主导，民主党还给这位副总统起了“反诈总管”的绰号。
 
 ## 相关推荐
 
-- 2026-06-29 20:43 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 20:43 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 20:31 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-29 20:40 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-29 20:42 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-29 20:45 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 20:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 20:33 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 20:28 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 20:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-29 20:26 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 20:35 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-29 20:19 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 20:25 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 20:51 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 20:44 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-29 20:41 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 20:24 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 20:40 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-29 20:45 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 20:52 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 20:31 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-29 20:34 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 20:43 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 20:48 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 20:49 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 20:33 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-29 20:49 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-29 20:46 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:40 - [欧洲安装一台空调要花近8000元](https://www.blog.minike.top/Article/details/84470418313.shtml)
-- 2026-06-29 20:40 - [C罗10球7球对垫底队](https://www.blog.minike.top/Article/details/352705.shtml)
-- 2026-06-29 20:20 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/230775.shtml)
-- 2026-06-29 20:38 - [恋与深空制作组回应争议](http://www.blog.minike.top/Article/details/713852.shtml)
-- 2026-06-29 20:39 - [周杰伦演唱会含星量](http://www.blog.kurohicncr.top/Article/details/0077943316.shtml)
-- 2026-06-29 20:32 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.kurohicncr.top/Article/details/412023426589.shtml)
-- 2026-06-29 20:25 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.blog.kurohicncr.top/Article/details/8621200.shtml)
-- 2026-06-29 20:28 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/842801.shtml)
-- 2026-06-29 20:25 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/564384768646.shtml)
-- 2026-06-29 20:41 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/599134.shtml)
-- 2026-06-29 20:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/05254.shtml)
-- 2026-06-29 20:23 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/610532812.shtml)
-- 2026-06-29 20:44 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/641778.shtml)
-- 2026-06-29 20:46 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/58022.shtml)
-- 2026-06-29 20:40 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/85181403784.shtml)
+- 2026-06-29 20:38 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/0969404989.shtml)
+- 2026-06-29 20:45 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/29145691.shtml)
+- 2026-06-29 20:25 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/3981652414.shtml)
+- 2026-06-29 20:26 - [孙俪开QQ的蛮好生活](https://www.share.minike.top/Article/details/128599114.shtml)
+- 2026-06-29 20:48 - [青春环游记第三季](https://www.blog.minike.top/Article/details/907430.shtml)
+- 2026-06-29 20:51 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/13838101158.shtml)
+- 2026-06-29 20:32 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/92649.shtml)
+- 2026-06-29 20:52 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/2714023178.shtml)
+- 2026-06-29 20:33 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/23123.shtml)
+- 2026-06-29 20:42 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/185384.shtml)
+- 2026-06-29 20:37 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/6978078932.shtml)
+- 2026-06-29 20:51 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/3887834900.shtml)
+- 2026-06-29 20:37 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/780259407.shtml)
+- 2026-06-29 20:39 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/280167.shtml)
+- 2026-06-29 20:33 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/403365.shtml)

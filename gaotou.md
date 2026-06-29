@@ -1,61 +1,61 @@
-# 德国3月工业新订单环比增长5%
+# 微短剧、电影、游戏、潮玩齐“出海” 中国品牌软实力硬核崛起
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-中新社柏林5月7日电 (记者 马秀秀)德国联邦统计局7日公布的数据显示，经季节和工作日调整后，德国3月工业新订单环比增长5.0%。 若剔除大额订单，3月新订单环比增长5.1%，达到2023年2月以来最高水平。 数据显示，增幅明显的行业包括电气设备制造业，其新订单环比增长21.5%；机械制造业新订单增长6.9%；数据处理设备、电子和光学产品制造业新订单环比增长14.4%。 从订单
+过去提起“中国制造”“中国品牌”，大家脑海中浮现的大多是汽车、家电、服装；但今天，微短剧、电影、游戏、潮玩等中国原创的文化产品，正在全球掀起中国文化热潮。 今年一季度，我国服务出口7045.2亿元，同比增长11.2%；其中，个人文化和娱乐服务增长最快，增速达25.6%。这份软实力崛起的背后，究竟蕴藏着怎样的时代机遇与发展密码？ 在加拿大温哥华的一个片场，一部英文微短剧正在紧张拍
 
 ## 正文
 
-中新社柏林5月7日电 (记者 马秀秀)德国联邦统计局7日公布的数据显示，经季节和工作日调整后，德国3月工业新订单环比增长5.0%。
+过去提起“中国制造”“中国品牌”，大家脑海中浮现的大多是汽车、家电、服装；但今天，微短剧、电影、游戏、潮玩等中国原创的文化产品，正在全球掀起中国文化热潮。
 
-若剔除大额订单，3月新订单环比增长5.1%，达到2023年2月以来最高水平。
+今年一季度，我国服务出口7045.2亿元，同比增长11.2%；其中，个人文化和娱乐服务增长最快，增速达25.6%。
 
-数据显示，增幅明显的行业包括电气设备制造业，其新订单环比增长21.5%；机械制造业新订单增长6.9%；数据处理设备、电子和光学产品制造业新订单环比增长14.4%。
+这份软实力崛起的背后，究竟蕴藏着怎样的时代机遇与发展密码？
 
-从订单来源看，3月国内新订单环比增长4.0%；国外新订单环比增长5.6%，其中来自欧元区的订单增长10.1%，欧元区以外的订单增长2.7%。
+在加拿大温哥华的一个片场，一部英文微短剧正在紧张拍摄。
 
-不过，第一季度德国工业新订单较上一季度下降4.1%。
+这部剧的导演和制片都是中国人，而演员、摄影、服化道等岗位由本地人担任，形成了“中国IP+本地制作”的创作模式。
 
-联邦统计局将此归因于2025年底大额订单规模尤其高。
+据国际咨询公司预测，2029年全球海外短剧市场规模将突破1200亿元，复合增速53.9%，中国企业有望占据76%份额。
 
-此外，伊朗战争也带来了巨大不确定性，并推高了能源价格。
+中国电影也迎来历史性突破，《哪吒之魔童闹海》以22.67亿美元全球票房登顶动画影史，在海外引发文化共鸣。
 
-联合投资公司经济专家迈克尔·赫尔祖姆表示，伊朗战争影响尚未在3月数据中体现出来。
+2025年全年，国产影片海外总票房超10亿元人民币，国产电影年度票房前20的影片中，15部实现海外上映。
 
 ## 相关推荐
 
-- 2026-06-29 20:44 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-29 20:44 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 20:31 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-29 20:18 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 20:25 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 20:40 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 20:37 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 20:35 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 20:45 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-29 20:35 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 20:44 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-29 20:44 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-29 20:22 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-29 20:25 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 20:45 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-29 20:37 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-29 20:44 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 20:43 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-29 20:25 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-29 20:30 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 20:26 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 20:49 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-29 20:43 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 20:50 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-29 20:52 - [王楚钦称抽签结果出来心情不好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 20:26 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 20:26 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 20:42 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 20:31 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-29 20:30 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:25 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/13145804.shtml)
-- 2026-06-29 20:29 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/72472748803.shtml)
-- 2026-06-29 20:23 - [东方风云榜直播](https://www.share.kurohicncr.top/Article/details/204119596.shtml)
-- 2026-06-29 20:24 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/93440887527.shtml)
-- 2026-06-29 20:20 - [世界杯高票价为何没劝退球迷](https://www.blog.minike.top/Article/details/118118.shtml)
-- 2026-06-29 20:26 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/502594489.shtml)
-- 2026-06-29 20:22 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/7934123.shtml)
-- 2026-06-29 20:40 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/33384165568.shtml)
-- 2026-06-29 20:35 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/647042919.shtml)
-- 2026-06-29 20:33 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/765155076.shtml)
-- 2026-06-29 20:20 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.blog.minike.top/Article/details/12495544.shtml)
-- 2026-06-29 20:46 - [郑钦文谈再战西尼亚科娃](http://www.share.kurohicncr.top/Article/details/72580.shtml)
-- 2026-06-29 20:34 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/66803400.shtml)
-- 2026-06-29 20:43 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/640077903199.shtml)
-- 2026-06-29 20:29 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/662941313889.shtml)
+- 2026-06-29 20:34 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/4482953.shtml)
+- 2026-06-29 20:39 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.minike.top/Article/details/91188385885.shtml)
+- 2026-06-29 20:35 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/99536393.shtml)
+- 2026-06-29 20:47 - [起风了](http://www.blog.minike.top/Article/details/1982361697.shtml)
+- 2026-06-29 20:48 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/50369353.shtml)
+- 2026-06-29 20:52 - [北京发布地质灾害气象风险蓝色预警](http://www.blog.minike.top/Article/details/9063252996.shtml)
+- 2026-06-29 20:42 - [青春环游记第三季](http://www.share.minike.top/Article/details/69776.shtml)
+- 2026-06-29 20:31 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/98608250479.shtml)
+- 2026-06-29 20:44 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/6560686.shtml)
+- 2026-06-29 20:42 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/39277.shtml)
+- 2026-06-29 20:35 - [小龙女配音去世 李若彤发文悼念](https://www.share.kurohicncr.top/Article/details/50586820.shtml)
+- 2026-06-29 20:36 - [2026全国田径冠军赛江苏队4金收官](https://www.share.kurohicncr.top/Article/details/42285780956.shtml)
+- 2026-06-29 20:34 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/47606300070.shtml)
+- 2026-06-29 20:25 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/075260.shtml)
+- 2026-06-29 20:27 - [RAY评乘风2026总决赛](https://www.share.kurohicncr.top/Article/details/122127776981.shtml)

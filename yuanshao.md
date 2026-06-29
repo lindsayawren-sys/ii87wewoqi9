@@ -1,56 +1,56 @@
-# ISSB副主席华敬东：世界不缺财富，缺的是资本向善的资产配置
+# 美参议院批准沃什出任美联储主席
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-专题：第五届气候投融国际研讨会 4月29-30日，“2026第五届气候投融资国际研讨会”在京举办，主题为“碳融新局·筑绿未来”。国际可持续准则理事会（ISSB）副主席华敬东在演讲中谈到，对中央财经大学绿色金融国际研究院的报告中的一句话表示赞同——“世界上不缺资金，全球南方气候变化投资或实现SDG的资金不足，并非因为全球资本总量不足，而是因为资金错位。” 结合自身曾管理世界银行数
+中新社华盛顿5月13日电 (记者 沙晗汀)美国国会参议院13日投票批准美国联邦储备委员会前理事凯文·沃什出任美联储主席。 在当天的投票中，54票赞成、45票反对，沃什的提名获得通过。投票结果基本按照党派划线，一名民主党议员加入共和党阵营投票赞成。 参议院共和党领袖图恩当天表示，美联储主席“不仅需要了解宏观经济，还需要关心微观经济，关心美国民众的工作和生活”，“沃什就是这样的人”
 
 ## 正文
 
-专题：第五届气候投融国际研讨会 4月29-30日，“2026第五届气候投融资国际研讨会”在京举办，主题为“碳融新局·筑绿未来”。
+中新社华盛顿5月13日电 (记者 沙晗汀)美国国会参议院13日投票批准美国联邦储备委员会前理事凯文·沃什出任美联储主席。
 
-国际可持续准则理事会（ISSB）副主席华敬东在演讲中谈到，对中央财经大学绿色金融国际研究院的报告中的一句话表示赞同——“世界上不缺资金，全球南方气候变化投资或实现SDG的资金不足，并非因为全球资本总量不足，而是因为资金错位。
+在当天的投票中，54票赞成、45票反对，沃什的提名获得通过。
 
-” 结合自身曾管理世界银行数千亿资金的经验，他表示，截至2024年底，全球债市和股市总量已达270万亿美元；同年，全球金融机构（包括商业银行、央行、保险公司、非银行金融机构）资产总量超过500万亿美元，两者合计770万亿美元。
+投票结果基本按照党派划线，一名民主党议员加入共和党阵营投票赞成。
 
-扣除统计重复后，据估计，全球可用财富和资本至少超过500万亿美元。
+参议院共和党领袖图恩当天表示，美联储主席“不仅需要了解宏观经济，还需要关心微观经济，关心美国民众的工作和生活”，“沃什就是这样的人”。
 
-“所以我非常同意世界不缺财富，缺的是资本向善的资产配置。
+沃什出生于1970年，2006年至2011年担任美联储理事，目前是斯坦福大学访问学者。
 
-” 华敬东回顾了2015年这一关键年份，联合国提出可持续发展目标（SDG）并通过了《巴黎协定》，二者紧密相关。
+美国总统特朗普1月30日提名沃什出任美联储主席。
 
-他指出，SDG的17项目标中，至少有10项（从减贫、海洋、净水到土地等）与气候变化直接相关。
+沃什4月21日出席参议院提名听证会时表示，美联储的独立性“至关重要”，总统、参议员、众议员对于利率的观点不应对美联储造成影响。
 
-然而，过去20年间，来自行业、国家及国际多边组织的可持续披露标准层出不穷，虽各有善意，却让投资者陷入“不知道该用谁”的困惑。
+沃什还说，保持物价稳定是美联储的责任，抗击通胀将是他最重要的任务之一。
 
 ## 相关推荐
 
-- 2026-06-29 20:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-29 20:36 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-29 20:37 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-29 20:19 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 20:40 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-29 20:25 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-29 20:34 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-29 20:22 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 20:40 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 20:35 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 20:27 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 20:26 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 20:40 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 20:40 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 20:32 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 20:38 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 20:52 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 20:42 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 20:32 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-29 20:41 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:47 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.minike.top/Article/details/78383.shtml)
-- 2026-06-29 20:20 - [海清4次陪跑白玉兰](http://www.blog.kurohicncr.top/Article/details/68774504.shtml)
-- 2026-06-29 20:40 - [章若楠包场白敬亭特立独行](http://www.blog.minike.top/Article/details/2909477.shtml)
-- 2026-06-29 20:42 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/1191882480.shtml)
-- 2026-06-29 20:45 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.kurohicncr.top/Article/details/165700617.shtml)
-- 2026-06-29 20:38 - [委内瑞拉发生余震](https://www.blog.kurohicncr.top/Article/details/761797.shtml)
-- 2026-06-29 20:41 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/2995759.shtml)
-- 2026-06-29 20:24 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/888401104.shtml)
-- 2026-06-29 20:24 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/57823060.shtml)
-- 2026-06-29 20:40 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/46474131064.shtml)
-- 2026-06-29 20:29 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.kurohicncr.top/Article/details/3036501264.shtml)
-- 2026-06-29 20:20 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.minike.top/Article/details/66067515587.shtml)
-- 2026-06-29 20:19 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/22095924.shtml)
-- 2026-06-29 20:47 - [主力抛售电子和通信板块](http://www.blog.minike.top/Article/details/01316428179.shtml)
-- 2026-06-29 20:44 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/4184291.shtml)
+- 2026-06-29 20:44 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/038580160610.shtml)
+- 2026-06-29 20:36 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/289405.shtml)
+- 2026-06-29 20:53 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/75613.shtml)
+- 2026-06-29 20:33 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/189970623.shtml)
+- 2026-06-29 20:46 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/79460246.shtml)
+- 2026-06-29 20:26 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/41978439791.shtml)
+- 2026-06-29 20:32 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/84145.shtml)
+- 2026-06-29 20:28 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/95648672.shtml)
+- 2026-06-29 20:45 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.minike.top/Article/details/500074684.shtml)
+- 2026-06-29 20:48 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/758304995.shtml)
+- 2026-06-29 20:48 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/6855120.shtml)
+- 2026-06-29 20:52 - [腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/730743590202.shtml)
+- 2026-06-29 20:40 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/487133.shtml)
+- 2026-06-29 20:28 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/4811315298.shtml)
+- 2026-06-29 20:24 - [逃狱兄弟](https://www.blog.minike.top/Article/details/4373909.shtml)

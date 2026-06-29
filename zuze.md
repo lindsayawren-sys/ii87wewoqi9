@@ -1,59 +1,56 @@
-# 王毅同法国总统外事顾问博纳会谈
+# 越南敦促美国允许一艘油轮通过封锁
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-2026年5月8日，中共中央政治局委员、中央外办主任王毅在北京同法国总统外事顾问博纳举行会谈。 王毅表示，去年12月马克龙总统成功访华，双方就推动中法关系走稳走好达成重要共识，两国元首的战略引领体现了两国关系的高水平和特殊性。中方愿同法方一道，继续落实马克龙总统访华成果，让中法合作取得更大进展，更多造福两国人民。中方重视近期法国议会通过简化非法所获他国文物归还程序的法律草案，愿
+越南国有石油公司敦促美国允许一艘超级油轮通过美国在波斯湾外实施的海上封锁，称这批货物对其经济至关重要。 这艘名为Agios Fanourios I的超大型原油运输船由总部位于雅典的Eastern Mediterranean Maritime管理，于周一在接近美国海上封锁起点的位置掉头。根据船舶追踪数据和看到的相关文件，该船折返时刚刚驶出霍尔木兹海峡，装载着199万桶伊拉克巴士拉
 
 ## 正文
 
-2026年5月8日，中共中央政治局委员、中央外办主任王毅在北京同法国总统外事顾问博纳举行会谈。
+越南国有石油公司敦促美国允许一艘超级油轮通过美国在波斯湾外实施的海上封锁，称这批货物对其经济至关重要。
 
-王毅表示，去年12月马克龙总统成功访华，双方就推动中法关系走稳走好达成重要共识，两国元首的战略引领体现了两国关系的高水平和特殊性。
+这艘名为Agios Fanourios I的超大型原油运输船由总部位于雅典的Eastern Mediterranean Maritime管理，于周一在接近美国海上封锁起点的位置掉头。
 
-中方愿同法方一道，继续落实马克龙总统访华成果，让中法合作取得更大进展，更多造福两国人民。
+根据船舶追踪数据和看到的相关文件，该船折返时刚刚驶出霍尔木兹海峡，装载着199万桶伊拉克巴士拉中质原油。
 
-中方重视近期法国议会通过简化非法所获他国文物归还程序的法律草案，愿同法方加强这方面合作，增进民心相通和文明互鉴。
+信函显示，越南国家能源公司的贸易子公司PetroVietnam Oil Corp．已向美国海军中央司令部确认，其拥有Agios Fanourios I所载货物，且该批原油在伊拉克装船。
 
-当今世界乱象丛生，中法作为联合国安理会常任理事国和独立自主大国，对维护国际和平、稳定与发展负有重要责任，双方有必要加强战略沟通，开展战略协调，共同应对全球性挑战，推动中法全面战略伙伴关系排除各种干扰，实现健康、稳定发展。
+该船目前仍显示目的地为越南Nghi Son，那里坐落着该国的一家炼油厂。
 
-王毅表示，中法关系的基础是牢固政治互信，关键是相互尊重对方核心利益。
+“这批货物对Nghi Son炼油厂极其重要，”媒体看到的信函称。
 
-希望法方以实际行动恪守一个中国原则，不同台湾当局进行任何形式的官方往来，不向“台独”分裂势力发出任何错误信号。
+“任何进一步延误，都有可能导致炼厂加工中断，并对数以百万计越南消费者、企业、公共服务和产业带来连锁影响。
 
-中国对欧政策一以贯之，始终视欧洲为多极世界的重要一极，支持欧洲一体化和欧盟发展壮大。
+” 一名美国国防事务官员表示，该船只被改道，以防止其违反封锁，但未作进一步说明。
 
 ## 相关推荐
 
-- 2026-06-29 20:35 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 20:35 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 20:26 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-29 20:44 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-29 20:40 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-29 20:41 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 20:23 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-29 20:45 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-29 20:25 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 20:18 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-29 20:21 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 20:39 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-29 20:46 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 20:47 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-29 20:43 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 20:29 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-29 20:47 - [华工科技龙虎榜数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-29 20:43 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 20:47 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-29 20:49 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-29 20:51 - [扩军害了世界杯吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-29 20:53 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-29 20:25 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:24 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/3981141.shtml)
-- 2026-06-29 20:24 - [斛珠夫人](http://www.share.minike.top/Article/details/4479515047.shtml)
-- 2026-06-29 20:39 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/10169021.shtml)
-- 2026-06-29 20:28 - [河南高院审委会原委员曲海滨被查](http://www.blog.minike.top/Article/details/7931391.shtml)
-- 2026-06-29 20:44 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/75193.shtml)
-- 2026-06-29 20:27 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.kurohicncr.top/Article/details/762756.shtml)
-- 2026-06-29 20:39 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/821291510.shtml)
-- 2026-06-29 20:43 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/229109370718.shtml)
-- 2026-06-29 20:40 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/9864791.shtml)
-- 2026-06-29 20:33 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/21978793.shtml)
-- 2026-06-29 20:43 - [店员光脚踩入盆中清洗土豆](https://www.blog.minike.top/Article/details/05274242.shtml)
-- 2026-06-29 20:21 - [伊朗足球队将启程回国](https://www.blog.minike.top/Article/details/657579179.shtml)
-- 2026-06-29 20:44 - [无畏为自己的猫正名了](http://www.blog.kurohicncr.top/Article/details/02081340657.shtml)
-- 2026-06-29 20:31 - [白玉兰答谢宴合影](https://www.share.kurohicncr.top/Article/details/65962.shtml)
-- 2026-06-29 20:35 - [4位大妈跳舞爆火多地景区争相邀约](http://www.share.kurohicncr.top/Article/details/853780246037.shtml)
+- 2026-06-29 20:43 - [杨紫视后第一场线下活动](http://www.share.minike.top/Article/details/795907.shtml)
+- 2026-06-29 20:31 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/59591837.shtml)
+- 2026-06-29 20:40 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.minike.top/Article/details/27638985646.shtml)
+- 2026-06-29 20:40 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/098894.shtml)
+- 2026-06-29 20:51 - [恋与深空制作组回应争议](http://www.blog.minike.top/Article/details/368694677.shtml)
+- 2026-06-29 20:31 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/82774094949.shtml)
+- 2026-06-29 20:31 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.blog.minike.top/Article/details/711708.shtml)
+- 2026-06-29 20:46 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.kurohicncr.top/Article/details/55779554230.shtml)
+- 2026-06-29 20:29 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/506327.shtml)
+- 2026-06-29 20:38 - [吴建豪和老婆差20岁](https://www.share.kurohicncr.top/Article/details/5677683248.shtml)
+- 2026-06-29 20:51 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.kurohicncr.top/Article/details/646108029371.shtml)
+- 2026-06-29 20:44 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/14742881.shtml)
+- 2026-06-29 20:52 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/1179148.shtml)
+- 2026-06-29 20:50 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/15554432.shtml)
+- 2026-06-29 20:47 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.share.kurohicncr.top/Article/details/4945286.shtml)

@@ -1,56 +1,61 @@
-# 美方强行控制马杜罗总统夫妇已4个月 中方回应
+# 【张忆东策略世界】存储板块点评：行情或由普涨转向结构分化，关注后续HBM涨价预期
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-中新网北京5月7日电(记者 郭超凯)中国外交部发言人林剑7日主持例行记者会。 有记者提问：本周是美国非法入侵委内瑞拉第4个月。美方强行拘留委内瑞拉总统马杜罗及其夫人，目前仍扣押在纽约。事件发生之后，委内瑞拉人民多次走上街头，要求美方释放被拘留的委内瑞拉领导人。中国政府对委内瑞拉的事态发展持何立场？ 林剑：4个月前美国悍然对委内瑞拉实施军事打击，并强行控制马杜罗总统夫妇。这种霸权
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：张忆东策略世界 我们更新近期存储板块核心判断：行业基本面景气延续向上，Q2 涨价趋势已得到产业链充分验证，板块后续投资主线正式从全面普涨转向结构性分化。当前市场关注点已不再停留于存储价格能否实现环比上涨，转而聚焦价格绝对上行高度、高景气价格中枢维持时长，以及各下游终端对持续涨价的成本承受力差异。消费电
 
 ## 正文
 
-中新网北京5月7日电(记者 郭超凯)中国外交部发言人林剑7日主持例行记者会。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-有记者提问：本周是美国非法入侵委内瑞拉第4个月。
+来源：张忆东策略世界 我们更新近期存储板块核心判断：行业基本面景气延续向上，Q2 涨价趋势已得到产业链充分验证，板块后续投资主线正式从全面普涨转向结构性分化。
 
-美方强行拘留委内瑞拉总统马杜罗及其夫人，目前仍扣押在纽约。
+当前市场关注点已不再停留于存储价格能否实现环比上涨，转而聚焦价格绝对上行高度、高景气价格中枢维持时长，以及各下游终端对持续涨价的成本承受力差异。
 
-事件发生之后，委内瑞拉人民多次走上街头，要求美方释放被拘留的委内瑞拉领导人。
+消费电子与 AI 服务器两大需求链条景气度背离，成为主导后续行情的核心变量：（1）消费电子：终端需求承压明显加剧，行业后续涨价节奏或将逐步收敛。
 
-中国政府对委内瑞拉的事态发展持何立场？
+（2）AI 相关存储需求：仍是全年景气核心，涨价弹性与景气持续性显著优于消费电子。
 
-林剑：4个月前美国悍然对委内瑞拉实施军事打击，并强行控制马杜罗总统夫妇。
+现阶段全球头部 CSP 资本开支集体上修，2026 年北美四大云厂商合计资本开支已超 6500 亿美元。
 
-这种霸权行径严重违反国际法，侵犯委内瑞拉主权，威胁拉美和加勒比地区和平稳定，中方坚决反对。
+其中谷歌大幅上调至 1800-1900 亿美元（此前 1750-1850 亿美元）、微软上调至 1900 亿美元（同比增速 60% 以上）、亚马逊维持 2000 亿美元指引不变、Meta 上调至 1250-1450 亿美元（此前 1150-1350 亿美元），明确指向 AI 基础设施的高强度投入。
 
-我们将一如既往支持委内瑞拉维护自身主权、尊严和合法权利。
+只要全球算力集群资本开支投放力度未出现明显下修，AI 相关存储的高景气态势就难以快速逆转，这也是本轮存储基本面和行情走强的核心底层变化。
 
 ## 相关推荐
 
-- 2026-06-29 20:43 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 20:36 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 20:23 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 20:21 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-29 20:21 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-29 20:35 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 20:20 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-29 20:36 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-29 20:47 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 20:45 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 20:35 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 20:37 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 20:38 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-29 20:34 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-29 20:53 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 20:29 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 20:34 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-29 20:31 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 20:53 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-29 20:39 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 20:39 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-29 20:40 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 20:50 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 20:31 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 20:44 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:33 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.minike.top/Article/details/70662372705.shtml)
-- 2026-06-29 20:26 - [爱奇艺抬高国剧新标尺](https://www.blog.kurohicncr.top/Article/details/7136844.shtml)
-- 2026-06-29 20:19 - [天气热脾气都变差了](http://www.share.kurohicncr.top/Article/details/54285638.shtml)
-- 2026-06-29 20:28 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.minike.top/Article/details/037529.shtml)
-- 2026-06-29 20:43 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/94208368410.shtml)
-- 2026-06-29 20:43 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/58374006.shtml)
-- 2026-06-29 20:40 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.minike.top/Article/details/3469447.shtml)
-- 2026-06-29 20:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/7476386.shtml)
-- 2026-06-29 20:39 - [无畏为自己的猫正名了](http://www.share.minike.top/Article/details/79979290431.shtml)
-- 2026-06-29 20:27 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/493984686052.shtml)
-- 2026-06-29 20:29 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/3013179014.shtml)
-- 2026-06-29 20:26 - [河南高院审委会原委员曲海滨被查](http://www.blog.minike.top/Article/details/924157422.shtml)
-- 2026-06-29 20:37 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/48166711741.shtml)
-- 2026-06-29 20:33 - [《恋与深空》回应争议](http://www.blog.minike.top/Article/details/246586323.shtml)
-- 2026-06-29 20:26 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.share.kurohicncr.top/Article/details/461619237.shtml)
+- 2026-06-29 20:31 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/42352172.shtml)
+- 2026-06-29 20:35 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/631711614.shtml)
+- 2026-06-29 20:25 - [虞书欣好辣的剧宣](http://www.share.kurohicncr.top/Article/details/2593150.shtml)
+- 2026-06-29 20:43 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/722151322.shtml)
+- 2026-06-29 20:48 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/81540284293.shtml)
+- 2026-06-29 20:24 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/541990903.shtml)
+- 2026-06-29 20:49 - [如果你一直单身，你准备怎么养老？](https://www.share.minike.top/Article/details/38969165111.shtml)
+- 2026-06-29 20:33 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.kurohicncr.top/Article/details/554632.shtml)
+- 2026-06-29 20:53 - [日本在最东端离岛部署导弹发射装置](http://www.share.kurohicncr.top/Article/details/086195.shtml)
+- 2026-06-29 20:30 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/640557.shtml)
+- 2026-06-29 20:29 - [日本在最东端离岛部署导弹发射装置](https://www.share.kurohicncr.top/Article/details/229852283.shtml)
+- 2026-06-29 20:46 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/03843574.shtml)
+- 2026-06-29 20:25 - [极限挑战第一季](https://www.share.minike.top/Article/details/37927003307.shtml)
+- 2026-06-29 20:38 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/60158841.shtml)
+- 2026-06-29 20:28 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/702597267700.shtml)

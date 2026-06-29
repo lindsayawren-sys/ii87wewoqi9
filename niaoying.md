@@ -1,61 +1,57 @@
-# 国泰基金：投资运作违规被罚 多只产品大幅跑输基准仍高收费
+# 美国30年期国债发行票面利率高达5% 为金融危机前以来首次
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-来源：面包财经 编者按：公募基金行业在监管“长牙带刺”、推动高质量发展的大背景下，进入了强监管、严问责的时期。去年至今，共有超过25家公募基金管理人被监管部门处罚。 面包财经基于信披数据，分批透视主要基金公司相关事宜。本篇案例为国泰基金。 据近期公告披露，2025年5月，国泰基金因投资运作违规被中国证监会上海监管局采取责令改正的行政监管措施。 除自身合规管理存在漏洞外，国泰基金
+随着能源价格飙升推高通胀，且市场预期通胀进一步加剧，投资者自2007年以来首次锁定5%的美国30年期国债收益率。 周三，250亿美元30年期新债标售的中标收益率报5.046%，略高于投标截止时的发行前交易水平，反映出在美国国债收益率触及近一年来最高之际，市场需求表现平平。 本周早些时候发行的3年期和10年期国债所获需求也低于预期。 对未来通胀进一步上升的担忧使得投标人要求更高的
 
 ## 正文
 
-来源：面包财经 编者按：公募基金行业在监管“长牙带刺”、推动高质量发展的大背景下，进入了强监管、严问责的时期。
+随着能源价格飙升推高通胀，且市场预期通胀进一步加剧，投资者自2007年以来首次锁定5%的美国30年期国债收益率。
 
-去年至今，共有超过25家公募基金管理人被监管部门处罚。
+周三，250亿美元30年期新债标售的中标收益率报5.046%，略高于投标截止时的发行前交易水平，反映出在美国国债收益率触及近一年来最高之际，市场需求表现平平。
 
-面包财经基于信披数据，分批透视主要基金公司相关事宜。
+本周早些时候发行的3年期和10年期国债所获需求也低于预期。
 
-本篇案例为国泰基金。
+对未来通胀进一步上升的担忧使得投标人要求更高的固定收益率作为补偿。
 
-据近期公告披露，2025年5月，国泰基金因投资运作违规被中国证监会上海监管局采取责令改正的行政监管措施。
+石油冲击已推动包括美国消费者价格指数和生产者价格指数在内的广泛通胀指标上升，并抬升了通胀预期。
 
-除自身合规管理存在漏洞外，国泰基金旗下部分产品同时暴露出业绩低迷等问题。
+德意志银行利率策略师Steven Zeng表示：“我预计在收益率达到5%时，会开始看到投资者需求出现。
 
-根据《基金管理公司绩效考核管理指引》中关于薪酬与业绩挂钩的硬性规定，国泰价值领航A等产品已触发降薪红线。
+通常这是30年期美债对养老基金和其他债券驱动型投资者变得更具吸引力的水平。
 
-同时，这些产品仍收取1.2%的管理费率。
+” 不过，他补充称，这一前提是通胀不会像期货市场已开始押注的那样迫使美联储加息。
 
 ## 相关推荐
 
-- 2026-06-29 20:38 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-29 20:22 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 20:44 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-29 20:29 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-29 20:24 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 20:32 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-29 20:22 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-29 20:29 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-29 20:40 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-29 20:35 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 20:39 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-29 20:23 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-29 20:35 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-29 20:32 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 20:42 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 20:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 20:35 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 20:51 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-29 20:51 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 20:39 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-29 20:48 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 20:32 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 20:38 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 20:36 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-29 20:35 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 20:33 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:18 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/3255655.shtml)
-- 2026-06-29 20:41 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.kurohicncr.top/Article/details/03666230857.shtml)
-- 2026-06-29 20:22 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/86261449.shtml)
-- 2026-06-29 20:46 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/27093156882.shtml)
-- 2026-06-29 20:39 - [曝腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/755906130.shtml)
-- 2026-06-29 20:30 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/14105.shtml)
-- 2026-06-29 20:28 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/6677873149.shtml)
-- 2026-06-29 20:19 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/139807.shtml)
-- 2026-06-29 20:26 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/20219964724.shtml)
-- 2026-06-29 20:28 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/19265.shtml)
-- 2026-06-29 20:43 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/647130.shtml)
-- 2026-06-29 20:47 - [天柱山回应网红打卡树枝被砍](https://www.share.minike.top/Article/details/216882798270.shtml)
-- 2026-06-29 20:47 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/344591.shtml)
-- 2026-06-29 20:43 - [恋与深空制作组回应争议](https://www.share.kurohicncr.top/Article/details/772915260.shtml)
-- 2026-06-29 20:28 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/8885390.shtml)
+- 2026-06-29 20:28 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/458476598.shtml)
+- 2026-06-29 20:44 - [TTG KSG](http://www.blog.minike.top/Article/details/1590932.shtml)
+- 2026-06-29 20:28 - [专家预计全球央行加息节奏将出现反复](https://www.blog.kurohicncr.top/Article/details/8076177.shtml)
+- 2026-06-29 20:24 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/525196.shtml)
+- 2026-06-29 20:42 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/8530051569.shtml)
+- 2026-06-29 20:30 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/85433.shtml)
+- 2026-06-29 20:53 - [2026全国田径冠军赛江苏队4金收官](https://www.share.kurohicncr.top/Article/details/8587329605.shtml)
+- 2026-06-29 20:47 - [欧洲高温会成下个印度吗](http://www.share.kurohicncr.top/Article/details/27127450571.shtml)
+- 2026-06-29 20:30 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/87042.shtml)
+- 2026-06-29 20:39 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/879270425412.shtml)
+- 2026-06-29 20:43 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/96991901.shtml)
+- 2026-06-29 20:35 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/666864883.shtml)
+- 2026-06-29 20:32 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/70865109673.shtml)
+- 2026-06-29 20:32 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/594957032.shtml)
+- 2026-06-29 20:50 - [我和我的家乡](http://www.blog.minike.top/Article/details/96288593.shtml)

@@ -1,60 +1,57 @@
-# 日元涨势在155关口遇到强劲阻力 日本干预行动的有效性引发质疑
+# 中东冲突拖累Birkenstock二季度业绩不及预期 盘前跌逾5%
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-在日本多次疑似干预后，日元兑美元汇率仍未能突破155关口，这引发了市场对日元近期涨势能否持续的质疑。 自4月30日以来的多次大幅涨势，都未能推动日元突破这一关口。尽管东京当局拥有充足的储备继续干预，但汇率走势表明市场对美元的需求强劲，日本扭转日元汇率走势的能力有限。 经济形势依然有利于美元走强。即便伊朗冲突降级的希望出现，但能源价格仍居高不下。日本央行距离任何可能的加息行动至少
+周三盘前，德国鞋履制造商Birkenstock股价下跌逾6.5%，此前该公司公布的2026财年第二季度财报显示，营收和利润双双不及市场预期。公司表示，中东地区冲突对欧洲、中东和非洲区域的增长造成了拖累。 营收略逊预期，盈利明显下滑 数据显示，截至3月31日的第二财季，Birkenstock营收为6.183亿欧元，按固定汇率计算同比增长14%，但略低于分析师预期的6.2007亿欧
 
 ## 正文
 
-在日本多次疑似干预后，日元兑美元汇率仍未能突破155关口，这引发了市场对日元近期涨势能否持续的质疑。
+周三盘前，德国鞋履制造商Birkenstock股价下跌逾6.5%，此前该公司公布的2026财年第二季度财报显示，营收和利润双双不及市场预期。
 
-自4月30日以来的多次大幅涨势，都未能推动日元突破这一关口。
+公司表示，中东地区冲突对欧洲、中东和非洲区域的增长造成了拖累。
 
-尽管东京当局拥有充足的储备继续干预，但汇率走势表明市场对美元的需求强劲，日本扭转日元汇率走势的能力有限。
+营收略逊预期，盈利明显下滑 数据显示，截至3月31日的第二财季，Birkenstock营收为6.183亿欧元，按固定汇率计算同比增长14%，但略低于分析师预期的6.2007亿欧元。
 
-经济形势依然有利于美元走强。
+经调整后每股收益为0.50欧元，同比下降9%，同样不及市场预期的0.59欧元。
 
-即便伊朗冲突降级的希望出现，但能源价格仍居高不下。
+中东冲突造成约600万欧元损失 公司披露，中东地区冲突对EMEA区域造成了约600万欧元的负面影响。
 
-日本央行距离任何可能的加息行动至少还有一个月时间，而美联储似乎还没有降息的迹象。
+其中约半数源于公司无法完成对该区域的交付，其余则反映为欧洲消费者情绪因能源价格高企和通胀上升而趋于谨慎。
 
-“关键问题在于，财务省是会继续捍卫日元，还是已经部署完了足够的火力，”华侨银行策略师Moh Siong Sim等人在一份报告中写道。
+关税和汇率拖累利润率 利润端承压还受到外部因素影响。
 
-他们指出，仅靠干预不太可能扭转日元贬值的总体趋势。
+当季毛利率从去年同期的57.7%降至53.9%，主要受不利汇率因素和加征关税拖累。
 
 ## 相关推荐
 
-- 2026-06-29 20:19 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 20:41 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 20:44 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-29 20:30 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-29 20:38 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 20:47 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-29 20:21 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-29 20:18 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 20:32 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-29 20:23 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 20:38 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-29 20:24 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-29 20:30 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-29 20:21 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 20:41 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-29 20:35 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 20:31 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-29 20:44 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 20:26 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 20:50 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-29 20:26 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 20:37 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-29 20:43 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 20:52 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 20:45 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:31 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/6309298607.shtml)
-- 2026-06-29 20:22 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/725693768.shtml)
-- 2026-06-29 20:21 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/80210.shtml)
-- 2026-06-29 20:41 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/6241533328.shtml)
-- 2026-06-29 20:30 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/342820.shtml)
-- 2026-06-29 20:44 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/04630.shtml)
-- 2026-06-29 20:44 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/807679.shtml)
-- 2026-06-29 20:27 - [哈兰德玩游戏连女友都不让着](http://www.blog.kurohicncr.top/Article/details/323117183733.shtml)
-- 2026-06-29 20:29 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/677164556.shtml)
-- 2026-06-29 20:29 - [海清4次陪跑白玉兰](https://www.blog.kurohicncr.top/Article/details/32951199735.shtml)
-- 2026-06-29 20:29 - [恋与深空制作组回应争议](https://www.blog.minike.top/Article/details/49433318.shtml)
-- 2026-06-29 20:26 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/13931.shtml)
-- 2026-06-29 20:33 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.minike.top/Article/details/48535.shtml)
-- 2026-06-29 20:38 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/61722692572.shtml)
-- 2026-06-29 20:42 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/896462935.shtml)
+- 2026-06-29 20:30 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/501304678193.shtml)
+- 2026-06-29 20:33 - [曝屠颖去世和酒店失责有关](http://www.blog.kurohicncr.top/Article/details/9475330.shtml)
+- 2026-06-29 20:24 - [伊朗足球队将启程回国](https://www.blog.minike.top/Article/details/02442.shtml)
+- 2026-06-29 20:36 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.minike.top/Article/details/542123.shtml)
+- 2026-06-29 20:39 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.blog.minike.top/Article/details/11743911236.shtml)
+- 2026-06-29 20:36 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/973895695860.shtml)
+- 2026-06-29 20:27 - [杨紫视后第一场线下活动](http://www.blog.kurohicncr.top/Article/details/64645052341.shtml)
+- 2026-06-29 20:39 - [专家预计全球央行加息节奏将出现反复](https://www.blog.minike.top/Article/details/6142345.shtml)
+- 2026-06-29 20:24 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/850231.shtml)
+- 2026-06-29 20:36 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/23897595.shtml)
+- 2026-06-29 20:26 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/30594253910.shtml)
+- 2026-06-29 20:27 - [哈兰德玩游戏连女友都不让着](http://www.blog.minike.top/Article/details/0187838244.shtml)
+- 2026-06-29 20:53 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/508104.shtml)
+- 2026-06-29 20:25 - [互助版模拟高考志愿填报](https://www.share.minike.top/Article/details/45217877327.shtml)
+- 2026-06-29 20:37 - [送你一朵小红花](https://www.share.minike.top/Article/details/4106388.shtml)

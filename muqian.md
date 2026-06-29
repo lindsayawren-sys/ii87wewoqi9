@@ -1,61 +1,58 @@
-# Apple Watch首次加入教育优惠 售价2699元起
+# 全国首例“人机联合”上门诊疗落地 机器人背着医疗包走进患者家
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-新酷产品第一时间免费试玩，还有众多优质达人分享独到生活经验，快来新浪众测，体验各领域最前沿、最有趣、最好玩的产品吧~！下载客户端还能获得专享福利哦！ 新浪科技讯 5月8日上午消息，Apple Watch 正式加入苹果教育优惠阵容，符合条件的高校学生、教师及教职员工，可通过苹果在线教育商店、全球 Apple Store 零售店，以专属教育优惠价格购买 Apple Watch 全系
+全国首例“人机联合”上门诊疗落地上海金山 机器人背着医疗包走进患者家 本报讯(记者张菲垭)近日，上海市金山区吕巷镇的糖尿病足患者张阿婆在自己家中完成换药。为她服务的，不仅有复旦大学附属金山医院的医护团队，还有一台真人大小的具身机器人“金小医”。这是全国首个“人机联合”上门诊疗服务场景的落地实践，为破解特殊群体“看病难”、推动分级诊疗探索新路径。 接到张阿婆的换药申请后，金山医院
 
 ## 正文
 
-新酷产品第一时间免费试玩，还有众多优质达人分享独到生活经验，快来新浪众测，体验各领域最前沿、最有趣、最好玩的产品吧~！
+全国首例“人机联合”上门诊疗落地上海金山 机器人背着医疗包走进患者家 本报讯(记者张菲垭)近日，上海市金山区吕巷镇的糖尿病足患者张阿婆在自己家中完成换药。
 
-下载客户端还能获得专享福利哦！
+为她服务的，不仅有复旦大学附属金山医院的医护团队，还有一台真人大小的具身机器人“金小医”。
 
-新浪科技讯 5月8日上午消息，Apple Watch 正式加入苹果教育优惠阵容，符合条件的高校学生、教师及教职员工，可通过苹果在线教育商店、全球 Apple Store 零售店，以专属教育优惠价格购买 Apple Watch 全系列产品售价2699元起，这也是其首次面向教育群体开放专项优惠。
+这是全国首个“人机联合”上门诊疗服务场景的落地实践，为破解特殊群体“看病难”、推动分级诊疗探索新路径。
 
-全场景适配校园生活 Apple Watch 覆盖健康、效率与安全 Apple Watch 凭借全面的功能体系，成为学生与教育工作者的理想随身设备，在健康管理、学习效率、人身安全与日常使用等场景提供全方位支持。
+接到张阿婆的换药申请后，金山医院护士戚晓霞、常春雷，与背着3公斤医疗包的“金小医”一同上门。
 
-设备内置健身记录、体能训练App，支持跑步、游泳等数十项运动模式，搭配睡眠评分系统，帮助用户养成规律作息与运动习惯。
+进门后，这台国产实验型AI机器人，在戚晓霞的指令下完成了环境消毒，随后用高清摄像头拍摄老人的足部伤口，并将影像传回医院远程会诊平台。
 
-SOS 紧急联络、车祸检测等安全功能，为校园出行与日常活动提供可靠保障。
+与此同时，常春雷戴上AI眼镜，借助5G+AR远程技术，在医院专家实时指导下为老人进行了血管超声检查，评估伤口情况。
 
-学习场景中，日历、提醒事项可高效规划课程与任务，Siri 语音助手、计时器助力提升学习效率，专注模式能在课堂时段屏蔽通知干扰，保持专注学习节奏。
+服务过程中，“金小医”还主动提醒张阿婆：“我已同步您的用药记录，后台医生会持续关注您的血糖。
 
-日常使用方面，Apple Pay 让支付更便捷，地图 App 精准规划出行路线，蜂窝网络版本可脱离手机独立联网，确保随时保持通讯畅通。
+”换药结束后，它又协助收纳医疗物资，更新用药、饮食等健康数据，并给出针对性建议：“建议您下周增加足部康复训练，主治医生已同步调整护理计划，请注意按时执行。
 
 ## 相关推荐
 
-- 2026-06-29 20:38 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 20:41 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-29 20:40 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 20:42 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 20:45 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-29 20:29 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-29 20:20 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 20:41 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-29 20:25 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 20:25 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-29 20:20 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-29 20:41 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-29 20:35 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-29 20:19 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 20:39 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 20:26 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 20:53 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-29 20:30 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-29 20:39 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 20:37 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-29 20:39 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 20:42 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-29 20:46 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-29 20:49 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 20:42 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-29 20:52 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 20:47 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:28 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/395615.shtml)
-- 2026-06-29 20:18 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/138376647324.shtml)
-- 2026-06-29 20:46 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/30288526.shtml)
-- 2026-06-29 20:22 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/41721481877.shtml)
-- 2026-06-29 20:44 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/510819424304.shtml)
-- 2026-06-29 20:45 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/177456683911.shtml)
-- 2026-06-29 20:44 - [急先锋](http://www.share.minike.top/Article/details/50318.shtml)
-- 2026-06-29 20:34 - [世界杯预测史上最不吃压力之物](http://www.blog.minike.top/Article/details/501488797018.shtml)
-- 2026-06-29 20:18 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/645842998.shtml)
-- 2026-06-29 20:40 - [蔚来回应车漆洗车时被冲掉](https://www.blog.kurohicncr.top/Article/details/3940930942.shtml)
-- 2026-06-29 20:22 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/33881492.shtml)
-- 2026-06-29 20:37 - [RAY评乘风2026总决赛](http://www.blog.kurohicncr.top/Article/details/2344726.shtml)
-- 2026-06-29 20:41 - [电动车主等红灯遭三轮车上横杆砸头](http://www.blog.minike.top/Article/details/513080042.shtml)
-- 2026-06-29 20:24 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/192081309.shtml)
-- 2026-06-29 20:21 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/261058504.shtml)
+- 2026-06-29 20:35 - [回顾世界杯争议事件](https://www.blog.kurohicncr.top/Article/details/2395623.shtml)
+- 2026-06-29 20:39 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.kurohicncr.top/Article/details/381058.shtml)
+- 2026-06-29 20:39 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/837210939.shtml)
+- 2026-06-29 20:51 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/7656636.shtml)
+- 2026-06-29 20:43 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/02647.shtml)
+- 2026-06-29 20:36 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/190461.shtml)
+- 2026-06-29 20:47 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/667444045.shtml)
+- 2026-06-29 20:34 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/2364537.shtml)
+- 2026-06-29 20:24 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/68666.shtml)
+- 2026-06-29 20:46 - [李思潼回应运气好演《给阿嬷的情书》](https://www.blog.kurohicncr.top/Article/details/2649219.shtml)
+- 2026-06-29 20:29 - [韩国队主帅遭极端网友死亡威胁](http://www.share.kurohicncr.top/Article/details/996626094150.shtml)
+- 2026-06-29 20:37 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/811148584198.shtml)
+- 2026-06-29 20:42 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/74633.shtml)
+- 2026-06-29 20:38 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/759691.shtml)
+- 2026-06-29 20:27 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.minike.top/Article/details/7437886269.shtml)

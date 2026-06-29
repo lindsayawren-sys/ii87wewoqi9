@@ -1,51 +1,43 @@
-# 翡翠千里眼、顺风耳雕像在福建湄洲妈祖祖庙揭幕
+# 美媒：美国或考虑恢复对伊朗军事行动
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月08日 19:19 来源：中国新闻网 5月8日清晨，翡翠千里眼、顺风耳雕像捐赠揭幕仪式在福建莆田湄洲妈祖祖庙举行。 翡翠千里眼、顺风耳雕像，长48公分、宽32公分、高108公分，每尊重量166千克。该组雕像将与此前安座于弘仁普济天妃宫的翡翠妈祖像、翡翠侍女像配套安座。 此次翡翠千里眼、顺风耳雕像由湄洲妈祖祖庙荣誉董事长赵柳成向湄洲妈祖祖庙捐赠，以此助力
+发布时间：2026年05月13日 10:32 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-发布时间：2026年05月08日 19:19 来源：中国新闻网 5月8日清晨，翡翠千里眼、顺风耳雕像捐赠揭幕仪式在福建莆田湄洲妈祖祖庙举行。
-
-翡翠千里眼、顺风耳雕像，长48公分、宽32公分、高108公分，每尊重量166千克。
-
-该组雕像将与此前安座于弘仁普济天妃宫的翡翠妈祖像、翡翠侍女像配套安座。
-
-此次翡翠千里眼、顺风耳雕像由湄洲妈祖祖庙荣誉董事长赵柳成向湄洲妈祖祖庙捐赠，以此助力妈祖文化的传承与传播。
-
-(记者 吴晟炜 视频来源 湄洲妈祖祖庙） 责任编辑：【卢岩】
+发布时间：2026年05月13日 10:32 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 20:33 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 20:38 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-29 20:43 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 20:37 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-29 20:44 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 20:21 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 20:34 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 20:47 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-29 20:35 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 20:41 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 20:19 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-29 20:49 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 20:32 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-29 20:44 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 20:29 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 20:32 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 20:28 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 20:28 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 20:35 - [伊朗足球队将启程回国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-29 20:53 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 20:42 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 20:24 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:32 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/514214.shtml)
-- 2026-06-29 20:42 - [主力抛售电子和通信板块](https://www.share.minike.top/Article/details/1347738927.shtml)
-- 2026-06-29 20:20 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/099966771.shtml)
-- 2026-06-29 20:40 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/060362617131.shtml)
-- 2026-06-29 20:36 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/362781.shtml)
-- 2026-06-29 20:25 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/9787339542.shtml)
-- 2026-06-29 20:43 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/30872701584.shtml)
-- 2026-06-29 20:43 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/2174970877.shtml)
-- 2026-06-29 20:44 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/6850411.shtml)
-- 2026-06-29 20:32 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/20143.shtml)
-- 2026-06-29 20:26 - [朱雀三号完成静态点火试验](http://www.blog.minike.top/Article/details/10265656.shtml)
-- 2026-06-29 20:46 - [T1零封KC MSI](https://www.share.minike.top/Article/details/28444195.shtml)
-- 2026-06-29 20:46 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/82668798.shtml)
-- 2026-06-29 20:44 - [王安宇聪明到导演组炸了](http://www.blog.kurohicncr.top/Article/details/2640931.shtml)
-- 2026-06-29 20:47 - [片寄凉太胖了好多](http://www.blog.minike.top/Article/details/71818111.shtml)
+- 2026-06-29 20:24 - [张杰我九岁就跟你了](http://www.share.kurohicncr.top/Article/details/09873.shtml)
+- 2026-06-29 20:52 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/66725.shtml)
+- 2026-06-29 20:45 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/395574086.shtml)
+- 2026-06-29 20:40 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/924559643537.shtml)
+- 2026-06-29 20:26 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/3793629.shtml)
+- 2026-06-29 20:48 - [如果你一直单身，你准备怎么养老？](https://www.blog.kurohicncr.top/Article/details/760246541.shtml)
+- 2026-06-29 20:35 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/6453037542.shtml)
+- 2026-06-29 20:41 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/17361238805.shtml)
+- 2026-06-29 20:51 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/9463014245.shtml)
+- 2026-06-29 20:40 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/8369951702.shtml)
+- 2026-06-29 20:25 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/440555430.shtml)
+- 2026-06-29 20:47 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/571637.shtml)
+- 2026-06-29 20:45 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/1135763.shtml)
+- 2026-06-29 20:36 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/305331168.shtml)
+- 2026-06-29 20:28 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/33110063395.shtml)

@@ -1,59 +1,56 @@
-# 山西预测6月至8月平均气温较常年偏高1.3℃
+# 王元丰：做好供应链ESG建设需夯实四大支柱
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-中新网太原5月8日电 (记者 范丽芳)山西即将进入主汛期，今年气候趋势如何？记者8日从山西省政府新闻办举行的新闻发布会获悉，预计今年6月至8月，该省平均降水量与常年持平；平均气温23.9℃，较常年偏高1.3℃。山西省气候中心副主任张冬峰介绍，今年以来(1月1日-5月6日)，全省平均降水量65.4毫米，较常年偏多19.8%；平均气温4.7℃，为1961年以来第二高。 从汛期气候趋
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：金融时报 作者：本报记者 马梅若 4月30日，A股2025年环境、社会和公司治理（ESG）强制信披首次大考收官。根据Wind数据，共计2698家A股上市公司披露了2025年ESG报告，披露率达48.95%，相比上年45.72%的披露率有所提高。此外，本
 
 ## 正文
 
-中新网太原5月8日电 (记者 范丽芳)山西即将进入主汛期，今年气候趋势如何？
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-记者8日从山西省政府新闻办举行的新闻发布会获悉，预计今年6月至8月，该省平均降水量与常年持平；平均气温23.9℃，较常年偏高1.3℃。
+来源：金融时报 作者：本报记者 马梅若 4月30日，A股2025年环境、社会和公司治理（ESG）强制信披首次大考收官。
 
-山西省气候中心副主任张冬峰介绍，今年以来(1月1日-5月6日)，全省平均降水量65.4毫米，较常年偏多19.8%；平均气温4.7℃，为1961年以来第二高。
+根据Wind数据，共计2698家A股上市公司披露了2025年ESG报告，披露率达48.95%，相比上年45.72%的披露率有所提高。
 
-从汛期气候趋势来看，预计6月至8月，山西平均降水量273毫米，与常年同期持平，各地降水量在180毫米(临猗)到400毫米(平顺)之间，北部大部和中南部东部较常年偏多1成到2成，其余大部地区较常年偏少1成到2成。
+此外，本次ESG报告内容质量更高，整体数据更为翔实。
 
-汛期降水主要集中在7月到8月，东部降水偏多明显。
+实际上，随着ESG披露各方推动力越来越强，企业不仅要披露自己直接业务的ESG信息，供应链的相关信息披露也日渐重要。
 
-张冬峰提醒，海河流域山西段强降水过程较多，可能出现较重汛情，要严防中小河流洪水及次生灾害；黄河流域中游山西段降水偏少，干旱发生发展风险较高；中南部盆地高温日数(日最高气温≥35℃)较常年明显偏多，可能出现阶段性高温热浪。
+近日，中国发展战略学研究会副理事长、北京交通大学碳中和科技与战略研究中心主任王元丰在2026第五届气候投融资国际研讨会上表示，当前企业开展供应链工作面临不可逆的宏观推动力，宏观发展形势决定了企业在推进ESG建设、实现高质量发展过程中无法脱离供应链环节。
 
-未来大气环流演变的不确定性很大，山西省气候中心将密切监视影响气候预测的关键系统以及天气气候特征的变化，及时滚动订正汛期气候预测，服务保障全省防灾减灾与农业生产。
+无论是企业自身存在的风险，还是供应链伙伴的风险，均会对企业产生重大影响，供应链风险管控已成为企业发展的重要课题。
 
-(完)
+此外，他强调，企业开展供应链ESG建设面临三大现实推动力：政府监管推动力、市场推动力和资本推动力。
 
 ## 相关推荐
 
-- 2026-06-29 20:27 - [伊朗足球队将启程回国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-29 20:42 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-29 20:43 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-29 20:45 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 20:32 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-29 20:27 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-29 20:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-29 20:18 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-29 20:25 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 20:40 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-29 20:42 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 20:21 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 20:27 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 20:51 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 20:37 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 20:47 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-29 20:37 - [C罗10球7球对垫底队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 20:28 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 20:53 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 20:27 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 20:38 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 20:50 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 20:53 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/8851057680.shtml)
-- 2026-06-29 20:32 - [杨紫视后第一场线下活动](https://www.blog.kurohicncr.top/Article/details/382260229.shtml)
-- 2026-06-29 20:39 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/69947897967.shtml)
-- 2026-06-29 20:47 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/84703525307.shtml)
-- 2026-06-29 20:46 - [记者乘坐无人驾驶汽车去采访](https://www.blog.kurohicncr.top/Article/details/438199922373.shtml)
-- 2026-06-29 20:40 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/043791369.shtml)
-- 2026-06-29 20:34 - [爱很美味](https://www.share.kurohicncr.top/Article/details/71995450963.shtml)
-- 2026-06-29 20:42 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/84395702139.shtml)
-- 2026-06-29 20:46 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/015540.shtml)
-- 2026-06-29 20:25 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.minike.top/Article/details/017646594.shtml)
-- 2026-06-29 20:35 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/835951015892.shtml)
-- 2026-06-29 20:35 - [东宫女主是不是顶级恋爱脑](https://www.share.kurohicncr.top/Article/details/78034295.shtml)
-- 2026-06-29 20:34 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/64956.shtml)
-- 2026-06-29 20:37 - [《恋与深空》回应争议](https://www.blog.kurohicncr.top/Article/details/41477398.shtml)
-- 2026-06-29 20:27 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/449124857979.shtml)
+- 2026-06-29 20:51 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/2347701330.shtml)
+- 2026-06-29 20:40 - [极限挑战第一季](https://www.blog.minike.top/Article/details/392697.shtml)
+- 2026-06-29 20:42 - [18岁高二体育生训练晕倒后离世](http://www.share.kurohicncr.top/Article/details/46701.shtml)
+- 2026-06-29 20:36 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/72303460.shtml)
+- 2026-06-29 20:43 - [东宫女主是不是顶级恋爱脑](http://www.blog.minike.top/Article/details/819426982705.shtml)
+- 2026-06-29 20:34 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/9595160266.shtml)
+- 2026-06-29 20:36 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/558564796.shtml)
+- 2026-06-29 20:32 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/1821079.shtml)
+- 2026-06-29 20:24 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.kurohicncr.top/Article/details/6889394636.shtml)
+- 2026-06-29 20:47 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/050207.shtml)
+- 2026-06-29 20:32 - [我和我的家乡](http://www.share.minike.top/Article/details/109181467064.shtml)
+- 2026-06-29 20:33 - [美的“卡bug”空调在欧洲卖爆](https://www.share.minike.top/Article/details/61936.shtml)
+- 2026-06-29 20:38 - [李思潼：不会介意大家夸我运气好](http://www.share.kurohicncr.top/Article/details/1388389.shtml)
+- 2026-06-29 20:42 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/852915475469.shtml)
+- 2026-06-29 20:46 - [逃狱兄弟](http://www.blog.minike.top/Article/details/82746752.shtml)

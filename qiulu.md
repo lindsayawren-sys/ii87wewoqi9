@@ -1,58 +1,57 @@
-# 谷歌打赢人工智能健康赛道竞赛的策略：与苹果及其他竞争对手友好合作
+# 美国海关开始向进口商退还355亿美元关税
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-谷歌希望成为用户首选的健身教练与健康生活顾问 ——即便用户佩戴的是苹果手表。 这家科技巨头于周四发布了一系列健康功能更新，将人工智能健康顾问作为核心亮点。这也是其整体战略的一环，旨在与 OpenAI、微软及一众争相布局健康智能领域的科技企业展开竞争。 对谷歌而言，跳出现有 Fitbit 和 Pixel 手表用户圈层、拓展更大用户群体是关键。公司押注，新版谷歌健康 App 中的人
+在最高法院裁定某些进口关税无效之后，美国海关正式启动了对进口商的退款流程。海关表示，正在处理高达355亿美元的退税申请，并将同时支付相应的利息。这对于沃尔玛等大型进口商来说无疑是一大利好，将直接改善它们的现金流和盈利能力。这笔巨额退税款将回流到企业手中，可能会被用于扩大业务或回馈消费者。市场预计，相关款项将在未来几个月内陆续到账。责任编辑：张俊 SF065
 
 ## 正文
 
-谷歌希望成为用户首选的健身教练与健康生活顾问 ——即便用户佩戴的是苹果手表。
+在最高法院裁定某些进口关税无效之后，美国海关正式启动了对进口商的退款流程。
 
-这家科技巨头于周四发布了一系列健康功能更新，将人工智能健康顾问作为核心亮点。
+海关表示，正在处理高达355亿美元的退税申请，并将同时支付相应的利息。
 
-这也是其整体战略的一环，旨在与 OpenAI、微软及一众争相布局健康智能领域的科技企业展开竞争。
+这对于沃尔玛等大型进口商来说无疑是一大利好，将直接改善它们的现金流和盈利能力。
 
-对谷歌而言，跳出现有 Fitbit 和 Pixel 手表用户圈层、拓展更大用户群体是关键。
+这笔巨额退税款将回流到企业手中，可能会被用于扩大业务或回馈消费者。
 
-公司押注，新版谷歌健康 App 中的人工智能健康助手，能够吸引苹果手表、Oura 智能戒指、佳明手表用户，以及完全没有佩戴健康监测设备的普通消费者。
+市场预计，相关款项将在未来几个月内陆续到账。
 
-市场研究机构国际数据公司（IDC）数据显示，在全球可穿戴设备市场，谷歌落后于苹果、三星，以及中国科技巨头小米、华为。
-
-但此次最新更新表明，相较于抢占智能手表市场，谷歌更专注于在人工智能健康领域与 OpenAI、微软抗衡。
-
-在人工智能竞赛中，越来越多消费者开始借助 ChatGPT 解答健康相关问题。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 20:47 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 20:39 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-29 20:29 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 20:19 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-29 20:24 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-29 20:45 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 20:22 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-29 20:41 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 20:19 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-29 20:31 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-29 20:44 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-29 20:29 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-29 20:48 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 20:27 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 20:24 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 20:52 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 20:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-29 20:38 - [AG 宫斗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 20:42 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-29 20:52 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-29 20:25 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 20:25 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 20:47 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-29 20:38 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-29 20:44 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 20:38 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 20:27 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:38 - [哈兰德吃饭被镜中自己吓到](http://www.share.kurohicncr.top/Article/details/527967651.shtml)
-- 2026-06-29 20:30 - [扫黑风暴](https://www.blog.minike.top/Article/details/74103.shtml)
-- 2026-06-29 20:44 - [特朗普两大核心赌注将迎高院裁决](https://www.blog.minike.top/Article/details/373002862009.shtml)
-- 2026-06-29 20:47 - [恋与深空制作组回应争议](http://www.blog.minike.top/Article/details/3901897.shtml)
-- 2026-06-29 20:41 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/38978052256.shtml)
-- 2026-06-29 20:35 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/465313864346.shtml)
-- 2026-06-29 20:20 - [金刚川](https://www.share.kurohicncr.top/Article/details/231235.shtml)
-- 2026-06-29 20:31 - [港股爆发 美团百度阿里等集体大涨](http://www.share.kurohicncr.top/Article/details/56696375.shtml)
-- 2026-06-29 20:46 - [东宫女主是不是顶级恋爱脑](https://www.share.kurohicncr.top/Article/details/3022815991.shtml)
-- 2026-06-29 20:43 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.blog.kurohicncr.top/Article/details/40561796167.shtml)
-- 2026-06-29 20:26 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/012632566.shtml)
-- 2026-06-29 20:43 - [流金岁月](http://www.share.minike.top/Article/details/9907870516.shtml)
-- 2026-06-29 20:24 - [TTG KSG](http://www.blog.minike.top/Article/details/619656846.shtml)
-- 2026-06-29 20:24 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/56120975052.shtml)
-- 2026-06-29 20:25 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/074466.shtml)
+- 2026-06-29 20:44 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/480374044.shtml)
+- 2026-06-29 20:51 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/8722480.shtml)
+- 2026-06-29 20:46 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/468283.shtml)
+- 2026-06-29 20:38 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/181420476612.shtml)
+- 2026-06-29 20:29 - [王楚钦开门红](http://www.blog.minike.top/Article/details/60428.shtml)
+- 2026-06-29 20:35 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/441672.shtml)
+- 2026-06-29 20:43 - [本届世界杯已有5人涉性侵风波](http://www.blog.kurohicncr.top/Article/details/732666214262.shtml)
+- 2026-06-29 20:48 - [专家预计全球央行加息节奏将出现反复](http://www.share.kurohicncr.top/Article/details/02753.shtml)
+- 2026-06-29 20:45 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/44022.shtml)
+- 2026-06-29 20:48 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/33903.shtml)
+- 2026-06-29 20:28 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/6300092.shtml)
+- 2026-06-29 20:24 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/29497938610.shtml)
+- 2026-06-29 20:33 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.blog.minike.top/Article/details/80182794.shtml)
+- 2026-06-29 20:45 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/033194.shtml)
+- 2026-06-29 20:28 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/19722797.shtml)

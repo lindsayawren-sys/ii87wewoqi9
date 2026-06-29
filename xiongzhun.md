@@ -1,60 +1,59 @@
-# 俄方同意特朗普俄乌停火换俘提议
+# 花旗：汇丰控股目标价微升至156.7港元 重申“买入”评级
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-中新社莫斯科5月8日电 俄罗斯总统助理乌沙科夫8日就俄乌停火及交换战俘发表评论说，俄方同意美国总统特朗普的提议，将于9日至11日停火期间俄乌各交换1000名战俘。 据克里姆林宫网站消息，乌沙科夫表示，根据俄总统普京的指示，他确认俄方接受美国总统特朗普近期提出的关于俄乌停火交换战俘的提议。俄方与美国总统行政部门通过电话就此达成协议。美方代表也与乌克兰方面进行了沟通。 乌沙科夫表示
+花旗发布研报称，根据汇丰控股（00005）首季业绩及近期市场升势带动财富管理及个人银行（IWPB）投资资产及收入预测，因此更新盈利预测，上调2026至2028年每股盈利预测1%至2%。该行预计，汇控2026至2028年收入年均增长5%，符合管理层2028年达5%的目标； 股本回报率（RoTE）料达18%至20%，高于17%的目标。花旗重申予汇控“买入”评级，目标价由153.4港
 
 ## 正文
 
-中新社莫斯科5月8日电 俄罗斯总统助理乌沙科夫8日就俄乌停火及交换战俘发表评论说，俄方同意美国总统特朗普的提议，将于9日至11日停火期间俄乌各交换1000名战俘。
+花旗发布研报称，根据汇丰控股（00005）首季业绩及近期市场升势带动财富管理及个人银行（IWPB）投资资产及收入预测，因此更新盈利预测，上调2026至2028年每股盈利预测1%至2%。
 
-据克里姆林宫网站消息，乌沙科夫表示，根据俄总统普京的指示，他确认俄方接受美国总统特朗普近期提出的关于俄乌停火交换战俘的提议。
+该行预计，汇控2026至2028年收入年均增长5%，符合管理层2028年达5%的目标； 股本回报率（RoTE）料达18%至20%，高于17%的目标。
 
-俄方与美国总统行政部门通过电话就此达成协议。
+花旗重申予汇控“买入”评级，目标价由153.4港元上调至156.7港元。
 
-美方代表也与乌克兰方面进行了沟通。
+该行上调汇控银行业务净利息收入预测0%至1%，2026年全年预测为462亿美元，接近管理层约460亿美元的最新指引； 银行业务非利息收入预测上调2%至5%，主要来自财富管理及企业银行（CIB）收入增强。
 
-乌沙科夫表示，主要提议内容是在5月9日至11日俄乌停火期间，双方各交换1000名被俘军人。
+成本预测则上调1%至2%，2026年预测为344亿美元，略高于管理层隐含的343亿美元指引。
 
-乌沙科夫说，俄方对这一提议表示欢迎。
+总体而言，花旗对汇控的经调整除税前溢利预测较市场共识高出2%至6%。
 
-该提议建立在俄美总统近期通话的基础上。
+该行留意到汇控将于5月20至21日举行投资者考察，期望管理层提供更多有关恒生银行整合后前景、亚太区财富管理、亚太区企业银行及成本节约潜力的细节。
 
-在通话中，两国领导人强调双方在二战期间的盟友关系，并讨论了在胜利日庆祝活动期间停火的可能性。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 20:18 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-29 20:18 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-29 20:24 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-29 20:42 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 20:35 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 20:30 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 20:26 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-29 20:44 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-29 20:36 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-29 20:42 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 20:40 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-29 20:30 - [半导体和股市为何没让韩国人起飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 20:26 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-29 20:23 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-29 20:39 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-29 20:39 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 20:35 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 20:43 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-29 20:38 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-29 20:45 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 20:45 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 20:27 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-29 20:40 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 20:46 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 20:34 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 20:33 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 20:35 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:38 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/4380631.shtml)
-- 2026-06-29 20:30 - [半导体和股市为何没让韩国人起飞](https://www.blog.kurohicncr.top/Article/details/91310840664.shtml)
-- 2026-06-29 20:22 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/77742338.shtml)
-- 2026-06-29 20:43 - [小众羞耻点是吃麻辣烫](http://www.blog.minike.top/Article/details/642275.shtml)
-- 2026-06-29 20:29 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/76274319009.shtml)
-- 2026-06-29 20:21 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/4852098.shtml)
-- 2026-06-29 20:45 - [女生学医适合选什么专业](http://www.blog.kurohicncr.top/Article/details/16073606279.shtml)
-- 2026-06-29 20:35 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/5630718898.shtml)
-- 2026-06-29 20:26 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/7203286244.shtml)
-- 2026-06-29 20:19 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/2761813885.shtml)
-- 2026-06-29 20:24 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/872198724100.shtml)
-- 2026-06-29 20:41 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.minike.top/Article/details/52661630.shtml)
-- 2026-06-29 20:45 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/617423154778.shtml)
-- 2026-06-29 20:27 - [王楚钦称抽签结果出来心情不好](http://www.blog.minike.top/Article/details/668264.shtml)
-- 2026-06-29 20:23 - [东方风云榜](https://www.share.minike.top/Article/details/181419.shtml)
+- 2026-06-29 20:32 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/3732276839.shtml)
+- 2026-06-29 20:40 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/01586084.shtml)
+- 2026-06-29 20:27 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/532977219993.shtml)
+- 2026-06-29 20:28 - [回顾世界杯争议事件](https://www.blog.kurohicncr.top/Article/details/412074489879.shtml)
+- 2026-06-29 20:44 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.minike.top/Article/details/190759418.shtml)
+- 2026-06-29 20:53 - [曝腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/71565.shtml)
+- 2026-06-29 20:31 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/345296130472.shtml)
+- 2026-06-29 20:25 - [电动车主等红灯遭三轮车上横杆砸头](http://www.share.kurohicncr.top/Article/details/8166568742.shtml)
+- 2026-06-29 20:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/61243907029.shtml)
+- 2026-06-29 20:27 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/9874914.shtml)
+- 2026-06-29 20:24 - [锐评白玉兰提名片段](http://www.blog.kurohicncr.top/Article/details/99408362.shtml)
+- 2026-06-29 20:42 - [127只股涨停 最大封单资金6.04亿元](https://www.share.kurohicncr.top/Article/details/25194161.shtml)
+- 2026-06-29 20:29 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/1528103.shtml)
+- 2026-06-29 20:47 - [韩文体部对韩足协开展审计 查出局原因](http://www.share.kurohicncr.top/Article/details/315810413.shtml)
+- 2026-06-29 20:34 - [爱奇艺抬高国剧新标尺](https://www.share.kurohicncr.top/Article/details/02942494.shtml)

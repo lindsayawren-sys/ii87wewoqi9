@@ -1,56 +1,51 @@
-# 坚持有腐必反、有贪必肃
+# 名创优品发盈喜 预计第一季度利润约12.28亿至12.48亿元同比增加约195%至200%
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-军事审判机关对魏凤和案件、李尚福案件进行了依法审理，作出一审判决，充分体现了党中央全面从严治党、全面从严治军的坚定决心，表明了党中央、中央军委坚定不移惩治腐败的决心意志，对于震慑腐败分子、提振军心士气，对于捍卫人民军队政治本色、保持人民军队纯洁光荣，具有重要意义。军队是拿枪杆子的，军中绝不能有对党怀有二心之人，绝不能有腐败分子藏身之地。魏凤和、李尚福身为党和军队高级领导干部，信
+名创优品（09896）发布公告，基于对截至2026年3月31日止季度的未经审计综合管理账目的初步审阅及评估，预计集团将录得（i）收入约人民币56.78亿元至人民币57.28亿元，同比增加约28%至29%；（ii）经营利润约人民币15.11亿元至人民币15.31亿元，同比增加约113%至116%；及（iii）期内利润约人民币12.28亿元至人民币12.48亿元，同比增加约195%
 
 ## 正文
 
-军事审判机关对魏凤和案件、李尚福案件进行了依法审理，作出一审判决，充分体现了党中央全面从严治党、全面从严治军的坚定决心，表明了党中央、中央军委坚定不移惩治腐败的决心意志，对于震慑腐败分子、提振军心士气，对于捍卫人民军队政治本色、保持人民军队纯洁光荣，具有重要意义。
+名创优品（09896）发布公告，基于对截至2026年3月31日止季度的未经审计综合管理账目的初步审阅及评估，预计集团将录得（i）收入约人民币56.78亿元至人民币57.28亿元，同比增加约28%至29%；（ii）经营利润约人民币15.11亿元至人民币15.31亿元，同比增加约113%至116%；及（iii）期内利润约人民币12.28亿元至人民币12.48亿元，同比增加约195%至200%。
 
-军队是拿枪杆子的，军中绝不能有对党怀有二心之人，绝不能有腐败分子藏身之地。
+2026年第一季度经营利润增加，主要由于对一间有限合伙企业投资的公允价值变动，产生未变现及按市值计价的收益人民币8.7亿元至人民币8.8亿元，主要归因于其于人工智能行业进行的首次公开发售前的早期战略性投资，惟部分被以下因素所抵销：（i）与去年同期相比，与TOP TOY有关的以权益结算的股份支付开支增加；以及（ii）净汇兑亏损，而去年同期则录得净汇兑收益。
 
-魏凤和、李尚福身为党和军队高级领导干部，信仰坍塌、忠诚失节，背弃初心使命、丧失党性原则，其行为辜负党中央、中央军委信任重托，严重污染部队政治生态，给党的事业、国防和军队建设，以及高级领导干部形象造成极大损害，性质极其严重，影响极为恶劣，危害特别巨大。
+公司预计将录得（i）剔除汇兑损益的经调整经营利润约人民币8.29亿元至人民币8.49亿元，同比增加约13%至16%；及（ii）剔除汇兑损益的经调整净利润约人民币6.24亿元至人民币6.44亿元，同比增加约7%至10%。
 
-他们受到法律制裁，完全是作茧自缚、咎由自取、自作自受。
-
-党有党规，国有国法。
-
-对党员干部而言，遵守党的纪律是本分，遵守国家法律是义务。
-
-任何党的组织和个人都没有超越党纪国法的特权，都必须维护党纪国法权威，都必须在党纪国法范围内活动，都必须依照党纪国法行使权力、履行职责。
-
-“法不阿贵，绳不挠曲。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 20:24 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-29 20:28 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-29 20:30 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 20:30 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-29 20:32 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-29 20:37 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-29 20:45 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-29 20:19 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-29 20:19 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-29 20:42 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-29 20:39 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 20:38 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-29 20:45 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 20:43 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 20:50 - [多人将马路护栏当球网打羽毛球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-29 20:49 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-29 20:44 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 20:42 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 20:39 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 20:38 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-29 20:30 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-29 20:44 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 20:52 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:27 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/185698.shtml)
-- 2026-06-29 20:45 - [佛得角队长门德斯被控强奸](https://www.blog.kurohicncr.top/Article/details/287094.shtml)
-- 2026-06-29 20:35 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/059408864.shtml)
-- 2026-06-29 20:34 - [女心理师](https://www.blog.kurohicncr.top/Article/details/22126.shtml)
-- 2026-06-29 20:33 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/33345276570.shtml)
-- 2026-06-29 20:24 - [中外合作办学是“低分捷径”吗](https://www.blog.minike.top/Article/details/07698.shtml)
-- 2026-06-29 20:38 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/7989328.shtml)
-- 2026-06-29 20:35 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/15727924935.shtml)
-- 2026-06-29 20:34 - [北京市发布雷电黄色预警](http://www.blog.minike.top/Article/details/96129919.shtml)
-- 2026-06-29 20:42 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/84073526473.shtml)
-- 2026-06-29 20:22 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/778920595.shtml)
-- 2026-06-29 20:27 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/28256746678.shtml)
-- 2026-06-29 20:33 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/1843939.shtml)
-- 2026-06-29 20:33 - [美人鱼](https://www.share.kurohicncr.top/Article/details/54227851086.shtml)
-- 2026-06-29 20:22 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/02571266747.shtml)
+- 2026-06-29 20:45 - [让AI做一个账号，它会做成什么样？](http://www.share.kurohicncr.top/Article/details/74529230630.shtml)
+- 2026-06-29 20:37 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/6338800.shtml)
+- 2026-06-29 20:50 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/2678059812.shtml)
+- 2026-06-29 20:39 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/676821359.shtml)
+- 2026-06-29 20:53 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/915844743941.shtml)
+- 2026-06-29 20:40 - [恋与深空需正视价值观偏差](http://www.blog.minike.top/Article/details/79758713960.shtml)
+- 2026-06-29 20:24 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/5812835061.shtml)
+- 2026-06-29 20:47 - [起风了](http://www.blog.minike.top/Article/details/8735734.shtml)
+- 2026-06-29 20:48 - [天气热脾气都变差了](http://www.blog.kurohicncr.top/Article/details/107440674537.shtml)
+- 2026-06-29 20:44 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/2617690901.shtml)
+- 2026-06-29 20:47 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/54983.shtml)
+- 2026-06-29 20:48 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/37931.shtml)
+- 2026-06-29 20:39 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/22108897.shtml)
+- 2026-06-29 20:39 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/651018.shtml)
+- 2026-06-29 20:38 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/004188249773.shtml)

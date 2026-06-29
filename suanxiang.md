@@ -1,56 +1,56 @@
-# 美债收益率触及5% 交易员在抄底冲动与恐惧之间摇摆
+# 欧盟负责人加大施压，整治社交媒体成瘾化设计
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-在一些华尔街圈子里，最热门的争论不再是科技股是否存在泡沫，或每桶100美元的油价是否会成为新常态，而是30年期美国国债收益率是否会持续突破5%。 该收益率决定了美国政府的长期借贷成本。本周，该收益率一度短暂突破5%，目前徘徊在近20年高位，略低于2023年末的峰值 —— 当时美联储仍在努力遏制疫情后通胀飙升。 这一变化在很大程度上是由市场担忧推动的：美国对伊朗的战争引发油价冲击
+欧盟委员会主席乌尔苏拉・冯德莱恩周二表示，欧盟正制定新规，保护儿童免受TikTok、Meta以及X平台等社交媒体成瘾化设计的侵害。 冯德莱恩在哥本哈根发表演讲时称： “睡眠不足、抑郁、焦虑、自残、成瘾行为、网络霸凌、网络诱骗、人身剥削、自杀风险——各类风险正快速激增。” “这些风险就是数字世界的现实。它们并非偶然发生，而是商业模式造成的结果：这类商业模式把我们孩子的注意力当成了
 
 ## 正文
 
-在一些华尔街圈子里，最热门的争论不再是科技股是否存在泡沫，或每桶100美元的油价是否会成为新常态，而是30年期美国国债收益率是否会持续突破5%。
+欧盟委员会主席乌尔苏拉・冯德莱恩周二表示，欧盟正制定新规，保护儿童免受TikTok、Meta以及X平台等社交媒体成瘾化设计的侵害。
 
-该收益率决定了美国政府的长期借贷成本。
+冯德莱恩在哥本哈根发表演讲时称： “睡眠不足、抑郁、焦虑、自残、成瘾行为、网络霸凌、网络诱骗、人身剥削、自杀风险——各类风险正快速激增。
 
-本周，该收益率一度短暂突破5%，目前徘徊在近20年高位，略低于2023年末的峰值 —— 当时美联储仍在努力遏制疫情后通胀飙升。
+” “这些风险就是数字世界的现实。
 
-这一变化在很大程度上是由市场担忧推动的：美国对伊朗的战争引发油价冲击，可能再次推高消费者价格。
+它们并非偶然发生，而是商业模式造成的结果：这类商业模式把我们孩子的注意力当成了可售卖的商品。
 
-不过，其他因素也在发挥作用。
+” 冯德莱恩表示，欧盟委员会将在《数字公平法案》中专门整治具有成瘾性和危害性的产品设计套路，该法案预计将于今年年底提交草案。
 
-美国经济表现出乎意料地具有韧性。
+她还称，《数字公平法案》也将对社交媒体领域的人工智能应用设置严格限制，同时欧盟正倡导设立社交媒体使用最低准入年龄。
 
-与此同时，财政赤字意味着政府需要大量发债，使美国债务规模超过其年度国内生产总值的100%。
+冯德莱恩提出，欧盟必须考虑设定社交媒体准入最低年龄，并补充说，在专家小组提出相关建议后，欧盟委员会或于今年夏季就此问题提出立法提案。
 
-此外，尽管总统唐纳德·特朗普不断向美联储施压要求降息，交易员却押注，即使由他提名的主席凯文·沃什接任，美联储的下一步行动仍可能是加息。
+她表示：“问题不在于年轻人该不该使用社交媒体，而在于社交媒体该不该触达未成年人。
 
 ## 相关推荐
 
-- 2026-06-29 20:31 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 20:46 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 20:33 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 20:45 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-29 20:32 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-29 20:44 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-29 20:43 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 20:27 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-29 20:29 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 20:22 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 20:32 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-29 20:49 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 20:24 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-29 20:32 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-29 20:49 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 20:33 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-29 20:45 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-29 20:24 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 20:41 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-29 20:34 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:38 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/0815093086.shtml)
-- 2026-06-29 20:23 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/919959501561.shtml)
-- 2026-06-29 20:34 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/06033.shtml)
-- 2026-06-29 20:33 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/04992909.shtml)
-- 2026-06-29 20:44 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/5325680041.shtml)
-- 2026-06-29 20:34 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/7729148.shtml)
-- 2026-06-29 20:36 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/4478029.shtml)
-- 2026-06-29 20:41 - [福建海警位金门附近海域常态执法巡查](http://www.blog.minike.top/Article/details/447583984484.shtml)
-- 2026-06-29 20:44 - [韩国队回国欢迎仪式取消](https://www.share.kurohicncr.top/Article/details/4976099.shtml)
-- 2026-06-29 20:31 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/23221083.shtml)
-- 2026-06-29 20:41 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/700320848206.shtml)
-- 2026-06-29 20:32 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/44364.shtml)
-- 2026-06-29 20:35 - [乌是否掌握了扭转战局的钥匙](https://www.share.kurohicncr.top/Article/details/464664244.shtml)
-- 2026-06-29 20:22 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.minike.top/Article/details/20345305436.shtml)
-- 2026-06-29 20:44 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/683084504.shtml)
+- 2026-06-29 20:38 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/80214.shtml)
+- 2026-06-29 20:35 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/788814257.shtml)
+- 2026-06-29 20:47 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/41364834.shtml)
+- 2026-06-29 20:32 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/684952866.shtml)
+- 2026-06-29 20:32 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/528421252.shtml)
+- 2026-06-29 20:34 - [papi酱在救赎窦文涛](http://www.share.kurohicncr.top/Article/details/541493672.shtml)
+- 2026-06-29 20:28 - [东方风云榜直播](https://www.share.minike.top/Article/details/895518825008.shtml)
+- 2026-06-29 20:33 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/451651.shtml)
+- 2026-06-29 20:26 - [铜价上涨 日本住宅水表失窃严重](http://www.share.kurohicncr.top/Article/details/791763402.shtml)
+- 2026-06-29 20:43 - [王安宇聪明到导演组炸了](https://www.share.minike.top/Article/details/57492840.shtml)
+- 2026-06-29 20:33 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/29661.shtml)
+- 2026-06-29 20:42 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/199691599669.shtml)
+- 2026-06-29 20:39 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/48259.shtml)
+- 2026-06-29 20:41 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/265283.shtml)
+- 2026-06-29 20:42 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/879516.shtml)

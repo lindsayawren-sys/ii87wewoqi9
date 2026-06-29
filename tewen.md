@@ -1,58 +1,58 @@
-# 驻巴布亚新几内亚使馆提醒中国公民和机构切勿参与黄金走私违法活动
+# 欧佩克下调 2026 年全球石油需求增长预期
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-中新网5月8日电 据中国驻巴布亚新几内亚大使馆微信公众号消息，2026年4月27日，巴布亚新几内亚国家机场公司安保人员在莫尔斯比港国际机场查获20根不同规格、价值数百万基那的走私金条。日前，亦有涉嫌走私黄金人员被宣判。根据巴新有关部门和当地媒体公布，2025年12月以来，巴新执法部门查获6起以上通过机场走私黄金案件。 黄金出口须事先申报并取得许可证。走私黄金将面临法律的严厉制裁
+欧佩克周三下调了2026年全球石油需求增长预期。受伊朗战事影响，国际能源署等多家机构此前也已下调相关预期，欧佩克此次随之跟进。 相较于国际能源署，欧佩克认为石油需求受到的冲击相对更小；国际能源署周三早些时候已上调了对今年石油需求降幅的预估。欧佩克表示，后续石油消费将会反弹，并上调了2027年石油需求增长预测。 伊朗战事已令全球石油要道霍尔木兹海峡实际陷入停运，导致中东原油日产量
 
 ## 正文
 
-中新网5月8日电 据中国驻巴布亚新几内亚大使馆微信公众号消息，2026年4月27日，巴布亚新几内亚国家机场公司安保人员在莫尔斯比港国际机场查获20根不同规格、价值数百万基那的走私金条。
+欧佩克周三下调了2026年全球石油需求增长预期。
 
-日前，亦有涉嫌走私黄金人员被宣判。
+受伊朗战事影响，国际能源署等多家机构此前也已下调相关预期，欧佩克此次随之跟进。
 
-根据巴新有关部门和当地媒体公布，2025年12月以来，巴新执法部门查获6起以上通过机场走私黄金案件。
+相较于国际能源署，欧佩克认为石油需求受到的冲击相对更小；国际能源署周三早些时候已上调了对今年石油需求降幅的预估。
 
-黄金出口须事先申报并取得许可证。
+欧佩克表示，后续石油消费将会反弹，并上调了2027年石油需求增长预测。
 
-走私黄金将面临法律的严厉制裁，包括高额罚款与长期监禁等。
+伊朗战事已令全球石油要道霍尔木兹海峡实际陷入停运，导致中东原油日产量锐减数百万桶，燃油价格大幅飙升。
 
-中国驻巴布亚新几内亚大使馆郑重提醒，在巴新的中国公民和机构务必遵守当地法律法规，切勿参与黄金走私违法活动，避免违法行为给自身带来安全风险。
+油价暴涨冲击居民消费与企业经营，也倒逼各国政府出台节能保供措施。
 
-如遇紧急情况第一时间报警并与中国驻巴新大使馆联系寻求协助。
+欧佩克称，预计今年第二季度全球石油日均需求为1.0457亿桶，低于上月预测的1.0507亿桶；而在上一份报告中，二季度需求预估就已被下调50万桶/日。
 
-联系方式： 1、巴新紧急求助电话：警察：112 消防：110 急救：111 2、外交部全球领事保护与服务应急热线电话： +86-10-12308 +86-10-65612308 3、驻巴新使馆领事保护与协助电话：+675-73616048
+欧佩克表示：“尽管中东等地地缘政治局势紧张，今年全球经济增长仍展现出韧性”，并维持原有经济增长预测不变。
 
 ## 相关推荐
 
-- 2026-06-29 20:26 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 20:35 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 20:46 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 20:18 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-29 20:27 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-29 20:34 - [女生学医适合选什么专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 20:42 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 20:36 - [北京市发布雷电黄色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 20:35 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-29 20:29 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 20:36 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-29 20:29 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 20:52 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-29 20:43 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 20:28 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 20:36 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 20:39 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 20:45 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-29 20:33 - [海清4次陪跑白玉兰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 20:29 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-29 20:42 - [郑钦文谈再战西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-29 20:27 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-29 20:33 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 20:31 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:19 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/18119.shtml)
-- 2026-06-29 20:19 - [媒体：听清自己内心的声音再填志愿](http://www.share.minike.top/Article/details/800955824036.shtml)
-- 2026-06-29 20:42 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/77217999.shtml)
-- 2026-06-29 20:29 - [小龙女配音去世 李若彤发文悼念](http://www.share.minike.top/Article/details/982767771.shtml)
-- 2026-06-29 20:33 - [新官上任三把火](https://www.share.minike.top/Article/details/212007506723.shtml)
-- 2026-06-29 20:32 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.share.kurohicncr.top/Article/details/688175.shtml)
-- 2026-06-29 20:29 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/417271731.shtml)
-- 2026-06-29 20:29 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/195228538480.shtml)
-- 2026-06-29 20:30 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/2314806422.shtml)
-- 2026-06-29 20:21 - [网红小徐直播时突遇地震](http://www.share.minike.top/Article/details/7185346.shtml)
-- 2026-06-29 20:29 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/63790.shtml)
-- 2026-06-29 20:20 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.minike.top/Article/details/9726453.shtml)
-- 2026-06-29 20:18 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/908506721.shtml)
-- 2026-06-29 20:28 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/9817974471.shtml)
-- 2026-06-29 20:47 - [美以这对亲密盟友要掰了吗](http://www.share.minike.top/Article/details/35868.shtml)
+- 2026-06-29 20:45 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/51953.shtml)
+- 2026-06-29 20:40 - [河南高院审委会原委员曲海滨被查](https://www.share.kurohicncr.top/Article/details/39848.shtml)
+- 2026-06-29 20:53 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/6389946953.shtml)
+- 2026-06-29 20:46 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/84175736140.shtml)
+- 2026-06-29 20:51 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/008864.shtml)
+- 2026-06-29 20:51 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/56214.shtml)
+- 2026-06-29 20:46 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.kurohicncr.top/Article/details/26598984395.shtml)
+- 2026-06-29 20:42 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/20104642.shtml)
+- 2026-06-29 20:39 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/926767.shtml)
+- 2026-06-29 20:37 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/346889728.shtml)
+- 2026-06-29 20:53 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/493710670599.shtml)
+- 2026-06-29 20:33 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/51669.shtml)
+- 2026-06-29 20:30 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/129650.shtml)
+- 2026-06-29 20:45 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/89297823473.shtml)
+- 2026-06-29 20:40 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/70603309056.shtml)

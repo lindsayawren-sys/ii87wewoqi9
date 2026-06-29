@@ -1,56 +1,61 @@
-# 美军再瘫痪两艘伊朗籍船只
+# 能源智库称伊朗战争导致欧盟前所未有地高度依赖美国天然气
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-美军在霍尔木兹海峡附近发动一轮打击，向两艘伊朗籍船只开火，称其违反了美国实施的海上封锁令。 负责指挥美国中东军事行动的美国中央司令部表示，两艘空载油轮企图驶入阿曼湾的伊朗港口，美军已将其瘫痪。 美国中央司令部周五通报，一架从航空母舰起飞的美军战斗机，向两艘油轮的烟囱发射精确弹药，致使两艘油轮失去航行能力，阻止这些违规船只驶入伊朗。 昨日，美伊双方在霍尔木兹海峡发生交火，令本就脆
+一家能源智库表示，欧洲今年对美国天然气的依赖预计将升至前所未有的水平，原因是美国填补了中东地区供应减少带来的缺口。 能源经济与金融分析研究所（IEEFA）在一份报告中指出，欧洲可能有三分之二的液化天然气（LNG）来自美国，创下历史新高。按整体天然气供应份额计算，美国甚至可能超越挪威——后者目前是欧洲最大的管道气供应国。 自2022年俄乌冲突爆发以来，欧盟一直努力实现天然气来源多
 
 ## 正文
 
-美军在霍尔木兹海峡附近发动一轮打击，向两艘伊朗籍船只开火，称其违反了美国实施的海上封锁令。
+一家能源智库表示，欧洲今年对美国天然气的依赖预计将升至前所未有的水平，原因是美国填补了中东地区供应减少带来的缺口。
 
-负责指挥美国中东军事行动的美国中央司令部表示，两艘空载油轮企图驶入阿曼湾的伊朗港口，美军已将其瘫痪。
+能源经济与金融分析研究所（IEEFA）在一份报告中指出，欧洲可能有三分之二的液化天然气（LNG）来自美国，创下历史新高。
 
-美国中央司令部周五通报，一架从航空母舰起飞的美军战斗机，向两艘油轮的烟囱发射精确弹药，致使两艘油轮失去航行能力，阻止这些违规船只驶入伊朗。
+按整体天然气供应份额计算，美国甚至可能超越挪威——后者目前是欧洲最大的管道气供应国。
 
-昨日，美伊双方在霍尔木兹海峡发生交火，令本就脆弱的停火局势进一步紧张。
+自2022年俄乌冲突爆发以来，欧盟一直努力实现天然气来源多元化，以避免过度依赖单一供应方。
 
-早在5月6日，美军就已瘫痪另一艘伊朗籍空载油轮。
+美国的海运输LNG已成为替代俄罗斯管道气的关键来源，但部分欧洲官员警告称，欧洲可能正从一种依赖转向另一种依赖。
 
-美国中央司令部称：涉事三艘船只目前均已无法驶往伊朗。
+IEEFA欧洲首席能源分析师Ana Maria Jaller-Makarewicz表示：“液化天然气已成为欧洲能源安全战略的阿喀琉斯之踵，使该地区面临更高气价以及新的供应中断风险。
 
-责任编辑：何云
+” Jaller-Makarewicz指出，如果卡塔尔LNG生产设施因伊朗战争出现长期停产，美国向欧盟供气规模可能超过挪威。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 20:38 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-29 20:31 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 20:44 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-29 20:47 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 20:24 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 20:26 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-29 20:33 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 20:39 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-29 20:19 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-29 20:28 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 20:22 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-29 20:35 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-29 20:30 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 20:24 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-29 20:43 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-29 20:50 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 20:45 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 20:27 - [河南高院审委会原委员曲海滨被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 20:50 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-29 20:27 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 20:25 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 20:50 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 20:40 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-29 20:37 - [海清4次陪跑白玉兰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-29 20:29 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 20:51 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-29 20:45 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:31 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/2977079189.shtml)
-- 2026-06-29 20:42 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/99821.shtml)
-- 2026-06-29 20:39 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/0196389387.shtml)
-- 2026-06-29 20:40 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/83327298.shtml)
-- 2026-06-29 20:29 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/87409.shtml)
-- 2026-06-29 20:43 - [千与千寻](http://www.blog.minike.top/Article/details/91956926.shtml)
-- 2026-06-29 20:18 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/242280328952.shtml)
-- 2026-06-29 20:47 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/5564021604.shtml)
-- 2026-06-29 20:33 - [金鹰奖第二阶段投票明日开启](https://www.share.kurohicncr.top/Article/details/843718008.shtml)
-- 2026-06-29 20:27 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/8599308.shtml)
-- 2026-06-29 20:28 - [美以这对亲密盟友要掰了吗](http://www.blog.kurohicncr.top/Article/details/889244426.shtml)
-- 2026-06-29 20:37 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.kurohicncr.top/Article/details/028537.shtml)
-- 2026-06-29 20:28 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/17673971178.shtml)
-- 2026-06-29 20:28 - [千与千寻](http://www.share.minike.top/Article/details/646640.shtml)
-- 2026-06-29 20:37 - [店员光脚踩入盆中清洗土豆](http://www.blog.minike.top/Article/details/5675885836.shtml)
+- 2026-06-29 20:38 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/328969267426.shtml)
+- 2026-06-29 20:50 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/99828990.shtml)
+- 2026-06-29 20:28 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/866478.shtml)
+- 2026-06-29 20:48 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/048875704856.shtml)
+- 2026-06-29 20:45 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/324978630.shtml)
+- 2026-06-29 20:30 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/69690504.shtml)
+- 2026-06-29 20:35 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.kurohicncr.top/Article/details/699239608706.shtml)
+- 2026-06-29 20:53 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/841138836059.shtml)
+- 2026-06-29 20:25 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/53041753.shtml)
+- 2026-06-29 20:46 - [18岁高二体育生训练晕倒后离世](https://www.blog.minike.top/Article/details/82484036.shtml)
+- 2026-06-29 20:31 - [德国医生在没有空调的手术室工作](http://www.share.minike.top/Article/details/8387483.shtml)
+- 2026-06-29 20:35 - [啊啊啊](https://www.blog.minike.top/Article/details/697654984.shtml)
+- 2026-06-29 20:36 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.kurohicncr.top/Article/details/3734612625.shtml)
+- 2026-06-29 20:31 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/13970222116.shtml)
+- 2026-06-29 20:49 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/02505371.shtml)

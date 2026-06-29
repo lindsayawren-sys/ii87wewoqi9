@@ -1,56 +1,56 @@
-# 横琴口岸“联合一站式”车道智能通关正式启动
+# 2026年广西防灾减灾宣传周启动 救援演示引民众关注
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-7日，横琴口岸“联合一站式”车道智能通关正式启动。符合资格的驾驶者在车道上的“人员信息采集一体机”前短暂停驻，系统通过指纹与面相双重生物特征识别，粤澳两地边检查验便可“瞬间比对”“一次放行”。 据介绍，此次推行的智能通关适用于已完成跨境驾驶员备案并同时符合相关条件的澳门居民、香港永久性居民、内地居民及台湾地区居民。完成备案流程后，驾驶者抵达口岸无需再出示实体证件。经测算，这种“
+中新网南宁5月12日电(韦佳秀)安全教官通过喊话吸引周边救援力量，并向“溺水”人员抛投救生工具、入水解救“溺水”人员......5月12日，广西南宁上演了一场针对溺水人员的专业救援演示。 当天，2026年广西防灾减灾宣传周启动仪式在广西体育中心壮小安应急安全主题馆举行。广西壮族自治区应急管理厅预案管理和综合减灾处处长、一级调研员何品志此间受访时表示，广西全区各级防灾减灾救灾议事
 
 ## 正文
 
-7日，横琴口岸“联合一站式”车道智能通关正式启动。
+中新网南宁5月12日电(韦佳秀)安全教官通过喊话吸引周边救援力量，并向“溺水”人员抛投救生工具、入水解救“溺水”人员......5月12日，广西南宁上演了一场针对溺水人员的专业救援演示。
 
-符合资格的驾驶者在车道上的“人员信息采集一体机”前短暂停驻，系统通过指纹与面相双重生物特征识别，粤澳两地边检查验便可“瞬间比对”“一次放行”。
+当天，2026年广西防灾减灾宣传周启动仪式在广西体育中心壮小安应急安全主题馆举行。
 
-据介绍，此次推行的智能通关适用于已完成跨境驾驶员备案并同时符合相关条件的澳门居民、香港永久性居民、内地居民及台湾地区居民。
+广西壮族自治区应急管理厅预案管理和综合减灾处处长、一级调研员何品志此间受访时表示，广西全区各级防灾减灾救灾议事协调机构结合实际，组织开展一系列防灾减灾科普宣教活动，在易灾区域至少开展一次应急演练，至少开展一次风险隐患排查等活动。
 
-完成备案流程后，驾驶者抵达口岸无需再出示实体证件。
+据介绍，今年广西聚焦重大基础设施和人员密集场所开展涉灾风险排查，完善监测预警“叫应”和跟踪反馈机制，围绕大震巨灾、城市内涝、山区极端暴雨—山洪—泥石流等复杂场景组织跨区域跨部门协同演练，发挥八桂应急社区响应队“第一响应人”和党员先锋模范作用，确保全区社会大局和谐稳定、全区人民安居乐业。
 
-经测算，这种“智能通关”模式可让单车查验效率提高约10%。
+本次活动拉开了集中开展防灾减灾救灾科普宣传教育的序幕，以“人人讲安全，个个会应急——提高防灾减灾救灾能力”为主题，旨在营造人人讲安全、个个会应急的社会氛围。
 
-自去年11月起，横琴口岸旅检通道率先应用“智能通关”，经过为期6个月的运行，系统性能稳定可靠、通关操作便捷高效，累计已有超过28万符合资格人员登记，逾460万人次“刷脸”通关，约占整体合作查验自助通道通关人数的35%。
+活动现场，广西各级各部门通过设立展板、发放资料、有奖问答等形式，为民众普及防灾减灾知识和自救互救技能。
 
-时隔半年，这项便民红利顺利延伸至“联合一站式”车道。
+广西消防救援队伍、南宁消防救援机动队伍等通过应急装备展示，提高民众对于新质应急救援装备的认知度。
 
-记者：宋晨、郭雨祺、王浩明报道员：梁建华 来源：新华社
+壮小安应急安全主题馆提供沉浸式的灾害事故场景体验，进一步加深民众的避灾避险意识。
 
 ## 相关推荐
 
-- 2026-06-29 20:19 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-29 20:40 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-29 20:30 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 20:30 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-29 20:37 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-29 20:36 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 20:46 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-29 20:40 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-29 20:47 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 20:22 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-29 20:38 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-29 20:32 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-29 20:48 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 20:37 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 20:52 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-29 20:34 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 20:25 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 20:42 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 20:34 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 20:41 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:45 - [恋与深空回应争议](http://www.share.minike.top/Article/details/63326627865.shtml)
-- 2026-06-29 20:22 - [天道](http://www.blog.kurohicncr.top/Article/details/21700.shtml)
-- 2026-06-29 20:37 - [卢卡申科发布解放军仪仗队视频](http://www.blog.kurohicncr.top/Article/details/35017689.shtml)
-- 2026-06-29 20:47 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/87216.shtml)
-- 2026-06-29 20:42 - [小龙女配音去世 李若彤发文悼念](http://www.blog.kurohicncr.top/Article/details/58460779987.shtml)
-- 2026-06-29 20:19 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/056087449452.shtml)
-- 2026-06-29 20:24 - [林逸向方筱然求婚了](http://www.share.kurohicncr.top/Article/details/891459.shtml)
-- 2026-06-29 20:43 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/103823.shtml)
-- 2026-06-29 20:28 - [夫妻生活太无聊，所以我……](https://www.blog.minike.top/Article/details/03693622.shtml)
-- 2026-06-29 20:28 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/968216498.shtml)
-- 2026-06-29 20:21 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/444864457594.shtml)
-- 2026-06-29 20:35 - [媒体：听清自己内心的声音再填志愿](http://www.blog.minike.top/Article/details/529357.shtml)
-- 2026-06-29 20:20 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/913968867729.shtml)
-- 2026-06-29 20:43 - [东方风云榜直播](https://www.share.minike.top/Article/details/411729.shtml)
-- 2026-06-29 20:44 - [朱雀三号重复使用遥二运载火箭新进展](https://www.blog.kurohicncr.top/Article/details/968955978.shtml)
+- 2026-06-29 20:28 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/90884795.shtml)
+- 2026-06-29 20:45 - [CORTIS 小牌大耍](http://www.blog.minike.top/Article/details/118039998921.shtml)
+- 2026-06-29 20:31 - [央行首次3000亿元隔夜逆回购操作](http://www.share.minike.top/Article/details/767617.shtml)
+- 2026-06-29 20:27 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/23462677.shtml)
+- 2026-06-29 20:27 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/12183706830.shtml)
+- 2026-06-29 20:28 - [一诺变着花样秀新驾照](https://www.blog.kurohicncr.top/Article/details/373104723334.shtml)
+- 2026-06-29 20:34 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.kurohicncr.top/Article/details/06464.shtml)
+- 2026-06-29 20:50 - [温网](https://www.share.minike.top/Article/details/5709901.shtml)
+- 2026-06-29 20:25 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/7576056.shtml)
+- 2026-06-29 20:27 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/46995222320.shtml)
+- 2026-06-29 20:46 - [一生一世](https://www.blog.minike.top/Article/details/29493.shtml)
+- 2026-06-29 20:25 - [恋与深空7天掉粉超50万](https://www.blog.kurohicncr.top/Article/details/990837.shtml)
+- 2026-06-29 20:24 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.kurohicncr.top/Article/details/62879.shtml)
+- 2026-06-29 20:46 - [被裁员后30岁儿子被抓去戒网瘾](https://www.share.minike.top/Article/details/68093.shtml)
+- 2026-06-29 20:47 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/479297608.shtml)

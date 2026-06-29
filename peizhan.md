@@ -1,56 +1,56 @@
-# 焦点访谈丨实干笃行新征程 他们用匠心诠释着每一份坚守
+# TMC与Allseas签署协议，共建首套商业深海结核回收系统
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-自古以来，工匠精神就根植于中华优秀传统文化的深厚土壤，也深深融入中华民族的精神血脉。党的十八大以来，习近平总书记多次礼赞劳动创造，并强调要发扬“执着专注、精益求精、一丝不苟、追求卓越”的工匠精神。 一支150毫米大口径折射式望远镜在接受测试，即将用于航空航天领域的空间目标探测。 平行光管测试，模拟的是遥远太空中的星体发来的平行星光。设计师通过从这支望远镜里看到的光线形态和清晰度
+The Metals Company（TMC）已与海上承包商Allseas签署商业协议，共同开发和运营双方所称的首套商业深海结核回收系统。 该协议涵盖了结核收集系统的开发、调试和运行，旨在为太平洋克拉里昂-克利珀顿区的海上回收作业做准备。 该商业生产系统的额定年产能为300万湿吨，将使用两台在超过4公里深度的水下运行的收集车，将结核输送至水面支持船Hidden Gem号。 TM
 
 ## 正文
 
-自古以来，工匠精神就根植于中华优秀传统文化的深厚土壤，也深深融入中华民族的精神血脉。
+The Metals Company（TMC）已与海上承包商Allseas签署商业协议，共同开发和运营双方所称的首套商业深海结核回收系统。
 
-党的十八大以来，习近平总书记多次礼赞劳动创造，并强调要发扬“执着专注、精益求精、一丝不苟、追求卓越”的工匠精神。
+该协议涵盖了结核收集系统的开发、调试和运行，旨在为太平洋克拉里昂-克利珀顿区的海上回收作业做准备。
 
-一支150毫米大口径折射式望远镜在接受测试，即将用于航空航天领域的空间目标探测。
+该商业生产系统的额定年产能为300万湿吨，将使用两台在超过4公里深度的水下运行的收集车，将结核输送至水面支持船Hidden Gem号。
 
-平行光管测试，模拟的是遥远太空中的星体发来的平行星光。
+TMC表示，该系统还将包括布放回收系统、立管系统以及一艘转运船。
 
-设计师通过从这支望远镜里看到的光线形态和清晰度，来判断如何使它最大限度实现设计目标。
+TMC称，关键长周期设备（包括立管和脐带缆系统）的概念设计和基础工程已经完成，预计在2026年第三季度末启动供应商接洽和分包合同授予。
 
-第一次的测试结果，摄像机的拍摄与肉眼观测有差距，实际看到的星点已相当清晰，但这还远没有达到设计师的目标。
+公司预计海上系统的调试将于2027年第四季度开始。
 
-这支镜头出自肖维军设计团队，经过两年多的磨合，从生产加工到安装调试都已相对成熟。
+根据协议，Allseas将承担部分开发成本，并通过未来的生产收入回收。
 
-即便如此，每到最终的调试阶段，肖维军也会亲自参与，作为设计师，他希望每一支镜头都能最大限度实现极致目标。
+TMC董事长兼首席执行官杰拉德·巴伦表示：“与Allseas的这份协议现在是我们与Allseas战略联盟的合同基石：它建立了一个清晰的商业框架，规定了我们如何完成首套商业规模结核回收系统的开发和调试，并启动海上结核回收作业。
 
 ## 相关推荐
 
-- 2026-06-29 20:28 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 20:39 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-29 20:40 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-29 20:38 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-29 20:37 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 20:19 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 20:36 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 20:41 - [东方风云榜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 20:22 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 20:35 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-29 20:30 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-29 20:34 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-29 20:39 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-29 20:30 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-29 20:35 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-29 20:36 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-29 20:26 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 20:27 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 20:35 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 20:29 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:30 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/7069797002.shtml)
-- 2026-06-29 20:21 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/945369348.shtml)
-- 2026-06-29 20:21 - [河南高院审委会原委员曲海滨被查](http://www.share.kurohicncr.top/Article/details/131737266.shtml)
-- 2026-06-29 20:41 - [湖南姑娘被东北同事带偏口音](http://www.share.minike.top/Article/details/47821827017.shtml)
-- 2026-06-29 20:21 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/8352625.shtml)
-- 2026-06-29 20:22 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.kurohicncr.top/Article/details/5182960.shtml)
-- 2026-06-29 20:41 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/6316070111.shtml)
-- 2026-06-29 20:42 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/4057820278.shtml)
-- 2026-06-29 20:37 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/2243764.shtml)
-- 2026-06-29 20:42 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/348126703047.shtml)
-- 2026-06-29 20:23 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/0197021.shtml)
-- 2026-06-29 20:36 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/30832549.shtml)
-- 2026-06-29 20:41 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/7993118.shtml)
-- 2026-06-29 20:22 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/699307332.shtml)
-- 2026-06-29 20:29 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.minike.top/Article/details/740663.shtml)
+- 2026-06-29 20:34 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/16198.shtml)
+- 2026-06-29 20:47 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/94288635860.shtml)
+- 2026-06-29 20:37 - [小众羞耻点是吃麻辣烫](https://www.blog.minike.top/Article/details/36348646.shtml)
+- 2026-06-29 20:41 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/230460115.shtml)
+- 2026-06-29 20:28 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/65853480.shtml)
+- 2026-06-29 20:26 - [张杰我九岁就跟你了](http://www.blog.minike.top/Article/details/553762227.shtml)
+- 2026-06-29 20:31 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/07886789738.shtml)
+- 2026-06-29 20:29 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/8810589.shtml)
+- 2026-06-29 20:34 - [王安宇聪明到导演组炸了](http://www.blog.minike.top/Article/details/68822466.shtml)
+- 2026-06-29 20:47 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/8797584.shtml)
+- 2026-06-29 20:39 - [周生如故](http://www.blog.kurohicncr.top/Article/details/49568138533.shtml)
+- 2026-06-29 20:52 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/8927482101.shtml)
+- 2026-06-29 20:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/95420935546.shtml)
+- 2026-06-29 20:35 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/13603831426.shtml)
+- 2026-06-29 20:29 - [张杰我九岁就跟你了](https://www.share.kurohicncr.top/Article/details/6825339.shtml)

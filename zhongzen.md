@@ -1,59 +1,57 @@
-# 挪威对俄鳕鱼协议引争议，遭国内业者起诉
+# 新疆访千年古刹 大漠觅丝路“佛缘”
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-挪威政府与俄罗斯达成的2026年巴伦支海鳕鱼捕捞配额协议正面临严峻的法律挑战。一家俄罗斯渔业公司已就此向挪威法院提起诉讼，质疑挪威禁止其在挪威水域作业及港口停靠的合法性。 此举使挪威陷入两难。尽管挪威与俄罗斯在去年12月艰难达成协议，设定了2026年东北北极鳕鱼总配额为28.5万吨，较上年减少16%。然而，协议达成的前提是挪威并未放松对俄罗斯渔业公司的制裁。自2025年7月起，
+中新网新疆和田5月13日电 (苟继鹏)在新疆塔克拉玛干沙漠深处，存续上千年的热瓦克佛寺遗址(简称“遗址”)正被越来越多人所知。记者12日随“循着古迹看新疆”主题采访团探访了该遗址。 从和田市往北向沙漠腹地挺进，沿途沙丘起伏、胡杨青翠、红柳葱茏，罗布麻花开……黄沙掩映间，位于洛浦县境内的这座千年古刹遗址便映入眼帘。 “它不仅是和田地区保存较为完整、时代较早的佛教建筑，也是晋唐时期
 
 ## 正文
 
-挪威政府与俄罗斯达成的2026年巴伦支海鳕鱼捕捞配额协议正面临严峻的法律挑战。
+中新网新疆和田5月13日电 (苟继鹏)在新疆塔克拉玛干沙漠深处，存续上千年的热瓦克佛寺遗址(简称“遗址”)正被越来越多人所知。
 
-一家俄罗斯渔业公司已就此向挪威法院提起诉讼，质疑挪威禁止其在挪威水域作业及港口停靠的合法性。
+记者12日随“循着古迹看新疆”主题采访团探访了该遗址。
 
-此举使挪威陷入两难。
+从和田市往北向沙漠腹地挺进，沿途沙丘起伏、胡杨青翠、红柳葱茏，罗布麻花开……黄沙掩映间，位于洛浦县境内的这座千年古刹遗址便映入眼帘。
 
-尽管挪威与俄罗斯在去年12月艰难达成协议，设定了2026年东北北极鳕鱼总配额为28.5万吨，较上年减少16%。
+“它不仅是和田地区保存较为完整、时代较早的佛教建筑，也是晋唐时期丝绸之路南道重要的历史文化遗存。
 
-然而，协议达成的前提是挪威并未放松对俄罗斯渔业公司的制裁。
+”洛浦县博物馆馆长夏提努尔·斯迪克说。
 
-自2025年7月起，挪威对俄罗斯大型渔业企业Norebo和Murman Seafood实施了限制措施，禁止其船只进入挪威水域和港口。
+“佛寺大约始建于公元2至3世纪，延续至唐代。
 
-被制裁的Norebo公司已采取法律行动，在挪威法庭质疑该禁令的合法性，认为其违反了1976年签署的挪俄渔业协议。
+其建筑形式和壁画风格深受犍陀罗文化的影响。
 
-该公司控制着俄罗斯在巴伦支海约40%的鳕鱼配额，若其船队被持续拒之门外，将面临巨大损失。
+”夏提努尔介绍说，寺院建筑遗址整体呈方形，以土坯砌筑，佛塔立于方形院内，坐北朝南，基本保留了初建时期的状况。
 
 ## 相关推荐
 
-- 2026-06-29 20:36 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 20:23 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-29 20:41 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 20:33 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-29 20:20 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-29 20:38 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-29 20:40 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-29 20:28 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 20:29 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-29 20:30 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 20:43 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 20:24 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 20:36 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 20:52 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 20:24 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 20:40 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 20:25 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-29 20:26 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 20:27 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 20:47 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-29 20:53 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-29 20:37 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-29 20:48 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-29 20:31 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:38 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/6005571.shtml)
-- 2026-06-29 20:31 - [如果你一直单身，你准备怎么养老？](http://www.share.minike.top/Article/details/0334802.shtml)
-- 2026-06-29 20:18 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/823412918.shtml)
-- 2026-06-29 20:36 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/20969738007.shtml)
-- 2026-06-29 20:43 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/4905394166.shtml)
-- 2026-06-29 20:24 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/537864362059.shtml)
-- 2026-06-29 20:32 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/984360561542.shtml)
-- 2026-06-29 20:39 - [世界杯预测史上最不吃压力之物](http://www.share.minike.top/Article/details/227788809123.shtml)
-- 2026-06-29 20:27 - [18岁高二体育生训练晕倒后离世](https://www.blog.minike.top/Article/details/8796387.shtml)
-- 2026-06-29 20:41 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/310824065.shtml)
-- 2026-06-29 20:41 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/718201.shtml)
-- 2026-06-29 20:47 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/7539118.shtml)
-- 2026-06-29 20:33 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/18410429.shtml)
-- 2026-06-29 20:40 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/6436392.shtml)
-- 2026-06-29 20:20 - [周生如故](http://www.blog.minike.top/Article/details/64284551.shtml)
+- 2026-06-29 20:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/053672912.shtml)
+- 2026-06-29 20:25 - [东方风云榜直播](http://www.share.kurohicncr.top/Article/details/5333291.shtml)
+- 2026-06-29 20:25 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/9011708.shtml)
+- 2026-06-29 20:25 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/84283695.shtml)
+- 2026-06-29 20:30 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/74644.shtml)
+- 2026-06-29 20:40 - [记者暗访养老机构消防安全](https://www.share.minike.top/Article/details/21709.shtml)
+- 2026-06-29 20:38 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/52789.shtml)
+- 2026-06-29 20:39 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/881286.shtml)
+- 2026-06-29 20:47 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.kurohicncr.top/Article/details/3868704119.shtml)
+- 2026-06-29 20:50 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/960008977068.shtml)
+- 2026-06-29 20:47 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/9427722.shtml)
+- 2026-06-29 20:37 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/45125068.shtml)
+- 2026-06-29 20:31 - [乌是否掌握了扭转战局的钥匙](https://www.share.minike.top/Article/details/764461308.shtml)
+- 2026-06-29 20:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/37708038.shtml)
+- 2026-06-29 20:54 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/93672404472.shtml)

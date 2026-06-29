@@ -1,60 +1,57 @@
-# 黑龙江高校“上新”77个本科专业 “低空＋”与“AI＋”成最热赛道
+# 巴西宣布恢复对50美元以下跨境电商平台购物的免税政策
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-中新网哈尔滨5月8日电 (记者 刘锡菊)8日，记者从黑龙江省教育厅获悉，在教育部公布的2025年度普通高等学校本科专业备案和审批结果中黑龙江省共有77个新增本科专业获批。其中，围绕低空经济、人工智能等前沿领域的“低空+”与“AI+”专业成为本次调整的最热赛道。据悉，此次获批的77个新专业呈现出“四聚焦”特点：聚焦“4567”现代产业体系布局“四新”专业，聚焦低空经济、人工智能等
+巴西总统卢拉当地时间周二签署了一项行政命令，取消对价值不超过50美元的境外购物征收的联邦税。此举扭转了此前备受诟病的税收政策，正值他本人积极备战10月份的总统大选之际。 此举预计将降低巴西低收入民众广泛使用的跨境电商平台上的商品购买成本。巴西财政部执行秘书罗杰里奥·塞隆表示：“这将使那些严重依赖这些（电子商务）平台购买日常生活必需品的贫困低收入人群受益。” 塞隆并未具体说明此举
 
 ## 正文
 
-中新网哈尔滨5月8日电 (记者 刘锡菊)8日，记者从黑龙江省教育厅获悉，在教育部公布的2025年度普通高等学校本科专业备案和审批结果中黑龙江省共有77个新增本科专业获批。
+巴西总统卢拉当地时间周二签署了一项行政命令，取消对价值不超过50美元的境外购物征收的联邦税。
 
-其中，围绕低空经济、人工智能等前沿领域的“低空+”与“AI+”专业成为本次调整的最热赛道。
+此举扭转了此前备受诟病的税收政策，正值他本人积极备战10月份的总统大选之际。
 
-据悉，此次获批的77个新专业呈现出“四聚焦”特点：聚焦“4567”现代产业体系布局“四新”专业，聚焦低空经济、人工智能等前沿赛道抢占先机，聚焦粮食安全、对外开放等国家战略精准发力，聚焦养老、城市更新等民生急需回应社会关切。
+此举预计将降低巴西低收入民众广泛使用的跨境电商平台上的商品购买成本。
 
-东北林业大学瞄准种业“芯片”和生物制造前沿，新增“生物育种科学”和“合成生物学”专业；聚焦绿色防控，加固粮食安全防线，新增“生物农药科学与工程”专业。
+巴西财政部执行秘书罗杰里奥·塞隆表示：“这将使那些严重依赖这些（电子商务）平台购买日常生活必需品的贫困低收入人群受益。
 
-着力培养能源转型与生态治理、化学工程与安全管理的复合型人才，新增“能源与环境系统工程”“化工安全工程”等专业。
+” 塞隆并未具体说明此举造成的税收损失规模，巴西政府表示将于周二晚些时候在官方公报上正式公布这一决定。
 
-新增“区域国别学”专业，致力于培养精通区域研究的专门人才。
+这些措施建立在卢拉近期一系列举措之上，其中包括一项政府支持的消费者债务重组计划，旨在巩固其在选民中的支持率。
 
-哈尔滨工程大学等高校新增“低空技术与工程”“飞行器运维工程”专业，哈尔滨工业大学在全国首增“具身智能”“脑机科学与技术”，省内5所高校同步增设“人工智能”专业。
+该消息是在一场直播活动中宣布的，卢拉和包括副总统杰拉尔多·阿尔克明在内的几位官员出席了直播。
 
-在“AI＋”赛道，提质增效融合加速，增设“社会学＋人工智能”双学士学位；“智能科学与技术”“智能装备与系统”“智能测控工程”等一批“智能＋”专业，覆盖智能制造、智慧交通、智慧水利、智能建造、智慧建筑等多个领域，赋能产业升级。
+阿尔克明此前曾表示，这项税收有助于提升巴西产业的竞争力，并在该国创造就业机会。
 
 ## 相关推荐
 
-- 2026-06-29 20:27 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-29 20:20 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-29 20:38 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 20:47 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-29 20:39 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 20:28 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-29 20:43 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-29 20:32 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-29 20:41 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-29 20:29 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-29 20:38 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-29 20:33 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 20:41 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-29 20:33 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-29 20:35 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 20:24 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-29 20:52 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-29 20:40 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-29 20:35 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-29 20:31 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 20:24 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 20:25 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-29 20:35 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 20:43 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 20:27 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:18 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/14532373617.shtml)
-- 2026-06-29 20:30 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/9799862150.shtml)
-- 2026-06-29 20:32 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/393479762.shtml)
-- 2026-06-29 20:38 - [周生如故](http://www.share.minike.top/Article/details/07017991528.shtml)
-- 2026-06-29 20:31 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/84108587.shtml)
-- 2026-06-29 20:27 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/89364609184.shtml)
-- 2026-06-29 20:28 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.kurohicncr.top/Article/details/1481394.shtml)
-- 2026-06-29 20:39 - [王安宇聪明到导演组炸了](https://www.share.kurohicncr.top/Article/details/588519.shtml)
-- 2026-06-29 20:33 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/897486.shtml)
-- 2026-06-29 20:47 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/8146100.shtml)
-- 2026-06-29 20:41 - [第一炉香](https://www.blog.minike.top/Article/details/9105715.shtml)
-- 2026-06-29 20:35 - [欧洲安装一台空调要花近8000元](https://www.share.minike.top/Article/details/6048938.shtml)
-- 2026-06-29 20:44 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.share.minike.top/Article/details/790595344.shtml)
-- 2026-06-29 20:34 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/100077781115.shtml)
-- 2026-06-29 20:43 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/92604735475.shtml)
+- 2026-06-29 20:43 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/11133001751.shtml)
+- 2026-06-29 20:27 - [美人鱼](https://www.blog.minike.top/Article/details/992966538.shtml)
+- 2026-06-29 20:43 - [佛得角队长门德斯被控强奸](http://www.blog.kurohicncr.top/Article/details/549633.shtml)
+- 2026-06-29 20:38 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/9840905.shtml)
+- 2026-06-29 20:32 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/64831.shtml)
+- 2026-06-29 20:52 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/116423969033.shtml)
+- 2026-06-29 20:36 - [北京市发布雷电黄色预警](https://www.blog.kurohicncr.top/Article/details/229204.shtml)
+- 2026-06-29 20:41 - [网红小徐直播时突遇地震](http://www.blog.minike.top/Article/details/8838025964.shtml)
+- 2026-06-29 20:31 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/16904789.shtml)
+- 2026-06-29 20:33 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/44806421.shtml)
+- 2026-06-29 20:25 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/106030209.shtml)
+- 2026-06-29 20:30 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/13455101808.shtml)
+- 2026-06-29 20:24 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/97366112.shtml)
+- 2026-06-29 20:48 - [请回答王牌2019](http://www.share.minike.top/Article/details/237856.shtml)
+- 2026-06-29 20:33 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/780188949243.shtml)

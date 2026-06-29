@@ -1,56 +1,46 @@
-# 德财长说美发动的“不负责任战争”冲击德经济
+# Meta因虚假广告面临审查
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-新华社柏林5月7日电德国财政部长拉尔斯·克林拜尔7日说，美国政府对伊朗发动的“不负责任的战争”导致能源价格飙升，令德国经济和公共财政遭受重大打击。 克林拜尔当天接受多家媒体采访时说，中东战事导致德国税收收入预期下调，进而拖累经济增长。他援引一项数据说，由于当前中东紧张局势加剧能源价格上涨，今后经济放缓的可能性上升，导致德国未来五年税收预期下调约875亿欧元。 克林拜尔说，数据体
+一份报告称，重复性虚假广告商在Facebook上以老年人为目标；同时，圣克拉拉县起诉Meta Platforms，指控其从欺诈性广告中获利；Meta称已移除去年1.59亿条虚假广告。责任编辑：张俊 SF065
 
 ## 正文
 
-新华社柏林5月7日电德国财政部长拉尔斯·克林拜尔7日说，美国政府对伊朗发动的“不负责任的战争”导致能源价格飙升，令德国经济和公共财政遭受重大打击。
+一份报告称，重复性虚假广告商在Facebook上以老年人为目标；同时，圣克拉拉县起诉Meta Platforms，指控其从欺诈性广告中获利；Meta称已移除去年1.59亿条虚假广告。
 
-克林拜尔当天接受多家媒体采访时说，中东战事导致德国税收收入预期下调，进而拖累经济增长。
-
-他援引一项数据说，由于当前中东紧张局势加剧能源价格上涨，今后经济放缓的可能性上升，导致德国未来五年税收预期下调约875亿欧元。
-
-克林拜尔说，数据体现了德国目前面临的“严重不确定性”，凸显持续加强危机管理的重要性。
-
-他表示，德国需聚焦投资与改革以增强经济韧性，减轻外部风险可能带来的冲击。
-
-德国总理默茨此前表示，美国在没有制定任何战略的情况下对伊朗发起军事行动，导致进退两难，正遭遇伊朗方面的“羞辱”。
-
-美国总统特朗普对默茨的言论表达不满。
-
-特朗普称，默茨“根本不知道自己在说什么”，德国现在“无论是在经济还是其他方面都表现得如此糟糕”。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 20:32 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 20:36 - [伊朗足球队将启程回国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 20:26 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-29 20:35 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-29 20:27 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 20:37 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-29 20:25 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-29 20:44 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 20:39 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-29 20:40 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 20:50 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-29 20:47 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-29 20:30 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 20:37 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 20:52 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 20:27 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 20:48 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 20:24 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-29 20:41 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 20:39 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-29 20:53 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 20:42 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:25 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/16561873.shtml)
-- 2026-06-29 20:40 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/020022247007.shtml)
-- 2026-06-29 20:28 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/2771831559.shtml)
-- 2026-06-29 20:41 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/49377556199.shtml)
-- 2026-06-29 20:39 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/78937174093.shtml)
-- 2026-06-29 20:26 - [运-20网宣片中的“小六”或是六代机](http://www.blog.kurohicncr.top/Article/details/65045158635.shtml)
-- 2026-06-29 20:24 - [李思潼：不会介意大家夸我运气好](http://www.blog.kurohicncr.top/Article/details/046684.shtml)
-- 2026-06-29 20:25 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/92249.shtml)
-- 2026-06-29 20:22 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/7382078417.shtml)
-- 2026-06-29 20:20 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/12835573.shtml)
-- 2026-06-29 20:30 - [记者乘坐无人驾驶汽车去采访](https://www.blog.kurohicncr.top/Article/details/743693.shtml)
-- 2026-06-29 20:37 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.kurohicncr.top/Article/details/01634.shtml)
-- 2026-06-29 20:46 - [女心理师](https://www.blog.minike.top/Article/details/22986267.shtml)
-- 2026-06-29 20:24 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/00255193603.shtml)
-- 2026-06-29 20:40 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/287475.shtml)
+- 2026-06-29 20:46 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/71260288.shtml)
+- 2026-06-29 20:34 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/80503437.shtml)
+- 2026-06-29 20:48 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/623011422.shtml)
+- 2026-06-29 20:47 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/43178958.shtml)
+- 2026-06-29 20:47 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/313068.shtml)
+- 2026-06-29 20:46 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.minike.top/Article/details/811139670700.shtml)
+- 2026-06-29 20:38 - [TTG KSG](https://www.blog.minike.top/Article/details/7778902640.shtml)
+- 2026-06-29 20:34 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/8160949258.shtml)
+- 2026-06-29 20:42 - [我和我的家乡](http://www.share.minike.top/Article/details/144040936339.shtml)
+- 2026-06-29 20:49 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/2924733.shtml)
+- 2026-06-29 20:42 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/701275937.shtml)
+- 2026-06-29 20:27 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/0347215.shtml)
+- 2026-06-29 20:36 - [新官上任三把火](https://www.share.minike.top/Article/details/77882088.shtml)
+- 2026-06-29 20:44 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/524633237520.shtml)
+- 2026-06-29 20:48 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/79313.shtml)

@@ -1,59 +1,55 @@
-# 新华时评丨让文化之光照亮高质量发展之路
+# “京东系”绩后集体上涨 有意进行市场内股份购回
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-新华社北京5月7日电题：让文化之光照亮高质量发展之路 新华社记者杨思琪 新华社国家高端智库7日在希腊雅典发布《文化赋能论——中国迈向高质量发展的文化自觉》智库报告，深刻阐明中国高扬推动高质量发展的文化之帆，系统解析以文化赋能经济社会发展的生成逻辑、中国实践、方法论与全球启示。 以文化赋能经济社会发展，是坚定文化自信、彰显文明担当的生动体现，也是中国在经济深刻转型、文化强国建设和
+5月13日消息，“京东系”绩后集体高开，京东健康（06618.HK）涨超5%，京东物流（02618.HK）涨超6%，京东工业（07618.HK）涨超7%，分别拟回购10亿美元、12亿美元、2亿美元公司股份。 消息面上，京东工业 （07618.HK）公告，2026年第一季度收入56.59亿元，同比增长25.3%；经营利润1.39亿元，同比增长33.1%；非国际财务报告准则经营利润
 
 ## 正文
 
-新华社北京5月7日电题：让文化之光照亮高质量发展之路 新华社记者杨思琪 新华社国家高端智库7日在希腊雅典发布《文化赋能论——中国迈向高质量发展的文化自觉》智库报告，深刻阐明中国高扬推动高质量发展的文化之帆，系统解析以文化赋能经济社会发展的生成逻辑、中国实践、方法论与全球启示。
+5月13日消息，“京东系”绩后集体高开，京东健康（06618.HK）涨超5%，京东物流（02618.HK）涨超6%，京东工业（07618.HK）涨超7%，分别拟回购10亿美元、12亿美元、2亿美元公司股份。
 
-以文化赋能经济社会发展，是坚定文化自信、彰显文明担当的生动体现，也是中国在经济深刻转型、文化强国建设和全球产业升级背景下作出的必然战略选择。
+消息面上，京东工业 （07618.HK）公告，2026年第一季度收入56.59亿元，同比增长25.3%；经营利润1.39亿元，同比增长33.1%；非国际财务报告准则经营利润1.88亿元，同比增长42.6%；期间利润1.85亿元，同比增长45.0%；非国际财务报告准则期间利润2.29亿元，同比增长54.4%。
 
-当文化的“源头活水”汇入高质量发展的“万顷碧波”，中国式现代化便积聚起更加澎湃的动能。
+京东健康（06618）发布2026年第一季度业绩，该集团截至2026年3月31日止3个月取得收入194.68亿元，同比增长17%；经营盈利18.25亿元，同比增长70.4%。
 
-文化是经济发展的“助推器”。
+京东物流2026年一季度总收入605.8亿元，同比增长29%，经调整净利润达10.5亿元，同比增长40.1%。
 
-促进产业提质升级，中国以文兴业欣欣向荣：中式美学点亮服饰设计，传统营造赋能现代建筑，“文化+”持续拓展产业边界。
+这也是京东物流自上市以来利润表现最好的一季度业绩，不仅收入实现强劲增长，盈利能力也得到不断改善。
 
-从更深层看，文化赋予经济活动的诚信精神与信用环境，让发展更有序、更有效、更有魂。
-
-文化释放消费活力。
-
-随着人们从追求“物质富足”到向往“精神富有”，承载文化内涵的供给越来越成为“刚需”。
+责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-29 20:34 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 20:44 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-29 20:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-29 20:24 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 20:46 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-29 20:44 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-29 20:28 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-29 20:39 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-29 20:43 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-29 20:33 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 20:37 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-29 20:26 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-29 20:40 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 20:35 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 20:41 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-29 20:34 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-29 20:47 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-29 20:34 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-29 20:54 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-29 20:45 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-29 20:41 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 20:37 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-29 20:35 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 20:26 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-29 20:36 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 20:40 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:24 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/2306367846.shtml)
-- 2026-06-29 20:43 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/962662951466.shtml)
-- 2026-06-29 20:43 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/967764178082.shtml)
-- 2026-06-29 20:37 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.kurohicncr.top/Article/details/569650086.shtml)
-- 2026-06-29 20:19 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/0116160140.shtml)
-- 2026-06-29 20:19 - [运20对中国空军的意义是什么](http://www.blog.kurohicncr.top/Article/details/78757287594.shtml)
-- 2026-06-29 20:23 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/50029.shtml)
-- 2026-06-29 20:29 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/227864.shtml)
-- 2026-06-29 20:45 - [一见倾心](https://www.share.minike.top/Article/details/755537338028.shtml)
-- 2026-06-29 20:36 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/251242161.shtml)
-- 2026-06-29 20:46 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/5979960.shtml)
-- 2026-06-29 20:26 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.minike.top/Article/details/220568551.shtml)
-- 2026-06-29 20:23 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/001970763.shtml)
-- 2026-06-29 20:19 - [林逸向方筱然求婚了](http://www.blog.minike.top/Article/details/85986882051.shtml)
-- 2026-06-29 20:47 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/6498480.shtml)
+- 2026-06-29 20:38 - [东宫女主是不是顶级恋爱脑](http://www.blog.minike.top/Article/details/4681578631.shtml)
+- 2026-06-29 20:39 - [韩国队回国欢迎仪式取消](https://www.blog.minike.top/Article/details/834732816.shtml)
+- 2026-06-29 20:25 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/922676959775.shtml)
+- 2026-06-29 20:43 - [葛军透露高考出题思路](https://www.share.kurohicncr.top/Article/details/50160806808.shtml)
+- 2026-06-29 20:32 - [高考1357分的同学如何报志愿？](https://www.share.minike.top/Article/details/634960193727.shtml)
+- 2026-06-29 20:40 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/83475099555.shtml)
+- 2026-06-29 20:34 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/964740326174.shtml)
+- 2026-06-29 20:31 - [美以这对亲密盟友要掰了吗](http://www.share.minike.top/Article/details/05964391642.shtml)
+- 2026-06-29 20:36 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/321102764.shtml)
+- 2026-06-29 20:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/616469108.shtml)
+- 2026-06-29 20:50 - [回顾世界杯争议事件](https://www.blog.minike.top/Article/details/2868347.shtml)
+- 2026-06-29 20:34 - [大学专业未来如何洗牌](https://www.blog.kurohicncr.top/Article/details/5182561.shtml)
+- 2026-06-29 20:43 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/7023638.shtml)
+- 2026-06-29 20:51 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/65669519636.shtml)
+- 2026-06-29 20:35 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/612671394022.shtml)

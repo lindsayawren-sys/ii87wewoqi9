@@ -1,58 +1,56 @@
-# 美图公司早盘持续上涨逾12% 第一季度付费用户数创新高
+# 经合组织对日本央行政策利率作出偏鹰预测 认为到2027年底或达2%
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-美图公司（01357）早盘涨幅持续扩大，股价上涨12.50%，现报5.31港元，成交额6.32亿港元。 美图公司发布2026年第一季度业务数据。数据显示，其付费订阅用户数已增至1790万，再创历史新高；以付费订阅为主的影像与设计产品收入8.52亿元，同比增长34.3%。公司首度披露AI生产力应用年度经常性收入（ARR）指标。截至2026年3月，AI生产力应用ARR约为5.8亿元
+根据经济合作与发展组织（OECD）的最新估计，到2027年底日本央行的政策利率料达2%。 OECD在其周三发布的经济调查报告中称，假设通胀率维持在2%左右，目前的政策利率仍接近中性利率区间下限。报告还称，日本央行应继续逐步提高利率，防止经济过热。 这是OECD自2024年1月以来的首份日本调查报告；当时日本央行的政策利率还在负值区间。 当前，日本央行在继续收缩货币宽松力度，逐步
 
 ## 正文
 
-美图公司（01357）早盘涨幅持续扩大，股价上涨12.50%，现报5.31港元，成交额6.32亿港元。
+根据经济合作与发展组织（OECD）的最新估计，到2027年底日本央行的政策利率料达2%。
 
-美图公司发布2026年第一季度业务数据。
+OECD在其周三发布的经济调查报告中称，假设通胀率维持在2%左右，目前的政策利率仍接近中性利率区间下限。
 
-数据显示，其付费订阅用户数已增至1790万，再创历史新高；以付费订阅为主的影像与设计产品收入8.52亿元，同比增长34.3%。
+报告还称，日本央行应继续逐步提高利率，防止经济过热。
 
-公司首度披露AI生产力应用年度经常性收入（ARR）指标。
+这是OECD自2024年1月以来的首份日本调查报告；当时日本央行的政策利率还在负值区间。
 
-截至2026年3月，AI生产力应用ARR约为5.8亿元，同比增长56.2%。
+当前，日本央行在继续收缩货币宽松力度，逐步趋向被视为既不刺激也不抑制经济活动的“中性”利率水平。
 
-东方证券表示，判断26年Agent工作流的持续调试和成熟，对于各项工种划分相对不明晰的中小商家用户更友好，Agent带动Token消耗显著上行，有望逐步兑现为ARPU值提升，形成付费订阅+ARPPU双轮驱动，共同支撑生产力场景收入稳步增长。
+日本央行此前估计，日本的名义中性利率区间约在1.1%至2.5%之间，同时指出具体水平存在很大的不确定性。
 
-责任编辑：卢昱君
+OECD预测的2%利率水平比其他一些机构更为鹰派，国际货币基金组织预计本轮紧缩周期的终点利率约为1.5%。
+
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 20:31 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-29 20:22 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 20:47 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-29 20:38 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-29 20:36 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-29 20:42 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-29 20:35 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-29 20:37 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-29 20:27 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-29 20:28 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-29 20:36 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-29 20:32 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-29 20:19 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-29 20:36 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 20:53 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-29 20:24 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 20:40 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 20:49 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-29 20:42 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-29 20:41 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-29 20:40 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-29 20:43 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-29 20:35 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-29 20:37 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:41 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/8501483402.shtml)
-- 2026-06-29 20:46 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/103416772897.shtml)
-- 2026-06-29 20:18 - [每天通勤往返3h的感觉](http://www.blog.kurohicncr.top/Article/details/292521124145.shtml)
-- 2026-06-29 20:19 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/54850099582.shtml)
-- 2026-06-29 20:22 - [如何看待乌空军3架米格-29被摧毁](https://www.share.kurohicncr.top/Article/details/7010285452.shtml)
-- 2026-06-29 20:32 - [金鹰奖第二阶段投票明日开启](https://www.share.kurohicncr.top/Article/details/418156519786.shtml)
-- 2026-06-29 20:41 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/04128373.shtml)
-- 2026-06-29 20:25 - [爱很美味](http://www.share.kurohicncr.top/Article/details/083581632.shtml)
-- 2026-06-29 20:40 - [金刚川](http://www.share.minike.top/Article/details/01888757.shtml)
-- 2026-06-29 20:25 - [2026全国田径冠军赛江苏队4金收官](http://www.share.kurohicncr.top/Article/details/8577708.shtml)
-- 2026-06-29 20:28 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/371368971.shtml)
-- 2026-06-29 20:32 - [律师解读滚石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/7153219516.shtml)
-- 2026-06-29 20:24 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/41941720340.shtml)
-- 2026-06-29 20:20 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/895594792.shtml)
-- 2026-06-29 20:38 - [媒体评恋与深空用“引狼入室”台词](https://www.share.kurohicncr.top/Article/details/748549741.shtml)
+- 2026-06-29 20:40 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/5911549416.shtml)
+- 2026-06-29 20:40 - [夫妻生活太无聊，所以我……](https://www.blog.minike.top/Article/details/133139055.shtml)
+- 2026-06-29 20:32 - [中方在台湾岛以东海域活动合理合法](https://www.share.minike.top/Article/details/213532.shtml)
+- 2026-06-29 20:42 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/8953714.shtml)
+- 2026-06-29 20:38 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/185375607979.shtml)
+- 2026-06-29 20:44 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/51598.shtml)
+- 2026-06-29 20:46 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/753434460586.shtml)
+- 2026-06-29 20:37 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/944503818215.shtml)
+- 2026-06-29 20:37 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/43294987.shtml)
+- 2026-06-29 20:26 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/36627.shtml)
+- 2026-06-29 20:37 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.kurohicncr.top/Article/details/8528550.shtml)
+- 2026-06-29 20:27 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/0363938231.shtml)
+- 2026-06-29 20:26 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/0131869.shtml)
+- 2026-06-29 20:52 - [日本在最东端离岛部署导弹发射装置](https://www.share.kurohicncr.top/Article/details/143642201.shtml)
+- 2026-06-29 20:48 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/682869438699.shtml)

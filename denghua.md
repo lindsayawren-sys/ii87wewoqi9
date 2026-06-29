@@ -1,56 +1,59 @@
-# 美教师联合会敦促美证交会严审SpaceX上市计划
+# （经济观察）上海崛起科创新生态：“一人公司”成新风口
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 本周三，美国教师联合会（AFT）主席兰迪·温加滕致信美国证券交易委员会（SEC），敦促其加强对SpaceX公司首次公开募股（IPO）筹备工作的审查。鉴于SpaceX股票或将涉及该工会180万名教育、医疗及政府部门成员的退休账户，温加滕在信中表示：“我深切担忧此次大规模募股能否符合证券法关于全面披露重大信息及公平对待投资者的要求。
+中新社上海5月13日电 (范宇斌)当下，以“一人公司”(OPC)为代表的微型创新主体在上海快速崛起。徐汇滨江、杨浦复兴岛、临港新片区等多处创业空间内，新一代“超级个体”创业者依托零租金办公、普惠算力、人才公寓等全链条配套服务，投身科创浪潮。上海“十五五”规划纲要将“OPC”定义为在人工智能赋能下，由个体独立完成产品研发到市场投放全链路闭环的新型创业形态。 该模式核心优势在于，A
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 本周三，美国教师联合会（AFT）主席兰迪·温加滕致信美国证券交易委员会（SEC），敦促其加强对SpaceX公司首次公开募股（IPO）筹备工作的审查。
+中新社上海5月13日电 (范宇斌)当下，以“一人公司”(OPC)为代表的微型创新主体在上海快速崛起。
 
-鉴于SpaceX股票或将涉及该工会180万名教育、医疗及政府部门成员的退休账户，温加滕在信中表示：“我深切担忧此次大规模募股能否符合证券法关于全面披露重大信息及公平对待投资者的要求。
+徐汇滨江、杨浦复兴岛、临港新片区等多处创业空间内，新一代“超级个体”创业者依托零租金办公、普惠算力、人才公寓等全链条配套服务，投身科创浪潮。
 
-” 温加滕及美国教师联合会希望SEC主席保罗·阿特金斯指示其团队，在当前的例行核查中重点审查SpaceX的IPO申请。
+上海“十五五”规划纲要将“OPC”定义为在人工智能赋能下，由个体独立完成产品研发到市场投放全链路闭环的新型创业形态。
 
-温加滕对该公司商业计划可能依赖“虚无或投机性技术”表示担忧，并对财务会计的详尽程度及董事会的履职能力提出质疑。
+该模式核心优势在于，AI技术助力个体创业者，单人即可完成过去团队才能达成的商业闭环。
 
-根据新颁布的交易所规则，相关养老基金可能在IPO后数日内（而非数月）即持有SpaceX股票。
+不同于传统孵化器“先研产、后商业化”的模式，当前OPC社区更注重快速实现商业闭环，同类创业者集聚交流、资源互通，有效提升创业存活率。
 
-然而，外界对SpaceX能否实现足以支撑其高估值的利润仍存疑，这意味着股份价值可能面临暴跌风险，进而损害退休人员的利益。
+不少青年创业者入局OPC模式。
 
-温加滕在声明中强调：“委员会必须要求公司进行严格的信息披露，实施独立监管，并建立防止强制投资的保障机制。
+浦东“95后”创业者张可欣今年1月创办“一人公司”，聚焦药物研发生物基础模型开发，深耕生命科学与人工智能交叉的前沿领域。
 
-否则，劳动者的终身积蓄将面临被一家更像马斯克‘家族企业’而非透明上市公司的企业所操控的风险。
+张可欣称，企业目前运营成本极低，开支主要集中在算力方面。
 
 ## 相关推荐
 
-- 2026-06-29 20:46 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 20:47 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-29 20:22 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-29 20:44 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-29 20:21 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-29 20:24 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 20:36 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-29 20:23 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 20:26 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 20:25 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-29 20:27 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 20:41 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 20:38 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 20:29 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 20:27 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 20:36 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-29 20:43 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 20:48 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-29 20:41 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 20:53 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-29 20:45 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-29 20:26 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 20:45 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:35 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/4534908.shtml)
-- 2026-06-29 20:42 - [勇敢的心第二部](http://www.share.minike.top/Article/details/955380636451.shtml)
-- 2026-06-29 20:35 - [乌是否掌握了扭转战局的钥匙](http://www.share.minike.top/Article/details/64940972335.shtml)
-- 2026-06-29 20:33 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/5091088.shtml)
-- 2026-06-29 20:26 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/13343.shtml)
-- 2026-06-29 20:24 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/869923.shtml)
-- 2026-06-29 20:24 - [Ella回应SHE何时合体](http://www.blog.kurohicncr.top/Article/details/7107850975.shtml)
-- 2026-06-29 20:41 - [朱雀三号完成静态点火试验](http://www.blog.minike.top/Article/details/162998975.shtml)
-- 2026-06-29 20:35 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/01769226.shtml)
-- 2026-06-29 20:47 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.kurohicncr.top/Article/details/3374221.shtml)
-- 2026-06-29 20:46 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/3169361592.shtml)
-- 2026-06-29 20:22 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/32426.shtml)
-- 2026-06-29 20:18 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.minike.top/Article/details/8179861195.shtml)
-- 2026-06-29 20:33 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/99637533.shtml)
-- 2026-06-29 20:21 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/994067748536.shtml)
+- 2026-06-29 20:45 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/986041317905.shtml)
+- 2026-06-29 20:47 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/518103536.shtml)
+- 2026-06-29 20:51 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/304871.shtml)
+- 2026-06-29 20:47 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/1345659.shtml)
+- 2026-06-29 20:44 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/961596.shtml)
+- 2026-06-29 20:26 - [教育部高校学生资助热线7月1日开通](https://www.share.kurohicncr.top/Article/details/87275560.shtml)
+- 2026-06-29 20:53 - [日本在最东端离岛部署导弹发射装置](https://www.blog.kurohicncr.top/Article/details/8846779762.shtml)
+- 2026-06-29 20:26 - [网红小徐直播时突遇地震](http://www.share.minike.top/Article/details/615216959.shtml)
+- 2026-06-29 20:39 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/2392597181.shtml)
+- 2026-06-29 20:36 - [温网](https://www.blog.minike.top/Article/details/16411.shtml)
+- 2026-06-29 20:34 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/5009457.shtml)
+- 2026-06-29 20:25 - [海清4次陪跑白玉兰](http://www.share.kurohicncr.top/Article/details/395920739.shtml)
+- 2026-06-29 20:47 - [恋与深空致歉](https://www.share.minike.top/Article/details/92979420.shtml)
+- 2026-06-29 20:49 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/99968764.shtml)
+- 2026-06-29 20:39 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/898160356960.shtml)

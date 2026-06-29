@@ -1,52 +1,47 @@
-# 挪威方面逮捕一中国女子 中国外交部回应
+# 习近平同拉赫蒙会谈：今天再次同老朋友相聚 我感到很亲切
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-中新网北京5月8日电 (记者 黄钰钦)中国外交部发言人林剑8日主持例行记者会。 有记者提问：7日，挪威方面逮捕了一名中国女子，并指控其收集卫星相关数据，这涉及欧洲的一个太空项目，中方对此有何回应？ 林剑：我不了解你提到的具体情况，中方坚决反对任何对中方的无端指责和恶意抹黑，相信挪威方面将切实保障中国公民的合法权益。(完)
+发布时间：2026年05月13日 09:24 来源：央视新闻客户端 责任编辑：【杨彦宇】
 
 ## 正文
 
-中新网北京5月8日电 (记者 黄钰钦)中国外交部发言人林剑8日主持例行记者会。
-
-有记者提问：7日，挪威方面逮捕了一名中国女子，并指控其收集卫星相关数据，这涉及欧洲的一个太空项目，中方对此有何回应？
-
-林剑：我不了解你提到的具体情况，中方坚决反对任何对中方的无端指责和恶意抹黑，相信挪威方面将切实保障中国公民的合法权益。
-
-(完)
+发布时间：2026年05月13日 09:24 来源：央视新闻客户端 责任编辑：【杨彦宇】
 
 ## 相关推荐
 
-- 2026-06-29 20:20 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-29 20:35 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 20:38 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 20:38 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-29 20:22 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 20:47 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-29 20:32 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-29 20:25 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 20:19 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-29 20:27 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-29 20:30 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 20:44 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 20:25 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-29 20:43 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-29 20:38 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 20:50 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-29 20:34 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 20:52 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-29 20:46 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-29 20:53 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 20:30 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 20:24 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 20:52 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 20:48 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-29 20:33 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 20:31 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 20:50 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-29 20:34 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 20:40 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:43 - [2026全国田径冠军赛江苏队4金收官](https://www.share.minike.top/Article/details/0120756757.shtml)
-- 2026-06-29 20:41 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.kurohicncr.top/Article/details/3323715.shtml)
-- 2026-06-29 20:32 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/938824216174.shtml)
-- 2026-06-29 20:28 - [恋与深空各大应用商店评分](https://www.share.minike.top/Article/details/883514.shtml)
-- 2026-06-29 20:39 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/018578886.shtml)
-- 2026-06-29 20:38 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/71105756267.shtml)
-- 2026-06-29 20:35 - [北京发布地质灾害气象风险蓝色预警](http://www.share.minike.top/Article/details/12643.shtml)
-- 2026-06-29 20:27 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.minike.top/Article/details/1454239.shtml)
-- 2026-06-29 20:24 - [哈兰德玩游戏连女友都不让着](http://www.blog.minike.top/Article/details/524100678461.shtml)
-- 2026-06-29 20:40 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/792216.shtml)
-- 2026-06-29 20:37 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/1873284.shtml)
-- 2026-06-29 20:47 - [沉睡花园](https://www.blog.minike.top/Article/details/16788.shtml)
-- 2026-06-29 20:38 - [章若楠包场白敬亭特立独行](https://www.blog.kurohicncr.top/Article/details/00612434516.shtml)
-- 2026-06-29 20:43 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/0983032121.shtml)
-- 2026-06-29 20:20 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/21224654.shtml)
+- 2026-06-29 20:32 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.kurohicncr.top/Article/details/72624078.shtml)
+- 2026-06-29 20:51 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/365970.shtml)
+- 2026-06-29 20:28 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/130963.shtml)
+- 2026-06-29 20:46 - [金牌调解](https://www.blog.minike.top/Article/details/8214068535.shtml)
+- 2026-06-29 20:27 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/080216.shtml)
+- 2026-06-29 20:36 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/216597044794.shtml)
+- 2026-06-29 20:31 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/773072443237.shtml)
+- 2026-06-29 20:40 - [中国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/48449556611.shtml)
+- 2026-06-29 20:45 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/580606948.shtml)
+- 2026-06-29 20:26 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/6810622.shtml)
+- 2026-06-29 20:27 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.share.kurohicncr.top/Article/details/693353936943.shtml)
+- 2026-06-29 20:48 - [王楚钦开门红](http://www.share.minike.top/Article/details/529101543277.shtml)
+- 2026-06-29 20:38 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/7537936762.shtml)
+- 2026-06-29 20:24 - [高质量发展看新疆](https://www.blog.kurohicncr.top/Article/details/830267.shtml)
+- 2026-06-29 20:26 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/6909375061.shtml)

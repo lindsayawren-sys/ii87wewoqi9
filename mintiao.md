@@ -1,58 +1,51 @@
-# 一季度中国发行新增地方政府债券14199亿元
+# 沪指11年后重返4200点 专家：向上空间或仍存 但别“闭眼买”
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-中新社北京5月8日电 (记者 赵建华)中国财政部8日公布的地方政府债券发行和债务余额数据显示，今年1至3月，全国发行新增地方政府债券14199亿元(人民币，下同)，其中一般债券2600亿元、专项债券11599亿元。全国发行再融资债券16860亿元，全国发行地方政府债券合计31059亿元。财政部介绍，1至3月，地方政府债券平均发行期限16.7年，其中一般债券9.0年、专项债券19
+发布时间：2026年05月12日 22:25 来源：中国新闻网 5月12日，A股三大指数涨跌不一，上证指数微跌0.25%，但仍收于4214.49点，连续第二个交易日站稳4200点上方。就在前一天(5月11日)，沪指时隔近11年成功突破4200点，创下历史性一幕。站上4200点之后，市场将如何演绎？专家认为，随着市场对海外局势边际变化的逐步脱敏，叠加国内出口数据超预期等积极因素持
 
 ## 正文
 
-中新社北京5月8日电 (记者 赵建华)中国财政部8日公布的地方政府债券发行和债务余额数据显示，今年1至3月，全国发行新增地方政府债券14199亿元(人民币，下同)，其中一般债券2600亿元、专项债券11599亿元。
+发布时间：2026年05月12日 22:25 来源：中国新闻网 5月12日，A股三大指数涨跌不一，上证指数微跌0.25%，但仍收于4214.49点，连续第二个交易日站稳4200点上方。
 
-全国发行再融资债券16860亿元，全国发行地方政府债券合计31059亿元。
+就在前一天(5月11日)，沪指时隔近11年成功突破4200点，创下历史性一幕。
 
-财政部介绍，1至3月，地方政府债券平均发行期限16.7年，其中一般债券9.0年、专项债券19.1年；平均发行利率2.17%，其中一般债券1.90%、专项债券2.26%。
+站上4200点之后，市场将如何演绎？
 
-1至3月，地方政府债券到期偿还本金6702亿元，其中发行再融资债券偿还本金5806亿元、安排财政资金等偿还本金896亿元；地方政府债券支付利息3618亿元。
+专家认为，随着市场对海外局势边际变化的逐步脱敏，叠加国内出口数据超预期等积极因素持续累积，市场向上趋势不改。
 
-截至2026年3月末，全国地方政府债务余额572587亿元。
-
-其中，一般债务177973亿元，专项债务394614亿元；政府债券570969亿元，非政府债券形式存量政府债务1618亿元。
-
-截至3月末，地方政府债券剩余平均年限10.7年，其中一般债券6.2年、专项债券12.7年；平均利率2.79%，其中一般债券2.84%、专项债券2.77%。
-
-(完)
+(记者 迟瀚宇 北京报道) 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-29 20:41 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 20:43 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-29 20:38 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 20:20 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 20:36 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-29 20:30 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-29 20:23 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 20:28 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 20:32 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 20:36 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-29 20:29 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-29 20:23 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 20:31 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 20:30 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 20:47 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 20:49 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 20:30 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 20:33 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 20:42 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 20:53 - [郑钦文谈再战西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-29 20:47 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-29 20:32 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 20:38 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:20 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/46277383658.shtml)
-- 2026-06-29 20:20 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.kurohicncr.top/Article/details/516618.shtml)
-- 2026-06-29 20:33 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/05300.shtml)
-- 2026-06-29 20:39 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/3014447244.shtml)
-- 2026-06-29 20:47 - [吴建豪和老婆差20岁](https://www.share.minike.top/Article/details/0115616266.shtml)
-- 2026-06-29 20:34 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/93663864.shtml)
-- 2026-06-29 20:38 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/44799408.shtml)
-- 2026-06-29 20:41 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/27650.shtml)
-- 2026-06-29 20:24 - [曝屠颖去世和酒店失责有关](https://www.blog.minike.top/Article/details/17252.shtml)
-- 2026-06-29 20:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/8731948.shtml)
-- 2026-06-29 20:24 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/67788189.shtml)
-- 2026-06-29 20:37 - [扬名立万](https://www.share.minike.top/Article/details/17001258803.shtml)
-- 2026-06-29 20:43 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.kurohicncr.top/Article/details/3435544867.shtml)
-- 2026-06-29 20:44 - [一家三口吃溪石斑鱼中毒](https://www.blog.minike.top/Article/details/92572687.shtml)
-- 2026-06-29 20:47 - [剧宣天才虞书欣发力了](https://www.blog.kurohicncr.top/Article/details/986654763754.shtml)
+- 2026-06-29 20:42 - [华工科技龙虎榜数据](https://www.share.minike.top/Article/details/46609739.shtml)
+- 2026-06-29 20:45 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/83923042.shtml)
+- 2026-06-29 20:32 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/88788488837.shtml)
+- 2026-06-29 20:50 - [吴建豪和老婆差20岁](http://www.blog.minike.top/Article/details/944371988429.shtml)
+- 2026-06-29 20:29 - [韩文体部对韩足协开展审计 查出局原因](http://www.blog.kurohicncr.top/Article/details/8647457.shtml)
+- 2026-06-29 20:47 - [恋与深空7天掉粉超50万](http://www.blog.kurohicncr.top/Article/details/6454973.shtml)
+- 2026-06-29 20:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/74448.shtml)
+- 2026-06-29 20:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/621922.shtml)
+- 2026-06-29 20:29 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/21205910.shtml)
+- 2026-06-29 20:38 - [斗破苍穹](http://www.share.minike.top/Article/details/307284794615.shtml)
+- 2026-06-29 20:32 - [美国一牛仔表演发生事故](http://www.blog.minike.top/Article/details/80698.shtml)
+- 2026-06-29 20:45 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/403210969000.shtml)
+- 2026-06-29 20:42 - [小龙女配音去世 李若彤发文悼念](https://www.blog.kurohicncr.top/Article/details/16782833.shtml)
+- 2026-06-29 20:29 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/101777.shtml)
+- 2026-06-29 20:37 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/72131868.shtml)

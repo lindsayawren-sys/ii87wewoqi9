@@ -1,61 +1,57 @@
-# 高品质交付|西安远洋未央華府累计交付1700余套住宅，客户口碑投下信任票
+# 伊朗核协议前景不明，油价小幅走高
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-没有什么比“高品质交付”更能给购房者安全感。近日，位于西安主城核心区的远洋未央華府400余套住宅如期交付，项目以累计1700余套住宅的高品质交付成绩，获得客户认可，成为当地改善产品的标杆之作，并持续位列片区销售额第一。 健康建筑落地，藏在生活里的舒适 在西安市场，远洋是“建筑·健康”的先行者和践行者。远洋未央華府依托《远洋健康建筑体系》，从健康楼体、健康园区等维度出发，将健康技
+周二，油价上涨近1%，原因是结束美以对伊朗战争的谈判前景脆弱，德黑兰对华盛顿提议的回应凸显出严重分歧，这使得供应担忧持续存在。 截至格林尼治标准时间4：11，布伦特原油期货上涨86美分，涨幅0.8%，报每桶105.07美元；美国西德克萨斯中质原油期货上涨99美分，涨幅1%，报每桶99.06美元。两大基准原油周一均上涨近2.8%。 美国总统特朗普周一表示，与伊朗的停火协议“命悬一
 
 ## 正文
 
-没有什么比“高品质交付”更能给购房者安全感。
+周二，油价上涨近1%，原因是结束美以对伊朗战争的谈判前景脆弱，德黑兰对华盛顿提议的回应凸显出严重分歧，这使得供应担忧持续存在。
 
-近日，位于西安主城核心区的远洋未央華府400余套住宅如期交付，项目以累计1700余套住宅的高品质交付成绩，获得客户认可，成为当地改善产品的标杆之作，并持续位列片区销售额第一。
+截至格林尼治标准时间4：11，布伦特原油期货上涨86美分，涨幅0.8%，报每桶105.07美元；美国西德克萨斯中质原油期货上涨99美分，涨幅1%，报每桶99.06美元。
 
-健康建筑落地，藏在生活里的舒适 在西安市场，远洋是“建筑·健康”的先行者和践行者。
+两大基准原油周一均上涨近2.8%。
 
-远洋未央華府依托《远洋健康建筑体系》，从健康楼体、健康园区等维度出发，将健康技术无缝植入项目细节。
+美国总统特朗普周一表示，与伊朗的停火协议“命悬一线”，指出在多项要求上存在分歧，包括停止所有战线的敌对行动、解除美国的海上封锁、恢复伊朗石油销售以及战争损失赔偿等。
 
-项目通过再生材料、保温隔热、装配式工艺等降耗措施，兼顾居住舒适与节能。
+德黑兰还强调其对霍尔木兹海峡拥有主权，全球约五分之一的石油和液化天然气通过该海峡运输。
 
-楼体设计增大了户内采光面，室内透光率超过40%，外墙保温工艺减少室内热损失2/5。
+星展银行能源行业团队负责人苏夫罗·萨卡尔表示：“对（和平）协议即将达成的乐观情绪似乎再度消退，如果我们到5月底还看不到协议，那么油价上行风险肯定就摆在桌面上。
 
-园林景观打造上，科学种植具有疗愈作用的景观植被，让业主全身心感受自然放松。
+” 与海峡近乎关闭相关的供应中断已促使生产商削减出口。
 
-园区内遍植乌桕、朴树、红枫、桂花等约70余棵名贵树种。
+路透社周一的一项调查显示，石油输出国组织4月石油产量降至二十多年来的最低水平。
 
 ## 相关推荐
 
-- 2026-06-29 20:27 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 20:20 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 20:19 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-29 20:23 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-29 20:23 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-29 20:24 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-29 20:23 - [CORTIS 小牌大耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 20:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 20:45 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 20:46 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-29 20:36 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 20:34 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-29 20:26 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-29 20:41 - [北京市发布雷电黄色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-29 20:30 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 20:29 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 20:40 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-29 20:31 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-29 20:53 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 20:33 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-29 20:33 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-29 20:26 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-29 20:24 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-29 20:31 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 20:24 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 20:34 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:31 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.kurohicncr.top/Article/details/45857111823.shtml)
-- 2026-06-29 20:30 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/4715962.shtml)
-- 2026-06-29 20:38 - [世界杯预测史上最不吃压力之物](https://www.blog.kurohicncr.top/Article/details/038846.shtml)
-- 2026-06-29 20:40 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.minike.top/Article/details/6828557549.shtml)
-- 2026-06-29 20:41 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/903947.shtml)
-- 2026-06-29 20:32 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/39485389906.shtml)
-- 2026-06-29 20:36 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/31779881109.shtml)
-- 2026-06-29 20:40 - [教育部高校学生资助热线7月1日开通](http://www.share.minike.top/Article/details/6803703.shtml)
-- 2026-06-29 20:45 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/50800.shtml)
-- 2026-06-29 20:38 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.minike.top/Article/details/4559228.shtml)
-- 2026-06-29 20:33 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/5898049785.shtml)
-- 2026-06-29 20:26 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/5206201.shtml)
-- 2026-06-29 20:19 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/93444485.shtml)
-- 2026-06-29 20:27 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/127611010.shtml)
-- 2026-06-29 20:31 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/96699.shtml)
+- 2026-06-29 20:31 - [大学专业未来如何洗牌](http://www.blog.kurohicncr.top/Article/details/457681210.shtml)
+- 2026-06-29 20:53 - [记者乘坐无人驾驶汽车去采访](http://www.blog.kurohicncr.top/Article/details/660176947860.shtml)
+- 2026-06-29 20:53 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/687651729900.shtml)
+- 2026-06-29 20:44 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/85723.shtml)
+- 2026-06-29 20:31 - [送你一朵小红花](http://www.blog.minike.top/Article/details/234699731292.shtml)
+- 2026-06-29 20:45 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/9476530.shtml)
+- 2026-06-29 20:47 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/37483239.shtml)
+- 2026-06-29 20:29 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/05944207.shtml)
+- 2026-06-29 20:48 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/505051018608.shtml)
+- 2026-06-29 20:44 - [专家预计全球央行加息节奏将出现反复](https://www.blog.minike.top/Article/details/4843855682.shtml)
+- 2026-06-29 20:39 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/328922424.shtml)
+- 2026-06-29 20:25 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/831447.shtml)
+- 2026-06-29 20:50 - [欧洲极端高温如何影响家电股](https://www.share.kurohicncr.top/Article/details/73878.shtml)
+- 2026-06-29 20:42 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/382439643283.shtml)
+- 2026-06-29 20:28 - [女心理师](http://www.blog.kurohicncr.top/Article/details/8359205.shtml)

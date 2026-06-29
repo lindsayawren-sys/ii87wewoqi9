@@ -1,58 +1,59 @@
-# 马来西亚科技与创新部长郑立慷：希望借助中国经验推动科技更好惠及民生
+# 第九届中国（济南）新动能创新创业大赛启动 以赛聚才赋能产业升级
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-原标题：专访｜希望借助中国经验推动科技更好惠及民生——访马来西亚科技与创新部长郑立慷 新华社吉隆坡5月7日电专访｜希望借助中国经验推动科技更好惠及民生——访马来西亚科技与创新部长郑立慷 新华社记者袁睿何光海王嘉伟 马来西亚科技与创新部长郑立慷近期访问了中国，曾多次到访中国的他依然用“大开眼界”来概括此行。日前接受新华社记者专访时，郑立慷表示：“希望借助中国在科技发展方面的经验，
+中新网济南5月13日电(陈宛婷)记者13日从济南市人民政府新闻办公室举行的发布会上获悉，第九届中国(济南)新动能创新创业大赛即日启动。该赛事面向海内外广泛征集优质创新创业项目，以精准赛道布局、全链条服务保障、全方位资源赋能，吸引高层次人才与科创项目落地济南，为城市高质量发展注入创新活力。 “中国(济南)新动能创新创业大赛已升级为济南‘链接’海内外高端智力、对接前沿技术的核心平台
 
 ## 正文
 
-原标题：专访｜希望借助中国经验推动科技更好惠及民生——访马来西亚科技与创新部长郑立慷 新华社吉隆坡5月7日电专访｜希望借助中国经验推动科技更好惠及民生——访马来西亚科技与创新部长郑立慷 新华社记者袁睿何光海王嘉伟 马来西亚科技与创新部长郑立慷近期访问了中国，曾多次到访中国的他依然用“大开眼界”来概括此行。
+中新网济南5月13日电(陈宛婷)记者13日从济南市人民政府新闻办公室举行的发布会上获悉，第九届中国(济南)新动能创新创业大赛即日启动。
 
-日前接受新华社记者专访时，郑立慷表示：“希望借助中国在科技发展方面的经验，推动马来西亚的科技更好惠及民生。
+该赛事面向海内外广泛征集优质创新创业项目，以精准赛道布局、全链条服务保障、全方位资源赋能，吸引高层次人才与科创项目落地济南，为城市高质量发展注入创新活力。
 
-”前不久，郑立慷率团访问了中国厦门与银川，并出席第六届“一带一路”中马工商界对话会。
+“中国(济南)新动能创新创业大赛已升级为济南‘链接’海内外高端智力、对接前沿技术的核心平台，成为人才集聚与项目落地同频共振、科技创新与产业创新双向融合的城市品牌。
 
-从东南沿海到西北内陆，不同的发展图景交织呈现，让他对中国科技发展与应用有了更直观的感受。
+”济南市委组织部副部长、市委人才办常务副主任王玉跃在发布会上表示，本届大赛紧密贴合济南“13+34”产业链体系，在赛道设计上实现优势产业与未来产业协同布局。
 
-“我原本以为宁夏会比较荒凉，但实际看到的却是另一番景象。
+据王玉跃介绍，此次大赛聚焦电子信息与高端软件、高端装备与智能制造、现代医药与生物制造、先进材料与新能源装备、现代农业与绿色环保五大重点产业，同时设置量子科技、航空航天和低空经济、脑机接口与脑健康等六大特色赛道，真正实现“产业链布局到哪里，大赛赛道就延伸到哪里”。
 
-”郑立慷说，当地并未一味追求高楼林立，而是立足自身资源禀赋，发展起了现代化的农业、煤化工以及葡萄酒产业。
+为扩大引才覆盖面与影响力，大赛共设置16个海内外预赛区，其中包括匈牙利、德国、新加坡、韩国、港澳5个海(境)外赛区，以及北京、上海、深圳等11个国内赛区，形成覆盖广泛、内外联动的引才网络。
 
-这种“因地制宜、因势利导”的发展模式，给他留下深刻印象。
+根据赛程，项目报名于5月至6月上旬展开，6月中旬完成初审，6月至9月上旬分赛区举办预赛，9月中旬举办复赛，10月下旬在济南举行总决赛。
 
-“每个地方都有适合自己的发展路径，这一点给我很大启发。
+每个预赛区将遴选15个项目晋级复决赛，决赛分设一、二、三等奖，获奖项目可获得全链条落地支持。
 
 ## 相关推荐
 
-- 2026-06-29 20:44 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 20:47 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 20:23 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-29 20:45 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-29 20:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-29 20:39 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-29 20:40 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-29 20:20 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 20:20 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 20:23 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 20:46 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 20:19 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 20:26 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 20:25 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-29 20:29 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 20:27 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-29 20:36 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 20:31 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 20:39 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 20:33 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 20:32 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 20:28 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 20:29 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 20:26 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-29 20:53 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:39 - [湖南耒阳“轮椅女孩”高考546分](https://www.share.minike.top/Article/details/87789365622.shtml)
-- 2026-06-29 20:22 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/046614767969.shtml)
-- 2026-06-29 20:27 - [普京建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/5113341.shtml)
-- 2026-06-29 20:41 - [店员光脚踩入盆中清洗土豆](http://www.share.kurohicncr.top/Article/details/21935818348.shtml)
-- 2026-06-29 20:39 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/3754997695.shtml)
-- 2026-06-29 20:47 - [105岁女红军看到自己长征时的模样](http://www.share.kurohicncr.top/Article/details/0481054228.shtml)
-- 2026-06-29 20:28 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/12633943.shtml)
-- 2026-06-29 20:38 - [无畏为自己的猫正名了](https://www.blog.minike.top/Article/details/70835.shtml)
-- 2026-06-29 20:28 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/69249.shtml)
-- 2026-06-29 20:20 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.minike.top/Article/details/149665623.shtml)
-- 2026-06-29 20:36 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/809547.shtml)
-- 2026-06-29 20:43 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/01625996.shtml)
-- 2026-06-29 20:41 - [世界杯高票价为何没劝退球迷](https://www.blog.kurohicncr.top/Article/details/373239.shtml)
-- 2026-06-29 20:45 - [欧洲安装一台空调要花近8000元](http://www.blog.minike.top/Article/details/631822257454.shtml)
-- 2026-06-29 20:27 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/423747781209.shtml)
+- 2026-06-29 20:32 - [《恋与深空》回应争议](http://www.share.minike.top/Article/details/2717590.shtml)
+- 2026-06-29 20:52 - [美以这对亲密盟友要掰了吗](http://www.blog.minike.top/Article/details/43112243904.shtml)
+- 2026-06-29 20:49 - [LPL第三赛段赛制公布](http://www.share.kurohicncr.top/Article/details/947032595.shtml)
+- 2026-06-29 20:31 - [每天通勤往返3h的感觉](http://www.share.kurohicncr.top/Article/details/3817451649.shtml)
+- 2026-06-29 20:40 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/418866880.shtml)
+- 2026-06-29 20:39 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/569038074845.shtml)
+- 2026-06-29 20:45 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/905473200.shtml)
+- 2026-06-29 20:40 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.minike.top/Article/details/880378651.shtml)
+- 2026-06-29 20:33 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/11914629.shtml)
+- 2026-06-29 20:37 - [流金岁月](http://www.share.minike.top/Article/details/468978067.shtml)
+- 2026-06-29 20:52 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.minike.top/Article/details/453080049409.shtml)
+- 2026-06-29 20:28 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/56722.shtml)
+- 2026-06-29 20:25 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.minike.top/Article/details/827903.shtml)
+- 2026-06-29 20:49 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/20709.shtml)
+- 2026-06-29 20:31 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/41928.shtml)

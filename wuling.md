@@ -1,49 +1,61 @@
-# 润建股份（002929）：中标中国铝业股份有限公司广西分公司采购项目，中标金额为261.60万元
+# 中信建投期货：5月14日黑色系早报
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-同壁财经讯，企查查数据显示，根据《中国铝业股份有限公司广西分公司通信线路迁改施工中标结果公告》，润建股份有限公司于2026年5月7日公告中标中国铝业股份有限公司广西分公司采购项目，中标金额为261.60万元。相关上市公司：润建股份(002929.SZ)同壁财经小贴士：润建股份(002929.SZ)2024年营业收入为91.99亿元，营业收入增长率为4.23%，归属母公司净利润为
+钢材早报：驱动不足，期钢高位震荡 市场信息： 1、 美国总统特朗普将于5月13日至15日对中国进行国事访问，多名商界领袖随行。 2、 美国4月CPI同比上涨3.8%，超出市场预期的3.7%，创2023年5月以来新高；核心CPI同比上涨2.8%，超出预期的2.7%，并创2025年9月以来新高。美国4月PPI同比上涨6%，创2022年12 月以来最高水平，核心PPI同比上涨5.2%
 
 ## 正文
 
-同壁财经讯，企查查数据显示，根据《中国铝业股份有限公司广西分公司通信线路迁改施工中标结果公告》，润建股份有限公司于2026年5月7日公告中标中国铝业股份有限公司广西分公司采购项目，中标金额为261.60万元。
+钢材早报：驱动不足，期钢高位震荡 市场信息： 1、 美国总统特朗普将于5月13日至15日对中国进行国事访问，多名商界领袖随行。
 
-相关上市公司：润建股份(002929.SZ)同壁财经小贴士：润建股份(002929.SZ)2024年营业收入为91.99亿元，营业收入增长率为4.23%，归属母公司净利润为2.47亿元，归属母公司净利润增长率为-43.77%，净资产收益率为4.06%。
+2、 美国4月CPI同比上涨3.8%，超出市场预期的3.7%，创2023年5月以来新高；核心CPI同比上涨2.8%，超出预期的2.7%，并创2025年9月以来新高。
 
-2025年上半年公司营业收入为48.67亿元，营业收入增长率为10.02%，归属母公司净利润为0.39亿元，归属母公司净利润增长率为-83.37%。
+美国4月PPI同比上涨6%，创2022年12 月以来最高水平，核心PPI同比上涨5.2%，均远超市场预期。
 
-目前公司属于信息技术行业，主要产品类型为互联网服务，2024年报主营构成为通信网络业务:49.68%;数字网络业务:26.58%;能源网络业务:17.98%;算力网络业务:5.75%;其他业务:0.01%。
+3、 鞍钢、本钢、凌钢出台2026年6月份产品价格调整，在5月价格基础上，热轧、酸洗、冷轧、无取向硅钢等产品上调100元/吨。
+
+4、 5月4日-10日，10个重点城市新建商品房成交（签约）面积总计132.1万平方米，环比下降16.2%；二手房成交（签约）面积总计217.85万平方米，环比增长10.9%。
+
+5、 5月13日，全国主港铁矿石成交85.40万吨，环比增47.2%；237家主流贸易商建筑钢材成交9.71万吨，环比增5.7%。
+
+6、 5 月13日，76家独立电弧炉建筑钢材钢厂平均成本为3358元/吨，日环比持平，平均利润为19元/吨，谷电利润为118元/吨。
+
+7、 据百年建筑调研，截至5月12日，样本建筑工地资金到位率为54.96%，较上一期下降0.4个百分点。
 
 ## 相关推荐
 
-- 2026-06-29 20:38 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-29 20:43 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 20:26 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 20:24 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 20:35 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-29 20:38 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 20:24 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 20:28 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 20:36 - [扩军害了世界杯吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 20:18 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-29 20:34 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 20:45 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 20:52 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 20:49 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 20:36 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-29 20:27 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-29 20:43 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-29 20:26 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-29 20:35 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-29 20:38 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 20:47 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-29 20:47 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-29 20:28 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-29 20:35 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-29 20:39 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-29 20:46 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:19 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/06221488.shtml)
-- 2026-06-29 20:18 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/49196659.shtml)
-- 2026-06-29 20:23 - [福建海警位金门附近海域常态执法巡查](https://www.share.kurohicncr.top/Article/details/347482252.shtml)
-- 2026-06-29 20:32 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/616449303.shtml)
-- 2026-06-29 20:21 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.kurohicncr.top/Article/details/290215.shtml)
-- 2026-06-29 20:24 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/357740173.shtml)
-- 2026-06-29 20:47 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/04151.shtml)
-- 2026-06-29 20:39 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/473162.shtml)
-- 2026-06-29 20:23 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/450990242.shtml)
-- 2026-06-29 20:45 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/70668209913.shtml)
-- 2026-06-29 20:23 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/065259109.shtml)
-- 2026-06-29 20:47 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/82801.shtml)
-- 2026-06-29 20:30 - [黄金也扛不住了](https://www.blog.kurohicncr.top/Article/details/1896010.shtml)
-- 2026-06-29 20:37 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/33931605.shtml)
-- 2026-06-29 20:39 - [TLAW零封DCG MSI](https://www.share.kurohicncr.top/Article/details/301951.shtml)
+- 2026-06-29 20:43 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/429748.shtml)
+- 2026-06-29 20:54 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/46810225521.shtml)
+- 2026-06-29 20:25 - [海清4次陪跑白玉兰](https://www.blog.minike.top/Article/details/7315451.shtml)
+- 2026-06-29 20:29 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/777135847245.shtml)
+- 2026-06-29 20:42 - [美以这对亲密盟友要掰了吗](https://www.blog.kurohicncr.top/Article/details/583550.shtml)
+- 2026-06-29 20:49 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/83194.shtml)
+- 2026-06-29 20:31 - [韩国队回国欢迎仪式取消](http://www.blog.minike.top/Article/details/4551599999.shtml)
+- 2026-06-29 20:45 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/82395.shtml)
+- 2026-06-29 20:43 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/47227.shtml)
+- 2026-06-29 20:40 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/4909968486.shtml)
+- 2026-06-29 20:48 - [曝屠颖去世和酒店失责有关](https://www.share.minike.top/Article/details/307302727707.shtml)
+- 2026-06-29 20:52 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/7797851.shtml)
+- 2026-06-29 20:52 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/1694856394.shtml)
+- 2026-06-29 20:25 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/7652139.shtml)
+- 2026-06-29 20:43 - [媒体评恋与深空用“引狼入室”台词](http://www.share.kurohicncr.top/Article/details/988698600.shtml)

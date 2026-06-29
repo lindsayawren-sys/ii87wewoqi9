@@ -1,61 +1,56 @@
-# 量化模型显示美股涨势正逼近“狂热”区间
+# 弃收率飙升至1917年以来最高！美国冬小麦主产区遭毁灭性打击，全球供应面临断崖式下跌？
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-美国股市出现历史性大涨，创下新高，但情绪过热的迹象表明，这轮涨势可能正进入放缓阶段。 本轮自3月低点以来的反弹，部分源于美伊紧张关系缓和预期以及企业盈利大幅增长，已推动投资者情绪升至接近彭博行业研究策略师量化模型所显示的“狂热”区间。该模型跟踪六项指标，其中三项推动情绪升至这一水平：高收益公司债利差、低波动率以及成对相关性。 这并不一定意味着崩盘即将到来：这种背景通常伴随着进一
+来源：金十期货 据外媒报道，在美国小麦质量委员会年度为期三天的堪萨斯州巡查首日，农作物考察员预计该州北部一半地区的硬红冬小麦单产将大幅低于去年。 巡查考察员表示，在堪萨斯州曼哈顿和科尔比之间的187块田地进行的调查显示，硬红冬小麦的平均预估单产为38.3蒲式耳/英亩。 这一数据低于该委员会巡查的五年平均值45.7蒲式耳/英亩，也低于去年50.5蒲式耳/英亩的预估值。这是自202
 
 ## 正文
 
-美国股市出现历史性大涨，创下新高，但情绪过热的迹象表明，这轮涨势可能正进入放缓阶段。
+来源：金十期货 据外媒报道，在美国小麦质量委员会年度为期三天的堪萨斯州巡查首日，农作物考察员预计该州北部一半地区的硬红冬小麦单产将大幅低于去年。
 
-本轮自3月低点以来的反弹，部分源于美伊紧张关系缓和预期以及企业盈利大幅增长，已推动投资者情绪升至接近彭博行业研究策略师量化模型所显示的“狂热”区间。
+巡查考察员表示，在堪萨斯州曼哈顿和科尔比之间的187块田地进行的调查显示，硬红冬小麦的平均预估单产为38.3蒲式耳/英亩。
 
-该模型跟踪六项指标，其中三项推动情绪升至这一水平：高收益公司债利差、低波动率以及成对相关性。
+这一数据低于该委员会巡查的五年平均值45.7蒲式耳/英亩，也低于去年50.5蒲式耳/英亩的预估值。
 
-这并不一定意味着崩盘即将到来：这种背景通常伴随着进一步的上涨，只是涨幅更为温和。
+这是自2023年以来该巡查最低的首日单产预估值，当时严重的干旱导致了大面积的田地弃收。
 
-彭博行业研究“市场脉搏”（Market Pulse）模型显示，2012年至2023年间，在情绪指标多次处于高位之后的三个月内，罗素3000指数平均回报为2.9%。
+今日凌晨美国农业部预测，堪萨斯州将录得自1989年以来第二低的小麦产量，随后谷物交易商、面粉加工商、出口商和全球买家都在密切关注本周的巡查结果。
 
-在这些时期，大盘股通常表现更佳，标普500指数跑赢小盘股罗素2000指数约178个基点。
+该州是美国最大的冬小麦产区，过去10年的平均产量为3.17亿蒲式耳。
 
-尽管如此，此次行情与以往上涨有所不同。
+美国农业部预测，2026年堪萨斯州小麦收成为2.146亿蒲式耳，平均单产为37.0蒲式耳/英亩。
 
-历史上，这么大的单月涨幅通常出现在深度回撤之后，例如2009年4月和2020年4月，当时股市从危机冲击下的低点反弹。
+干旱胁迫迹象 堪萨斯州立大学农学教授、参与此次巡查的罗慕洛·洛拉托（Romulo Lollato）表示，秋季农民在堪萨斯州种植冬小麦时降水量高于平均水平，导致生物量过剩（某一生态系统中生物量（即单位面积内生物有机物质的总量）显著超过环境承载能力或正常水平，可能对生态平衡产生负面影响的现象‌），这夺走了小麦植株原本就稀缺的春季降水。
 
 ## 相关推荐
 
-- 2026-06-29 20:37 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 20:31 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 20:43 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 20:33 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-29 20:35 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-29 20:38 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-29 20:26 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 20:44 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 20:20 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 20:36 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-29 20:46 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-29 20:40 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 20:33 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 20:28 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 20:46 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 20:48 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 20:30 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 20:30 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 20:27 - [LPL第三赛段赛制公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-29 20:47 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-29 20:24 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 20:25 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 20:26 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 20:36 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-29 20:44 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:32 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/78385.shtml)
-- 2026-06-29 20:44 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/1378024.shtml)
-- 2026-06-29 20:37 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/040658141.shtml)
-- 2026-06-29 20:43 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.minike.top/Article/details/989885600.shtml)
-- 2026-06-29 20:30 - [《新闻联播》正在直播](https://www.share.kurohicncr.top/Article/details/507415.shtml)
-- 2026-06-29 20:30 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/405592418507.shtml)
-- 2026-06-29 20:18 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/540545160744.shtml)
-- 2026-06-29 20:20 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/476076.shtml)
-- 2026-06-29 20:22 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/201792145.shtml)
-- 2026-06-29 20:24 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/43594.shtml)
-- 2026-06-29 20:34 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/144859899168.shtml)
-- 2026-06-29 20:41 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/48139977041.shtml)
-- 2026-06-29 20:28 - [杨紫视后第一场线下活动](http://www.share.minike.top/Article/details/156114.shtml)
-- 2026-06-29 20:45 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/952568585.shtml)
-- 2026-06-29 20:20 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/403485213756.shtml)
+- 2026-06-29 20:28 - [TTG KSG](https://www.blog.minike.top/Article/details/530943782601.shtml)
+- 2026-06-29 20:27 - [小众羞耻点是吃麻辣烫](http://www.blog.kurohicncr.top/Article/details/474882.shtml)
+- 2026-06-29 20:31 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/0162319.shtml)
+- 2026-06-29 20:36 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/90745.shtml)
+- 2026-06-29 20:44 - [如果你一直单身，你准备怎么养老？](https://www.share.kurohicncr.top/Article/details/072645771128.shtml)
+- 2026-06-29 20:47 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/4730074.shtml)
+- 2026-06-29 20:53 - [斗破苍穹](http://www.share.minike.top/Article/details/06893567750.shtml)
+- 2026-06-29 20:33 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/2790138.shtml)
+- 2026-06-29 20:33 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/537185.shtml)
+- 2026-06-29 20:32 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/79301875.shtml)
+- 2026-06-29 20:44 - [周生如故](http://www.share.minike.top/Article/details/48566165309.shtml)
+- 2026-06-29 20:30 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.share.minike.top/Article/details/1700870263.shtml)
+- 2026-06-29 20:30 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/227650.shtml)
+- 2026-06-29 20:42 - [法生态部长反对装空调却自己吹空调](https://www.share.kurohicncr.top/Article/details/193451140.shtml)
+- 2026-06-29 20:39 - [法国紧急下单3万台空调](https://www.share.kurohicncr.top/Article/details/168387423019.shtml)

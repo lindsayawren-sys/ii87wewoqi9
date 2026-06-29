@@ -1,52 +1,58 @@
-# 美国称打击两艘试图突破封锁的伊朗籍油轮
+# 伯希和陷品牌争议后更名“奔赴自然”三闯港交所 今年2月突击分红1.01亿 六成进了实控人夫妇口袋
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-核心要点 美军称，周五在阿曼湾对两艘伊朗籍空载油轮实施了打击，阻止其违反美国海上封锁禁令驶入伊朗港口。 美军中央司令部在一份声明中表示，一架美军战斗机 “向两艘油轮的烟囱发射精确制导武器，使其失去航行能力”，声明同时公布了两次打击的非保密视频。 此次袭击是本周一系列军事行动的最新动向，进一步破坏了本已脆弱的美伊停火协议，尽管美国总统特朗普坚称临时休战仍然有效。责任编辑：郭明煜
+2026年5月8日，户外运动品牌伯希和的母公司第三次向港交所递交上市申请，中金公司与中信证券担任联席保荐人。与前两次递表不同，这份最新的招股说明书披露了一个重大变化：上市主体已由“伯希和户外运动集团股份有限公司”正式更名为“奔赴自然户外运动集团股份有限公司”，公司于2026年1月26日完成工商变更登记。 此番更名，既是化解品牌争议的应急之举，亦是奔赴自然第三次冲击IPO时向资本
 
 ## 正文
 
-核心要点 美军称，周五在阿曼湾对两艘伊朗籍空载油轮实施了打击，阻止其违反美国海上封锁禁令驶入伊朗港口。
+2026年5月8日，户外运动品牌伯希和的母公司第三次向港交所递交上市申请，中金公司与中信证券担任联席保荐人。
 
-美军中央司令部在一份声明中表示，一架美军战斗机 “向两艘油轮的烟囱发射精确制导武器，使其失去航行能力”，声明同时公布了两次打击的非保密视频。
+与前两次递表不同，这份最新的招股说明书披露了一个重大变化：上市主体已由“伯希和户外运动集团股份有限公司”正式更名为“奔赴自然户外运动集团股份有限公司”，公司于2026年1月26日完成工商变更登记。
 
-此次袭击是本周一系列军事行动的最新动向，进一步破坏了本已脆弱的美伊停火协议，尽管美国总统特朗普坚称临时休战仍然有效。
+此番更名，既是化解品牌争议的应急之举，亦是奔赴自然第三次冲击IPO时向资本市场重塑品牌形象的关键落子。
 
-责任编辑：郭明煜
+然而在其招股书营收三年增长超两倍的业绩表象之下，品牌争议、增收不增利的利润裂痕、销售费用失控式膨胀，叠加逾1.5亿元突击分红等治理质疑，共同构筑了这家网红户外品牌IPO之路上的多重隐忧。
+
+品牌名称争议是奔赴自然横亘多年、始终未能彻底化解的风险敞口。
+
+伯希和品牌名称与20世纪初劫掠中国敦煌文物的法国汉学家、探险家保罗·伯希和（Paul Pelliot）同名，品牌长期面临来自历史情感层面的舆论质疑。
+
+尽管官方早期否认品牌名称与这位法国探险家有关，但不少网友发帖指出，早期相关宣传物料中曾存在类似的品牌源起说法。
+
+更严峻的挑战来自法律层面：招股书首次披露，自2024年9月起，已有个人向国家知识产权局申请宣告“伯希和”三项核心商标无效，理由是该名称带有负面含义；随后，申索人向北京知识产权法院提起行政诉讼，案件目前仍在审理中。
 
 ## 相关推荐
 
-- 2026-06-29 20:29 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-29 20:24 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-29 20:32 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-29 20:32 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-29 20:23 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 20:42 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-29 20:47 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-29 20:44 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-29 20:25 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 20:45 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 20:30 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-29 20:30 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-29 20:33 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-29 20:33 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 20:33 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-29 20:24 - [店员光脚踩入盆中清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 20:44 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-29 20:29 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 20:32 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 20:37 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 20:30 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-29 20:43 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 20:39 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-29 20:32 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-29 20:36 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-29 20:43 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:46 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/86151278.shtml)
-- 2026-06-29 20:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/22814068414.shtml)
-- 2026-06-29 20:35 - [海清4次陪跑白玉兰](https://www.share.minike.top/Article/details/97489.shtml)
-- 2026-06-29 20:43 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/626809.shtml)
-- 2026-06-29 20:29 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/418200145.shtml)
-- 2026-06-29 20:39 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/796056019.shtml)
-- 2026-06-29 20:25 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/472225.shtml)
-- 2026-06-29 20:46 - [恋与深空7天掉粉超50万](http://www.share.minike.top/Article/details/6338596241.shtml)
-- 2026-06-29 20:36 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/97557.shtml)
-- 2026-06-29 20:18 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/63067422.shtml)
-- 2026-06-29 20:38 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/2973368.shtml)
-- 2026-06-29 20:37 - [CORTIS登机迟到致航班延误](http://www.share.kurohicncr.top/Article/details/12736453.shtml)
-- 2026-06-29 20:34 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/9523200703.shtml)
-- 2026-06-29 20:25 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.minike.top/Article/details/830039698150.shtml)
-- 2026-06-29 20:34 - [我和我的家乡](http://www.share.minike.top/Article/details/590267.shtml)
+- 2026-06-29 20:28 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/236319356.shtml)
+- 2026-06-29 20:28 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/99301760.shtml)
+- 2026-06-29 20:51 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/70385057517.shtml)
+- 2026-06-29 20:25 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/066578987006.shtml)
+- 2026-06-29 20:53 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/23253132470.shtml)
+- 2026-06-29 20:43 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/968288558.shtml)
+- 2026-06-29 20:26 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/61652.shtml)
+- 2026-06-29 20:40 - [济南航空航天全面起势](http://www.blog.kurohicncr.top/Article/details/4979329.shtml)
+- 2026-06-29 20:53 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/0525356928.shtml)
+- 2026-06-29 20:46 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/26213631338.shtml)
+- 2026-06-29 20:31 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/8066575.shtml)
+- 2026-06-29 20:36 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/426081507.shtml)
+- 2026-06-29 20:43 - [哈兰德玩游戏连女友都不让着](http://www.blog.kurohicncr.top/Article/details/002128.shtml)
+- 2026-06-29 20:41 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/21522669.shtml)
+- 2026-06-29 20:43 - [爱奇艺抬高国剧新标尺](http://www.share.minike.top/Article/details/100731.shtml)

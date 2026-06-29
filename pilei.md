@@ -1,53 +1,49 @@
-# 中国财政部下达458亿元支持各地学前教育普及普惠
+# 学习卡丨中美正确相处之道，习主席这样阐释
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-中新社北京5月8日电 (记者 赵建华)中国财政部近期下达2026年支持学前教育发展资金458亿元(人民币，下同)，比上年增加125.6亿元，增长38%，重点支持地方巩固落实好学前教育免保育教育费政策；补足普惠性资源短板，提高保教质量，巩固家庭经济困难儿童等群体资助制度。财政部8日介绍，“十四五”时期，中央财政累计安排支持学前教育发展资金1262亿元。从2025年秋季学期起，免除
+应国家主席习近平邀请，美国总统特朗普将于5月13日至15日对中国进行国事访问。 “一个稳定、健康、可持续发展的中美关系符合两国共同利益和国际社会期待。”近年来，习近平主席围绕中美关系作出一系列重要论述，就新时期中美正确相处之道作出深刻阐释。 总监制丨闫帅南 监制丨王元 主编丨王兴栋 编辑 制图丨马玮璐
 
 ## 正文
 
-中新社北京5月8日电 (记者 赵建华)中国财政部近期下达2026年支持学前教育发展资金458亿元(人民币，下同)，比上年增加125.6亿元，增长38%，重点支持地方巩固落实好学前教育免保育教育费政策；补足普惠性资源短板，提高保教质量，巩固家庭经济困难儿童等群体资助制度。
+应国家主席习近平邀请，美国总统特朗普将于5月13日至15日对中国进行国事访问。
 
-财政部8日介绍，“十四五”时期，中央财政累计安排支持学前教育发展资金1262亿元。
+“一个稳定、健康、可持续发展的中美关系符合两国共同利益和国际社会期待。
 
-从2025年秋季学期起，免除公办幼儿园学前一年在园儿童保育教育费，对民办园适龄儿童给予相应减免，惠及超过1400万在园儿童，减轻家庭教育支出超过200亿元。
+”近年来，习近平主席围绕中美关系作出一系列重要论述，就新时期中美正确相处之道作出深刻阐释。
 
-财政部同日还公布，近期已下达2026年科技馆免费开放补助资金预算，支持各地免费开放科技馆运行保障，展览展品的研发、维护、更新等；下达2026年中央引导地方科技发展资金预算，支持各地自由探索类基础研究、科技创新基地建设、科技成果转移转化和区域创新体系建设等。
-
-其中，2026年科技馆免费开放补助资金预算8.7亿多元，已提前下达8.25亿元，本次下达4584万元；2026年中央引导地方科技发展资金预算57亿元，已提前下达42亿元，本次下达15亿元。
-
-(完)
+总监制丨闫帅南 监制丨王元 主编丨王兴栋 编辑 制图丨马玮璐
 
 ## 相关推荐
 
-- 2026-06-29 20:22 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 20:23 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-29 20:37 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-29 20:37 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 20:38 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-29 20:31 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 20:18 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-29 20:25 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-29 20:38 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-29 20:29 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-29 20:19 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 20:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 20:42 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-29 20:40 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 20:53 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 20:26 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-29 20:50 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 20:40 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 20:42 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-29 20:45 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 20:48 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 20:41 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:47 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/465480.shtml)
-- 2026-06-29 20:25 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/5995686.shtml)
-- 2026-06-29 20:28 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/04056536851.shtml)
-- 2026-06-29 20:22 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/2343128.shtml)
-- 2026-06-29 20:25 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.share.kurohicncr.top/Article/details/5004965.shtml)
-- 2026-06-29 20:26 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/3483117.shtml)
-- 2026-06-29 20:33 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.kurohicncr.top/Article/details/2520018.shtml)
-- 2026-06-29 20:24 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/9770357.shtml)
-- 2026-06-29 20:27 - [湖南姑娘被东北同事带偏口音](http://www.share.minike.top/Article/details/981913.shtml)
-- 2026-06-29 20:26 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/36485961.shtml)
-- 2026-06-29 20:28 - [小娘惹](http://www.share.minike.top/Article/details/35462316075.shtml)
-- 2026-06-29 20:23 - [时光音乐会](https://www.blog.minike.top/Article/details/5590737012.shtml)
-- 2026-06-29 20:27 - [欧洲安装一台空调要花近8000元](https://www.share.kurohicncr.top/Article/details/282198.shtml)
-- 2026-06-29 20:42 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/001172.shtml)
-- 2026-06-29 20:39 - [田曦薇 女装牛仔裤](http://www.share.minike.top/Article/details/309584.shtml)
+- 2026-06-29 20:47 - [极限挑战第一季](http://www.blog.minike.top/Article/details/924158.shtml)
+- 2026-06-29 20:37 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/654451.shtml)
+- 2026-06-29 20:45 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/708826708815.shtml)
+- 2026-06-29 20:45 - [朱雀三号完成静态点火试验](https://www.blog.kurohicncr.top/Article/details/2475259137.shtml)
+- 2026-06-29 20:36 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/56926837.shtml)
+- 2026-06-29 20:30 - [李思潼回应运气好演《给阿嬷的情书》](http://www.share.minike.top/Article/details/034218.shtml)
+- 2026-06-29 20:39 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/1056365.shtml)
+- 2026-06-29 20:38 - [女心理师](http://www.blog.kurohicncr.top/Article/details/704938205310.shtml)
+- 2026-06-29 20:50 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.minike.top/Article/details/3636780.shtml)
+- 2026-06-29 20:41 - [特朗普两大核心赌注将迎高院裁决](https://www.blog.minike.top/Article/details/5733430.shtml)
+- 2026-06-29 20:32 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/049838.shtml)
+- 2026-06-29 20:40 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/1836008212.shtml)
+- 2026-06-29 20:27 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/5622215.shtml)
+- 2026-06-29 20:45 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/673269.shtml)
+- 2026-06-29 20:43 - [王安宇聪明到导演组炸了](https://www.share.kurohicncr.top/Article/details/06826357.shtml)

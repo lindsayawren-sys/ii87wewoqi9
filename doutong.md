@@ -1,61 +1,57 @@
-# 特朗普会见巴西总统卢拉讨论关税等问题
+# Hims & Hers公布一季度亏损、业绩指引疲软，股价暴跌15.2%
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-新华社华盛顿5月7日电(记者黄强 徐剑梅)美国总统特朗普7日在白宫会见到访的巴西总统卢拉。特朗普说，双方探讨了包括贸易在内的许多议题，特别是关税问题。 特朗普随后在社交媒体发文称，此次会晤“非常顺利”。双方代表定于稍后会面，就某些“关键事项”展开讨论。在接下来的几个月里，如有必要，双方还将安排更多会晤。 针对媒体关注的今年10月举行的巴西大选，卢拉在会晤后举行的新闻发布会上表示
+专题：聚焦美股2026年第一季度财报 核心要点 数字医疗公司 Hims & Hers 周二受一季度财报疲软拖累，股价大幅下挫。 公司一季度净亏损达 9200 万美元，高于去年同期的 5000 万美元。 该公司近期与诺和诺德达成合作，将在平台销售其品牌减肥药。 远程医疗企业 Hims & Hers 发布一季度亏损业绩，且全年业绩指引偏弱，周二股价应声大跌。 这家数字健康公司周一公
 
 ## 正文
 
-新华社华盛顿5月7日电(记者黄强 徐剑梅)美国总统特朗普7日在白宫会见到访的巴西总统卢拉。
+专题：聚焦美股2026年第一季度财报 核心要点 数字医疗公司 Hims & Hers 周二受一季度财报疲软拖累，股价大幅下挫。
 
-特朗普说，双方探讨了包括贸易在内的许多议题，特别是关税问题。
+公司一季度净亏损达 9200 万美元，高于去年同期的 5000 万美元。
 
-特朗普随后在社交媒体发文称，此次会晤“非常顺利”。
+该公司近期与诺和诺德达成合作，将在平台销售其品牌减肥药。
 
-双方代表定于稍后会面，就某些“关键事项”展开讨论。
+远程医疗企业 Hims & Hers 发布一季度亏损业绩，且全年业绩指引偏弱，周二股价应声大跌。
 
-在接下来的几个月里，如有必要，双方还将安排更多会晤。
+这家数字健康公司周一公布一季报：净亏损 9200 万美元，去年同期约为 5000 万美元； 调整后息税折旧摊销前利润（EBITDA）为 4400 万美元，低于去年的 9100 万美元； 营收同比仅增长 4%，至 6.08 亿美元； 单用户月均收入降至 80 美元，去年为 85 美元。
 
-针对媒体关注的今年10月举行的巴西大选，卢拉在会晤后举行的新闻发布会上表示，他认为特朗普不会对即将到来的巴西选举产任何影响，“我认为他会以美国总统的身份行事，让巴西人民自己决定自己的命运”。
+公司给出业绩预期： 该股最新跌幅15.2%。
 
-由于特朗普认为巴西前总统博索纳罗遭到“政治迫害”，以及两国在委内瑞拉等问题上的分歧，美巴关系一度紧张。
+花旗分析师评价其业绩预期好坏参半，并指出公司二季度展望低于花旗预估。
 
-美国向巴西加征关税，而卢拉也多次直言不讳地批评特朗普在关税、委内瑞拉和古巴等问题上的相关政策。
+分析师同时提示，随着公司减少对复方 GLP-1 减肥药业务的依赖，一季度正处于业务转型期。
 
 ## 相关推荐
 
-- 2026-06-29 20:40 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 20:34 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-29 20:27 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-29 20:37 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 20:35 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-29 20:42 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-29 20:40 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 20:39 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 20:27 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-29 20:41 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-29 20:26 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 20:46 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 20:32 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-29 20:34 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 20:43 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 20:53 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 20:24 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-29 20:29 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 20:27 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 20:42 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-29 20:50 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-29 20:41 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 20:44 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 20:34 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 20:29 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 20:50 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:43 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/54740355.shtml)
-- 2026-06-29 20:46 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/9258195.shtml)
-- 2026-06-29 20:21 - [小众羞耻点是吃麻辣烫](https://www.share.minike.top/Article/details/8226634.shtml)
-- 2026-06-29 20:26 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/510812813.shtml)
-- 2026-06-29 20:31 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/1543667725.shtml)
-- 2026-06-29 20:30 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/626519701156.shtml)
-- 2026-06-29 20:38 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/33406062.shtml)
-- 2026-06-29 20:36 - [媒体：听清自己内心的声音再填志愿](https://www.blog.minike.top/Article/details/13234455.shtml)
-- 2026-06-29 20:18 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/7709312.shtml)
-- 2026-06-29 20:34 - [电影《抓特务》总票房破亿](http://www.blog.minike.top/Article/details/6839142.shtml)
-- 2026-06-29 20:40 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/03516979.shtml)
-- 2026-06-29 20:24 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/208311892530.shtml)
-- 2026-06-29 20:21 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/80095968.shtml)
-- 2026-06-29 20:33 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/51818.shtml)
-- 2026-06-29 20:42 - [天柱山回应网红打卡树枝被砍](http://www.share.minike.top/Article/details/99642561.shtml)
+- 2026-06-29 20:50 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.minike.top/Article/details/7118615174.shtml)
+- 2026-06-29 20:28 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/64759723290.shtml)
+- 2026-06-29 20:50 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/939164250.shtml)
+- 2026-06-29 20:25 - [我和我的家乡](http://www.blog.minike.top/Article/details/417316.shtml)
+- 2026-06-29 20:48 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/116974400.shtml)
+- 2026-06-29 20:29 - [高考1357分的同学如何报志愿？](http://www.share.kurohicncr.top/Article/details/8197339.shtml)
+- 2026-06-29 20:51 - [恋与深空7天掉粉超50万](https://www.blog.minike.top/Article/details/46403.shtml)
+- 2026-06-29 20:52 - [天气热脾气都变差了](http://www.share.kurohicncr.top/Article/details/11747.shtml)
+- 2026-06-29 20:42 - [一诺变着花样秀新驾照](https://www.share.kurohicncr.top/Article/details/93554937.shtml)
+- 2026-06-29 20:33 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/491679.shtml)
+- 2026-06-29 20:37 - [北京市发布雷电黄色预警](http://www.blog.minike.top/Article/details/66267630571.shtml)
+- 2026-06-29 20:51 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/66950369105.shtml)
+- 2026-06-29 20:24 - [逃狱兄弟](http://www.blog.minike.top/Article/details/784899143693.shtml)
+- 2026-06-29 20:50 - [教育部高校学生资助热线7月1日开通](https://www.blog.kurohicncr.top/Article/details/11669.shtml)
+- 2026-06-29 20:30 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/6736068.shtml)

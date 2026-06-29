@@ -1,50 +1,58 @@
-# 杭州西子湖畔“平安市集”吸引民众 寓教于乐话安全
+# 探访全国唯一元代“连三对唱”古戏台：三戏同台 各唱各调
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月08日 23:05 来源：中国新闻网 5月8日，浙江杭州西湖风景名胜区“平安市集”热闹开市。反诈投壶、执法盲盒、假币辨别等互动摊位人气爆棚，公安、消防、市场监管等多部门协同联动，将国家安全、禁毒禁赌、消防安全等知识融入沉浸式体验。(钱晨菲 叶冠琦 制作 王佳琪) 责任编辑：【付子豪】
+发布时间：2026年05月12日 16:08 来源：中国新闻网 近日，山西运城，记者探访全国唯一保留元代“连三对唱”形制的古戏台——奏衍楼。这座始建于元至正十年(1350年)之前的戏台，坐落于池神庙三大殿正对面。戏台面阔七间，横向一字排开。奏衍楼原名“乐楼”，清康熙年间正式更名为“奏衍楼”。每逢农历二月初一产盐开工、八月十五收官，盐商都要花重金请来三台戏班，在同一时间、同一地点
 
 ## 正文
 
-发布时间：2026年05月08日 23:05 来源：中国新闻网 5月8日，浙江杭州西湖风景名胜区“平安市集”热闹开市。
+发布时间：2026年05月12日 16:08 来源：中国新闻网 近日，山西运城，记者探访全国唯一保留元代“连三对唱”形制的古戏台——奏衍楼。
 
-反诈投壶、执法盲盒、假币辨别等互动摊位人气爆棚，公安、消防、市场监管等多部门协同联动，将国家安全、禁毒禁赌、消防安全等知识融入沉浸式体验。
+这座始建于元至正十年(1350年)之前的戏台，坐落于池神庙三大殿正对面。
 
-(钱晨菲 叶冠琦 制作 王佳琪) 责任编辑：【付子豪】
+戏台面阔七间，横向一字排开。
+
+奏衍楼原名“乐楼”，清康熙年间正式更名为“奏衍楼”。
+
+每逢农历二月初一产盐开工、八月十五收官，盐商都要花重金请来三台戏班，在同一时间、同一地点连唱三出大戏。
+
+2013年，盐池神庙被列为全国重点文物保护单位。
+
+(记者 王惠琳) 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-29 20:36 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 20:21 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-29 20:47 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-29 20:44 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-29 20:46 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 20:43 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-29 20:31 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 20:36 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-29 20:21 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-29 20:28 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-29 20:44 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 20:45 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-29 20:19 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-29 20:29 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 20:25 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 20:29 - [主力抛售电子和通信板块](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-29 20:24 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-29 20:32 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 20:43 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 20:39 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-29 20:39 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-29 20:33 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 20:31 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-29 20:50 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-29 20:42 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-29 20:43 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-29 20:30 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-29 20:46 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:27 - [大学专业未来如何洗牌](http://www.share.kurohicncr.top/Article/details/407405.shtml)
-- 2026-06-29 20:35 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/350039695.shtml)
-- 2026-06-29 20:19 - [济南航空航天全面起势](https://www.share.minike.top/Article/details/6504028500.shtml)
-- 2026-06-29 20:39 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/0209507.shtml)
-- 2026-06-29 20:34 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/37493266509.shtml)
-- 2026-06-29 20:33 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/257568956183.shtml)
-- 2026-06-29 20:20 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/267954.shtml)
-- 2026-06-29 20:40 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/513169.shtml)
-- 2026-06-29 20:25 - [流金岁月](http://www.share.minike.top/Article/details/493720.shtml)
-- 2026-06-29 20:33 - [穆祉丞东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/39861528.shtml)
-- 2026-06-29 20:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/88377775.shtml)
-- 2026-06-29 20:42 - [穆祉丞东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/13058322179.shtml)
-- 2026-06-29 20:39 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/00517081203.shtml)
-- 2026-06-29 20:45 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.minike.top/Article/details/4002727.shtml)
-- 2026-06-29 20:30 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/82199231.shtml)
+- 2026-06-29 20:39 - [内马尔打日本前先买百万美元豪表](http://www.blog.kurohicncr.top/Article/details/6572504.shtml)
+- 2026-06-29 20:42 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/82427.shtml)
+- 2026-06-29 20:29 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/1206026769.shtml)
+- 2026-06-29 20:47 - [记者暗访养老机构消防安全](https://www.blog.kurohicncr.top/Article/details/88127834573.shtml)
+- 2026-06-29 20:32 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/12610485.shtml)
+- 2026-06-29 20:42 - [沙丘](https://www.share.minike.top/Article/details/23766166992.shtml)
+- 2026-06-29 20:50 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/556972433.shtml)
+- 2026-06-29 20:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/06299322288.shtml)
+- 2026-06-29 20:39 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.minike.top/Article/details/873778068.shtml)
+- 2026-06-29 20:34 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/232697.shtml)
+- 2026-06-29 20:25 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/85413.shtml)
+- 2026-06-29 20:41 - [美以这对亲密盟友要掰了吗](https://www.blog.minike.top/Article/details/504801813.shtml)
+- 2026-06-29 20:35 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.kurohicncr.top/Article/details/0254498.shtml)
+- 2026-06-29 20:34 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/10214.shtml)
+- 2026-06-29 20:29 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/534347753541.shtml)

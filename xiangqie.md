@@ -1,56 +1,60 @@
-# 下周解禁市值不足400亿元
+# 上海居民赴台湾本岛旅游何时实现？国台办回应
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-数据显示，下周A股限售股上市数量共计21.59亿股，以5月8日收盘价计算，市值约383.27亿元，均比本周三个交易日的总量有所增加。但从全年周数据来看，下周解禁规模属于偏低水平。从个股来看，有9家公司限售股解禁市值超过10亿元，分别是芯联集成-U、宏景科技、天振股份、曼恩斯特、众智科技、天工股份、万丰股份、欣灵电气、巨能股份。芯联集成解禁市值超百亿元芯联集成-U是下周解禁规模最
+中新社北京5月13日电 (徐雪莹 刘大炜)就上海居民赴台湾本岛旅游何时实现，国务院台办发言人张晗13日在北京应询表示，大陆方面已经宣布推动恢复上海市及福建省居民赴台(本岛)个人游试点，希望台湾有关方面顺应民意，尽早开放，为实现两岸人员往来交流正常化和各领域交流常态化创造条件。在当天举行的国台办例行新闻发布会上，张晗回答相关提问时说，4月29日，上海市文旅局就上海居民赴金门、马祖
 
 ## 正文
 
-数据显示，下周A股限售股上市数量共计21.59亿股，以5月8日收盘价计算，市值约383.27亿元，均比本周三个交易日的总量有所增加。
+中新社北京5月13日电 (徐雪莹 刘大炜)就上海居民赴台湾本岛旅游何时实现，国务院台办发言人张晗13日在北京应询表示，大陆方面已经宣布推动恢复上海市及福建省居民赴台(本岛)个人游试点，希望台湾有关方面顺应民意，尽早开放，为实现两岸人员往来交流正常化和各领域交流常态化创造条件。
 
-但从全年周数据来看，下周解禁规模属于偏低水平。
+在当天举行的国台办例行新闻发布会上，张晗回答相关提问时说，4月29日，上海市文旅局就上海居民赴金门、马祖旅游作出安排，这是今年2月国共两党智库论坛成果的具体落实。
 
-从个股来看，有9家公司限售股解禁市值超过10亿元，分别是芯联集成-U、宏景科技、天振股份、曼恩斯特、众智科技、天工股份、万丰股份、欣灵电气、巨能股份。
+近期两岸旅游业界已经开始互访考察，为后续两岸旅游交流合作铺路。
 
-芯联集成解禁市值超百亿元芯联集成-U是下周解禁规模最大的一家公司，其有14.4亿股限售股将于5月11日起上市流通，占总股本的17.18%，按周五收盘价计算，解禁市值为100.22亿元，此次解禁股份类型为首发原股东限售股份。
+今年“五一”期间大陆旅游市场火爆，厦金“小三通”客流爆满，金门成为大陆游客热门目的地。
 
-本次解除限售的股东共3名，分别为中芯国际控股有限公司、绍兴硅芯锐企业管理合伙企业和绍兴日芯锐企业管理合伙企业。
+张晗应询表示，大陆方面始终积极推动两岸人员往来正常化和各领域交流常态化，率先推出一系列便利措施，展现了诚意和善意。
 
-该公司在此前举办的投资者关系活动中表示，2026年一季度毛利率进一步提升，归母净利润亏损收窄至0.88亿元，同比减亏51.53%。
+岛内旅游业界多次呼吁民进党当局顺应民意，尽快解除对两岸旅游交流的限制。
 
-公司2026年一季度收入同比增长13.19%。
+民进党当局应正视岛内业界呼声和民众需求，摒弃政治操弄，尽快解除人为障碍，推动两岸旅游交流早日恢复正常。
 
-随着市场需求继续回升，今年二季度将有望保持收入环比实现持续提升。
+她提到，据不完全统计，今年“五一”假期期间，两岸“小三通”客运航线共计发送旅客约3.29万人次，同比增长10.57%。
 
 ## 相关推荐
 
-- 2026-06-29 20:32 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 20:42 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-29 20:29 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-29 20:43 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-29 20:20 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 20:41 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 20:37 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 20:41 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-29 20:38 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 20:38 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 20:35 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 20:53 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 20:53 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 20:47 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 20:47 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-29 20:41 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 20:46 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-29 20:49 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 20:33 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 20:51 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-29 20:47 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 20:45 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 20:42 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 20:25 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:47 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/331448206177.shtml)
-- 2026-06-29 20:18 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/1410617.shtml)
-- 2026-06-29 20:41 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/92947732295.shtml)
-- 2026-06-29 20:26 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/997118204.shtml)
-- 2026-06-29 20:32 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/565465.shtml)
-- 2026-06-29 20:46 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.kurohicncr.top/Article/details/33568459763.shtml)
-- 2026-06-29 20:25 - [北京市发布雷电黄色预警](http://www.share.minike.top/Article/details/51414.shtml)
-- 2026-06-29 20:40 - [恋与深空客服的回应](http://www.blog.kurohicncr.top/Article/details/9849976.shtml)
-- 2026-06-29 20:43 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/57118470181.shtml)
-- 2026-06-29 20:36 - [2026全国田径冠军赛江苏队4金收官](http://www.blog.minike.top/Article/details/488201128.shtml)
-- 2026-06-29 20:43 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/72569354.shtml)
-- 2026-06-29 20:38 - [周杰伦演唱会含星量](https://www.share.kurohicncr.top/Article/details/684355782238.shtml)
-- 2026-06-29 20:46 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.kurohicncr.top/Article/details/8302322104.shtml)
-- 2026-06-29 20:19 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/112663956771.shtml)
-- 2026-06-29 20:47 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/29684.shtml)
+- 2026-06-29 20:38 - [85花告别古偶](https://www.blog.minike.top/Article/details/637307219680.shtml)
+- 2026-06-29 20:53 - [爱奇艺抬高国剧新标尺](https://www.share.minike.top/Article/details/1786683.shtml)
+- 2026-06-29 20:43 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/54205739.shtml)
+- 2026-06-29 20:24 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/624810891460.shtml)
+- 2026-06-29 20:30 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/461492603205.shtml)
+- 2026-06-29 20:52 - [金牌调解](http://www.share.kurohicncr.top/Article/details/09467375859.shtml)
+- 2026-06-29 20:48 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.kurohicncr.top/Article/details/11246.shtml)
+- 2026-06-29 20:41 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/71577723093.shtml)
+- 2026-06-29 20:46 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/13514304.shtml)
+- 2026-06-29 20:29 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/59163.shtml)
+- 2026-06-29 20:46 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.blog.minike.top/Article/details/09472275.shtml)
+- 2026-06-29 20:37 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/791398021.shtml)
+- 2026-06-29 20:24 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/45600.shtml)
+- 2026-06-29 20:24 - [外交部谈对日出口管制措施](http://www.blog.minike.top/Article/details/913370.shtml)
+- 2026-06-29 20:45 - [金牌调解](http://www.blog.minike.top/Article/details/338812618534.shtml)

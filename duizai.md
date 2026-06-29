@@ -1,58 +1,61 @@
-# 山西大黄米首次出口
+# Ceribell上调2026年营收预期至1.12-1.16亿美元，谵妄监测新获CMS附加支付支持
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-中新网太原5月8日电 (记者 杨静)记者8日从太原海关获悉，经太原海关所属朔州海关检验检疫，一批产自山西朔州的10吨优质大黄米顺利发往海外市场。这是山西省大黄米首次走出国门。 朔州地处晋北黄土高原，昼夜温差大、土壤富含矿物质。得天独厚的自然条件为当地杂粮进军国际市场打下坚实基础。针对农产品各国进口标准不一、检测门槛高等难题，朔州海关为企业量身定制全流程帮扶方案，助力本土特色农产
+脑电监测技术公司Ceribell周一公布一季度财报，同时将全年营收预期上调至1.12亿至1.16亿美元。CMS近期提出的NTAP新规若获通过，其谵妄监测方案单例患者最高可获约2171美元的额外支付。 第一季度业绩超预期，全年指引上调 财报显示，公司一季度营收达2650万美元，同比增长29%，超出市场预期的2609万美元。产品营收2020万美元，订阅收入630万美元，均实现29%
 
 ## 正文
 
-中新网太原5月8日电 (记者 杨静)记者8日从太原海关获悉，经太原海关所属朔州海关检验检疫，一批产自山西朔州的10吨优质大黄米顺利发往海外市场。
+脑电监测技术公司Ceribell周一公布一季度财报，同时将全年营收预期上调至1.12亿至1.16亿美元。
 
-这是山西省大黄米首次走出国门。
+CMS近期提出的NTAP新规若获通过，其谵妄监测方案单例患者最高可获约2171美元的额外支付。
 
-朔州地处晋北黄土高原，昼夜温差大、土壤富含矿物质。
+第一季度业绩超预期，全年指引上调 财报显示，公司一季度营收达2650万美元，同比增长29%，超出市场预期的2609万美元。
 
-得天独厚的自然条件为当地杂粮进军国际市场打下坚实基础。
+产品营收2020万美元，订阅收入630万美元，均实现29%的同比增幅。
 
-针对农产品各国进口标准不一、检测门槛高等难题，朔州海关为企业量身定制全流程帮扶方案，助力本土特色农产品破解出口瓶颈。
+毛利率保持87%的高位。
 
-“以前我们只做国内市场，没有进出口业务经验，生产标准、产品检测、报关流程都不熟悉。
+基于一季度强劲表现，公司将2026年全年营收指引从此前的1.11亿至1.15亿美元上调至1.12亿至1.16亿美元，预计同比增长26%至30%。
 
-海关全程上门指导，帮助我们规避了很多外贸风险。
+CMS新规：谵妄监测或迎重大利好 CMS在其2027财年住院病人前瞻支付系统拟议规则中，提出对Ceribell谵妄监测方案给予最高约2171美元每例患者的NTAP附加支付，最终规则预计于2026年8月公布，若获通过将于10月1日生效。
 
-”此次大黄米出口企业负责人贾海银说。
+运营进展：客户基数扩大，新品启动商用 公司季度末活跃医院账户达680家，季度净增33家，为上市以来最高单季净增。
 
 ## 相关推荐
 
-- 2026-06-29 20:40 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 20:45 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-29 20:40 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 20:41 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-29 20:31 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 20:26 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-29 20:29 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-29 20:45 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 20:38 - [德国医生在没有空调的手术室工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-29 20:22 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-29 20:47 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-29 20:22 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 20:31 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-29 20:30 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 20:47 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-29 20:38 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 20:53 - [海清4次陪跑白玉兰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-29 20:31 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-29 20:36 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 20:37 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 20:49 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-29 20:43 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 20:42 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 20:31 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 20:25 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-29 20:37 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-29 20:48 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:31 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/761361616854.shtml)
-- 2026-06-29 20:47 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/5793447687.shtml)
-- 2026-06-29 20:38 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/34394445.shtml)
-- 2026-06-29 20:20 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/358611.shtml)
-- 2026-06-29 20:43 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/24025166828.shtml)
-- 2026-06-29 20:33 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/302705.shtml)
-- 2026-06-29 20:37 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/8381300.shtml)
-- 2026-06-29 20:40 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/92600.shtml)
-- 2026-06-29 20:40 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/83829.shtml)
-- 2026-06-29 20:24 - [刘冰任河南南阳市代市长](http://www.share.minike.top/Article/details/374447497772.shtml)
-- 2026-06-29 20:46 - [男子40度高温下骑行严重晒伤](https://www.blog.kurohicncr.top/Article/details/40014.shtml)
-- 2026-06-29 20:30 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.share.kurohicncr.top/Article/details/556043697963.shtml)
-- 2026-06-29 20:27 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/298091117212.shtml)
-- 2026-06-29 20:31 - [周生如故](http://www.blog.minike.top/Article/details/27272.shtml)
-- 2026-06-29 20:32 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/02268.shtml)
+- 2026-06-29 20:24 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/86011633.shtml)
+- 2026-06-29 20:52 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/474126412.shtml)
+- 2026-06-29 20:33 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/0079333790.shtml)
+- 2026-06-29 20:44 - [大学专业未来如何洗牌](http://www.share.kurohicncr.top/Article/details/92498558434.shtml)
+- 2026-06-29 20:47 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/498443412679.shtml)
+- 2026-06-29 20:34 - [美人鱼](https://www.share.minike.top/Article/details/806884544888.shtml)
+- 2026-06-29 20:25 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/579688094047.shtml)
+- 2026-06-29 20:43 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/55307429331.shtml)
+- 2026-06-29 20:36 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.kurohicncr.top/Article/details/6524896925.shtml)
+- 2026-06-29 20:50 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/14217255501.shtml)
+- 2026-06-29 20:28 - [恋与深空7天掉粉超50万](https://www.share.minike.top/Article/details/8926081.shtml)
+- 2026-06-29 20:45 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.share.kurohicncr.top/Article/details/721731.shtml)
+- 2026-06-29 20:43 - [高质量发展看新疆](https://www.blog.minike.top/Article/details/532141320243.shtml)
+- 2026-06-29 20:45 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/31938802254.shtml)
+- 2026-06-29 20:52 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/925241.shtml)

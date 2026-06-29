@@ -1,59 +1,59 @@
-# 地方动态 | 许昆林在沈阳调研数字经济发展
+# 汉莎航空拟斥资3.25亿欧元增持意航股份，夺取多数控股权
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国家数据局 5月6日，辽宁省委书记许昆林深入沈阳市的园区、企业，专题调研数字经济发展。他强调，要深入学习贯彻习近平总书记关于数字经济发展的重要论述和关于辽宁的重要讲话重要指示精神，抢抓人工智能发展机遇，强化应用牵引、场景赋能、生态协同，加快壮大数字核心产业，大力推动数实深度融合，更好支撑新质生产力发展
+德国汉莎航空集团（Deutsche Lufthansa）周二宣布，将于下月行使认购权，以3.25亿欧元（约合3.83亿美元）的价格额外购入意大利航空（ITA Airways）49%的股份。交易完成后，汉莎航空持有的意航股份将从目前的41%增至90%，正式实现对这家意大利国家旗舰航空公司的多数控股。 根据双方此前达成的协议，汉莎航空于2023年6月从意大利财政部手中购入意航41%
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+德国汉莎航空集团（Deutsche Lufthansa）周二宣布，将于下月行使认购权，以3.25亿欧元（约合3.83亿美元）的价格额外购入意大利航空（ITA Airways）49%的股份。
 
-来源：国家数据局 5月6日，辽宁省委书记许昆林深入沈阳市的园区、企业，专题调研数字经济发展。
+交易完成后，汉莎航空持有的意航股份将从目前的41%增至90%，正式实现对这家意大利国家旗舰航空公司的多数控股。
 
-他强调，要深入学习贯彻习近平总书记关于数字经济发展的重要论述和关于辽宁的重要讲话重要指示精神，抢抓人工智能发展机遇，强化应用牵引、场景赋能、生态协同，加快壮大数字核心产业，大力推动数实深度融合，更好支撑新质生产力发展。
+根据双方此前达成的协议，汉莎航空于2023年6月从意大利财政部手中购入意航41%的股份，作为意政府逐步退出航空领域、推动民航私有化进程的核心步骤。
 
-省委书记许昆林来到沈阳国际软件园，了解园区运营模式、产业发展等情况。
+据悉，意大利政府目前仍保留意航10%的股份，但汉莎航空已明确表示，计划在2028年进一步收购剩余股权，最终实现全资持股。
 
-沈阳国际软件园是软件和新一代信息技术产业的专业化园区，入驻企业1750余家，成功培育412家国家级高新技术企业。
+汉莎航空首席执行官卡斯滕·施波尔（Carsten Spohr）指出，除受制于监管审批的北大西洋航线外，意航目前与客户相关的业务接口已基本完成整合。
 
-许昆林深入了解园区运营模式、服务功能和产业发展等情况，察看二期项目——数字经济产业园建设进展，希望园区立足全生命周期服务企业成长，构建创新链、产业链、资金链、人才链深度融合的孵化赋能体系，绘制产业图谱，精准招引、适配项目企业，积极引入创投基金等耐心资本，实现“上下楼就是上下游、产业园就是生态圈”。
+施波尔强调，交易完成后，意航将在组织架构与财务结算上完全并入汉莎体系，成为继奥地利航空、瑞士国际航空和布鲁塞尔航空之后，汉莎航空集团旗下的第五家网络航空公司。
 
-省委书记许昆林在沈阳美行科技有限公司与研发人员亲切交流。
+作为欧洲重要的民航枢纽，意大利是汉莎航空除美国及本土市场外最大的海外客源地。
 
-随后，许昆林来到园区内的沈阳美行科技有限公司，察看智能网联导航、“车路云一体化”以及法库低空经济先行先试项目等产品，了解技术创新、产业研发推广情况，鼓励企业深耕车路空城多场景融合创新，积极应用人工智能等新技术，以优质产品和服务不断提高核心竞争力。
+分析认为，深化控股意航将显著提升汉莎在美洲及亚洲航线网路中的掌控力。
 
 ## 相关推荐
 
-- 2026-06-29 20:22 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-29 20:44 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-29 20:40 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-29 20:34 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-29 20:18 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 20:36 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-29 20:39 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-29 20:36 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-29 20:41 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-29 20:35 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-29 20:38 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-29 20:32 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-29 20:26 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 20:53 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-29 20:36 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 20:52 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 20:48 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 20:48 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-29 20:29 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-29 20:51 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-29 20:36 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 20:38 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 20:42 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 20:32 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 20:46 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 20:46 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:22 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.minike.top/Article/details/277403182041.shtml)
-- 2026-06-29 20:45 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/143067.shtml)
-- 2026-06-29 20:38 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.minike.top/Article/details/4245986551.shtml)
-- 2026-06-29 20:21 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.minike.top/Article/details/170495581783.shtml)
-- 2026-06-29 20:36 - [美人鱼](https://www.share.minike.top/Article/details/35028659941.shtml)
-- 2026-06-29 20:25 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/151521419593.shtml)
-- 2026-06-29 20:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/8602496453.shtml)
-- 2026-06-29 20:20 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/23395.shtml)
-- 2026-06-29 20:25 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/45887464.shtml)
-- 2026-06-29 20:46 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/629983284.shtml)
-- 2026-06-29 20:34 - [互助版模拟高考志愿填报](http://www.share.minike.top/Article/details/86791551738.shtml)
-- 2026-06-29 20:48 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/2846670139.shtml)
-- 2026-06-29 20:37 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/402313036.shtml)
-- 2026-06-29 20:42 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/94280403.shtml)
-- 2026-06-29 20:26 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/84706006.shtml)
+- 2026-06-29 20:27 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/661022.shtml)
+- 2026-06-29 20:28 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/8806747.shtml)
+- 2026-06-29 20:32 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/58183816903.shtml)
+- 2026-06-29 20:37 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/901989357384.shtml)
+- 2026-06-29 20:47 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/5263426.shtml)
+- 2026-06-29 20:34 - [主力抛售电子和通信板块](https://www.share.minike.top/Article/details/354341646.shtml)
+- 2026-06-29 20:48 - [伊朗足球队将启程回国](http://www.blog.minike.top/Article/details/78684311412.shtml)
+- 2026-06-29 20:34 - [东宫女主是不是顶级恋爱脑](https://www.blog.kurohicncr.top/Article/details/7139389.shtml)
+- 2026-06-29 20:51 - [我和我的家乡](https://www.blog.minike.top/Article/details/6327077898.shtml)
+- 2026-06-29 20:24 - [运-20网宣片中的“小六”或是六代机](http://www.blog.kurohicncr.top/Article/details/5770496.shtml)
+- 2026-06-29 20:45 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/6545612.shtml)
+- 2026-06-29 20:45 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/66479860.shtml)
+- 2026-06-29 20:38 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/17048.shtml)
+- 2026-06-29 20:42 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/59635021.shtml)
+- 2026-06-29 20:38 - [章若楠包场白敬亭特立独行](http://www.share.kurohicncr.top/Article/details/188945507.shtml)

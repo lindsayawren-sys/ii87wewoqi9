@@ -1,57 +1,60 @@
-# 武汉布局182个重点片区推动城市更新
+# 72家人身险公司一季度偿付能力报告出炉 69家达标
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-中新网武汉5月8日电 (记者 张芹)武汉将分类推进实施182个市级重点更新片区，以城市更新促进城市和经济发展方式双转型。在湖北省政府新闻办8日召开的新闻发布会上，武汉市住房和城市更新局局长蔡松介绍，武汉力争到2030年基本建成现代化人民城市，城市更新实现系统性突破。 当前，武汉市正推动城市更新从“点状改造”到“系统更新”，带动城市发展方式转变。 蔡松介绍，武汉将编制《武汉市城市
+本报记者 冷翠华 据《证券日报》记者统计，截至5月13日发稿，已有72家人身险公司发布今年一季度的偿付能力报告。整体来看，在偿付能力过渡期政策已经结束的情况下，大部分人身险公司整体偿付能力守住了“达标线”，但同时超八成人身险公司偿付能力充足率环比下滑，部分公司偿付能力面临较大压力。 业内人士认为，未来人身险行业整体的资本补充需求仍然较大，要用好发债、增资扩股等外源性增资手段。同
 
 ## 正文
 
-中新网武汉5月8日电 (记者 张芹)武汉将分类推进实施182个市级重点更新片区，以城市更新促进城市和经济发展方式双转型。
+本报记者 冷翠华 据《证券日报》记者统计，截至5月13日发稿，已有72家人身险公司发布今年一季度的偿付能力报告。
 
-在湖北省政府新闻办8日召开的新闻发布会上，武汉市住房和城市更新局局长蔡松介绍，武汉力争到2030年基本建成现代化人民城市，城市更新实现系统性突破。
+整体来看，在偿付能力过渡期政策已经结束的情况下，大部分人身险公司整体偿付能力守住了“达标线”，但同时超八成人身险公司偿付能力充足率环比下滑，部分公司偿付能力面临较大压力。
 
-当前，武汉市正推动城市更新从“点状改造”到“系统更新”，带动城市发展方式转变。
+业内人士认为，未来人身险行业整体的资本补充需求仍然较大，要用好发债、增资扩股等外源性增资手段。
 
-蔡松介绍，武汉将编制《武汉市城市更新“十五五”规划》，以小片区微更新为切口，遵循“单元划小、分类施策、滚动实施”原则，围绕“沿江沿路环湖提质、三城三镇三生融合”空间结构，健全“专项规划—片区策划—项目实施方案”实施体系。
+同时，要从调整产品结构、增加投资收益等方面优化公司经营，增强内源性资本补充能力，保证偿付能力达标，确保公司稳健经营。
 
-根据规划，武汉计划到2027年，完成既有建筑改造300余万平方米，筑牢居住安全底线；改造老旧小区300个，新增完整社区173个，打造高品质居住单元；重点推进解放大道等老旧街区更新改造，打造汉口百年风华等三条文化游览轴线，活化16片历史街区；推进北湖、汉江湾等老旧厂区改造，植入新业态，实现产业升级与遗产保护双赢；改造城中村约560万平方米，完善基础设施。
+多数公司在“达标线”之上 偿付能力是衡量保险公司偿还债务能力的核心指标。
 
-同时，提升建筑品质、小区宜居性、社区服务配套和城区整体品质。
+根据《保险公司偿付能力管理规定》，偿付能力达标的险企须同时满足三个条件：核心偿付能力充足率不低于50%；综合偿付能力充足率不低于100%；风险综合评级在B类及以上。
 
-围绕“钱、地、人、手续”等难题，武汉探索复合开发模式，通过设立城市更新基金、优化土地供给、实行并联绿色审批等举措，破解城市更新痛点堵点。
+保险公司偿付能力监管规则（Ⅱ）（业界称“‘偿二代’二期”）自2022年开始实施，较此前的监管规则更加严格。
 
-值得关注的是，6月1日《武汉市城市更新条例》将正式施行，以法治保障护航城市更新高质量发展。
+不过，保险公司可以根据自身需要向监管部门申请，对受影响较大的风险因子申请暂缓执行“偿二代”二期规则。
 
 ## 相关推荐
 
-- 2026-06-29 20:23 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-29 20:38 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 20:35 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-29 20:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-29 20:30 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 20:25 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-29 20:29 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-29 20:22 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-29 20:38 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-29 20:29 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-29 20:31 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-29 20:30 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 20:33 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 20:28 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 20:31 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-29 20:45 - [本届世界杯已有5人涉性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-29 20:31 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-29 20:45 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 20:39 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-29 20:53 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 20:48 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-29 20:40 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 20:44 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 20:52 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 20:45 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:36 - [女心理师](https://www.blog.minike.top/Article/details/7528328.shtml)
-- 2026-06-29 20:19 - [哈兰德玩游戏连女友都不让着](http://www.blog.kurohicncr.top/Article/details/80235.shtml)
-- 2026-06-29 20:30 - [急先锋](http://www.share.minike.top/Article/details/416842420936.shtml)
-- 2026-06-29 20:27 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/5777915146.shtml)
-- 2026-06-29 20:35 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/12375889.shtml)
-- 2026-06-29 20:33 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/889983829.shtml)
-- 2026-06-29 20:47 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/305167251.shtml)
-- 2026-06-29 20:47 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/067222496015.shtml)
-- 2026-06-29 20:28 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.minike.top/Article/details/3988543253.shtml)
-- 2026-06-29 20:42 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/46598727.shtml)
-- 2026-06-29 20:26 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/8716937740.shtml)
-- 2026-06-29 20:18 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/6666150531.shtml)
-- 2026-06-29 20:29 - [欧洲多国高温突破40摄氏度](https://www.share.minike.top/Article/details/1265390.shtml)
-- 2026-06-29 20:29 - [穆祉丞东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/6448462.shtml)
-- 2026-06-29 20:28 - [半导体和股市为何没让韩国人起飞](http://www.blog.minike.top/Article/details/1083637705.shtml)
+- 2026-06-29 20:39 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.kurohicncr.top/Article/details/34170.shtml)
+- 2026-06-29 20:44 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/53442.shtml)
+- 2026-06-29 20:33 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/55121377139.shtml)
+- 2026-06-29 20:43 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/3750761872.shtml)
+- 2026-06-29 20:27 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/443415537657.shtml)
+- 2026-06-29 20:32 - [一生一世](https://www.blog.kurohicncr.top/Article/details/59399851599.shtml)
+- 2026-06-29 20:44 - [北京发布地质灾害气象风险蓝色预警](https://www.blog.kurohicncr.top/Article/details/681785572.shtml)
+- 2026-06-29 20:28 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/10029129376.shtml)
+- 2026-06-29 20:45 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/653148.shtml)
+- 2026-06-29 20:52 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/596607.shtml)
+- 2026-06-29 20:24 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/3078005.shtml)
+- 2026-06-29 20:41 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/62950519867.shtml)
+- 2026-06-29 20:29 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/23616.shtml)
+- 2026-06-29 20:24 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/2237120.shtml)
+- 2026-06-29 20:36 - [逃狱兄弟](https://www.blog.minike.top/Article/details/601183.shtml)

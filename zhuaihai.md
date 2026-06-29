@@ -1,58 +1,57 @@
-# 三部门联合印发《智能体规范应用与创新发展实施意见》
+# 2026年浙江省反诈宣防百日攻坚行动启动
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-《智能体规范应用与创新发展实施意见》答记者问 近日，国家网信办、国家发展改革委、工业和信息化部联合印发《智能体规范应用与创新发展实施意见》（以下简称《实施意见》）。《实施意见》旨在落实国务院《关于深入实施“人工智能+”行动的意见》，促进智能体规范应用与创新发展。 《实施意见》提出，智能体是具备自主感知、记忆、决策、交互与执行能力的智能系统，是人工智能产品及服务的重要形态。随着大
+中新网杭州5月13日电 (钱晨菲 郑小婷 张范)5月13日，2026反诈宣防百日攻坚行动暨“校园无诈·守护前程”主题宣讲活动在浙江大学启动。本次活动由浙江省打击治理电信网络诈骗工作协调机制指导，浙江省委宣传部、省教育厅、省公安厅、团省委联合主办，旨在持续筑牢该省校园反诈安全防线，全力护航青年健康成长。 2025年，浙江公安纵深推进打击治理电信网络诈骗违法犯罪工作，全年实现电诈案
 
 ## 正文
 
-《智能体规范应用与创新发展实施意见》答记者问 近日，国家网信办、国家发展改革委、工业和信息化部联合印发《智能体规范应用与创新发展实施意见》（以下简称《实施意见》）。
+中新网杭州5月13日电 (钱晨菲 郑小婷 张范)5月13日，2026反诈宣防百日攻坚行动暨“校园无诈·守护前程”主题宣讲活动在浙江大学启动。
 
-《实施意见》旨在落实国务院《关于深入实施“人工智能+”行动的意见》，促进智能体规范应用与创新发展。
+本次活动由浙江省打击治理电信网络诈骗工作协调机制指导，浙江省委宣传部、省教育厅、省公安厅、团省委联合主办，旨在持续筑牢该省校园反诈安全防线，全力护航青年健康成长。
 
-《实施意见》提出，智能体是具备自主感知、记忆、决策、交互与执行能力的智能系统，是人工智能产品及服务的重要形态。
+2025年，浙江公安纵深推进打击治理电信网络诈骗违法犯罪工作，全年实现电诈案件受理数同比下降15.98%、案损数同比下降36.04%、重大案件发案数同比下降66.89%，累计阻断、追回被骗资金超125亿元。
 
-随着大模型等新一代人工智能技术迅猛发展，智能体正加速与网络空间、物理世界深度融合，深刻改变人类生产生活方式和社会治理模式。
+特别是去年12月1日，全国首部反诈地方性法规——《浙江省实施〈中华人民共和国反电信网络诈骗法〉办法》正式施行，反诈宣传教育工作被专门纳入实施办法第二章，以刚性制度为反诈工作赋能。
 
-《实施意见》明确智能体发展要坚持安全可控、规范有序、创新驱动、应用牵引的基本原则，并提出了4个方面举措：一是夯实发展基础，完善技术底座，构建标准协议。
+此次反诈宣防百日攻坚行动的启动，标志着浙江打击治理电信网络诈骗犯罪工作进入新一轮集中攻坚阶段。
 
-二是守牢安全底线，明确产品准则，防范安全风险，完善治理体系，强化行业自律。
+本次活动以“沉浸互动+启动仪式+主题宣讲+传播转化”为主线，分为外场互动与内场宣讲。
 
-三是强化应用牵引，围绕科学研究、产业发展、提振消费、民生福祉、社会治理等方向，提出19个典型应用场景。
+在“防诈充电站”互动区，游园集章、答题互动等边玩边学的活动吸引了大量师生驻足参与，寓教于乐的宣传方式让反诈知识入脑入心。
 
-四是建设创新生态，促进产业合作，强化应用推广。
+启动仪式发布百支反诈宣防青年志愿者队伍、反诈宣防进百所学校名单，以百校联动、百队同行来推动反诈宣传深入校园、走进青年、深入人心。
 
 ## 相关推荐
 
-- 2026-06-29 20:20 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 20:20 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-29 20:28 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-29 20:24 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-29 20:29 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 20:28 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 20:30 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-29 20:45 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-29 20:41 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-29 20:32 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-29 20:36 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-29 20:37 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 20:29 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-29 20:28 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 20:42 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-29 20:43 - [店员光脚踩入盆中清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-29 20:53 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 20:25 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 20:50 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-29 20:46 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-29 20:31 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-29 20:51 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-29 20:53 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:41 - [东方风云榜](http://www.share.minike.top/Article/details/2146594.shtml)
-- 2026-06-29 20:23 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/7986893943.shtml)
-- 2026-06-29 20:27 - [送你一朵小红花](https://www.blog.minike.top/Article/details/37413427.shtml)
-- 2026-06-29 20:35 - [吴建豪和老婆差20岁](http://www.share.kurohicncr.top/Article/details/70627512775.shtml)
-- 2026-06-29 20:28 - [哈兰德吃饭被镜中自己吓到](https://www.blog.kurohicncr.top/Article/details/189370838.shtml)
-- 2026-06-29 20:31 - [孙俪开QQ的蛮好生活](http://www.blog.kurohicncr.top/Article/details/334944839.shtml)
-- 2026-06-29 20:38 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/526618.shtml)
-- 2026-06-29 20:38 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/474773226726.shtml)
-- 2026-06-29 20:19 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/00181.shtml)
-- 2026-06-29 20:40 - [TI2026参赛战队出炉](http://www.share.kurohicncr.top/Article/details/749317662.shtml)
-- 2026-06-29 20:27 - [女心理师](http://www.share.kurohicncr.top/Article/details/0091944.shtml)
-- 2026-06-29 20:27 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/13594094493.shtml)
-- 2026-06-29 20:30 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/83492.shtml)
-- 2026-06-29 20:30 - [孙俪开QQ的蛮好生活](https://www.blog.kurohicncr.top/Article/details/609300789.shtml)
-- 2026-06-29 20:46 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/35989370337.shtml)
+- 2026-06-29 20:41 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/531849149.shtml)
+- 2026-06-29 20:28 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/1228834.shtml)
+- 2026-06-29 20:43 - [一生一世](http://www.share.minike.top/Article/details/4986730.shtml)
+- 2026-06-29 20:46 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/78785462942.shtml)
+- 2026-06-29 20:25 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/0529132.shtml)
+- 2026-06-29 20:31 - [朱雀三号完成静态点火试验](https://www.share.minike.top/Article/details/349955.shtml)
+- 2026-06-29 20:30 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/13679.shtml)
+- 2026-06-29 20:49 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/876646.shtml)
+- 2026-06-29 20:39 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/635034.shtml)
+- 2026-06-29 20:32 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/35265729563.shtml)
+- 2026-06-29 20:50 - [锐评白玉兰提名片段](http://www.share.minike.top/Article/details/8258155293.shtml)
+- 2026-06-29 20:50 - [上世纪90年代玩具成新宠](http://www.blog.minike.top/Article/details/7369784.shtml)
+- 2026-06-29 20:25 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/311719.shtml)
+- 2026-06-29 20:48 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.minike.top/Article/details/8305659.shtml)
+- 2026-06-29 20:48 - [剧宣天才虞书欣发力了](http://www.blog.kurohicncr.top/Article/details/650159646203.shtml)

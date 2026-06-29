@@ -1,59 +1,57 @@
-# 午盘：美股涨跌不一 纳指一度突破26000点
+# 英国首相斯塔默的对手斯特里廷准备辞职 并发起对领导权的争夺
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-北京时间5月8日凌晨，美股周四午盘涨跌不一。纳指一度突破26000点。布伦特原油连续第三天下跌。交易员正在等待有关潜在美伊和平协议的最新进展，该协议可能重新开放通过霍尔木兹海峡的石油运输。 道指跌121.39点，跌幅为0.24%，报49789.20点；纳指涨32.25点，涨幅为0.12%，报25871.19点；标普500指数跌7.46点，跌幅为0.10%，报7357.66点。
+英国卫生大臣韦斯·斯特里廷的盟友表示，他准备最早周四辞去政府职务，对首相基尔·斯塔默的领导地位发起挑战。 斯特里廷周三上午在唐宁街10号与斯塔默进行了短暂会面。他的盟友称，斯特里廷很可能在周四辞去内阁职务，并试图发起对领导权的争夺。因涉及私下讨论内容，他们要求匿名。 受泰晤士报报道的影响，英国国债和英镑下跌。英国10年期国债收益率持稳在5.10%，此前一度跌至5.05%。 斯特
 
 ## 正文
 
-北京时间5月8日凌晨，美股周四午盘涨跌不一。
+英国卫生大臣韦斯·斯特里廷的盟友表示，他准备最早周四辞去政府职务，对首相基尔·斯塔默的领导地位发起挑战。
 
-纳指一度突破26000点。
+斯特里廷周三上午在唐宁街10号与斯塔默进行了短暂会面。
 
-布伦特原油连续第三天下跌。
+他的盟友称，斯特里廷很可能在周四辞去内阁职务，并试图发起对领导权的争夺。
 
-交易员正在等待有关潜在美伊和平协议的最新进展，该协议可能重新开放通过霍尔木兹海峡的石油运输。
+因涉及私下讨论内容，他们要求匿名。
 
-道指跌121.39点，跌幅为0.24%，报49789.20点；纳指涨32.25点，涨幅为0.12%，报25871.19点；标普500指数跌7.46点，跌幅为0.10%，报7357.66点。
+受泰晤士报报道的影响，英国国债和英镑下跌。
 
-布伦特原油交投于每桶99美元附近，延续前两个交易日累计12%的跌势，原因是市场越来越相信中东协议已近在眼前。
+英国10年期国债收益率持稳在5.10%，此前一度跌至5.05%。
 
-6月交割的WTI原油期货下跌2.5%，至每桶92.79美元。
+斯特里廷的发言人没有否认他正准备辞职并挑战斯塔默。
 
-布伦特原油本周累计下跌逾10%。
+他们说斯特里廷不会发表任何言论，以免分散人们对查尔斯三世国王在议会宣布政府立法议程的注意力。
 
 ## 相关推荐
 
-- 2026-06-29 20:29 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-29 20:43 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 20:45 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 20:30 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-29 20:22 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 20:38 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-29 20:38 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 20:41 - [海清4次陪跑白玉兰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 20:20 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-29 20:42 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 20:25 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 20:32 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-29 20:36 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 20:43 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-29 20:37 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-29 20:45 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 20:44 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 20:32 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 20:52 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 20:53 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 20:54 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-29 20:53 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 20:27 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 20:51 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:29 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/05715569647.shtml)
-- 2026-06-29 20:25 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/04026982.shtml)
-- 2026-06-29 20:46 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/74903.shtml)
-- 2026-06-29 20:28 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/319002129.shtml)
-- 2026-06-29 20:28 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/71380.shtml)
-- 2026-06-29 20:36 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/4482510931.shtml)
-- 2026-06-29 20:47 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/19475150.shtml)
-- 2026-06-29 20:38 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.blog.minike.top/Article/details/778348741.shtml)
-- 2026-06-29 20:39 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/8274935985.shtml)
-- 2026-06-29 20:27 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/708666.shtml)
-- 2026-06-29 20:27 - [欧洲安装一台空调要花近8000元](https://www.blog.kurohicncr.top/Article/details/314601034.shtml)
-- 2026-06-29 20:43 - [LPL第三赛段赛制公布](https://www.blog.minike.top/Article/details/36010314.shtml)
-- 2026-06-29 20:24 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/152466.shtml)
-- 2026-06-29 20:39 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.blog.minike.top/Article/details/71680626355.shtml)
-- 2026-06-29 20:20 - [李思潼回应运气好演《给阿嬷的情书》](https://www.share.minike.top/Article/details/6863233802.shtml)
+- 2026-06-29 20:52 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.minike.top/Article/details/91523642681.shtml)
+- 2026-06-29 20:32 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/2392993.shtml)
+- 2026-06-29 20:51 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/2489246.shtml)
+- 2026-06-29 20:33 - [东方风云榜直播](http://www.share.kurohicncr.top/Article/details/526496659803.shtml)
+- 2026-06-29 20:27 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.minike.top/Article/details/963849571.shtml)
+- 2026-06-29 20:43 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/38537050239.shtml)
+- 2026-06-29 20:31 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/466404636.shtml)
+- 2026-06-29 20:39 - [曝屠颖去世和酒店失责有关](https://www.share.minike.top/Article/details/90405.shtml)
+- 2026-06-29 20:41 - [Ella回应SHE何时合体](https://www.blog.kurohicncr.top/Article/details/48996605333.shtml)
+- 2026-06-29 20:51 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/9024923767.shtml)
+- 2026-06-29 20:53 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/689122490422.shtml)
+- 2026-06-29 20:53 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/4341349.shtml)
+- 2026-06-29 20:49 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/93095.shtml)
+- 2026-06-29 20:46 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/250018298278.shtml)
+- 2026-06-29 20:36 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/94086.shtml)

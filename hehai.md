@@ -1,59 +1,60 @@
-# 山高水远 忠诚作答——记独龙江边境派出所的戍边岁月
+# 毕马威中国蔡伟：四大动能支撑二季度中国经济延续稳健复苏
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-高黎贡山云雾翻涌，独龙江水奔腾不息。在云南贡山独龙族怒族自治县独龙江乡，有一支戍边队伍扎根于此七十四载，用青春与热血守护着115公里边境线，用坚守与担当温暖着独龙族群众，浇筑起一座座警民同心丰碑。独龙族，是我国人口较少民族之一，更是经历“一步跨千年”奇迹的民族。从昔日溜索惊险过江，到如今公路通达每一个村庄；从往昔刀耕火种的艰辛岁月，到整族脱贫的历史性转变——在此过程中，云南出入
+中新社北京5月13日电 题：毕马威中国蔡伟：四大动能支撑二季度中国经济延续稳健复苏 中新社记者 庞无忌 一季度中国经济起步有力，GDP(国内生产总值)同比增长5.0%，站稳全年增长目标上沿。尽管面临地缘冲突延宕升级、国内供强需弱矛盾等的扰动，毕马威中国经济研究院院长蔡伟近日在接受中新社记者专访时指出，但在外需韧性、服务消费拉动、新动能加速成长、政策靠前发力等多重因素支撑下，二季
 
 ## 正文
 
-高黎贡山云雾翻涌，独龙江水奔腾不息。
+中新社北京5月13日电 题：毕马威中国蔡伟：四大动能支撑二季度中国经济延续稳健复苏 中新社记者 庞无忌 一季度中国经济起步有力，GDP(国内生产总值)同比增长5.0%，站稳全年增长目标上沿。
 
-在云南贡山独龙族怒族自治县独龙江乡，有一支戍边队伍扎根于此七十四载，用青春与热血守护着115公里边境线，用坚守与担当温暖着独龙族群众，浇筑起一座座警民同心丰碑。
+尽管面临地缘冲突延宕升级、国内供强需弱矛盾等的扰动，毕马威中国经济研究院院长蔡伟近日在接受中新社记者专访时指出，但在外需韧性、服务消费拉动、新动能加速成长、政策靠前发力等多重因素支撑下，二季度中国经济有望延续稳健复苏态势。
 
-独龙族，是我国人口较少民族之一，更是经历“一步跨千年”奇迹的民族。
+首先，在一季度表现强劲的外贸预计仍有韧性。
 
-从昔日溜索惊险过江，到如今公路通达每一个村庄；从往昔刀耕火种的艰辛岁月，到整族脱贫的历史性转变——在此过程中，云南出入境边防检查总站怒江边境管理支队独龙江边境派出所的民警们始终与独龙族群众肩并肩、心连心，风雨同舟，命运与共。
+日前，毕马威发布的二季度《中国经济观察》报告认为，二季度外需韧性仍存。
 
-从1952年的边防哨所，到如今的边境派出所，一代代戍边民警接力传承“扎根独龙江、一心为人民”的铮铮誓言，在绝壁峡谷间筑起坚不可摧的边境屏障，在深山村寨里结下血浓于水的警民深情，成为独龙江畔永不熄灭的“平安灯”、群众最可信赖的贴心人。
+中国一季度出口同比增长11.9%；4月出口同比增速加快至14.1%，较3月显著提升，增幅超市场预期。
 
-“人民的需要，就是我们的责任！
+蔡伟表示，全球人工智能产业链的高景气，持续拉动中国集成电路等产品出口。
 
-”如今，这群戍边人再次许下承诺。
+同时，全球能源转型趋势推动“新三样”(电动载人汽车、锂电池和太阳能电池)等产品出口保持较高增长。
 
-青春许国守边关 心怀家国，前赴后继，一往无前。
+从4月PMI(制造业采购经理指数)等先行指标看，全球需求保持偏强格局，叠加国内完备的产业配套优势，即便存在地缘风险扰动，二季度外贸仍将维持结构性韧性。
 
 ## 相关推荐
 
-- 2026-06-29 20:39 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-29 20:28 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-29 20:20 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-29 20:31 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-29 20:27 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-29 20:32 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-29 20:46 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-29 20:36 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-29 20:37 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 20:33 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-29 20:20 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 20:21 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-29 20:27 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 20:46 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-29 20:47 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-29 20:39 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 20:25 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 20:25 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-29 20:46 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-29 20:31 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 20:51 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-29 20:50 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 20:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 20:51 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 20:27 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-29 20:42 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 20:45 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:39 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/516772890252.shtml)
-- 2026-06-29 20:19 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.minike.top/Article/details/79064.shtml)
-- 2026-06-29 20:24 - [欧洲极端高温如何影响家电股](https://www.share.kurohicncr.top/Article/details/52983056.shtml)
-- 2026-06-29 20:43 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/744795761.shtml)
-- 2026-06-29 20:41 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/988276971.shtml)
-- 2026-06-29 20:21 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/14601.shtml)
-- 2026-06-29 20:20 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/8144658.shtml)
-- 2026-06-29 20:37 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/68812.shtml)
-- 2026-06-29 20:27 - [锐评T1零封KC](https://www.share.minike.top/Article/details/90838.shtml)
-- 2026-06-29 20:31 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/97682597485.shtml)
-- 2026-06-29 20:26 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/9014903599.shtml)
-- 2026-06-29 20:46 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/49394777850.shtml)
-- 2026-06-29 20:20 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/330171516.shtml)
-- 2026-06-29 20:23 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/766507424795.shtml)
-- 2026-06-29 20:41 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/2897552.shtml)
+- 2026-06-29 20:51 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/34731370.shtml)
+- 2026-06-29 20:52 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/57254.shtml)
+- 2026-06-29 20:44 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/6380022.shtml)
+- 2026-06-29 20:36 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/6536471875.shtml)
+- 2026-06-29 20:26 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/504014.shtml)
+- 2026-06-29 20:44 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/864511412.shtml)
+- 2026-06-29 20:26 - [法国紧急下单3万台空调](https://www.share.kurohicncr.top/Article/details/168685.shtml)
+- 2026-06-29 20:52 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/2030540485.shtml)
+- 2026-06-29 20:38 - [朱雀三号完成静态点火试验](https://www.blog.minike.top/Article/details/63793827.shtml)
+- 2026-06-29 20:26 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/97068674166.shtml)
+- 2026-06-29 20:36 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/82302.shtml)
+- 2026-06-29 20:43 - [任泽平：AI浪潮刚刚开始](https://www.blog.minike.top/Article/details/5560232965.shtml)
+- 2026-06-29 20:50 - [逃狱兄弟](http://www.share.minike.top/Article/details/812050852294.shtml)
+- 2026-06-29 20:51 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/844624.shtml)
+- 2026-06-29 20:43 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/819119706961.shtml)

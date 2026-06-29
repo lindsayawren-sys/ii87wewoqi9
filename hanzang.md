@@ -1,56 +1,46 @@
-# 伊朗蜂群快艇编队持续施压美国海军
+# 中美在韩国举行经贸磋商
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-美伊近期交火事件，凸显出一个长期存在的军事难题：伊朗大批小型快速攻击快艇，频繁骚扰美国海军、袭扰商业航运船只。 在美以军事行动初期，美军空袭摧毁了伊朗多艘大型军舰。但伊朗仍保有大量小型船只；这类舰艇可加装肩扛式导弹与机枪，也能用于布设海军水雷。 据美国中央司令部消息，伊朗正是动用此类快艇，在霍尔木兹海峡向美国导弹驱逐舰发起袭击。至少一艘护卫舰遭到快艇火力打击。作为反击，美军军用
+中新社首尔5月13日电 当地时间5月13日，中美经贸中方牵头人、国务院副总理何立峰与美方牵头人、美国财政部长贝森特在韩国举行经贸磋商。双方以两国元首重要共识为指引，秉持相互尊重、和平共处、合作共赢的原则，就解决彼此关注的经贸问题和进一步拓展务实合作进行了坦诚、深入、建设性的交流。(完)
 
 ## 正文
 
-美伊近期交火事件，凸显出一个长期存在的军事难题：伊朗大批小型快速攻击快艇，频繁骚扰美国海军、袭扰商业航运船只。
+中新社首尔5月13日电 当地时间5月13日，中美经贸中方牵头人、国务院副总理何立峰与美方牵头人、美国财政部长贝森特在韩国举行经贸磋商。
 
-在美以军事行动初期，美军空袭摧毁了伊朗多艘大型军舰。
+双方以两国元首重要共识为指引，秉持相互尊重、和平共处、合作共赢的原则，就解决彼此关注的经贸问题和进一步拓展务实合作进行了坦诚、深入、建设性的交流。
 
-但伊朗仍保有大量小型船只；这类舰艇可加装肩扛式导弹与机枪，也能用于布设海军水雷。
-
-据美国中央司令部消息，伊朗正是动用此类快艇，在霍尔木兹海峡向美国导弹驱逐舰发起袭击。
-
-至少一艘护卫舰遭到快艇火力打击。
-
-作为反击，美军军用直升机周一在霍尔木兹海峡执行商业航运护航任务期间，击沉六艘伊朗快艇。
-
-军事专家估算，战前伊朗拥有数百艘快艇。
-
-一名军事分析师预估，截至4月，仍有约60%快艇完好无损。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 20:40 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-29 20:39 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-29 20:30 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 20:32 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-29 20:45 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-29 20:38 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-29 20:18 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 20:44 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-29 20:35 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-29 20:28 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-29 20:40 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 20:37 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-29 20:28 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 20:44 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-29 20:38 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 20:24 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 20:42 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 20:29 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 20:47 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-29 20:53 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:26 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/405985.shtml)
-- 2026-06-29 20:41 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/76122679395.shtml)
-- 2026-06-29 20:28 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/9186847524.shtml)
-- 2026-06-29 20:32 - [张杰我九岁就跟你了](https://www.share.kurohicncr.top/Article/details/763083.shtml)
-- 2026-06-29 20:46 - [恋与深空各大应用商店评分](https://www.blog.kurohicncr.top/Article/details/189372.shtml)
-- 2026-06-29 20:25 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.blog.minike.top/Article/details/60369921.shtml)
-- 2026-06-29 20:34 - [4位大妈跳舞爆火多地景区争相邀约](http://www.blog.kurohicncr.top/Article/details/03236570971.shtml)
-- 2026-06-29 20:44 - [恋与深空制作组回应争议](https://www.blog.minike.top/Article/details/2405683136.shtml)
-- 2026-06-29 20:39 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/94310098.shtml)
-- 2026-06-29 20:40 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/17242481.shtml)
-- 2026-06-29 20:32 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/075828728.shtml)
-- 2026-06-29 20:36 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/4197933097.shtml)
-- 2026-06-29 20:27 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/820620441.shtml)
-- 2026-06-29 20:20 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/65802496.shtml)
-- 2026-06-29 20:27 - [斗破苍穹](http://www.blog.minike.top/Article/details/4756444.shtml)
+- 2026-06-29 20:47 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/3757316264.shtml)
+- 2026-06-29 20:42 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/090407.shtml)
+- 2026-06-29 20:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/27766237341.shtml)
+- 2026-06-29 20:42 - [朱雀三号完成静态点火试验](http://www.blog.kurohicncr.top/Article/details/878496343453.shtml)
+- 2026-06-29 20:43 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/41976040996.shtml)
+- 2026-06-29 20:43 - [曝iPhone涨价后不会再降](http://www.share.kurohicncr.top/Article/details/88714.shtml)
+- 2026-06-29 20:39 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/4383612412.shtml)
+- 2026-06-29 20:47 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/53148.shtml)
+- 2026-06-29 20:28 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.minike.top/Article/details/867079761399.shtml)
+- 2026-06-29 20:32 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/7816827.shtml)
+- 2026-06-29 20:48 - [韩文体部对韩足协开展审计 查出局原因](https://www.share.kurohicncr.top/Article/details/147733.shtml)
+- 2026-06-29 20:39 - [世界杯高票价为何没劝退球迷](https://www.share.kurohicncr.top/Article/details/54148918473.shtml)
+- 2026-06-29 20:46 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.kurohicncr.top/Article/details/31697.shtml)
+- 2026-06-29 20:50 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/34823816.shtml)
+- 2026-06-29 20:36 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/88558619137.shtml)

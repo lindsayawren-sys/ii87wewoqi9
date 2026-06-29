@@ -1,58 +1,61 @@
-# 宁夏沙坡头灌区现代化改造加速推进 规划改善灌溉面积131万亩
+# 大族数控午前大涨超15% PCB设备板块业绩高速增长
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-中新网中卫5月8日电 (记者 于晶)5月8日，记者从宁夏回族自治区水利厅获悉，宁夏沙坡头灌区现代化改造工程可行性研究报告已获宁夏发展和改革委员会批复，工程正式进入立项实施阶段。这标志着这项被列入国家水利气象领域“两重”建设实施方案的重大工程，完成了从规划蓝图到落地实施的关键一跃。沙坡头灌区北依贺兰山余脉，南靠香山，中部为黄河冲积形成的卫宁平原，涵盖沙坡头区、中宁县、青铜峡市，是
+大族数控（03200）盘中拉升逾16%，高见164.80港元，股价创新高。截至发稿，股价上涨15.20%，报162.80港元，成交额6.31亿港元。 东吴证券研报指出，2025&2026Q1 PCB设备板块业绩高速增长，订单饱满。2025年PCB设备行业实现高增，主要受益于全球AI算力基建的密集扩张，头部5家企业大族数控、芯碁微装、凯格精机、东威科技、鼎泰高科合计营收达116亿
 
 ## 正文
 
-中新网中卫5月8日电 (记者 于晶)5月8日，记者从宁夏回族自治区水利厅获悉，宁夏沙坡头灌区现代化改造工程可行性研究报告已获宁夏发展和改革委员会批复，工程正式进入立项实施阶段。
+大族数控（03200）盘中拉升逾16%，高见164.80港元，股价创新高。
 
-这标志着这项被列入国家水利气象领域“两重”建设实施方案的重大工程，完成了从规划蓝图到落地实施的关键一跃。
+截至发稿，股价上涨15.20%，报162.80港元，成交额6.31亿港元。
 
-沙坡头灌区北依贺兰山余脉，南靠香山，中部为黄河冲积形成的卫宁平原，涵盖沙坡头区、中宁县、青铜峡市，是宁夏列入全国灌区名录的5个大型灌区之一，拥有2100多年引黄灌溉历史。
+东吴证券研报指出，2025&2026Q1 PCB设备板块业绩高速增长，订单饱满。
 
-该灌区是宁夏现代水网体系的重要组成部分，也是宁夏现代化产业体系、产业布局和黄河“几字弯”攻坚战等重点区域的关键支撑。
+2025年PCB设备行业实现高增，主要受益于全球AI算力基建的密集扩张，头部5家企业大族数控、芯碁微装、凯格精机、东威科技、鼎泰高科合计营收达116亿元，同比+55%，净利润达18.55亿元，同比+124%，2026年Q1合同负债同比高增104%，行业景气度持续上行。
 
-近年来，受极端天气及区域水环境变化影响，沙坡头灌区部分已砌护渠道遭遇洪水冲毁、冻胀、环境水腐蚀等不同程度损坏。
+东吴证券续指，硬件迭代带来PCB增量需求。
 
-同时，南山台子、碱碱湖和太阳梁等扬黄灌域地处易渗漏地质环境，渠道渗漏导致灌溉用水效率不高。
+NVIDIA Rubin架构引入Midplane与CPX载板产生增量；2026GTC新发布LPU机柜架构提升对高多层PCB需求；Google TPU服务器中PCB主要以高多层板为主；Amazon Trainium3服务器中PCB以高多层板为主。
 
-南山台子扬水灌域因生态移民人口增加、硒砂瓜产业发展等因素，灌溉用水供需季节性矛盾突出，急需建设调蓄设施。
+该行认为，GPU与ASIC需求的快速提升会带动PCB量增，且向高端化发展。
 
-此外，灌区部分排水沟存在塌坡、淤积等问题，排水不畅造成部分低洼区域出现盐渍化。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 20:40 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-29 20:35 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-29 20:46 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-29 20:42 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-29 20:45 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-29 20:31 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 20:46 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-29 20:33 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-29 20:37 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-29 20:45 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-29 20:43 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 20:26 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-29 20:46 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 20:38 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-29 20:37 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 20:29 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 20:30 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 20:43 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 20:35 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 20:53 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 20:31 - [王楚钦称抽签结果出来心情不好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 20:44 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 20:27 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-29 20:49 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 20:39 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 20:38 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-29 20:35 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:22 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/143975.shtml)
-- 2026-06-29 20:23 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/9297917237.shtml)
-- 2026-06-29 20:38 - [一生一世](https://www.blog.minike.top/Article/details/04801.shtml)
-- 2026-06-29 20:20 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/2363302561.shtml)
-- 2026-06-29 20:22 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/354590803728.shtml)
-- 2026-06-29 20:29 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/552454526.shtml)
-- 2026-06-29 20:39 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/9232264.shtml)
-- 2026-06-29 20:40 - [乌是否掌握了扭转战局的钥匙](https://www.blog.minike.top/Article/details/25330.shtml)
-- 2026-06-29 20:33 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/6397523.shtml)
-- 2026-06-29 20:18 - [天柱山回应网红打卡树枝被砍](http://www.share.minike.top/Article/details/808447.shtml)
-- 2026-06-29 20:31 - [一汽大众黄金超混技术来袭](http://www.blog.minike.top/Article/details/141743472.shtml)
-- 2026-06-29 20:26 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/712927021856.shtml)
-- 2026-06-29 20:47 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/40115867376.shtml)
-- 2026-06-29 20:44 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/593015159.shtml)
-- 2026-06-29 20:21 - [扩军害了世界杯吗](http://www.share.kurohicncr.top/Article/details/09924843404.shtml)
+- 2026-06-29 20:43 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/7139213838.shtml)
+- 2026-06-29 20:46 - [我国多领域成果密集上新](https://www.share.kurohicncr.top/Article/details/486674264917.shtml)
+- 2026-06-29 20:27 - [面对热浪欧洲人为何陷入空调内耗](https://www.share.minike.top/Article/details/82970.shtml)
+- 2026-06-29 20:52 - [孙俪开QQ的蛮好生活](http://www.share.kurohicncr.top/Article/details/283670867.shtml)
+- 2026-06-29 20:30 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/57150.shtml)
+- 2026-06-29 20:29 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.kurohicncr.top/Article/details/2654174041.shtml)
+- 2026-06-29 20:50 - [多人将马路护栏当球网打羽毛球](http://www.blog.minike.top/Article/details/52202601402.shtml)
+- 2026-06-29 20:53 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/0392881.shtml)
+- 2026-06-29 20:53 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/202102071.shtml)
+- 2026-06-29 20:30 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.kurohicncr.top/Article/details/54339.shtml)
+- 2026-06-29 20:45 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/64992054886.shtml)
+- 2026-06-29 20:31 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/1032567.shtml)
+- 2026-06-29 20:42 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/75226.shtml)
+- 2026-06-29 20:50 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/9244592.shtml)
+- 2026-06-29 20:49 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/25495268220.shtml)

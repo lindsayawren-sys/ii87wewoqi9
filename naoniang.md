@@ -1,46 +1,56 @@
-# 训修实业将于6月8日派发末期股息每股0.027港元
+# 中信建投期货：5月14日能化早报
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-训修实业（01962）发布公告，该公司将于2026年6月8日派发截至2025年12月31日止年度末期股息每股0.027港元。责任编辑：卢昱君
+橡胶：供给扰动再度引爆预期 周三，国产全乳胶18200/吨，环比上日上涨550元/吨；泰国20号混合胶17650元/吨，环比上日上涨550元/吨。 原料端：泰国昨日假期，原料市场休市；云南胶水报收16．元/公斤，环比上日上涨0.1元/公斤；海南胶水报收16.5元/公斤，环比上日持平。 截至2026年5月10日，中国天然橡胶社会库存132.7万吨，环比增加0.9万吨，增幅0.6%
 
 ## 正文
 
-训修实业（01962）发布公告，该公司将于2026年6月8日派发截至2025年12月31日止年度末期股息每股0.027港元。
+橡胶：供给扰动再度引爆预期 周三，国产全乳胶18200/吨，环比上日上涨550元/吨；泰国20号混合胶17650元/吨，环比上日上涨550元/吨。
 
-责任编辑：卢昱君
+原料端：泰国昨日假期，原料市场休市；云南胶水报收16．元/公斤，环比上日上涨0.1元/公斤；海南胶水报收16.5元/公斤，环比上日持平。
+
+截至2026年5月10日，中国天然橡胶社会库存132.7万吨，环比增加0.9万吨，增幅0.6%。
+
+中国深色胶社会总库存为91.5万吨，增幅0.6%。
+
+其中青岛现货库存增1%；云南降1.6%；越南10增0.7%；NR库存小计持平。
+
+中国浅色胶社会总库存为41.2万吨，环比增0.8%。
+
+其中老全乳胶环比降0.7%，3L环比降0.8%，RU库存小计增加3.8%。
+
+观点：近期，泰国等全球天然橡胶主产区正逐步进入季节性的增产期，目前全球主产区的降雨量同比2024年同期未有明显减少；气温同期2024年同期也未显著偏高。
 
 ## 相关推荐
 
-- 2026-06-29 20:27 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 20:31 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 20:39 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-29 20:27 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 20:32 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 20:43 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 20:47 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-29 20:44 - [李思潼：不会介意大家夸我运气好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-29 20:47 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-29 20:46 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 20:36 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-29 20:24 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 20:53 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 20:33 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-29 20:36 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 20:39 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 20:41 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 20:44 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-29 20:38 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 20:29 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-29 20:34 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 20:30 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:22 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/248956624.shtml)
-- 2026-06-29 20:37 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/009818812357.shtml)
-- 2026-06-29 20:43 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/2900725058.shtml)
-- 2026-06-29 20:34 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/9507294.shtml)
-- 2026-06-29 20:37 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.share.kurohicncr.top/Article/details/24962476033.shtml)
-- 2026-06-29 20:37 - [TTG KSG](https://www.share.minike.top/Article/details/853825034.shtml)
-- 2026-06-29 20:40 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/75909.shtml)
-- 2026-06-29 20:20 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/939145186373.shtml)
-- 2026-06-29 20:24 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/042932301928.shtml)
-- 2026-06-29 20:40 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/121876.shtml)
-- 2026-06-29 20:41 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/218024.shtml)
-- 2026-06-29 20:32 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/58661554.shtml)
-- 2026-06-29 20:19 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/863044.shtml)
-- 2026-06-29 20:45 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/6920178381.shtml)
-- 2026-06-29 20:21 - [逃狱兄弟](http://www.blog.minike.top/Article/details/85037.shtml)
+- 2026-06-29 20:41 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/555047.shtml)
+- 2026-06-29 20:52 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.minike.top/Article/details/2408574369.shtml)
+- 2026-06-29 20:37 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/9367742.shtml)
+- 2026-06-29 20:38 - [金刚川](https://www.share.minike.top/Article/details/938277756.shtml)
+- 2026-06-29 20:43 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/060864.shtml)
+- 2026-06-29 20:39 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/04942414.shtml)
+- 2026-06-29 20:31 - [《贺子珍》](http://www.blog.minike.top/Article/details/7410562.shtml)
+- 2026-06-29 20:24 - [恋与深空需正视价值观偏差](http://www.blog.minike.top/Article/details/9544338.shtml)
+- 2026-06-29 20:33 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/16311318727.shtml)
+- 2026-06-29 20:25 - [卢卡申科发布解放军仪仗队视频](http://www.blog.kurohicncr.top/Article/details/992850423147.shtml)
+- 2026-06-29 20:46 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/81167861.shtml)
+- 2026-06-29 20:24 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/9054004.shtml)
+- 2026-06-29 20:51 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/14037930853.shtml)
+- 2026-06-29 20:32 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/9107161286.shtml)
+- 2026-06-29 20:43 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/0523265.shtml)

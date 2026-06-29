@@ -1,56 +1,59 @@
-# 中国银行董事长葛海蛟出席2026中韩工商领导人经济会议系列活动并在上海开展工作调研
+# 成绩退步超100分发“证明”，这样的惩戒合适吗？
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-来源：中国银行 5月7日至8日，2026中韩工商领导人经济会议系列活动在沪举行。作为中方主席单位代表，中国银行董事长葛海蛟致会议开幕词，同时围绕“中韩经济的现状及新兴产业合作”作主题发言，并参加上海市市长龚正与中韩企业代表团会见活动。韩国经营者总协会会长、希杰集团董事长孙京植等20余家韩国企业代表参加。 葛海蛟表示，去年底今年初，习近平主席同李在明总统在两个多月内实现互访，引领
+据纵览新闻报道，5月11日，针对向部分学生发放“退步快学生”纸质证明进行惩戒一事，湖南省永州市江永二中相关负责人表示，此举确实不合适，已要求向学生发放该证明的九年级组进行收回，并安排心理咨询师对相关学生开展心理辅导。 此前，网传涉事学校在2026年上学期期中考试后，将成绩退步超过100分的学生评为“退步快学生”，甚至发放“证明”以作惩戒。不少网民质疑这种做法的合理性，认为即便要
 
 ## 正文
 
-来源：中国银行 5月7日至8日，2026中韩工商领导人经济会议系列活动在沪举行。
+据纵览新闻报道，5月11日，针对向部分学生发放“退步快学生”纸质证明进行惩戒一事，湖南省永州市江永二中相关负责人表示，此举确实不合适，已要求向学生发放该证明的九年级组进行收回，并安排心理咨询师对相关学生开展心理辅导。
 
-作为中方主席单位代表，中国银行董事长葛海蛟致会议开幕词，同时围绕“中韩经济的现状及新兴产业合作”作主题发言，并参加上海市市长龚正与中韩企业代表团会见活动。
+此前，网传涉事学校在2026年上学期期中考试后，将成绩退步超过100分的学生评为“退步快学生”，甚至发放“证明”以作惩戒。
 
-韩国经营者总协会会长、希杰集团董事长孙京植等20余家韩国企业代表参加。
+不少网民质疑这种做法的合理性，认为即便要对学生进行督促惩戒，也不能采用这种方式，否则会损害学生的自尊心。
 
-葛海蛟表示，去年底今年初，习近平主席同李在明总统在两个多月内实现互访，引领中韩关系开辟新局面。
+对于很多成绩有待提高的学生而言，老师若缺乏必要的督促，确实难以推动其成绩进步；但如果批评过度，甚至损害学生的自信与自尊，则会本末倒置，违背教书育人的本来目的。
 
-近年来，两国积极推进各领域交流合作，实现了相互成就、共同繁荣。
+因此，教学中的惩戒行为，既要帮助学生找准学习难点、改正不足，又要帮助他们树立学习信心、激发学习热情。
 
-中国银行是最早进入韩国市场的中资银行，始终以金融力量链接两国市场、服务两国企业，对韩国世界500强企业实现服务全覆盖，邀请超400家韩国企业来华参加进博会、消博会等中国国家级展会，共享超大规模市场发展机遇。
+早在2021年3月，教育部发布的《中小学教育惩戒规则(试行)》就已经在全国施行。
 
-葛海蛟表示，中国银行将坚定落实两国元首重要共识，发挥全球化优势、综合化特色，坚持向“新”发力，依托上海科创中心优势与长三角产业生态基础，聚焦半导体、高端装备、人工智能、新能源汽车等重点领域，加速推动中韩经贸关系向高附加值、创新驱动型合作升级；坚持向“绿”前行，围绕绿色技术转化、绿色项目落地、绿色装备出海等重点领域，持续扩大绿色信贷、债券、租赁等产品供给，助力两国拓展绿色经济等新兴领域合作增长点；坚持向“深”挖潜，支持韩国企业在华增加投资、扩大布局，更好把握中国“十五五”发展机遇。
+这份规则明确指出：“实施教育惩戒应当符合教育规律，注重育人效果；遵循法治原则，做到客观公正；选择适当措施，与学生过错程度相适应。
 
-中国银行愿继续加大资源投入、提升服务质效，与中韩各界携手推动经贸合作迈向更高水平。
+” 结合上述事件深入分析，以育人为导向的教育惩戒，首先应遵循教育规律，充分考虑学生的心理承受能力与成长节奏。
 
 ## 相关推荐
 
-- 2026-06-29 20:36 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 20:46 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 20:23 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-29 20:18 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 20:47 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-29 20:26 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 20:23 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 20:19 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-29 20:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-29 20:37 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-29 20:53 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 20:47 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 20:44 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 20:51 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 20:30 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 20:26 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 20:49 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 20:38 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 20:24 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-29 20:29 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-29 20:47 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-29 20:45 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 20:29 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:39 - [美人鱼](http://www.blog.minike.top/Article/details/591923587951.shtml)
-- 2026-06-29 20:24 - [急先锋](http://www.share.kurohicncr.top/Article/details/630814627.shtml)
-- 2026-06-29 20:37 - [高质量发展看新疆](https://www.share.kurohicncr.top/Article/details/4603909.shtml)
-- 2026-06-29 20:36 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/907179669.shtml)
-- 2026-06-29 20:46 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/804126.shtml)
-- 2026-06-29 20:38 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/1349437.shtml)
-- 2026-06-29 20:27 - [我国多领域成果密集上新](https://www.share.kurohicncr.top/Article/details/5040835.shtml)
-- 2026-06-29 20:45 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/542609324.shtml)
-- 2026-06-29 20:30 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/502419.shtml)
-- 2026-06-29 20:23 - [多人将马路护栏当球网打羽毛球](https://www.share.kurohicncr.top/Article/details/7837051.shtml)
-- 2026-06-29 20:20 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/4251695.shtml)
-- 2026-06-29 20:31 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/408753754975.shtml)
-- 2026-06-29 20:36 - [海口塔吊事故处罚结果公布](https://www.share.minike.top/Article/details/919059840350.shtml)
-- 2026-06-29 20:40 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/49861.shtml)
-- 2026-06-29 20:39 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.minike.top/Article/details/75885060.shtml)
+- 2026-06-29 20:48 - [恋与深空7天掉粉超50万](http://www.share.kurohicncr.top/Article/details/80285773.shtml)
+- 2026-06-29 20:24 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.minike.top/Article/details/03962670.shtml)
+- 2026-06-29 20:45 - [河南高院审委会原委员曲海滨被查](https://www.share.kurohicncr.top/Article/details/37778412.shtml)
+- 2026-06-29 20:42 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/8239369.shtml)
+- 2026-06-29 20:29 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/28074234765.shtml)
+- 2026-06-29 20:46 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/79604847695.shtml)
+- 2026-06-29 20:36 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/042077.shtml)
+- 2026-06-29 20:53 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/861650877.shtml)
+- 2026-06-29 20:51 - [网友晒14年前支教影像等来学生评论](http://www.blog.minike.top/Article/details/06225900.shtml)
+- 2026-06-29 20:26 - [专家预计全球央行加息节奏将出现反复](http://www.share.kurohicncr.top/Article/details/170941616671.shtml)
+- 2026-06-29 20:44 - [杨紫视后第一场线下活动](http://www.blog.minike.top/Article/details/7320735727.shtml)
+- 2026-06-29 20:52 - [德国医生在没有空调的手术室工作](https://www.share.minike.top/Article/details/62813883598.shtml)
+- 2026-06-29 20:35 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/6060304.shtml)
+- 2026-06-29 20:52 - [小众羞耻点是吃麻辣烫](http://www.share.kurohicncr.top/Article/details/842750653189.shtml)
+- 2026-06-29 20:35 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/39458.shtml)

@@ -1,53 +1,61 @@
-# “五一”假期 中越边境河口口岸出入境人数超8万人次
+# 美股收盘：纳指跌0.71%，芯片股集体回调，高通下挫超11%
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-据河口出入境边防检查站通报，今年“五一”假期，河口口岸出入境人数达8.8万人次，同比增长2%。由于“五一”假期国内旅游人数和消费均有提升，加之越南本土假期在“五一”假期前便已开启，许多越南旅客纷纷选择错峰来华旅行。河口口岸在4月25日和30日均迎来越南旅游团入境高峰，共计有430个团7709人次入境，较去年同期分别增长59.8%和36.4%。作者：曾维 张航 彭正 摄制：赵国骁
+中新经纬5月13日电 美东时间周二，美股三大指数涨跌不一。截至收盘，道指涨0.11%，报49760.56点；纳指跌0.71%，报26088.20点；标普500指数跌0.16%，报7400.96点。 来源：Wind 盘面上，大型科技股涨跌不一，特斯拉跌超2%，微软、亚马逊跌逾1%，谷歌跌0.33%，苹果涨0.72%，脸书涨0.69%，英伟达涨0.61%。 银行股集体上涨，富国银行
 
 ## 正文
 
-据河口出入境边防检查站通报，今年“五一”假期，河口口岸出入境人数达8.8万人次，同比增长2%。
+中新经纬5月13日电 美东时间周二，美股三大指数涨跌不一。
 
-由于“五一”假期国内旅游人数和消费均有提升，加之越南本土假期在“五一”假期前便已开启，许多越南旅客纷纷选择错峰来华旅行。
+截至收盘，道指涨0.11%，报49760.56点；纳指跌0.71%，报26088.20点；标普500指数跌0.16%，报7400.96点。
 
-河口口岸在4月25日和30日均迎来越南旅游团入境高峰，共计有430个团7709人次入境，较去年同期分别增长59.8%和36.4%。
+来源：Wind 盘面上，大型科技股涨跌不一，特斯拉跌超2%，微软、亚马逊跌逾1%，谷歌跌0.33%，苹果涨0.72%，脸书涨0.69%，英伟达涨0.61%。
 
-作者：曾维 张航 彭正 摄制：赵国骁 画面来源：河口出入境边防检查站
+银行股集体上涨，富国银行涨超2%，摩根大通涨超1%，花旗涨0.5%，美国银行涨0.49%，摩根士丹利涨0.42%，高盛涨0.15%。
+
+能源股全线上扬，康菲石油、西方石油涨超2%，斯伦贝谢涨逾1%，埃克森美孚涨0.66%，雪佛龙涨0.67%。
+
+芯片股集体回调，费城半导体指数跌3.01%。
+
+高通跌超11%，英特尔跌近7%，恩智浦半导体跌近4%，美光科技、格芯跌逾3%，阿斯麦、超威半导体跌超2%，台积电跌超1%。
+
+航空股普跌，西南航空跌超1%，美联航跌0.81%，美国航空跌0.78%，达美航空跌0.65%，波音跌0.56%。
 
 ## 相关推荐
 
-- 2026-06-29 20:27 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 20:34 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-29 20:27 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-29 20:25 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 20:41 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-29 20:42 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 20:22 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 20:19 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 20:32 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-29 20:24 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 20:35 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-29 20:43 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-29 20:18 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-29 20:22 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 20:39 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-29 20:40 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 20:48 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-29 20:44 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 20:53 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 20:29 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 20:51 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 20:35 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-29 20:51 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 20:52 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-29 20:44 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 20:50 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-29 20:36 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-29 20:45 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-29 20:39 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 20:26 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:37 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/8010642.shtml)
-- 2026-06-29 20:35 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/1664748670.shtml)
-- 2026-06-29 20:39 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/4557414097.shtml)
-- 2026-06-29 20:33 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/611526063538.shtml)
-- 2026-06-29 20:23 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/246200169.shtml)
-- 2026-06-29 20:44 - [委内瑞拉发生余震](https://www.blog.kurohicncr.top/Article/details/75856130.shtml)
-- 2026-06-29 20:40 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.kurohicncr.top/Article/details/07239990255.shtml)
-- 2026-06-29 20:45 - [白玉兰答谢宴合影](https://www.share.minike.top/Article/details/85374.shtml)
-- 2026-06-29 20:24 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.minike.top/Article/details/0280982221.shtml)
-- 2026-06-29 20:26 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/08365759325.shtml)
-- 2026-06-29 20:37 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/4404524622.shtml)
-- 2026-06-29 20:38 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/419987.shtml)
-- 2026-06-29 20:29 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/06906084163.shtml)
-- 2026-06-29 20:21 - [网友晒14年前支教影像等来学生评论](https://www.blog.minike.top/Article/details/9258578.shtml)
-- 2026-06-29 20:34 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/59289.shtml)
+- 2026-06-29 20:42 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/390436453.shtml)
+- 2026-06-29 20:49 - [张杰我九岁就跟你了](http://www.share.kurohicncr.top/Article/details/056115.shtml)
+- 2026-06-29 20:32 - [多人将马路护栏当球网打羽毛球](https://www.share.kurohicncr.top/Article/details/911323843.shtml)
+- 2026-06-29 20:43 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/87355276195.shtml)
+- 2026-06-29 20:46 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/56265418029.shtml)
+- 2026-06-29 20:27 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/4708887277.shtml)
+- 2026-06-29 20:41 - [外交部谈对日出口管制措施](http://www.share.kurohicncr.top/Article/details/328260047.shtml)
+- 2026-06-29 20:52 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/0503144596.shtml)
+- 2026-06-29 20:51 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/9585170.shtml)
+- 2026-06-29 20:41 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/284796155.shtml)
+- 2026-06-29 20:52 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/658615892.shtml)
+- 2026-06-29 20:43 - [《新闻联播》正在直播](http://www.blog.kurohicncr.top/Article/details/3315176.shtml)
+- 2026-06-29 20:31 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/4535588.shtml)
+- 2026-06-29 20:33 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/422623969.shtml)
+- 2026-06-29 20:51 - [Ella回应SHE何时合体](http://www.share.kurohicncr.top/Article/details/94761330509.shtml)

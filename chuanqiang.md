@@ -1,47 +1,59 @@
-# 龙光集团已向开曼群岛大法院申请协议安排计划聆讯
+# 美国联合航空将恢复飞往委内瑞拉的航线航班
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-龙光集团（03380）发布公告，公司已向开曼群岛大法院申请协议安排计划聆讯，寻求批准召开计划债权人会议以考虑及批准（不论是否经修改）开曼计划。 公司已通过交易网站发布与开曼计划有关的“实务声明函”。责任编辑：卢昱君
+联合航空将重启飞往委内瑞拉的航班服务。这家航司于周二宣布，自8月11日起，恢复休斯顿乔治·布什洲际机场至加拉加斯西蒙·玻利瓦尔国际机场的每日直飞航班，最终航线开通仍需获得各国政府监管批准。 联合航空此前已运营美国至委内瑞拉航线超过20年，后于2017年6月暂停通航。 就在本次官宣的数周前，美国航空一架客机完成了2019年以来美委之间首趟商业直飞航班。此举也被视作特朗普政府快速推
 
 ## 正文
 
-龙光集团（03380）发布公告，公司已向开曼群岛大法院申请协议安排计划聆讯，寻求批准召开计划债权人会议以考虑及批准（不论是否经修改）开曼计划。
+联合航空将重启飞往委内瑞拉的航班服务。
 
-公司已通过交易网站发布与开曼计划有关的“实务声明函”。
+这家航司于周二宣布，自8月11日起，恢复休斯顿乔治·布什洲际机场至加拉加斯西蒙·玻利瓦尔国际机场的每日直飞航班，最终航线开通仍需获得各国政府监管批准。
 
-责任编辑：卢昱君
+联合航空此前已运营美国至委内瑞拉航线超过20年，后于2017年6月暂停通航。
+
+就在本次官宣的数周前，美国航空一架客机完成了2019年以来美委之间首趟商业直飞航班。
+
+此举也被视作特朗普政府快速推动与委内瑞拉关系正常化最直观的标志性事件。
+
+此前报道称，特朗普政府已推出一套特殊安排：一方面吸引美国投资者赴委内瑞拉投资，另一方面进一步巩固两国政府间关系。
+
+美国交通部长表示，联合航空新开这条航线，标志着美委两国关系再获新进展。
+
+他称：“随着美国与委内瑞拉合作扩大石油产能、创造新的经济机遇，这条航线对于运送石油行业从业人员赴委工作至关重要。
 
 ## 相关推荐
 
-- 2026-06-29 20:38 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-29 20:45 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-29 20:19 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 20:47 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 20:48 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 20:40 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-29 20:24 - [半导体和股市为何没让韩国人起飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 20:40 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 20:36 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-29 20:35 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 20:38 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 20:46 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-29 20:33 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-29 20:44 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-29 20:27 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 20:31 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-29 20:35 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 20:35 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 20:25 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 20:31 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-29 20:32 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 20:28 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 20:25 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 20:30 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:42 - [王安宇聪明到导演组炸了](http://www.share.minike.top/Article/details/960778496.shtml)
-- 2026-06-29 20:19 - [让AI做一个账号，它会做成什么样？](http://www.share.kurohicncr.top/Article/details/45471030.shtml)
-- 2026-06-29 20:23 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/96363412.shtml)
-- 2026-06-29 20:34 - [宜宾地震后铁路工作人员叫停列车](https://www.share.minike.top/Article/details/99458.shtml)
-- 2026-06-29 20:34 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/61959510.shtml)
-- 2026-06-29 20:42 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/7728389091.shtml)
-- 2026-06-29 20:28 - [《贺子珍》](http://www.blog.minike.top/Article/details/44900315.shtml)
-- 2026-06-29 20:34 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/5502254.shtml)
-- 2026-06-29 20:22 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/84951740.shtml)
-- 2026-06-29 20:33 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/7553081577.shtml)
-- 2026-06-29 20:22 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/96279615168.shtml)
-- 2026-06-29 20:35 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/571328456574.shtml)
-- 2026-06-29 20:23 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/41743.shtml)
-- 2026-06-29 20:30 - [CORTIS 小牌大耍](https://www.blog.minike.top/Article/details/478085471.shtml)
-- 2026-06-29 20:43 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/9504576.shtml)
+- 2026-06-29 20:51 - [王鸿薇要求删陆委会百余万特别费](http://www.share.minike.top/Article/details/86251.shtml)
+- 2026-06-29 20:41 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/074618.shtml)
+- 2026-06-29 20:50 - [铜价上涨 日本住宅水表失窃严重](https://www.share.minike.top/Article/details/32745868.shtml)
+- 2026-06-29 20:36 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/24802664532.shtml)
+- 2026-06-29 20:33 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/69107.shtml)
+- 2026-06-29 20:29 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.minike.top/Article/details/80111737342.shtml)
+- 2026-06-29 20:38 - [TTG KSG](https://www.blog.minike.top/Article/details/52374662562.shtml)
+- 2026-06-29 20:39 - [世界杯高票价为何没劝退球迷](https://www.share.minike.top/Article/details/0622172.shtml)
+- 2026-06-29 20:48 - [店员光脚踩入盆中清洗土豆](http://www.share.kurohicncr.top/Article/details/22919.shtml)
+- 2026-06-29 20:40 - [这一刀 会很帅](https://www.share.minike.top/Article/details/880764.shtml)
+- 2026-06-29 20:34 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/09326.shtml)
+- 2026-06-29 20:25 - [扫黑风暴](http://www.share.minike.top/Article/details/22095.shtml)
+- 2026-06-29 20:41 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/708837430.shtml)
+- 2026-06-29 20:28 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/4423671079.shtml)
+- 2026-06-29 20:30 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/4966358755.shtml)

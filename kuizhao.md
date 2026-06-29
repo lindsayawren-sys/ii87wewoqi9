@@ -1,61 +1,48 @@
-# 东西问丨熊仲卿：东南亚华侨华人如何跨越时空传承文脉？
+# 中美在韩国举行经贸磋商
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-中新社西安5月7日电 题：东南亚华侨华人如何跨越时空传承文脉？ ——专访台湾成功大学考古学研究所副教授熊仲卿 中新社记者 阿琳娜 15世纪以来，不少华侨华人远赴东南亚定居生活、繁衍生息。他们带着故土的文化基因，在与当地人的交融共生中，既积极适应新环境，又坚守着中华文化中天地人和谐的世界观。庙宇的香火缭绕、墓碑的汉字铭刻、祭祀的代代相传……这些不仅是华侨华人史的鲜活见证，更是文脉
+新华社首尔5月13日电 当地时间5月13日，中美经贸中方牵头人、国务院副总理何立峰与美方牵头人、美国财政部长贝森特在韩国举行经贸磋商。双方以两国元首重要共识为指引，秉持相互尊重、和平共处、合作共赢的原则，就解决彼此关注的经贸问题和进一步拓展务实合作进行了坦诚、深入、建设性的交流。
 
 ## 正文
 
-中新社西安5月7日电 题：东南亚华侨华人如何跨越时空传承文脉？
+新华社首尔5月13日电 当地时间5月13日，中美经贸中方牵头人、国务院副总理何立峰与美方牵头人、美国财政部长贝森特在韩国举行经贸磋商。
 
-——专访台湾成功大学考古学研究所副教授熊仲卿 中新社记者 阿琳娜 15世纪以来，不少华侨华人远赴东南亚定居生活、繁衍生息。
-
-他们带着故土的文化基因，在与当地人的交融共生中，既积极适应新环境，又坚守着中华文化中天地人和谐的世界观。
-
-庙宇的香火缭绕、墓碑的汉字铭刻、祭祀的代代相传……这些不仅是华侨华人史的鲜活见证，更是文脉跨越时空、绵延不绝的具象表达。
-
-文化遗产如何成为文脉传承的载体？
-
-祭祀与文字为何能成为维系东南亚华侨华人精神认同的核心纽带？
-
-黄帝文化的内涵又如何跨越千年，成为连接海内外华侨华人的精神桥梁？
-
-近日，台湾成功大学考古学研究所副教授熊仲卿接受中新社“东西问”专访，对此作出解答。
+双方以两国元首重要共识为指引，秉持相互尊重、和平共处、合作共赢的原则，就解决彼此关注的经贸问题和进一步拓展务实合作进行了坦诚、深入、建设性的交流。
 
 ## 相关推荐
 
-- 2026-06-29 20:39 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-29 20:30 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 20:45 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-29 20:32 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 20:33 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 20:28 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 20:31 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 20:28 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 20:18 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-29 20:45 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-29 20:37 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 20:24 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 20:27 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 20:46 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 20:33 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-29 20:27 - [任泽平：AI浪潮刚刚开始](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-29 20:47 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 20:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-29 20:42 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-29 20:42 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 20:42 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 20:48 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 20:32 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 20:44 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 20:47 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 20:28 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 20:48 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 20:42 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 20:51 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:40 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/12478379688.shtml)
-- 2026-06-29 20:33 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/0555119070.shtml)
-- 2026-06-29 20:18 - [让AI做一个账号，它会做成什么样？](http://www.blog.kurohicncr.top/Article/details/187665524425.shtml)
-- 2026-06-29 20:27 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.kurohicncr.top/Article/details/001378277.shtml)
-- 2026-06-29 20:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/79516431.shtml)
-- 2026-06-29 20:24 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/2542299088.shtml)
-- 2026-06-29 20:37 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/2846644574.shtml)
-- 2026-06-29 20:47 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/14349794672.shtml)
-- 2026-06-29 20:21 - [一生一世](http://www.blog.minike.top/Article/details/66307.shtml)
-- 2026-06-29 20:39 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/7837845699.shtml)
-- 2026-06-29 20:29 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/72682.shtml)
-- 2026-06-29 20:24 - [王楚钦称抽签结果出来心情不好](http://www.share.minike.top/Article/details/33310133370.shtml)
-- 2026-06-29 20:42 - [网红小徐直播时突遇地震](http://www.blog.kurohicncr.top/Article/details/5260142994.shtml)
-- 2026-06-29 20:47 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/92854.shtml)
-- 2026-06-29 20:18 - [德国医生在没有空调的手术室工作](https://www.blog.minike.top/Article/details/192446311.shtml)
+- 2026-06-29 20:44 - [王冰冰向全网安利哈兰德](http://www.blog.minike.top/Article/details/573993913.shtml)
+- 2026-06-29 20:31 - [林逸向方筱然求婚了](https://www.share.minike.top/Article/details/62624658040.shtml)
+- 2026-06-29 20:36 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/0975887.shtml)
+- 2026-06-29 20:40 - [女心理师](https://www.blog.minike.top/Article/details/11999719.shtml)
+- 2026-06-29 20:31 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/553353825.shtml)
+- 2026-06-29 20:32 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/9531890.shtml)
+- 2026-06-29 20:44 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.kurohicncr.top/Article/details/64894503.shtml)
+- 2026-06-29 20:33 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/546716746.shtml)
+- 2026-06-29 20:39 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/446325.shtml)
+- 2026-06-29 20:24 - [急先锋](https://www.share.kurohicncr.top/Article/details/5950623.shtml)
+- 2026-06-29 20:32 - [专家预计全球央行加息节奏将出现反复](http://www.share.kurohicncr.top/Article/details/7231150282.shtml)
+- 2026-06-29 20:25 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/95320172.shtml)
+- 2026-06-29 20:29 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/1244570.shtml)
+- 2026-06-29 20:53 - [一生一世](https://www.share.minike.top/Article/details/56221.shtml)
+- 2026-06-29 20:45 - [宜宾地震已转移安置225人](http://www.blog.kurohicncr.top/Article/details/5276599224.shtml)

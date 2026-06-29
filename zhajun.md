@@ -1,61 +1,60 @@
-# 赵乐际会见美国国会参议员代表团
+# 陕西渭南：“十五五”时期聚焦实数深度融合 让数字技术从“实验室”走向“应用场”
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-中新社北京5月7日电 全国人大常委会委员长赵乐际7日在北京会见美国国会参议员代表团戴安斯一行。 赵乐际表示，中美关系稳定、健康、可持续发展，符合两国人民共同利益和国际社会普遍期待。去年以来，在两国元首战略引领下，中美关系实现总体稳定。中方愿同美方落实好两国元首重要共识，加强对话沟通，妥善管控分歧，拓展务实合作。台湾问题是中国核心利益中的核心，是中美关系中最重要的问题，希望美方恪
+中新网西安5月12日电 (杨英琦)记者12日从陕西省人民政府新闻办公室举办的新闻发布会上获悉，“十五五”时期，陕西渭南将推动产业数字化，让数字技术融入生产、加工、流通等各环节，促进传统产业智能改造和农业智慧升级，让数字技术从“实验室”走向“应用场”。实数融合是高质量发展的新动能。据了解，“十五五”时期，陕西渭南将推进实数深度融合，注入创新发展动能。该市聚焦数字赋能，让数字技术为
 
 ## 正文
 
-中新社北京5月7日电 全国人大常委会委员长赵乐际7日在北京会见美国国会参议员代表团戴安斯一行。
+中新网西安5月12日电 (杨英琦)记者12日从陕西省人民政府新闻办公室举办的新闻发布会上获悉，“十五五”时期，陕西渭南将推动产业数字化，让数字技术融入生产、加工、流通等各环节，促进传统产业智能改造和农业智慧升级，让数字技术从“实验室”走向“应用场”。
 
-赵乐际表示，中美关系稳定、健康、可持续发展，符合两国人民共同利益和国际社会普遍期待。
+实数融合是高质量发展的新动能。
 
-去年以来，在两国元首战略引领下，中美关系实现总体稳定。
+据了解，“十五五”时期，陕西渭南将推进实数深度融合，注入创新发展动能。
 
-中方愿同美方落实好两国元首重要共识，加强对话沟通，妥善管控分歧，拓展务实合作。
+该市聚焦数字赋能，让数字技术为产业发展、民生保障等领域赋能。
 
-台湾问题是中国核心利益中的核心，是中美关系中最重要的问题，希望美方恪守一个中国原则，慎重对待和处理台湾问题。
+以渭南数智科创孵化中心为载体，聚焦人工智能、大数据等领域，加快优质企业招引培育，打造具有渭南特色的数字产业集群。
 
-赵乐际表示，中国全国人大愿同美国国会加强交往，实现更多交流和互访。
+同时，该市推动应用场景化，以技术攻关为基石、多元场景开放为牵引、体制机制创新为保障，通过技术突破、场景赋能、生态培育三轮驱动，让数字技术从“实验室”走向“应用场”。
 
-各位参议员此访有助于促进中美接触交往和两国立法机构对话交流。
+渭南地处黄河中游，是关中平原的重要城市之一。
 
-希望美方客观理性看待中国和中国的发展，欢迎更多美国议员来中国参访。
+“十五五”期间，该市将统筹推进山水林田湖草沙系统治理，加快经济社会绿色低碳转型，着力构建生态、生产、生活一体化融合发展格局。
 
 ## 相关推荐
 
-- 2026-06-29 20:24 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-29 20:27 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-29 20:19 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 20:22 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-29 20:29 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-29 20:21 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-29 20:26 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-29 20:45 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 20:22 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-29 20:44 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 20:19 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 20:39 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-29 20:29 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-29 20:47 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-29 20:20 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 20:52 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 20:46 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 20:32 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 20:26 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 20:44 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 20:44 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 20:43 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 20:38 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-29 20:49 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-29 20:28 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 20:41 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-29 20:26 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-29 20:27 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-29 20:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:40 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/92531408.shtml)
-- 2026-06-29 20:22 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/01920439.shtml)
-- 2026-06-29 20:22 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.minike.top/Article/details/89266346875.shtml)
-- 2026-06-29 20:26 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/767109.shtml)
-- 2026-06-29 20:23 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/236350535.shtml)
-- 2026-06-29 20:39 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.minike.top/Article/details/94895.shtml)
-- 2026-06-29 20:44 - [本届世界杯已有5人涉性侵风波](http://www.share.kurohicncr.top/Article/details/9315629.shtml)
-- 2026-06-29 20:26 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/64851060774.shtml)
-- 2026-06-29 20:25 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/461816.shtml)
-- 2026-06-29 20:33 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/214113396878.shtml)
-- 2026-06-29 20:27 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/367595.shtml)
-- 2026-06-29 20:41 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/57092201.shtml)
-- 2026-06-29 20:24 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/90152591518.shtml)
-- 2026-06-29 20:31 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.minike.top/Article/details/785436681.shtml)
-- 2026-06-29 20:21 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/55166889.shtml)
+- 2026-06-29 20:36 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/7586011.shtml)
+- 2026-06-29 20:34 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/7680201.shtml)
+- 2026-06-29 20:40 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/588282778.shtml)
+- 2026-06-29 20:53 - [记者暗访养老机构消防安全](https://www.blog.minike.top/Article/details/18679269.shtml)
+- 2026-06-29 20:34 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/27475869.shtml)
+- 2026-06-29 20:37 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/950918571475.shtml)
+- 2026-06-29 20:26 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/8576416891.shtml)
+- 2026-06-29 20:40 - [互助版模拟高考志愿填报](https://www.blog.kurohicncr.top/Article/details/0543115559.shtml)
+- 2026-06-29 20:40 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/83787493.shtml)
+- 2026-06-29 20:27 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/336130.shtml)
+- 2026-06-29 20:32 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/395050837.shtml)
+- 2026-06-29 20:33 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/10357981.shtml)
+- 2026-06-29 20:25 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/229576014958.shtml)
+- 2026-06-29 20:43 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.share.kurohicncr.top/Article/details/703907.shtml)
+- 2026-06-29 20:37 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/011133.shtml)

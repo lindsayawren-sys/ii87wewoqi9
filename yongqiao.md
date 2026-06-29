@@ -1,56 +1,58 @@
-# 博阿兹・温斯坦旗下Saba暂停对9只英国基金的激进维权行动
+# 长城智悦均衡：锚定成长中坚，从容应对市场轮动
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-核心要点 由博阿兹・温斯坦执掌的对冲基金 Saba 资本，在敲定保障先驱投资信托未来发展的交易后，同意暂停为期三年、针对多达 9 只伦敦上市基金的激进维权行动。 先驱投资信托于周四宣布，将对自身至多 66% 的已发行股份发起要约收购，此举使其第一大股东 Saba 及其他投资者可按接近资产净值的价格卖出持股，也可选择继续持有。 就在上月，激进投资者 Saba 在与投资太空探索公司
+登录新浪财经APP 搜索【信披】查看更多考评等级 随着A股上市公司一季报披露收官，市场投资逻辑迎来重要切换，前期依靠估值扩张驱动的行情逐步落幕，盈利兑现能力成为资产定价的核心锚点，市场投资重心正逐步从追“想象空间”转向“业绩硬度”。在此市场转型窗口期，贴合经济新旧动能转换、具备稳健盈利韧性的资产成为资金布局重点。 长城基金总经理助理、量化与指数投资部总经理雷俊指出，当前A股市场
 
 ## 正文
 
-核心要点 由博阿兹・温斯坦执掌的对冲基金 Saba 资本，在敲定保障先驱投资信托未来发展的交易后，同意暂停为期三年、针对多达 9 只伦敦上市基金的激进维权行动。
+登录新浪财经APP 搜索【信披】查看更多考评等级 随着A股上市公司一季报披露收官，市场投资逻辑迎来重要切换，前期依靠估值扩张驱动的行情逐步落幕，盈利兑现能力成为资产定价的核心锚点，市场投资重心正逐步从追“想象空间”转向“业绩硬度”。
 
-先驱投资信托于周四宣布，将对自身至多 66% 的已发行股份发起要约收购，此举使其第一大股东 Saba 及其他投资者可按接近资产净值的价格卖出持股，也可选择继续持有。
+在此市场转型窗口期，贴合经济新旧动能转换、具备稳健盈利韧性的资产成为资金布局重点。
 
-就在上月，激进投资者 Saba 在与投资太空探索公司 SpaceX 的爱丁堡环球投资信托的争议博弈中宣告胜出，经过长期拉锯，成功罢免其董事长及五名董事会成员。
+长城基金总经理助理、量化与指数投资部总经理雷俊指出，当前A股市场风格或从“单边成长”主导，迈向“成长与价值均衡”的新格局，中盘成长风格有望持续受到关注。
 
-Saba 已作出不可撤销承诺，将所持先驱投资信托全部股份参与要约出售。
+在轮动分化加剧背景下，中盘成长资产凭借均衡的产业布局与扎实的业绩韧性，有望成为优质配置方向。
 
-自 2023 年建仓以来，该信托股价长期低于资产净值折价交易，此次协议将为 Saba 带来可观收益。
+近期，拟由雷俊管理的长城智悦均衡混合型证券投资基金（A类：027035；C类：027036）全新发行，通过构建中盘均衡策略组合，力争成为穿越风格轮动的优解。
 
-作为交易的一部分，今年晚些时候该基金的管理权将移交安本投资；现任基金经理、信托创始人凯蒂・波茨将带领七名同事一同加入这家总部位于伦敦的资管公司。
+在雷俊看来，中盘股的核心价值，不在于绝对估值优势或短期增速领跑，而在于精准适配当下中国经济新旧动能转换的核心特征。
 
-波茨在声明中表示：“先驱投资信托自 1994 年以来始终秉持清晰且成功的投资策略，加入安本后，这套严谨的投资框架将保持不变。
+相较于大盘蓝筹侧重传统经济存量格局、小微盘股易受单一主题波动影响的特性，中盘股形成了“承上启下”的独特优势，横跨科技成长与周期复苏两大主线，覆盖经济转型中最具活力的产业领域，能够在频繁的风格轮动中持续保持配置价值，有望成为穿越市场周期的优质载体。
 
-” “我们仍将聚焦科技与通信行业，该领域持续受益于技术创新，并具备强劲的长期增长前景。
+以代表中盘均衡风格的中证500指数为例，指数行业布局高度均衡，覆盖电子、电力设备、有色金属、医药生物、机械设备、国防军工、非银金融等行业，一端承接数字经济、高端制造等新兴产业增长动能，一端把握传统行业供给侧优化带来的复苏机遇，产业结构与经济转型方向深度契合。
 
 ## 相关推荐
 
-- 2026-06-29 20:41 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 20:44 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 20:37 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-29 20:25 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-29 20:44 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-29 20:29 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 20:32 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 20:44 - [欧洲极端高温如何影响家电股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-29 20:31 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 20:32 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 20:49 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-29 20:33 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 20:32 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 20:49 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-29 20:51 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-29 20:32 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 20:49 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 20:40 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 20:32 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 20:40 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 20:38 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 20:29 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:45 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/9172370776.shtml)
-- 2026-06-29 20:28 - [金鹰奖第二阶段投票明日开启](http://www.share.kurohicncr.top/Article/details/17498886.shtml)
-- 2026-06-29 20:43 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/999469964.shtml)
-- 2026-06-29 20:46 - [普京建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/3301943232.shtml)
-- 2026-06-29 20:24 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/14784759.shtml)
-- 2026-06-29 20:36 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.minike.top/Article/details/402843.shtml)
-- 2026-06-29 20:37 - [孙俪开QQ的蛮好生活](http://www.blog.minike.top/Article/details/743289.shtml)
-- 2026-06-29 20:25 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/5203785.shtml)
-- 2026-06-29 20:32 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/64938.shtml)
-- 2026-06-29 20:42 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/79503211.shtml)
-- 2026-06-29 20:25 - [上世纪90年代玩具成新宠](http://www.blog.kurohicncr.top/Article/details/526696833.shtml)
-- 2026-06-29 20:23 - [高考1357分的同学如何报志愿？](http://www.share.kurohicncr.top/Article/details/0592515.shtml)
-- 2026-06-29 20:28 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/799711332341.shtml)
-- 2026-06-29 20:43 - [周杰伦演唱会含星量](https://www.share.kurohicncr.top/Article/details/2751960.shtml)
-- 2026-06-29 20:44 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/64027550396.shtml)
+- 2026-06-29 20:33 - [媒体：听清自己内心的声音再填志愿](http://www.share.kurohicncr.top/Article/details/249635165181.shtml)
+- 2026-06-29 20:25 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/65227.shtml)
+- 2026-06-29 20:25 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/506158251699.shtml)
+- 2026-06-29 20:25 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/0731932.shtml)
+- 2026-06-29 20:47 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/9704374.shtml)
+- 2026-06-29 20:53 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/73624919560.shtml)
+- 2026-06-29 20:31 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/55715466.shtml)
+- 2026-06-29 20:42 - [曝屠颖去世和酒店失责有关](http://www.share.minike.top/Article/details/840916.shtml)
+- 2026-06-29 20:36 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/362720413.shtml)
+- 2026-06-29 20:44 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/821592929549.shtml)
+- 2026-06-29 20:33 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.kurohicncr.top/Article/details/91864.shtml)
+- 2026-06-29 20:53 - [C罗10球7球对垫底队](https://www.share.kurohicncr.top/Article/details/6110237.shtml)
+- 2026-06-29 20:48 - [哈兰德玩游戏连女友都不让着](https://www.blog.kurohicncr.top/Article/details/656044828374.shtml)
+- 2026-06-29 20:47 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/682108187.shtml)
+- 2026-06-29 20:41 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/235421934804.shtml)

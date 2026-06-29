@@ -1,60 +1,46 @@
-# 合资理财首现管理规模千亿级公司
+# 特朗普将访华 北京机场高速公路附近挂起中美两国国旗
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-法巴农银理财资产管理规模（AUM）突破1000亿元。 据农业银行5月8日消息，法巴农银理财资产管理规模（AUM）突破1000亿元，成为首家AUM突破千亿关口的合资理财公司。 公开资料显示，法巴农银理财成立于2023年7月，同年9月正式开业，是我国第5家外资控股的合资理财公司。该公司注册资本为10亿元，由农业银行全资子公司农银理财（持股49%）、法国巴黎银行旗下法国巴黎资产管理公
+发布时间：2026年05月13日 18:19 来源：中国新闻网 5月13日，北京。美国总统特朗普将于5月13日至15日访华，北京首都国际机场高速公路附近挂起中美两国国旗。(记者 贾楠 卢晓娜 制作 王雪尔) 责任编辑：【刘湃】
 
 ## 正文
 
-法巴农银理财资产管理规模（AUM）突破1000亿元。
+发布时间：2026年05月13日 18:19 来源：中国新闻网 5月13日，北京。
 
-据农业银行5月8日消息，法巴农银理财资产管理规模（AUM）突破1000亿元，成为首家AUM突破千亿关口的合资理财公司。
+美国总统特朗普将于5月13日至15日访华，北京首都国际机场高速公路附近挂起中美两国国旗。
 
-公开资料显示，法巴农银理财成立于2023年7月，同年9月正式开业，是我国第5家外资控股的合资理财公司。
-
-该公司注册资本为10亿元，由农业银行全资子公司农银理财（持股49%）、法国巴黎银行旗下法国巴黎资产管理公司（持股51%）合资设立。
-
-2020年9月，我国首家外资控股的合资理财公司汇华理财成立。
-
-之后，贝莱德建信理财（2021年）、施罗德交银理财（2022年）、高盛工银理财（2022年）、法巴农银理财（2023年）陆续登场。
-
-企业预警通数据显示，截至2024年末、2025年末，法巴农银理财产品存续规模分别在296亿元、893亿元左右。
-
-以此计算，去年其产品规模增长了2倍左右。
+(记者 贾楠 卢晓娜 制作 王雪尔) 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-29 20:22 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 20:24 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-29 20:31 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 20:26 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 20:32 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 20:39 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-29 20:19 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 20:31 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-29 20:28 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 20:39 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 20:41 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-29 20:19 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-29 20:21 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 20:20 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 20:39 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-29 20:39 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 20:47 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-29 20:34 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-29 20:38 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-29 20:36 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 20:53 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-29 20:46 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 20:34 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-29 20:49 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:18 - [毒液2](http://www.blog.minike.top/Article/details/208558980697.shtml)
-- 2026-06-29 20:46 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/819313825.shtml)
-- 2026-06-29 20:21 - [媒体评恋与深空用“引狼入室”台词](http://www.share.kurohicncr.top/Article/details/294607.shtml)
-- 2026-06-29 20:25 - [媒体评恋与深空用“引狼入室”台词](https://www.share.kurohicncr.top/Article/details/853747.shtml)
-- 2026-06-29 20:40 - [18岁高二体育生训练晕倒后离世](https://www.share.minike.top/Article/details/38027147378.shtml)
-- 2026-06-29 20:44 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/793754089810.shtml)
-- 2026-06-29 20:29 - [Ella回应SHE何时合体](https://www.share.kurohicncr.top/Article/details/00779380.shtml)
-- 2026-06-29 20:32 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/76598.shtml)
-- 2026-06-29 20:41 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/7511526625.shtml)
-- 2026-06-29 20:30 - [中外合作办学是“低分捷径”吗](http://www.share.minike.top/Article/details/2374547.shtml)
-- 2026-06-29 20:43 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/789236189.shtml)
-- 2026-06-29 20:25 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/124928925203.shtml)
-- 2026-06-29 20:41 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/16098896239.shtml)
-- 2026-06-29 20:43 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/171984.shtml)
-- 2026-06-29 20:44 - [哈兰德玩游戏连女友都不让着](http://www.blog.minike.top/Article/details/82740668.shtml)
+- 2026-06-29 20:27 - [半导体和股市为何没让韩国人起飞](https://www.blog.minike.top/Article/details/375908.shtml)
+- 2026-06-29 20:38 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/4523456604.shtml)
+- 2026-06-29 20:32 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/4837113337.shtml)
+- 2026-06-29 20:42 - [周杰伦千禧年就有小卡了](https://www.blog.minike.top/Article/details/59186229.shtml)
+- 2026-06-29 20:50 - [恋与深空回应争议](https://www.share.minike.top/Article/details/80258647.shtml)
+- 2026-06-29 20:38 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/2783344.shtml)
+- 2026-06-29 20:39 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/968184302616.shtml)
+- 2026-06-29 20:41 - [德国医生在没有空调的手术室工作](http://www.blog.minike.top/Article/details/1732365541.shtml)
+- 2026-06-29 20:44 - [扬名立万](https://www.share.minike.top/Article/details/28264828.shtml)
+- 2026-06-29 20:27 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/58191611.shtml)
+- 2026-06-29 20:35 - [逃狱兄弟](https://www.share.minike.top/Article/details/373574.shtml)
+- 2026-06-29 20:46 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/5596479479.shtml)
+- 2026-06-29 20:39 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/032183.shtml)
+- 2026-06-29 20:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/787949542.shtml)
+- 2026-06-29 20:53 - [急先锋](http://www.share.minike.top/Article/details/5423820709.shtml)

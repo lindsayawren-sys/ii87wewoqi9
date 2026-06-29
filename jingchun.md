@@ -1,61 +1,57 @@
-# 交通银行中高层调整 涉及多家省分行和交银国际信托
+# 第79届戛纳电影节开幕
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-来源：金融人事mini 4月29日，交通银行披露2026年一季报。今年1-3月，交行实现营业收入696.18亿元，同比增长4.89%；归母净利润261.62亿元，同比增长3.11%。截至一季度末，交行资产总额162，729.60亿元，较上年末增长4.66%。 同日，交行发布董事会决议公告，其中，提请股东会选举原建行首席信息官金磐石、原太保寿险董事长潘艳红为独立董事；聘任刘雷为交
+中新社巴黎5月12日电 (记者 李洋)第79届戛纳电影节当地时间12日开幕。电影节开幕典礼当晚在戛纳节庆宫举行。 本届戛纳电影节评委会主席由韩国导演朴赞郁担任。本届电影节荣誉金棕榈奖颁给新西兰导演彼得·杰克逊和美国老牌影星芭芭拉·斯特赖桑德。影星巩俐在开幕典礼上致辞并以中文宣布本届电影节开幕。 法国导演皮埃尔·沙尔瓦多利的作品《电动维纳斯》成为本届电影节的开幕影片。电影节官方海
 
 ## 正文
 
-来源：金融人事mini 4月29日，交通银行披露2026年一季报。
+中新社巴黎5月12日电 (记者 李洋)第79届戛纳电影节当地时间12日开幕。
 
-今年1-3月，交行实现营业收入696.18亿元，同比增长4.89%；归母净利润261.62亿元，同比增长3.11%。
+电影节开幕典礼当晚在戛纳节庆宫举行。
 
-截至一季度末，交行资产总额162，729.60亿元，较上年末增长4.66%。
+本届戛纳电影节评委会主席由韩国导演朴赞郁担任。
 
-同日，交行发布董事会决议公告，其中，提请股东会选举原建行首席信息官金磐石、原太保寿险董事长潘艳红为独立董事；聘任刘雷为交行首席信息官，待其任职获准后，副行长钱斌将不再兼任首席信息官。
+本届电影节荣誉金棕榈奖颁给新西兰导演彼得·杰克逊和美国老牌影星芭芭拉·斯特赖桑德。
 
-一、新任首席信息官 刘雷，1972年生，华东理工大学工学学士，工程师，自2025年起任交行金融科技部总经理、金融科技创新研究院院长。
+影星巩俐在开幕典礼上致辞并以中文宣布本届电影节开幕。
 
-曾任交行数字化转型办公室主任，软件开发中心总经理，期间兼任交银金科董事长、总裁、交银金科筹建组副组长；软件开发中心（上海）总经理，软件开发中心副总经理、总经理助理，软件开发中心总工程师办公室高级经理、开发一部高级经理等职务。
+法国导演皮埃尔·沙尔瓦多利的作品《电动维纳斯》成为本届电影节的开幕影片。
 
-据年报介绍，交行持续强化数字金融顶层设计，成立数智化经营中心，提升集中集约效能；深化数字技术和数据要素创新应用，部署AI智能体助手超2，500个，覆盖精准营销、风险防控、业务流程再造、基层减负等场景。
+电影节官方海报采用的是1991年美国电影《末路狂花》的画面。
 
-2025年，交行金融科技投入123.42亿元，同比上升6.81%；为营业收入的5.78%，同比上升0.32个百分点。
+共有22部影片入围本届电影节主竞赛单元，角逐最高奖项“金棕榈奖”。
 
 ## 相关推荐
 
-- 2026-06-29 20:36 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-29 20:39 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 20:28 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-29 20:20 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-29 20:23 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-29 20:18 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 20:41 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-29 20:39 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 20:31 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-29 20:27 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 20:20 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 20:19 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-29 20:40 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 20:44 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-29 20:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 20:36 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 20:33 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 20:36 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 20:44 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-29 20:47 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-29 20:30 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 20:49 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 20:46 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-29 20:33 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 20:43 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-29 20:26 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:31 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/269560.shtml)
-- 2026-06-29 20:45 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/67331616.shtml)
-- 2026-06-29 20:23 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.kurohicncr.top/Article/details/59032548.shtml)
-- 2026-06-29 20:39 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/33167.shtml)
-- 2026-06-29 20:30 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/29040.shtml)
-- 2026-06-29 20:25 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/1239484613.shtml)
-- 2026-06-29 20:41 - [曝腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/065480.shtml)
-- 2026-06-29 20:22 - [C罗10球7球对垫底队](http://www.blog.kurohicncr.top/Article/details/12754614.shtml)
-- 2026-06-29 20:25 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/699748845.shtml)
-- 2026-06-29 20:42 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/19888.shtml)
-- 2026-06-29 20:45 - [湖南姑娘被东北同事带偏口音](https://www.blog.minike.top/Article/details/634740.shtml)
-- 2026-06-29 20:27 - [欧洲安装一台空调要花近8000元](https://www.share.minike.top/Article/details/1867633.shtml)
-- 2026-06-29 20:40 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/0147932602.shtml)
-- 2026-06-29 20:45 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/7211000.shtml)
-- 2026-06-29 20:35 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/372692.shtml)
+- 2026-06-29 20:39 - [温网](https://www.share.minike.top/Article/details/961167.shtml)
+- 2026-06-29 20:25 - [剧宣天才虞书欣发力了](http://www.blog.kurohicncr.top/Article/details/522449662581.shtml)
+- 2026-06-29 20:49 - [CORTIS 小牌大耍](https://www.blog.kurohicncr.top/Article/details/7052286.shtml)
+- 2026-06-29 20:25 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/95048376.shtml)
+- 2026-06-29 20:51 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.minike.top/Article/details/55239.shtml)
+- 2026-06-29 20:44 - [杨紫视后第一场线下活动](http://www.blog.kurohicncr.top/Article/details/3477201.shtml)
+- 2026-06-29 20:46 - [白玉兰答谢宴合影](http://www.share.minike.top/Article/details/56492650235.shtml)
+- 2026-06-29 20:26 - [《新闻联播》正在直播](http://www.share.minike.top/Article/details/525005441.shtml)
+- 2026-06-29 20:48 - [扩军害了世界杯吗](https://www.blog.minike.top/Article/details/24668204885.shtml)
+- 2026-06-29 20:51 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/48260665.shtml)
+- 2026-06-29 20:50 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/7550670512.shtml)
+- 2026-06-29 20:28 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/74003068969.shtml)
+- 2026-06-29 20:51 - [不烧钱的低成本爱好](http://www.share.minike.top/Article/details/1231220064.shtml)
+- 2026-06-29 20:36 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/24921931941.shtml)
+- 2026-06-29 20:42 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/1881243331.shtml)

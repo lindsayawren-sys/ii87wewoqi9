@@ -1,49 +1,58 @@
-# *ST恒久：深交所拟决定终止公司股票上市交易
+# 韩正同文莱王储比拉会谈：推动中文命运共同体建设迈上新台阶
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-人民财讯5月8日电，*ST恒久（维权）（002808）5月8日公告，公司当日收到深交所下发的《终止上市事先告知书》，拟决定终止公司股票上市交易。 公司2024年度利润总额、归属于母公司股东的净利润、扣除非经常性损益后的净利润均为负值且扣除后营业收入低于3亿元；公司2025年度财务会计报告被出具无法表示意见的审计报告，财务报告内部控制被出具无法表示意见的审计报告。
+中新社北京5月12日电 5月12日，中国国家副主席韩正在北京同文莱王储比拉举行会谈。 韩正表示，中文友谊根植于跨越千年的友好交往，是国家间平等相待、互利共赢的典范。去年习近平主席同哈桑纳尔苏丹就构建中文命运共同体达成重要共识，为中文关系发展擘画了新蓝图。习近平主席刚刚同你会见，就中文关系发展提出了重要意见。今年是中文建交35周年，中方愿同文方共同落实好两国元首重要共识，传承传统
 
 ## 正文
 
-人民财讯5月8日电，*ST恒久（维权）（002808）5月8日公告，公司当日收到深交所下发的《终止上市事先告知书》，拟决定终止公司股票上市交易。
+中新社北京5月12日电 5月12日，中国国家副主席韩正在北京同文莱王储比拉举行会谈。
 
-公司2024年度利润总额、归属于母公司股东的净利润、扣除非经常性损益后的净利润均为负值且扣除后营业收入低于3亿元；公司2025年度财务会计报告被出具无法表示意见的审计报告，财务报告内部控制被出具无法表示意见的审计报告。
+韩正表示，中文友谊根植于跨越千年的友好交往，是国家间平等相待、互利共赢的典范。
+
+去年习近平主席同哈桑纳尔苏丹就构建中文命运共同体达成重要共识，为中文关系发展擘画了新蓝图。
+
+习近平主席刚刚同你会见，就中文关系发展提出了重要意见。
+
+今年是中文建交35周年，中方愿同文方共同落实好两国元首重要共识，传承传统友谊，增进战略合作，推动中文命运共同体建设迈上新台阶。
+
+韩正表示，两国要在涉及彼此核心利益问题上相互支持，发挥好中文政府间联合指导委员会机制作用，深入推动共建“一带一路”旗舰项目，拓展人工智能、数字经济、绿色经济、能源、农业等领域合作。
+
+办好建交35周年系列庆祝活动，加强旅游、教育、地方、体育等交流合作，进一步便利人员往来。
+
+双方要密切多边协作，携手应对全球和地区性挑战，加快构建更为紧密的中国－东盟命运共同体，促进地区稳定与繁荣。
 
 ## 相关推荐
 
-- 2026-06-29 20:44 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-29 20:40 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-29 20:41 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 20:30 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-29 20:32 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 20:38 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 20:22 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-29 20:41 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-29 20:21 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-29 20:23 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
-- 2026-06-29 20:29 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-29 20:33 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-29 20:26 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-29 20:38 - [德国医生在没有空调的手术室工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 20:21 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-29 20:38 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 20:24 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-29 20:27 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-29 20:36 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-29 20:43 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-29 20:47 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 20:53 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 20:49 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 20:32 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 20:46 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-29 20:29 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-29 20:45 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:27 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/815416725.shtml)
-- 2026-06-29 20:18 - [郑钦文谈再战西尼亚科娃](http://www.share.kurohicncr.top/Article/details/91983823.shtml)
-- 2026-06-29 20:34 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/842760667220.shtml)
-- 2026-06-29 20:18 - [2026全国田径冠军赛江苏队4金收官](http://www.share.minike.top/Article/details/4623326.shtml)
-- 2026-06-29 20:27 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/629500005803.shtml)
-- 2026-06-29 20:26 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/26133.shtml)
-- 2026-06-29 20:47 - [华工科技龙虎榜数据](https://www.share.kurohicncr.top/Article/details/62205.shtml)
-- 2026-06-29 20:44 - [LPL第三赛段赛制公布](https://www.blog.minike.top/Article/details/49844068.shtml)
-- 2026-06-29 20:30 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/46036.shtml)
-- 2026-06-29 20:24 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.kurohicncr.top/Article/details/0974522775.shtml)
-- 2026-06-29 20:27 - [本届世界杯已有5人涉性侵风波](http://www.share.kurohicncr.top/Article/details/877033122.shtml)
-- 2026-06-29 20:22 - [律师解读滚石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/085774469.shtml)
-- 2026-06-29 20:40 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.minike.top/Article/details/198370100.shtml)
-- 2026-06-29 20:26 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/518897314.shtml)
-- 2026-06-29 20:20 - [大学专业未来如何洗牌](https://www.share.minike.top/Article/details/3501799762.shtml)
+- 2026-06-29 20:41 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/00124652.shtml)
+- 2026-06-29 20:26 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/99085484.shtml)
+- 2026-06-29 20:49 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/646169310838.shtml)
+- 2026-06-29 20:49 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/9243490760.shtml)
+- 2026-06-29 20:47 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/214389421233.shtml)
+- 2026-06-29 20:52 - [曝腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/216092.shtml)
+- 2026-06-29 20:47 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/8964455.shtml)
+- 2026-06-29 20:32 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/93042422942.shtml)
+- 2026-06-29 20:26 - [蔚来回应车漆洗车时被冲掉](http://www.share.kurohicncr.top/Article/details/146621575719.shtml)
+- 2026-06-29 20:31 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/70170246534.shtml)
+- 2026-06-29 20:33 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/8329550798.shtml)
+- 2026-06-29 20:37 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/706440.shtml)
+- 2026-06-29 20:51 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/982928798.shtml)
+- 2026-06-29 20:31 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/45717956.shtml)
+- 2026-06-29 20:35 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/1179545937.shtml)

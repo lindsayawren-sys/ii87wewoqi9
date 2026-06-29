@@ -1,58 +1,53 @@
-# 九三学社海南省委员会赴安徽开展专题调研
+# 泰国师生广西桂林沉浸式体验中医药文化魅力
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-原标题：九三学社海南省委员会赴安徽开展专题调研 深化“皖琼合作”助力自贸港建设 4月28日至30日，九三学社海南省委员会调研组赴安徽合肥，围绕科技创新、产业投资及“皖琼合作”等开展专题调研。九三学社中央常委、海南欧美同学会会长过建春参加调研，九三学社安徽省委主委、安徽省政协副主席罗平陪同调研并主持座谈会。 此次调研是九三学社中央2026年度重点调研课题的重要组成部分，调研成果将
+中新网桂林5月12日电(杨宗盛)广西桂林市中医医院11日举办高质量发展系列活动，并举行国家岐黄学者、桂派中医大师谢胜教授收徒拜师仪式。来自泰国玛哈沙拉坎大学附属中学的42名师生走进医院，沉浸式体验中医药文化。 活动当天，在药剂师指导下，泰国学生辨识中草药、制作香囊，并在中医护理门诊体验耳穴压豆、艾灸等传统中医疗法。拜师仪式上，6名年轻医师依次呈递拜师帖、行拜师礼，敬拜谢胜为师。
 
 ## 正文
 
-原标题：九三学社海南省委员会赴安徽开展专题调研 深化“皖琼合作”助力自贸港建设 4月28日至30日，九三学社海南省委员会调研组赴安徽合肥，围绕科技创新、产业投资及“皖琼合作”等开展专题调研。
+中新网桂林5月12日电(杨宗盛)广西桂林市中医医院11日举办高质量发展系列活动，并举行国家岐黄学者、桂派中医大师谢胜教授收徒拜师仪式。
 
-九三学社中央常委、海南欧美同学会会长过建春参加调研，九三学社安徽省委主委、安徽省政协副主席罗平陪同调研并主持座谈会。
+来自泰国玛哈沙拉坎大学附属中学的42名师生走进医院，沉浸式体验中医药文化。
 
-此次调研是九三学社中央2026年度重点调研课题的重要组成部分，调研成果将形成专题报告报送社中央，并为社中央“九三论坛”提供重要素材支撑。
+活动当天，在药剂师指导下，泰国学生辨识中草药、制作香囊，并在中医护理门诊体验耳穴压豆、艾灸等传统中医疗法。
 
-调研组一行先后实地考察了合肥产业投资控股（集团）有限公司、科大讯飞股份有限公司、中电信量子信息科技集团有限公司、深空探测实验室及安徽创新馆，深入了解安徽在科技成果转化、量子科技、人工智能、空天信息等领域的创新实践与产业生态。
+拜师仪式上，6名年轻医师依次呈递拜师帖、行拜师礼，敬拜谢胜为师。
 
-调研组指出，安徽近年来坚持把创新作为引领发展的首要动力，在新兴产业培育、科创平台建设、产学研协同等方面走在全国前列，其“以投带引”的资本招商模式、前沿技术应用场景建设等经验，对海南自贸港培育新质生产力具有重要借鉴意义。
+据介绍，作为桂林医科大学“读懂中国”实践教育基地之一，桂林市中医医院此次活动集工作室揭牌、中医药文化国际交流、中医护理文创展示于一体，融合“五行十态体质”体系与桂派中医、壮瑶民族医药资源，打造高水平传承创新平台，立足桂林、辐射桂北，为广西中医药事业发展注入新动能，为中国与东盟国家的人文交流搭建平台。
 
-调研期间，调研组与九三学社安徽省委举行座谈，双方围绕社务工作、参政议政经验以及推动“皖琼合作”等进行了深入交流。
-
-罗平对海南九三学社海南省委会一行的到来表示热烈欢迎，并介绍了九三学社安徽省委员会在社务工作、参政议政等方面的经验做法。
-
-罗平指出，“皖琼合作”是“九琼合作”框架下省际联动的重要组成部分。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 20:31 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-29 20:20 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-29 20:28 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-29 20:28 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-29 20:29 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-29 20:27 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-29 20:31 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-29 20:24 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 20:43 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 20:43 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-29 20:27 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 20:32 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 20:40 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 20:48 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 20:36 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 20:28 - [T1零封KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 20:39 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-29 20:40 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-29 20:24 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-29 20:47 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 20:48 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 20:27 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-29 20:31 - [福建海警位金门附近海域常态执法巡查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:45 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.kurohicncr.top/Article/details/19934.shtml)
-- 2026-06-29 20:29 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/4220872074.shtml)
-- 2026-06-29 20:24 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/002059216890.shtml)
-- 2026-06-29 20:43 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/98886023.shtml)
-- 2026-06-29 20:26 - [C罗10球7球对垫底队](https://www.share.kurohicncr.top/Article/details/6937832565.shtml)
-- 2026-06-29 20:27 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/184061513346.shtml)
-- 2026-06-29 20:20 - [CORTIS 小牌大耍](https://www.share.minike.top/Article/details/17535990.shtml)
-- 2026-06-29 20:43 - [爱奇艺抬高国剧新标尺](http://www.share.kurohicncr.top/Article/details/9020036417.shtml)
-- 2026-06-29 20:26 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/353265.shtml)
-- 2026-06-29 20:33 - [锐评白玉兰提名片段](http://www.share.kurohicncr.top/Article/details/1356494.shtml)
-- 2026-06-29 20:22 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/3514366.shtml)
-- 2026-06-29 20:38 - [刘冰任河南南阳市代市长](https://www.blog.minike.top/Article/details/239534712.shtml)
-- 2026-06-29 20:47 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/2554132.shtml)
-- 2026-06-29 20:42 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/40162988430.shtml)
-- 2026-06-29 20:25 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/67660.shtml)
+- 2026-06-29 20:53 - [小众羞耻点是吃麻辣烫](https://www.share.kurohicncr.top/Article/details/730112180.shtml)
+- 2026-06-29 20:36 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/1988179198.shtml)
+- 2026-06-29 20:32 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/02907199.shtml)
+- 2026-06-29 20:47 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/62961595.shtml)
+- 2026-06-29 20:28 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/08060745.shtml)
+- 2026-06-29 20:42 - [高质量发展看新疆](http://www.blog.minike.top/Article/details/0312486.shtml)
+- 2026-06-29 20:30 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/8464021559.shtml)
+- 2026-06-29 20:49 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.blog.kurohicncr.top/Article/details/46991354.shtml)
+- 2026-06-29 20:53 - [北京发布地质灾害气象风险蓝色预警](https://www.share.kurohicncr.top/Article/details/93226859268.shtml)
+- 2026-06-29 20:29 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/327999.shtml)
+- 2026-06-29 20:31 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/472489.shtml)
+- 2026-06-29 20:24 - [扩军害了世界杯吗](https://www.blog.minike.top/Article/details/615733550005.shtml)
+- 2026-06-29 20:32 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/4526144954.shtml)
+- 2026-06-29 20:52 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.kurohicncr.top/Article/details/08676.shtml)
+- 2026-06-29 20:48 - [极限挑战第一季](https://www.share.minike.top/Article/details/2622208.shtml)

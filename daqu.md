@@ -1,61 +1,59 @@
-# 多个“小而美”项目在尼泊尔落地 中尼民生合作绘就幸福画卷
+# 习近平会见联合国教科文组织总干事阿纳尼
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-在尼泊尔努瓦科特县金塘村，梯田茶园绿意盎然，清新茶香萦绕山间。在村中的一座现代化茶叶产业帮扶车间里，村民们送来的鲜叶经过揉捻、发酵、干燥等工序，转化为滋味醇厚的高山茶。“多亏了‘活力乡村’项目，茶叶种植和加工让我们的年收入明显提高，为全村进一步发展打下了基础。”金塘村有机茶生产合作社负责人萨尔曼·塔芒喜笑颜开。近年来，中国驻尼泊尔大使馆积极发挥中国南亚国家减贫与发展合作中心的平
+中新社北京5月12日电 5月12日下午，中国国家主席习近平在北京人民大会堂会见联合国教科文组织总干事阿纳尼。 习近平指出，联合国教科文组织为增进各国人民相互了解信任、推动不同文明交流互鉴作出了重要贡献，也为改革完善全球教育、科学、文化治理发挥了积极作用。中方积极支持联合国教科文组织工作，双方共同为维护世界和平、促进全球发展做了很多事情。中方愿同联合国教科文组织深化战略合作，更好
 
 ## 正文
 
-在尼泊尔努瓦科特县金塘村，梯田茶园绿意盎然，清新茶香萦绕山间。
+中新社北京5月12日电 5月12日下午，中国国家主席习近平在北京人民大会堂会见联合国教科文组织总干事阿纳尼。
 
-在村中的一座现代化茶叶产业帮扶车间里，村民们送来的鲜叶经过揉捻、发酵、干燥等工序，转化为滋味醇厚的高山茶。
+习近平指出，联合国教科文组织为增进各国人民相互了解信任、推动不同文明交流互鉴作出了重要贡献，也为改革完善全球教育、科学、文化治理发挥了积极作用。
 
-“多亏了‘活力乡村’项目，茶叶种植和加工让我们的年收入明显提高，为全村进一步发展打下了基础。
+中方积极支持联合国教科文组织工作，双方共同为维护世界和平、促进全球发展做了很多事情。
 
-”金塘村有机茶生产合作社负责人萨尔曼·塔芒喜笑颜开。
+中方愿同联合国教科文组织深化战略合作，更好造福世界各国人民。
 
-近年来，中国驻尼泊尔大使馆积极发挥中国南亚国家减贫与发展合作中心的平台作用，聚焦尼泊尔民众最迫切需求，推动“活力乡村”“闪亮未来”“甘露计划”等多个“小而美”民生项目落地尼泊尔，聚焦农业生产、学校教育、饮水安全等领域，多维度助力当地民生改善。
+习近平强调，当前，和平、发展、合作、共赢的时代潮流没有变，但冷战思维、霸权主义、单边主义卷土重来，全球治理走到新的十字路口。
 
-项目坚持本地化参与和能力建设并重，让中尼友谊在基层扎根生长。
+中方始终坚定践行真正的多边主义，支持和维护联合国权威，支持联合国教科文组织在全球治理中发挥重要作用。
 
-“活力乡村”激活山村茶香 努瓦科特地形崎岖、山峦耸立，被称作“九山之城”。
+中方愿同联合国教科文组织一道落实好四大全球倡议，让各国人民共享教育、科学、文化发展成果，更好应对人类社会面临的共同挑战，携手推动构建人类命运共同体。
 
-自上世纪70年代起，金塘村村民便开始尝试种植茶树。
+双方要深化人工智能、开放科学、数字教育等合作，倡导尊重世界文明多样性，推动不同文明相互尊重、和谐共处，加强同全球南方国家合作，推动文化遗产保护和文明交流互鉴。
 
 ## 相关推荐
 
-- 2026-06-29 20:26 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 20:34 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 20:18 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 20:35 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 20:45 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-29 20:23 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-29 20:44 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-29 20:32 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 20:40 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 20:45 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-29 20:18 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 20:40 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-29 20:25 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-29 20:47 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 20:34 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 20:50 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 20:32 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 20:48 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 20:50 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 20:24 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 20:36 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 20:53 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 20:47 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-29 20:26 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-29 20:24 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-29 20:47 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-29 20:40 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 20:33 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:20 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/766179464.shtml)
-- 2026-06-29 20:46 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/60004054922.shtml)
-- 2026-06-29 20:23 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.kurohicncr.top/Article/details/72392.shtml)
-- 2026-06-29 20:29 - [欧洲极端高温如何影响家电股](https://www.share.minike.top/Article/details/7317223817.shtml)
-- 2026-06-29 20:39 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/0131451.shtml)
-- 2026-06-29 20:19 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.kurohicncr.top/Article/details/745457225945.shtml)
-- 2026-06-29 20:36 - [天道](https://www.share.kurohicncr.top/Article/details/6603026066.shtml)
-- 2026-06-29 20:47 - [腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/7994779.shtml)
-- 2026-06-29 20:28 - [小众羞耻点是吃麻辣烫](http://www.share.kurohicncr.top/Article/details/906268911318.shtml)
-- 2026-06-29 20:41 - [记者暗访养老机构消防安全](http://www.share.minike.top/Article/details/6306115.shtml)
-- 2026-06-29 20:29 - [第一炉香](http://www.share.kurohicncr.top/Article/details/57334669.shtml)
-- 2026-06-29 20:22 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/43630.shtml)
-- 2026-06-29 20:47 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/1772910.shtml)
-- 2026-06-29 20:45 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/283760359.shtml)
-- 2026-06-29 20:19 - [LPL第三赛段赛制公布](http://www.blog.kurohicncr.top/Article/details/723057542.shtml)
+- 2026-06-29 20:25 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/9093485.shtml)
+- 2026-06-29 20:47 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/916751791726.shtml)
+- 2026-06-29 20:27 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/59928510741.shtml)
+- 2026-06-29 20:40 - [外交部回应中日经贸问题](http://www.blog.minike.top/Article/details/4088543.shtml)
+- 2026-06-29 20:47 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.minike.top/Article/details/779910963518.shtml)
+- 2026-06-29 20:43 - [日美楼市危机复盘：见底顺序曝光](http://www.share.kurohicncr.top/Article/details/38213427953.shtml)
+- 2026-06-29 20:51 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/13738881211.shtml)
+- 2026-06-29 20:27 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/618254821818.shtml)
+- 2026-06-29 20:46 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/3099925461.shtml)
+- 2026-06-29 20:36 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/751756.shtml)
+- 2026-06-29 20:45 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/0390089.shtml)
+- 2026-06-29 20:43 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/0849956421.shtml)
+- 2026-06-29 20:35 - [互助版模拟高考志愿填报](http://www.share.minike.top/Article/details/862906.shtml)
+- 2026-06-29 20:43 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/19142.shtml)
+- 2026-06-29 20:44 - [TTG KSG](https://www.share.minike.top/Article/details/448787.shtml)

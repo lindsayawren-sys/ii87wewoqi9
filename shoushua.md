@@ -1,57 +1,57 @@
-# 30载田埂问技 他让河套农民有了种地“活教材”
+# 长江有色：CPI爆表美指反弹但储能需求亮眼 13日铅价或震荡反弹
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-中新网巴彦淖尔5月8日电 题：30载田埂问技 他让河套农民有了种地“活教材” 中新网记者 张林虎 “播种深度4到5厘米，每亩下种25到27.5公斤，肥用25到30公斤，墒情跟上，苗才能好。”播种时节，河套平原上农机轰鸣。在内蒙古自治区巴彦淖尔市乌拉特前旗红光村的小麦示范田里，乌拉特前旗农牧业技术推广中心副主任张光蹲在地头，手把手教种植户调试播种机。 自1996年参加工作，张光在
+【ccmn.cn铅期货市场】隔周伦铅收涨，开盘报1987.0美元/吨，高点报1998美元，低点报1972.50美元，尾盘收于1997.50美元，上涨9美元，涨幅为0.45%，成交量为10339手，持仓量报176505手。 长江铅业网（pb.ccmn.cn）今日现货铅价行情预估：美国 4 月 CPI 超预期升温引发全球市场剧烈震荡。最新数据显示，4 月 CPI 同比上涨 3.8%
 
 ## 正文
 
-中新网巴彦淖尔5月8日电 题：30载田埂问技 他让河套农民有了种地“活教材” 中新网记者 张林虎 “播种深度4到5厘米，每亩下种25到27.5公斤，肥用25到30公斤，墒情跟上，苗才能好。
+【ccmn.cn铅期货市场】隔周伦铅收涨，开盘报1987.0美元/吨，高点报1998美元，低点报1972.50美元，尾盘收于1997.50美元，上涨9美元，涨幅为0.45%，成交量为10339手，持仓量报176505手。
 
-”播种时节，河套平原上农机轰鸣。
+长江铅业网（pb.ccmn.cn）今日现货铅价行情预估：美国 4 月 CPI 超预期升温引发全球市场剧烈震荡。
 
-在内蒙古自治区巴彦淖尔市乌拉特前旗红光村的小麦示范田里，乌拉特前旗农牧业技术推广中心副主任张光蹲在地头，手把手教种植户调试播种机。
+最新数据显示，4 月 CPI 同比上涨 3.8%、核心 CPI 同比上涨 2.8%，双双超出市场预期，通胀粘性超预期导致美联储年内降息预期基本归零，12 月加息概率飙升至 30.6%。
 
-自1996年参加工作，张光在基层农技推广一线已经干了30年，带着农民兄弟们一次次刷新高产纪录，也一点点改变着“看天种地”的老法子。
+受此影响，美元指数两日连涨至一周高位 98.2关口，美股科技股大幅承压，基本金属普遍呈现震荡下跌走势。
 
-蹲在田头教技术 “以前种向日葵凭经验，种密了易倒伏，种稀了产量低。
+然而在此背景下，伦铅却逆势走出独立上涨行情，引发市场高度关注。
 
-张主任教的‘扩行降密、免耕栽培’，一亩地能多挣200多元。
+究其原因，美伊地缘冲突升级推升国际油价逼近 103 美元 / 桶，能源成本上涨显著抬升工业金属生产成本，叠加国内制造业 PMI 连续三个月扩张、设备更新政策加速落地带来的需求支撑，共同抵消了美元走强带来的压制效应。
 
-”先锋村种植户说起张光，语气里满是感激。
+供应端呈现 “矿紧再生弱” 格局。
 
-张光说，农技推广不能光靠发资料、开大会，得让农民看得见、摸得着。
+全球铅精矿供应持续偏紧，进口加工费维持历史低位，国内港口到港量偏低。
 
 ## 相关推荐
 
-- 2026-06-29 20:40 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 20:34 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 20:21 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-29 20:29 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 20:35 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 20:18 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-29 20:28 - [店员光脚踩入盆中清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 20:30 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-29 20:44 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 20:30 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 20:23 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 20:36 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 20:40 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-29 20:42 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 20:44 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-29 20:29 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-29 20:27 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 20:25 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-29 20:45 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 20:34 - [LPL第三赛段赛制公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 20:46 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 20:45 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:28 - [刘冰任河南南阳市代市长](http://www.share.kurohicncr.top/Article/details/19667.shtml)
-- 2026-06-29 20:41 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/9731142835.shtml)
-- 2026-06-29 20:33 - [天道](http://www.share.minike.top/Article/details/407400334.shtml)
-- 2026-06-29 20:28 - [大学专业未来如何洗牌](http://www.share.minike.top/Article/details/368845688.shtml)
-- 2026-06-29 20:27 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/3480428182.shtml)
-- 2026-06-29 20:47 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/5061618.shtml)
-- 2026-06-29 20:27 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/112463.shtml)
-- 2026-06-29 20:43 - [AG 宫斗](https://www.blog.minike.top/Article/details/19713960.shtml)
-- 2026-06-29 20:37 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/39966331.shtml)
-- 2026-06-29 20:46 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/480412182.shtml)
-- 2026-06-29 20:27 - [曝屠颖去世和酒店失责有关](https://www.blog.kurohicncr.top/Article/details/44666491.shtml)
-- 2026-06-29 20:23 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/39398.shtml)
-- 2026-06-29 20:26 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/72960.shtml)
-- 2026-06-29 20:31 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/09725547572.shtml)
-- 2026-06-29 20:35 - [乌是否掌握了扭转战局的钥匙](http://www.blog.kurohicncr.top/Article/details/24814250783.shtml)
+- 2026-06-29 20:24 - [韩国队主帅遭极端网友死亡威胁](https://www.share.kurohicncr.top/Article/details/21760430511.shtml)
+- 2026-06-29 20:28 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.blog.kurohicncr.top/Article/details/221244.shtml)
+- 2026-06-29 20:49 - [吴建豪和老婆差20岁](https://www.share.minike.top/Article/details/48453743.shtml)
+- 2026-06-29 20:30 - [恋与深空各大应用商店评分](https://www.share.kurohicncr.top/Article/details/9438365.shtml)
+- 2026-06-29 20:34 - [乔家的儿女](http://www.share.minike.top/Article/details/846056714.shtml)
+- 2026-06-29 20:37 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.minike.top/Article/details/05450.shtml)
+- 2026-06-29 20:34 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/77183764.shtml)
+- 2026-06-29 20:35 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/71552.shtml)
+- 2026-06-29 20:51 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/732272310348.shtml)
+- 2026-06-29 20:39 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/34384082793.shtml)
+- 2026-06-29 20:50 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/69666.shtml)
+- 2026-06-29 20:27 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/277344.shtml)
+- 2026-06-29 20:30 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/195654500.shtml)
+- 2026-06-29 20:48 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/197422330.shtml)
+- 2026-06-29 20:46 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/601214367.shtml)

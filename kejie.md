@@ -1,57 +1,61 @@
-# 2026年“山西精品”品牌日活动在太原举办
+# 霍尔木兹海峡封航导致基建项目停滞，建材价格飙升
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-中新网太原5月7日电 (记者 杨杰英)在第十个中国品牌日来临之际，2026年“山西精品”品牌日主题活动于5月7日在太原举办。 本次活动由山西省公用品牌建设联合会与太原重型机械集团有限公司联合主办，主题为“质造引领 品牌同行”。来自全省的56家“山西精品”获证企业代表共同发起并签署了“品牌兴企”倡议。 据介绍，“十四五”时期，山西已培育认定200个“山西精品”，其中制造业123个
+受霍尔木兹海峡封锁影响，关键建材供应链中断，涂料、保温材料等石油衍生制品价格暴涨，全球多地建筑项目陷入停摆。 建筑业是全球经济增长的重要支柱，贡献约13%的全球GDP。但建筑企业表示，中东石油供应受限已导致项目全面受阻。 日本广岛前田住宅董事长前田正富称，过去一个月内，公司约四分之一项目延期。供应商无法确认PVC管道、保温材料、预制浴室等货品的交付日期。 建筑商表示，任何一个零
 
 ## 正文
 
-中新网太原5月7日电 (记者 杨杰英)在第十个中国品牌日来临之际，2026年“山西精品”品牌日主题活动于5月7日在太原举办。
+受霍尔木兹海峡封锁影响，关键建材供应链中断，涂料、保温材料等石油衍生制品价格暴涨，全球多地建筑项目陷入停摆。
 
-本次活动由山西省公用品牌建设联合会与太原重型机械集团有限公司联合主办，主题为“质造引领 品牌同行”。
+建筑业是全球经济增长的重要支柱，贡献约13%的全球GDP。
 
-来自全省的56家“山西精品”获证企业代表共同发起并签署了“品牌兴企”倡议。
+但建筑企业表示，中东石油供应受限已导致项目全面受阻。
 
-据介绍，“十四五”时期，山西已培育认定200个“山西精品”，其中制造业123个，占比61.5%，成为山西产业转型升级、实体经济提质增效的重要力量。
+日本广岛前田住宅董事长前田正富称，过去一个月内，公司约四分之一项目延期。
 
-太重作为省内高端装备制造龙头链主企业，产品辐射全国、远销海外，是山西先进制造业高质量发展的典范。
+供应商无法确认PVC管道、保温材料、预制浴室等货品的交付日期。
 
-活动期间，与会人员参观了太重集团品牌成果与核心产品展区。
+建筑商表示，任何一个零件、胶粘剂或材料短缺，都足以拖慢整个项目。
 
-品牌建设领域专家围绕品牌战略、精品培育、价值提升及市场化运营等内容进行了专题授课。
+前田称：“我们有约20个已签约项目无法顺利开工。
 
-山西省市场监管局党组成员、副局长郭新安表示，山西入围世界500强企业数量偏少，国内知名品牌不多，各类区域品牌尚未形成合力。
+预计竣工回款将延迟两到三个月。
 
 ## 相关推荐
 
-- 2026-06-29 20:18 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-29 20:47 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 20:26 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-29 20:23 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 20:39 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 20:25 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-29 20:46 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-29 20:47 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-29 20:23 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-29 20:20 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-29 20:35 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 20:26 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 20:39 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 20:40 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 20:25 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-29 20:32 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 20:32 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 20:52 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-29 20:24 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-29 20:25 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 20:41 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-29 20:50 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-29 20:31 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 20:35 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 20:32 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 20:25 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:44 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/051661.shtml)
-- 2026-06-29 20:26 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/7055969.shtml)
-- 2026-06-29 20:44 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/238262.shtml)
-- 2026-06-29 20:30 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/4240490149.shtml)
-- 2026-06-29 20:25 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/796492405.shtml)
-- 2026-06-29 20:35 - [穆祉丞东方风云榜红毯](http://www.blog.minike.top/Article/details/89165315882.shtml)
-- 2026-06-29 20:19 - [欧洲高温会成下个印度吗](http://www.share.kurohicncr.top/Article/details/10946463.shtml)
-- 2026-06-29 20:20 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.blog.minike.top/Article/details/580706488140.shtml)
-- 2026-06-29 20:29 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/98206604313.shtml)
-- 2026-06-29 20:34 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/3485211.shtml)
-- 2026-06-29 20:22 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/1755323121.shtml)
-- 2026-06-29 20:36 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/91440403161.shtml)
-- 2026-06-29 20:37 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/6692004692.shtml)
-- 2026-06-29 20:45 - [美国一牛仔表演发生事故](http://www.blog.minike.top/Article/details/123528824637.shtml)
-- 2026-06-29 20:33 - [朱雀三号完成静态点火试验](https://www.blog.minike.top/Article/details/2918150096.shtml)
+- 2026-06-29 20:31 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/51751.shtml)
+- 2026-06-29 20:36 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/78461605.shtml)
+- 2026-06-29 20:48 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/51358905.shtml)
+- 2026-06-29 20:45 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/74244242.shtml)
+- 2026-06-29 20:48 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/156911755.shtml)
+- 2026-06-29 20:47 - [天气热脾气都变差了](http://www.share.kurohicncr.top/Article/details/635679.shtml)
+- 2026-06-29 20:40 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/9047436354.shtml)
+- 2026-06-29 20:49 - [天气热脾气都变差了](https://www.blog.minike.top/Article/details/856142.shtml)
+- 2026-06-29 20:44 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/3605668589.shtml)
+- 2026-06-29 20:42 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/95341424.shtml)
+- 2026-06-29 20:41 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/1015673047.shtml)
+- 2026-06-29 20:26 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/94112.shtml)
+- 2026-06-29 20:41 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/1394657112.shtml)
+- 2026-06-29 20:42 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/456473.shtml)
+- 2026-06-29 20:50 - [曝屠颖去世和酒店失责有关](http://www.blog.minike.top/Article/details/20593985.shtml)

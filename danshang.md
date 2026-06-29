@@ -1,61 +1,58 @@
-# 周五非农就业报告前瞻
+# 国内航线燃油附加费将再上调，5月16日起单程最高170元
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-经济学家预测，美国 4 月非农新增就业人数为 6.7 万人，失业率维持在 4.3% 不变。 周五早间即将公布的 4 月就业报告，预计将显示美国就业市场新增 6.7 万个岗位。 这一数值仅为 3 月 17.8 万新增就业人数的约三分之一。 相比之下，4 月就业数据看似大幅放缓、就业增长疲弱；但单独来看，仍算稳健、具备韧性，甚至可以说是回归常态。 2026 年初以来，月度非农就业数
+国内航线燃油附加费将再上调。 5月12日，九元航空发布关于调整国内航线燃油附加征收标准的通知。自5月16日零时起，上调国内航线旅客运输燃油附加费征收标准。800公里（含）以下航线，每位旅客燃油附加征收标准调整为90元。800公里以上航线，每位旅客燃油附加征收标准调整为170元。 这意味着，国内航线旅客运输燃油附加费将分别上调30元和50元。 九元航空公告指出，婴儿旅客免收燃油附
 
 ## 正文
 
-经济学家预测，美国 4 月非农新增就业人数为 6.7 万人，失业率维持在 4.3% 不变。
+国内航线燃油附加费将再上调。
 
-周五早间即将公布的 4 月就业报告，预计将显示美国就业市场新增 6.7 万个岗位。
+5月12日，九元航空发布关于调整国内航线燃油附加征收标准的通知。
 
-这一数值仅为 3 月 17.8 万新增就业人数的约三分之一。
+自5月16日零时起，上调国内航线旅客运输燃油附加费征收标准。
 
-相比之下，4 月就业数据看似大幅放缓、就业增长疲弱；但单独来看，仍算稳健、具备韧性，甚至可以说是回归常态。
+800公里（含）以下航线，每位旅客燃油附加征收标准调整为90元。
 
-2026 年初以来，月度非农就业数据大起大落、波动剧烈，背后有诸多合理短期解释，但更关键的是深层大势正在发生变化：美国就业市场正处在一轮结构性变革之中。
+800公里以上航线，每位旅客燃油附加征收标准调整为170元。
 
-招聘平台 ZipRecruiter 劳动力经济学家妮可・巴肖在接受 CNN 采访时表示： “就业市场正在彻底重塑，再也回不到 2020 年前的增长趋势了。
+这意味着，国内航线旅客运输燃油附加费将分别上调30元和50元。
 
-” 她称，目前市场新的均衡常态究竟是什么，尚无清晰图景。
+九元航空公告指出，婴儿旅客免收燃油附加。
 
-过去六年，美国就业市场乃至整体经济接连遭受多重外部冲击，其中最具代表性的便是百年一遇的全球疫情。
+儿童、按民航局规定享受成人公布普通票价50%优惠的革命伤残军人和因公致残的人民警察实行减半收取，800公里（含）以下航线每位旅客收取40元，800公里以上航线每位旅客收取80元。
 
 ## 相关推荐
 
-- 2026-06-29 20:35 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-29 20:22 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 20:45 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 20:32 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 20:35 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-29 20:21 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 20:21 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-29 20:20 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-29 20:18 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 20:25 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-29 20:37 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 20:24 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-29 20:37 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-29 20:22 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-29 20:26 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-29 20:26 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 20:46 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 20:34 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 20:38 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 20:29 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 20:40 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 20:24 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 20:36 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-29 20:40 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-29 20:52 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-29 20:36 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 20:29 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:30 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/165104056.shtml)
-- 2026-06-29 20:37 - [无畏为自己的猫正名了](http://www.blog.kurohicncr.top/Article/details/6648110.shtml)
-- 2026-06-29 20:45 - [第二波数码涨价潮来袭](http://www.blog.kurohicncr.top/Article/details/4957504.shtml)
-- 2026-06-29 20:24 - [地震来临时铁路工作人员果断拦停列车](https://www.share.minike.top/Article/details/77744519.shtml)
-- 2026-06-29 20:21 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/04251156.shtml)
-- 2026-06-29 20:26 - [委内瑞拉发生余震](http://www.blog.kurohicncr.top/Article/details/443695947.shtml)
-- 2026-06-29 20:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/4052953003.shtml)
-- 2026-06-29 20:28 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/5916841.shtml)
-- 2026-06-29 20:40 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/086747011672.shtml)
-- 2026-06-29 20:25 - [湖南耒阳“轮椅女孩”高考546分](http://www.share.kurohicncr.top/Article/details/59428307434.shtml)
-- 2026-06-29 20:45 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/5318543509.shtml)
-- 2026-06-29 20:41 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/9908855575.shtml)
-- 2026-06-29 20:41 - [无畏为自己的猫正名了](http://www.share.minike.top/Article/details/712616.shtml)
-- 2026-06-29 20:44 - [李思潼：不会介意大家夸我运气好](https://www.blog.kurohicncr.top/Article/details/64934311298.shtml)
-- 2026-06-29 20:20 - [河南高院审委会原委员曲海滨被查](http://www.share.minike.top/Article/details/9338547.shtml)
+- 2026-06-29 20:53 - [恋与深空道歉就够了吗](http://www.blog.minike.top/Article/details/2925569.shtml)
+- 2026-06-29 20:36 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.kurohicncr.top/Article/details/509838.shtml)
+- 2026-06-29 20:28 - [天气热脾气都变差了](http://www.blog.minike.top/Article/details/76597988957.shtml)
+- 2026-06-29 20:40 - [极限挑战第一季](http://www.blog.minike.top/Article/details/3932327.shtml)
+- 2026-06-29 20:25 - [回顾世界杯争议事件](http://www.share.minike.top/Article/details/75594503666.shtml)
+- 2026-06-29 20:51 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/54725.shtml)
+- 2026-06-29 20:29 - [TLAW零封DCG MSI](https://www.share.kurohicncr.top/Article/details/20131524.shtml)
+- 2026-06-29 20:26 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/999002.shtml)
+- 2026-06-29 20:30 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/16270573503.shtml)
+- 2026-06-29 20:47 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/4797256.shtml)
+- 2026-06-29 20:26 - [周生如故](https://www.blog.minike.top/Article/details/34022.shtml)
+- 2026-06-29 20:48 - [我们的少年时代2](http://www.blog.minike.top/Article/details/770256584764.shtml)
+- 2026-06-29 20:47 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.minike.top/Article/details/604612.shtml)
+- 2026-06-29 20:53 - [孙俪开QQ的蛮好生活](https://www.share.kurohicncr.top/Article/details/25922968719.shtml)
+- 2026-06-29 20:41 - [外交部谈对日出口管制措施](https://www.share.kurohicncr.top/Article/details/57596414.shtml)

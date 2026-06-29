@@ -1,58 +1,57 @@
-# 开市客北京起诉开市客中国已立案，称“花1500万美元请律师团，官司打赢再注销公司”
+# 原油：油价震荡回落 中美元首会晤前市场保持观望
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-（来源：蓝鲸新闻） 蓝鲸新闻5月8日讯（记者 陆鹏鹏）“真假开市客”再掀风波。 开市客北京起诉开市客中国已立案 开市客北京称“花1500万美元打官司” 近日，开市客北京的公关团队告诉蓝鲸记者，开市客北京起诉开市客中国的案件已经由法院立案受理。 对方发来的文件显示，案件名为《开市客（北京）国际商业发展有限公司诉开市客（中国）投资有限公司名誉权纠纷一案》，申请日期2026年4月27
+油价震荡下跌，WTI下跌1.1%，收于每桶101.02美元，止步三连涨。 在美国政府报告显示上周馏分油库存自3月以来首次增加后，油价走低。 尽管馏分油库存仅增加19万桶，但缓解了市场对西方供应缓冲接近极限的担忧。 但美国原油库存减少430万桶，几乎是行业组织预期降幅的两倍。 CIBC Private Wealth Group高级能源交易员Rebecca Babin表示，EIA数
 
 ## 正文
 
-（来源：蓝鲸新闻） 蓝鲸新闻5月8日讯（记者 陆鹏鹏）“真假开市客”再掀风波。
+油价震荡下跌，WTI下跌1.1%，收于每桶101.02美元，止步三连涨。
 
-开市客北京起诉开市客中国已立案 开市客北京称“花1500万美元打官司” 近日，开市客北京的公关团队告诉蓝鲸记者，开市客北京起诉开市客中国的案件已经由法院立案受理。
+在美国政府报告显示上周馏分油库存自3月以来首次增加后，油价走低。
 
-对方发来的文件显示，案件名为《开市客（北京）国际商业发展有限公司诉开市客（中国）投资有限公司名誉权纠纷一案》，申请日期2026年4月27日，法院于2026年5月6日立案，案号为（2026）沪0115民初53262号。
+尽管馏分油库存仅增加19万桶，但缓解了市场对西方供应缓冲接近极限的担忧。
 
-随后，记者通过案件文件上显示的手机号码，联系到开市客北京的另一位负责人，对方称：“我们从美国纽约、华盛顿、洛杉矶，还有旧金山、伦敦、新加坡、柏林，调了20人法律团队到中国来打这个官司。
+但美国原油库存减少430万桶，几乎是行业组织预期降幅的两倍。
 
-美国老板花了1500万美金，请了这个法律团队在中国专门盯开市客中国的所有的细节问题，我们官司肯定要打赢的。
+CIBC Private Wealth Group高级能源交易员Rebecca Babin表示，EIA数据对油价下行有所影响，但“交易员在习特会前总体不愿增加任何方向的风险敞口”。
 
-” 开市客是美国连锁会员制仓储量贩店，其于2019年进入中国大陆市场。
+尽管油价周三回落，但整体前景仍然看涨。
 
-截至2026年一季度，开市客在中国大陆拥有7家门店，其中上海2家，苏州、宁波、杭州、深圳、南京各1家，第八家门店预计将落地泉州。
+国际能源署表示，全球石油库存正以创纪录的速度下降且未来数月将继续下降。
 
-此次风波源于4月17日，开市客北京注册了同名微信公众号并高调宣布，将投资15亿美元，计划在北京、成都、武汉、广州、天津、合肥投资建设会员制仓储超市。
+沙特向OPEC报告称，由于伊朗战争阻断了从波斯湾的出口，该国原油产量4月进一步暴跌至1990年以来最低水平。
 
 ## 相关推荐
 
-- 2026-06-29 20:21 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 20:18 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-29 20:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 20:41 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-29 20:38 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-29 20:33 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-29 20:39 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-29 20:42 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 20:20 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 20:34 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 20:28 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-29 20:20 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 20:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-29 20:35 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 20:51 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 20:33 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 20:36 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 20:37 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 20:37 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 20:37 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-29 20:25 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 20:24 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 20:41 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:35 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/5661465237.shtml)
-- 2026-06-29 20:26 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/2448942350.shtml)
-- 2026-06-29 20:37 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/833413.shtml)
-- 2026-06-29 20:35 - [多人将马路护栏当球网打羽毛球](https://www.share.minike.top/Article/details/68694599.shtml)
-- 2026-06-29 20:35 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/022296.shtml)
-- 2026-06-29 20:26 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/08208.shtml)
-- 2026-06-29 20:23 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.minike.top/Article/details/98581991.shtml)
-- 2026-06-29 20:41 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/70797.shtml)
-- 2026-06-29 20:38 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/19528797.shtml)
-- 2026-06-29 20:27 - [福建海警位金门附近海域常态执法巡查](https://www.share.minike.top/Article/details/8392235.shtml)
-- 2026-06-29 20:19 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/40795006.shtml)
-- 2026-06-29 20:22 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/1799920210.shtml)
-- 2026-06-29 20:36 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/40883268652.shtml)
-- 2026-06-29 20:26 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/51190282.shtml)
-- 2026-06-29 20:26 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/06724527.shtml)
+- 2026-06-29 20:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/68059408402.shtml)
+- 2026-06-29 20:31 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/973824.shtml)
+- 2026-06-29 20:49 - [C罗10球7球对垫底队](http://www.share.kurohicncr.top/Article/details/547788727.shtml)
+- 2026-06-29 20:27 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/208692718546.shtml)
+- 2026-06-29 20:26 - [李小璐回应无戏可拍](https://www.share.minike.top/Article/details/841477942265.shtml)
+- 2026-06-29 20:50 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/49549808.shtml)
+- 2026-06-29 20:35 - [媒体：听清自己内心的声音再填志愿](https://www.share.minike.top/Article/details/34049.shtml)
+- 2026-06-29 20:30 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/42207306065.shtml)
+- 2026-06-29 20:29 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/188820844.shtml)
+- 2026-06-29 20:37 - [教育部高校学生资助热线7月1日开通](https://www.share.minike.top/Article/details/7625025.shtml)
+- 2026-06-29 20:29 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.share.kurohicncr.top/Article/details/2489970416.shtml)
+- 2026-06-29 20:40 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/88065866.shtml)
+- 2026-06-29 20:29 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/18045675.shtml)
+- 2026-06-29 20:27 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/503429.shtml)
+- 2026-06-29 20:43 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/65367654.shtml)

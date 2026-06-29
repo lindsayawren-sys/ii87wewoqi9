@@ -1,47 +1,55 @@
-# 福特与Carhartt联合推出Super Duty套件
+# 浙理工中法班毕业大秀启幕 法方校长称“超出预期”
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-福特与Carhartt联合推出了为“基础经济”用户开发的Super Duty XLT套件，并将员工优惠价扩展至小企业，同时投资于底特律的ToolBank。责任编辑：张俊 SF065
+发布时间：2026年05月12日 22:22 来源：中国新闻网 5月11日晚，浙江理工大学马兰戈尼时尚设计学院(国际时装技术学院)2026届毕业设计联展《共生》在杭州启幕。该院首届中法合作项目的16名毕业生携60套设计作品亮相。 法国马兰戈尼学院校长Stefania Valenti在观看毕业大秀后给予高度评价，“作品的质量、原创性和细节都超出预期。”她特别指出，学生对不同材料的
 
 ## 正文
 
-福特与Carhartt联合推出了为“基础经济”用户开发的Super Duty XLT套件，并将员工优惠价扩展至小企业，同时投资于底特律的ToolBank。
+发布时间：2026年05月12日 22:22 来源：中国新闻网 5月11日晚，浙江理工大学马兰戈尼时尚设计学院(国际时装技术学院)2026届毕业设计联展《共生》在杭州启幕。
 
-责任编辑：张俊 SF065
+该院首届中法合作项目的16名毕业生携60套设计作品亮相。
+
+法国马兰戈尼学院校长Stefania Valenti在观看毕业大秀后给予高度评价，“作品的质量、原创性和细节都超出预期。
+
+”她特别指出，学生对不同材料的现代处理方式令人印象深刻。
+
+在她看来，这正是一种“共生”——恰与本次时装秀的主题相呼应，不同传统、文化与技能在此交汇共存。
+
+她透露，双方计划共同推出硕士课程，进一步深化合作。
+
+(曹丹 制作 王嘉怡) 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-29 20:21 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 20:19 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-29 20:23 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-29 20:37 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 20:45 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 20:35 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 20:19 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-29 20:43 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 20:22 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 20:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 20:31 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-29 20:36 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-29 20:40 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-29 20:30 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-29 20:25 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 20:52 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 20:25 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-29 20:53 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 20:38 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 20:52 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 20:32 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 20:31 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 20:49 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 20:51 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:31 - [福建海警位金门附近海域常态执法巡查](https://www.blog.kurohicncr.top/Article/details/98543511284.shtml)
-- 2026-06-29 20:41 - [高考1357分的同学如何报志愿？](http://www.blog.kurohicncr.top/Article/details/8095912064.shtml)
-- 2026-06-29 20:46 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/781803001835.shtml)
-- 2026-06-29 20:29 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/06726.shtml)
-- 2026-06-29 20:39 - [日媒：日本高价采购“战斧”变冤大头](http://www.share.kurohicncr.top/Article/details/42372773.shtml)
-- 2026-06-29 20:47 - [王楚钦称抽签结果出来心情不好](https://www.blog.kurohicncr.top/Article/details/666935.shtml)
-- 2026-06-29 20:23 - [Ella回应SHE何时合体](http://www.share.minike.top/Article/details/022128566.shtml)
-- 2026-06-29 20:36 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/813316444.shtml)
-- 2026-06-29 20:36 - [李思潼回应运气好演《给阿嬷的情书》](https://www.share.minike.top/Article/details/053977035532.shtml)
-- 2026-06-29 20:46 - [C罗10球7球对垫底队](http://www.blog.minike.top/Article/details/18346355765.shtml)
-- 2026-06-29 20:21 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/986414874.shtml)
-- 2026-06-29 20:34 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/9489385088.shtml)
-- 2026-06-29 20:18 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/947258744.shtml)
-- 2026-06-29 20:37 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/907725.shtml)
-- 2026-06-29 20:20 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/9328462110.shtml)
+- 2026-06-29 20:53 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/11423543942.shtml)
+- 2026-06-29 20:24 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/297094.shtml)
+- 2026-06-29 20:34 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/97977640501.shtml)
+- 2026-06-29 20:28 - [CORTIS 小牌大耍](http://www.blog.minike.top/Article/details/02464741664.shtml)
+- 2026-06-29 20:27 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/9944720974.shtml)
+- 2026-06-29 20:47 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/692837.shtml)
+- 2026-06-29 20:42 - [RAY评乘风2026总决赛](http://www.share.minike.top/Article/details/21758161311.shtml)
+- 2026-06-29 20:38 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/03000.shtml)
+- 2026-06-29 20:50 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/580410551371.shtml)
+- 2026-06-29 20:25 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/517148407.shtml)
+- 2026-06-29 20:33 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/7671774.shtml)
+- 2026-06-29 20:45 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/5056741164.shtml)
+- 2026-06-29 20:33 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/939326737.shtml)
+- 2026-06-29 20:42 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/47466469951.shtml)
+- 2026-06-29 20:34 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/413102485854.shtml)

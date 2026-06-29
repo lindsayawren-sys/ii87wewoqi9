@@ -1,61 +1,59 @@
-# 全国政协召开双周协商座谈会 围绕推动贸易创新发展、加快建设贸易强国协商议政 王沪宁主持
+# 首届香港具身智能产业峰会暨智元APC2026成功举行
 
-> 更新时间：2026-06-29 20:48:02 UTC+8
+> 更新时间：2026-06-29 20:54:02 UTC+8
 
 ## 摘要
 
-本报讯(记者 吕巍)十四届全国政协第四十四次双周协商座谈会5月8日在京召开，中共中央政治局常委、全国政协主席王沪宁主持会议。他表示，中共十八大以来，以习近平同志为核心的中共中央坚定不移推进高水平对外开放，部署实施加快建设贸易强国重大任务，防范应对一系列重大风险挑战，引领我国对外贸易取得历史性成就。要深入学习贯彻习近平总书记关于推动贸易创新发展、加快建设贸易强国的重要论述和中共二
+新浪科技讯 5月12日晚间消息，中国香港——首届香港具身智能产业峰会暨2026智元合作伙伴大会（香港）今日在香港开幕。 在峰会上，智元系统阐释了具身智能产业正沿着“XYZ曲线”演进：X曲线代表早期以本体能力和运动能力突破为主的开发尝鲜阶段，让机器人能够像人一样动起来；Y曲线代表智能突破后，机器人开始进入真实任务和商业场景，像人一样工作，创造生产力；Z曲线则代表在大规模真实场景数
 
 ## 正文
 
-本报讯(记者 吕巍)十四届全国政协第四十四次双周协商座谈会5月8日在京召开，中共中央政治局常委、全国政协主席王沪宁主持会议。
+新浪科技讯 5月12日晚间消息，中国香港——首届香港具身智能产业峰会暨2026智元合作伙伴大会（香港）今日在香港开幕。
 
-他表示，中共十八大以来，以习近平同志为核心的中共中央坚定不移推进高水平对外开放，部署实施加快建设贸易强国重大任务，防范应对一系列重大风险挑战，引领我国对外贸易取得历史性成就。
+在峰会上，智元系统阐释了具身智能产业正沿着“XYZ曲线”演进：X曲线代表早期以本体能力和运动能力突破为主的开发尝鲜阶段，让机器人能够像人一样动起来；Y曲线代表智能突破后，机器人开始进入真实任务和商业场景，像人一样工作，创造生产力；Z曲线则代表在大规模真实场景数据驱动下，智能能力由量变走向质变，进入更广泛的应用普及阶段。
 
-要深入学习贯彻习近平总书记关于推动贸易创新发展、加快建设贸易强国的重要论述和中共二十届四中全会部署要求，把准履职建言的方向和重点。
+智元创始人、董事长兼CEO邓泰华在主题演讲中提出：2026年是部署态元年，具身智能正式从‘开发态’迈入‘部署态’，从‘能动’走向‘会干’。
 
-王沪宁表示，人民政协要聚焦增强我国贸易发展韧性和安全水平、推动货物贸易优化升级、大力发展服务贸易、促进数字贸易改革创新发展、完善贸易促进政策体系和制度机制等重点问题，持续深化研究，通过视察考察调研、社情民意信息、提案等反映情况、提出建议，更好助推贸易高质量发展、培育外贸新动能、防范化解贸易领域风险。
+当机器人能自主干活、独立创造价值，它就成为物理AI世界真正的生产力。
 
-政协委员中的经济学家、企业家和相关专业人士，要立足本职岗位和专业优势，为推动贸易创新发展发挥更大作用。
+这个产业的价值，会随着机器人干活能力的提升，落地场景的不断丰富，带动部署规模的持续增加。
 
-全国政协委员王炳南、张晓仑、李书福、胡文容、司马红、顾学明、李国红、陈四清、商文江、朱碧新发言。
+邓泰华强调，智元的目标不只是造出本体卓越的机器人，而是把它们变成可跨行业、规模化复制、全场景部署的先进生产力单元。
 
-大家认为，要锚定“十五五”时期贸易强国建设任务，进一步巩固优势补齐短板，建设更高水平开放型经济新体制。
+智元联合创始人、总裁兼CTO彭志辉在后续演讲中，全面解析了智元“一体三智”的技术演进路线，并指出大模型智能、本体可靠与数据飞轮这三大要素在同一时间成立，具身智能的拐点便随之到来。
 
-要处理好传统市场与新兴市场的关系，坚持市场多元化和内外贸一体化并重，促进贸易投资协同联动，推动进出口平衡发展。
+目前，智元全系产品已实现商用落地，并交付可量化价值的七大标准化生产力解决方案。
 
 ## 相关推荐
 
-- 2026-06-29 20:45 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-29 20:20 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-29 20:47 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 20:41 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-29 20:36 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 20:21 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-29 20:24 - [CORTIS 小牌大耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-29 20:38 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-29 20:40 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 20:27 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-29 20:44 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 20:37 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-29 20:25 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 20:43 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-29 20:29 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 20:50 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 20:52 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 20:34 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 20:25 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 20:24 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 20:35 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 20:30 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 20:52 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-29 20:26 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 20:24 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 20:51 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 20:33 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-29 20:31 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:36 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.kurohicncr.top/Article/details/27444796007.shtml)
-- 2026-06-29 20:44 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/030296.shtml)
-- 2026-06-29 20:43 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/4460698.shtml)
-- 2026-06-29 20:36 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/616491.shtml)
-- 2026-06-29 20:42 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.blog.minike.top/Article/details/923894738196.shtml)
-- 2026-06-29 20:23 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/96292.shtml)
-- 2026-06-29 20:26 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/63398883727.shtml)
-- 2026-06-29 20:20 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/99006645.shtml)
-- 2026-06-29 20:28 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/069152105.shtml)
-- 2026-06-29 20:35 - [美以这对亲密盟友要掰了吗](http://www.share.kurohicncr.top/Article/details/64545.shtml)
-- 2026-06-29 20:43 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/87827847674.shtml)
-- 2026-06-29 20:45 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/08880830165.shtml)
-- 2026-06-29 20:45 - [男子40度高温下骑行严重晒伤](http://www.share.minike.top/Article/details/473567809.shtml)
-- 2026-06-29 20:35 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/382645162973.shtml)
-- 2026-06-29 20:34 - [佛得角队长门德斯被控强奸](https://www.blog.kurohicncr.top/Article/details/433706.shtml)
+- 2026-06-29 20:27 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/48620780.shtml)
+- 2026-06-29 20:41 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/7322068.shtml)
+- 2026-06-29 20:49 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/3104785009.shtml)
+- 2026-06-29 20:42 - [恋与深空客服的回应](https://www.share.minike.top/Article/details/150165378068.shtml)
+- 2026-06-29 20:53 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.blog.minike.top/Article/details/2476573.shtml)
+- 2026-06-29 20:37 - [金鹰奖第二阶段投票明日开启](https://www.share.kurohicncr.top/Article/details/27812965096.shtml)
+- 2026-06-29 20:29 - [王鸿薇要求删陆委会百余万特别费](https://www.blog.minike.top/Article/details/06409730365.shtml)
+- 2026-06-29 20:25 - [新官上任三把火](https://www.share.minike.top/Article/details/12673.shtml)
+- 2026-06-29 20:39 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/6255886.shtml)
+- 2026-06-29 20:39 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/46900.shtml)
+- 2026-06-29 20:24 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/95826.shtml)
+- 2026-06-29 20:30 - [毒液2](https://www.blog.kurohicncr.top/Article/details/99536.shtml)
+- 2026-06-29 20:31 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/74226294065.shtml)
+- 2026-06-29 20:32 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/474638446.shtml)
+- 2026-06-29 20:30 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/9404233479.shtml)
