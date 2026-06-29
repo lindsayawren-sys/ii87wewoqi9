@@ -1,61 +1,61 @@
-# 中国首台初级智能机器人复原模型亮相
+# 北溪天然气管道爆炸事件：保险公司寻求避免赔付
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-中新网南京6月7日电 (孙艳 吴涵玉 徐珊珊)6月6日，东南大学建校124周年之际，学校科学技术展示中心开展。展示中心总建筑面积约1000平方米，设校史沿革、科技成果两大展区，其中科技成果区共设置30个展位，系统梳理了学校百余年的科研脉络与创新成就。 展览入口处，中国首台初级智能机器人的等比例复原模型格外引人注目。该机器人由东南大学前身南京工学院研制，是中国机器人研究的起点。此
+为北溪天然气管道承保的几家保险公司在伦敦一家法庭上表示，北溪天然气管道在2022年遭到袭击是俄乌冲突爆发的直接结果。这些公司正寻求避免为管道爆炸事件支付近5.8亿欧元（约合6.84亿美元）的赔偿。 北溪公司正就2022年9月的爆炸事件起诉劳合社和安奇保险。那次爆炸损毁了波罗的海海底通往德国的俄罗斯天然气管道。 此次爆炸——尚未有任何国家声称负责——在很大程度上切断了俄罗斯对欧洲
 
 ## 正文
 
-中新网南京6月7日电 (孙艳 吴涵玉 徐珊珊)6月6日，东南大学建校124周年之际，学校科学技术展示中心开展。
+为北溪天然气管道承保的几家保险公司在伦敦一家法庭上表示，北溪天然气管道在2022年遭到袭击是俄乌冲突爆发的直接结果。
 
-展示中心总建筑面积约1000平方米，设校史沿革、科技成果两大展区，其中科技成果区共设置30个展位，系统梳理了学校百余年的科研脉络与创新成就。
+这些公司正寻求避免为管道爆炸事件支付近5.8亿欧元（约合6.84亿美元）的赔偿。
 
-展览入口处，中国首台初级智能机器人的等比例复原模型格外引人注目。
+北溪公司正就2022年9月的爆炸事件起诉劳合社和安奇保险。
 
-该机器人由东南大学前身南京工学院研制，是中国机器人研究的起点。
+那次爆炸损毁了波罗的海海底通往德国的俄罗斯天然气管道。
 
-此后六十余载，东大机器人学科创下多个“第一”：1985年创刊国内首个机器人专业期刊，1991年研制国内首台智能装配机器人，2015年获批全国首个机器人工程本科专业，2023年新增国内首个未来机器人交叉专业，完成了从样机攻关到全链条人才培养、多场景成果转化的完整闭环。
+此次爆炸——尚未有任何国家声称负责——在很大程度上切断了俄罗斯对欧洲的天然气供应，标志着冲突的重大升级，并导致能源供应紧张。
 
-目前，东大机器人研究已稳居国内第一方阵，覆盖特种作业、智能制造、康复医学、低空物流等多个领域。
+应德国检察官的要求，意大利和波兰已分别逮捕了两名乌克兰人，此前在一艘与爆炸有关的船上发现了爆炸物痕迹。
 
-展示中心还集中呈现了东大在信息通信、空间科学、智慧交通、医工交叉、深海深地深空等领域的重大成果。
+俄罗斯指责乌克兰是此次袭击的幕后黑手，但基辅方面一再否认有任何牵连。
 
-东南大学首席教授、科研院负责人殷国栋介绍，这是建校124年来首次对全校科技成果进行全方位、系统性集中展示。
+总部位于瑞士的北溪公司提起的诉讼主要围绕北溪1号管道的损坏，并声称其有权获得近5.8亿欧元的赔偿。
 
 ## 相关推荐
 
-- 2026-06-29 11:33 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:46 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:23 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:32 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:37 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:51 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:33 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:30 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:27 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:50 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:25 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:23 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:26 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:48 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:42 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:46 - [中共早期历史红色场馆联盟主题交流暨中共山东早期历史沉浸式思政课活动在济南举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:50 - [树立和践行正确政绩观丨知行合一 务求实效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:51 - [百余人形机器人在京跑半马 “百家争鸣”彰显行业级跨越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:45 - [中越企业昆明面对面交流 碰撞合作机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:44 - [中国经济圆桌会丨群核科技：让更多企业和消费者体验高效便捷的空间智能服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:35 - [严惩“网络黑嘴”造谣诋毁 最高法例举涉胖某公司案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:37 - [演员何润东披项羽铠甲助阵“苏超”宿迁队新赛季首秀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:24 - [中国将对53个非洲建交国全面零关税 湖南对非贸易迎新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:43 - [特朗普称美国官员将赴巴基斯坦参与谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:46 - [受以色列-黎巴嫩停火消息影响，油价下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:39 - [CBA常规赛第40轮：福建客场战胜广东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:31 - [江苏扬州第十届“春的律动”举行：文艺添彩好地方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:33 - [香港财政司司长陈茂波：Web3+AI重塑全球金融生态 须确保人类主控干预 完善跨境监管与权责划分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:51 - [联合国秘书长欢迎伊朗宣布完全开放霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:29 - [经济观察：轻食，重新定义“吃”的健康价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:32 - [未来5年 充电供热供暖将有大变化](http://www.blog.minike.top/Article/details/382727651520.shtml)
-- 2026-06-29 11:39 - [金牌调解](https://www.blog.minike.top/Article/details/645649312.shtml)
-- 2026-06-29 11:51 - [吴昕要助理买的药6年前已停产](https://www.share.kurohicncr.top/Article/details/043075.shtml)
-- 2026-06-29 11:23 - [日本主帅：对战胜巴西很有信心](http://www.blog.minike.top/Article/details/49674664.shtml)
-- 2026-06-29 11:38 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/30432410.shtml)
-- 2026-06-29 11:49 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/326554184.shtml)
-- 2026-06-29 11:38 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.minike.top/Article/details/449697700232.shtml)
-- 2026-06-29 11:28 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/63214373342.shtml)
-- 2026-06-29 11:24 - [男子偶遇婴儿被锁车内大哭挣扎](http://www.blog.kurohicncr.top/Article/details/546974207.shtml)
-- 2026-06-29 11:47 - [世界杯打成了欧洲杯和美洲杯](http://www.share.minike.top/Article/details/29678920.shtml)
-- 2026-06-29 11:48 - [詹姆斯下赛季会在哪里](https://www.blog.kurohicncr.top/Article/details/718892.shtml)
-- 2026-06-29 11:49 - [宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/2623550042.shtml)
-- 2026-06-29 11:29 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.kurohicncr.top/Article/details/96776.shtml)
-- 2026-06-29 11:35 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.blog.minike.top/Article/details/0466631.shtml)
-- 2026-06-29 11:43 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/178850.shtml)
+- 2026-06-29 11:37 - [中国驻日使馆连遭威胁 外交部四字警告日方](http://www.share.kurohicncr.top/Article/details/455316.shtml)
+- 2026-06-29 11:39 - [广西岑溪“村味擂台”亮相“三月三” 民俗与文明集市“双向奔赴”](http://www.share.minike.top/Article/details/736196.shtml)
+- 2026-06-29 11:48 - [广西财政强化资金保障 筑牢基层应急管理“第一道防线”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [广西百色5岁走失男童已不幸身亡，当地通报](http://www.share.minike.top/Article/details/7175195.shtml)
+- 2026-06-29 11:52 - [中国·荆州2026全国历史文化名城羽毛球邀请赛开幕](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [中国创新正在全方位加速突破](http://www.share.kurohicncr.top/Article/details/8885098.shtml)
+- 2026-06-29 11:44 - [酒价内参4月20日价格发布：茅台系领涨 总价升至九日高位](http://www.share.minike.top/Article/details/7132631649.shtml)
+- 2026-06-29 11:33 - [蓝莓价格走低 国产品种研发多点推进](http://www.blog.minike.top/Article/details/267052592274.shtml)
+- 2026-06-29 11:32 - [宁夏兴庆大漠黄河徒步大会启幕 千余人乐享春日文旅健身行](http://www.share.minike.top/Article/details/608663568.shtml)
+- 2026-06-29 11:39 - [“战火重燃”：船只遭扣押、遇袭，美伊停火协议濒临破裂](http://www.share.kurohicncr.top/Article/details/29344.shtml)
+- 2026-06-29 11:36 - [山东菏泽：一株三并蒂的“墨润绝伦”牡丹盛放](http://www.blog.minike.top/Article/details/84747393437.shtml)
+- 2026-06-29 11:37 - [曾黎、李志希领衔主演 话剧《寻味》登陆广州大剧院](http://www.share.kurohicncr.top/Article/details/80091592375.shtml)
+- 2026-06-29 11:34 - [“10天订单涨2万+” 张雪机车夺冠后 广交会现场火爆吸睛](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:24 - [A股收评：超3400只个股飘红，沪指、深指收涨，创业板指收跌](http://www.share.minike.top/Article/details/95973627.shtml)
+- 2026-06-29 11:33 - [油气价格大跌 受霍尔木兹海峡开放和止战希望影响](http://www.blog.kurohicncr.top/Article/details/58180991825.shtml)

@@ -1,51 +1,50 @@
-# 广西桂林遭遇特大降雨 城区积涝严重
+# 湖北城市足球联赛点燃民众热情 赛事流量变消费增量
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月08日 13:05 来源：中国新闻网 6月8日，广西桂林市出现特大降雨，多地遭遇暴雨、大暴雨。桂林市气象台6月8日凌晨发布暴雨红色预警，市区过去3小时降雨量达130毫米。受强降雨影响，桂林城区积涝风险较大，多条道路积水严重。象山区、七星区、叠彩区、秀峰区等区域部分路段因积水交通中断或通行困难。(杨宗盛 邓竣缤 ） 责任编辑：【苏亦瑜】
+发布时间：2026年04月20日 07:29 来源：中国新闻网 4月18日晚，2026年湖北省城市足球联赛(“楚超”) 宜昌赛区揭幕战打响，宜昌队主场2比0战胜孝感队取得开门红，近1.4万名球迷来到现场加油助威。主办方同步启动“赛事+文旅”促消费活动，让赛事流量转化为消费增量。 宜昌历史文化悠久，拥有72个A级景区，坐拥长江三峡、三峡大坝等世界级旅游资源。“楚超”启幕后，为迎接
 
 ## 正文
 
-发布时间：2026年06月08日 13:05 来源：中国新闻网 6月8日，广西桂林市出现特大降雨，多地遭遇暴雨、大暴雨。
+发布时间：2026年04月20日 07:29 来源：中国新闻网 4月18日晚，2026年湖北省城市足球联赛(“楚超”) 宜昌赛区揭幕战打响，宜昌队主场2比0战胜孝感队取得开门红，近1.4万名球迷来到现场加油助威。
 
-桂林市气象台6月8日凌晨发布暴雨红色预警，市区过去3小时降雨量达130毫米。
+主办方同步启动“赛事+文旅”促消费活动，让赛事流量转化为消费增量。
 
-受强降雨影响，桂林城区积涝风险较大，多条道路积水严重。
+宜昌历史文化悠久，拥有72个A级景区，坐拥长江三峡、三峡大坝等世界级旅游资源。
 
-象山区、七星区、叠彩区、秀峰区等区域部分路段因积水交通中断或通行困难。
+“楚超”启幕后，为迎接各地的球迷，宜昌整合文旅资源，推出“两天一夜”经典观赛文旅行程攻略和专项“宠客”礼单，市民及游客凭“楚超”票根，可领取涵盖影院、体育用品店、运动场馆、景区、酒店民宿、文创产品等商家的专属优惠。
 
-(杨宗盛 邓竣缤 ） 责任编辑：【苏亦瑜】
+(陈涛 董晓斌） 责任编辑：【田博群】
 
 ## 相关推荐
 
-- 2026-06-29 11:46 - [神23乘组太空出差满月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:27 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:44 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:39 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:32 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:43 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:42 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:51 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:51 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:26 - [19家A股上市公司发布上半年业绩预告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:44 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:44 - [天臣控股拟折让21.05%配售最多7000万股 净筹约1.03亿港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:50 - [西南大学120周年校庆高质量发展大会举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:47 - [日本突发7.5级强震 震中附近有多个核电站](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:52 - [青海果洛：凝聚青年力量 共育民族团结之花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:33 - [村里有了“小而美” 游客爱上“慢时光”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:52 - [广交会观察：中东局势扰动下参展商采购商同觅“新出路”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:52 - [雄安新区首个戏曲特色工人文化宫正式投用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:40 - [伊朗最高领袖：伊朗海军已准备好给敌人“新的惨败”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:32 - [习近平文化思想引领书香社会建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:49 - [新疆和田县群众治沙：沙地成自家“聚宝盆”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:44 - [张一山说杨紫早该拿奖了](https://www.blog.kurohicncr.top/Article/details/906596453.shtml)
-- 2026-06-29 11:44 - [本周做什么都顺的星座](https://www.share.minike.top/Article/details/30558747.shtml)
-- 2026-06-29 11:42 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/8712908.shtml)
-- 2026-06-29 11:51 - [韩国主帅辞职报告5分钟 双手插兜离场](http://www.blog.minike.top/Article/details/8655223416.shtml)
-- 2026-06-29 11:46 - [人民日报评“AI脸看腻了”](http://www.blog.minike.top/Article/details/8224293.shtml)
-- 2026-06-29 11:36 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/91918580.shtml)
-- 2026-06-29 11:41 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/883641.shtml)
-- 2026-06-29 11:38 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/80741.shtml)
-- 2026-06-29 11:25 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.minike.top/Article/details/62840536.shtml)
-- 2026-06-29 11:22 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/817604532.shtml)
-- 2026-06-29 11:46 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.blog.kurohicncr.top/Article/details/3116024556.shtml)
-- 2026-06-29 11:48 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/02956.shtml)
-- 2026-06-29 11:45 - [异世界一点都不好玩！](https://www.share.minike.top/Article/details/15921270317.shtml)
-- 2026-06-29 11:29 - [我们注定是一撮县城葱姜蒜](http://www.share.minike.top/Article/details/91206562332.shtml)
-- 2026-06-29 11:29 - [加拿大绝杀南非晋级](http://www.blog.minike.top/Article/details/15673774728.shtml)
+- 2026-06-29 11:24 - [北京：香椿宴带动京郊游 衍生品丰富山村体验](http://www.blog.kurohicncr.top/Article/details/48391816.shtml)
+- 2026-06-29 11:36 - [又见内幕交易？霍尔木兹开放前20分钟，神秘交易员7.6亿美元精准做空原油，已被调查](http://www.share.minike.top/Article/details/604567.shtml)
+- 2026-06-29 11:41 - [AI赋能文旅 2026西安丝路旅博会展示文旅科技新业态](http://www.blog.minike.top/Article/details/5599409488.shtml)
+- 2026-06-29 11:33 - [4月20日人民币对美元中间价报6.8648 下调26个基点](http://www.blog.kurohicncr.top/Article/details/0532337395.shtml)
+- 2026-06-29 11:30 - [新的社会阶层人士开展“寻美‘广西三月三’ 数智共铸民族情”活动](http://www.blog.minike.top/Article/details/2266813.shtml)
+- 2026-06-29 11:24 - [港交所的新挑战与“护城河”](http://www.blog.minike.top/Article/details/049652.shtml)
+- 2026-06-29 11:41 - [报告称中小微外贸企业出口保持韧性 定价权稳步提升](http://www.blog.minike.top/Article/details/833614629817.shtml)
+- 2026-06-29 11:34 - [政策持续催化！绿电概念股4天2板，电力ETF华宝（159146）涨逾1%，超2.8亿资金悄悄加码！](http://www.blog.minike.top/Article/details/430382.shtml)
+- 2026-06-29 11:25 - [美军封锁期间 驱逐舰尾随满载伊朗原油的油轮](http://www.blog.kurohicncr.top/Article/details/7874679311.shtml)
+- 2026-06-29 11:53 - [昆明至泰戈尔故乡加尔各答直飞航线复航 各方热盼新机遇](http://www.blog.kurohicncr.top/Article/details/5597138796.shtml)
+- 2026-06-29 11:52 - [男子潜伏通风管道9小时盗走百万黄金 3次换装终难逃法网](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [2026人形机器人半马：机器人领先人类19分钟冲线](http://www.share.minike.top/Article/details/3679690.shtml)
+- 2026-06-29 11:51 - [雄安智慧农业春日见闻：北斗定垄、AI种花](http://www.blog.minike.top/Article/details/033285.shtml)
+- 2026-06-29 11:50 - [第十九届坚果果干食品展盛大开幕 洽洽展位成为人气焦点](http://www.share.kurohicncr.top/Article/details/07449195293.shtml)
+- 2026-06-29 11:28 - [第139届广交会一期到会境外采购商16.7万名](http://www.share.kurohicncr.top/Article/details/232243569476.shtml)

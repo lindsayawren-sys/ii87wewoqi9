@@ -1,57 +1,58 @@
-# 跨境理财通南向通向数字银行扩容，纳指100基金现身银行渠道，市场期待3.0扩容
+# 受伊朗战争影响，尿素化肥价格高企，阿根廷小麦生产面临威胁
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-财联社6月5日讯（记者 郭子硕） 跨境理财通再迎新成员。6月5日，众安银行作为兴业银行的合作行正式上线“跨境理财通南向通”服务，也是香港首家落地南向通业务的数字银行。此前，兴业银行App已灰度测试，但“风声”早已在投资者之间传开。 此番动作受到市场关注，原因在于两点：一是跨境理财通南向通首次向数字银行扩容；二是此前在南向通内基本仅通过券商渠道销售的热门纳指100基金，拓展到了银
+伊朗冲突大幅推高了对阿根廷小麦丰收至关重要的尿素化肥价格，在下月小麦播种季开始前数周，这让农民陷入两难境地。 这场2月底爆发的冲突导致尿素价格近乎翻倍，迫使当地许多种植户权衡是减少化肥施用量，还是放弃种植计划。 布宜诺斯艾利斯省佩尔加米诺镇的农业生产商罗曼・古铁雷斯表示：“前几天我们算了笔账，最终想法归结为两个选择：要么不种小麦，改种对我养殖有用的作物，比如大麦或燕麦；要么就种
 
 ## 正文
 
-财联社6月5日讯（记者 郭子硕） 跨境理财通再迎新成员。
+伊朗冲突大幅推高了对阿根廷小麦丰收至关重要的尿素化肥价格，在下月小麦播种季开始前数周，这让农民陷入两难境地。
 
-6月5日，众安银行作为兴业银行的合作行正式上线“跨境理财通南向通”服务，也是香港首家落地南向通业务的数字银行。
+这场2月底爆发的冲突导致尿素价格近乎翻倍，迫使当地许多种植户权衡是减少化肥施用量，还是放弃种植计划。
 
-此前，兴业银行App已灰度测试，但“风声”早已在投资者之间传开。
+布宜诺斯艾利斯省佩尔加米诺镇的农业生产商罗曼・古铁雷斯表示：“前几天我们算了笔账，最终想法归结为两个选择：要么不种小麦，改种对我养殖有用的作物，比如大麦或燕麦；要么就种，但只用极少的化肥，不追求高产。
 
-此番动作受到市场关注，原因在于两点：一是跨境理财通南向通首次向数字银行扩容；二是此前在南向通内基本仅通过券商渠道销售的热门纳指100基金，拓展到了银行端产品列表中。
+” 化肥市场分析师古斯塔沃・丘林表示，尿素当前价格为每吨1000美元，而一个多月前仅约500美元。
 
-南向通产品供给分化仍大，3.0扩容尚无时间表 财联社记者注意到，虽然众安银行率先将纳指100基金引入银行端，但从整体来看，南向通产品渠道的分化依然突出。
+他将价格暴涨归因于海湾国家全球尿素供应因战争收缩，以及冲突对经霍尔木兹海峡贸易的冲击。
 
-目前为止，纳指100基金仍主要出现在券商渠道中，多数银行仍无法提供。
+阿根廷主要谷物交易市场罗萨里奥谷物交易所的数据显示，上一季阿根廷小麦收获量创下2950万吨的纪录。
 
-为何出现这样的分化？
+该机构尚未公布对即将到来的小麦收获季的预估。
 
-有基金公司负责人向财联社记者分析，因为首批试点即为券商，场内产品初始仅在券商渠道销售。
+尿素在作物产量中的关键作用 阿根廷每年约消耗250万吨尿素。
 
 ## 相关推荐
 
-- 2026-06-29 11:22 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:48 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:35 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:51 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:37 - [世界杯小组赛阶段过人榜：马扎居首](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:40 - [未来5年 充电供热供暖将有大变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:32 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:31 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:29 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:42 - [行程万里不忘初心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:35 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:50 - [中国创新正在全方位加速突破](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:47 - [酒价内参4月20日价格发布：茅台系领涨 总价升至九日高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:40 - [蓝莓价格走低 国产品种研发多点推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:35 - [宁夏兴庆大漠黄河徒步大会启幕 千余人乐享春日文旅健身行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:44 - [“战火重燃”：船只遭扣押、遇袭，美伊停火协议濒临破裂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:42 - [山东菏泽：一株三并蒂的“墨润绝伦”牡丹盛放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:30 - [曾黎、李志希领衔主演 话剧《寻味》登陆广州大剧院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:25 - [“10天订单涨2万+” 张雪机车夺冠后 广交会现场火爆吸睛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:39 - [A股收评：超3400只个股飘红，沪指、深指收涨，创业板指收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:30 - [油气价格大跌 受霍尔木兹海峡开放和止战希望影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:34 - [伊朗：将再次关闭霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:29 - [百胜中国于4月17日斥资773.82万港元回购2.07万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:24 - [晋城暴雨车辆被淹冰箱在水中漂](http://www.blog.minike.top/Article/details/83925.shtml)
-- 2026-06-29 11:29 - [恋与深空底线不该被娱乐化](http://www.blog.minike.top/Article/details/49145620643.shtml)
-- 2026-06-29 11:36 - [三只羊线下课已下架](https://www.blog.kurohicncr.top/Article/details/94532268860.shtml)
-- 2026-06-29 11:48 - [毕业群都在出什么东西](https://www.blog.minike.top/Article/details/72079746.shtml)
-- 2026-06-29 11:27 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.minike.top/Article/details/02496.shtml)
-- 2026-06-29 11:50 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/276316534.shtml)
-- 2026-06-29 11:35 - [乔家的儿女](https://www.share.minike.top/Article/details/099304195105.shtml)
-- 2026-06-29 11:44 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/7672549.shtml)
-- 2026-06-29 11:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/77210.shtml)
-- 2026-06-29 11:23 - [高考结束了，你会让孩子在家玩手机吗？](http://www.share.kurohicncr.top/Article/details/937561248.shtml)
-- 2026-06-29 11:23 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](http://www.share.kurohicncr.top/Article/details/028066545122.shtml)
-- 2026-06-29 11:26 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://www.share.kurohicncr.top/Article/details/374939535637.shtml)
-- 2026-06-29 11:47 - [委内瑞拉地震已致1450死3150伤](https://www.blog.kurohicncr.top/Article/details/198383067623.shtml)
-- 2026-06-29 11:41 - [《昨夜将至》为何是悬疑黑马](https://www.share.kurohicncr.top/Article/details/916369.shtml)
-- 2026-06-29 11:28 - [巴西德国15次闯进世界杯淘汰赛](http://www.share.kurohicncr.top/Article/details/717518407.shtml)
+- 2026-06-29 11:50 - [（文化中国行）千年山歌的“数字迁徙”：从广西唱响东盟](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [度小满冠名《浪姐7》陷舆论反噬：透视助贷平台下沉的困局](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [2026江苏省侨界中餐厨艺大赛在无锡启动](http://www.blog.kurohicncr.top/Article/details/301879336881.shtml)
+- 2026-06-29 11:24 - [中信建投：创业板新高后，还有多少空间？](http://www.blog.kurohicncr.top/Article/details/06155.shtml)
+- 2026-06-29 11:53 - [多国客商齐聚河南长垣 共觅起重装备商机](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [书香换花香 浙江杭州孔庙书市启幕](http://www.share.minike.top/Article/details/6289794400.shtml)
+- 2026-06-29 11:41 - [2026年河南省篮球城市联赛在古都安阳开赛](http://www.blog.kurohicncr.top/Article/details/6317083568.shtml)
+- 2026-06-29 11:31 - [特斯拉：目前并无在上海超级工厂量产机器人的具体计划](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [为投资者创收1619亿元！一季度理财“成绩单”来了](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [美国精神航空公司考虑清算](http://www.share.kurohicncr.top/Article/details/845714195824.shtml)
+- 2026-06-29 11:27 - [从汽车到易拉罐：伊朗战争如何冲击全球铝供应链](http://www.share.minike.top/Article/details/45528.shtml)
+- 2026-06-29 11:38 - [东西问丨阿齐赞·巴哈鲁丁：“文明冲突论”必须让位于“和平共处论”](http://www.blog.kurohicncr.top/Article/details/5803722.shtml)
+- 2026-06-29 11:29 - [侧记：一座园林连中法，解码园博会背后的“侨”味道](http://www.share.minike.top/Article/details/68814908963.shtml)
+- 2026-06-29 11:50 - [海外华媒侨领走进世界自然遗产地 感受喀斯特地貌奇观](http://www.share.kurohicncr.top/Article/details/556014496.shtml)
+- 2026-06-29 11:29 - [四大证券报头版头条内容精华摘要_2026年4月20日_财经新闻](https://github.com/lisacumin64-arch)

@@ -1,59 +1,61 @@
-# 传承红色基因、赓续红色血脉，奋力谱写中国式现代化上海新篇章
+# “霸王”助阵“苏超” 文旅体商融合新答卷
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-1921年7月23日，中国共产党第一次全国代表大会在上海召开，打开中国历史的崭新篇章。105年后的今天，太平湖畔的中共一大纪念馆已成为众多中外游客来到上海的“必打卡”目的地。人们通过走近上海，打开一扇了解现代中国的窗口。作为党的诞生地、初心始发地、伟大建党精神孕育地，上海始终牢记习近平总书记嘱托，传承红色基因、赓续红色血脉，为国担当、勇为尖兵，奋力谱写中国式现代化上海新篇章，为
+“苏超”，总是能给人“意想不到”。 继去年以草根赛事火出圈后，2026赛季“苏超”如约而至，依旧是那股熟悉的散装江苏味儿。 揭幕战在常州打响，看台爆满，弹幕与热梗齐飞。从“比赛第一，友谊第十四”的戏谑，到各城市队徽“找不同”的狂欢，苏超早已不是足球，而是一场覆盖江苏全省的流量战争。 但这一轮，率先把牌打出新高度的，是宿迁。 近日，宿迁文旅官方宣布，曾在《楚汉传奇》中饰演“西楚霸
 
 ## 正文
 
-1921年7月23日，中国共产党第一次全国代表大会在上海召开，打开中国历史的崭新篇章。
+“苏超”，总是能给人“意想不到”。
 
-105年后的今天，太平湖畔的中共一大纪念馆已成为众多中外游客来到上海的“必打卡”目的地。
+继去年以草根赛事火出圈后，2026赛季“苏超”如约而至，依旧是那股熟悉的散装江苏味儿。
 
-人们通过走近上海，打开一扇了解现代中国的窗口。
+揭幕战在常州打响，看台爆满，弹幕与热梗齐飞。
 
-作为党的诞生地、初心始发地、伟大建党精神孕育地，上海始终牢记习近平总书记嘱托，传承红色基因、赓续红色血脉，为国担当、勇为尖兵，奋力谱写中国式现代化上海新篇章，为这座光荣之城不断增添新的荣光。
+从“比赛第一，友谊第十四”的戏谑，到各城市队徽“找不同”的狂欢，苏超早已不是足球，而是一场覆盖江苏全省的流量战争。
 
-让初心薪火代代相传 “星星之火遍地燃，小朋友们记心间，党的故事代代传……”6月1日上午，位于兴业路76号的中共一大会址前，一群“红领巾”聚在一起，手持快板，向中外游客热情宣讲着建党伟业，引得路人纷纷驻足。
+但这一轮，率先把牌打出新高度的，是宿迁。
 
-这群孩子是卢湾一中心小学“红喇叭”小讲解员社团的成员。
+近日，宿迁文旅官方宣布，曾在《楚汉传奇》中饰演“西楚霸王”项羽的演员何润东，将亮相4月18日宿迁主场。
 
-作为全国首支服务于中共一大会址、中共一大纪念馆的红领巾讲解员社团，这支队伍过去20年里已吸引千余名孩子，接力讲述建党故事。
+十四年前的剧集角色，被网友“考古”翻红，宿迁文旅主打一个听劝。
 
-今年“六一”国际儿童节前夕，习近平总书记给中共一大纪念馆、南湖革命纪念馆少先队红领巾讲解员回信，对他们予以亲切勉励，并祝他们和全国的少年儿童节日快乐。
+从网友喊话到官宣落地，全程不到一周。
 
 ## 相关推荐
 
-- 2026-06-29 11:43 - [细节之中抓作风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:35 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:32 - [中国U17男篮78-87加拿大U17男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:38 - [医护人员观影《四渡》传承长征精神](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:25 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:26 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:50 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:43 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:52 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:27 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:49 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:25 - [BW2026游览指南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:45 - [吴海燕兰西雅漫步复兴岛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:29 - [AI算力重塑创业逻辑 郑州航空港区探索“轻创业”新路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:47 - [国元保险原董事长被查，收超400万罚单，成监管“重点户”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:27 - [美军在阿曼湾拦截并控制一艘伊朗货船](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:46 - [优步以3.18亿美元交易增持外卖平台Delivery Hero股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:25 - [福特召回至多139万辆F-150皮卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:45 - [文化中国行·联播一瞬丨谷雨：春去无憾 夏来有期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:31 - [伊朗民航组织宣布伊朗部分空域重新开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:29 - [李强主持召开国务院常务会议 听取自由贸易试验区建设情况汇报 审议通过《中华人民共和国行政复议法实施条例（修订草案）》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:26 - [超3万名日本民众集会反对高市政权危险动向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:34 - [第44届香港电影金像奖红毯仪式举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:35 - [巴西Simpar以1.215亿雷亚尔出售Ciclus Amazônia股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:49 - [特朗普：若无法达成协议 或将不延长美伊临时停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:50 - [霍尔木兹海峡开放后油价大跌，欧洲斯托克600指数涨逾1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:32 - [国常会部署推动自贸试验区高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:40 - [英国金融时报称欧盟拟放宽并购规则 培育全球冠军企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:35 - [岭南电影为何迎来“南方热”](https://www.share.minike.top/Article/details/3816702825.shtml)
-- 2026-06-29 11:36 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.kurohicncr.top/Article/details/228287495.shtml)
-- 2026-06-29 11:30 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/173714548911.shtml)
-- 2026-06-29 11:32 - [月薪 1 万留在一线城市，和月薪 6000 回家乡工作，哪个更划算？](https://www.blog.minike.top/Article/details/6927594994.shtml)
-- 2026-06-29 11:38 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/32936946.shtml)
-- 2026-06-29 11:39 - [詹俊：巴西能凭借两大优势战胜日本](http://www.share.minike.top/Article/details/517578089868.shtml)
-- 2026-06-29 11:34 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/42068180015.shtml)
-- 2026-06-29 11:36 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/656175594895.shtml)
-- 2026-06-29 11:45 - [唐艺昕女儿接唐艺昕回家](https://www.blog.minike.top/Article/details/964058613.shtml)
-- 2026-06-29 11:26 - [未来5年 充电供热供暖将有大变化](https://www.blog.minike.top/Article/details/618752385.shtml)
-- 2026-06-29 11:39 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](http://www.share.kurohicncr.top/Article/details/20445490.shtml)
-- 2026-06-29 11:47 - [细节之中抓作风](http://www.share.kurohicncr.top/Article/details/746814318.shtml)
-- 2026-06-29 11:33 - [恋与深空女玩家不该被冒犯](http://www.share.kurohicncr.top/Article/details/8684089100.shtml)
-- 2026-06-29 11:38 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.minike.top/Article/details/2622609.shtml)
-- 2026-06-29 11:45 - [温峥嵘直播回应恶评](http://www.share.minike.top/Article/details/34890.shtml)
+- 2026-06-29 11:53 - [美菲启动年度联合军演，外交部：一味在安全上相互捆绑只会引火烧身](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [2026年中国香港（地区）商会京港地铁体育嘉年华活动举办](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [极氪8X正式上市：首次搭载舱驾融合超级智能体，上市限时售价32.98万元起](http://www.share.minike.top/Article/details/299736751.shtml)
+- 2026-06-29 11:34 - [“患者被引荐至私立医院” 涉事医生被停止诊疗并终止聘用合同](http://www.share.minike.top/Article/details/065797611359.shtml)
+- 2026-06-29 11:36 - [东方证券与上海证券筹划合并重组，加快推进一流现代投资银行建设](http://www.share.minike.top/Article/details/53024.shtml)
+- 2026-06-29 11:53 - [涉案金额2.6亿元，我国摧毁山西特大假酒网络](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [浦发银行与中国银联签署全面战略合作协议](http://www.blog.kurohicncr.top/Article/details/01554.shtml)
+- 2026-06-29 11:48 - [让机器人跑马拉松有什么用？专家：先带动技术发展 再逐步落地应用](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [实拍江西上饶“三月三”篝火联欢现场 民众踏歌起舞庆佳节](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [万众期待的“霸王”来了！“宿迁子弟何在？”何润东身披甲胄亮相“苏超”现场](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [BOSS直聘-W于4月17日耗资约249.65万美元回购约34.97万股](http://www.share.minike.top/Article/details/1439635.shtml)
+- 2026-06-29 11:51 - [去年翻倍赚钱的基金，今年怎么样了？](http://www.blog.kurohicncr.top/Article/details/864485114.shtml)
+- 2026-06-29 11:30 - [巴西、西班牙和墨西哥联合呼吁采取措施缓解古巴局势](http://www.share.minike.top/Article/details/7829745.shtml)
+- 2026-06-29 11:29 - [产品业绩回撤38.53%，昔日百亿私募同犇投资最新回应：从来不是只买消费，AI产业链去年开始就有不少仓位](http://www.share.minike.top/Article/details/3819852557.shtml)
+- 2026-06-29 11:24 - [金价下跌 霍尔木兹海峡再度中断引发通胀担忧](http://www.blog.minike.top/Article/details/63606.shtml)

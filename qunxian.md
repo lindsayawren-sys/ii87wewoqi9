@@ -1,56 +1,56 @@
-# 2026世界女排联赛中国南京站：捷克队战胜比利时队
+# 曾黎、李志希领衔主演 话剧《寻味》登陆广州大剧院
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-美国“抢”铜，扰乱全球供应链秩序重逢泪奔！台湾“中天小姐姐”再回胡同看望“北京奶奶”中央统战部官方快手号“统战新语”上线 多个官号关注并留言招聘需求暴涨！“AI圈最火岗位”，到底是干嘛的？西藏风光无限，击碎环保谣言 教育部发布2026年高考十问十答美媒：先后部署到委内瑞拉和伊朗，美军“福特”号航母损毁严重职工医保个人账户跨省共济来了 近亲属可用“空调开26℃最省电”，是真的吗？
+中新网广州4月19日电 (记者 程景伟)由中华全国总工会文工团出品，曾黎、李志希领衔主演的话剧《寻味》17日至18日在广州大剧院歌剧厅温情上演。这部横跨七十年、串联两岸四代人悲欢离合的舞台力作，以一碗牛肉面为引，讲述了一段关于乡愁、亲情与和解的动人故事。 《寻味》的舞台汇聚了两岸顶尖创作阵容与演员班底，让每一份情感都落地生根。演员曾黎此番回归话剧舞台，饰演爽朗率真的北京表妹“小
 
 ## 正文
 
-美国“抢”铜，扰乱全球供应链秩序重逢泪奔！
+中新网广州4月19日电 (记者 程景伟)由中华全国总工会文工团出品，曾黎、李志希领衔主演的话剧《寻味》17日至18日在广州大剧院歌剧厅温情上演。
 
-台湾“中天小姐姐”再回胡同看望“北京奶奶”中央统战部官方快手号“统战新语”上线 多个官号关注并留言招聘需求暴涨！
+这部横跨七十年、串联两岸四代人悲欢离合的舞台力作，以一碗牛肉面为引，讲述了一段关于乡愁、亲情与和解的动人故事。
 
-“AI圈最火岗位”，到底是干嘛的？
+《寻味》的舞台汇聚了两岸顶尖创作阵容与演员班底，让每一份情感都落地生根。
 
-西藏风光无限，击碎环保谣言 教育部发布2026年高考十问十答美媒：先后部署到委内瑞拉和伊朗，美军“福特”号航母损毁严重职工医保个人账户跨省共济来了 近亲属可用“空调开26℃最省电”，是真的吗？
+演员曾黎此番回归话剧舞台，饰演爽朗率真的北京表妹“小茹”。
 
-今天没出汗，可以不洗澡吗？
+这个“刀子嘴豆腐心”的角色与她直来直去的性格颇有契合之处。
 
-答案出乎意料“爱眼日”将至，请看这份护眼手册央地协同如何重塑重庆数字水网体系？
+谈及角色，曾黎坦言剧组就像一个大家庭，而导演李宗熹对戏的细腻打磨，让她得以精准诠释角色二十年的成长跨度。
 
-赖清德批小红书，是在怕什么？
+对曾黎而言，味道与乡愁早已刻在记忆里——年少离家时，母亲寄来的牛肉酱藏着最浓的家味，“每次打开饼干盒子，就闻到了妈妈的味道，这也是家的味道”。
 
-高考必备物品清单来了 能带不能带的要看清中高考前考生扎堆“吸氧补脑”？
+这份情愫让她更懂《寻味》的内核，用扎实演技传递出两岸同胞的悲欢离合。
 
 ## 相关推荐
 
-- 2026-06-29 11:27 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:30 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:46 - [韩国队主帅洪明甫下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:47 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:52 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:30 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:26 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:46 - [张杰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:29 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:31 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:44 - [特朗普：霍尔木兹海峡已完全开放 但对伊朗海上封锁仍将持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:35 - [2026中小学“汉语桥”多伦多赛区选拔赛圆满收官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:26 - [现场视频：美军人员从直升机顺绳而下，控制伊朗货船](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:37 - [贵州纳雍：玛瑙红樱桃迎采摘热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:31 - [从“石旮旯”到“世界最佳” 重庆荆竹村涌文旅热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:46 - [ATFX五度斩获ADVFN最佳拉美地区经纪商 区域领导力再获国际权威认可](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:36 - [三亚与7家境外经贸合作区集中签约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:34 - [三亚亚沙会临近 主媒体中心试运行赛事氛围渐浓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:51 - [法国通过“文物归还法案”，260万件中国文物多少能回归？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:41 - [OpenAI “Sora之父”宣布离职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [小学生叠纸青蛙跳2.52米 创世界纪录](https://www.share.kurohicncr.top/Article/details/083617933333.shtml)
-- 2026-06-29 11:37 - [papi酱回应毕业4年零收入](https://www.share.kurohicncr.top/Article/details/33861740862.shtml)
-- 2026-06-29 11:35 - [F1奥地利正赛战报](https://www.blog.kurohicncr.top/Article/details/898965539.shtml)
-- 2026-06-29 11:47 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/830509.shtml)
-- 2026-06-29 11:49 - [外网预言中国举办世界杯时间](https://www.blog.kurohicncr.top/Article/details/0131805738.shtml)
-- 2026-06-29 11:36 - [韩媒称韩国队遭中国网民嘲讽](https://www.blog.minike.top/Article/details/1173317.shtml)
-- 2026-06-29 11:33 - [【自制动画】佐鸣抖肩舞！！！](https://www.share.kurohicncr.top/Article/details/08968376.shtml)
-- 2026-06-29 11:22 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/210320350866.shtml)
-- 2026-06-29 11:42 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/89785194.shtml)
-- 2026-06-29 11:37 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.blog.minike.top/Article/details/63150857981.shtml)
-- 2026-06-29 11:52 - [哈尔滨“全城追菠萝蜜”](https://www.share.kurohicncr.top/Article/details/33399897595.shtml)
-- 2026-06-29 11:30 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.minike.top/Article/details/221743.shtml)
-- 2026-06-29 11:44 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.kurohicncr.top/Article/details/9603528034.shtml)
-- 2026-06-29 11:33 - [张一山回应与杨紫友情](https://www.blog.minike.top/Article/details/521053.shtml)
-- 2026-06-29 11:26 - [法拉利被多名孩童当滑梯玩耍](https://www.share.minike.top/Article/details/566891815303.shtml)
+- 2026-06-29 11:38 - [海外华媒侨领走进世界自然遗产地 感受喀斯特地貌奇观](http://www.share.minike.top/Article/details/667504.shtml)
+- 2026-06-29 11:34 - [四大证券报头版头条内容精华摘要_2026年4月20日_财经新闻](http://www.blog.minike.top/Article/details/855188909911.shtml)
+- 2026-06-29 11:53 - [中国经济开局良好 外媒：高质量发展助力中国经济更具可持续性](http://www.blog.minike.top/Article/details/268461223.shtml)
+- 2026-06-29 11:37 - [2026“发现宝藏山东”主题旅游年启幕 让宝藏可寻、可感、可品](http://www.share.minike.top/Article/details/777659.shtml)
+- 2026-06-29 11:24 - [受伊朗局势缓和预期推动，美国股票基金持续获得资金流入](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [中国美术馆与千问AI眼镜开启合作探索，观展迈向“边看边懂”](http://www.blog.minike.top/Article/details/62709042.shtml)
+- 2026-06-29 11:43 - [上巳传笺 望江听涛：成都望江楼公园复原明代制笺古礼](http://www.share.kurohicncr.top/Article/details/6859583.shtml)
+- 2026-06-29 11:36 - [拼多多因“幽灵外卖”被罚，法定代表人赵佳臻被处693.73万元罚款](http://www.share.minike.top/Article/details/40269991.shtml)
+- 2026-06-29 11:28 - [中国试飞院开放日 各型飞机引民众打卡](http://www.blog.kurohicncr.top/Article/details/77422.shtml)
+- 2026-06-29 11:48 - [预测市场平台Polymarket计划募资4亿美元 估值达约150亿美元](http://www.blog.kurohicncr.top/Article/details/6451407.shtml)
+- 2026-06-29 11:44 - [总书记的关切·落地的回响｜中国式现代化要靠科技现代化作支撑](http://www.share.kurohicncr.top/Article/details/63109120478.shtml)
+- 2026-06-29 11:45 - [林毅夫：中国式现代化的成功实践为全球发展中国家提供重要借鉴](http://www.blog.minike.top/Article/details/68108442351.shtml)
+- 2026-06-29 11:50 - [湖北城市足球联赛点燃民众热情 赛事流量变消费增量](http://www.share.minike.top/Article/details/78394913.shtml)
+- 2026-06-29 11:46 - [国际传播纪录片《大道——永远的长征》在北京启动](http://www.blog.minike.top/Article/details/767894944132.shtml)
+- 2026-06-29 11:41 - [千年古刹云居山谷雨见闻：一叶“攒林茶” 农禅指尖传](http://www.blog.kurohicncr.top/Article/details/2148515.shtml)

@@ -1,58 +1,59 @@
-# 收储接力，近7000吨湿小麦跨省抢烘（三夏进行时·防汛保丰收）
+# 习近平文化思想引领书香社会建设
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-从湖北、河南到山东郓城 收储接力，近7000吨湿小麦跨省抢烘(三夏进行时·防汛保丰收) 人民日报 本报记者 王 者此前在本栏目刊登的报道《襄阳百万吨“淋雨麦”这样抢烘干》提到，当地连续阴雨，为抢烘小麦，紧急将部分湿粮运往山东等地烘干。跨省运输烘干如何协调？粮食收购价格怎么定？如何最大限度降低农户损失？近日，本报记者前往山东郓城，采访湿小麦运输司机、为农服务中心工作人员等，看各方
+原标题：书承千年文脉 香溢万里家国——习近平文化思想引领书香社会建设 新华社北京4月19日电 题：书承千年文脉 香溢万里家国——习近平文化思想引领书香社会建设 新华社记者徐壮、杨湛菲、邢拓 春日里，神州大地书卷飘香。 国务院批复设立的全国首个“全民阅读活动周”与第五届全民阅读大会于4月20日同步启幕。 “人民群众多读书，我们的民族精神就会厚重起来、深邃起来。”党的十八大以来，习
 
 ## 正文
 
-从湖北、河南到山东郓城 收储接力，近7000吨湿小麦跨省抢烘(三夏进行时·防汛保丰收) 人民日报 本报记者 王 者此前在本栏目刊登的报道《襄阳百万吨“淋雨麦”这样抢烘干》提到，当地连续阴雨，为抢烘小麦，紧急将部分湿粮运往山东等地烘干。
+原标题：书承千年文脉 香溢万里家国——习近平文化思想引领书香社会建设 新华社北京4月19日电 题：书承千年文脉 香溢万里家国——习近平文化思想引领书香社会建设 新华社记者徐壮、杨湛菲、邢拓 春日里，神州大地书卷飘香。
 
-跨省运输烘干如何协调？
+国务院批复设立的全国首个“全民阅读活动周”与第五届全民阅读大会于4月20日同步启幕。
 
-粮食收购价格怎么定？
+“人民群众多读书，我们的民族精神就会厚重起来、深邃起来。
 
-如何最大限度降低农户损失？
+”党的十八大以来，习近平总书记高度重视全民阅读，作出一系列重要指示批示，率先垂范倡导读书。
 
-近日，本报记者前往山东郓城，采访湿小麦运输司机、为农服务中心工作人员等，看各方如何接力协作，保障小麦应烘尽烘，守牢国家粮食安全底线。
+“全民阅读”写入党的二十大报告、“十五五”规划纲要，并连续13年写入政府工作报告。
 
-——编 者 方向盘往右一打，货车驶入山东省菏泽市郓城县唐庙为农服务中心，35吨来自河南省的小麦到达目的地。
+在习近平文化思想引领下，今日之中国，全民阅读从“政策引导”迈向“法治保障”新阶段，全民阅读活动持续深入开展，神州大地书香浓郁，精神之花繁茂芬芳。
 
-“这是第二趟了，之前已经从河南拉来30多吨小麦。
+书香致远——“要提倡多读书，建设书香社会” 4月16日出版的《求是》杂志，发表了习近平总书记的重要文章《推动全民阅读，建设书香社会》。
 
-”河南司机彭运起说，一路上，厕所都没上几次，就怕把老乡的麦子耽搁了。
+这篇文章收录了习近平总书记2013年3月至2025年3月期间的有关重要论述，阐明读书学习的重大意义和丰富内涵，为建设书香社会、更好满足人民精神文化需求提供鲜明指引。
 
 ## 相关推荐
 
-- 2026-06-29 11:31 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:25 - [王中磊儿子邹市明儿子曹格儿子同框](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:27 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:34 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:43 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:25 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:35 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:42 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:41 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:40 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:38 - [岭南电影为何迎来“南方热”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:23 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:29 - [谷雨：祛湿排浊，双臂“甩起来”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:38 - [中东股市：霍尔木兹海峡局势再起变数，停火乐观预期降温，海湾股指走势低迷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:36 - [牛弹琴：美伊这出戏，编剧都不敢这样写](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:42 - [强化长效约束，券商薪酬管理制度迎来重大修订](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:26 - [AI算力重塑创业逻辑 郑州航空港区探索“轻创业”新路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:32 - [国元保险原董事长被查，收超400万罚单，成监管“重点户”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:35 - [美军在阿曼湾拦截并控制一艘伊朗货船](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:37 - [优步以3.18亿美元交易增持外卖平台Delivery Hero股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:44 - [福特召回至多139万辆F-150皮卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:53 - [文化中国行·联播一瞬丨谷雨：春去无憾 夏来有期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:46 - [伊朗民航组织宣布伊朗部分空域重新开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:53 - [李强主持召开国务院常务会议 听取自由贸易试验区建设情况汇报 审议通过《中华人民共和国行政复议法实施条例（修订草案）》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:51 - [超3万名日本民众集会反对高市政权危险动向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [A股](https://www.share.kurohicncr.top/Article/details/658611239.shtml)
-- 2026-06-29 11:39 - [乌拉圭出局之路](http://www.blog.minike.top/Article/details/551930698098.shtml)
-- 2026-06-29 11:51 - [高考公平需要延伸到志愿填报这一环](http://www.blog.minike.top/Article/details/1756257486.shtml)
-- 2026-06-29 11:31 - [功率半导体缺货涨价](http://www.share.minike.top/Article/details/211777029839.shtml)
-- 2026-06-29 11:44 - [俄称继续在顿涅茨克两城镇推进](http://www.blog.minike.top/Article/details/41072849880.shtml)
-- 2026-06-29 11:44 - [夏粮收购陆续展开 质优价稳购销两旺](http://www.share.kurohicncr.top/Article/details/78349433212.shtml)
-- 2026-06-29 11:45 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/479326879095.shtml)
-- 2026-06-29 11:37 - [《昨夜将至》为何是悬疑黑马](http://www.blog.kurohicncr.top/Article/details/840995464.shtml)
-- 2026-06-29 11:24 - [iPhone18系列预计将大幅涨价](https://www.blog.kurohicncr.top/Article/details/708639.shtml)
-- 2026-06-29 11:27 - [美国230斤男孩在家中去世父母被捕](http://www.share.minike.top/Article/details/29758.shtml)
-- 2026-06-29 11:34 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.kurohicncr.top/Article/details/7378579468.shtml)
-- 2026-06-29 11:29 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/614618.shtml)
-- 2026-06-29 11:48 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/4671154.shtml)
-- 2026-06-29 11:40 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.minike.top/Article/details/3690141.shtml)
-- 2026-06-29 11:47 - [和阿根廷球员家属一起看球](http://www.share.minike.top/Article/details/454261.shtml)
+- 2026-06-29 11:42 - [杭州通报一诊所“用一个针头给多人采血”：涉事诊所已停业整顿](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [乌克兰基辅发生枪击事件 致数人死亡](http://www.blog.kurohicncr.top/Article/details/97914857.shtml)
+- 2026-06-29 11:26 - [中国证监会就《违规转让证券案件行政处罚实施规则（征求意见稿）》公开征求意见](http://www.share.kurohicncr.top/Article/details/0795196.shtml)
+- 2026-06-29 11:37 - [全球乱局中，中国这块“金字招牌”越来越亮了](http://www.share.kurohicncr.top/Article/details/62396811.shtml)
+- 2026-06-29 11:40 - [美菲启动年度联合军演，外交部：一味在安全上相互捆绑只会引火烧身](http://www.blog.minike.top/Article/details/1871304358.shtml)
+- 2026-06-29 11:33 - [2026年中国香港（地区）商会京港地铁体育嘉年华活动举办](http://www.share.minike.top/Article/details/811514019897.shtml)
+- 2026-06-29 11:30 - [极氪8X正式上市：首次搭载舱驾融合超级智能体，上市限时售价32.98万元起](http://www.blog.kurohicncr.top/Article/details/6122834.shtml)
+- 2026-06-29 11:44 - [“患者被引荐至私立医院” 涉事医生被停止诊疗并终止聘用合同](http://www.share.minike.top/Article/details/958750516.shtml)
+- 2026-06-29 11:30 - [东方证券与上海证券筹划合并重组，加快推进一流现代投资银行建设](http://www.share.minike.top/Article/details/334409315.shtml)
+- 2026-06-29 11:39 - [涉案金额2.6亿元，我国摧毁山西特大假酒网络](http://www.blog.minike.top/Article/details/168423291062.shtml)
+- 2026-06-29 11:30 - [浦发银行与中国银联签署全面战略合作协议](http://www.share.minike.top/Article/details/5934498505.shtml)
+- 2026-06-29 11:41 - [让机器人跑马拉松有什么用？专家：先带动技术发展 再逐步落地应用](http://www.blog.kurohicncr.top/Article/details/525027862.shtml)
+- 2026-06-29 11:33 - [实拍江西上饶“三月三”篝火联欢现场 民众踏歌起舞庆佳节](http://www.blog.minike.top/Article/details/267662.shtml)
+- 2026-06-29 11:45 - [万众期待的“霸王”来了！“宿迁子弟何在？”何润东身披甲胄亮相“苏超”现场](http://www.share.minike.top/Article/details/96390292340.shtml)
+- 2026-06-29 11:36 - [BOSS直聘-W于4月17日耗资约249.65万美元回购约34.97万股](https://github.com/lisacumin64-arch)

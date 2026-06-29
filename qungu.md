@@ -1,58 +1,61 @@
-# 周末影响市场重要资讯回顾：交易员预计美联储将到明年1月底前加息25个基点，中国央行连续第19个月增持黄金
+# 美军在阿曼湾拦截并控制一艘伊朗货船
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！本周末影响市场的重要资讯有：国办发布关于加强监管防范风险促进私募投资基金高质量发展的指导意见；吴清最新表态，持续完善程序化交易监管机制安排，坚决打击操纵市场、扰乱市场秩序等违法违规行为；中国央行连续第19个月增持黄金；美股三大指数集体收跌，纳指跌超4%；黄金跳水，金饰价格跌回2025年。 【宏观及市场要闻】
+中新社华盛顿4月19日电 (记者 陈孟统)美国总统特朗普19日称，美军当天在阿曼湾拦截并控制一艘试图突破美军海上封锁的伊朗货船。 特朗普在社交媒体发文称，这艘“TOUSKA”号货船悬挂伊朗国旗，当天试图突破美军的海上封锁。美军“斯普鲁恩斯”号导弹驱逐舰在阿曼湾对该船实施拦截，但货船船员拒不听从。美舰随后直接击中货船机舱，迫使其停航。 特朗普称，“TOUSKA”号货船受美国财政部
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社华盛顿4月19日电 (记者 陈孟统)美国总统特朗普19日称，美军当天在阿曼湾拦截并控制一艘试图突破美军海上封锁的伊朗货船。
 
-本周末影响市场的重要资讯有：国办发布关于加强监管防范风险促进私募投资基金高质量发展的指导意见；吴清最新表态，持续完善程序化交易监管机制安排，坚决打击操纵市场、扰乱市场秩序等违法违规行为；中国央行连续第19个月增持黄金；美股三大指数集体收跌，纳指跌超4%；黄金跳水，金饰价格跌回2025年。
+特朗普在社交媒体发文称，这艘“TOUSKA”号货船悬挂伊朗国旗，当天试图突破美军的海上封锁。
 
-【宏观及市场要闻】 证监会主席吴清：持续完善程序化交易监管的机制安排 坚决打击操纵市场、扰乱市场秩序等违法违规行为 证监会官网发布吴清主席在中国证券投资基金业协会第四届会员代表大会上的致辞。
+美军“斯普鲁恩斯”号导弹驱逐舰在阿曼湾对该船实施拦截，但货船船员拒不听从。
 
-吴清表示，近年来，程序化交易已成为包括我国在内的全球各主要资本市场的重要交易方式。
+美舰随后直接击中货船机舱，迫使其停航。
 
-除了大家熟知的量化私募外，外资、公募及其他专业机构投资者，甚至一些个人投资者，都不同程度采用程序化交易的方式。
+特朗普称，“TOUSKA”号货船受美国财政部制裁。
 
-充分考虑个人投资者占大多数的国情市情，先后出台了一系列程序化交易监管规则制度，建立交易报告机制，强化针对性监测监控，从严监管异常交易行为，引导降频降速，强化交易业务单元管理等。
+美军已完全控制该船，正在检查船上货物。
 
-在此基础上，我们还将深入调研，持续完善程序化交易监管的机制安排，更突出公平和规范，加强针对性监管，切实防范滥用技术优势，坚决打击操纵市场、扰乱市场秩序等违法违规行为。
+美军中央司令部当天发表声明通报了这次拦截行动。
 
-李强主持召开国务院常务会议 审议通过《实施就业优先战略“十五五”规划》 李强主持召开国务院常务会议，听取关于做好就业工作汇报，审议通过《实施就业优先战略“十五五”规划》。
+声明说，“TOUSKA”号货船驶往伊朗阿巴斯港，当天穿过阿拉伯海北部，未遵守美军指令。
 
 ## 相关推荐
 
-- 2026-06-29 11:25 - [黄灿灿是浪姐最大赢家吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:46 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:33 - [高超感谢女友王佳欣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:46 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:48 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:31 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:51 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:38 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:36 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:31 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:46 - [日本媒体：板仓滉已回归日本队合练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:32 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:26 - [第44届香港电影金像奖红毯仪式举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:37 - [巴西Simpar以1.215亿雷亚尔出售Ciclus Amazônia股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:29 - [特朗普：若无法达成协议 或将不延长美伊临时停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:32 - [霍尔木兹海峡开放后油价大跌，欧洲斯托克600指数涨逾1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:52 - [国常会部署推动自贸试验区高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:45 - [英国金融时报称欧盟拟放宽并购规则 培育全球冠军企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:26 - [“90后”侨青走进上海虹口 读懂城市文脉与发展活力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:34 - [“寒潮”来袭！理财产品规模一季度缩水1.38万亿，投资者收益同比降低21%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:31 - [一季度广东货物以海运方式经海南自贸港进出口同比增长25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:32 - [特朗普过去24小时都忙了什么？（2026-04-19）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:24 - [A股“股王”更替见证中国经济新力量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:50 - [北京：香椿宴带动京郊游 衍生品丰富山村体验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:43 - [又见内幕交易？霍尔木兹开放前20分钟，神秘交易员7.6亿美元精准做空原油，已被调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:37 - [AI赋能文旅 2026西安丝路旅博会展示文旅科技新业态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:44 - [4月20日人民币对美元中间价报6.8648 下调26个基点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:45 - [韩国主帅洪明甫辞职](https://www.blog.kurohicncr.top/Article/details/72329654.shtml)
-- 2026-06-29 11:35 - [委内瑞拉地震死亡人数升至1450人](https://www.blog.kurohicncr.top/Article/details/36785363558.shtml)
-- 2026-06-29 11:27 - [韩体育部长回应李在明痛批](http://www.share.kurohicncr.top/Article/details/4902915136.shtml)
-- 2026-06-29 11:36 - [美媒：空警-3000服役即成全球最强](https://www.blog.kurohicncr.top/Article/details/15849307.shtml)
-- 2026-06-29 11:43 - [明星大侦探第一季](http://www.share.minike.top/Article/details/9033554884.shtml)
-- 2026-06-29 11:41 - [DSpark论文深度解读](http://www.share.kurohicncr.top/Article/details/303423827065.shtml)
-- 2026-06-29 11:27 - [男子偶遇婴儿被锁车内大哭挣扎](http://www.share.kurohicncr.top/Article/details/7948828974.shtml)
-- 2026-06-29 11:49 - [医护人员观影《四渡》传承长征精神](https://www.blog.kurohicncr.top/Article/details/8419780.shtml)
-- 2026-06-29 11:34 - [欧洲热死人不是开玩笑](http://www.blog.kurohicncr.top/Article/details/77107.shtml)
-- 2026-06-29 11:45 - [白玉兰下沉市场](https://www.blog.kurohicncr.top/Article/details/6628634.shtml)
-- 2026-06-29 11:35 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.kurohicncr.top/Article/details/166013909369.shtml)
-- 2026-06-29 11:33 - [普京称俄处于命运攸关之际](http://www.share.minike.top/Article/details/0027866.shtml)
-- 2026-06-29 11:46 - [国乒全主力参加美国大满贯](https://www.share.minike.top/Article/details/87968438.shtml)
-- 2026-06-29 11:52 - [Mrbeast的30天不吃饭挑战](http://www.share.minike.top/Article/details/8021003.shtml)
-- 2026-06-29 11:27 - [巴西德国15次闯进世界杯淘汰赛](https://www.share.minike.top/Article/details/892154599105.shtml)
+- 2026-06-29 11:25 - [万众期待的“霸王”来了！“宿迁子弟何在？”何润东身披甲胄亮相“苏超”现场](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:53 - [BOSS直聘-W于4月17日耗资约249.65万美元回购约34.97万股](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [去年翻倍赚钱的基金，今年怎么样了？](http://www.blog.minike.top/Article/details/7867574387.shtml)
+- 2026-06-29 11:32 - [巴西、西班牙和墨西哥联合呼吁采取措施缓解古巴局势](http://www.blog.minike.top/Article/details/77885889.shtml)
+- 2026-06-29 11:40 - [产品业绩回撤38.53%，昔日百亿私募同犇投资最新回应：从来不是只买消费，AI产业链去年开始就有不少仓位](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [金价下跌 霍尔木兹海峡再度中断引发通胀担忧](http://www.share.kurohicncr.top/Article/details/6293681.shtml)
+- 2026-06-29 11:47 - [农业农村部：推动猪价合理回升](http://www.blog.minike.top/Article/details/8817731.shtml)
+- 2026-06-29 11:49 - [鼎泰丰“回京”热度不减 稳中求进布局大陆北方市场](http://www.share.minike.top/Article/details/30664.shtml)
+- 2026-06-29 11:37 - [国际能源署称中东能源产出恢复需两年时间](http://www.share.minike.top/Article/details/59805.shtml)
+- 2026-06-29 11:53 - [直击广东消防救援力量多举措筑牢防汛救灾安全屏障](http://www.blog.minike.top/Article/details/84492829050.shtml)
+- 2026-06-29 11:52 - [印度卢比在亚币中表现最佳 央行据报道对油企购买美元进行窗口指导](http://www.share.kurohicncr.top/Article/details/688758815.shtml)
+- 2026-06-29 11:47 - [西安直飞维也纳国际航线开通](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [江西南昌久雨初晴：市民户外享受春光](http://www.blog.minike.top/Article/details/890860882267.shtml)
+- 2026-06-29 11:28 - [2026年巴黎图书节拉开帷幕](http://www.share.kurohicncr.top/Article/details/89374892.shtml)
+- 2026-06-29 11:38 - [韩国和美国一致认为，韩元汇率过度波动是不可取的](http://www.blog.kurohicncr.top/Article/details/363635488.shtml)

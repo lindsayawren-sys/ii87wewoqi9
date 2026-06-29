@@ -1,50 +1,60 @@
-# 沃顿科技：公司持续看好海水淡化、特种分离及资源提纯等领域
+# 2026江苏省侨界中餐厨艺大赛在无锡启动
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-证券日报网6月5日讯 ，沃顿科技在接受调研者提问时表示，公司持续看好海水淡化、特种分离及资源提纯等领域。就市场关注的超纯水领域，公司正积极推进进口替代，产品性能取得显著进步并已实现应用，目前占总营收比例较小。整体看，传统化工领域与海水淡化仍是当前主要方向。（文章来源：证券日报）
+中新网无锡4月17日电 (徐珊珊 孙权)以食为媒聚四海侨心，以味为桥传中华文脉。4月17日下午，“亲情中华·魅力江苏”2026江苏省侨界中餐厨艺大赛新闻发布会暨启动仪式在无锡市新吴区举行。 这场面向全球侨界的特色中餐文化交流赛事正式启动，为中华美食海外传播、深化海内外侨界联谊交流搭建了重要平台。 “中华美食是中华文化的重要载体，广大海外侨胞是中餐文化的坚定传承者和传播者，为推动
 
 ## 正文
 
-证券日报网6月5日讯 ，沃顿科技在接受调研者提问时表示，公司持续看好海水淡化、特种分离及资源提纯等领域。
+中新网无锡4月17日电 (徐珊珊 孙权)以食为媒聚四海侨心，以味为桥传中华文脉。
 
-就市场关注的超纯水领域，公司正积极推进进口替代，产品性能取得显著进步并已实现应用，目前占总营收比例较小。
+4月17日下午，“亲情中华·魅力江苏”2026江苏省侨界中餐厨艺大赛新闻发布会暨启动仪式在无锡市新吴区举行。
 
-整体看，传统化工领域与海水淡化仍是当前主要方向。
+这场面向全球侨界的特色中餐文化交流赛事正式启动，为中华美食海外传播、深化海内外侨界联谊交流搭建了重要平台。
 
-（文章来源：证券日报）
+“中华美食是中华文化的重要载体，广大海外侨胞是中餐文化的坚定传承者和传播者，为推动中华文化走向世界、促进中外民心相通作出了积极贡献。
+
+”江苏省侨联党组成员、副主席艾卉在致辞时表示，本次大赛是江苏省侨联弘扬中华优秀传统文化、服务海内外侨界人士的创新实践。
+
+赛事将秉持公平公正公开原则评选优秀选手，依托全媒体传播矩阵讲好中国故事、江苏故事，搭建中餐技艺交流、产业合作的高效平台，以厨会友、以食传情，进一步凝聚侨心、汇集侨智、发挥侨力，实现文化传播与共赢共享。
+
+新吴区对外开放底蕴深厚、侨务工作扎实有力，始终用心用情做好为侨服务工作，积极开展各类侨界文化交流活动。
+
+新吴区委常委李伟敏表示，本次大赛落地新吴，是以美食为纽带凝聚侨心侨力、传播中华优秀文化的生动实践。
 
 ## 相关推荐
 
-- 2026-06-29 11:32 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:38 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:28 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:35 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:45 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:36 - [特里：法国是世界杯夺冠热门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:31 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:26 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:30 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:36 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:44 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:41 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:52 - [美国精神航空公司考虑清算](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:48 - [从汽车到易拉罐：伊朗战争如何冲击全球铝供应链](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:35 - [东西问丨阿齐赞·巴哈鲁丁：“文明冲突论”必须让位于“和平共处论”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:32 - [侧记：一座园林连中法，解码园博会背后的“侨”味道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:40 - [海外华媒侨领走进世界自然遗产地 感受喀斯特地貌奇观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:28 - [四大证券报头版头条内容精华摘要_2026年4月20日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:26 - [中国经济开局良好 外媒：高质量发展助力中国经济更具可持续性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:24 - [2026“发现宝藏山东”主题旅游年启幕 让宝藏可寻、可感、可品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:25 - [受伊朗局势缓和预期推动，美国股票基金持续获得资金流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:45 - [中国美术馆与千问AI眼镜开启合作探索，观展迈向“边看边懂”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:25 - [上巳传笺 望江听涛：成都望江楼公园复原明代制笺古礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:25 - [拼多多因“幽灵外卖”被罚，法定代表人赵佳臻被处693.73万元罚款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:25 - [中国试飞院开放日 各型飞机引民众打卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:46 - [预测市场平台Polymarket计划募资4亿美元 估值达约150亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:27 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/2254445116.shtml)
-- 2026-06-29 11:29 - [iPhone18系列预计将大幅涨价](https://www.share.kurohicncr.top/Article/details/499672099710.shtml)
-- 2026-06-29 11:29 - [唐艺昕女儿接唐艺昕回家](https://www.blog.kurohicncr.top/Article/details/922260696923.shtml)
-- 2026-06-29 11:41 - [林诗栋晋级WTT美国大满贯男单32强](https://www.share.kurohicncr.top/Article/details/678714451713.shtml)
-- 2026-06-29 11:44 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/10251042698.shtml)
-- 2026-06-29 11:47 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.kurohicncr.top/Article/details/51911780213.shtml)
-- 2026-06-29 11:41 - [唐艺昕女儿接唐艺昕回家](http://www.share.kurohicncr.top/Article/details/3516458167.shtml)
-- 2026-06-29 11:35 - [线路错接女子替7户邻居交17年电费](http://www.share.minike.top/Article/details/34235.shtml)
-- 2026-06-29 11:47 - [人民日报评“AI脸看腻了”](http://www.blog.minike.top/Article/details/85317816128.shtml)
-- 2026-06-29 11:49 - [我和我的家乡](http://www.blog.minike.top/Article/details/4841166778.shtml)
-- 2026-06-29 11:47 - [宜宾5.5级地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/9419735.shtml)
-- 2026-06-29 11:49 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/4708570.shtml)
-- 2026-06-29 11:28 - [岭南电影为何迎来“南方热”](https://www.share.kurohicncr.top/Article/details/27033369.shtml)
-- 2026-06-29 11:26 - [流金岁月](https://www.share.minike.top/Article/details/605659713.shtml)
-- 2026-06-29 11:34 - [某高校学生被辅导员等人扭送至公安](https://www.share.minike.top/Article/details/801069428.shtml)
+- 2026-06-29 11:51 - [中东股市：霍尔木兹海峡局势再起变数，停火乐观预期降温，海湾股指走势低迷](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [牛弹琴：美伊这出戏，编剧都不敢这样写](http://www.blog.minike.top/Article/details/5586342.shtml)
+- 2026-06-29 11:50 - [强化长效约束，券商薪酬管理制度迎来重大修订](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [AI算力重塑创业逻辑 郑州航空港区探索“轻创业”新路径](http://www.blog.minike.top/Article/details/8795063464.shtml)
+- 2026-06-29 11:27 - [国元保险原董事长被查，收超400万罚单，成监管“重点户”](http://www.blog.kurohicncr.top/Article/details/54362.shtml)
+- 2026-06-29 11:26 - [美军在阿曼湾拦截并控制一艘伊朗货船](http://www.blog.minike.top/Article/details/58452710724.shtml)
+- 2026-06-29 11:28 - [优步以3.18亿美元交易增持外卖平台Delivery Hero股份](http://www.share.kurohicncr.top/Article/details/334994.shtml)
+- 2026-06-29 11:37 - [福特召回至多139万辆F-150皮卡](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [文化中国行·联播一瞬丨谷雨：春去无憾 夏来有期](http://www.share.minike.top/Article/details/650549.shtml)
+- 2026-06-29 11:45 - [伊朗民航组织宣布伊朗部分空域重新开放](http://www.share.minike.top/Article/details/073258923266.shtml)
+- 2026-06-29 11:46 - [李强主持召开国务院常务会议 听取自由贸易试验区建设情况汇报 审议通过《中华人民共和国行政复议法实施条例（修订草案）》](http://www.blog.kurohicncr.top/Article/details/55354.shtml)
+- 2026-06-29 11:46 - [超3万名日本民众集会反对高市政权危险动向](http://www.blog.kurohicncr.top/Article/details/79719.shtml)
+- 2026-06-29 11:31 - [第44届香港电影金像奖红毯仪式举行](http://www.share.kurohicncr.top/Article/details/080754816.shtml)
+- 2026-06-29 11:24 - [巴西Simpar以1.215亿雷亚尔出售Ciclus Amazônia股份](http://www.share.minike.top/Article/details/5037486878.shtml)
+- 2026-06-29 11:53 - [特朗普：若无法达成协议 或将不延长美伊临时停火](http://www.share.minike.top/Article/details/04965.shtml)

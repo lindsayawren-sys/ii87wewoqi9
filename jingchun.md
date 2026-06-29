@@ -1,58 +1,59 @@
-# 送别魏宗万：千人千面老戏骨 平凡匠心守初心
+# 东西问丨阿齐赞·巴哈鲁丁：“文明冲突论”必须让位于“和平共处论”
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月05日 22:54 来源：中国新闻网 6月1日，沪上著名表演艺术家魏宗万在上海华东医院与世长辞，享年89岁。6月5日下午，魏宗万的亲朋好友、闻讯赶来的影迷们等候在上海龙华殡仪馆，送别这位深耕舞台与荧幕六十余载的“百变配角”。 魏宗万出生于1938年，1963年从上海戏剧学院表演系毕业后，进入上海人民艺术剧院任演员。初入舞台时，他因外形特点，常年跑龙套、
+中新社北京4月18日电 题：“文明冲突论”必须让位于“和平共处论” ——专访马来亚大学文明对话中心顾问阿齐赞·巴哈鲁丁 作者 李嘉茵 贺劭清 2026儒伊文明对话会近日在北京举行。本届对话会以“全球文明观：儒家文化与伊斯兰文明的视角”为主题，由国际儒学联合会与马来西亚国际伊斯兰大学联合主办。 会议期间，马来亚大学文明对话中心顾问阿齐赞·巴哈鲁丁(Azizan Baharuddi
 
 ## 正文
 
-发布时间：2026年06月05日 22:54 来源：中国新闻网 6月1日，沪上著名表演艺术家魏宗万在上海华东医院与世长辞，享年89岁。
+中新社北京4月18日电 题：“文明冲突论”必须让位于“和平共处论” ——专访马来亚大学文明对话中心顾问阿齐赞·巴哈鲁丁 作者 李嘉茵 贺劭清 2026儒伊文明对话会近日在北京举行。
 
-6月5日下午，魏宗万的亲朋好友、闻讯赶来的影迷们等候在上海龙华殡仪馆，送别这位深耕舞台与荧幕六十余载的“百变配角”。
+本届对话会以“全球文明观：儒家文化与伊斯兰文明的视角”为主题，由国际儒学联合会与马来西亚国际伊斯兰大学联合主办。
 
-魏宗万出生于1938年，1963年从上海戏剧学院表演系毕业后，进入上海人民艺术剧院任演员。
+会议期间，马来亚大学文明对话中心顾问阿齐赞·巴哈鲁丁(Azizan Baharuddin)接受中新社“东西问”独家专访指出，伊斯兰文明中的公正、仁慈与对人类尊严的关怀，对化解当前中东困局具有直接启示。
 
-初入舞台时，他因外形特点，常年跑龙套、演配角，哪怕戏份寥寥，也认真揣摩、用心演绎。
+她呼吁全球治理以“和平共处论”取代“文明冲突论”，以尊重多样性为前提开展真诚对话。
 
-凭着对演戏的满腔热情，他硬是从一个个小角色里走了出来。
+现将访谈实录摘要如下： 中新社记者：您认为伊斯兰文明有何鲜明特色？
 
-魏宗万在94版电视剧《三国演义》里演活了乱世枭雄司马懿，以“鹰视狼顾”的神态、克制内敛的表演，精准演绎出人物的隐忍、多疑与深谋，被观众评价为难以复刻的经典；98版电视剧《水浒传》中，他又摇身一变，将奸佞狡诈、趋炎附势的高俅刻画得入木三分。
+在当今时代有何现实意义？
 
-上海话剧艺术中心总经理张惠庆表示，魏宗万用一生铸就的艺术丰碑将永远矗立在人们心中，愿他在另一个世界依然能听见观众如潮的掌声。
+阿齐赞·巴哈鲁丁：众所周知，《古兰经》是伊斯兰文明的根基。
 
-记者王笈 徐银 康玉湛上海报道 责任编辑：【胡寒笑】
+伊斯兰文明的一大特色是，宗教与世俗之间不存在二元对立——法律、经济、治理、教育、家庭，生活的各个方面都是相互融合的。
 
 ## 相关推荐
 
-- 2026-06-29 11:25 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:46 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:32 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:28 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:43 - [月薪 1 万留在一线城市，和月薪 6000 回家乡工作，哪个更划算？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:29 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:48 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:49 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:45 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:50 - [男子在家一丝不挂 邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:34 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:39 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:30 - [中国美术馆与千问AI眼镜开启合作探索，观展迈向“边看边懂”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:53 - [上巳传笺 望江听涛：成都望江楼公园复原明代制笺古礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:47 - [拼多多因“幽灵外卖”被罚，法定代表人赵佳臻被处693.73万元罚款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:37 - [中国试飞院开放日 各型飞机引民众打卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:31 - [预测市场平台Polymarket计划募资4亿美元 估值达约150亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:29 - [总书记的关切·落地的回响｜中国式现代化要靠科技现代化作支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:49 - [林毅夫：中国式现代化的成功实践为全球发展中国家提供重要借鉴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:52 - [湖北城市足球联赛点燃民众热情 赛事流量变消费增量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:53 - [国际传播纪录片《大道——永远的长征》在北京启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:37 - [千年古刹云居山谷雨见闻：一叶“攒林茶” 农禅指尖传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:43 - [灿能电力拟每10股派息1.66元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:46 - [光鲜销售下的深层危机：亚盛医药的盈利困局与三大致命风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:45 - [东方证券收购上海证券，又多了一家“前途未卜”的公募，上海证券持有100%股权的前海联合基金咋办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:23 - [曝韩国球员目睹出局时正吃饭](http://www.blog.minike.top/Article/details/6313165.shtml)
-- 2026-06-29 11:25 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/33354262355.shtml)
-- 2026-06-29 11:45 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/54315322.shtml)
-- 2026-06-29 11:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/23567.shtml)
-- 2026-06-29 11:45 - [美伊同意停止互袭 30日在多哈谈判](https://www.blog.kurohicncr.top/Article/details/929455373757.shtml)
-- 2026-06-29 11:44 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/37195579.shtml)
-- 2026-06-29 11:48 - [去了一趟潮汕。](https://www.blog.minike.top/Article/details/454271.shtml)
-- 2026-06-29 11:45 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](http://www.share.kurohicncr.top/Article/details/6067479.shtml)
-- 2026-06-29 11:36 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/994940589.shtml)
-- 2026-06-29 11:44 - [周锡玮：做堂堂正正的中国人](http://www.share.kurohicncr.top/Article/details/9915749.shtml)
-- 2026-06-29 11:48 - [韩国队是怎么把自己“作死”的](https://www.share.minike.top/Article/details/01958567.shtml)
-- 2026-06-29 11:51 - [青春环游记第三季](http://www.blog.minike.top/Article/details/240388971.shtml)
-- 2026-06-29 11:34 - [中俄联合巡航阵容强大 日本慌了？](https://www.share.minike.top/Article/details/31123.shtml)
-- 2026-06-29 11:43 - [爱很美味](http://www.blog.minike.top/Article/details/771880.shtml)
-- 2026-06-29 11:36 - [韩国队主帅洪明甫下课](https://www.blog.minike.top/Article/details/59821661299.shtml)
+- 2026-06-29 11:25 - [伊朗民航组织宣布伊朗部分空域重新开放](http://www.share.minike.top/Article/details/93137654.shtml)
+- 2026-06-29 11:51 - [李强主持召开国务院常务会议 听取自由贸易试验区建设情况汇报 审议通过《中华人民共和国行政复议法实施条例（修订草案）》](http://www.blog.minike.top/Article/details/287515116052.shtml)
+- 2026-06-29 11:36 - [超3万名日本民众集会反对高市政权危险动向](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [第44届香港电影金像奖红毯仪式举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [巴西Simpar以1.215亿雷亚尔出售Ciclus Amazônia股份](http://www.blog.kurohicncr.top/Article/details/560091.shtml)
+- 2026-06-29 11:28 - [特朗普：若无法达成协议 或将不延长美伊临时停火](http://www.blog.minike.top/Article/details/876408800825.shtml)
+- 2026-06-29 11:46 - [霍尔木兹海峡开放后油价大跌，欧洲斯托克600指数涨逾1%](http://www.share.minike.top/Article/details/864804657.shtml)
+- 2026-06-29 11:40 - [国常会部署推动自贸试验区高质量发展](http://www.share.minike.top/Article/details/086804452999.shtml)
+- 2026-06-29 11:30 - [英国金融时报称欧盟拟放宽并购规则 培育全球冠军企业](http://www.share.minike.top/Article/details/30518281734.shtml)
+- 2026-06-29 11:34 - [“90后”侨青走进上海虹口 读懂城市文脉与发展活力](http://www.share.minike.top/Article/details/77927084.shtml)
+- 2026-06-29 11:39 - [“寒潮”来袭！理财产品规模一季度缩水1.38万亿，投资者收益同比降低21%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [一季度广东货物以海运方式经海南自贸港进出口同比增长25%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:53 - [特朗普过去24小时都忙了什么？（2026-04-19）](http://www.blog.minike.top/Article/details/01319393.shtml)
+- 2026-06-29 11:49 - [A股“股王”更替见证中国经济新力量](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [北京：香椿宴带动京郊游 衍生品丰富山村体验](http://www.share.minike.top/Article/details/685681602855.shtml)

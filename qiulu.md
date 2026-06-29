@@ -1,60 +1,49 @@
-# 加密货币交易所Bybit将开放SpaceX代币化IPO的参与渠道
+# 受以色列-黎巴嫩停火消息影响，油价下滑
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-加密货币交易所Bybit表示，将向散户投资者提供以发行价参与代币化首次公开募股（IPO）的机会，首期将推出SpaceX的代币化IPO。 具体详情如下： Bybit用户可通过代币化平台Payward的xStocks，认购公开交易股票的代币化份额。 针对SpaceX的发行，注册和认购将于2026年6月7日至6月11日进行，配额分配将于6月11日至6月12日最终确定。代币化股份预计将
+周五国际原油价格走低，因以色列与黎巴嫩达成为期10天的停火协议提升了更广泛谈判的希望，不过荷兰国际集团指出实物供应依然紧张；美国石油基金随之下跌。责任编辑：张俊 SF065
 
 ## 正文
 
-加密货币交易所Bybit表示，将向散户投资者提供以发行价参与代币化首次公开募股（IPO）的机会，首期将推出SpaceX的代币化IPO。
+周五国际原油价格走低，因以色列与黎巴嫩达成为期10天的停火协议提升了更广泛谈判的希望，不过荷兰国际集团指出实物供应依然紧张；美国石油基金随之下跌。
 
-具体详情如下： Bybit用户可通过代币化平台Payward的xStocks，认购公开交易股票的代币化份额。
-
-针对SpaceX的发行，注册和认购将于2026年6月7日至6月11日进行，配额分配将于6月11日至6月12日最终确定。
-
-代币化股份预计将于6月12日起在Bybit的现货市场开始交易。
-
-用户将能够以IPO定价购买股份，从而规避二级市场的竞争，且无需开设或维护传统的证券账户。
-
-上周启动路演的SpaceX此次IPO已吸引约1500亿美元的投资者需求，约为其计划募集的750亿美元的两倍。
-
-加密货币交易所Kraken本月表示，已通过xStocks平台向110多个国家的客户开放了SpaceXIPO的申购渠道。
-
-华尔街押注2026年可能成为美国IPO市场的突破之年，这得益于大量备受瞩目的私营公司储备以及对新股上市的积压需求。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 11:31 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:41 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:37 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:44 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:42 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:29 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:50 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:49 - [三只羊大杨哥不直播改卖课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:38 - [立陶宛为何此时生变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:23 - [南非门将单场77次成功传球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:26 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:31 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:31 - [岭南电影为何迎来“南方热”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:31 - [美国230斤男孩在家中去世父母被捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:46 - [中越青年相聚广西南宁分享友好故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:34 - [歼-10升空！防以色列袭击，巴基斯坦出动20多架飞机护送伊朗谈判代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:49 - [旧金山联储行长戴利认为利率处于良好位置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:52 - [券商前十座次重排！“两超多强”格局显现，两大业务成新关键赛道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:33 - [黑龙江干流黑河段平稳开江 较历年提前9天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:25 - [标普500闪现罕见上涨信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:48 - [卡沙甘油田就50亿美元哈萨克斯坦硫磺罚款上诉再遭驳回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:25 - [霍尔木兹海峡开放提振市场，华尔街周五开盘走高，原油价格大跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:26 - [2026金鸡艺术电影展在上海举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:30 - [ZFX山海证券:金矿合作拓展资源前景仍待验证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:44 - [做具身智能的银河通用，为什么要花1500多万元向宇树科技买机器人？ | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:34 - [蓝色起源火箭可重复使用助推器着陆 但卫星偏离轨道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:37 - [霍尔木兹海峡开放后多艘船只尝试通行但未竟全功 不确定性犹在](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:44 - [巴基斯坦内政部长前往美使馆讨论美伊第二轮谈判事宜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:53 - [避开昂贵汽油 电动汽车在欧洲主要市场销量飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [记者暗访贵州和云南多个养老机构](https://www.share.minike.top/Article/details/510914983.shtml)
-- 2026-06-29 11:34 - [神23乘组太空出差满月](http://www.blog.kurohicncr.top/Article/details/47097.shtml)
-- 2026-06-29 11:42 - [三轮车被自家狗“推”进池塘](http://www.share.minike.top/Article/details/126652.shtml)
-- 2026-06-29 11:26 - [张一山说杨紫早该拿奖了](https://www.share.minike.top/Article/details/6312406362.shtml)
-- 2026-06-29 11:27 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/47858.shtml)
-- 2026-06-29 11:50 - [韩体育部长回应李在明痛批](https://www.share.kurohicncr.top/Article/details/94313555.shtml)
-- 2026-06-29 11:46 - [加拿大女球迷玩人浪把手机甩飞](https://www.blog.kurohicncr.top/Article/details/36920045.shtml)
-- 2026-06-29 11:34 - [市民骑哈啰单车79分钟被收费30元](http://www.share.minike.top/Article/details/496204.shtml)
-- 2026-06-29 11:27 - [王佳佳江疏影13年前后同框对比](https://www.share.minike.top/Article/details/967636932.shtml)
-- 2026-06-29 11:25 - [Gucci全球首席营销官发肖战](https://www.share.kurohicncr.top/Article/details/5146817.shtml)
-- 2026-06-29 11:39 - [原来大雷哥给杨紫准备了三件祖海高定](http://www.blog.kurohicncr.top/Article/details/338556019985.shtml)
-- 2026-06-29 11:45 - [派出所集体KTV招陪侍事发2年未通报](https://www.share.minike.top/Article/details/24112.shtml)
-- 2026-06-29 11:37 - [上周末 多领域成果密集“上新”](http://www.blog.kurohicncr.top/Article/details/46245353.shtml)
-- 2026-06-29 11:46 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/352838.shtml)
-- 2026-06-29 11:31 - [起风了](https://www.share.minike.top/Article/details/04484504.shtml)
+- 2026-06-29 11:48 - [百胜中国于4月17日斥资773.82万港元回购2.07万股](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [伊朗称将对美军扣押伊朗商船作出回应](http://www.blog.kurohicncr.top/Article/details/912411793.shtml)
+- 2026-06-29 11:27 - [特朗普：霍尔木兹海峡已完全开放 但对伊朗海上封锁仍将持续](http://www.blog.kurohicncr.top/Article/details/8947233.shtml)
+- 2026-06-29 11:38 - [2026中小学“汉语桥”多伦多赛区选拔赛圆满收官](http://www.share.minike.top/Article/details/27789443.shtml)
+- 2026-06-29 11:52 - [现场视频：美军人员从直升机顺绳而下，控制伊朗货船](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:30 - [贵州纳雍：玛瑙红樱桃迎采摘热潮](http://www.share.kurohicncr.top/Article/details/71696733602.shtml)
+- 2026-06-29 11:53 - [从“石旮旯”到“世界最佳” 重庆荆竹村涌文旅热潮](http://www.blog.minike.top/Article/details/942705181740.shtml)
+- 2026-06-29 11:53 - [ATFX五度斩获ADVFN最佳拉美地区经纪商 区域领导力再获国际权威认可](http://www.blog.minike.top/Article/details/798787566029.shtml)
+- 2026-06-29 11:31 - [三亚与7家境外经贸合作区集中签约](http://www.blog.kurohicncr.top/Article/details/185407.shtml)
+- 2026-06-29 11:48 - [三亚亚沙会临近 主媒体中心试运行赛事氛围渐浓](http://www.share.kurohicncr.top/Article/details/673952287706.shtml)
+- 2026-06-29 11:33 - [法国通过“文物归还法案”，260万件中国文物多少能回归？](http://www.share.minike.top/Article/details/14992181.shtml)
+- 2026-06-29 11:37 - [OpenAI “Sora之父”宣布离职](http://www.share.minike.top/Article/details/7667731.shtml)
+- 2026-06-29 11:53 - [跨国药械企业竞逐“中国制造”新赛道](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [美国中央司令部：美军瘫痪了一艘试图驶入伊朗港口、违反封锁令的伊朗船只](http://www.blog.kurohicncr.top/Article/details/63214.shtml)
+- 2026-06-29 11:41 - [霍尔木兹海峡开放消息提振米兰股市加速上涨，银行与奢侈品板块飙升，石油股下跌](http://www.blog.minike.top/Article/details/7789943221.shtml)

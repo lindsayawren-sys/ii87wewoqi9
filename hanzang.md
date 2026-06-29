@@ -1,58 +1,57 @@
-# 伊朗战事冲击能源市场 欧盟称航空燃油供应暂无虞
+# 中国证监会就《违规转让证券案件行政处罚实施规则（征求意见稿）》公开征求意见
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-欧盟运输事务专员向路透表示，尽管伊朗战争引发能源供应冲击，但未来几个月欧洲没有出现航空燃油短缺的迹象。不过，高昂的燃油价格正促使航空公司削减无利可图的航线。 霍尔木兹海峡作为连接海湾地区与全球市场的关键航道，过去三个月来大致处于关闭状态，导致全球石油供应每日减少约1400万桶，相当于全球需求量的约14%。 迄今为止，欧盟承受住了这波冲击。中东地区约占欧盟航空燃油进口量的20%，
+登录新浪财经APP 搜索【信披】查看更多考评等级 为深入贯彻落实《国务院关于加强监管防范风险推动资本市场高质量发展的若干意见》精神，全面完善减持规则体系，严厉打击各类违规减持，中国证监会在系统总结近年来监管工作实践经验、调研听取多方意见建议的基础上，起草了《违规转让证券案件行政处罚实施规则》（以下简称《规则》）征求意见稿，现向社会公开征求意见。 《规则》共十八条，主要内容包括：
 
 ## 正文
 
-欧盟运输事务专员向路透表示，尽管伊朗战争引发能源供应冲击，但未来几个月欧洲没有出现航空燃油短缺的迹象。
+登录新浪财经APP 搜索【信披】查看更多考评等级 为深入贯彻落实《国务院关于加强监管防范风险推动资本市场高质量发展的若干意见》精神，全面完善减持规则体系，严厉打击各类违规减持，中国证监会在系统总结近年来监管工作实践经验、调研听取多方意见建议的基础上，起草了《违规转让证券案件行政处罚实施规则》（以下简称《规则》）征求意见稿，现向社会公开征求意见。
 
-不过，高昂的燃油价格正促使航空公司削减无利可图的航线。
+《规则》共十八条，主要内容包括： 一是规范“违规转让证券”的认定。
 
-霍尔木兹海峡作为连接海湾地区与全球市场的关键航道，过去三个月来大致处于关闭状态，导致全球石油供应每日减少约1400万桶，相当于全球需求量的约14%。
+明确《证券法》第一百八十六条规定的“转让证券”“在限制转让期内转让证券”“转让股票不符合法律、行政法规和国务院证券监督管理机构规定”的内涵、具体情形，以及一致行动人的违法主体认定。
 
-迄今为止，欧盟承受住了这波冲击。
+需要说明的是：违规转让证券的类型多样，为便于执法操作，《规则》根据证券性质、行为主体、行为特征、危害性大小等，将违规转让证券行为细分为“违反法律的‘在限制转让期内转让证券’”“在持有期限、卖出时间方面不符合行政法规、中国证监会规定”“在卖出数量、信息披露等方面不符合法律、行政法规和中国证监会规定”“未按规定暂停交易”四种类别，力求准确定性，精准执法。
 
-中东地区约占欧盟航空燃油进口量的20%，而来自美国与尼日利亚的供应大致填补了缺口。
+二是规范“违规转让证券”的处罚。
 
-“目前欧洲没有航空燃油短缺。
+针对不同类别，差异化设置不同的裁量阶次指标，力求过罚相当。
 
-我们没有迹象表明未来一段时间会出现短缺，”欧盟运输事务专员Apostolos Tzitzikostas在接受采访时表示，并补充说地区机场面临的风险最大。
+同时，还对量罚调整情节做列举式规定，对并罚与从一重处的情形、调整适用的情形和市场禁入等作提示性规定。
 
-主要担忧在于价格飙升。
+欢迎社会各界提出宝贵意见，中国证监会将认真研究各方反馈意见，进一步修改完善后按程序发布实施。
 
 ## 相关推荐
 
-- 2026-06-29 11:25 - [户外吃烧烤多人头发变炸毛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:25 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:41 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:43 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:24 - [李在明要调查韩国队出局原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:34 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:50 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:42 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:26 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:49 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:33 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:36 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:24 - [涉案金额2.6亿元，我国摧毁山西特大假酒网络](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:25 - [浦发银行与中国银联签署全面战略合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:39 - [让机器人跑马拉松有什么用？专家：先带动技术发展 再逐步落地应用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:24 - [实拍江西上饶“三月三”篝火联欢现场 民众踏歌起舞庆佳节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:38 - [万众期待的“霸王”来了！“宿迁子弟何在？”何润东身披甲胄亮相“苏超”现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:48 - [BOSS直聘-W于4月17日耗资约249.65万美元回购约34.97万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:53 - [去年翻倍赚钱的基金，今年怎么样了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:35 - [巴西、西班牙和墨西哥联合呼吁采取措施缓解古巴局势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:28 - [产品业绩回撤38.53%，昔日百亿私募同犇投资最新回应：从来不是只买消费，AI产业链去年开始就有不少仓位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:39 - [金价下跌 霍尔木兹海峡再度中断引发通胀担忧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:43 - [农业农村部：推动猪价合理回升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:47 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/922358.shtml)
-- 2026-06-29 11:32 - [DeepSeek联合北京大学发布论文](http://www.share.kurohicncr.top/Article/details/7691998.shtml)
-- 2026-06-29 11:28 - [高考志愿今起开始填报](http://www.share.minike.top/Article/details/844857.shtml)
-- 2026-06-29 11:40 - [中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/664501081109.shtml)
-- 2026-06-29 11:46 - [张亚中：以中山精神为桥凝聚血脉认同](https://www.blog.minike.top/Article/details/82812634.shtml)
-- 2026-06-29 11:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/508839.shtml)
-- 2026-06-29 11:50 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/9503191.shtml)
-- 2026-06-29 11:46 - [普京：俄罗斯将坚定捍卫自身根本利益](https://www.blog.minike.top/Article/details/35320.shtml)
-- 2026-06-29 11:43 - [宜宾地震后顾客折返用餐0人逃单](https://www.blog.kurohicncr.top/Article/details/85004.shtml)
-- 2026-06-29 11:35 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/23314521580.shtml)
-- 2026-06-29 11:46 - [宜宾地震监控画面](http://www.blog.minike.top/Article/details/34880890683.shtml)
-- 2026-06-29 11:27 - [加拿大92分钟绝杀南非](http://www.share.kurohicncr.top/Article/details/003434.shtml)
-- 2026-06-29 11:46 - [白宇摘下白玉兰送给杨幂](https://www.share.kurohicncr.top/Article/details/870433631475.shtml)
-- 2026-06-29 11:51 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/43919.shtml)
-- 2026-06-29 11:43 - [换个角度打开世界杯淘汰赛](https://www.share.kurohicncr.top/Article/details/84635242.shtml)
+- 2026-06-29 11:42 - [“中国菠萝之乡”徐闻举办百年菠萝文化旅游嘉年华](http://www.blog.kurohicncr.top/Article/details/294633.shtml)
+- 2026-06-29 11:25 - [百面崇阳铜鼓奏响“楚超”咸宁主场](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [天喻信息（300205）被预处罚，股民索赔可期](http://www.share.minike.top/Article/details/19902.shtml)
+- 2026-06-29 11:44 - [经济冲击逼近，以色列央行行长寄望和平](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [中英文双语绘本《埃德加·斯诺的红星之旅》首发式在西安举行](http://www.blog.minike.top/Article/details/67995485.shtml)
+- 2026-06-29 11:33 - [专家：金价翻倍没有悬念](http://www.blog.kurohicncr.top/Article/details/508342089.shtml)
+- 2026-06-29 11:46 - [从反对到支持，台湾姑娘含泪读妈妈短信：在大陆追梦，为和平统一发光](http://www.blog.minike.top/Article/details/9329617.shtml)
+- 2026-06-29 11:27 - [斯诺克世锦赛：丁俊晖暂时领先吉尔伯特 肖国栋淘汰周跃龙晋级](http://www.blog.minike.top/Article/details/3223785859.shtml)
+- 2026-06-29 11:41 - [习言道｜让互联网更好造福国家和人民](http://www.blog.minike.top/Article/details/653499.shtml)
+- 2026-06-29 11:39 - [消费升级+投资优化 一季度内需引擎动力增强](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [于和伟、张若昀纷纷声明！爱奇艺回应：入驻不等于授权](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [Astro Offshore新增MPSV，扩展水下作业能力](http://www.blog.minike.top/Article/details/2091033432.shtml)
+- 2026-06-29 11:38 - [美国债市：国债走高 交易员上调对美联储年内降息押注](http://www.share.minike.top/Article/details/399385727776.shtml)
+- 2026-06-29 11:53 - [松延动力创始人姜哲源揭秘参赛机器人技术升级：续航加强、扭矩提升超一倍](http://www.share.kurohicncr.top/Article/details/44342482049.shtml)
+- 2026-06-29 11:24 - [易方达如意安悦3个月持有混合（FOF）今日首发 打造多元配置新选择](https://github.com/lisacumin64-arch)

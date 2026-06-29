@@ -1,56 +1,43 @@
-# 首航高科（002665）、云创数据（920305）投资者索赔案均再提交法院立案
+# 总书记引领强国之路｜共建美好网络家园
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-2026年6月3日，上海久诚律师事务所股票索赔律师许峰代理的首航高科（002665）虚假陈述引发的投资者索赔案再向法院提交一次立案，该案已经进入诉讼时效倒计时。（许峰律师专栏） 许峰律师代理的首航高科投资者索赔案已多次向兰州中院提交立案，律师团队同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。 2025年5月23日，首航高科公告收到监会下发的《行政处罚决定
+发布时间：2026年04月18日 20:04 来源：新华社 责任编辑：【王祎】
 
 ## 正文
 
-2026年6月3日，上海久诚律师事务所股票索赔律师许峰代理的首航高科（002665）虚假陈述引发的投资者索赔案再向法院提交一次立案，该案已经进入诉讼时效倒计时。
-
-（许峰律师专栏） 许峰律师代理的首航高科投资者索赔案已多次向兰州中院提交立案，律师团队同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
-
-2025年5月23日，首航高科公告收到监会下发的《行政处罚决定书》，经查明，首航高科存在以下违法事实： 1、未按规定披露使用募集资金为控股股东提供担保事项。
-
-2、未按规定披露控股股东非经营性占用资金导致的关联交易。
-
-专门从事股票索赔法律事务的上海久诚律师事务所主任许峰律师认为，在2017年7月1日到2023年12月5日之间买入首航高科股票，并且在2023年12月5日后卖出或继续持有股票的投资者，目前还可发起索赔。
-
-（首航高科维权入口） 除了首航高科投资者索赔案再提交一次法院立案，2026年6月3日，许峰律师代理的云创数据（920305）投资者索赔案也再提交法院立案。
-
-许峰律师代理的云创数据投资者索赔案已多次向法院提交立案，目前正在等待法院的下一步安排，律师团队同步也还在接受其他投资者的索赔委托。
-
-2026年4月29日，云创数据公告收到江苏证监局下发的《行政处罚事先告知书》，经查明云创数据涉嫌存在以下违法事实： 一、云创数据2020年至2023年年度报告、2024年半年度报告涉嫌存在虚假记载。
+发布时间：2026年04月18日 20:04 来源：新华社 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 11:28 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:24 - [世界杯小组赛阶段过人榜：马扎居首](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:48 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:39 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:49 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:31 - [韩媒称韩国队遭中国网民嘲讽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:42 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:33 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:25 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:51 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:36 - [牛弹琴：美伊这出戏，编剧都不敢这样写](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:52 - [强化长效约束，券商薪酬管理制度迎来重大修订](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:30 - [AI算力重塑创业逻辑 郑州航空港区探索“轻创业”新路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:26 - [国元保险原董事长被查，收超400万罚单，成监管“重点户”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:35 - [美军在阿曼湾拦截并控制一艘伊朗货船](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:49 - [优步以3.18亿美元交易增持外卖平台Delivery Hero股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:36 - [福特召回至多139万辆F-150皮卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:36 - [文化中国行·联播一瞬丨谷雨：春去无憾 夏来有期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:39 - [伊朗民航组织宣布伊朗部分空域重新开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:49 - [李强主持召开国务院常务会议 听取自由贸易试验区建设情况汇报 审议通过《中华人民共和国行政复议法实施条例（修订草案）》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:26 - [超3万名日本民众集会反对高市政权危险动向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:47 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/56013947.shtml)
-- 2026-06-29 11:26 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](http://www.blog.minike.top/Article/details/60991.shtml)
-- 2026-06-29 11:44 - [加拿大绝杀南非晋级](http://www.blog.kurohicncr.top/Article/details/8506819007.shtml)
-- 2026-06-29 11:38 - [吴海燕兰西雅漫步复兴岛](https://www.blog.minike.top/Article/details/962479372.shtml)
-- 2026-06-29 11:35 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/454189795354.shtml)
-- 2026-06-29 11:37 - [男子在家全裸被邻居拍照发业主群](http://www.share.minike.top/Article/details/5794146689.shtml)
-- 2026-06-29 11:39 - [水利部部署南方地区暴雨洪水防御工作](http://www.blog.minike.top/Article/details/58781385638.shtml)
-- 2026-06-29 11:45 - [女子跑步4年不拉伸小腿肌肉硬如铁](http://www.share.kurohicncr.top/Article/details/08758873.shtml)
-- 2026-06-29 11:30 - [鬼畜区全明星拼接遗憾](https://www.blog.minike.top/Article/details/775873236157.shtml)
-- 2026-06-29 11:49 - [户外吃烧烤多人头发变炸毛](http://www.share.minike.top/Article/details/362214.shtml)
-- 2026-06-29 11:45 - [曝太阳黄蜂完成阵容互换+签位置换](https://www.share.kurohicncr.top/Article/details/9754379.shtml)
-- 2026-06-29 11:25 - [温州学子高考数学满分 分享学习经验](http://www.share.minike.top/Article/details/5641710.shtml)
-- 2026-06-29 11:26 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/1982009.shtml)
-- 2026-06-29 11:27 - [王楚钦3-0周启豪 晋级32强](https://www.blog.kurohicncr.top/Article/details/40307424.shtml)
-- 2026-06-29 11:49 - [薛之谦演唱会](https://www.blog.minike.top/Article/details/22710118.shtml)
+- 2026-06-29 11:47 - [中国证监会就《违规转让证券案件行政处罚实施规则（征求意见稿）》公开征求意见](http://www.share.minike.top/Article/details/328457703347.shtml)
+- 2026-06-29 11:52 - [全球乱局中，中国这块“金字招牌”越来越亮了](http://www.share.kurohicncr.top/Article/details/318145171.shtml)
+- 2026-06-29 11:24 - [美菲启动年度联合军演，外交部：一味在安全上相互捆绑只会引火烧身](http://www.share.minike.top/Article/details/82963239.shtml)
+- 2026-06-29 11:31 - [2026年中国香港（地区）商会京港地铁体育嘉年华活动举办](http://www.blog.minike.top/Article/details/4477311059.shtml)
+- 2026-06-29 11:34 - [极氪8X正式上市：首次搭载舱驾融合超级智能体，上市限时售价32.98万元起](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [“患者被引荐至私立医院” 涉事医生被停止诊疗并终止聘用合同](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:53 - [东方证券与上海证券筹划合并重组，加快推进一流现代投资银行建设](http://www.share.minike.top/Article/details/892504831.shtml)
+- 2026-06-29 11:49 - [涉案金额2.6亿元，我国摧毁山西特大假酒网络](http://www.share.minike.top/Article/details/181415106179.shtml)
+- 2026-06-29 11:29 - [浦发银行与中国银联签署全面战略合作协议](http://www.share.kurohicncr.top/Article/details/0475938.shtml)
+- 2026-06-29 11:43 - [让机器人跑马拉松有什么用？专家：先带动技术发展 再逐步落地应用](http://www.share.minike.top/Article/details/698488.shtml)
+- 2026-06-29 11:50 - [实拍江西上饶“三月三”篝火联欢现场 民众踏歌起舞庆佳节](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [万众期待的“霸王”来了！“宿迁子弟何在？”何润东身披甲胄亮相“苏超”现场](http://www.share.minike.top/Article/details/540417.shtml)
+- 2026-06-29 11:36 - [BOSS直聘-W于4月17日耗资约249.65万美元回购约34.97万股](http://www.blog.kurohicncr.top/Article/details/967908945504.shtml)
+- 2026-06-29 11:29 - [去年翻倍赚钱的基金，今年怎么样了？](http://www.blog.minike.top/Article/details/6389711.shtml)
+- 2026-06-29 11:42 - [巴西、西班牙和墨西哥联合呼吁采取措施缓解古巴局势](http://www.share.minike.top/Article/details/622162.shtml)

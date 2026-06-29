@@ -1,60 +1,61 @@
-# 从“兴趣”到“深度”，家校如何共建阅读生态？
+# AI算力重塑创业逻辑 郑州航空港区探索“轻创业”新路径
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-深圳百雅实验小学探索多元化阅读场景：帐篷朗读、亲子共读、激发思考…… 【全民阅读新图景⑤】从“兴趣”到“深度”，家校如何共建阅读生态？ 6月2日下午，深圳市罗湖区的百雅实验小学音乐厅，挪威童书作家兼插画家克莉丝汀·罗希夫特和学生们面对面交流。不久前，学生们还在课上读她的作品《每个人都重要》《每个人都旅行》。 在百雅实验小学，有着多样化的阅读场景。学生在“星光阅读夜”的帐篷里朗读
+中新网郑州4月17日电 (陈贵洋)当算力逐步成为基础设施，人工智能正在重塑创业的底层逻辑。“MEET INNOPORT·创见航空港”首期创业沙龙16日在河南郑州航空港经济综合实验区(以下简称郑州航空港区)青合众创青年创业园举行。 “MEET INNOPORT·创见航空港”是郑州航空港区重点打造的创业沙龙品牌。本次活动以“算力链接世界·青年定义未来”为主题，聚焦人工智能OPC(O
 
 ## 正文
 
-深圳百雅实验小学探索多元化阅读场景：帐篷朗读、亲子共读、激发思考…… 【全民阅读新图景⑤】从“兴趣”到“深度”，家校如何共建阅读生态？
+中新网郑州4月17日电 (陈贵洋)当算力逐步成为基础设施，人工智能正在重塑创业的底层逻辑。
 
-6月2日下午，深圳市罗湖区的百雅实验小学音乐厅，挪威童书作家兼插画家克莉丝汀·罗希夫特和学生们面对面交流。
+“MEET INNOPORT·创见航空港”首期创业沙龙16日在河南郑州航空港经济综合实验区(以下简称郑州航空港区)青合众创青年创业园举行。
 
-不久前，学生们还在课上读她的作品《每个人都重要》《每个人都旅行》。
+“MEET INNOPORT·创见航空港”是郑州航空港区重点打造的创业沙龙品牌。
 
-在百雅实验小学，有着多样化的阅读场景。
+本次活动以“算力链接世界·青年定义未来”为主题，聚焦人工智能OPC(One Person Company，一人公司)“轻创业”新模式，吸引高校、科研院所、孵化器代表等逾百人参加。
 
-学生在“星光阅读夜”的帐篷里朗读，也在图书馆嘉年华的舞台上表演一本书；家长走进教室讲故事，也在图书馆课前做导读；教师则在备课和教研中反复打磨文本与问题，再带学生一步步走向深度阅读。
+作为目前唯一由国务院批复设立的国家级航空经济发展先行区，郑州航空港区正锚定“青年创业乐园、国际创业之都”目标，系统构建“一赛、一会、一政策、十孵化器、N基金、30+生态合作伙伴”创业六要素体系。
 
-“活动可以点燃兴趣，但要让阅读真正融入孩子的日常，还需要一套稳定的机制。
+目前已布局3家OPC人工智能创业社区、10家专业创业孵化器，推动科技产业社区建设，打造低成本、高赋能、全周期的创业生态。
 
-”百雅实验小学校长熊佑平告诉《工人日报》记者，这套机制包括空间、时间、成人支持和激励评价。
+活动现场，创业导师杨晏提出，青年创业者“用工具替代人力、用算力替代经验”，核心是把重复性岗位转化为AI智能体工作流，让一个人借助工具矩阵完成原来三五个人才能做的事。
 
-学校提供图书馆、班级书橱和固定阅读时间，家庭通过书架、共读等方式延伸阅读场景；老师、家长通过阅读课程、图书馆导读、“故事爸妈”等方式参与引导；学校通过“书香少年”、班级阅读颁奖典礼等评价方式，让学生的阅读行为被看见、被关注。
+他强调，OPC轻创业模式下，创业者应把80%精力放在场景定义上，算力基础设施由平台打包提供。
 
 ## 相关推荐
 
-- 2026-06-29 11:40 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:31 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:33 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:24 - [世界杯小组赛阶段过人榜：马扎居首](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:27 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:43 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:23 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:38 - [重生赛伊德04](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:37 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:31 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:44 - [原来衣着打扮会影响对自己的感知](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:33 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:29 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:23 - [派出所集体KTV招陪侍事发2年未通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:46 - [李强主持召开国务院常务会议 听取自由贸易试验区建设情况汇报 审议通过《中华人民共和国行政复议法实施条例（修订草案）》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:32 - [超3万名日本民众集会反对高市政权危险动向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:38 - [第44届香港电影金像奖红毯仪式举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:31 - [巴西Simpar以1.215亿雷亚尔出售Ciclus Amazônia股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:43 - [特朗普：若无法达成协议 或将不延长美伊临时停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:42 - [霍尔木兹海峡开放后油价大跌，欧洲斯托克600指数涨逾1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:47 - [国常会部署推动自贸试验区高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:38 - [英国金融时报称欧盟拟放宽并购规则 培育全球冠军企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:33 - [“90后”侨青走进上海虹口 读懂城市文脉与发展活力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:43 - [“寒潮”来袭！理财产品规模一季度缩水1.38万亿，投资者收益同比降低21%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:38 - [一季度广东货物以海运方式经海南自贸港进出口同比增长25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:48 - [特朗普过去24小时都忙了什么？（2026-04-19）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:29 - [A股“股王”更替见证中国经济新力量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:29 - [北京：香椿宴带动京郊游 衍生品丰富山村体验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:38 - [又见内幕交易？霍尔木兹开放前20分钟，神秘交易员7.6亿美元精准做空原油，已被调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:26 - [媒体：湖人把薪资空间玩明白了](http://www.blog.minike.top/Article/details/24153.shtml)
-- 2026-06-29 11:37 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.share.minike.top/Article/details/9040437845.shtml)
-- 2026-06-29 11:44 - [各路“神仙”扎堆洛阳乘地铁](https://www.blog.minike.top/Article/details/80124233.shtml)
-- 2026-06-29 11:24 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.kurohicncr.top/Article/details/8417213.shtml)
-- 2026-06-29 11:45 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/857572480.shtml)
-- 2026-06-29 11:26 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/619666054.shtml)
-- 2026-06-29 11:51 - [灿如繁星定档](http://www.blog.minike.top/Article/details/0504281059.shtml)
-- 2026-06-29 11:23 - [为什么欧洲人不装空调](https://www.share.minike.top/Article/details/04988930.shtml)
-- 2026-06-29 11:36 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.kurohicncr.top/Article/details/79978611667.shtml)
-- 2026-06-29 11:39 - [世界田联钻石联赛巴黎站严子怡夺冠](http://www.share.minike.top/Article/details/68192731690.shtml)
-- 2026-06-29 11:31 - [这位天才台湾人第一次来大陆，开智了](https://www.share.kurohicncr.top/Article/details/5993581084.shtml)
-- 2026-06-29 11:36 - [张亚中：以中山精神为桥凝聚血脉认同](http://www.blog.kurohicncr.top/Article/details/864779585002.shtml)
-- 2026-06-29 11:49 - [韩媒一片哀嚎：没有奇迹](https://www.share.minike.top/Article/details/665646299.shtml)
-- 2026-06-29 11:25 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/9762449.shtml)
-- 2026-06-29 11:33 - [普京：俄罗斯将坚定捍卫自身根本利益](http://www.share.kurohicncr.top/Article/details/386671019.shtml)
+- 2026-06-29 11:34 - [让机器人跑马拉松有什么用？专家：先带动技术发展 再逐步落地应用](http://www.blog.minike.top/Article/details/1226053105.shtml)
+- 2026-06-29 11:47 - [实拍江西上饶“三月三”篝火联欢现场 民众踏歌起舞庆佳节](http://www.blog.minike.top/Article/details/2835593.shtml)
+- 2026-06-29 11:39 - [万众期待的“霸王”来了！“宿迁子弟何在？”何润东身披甲胄亮相“苏超”现场](http://www.share.minike.top/Article/details/0166539258.shtml)
+- 2026-06-29 11:49 - [BOSS直聘-W于4月17日耗资约249.65万美元回购约34.97万股](http://www.share.kurohicncr.top/Article/details/93679623.shtml)
+- 2026-06-29 11:26 - [去年翻倍赚钱的基金，今年怎么样了？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [巴西、西班牙和墨西哥联合呼吁采取措施缓解古巴局势](http://www.blog.minike.top/Article/details/8818623623.shtml)
+- 2026-06-29 11:46 - [产品业绩回撤38.53%，昔日百亿私募同犇投资最新回应：从来不是只买消费，AI产业链去年开始就有不少仓位](http://www.blog.minike.top/Article/details/56615411196.shtml)
+- 2026-06-29 11:39 - [金价下跌 霍尔木兹海峡再度中断引发通胀担忧](http://www.share.minike.top/Article/details/54172015364.shtml)
+- 2026-06-29 11:32 - [农业农村部：推动猪价合理回升](http://www.blog.minike.top/Article/details/3776398.shtml)
+- 2026-06-29 11:41 - [鼎泰丰“回京”热度不减 稳中求进布局大陆北方市场](http://www.blog.kurohicncr.top/Article/details/7300534954.shtml)
+- 2026-06-29 11:46 - [国际能源署称中东能源产出恢复需两年时间](http://www.share.minike.top/Article/details/54245282530.shtml)
+- 2026-06-29 11:37 - [直击广东消防救援力量多举措筑牢防汛救灾安全屏障](http://www.blog.kurohicncr.top/Article/details/51994180.shtml)
+- 2026-06-29 11:42 - [印度卢比在亚币中表现最佳 央行据报道对油企购买美元进行窗口指导](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [西安直飞维也纳国际航线开通](http://www.blog.minike.top/Article/details/51840640.shtml)
+- 2026-06-29 11:52 - [江西南昌久雨初晴：市民户外享受春光](http://www.blog.minike.top/Article/details/375295.shtml)

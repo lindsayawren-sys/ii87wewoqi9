@@ -1,59 +1,57 @@
-# 蜜蜂王国新发现：蜂后拥有专属“皇家建筑师”打造巢室
+# 优步以3.18亿美元交易增持外卖平台Delivery Hero股份
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月07日 18:25 来源：中国新闻网 近日，国际学术期刊《自然》发表一篇生物学论文称，研究人员发现蜜蜂王国中一组此前未知的年轻工蜂，它们负责在拥有独特物理化学特性的花生形蜡质巢室中培养蜂后，被誉为蜂后拥有的专属“皇家建筑师”，以打造蜂后巢室(王台)。 由中国农业科学院团队领衔并联合美国加州大学河滨分校等合作者完成的这篇论文还发现，蜂后的巢室不仅是简单的
+核心要点 优步于周五达成协议，从德国外卖企业 Delivery Hero 的最大股东 Prosus 手中，额外收购该公司 4.5% 的股份。 Prosus 表示，本次交易为其带来的总毛收益约2.7 亿欧元（3.18 亿美元）。优步的收购价为每股 20 欧元，这一价格低于 Delivery Hero 周四大涨 7% 后的收盘价，但 Prosus 称，该价格较其一个月平均股价溢价
 
 ## 正文
 
-发布时间：2026年06月07日 18:25 来源：中国新闻网 近日，国际学术期刊《自然》发表一篇生物学论文称，研究人员发现蜜蜂王国中一组此前未知的年轻工蜂，它们负责在拥有独特物理化学特性的花生形蜡质巢室中培养蜂后，被誉为蜂后拥有的专属“皇家建筑师”，以打造蜂后巢室(王台)。
+核心要点 优步于周五达成协议，从德国外卖企业 Delivery Hero 的最大股东 Prosus 手中，额外收购该公司 4.5% 的股份。
 
-由中国农业科学院团队领衔并联合美国加州大学河滨分校等合作者完成的这篇论文还发现，蜂后的巢室不仅是简单的结构容器，也是精细构建的微环境，对蜂后发育有着关键作用。
+Prosus 表示，本次交易为其带来的总毛收益约2.7 亿欧元（3.18 亿美元）。
 
-长期以来，人们认为蜂王浆(工蜂分泌喂养幼虫的腺体物质)是蜂后发育的关键因素。
+优步的收购价为每股 20 欧元，这一价格低于 Delivery Hero 周四大涨 7% 后的收盘价，但 Prosus 称，该价格较其一个月平均股价溢价 22%。
 
-尽管蜂后的巢室(蜂后幼虫发育的空间)与相邻的六边形巢室形状截然不同，但学界一直认为这是一个被动的容器，其对蜂后发育的影响尚不清楚。
+此次交易前，Prosus 于去年提出以41 亿欧元收购欧洲外卖巨头 Just Eat Takeaway.com。
 
-据论文共同通讯作者、中国农业科学院蜜蜂研究所研究员王凯和薛晓锋介绍，在本项研究中，研究团队对蜂后巢室的蜂蜡成分进行一系列实验，其中，利用扫描电子显微镜发现，蜂后巢室的蜡有着独特的物理和化学特性：密度较低、柔韧性更强，并且比工蜂巢室的熔点高。
+但该收购案遭到欧盟执行机构欧盟委员会的审查，监管机构表示，只有 Prosus 大幅减持 Delivery Hero 的股份，才会批准这笔交易。
 
-随后，研究团队通过将蜂后幼虫分别置于172个封盖为蜂后蜡或工蜂蜡的巢室中饲养7天，检测这一环境的影响。
+Prosus 在周五的新闻稿中称：“公司仍将在规定期限内，出售所持 Delivery Hero 的相应股份。
 
-他们发现，工蜂蜡巢室里的蜂后死亡率更高、体型更小，这表明这些蜂后巢室的特定生物化学环境对幼虫发育至关重要。
+” 一位发言人向 CNBC 表示，目前 Prosus 持有 Delivery Hero 约 21% 的股份，而去年宣布收购 Just Eat Takeaway.com时，其持股比例约为 27%。
 
-他们还发现一种独特类型的工蜂，称之为蜂后巢室专属“皇家建筑师”，它们具有特殊的生理适应特征。
+优步最早于 2024 年通过认购 3 亿美元新发股份，首次入股 Delivery Hero。
 
 ## 相关推荐
 
-- 2026-06-29 11:35 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:37 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:36 - [初心如磐 红色足迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:47 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:40 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:40 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:45 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:31 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:22 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:46 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:33 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:29 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:41 - [2岁幼童高铁突发惊厥呼吸骤停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:40 - [巴西Simpar以1.215亿雷亚尔出售Ciclus Amazônia股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:49 - [特朗普：若无法达成协议 或将不延长美伊临时停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:31 - [霍尔木兹海峡开放后油价大跌，欧洲斯托克600指数涨逾1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:28 - [国常会部署推动自贸试验区高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:42 - [英国金融时报称欧盟拟放宽并购规则 培育全球冠军企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:32 - [“90后”侨青走进上海虹口 读懂城市文脉与发展活力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:26 - [“寒潮”来袭！理财产品规模一季度缩水1.38万亿，投资者收益同比降低21%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:25 - [一季度广东货物以海运方式经海南自贸港进出口同比增长25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:35 - [特朗普过去24小时都忙了什么？（2026-04-19）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:37 - [A股“股王”更替见证中国经济新力量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:33 - [北京：香椿宴带动京郊游 衍生品丰富山村体验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:31 - [王楚钦美国大满贯晋级32强](http://www.blog.kurohicncr.top/Article/details/182609.shtml)
-- 2026-06-29 11:29 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/4787046.shtml)
-- 2026-06-29 11:29 - [虞书欣灿如繁星明天定档](https://www.share.minike.top/Article/details/217299153986.shtml)
-- 2026-06-29 11:48 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.share.minike.top/Article/details/1909897975.shtml)
-- 2026-06-29 11:34 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/96778974.shtml)
-- 2026-06-29 11:41 - [逃狱兄弟](https://www.share.minike.top/Article/details/93978.shtml)
-- 2026-06-29 11:47 - [高超感谢女友王佳欣](http://www.share.minike.top/Article/details/3013647.shtml)
-- 2026-06-29 11:33 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.blog.kurohicncr.top/Article/details/825576.shtml)
-- 2026-06-29 11:30 - [男子偶遇婴儿被锁车内大哭挣扎](http://www.share.minike.top/Article/details/02311448.shtml)
-- 2026-06-29 11:39 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.share.minike.top/Article/details/0627057325.shtml)
-- 2026-06-29 11:39 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.share.kurohicncr.top/Article/details/3114983.shtml)
-- 2026-06-29 11:35 - [医护人员观影《四渡》传承长征精神](http://www.share.minike.top/Article/details/3952207.shtml)
-- 2026-06-29 11:45 - [线路错接女子替7户邻居交17年电费](http://www.blog.kurohicncr.top/Article/details/223587.shtml)
-- 2026-06-29 11:31 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/09209150585.shtml)
-- 2026-06-29 11:30 - [未来5年 充电供热供暖将有大变化](http://www.share.kurohicncr.top/Article/details/9346964718.shtml)
+- 2026-06-29 11:34 - [BOSS直聘-W于4月17日耗资约249.65万美元回购约34.97万股](http://www.blog.kurohicncr.top/Article/details/10364.shtml)
+- 2026-06-29 11:24 - [去年翻倍赚钱的基金，今年怎么样了？](http://www.blog.kurohicncr.top/Article/details/914279210601.shtml)
+- 2026-06-29 11:34 - [巴西、西班牙和墨西哥联合呼吁采取措施缓解古巴局势](http://www.share.kurohicncr.top/Article/details/276976764952.shtml)
+- 2026-06-29 11:29 - [产品业绩回撤38.53%，昔日百亿私募同犇投资最新回应：从来不是只买消费，AI产业链去年开始就有不少仓位](http://www.share.kurohicncr.top/Article/details/128888990520.shtml)
+- 2026-06-29 11:34 - [金价下跌 霍尔木兹海峡再度中断引发通胀担忧](http://www.share.kurohicncr.top/Article/details/545933142.shtml)
+- 2026-06-29 11:34 - [农业农村部：推动猪价合理回升](http://www.blog.kurohicncr.top/Article/details/42010788631.shtml)
+- 2026-06-29 11:29 - [鼎泰丰“回京”热度不减 稳中求进布局大陆北方市场](http://www.share.minike.top/Article/details/7260284403.shtml)
+- 2026-06-29 11:24 - [国际能源署称中东能源产出恢复需两年时间](http://www.blog.kurohicncr.top/Article/details/60070707765.shtml)
+- 2026-06-29 11:24 - [直击广东消防救援力量多举措筑牢防汛救灾安全屏障](http://www.share.minike.top/Article/details/309195.shtml)
+- 2026-06-29 11:25 - [印度卢比在亚币中表现最佳 央行据报道对油企购买美元进行窗口指导](http://www.blog.kurohicncr.top/Article/details/755283.shtml)
+- 2026-06-29 11:52 - [西安直飞维也纳国际航线开通](http://www.share.kurohicncr.top/Article/details/130094233.shtml)
+- 2026-06-29 11:25 - [江西南昌久雨初晴：市民户外享受春光](http://www.blog.kurohicncr.top/Article/details/102171544.shtml)
+- 2026-06-29 11:42 - [2026年巴黎图书节拉开帷幕](http://www.share.minike.top/Article/details/865605367246.shtml)
+- 2026-06-29 11:51 - [韩国和美国一致认为，韩元汇率过度波动是不可取的](http://www.blog.kurohicncr.top/Article/details/3911036.shtml)
+- 2026-06-29 11:42 - [新阶人士走进成都高新天府长岛 共话数字文创新未来](http://www.share.kurohicncr.top/Article/details/751551927.shtml)

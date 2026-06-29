@@ -1,61 +1,58 @@
-# 官方报告：2025年流域、气候等新类型案件不断涌现
+# 涉案金额2.6亿元，我国摧毁山西特大假酒网络
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:06 UTC+8
 
 ## 摘要
 
-中新社北京6月5日电 (记者 张素)6月5日是世界环境日。当日发布的《中国环境司法发展报告(2025年)》显示，2025年，传统环境资源案件审理成效显著，流域、气候等新类型案件不断涌现。 全国人大环境与资源保护委员会副主任委员吕忠梅在5日举行的新闻发布会上介绍上述报告。 据统计，全国法院去年依法审结环境资源一审案件22.9万件。吕忠梅说，环境民事案件数量上升，省域分布差异显著。
+国家市场监督管理总局19日通报，在市场监管总局的统一协调下，山西、四川两省市场监管、公安部门联合行动，近日成功摧毁一个特大制售商标侵权和伪劣白酒的违法犯罪网络。 本次行动一举查获山西省吕梁市、太原市一带相关违法产品的生产、藏匿、包装与商标印制和邮寄场所7处，网络直播销售点1处，查获涉嫌侵权假冒白酒近2万箱、假冒包材70余万件、制假设备14台、大型储酒罐41个。截至目前，已查明涉
 
 ## 正文
 
-中新社北京6月5日电 (记者 张素)6月5日是世界环境日。
+国家市场监督管理总局19日通报，在市场监管总局的统一协调下，山西、四川两省市场监管、公安部门联合行动，近日成功摧毁一个特大制售商标侵权和伪劣白酒的违法犯罪网络。
 
-当日发布的《中国环境司法发展报告(2025年)》显示，2025年，传统环境资源案件审理成效显著，流域、气候等新类型案件不断涌现。
+本次行动一举查获山西省吕梁市、太原市一带相关违法产品的生产、藏匿、包装与商标印制和邮寄场所7处，网络直播销售点1处，查获涉嫌侵权假冒白酒近2万箱、假冒包材70余万件、制假设备14台、大型储酒罐41个。
 
-全国人大环境与资源保护委员会副主任委员吕忠梅在5日举行的新闻发布会上介绍上述报告。
+截至目前，已查明涉案金额2.6亿元，公安机关传唤22人，采取强制措施11人，其中移送审查起诉2人。
 
-据统计，全国法院去年依法审结环境资源一审案件22.9万件。
+经查，山西文忠电子商务有限公司实际经营者赵某某夫妇在互联网平台从事酒类销售业务。
 
-吕忠梅说，环境民事案件数量上升，省域分布差异显著。
+为获取更高利润，找到山西省吕梁市汾香酿酒有限公司法定代表人裴某，要求其生产侵权假冒剑南春、五粮液等名优白酒，用于网络销售。
 
-噪声污染案件数量占比依旧稳居首位，水污染案件数量明显下降。
+裴某委托无生产资质的山西省吕梁市武后乡酒业有限公司负责人，以食用酒精、食品添加剂勾调的配制酒冒充白酒。
 
-吕忠梅还说，环境行政案件争议类型相对集中，呈现出二审率和再审率较高的特征。
+上述白酒标注“剣南春”“五稂液”“五粮原液”“五粮酒”“五粮麯”“五粮贡酒”“泸川老窖特曲”“四川泸州老窖特曲”等商标，供应赵某某夫妇对外销售。
 
-环境刑事案件数量持续下降，罪名分布集中于非法占用农用地、非法采矿等土地矿产类犯罪。
+涉案产品除侵犯他人注册商标外，还存在虚标生产日期冒充“老酒”的违法行为。
 
 ## 相关推荐
 
-- 2026-06-29 11:37 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:23 - [埃博拉为何再次袭击非洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:35 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:45 - [刘雨昕misslady好像群像热血番](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:44 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:41 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:26 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:52 - [美的空调 卡bug](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:39 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:46 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:44 - [三只羊大杨哥不直播改卖课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:28 - [委内瑞拉强震致中国公民8遇难1失联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:51 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:43 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:51 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:49 - [巴西、西班牙和墨西哥联合呼吁采取措施缓解古巴局势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:34 - [产品业绩回撤38.53%，昔日百亿私募同犇投资最新回应：从来不是只买消费，AI产业链去年开始就有不少仓位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:51 - [金价下跌 霍尔木兹海峡再度中断引发通胀担忧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:42 - [农业农村部：推动猪价合理回升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:35 - [鼎泰丰“回京”热度不减 稳中求进布局大陆北方市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:43 - [国际能源署称中东能源产出恢复需两年时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:25 - [直击广东消防救援力量多举措筑牢防汛救灾安全屏障](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:43 - [印度卢比在亚币中表现最佳 央行据报道对油企购买美元进行窗口指导](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:26 - [西安直飞维也纳国际航线开通](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:45 - [江西南昌久雨初晴：市民户外享受春光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:52 - [2026年巴黎图书节拉开帷幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:51 - [韩国和美国一致认为，韩元汇率过度波动是不可取的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:39 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/4966447914.shtml)
-- 2026-06-29 11:27 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/460535717.shtml)
-- 2026-06-29 11:36 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/9579532931.shtml)
-- 2026-06-29 11:31 - [男子在家一丝不挂 邻居拍照发业主群](https://www.blog.minike.top/Article/details/42114.shtml)
-- 2026-06-29 11:34 - [温州学子高考数学满分 分享学习经验](http://www.blog.minike.top/Article/details/771507926291.shtml)
-- 2026-06-29 11:28 - [2026年Mac能玩游戏了吗](http://www.blog.kurohicncr.top/Article/details/67421106411.shtml)
-- 2026-06-29 11:37 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/884894038553.shtml)
-- 2026-06-29 11:24 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.kurohicncr.top/Article/details/159474987507.shtml)
-- 2026-06-29 11:31 - [第一炉香](http://www.blog.minike.top/Article/details/4130490229.shtml)
-- 2026-06-29 11:27 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://www.blog.kurohicncr.top/Article/details/06079922152.shtml)
-- 2026-06-29 11:26 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://www.share.minike.top/Article/details/4949825144.shtml)
-- 2026-06-29 11:39 - [Mrbeast的30天不吃饭挑战](https://www.blog.minike.top/Article/details/5368678.shtml)
-- 2026-06-29 11:48 - [韩体育部长回应李在明痛批](http://www.blog.kurohicncr.top/Article/details/890931.shtml)
-- 2026-06-29 11:43 - [男子月薪五千卖房借贷给女友转账百万](https://www.share.minike.top/Article/details/84080436.shtml)
-- 2026-06-29 11:47 - [香港航天员黎家盈带招牌笑容工作](http://www.share.minike.top/Article/details/324582090760.shtml)
+- 2026-06-29 11:53 - [斯诺克世锦赛：丁俊晖暂时领先吉尔伯特 肖国栋淘汰周跃龙晋级](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [习言道｜让互联网更好造福国家和人民](http://www.blog.minike.top/Article/details/5122805462.shtml)
+- 2026-06-29 11:32 - [消费升级+投资优化 一季度内需引擎动力增强](http://www.share.minike.top/Article/details/8777153.shtml)
+- 2026-06-29 11:41 - [于和伟、张若昀纷纷声明！爱奇艺回应：入驻不等于授权](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:24 - [Astro Offshore新增MPSV，扩展水下作业能力](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [美国债市：国债走高 交易员上调对美联储年内降息押注](http://www.share.kurohicncr.top/Article/details/606488817.shtml)
+- 2026-06-29 11:45 - [松延动力创始人姜哲源揭秘参赛机器人技术升级：续航加强、扭矩提升超一倍](http://www.blog.kurohicncr.top/Article/details/7932841.shtml)
+- 2026-06-29 11:33 - [易方达如意安悦3个月持有混合（FOF）今日首发 打造多元配置新选择](http://www.share.kurohicncr.top/Article/details/89796082.shtml)
+- 2026-06-29 11:53 - [陈茂波：香港将公布第六批引进重点企业](http://www.blog.minike.top/Article/details/47448.shtml)
+- 2026-06-29 11:46 - [33岁确诊胃癌晚期，她错过了身体4次“求救信号”](http://www.blog.kurohicncr.top/Article/details/9544056.shtml)
+- 2026-06-29 11:33 - [黄金交易提醒：周末中东局势突变，伊朗拒绝第二轮谈判，金价大幅跳空低开](http://www.blog.minike.top/Article/details/7435356.shtml)
+- 2026-06-29 11:46 - [宁波前湾新区文旅提质升级 打造长三角全域度假新高地](http://www.blog.minike.top/Article/details/1014778132.shtml)
+- 2026-06-29 11:43 - [行业性纵容！“幽灵外卖”黑产调查：7家电商平台“幽灵店铺”多达67604家](http://www.blog.minike.top/Article/details/23580976452.shtml)
+- 2026-06-29 11:33 - [习近平谈网络安全和信息化](http://www.share.kurohicncr.top/Article/details/2588986.shtml)
+- 2026-06-29 11:29 - [涉宇树科技、胖东来等，最高法谈知识产权司法保护](https://github.com/lisacumin64-arch)

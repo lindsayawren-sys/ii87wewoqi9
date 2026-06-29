@@ -1,47 +1,58 @@
-# 斯瑞新材：2025年光模块芯片基座/壳体实现营业收入为7380.80万元
+# 涉“幽灵外卖”，抖音食品安全总监廖天博被罚超64万
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-证券日报网讯 6月5日，斯瑞新材在互动平台回答投资者提问时表示，随着人工智能、物联网、云计算等新一代信息技术快速发展，全球算力需求持续增长，算力中心建设规模稳步扩张，带动了高速光模块市场需求提升。2025年，光模块芯片基座/壳体实现营业收入7380.80万元，同比增长208.29%。（文章来源：证券日报）
+4月17日，市场监管总局依法对上海寻梦信息技术有限公司（拼多多）、北京三快科技有限公司（美团）、北京京东叁佰陆拾度电子商务有限公司（京东）、上海拉扎斯信息科技有限公司（原饿了么，现淘宝闪购）、北京抖音科技有限公司（抖音）、浙江淘宝网络有限公司（淘宝）、浙江天猫网络有限公司（天猫）等7家电商平台“幽灵外卖”系列案，依据《中华人民共和国食品安全法》第一百三十一条、《中华人民共和国电
 
 ## 正文
 
-证券日报网讯 6月5日，斯瑞新材在互动平台回答投资者提问时表示，随着人工智能、物联网、云计算等新一代信息技术快速发展，全球算力需求持续增长，算力中心建设规模稳步扩张，带动了高速光模块市场需求提升。
+4月17日，市场监管总局依法对上海寻梦信息技术有限公司（拼多多）、北京三快科技有限公司（美团）、北京京东叁佰陆拾度电子商务有限公司（京东）、上海拉扎斯信息科技有限公司（原饿了么，现淘宝闪购）、北京抖音科技有限公司（抖音）、浙江淘宝网络有限公司（淘宝）、浙江天猫网络有限公司（天猫）等7家电商平台“幽灵外卖”系列案，依据《中华人民共和国食品安全法》第一百三十一条、《中华人民共和国电子商务法》第八十三条的规定作出行政处罚决定，责令7家电商平台改正违法行为，暂停新增蛋糕店铺3至9个月不等，并处以罚没款共计35.97亿元。
 
-2025年，光模块芯片基座/壳体实现营业收入7380.80万元，同比增长208.29%。
+同时，依据《中华人民共和国食品安全法实施条例》第七十五条的规定，对7家平台企业法定代表人和食品安全总监合计处以罚款1968.74万元。
 
-（文章来源：证券日报）
+国家市场监督管理总局 行政处罚决定书 国市监处罚〔2026〕12号 当事人：廖天博 身份证件类型：居民身份证 身份证件号码：略 住址：略 北京抖音科技有限公司存在未依法履行资质审查义务的违法行为，本局于2025年11月20日依法立案调查，当事人系该公司食品安全总监。
+
+本局通过核查平台数据、询问相关人员、调取收入证明、提取书证、电子数据等方式，确定其违法事实。
+
+北京抖音科技有限公司作为网络食品交易第三方平台提供者，未依法履行资质审查义务，本局已决定依据《中华人民共和国食品安全法》第一百三十一条第一款“违反本法规定，网络食品交易第三方平台提供者未对入网食品经营者进行实名登记、审查许可证，或者未履行报告、停止提供网络交易平台服务等义务的，由县级以上人民政府食品安全监督管理部门责令改正，没收违法所得，并处五万元以上二十万元以下罚款；造成严重后果的，责令停业，直至由原发证部门吊销许可证；使消费者的合法权益受到损害的，应当与食品经营者承担连带责任”的规定，对北京抖音科技有限公司给予行政处罚。
+
+北京抖音科技有限公司上述违法行为持续时间长、涉及店铺多、影响范围广、存在较高的食品安全风险，已构成《中华人民共和国食品安全法实施条例》第七十五条第一款第二项规定的“违法行为性质恶劣”情形。
+
+经查，当事人是北京抖音科技有限公司的食品安全总监，作为该公司食品安全直接负责的主管人员，上一年度取得的相关收入（略）。
+
+上述事实，主要有以下证据证明：北京抖音科技有限公司的营业执照、增值电信业务经营许可证、网络食品交易第三方平台提供者备案、ICP备案、抖音APP和抖音商城APP的资质证照页面截图；北京抖音科技有限公司提供的《招商标准及入驻规范》《即时零售招商入驻管理规范》《食品饮料行业管理规范》、商家入驻和商品上架的审核逻辑图；对北京抖音科技有限公司委托代理人制作的询问笔录；454家店铺主页、商品页面和资质页面截图；电子数据；审计报告；当事人的身份证明文件、当事人的职务及任职证明材料、当事人上一年度收入证明材料等证据。
 
 ## 相关推荐
 
-- 2026-06-29 11:43 - [BW2026游览指南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:42 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:27 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:33 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:25 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:31 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:28 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:33 - [欧洲极端高温东扩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:35 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:31 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:50 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:29 - [中信建投：创业板新高后，还有多少空间？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:53 - [多国客商齐聚河南长垣 共觅起重装备商机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:42 - [书香换花香 浙江杭州孔庙书市启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:38 - [2026年河南省篮球城市联赛在古都安阳开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:48 - [特斯拉：目前并无在上海超级工厂量产机器人的具体计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:33 - [为投资者创收1619亿元！一季度理财“成绩单”来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:32 - [美国精神航空公司考虑清算](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:53 - [从汽车到易拉罐：伊朗战争如何冲击全球铝供应链](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:52 - [东西问丨阿齐赞·巴哈鲁丁：“文明冲突论”必须让位于“和平共处论”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:25 - [侧记：一座园林连中法，解码园博会背后的“侨”味道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:31 - [海外华媒侨领走进世界自然遗产地 感受喀斯特地貌奇观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:27 - [四大证券报头版头条内容精华摘要_2026年4月20日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:44 - [森保一：日本队要亲手改写历史](http://www.blog.kurohicncr.top/Article/details/353455.shtml)
-- 2026-06-29 11:27 - [伊朗与黎巴嫩商定设立冲突管控工作组](http://www.share.minike.top/Article/details/9250169358.shtml)
-- 2026-06-29 11:30 - [世界田联钻石联赛巴黎站严子怡夺冠](http://www.share.kurohicncr.top/Article/details/11495.shtml)
-- 2026-06-29 11:49 - [唐艺昕女儿接唐艺昕回家](https://www.blog.kurohicncr.top/Article/details/35907.shtml)
-- 2026-06-29 11:26 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://www.blog.minike.top/Article/details/17203468.shtml)
-- 2026-06-29 11:33 - [拄拐少年高考663分：用行动回报社会](https://www.blog.minike.top/Article/details/9233362.shtml)
-- 2026-06-29 11:25 - [明星大侦探第四季](https://www.share.minike.top/Article/details/161917394.shtml)
-- 2026-06-29 11:41 - [派出所集体KTV招陪侍事发2年未通报](https://www.share.minike.top/Article/details/31678435826.shtml)
-- 2026-06-29 11:48 - [国乒全主力参加美国大满贯](http://www.share.kurohicncr.top/Article/details/58109891.shtml)
-- 2026-06-29 11:28 - [青春环游记第三季](https://www.share.minike.top/Article/details/524390.shtml)
-- 2026-06-29 11:52 - [加拿大92分钟绝杀南非](https://www.blog.minike.top/Article/details/10753389685.shtml)
-- 2026-06-29 11:36 - [欧洲热死人不是开玩笑](http://www.blog.minike.top/Article/details/44140.shtml)
-- 2026-06-29 11:39 - [中方将20家日本实体列入关注名单](http://www.blog.minike.top/Article/details/1846386.shtml)
-- 2026-06-29 11:24 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/752082478.shtml)
-- 2026-06-29 11:29 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/69480.shtml)
+- 2026-06-29 11:44 - [总书记引领强国之路｜共建美好网络家园](http://www.share.kurohicncr.top/Article/details/37308541906.shtml)
+- 2026-06-29 11:24 - [从多轮冻结到易主在即 兰州银行第三大股东清仓式法拍！3.01亿股5月13日开槌 起拍总价近7亿元](http://www.share.minike.top/Article/details/1906516.shtml)
+- 2026-06-29 11:48 - [“霸王”助阵“苏超” 文旅体商融合新答卷](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [价格大涨650%，国产光纤全球爆单，年内诞生3只翻倍股](http://www.share.kurohicncr.top/Article/details/262724.shtml)
+- 2026-06-29 11:25 - [“小阳春”热度延续，深圳二手房市场正转向“量稳价稳”新阶段](http://www.share.minike.top/Article/details/555715995.shtml)
+- 2026-06-29 11:31 - [谷雨：祛湿排浊，双臂“甩起来”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:53 - [中东股市：霍尔木兹海峡局势再起变数，停火乐观预期降温，海湾股指走势低迷](http://www.share.kurohicncr.top/Article/details/037216224.shtml)
+- 2026-06-29 11:38 - [牛弹琴：美伊这出戏，编剧都不敢这样写](http://www.share.minike.top/Article/details/0631640819.shtml)
+- 2026-06-29 11:45 - [强化长效约束，券商薪酬管理制度迎来重大修订](http://www.blog.kurohicncr.top/Article/details/6556403034.shtml)
+- 2026-06-29 11:38 - [AI算力重塑创业逻辑 郑州航空港区探索“轻创业”新路径](http://www.share.kurohicncr.top/Article/details/7305239014.shtml)
+- 2026-06-29 11:46 - [国元保险原董事长被查，收超400万罚单，成监管“重点户”](http://www.share.kurohicncr.top/Article/details/519142564.shtml)
+- 2026-06-29 11:48 - [美军在阿曼湾拦截并控制一艘伊朗货船](http://www.blog.kurohicncr.top/Article/details/545922.shtml)
+- 2026-06-29 11:49 - [优步以3.18亿美元交易增持外卖平台Delivery Hero股份](http://www.blog.kurohicncr.top/Article/details/6884300408.shtml)
+- 2026-06-29 11:50 - [福特召回至多139万辆F-150皮卡](http://www.share.minike.top/Article/details/2852426777.shtml)
+- 2026-06-29 11:26 - [文化中国行·联播一瞬丨谷雨：春去无憾 夏来有期](https://github.com/lisacumin64-arch)

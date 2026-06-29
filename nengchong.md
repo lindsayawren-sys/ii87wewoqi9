@@ -1,56 +1,53 @@
-# 2026年世界杯有望创收130亿美元 主办城市面临成本压力
+# 特朗普：霍尔木兹海峡已完全开放 但对伊朗海上封锁仍将持续
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-2026年美加墨世界杯开赛在即，国际足联预计本届赛事将创下约130亿美元的收入纪录，较2022年卡塔尔世界杯的75亿美元增长超过70%，成为国际足联史上最赚钱的赛事。 本届世界杯规模空前，首次扩军至48支球队，比赛场次从32*2场增至104场，赛期延长至39天。这些因素直接推动了收入增长。据国际足联预测，仅2026年当年收入就将达约90亿美元，其中门票及相关贵宾服务收入预计突破
+中新网4月17日电 当地时间17日，美国总统特朗普在社交媒体平台上发帖称，霍尔木兹海峡已完全开放，并准备恢复商业与全面通航。 伊朗外长阿拉格齐17日在社交媒体发文称，鉴于黎巴嫩和以色列达成停火，霍尔木兹海峡在停火期间对所有商船通行完全开放，通行路线依照伊朗港口与海事组织此前已公布的协调路线。 特朗普随后在社交媒体上表示，“伊朗刚刚宣布，伊朗海峡已完全开放，可全面通行。谢谢！”
 
 ## 正文
 
-2026年美加墨世界杯开赛在即，国际足联预计本届赛事将创下约130亿美元的收入纪录，较2022年卡塔尔世界杯的75亿美元增长超过70%，成为国际足联史上最赚钱的赛事。
+中新网4月17日电 当地时间17日，美国总统特朗普在社交媒体平台上发帖称，霍尔木兹海峡已完全开放，并准备恢复商业与全面通航。
 
-本届世界杯规模空前，首次扩军至48支球队，比赛场次从32*2场增至104场，赛期延长至39天。
+伊朗外长阿拉格齐17日在社交媒体发文称，鉴于黎巴嫩和以色列达成停火，霍尔木兹海峡在停火期间对所有商船通行完全开放，通行路线依照伊朗港口与海事组织此前已公布的协调路线。
 
-这些因素直接推动了收入增长。
+特朗普随后在社交媒体上表示，“伊朗刚刚宣布，伊朗海峡已完全开放，可全面通行。
 
-据国际足联预测，仅2026年当年收入就将达约90亿美元，其中门票及相关贵宾服务收入预计突破30亿美元，是2022年的三倍以上。
+谢谢！
 
-转播权收入预计接近40亿美元，同比增长34%；赞助收入预计在24亿至30亿美元之间，同样创下历史新高。
+” 不久后，特朗普又发文称，霍尔木兹海峡目前已“完全开放并准备恢复商业与全面通航”，但针对伊朗的海上封锁仍将“全面维持”，直至美伊之间的相关协议“100%达成”。
 
-然而，与蓬勃的赛事收入形成对比的是，主办城市正面临日益沉重的财务压力。
-
-根据主办城市协议，比赛门票、停车费等主要收入均归属国际足联，而城市需自行承担基础设施升级、安保运营等开支。
-
-加拿大13场世界杯比赛预计将耗费纳税人至少10亿美元，其中多伦多主办6场比赛的成本从最初预计的3000万至4500万美元飙升至3.8亿美元。
+特朗普还表示，当前大部分关键条款已完成谈判，整体进程“将非常迅速”。
 
 ## 相关推荐
 
-- 2026-06-29 11:39 - [户外吃烧烤多人头发变炸毛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:30 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:33 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:25 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:30 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:43 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:42 - [伊朗球员致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:23 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:38 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:24 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:25 - [三亚亚沙会临近 主媒体中心试运行赛事氛围渐浓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:25 - [法国通过“文物归还法案”，260万件中国文物多少能回归？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:43 - [OpenAI “Sora之父”宣布离职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:29 - [跨国药械企业竞逐“中国制造”新赛道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:28 - [美国中央司令部：美军瘫痪了一艘试图驶入伊朗港口、违反封锁令的伊朗船只](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:24 - [霍尔木兹海峡开放消息提振米兰股市加速上涨，银行与奢侈品板块飙升，石油股下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:45 - [建平台强队伍见实效 云南探路国企统战新模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:43 - [哥伦比亚国家石油公司：Copoazú-1井测试结果预计6月底揭晓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:30 - [吉林大学春花绽放春意浓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:28 - [纽约汇市：美元第三周下跌 市场对伊朗和平前景乐观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:32 - [“东北超”推动文旅体商融合 无形资产变红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [换个角度打开世界杯淘汰赛](http://www.share.minike.top/Article/details/484106503489.shtml)
-- 2026-06-29 11:25 - [鬼畜区全明星拼接遗憾](https://www.blog.minike.top/Article/details/80387714623.shtml)
-- 2026-06-29 11:33 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/58883.shtml)
-- 2026-06-29 11:47 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/190118.shtml)
-- 2026-06-29 11:47 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.minike.top/Article/details/2063387.shtml)
-- 2026-06-29 11:23 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.kurohicncr.top/Article/details/671974236035.shtml)
-- 2026-06-29 11:38 - [直击宜宾地震：监控剧烈摇晃](https://www.share.kurohicncr.top/Article/details/7161862928.shtml)
-- 2026-06-29 11:34 - [小娘惹](https://www.share.minike.top/Article/details/389684.shtml)
-- 2026-06-29 11:34 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.share.minike.top/Article/details/066548.shtml)
-- 2026-06-29 11:49 - [为何加快“扩编”成欧盟战略要务](https://www.blog.minike.top/Article/details/313996.shtml)
-- 2026-06-29 11:32 - [欧洲多国激辩“装不装空调”](http://www.share.kurohicncr.top/Article/details/171414454.shtml)
-- 2026-06-29 11:25 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/579415095262.shtml)
-- 2026-06-29 11:25 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://www.blog.kurohicncr.top/Article/details/21641252.shtml)
-- 2026-06-29 11:27 - [美的空调 卡bug](http://www.share.kurohicncr.top/Article/details/7838267020.shtml)
-- 2026-06-29 11:22 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/528918871.shtml)
+- 2026-06-29 11:35 - [拼多多因“幽灵外卖”被罚，法定代表人赵佳臻被处693.73万元罚款](http://www.blog.minike.top/Article/details/316368851730.shtml)
+- 2026-06-29 11:46 - [中国试飞院开放日 各型飞机引民众打卡](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [预测市场平台Polymarket计划募资4亿美元 估值达约150亿美元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [总书记的关切·落地的回响｜中国式现代化要靠科技现代化作支撑](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:50 - [林毅夫：中国式现代化的成功实践为全球发展中国家提供重要借鉴](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [湖北城市足球联赛点燃民众热情 赛事流量变消费增量](http://www.blog.minike.top/Article/details/95471247279.shtml)
+- 2026-06-29 11:47 - [国际传播纪录片《大道——永远的长征》在北京启动](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [千年古刹云居山谷雨见闻：一叶“攒林茶” 农禅指尖传](http://www.share.kurohicncr.top/Article/details/84378065996.shtml)
+- 2026-06-29 11:44 - [灿能电力拟每10股派息1.66元](http://www.share.kurohicncr.top/Article/details/74660.shtml)
+- 2026-06-29 11:29 - [光鲜销售下的深层危机：亚盛医药的盈利困局与三大致命风险](http://www.share.kurohicncr.top/Article/details/9145152023.shtml)
+- 2026-06-29 11:47 - [东方证券收购上海证券，又多了一家“前途未卜”的公募，上海证券持有100%股权的前海联合基金咋办？](http://www.blog.minike.top/Article/details/34049744.shtml)
+- 2026-06-29 11:41 - [巴基斯坦称已为所有“特殊访客”做好特别安保安排](http://www.share.kurohicncr.top/Article/details/3342498960.shtml)
+- 2026-06-29 11:27 - [天臣控股拟折让21.05%配售最多7000万股 净筹约1.03亿港元](http://www.share.kurohicncr.top/Article/details/820953476.shtml)
+- 2026-06-29 11:36 - [西南大学120周年校庆高质量发展大会举行](http://www.blog.kurohicncr.top/Article/details/20609284.shtml)
+- 2026-06-29 11:52 - [日本突发7.5级强震 震中附近有多个核电站](https://github.com/lisacumin64-arch)

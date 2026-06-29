@@ -1,57 +1,56 @@
-# Apogee Enterprises宣布2027财年第一季度业绩发布日期
+# “东北超”推动文旅体商融合 无形资产变红利
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-Apogee Enterprises周五宣布，公司将于2026年6月26日（周五）盘前发布2027财年第一季度财务业绩报告。该公司是一家领先的建筑产品及高性能镀膜材料供应商。 根据公告，公司还将于美国中部时间当日上午8点召开电话会议，讨论季度业绩。投资者可通过Apogee官网投资者关系页面观看网络直播，会议结束后不久将提供回放和文字记录。 Apogee Enterprises总
+中新网沈阳4月17日电 (记者 韩宏)记者17日从辽宁省文体旅产业发展集团获悉，2026卡尔美·大商东北地区城市足球联赛无形资产授权工作全面推进，江苏、浙江、北京、天津等地优质企业与东北四省区知名企业深度参与“东北超”IP打造与运营。“东北超”这项扎根东北的足球赛事，坚持市场化、规范化、普惠化运营，用体育 IP打通文旅、体育、商业、公益融合通道，让人们在家门口就能感受足球热情，
 
 ## 正文
 
-Apogee Enterprises周五宣布，公司将于2026年6月26日（周五）盘前发布2027财年第一季度财务业绩报告。
+中新网沈阳4月17日电 (记者 韩宏)记者17日从辽宁省文体旅产业发展集团获悉，2026卡尔美·大商东北地区城市足球联赛无形资产授权工作全面推进，江苏、浙江、北京、天津等地优质企业与东北四省区知名企业深度参与“东北超”IP打造与运营。
 
-该公司是一家领先的建筑产品及高性能镀膜材料供应商。
+“东北超”这项扎根东北的足球赛事，坚持市场化、规范化、普惠化运营，用体育 IP打通文旅、体育、商业、公益融合通道，让人们在家门口就能感受足球热情，激活区域消费新活力。
 
-根据公告，公司还将于美国中部时间当日上午8点召开电话会议，讨论季度业绩。
+本次授权最大亮点是面向东北本地中小微企业、非遗企业、福利及特殊群体企业推出0元扶持计划，全面免除授权金与保证金，本土特色品牌、地理标志产品、公益企业零成本就能对接顶级体育 IP。
 
-投资者可通过Apogee官网投资者关系页面观看网络直播，会议结束后不久将提供回放和文字记录。
+目前已有6家企业享受免费授权，包括3家小微与非遗企业、3家公益及特殊群体企业，让东北好货借足球流量火出圈，真正惠及百姓、助力创业增收。
 
-Apogee Enterprises总部位于明尼阿波利斯，提供涵盖建筑玻璃、窗户、幕墙、店面和入口系统、集成项目管理与安装服务，以及用于防护、创新设计和增强性能的高性能镀膜等一系列行业领先产品和服务。
+截至2026年4月15日，“东北超”授权合作收获满满，累计洽谈企业超100家，正式签约25家；产品覆盖文创、食品、出行、体育、文旅等30多个品类，开发授权产品100余种；构建多元收益体系，大企业、小微企业、公益企业协同发展，商业与社会效益双丰收。
 
-回顾此前，Apogee在2026财年第四季度展现了稳健的执行力。
+据介绍，沈阳文体旅集团等龙头企业纷纷携手“东北超”，深度挖掘IP价值，结合自身优势打造专属授权品类，精准服务东北消费者，带动消费升级。
 
-截至2026年2月28日的第四财季，公司每股收益为0.92美元，超过分析师预期的0.90美元；季度营收同比增长1.6%至3.5135亿美元，同样高于预期的3.3598亿美元。
+沈阳文体旅集团深度整合区域文旅资源，打造“赛事+文旅”一体化授权品类，推动文旅体商深度融合。
 
-2026整个财年，公司通过运营优化和成本管控，在充满挑战的环境下持续强化了业务基础。
+文创产品类涵盖城市纪念章、书签、明信片、潮玩等，将东北地域文化、赛事精神与景区特色融入设计。
 
 ## 相关推荐
 
-- 2026-06-29 11:44 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:29 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:43 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:22 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:48 - [温峥嵘直播回应恶评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:23 - [欧洲极端高温东扩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:25 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:39 - [未来5年 充电供热供暖将有大变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:44 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:24 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:24 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:43 - [苏林、查波访华为何要去广西、湖南？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:52 - [日本东北部沿海地区发生7.4级地震 已发布海啸警报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:32 - [（文化中国行）千年山歌的“数字迁徙”：从广西唱响东盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:48 - [度小满冠名《浪姐7》陷舆论反噬：透视助贷平台下沉的困局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:25 - [2026江苏省侨界中餐厨艺大赛在无锡启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:46 - [中信建投：创业板新高后，还有多少空间？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:30 - [多国客商齐聚河南长垣 共觅起重装备商机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:51 - [书香换花香 浙江杭州孔庙书市启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:45 - [2026年河南省篮球城市联赛在古都安阳开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:46 - [特斯拉：目前并无在上海超级工厂量产机器人的具体计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:36 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/531747.shtml)
-- 2026-06-29 11:26 - [起风了](http://www.blog.kurohicncr.top/Article/details/0072805.shtml)
-- 2026-06-29 11:25 - [普京：俄罗斯将坚定捍卫自身根本利益](https://www.share.minike.top/Article/details/7822575.shtml)
-- 2026-06-29 11:23 - [重生赛伊德04](https://www.blog.minike.top/Article/details/8873731.shtml)
-- 2026-06-29 11:26 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/557087594.shtml)
-- 2026-06-29 11:27 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://www.blog.minike.top/Article/details/7926302873.shtml)
-- 2026-06-29 11:41 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/9470135.shtml)
-- 2026-06-29 11:24 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/0347726.shtml)
-- 2026-06-29 11:31 - [巴拉圭能否打破世界杯淘汰赛进球荒](http://www.share.minike.top/Article/details/6225506905.shtml)
-- 2026-06-29 11:41 - [佛得角到底在哪个“角”](https://www.blog.kurohicncr.top/Article/details/90778784441.shtml)
-- 2026-06-29 11:27 - [行程万里不忘初心](https://www.share.minike.top/Article/details/197618.shtml)
-- 2026-06-29 11:24 - [时光音乐会](http://www.share.minike.top/Article/details/209302.shtml)
-- 2026-06-29 11:37 - [普京称考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/582837872.shtml)
-- 2026-06-29 11:32 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/896048.shtml)
-- 2026-06-29 11:41 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/368323.shtml)
+- 2026-06-29 11:28 - [广交会观察：中东局势扰动下参展商采购商同觅“新出路”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [雄安新区首个戏曲特色工人文化宫正式投用](http://www.share.kurohicncr.top/Article/details/0269731.shtml)
+- 2026-06-29 11:28 - [伊朗最高领袖：伊朗海军已准备好给敌人“新的惨败”](http://www.blog.kurohicncr.top/Article/details/578735.shtml)
+- 2026-06-29 11:26 - [习近平文化思想引领书香社会建设](http://www.blog.kurohicncr.top/Article/details/5446409924.shtml)
+- 2026-06-29 11:41 - [新疆和田县群众治沙：沙地成自家“聚宝盆”](http://www.share.kurohicncr.top/Article/details/80184358.shtml)
+- 2026-06-29 11:30 - [总书记引领强国之路｜共建美好网络家园](http://www.blog.minike.top/Article/details/08737634522.shtml)
+- 2026-06-29 11:39 - [从多轮冻结到易主在即 兰州银行第三大股东清仓式法拍！3.01亿股5月13日开槌 起拍总价近7亿元](http://www.share.kurohicncr.top/Article/details/62755923.shtml)
+- 2026-06-29 11:44 - [“霸王”助阵“苏超” 文旅体商融合新答卷](http://www.blog.minike.top/Article/details/985664285968.shtml)
+- 2026-06-29 11:52 - [价格大涨650%，国产光纤全球爆单，年内诞生3只翻倍股](http://www.share.kurohicncr.top/Article/details/49330975.shtml)
+- 2026-06-29 11:37 - [“小阳春”热度延续，深圳二手房市场正转向“量稳价稳”新阶段](http://www.blog.kurohicncr.top/Article/details/010825.shtml)
+- 2026-06-29 11:46 - [谷雨：祛湿排浊，双臂“甩起来”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [中东股市：霍尔木兹海峡局势再起变数，停火乐观预期降温，海湾股指走势低迷](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [牛弹琴：美伊这出戏，编剧都不敢这样写](http://www.blog.minike.top/Article/details/640611.shtml)
+- 2026-06-29 11:50 - [强化长效约束，券商薪酬管理制度迎来重大修订](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [AI算力重塑创业逻辑 郑州航空港区探索“轻创业”新路径](http://www.blog.kurohicncr.top/Article/details/7157882536.shtml)

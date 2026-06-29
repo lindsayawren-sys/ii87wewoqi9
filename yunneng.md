@@ -1,58 +1,55 @@
-# 韩正出席中国－白俄罗斯产业与投资合作论坛并致辞
+# 浦发银行与中国银联签署全面战略合作协议
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:06 UTC+8
 
 ## 摘要
 
-中新社北京6月7日电 当地时间6月6日，中国国家副主席韩正在明斯克出席中国－白俄罗斯产业与投资合作论坛开幕式并致辞。 韩正说，习近平主席指出，中国和白俄罗斯是真朋友、好伙伴。近年来，在习近平主席和卢卡申科总统的战略引领下，两国关系持续高水平发展，经贸投资合作亮点纷呈，展现出蓬勃生机和强大活力。2025年中白双边贸易额是建交之初的近150倍。两国元首亲自关注、亲自推动的中白工业园
+来源：遇见浦发 近日，浦发银行与中国银联签署全面战略合作协议。浦发银行党委书记、董事长张为忠与中国银联党委书记、董事长董俊峰见证，浦发银行党委委员、副行长张健与中国银联党委委员、执行副总裁胡浩中代表双方签约。 根据协议内容，双方将发挥各自优势，加强互动交流和资源整合，在金融“五篇大文章”、银联卡发卡和受理、移动支付、上海国际金融中心和国际消费城市建设、长三角一体化、国际业务、数
 
 ## 正文
 
-中新社北京6月7日电 当地时间6月6日，中国国家副主席韩正在明斯克出席中国－白俄罗斯产业与投资合作论坛开幕式并致辞。
+来源：遇见浦发 近日，浦发银行与中国银联签署全面战略合作协议。
 
-韩正说，习近平主席指出，中国和白俄罗斯是真朋友、好伙伴。
+浦发银行党委书记、董事长张为忠与中国银联党委书记、董事长董俊峰见证，浦发银行党委委员、副行长张健与中国银联党委委员、执行副总裁胡浩中代表双方签约。
 
-近年来，在习近平主席和卢卡申科总统的战略引领下，两国关系持续高水平发展，经贸投资合作亮点纷呈，展现出蓬勃生机和强大活力。
+根据协议内容，双方将发挥各自优势，加强互动交流和资源整合，在金融“五篇大文章”、银联卡发卡和受理、移动支付、上海国际金融中心和国际消费城市建设、长三角一体化、国际业务、数智化转型、风险防控、对公创新等方面开展全方位合作，强化战略合作关系。
 
-2025年中白双边贸易额是建交之初的近150倍。
+签约仪式前，双方举行工作会谈，系统回顾前期合作情况和取得的成效，并围绕客群经营、提振消费、大数据、人工智能、跨境支付、对公业务等领域，就进一步深化战略合作开展深入交流。
 
-两国元首亲自关注、亲自推动的中白工业园入驻企业达到178家，有力带动当地经济社会发展，成果惠及两国人民。
+此次战略合作是双方认真学习贯彻党的二十届四中全会及中央经济工作会议精神，落实国家“十五五”规划，共同做好金融“五篇大文章”的重要实践。
 
-中方愿继续同白方以诚相待、以信相交，积极落实两国元首重要共识，推动中白全天候全面战略伙伴关系高水平发展，更好惠及两国人民。
+未来，浦发银行与中国银联将持续加强战略协同，建立常态化沟通机制，定期复盘合作成果、规划后续方向，推动合作从产品层面升级至战略生态层面，为服务实体经济高质量发展注入新动能。
 
-韩正就中白合作提出三点看法。
-
-一是加强发展战略对接。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-29 11:40 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:39 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:49 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:48 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:37 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:44 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:44 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:43 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:48 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:40 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:30 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:33 - [产品业绩回撤38.53%，昔日百亿私募同犇投资最新回应：从来不是只买消费，AI产业链去年开始就有不少仓位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:42 - [金价下跌 霍尔木兹海峡再度中断引发通胀担忧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:45 - [农业农村部：推动猪价合理回升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:45 - [鼎泰丰“回京”热度不减 稳中求进布局大陆北方市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:45 - [国际能源署称中东能源产出恢复需两年时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:27 - [直击广东消防救援力量多举措筑牢防汛救灾安全屏障](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:33 - [印度卢比在亚币中表现最佳 央行据报道对油企购买美元进行窗口指导](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:33 - [西安直飞维也纳国际航线开通](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:46 - [江西南昌久雨初晴：市民户外享受春光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:48 - [2026年巴黎图书节拉开帷幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:46 - [韩国和美国一致认为，韩元汇率过度波动是不可取的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/758159650709.shtml)
-- 2026-06-29 11:32 - [女子遭殴打驾车致丈夫身亡维持原判](https://www.share.minike.top/Article/details/91567.shtml)
-- 2026-06-29 11:48 - [巴西国脚说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/5241761009.shtml)
-- 2026-06-29 11:35 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.kurohicncr.top/Article/details/34919729.shtml)
-- 2026-06-29 11:37 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.blog.kurohicncr.top/Article/details/49458092957.shtml)
-- 2026-06-29 11:33 - [美伊同意停止互袭](https://www.blog.minike.top/Article/details/228318720.shtml)
-- 2026-06-29 11:40 - [英国高温已致多人死亡](http://www.blog.minike.top/Article/details/29695132.shtml)
-- 2026-06-29 11:29 - [时光音乐会](http://www.blog.minike.top/Article/details/91368291.shtml)
-- 2026-06-29 11:44 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/57602099.shtml)
-- 2026-06-29 11:39 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/0391052.shtml)
-- 2026-06-29 11:45 - [特里：法国是世界杯夺冠热门](https://www.blog.kurohicncr.top/Article/details/411331219947.shtml)
-- 2026-06-29 11:47 - [美伊同意停止互袭](https://www.share.kurohicncr.top/Article/details/868560951310.shtml)
-- 2026-06-29 11:47 - [美伊同意停止互袭](https://www.share.kurohicncr.top/Article/details/57807588.shtml)
-- 2026-06-29 11:41 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/73030.shtml)
-- 2026-06-29 11:22 - [加拿大女球迷玩人浪把手机甩飞](http://www.blog.minike.top/Article/details/0705219705.shtml)
+- 2026-06-29 11:42 - [习言道｜让互联网更好造福国家和人民](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:53 - [消费升级+投资优化 一季度内需引擎动力增强](http://www.blog.minike.top/Article/details/511821355426.shtml)
+- 2026-06-29 11:36 - [于和伟、张若昀纷纷声明！爱奇艺回应：入驻不等于授权](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [Astro Offshore新增MPSV，扩展水下作业能力](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [美国债市：国债走高 交易员上调对美联储年内降息押注](http://www.blog.minike.top/Article/details/969018.shtml)
+- 2026-06-29 11:25 - [松延动力创始人姜哲源揭秘参赛机器人技术升级：续航加强、扭矩提升超一倍](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [易方达如意安悦3个月持有混合（FOF）今日首发 打造多元配置新选择](http://www.blog.minike.top/Article/details/769617226.shtml)
+- 2026-06-29 11:32 - [陈茂波：香港将公布第六批引进重点企业](http://www.blog.kurohicncr.top/Article/details/025684804.shtml)
+- 2026-06-29 11:38 - [33岁确诊胃癌晚期，她错过了身体4次“求救信号”](http://www.share.minike.top/Article/details/363900925285.shtml)
+- 2026-06-29 11:49 - [黄金交易提醒：周末中东局势突变，伊朗拒绝第二轮谈判，金价大幅跳空低开](http://www.blog.kurohicncr.top/Article/details/807325447.shtml)
+- 2026-06-29 11:35 - [宁波前湾新区文旅提质升级 打造长三角全域度假新高地](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [行业性纵容！“幽灵外卖”黑产调查：7家电商平台“幽灵店铺”多达67604家](http://www.share.kurohicncr.top/Article/details/102368.shtml)
+- 2026-06-29 11:28 - [习近平谈网络安全和信息化](http://www.blog.minike.top/Article/details/709826172789.shtml)
+- 2026-06-29 11:38 - [涉宇树科技、胖东来等，最高法谈知识产权司法保护](http://www.blog.kurohicncr.top/Article/details/170814476.shtml)
+- 2026-06-29 11:29 - [伊朗谈判代表称以色列可能发动袭击，在和平会谈后由巴基斯坦护送回国](http://www.share.kurohicncr.top/Article/details/437835095.shtml)

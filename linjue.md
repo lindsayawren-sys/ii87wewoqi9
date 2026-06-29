@@ -1,56 +1,56 @@
-# 供应链巨头怡亚通紧急补发公告，此前发布与英特尔合作消息后股票涨停
+# 中越企业昆明面对面交流 碰撞合作机遇
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-6月8日早间，供应链巨头怡亚通（002183.SZ）紧急补发一份《说明公告》，就6月4日怡亚通正式成为英特尔2026解决方案聚合商的消息发布补充说明并做出风险提示，称公司目前与英特尔没有业务合作，公司后续开展分销相关业务仍存在一定的不确定性。 公告称，公司本次获“英特尔2026官方解决方案聚合商”并非独家聚合商。公司业务涉及分销品类较多，预计上述事项占营业收入的影响较小，不会对
+中新网昆明4月18日电 (记者 韩帅南)17日，中国—越南贸易投资促进交流会在昆明举办。来自中越两国的政府代表、企业及商协会代表齐聚一堂，面对面交流，碰撞合作机遇，挖掘市场潜力。 中国与越南山水相连、人缘相亲，是有着相近文化传统的好邻居、好伙伴。云南省位于中国西南边陲，与越南接壤，近年来两地在跨境贸易、人文交流等方面互动频繁。 在当天的交流会上，越方企业代表介绍了越南在医药、农
 
 ## 正文
 
-6月8日早间，供应链巨头怡亚通（002183.SZ）紧急补发一份《说明公告》，就6月4日怡亚通正式成为英特尔2026解决方案聚合商的消息发布补充说明并做出风险提示，称公司目前与英特尔没有业务合作，公司后续开展分销相关业务仍存在一定的不确定性。
+中新网昆明4月18日电 (记者 韩帅南)17日，中国—越南贸易投资促进交流会在昆明举办。
 
-公告称，公司本次获“英特尔2026官方解决方案聚合商”并非独家聚合商。
+来自中越两国的政府代表、企业及商协会代表齐聚一堂，面对面交流，碰撞合作机遇，挖掘市场潜力。
 
-公司业务涉及分销品类较多，预计上述事项占营业收入的影响较小，不会对公司经营业绩产生重大影响。
+中国与越南山水相连、人缘相亲，是有着相近文化传统的好邻居、好伙伴。
 
-根据公司此前披露的2025年年度报告，公司分销和营销业务收入为572.21亿元，同比减少125.6亿元，同比下滑17.74%，毛利率为4%。
+云南省位于中国西南边陲，与越南接壤，近年来两地在跨境贸易、人文交流等方面互动频繁。
 
-此外，国际政治等因素可能影响合作的推进，如地缘政治冲突等可能导致合作暂停或终止。
+在当天的交流会上，越方企业代表介绍了越南在医药、农业等领域的优势，并欢迎中方企业赴越投资、合作。
 
-敬请广大投资者注意有关风险。
+中方企业代表介绍了与越方企业在经贸、物流等领域的合作经验，并希望能够以此次交流为契机，进一步加强与越方在各领域的合作。
 
-此前，6月4日，怡亚通在其微信公众号发布了一篇《重磅|怡亚通正式成为英特尔2026解决方案聚合商》快讯，主要内容为公司获评“英特尔2026官方解决方案聚合商”，依托合作资质，公司分销英特尔芯片及英特尔体系下OEM、ODM定制成品。
+参与交流的越方企业带来咖啡、燕窝、水果、副食品等优势产品，以及新材料、建筑等领域合作需求，与中方采购商与投资企业现场对接，精准匹配双方资源。
 
-消息发布后，6月5日怡亚通股票强势涨停。
+红河哈尼族彝族自治州商务局局长和涛在会上介绍，红河州拥有河口公路口岸、河口铁路口岸、金水河口岸3个国家级对越口岸。
 
 ## 相关推荐
 
-- 2026-06-29 11:45 - [全球首发核电站彩蛋攻略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:38 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:31 - [四川宜宾地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:46 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:42 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:41 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:27 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:49 - [虞书欣灿如繁星明天定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:43 - [高超感谢女友王佳欣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:28 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:37 - [CBA常规赛第40轮：福建客场战胜广东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:32 - [江苏扬州第十届“春的律动”举行：文艺添彩好地方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:31 - [香港财政司司长陈茂波：Web3+AI重塑全球金融生态 须确保人类主控干预 完善跨境监管与权责划分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:26 - [联合国秘书长欢迎伊朗宣布完全开放霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:24 - [经济观察：轻食，重新定义“吃”的健康价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:51 - [地平线机器人-W于4月17日斥资287.1万港元回购39.42万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:52 - [中越青年相聚广西南宁分享友好故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:52 - [歼-10升空！防以色列袭击，巴基斯坦出动20多架飞机护送伊朗谈判代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:51 - [旧金山联储行长戴利认为利率处于良好位置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:30 - [券商前十座次重排！“两超多强”格局显现，两大业务成新关键赛道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:43 - [ENC瓦中国香港负印度数据图](https://www.share.kurohicncr.top/Article/details/891830822143.shtml)
-- 2026-06-29 11:44 - [上海足协发布世界杯文明观赛倡议书](https://www.share.kurohicncr.top/Article/details/0119964542.shtml)
-- 2026-06-29 11:41 - [韩国队主帅洪明甫下课](http://www.blog.kurohicncr.top/Article/details/16713744.shtml)
-- 2026-06-29 11:45 - [国乒男单资格赛全员出局](http://www.blog.minike.top/Article/details/83708.shtml)
-- 2026-06-29 11:49 - [扫黑风暴](https://www.share.minike.top/Article/details/929538.shtml)
-- 2026-06-29 11:41 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/29855.shtml)
-- 2026-06-29 11:29 - [四川宜宾地震](https://www.blog.kurohicncr.top/Article/details/81790.shtml)
-- 2026-06-29 11:50 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/45477.shtml)
-- 2026-06-29 11:39 - [刘烨16岁儿子诺一颜值](http://www.share.minike.top/Article/details/22253148170.shtml)
-- 2026-06-29 11:50 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/5744811.shtml)
-- 2026-06-29 11:25 - [拄拐少年高考663分：用行动回报社会](https://www.blog.minike.top/Article/details/818004029623.shtml)
-- 2026-06-29 11:39 - [欧洲人驾车200公里抢购中国空调](http://www.blog.kurohicncr.top/Article/details/86109225.shtml)
-- 2026-06-29 11:50 - [斛珠夫人](http://www.blog.minike.top/Article/details/3414251525.shtml)
-- 2026-06-29 11:47 - [房屋抵押权与租赁权如何协调](http://www.share.minike.top/Article/details/21090.shtml)
-- 2026-06-29 11:27 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.minike.top/Article/details/59749787280.shtml)
+- 2026-06-29 11:27 - [山东菏泽：一株三并蒂的“墨润绝伦”牡丹盛放](http://www.blog.kurohicncr.top/Article/details/9365148672.shtml)
+- 2026-06-29 11:37 - [曾黎、李志希领衔主演 话剧《寻味》登陆广州大剧院](http://www.share.kurohicncr.top/Article/details/74161.shtml)
+- 2026-06-29 11:33 - [“10天订单涨2万+” 张雪机车夺冠后 广交会现场火爆吸睛](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [A股收评：超3400只个股飘红，沪指、深指收涨，创业板指收跌](http://www.share.kurohicncr.top/Article/details/91598595.shtml)
+- 2026-06-29 11:24 - [油气价格大跌 受霍尔木兹海峡开放和止战希望影响](http://www.share.minike.top/Article/details/035593218380.shtml)
+- 2026-06-29 11:37 - [伊朗：将再次关闭霍尔木兹海峡](http://www.share.minike.top/Article/details/85788240106.shtml)
+- 2026-06-29 11:37 - [百胜中国于4月17日斥资773.82万港元回购2.07万股](http://www.share.kurohicncr.top/Article/details/478292853098.shtml)
+- 2026-06-29 11:35 - [伊朗称将对美军扣押伊朗商船作出回应](http://www.blog.kurohicncr.top/Article/details/9641477.shtml)
+- 2026-06-29 11:31 - [特朗普：霍尔木兹海峡已完全开放 但对伊朗海上封锁仍将持续](http://www.share.kurohicncr.top/Article/details/22572907.shtml)
+- 2026-06-29 11:53 - [2026中小学“汉语桥”多伦多赛区选拔赛圆满收官](http://www.blog.minike.top/Article/details/2143644.shtml)
+- 2026-06-29 11:37 - [现场视频：美军人员从直升机顺绳而下，控制伊朗货船](http://www.blog.kurohicncr.top/Article/details/5282182.shtml)
+- 2026-06-29 11:40 - [贵州纳雍：玛瑙红樱桃迎采摘热潮](http://www.share.minike.top/Article/details/083839721956.shtml)
+- 2026-06-29 11:42 - [从“石旮旯”到“世界最佳” 重庆荆竹村涌文旅热潮](http://www.share.minike.top/Article/details/807656.shtml)
+- 2026-06-29 11:53 - [ATFX五度斩获ADVFN最佳拉美地区经纪商 区域领导力再获国际权威认可](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [三亚与7家境外经贸合作区集中签约](http://www.blog.minike.top/Article/details/66990548.shtml)

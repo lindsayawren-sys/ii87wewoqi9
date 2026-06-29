@@ -1,54 +1,60 @@
-# 同仁堂大宗交易成交28.00万股 成交额700.84万元
+# 国常会部署推动自贸试验区高质量发展
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-同仁堂6月5日大宗交易平台出现一笔成交，成交量28.00万股，成交金额700.84万元，大宗交易成交价为25.03元。该笔交易的买方营业部为国投证券股份有限公司广州猎德大道证券营业部，卖方营业部为中国国际金融股份有限公司北京建国门外大街证券营业部。进一步统计，近3个月内该股累计发生2笔大宗交易，合计成交金额为1199.69万元。证券时报·数据宝统计显示，同仁堂今日收盘价为25.
+4月17日，国务院总理李强主持召开国务院常务会议，听取自由贸易试验区建设情况汇报。 党的十八大以来，各自贸试验区在深化改革、扩大开放、促进发展等方面积极探索，取得一系列突破性、引领性成果，有效发挥了综合试验平台作用。 这次国常会围绕自贸试验区建设作出新部署，提出要深入实施自由贸易试验区提升战略，改革完善体制机制，进一步优化布局提升能级，更好服务国家发展大局。 “提升战略”的提法
 
 ## 正文
 
-同仁堂6月5日大宗交易平台出现一笔成交，成交量28.00万股，成交金额700.84万元，大宗交易成交价为25.03元。
+4月17日，国务院总理李强主持召开国务院常务会议，听取自由贸易试验区建设情况汇报。
 
-该笔交易的买方营业部为国投证券股份有限公司广州猎德大道证券营业部，卖方营业部为中国国际金融股份有限公司北京建国门外大街证券营业部。
+党的十八大以来，各自贸试验区在深化改革、扩大开放、促进发展等方面积极探索，取得一系列突破性、引领性成果，有效发挥了综合试验平台作用。
 
-进一步统计，近3个月内该股累计发生2笔大宗交易，合计成交金额为1199.69万元。
+这次国常会围绕自贸试验区建设作出新部署，提出要深入实施自由贸易试验区提升战略，改革完善体制机制，进一步优化布局提升能级，更好服务国家发展大局。
 
-证券时报·数据宝统计显示，同仁堂今日收盘价为25.03元，上涨0.72%，日换手率为0.37%，成交额为1.27亿元，全天主力资金净流出421.37万元，近5日该股累计下跌2.42%，近5日资金合计净流出3873.21万元。
+“提升战略”的提法并不陌生。
 
-两融数据显示，该股最新融资余额为11.48亿元，近5日减少395.56万元，降幅为0.34%。
+如，2025年，中共中央、国务院印发了《关于实施自由贸易试验区提升战略的意见》，对建设工作作出系统部署。
 
-据天眼查APP显示，北京同仁堂股份有限公司成立于1997年06月18日，注册资本137147.0262万人民币。
+自贸试验区正在迈入一个新阶段。
 
-（数据宝）6月5日同仁堂大宗交易一览（文章来源：证券时报网）
+这次国常会的最新部署，释放了哪些重要信号？
+
+强调“因地制宜”和“一区一策”。
 
 ## 相关推荐
 
-- 2026-06-29 11:51 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:31 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:23 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:42 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:47 - [为何加快“扩编”成欧盟战略要务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:32 - [俄称继续在顿涅茨克两城镇推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:47 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:28 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:37 - [中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:31 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:45 - [北京：香椿宴带动京郊游 衍生品丰富山村体验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:44 - [又见内幕交易？霍尔木兹开放前20分钟，神秘交易员7.6亿美元精准做空原油，已被调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:53 - [AI赋能文旅 2026西安丝路旅博会展示文旅科技新业态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:46 - [4月20日人民币对美元中间价报6.8648 下调26个基点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:33 - [新的社会阶层人士开展“寻美‘广西三月三’ 数智共铸民族情”活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:45 - [港交所的新挑战与“护城河”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:31 - [报告称中小微外贸企业出口保持韧性 定价权稳步提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:34 - [政策持续催化！绿电概念股4天2板，电力ETF华宝（159146）涨逾1%，超2.8亿资金悄悄加码！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:31 - [美军封锁期间 驱逐舰尾随满载伊朗原油的油轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:39 - [昆明至泰戈尔故乡加尔各答直飞航线复航 各方热盼新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:30 - [男子潜伏通风管道9小时盗走百万黄金 3次换装终难逃法网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:31 - [2026人形机器人半马：机器人领先人类19分钟冲线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:53 - [雄安智慧农业春日见闻：北斗定垄、AI种花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:37 - [第十九届坚果果干食品展盛大开幕 洽洽展位成为人气焦点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:30 - [《贺子珍》](http://www.blog.minike.top/Article/details/13241997171.shtml)
-- 2026-06-29 11:34 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](http://www.share.kurohicncr.top/Article/details/650181844173.shtml)
-- 2026-06-29 11:38 - [男子撸铁后擦汗 脸部感染“脚气”](https://www.blog.kurohicncr.top/Article/details/46423.shtml)
-- 2026-06-29 11:40 - [伊朗球员致歉](http://www.share.minike.top/Article/details/45767389.shtml)
-- 2026-06-29 11:47 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/57695382.shtml)
-- 2026-06-29 11:28 - [户外吃烧烤多人头发变炸毛](http://www.blog.kurohicncr.top/Article/details/01650318929.shtml)
-- 2026-06-29 11:49 - [英国高温已致多人死亡](http://www.blog.kurohicncr.top/Article/details/947199076.shtml)
-- 2026-06-29 11:35 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/910633.shtml)
-- 2026-06-29 11:52 - [女子跑步4年不拉伸小腿肌肉硬如铁](http://www.share.minike.top/Article/details/8086693903.shtml)
-- 2026-06-29 11:48 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/9367472.shtml)
-- 2026-06-29 11:38 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/257025522166.shtml)
-- 2026-06-29 11:28 - [哈尔滨“全城追菠萝蜜”](https://www.blog.kurohicncr.top/Article/details/61808765.shtml)
-- 2026-06-29 11:30 - [请回答王牌2019](https://www.share.minike.top/Article/details/17891194037.shtml)
-- 2026-06-29 11:29 - [金牌调解](https://www.blog.minike.top/Article/details/817915872.shtml)
-- 2026-06-29 11:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/37080237423.shtml)
+- 2026-06-29 11:40 - [西安直飞维也纳国际航线开通](http://www.share.minike.top/Article/details/689667245535.shtml)
+- 2026-06-29 11:31 - [江西南昌久雨初晴：市民户外享受春光](http://www.blog.minike.top/Article/details/658005.shtml)
+- 2026-06-29 11:52 - [2026年巴黎图书节拉开帷幕](http://www.blog.kurohicncr.top/Article/details/31597448.shtml)
+- 2026-06-29 11:52 - [韩国和美国一致认为，韩元汇率过度波动是不可取的](http://www.share.minike.top/Article/details/028590.shtml)
+- 2026-06-29 11:26 - [新阶人士走进成都高新天府长岛 共话数字文创新未来](http://www.share.kurohicncr.top/Article/details/789259.shtml)
+- 2026-06-29 11:44 - [广西兴业县举办“三月三”民族团结系列活动](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:53 - [纳微科技7.1亿元定增背后：账面“不差钱” 实控人方减持套现3.8亿](http://www.blog.kurohicncr.top/Article/details/9265377961.shtml)
+- 2026-06-29 11:51 - [多国学者：儒学与伊斯兰智慧 能解世界冲突之困](http://www.blog.kurohicncr.top/Article/details/059539624.shtml)
+- 2026-06-29 11:42 - [美国交通部长：空管岗位12小时内收到6000份申请](http://www.blog.minike.top/Article/details/9979716607.shtml)
+- 2026-06-29 11:26 - [AI复合型人才成“香饽饽” 重庆“才聚两江·照母山”青年人才活动月启幕](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:26 - [高德公开全球首款开放环境全自主具身机器人，化身智能导盲犬守护视障人士](http://www.share.kurohicncr.top/Article/details/57741.shtml)
+- 2026-06-29 11:24 - [广西梧州半程马拉松火热开赛 万名跑者竞速“岭南古郡”](http://www.blog.minike.top/Article/details/530814027380.shtml)
+- 2026-06-29 11:30 - [侨见重庆武隆 觅文旅、康养合作机遇](http://www.blog.minike.top/Article/details/02677581.shtml)
+- 2026-06-29 11:45 - [美伊谈判在即，A股下周怎么走？8大机构最新研判](http://www.blog.minike.top/Article/details/79699068078.shtml)
+- 2026-06-29 11:28 - [苹果在华复苏将安卓对手甩在身后 iPhone出货量增长20%](http://www.share.minike.top/Article/details/201233840410.shtml)

@@ -1,61 +1,61 @@
-# 孩子高低肩、总喊腰酸背痛？这些可能是脊柱侧弯的信号
+# 四大证券报头版头条内容精华摘要_2026年4月20日_财经新闻
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-原标题：朝“问”健康丨孩子高低肩、总喊腰酸背痛？这些可能是脊柱侧弯的信号 每年6月是“脊柱侧弯唤醒月”，数据显示，我国中小学生脊柱侧弯整体患病率约1%，发生脊柱侧弯人数估算超过500万，每年新增确诊约30万人。脊柱侧弯继近视、肥胖后，已成为我国青少年第三大高发慢性病，今年刚纳入了国家确定的儿童青少年“五健”促进行动中专项防控，搭建筛查、干预、诊疗全链条防护网。 脊柱侧弯分“真假
+专题：四大证券报精华 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月20日（星期一），今日报刊头条主要内容精华如下： 中国证券报 商业不动产试点提速 REITs市场料持续扩容 近期，我国公募不动产投资信托基金（REITs）市场申报提速，以商业不动产REITs为代表的新品类不断扩容，多只标志性“首单”创新产品亮相。机构人士测算，随着商业不动产REIT
 
 ## 正文
 
-原标题：朝“问”健康丨孩子高低肩、总喊腰酸背痛？
+专题：四大证券报精华 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这些可能是脊柱侧弯的信号 每年6月是“脊柱侧弯唤醒月”，数据显示，我国中小学生脊柱侧弯整体患病率约1%，发生脊柱侧弯人数估算超过500万，每年新增确诊约30万人。
+4月20日（星期一），今日报刊头条主要内容精华如下： 中国证券报 商业不动产试点提速 REITs市场料持续扩容 近期，我国公募不动产投资信托基金（REITs）市场申报提速，以商业不动产REITs为代表的新品类不断扩容，多只标志性“首单”创新产品亮相。
 
-脊柱侧弯继近视、肥胖后，已成为我国青少年第三大高发慢性病，今年刚纳入了国家确定的儿童青少年“五健”促进行动中专项防控，搭建筛查、干预、诊疗全链条防护网。
+机构人士测算，随着商业不动产REITs试点步入加速推进阶段，REITs市场将持续扩容。
 
-脊柱侧弯分“真假” 成因治疗方式不同不少家长发现孩子高低肩、后背不对称，就会归咎于歪坐、趴桌看书，误以为只要纠正坐姿就能把脊柱掰回正常。
+今年以来，交易所已受理的商业不动产REITs拟募集资金规模，已超过去年全年REITs发行总量。
 
-实际上，脊柱侧弯分真性特发性脊柱侧弯和假性姿势性侧弯，二者成因、治疗方式截然不同。
+今年新上市REITs规模有望达到千亿元量级，将在盘活存量资产、扩大有效投资、完善资本市场生态等方面发挥重要作用。
 
-其实临床上占青少年脊柱侧弯的大部分是真性的特发性脊柱侧弯，和坐姿坏习惯无关，也无法通过调整姿势来矫正，目前研究的结果显示可能与基因、激素分泌、神经系统等存在一定关系，但并不能确定为明确的病因。
+A股罕见！
 
-北京大学人民医院脊柱外科主任医师、国家儿童青少年脊柱侧弯防控工作组组长 刘海鹰：特发性的侧弯是随着年龄增长，随着生长发育进入高峰出现的，这种需要早期发现，早期分步进行治疗，比如早期用特定的运动康复，中度是戴支具，如果是重一点的就得手术。
+不到7万块钱就成陕西旅游第8大股东 4月19日晚，陕西旅游一纸年报引发市场热议。
 
-特发性脊柱侧弯0—20°是轻度，20—40°是中度侧弯，大于40°的是重度。
+持有不足7万元的股票，便能跻身上市公司前十大股东，这在A股实属罕见。
 
 ## 相关推荐
 
-- 2026-06-29 11:32 - [派出所集体KTV招陪侍事发2年未通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:42 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:32 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:50 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:49 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:38 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:40 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:38 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:38 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:25 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:41 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:42 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:42 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:43 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:44 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:33 - [中国试飞院开放日 各型飞机引民众打卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:36 - [预测市场平台Polymarket计划募资4亿美元 估值达约150亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:35 - [总书记的关切·落地的回响｜中国式现代化要靠科技现代化作支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:30 - [林毅夫：中国式现代化的成功实践为全球发展中国家提供重要借鉴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:40 - [湖北城市足球联赛点燃民众热情 赛事流量变消费增量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:53 - [国际传播纪录片《大道——永远的长征》在北京启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:50 - [千年古刹云居山谷雨见闻：一叶“攒林茶” 农禅指尖传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:34 - [灿能电力拟每10股派息1.66元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:40 - [光鲜销售下的深层危机：亚盛医药的盈利困局与三大致命风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:50 - [东方证券收购上海证券，又多了一家“前途未卜”的公募，上海证券持有100%股权的前海联合基金咋办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:52 - [巴基斯坦称已为所有“特殊访客”做好特别安保安排](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:34 - [天臣控股拟折让21.05%配售最多7000万股 净筹约1.03亿港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:46 - [西南大学120周年校庆高质量发展大会举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:52 - [日本突发7.5级强震 震中附近有多个核电站](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:51 - [青海果洛：凝聚青年力量 共育民族团结之花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:36 - [F1奥地利大奖赛正赛集锦](http://www.share.minike.top/Article/details/06534558.shtml)
-- 2026-06-29 11:43 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.kurohicncr.top/Article/details/956876606.shtml)
-- 2026-06-29 11:23 - [神23乘组太空出差满月](https://www.share.kurohicncr.top/Article/details/43044.shtml)
-- 2026-06-29 11:26 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.kurohicncr.top/Article/details/304222481.shtml)
-- 2026-06-29 11:24 - [房屋抵押权与租赁权如何协调](http://www.share.minike.top/Article/details/9384271825.shtml)
-- 2026-06-29 11:43 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.minike.top/Article/details/45444333.shtml)
-- 2026-06-29 11:38 - [韩媒破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/205727653821.shtml)
-- 2026-06-29 11:41 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/488852.shtml)
-- 2026-06-29 11:26 - [美加墨世界杯首支16强诞生](https://www.blog.minike.top/Article/details/25654.shtml)
-- 2026-06-29 11:44 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/83070.shtml)
-- 2026-06-29 11:50 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/74987621.shtml)
-- 2026-06-29 11:49 - [王中磊儿子邹市明儿子曹格儿子同框](http://www.blog.minike.top/Article/details/0068479.shtml)
-- 2026-06-29 11:51 - [乌拉圭出局之路](https://www.share.minike.top/Article/details/74773957939.shtml)
-- 2026-06-29 11:28 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/72582.shtml)
-- 2026-06-29 11:31 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.kurohicncr.top/Article/details/06793475.shtml)
+- 2026-06-29 11:29 - [第44届香港电影金像奖红毯仪式举行](http://www.share.kurohicncr.top/Article/details/605033.shtml)
+- 2026-06-29 11:33 - [巴西Simpar以1.215亿雷亚尔出售Ciclus Amazônia股份](http://www.share.kurohicncr.top/Article/details/5041570545.shtml)
+- 2026-06-29 11:53 - [特朗普：若无法达成协议 或将不延长美伊临时停火](http://www.share.kurohicncr.top/Article/details/4289482.shtml)
+- 2026-06-29 11:32 - [霍尔木兹海峡开放后油价大跌，欧洲斯托克600指数涨逾1%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [国常会部署推动自贸试验区高质量发展](http://www.share.minike.top/Article/details/06115.shtml)
+- 2026-06-29 11:29 - [英国金融时报称欧盟拟放宽并购规则 培育全球冠军企业](http://www.blog.minike.top/Article/details/56216877.shtml)
+- 2026-06-29 11:39 - [“90后”侨青走进上海虹口 读懂城市文脉与发展活力](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [“寒潮”来袭！理财产品规模一季度缩水1.38万亿，投资者收益同比降低21%](http://www.share.kurohicncr.top/Article/details/18209148189.shtml)
+- 2026-06-29 11:26 - [一季度广东货物以海运方式经海南自贸港进出口同比增长25%](http://www.blog.kurohicncr.top/Article/details/363463190414.shtml)
+- 2026-06-29 11:40 - [特朗普过去24小时都忙了什么？（2026-04-19）](http://www.blog.minike.top/Article/details/3826789494.shtml)
+- 2026-06-29 11:25 - [A股“股王”更替见证中国经济新力量](http://www.share.kurohicncr.top/Article/details/284846258.shtml)
+- 2026-06-29 11:35 - [北京：香椿宴带动京郊游 衍生品丰富山村体验](http://www.blog.minike.top/Article/details/200826.shtml)
+- 2026-06-29 11:29 - [又见内幕交易？霍尔木兹开放前20分钟，神秘交易员7.6亿美元精准做空原油，已被调查](http://www.blog.minike.top/Article/details/89559703.shtml)
+- 2026-06-29 11:45 - [AI赋能文旅 2026西安丝路旅博会展示文旅科技新业态](http://www.blog.minike.top/Article/details/75821.shtml)
+- 2026-06-29 11:32 - [4月20日人民币对美元中间价报6.8648 下调26个基点](http://www.share.minike.top/Article/details/851712309.shtml)

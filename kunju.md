@@ -1,56 +1,61 @@
-# 刘伟当选基金业协会监事长
+# 三亚亚沙会临近 主媒体中心试运行赛事氛围渐浓
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月6日，中国证券投资基金业协会第四届会员代表大会举行，刘伟当选中国证券投资基金业协会第四届监事会监事长。 此前，刘伟担任中国证券投资基金业协会兼职副会长。 资料显示，刘伟，国投创合总经理，拥有30余年股权投资经验。2015年负责组建国投创合基金管理有限公司。 据悉，国投创合基金管理有限公司是国投集团旗下专
+中新网三亚4月17日电 (张月和)距第六届亚洲沙滩运动会(简称“三亚亚沙会”)开幕还有5天，一个为境内外媒体采访报道提供服务保障的主媒体中心已经在三亚投入试运行。 4月17日，参加“开局之年看中国·开放自贸港”网络主题传播活动的海内外媒体人，探访了三亚亚沙会主媒体中心，了解赛事各项工作的筹备情况，并感受亚沙风采。 三亚亚沙会是海南自贸港全岛封关运作之后迎来的首个国际大型综合性体
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网三亚4月17日电 (张月和)距第六届亚洲沙滩运动会(简称“三亚亚沙会”)开幕还有5天，一个为境内外媒体采访报道提供服务保障的主媒体中心已经在三亚投入试运行。
 
-6月6日，中国证券投资基金业协会第四届会员代表大会举行，刘伟当选中国证券投资基金业协会第四届监事会监事长。
+4月17日，参加“开局之年看中国·开放自贸港”网络主题传播活动的海内外媒体人，探访了三亚亚沙会主媒体中心，了解赛事各项工作的筹备情况，并感受亚沙风采。
 
-此前，刘伟担任中国证券投资基金业协会兼职副会长。
+三亚亚沙会是海南自贸港全岛封关运作之后迎来的首个国际大型综合性体育赛事，将于4月22日至30日举行。
 
-资料显示，刘伟，国投创合总经理，拥有30余年股权投资经验。
+本届亚沙会已接到来自境内外媒体的注册人员超1000人，其中境外媒体200余人，覆盖30多个国家和地区。
 
-2015年负责组建国投创合基金管理有限公司。
+当日，亚沙会主媒体中心内，部分境内外媒体记者已开始进驻开展工作。
 
-据悉，国投创合基金管理有限公司是国投集团旗下专业的引导基金及产业基金管理机构，直接管理规模超过900亿元，专注于战略性新兴产业、未来产业领域的股权投资、创业投资及基金投资，累计支持了4000多家创新型科技企业，其中约250家已上市，超过700家入选国家级专精特新“小巨人”。
+公共采访间、媒体工作间、新闻发布厅、官方信息服务办公室及网上新闻中心编审室等功能区域一应俱全。
 
-责任编辑：常福强
+媒体工作间配备约100个工位，设置赛事信号大屏，可实时观看所有赛事直播。
+
+据介绍，三亚亚沙会主媒体中心创新采用“主新闻中心、国际广播中心、官方媒体酒店”三合一模式，将报道、转播、住宿集于一体，为境内外媒体记者提供集约、高效、便捷的一站式服务。
 
 ## 相关推荐
 
-- 2026-06-29 11:24 - [三只羊线下课已下架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:49 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:35 - [陈丽君演出结束后饭撒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:24 - [丞磊莫离最后5集加起来集均3分钟戏份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:25 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:44 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:39 - [行程万里不忘初心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:42 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:51 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:23 - [埃博拉为何再次袭击非洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:48 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:35 - [哥伦比亚国家石油公司：Copoazú-1井测试结果预计6月底揭晓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:50 - [吉林大学春花绽放春意浓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:50 - [纽约汇市：美元第三周下跌 市场对伊朗和平前景乐观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:30 - [“东北超”推动文旅体商融合 无形资产变红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:29 - [台湾台中大甲妈祖起驾 开启九天八夜绕境活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:46 - [快讯：现货黄金回落至4750美元/盎司下方，日内跌1.76%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:44 - [拾光纪·“让互联网更好造福人民、造福世界”，总书记这样嘱托](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:48 - [山东菏泽：槐花飘香春滋味 特色槐花宴受欢迎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:28 - [涉“幽灵外卖”，抖音食品安全总监廖天博被罚超64万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:39 - [2026全球豫商大会启幕 AI与机器人企业青睐河南机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:51 - [苏林、查波访华为何要去广西、湖南？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:25 - [日本东北部沿海地区发生7.4级地震 已发布海啸警报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:33 - [（文化中国行）千年山歌的“数字迁徙”：从广西唱响东盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:42 - [度小满冠名《浪姐7》陷舆论反噬：透视助贷平台下沉的困局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:36 - [2026江苏省侨界中餐厨艺大赛在无锡启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:43 - [利率一再降 “存款搬家”搬去哪](https://www.blog.minike.top/Article/details/57045.shtml)
-- 2026-06-29 11:43 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/64335060.shtml)
-- 2026-06-29 11:51 - [和阿根廷球员家属一起看球](https://www.blog.kurohicncr.top/Article/details/70160407622.shtml)
-- 2026-06-29 11:28 - [虞书欣灿如繁星明天定档](http://www.share.minike.top/Article/details/61982353.shtml)
-- 2026-06-29 11:31 - [神23乘组太空出差满月](https://www.blog.kurohicncr.top/Article/details/3370642.shtml)
-- 2026-06-29 11:37 - [陈露发声引舆论反转](http://www.share.kurohicncr.top/Article/details/670793292.shtml)
-- 2026-06-29 11:51 - [爱很美味](https://www.share.kurohicncr.top/Article/details/67418327.shtml)
-- 2026-06-29 11:46 - [【独家】牧神记 第89集 明心](https://www.share.kurohicncr.top/Article/details/37398387.shtml)
-- 2026-06-29 11:43 - [为什么6月以来北方频繁降雨](http://www.share.kurohicncr.top/Article/details/3925382824.shtml)
-- 2026-06-29 11:44 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/37914723340.shtml)
-- 2026-06-29 11:37 - [iPhone18系列预计将大幅涨价](http://www.share.kurohicncr.top/Article/details/336917.shtml)
-- 2026-06-29 11:28 - [男子在家一丝不挂 邻居拍照发业主群](http://www.blog.kurohicncr.top/Article/details/9429078.shtml)
-- 2026-06-29 11:49 - [全球首发核电站彩蛋攻略](http://www.share.minike.top/Article/details/00268.shtml)
-- 2026-06-29 11:30 - [陈露发声引舆论反转](https://www.blog.kurohicncr.top/Article/details/556034044.shtml)
-- 2026-06-29 11:23 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/302019711.shtml)
+- 2026-06-29 11:53 - [千年古刹云居山谷雨见闻：一叶“攒林茶” 农禅指尖传](http://www.blog.minike.top/Article/details/7310314.shtml)
+- 2026-06-29 11:46 - [灿能电力拟每10股派息1.66元](http://www.blog.kurohicncr.top/Article/details/0680090170.shtml)
+- 2026-06-29 11:38 - [光鲜销售下的深层危机：亚盛医药的盈利困局与三大致命风险](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [东方证券收购上海证券，又多了一家“前途未卜”的公募，上海证券持有100%股权的前海联合基金咋办？](http://www.share.minike.top/Article/details/472138272979.shtml)
+- 2026-06-29 11:43 - [巴基斯坦称已为所有“特殊访客”做好特别安保安排](http://www.blog.kurohicncr.top/Article/details/9623258614.shtml)
+- 2026-06-29 11:36 - [天臣控股拟折让21.05%配售最多7000万股 净筹约1.03亿港元](http://www.blog.minike.top/Article/details/639712605959.shtml)
+- 2026-06-29 11:33 - [西南大学120周年校庆高质量发展大会举行](http://www.share.minike.top/Article/details/167370.shtml)
+- 2026-06-29 11:27 - [日本突发7.5级强震 震中附近有多个核电站](http://www.share.kurohicncr.top/Article/details/53553.shtml)
+- 2026-06-29 11:45 - [青海果洛：凝聚青年力量 共育民族团结之花](http://www.share.kurohicncr.top/Article/details/52790.shtml)
+- 2026-06-29 11:36 - [村里有了“小而美” 游客爱上“慢时光”](http://www.blog.minike.top/Article/details/53066542388.shtml)
+- 2026-06-29 11:46 - [广交会观察：中东局势扰动下参展商采购商同觅“新出路”](http://www.blog.kurohicncr.top/Article/details/46814621.shtml)
+- 2026-06-29 11:38 - [雄安新区首个戏曲特色工人文化宫正式投用](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:30 - [伊朗最高领袖：伊朗海军已准备好给敌人“新的惨败”](http://www.share.kurohicncr.top/Article/details/4749426.shtml)
+- 2026-06-29 11:31 - [习近平文化思想引领书香社会建设](http://www.blog.kurohicncr.top/Article/details/577052.shtml)
+- 2026-06-29 11:28 - [新疆和田县群众治沙：沙地成自家“聚宝盆”](http://www.share.minike.top/Article/details/479375159.shtml)

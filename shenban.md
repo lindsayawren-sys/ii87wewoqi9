@@ -1,61 +1,58 @@
-# 习近平出席金正恩举行的欢迎仪式
+# 丁薛祥出席土库曼斯坦鲁班工坊揭牌仪式并致辞
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-中新社平壤6月8日电 当地时间6月8日中午，朝鲜劳动党总书记、国务委员长金正恩在平壤金日成广场为中共中央总书记、国家主席习近平举行盛大欢迎仪式。 金日成广场正中悬挂着中朝两党两国最高领导人巨幅肖像，两旁以中朝双语书写的“朝中友谊万古长青”“牢不可破的朝中友谊团结万岁”标语格外醒目。两国国旗迎风飘展，欢迎人群兴高采烈、翘首以盼。 习近平和夫人彭丽媛乘车抵达时，马队骑兵列队迎接，军
+新华社阿什哈巴德4月17日电(记者安晓萌 周天翮)4月16日，中共中央政治局常委、国务院副总理丁薛祥在阿什哈巴德出席土库曼斯坦鲁班工坊揭牌仪式并致辞。 丁薛祥表示，中国政府高度重视职业教育国际合作，习近平主席多次亲自推动中国同友好国家合作设立鲁班工坊。作为中国职业教育的知名品牌，鲁班工坊已在全球30多个国家落地生根，成为中外技能互通、人文交流的重要纽带。 丁薛祥指出，建设土库曼
 
 ## 正文
 
-中新社平壤6月8日电 当地时间6月8日中午，朝鲜劳动党总书记、国务委员长金正恩在平壤金日成广场为中共中央总书记、国家主席习近平举行盛大欢迎仪式。
+新华社阿什哈巴德4月17日电(记者安晓萌 周天翮)4月16日，中共中央政治局常委、国务院副总理丁薛祥在阿什哈巴德出席土库曼斯坦鲁班工坊揭牌仪式并致辞。
 
-金日成广场正中悬挂着中朝两党两国最高领导人巨幅肖像，两旁以中朝双语书写的“朝中友谊万古长青”“牢不可破的朝中友谊团结万岁”标语格外醒目。
+丁薛祥表示，中国政府高度重视职业教育国际合作，习近平主席多次亲自推动中国同友好国家合作设立鲁班工坊。
 
-两国国旗迎风飘展，欢迎人群兴高采烈、翘首以盼。
+作为中国职业教育的知名品牌，鲁班工坊已在全球30多个国家落地生根，成为中外技能互通、人文交流的重要纽带。
 
-习近平和夫人彭丽媛乘车抵达时，马队骑兵列队迎接，军乐团奏欢迎曲。
+丁薛祥指出，建设土库曼斯坦鲁班工坊是中土元首达成的重要共识，也是首届中国-中亚峰会的重要成果。
 
-金正恩和夫人李雪主在广场迎接。
+这一项目从蓝图变为现实，为双方加强友好合作注入了新的动力。
 
-习近平夫妇和金正恩夫妇分别同对方陪同人员握手致意。
+丁薛祥对工坊建设提出3点希望：一是打造两国青年成长成才的重要平台，加强教育、科技和人才培训合作，突出“职普融通+产教融合”，积极为学生发展指引方向、拓展空间。
 
-两党两国最高领导人共同登上检阅台，军乐团奏中朝两国国歌，鸣放礼炮21响。
+二是打造能源合作提质升级的重要支撑，精准对接产业发展需求，围绕油气勘探开发等关键领域做好高素质技术技能人才定向培养，促进两国能源战略深度衔接、协同实施。
 
-习近平在金正恩陪同下，检阅朝鲜人民军三军仪仗队，仪仗队员用朝语高呼“祝习近平同志身体健康”。
+三是打造中土友谊薪火相传的重要桥梁，促进不同文明互学互鉴，让越来越多的青年成为传承中土友好事业的使者，持续夯实中土命运共同体的民间友好基础。
 
 ## 相关推荐
 
-- 2026-06-29 11:27 - [医护人员观影《四渡》传承长征精神](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:40 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:50 - [换个角度打开世界杯淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:43 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:26 - [白玉兰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:52 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:29 - [BW2026游览指南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:29 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:30 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:39 - [Gucci全球首席营销官发肖战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:42 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:44 - [19家A股上市公司发布上半年业绩预告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:45 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:28 - [薛之谦演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:46 - [台湾织娘连美惠：一根丝线牵两岸 一幅织锦绣同心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:35 - [欧洲央行管委Kazaks：下一步利率行动未必会是加息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:41 - [CBA常规赛：辽宁主场收官战不敌浙江](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:47 - [拟收购上海证券100%股权！东方证券，最新公告！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:31 - [经济观察：新时期中德创新合作的机遇与前景在哪里？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:40 - [亚太卫星午前涨近9% 公司为中国卫通控股子公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:41 - [中共早期历史红色场馆联盟主题交流暨中共山东早期历史沉浸式思政课活动在济南举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:26 - [树立和践行正确政绩观丨知行合一 务求实效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:50 - [百余人形机器人在京跑半马 “百家争鸣”彰显行业级跨越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:51 - [中越企业昆明面对面交流 碰撞合作机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:41 - [中国经济圆桌会丨群核科技：让更多企业和消费者体验高效便捷的空间智能服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:28 - [严惩“网络黑嘴”造谣诋毁 最高法例举涉胖某公司案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:47 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/06362.shtml)
-- 2026-06-29 11:28 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/450554407.shtml)
-- 2026-06-29 11:34 - [杨紫李现16年情谊藏于行动](http://www.share.minike.top/Article/details/291951774.shtml)
-- 2026-06-29 11:48 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/0173957.shtml)
-- 2026-06-29 11:34 - [中方回应对日本相关出口管制措施](http://www.blog.minike.top/Article/details/813169722.shtml)
-- 2026-06-29 11:34 - [一见倾心](http://www.blog.minike.top/Article/details/98010.shtml)
-- 2026-06-29 11:41 - [加拿大队史淘汰赛首胜](http://www.blog.kurohicncr.top/Article/details/404126.shtml)
-- 2026-06-29 11:32 - [F1奥地利正赛战报](http://www.share.minike.top/Article/details/19721569109.shtml)
-- 2026-06-29 11:52 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/34778972.shtml)
-- 2026-06-29 11:51 - [行程万里不忘初心](https://www.share.minike.top/Article/details/1852901644.shtml)
-- 2026-06-29 11:28 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.minike.top/Article/details/1158234968.shtml)
-- 2026-06-29 11:35 - [唐艺昕女儿接唐艺昕回家](http://www.blog.kurohicncr.top/Article/details/5252274.shtml)
-- 2026-06-29 11:35 - [日媒称韩国史诗级上上签终成噩梦](https://www.blog.kurohicncr.top/Article/details/507097796243.shtml)
-- 2026-06-29 11:26 - [普京称俄处于命运攸关之际](http://www.share.minike.top/Article/details/579298.shtml)
-- 2026-06-29 11:25 - [如何“亲菌子”又“远小人儿”](http://www.blog.kurohicncr.top/Article/details/72788638.shtml)
+- 2026-06-29 11:33 - [吉韵东方入春城 中国华服周展示古韵风华](http://www.share.kurohicncr.top/Article/details/76244281.shtml)
+- 2026-06-29 11:44 - [中国经济圆桌会丨消博会是一个至关重要窗口](http://www.share.minike.top/Article/details/7829343516.shtml)
+- 2026-06-29 11:38 - [三问首季经济：形如何，亮在哪，势怎样？](http://www.blog.kurohicncr.top/Article/details/144975594339.shtml)
+- 2026-06-29 11:45 - [泰国类鼻疽疫情今年已确诊732例死亡23例](http://www.blog.minike.top/Article/details/1554578624.shtml)
+- 2026-06-29 11:46 - [受伊朗战争影响，尿素化肥价格高企，阿根廷小麦生产面临威胁](http://www.share.kurohicncr.top/Article/details/883410319.shtml)
+- 2026-06-29 11:31 - [视频｜李在明首次访印 涉霍尔木兹海峡 呼吁韩印联手](http://www.blog.kurohicncr.top/Article/details/087616064.shtml)
+- 2026-06-29 11:53 - [中国驻日使馆连遭威胁 外交部四字警告日方](http://www.blog.kurohicncr.top/Article/details/26093722.shtml)
+- 2026-06-29 11:26 - [广西岑溪“村味擂台”亮相“三月三” 民俗与文明集市“双向奔赴”](http://www.blog.kurohicncr.top/Article/details/851235801.shtml)
+- 2026-06-29 11:41 - [广西财政强化资金保障 筑牢基层应急管理“第一道防线”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [广西百色5岁走失男童已不幸身亡，当地通报](http://www.blog.minike.top/Article/details/30891890246.shtml)
+- 2026-06-29 11:25 - [中国·荆州2026全国历史文化名城羽毛球邀请赛开幕](http://www.blog.kurohicncr.top/Article/details/43636.shtml)
+- 2026-06-29 11:51 - [中国创新正在全方位加速突破](http://www.blog.minike.top/Article/details/03318.shtml)
+- 2026-06-29 11:30 - [酒价内参4月20日价格发布：茅台系领涨 总价升至九日高位](http://www.share.kurohicncr.top/Article/details/68868.shtml)
+- 2026-06-29 11:46 - [蓝莓价格走低 国产品种研发多点推进](http://www.blog.kurohicncr.top/Article/details/705576971.shtml)
+- 2026-06-29 11:26 - [宁夏兴庆大漠黄河徒步大会启幕 千余人乐享春日文旅健身行](http://www.blog.kurohicncr.top/Article/details/858684.shtml)

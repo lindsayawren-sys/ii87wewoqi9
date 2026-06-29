@@ -1,57 +1,59 @@
-# 伊朗与巴基斯坦两国内政部长会面 讨论地区局势等问题
+# 一季度甘肃进出口规模创历史新高：出海商品向新向绿
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-当地时间6日晚，伊朗内政部长莫梅尼会见了到访的巴基斯坦内政部长纳克维。 莫梅尼表示，巴基斯坦内政部长此次访问的部分内容将聚焦双边问题，包括边境安全、禁毒和反恐。此外，双方在经济领域决定将两国间的年度贸易额从30亿美元提高到100亿美元。莫梅尼称，伊朗赞赏巴基斯坦在缓和伊朗与美国紧张关系方面发挥的积极作用。 纳克维表示，伊朗和巴基斯坦有着兄弟般的关系，希望在巴基斯坦官员的努力下，
+中新网兰州4月17日电 (记者 冯志军)兰州海关17日举行2026年一季度甘肃省外贸数据新闻发布会称，一季度甘肃外贸进出口总值221.6亿元(人民币，下同)，同比(下同)增长12.6%，进出口规模创历史新高。 “出口商品向新向绿”是一季度甘肃外贸的特点之一。兰州海关党委委员、副关长齐志宇介绍说，甘肃坚持以科技创新提升产品附加值，以绿色低碳转型顺应国际发展趋势，加快优化外贸商品结
 
 ## 正文
 
-当地时间6日晚，伊朗内政部长莫梅尼会见了到访的巴基斯坦内政部长纳克维。
+中新网兰州4月17日电 (记者 冯志军)兰州海关17日举行2026年一季度甘肃省外贸数据新闻发布会称，一季度甘肃外贸进出口总值221.6亿元(人民币，下同)，同比(下同)增长12.6%，进出口规模创历史新高。
 
-莫梅尼表示，巴基斯坦内政部长此次访问的部分内容将聚焦双边问题，包括边境安全、禁毒和反恐。
+“出口商品向新向绿”是一季度甘肃外贸的特点之一。
 
-此外，双方在经济领域决定将两国间的年度贸易额从30亿美元提高到100亿美元。
+兰州海关党委委员、副关长齐志宇介绍说，甘肃坚持以科技创新提升产品附加值，以绿色低碳转型顺应国际发展趋势，加快优化外贸商品结构。
 
-莫梅尼称，伊朗赞赏巴基斯坦在缓和伊朗与美国紧张关系方面发挥的积极作用。
+一季度甘肃出口机电产品17.6亿元，增长13.8%，其中集成电路、汽车分别出口3.3亿元、2亿元，分别增长8%、273.3%。
 
-纳克维表示，伊朗和巴基斯坦有着兄弟般的关系，希望在巴基斯坦官员的努力下，地区危机能够尽快结束。
+据统计，一季度甘肃农产品出口10亿元，增长11%。
 
-本次访问是为了向伊朗最高领袖穆杰塔巴递交巴基斯坦陆军参谋长穆尼尔和总理谢里夫关于当前局势的特别信函。
+新能源装备出口2.9亿元，增长151.7%，“新三样”产品(电动汽车、光伏产品、锂电池)出口2.6亿元，增长125.9%，其中光伏产品出口1.3亿元，增长24.5%，电动汽车出口1.2亿元，增长11.6倍。
 
-纳克维提到，“我认为这条信息非常重要。
+一季度甘肃对共建“一带一路”国家进出口增长8.4%，占该省外贸总值逾七成。
 
-希望一切顺利，危机早日结束。
+兰州海关综合业务二处处长刘杰表示，该关持续围绕甘肃特色出口产品，比对共建“一带一路”国家标准，推动国内国际标准接轨。
 
 ## 相关推荐
 
-- 2026-06-29 11:28 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:23 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:25 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:23 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:43 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:46 - [晋城暴雨车辆被淹冰箱在水中漂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:43 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:52 - [去美国加油？部分加拿大球迷陷入纠结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:31 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:44 - [强⁶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:22 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:48 - [亚太卫星午前涨近9% 公司为中国卫通控股子公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:32 - [中共早期历史红色场馆联盟主题交流暨中共山东早期历史沉浸式思政课活动在济南举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:45 - [树立和践行正确政绩观丨知行合一 务求实效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:46 - [百余人形机器人在京跑半马 “百家争鸣”彰显行业级跨越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:41 - [中越企业昆明面对面交流 碰撞合作机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:28 - [中国经济圆桌会丨群核科技：让更多企业和消费者体验高效便捷的空间智能服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:25 - [严惩“网络黑嘴”造谣诋毁 最高法例举涉胖某公司案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:53 - [演员何润东披项羽铠甲助阵“苏超”宿迁队新赛季首秀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:29 - [中国将对53个非洲建交国全面零关税 湖南对非贸易迎新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:49 - [特朗普称美国官员将赴巴基斯坦参与谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:29 - [受以色列-黎巴嫩停火消息影响，油价下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:35 - [CBA常规赛第40轮：福建客场战胜广东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:39 - [江苏扬州第十届“春的律动”举行：文艺添彩好地方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:29 - [韩国队启程回国众将回避镜头](https://www.share.kurohicncr.top/Article/details/482079.shtml)
-- 2026-06-29 11:43 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/652727354569.shtml)
-- 2026-06-29 11:44 - [宜宾5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/55858.shtml)
-- 2026-06-29 11:25 - [中国U17男篮78-87加拿大U17男篮](http://www.blog.kurohicncr.top/Article/details/336413995564.shtml)
-- 2026-06-29 11:41 - [香港航天员黎家盈带招牌笑容工作](https://www.blog.minike.top/Article/details/3805771998.shtml)
-- 2026-06-29 11:23 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/65181413025.shtml)
-- 2026-06-29 11:25 - [三轮车被自家狗“推”进池塘](http://www.blog.kurohicncr.top/Article/details/67091.shtml)
-- 2026-06-29 11:25 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/1584984.shtml)
-- 2026-06-29 11:37 - [晋城暴雨车辆被淹冰箱在水中漂](http://www.share.minike.top/Article/details/375060306.shtml)
-- 2026-06-29 11:46 - [埃博拉为何再次袭击非洲](http://www.share.minike.top/Article/details/423817.shtml)
-- 2026-06-29 11:32 - [高考志愿今起开始填报](http://www.blog.kurohicncr.top/Article/details/226258.shtml)
-- 2026-06-29 11:26 - [俄政府批准巩固俄语地位行动计划](http://www.share.kurohicncr.top/Article/details/660606592605.shtml)
-- 2026-06-29 11:52 - [啊啊啊](http://www.share.minike.top/Article/details/15466867.shtml)
-- 2026-06-29 11:24 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/36258.shtml)
-- 2026-06-29 11:25 - [志愿选择倒计时！浙大学生送祝福](https://www.share.minike.top/Article/details/1946782.shtml)
+- 2026-06-29 11:33 - [视频｜李在明首次访印 涉霍尔木兹海峡 呼吁韩印联手](http://www.blog.kurohicncr.top/Article/details/2833206.shtml)
+- 2026-06-29 11:53 - [中国驻日使馆连遭威胁 外交部四字警告日方](http://www.share.kurohicncr.top/Article/details/94608484.shtml)
+- 2026-06-29 11:40 - [广西岑溪“村味擂台”亮相“三月三” 民俗与文明集市“双向奔赴”](http://www.share.minike.top/Article/details/893667.shtml)
+- 2026-06-29 11:42 - [广西财政强化资金保障 筑牢基层应急管理“第一道防线”](http://www.share.minike.top/Article/details/25136.shtml)
+- 2026-06-29 11:29 - [广西百色5岁走失男童已不幸身亡，当地通报](http://www.share.minike.top/Article/details/20741117.shtml)
+- 2026-06-29 11:42 - [中国·荆州2026全国历史文化名城羽毛球邀请赛开幕](http://www.share.minike.top/Article/details/922226045.shtml)
+- 2026-06-29 11:49 - [中国创新正在全方位加速突破](http://www.blog.kurohicncr.top/Article/details/423856173416.shtml)
+- 2026-06-29 11:43 - [酒价内参4月20日价格发布：茅台系领涨 总价升至九日高位](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [蓝莓价格走低 国产品种研发多点推进](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [宁夏兴庆大漠黄河徒步大会启幕 千余人乐享春日文旅健身行](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:24 - [“战火重燃”：船只遭扣押、遇袭，美伊停火协议濒临破裂](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [山东菏泽：一株三并蒂的“墨润绝伦”牡丹盛放](http://www.blog.minike.top/Article/details/19268285.shtml)
+- 2026-06-29 11:35 - [曾黎、李志希领衔主演 话剧《寻味》登陆广州大剧院](http://www.share.kurohicncr.top/Article/details/0578955.shtml)
+- 2026-06-29 11:44 - [“10天订单涨2万+” 张雪机车夺冠后 广交会现场火爆吸睛](http://www.blog.kurohicncr.top/Article/details/62183.shtml)
+- 2026-06-29 11:26 - [A股收评：超3400只个股飘红，沪指、深指收涨，创业板指收跌](https://github.com/lisacumin64-arch)

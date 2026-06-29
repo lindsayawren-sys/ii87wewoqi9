@@ -1,58 +1,58 @@
-# 成都双流广都社区：不同民族居民从“邻居”变成“一家人”
+# 欧洲央行管委Kazaks：下一步利率行动未必会是加息
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-中新网成都6月6日电 题：成都双流广都社区：不同民族居民从“邻居”变成“一家人” 记者 王鹏 傍晚时分，成都市双流区东升街道广都社区文化活动室里热闹起来。长桌旁，十多名居民围坐在一起穿珠、钩织、做藤编，不时有人举起刚完成的民族风挂件互相展示。 “你看我这个漂不漂亮？”一位居民把作品发进微信群，很快收获一片点赞。这样的场景，在广都社区已是常态。 作为一个多民族聚居社区，广都社区居
+欧洲央行管理委员会成员Martins Kazaks表示，欧洲央行下一步利率行动未必会是加息。 尽管他目前认为没有理由质疑市场对今年加息两次的预期，但这只是多种可能情形之一。与此同时，政策制定者仍有时间评估伊朗战争对经济造成的损害。 “如果短缺迅速出现，并使经济更接近衰退，那么通胀压力可能会明显减弱，”Kazaks在华盛顿接受采访时表示。“届时，货币政策当然可能需要朝相反方向调整
 
 ## 正文
 
-中新网成都6月6日电 题：成都双流广都社区：不同民族居民从“邻居”变成“一家人” 记者 王鹏 傍晚时分，成都市双流区东升街道广都社区文化活动室里热闹起来。
+欧洲央行管理委员会成员Martins Kazaks表示，欧洲央行下一步利率行动未必会是加息。
 
-长桌旁，十多名居民围坐在一起穿珠、钩织、做藤编，不时有人举起刚完成的民族风挂件互相展示。
+尽管他目前认为没有理由质疑市场对今年加息两次的预期，但这只是多种可能情形之一。
 
-“你看我这个漂不漂亮？
+与此同时，政策制定者仍有时间评估伊朗战争对经济造成的损害。
 
-”一位居民把作品发进微信群，很快收获一片点赞。
+“如果短缺迅速出现，并使经济更接近衰退，那么通胀压力可能会明显减弱，”Kazaks在华盛顿接受采访时表示。
 
-这样的场景，在广都社区已是常态。
+“届时，货币政策当然可能需要朝相反方向调整，”他表示，“你可能需要降息。
 
-作为一个多民族聚居社区，广都社区居住着汉族、藏族、苗族、回族等多个民族居民。
+” 官员们正在评估中东地区能源供应中断对经济的影响。
 
-近年来，随着城市化推进，不少来自甘孜、阿坝等地的民众来到这里生活。
+在欧洲，通胀已超越2%的目标，信心大幅下滑，冲突能否得到持久解决仍不确定。
 
-如何让不同民族、不同生活背景的居民真正融入彼此，逐渐成为社区治理中的一道现实课题。
+尽管欧洲央行表示必要时准备采取行动，但官员们可能会在本月会议上按兵不动。
 
 ## 相关推荐
 
-- 2026-06-29 11:43 - [韩媒一片哀嚎：没有奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:38 - [谢霆锋演唱会变大型呲水现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:39 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:22 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:44 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:45 - [初心如磐 红色足迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:52 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:51 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:32 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:26 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:34 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:47 - [百余人形机器人在京跑半马 “百家争鸣”彰显行业级跨越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:45 - [中越企业昆明面对面交流 碰撞合作机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:46 - [中国经济圆桌会丨群核科技：让更多企业和消费者体验高效便捷的空间智能服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:50 - [严惩“网络黑嘴”造谣诋毁 最高法例举涉胖某公司案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:51 - [演员何润东披项羽铠甲助阵“苏超”宿迁队新赛季首秀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:25 - [中国将对53个非洲建交国全面零关税 湖南对非贸易迎新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:47 - [特朗普称美国官员将赴巴基斯坦参与谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:32 - [受以色列-黎巴嫩停火消息影响，油价下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:47 - [CBA常规赛第40轮：福建客场战胜广东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:47 - [江苏扬州第十届“春的律动”举行：文艺添彩好地方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:34 - [香港财政司司长陈茂波：Web3+AI重塑全球金融生态 须确保人类主控干预 完善跨境监管与权责划分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:45 - [联合国秘书长欢迎伊朗宣布完全开放霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:42 - [宜宾5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/46128511.shtml)
-- 2026-06-29 11:48 - [105年初心滚烫](https://www.blog.minike.top/Article/details/85461.shtml)
-- 2026-06-29 11:34 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/4445626230.shtml)
-- 2026-06-29 11:29 - [人民日报：伊朗队昂着头告别世界杯](https://www.share.kurohicncr.top/Article/details/6466505.shtml)
-- 2026-06-29 11:36 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.minike.top/Article/details/962334498.shtml)
-- 2026-06-29 11:24 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.minike.top/Article/details/18314.shtml)
-- 2026-06-29 11:38 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://www.blog.kurohicncr.top/Article/details/2141092264.shtml)
-- 2026-06-29 11:34 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.kurohicncr.top/Article/details/72739990.shtml)
-- 2026-06-29 11:25 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.kurohicncr.top/Article/details/5930732.shtml)
-- 2026-06-29 11:28 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.blog.kurohicncr.top/Article/details/8614232.shtml)
-- 2026-06-29 11:29 - [陈垣宇晋级WTT美国大满贯男单32强](https://www.share.minike.top/Article/details/467747965.shtml)
-- 2026-06-29 11:38 - [刘烨16岁儿子诺一颜值](https://www.share.minike.top/Article/details/23553352.shtml)
-- 2026-06-29 11:35 - [马斯克也站到了光里](https://www.blog.minike.top/Article/details/4437728.shtml)
-- 2026-06-29 11:23 - [丞磊莫离最后5集加起来集均3分钟戏份](https://www.share.minike.top/Article/details/51987.shtml)
-- 2026-06-29 11:35 - [香港航天员黎家盈带招牌笑容工作](http://www.share.minike.top/Article/details/63252.shtml)
+- 2026-06-29 11:34 - [广西财政强化资金保障 筑牢基层应急管理“第一道防线”](http://www.blog.minike.top/Article/details/86585163.shtml)
+- 2026-06-29 11:53 - [广西百色5岁走失男童已不幸身亡，当地通报](http://www.blog.kurohicncr.top/Article/details/806009186141.shtml)
+- 2026-06-29 11:31 - [中国·荆州2026全国历史文化名城羽毛球邀请赛开幕](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [中国创新正在全方位加速突破](http://www.share.minike.top/Article/details/0984158626.shtml)
+- 2026-06-29 11:43 - [酒价内参4月20日价格发布：茅台系领涨 总价升至九日高位](http://www.blog.kurohicncr.top/Article/details/45932934.shtml)
+- 2026-06-29 11:38 - [蓝莓价格走低 国产品种研发多点推进](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [宁夏兴庆大漠黄河徒步大会启幕 千余人乐享春日文旅健身行](http://www.blog.kurohicncr.top/Article/details/80828596.shtml)
+- 2026-06-29 11:48 - [“战火重燃”：船只遭扣押、遇袭，美伊停火协议濒临破裂](http://www.blog.minike.top/Article/details/8672447345.shtml)
+- 2026-06-29 11:35 - [山东菏泽：一株三并蒂的“墨润绝伦”牡丹盛放](http://www.blog.minike.top/Article/details/012920.shtml)
+- 2026-06-29 11:51 - [曾黎、李志希领衔主演 话剧《寻味》登陆广州大剧院](http://www.share.minike.top/Article/details/333269861457.shtml)
+- 2026-06-29 11:28 - [“10天订单涨2万+” 张雪机车夺冠后 广交会现场火爆吸睛](http://www.blog.kurohicncr.top/Article/details/679905667.shtml)
+- 2026-06-29 11:42 - [A股收评：超3400只个股飘红，沪指、深指收涨，创业板指收跌](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [油气价格大跌 受霍尔木兹海峡开放和止战希望影响](http://www.blog.kurohicncr.top/Article/details/811908916.shtml)
+- 2026-06-29 11:31 - [伊朗：将再次关闭霍尔木兹海峡](http://www.share.kurohicncr.top/Article/details/7853117.shtml)
+- 2026-06-29 11:27 - [百胜中国于4月17日斥资773.82万港元回购2.07万股](http://www.share.kurohicncr.top/Article/details/09187171.shtml)

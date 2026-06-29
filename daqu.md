@@ -1,57 +1,61 @@
-# 云南曲靖：扬帆出海 开放拓局
+# 男子潜伏通风管道9小时盗走百万黄金 3次换装终难逃法网
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-从乌蒙山腹地到南亚东南亚市场，从传统农业到“新三样”出口，从单打独斗到抱团出海——近年来，曲靖市主动服务和融入国家发展战略，紧扣“面向南亚东南亚辐射中心重要支撑区”的建设定位，持续优化营商环境，外贸经济交出了一份亮眼答卷。2026年一季度，全市外贸进出口总额达9.4亿元，同比增长56%，增速高于全省平均水平40.4个百分点。这份成绩背后，是一座内陆城市以开放促发展的生动实践。
+一夜之间，金店内价值140余万的黄金饰品不翼而飞，这是发生在四川崇州的一起黄金窃案。 在现场，商场大门及周边并没有被破坏入侵的痕迹，窃贼为何能“来去自如”呢？不仅如此，这个狡猾的窃贼还精准地切断了金店内的电源，但他不曾料到，商场内其他店铺的安防视频记录下了他盗窃的全过程。 切断金店电源 盗走140万元金饰 事发当日商场内的视频画面显示，凌晨3点14分，一个蒙面的黑衣男子蹑手蹑脚
 
 ## 正文
 
-从乌蒙山腹地到南亚东南亚市场，从传统农业到“新三样”出口，从单打独斗到抱团出海——近年来，曲靖市主动服务和融入国家发展战略，紧扣“面向南亚东南亚辐射中心重要支撑区”的建设定位，持续优化营商环境，外贸经济交出了一份亮眼答卷。
+一夜之间，金店内价值140余万的黄金饰品不翼而飞，这是发生在四川崇州的一起黄金窃案。
 
-2026年一季度，全市外贸进出口总额达9.4亿元，同比增长56%，增速高于全省平均水平40.4个百分点。
+在现场，商场大门及周边并没有被破坏入侵的痕迹，窃贼为何能“来去自如”呢？
 
-这份成绩背后，是一座内陆城市以开放促发展的生动实践。
+不仅如此，这个狡猾的窃贼还精准地切断了金店内的电源，但他不曾料到，商场内其他店铺的安防视频记录下了他盗窃的全过程。
 
-“新三样”领跑，特色农产品“出海” 走进曲靖经开区曲靖亿纬锂能的生产车间，一条条自动化生产线正高速运转。
+切断金店电源 盗走140万元金饰 事发当日商场内的视频画面显示，凌晨3点14分，一个蒙面的黑衣男子蹑手蹑脚地从金店隔壁走了出来。
 
-今年3月，这家企业成功获评云南省新能源电池领域首家、曲靖市首家海关AEO高级认证企业，成为曲靖企业国际化发展的一张亮丽名片。
+此时，他手提塑料袋，脚上没有穿鞋，似乎在寻找着什么。
 
-“AEO高级认证是中国海关企业信用管理的最高等级，目前在昆明海关关区企业中占比仅0.8‰。
+紧接着，这名男子走进了金店，准确地切断店内电源后，开始疯狂盗窃柜台内的黄金饰品。
 
-”曲靖经开区相关负责人介绍，自2024年6月起，曲靖亿纬锂能分阶段建成3条先进磷酸铁锂圆柱电池生产线，实现“当年投产、当年见效、次年扩能”。
+上午九点半，金店的店员张女士前来开门营业时，柜台狼藉、金饰无踪的场景，让她大吃一惊。
 
-目前，公司月产能达1300万颗高能量密度电芯，产品深受海内外客户青睐，已成为西南地区锂电池制造的核心基地。
+经过初步估计，店铺被盗金饰总重量达1800多克，根据时价，金店的损失起码在140万元以上。
 
 ## 相关推荐
 
-- 2026-06-29 11:48 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:23 - [世界杯小组赛阶段过人榜：马扎居首](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:41 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:51 - [凯恩何时能拿到国际大赛冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:42 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:40 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:35 - [香港航天员黎家盈带招牌笑容工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:39 - [李在明要调查韩国队出局原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:38 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:32 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:34 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:24 - [中国证监会就《违规转让证券案件行政处罚实施规则（征求意见稿）》公开征求意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:50 - [全球乱局中，中国这块“金字招牌”越来越亮了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:29 - [美菲启动年度联合军演，外交部：一味在安全上相互捆绑只会引火烧身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:52 - [2026年中国香港（地区）商会京港地铁体育嘉年华活动举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:45 - [极氪8X正式上市：首次搭载舱驾融合超级智能体，上市限时售价32.98万元起](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:46 - [“患者被引荐至私立医院” 涉事医生被停止诊疗并终止聘用合同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:25 - [东方证券与上海证券筹划合并重组，加快推进一流现代投资银行建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:38 - [涉案金额2.6亿元，我国摧毁山西特大假酒网络](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:48 - [浦发银行与中国银联签署全面战略合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:37 - [让机器人跑马拉松有什么用？专家：先带动技术发展 再逐步落地应用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:37 - [实拍江西上饶“三月三”篝火联欢现场 民众踏歌起舞庆佳节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:40 - [万众期待的“霸王”来了！“宿迁子弟何在？”何润东身披甲胄亮相“苏超”现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:37 - [BOSS直聘-W于4月17日耗资约249.65万美元回购约34.97万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:52 - [去年翻倍赚钱的基金，今年怎么样了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:51 - [巴西、西班牙和墨西哥联合呼吁采取措施缓解古巴局势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:30 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/158844494.shtml)
-- 2026-06-29 11:50 - [撒旦的腋窝是什么比喻](http://www.share.minike.top/Article/details/799962546.shtml)
-- 2026-06-29 11:52 - [俄军新型无人机战力如何](http://www.share.minike.top/Article/details/8612038756.shtml)
-- 2026-06-29 11:40 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/8256550469.shtml)
-- 2026-06-29 11:26 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/63085.shtml)
-- 2026-06-29 11:41 - [职业选手禁止参赛！](http://www.share.kurohicncr.top/Article/details/56120.shtml)
-- 2026-06-29 11:44 - [当我回母校教书](https://www.blog.kurohicncr.top/Article/details/52631032455.shtml)
-- 2026-06-29 11:37 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/4471220208.shtml)
-- 2026-06-29 11:42 - [国乒全主力参加美国大满贯](https://www.share.kurohicncr.top/Article/details/94325781.shtml)
-- 2026-06-29 11:30 - [毒液2](http://www.share.kurohicncr.top/Article/details/840801.shtml)
-- 2026-06-29 11:50 - [韩国队如何把94%出线概率打到0%](http://www.blog.minike.top/Article/details/5957551482.shtml)
-- 2026-06-29 11:41 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://www.blog.kurohicncr.top/Article/details/1796897.shtml)
-- 2026-06-29 11:44 - [特里：法国是世界杯夺冠热门](https://www.share.kurohicncr.top/Article/details/595897903471.shtml)
-- 2026-06-29 11:35 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.minike.top/Article/details/545569269.shtml)
-- 2026-06-29 11:52 - [委内瑞拉地震死亡人数升至1450人](http://www.share.kurohicncr.top/Article/details/11543.shtml)
+- 2026-06-29 11:43 - [翰墨因缘聚花海 两岸书画家走进洛阳国家牡丹园采风](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [新易盛传考虑赴香港上市，计划募资30亿美元](http://www.share.kurohicncr.top/Article/details/89252871.shtml)
+- 2026-06-29 11:43 - [LPR连续11个月“按兵不动”，年内还有降息空间吗？](http://www.blog.kurohicncr.top/Article/details/46007355507.shtml)
+- 2026-06-29 11:45 - [农业农村部部署2026年种业监管执法工作](http://www.share.minike.top/Article/details/2237193820.shtml)
+- 2026-06-29 11:29 - [赓续海归先贤精神 上海海归青年插画展开幕](http://www.blog.minike.top/Article/details/504335.shtml)
+- 2026-06-29 11:33 - [中国高尔夫球巡回赛·绍兴站举行 多国选手挥杆竞逐](http://www.share.kurohicncr.top/Article/details/748499872955.shtml)
+- 2026-06-29 11:46 - [伊朗外长称霍尔木兹海峡开放 油气价格大跌](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [“中国菠萝之乡”徐闻举办百年菠萝文化旅游嘉年华](http://www.share.minike.top/Article/details/930036.shtml)
+- 2026-06-29 11:33 - [百面崇阳铜鼓奏响“楚超”咸宁主场](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [天喻信息（300205）被预处罚，股民索赔可期](http://www.blog.minike.top/Article/details/970691440338.shtml)
+- 2026-06-29 11:28 - [经济冲击逼近，以色列央行行长寄望和平](http://www.blog.minike.top/Article/details/36724382.shtml)
+- 2026-06-29 11:52 - [中英文双语绘本《埃德加·斯诺的红星之旅》首发式在西安举行](http://www.share.kurohicncr.top/Article/details/563330475.shtml)
+- 2026-06-29 11:24 - [专家：金价翻倍没有悬念](http://www.blog.kurohicncr.top/Article/details/06892.shtml)
+- 2026-06-29 11:29 - [从反对到支持，台湾姑娘含泪读妈妈短信：在大陆追梦，为和平统一发光](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [斯诺克世锦赛：丁俊晖暂时领先吉尔伯特 肖国栋淘汰周跃龙晋级](http://www.blog.kurohicncr.top/Article/details/227811952516.shtml)

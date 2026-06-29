@@ -1,60 +1,56 @@
-# 高管“桃色”传闻发酵，300476紧急回应！
+# 国际传播纪录片《大道——永远的长征》在北京启动
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-来源：华夏时报 近日，网上出现了涉及胜宏科技高管的传闻。 6月8日上午，胜宏科技方面向记者表示，公司已关注到相关信息，但网传视频及相关信息所反映的内容与公司的生产经营活动无关，亦不涉及公司治理、内部控制或任何应披露的重大信息。该等事项不会对公司的日常经营造成任何影响。 胜宏科技称，当前公司生产经营活动一切正常、订单充沛，各项工作均在有序推进中。 6月6日，昵称为“珍珍Janic
+中新网北京4月18日电 (刘梦青)在红军长征胜利90周年之际，国际传播纪录片《大道——永远的长征》启动仪式于4月18日在北京举行。该片旨在以光影为媒、以国际视角为桥，向世界讲述长征故事，让伟大的长征精神在新时代持续焕发光彩。 中国外文局局长常勃，中国共产党历史展览馆党委书记、馆长李宗远，中国外文局中东欧与中南亚传播中心(人民画报社)主任姜永钢，中宣部宣传舆情研究中心党委委员、副
 
 ## 正文
 
-来源：华夏时报 近日，网上出现了涉及胜宏科技高管的传闻。
+中新网北京4月18日电 (刘梦青)在红军长征胜利90周年之际，国际传播纪录片《大道——永远的长征》启动仪式于4月18日在北京举行。
 
-6月8日上午，胜宏科技方面向记者表示，公司已关注到相关信息，但网传视频及相关信息所反映的内容与公司的生产经营活动无关，亦不涉及公司治理、内部控制或任何应披露的重大信息。
+该片旨在以光影为媒、以国际视角为桥，向世界讲述长征故事，让伟大的长征精神在新时代持续焕发光彩。
 
-该等事项不会对公司的日常经营造成任何影响。
+中国外文局局长常勃，中国共产党历史展览馆党委书记、馆长李宗远，中国外文局中东欧与中南亚传播中心(人民画报社)主任姜永钢，中宣部宣传舆情研究中心党委委员、副主任叶再春等联合出品方代表，纪录片主创团队，中央主流媒体记者，专家学者及青年代表等80余人出席启动仪式。
 
-胜宏科技称，当前公司生产经营活动一切正常、订单充沛，各项工作均在有序推进中。
+今年是中国工农红军长征胜利90周年。
 
-6月6日，昵称为“珍珍Janice”的用户在社交媒体发布多条涉及胜宏科技董事长陈涛的私生活信息，其中一则视频画面显示一名中年男子与一位白衣女子在电梯中亲密互动。
+中国外文局策划实施“同走长征路——纪念红军长征胜利90周年”国际传播项目，纪录片《大道——永远的长征》是该项目重要组成部分。
 
-年报信息显示，陈涛现年54岁，中国国籍，EMBA，高级工程师，持有香港身份证，无境外永久居留权；现任公司董事长。
+《大道——永远的长征》深入挖掘长征精神与当代中国奋斗征程的内在联系，阐释这一精神财富如何转化为攻坚克难、开拓创新的核心动力，展现其在乡村振兴、科技强国、民族复兴中的引领作用。
 
-曾在新疆兵团武警指挥部三支队、新疆喀什市二轻局服务公司、广东惠州统将电子有限公司任职。
+纪录片邀请两位外国友人作为行走者与观察者，重走长征路，在行走与对话中呈现长征精神中坚韧、信任、协作与希望的精神内核，让海内外受众特别是年轻一代不仅读懂长征，更读懂中国何以走出这样一条大道。
 
-公开信息显示，胜宏科技专业从事高精密多层、HDI、FPC、软硬结合板的研发、生产和销售，产品广泛应用于人工智能、大数据中心、工业互联、汽车电子、新一代通信技术、新能源、航空航天、医疗仪器等领域。
+姜永钢表示，长征精神所蕴含的坚定信念、不屈奋斗、团结一心等精神内核，跨越时代、超越国界，直抵人心。
 
 ## 相关推荐
 
-- 2026-06-29 11:41 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:39 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:34 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:45 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:30 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:37 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:22 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:26 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:46 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:41 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:32 - [中国版「星链」运营方启动新一轮增资，设50亿元投资门槛，明确拒绝境外资本，低轨卫星互联网为什么重要？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:24 - [张杰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:38 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:40 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:27 - [西南大学120周年校庆高质量发展大会举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:38 - [日本突发7.5级强震 震中附近有多个核电站](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:37 - [青海果洛：凝聚青年力量 共育民族团结之花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:35 - [村里有了“小而美” 游客爱上“慢时光”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:47 - [广交会观察：中东局势扰动下参展商采购商同觅“新出路”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:40 - [雄安新区首个戏曲特色工人文化宫正式投用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:36 - [伊朗最高领袖：伊朗海军已准备好给敌人“新的惨败”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:47 - [习近平文化思想引领书香社会建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:34 - [新疆和田县群众治沙：沙地成自家“聚宝盆”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:27 - [总书记引领强国之路｜共建美好网络家园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:47 - [TEC官宣Muggle加入](https://www.blog.minike.top/Article/details/2311171484.shtml)
-- 2026-06-29 11:48 - [张杰下沉市场](https://www.share.minike.top/Article/details/86534908.shtml)
-- 2026-06-29 11:51 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/26122.shtml)
-- 2026-06-29 11:43 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.kurohicncr.top/Article/details/56918.shtml)
-- 2026-06-29 11:50 - [下半年A股怎么走](https://www.blog.minike.top/Article/details/331506.shtml)
-- 2026-06-29 11:39 - [Agent带来token消耗爆炸](http://www.share.kurohicncr.top/Article/details/66519.shtml)
-- 2026-06-29 11:31 - [记者暗访贵州和云南多个养老机构](http://www.share.minike.top/Article/details/677062.shtml)
-- 2026-06-29 11:30 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/88491.shtml)
-- 2026-06-29 11:39 - [委内瑞拉地震死亡人数升至1450人](http://www.share.minike.top/Article/details/5475211.shtml)
-- 2026-06-29 11:42 - [双高胎](https://www.share.kurohicncr.top/Article/details/51419441.shtml)
-- 2026-06-29 11:44 - [永远保持对人民的赤子之心](https://www.blog.minike.top/Article/details/016942733749.shtml)
-- 2026-06-29 11:42 - [唐艺昕女儿接唐艺昕回家](http://www.blog.minike.top/Article/details/70364321.shtml)
-- 2026-06-29 11:48 - [重生赛伊德04](https://www.blog.kurohicncr.top/Article/details/140515.shtml)
-- 2026-06-29 11:43 - [下飞机后，我做了个很蠢的决定......](https://www.blog.minike.top/Article/details/41794951359.shtml)
-- 2026-06-29 11:30 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/9897652.shtml)
+- 2026-06-29 11:47 - [又见内幕交易？霍尔木兹开放前20分钟，神秘交易员7.6亿美元精准做空原油，已被调查](http://www.blog.minike.top/Article/details/40174871.shtml)
+- 2026-06-29 11:40 - [AI赋能文旅 2026西安丝路旅博会展示文旅科技新业态](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [4月20日人民币对美元中间价报6.8648 下调26个基点](http://www.blog.kurohicncr.top/Article/details/8807448380.shtml)
+- 2026-06-29 11:27 - [新的社会阶层人士开展“寻美‘广西三月三’ 数智共铸民族情”活动](http://www.blog.minike.top/Article/details/501807.shtml)
+- 2026-06-29 11:36 - [港交所的新挑战与“护城河”](http://www.share.kurohicncr.top/Article/details/718766.shtml)
+- 2026-06-29 11:26 - [报告称中小微外贸企业出口保持韧性 定价权稳步提升](http://www.blog.kurohicncr.top/Article/details/60692075957.shtml)
+- 2026-06-29 11:40 - [政策持续催化！绿电概念股4天2板，电力ETF华宝（159146）涨逾1%，超2.8亿资金悄悄加码！](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [美军封锁期间 驱逐舰尾随满载伊朗原油的油轮](http://www.blog.kurohicncr.top/Article/details/267456.shtml)
+- 2026-06-29 11:38 - [昆明至泰戈尔故乡加尔各答直飞航线复航 各方热盼新机遇](http://www.share.minike.top/Article/details/519097076.shtml)
+- 2026-06-29 11:47 - [男子潜伏通风管道9小时盗走百万黄金 3次换装终难逃法网](http://www.share.kurohicncr.top/Article/details/24906265368.shtml)
+- 2026-06-29 11:50 - [2026人形机器人半马：机器人领先人类19分钟冲线](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [雄安智慧农业春日见闻：北斗定垄、AI种花](http://www.blog.minike.top/Article/details/2914984.shtml)
+- 2026-06-29 11:54 - [第十九届坚果果干食品展盛大开幕 洽洽展位成为人气焦点](http://www.blog.minike.top/Article/details/18906750.shtml)
+- 2026-06-29 11:24 - [第139届广交会一期到会境外采购商16.7万名](http://www.blog.minike.top/Article/details/277745.shtml)
+- 2026-06-29 11:32 - [杭州通报一诊所“用一个针头给多人采血”：涉事诊所已停业整顿](http://www.share.kurohicncr.top/Article/details/008777444.shtml)

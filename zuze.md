@@ -1,57 +1,61 @@
-# 专访宋关福：从“副驾驶”到“自动驾驶”，GIS如何造福万家？
+# 中越青年相聚广西南宁分享友好故事
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-中新网北京6月7日电 题：专访宋关福：从“副驾驶”到“自动驾驶”，GIS如何造福万家？ 记者 张素 “这是一个特别令人振奋的时代，让我们要更加努力往前奔跑。”自然资源部地理信息系统技术创新中心主任、超图软件董事长宋关福近日在北京受访时说。 2026空间智能软件技术大会日前在北京举行，宋关福在会上介绍“智能体原生地理信息软件”理念。在他看来，从人工智能(AI)赋能突破空间分析算法
+中新网南宁4月17日电(陈秋霞)4月17日，2026年中国(广西)—越南青年手拉手活动在广西大学举行。中越青年代表800余人齐聚一堂，交流分享、共叙友谊。 活动上，主办方为2026年新聘任的“中国(广西)—越南友好故事青年讲述官”颁发证书。来自中越两国的10名优秀青年代表获聘为新一任讲述官，他们分别是广西百色市乐业县百坭村驻村第一书记陈竑任、广西崇左市融媒体中心主持人陈佳乐、广
 
 ## 正文
 
-中新网北京6月7日电 题：专访宋关福：从“副驾驶”到“自动驾驶”，GIS如何造福万家？
+中新网南宁4月17日电(陈秋霞)4月17日，2026年中国(广西)—越南青年手拉手活动在广西大学举行。
 
-记者 张素 “这是一个特别令人振奋的时代，让我们要更加努力往前奔跑。
+中越青年代表800余人齐聚一堂，交流分享、共叙友谊。
 
-”自然资源部地理信息系统技术创新中心主任、超图软件董事长宋关福近日在北京受访时说。
+活动上，主办方为2026年新聘任的“中国(广西)—越南友好故事青年讲述官”颁发证书。
 
-2026空间智能软件技术大会日前在北京举行，宋关福在会上介绍“智能体原生地理信息软件”理念。
+来自中越两国的10名优秀青年代表获聘为新一任讲述官，他们分别是广西百色市乐业县百坭村驻村第一书记陈竑任、广西崇左市融媒体中心主持人陈佳乐、广西壮族自治区南溪山医院院史展览馆讲解员黄清瑕、广西大学计算机与电子信息学院人工智能系主任白琳、广西自然资源职业技术学院教师贺鹏飞5名中方青年，以及广西大学越南留学生陈氏芳草、广西民族大学越南留学生会主席黎道重、广西艺术学院越南籍教师武明英、广西艺术学院越南留学生裴香银、广西师范大学越南留学生阮官尚5名越方青年。
 
-在他看来，从人工智能(AI)赋能突破空间分析算法能力边界，到智能体原生重构地理信息系统(GIS)范式，地理信息产业在AI浪潮中走出一条升级之路。
+故事分享环节，4名讲述官结合自身在乡村振兴、留学逐梦、青年工作、艺术交流等领域的亲身经历，生动讲述了中越青年守望相助、互学互鉴的感人故事。
 
-从“副驾驶”到“自动驾驶” “空间智能体是人工智能的重要技术形态，具备自主任务执行能力。
+陈竑任讲述了以乐业县百坭村原驻村第一书记黄文秀为代表的中国青年，如何将个人发展融入国家发展大局，扎根土地、建设家乡。
 
-”宋关福解释说，智能体就像给大语言模型装上“手脚”，能够自动化执行任务。
+陈氏芳草分享了自己留学期间跨越语言与文化差异、收获友谊与成长的温暖故事。
 
-对于GIS的演进，他形象地将其比喻为从“副驾驶”到“自动驾驶”的跨越，即从智能体赋能到智能体原生，实现从辅助工作到自主执行的转变。
+黄清瑕讲述了自治区南溪山医院救治越南伤员的历史故事，激励新时代青年医务工作者用实际行动书写中越友谊的新篇章。
 
 ## 相关推荐
 
-- 2026-06-29 11:30 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:45 - [黄灿灿恭喜自己拿到全季通告费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:38 - [三只羊大杨哥不直播改卖课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:32 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:47 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:34 - [韩媒一片哀嚎：没有奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:42 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:40 - [韩国队主帅洪明甫下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:34 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:36 - [世界杯小组赛阶段过人榜：马扎居首](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:22 - [热穹顶来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:48 - [霍尔木兹海峡开放提振市场，华尔街周五开盘走高，原油价格大跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:36 - [2026金鸡艺术电影展在上海举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:36 - [ZFX山海证券:金矿合作拓展资源前景仍待验证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:26 - [做具身智能的银河通用，为什么要花1500多万元向宇树科技买机器人？ | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:43 - [蓝色起源火箭可重复使用助推器着陆 但卫星偏离轨道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:45 - [霍尔木兹海峡开放后多艘船只尝试通行但未竟全功 不确定性犹在](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:31 - [巴基斯坦内政部长前往美使馆讨论美伊第二轮谈判事宜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:46 - [避开昂贵汽油 电动汽车在欧洲主要市场销量飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:49 - [琼台同胞欢舞乐聚共庆“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:32 - [管弦藏诗意 民族交响乐持续拨动青年心弦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:42 - [吉韵东方入春城 中国华服周展示古韵风华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:28 - [中国经济圆桌会丨消博会是一个至关重要窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:39 - [三问首季经济：形如何，亮在哪，势怎样？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:46 - [泰国类鼻疽疫情今年已确诊732例死亡23例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:53 - [受伊朗战争影响，尿素化肥价格高企，阿根廷小麦生产面临威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:49 - [刘烨16岁儿子诺一颜值](https://www.share.kurohicncr.top/Article/details/317280850.shtml)
-- 2026-06-29 11:37 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/81330385.shtml)
-- 2026-06-29 11:46 - [严浩翔FIY断层第一](http://www.blog.minike.top/Article/details/53729741.shtml)
-- 2026-06-29 11:51 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/35845968.shtml)
-- 2026-06-29 11:34 - [高考结束了，你会让孩子在家玩手机吗？](http://www.blog.kurohicncr.top/Article/details/138600.shtml)
-- 2026-06-29 11:34 - [DSpark论文深度解读](http://www.share.kurohicncr.top/Article/details/242969885259.shtml)
-- 2026-06-29 11:48 - [乌拉圭出局之路](https://www.blog.kurohicncr.top/Article/details/5614419.shtml)
-- 2026-06-29 11:33 - [中国邮政上海分公司总经理李柏平被查](http://www.blog.minike.top/Article/details/569989625.shtml)
-- 2026-06-29 11:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/45642545.shtml)
-- 2026-06-29 11:38 - [一生一世](https://www.share.kurohicncr.top/Article/details/21210446.shtml)
-- 2026-06-29 11:37 - [古力娜扎美出新高度](http://www.share.minike.top/Article/details/580724.shtml)
-- 2026-06-29 11:43 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://www.share.minike.top/Article/details/06956027457.shtml)
-- 2026-06-29 11:51 - [詹俊：巴西能凭借两大优势战胜日本](https://www.share.kurohicncr.top/Article/details/8070043515.shtml)
-- 2026-06-29 11:31 - [唐艺昕女儿接唐艺昕回家](http://www.share.minike.top/Article/details/51971246.shtml)
-- 2026-06-29 11:30 - [毕业寄几百斤快递回家女生发声](https://www.share.minike.top/Article/details/70209154.shtml)
+- 2026-06-29 11:31 - [ATFX五度斩获ADVFN最佳拉美地区经纪商 区域领导力再获国际权威认可](http://www.blog.kurohicncr.top/Article/details/19266963916.shtml)
+- 2026-06-29 11:37 - [三亚与7家境外经贸合作区集中签约](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:50 - [三亚亚沙会临近 主媒体中心试运行赛事氛围渐浓](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [法国通过“文物归还法案”，260万件中国文物多少能回归？](http://www.blog.kurohicncr.top/Article/details/382382.shtml)
+- 2026-06-29 11:40 - [OpenAI “Sora之父”宣布离职](http://www.blog.minike.top/Article/details/3873749486.shtml)
+- 2026-06-29 11:26 - [跨国药械企业竞逐“中国制造”新赛道](http://www.share.minike.top/Article/details/27332.shtml)
+- 2026-06-29 11:39 - [美国中央司令部：美军瘫痪了一艘试图驶入伊朗港口、违反封锁令的伊朗船只](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:28 - [霍尔木兹海峡开放消息提振米兰股市加速上涨，银行与奢侈品板块飙升，石油股下跌](http://www.share.minike.top/Article/details/570830833.shtml)
+- 2026-06-29 11:45 - [建平台强队伍见实效 云南探路国企统战新模式](http://www.share.kurohicncr.top/Article/details/8496515.shtml)
+- 2026-06-29 11:44 - [哥伦比亚国家石油公司：Copoazú-1井测试结果预计6月底揭晓](http://www.blog.minike.top/Article/details/077651412363.shtml)
+- 2026-06-29 11:39 - [吉林大学春花绽放春意浓](http://www.share.minike.top/Article/details/82429628.shtml)
+- 2026-06-29 11:37 - [纽约汇市：美元第三周下跌 市场对伊朗和平前景乐观](http://www.share.minike.top/Article/details/8664011562.shtml)
+- 2026-06-29 11:50 - [“东北超”推动文旅体商融合 无形资产变红利](http://www.blog.minike.top/Article/details/486982.shtml)
+- 2026-06-29 11:31 - [台湾台中大甲妈祖起驾 开启九天八夜绕境活动](http://www.share.minike.top/Article/details/22548.shtml)
+- 2026-06-29 11:38 - [快讯：现货黄金回落至4750美元/盎司下方，日内跌1.76%](http://www.share.kurohicncr.top/Article/details/165520808285.shtml)

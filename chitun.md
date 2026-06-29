@@ -1,61 +1,56 @@
-# 中国财政部：3年来累计支持50个重点城市实施城市更新行动
+# 香港财政司司长陈茂波：Web3+AI重塑全球金融生态 须确保人类主控干预 完善跨境监管与权责划分
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-中新社北京6月8日电 (记者 陈溯)中国财政部经济建设司司长郭方明8日在北京表示，官方连续3年、累计支持50个重点城市先行先试，实施城市更新行动有关工作。 当天，国务院新闻办公室举行国务院政策例行吹风会，介绍《城市更新“十五五”规划》有关情况。 谈及城市更新“钱从哪来”，郭方明表示，2024年起，财政部会同住房和城乡建设部启动了支持部分重点城市实施城市更新行动有关工作。连续3年
+专题：2026香港Web3嘉年华 文/新浪财经香港站 赵岚 在2026香港Web3嘉年华活动中，香港特区政府财政司司长陈茂波在开幕演讲中表示，香港将全力拥抱数字金融新时代，坚定支持新一代金融科技基建变革。 但同时强调，新技术融合发展必须确保系统安全。须由人类主控、人类干预，严防技术滥用、恶意操纵与系统性算法风险；同时须保证跨境监管闭环与权责落地，去中心化绝不代表监管放宽、责任弱
 
 ## 正文
 
-中新社北京6月8日电 (记者 陈溯)中国财政部经济建设司司长郭方明8日在北京表示，官方连续3年、累计支持50个重点城市先行先试，实施城市更新行动有关工作。
+专题：2026香港Web3嘉年华 文/新浪财经香港站 赵岚 在2026香港Web3嘉年华活动中，香港特区政府财政司司长陈茂波在开幕演讲中表示，香港将全力拥抱数字金融新时代，坚定支持新一代金融科技基建变革。
 
-当天，国务院新闻办公室举行国务院政策例行吹风会，介绍《城市更新“十五五”规划》有关情况。
+但同时强调，新技术融合发展必须确保系统安全。
 
-谈及城市更新“钱从哪来”，郭方明表示，2024年起，财政部会同住房和城乡建设部启动了支持部分重点城市实施城市更新行动有关工作。
+须由人类主控、人类干预，严防技术滥用、恶意操纵与系统性算法风险；同时须保证跨境监管闭环与权责落地，去中心化绝不代表监管放宽、责任弱化，行业应以智能化手段嵌入合规风控，夯实金融体系整体稳健与诚信。
 
-连续3年，累计支持北京、上海、沈阳、洛阳、乌鲁木齐、成都等50个重点城市先行先试。
+陈茂波表示，Web3与人工智能交汇融合，将彻底改写全球金融运行逻辑。
 
-“十五五”期间，这50个城市将按照实施方案确定的工作目标，探索城市更新可复制、可推广的机制。
+2026年是全球数字金融发展重要转折点，Web3 应用持续走向成熟，深度渗透实体经济各领域。
 
-财政部将会同住建部加大指导力度，及时总结经验适时推广，进一步研究完善政策措施。
+目前，香港的传统金融产品货币、债券等，以及实体资产、未来收益等多元品类加速代币化流转，资产拆分更细碎、参与门槛更低，有效地拓宽了项目融资、大众投资与风险分散渠道。
 
-郭方明介绍，中国财政部门统筹各项资金渠道，支持城市更新重点任务。
+金融机构广泛运用数字资产与资产代币化技术，能够有效提升交易效率、压缩运营成本、缩短清算结算周期。
 
-比如，安排城镇保障性安居工程补助资金支持城中村改造、城镇老旧小区改造、城市危旧房改造；通过地方政府专项债券对符合条件的城市更新项目予以支持；安排中央预算内投资、超长期特别国债资金支持城市地下管网建设、老旧小区改造等。
+而随着人工智能的应用持续拓宽，数字智能全面融入实体经济，智能体AI规模化崛起成为年度重大里程碑。
 
 ## 相关推荐
 
-- 2026-06-29 11:49 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:37 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:24 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:28 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:48 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:48 - [当地回应多辆“百吨王”强行冲卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:26 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:34 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:44 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:36 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:26 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:31 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:27 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:40 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:39 - [《给阿嬷的情书》里的情义与守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:32 - [券商前十座次重排！“两超多强”格局显现，两大业务成新关键赛道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:43 - [黑龙江干流黑河段平稳开江 较历年提前9天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:47 - [标普500闪现罕见上涨信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:37 - [卡沙甘油田就50亿美元哈萨克斯坦硫磺罚款上诉再遭驳回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:36 - [霍尔木兹海峡开放提振市场，华尔街周五开盘走高，原油价格大跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:49 - [2026金鸡艺术电影展在上海举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:46 - [ZFX山海证券:金矿合作拓展资源前景仍待验证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:44 - [做具身智能的银河通用，为什么要花1500多万元向宇树科技买机器人？ | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:53 - [蓝色起源火箭可重复使用助推器着陆 但卫星偏离轨道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:38 - [霍尔木兹海峡开放后多艘船只尝试通行但未竟全功 不确定性犹在](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:49 - [男子在家一丝不挂 邻居拍照发业主群](http://www.blog.kurohicncr.top/Article/details/45352382015.shtml)
-- 2026-06-29 11:24 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/22779993562.shtml)
-- 2026-06-29 11:44 - [白玉兰下沉市场](https://www.share.kurohicncr.top/Article/details/33309790.shtml)
-- 2026-06-29 11:43 - [F1奥地利正赛战报](https://www.share.kurohicncr.top/Article/details/03165365334.shtml)
-- 2026-06-29 11:40 - [欧洲极端高温东扩](https://www.share.minike.top/Article/details/90973412281.shtml)
-- 2026-06-29 11:27 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/72480538.shtml)
-- 2026-06-29 11:44 - [韩国队出局是因为内讧吗](https://www.share.kurohicncr.top/Article/details/342191023.shtml)
-- 2026-06-29 11:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/26149429.shtml)
-- 2026-06-29 11:32 - [和阿根廷球员家属一起看球](http://www.share.minike.top/Article/details/69278.shtml)
-- 2026-06-29 11:22 - [张一山说杨紫早该拿奖了](http://www.share.kurohicncr.top/Article/details/83378630.shtml)
-- 2026-06-29 11:43 - [行程万里不忘初心](https://www.blog.kurohicncr.top/Article/details/151099.shtml)
-- 2026-06-29 11:49 - [中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/7612995001.shtml)
-- 2026-06-29 11:31 - [如何看待奔驰将取消德国9万名员工年终奖，并计划延长工作时间且不支付补偿性报酬？奔驰当下处于什么境况？](http://www.share.kurohicncr.top/Article/details/19579021273.shtml)
-- 2026-06-29 11:40 - [欧洲极端高温东扩](http://www.share.minike.top/Article/details/895533624.shtml)
-- 2026-06-29 11:38 - [马斯克也站到了光里](http://www.blog.kurohicncr.top/Article/details/08169147.shtml)
+- 2026-06-29 11:47 - [2026中小学“汉语桥”多伦多赛区选拔赛圆满收官](http://www.blog.minike.top/Article/details/228918344701.shtml)
+- 2026-06-29 11:49 - [现场视频：美军人员从直升机顺绳而下，控制伊朗货船](http://www.blog.kurohicncr.top/Article/details/30759.shtml)
+- 2026-06-29 11:29 - [贵州纳雍：玛瑙红樱桃迎采摘热潮](http://www.share.minike.top/Article/details/440466281.shtml)
+- 2026-06-29 11:39 - [从“石旮旯”到“世界最佳” 重庆荆竹村涌文旅热潮](http://www.share.kurohicncr.top/Article/details/48538169.shtml)
+- 2026-06-29 11:40 - [ATFX五度斩获ADVFN最佳拉美地区经纪商 区域领导力再获国际权威认可](http://www.blog.minike.top/Article/details/45998298.shtml)
+- 2026-06-29 11:45 - [三亚与7家境外经贸合作区集中签约](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:30 - [三亚亚沙会临近 主媒体中心试运行赛事氛围渐浓](http://www.share.minike.top/Article/details/2322821646.shtml)
+- 2026-06-29 11:32 - [法国通过“文物归还法案”，260万件中国文物多少能回归？](http://www.blog.minike.top/Article/details/772976674.shtml)
+- 2026-06-29 11:40 - [OpenAI “Sora之父”宣布离职](http://www.share.kurohicncr.top/Article/details/46656856809.shtml)
+- 2026-06-29 11:50 - [跨国药械企业竞逐“中国制造”新赛道](http://www.blog.kurohicncr.top/Article/details/372178796.shtml)
+- 2026-06-29 11:49 - [美国中央司令部：美军瘫痪了一艘试图驶入伊朗港口、违反封锁令的伊朗船只](http://www.blog.minike.top/Article/details/757623.shtml)
+- 2026-06-29 11:25 - [霍尔木兹海峡开放消息提振米兰股市加速上涨，银行与奢侈品板块飙升，石油股下跌](http://www.share.kurohicncr.top/Article/details/518465006148.shtml)
+- 2026-06-29 11:25 - [建平台强队伍见实效 云南探路国企统战新模式](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [哥伦比亚国家石油公司：Copoazú-1井测试结果预计6月底揭晓](http://www.blog.minike.top/Article/details/48227295.shtml)
+- 2026-06-29 11:29 - [吉林大学春花绽放春意浓](http://www.blog.kurohicncr.top/Article/details/7679363.shtml)

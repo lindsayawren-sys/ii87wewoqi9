@@ -1,61 +1,58 @@
-# 国际专家在都江堰见证中国生态惠民的人权实践
+# 吉韵东方入春城 中国华服周展示古韵风华
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-中新社成都6月7日电 (记者 胡默达 岳依桐)站在鱼嘴分水堤前，看着岷江水依两千多年前的设计自动分流，多米尼加共和国外交部人权司司长内拉·保利诺·埃斯特韦斯7日参访都江堰后说，“这不是博物馆里的文物，而是仍在为千万人服务的中国古老智慧结晶。”当日，来自多个国家和地区、国际组织的官员和专家等来到四川都江堰参访。这座全球唯一同时拥有世界文化遗产、世界自然遗产和世界灌溉工程遗产的水利
+中新网长春4月18日电 (高龙安 李彦国)18日，2026年“中国华服周·吉韵东方”系列活动在长春新民大街历史文化街区正式启幕。 诗词雅集文脉绵延，国风市集烟火氤氲，华服巡演古韵流淌……系列活动由共青团中央宣传部指导，中国青少年新媒体协会、共青团吉林省委、吉林广播电视台联合主办，通过多元国风体验形式，让中华优秀传统文化焕发青春活力。 当天，现场汇聚众多身着雅致华服的青年。在“飞
 
 ## 正文
 
-中新社成都6月7日电 (记者 胡默达 岳依桐)站在鱼嘴分水堤前，看着岷江水依两千多年前的设计自动分流，多米尼加共和国外交部人权司司长内拉·保利诺·埃斯特韦斯7日参访都江堰后说，“这不是博物馆里的文物，而是仍在为千万人服务的中国古老智慧结晶。
+中新网长春4月18日电 (高龙安 李彦国)18日，2026年“中国华服周·吉韵东方”系列活动在长春新民大街历史文化街区正式启幕。
 
-”当日，来自多个国家和地区、国际组织的官员和专家等来到四川都江堰参访。
+诗词雅集文脉绵延，国风市集烟火氤氲，华服巡演古韵流淌……系列活动由共青团中央宣传部指导，中国青少年新媒体协会、共青团吉林省委、吉林广播电视台联合主办，通过多元国风体验形式，让中华优秀传统文化焕发青春活力。
 
-这座全球唯一同时拥有世界文化遗产、世界自然遗产和世界灌溉工程遗产的水利工程，正通过2200多年不曾断流的活水，向世界讲述中国治水智慧与生态惠民的人权故事。
+当天，现场汇聚众多身着雅致华服的青年。
 
-赞比亚公民自由联盟(非政府组织)主席伊萨克·姆万扎表示，这座两千多年前建造的水利工程令人惊叹，并给世界带来了“人类与自然可以和谐共存”的启示。
+在“飞花雅集”互动区域，诗词对答环节氛围感十足，《2022中国诗词大会》亚军滕凯枫化身古风雅士，衣袂翩跹、引经据典，与往来游客展开诗词问答。
 
-1872年德国地理学家李希霍芬亦称赞，都江堰灌溉方法之完善，世界各地无与伦比。
+人们驻足围观、踊跃参与，切身感受古人吟诗作赋、曲水流觞的风雅意趣。
 
-国际社会对这座古代工程的认可，不仅因其“无坝引水、顺应自然”的科学设计，更因它在当代仍在灌溉8市41县(市、区)，滋养着数千万人的生计。
+滕凯枫表示，古典诗词承载着深厚的家国情怀、处世智慧与审美底蕴，是当代青年溯源历史、抒发情感、厚植文化自信的重要载体，能引导年轻人读懂传统文化的深层价值。
 
-姆万扎说，都江堰仍在惠及周边民众，防洪的同时满足土地灌溉的需求，还作为知名旅游景点进一步带动了区域经济发展。
+国风市集人气高涨，数十个特色摊位整齐排布，传统饰品、微雕技艺、书画创作等文创与非遗代表性项目集中亮相。
 
-埃斯特韦斯则认为，都江堰水利工程展示了中国人在处理发展、民众与自然三者关系时的独特思维。
+手工艺人现场实操展演，全方位展示传统技艺的匠心魅力。
 
 ## 相关推荐
 
-- 2026-06-29 11:26 - [A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:47 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:46 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:35 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:49 - [神23乘组太空出差满月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:49 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:41 - [媒体：湖人把薪资空间玩明白了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:27 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:30 - [黄博文：坚持这样打下去会成强队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:29 - [细节之中抓作风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:41 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:22 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:24 - [黄博文：坚持这样打下去会成强队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:46 - [南非门将单场77次成功传球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:24 - [广西岑溪“村味擂台”亮相“三月三” 民俗与文明集市“双向奔赴”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:29 - [广西财政强化资金保障 筑牢基层应急管理“第一道防线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:26 - [广西百色5岁走失男童已不幸身亡，当地通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:36 - [中国·荆州2026全国历史文化名城羽毛球邀请赛开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:31 - [中国创新正在全方位加速突破](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:51 - [酒价内参4月20日价格发布：茅台系领涨 总价升至九日高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:32 - [蓝莓价格走低 国产品种研发多点推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:34 - [宁夏兴庆大漠黄河徒步大会启幕 千余人乐享春日文旅健身行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:26 - [“战火重燃”：船只遭扣押、遇袭，美伊停火协议濒临破裂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:42 - [山东菏泽：一株三并蒂的“墨润绝伦”牡丹盛放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:47 - [曾黎、李志希领衔主演 话剧《寻味》登陆广州大剧院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:50 - [“10天订单涨2万+” 张雪机车夺冠后 广交会现场火爆吸睛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:51 - [高考结束了，你会让孩子在家玩手机吗？](https://www.blog.kurohicncr.top/Article/details/860653955604.shtml)
-- 2026-06-29 11:48 - [媒体人：警惕日本再次成战争加害国](http://www.share.kurohicncr.top/Article/details/546674759.shtml)
-- 2026-06-29 11:51 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/4044075260.shtml)
-- 2026-06-29 11:25 - [周锡玮：做堂堂正正的中国人](http://www.blog.kurohicncr.top/Article/details/877557.shtml)
-- 2026-06-29 11:27 - [夏粮收购陆续展开 质优价稳购销两旺](https://www.blog.minike.top/Article/details/8208395351.shtml)
-- 2026-06-29 11:51 - [张一山回应与杨紫友情](http://www.blog.kurohicncr.top/Article/details/74773.shtml)
-- 2026-06-29 11:35 - [直击宜宾地震：监控剧烈摇晃](http://www.share.kurohicncr.top/Article/details/71865020871.shtml)
-- 2026-06-29 11:23 - [周生如故](http://www.share.minike.top/Article/details/95653574058.shtml)
-- 2026-06-29 11:31 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.minike.top/Article/details/605922984052.shtml)
-- 2026-06-29 11:38 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/689011.shtml)
-- 2026-06-29 11:39 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](http://www.share.minike.top/Article/details/36926300263.shtml)
-- 2026-06-29 11:29 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/1963328.shtml)
-- 2026-06-29 11:39 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/8294927.shtml)
-- 2026-06-29 11:42 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.share.kurohicncr.top/Article/details/61785.shtml)
-- 2026-06-29 11:33 - [加拿大92分钟绝杀](https://www.share.minike.top/Article/details/19601461.shtml)
+- 2026-06-29 11:41 - [涉“幽灵外卖”，抖音食品安全总监廖天博被罚超64万](http://www.blog.minike.top/Article/details/03090.shtml)
+- 2026-06-29 11:46 - [2026全球豫商大会启幕 AI与机器人企业青睐河南机遇](http://www.share.minike.top/Article/details/79666984.shtml)
+- 2026-06-29 11:38 - [苏林、查波访华为何要去广西、湖南？](http://www.share.minike.top/Article/details/2260521.shtml)
+- 2026-06-29 11:27 - [日本东北部沿海地区发生7.4级地震 已发布海啸警报](http://www.blog.minike.top/Article/details/228626886614.shtml)
+- 2026-06-29 11:25 - [（文化中国行）千年山歌的“数字迁徙”：从广西唱响东盟](http://www.blog.minike.top/Article/details/28197019644.shtml)
+- 2026-06-29 11:48 - [度小满冠名《浪姐7》陷舆论反噬：透视助贷平台下沉的困局](http://www.share.minike.top/Article/details/0033007.shtml)
+- 2026-06-29 11:41 - [2026江苏省侨界中餐厨艺大赛在无锡启动](http://www.blog.kurohicncr.top/Article/details/69795451386.shtml)
+- 2026-06-29 11:40 - [中信建投：创业板新高后，还有多少空间？](http://www.blog.minike.top/Article/details/462969.shtml)
+- 2026-06-29 11:51 - [多国客商齐聚河南长垣 共觅起重装备商机](http://www.share.minike.top/Article/details/519400.shtml)
+- 2026-06-29 11:30 - [书香换花香 浙江杭州孔庙书市启幕](http://www.blog.minike.top/Article/details/15440.shtml)
+- 2026-06-29 11:25 - [2026年河南省篮球城市联赛在古都安阳开赛](http://www.share.kurohicncr.top/Article/details/2597103.shtml)
+- 2026-06-29 11:40 - [特斯拉：目前并无在上海超级工厂量产机器人的具体计划](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [为投资者创收1619亿元！一季度理财“成绩单”来了](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [美国精神航空公司考虑清算](http://www.share.minike.top/Article/details/398563827.shtml)
+- 2026-06-29 11:49 - [从汽车到易拉罐：伊朗战争如何冲击全球铝供应链](https://github.com/lisacumin64-arch)

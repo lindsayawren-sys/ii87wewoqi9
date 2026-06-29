@@ -1,56 +1,54 @@
-# 2026“守望传承·千里婵娟”艺术展在悉尼举行
+# 特斯拉：目前并无在上海超级工厂量产机器人的具体计划
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-中新网悉尼6月7日电(记者 薄雯雯)2026“守望传承·千里婵娟”艺术展日前在澳大利亚悉尼开幕，中澳政界、文化界等各界人士出席活动。 本次艺术展由澳大利亚福建乡情联谊会主办，以中国传统水墨艺术为主线，汇聚来自澳大利亚、中国、日本、韩国、越南等国家和地区艺术家的优秀作品，融合中华书画、西方油画以及澳大利亚原住民艺术等多元艺术形式，彰显不同文明交流互鉴、美美与共的时代气象。 澳大利
+人民财讯4月20日电，4月20日，记者从特斯拉中国方面获悉，4月14日特斯拉副总裁王昊在媒体活动现场被问及机器人时，仅探讨了特斯拉上海超级工厂拥有很好的规模化量产能力，在未来拥有很大潜力。“目前特斯拉并无在上海超级工厂量产机器人的具体计划。请在报道中不要描述为特斯拉即将在上海量产机器人，此为错误信息。”特斯拉中国方面表示。责任编辑：凌辰
 
 ## 正文
 
-中新网悉尼6月7日电(记者 薄雯雯)2026“守望传承·千里婵娟”艺术展日前在澳大利亚悉尼开幕，中澳政界、文化界等各界人士出席活动。
+人民财讯4月20日电，4月20日，记者从特斯拉中国方面获悉，4月14日特斯拉副总裁王昊在媒体活动现场被问及机器人时，仅探讨了特斯拉上海超级工厂拥有很好的规模化量产能力，在未来拥有很大潜力。
 
-本次艺术展由澳大利亚福建乡情联谊会主办，以中国传统水墨艺术为主线，汇聚来自澳大利亚、中国、日本、韩国、越南等国家和地区艺术家的优秀作品，融合中华书画、西方油画以及澳大利亚原住民艺术等多元艺术形式，彰显不同文明交流互鉴、美美与共的时代气象。
+“目前特斯拉并无在上海超级工厂量产机器人的具体计划。
 
-澳大利亚福建乡情联谊会会长林锦姗在致辞中表示，“千里共婵娟”寄托着人类对和平、友谊与美好的共同追求。
+请在报道中不要描述为特斯拉即将在上海量产机器人，此为错误信息。
 
-相信此次艺术展不仅将为广大观众带来丰富的艺术享受，也将进一步促进中华文化在海外传播，深化澳中文化交流与民间友谊。
+”特斯拉中国方面表示。
 
-据悉，本次艺术展将持续至6月22日。
-
-(完)
+责任编辑：凌辰
 
 ## 相关推荐
 
-- 2026-06-29 11:43 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:37 - [《给阿嬷的情书》里的情义与守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:26 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:29 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:27 - [中国U17男篮78-87加拿大U17男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:23 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:49 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:25 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:24 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:30 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:44 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:43 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:28 - [某高校学生被辅导员等人扭送至公安](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:32 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:36 - [四大证券报头版头条内容精华摘要_2026年4月20日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:27 - [中国经济开局良好 外媒：高质量发展助力中国经济更具可持续性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:46 - [2026“发现宝藏山东”主题旅游年启幕 让宝藏可寻、可感、可品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:29 - [受伊朗局势缓和预期推动，美国股票基金持续获得资金流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:26 - [中国美术馆与千问AI眼镜开启合作探索，观展迈向“边看边懂”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:38 - [上巳传笺 望江听涛：成都望江楼公园复原明代制笺古礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:42 - [拼多多因“幽灵外卖”被罚，法定代表人赵佳臻被处693.73万元罚款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:47 - [中国试飞院开放日 各型飞机引民众打卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:27 - [预测市场平台Polymarket计划募资4亿美元 估值达约150亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:24 - [总书记的关切·落地的回响｜中国式现代化要靠科技现代化作支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:28 - [林毅夫：中国式现代化的成功实践为全球发展中国家提供重要借鉴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:45 - [湖北城市足球联赛点燃民众热情 赛事流量变消费增量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:32 - [国际传播纪录片《大道——永远的长征》在北京启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:46 - [千年古刹云居山谷雨见闻：一叶“攒林茶” 农禅指尖传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:52 - [1954年以来闯进世界杯淘汰赛次数排行](https://www.blog.minike.top/Article/details/2906934.shtml)
-- 2026-06-29 11:50 - [韩国队是怎么把自己“作死”的](https://www.blog.kurohicncr.top/Article/details/44029446023.shtml)
-- 2026-06-29 11:38 - [陈靖可虞书欣领衔主演](https://www.blog.minike.top/Article/details/77638137.shtml)
-- 2026-06-29 11:38 - [记者暗访贵州和云南多个养老机构](https://www.share.kurohicncr.top/Article/details/936657652185.shtml)
-- 2026-06-29 11:44 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/123665666.shtml)
-- 2026-06-29 11:43 - [Mrbeast的30天不吃饭挑战](https://www.blog.minike.top/Article/details/0488903.shtml)
-- 2026-06-29 11:36 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/758740.shtml)
-- 2026-06-29 11:44 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/7302874.shtml)
-- 2026-06-29 11:52 - [各路“神仙”扎堆洛阳乘地铁](https://www.blog.minike.top/Article/details/76686212.shtml)
-- 2026-06-29 11:41 - [克洛普：加拿大主帅还能继续创造历史](http://www.blog.kurohicncr.top/Article/details/2475502.shtml)
-- 2026-06-29 11:46 - [欧洲多国激辩“装不装空调”](http://www.share.minike.top/Article/details/6184994.shtml)
-- 2026-06-29 11:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/61948.shtml)
-- 2026-06-29 11:43 - [委内瑞拉地震已致1450死3150伤](https://www.share.kurohicncr.top/Article/details/909263.shtml)
-- 2026-06-29 11:26 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/115695123878.shtml)
-- 2026-06-29 11:49 - [三轮车被自家狗“推”进池塘](https://www.blog.kurohicncr.top/Article/details/4641734863.shtml)
+- 2026-06-29 11:51 - [美军在阿曼湾拦截并控制一艘伊朗货船](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [优步以3.18亿美元交易增持外卖平台Delivery Hero股份](http://www.share.minike.top/Article/details/2831932794.shtml)
+- 2026-06-29 11:41 - [福特召回至多139万辆F-150皮卡](http://www.blog.kurohicncr.top/Article/details/1330420395.shtml)
+- 2026-06-29 11:43 - [文化中国行·联播一瞬丨谷雨：春去无憾 夏来有期](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:26 - [伊朗民航组织宣布伊朗部分空域重新开放](http://www.share.minike.top/Article/details/22533937843.shtml)
+- 2026-06-29 11:43 - [李强主持召开国务院常务会议 听取自由贸易试验区建设情况汇报 审议通过《中华人民共和国行政复议法实施条例（修订草案）》](http://www.blog.kurohicncr.top/Article/details/012675.shtml)
+- 2026-06-29 11:40 - [超3万名日本民众集会反对高市政权危险动向](http://www.share.minike.top/Article/details/37382.shtml)
+- 2026-06-29 11:42 - [第44届香港电影金像奖红毯仪式举行](http://www.blog.kurohicncr.top/Article/details/10996.shtml)
+- 2026-06-29 11:49 - [巴西Simpar以1.215亿雷亚尔出售Ciclus Amazônia股份](http://www.blog.minike.top/Article/details/968723649.shtml)
+- 2026-06-29 11:39 - [特朗普：若无法达成协议 或将不延长美伊临时停火](http://www.blog.minike.top/Article/details/10813846936.shtml)
+- 2026-06-29 11:43 - [霍尔木兹海峡开放后油价大跌，欧洲斯托克600指数涨逾1%](http://www.share.minike.top/Article/details/235651178.shtml)
+- 2026-06-29 11:45 - [国常会部署推动自贸试验区高质量发展](http://www.blog.minike.top/Article/details/104082712.shtml)
+- 2026-06-29 11:51 - [英国金融时报称欧盟拟放宽并购规则 培育全球冠军企业](http://www.blog.kurohicncr.top/Article/details/05645587.shtml)
+- 2026-06-29 11:26 - [“90后”侨青走进上海虹口 读懂城市文脉与发展活力](http://www.blog.kurohicncr.top/Article/details/6492426.shtml)
+- 2026-06-29 11:29 - [“寒潮”来袭！理财产品规模一季度缩水1.38万亿，投资者收益同比降低21%](http://www.blog.kurohicncr.top/Article/details/6835153924.shtml)

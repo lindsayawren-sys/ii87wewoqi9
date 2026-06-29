@@ -1,57 +1,60 @@
-# 吴清：完善程序化交易监管机制，防范滥用技术优势，坚决打击操纵市场、扰乱市场秩序行为
+# 当心网络贷款有“隐性收费”
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月6日，中国证券投资基金业协会第四届会员代表大会举行，证监会主席吴清出席会议并发表讲话。吴清表示，近年来，程序化交易已成为包括我国在内的全球各主要资本市场的重要交易方式。除了大家熟知的量化私募外，外资、公募及其他专业机构投资者，甚至一些个人投资者，都不同程度采用程序化交易的方式。充分考虑个人投资者占大多数
+原标题：当心网络贷款有“隐性收费”（百姓关注） “低利率”“秒到账”“免抵押”“无需征信”……点开网络贷款平台的页面，关于贷款的广告语对于急需用钱的消费者而言，十分诱人。当下，一些网络贷款的便利性确实给很多人解了燃眉之急。然而，风险与陷阱也随之而来，一些消费者在网络贷款中遭遇了“高额手续费”“话术诱导”“霸王条款”等问题，权益受损后，维权也面临困难。 有读者在不明所以的情况下，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+原标题：当心网络贷款有“隐性收费”（百姓关注） “低利率”“秒到账”“免抵押”“无需征信”……点开网络贷款平台的页面，关于贷款的广告语对于急需用钱的消费者而言，十分诱人。
 
-6月6日，中国证券投资基金业协会第四届会员代表大会举行，证监会主席吴清出席会议并发表讲话。
+当下，一些网络贷款的便利性确实给很多人解了燃眉之急。
 
-吴清表示，近年来，程序化交易已成为包括我国在内的全球各主要资本市场的重要交易方式。
+然而，风险与陷阱也随之而来，一些消费者在网络贷款中遭遇了“高额手续费”“话术诱导”“霸王条款”等问题，权益受损后，维权也面临困难。
 
-除了大家熟知的量化私募外，外资、公募及其他专业机构投资者，甚至一些个人投资者，都不同程度采用程序化交易的方式。
+有读者在不明所以的情况下，被收取了高额服务费和担保费。
 
-充分考虑个人投资者占大多数的国情市情，先后出台了一系列程序化交易监管规则制度，建立交易报告机制，强化针对性监测监控，从严监管异常交易行为，引导降频降速，强化交易业务单元管理等。
+江苏南通的戴先生在人民网“人民投诉”反映，他去年在网上了解到一家网络金融服务公司，在其APP中提交了基本的财务状况后，输入贷款用途、金额、期限，即可查询到有哪些金融机构能够提供相应的贷款以及贷款条件。
 
-在此基础上，我们还将深入调研，持续完善程序化交易监管的机制安排，更突出公平和规范，加强针对性监管，切实防范滥用技术优势，坚决打击操纵市场、扰乱市场秩序等违法违规行为。
+戴先生被其专业性与便利性吸引，在其推荐的一家网络金融平台贷款1.3万元，平台自动设置分12期还款，每月还款1207元，共计14484元。
 
-责任编辑：常福强
+但在应还数目之外，该网贷平台还向戴先生收取了服务费1325元，担保费2340元，而戴先生在贷款时并未仔细看协议，对此毫不知情。
+
+在发现多出的费用后，戴先生重新查看当时的协议，才发现了“借款协议”中嵌套的“服务费协议”等内容。
 
 ## 相关推荐
 
-- 2026-06-29 11:43 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:52 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:32 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:43 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:30 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:47 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:46 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:23 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:51 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:31 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:32 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:35 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:23 - [刘烨赶紧蹭个热度宣传四渡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:27 - [一季度甘肃进出口规模创历史新高：出海商品向新向绿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:36 - [北溪天然气管道爆炸事件：保险公司寻求避免赔付](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:33 - [台湾织娘连美惠：一根丝线牵两岸 一幅织锦绣同心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:32 - [欧洲央行管委Kazaks：下一步利率行动未必会是加息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:31 - [CBA常规赛：辽宁主场收官战不敌浙江](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:43 - [拟收购上海证券100%股权！东方证券，最新公告！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:49 - [经济观察：新时期中德创新合作的机遇与前景在哪里？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:37 - [亚太卫星午前涨近9% 公司为中国卫通控股子公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:43 - [中共早期历史红色场馆联盟主题交流暨中共山东早期历史沉浸式思政课活动在济南举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:43 - [树立和践行正确政绩观丨知行合一 务求实效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:43 - [百余人形机器人在京跑半马 “百家争鸣”彰显行业级跨越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:35 - [中越企业昆明面对面交流 碰撞合作机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:39 - [中国经济圆桌会丨群核科技：让更多企业和消费者体验高效便捷的空间智能服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:46 - [严惩“网络黑嘴”造谣诋毁 最高法例举涉胖某公司案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:49 - [这位天才台湾人第一次来大陆，开智了](https://www.blog.kurohicncr.top/Article/details/111145579971.shtml)
-- 2026-06-29 11:49 - [温瑞博袁励岑晋级美国大满贯男双16强](https://www.blog.minike.top/Article/details/37924637448.shtml)
-- 2026-06-29 11:30 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://www.share.kurohicncr.top/Article/details/588022563.shtml)
-- 2026-06-29 11:41 - [韩国主帅辞职报告5分钟 双手插兜离场](http://www.blog.kurohicncr.top/Article/details/59104391548.shtml)
-- 2026-06-29 11:25 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/149980009687.shtml)
-- 2026-06-29 11:30 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/696257157113.shtml)
-- 2026-06-29 11:33 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/880402.shtml)
-- 2026-06-29 11:31 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/856060881759.shtml)
-- 2026-06-29 11:31 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/88595.shtml)
-- 2026-06-29 11:29 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.share.minike.top/Article/details/81741796541.shtml)
-- 2026-06-29 11:34 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/661355542826.shtml)
-- 2026-06-29 11:51 - [高考结束了，你会让孩子在家玩手机吗？](http://www.share.kurohicncr.top/Article/details/1268722262.shtml)
-- 2026-06-29 11:26 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/2637407630.shtml)
-- 2026-06-29 11:49 - [天道](https://www.share.minike.top/Article/details/4932771522.shtml)
-- 2026-06-29 11:38 - [高考志愿今起开始填报](http://www.blog.kurohicncr.top/Article/details/236188816.shtml)
+- 2026-06-29 11:45 - [琼台同胞欢舞乐聚共庆“三月三”](http://www.blog.minike.top/Article/details/6541644177.shtml)
+- 2026-06-29 11:30 - [管弦藏诗意 民族交响乐持续拨动青年心弦](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [吉韵东方入春城 中国华服周展示古韵风华](http://www.blog.kurohicncr.top/Article/details/80112.shtml)
+- 2026-06-29 11:36 - [中国经济圆桌会丨消博会是一个至关重要窗口](http://www.share.kurohicncr.top/Article/details/840915.shtml)
+- 2026-06-29 11:46 - [三问首季经济：形如何，亮在哪，势怎样？](http://www.blog.kurohicncr.top/Article/details/63485398897.shtml)
+- 2026-06-29 11:53 - [泰国类鼻疽疫情今年已确诊732例死亡23例](http://www.share.minike.top/Article/details/136020.shtml)
+- 2026-06-29 11:51 - [受伊朗战争影响，尿素化肥价格高企，阿根廷小麦生产面临威胁](http://www.share.minike.top/Article/details/171199.shtml)
+- 2026-06-29 11:26 - [视频｜李在明首次访印 涉霍尔木兹海峡 呼吁韩印联手](http://www.share.kurohicncr.top/Article/details/626694822.shtml)
+- 2026-06-29 11:51 - [中国驻日使馆连遭威胁 外交部四字警告日方](http://www.share.minike.top/Article/details/951513.shtml)
+- 2026-06-29 11:50 - [广西岑溪“村味擂台”亮相“三月三” 民俗与文明集市“双向奔赴”](http://www.share.kurohicncr.top/Article/details/82706199305.shtml)
+- 2026-06-29 11:24 - [广西财政强化资金保障 筑牢基层应急管理“第一道防线”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:50 - [广西百色5岁走失男童已不幸身亡，当地通报](http://www.share.minike.top/Article/details/719301.shtml)
+- 2026-06-29 11:43 - [中国·荆州2026全国历史文化名城羽毛球邀请赛开幕](http://www.share.minike.top/Article/details/5893412558.shtml)
+- 2026-06-29 11:39 - [中国创新正在全方位加速突破](http://www.share.kurohicncr.top/Article/details/408586935.shtml)
+- 2026-06-29 11:35 - [酒价内参4月20日价格发布：茅台系领涨 总价升至九日高位](http://www.blog.minike.top/Article/details/42962594992.shtml)

@@ -1,58 +1,59 @@
-# 波音首席执行官：将于7月6日启用全新总装生产线投产737 MAX机型
+# 价格大涨650%，国产光纤全球爆单，年内诞生3只翻倍股
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-波音首席执行官凯利・奥特伯格周五在接受媒体采访时透露，公司将于7月6日在西雅图北部新建的一条总装生产线投产全新737MAX客机。 奥特伯格表示：“我们新增一条生产线，这条产线和伦顿现有厂房的生产线规格完全一致。首架飞机装配将于7月6日上线，距今仅剩约一个月时间，第四条生产线届时将正式投产。” 这条坐落于华盛顿州埃弗雷特的全新737总装线，将成为波音把MAX机型月产能提升至52架
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨赵云帆 据央视财经，今年以来，光纤行业呈现出“产品量价齐升”的景气态势。 在江苏一家光纤生产企业，工作人员告诉记者，今年一季度，光纤产品产销量同比增长35%以上，其海外销量增速超55%。“出口主要是面向北美和东南亚等地区，现在的在手订单很充足，我们现在排产已经排到明年的一季度。” 在江苏的另一家光纤生
 
 ## 正文
 
-波音首席执行官凯利・奥特伯格周五在接受媒体采访时透露，公司将于7月6日在西雅图北部新建的一条总装生产线投产全新737MAX客机。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-奥特伯格表示：“我们新增一条生产线，这条产线和伦顿现有厂房的生产线规格完全一致。
+记者丨赵云帆 据央视财经，今年以来，光纤行业呈现出“产品量价齐升”的景气态势。
 
-首架飞机装配将于7月6日上线，距今仅剩约一个月时间，第四条生产线届时将正式投产。
+在江苏一家光纤生产企业，工作人员告诉记者，今年一季度，光纤产品产销量同比增长35%以上，其海外销量增速超55%。
 
-” 这条坐落于华盛顿州埃弗雷特的全新737总装线，将成为波音把MAX机型月产能提升至52架的关键助力，该量产目标计划于明年落地。
+“出口主要是面向北美和东南亚等地区，现在的在手订单很充足，我们现在排产已经排到明年的一季度。
 
-今年波音已将737MAX月产量从42架上调至当前的47架。
+” 在江苏的另一家光纤生产企业，负责人告诉记者，今年一季度光纤产销量同比增长近5倍。
 
-尽管波音有意提升737 MAX的生产与交付量，但产能受美国联邦航空管理局（FAA）管控。
+与此同时，产品价格也出现大幅上涨。
 
-2024年1月阿拉斯加航空一架客机发生舱门塞脱落事故后，FAA对波音生产规模设置了上限。
+“价格是爆发性的增长，G.657.A2光纤去年是每芯公里32元，今年涨到了240元，涨幅达到了650%。
 
-该事故促使监管机构针对波音生产环节的安全与质量问题开展了漫长审查。
+以前是货发了以后再付货款，现在买家先付钱，我们再发货，不愁卖。
 
 ## 相关推荐
 
-- 2026-06-29 11:27 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:33 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:48 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:51 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:38 - [美加墨世界杯首支16强诞生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:34 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:26 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:51 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:39 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:22 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:51 - [中国男篮抵达沈阳备战世预赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:39 - [国元保险原董事长被查，收超400万罚单，成监管“重点户”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:43 - [美军在阿曼湾拦截并控制一艘伊朗货船](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:41 - [优步以3.18亿美元交易增持外卖平台Delivery Hero股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:26 - [福特召回至多139万辆F-150皮卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:36 - [文化中国行·联播一瞬丨谷雨：春去无憾 夏来有期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:43 - [伊朗民航组织宣布伊朗部分空域重新开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:45 - [李强主持召开国务院常务会议 听取自由贸易试验区建设情况汇报 审议通过《中华人民共和国行政复议法实施条例（修订草案）》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:34 - [超3万名日本民众集会反对高市政权危险动向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:33 - [第44届香港电影金像奖红毯仪式举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:45 - [巴西Simpar以1.215亿雷亚尔出售Ciclus Amazônia股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:29 - [特朗普：若无法达成协议 或将不延长美伊临时停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:42 - [霍尔木兹海峡开放后油价大跌，欧洲斯托克600指数涨逾1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:45 - [国常会部署推动自贸试验区高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/488499005.shtml)
-- 2026-06-29 11:30 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/7069888.shtml)
-- 2026-06-29 11:43 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://www.share.kurohicncr.top/Article/details/23579133.shtml)
-- 2026-06-29 11:22 - [流金岁月](https://www.share.kurohicncr.top/Article/details/15721141.shtml)
-- 2026-06-29 11:42 - [巴西德国15次闯进世界杯淘汰赛](https://www.share.minike.top/Article/details/6631124300.shtml)
-- 2026-06-29 11:50 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/671836405.shtml)
-- 2026-06-29 11:46 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/6150048208.shtml)
-- 2026-06-29 11:29 - [天津打雷](http://www.blog.minike.top/Article/details/031762689396.shtml)
-- 2026-06-29 11:46 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/41889.shtml)
-- 2026-06-29 11:49 - [伊朗球员道歉 说着说着哭了](https://www.blog.minike.top/Article/details/79515739.shtml)
-- 2026-06-29 11:44 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/7715953603.shtml)
-- 2026-06-29 11:41 - [大罗力挺内马尔](https://www.blog.kurohicncr.top/Article/details/25150.shtml)
-- 2026-06-29 11:31 - [布里奇斯被交易至太阳](https://www.blog.kurohicncr.top/Article/details/948283095.shtml)
-- 2026-06-29 11:36 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/3009932864.shtml)
-- 2026-06-29 11:43 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/02261.shtml)
+- 2026-06-29 11:39 - [2026年中国香港（地区）商会京港地铁体育嘉年华活动举办](http://www.blog.minike.top/Article/details/645835409.shtml)
+- 2026-06-29 11:51 - [极氪8X正式上市：首次搭载舱驾融合超级智能体，上市限时售价32.98万元起](http://www.blog.minike.top/Article/details/643118851494.shtml)
+- 2026-06-29 11:27 - [“患者被引荐至私立医院” 涉事医生被停止诊疗并终止聘用合同](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [东方证券与上海证券筹划合并重组，加快推进一流现代投资银行建设](http://www.blog.minike.top/Article/details/28587464018.shtml)
+- 2026-06-29 11:36 - [涉案金额2.6亿元，我国摧毁山西特大假酒网络](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:53 - [浦发银行与中国银联签署全面战略合作协议](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [让机器人跑马拉松有什么用？专家：先带动技术发展 再逐步落地应用](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [实拍江西上饶“三月三”篝火联欢现场 民众踏歌起舞庆佳节](http://www.blog.minike.top/Article/details/615471479835.shtml)
+- 2026-06-29 11:40 - [万众期待的“霸王”来了！“宿迁子弟何在？”何润东身披甲胄亮相“苏超”现场](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [BOSS直聘-W于4月17日耗资约249.65万美元回购约34.97万股](http://www.blog.kurohicncr.top/Article/details/22718219.shtml)
+- 2026-06-29 11:31 - [去年翻倍赚钱的基金，今年怎么样了？](http://www.share.kurohicncr.top/Article/details/19849992.shtml)
+- 2026-06-29 11:28 - [巴西、西班牙和墨西哥联合呼吁采取措施缓解古巴局势](http://www.share.minike.top/Article/details/35296112.shtml)
+- 2026-06-29 11:53 - [产品业绩回撤38.53%，昔日百亿私募同犇投资最新回应：从来不是只买消费，AI产业链去年开始就有不少仓位](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [金价下跌 霍尔木兹海峡再度中断引发通胀担忧](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [农业农村部：推动猪价合理回升](https://github.com/lisacumin64-arch)

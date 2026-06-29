@@ -1,60 +1,50 @@
-# 平陆运河为何如此重要？
+# 万众期待的“霸王”来了！“宿迁子弟何在？”何润东身披甲胄亮相“苏超”现场
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:06 UTC+8
 
 ## 摘要
 
-经济热点快评 | 平陆运河为何如此重要？ 6月3日，历时近4年，西部陆海新通道骨干工程平陆运河建设迎来重大节点：随着马道枢纽和企石枢纽开始充水，运河实现全线通水，将于今年9月如期通航。 平陆运河，究竟是条什么河？ 这是新中国成立以来第一条通江达海的大运河，全长134.2公里。运河北起广西南宁平塘江口，一路向南经钦州市灵山县陆屋镇，沿钦江直达北部湾出海。全线按内河Ⅰ级航道标准建设
+发布时间：2026年04月18日 20:22 来源：中国新闻网 万众期待的“霸王”来了！“宿迁子弟何在？”何润东身披甲胄亮相“苏超”现场 责任编辑：【郭梦媛】
 
 ## 正文
 
-经济热点快评 | 平陆运河为何如此重要？
+发布时间：2026年04月18日 20:22 来源：中国新闻网 万众期待的“霸王”来了！
 
-6月3日，历时近4年，西部陆海新通道骨干工程平陆运河建设迎来重大节点：随着马道枢纽和企石枢纽开始充水，运河实现全线通水，将于今年9月如期通航。
+“宿迁子弟何在？
 
-平陆运河，究竟是条什么河？
-
-这是新中国成立以来第一条通江达海的大运河，全长134.2公里。
-
-运河北起广西南宁平塘江口，一路向南经钦州市灵山县陆屋镇，沿钦江直达北部湾出海。
-
-全线按内河Ⅰ级航道标准建设，建成后，5000吨级船舶可实现江海直达。
-
-地图上的短短一划，现实中却工程浩大。
-
-这项运河工程体量多大？
+”何润东身披甲胄亮相“苏超”现场 责任编辑：【郭梦媛】
 
 ## 相关推荐
 
-- 2026-06-29 11:45 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:52 - [农业谣言岂能如此“变态”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:40 - [加拿大队史淘汰赛首胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:51 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:30 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:29 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:43 - [行程万里不忘初心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:26 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:49 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:25 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:42 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:23 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:48 - [Gucci全球首席营销官发肖战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:28 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:30 - [鼎泰丰“回京”热度不减 稳中求进布局大陆北方市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:28 - [国际能源署称中东能源产出恢复需两年时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:42 - [直击广东消防救援力量多举措筑牢防汛救灾安全屏障](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:48 - [印度卢比在亚币中表现最佳 央行据报道对油企购买美元进行窗口指导](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:48 - [西安直飞维也纳国际航线开通](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:29 - [江西南昌久雨初晴：市民户外享受春光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:33 - [2026年巴黎图书节拉开帷幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:26 - [韩国和美国一致认为，韩元汇率过度波动是不可取的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:46 - [新阶人士走进成都高新天府长岛 共话数字文创新未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:53 - [广西兴业县举办“三月三”民族团结系列活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:32 - [纳微科技7.1亿元定增背后：账面“不差钱” 实控人方减持套现3.8亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:32 - [多国学者：儒学与伊斯兰智慧 能解世界冲突之困](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:52 - [美国交通部长：空管岗位12小时内收到6000份申请](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:32 - [AI复合型人才成“香饽饽” 重庆“才聚两江·照母山”青年人才活动月启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [陈垣宇晋级WTT美国大满贯男单32强](https://www.share.kurohicncr.top/Article/details/0918493053.shtml)
-- 2026-06-29 11:30 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.share.kurohicncr.top/Article/details/95503862791.shtml)
-- 2026-06-29 11:46 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/25059224485.shtml)
-- 2026-06-29 11:38 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.minike.top/Article/details/59480158.shtml)
-- 2026-06-29 11:49 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/398153035.shtml)
-- 2026-06-29 11:49 - [高考志愿今起开始填报](https://www.blog.kurohicncr.top/Article/details/89949.shtml)
-- 2026-06-29 11:23 - [普京称俄处于命运攸关之际](https://www.blog.minike.top/Article/details/26384.shtml)
-- 2026-06-29 11:35 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.kurohicncr.top/Article/details/227145.shtml)
-- 2026-06-29 11:37 - [上周末 多领域成果密集“上新”](http://www.blog.minike.top/Article/details/59433124.shtml)
-- 2026-06-29 11:23 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/423684361557.shtml)
-- 2026-06-29 11:30 - [三只羊大杨哥不直播改卖课](https://www.blog.kurohicncr.top/Article/details/593947589.shtml)
-- 2026-06-29 11:22 - [三轮车被自家狗“推”进池塘](http://www.blog.kurohicncr.top/Article/details/53149230616.shtml)
-- 2026-06-29 11:25 - [医护人员观影《四渡》传承长征精神](https://www.share.minike.top/Article/details/8705446879.shtml)
-- 2026-06-29 11:27 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/1869648196.shtml)
-- 2026-06-29 11:48 - [速度与激情9](https://www.share.minike.top/Article/details/14911.shtml)
+- 2026-06-29 11:28 - [Astro Offshore新增MPSV，扩展水下作业能力](http://www.blog.minike.top/Article/details/213412334271.shtml)
+- 2026-06-29 11:42 - [美国债市：国债走高 交易员上调对美联储年内降息押注](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [松延动力创始人姜哲源揭秘参赛机器人技术升级：续航加强、扭矩提升超一倍](http://www.blog.kurohicncr.top/Article/details/9758712.shtml)
+- 2026-06-29 11:32 - [易方达如意安悦3个月持有混合（FOF）今日首发 打造多元配置新选择](http://www.share.minike.top/Article/details/36351897427.shtml)
+- 2026-06-29 11:37 - [陈茂波：香港将公布第六批引进重点企业](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [33岁确诊胃癌晚期，她错过了身体4次“求救信号”](http://www.blog.minike.top/Article/details/93362.shtml)
+- 2026-06-29 11:30 - [黄金交易提醒：周末中东局势突变，伊朗拒绝第二轮谈判，金价大幅跳空低开](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [宁波前湾新区文旅提质升级 打造长三角全域度假新高地](http://www.share.minike.top/Article/details/2072200.shtml)
+- 2026-06-29 11:28 - [行业性纵容！“幽灵外卖”黑产调查：7家电商平台“幽灵店铺”多达67604家](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:51 - [习近平谈网络安全和信息化](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:26 - [涉宇树科技、胖东来等，最高法谈知识产权司法保护](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:50 - [伊朗谈判代表称以色列可能发动袭击，在和平会谈后由巴基斯坦护送回国](http://www.share.kurohicncr.top/Article/details/4210016712.shtml)
+- 2026-06-29 11:28 - [白宫与Anthropic冰释前嫌，美政府拟推动Mythos模型落地](http://www.share.minike.top/Article/details/089080.shtml)
+- 2026-06-29 11:35 - [伊朗战争50天：5亿桶石油从市场“消失”，全球能源损失超500亿美元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [追觅俞浩：我是个极度谨慎的人](http://www.blog.kurohicncr.top/Article/details/256927.shtml)

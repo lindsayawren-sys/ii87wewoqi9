@@ -1,56 +1,56 @@
-# “多文明、多民族联欢会”在悉尼举行
+# 跨国药械企业竞逐“中国制造”新赛道
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-中新网悉尼6月7日电 为庆祝即将到来的第二个联合国“文明对话国际日”，“多文明、多民族联欢会”7日在悉尼举行。该活动由中国驻悉尼总领馆主办，吸引当地600余人参加。 中国驻悉尼总领事王愚在讲话中介绍了中国为促进文明交流互鉴、民族团结进步所作努力和积极成效。王愚表示，中国驻悉尼总领馆愿继续同澳各界朋友一道，为促进各国、各族人民多元文化相融和人类文明发展进步作出新的贡献。 活动现场
+中新网上海4月17日电 (记者 李佳佳)一根小小的一次性导管，看起来毫不起眼，但它代表的却是一场正在中国生物医药产业中静默而深刻的变革。 今年3月，波士顿科学(Boston Scientific)旗下的OptiCross HD一次性使用血管内超声诊断导管和OptiCross一次性使用冠脉超声成像导管，正式获得中国国家药品监督管理局批准，将首次在其位于上海临港的新工厂投入本土化生
 
 ## 正文
 
-中新网悉尼6月7日电 为庆祝即将到来的第二个联合国“文明对话国际日”，“多文明、多民族联欢会”7日在悉尼举行。
+中新网上海4月17日电 (记者 李佳佳)一根小小的一次性导管，看起来毫不起眼，但它代表的却是一场正在中国生物医药产业中静默而深刻的变革。
 
-该活动由中国驻悉尼总领馆主办，吸引当地600余人参加。
+今年3月，波士顿科学(Boston Scientific)旗下的OptiCross HD一次性使用血管内超声诊断导管和OptiCross一次性使用冠脉超声成像导管，正式获得中国国家药品监督管理局批准，将首次在其位于上海临港的新工厂投入本土化生产。
 
-中国驻悉尼总领事王愚在讲话中介绍了中国为促进文明交流互鉴、民族团结进步所作努力和积极成效。
+此前，这根用于冠心病介入治疗的导管依赖进口，从美国漂洋过海来到中国医生的手中，往往需要耗费数月。
 
-王愚表示，中国驻悉尼总领馆愿继续同澳各界朋友一道，为促进各国、各族人民多元文化相融和人类文明发展进步作出新的贡献。
+而今，它的产线距离上海市中心不过70公里，从获批到供应全国市场指日可待。
 
-活动现场设有多个文化展位，并展示了中国多民族以及泰国、罗马尼亚等国家的特色歌曲和舞蹈。
+这一转变的背后，是中国各地政策红利下，加速涌动的跨国药械企业在华“制造下沉”的浪潮，其深度与广度，远超以往任何时期。
 
-2024年6月，联合国大会一致通过中国提出的决议，把每年6月10日设立为“文明对话国际日”。
+作为上海生物医药产业的重要承载区，临港新片区生命蓝湾用一系列“绿色通道”向全球巨头递出了橄榄枝。
 
-(完)
+以上述波士顿科学为例，得益于海关推出的一系列便利举措，通过简化手续等方式，加速了进口原材料的引进；特殊的临床急需器械的快速通关利好政策，也帮助外资企业得以进一步强化本土供应链的韧性和稳定性，确保创新医疗产品更及时服务中国医患。
+
+与此同时，中国国家药监局对进口转产的审评审批新政，本土生产的产品可加速注册上市，无需再经历海外生产、海运、制作本土化说明书等漫长流程，大幅缩短创新医疗产品入院时间，更帮助降低患者的诊疗负担。
 
 ## 相关推荐
 
-- 2026-06-29 11:41 - [BW2026游览指南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:36 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:42 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:29 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:32 - [医护人员观影《四渡》传承长征精神](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:39 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:33 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:33 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:38 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:50 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:33 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:48 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:40 - [“东北超”推动文旅体商融合 无形资产变红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:26 - [台湾台中大甲妈祖起驾 开启九天八夜绕境活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:30 - [快讯：现货黄金回落至4750美元/盎司下方，日内跌1.76%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:43 - [拾光纪·“让互联网更好造福人民、造福世界”，总书记这样嘱托](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:29 - [山东菏泽：槐花飘香春滋味 特色槐花宴受欢迎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:28 - [涉“幽灵外卖”，抖音食品安全总监廖天博被罚超64万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:24 - [2026全球豫商大会启幕 AI与机器人企业青睐河南机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:45 - [苏林、查波访华为何要去广西、湖南？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:50 - [日本东北部沿海地区发生7.4级地震 已发布海啸警报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:43 - [（文化中国行）千年山歌的“数字迁徙”：从广西唱响东盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:34 - [广州某高校辟谣禁止小米汽车入校](https://www.blog.minike.top/Article/details/684346594.shtml)
-- 2026-06-29 11:30 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/4533581570.shtml)
-- 2026-06-29 11:36 - [古力娜扎美出新高度](http://www.blog.kurohicncr.top/Article/details/6155448226.shtml)
-- 2026-06-29 11:43 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/4931788.shtml)
-- 2026-06-29 11:31 - [鬼畜区全明星拼接遗憾](https://www.blog.minike.top/Article/details/30317098155.shtml)
-- 2026-06-29 11:25 - [2025年人口增长10强城市出炉](http://www.share.minike.top/Article/details/901227.shtml)
-- 2026-06-29 11:41 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.blog.kurohicncr.top/Article/details/711358313.shtml)
-- 2026-06-29 11:41 - [三星与SK集团或将投资2000万亿韩元](http://www.share.kurohicncr.top/Article/details/8906620131.shtml)
-- 2026-06-29 11:42 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://www.blog.minike.top/Article/details/008797551.shtml)
-- 2026-06-29 11:36 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](http://www.share.minike.top/Article/details/4564284.shtml)
-- 2026-06-29 11:41 - [韩国队主帅洪明甫下课](https://www.blog.kurohicncr.top/Article/details/8106091510.shtml)
-- 2026-06-29 11:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/657322759866.shtml)
-- 2026-06-29 11:48 - [委内瑞拉强震致中国公民8遇难1失联](https://www.blog.kurohicncr.top/Article/details/2187502.shtml)
-- 2026-06-29 11:50 - [法拉利被多名孩童当滑梯玩耍](https://www.blog.kurohicncr.top/Article/details/5580074543.shtml)
-- 2026-06-29 11:43 - [大范围炎热天气将至](http://www.blog.kurohicncr.top/Article/details/15697.shtml)
+- 2026-06-29 11:36 - [东方证券收购上海证券，又多了一家“前途未卜”的公募，上海证券持有100%股权的前海联合基金咋办？](http://www.share.minike.top/Article/details/49272.shtml)
+- 2026-06-29 11:47 - [巴基斯坦称已为所有“特殊访客”做好特别安保安排](http://www.share.kurohicncr.top/Article/details/369842463.shtml)
+- 2026-06-29 11:37 - [天臣控股拟折让21.05%配售最多7000万股 净筹约1.03亿港元](http://www.blog.kurohicncr.top/Article/details/5159897.shtml)
+- 2026-06-29 11:51 - [西南大学120周年校庆高质量发展大会举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [日本突发7.5级强震 震中附近有多个核电站](http://www.share.minike.top/Article/details/9651585526.shtml)
+- 2026-06-29 11:44 - [青海果洛：凝聚青年力量 共育民族团结之花](http://www.share.kurohicncr.top/Article/details/158048514945.shtml)
+- 2026-06-29 11:29 - [村里有了“小而美” 游客爱上“慢时光”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [广交会观察：中东局势扰动下参展商采购商同觅“新出路”](http://www.blog.kurohicncr.top/Article/details/85240873.shtml)
+- 2026-06-29 11:30 - [雄安新区首个戏曲特色工人文化宫正式投用](http://www.blog.kurohicncr.top/Article/details/56459304265.shtml)
+- 2026-06-29 11:25 - [伊朗最高领袖：伊朗海军已准备好给敌人“新的惨败”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [习近平文化思想引领书香社会建设](http://www.blog.minike.top/Article/details/345612346.shtml)
+- 2026-06-29 11:36 - [新疆和田县群众治沙：沙地成自家“聚宝盆”](http://www.share.minike.top/Article/details/60939924.shtml)
+- 2026-06-29 11:32 - [总书记引领强国之路｜共建美好网络家园](http://www.share.minike.top/Article/details/20451.shtml)
+- 2026-06-29 11:52 - [从多轮冻结到易主在即 兰州银行第三大股东清仓式法拍！3.01亿股5月13日开槌 起拍总价近7亿元](http://www.blog.kurohicncr.top/Article/details/19578863768.shtml)
+- 2026-06-29 11:35 - [“霸王”助阵“苏超” 文旅体商融合新答卷](http://www.blog.minike.top/Article/details/86736522.shtml)

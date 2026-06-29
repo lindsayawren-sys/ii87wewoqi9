@@ -1,61 +1,55 @@
-# 美丽中国行｜来草池湾村，和朱鹮做邻居！
+# 台湾台中大甲妈祖起驾 开启九天八夜绕境活动
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-6月6日清晨，秦巴山间的薄雾还未散尽，石泉县城关镇草池湾村的稻田边早已聚满了人。“美丽中国行之探访国家公园”集中采访团来到这个“朱鹮小村”，用镜头记录下朱鹮小村的生态之美与人与自然和谐共生的动人图景。镜头里的朱鹮与青山绿水相映成趣，定格下“东方宝石”与秦巴田园的共生瞬间。“这里的生态太好了，人和鸟就像邻居一样，这种感觉太奇妙了。”来自瑞典的游客说。 瑞典友人眼中的和谐画面，是草
+发布时间：2026年04月18日 16:29 来源：中国新闻网 4月17日晚，台湾台中大甲妈祖绕境活动在镇澜宫启动。今年绕境活动为期九天八夜，途经台中、彰化、云林、嘉义等地，全程逾300公里。 妈祖信仰盛行于台湾，大甲妈祖绕境是台湾最为盛大的民俗活动之一。此次绕境活动开始前数小时，大批民众和来自全台多地的宫庙代表等抵达镇澜宫进行参拜，现场举行各式仪式活动，热闹非凡。活动还吸引中
 
 ## 正文
 
-6月6日清晨，秦巴山间的薄雾还未散尽，石泉县城关镇草池湾村的稻田边早已聚满了人。
+发布时间：2026年04月18日 16:29 来源：中国新闻网 4月17日晚，台湾台中大甲妈祖绕境活动在镇澜宫启动。
 
-“美丽中国行之探访国家公园”集中采访团来到这个“朱鹮小村”，用镜头记录下朱鹮小村的生态之美与人与自然和谐共生的动人图景。
+今年绕境活动为期九天八夜，途经台中、彰化、云林、嘉义等地，全程逾300公里。
 
-镜头里的朱鹮与青山绿水相映成趣，定格下“东方宝石”与秦巴田园的共生瞬间。
+妈祖信仰盛行于台湾，大甲妈祖绕境是台湾最为盛大的民俗活动之一。
 
-“这里的生态太好了，人和鸟就像邻居一样，这种感觉太奇妙了。
+此次绕境活动开始前数小时，大批民众和来自全台多地的宫庙代表等抵达镇澜宫进行参拜，现场举行各式仪式活动，热闹非凡。
 
-”来自瑞典的游客说。
+活动还吸引中国国民党主席郑丽文等多名台湾政治人物参与。
 
-瑞典友人眼中的和谐画面，是草池湾村坚守生态底线的成果。
-
-今年79岁的周发奎是土生土长的草池湾人，也是村里最早加入护鹮队伍的村民之一。
-
-“最早的时候，有人担心朱鹮吃田里的泥鳅、小鱼，会影响收成。
+(记者 陈建新 制作 王佳琪） 责任编辑：【孙静波】
 
 ## 相关推荐
 
-- 2026-06-29 11:33 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:34 - [晋城暴雨车辆被淹冰箱在水中漂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:37 - [薛之谦演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:47 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:47 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:38 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:33 - [王中磊儿子邹市明儿子曹格儿子同框](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:44 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:40 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:46 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:25 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:49 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:23 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:29 - [张一山说杨紫早该拿奖了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:26 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:42 - [日本东北部沿海地区发生7.4级地震 已发布海啸警报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:31 - [（文化中国行）千年山歌的“数字迁徙”：从广西唱响东盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:42 - [度小满冠名《浪姐7》陷舆论反噬：透视助贷平台下沉的困局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:25 - [2026江苏省侨界中餐厨艺大赛在无锡启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:42 - [中信建投：创业板新高后，还有多少空间？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:26 - [多国客商齐聚河南长垣 共觅起重装备商机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:25 - [书香换花香 浙江杭州孔庙书市启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:30 - [2026年河南省篮球城市联赛在古都安阳开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:45 - [特斯拉：目前并无在上海超级工厂量产机器人的具体计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:45 - [为投资者创收1619亿元！一季度理财“成绩单”来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:40 - [美国精神航空公司考虑清算](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:39 - [从汽车到易拉罐：伊朗战争如何冲击全球铝供应链](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:53 - [东西问丨阿齐赞·巴哈鲁丁：“文明冲突论”必须让位于“和平共处论”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:27 - [这位猫咪，请你自重！](https://www.blog.kurohicncr.top/Article/details/775579049.shtml)
-- 2026-06-29 11:25 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/47402.shtml)
-- 2026-06-29 11:24 - [6月我国降水为何偏多](https://www.share.kurohicncr.top/Article/details/41492.shtml)
-- 2026-06-29 11:44 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.share.minike.top/Article/details/081472360.shtml)
-- 2026-06-29 11:38 - [千与千寻](http://www.share.kurohicncr.top/Article/details/2612931.shtml)
-- 2026-06-29 11:51 - [温州学子高考数学满分 分享学习经验](http://www.blog.minike.top/Article/details/521094670.shtml)
-- 2026-06-29 11:32 - [白玉兰最佳女主角提名片段](http://www.blog.minike.top/Article/details/229324867.shtml)
-- 2026-06-29 11:34 - [鬼畜区全明星拼接遗憾](http://www.share.minike.top/Article/details/04127.shtml)
-- 2026-06-29 11:27 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/073731602096.shtml)
-- 2026-06-29 11:22 - [吴海燕兰西雅漫步复兴岛](https://www.share.kurohicncr.top/Article/details/33083075.shtml)
-- 2026-06-29 11:37 - [美伊同意停止互袭 30日在多哈谈判](http://www.blog.minike.top/Article/details/7313380.shtml)
-- 2026-06-29 11:45 - [《昨夜将至》为何是悬疑黑马](http://www.share.kurohicncr.top/Article/details/44682777395.shtml)
-- 2026-06-29 11:30 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/2523161005.shtml)
-- 2026-06-29 11:36 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/87118.shtml)
-- 2026-06-29 11:44 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/58450963270.shtml)
+- 2026-06-29 11:53 - [雄安新区首个戏曲特色工人文化宫正式投用](http://www.blog.kurohicncr.top/Article/details/337866872655.shtml)
+- 2026-06-29 11:27 - [伊朗最高领袖：伊朗海军已准备好给敌人“新的惨败”](http://www.share.kurohicncr.top/Article/details/296686532.shtml)
+- 2026-06-29 11:42 - [习近平文化思想引领书香社会建设](http://www.share.kurohicncr.top/Article/details/0049206054.shtml)
+- 2026-06-29 11:50 - [新疆和田县群众治沙：沙地成自家“聚宝盆”](http://www.blog.minike.top/Article/details/4742364467.shtml)
+- 2026-06-29 11:25 - [总书记引领强国之路｜共建美好网络家园](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:30 - [从多轮冻结到易主在即 兰州银行第三大股东清仓式法拍！3.01亿股5月13日开槌 起拍总价近7亿元](http://www.share.kurohicncr.top/Article/details/751390.shtml)
+- 2026-06-29 11:33 - [“霸王”助阵“苏超” 文旅体商融合新答卷](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:50 - [价格大涨650%，国产光纤全球爆单，年内诞生3只翻倍股](http://www.blog.kurohicncr.top/Article/details/15918.shtml)
+- 2026-06-29 11:40 - [“小阳春”热度延续，深圳二手房市场正转向“量稳价稳”新阶段](http://www.blog.kurohicncr.top/Article/details/172150188433.shtml)
+- 2026-06-29 11:49 - [谷雨：祛湿排浊，双臂“甩起来”](http://www.share.kurohicncr.top/Article/details/230423.shtml)
+- 2026-06-29 11:46 - [中东股市：霍尔木兹海峡局势再起变数，停火乐观预期降温，海湾股指走势低迷](http://www.share.minike.top/Article/details/908924185515.shtml)
+- 2026-06-29 11:47 - [牛弹琴：美伊这出戏，编剧都不敢这样写](http://www.share.minike.top/Article/details/8028644.shtml)
+- 2026-06-29 11:42 - [强化长效约束，券商薪酬管理制度迎来重大修订](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:30 - [AI算力重塑创业逻辑 郑州航空港区探索“轻创业”新路径](http://www.share.minike.top/Article/details/37453844.shtml)
+- 2026-06-29 11:27 - [国元保险原董事长被查，收超400万罚单，成监管“重点户”](http://www.share.minike.top/Article/details/99324.shtml)

@@ -1,58 +1,58 @@
-# 市长、副市长化身12345接线员
+# 中国·荆州2026全国历史文化名城羽毛球邀请赛开幕
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-“您好，我是包头市长孟庆维……”坐在热线电话前，孟庆维一边接听市民打来的电话，一边摊开桌前的纸张，在纸张上记录下市民反映问题的要点。 “没想到，市长的声音那么亲切。”6月3日上午，包头市12345政务服务便民热线受理中心业务主管曹玮智谈及不久前的市长接线活动，依然感触颇深。 “放在桌前的水，只喝了几口，中途一直在不停地接电话，不知不觉一个半小时就过去了。”曹玮智说，问题没有谈完
+中新网湖北荆州4月18日电 18日，中国·荆州2026全国历史文化名城羽毛球邀请赛开幕。本次赛事汇聚了来自全国各地的羽毛球爱好者，共有57支城市代表队，参赛人员近2000人。 本届赛事已连续四年落户荆州，是中国羽毛球协会全民健身积分赛五星级赛事。赛事由中国羽毛球协会、湖北省体育局、荆州市人民政府主办。 赛事以“羽汇名城，荆州有请”为主题，创新推出“楚风羽球季乐游古荆州”九大体旅
 
 ## 正文
 
-“您好，我是包头市长孟庆维……”坐在热线电话前，孟庆维一边接听市民打来的电话，一边摊开桌前的纸张，在纸张上记录下市民反映问题的要点。
+中新网湖北荆州4月18日电 18日，中国·荆州2026全国历史文化名城羽毛球邀请赛开幕。
 
-“没想到，市长的声音那么亲切。
+本次赛事汇聚了来自全国各地的羽毛球爱好者，共有57支城市代表队，参赛人员近2000人。
 
-”6月3日上午，包头市12345政务服务便民热线受理中心业务主管曹玮智谈及不久前的市长接线活动，依然感触颇深。
+本届赛事已连续四年落户荆州，是中国羽毛球协会全民健身积分赛五星级赛事。
 
-“放在桌前的水，只喝了几口，中途一直在不停地接电话，不知不觉一个半小时就过去了。
+赛事由中国羽毛球协会、湖北省体育局、荆州市人民政府主办。
 
-”曹玮智说，问题没有谈完，市长决定再延时半小时。
+赛事以“羽汇名城，荆州有请”为主题，创新推出“楚风羽球季乐游古荆州”九大体旅融合系列活动，参赛选手凭参赛证即可畅玩荆州。
 
-深耕热线服务工作多年、亲历无数次政务接诉场景的她坦言，此次市长零距离倾听民声、耐心回应诉求的履职画面，让一线热线工作人员深受触动。
+赛事期间，参赛选手可参与线上打卡预热、十二时辰章集章游、特色美食体验、纪南文旅区羽影短剧体验等丰富活动，凭参赛证可免费游览荆州古城、荆州博物馆、楚王车马阵等核心景区，享受专属文旅优惠与定制服务。
 
-作为热线工作者，曹玮智与很多人一样，她很快就感受到了网民热烈的反响，“网友的回应很及时，点赞数不断攀升。
+赛事现场还设置荆州羽毛球运动发展、历史文化名城文旅两大主题展示区，搭配十二时辰特色NPC巡游、趣味互动游戏，让选手在赛场内外沉浸式感受楚文化与市井烟火气。
 
-” 包头12345政务服务便民热线前身是2000年开通的市长热线，历经20余年迭代升级，早已成为当地民意收集、诉求处置、政民沟通的核心平台。
+此次赛事的举办，不仅为全国羽毛球爱好者搭建了交流竞技的平台，更助力深化“体旅融合”发展理念，进一步激活赛事经济，推动体育文化与古城文化深度融合，让“跟着赛事去旅行”成为新风尚。
 
 ## 相关推荐
 
-- 2026-06-29 11:39 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:44 - [户外吃烧烤多人头发变炸毛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:51 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:44 - [韩国队主帅洪明甫下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:46 - [鬼畜区全明星拼接遗憾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:47 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:36 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:23 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:43 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:24 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:35 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:23 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:52 - [曾黎、李志希领衔主演 话剧《寻味》登陆广州大剧院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:38 - [“10天订单涨2万+” 张雪机车夺冠后 广交会现场火爆吸睛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:27 - [A股收评：超3400只个股飘红，沪指、深指收涨，创业板指收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:47 - [油气价格大跌 受霍尔木兹海峡开放和止战希望影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:43 - [伊朗：将再次关闭霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:31 - [百胜中国于4月17日斥资773.82万港元回购2.07万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:50 - [伊朗称将对美军扣押伊朗商船作出回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:45 - [特朗普：霍尔木兹海峡已完全开放 但对伊朗海上封锁仍将持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:51 - [2026中小学“汉语桥”多伦多赛区选拔赛圆满收官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:53 - [现场视频：美军人员从直升机顺绳而下，控制伊朗货船](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:40 - [贵州纳雍：玛瑙红樱桃迎采摘热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:24 - [从“石旮旯”到“世界最佳” 重庆荆竹村涌文旅热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/546136564.shtml)
-- 2026-06-29 11:32 - [宜宾5.5级地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/022528.shtml)
-- 2026-06-29 11:28 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://www.blog.minike.top/Article/details/276359.shtml)
-- 2026-06-29 11:36 - [韩国队主帅洪明甫下课](http://www.share.minike.top/Article/details/7320084.shtml)
-- 2026-06-29 11:51 - [日本前锋言论激怒巴西](https://www.share.minike.top/Article/details/195558.shtml)
-- 2026-06-29 11:28 - [克洛普：加拿大主帅还能继续创造历史](https://www.blog.minike.top/Article/details/669016406112.shtml)
-- 2026-06-29 11:38 - [欧洲多国激辩“装不装空调”](http://www.blog.minike.top/Article/details/452327.shtml)
-- 2026-06-29 11:26 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/354305790.shtml)
-- 2026-06-29 11:24 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/2718188.shtml)
-- 2026-06-29 11:38 - [急先锋](https://www.blog.minike.top/Article/details/13628176740.shtml)
-- 2026-06-29 11:51 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/729250190959.shtml)
-- 2026-06-29 11:29 - [唐艺昕女儿接唐艺昕回家](http://www.share.minike.top/Article/details/401474431.shtml)
-- 2026-06-29 11:40 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/7636432.shtml)
-- 2026-06-29 11:51 - [普京：俄罗斯将坚定捍卫自身根本利益](http://www.share.minike.top/Article/details/5597875.shtml)
-- 2026-06-29 11:23 - [欧洲热死人不是开玩笑](https://www.share.kurohicncr.top/Article/details/0810326.shtml)
+- 2026-06-29 11:31 - [2026年河南省篮球城市联赛在古都安阳开赛](http://www.blog.kurohicncr.top/Article/details/59820.shtml)
+- 2026-06-29 11:32 - [特斯拉：目前并无在上海超级工厂量产机器人的具体计划](http://www.share.minike.top/Article/details/931580631.shtml)
+- 2026-06-29 11:34 - [为投资者创收1619亿元！一季度理财“成绩单”来了](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [美国精神航空公司考虑清算](http://www.share.minike.top/Article/details/312927756646.shtml)
+- 2026-06-29 11:50 - [从汽车到易拉罐：伊朗战争如何冲击全球铝供应链](http://www.share.minike.top/Article/details/49735869778.shtml)
+- 2026-06-29 11:43 - [东西问丨阿齐赞·巴哈鲁丁：“文明冲突论”必须让位于“和平共处论”](http://www.blog.kurohicncr.top/Article/details/346179.shtml)
+- 2026-06-29 11:32 - [侧记：一座园林连中法，解码园博会背后的“侨”味道](http://www.share.minike.top/Article/details/92524099621.shtml)
+- 2026-06-29 11:37 - [海外华媒侨领走进世界自然遗产地 感受喀斯特地貌奇观](http://www.blog.kurohicncr.top/Article/details/1336292.shtml)
+- 2026-06-29 11:36 - [四大证券报头版头条内容精华摘要_2026年4月20日_财经新闻](http://www.share.kurohicncr.top/Article/details/0171188.shtml)
+- 2026-06-29 11:24 - [中国经济开局良好 外媒：高质量发展助力中国经济更具可持续性](http://www.share.kurohicncr.top/Article/details/46294449919.shtml)
+- 2026-06-29 11:41 - [2026“发现宝藏山东”主题旅游年启幕 让宝藏可寻、可感、可品](http://www.blog.kurohicncr.top/Article/details/67408868.shtml)
+- 2026-06-29 11:35 - [受伊朗局势缓和预期推动，美国股票基金持续获得资金流入](http://www.blog.kurohicncr.top/Article/details/75818727918.shtml)
+- 2026-06-29 11:33 - [中国美术馆与千问AI眼镜开启合作探索，观展迈向“边看边懂”](http://www.blog.kurohicncr.top/Article/details/69579.shtml)
+- 2026-06-29 11:28 - [上巳传笺 望江听涛：成都望江楼公园复原明代制笺古礼](http://www.blog.minike.top/Article/details/88032816613.shtml)
+- 2026-06-29 11:25 - [拼多多因“幽灵外卖”被罚，法定代表人赵佳臻被处693.73万元罚款](http://www.blog.minike.top/Article/details/967862.shtml)

@@ -1,57 +1,58 @@
-# 胜科纳米大宗交易成交418.80万元
+# 日本东北部沿海地区发生7.4级地震 已发布海啸警报
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-胜科纳米6月5日大宗交易平台出现一笔成交，成交量10.00万股，成交金额418.80万元，大宗交易成交价为41.88元，相对今日收盘价折价0.71%。该笔交易的买方营业部为中信建投证券股份有限公司总部，卖方营业部为国泰海通证券股份有限公司上海普陀区铜川路证券营业部。进一步统计，近3个月内该股累计发生23笔大宗交易，合计成交金额为4.61亿元。证券时报·数据宝统计显示，胜科纳米今
+据日本气象厅消息，当地时间20日16时53分左右，日本东北部沿海地区发生7.4级地震，最大震感为震度5强。东京有明显震感。日本气象厅已发布海啸警报。 目前发布海啸警报的区域为北海道沿海中部地区及岩手县沿海地区。青森县沿海地区、宫城县沿海地区及北海道太平洋沿岸东部为海啸注意报。 日本气象厅预测，岩手县、北海道太平洋沿岸中部预计海啸到达高度为3米，青森县太平洋沿岸、宫城县预计海啸到
 
 ## 正文
 
-胜科纳米6月5日大宗交易平台出现一笔成交，成交量10.00万股，成交金额418.80万元，大宗交易成交价为41.88元，相对今日收盘价折价0.71%。
+据日本气象厅消息，当地时间20日16时53分左右，日本东北部沿海地区发生7.4级地震，最大震感为震度5强。
 
-该笔交易的买方营业部为中信建投证券股份有限公司总部，卖方营业部为国泰海通证券股份有限公司上海普陀区铜川路证券营业部。
+东京有明显震感。
 
-进一步统计，近3个月内该股累计发生23笔大宗交易，合计成交金额为4.61亿元。
+日本气象厅已发布海啸警报。
 
-证券时报·数据宝统计显示，胜科纳米今日收盘价为42.18元，上涨11.35%，日换手率为9.83%，成交额为7.36亿元，全天主力资金净流入3727.29万元，近5日该股累计上涨8.66%，近5日资金合计净流入2843.60万元。
+目前发布海啸警报的区域为北海道沿海中部地区及岩手县沿海地区。
 
-两融数据显示，该股最新融资余额为3.79亿元，近5日增加5189.49万元，增幅为15.85%。
+青森县沿海地区、宫城县沿海地区及北海道太平洋沿岸东部为海啸注意报。
 
-据天眼查APP显示，胜科纳米(苏州)股份有限公司成立于2012年08月17日，注册资本40331.1486万人民币。
+日本气象厅预测，岩手县、北海道太平洋沿岸中部预计海啸到达高度为3米，青森县太平洋沿岸、宫城县预计海啸到达高度为1米。
 
-（数据宝）6月5日胜科纳米大宗交易一览注：本文系新闻报道，不构成投资建议，股市有风险，投资需谨慎。
-
-（文章来源：证券时报网）
+(总台记者 柏春洋)
 
 ## 相关推荐
 
-- 2026-06-29 11:23 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:40 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:51 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:24 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:37 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:46 - [天津打雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:34 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:29 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:35 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:50 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:33 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:25 - [2026年河南省篮球城市联赛在古都安阳开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:50 - [特斯拉：目前并无在上海超级工厂量产机器人的具体计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:51 - [为投资者创收1619亿元！一季度理财“成绩单”来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:37 - [美国精神航空公司考虑清算](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:34 - [从汽车到易拉罐：伊朗战争如何冲击全球铝供应链](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:31 - [东西问丨阿齐赞·巴哈鲁丁：“文明冲突论”必须让位于“和平共处论”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:30 - [侧记：一座园林连中法，解码园博会背后的“侨”味道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:49 - [海外华媒侨领走进世界自然遗产地 感受喀斯特地貌奇观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:39 - [四大证券报头版头条内容精华摘要_2026年4月20日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:51 - [中国经济开局良好 外媒：高质量发展助力中国经济更具可持续性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:39 - [2026“发现宝藏山东”主题旅游年启幕 让宝藏可寻、可感、可品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:47 - [受伊朗局势缓和预期推动，美国股票基金持续获得资金流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:52 - [中国美术馆与千问AI眼镜开启合作探索，观展迈向“边看边懂”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:43 - [上巳传笺 望江听涛：成都望江楼公园复原明代制笺古礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:34 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/19718749.shtml)
-- 2026-06-29 11:50 - [这位猫咪，请你自重！](http://www.blog.minike.top/Article/details/968094.shtml)
-- 2026-06-29 11:48 - [网友偶遇胡军和李乃文](https://www.blog.minike.top/Article/details/674486820.shtml)
-- 2026-06-29 11:36 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/0395132912.shtml)
-- 2026-06-29 11:52 - [绘画区你赢了](http://www.blog.minike.top/Article/details/91591545812.shtml)
-- 2026-06-29 11:31 - [专家建议城乡居民养老金增至每月千元](http://www.blog.kurohicncr.top/Article/details/2562739.shtml)
-- 2026-06-29 11:35 - [直击宜宾地震：监控剧烈摇晃](https://www.share.kurohicncr.top/Article/details/190202.shtml)
-- 2026-06-29 11:33 - [女生雨天开车发现雨刮条被掰走](http://www.share.minike.top/Article/details/488221294369.shtml)
-- 2026-06-29 11:27 - [天道](http://www.blog.kurohicncr.top/Article/details/736525401026.shtml)
-- 2026-06-29 11:41 - [1年内值得期待的12大游戏](https://www.blog.kurohicncr.top/Article/details/8218959.shtml)
-- 2026-06-29 11:47 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.minike.top/Article/details/82944.shtml)
-- 2026-06-29 11:51 - [直击宜宾地震：监控剧烈摇晃](https://www.blog.kurohicncr.top/Article/details/812679273.shtml)
-- 2026-06-29 11:34 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/775314.shtml)
-- 2026-06-29 11:30 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/983826746.shtml)
-- 2026-06-29 11:43 - [唐艺昕女儿接唐艺昕回家](http://www.share.kurohicncr.top/Article/details/963166277.shtml)
+- 2026-06-29 11:26 - [价格大涨650%，国产光纤全球爆单，年内诞生3只翻倍股](http://www.blog.minike.top/Article/details/0859868184.shtml)
+- 2026-06-29 11:33 - [“小阳春”热度延续，深圳二手房市场正转向“量稳价稳”新阶段](http://www.blog.kurohicncr.top/Article/details/8397346.shtml)
+- 2026-06-29 11:30 - [谷雨：祛湿排浊，双臂“甩起来”](http://www.share.kurohicncr.top/Article/details/30947.shtml)
+- 2026-06-29 11:40 - [中东股市：霍尔木兹海峡局势再起变数，停火乐观预期降温，海湾股指走势低迷](http://www.share.minike.top/Article/details/58266202442.shtml)
+- 2026-06-29 11:28 - [牛弹琴：美伊这出戏，编剧都不敢这样写](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [强化长效约束，券商薪酬管理制度迎来重大修订](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:28 - [AI算力重塑创业逻辑 郑州航空港区探索“轻创业”新路径](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:53 - [国元保险原董事长被查，收超400万罚单，成监管“重点户”](http://www.blog.kurohicncr.top/Article/details/499252390.shtml)
+- 2026-06-29 11:27 - [美军在阿曼湾拦截并控制一艘伊朗货船](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:50 - [优步以3.18亿美元交易增持外卖平台Delivery Hero股份](http://www.share.kurohicncr.top/Article/details/95135.shtml)
+- 2026-06-29 11:49 - [福特召回至多139万辆F-150皮卡](http://www.share.minike.top/Article/details/542546.shtml)
+- 2026-06-29 11:53 - [文化中国行·联播一瞬丨谷雨：春去无憾 夏来有期](http://www.share.minike.top/Article/details/308710633.shtml)
+- 2026-06-29 11:29 - [伊朗民航组织宣布伊朗部分空域重新开放](http://www.blog.kurohicncr.top/Article/details/52850857.shtml)
+- 2026-06-29 11:32 - [李强主持召开国务院常务会议 听取自由贸易试验区建设情况汇报 审议通过《中华人民共和国行政复议法实施条例（修订草案）》](http://www.blog.minike.top/Article/details/90658908291.shtml)
+- 2026-06-29 11:48 - [超3万名日本民众集会反对高市政权危险动向](http://www.blog.minike.top/Article/details/05244.shtml)

@@ -1,55 +1,58 @@
-# 洛阳钼业大宗交易成交1204.18万元
+# CBA常规赛第40轮：福建客场战胜广东
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-洛阳钼业6月5日大宗交易平台出现一笔成交，成交量66.20万股，成交金额1204.18万元，大宗交易成交价为18.19元。该笔交易的买方营业部为广发证券股份有限公司昆明广福路证券营业部，卖方营业部为中信证券股份有限公司总部(非营业场所)。进一步统计，近3个月内该股累计发生2笔大宗交易，合计成交金额为1448.58万元。证券时报·数据宝统计显示，洛阳钼业今日收盘价为18.19元，
+中新社东莞4月18日电 (记者 张璐)2025-2026赛季中国男子篮球职业联赛(CBA)常规赛第40轮18日晚在东莞继续进行。福建晋江文旅队(简称“福建队”)客场以95:83战胜广东东阳光队(简称“广东队”)。 从历史交锋来看，两队此前共交手53次，广东队49胜4负。上赛季两队交手2次，广东队两战皆胜。此役是两队本赛季首次交锋，双方展开了激烈对攻战。 比赛开始，广东队迅速进入
 
 ## 正文
 
-洛阳钼业6月5日大宗交易平台出现一笔成交，成交量66.20万股，成交金额1204.18万元，大宗交易成交价为18.19元。
+中新社东莞4月18日电 (记者 张璐)2025-2026赛季中国男子篮球职业联赛(CBA)常规赛第40轮18日晚在东莞继续进行。
 
-该笔交易的买方营业部为广发证券股份有限公司昆明广福路证券营业部，卖方营业部为中信证券股份有限公司总部(非营业场所)。
+福建晋江文旅队(简称“福建队”)客场以95:83战胜广东东阳光队(简称“广东队”)。
 
-进一步统计，近3个月内该股累计发生2笔大宗交易，合计成交金额为1448.58万元。
+从历史交锋来看，两队此前共交手53次，广东队49胜4负。
 
-证券时报·数据宝统计显示，洛阳钼业今日收盘价为18.19元，下跌2.93%，日换手率为1.26%，成交额为40.68亿元，全天主力资金净流出3.76亿元，近5日该股累计下跌1.73%，近5日资金合计净流出1.63亿元。
+上赛季两队交手2次，广东队两战皆胜。
 
-两融数据显示，该股最新融资余额为44.27亿元，近5日增加3260.08万元，增幅为0.74%。
+此役是两队本赛季首次交锋，双方展开了激烈对攻战。
 
-据天眼查APP显示，洛阳栾川钼业集团股份有限公司成立于1999年12月22日，注册资本427886.20352万人民币。
+比赛开始，广东队迅速进入状态，奎因里外开花，麦考尔跳投得分、王少杰突破上篮得分，开局以13:4领先。
 
-（数据宝）6月5日洛阳钼业大宗交易一览（文章来源：证券时报网）
+随后，福建队奋起追分，邹阳、杨曦皓接连三分命中，布罗兹安斯基跳投得分，一度将分差缩小至5分。
+
+末段，崔永熙命中三分稳住局面。
 
 ## 相关推荐
 
-- 2026-06-29 11:32 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:34 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:36 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:52 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:42 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:28 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:41 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:25 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:50 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:41 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:36 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:52 - [歼-10升空！防以色列袭击，巴基斯坦出动20多架飞机护送伊朗谈判代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:33 - [旧金山联储行长戴利认为利率处于良好位置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:46 - [券商前十座次重排！“两超多强”格局显现，两大业务成新关键赛道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:43 - [黑龙江干流黑河段平稳开江 较历年提前9天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:28 - [标普500闪现罕见上涨信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:29 - [卡沙甘油田就50亿美元哈萨克斯坦硫磺罚款上诉再遭驳回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:47 - [霍尔木兹海峡开放提振市场，华尔街周五开盘走高，原油价格大跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:38 - [2026金鸡艺术电影展在上海举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:32 - [ZFX山海证券:金矿合作拓展资源前景仍待验证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:26 - [做具身智能的银河通用，为什么要花1500多万元向宇树科技买机器人？ | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:35 - [蓝色起源火箭可重复使用助推器着陆 但卫星偏离轨道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:26 - [霍尔木兹海峡开放后多艘船只尝试通行但未竟全功 不确定性犹在](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:52 - [四川宜宾地震致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/102024651.shtml)
-- 2026-06-29 11:46 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.kurohicncr.top/Article/details/59656384946.shtml)
-- 2026-06-29 11:29 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/5330417137.shtml)
-- 2026-06-29 11:36 - [鬼畜区全明星拼接遗憾](http://www.share.minike.top/Article/details/744206605.shtml)
-- 2026-06-29 11:36 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/044931729543.shtml)
-- 2026-06-29 11:36 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/34303988.shtml)
-- 2026-06-29 11:42 - [宜宾5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/474297.shtml)
-- 2026-06-29 11:26 - [美的空调 卡bug](http://www.share.kurohicncr.top/Article/details/4367513.shtml)
-- 2026-06-29 11:51 - [王佳佳江疏影13年前后同框对比](https://www.share.minike.top/Article/details/4497399.shtml)
-- 2026-06-29 11:34 - [美人鱼](https://www.share.minike.top/Article/details/65586638219.shtml)
-- 2026-06-29 11:23 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/7726794.shtml)
-- 2026-06-29 11:52 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/56268.shtml)
-- 2026-06-29 11:33 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/8081686988.shtml)
-- 2026-06-29 11:32 - [双高胎](https://www.share.kurohicncr.top/Article/details/597125.shtml)
-- 2026-06-29 11:44 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/072123340273.shtml)
+- 2026-06-29 11:43 - [伊朗称将对美军扣押伊朗商船作出回应](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [特朗普：霍尔木兹海峡已完全开放 但对伊朗海上封锁仍将持续](http://www.blog.minike.top/Article/details/37919960.shtml)
+- 2026-06-29 11:34 - [2026中小学“汉语桥”多伦多赛区选拔赛圆满收官](http://www.blog.minike.top/Article/details/207180.shtml)
+- 2026-06-29 11:51 - [现场视频：美军人员从直升机顺绳而下，控制伊朗货船](http://www.blog.minike.top/Article/details/213021405406.shtml)
+- 2026-06-29 11:47 - [贵州纳雍：玛瑙红樱桃迎采摘热潮](http://www.blog.kurohicncr.top/Article/details/5027634103.shtml)
+- 2026-06-29 11:51 - [从“石旮旯”到“世界最佳” 重庆荆竹村涌文旅热潮](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [ATFX五度斩获ADVFN最佳拉美地区经纪商 区域领导力再获国际权威认可](http://www.share.minike.top/Article/details/79026120.shtml)
+- 2026-06-29 11:38 - [三亚与7家境外经贸合作区集中签约](http://www.share.minike.top/Article/details/0172996.shtml)
+- 2026-06-29 11:39 - [三亚亚沙会临近 主媒体中心试运行赛事氛围渐浓](http://www.share.kurohicncr.top/Article/details/97932566.shtml)
+- 2026-06-29 11:47 - [法国通过“文物归还法案”，260万件中国文物多少能回归？](http://www.blog.minike.top/Article/details/41922.shtml)
+- 2026-06-29 11:46 - [OpenAI “Sora之父”宣布离职](http://www.share.kurohicncr.top/Article/details/116497266371.shtml)
+- 2026-06-29 11:50 - [跨国药械企业竞逐“中国制造”新赛道](http://www.share.kurohicncr.top/Article/details/71441.shtml)
+- 2026-06-29 11:29 - [美国中央司令部：美军瘫痪了一艘试图驶入伊朗港口、违反封锁令的伊朗船只](http://www.share.minike.top/Article/details/70549.shtml)
+- 2026-06-29 11:35 - [霍尔木兹海峡开放消息提振米兰股市加速上涨，银行与奢侈品板块飙升，石油股下跌](http://www.share.minike.top/Article/details/99131583898.shtml)
+- 2026-06-29 11:50 - [建平台强队伍见实效 云南探路国企统战新模式](http://www.blog.kurohicncr.top/Article/details/7728078.shtml)

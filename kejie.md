@@ -1,56 +1,58 @@
-# 中小民企出海，都靠摸爬滚打
+# 做具身智能的银河通用，为什么要花1500多万元向宇树科技买机器人？ | 长三角资本局
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-中国新闻周刊记者：李明子 发于2026.6.8总第1238期《中国新闻周刊》杂志 采访开始前，做了十多年机器人海外商务的 Tina 忽然反问我：“没有巨头高举高打、拿下国家级大渠道的宏大叙事，中小民企没那么多资源，只有在海外市场摸爬滚打的故事，愿意听吗？” 她的提问击中了我。如她所言，大众眼中的出海，往往是比亚迪式的征途，或是小米等科技大厂直接切入日本线下商业开店的模式。这些高
+文|新浪财经上海站 十里 一家做具身智能的明星公司，为什么要向另一家机器人公司宇树科技购买1500多万元的产品？这是宇树科技问询回复里，最值得关注的一笔交易之一。 近日，宇树科技在问询回复中披露，2025年1至6月，北京银河通用机器人股份有限公司是其直销业务第一大客户，贡献收入1514.21万元，占直销收入的2.61%。其中，四足机器人收入614.92万元，应用领域为“科学研究
 
 ## 正文
 
-中国新闻周刊记者：李明子 发于2026.6.8总第1238期《中国新闻周刊》杂志 采访开始前，做了十多年机器人海外商务的 Tina 忽然反问我：“没有巨头高举高打、拿下国家级大渠道的宏大叙事，中小民企没那么多资源，只有在海外市场摸爬滚打的故事，愿意听吗？
+文|新浪财经上海站 十里 一家做具身智能的明星公司，为什么要向另一家机器人公司宇树科技购买1500多万元的产品？
 
-” 她的提问击中了我。
+这是宇树科技问询回复里，最值得关注的一笔交易之一。
 
-如她所言，大众眼中的出海，往往是比亚迪式的征途，或是小米等科技大厂直接切入日本线下商业开店的模式。
+近日，宇树科技在问询回复中披露，2025年1至6月，北京银河通用机器人股份有限公司是其直销业务第一大客户，贡献收入1514.21万元，占直销收入的2.61%。
 
-这些高级别的资源配置，离大多数创业者很远。
+其中，四足机器人收入614.92万元，应用领域为“科学研究、应用开发”。
 
-作为天天在一线操盘的人，Tina 感受到的完全是另一种水温。
+宇树同时解释，银河通用采购相关产品，主要用于技术研发、模型算法开发训练，以及基于宇树产品进行二次开发后对外销售。
 
-她在日本开设法人账户就申请了8个月。
+这笔交易的看点，不仅是“同行买同行”，而在银河通用缺什么。
 
-用她的话说，日本有一套独特的“读空气”处事逻辑。
+银河通用这两年对外讲得最多的，不是机器人能跳什么动作，而是机器人能不能进药房、进零售、进工厂。
 
-当下的国际局势，官方不会明文规定哪里是禁区，全凭各自感受做判断。
+据悉，银河通用表示机器人已经在24小时智慧药房完成接单、找货、取货、交付等流程；机器人正进入零售和服务场景，到了今年4月，银河通用研发出“全自主网球人形机器人”宇树G1。
 
 ## 相关推荐
 
-- 2026-06-29 11:28 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:50 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:33 - [韩红携4000万物资抵呼和浩特](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:38 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:41 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:35 - [刘烨赶紧蹭个热度宣传四渡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:51 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:50 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:44 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:26 - [张杰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:36 - [吉韵东方入春城 中国华服周展示古韵风华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:40 - [中国经济圆桌会丨消博会是一个至关重要窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:24 - [三问首季经济：形如何，亮在哪，势怎样？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:27 - [泰国类鼻疽疫情今年已确诊732例死亡23例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:44 - [受伊朗战争影响，尿素化肥价格高企，阿根廷小麦生产面临威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:36 - [视频｜李在明首次访印 涉霍尔木兹海峡 呼吁韩印联手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:32 - [中国驻日使馆连遭威胁 外交部四字警告日方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:34 - [广西岑溪“村味擂台”亮相“三月三” 民俗与文明集市“双向奔赴”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:52 - [广西财政强化资金保障 筑牢基层应急管理“第一道防线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:40 - [广西百色5岁走失男童已不幸身亡，当地通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:32 - [中国·荆州2026全国历史文化名城羽毛球邀请赛开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:34 - [中国创新正在全方位加速突破](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:46 - [外网预言中国举办世界杯时间](http://www.share.kurohicncr.top/Article/details/07534560.shtml)
-- 2026-06-29 11:23 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://www.blog.minike.top/Article/details/04595105029.shtml)
-- 2026-06-29 11:41 - [韩国队主帅洪明甫下课](https://www.share.kurohicncr.top/Article/details/310044957.shtml)
-- 2026-06-29 11:38 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/58664122.shtml)
-- 2026-06-29 11:39 - [海清白玉兰奖运](https://www.share.kurohicncr.top/Article/details/71390514872.shtml)
-- 2026-06-29 11:23 - [三只羊大杨哥不直播改卖课](http://www.share.kurohicncr.top/Article/details/628697038.shtml)
-- 2026-06-29 11:41 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.minike.top/Article/details/54408.shtml)
-- 2026-06-29 11:28 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.share.kurohicncr.top/Article/details/82678.shtml)
-- 2026-06-29 11:26 - [扬名立万](http://www.share.minike.top/Article/details/017499694398.shtml)
-- 2026-06-29 11:35 - [罗马诺：李刚仁已与马竞达成协议](https://www.blog.minike.top/Article/details/066384012756.shtml)
-- 2026-06-29 11:26 - [时光音乐会](http://www.blog.minike.top/Article/details/66131863.shtml)
-- 2026-06-29 11:44 - [医护人员观影《四渡》传承长征精神](https://www.share.kurohicncr.top/Article/details/2277687544.shtml)
-- 2026-06-29 11:30 - [日本和澳大利亚能代表亚洲足球走多远](https://www.blog.kurohicncr.top/Article/details/9614071663.shtml)
-- 2026-06-29 11:41 - [记者暗访贵州和云南多个养老机构](https://www.share.kurohicncr.top/Article/details/700322245676.shtml)
-- 2026-06-29 11:31 - [詹姆斯下赛季会在哪里](http://www.share.kurohicncr.top/Article/details/413558580572.shtml)
+- 2026-06-29 11:53 - [吉林大学春花绽放春意浓](http://www.share.minike.top/Article/details/019577705.shtml)
+- 2026-06-29 11:32 - [纽约汇市：美元第三周下跌 市场对伊朗和平前景乐观](http://www.blog.minike.top/Article/details/84107.shtml)
+- 2026-06-29 11:43 - [“东北超”推动文旅体商融合 无形资产变红利](http://www.blog.minike.top/Article/details/43786329934.shtml)
+- 2026-06-29 11:46 - [台湾台中大甲妈祖起驾 开启九天八夜绕境活动](http://www.share.kurohicncr.top/Article/details/288267.shtml)
+- 2026-06-29 11:33 - [快讯：现货黄金回落至4750美元/盎司下方，日内跌1.76%](http://www.share.minike.top/Article/details/38903.shtml)
+- 2026-06-29 11:44 - [拾光纪·“让互联网更好造福人民、造福世界”，总书记这样嘱托](http://www.share.minike.top/Article/details/338549981166.shtml)
+- 2026-06-29 11:43 - [山东菏泽：槐花飘香春滋味 特色槐花宴受欢迎](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [涉“幽灵外卖”，抖音食品安全总监廖天博被罚超64万](http://www.blog.kurohicncr.top/Article/details/76359872.shtml)
+- 2026-06-29 11:40 - [2026全球豫商大会启幕 AI与机器人企业青睐河南机遇](http://www.blog.kurohicncr.top/Article/details/0375637.shtml)
+- 2026-06-29 11:36 - [苏林、查波访华为何要去广西、湖南？](http://www.blog.kurohicncr.top/Article/details/2808610.shtml)
+- 2026-06-29 11:28 - [日本东北部沿海地区发生7.4级地震 已发布海啸警报](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [（文化中国行）千年山歌的“数字迁徙”：从广西唱响东盟](http://www.blog.minike.top/Article/details/36417373834.shtml)
+- 2026-06-29 11:46 - [度小满冠名《浪姐7》陷舆论反噬：透视助贷平台下沉的困局](http://www.share.kurohicncr.top/Article/details/3471172926.shtml)
+- 2026-06-29 11:51 - [2026江苏省侨界中餐厨艺大赛在无锡启动](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [中信建投：创业板新高后，还有多少空间？](https://github.com/lisacumin64-arch)

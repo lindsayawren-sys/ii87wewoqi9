@@ -1,58 +1,57 @@
-# 护航高考！北京开通身份证办理绿色通道 合肥推出免费乘车服务
+# 福特召回至多139万辆F-150皮卡
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-高考临近，北京警方已启动高考考生身份证办理绿色通道。6月10日之前申领，24小时内就可取证。本市户籍考生，可就近到全市任意户籍派出所申请办理，当日上午申请办理，下午可领取证件；当日下午申请，次日上午领取证件。两种领取方式可任选其一： 一是本人持相关凭证于当日16时后或次日11时后，前往北京市公安局人口管理和基层工作总队制证中心现场领取； 二是选择邮政速递送证上门，公安机关将在完
+内容概要 福特将召回至多 139 万辆 F-150 皮卡，原因是车辆存在意外降挡风险，可能引发车辆失控。 此次召回涉及部分 2015 至 2017 年款 F-150 车型，问题核心为变速器档位传感器与动力总成控制模块之间出现信号中断，进而导致变速器强制降入二挡。 经销商将为车辆升级动力总成控制模块软件。车主安全风险告知函预计于 4 月 27 日寄出；最终修复方案预计 7 月推出
 
 ## 正文
 
-高考临近，北京警方已启动高考考生身份证办理绿色通道。
+内容概要 福特将召回至多 139 万辆 F-150 皮卡，原因是车辆存在意外降挡风险，可能引发车辆失控。
 
-6月10日之前申领，24小时内就可取证。
+此次召回涉及部分 2015 至 2017 年款 F-150 车型，问题核心为变速器档位传感器与动力总成控制模块之间出现信号中断，进而导致变速器强制降入二挡。
 
-本市户籍考生，可就近到全市任意户籍派出所申请办理，当日上午申请办理，下午可领取证件；当日下午申请，次日上午领取证件。
+经销商将为车辆升级动力总成控制模块软件。
 
-两种领取方式可任选其一： 一是本人持相关凭证于当日16时后或次日11时后，前往北京市公安局人口管理和基层工作总队制证中心现场领取； 二是选择邮政速递送证上门，公安机关将在完成制证后将居民身份证速递至申请人指定地点。
+车主安全风险告知函预计于 4 月 27 日寄出；最终修复方案预计 7 月推出，届时将另行发送通知。
 
-同时，高考期间，公安机关将在全市各考场外设置服务点，为居民身份证到期、丢失、损坏无法及时到派出所办理相关手续的考生，开具《常住人口信息查询结果》，用作考试身份证明。
+福特 F 系列皮卡数十年来一直是美国最畅销车型。
 
-免费乘车 增开班次 公交地铁护航考生 记者从安徽合肥教育招生考试院了解到，今年，合肥市共设6个分考区、58个考点。
+2025 年该车型销量近 83 万辆，同比增长 8.3%。
 
-为方便考生和家长高考期间出行，合肥公交集团发布了途经考点及备用考点的公交线路、停靠站点一览表。
+此次召回是这家总部位于密歇根州迪尔伯恩的车企近期一系列召回事件中的最新一起。
 
-高考期间，将增加考点沿线公交班次。
+2025 年，福特发起的召回数量超过其他所有汽车制造商，涉及车辆近 1300 万辆。
 
 ## 相关推荐
 
-- 2026-06-29 11:44 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:46 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:51 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:29 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:44 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:40 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:43 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:39 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:46 - [《给阿嬷的情书》里的情义与守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:43 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:39 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:40 - [如何看待奔驰将取消德国9万名员工年终奖，并计划延长工作时间且不支付补偿性报酬？奔驰当下处于什么境况？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:49 - [特朗普：若无法达成协议 或将不延长美伊临时停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:28 - [霍尔木兹海峡开放后油价大跌，欧洲斯托克600指数涨逾1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:49 - [国常会部署推动自贸试验区高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:32 - [英国金融时报称欧盟拟放宽并购规则 培育全球冠军企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:38 - [“90后”侨青走进上海虹口 读懂城市文脉与发展活力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:44 - [“寒潮”来袭！理财产品规模一季度缩水1.38万亿，投资者收益同比降低21%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:43 - [一季度广东货物以海运方式经海南自贸港进出口同比增长25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:45 - [特朗普过去24小时都忙了什么？（2026-04-19）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:46 - [A股“股王”更替见证中国经济新力量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:30 - [北京：香椿宴带动京郊游 衍生品丰富山村体验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:27 - [又见内幕交易？霍尔木兹开放前20分钟，神秘交易员7.6亿美元精准做空原油，已被调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:43 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/797653.shtml)
-- 2026-06-29 11:46 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/55771026.shtml)
-- 2026-06-29 11:23 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/0235231.shtml)
-- 2026-06-29 11:30 - [王楚钦3比0周启豪](http://www.share.kurohicncr.top/Article/details/77372858.shtml)
-- 2026-06-29 11:34 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/4595272.shtml)
-- 2026-06-29 11:25 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/75966154.shtml)
-- 2026-06-29 11:23 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/334551237.shtml)
-- 2026-06-29 11:41 - [毒液2](https://www.share.kurohicncr.top/Article/details/8032788.shtml)
-- 2026-06-29 11:27 - [跑步机上“爬坡”减肥公式爆火](https://www.share.kurohicncr.top/Article/details/963510.shtml)
-- 2026-06-29 11:48 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/520143148.shtml)
-- 2026-06-29 11:34 - [BW2026游览指南](http://www.blog.kurohicncr.top/Article/details/034563078772.shtml)
-- 2026-06-29 11:49 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/284607496.shtml)
-- 2026-06-29 11:25 - [2025年人口增长10强城市出炉](http://www.share.minike.top/Article/details/40472081835.shtml)
-- 2026-06-29 11:43 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/2938162.shtml)
-- 2026-06-29 11:44 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/71069109919.shtml)
+- 2026-06-29 11:34 - [去年翻倍赚钱的基金，今年怎么样了？](http://www.share.minike.top/Article/details/45479899.shtml)
+- 2026-06-29 11:53 - [巴西、西班牙和墨西哥联合呼吁采取措施缓解古巴局势](http://www.blog.minike.top/Article/details/52092423573.shtml)
+- 2026-06-29 11:45 - [产品业绩回撤38.53%，昔日百亿私募同犇投资最新回应：从来不是只买消费，AI产业链去年开始就有不少仓位](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [金价下跌 霍尔木兹海峡再度中断引发通胀担忧](http://www.share.minike.top/Article/details/7062947571.shtml)
+- 2026-06-29 11:54 - [农业农村部：推动猪价合理回升](http://www.blog.kurohicncr.top/Article/details/946970221.shtml)
+- 2026-06-29 11:29 - [鼎泰丰“回京”热度不减 稳中求进布局大陆北方市场](http://www.share.minike.top/Article/details/1828580.shtml)
+- 2026-06-29 11:29 - [国际能源署称中东能源产出恢复需两年时间](http://www.share.kurohicncr.top/Article/details/855188.shtml)
+- 2026-06-29 11:34 - [直击广东消防救援力量多举措筑牢防汛救灾安全屏障](http://www.blog.minike.top/Article/details/7517749.shtml)
+- 2026-06-29 11:26 - [印度卢比在亚币中表现最佳 央行据报道对油企购买美元进行窗口指导](http://www.share.kurohicncr.top/Article/details/4416611809.shtml)
+- 2026-06-29 11:40 - [西安直飞维也纳国际航线开通](http://www.blog.kurohicncr.top/Article/details/09520240963.shtml)
+- 2026-06-29 11:29 - [江西南昌久雨初晴：市民户外享受春光](http://www.share.minike.top/Article/details/51872380.shtml)
+- 2026-06-29 11:35 - [2026年巴黎图书节拉开帷幕](http://www.share.kurohicncr.top/Article/details/5930022271.shtml)
+- 2026-06-29 11:24 - [韩国和美国一致认为，韩元汇率过度波动是不可取的](http://www.blog.minike.top/Article/details/65394998869.shtml)
+- 2026-06-29 11:30 - [新阶人士走进成都高新天府长岛 共话数字文创新未来](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [广西兴业县举办“三月三”民族团结系列活动](http://www.share.kurohicncr.top/Article/details/14059.shtml)

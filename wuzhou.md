@@ -1,56 +1,58 @@
-# 揭秘捷克政客执意再次窜台：反华利益链上的“角色扮演”｜真相
+# 超3万名日本民众集会反对高市政权危险动向
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-中新网6月8日电(燕新台)6月1日，捷克参议院主席米洛什·维斯特奇尔又一次窜到台湾地区。说“又”，因为这已经是他六年内第二次踩这条红线。捷克政府高层并未给予维斯特奇尔此次窜访的官方授权，捷克主流媒体与商界也表达强烈反对。 捷克总理巴比什4月时就明确表示，捷克政府不会为维斯特奇尔窜访提供公务专机。捷克副总理兼外长马青卡在5月底表示，捷克新政府坚定奉行一个中国政策，这一立场绝不会改
+发布时间：2026年04月20日 07:34 来源：中国新闻网 当地时间4月19日，大批日本民众在位于东京的国会议事堂前集会，抗议高市早苗政府强推修宪、企图解禁杀伤性武器出口等破坏和平宪法的动向。 集会由反对修宪的日本市民团体组织举行。组织方表示，约3.6万人参加当日集会。 在集会现场，抗议者手持写有“守护宪法第九条”“不要战争”等字样的标语，高喊“反对修宪”“反对战争”“高市
 
 ## 正文
 
-中新网6月8日电(燕新台)6月1日，捷克参议院主席米洛什·维斯特奇尔又一次窜到台湾地区。
+发布时间：2026年04月20日 07:34 来源：中国新闻网 当地时间4月19日，大批日本民众在位于东京的国会议事堂前集会，抗议高市早苗政府强推修宪、企图解禁杀伤性武器出口等破坏和平宪法的动向。
 
-说“又”，因为这已经是他六年内第二次踩这条红线。
+集会由反对修宪的日本市民团体组织举行。
 
-捷克政府高层并未给予维斯特奇尔此次窜访的官方授权，捷克主流媒体与商界也表达强烈反对。
+组织方表示，约3.6万人参加当日集会。
 
-捷克总理巴比什4月时就明确表示，捷克政府不会为维斯特奇尔窜访提供公务专机。
+在集会现场，抗议者手持写有“守护宪法第九条”“不要战争”等字样的标语，高喊“反对修宪”“反对战争”“高市政权下台”等口号，呼吁维护和平宪法。
 
-捷克副总理兼外长马青卡在5月底表示，捷克新政府坚定奉行一个中国政策，这一立场绝不会改变。
+1947年施行的日本宪法因其第九条规定日本永远放弃以国权发动的战争、武力威胁或武力行使作为解决国际争端的手段，而被称为和平宪法。
 
-这些表态翻译过来就是：这老头到处乱窜瞎胡闹，不代表捷克主流民意，更不代表捷克政府立场。
+日本首相、自民党总裁高市早苗近日在自民党大会上公然宣称，希望明年召开党大会时，能够在提出修宪动议方面取得一定进展，并强调“修宪比以往任何时候都更重要”。
 
-有网友不禁要问，一个参议院主席，既管不了外交，也签不了任何实质性协议，为何被本国政府切割、打脸，还要硬跑一趟？
+这一表态在日本国内引发大量质疑。
 
-探究其背后原因，就不得不提那个挂着羊头的“公元2000论坛”(Forum 2000)。
+(朱晨曦 实习生 范珺华 制作 王雪尔） 责任编辑：【田博群】
 
 ## 相关推荐
 
-- 2026-06-29 11:28 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:45 - [三只羊线下课已下架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:29 - [高超感谢女友王佳欣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:40 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:23 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:34 - [吴海燕兰西雅漫步复兴岛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:49 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:46 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:37 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:23 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:35 - [“90后”侨青走进上海虹口 读懂城市文脉与发展活力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:43 - [“寒潮”来袭！理财产品规模一季度缩水1.38万亿，投资者收益同比降低21%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:50 - [一季度广东货物以海运方式经海南自贸港进出口同比增长25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:40 - [特朗普过去24小时都忙了什么？（2026-04-19）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:24 - [A股“股王”更替见证中国经济新力量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:32 - [北京：香椿宴带动京郊游 衍生品丰富山村体验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:26 - [又见内幕交易？霍尔木兹开放前20分钟，神秘交易员7.6亿美元精准做空原油，已被调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:35 - [AI赋能文旅 2026西安丝路旅博会展示文旅科技新业态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:45 - [4月20日人民币对美元中间价报6.8648 下调26个基点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:26 - [新的社会阶层人士开展“寻美‘广西三月三’ 数智共铸民族情”活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:50 - [港交所的新挑战与“护城河”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:48 - [报告称中小微外贸企业出口保持韧性 定价权稳步提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:29 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/231893833359.shtml)
-- 2026-06-29 11:36 - [宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/253782873344.shtml)
-- 2026-06-29 11:45 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://www.share.kurohicncr.top/Article/details/693683579.shtml)
-- 2026-06-29 11:27 - [林诗栋晋级WTT美国大满贯男单32强](http://www.blog.minike.top/Article/details/960387.shtml)
-- 2026-06-29 11:32 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.kurohicncr.top/Article/details/67534780759.shtml)
-- 2026-06-29 11:36 - [四川宜宾地震致13人受轻微伤](https://www.blog.minike.top/Article/details/665413.shtml)
-- 2026-06-29 11:47 - [网约车司机转账15000元后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/152072540.shtml)
-- 2026-06-29 11:46 - [游戏数据被用于军事目的 国安部提醒](https://www.blog.kurohicncr.top/Article/details/030531873.shtml)
-- 2026-06-29 11:22 - [网约车司机转账15000元后被乘客拉黑](http://www.share.minike.top/Article/details/72206.shtml)
-- 2026-06-29 11:38 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://www.share.minike.top/Article/details/688371049.shtml)
-- 2026-06-29 11:43 - [日本和澳大利亚能代表亚洲足球走多远](http://www.share.minike.top/Article/details/3489996.shtml)
-- 2026-06-29 11:33 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/93320508.shtml)
-- 2026-06-29 11:44 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.kurohicncr.top/Article/details/95328091160.shtml)
-- 2026-06-29 11:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/560367025923.shtml)
-- 2026-06-29 11:36 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/90905084.shtml)
+- 2026-06-29 11:52 - [农业农村部：推动猪价合理回升](http://www.blog.kurohicncr.top/Article/details/969312955.shtml)
+- 2026-06-29 11:41 - [鼎泰丰“回京”热度不减 稳中求进布局大陆北方市场](http://www.blog.minike.top/Article/details/04399698.shtml)
+- 2026-06-29 11:37 - [国际能源署称中东能源产出恢复需两年时间](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:26 - [直击广东消防救援力量多举措筑牢防汛救灾安全屏障](http://www.share.kurohicncr.top/Article/details/762691865346.shtml)
+- 2026-06-29 11:25 - [印度卢比在亚币中表现最佳 央行据报道对油企购买美元进行窗口指导](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [西安直飞维也纳国际航线开通](http://www.share.minike.top/Article/details/23674.shtml)
+- 2026-06-29 11:33 - [江西南昌久雨初晴：市民户外享受春光](http://www.share.kurohicncr.top/Article/details/06329314.shtml)
+- 2026-06-29 11:41 - [2026年巴黎图书节拉开帷幕](http://www.share.kurohicncr.top/Article/details/94635255.shtml)
+- 2026-06-29 11:33 - [韩国和美国一致认为，韩元汇率过度波动是不可取的](http://www.share.minike.top/Article/details/6576954464.shtml)
+- 2026-06-29 11:36 - [新阶人士走进成都高新天府长岛 共话数字文创新未来](http://www.share.minike.top/Article/details/1760801.shtml)
+- 2026-06-29 11:34 - [广西兴业县举办“三月三”民族团结系列活动](http://www.share.kurohicncr.top/Article/details/119441747232.shtml)
+- 2026-06-29 11:37 - [纳微科技7.1亿元定增背后：账面“不差钱” 实控人方减持套现3.8亿](http://www.blog.minike.top/Article/details/8718517.shtml)
+- 2026-06-29 11:37 - [多国学者：儒学与伊斯兰智慧 能解世界冲突之困](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [美国交通部长：空管岗位12小时内收到6000份申请](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [AI复合型人才成“香饽饽” 重庆“才聚两江·照母山”青年人才活动月启幕](http://www.share.minike.top/Article/details/45399.shtml)

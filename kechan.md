@@ -1,59 +1,57 @@
-# 人民币兑美元中间价报6.8198，下调41点
+# 总书记的关切·落地的回响｜中国式现代化要靠科技现代化作支撑
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-6月8日，人民币兑美元中间价报6.8198，下调41点。 美联储6月维持利率不变的概率为97% 据CME“美联储观察”：美联储到6月维持利率不变的概率为97%，累计降息25个基点的概率为3%。美联储到7月维持利率不变的概率为81.9%，累计加息25个基点的概率15.5%，累计降息25个基点的概率为2.5%。 高盛：因劳动力市场强劲 不再预计美联储今年降息 高盛经济学家表示，由于
+原标题：中国式现代化要靠科技现代化作支撑(总书记的关切·落地的回响) “中国式现代化要靠科技现代化作支撑，实现高质量发展要靠科技创新培育新动能”“打造具有全球影响力的创新高地”。 ——2024年6月24日，习近平总书记在全国科技大会、国家科学技术奖励大会、两院院士大会上强调 国家统计局4月16日发布的数据显示，一季度我国国内生产总值同比增长5.0%。“十五五”首季，主要宏观指标
 
 ## 正文
 
-6月8日，人民币兑美元中间价报6.8198，下调41点。
+原标题：中国式现代化要靠科技现代化作支撑(总书记的关切·落地的回响) “中国式现代化要靠科技现代化作支撑，实现高质量发展要靠科技创新培育新动能”“打造具有全球影响力的创新高地”。
 
-美联储6月维持利率不变的概率为97% 据CME“美联储观察”：美联储到6月维持利率不变的概率为97%，累计降息25个基点的概率为3%。
+——2024年6月24日，习近平总书记在全国科技大会、国家科学技术奖励大会、两院院士大会上强调 国家统计局4月16日发布的数据显示，一季度我国国内生产总值同比增长5.0%。
 
-美联储到7月维持利率不变的概率为81.9%，累计加息25个基点的概率15.5%，累计降息25个基点的概率为2.5%。
+“十五五”首季，主要宏观指标增速回升，新动能快速成长，国民经济实现良好开局。
 
-高盛：因劳动力市场强劲 不再预计美联储今年降息 高盛经济学家表示，由于劳动力市场强于预期，不再预计美联储今年会降息。
+其中，科技创新引领作用增强，新质生产力成效持续显现。
 
-该行将美联储最后两次降息的预期时间从此前的2026年12月和2027年3月推迟至2027年6月和12月。
+创新是引领发展的第一动力。
 
-但高盛首席美国经济学家梅里克指出，由于通胀“似乎不太可能变得自我持续”，美联储加息的可能性仍然不大。
+“中国式现代化要靠科技现代化作支撑，实现高质量发展要靠科技创新培育新动能”“打造具有全球影响力的创新高地”。
 
-5月美国就业增长超出所有预期，显示劳动力市场具有韧性，并加剧了市场对央行将加息的押注。
+科技创新，习近平总书记念兹在兹。
 
-高盛继续认为加息可能性不大，但将小幅加息概率从10%上调至20%。
+从基础前沿研究实现新突破，到战略高技术领域迎来新跨越，再到推动科技创新和产业创新深度融合，抢抓战略机遇、勇攀科技高峰，科技强国建设迈出坚实步伐。
 
 ## 相关推荐
 
-- 2026-06-29 11:36 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:26 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:35 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:51 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:27 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:38 - [宜宾5.5级地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:22 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:24 - [张一山说杨紫早该拿奖了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:27 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:22 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:23 - [跑步机上“爬坡”减肥公式爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:44 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:50 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:44 - [东方证券收购上海证券，又多了一家“前途未卜”的公募，上海证券持有100%股权的前海联合基金咋办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:52 - [巴基斯坦称已为所有“特殊访客”做好特别安保安排](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:37 - [天臣控股拟折让21.05%配售最多7000万股 净筹约1.03亿港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:46 - [西南大学120周年校庆高质量发展大会举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:40 - [日本突发7.5级强震 震中附近有多个核电站](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:31 - [青海果洛：凝聚青年力量 共育民族团结之花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:40 - [村里有了“小而美” 游客爱上“慢时光”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:40 - [广交会观察：中东局势扰动下参展商采购商同觅“新出路”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:28 - [雄安新区首个戏曲特色工人文化宫正式投用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:43 - [伊朗最高领袖：伊朗海军已准备好给敌人“新的惨败”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:29 - [习近平文化思想引领书香社会建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:45 - [农业谣言岂能如此“变态”](http://www.blog.minike.top/Article/details/5496094225.shtml)
-- 2026-06-29 11:23 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/501294194061.shtml)
-- 2026-06-29 11:46 - [迈巴赫提车第二天发现大灯起雾](http://www.blog.minike.top/Article/details/974286266.shtml)
-- 2026-06-29 11:49 - [成都震感](http://www.blog.minike.top/Article/details/50320416684.shtml)
-- 2026-06-29 11:40 - [游戏数据竟被用于军事目的](http://www.share.minike.top/Article/details/7230048.shtml)
-- 2026-06-29 11:50 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/897992.shtml)
-- 2026-06-29 11:43 - [本届世界杯黑马扎堆](http://www.blog.kurohicncr.top/Article/details/2387207167.shtml)
-- 2026-06-29 11:43 - [全球首发核电站彩蛋攻略](http://www.blog.minike.top/Article/details/3207832.shtml)
-- 2026-06-29 11:37 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/90644546216.shtml)
-- 2026-06-29 11:42 - [BW2026游览指南](https://www.share.minike.top/Article/details/271136067.shtml)
-- 2026-06-29 11:32 - [下半年A股怎么走](https://www.blog.kurohicncr.top/Article/details/600808607.shtml)
-- 2026-06-29 11:32 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/081789.shtml)
-- 2026-06-29 11:49 - [中国邮政上海分公司总经理李柏平被查](https://www.share.kurohicncr.top/Article/details/15551.shtml)
-- 2026-06-29 11:28 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/730925748.shtml)
-- 2026-06-29 11:37 - [韩体育部长回应李在明痛批](https://www.share.minike.top/Article/details/8110166629.shtml)
+- 2026-06-29 11:26 - [特朗普过去24小时都忙了什么？（2026-04-19）](http://www.blog.minike.top/Article/details/75523473.shtml)
+- 2026-06-29 11:38 - [A股“股王”更替见证中国经济新力量](http://www.share.minike.top/Article/details/711323989070.shtml)
+- 2026-06-29 11:44 - [北京：香椿宴带动京郊游 衍生品丰富山村体验](http://www.blog.minike.top/Article/details/5630227204.shtml)
+- 2026-06-29 11:50 - [又见内幕交易？霍尔木兹开放前20分钟，神秘交易员7.6亿美元精准做空原油，已被调查](http://www.blog.kurohicncr.top/Article/details/365699.shtml)
+- 2026-06-29 11:39 - [AI赋能文旅 2026西安丝路旅博会展示文旅科技新业态](http://www.share.minike.top/Article/details/852844215.shtml)
+- 2026-06-29 11:45 - [4月20日人民币对美元中间价报6.8648 下调26个基点](http://www.blog.minike.top/Article/details/4982330.shtml)
+- 2026-06-29 11:39 - [新的社会阶层人士开展“寻美‘广西三月三’ 数智共铸民族情”活动](http://www.blog.kurohicncr.top/Article/details/638862711238.shtml)
+- 2026-06-29 11:52 - [港交所的新挑战与“护城河”](http://www.share.minike.top/Article/details/86531360856.shtml)
+- 2026-06-29 11:48 - [报告称中小微外贸企业出口保持韧性 定价权稳步提升](http://www.share.kurohicncr.top/Article/details/401006447955.shtml)
+- 2026-06-29 11:48 - [政策持续催化！绿电概念股4天2板，电力ETF华宝（159146）涨逾1%，超2.8亿资金悄悄加码！](http://www.share.minike.top/Article/details/673352591171.shtml)
+- 2026-06-29 11:53 - [美军封锁期间 驱逐舰尾随满载伊朗原油的油轮](http://www.share.minike.top/Article/details/069203713.shtml)
+- 2026-06-29 11:50 - [昆明至泰戈尔故乡加尔各答直飞航线复航 各方热盼新机遇](http://www.blog.minike.top/Article/details/368533.shtml)
+- 2026-06-29 11:34 - [男子潜伏通风管道9小时盗走百万黄金 3次换装终难逃法网](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [2026人形机器人半马：机器人领先人类19分钟冲线](http://www.share.minike.top/Article/details/6359809885.shtml)
+- 2026-06-29 11:38 - [雄安智慧农业春日见闻：北斗定垄、AI种花](http://www.share.kurohicncr.top/Article/details/8557123814.shtml)

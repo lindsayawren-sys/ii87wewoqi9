@@ -1,53 +1,58 @@
-# 外交部谈中东局势：战事再起不符合任何一方的利益
+# 霍尔木兹海峡开放后多艘船只尝试通行但未竟全功 不确定性犹在
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-新华社北京6月8日电（记者马卓言、万倩仪）外交部发言人林剑8日在例行记者会上回答有关中东局势的提问时表示，中方对当前局势深表关切。战事再起不符合任何一方的利益。希望相关各方履行停火承诺，保持谈判势头，坚持通过政治外交途径化解争端，尽早实现全面持久停火，为恢复中东海湾地区和平安宁创造必要条件。（完）责任编辑：刘万里 SF014
+船舶追踪数据显示，一群船队于周五傍晚尝试驶离波斯湾但未成功；与此同时，尽管伊朗宣布霍尔木兹海峡已重新开放，航运公司对此仍持谨慎乐观的态度。 伊朗官员周五表示，在以色列-黎巴嫩战事为期10天的停火期间，这条关键水道将对所有商业船运开放，此举引发了石油及其他大宗商品价格下跌，并提振了股市。 MarineTraffic的数据显示，周五晚间约有20艘船只开始驶向霍尔木兹海峡，但很快便停
 
 ## 正文
 
-新华社北京6月8日电（记者马卓言、万倩仪）外交部发言人林剑8日在例行记者会上回答有关中东局势的提问时表示，中方对当前局势深表关切。
+船舶追踪数据显示，一群船队于周五傍晚尝试驶离波斯湾但未成功；与此同时，尽管伊朗宣布霍尔木兹海峡已重新开放，航运公司对此仍持谨慎乐观的态度。
 
-战事再起不符合任何一方的利益。
+伊朗官员周五表示，在以色列-黎巴嫩战事为期10天的停火期间，这条关键水道将对所有商业船运开放，此举引发了石油及其他大宗商品价格下跌，并提振了股市。
 
-希望相关各方履行停火承诺，保持谈判势头，坚持通过政治外交途径化解争端，尽早实现全面持久停火，为恢复中东海湾地区和平安宁创造必要条件。
+MarineTraffic的数据显示，周五晚间约有20艘船只开始驶向霍尔木兹海峡，但很快便停了下来，其中一些船只甚至调头折返。
 
-（完）责任编辑：刘万里 SF014
+这是自2月28日美以联军发动袭击后，伊朗实质上封锁该海峡以来，尝试通行的船只数量最多的一次。
+
+目前尚不清楚这些船只为何停止航行。
+
+这群船队中包含三艘由法国达飞集团（CMA CGM）营运的集装箱船，该集团对此拒绝置评。
+
+截至北京时间凌晨5点，这群船只中的大多数船只已折返，但追踪数据显示，又有数艘新船（主要是油轮）正驶向该海峡。
+
+航运公司对伊朗开放海峡的声明持谨慎欢迎态度，但表示在恢复通航前需要更进一步澄清，特别是关于水雷的存在等安全风险。
 
 ## 相关推荐
 
-- 2026-06-29 11:28 - [医护人员观影《四渡》传承长征精神](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:34 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:45 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:32 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:43 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:46 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:33 - [本届世界杯黑马扎堆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:39 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:39 - [黄灿灿是浪姐最大赢家吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:43 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:28 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:35 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:30 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:32 - [线路错接女子替7户邻居交17年电费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:47 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:43 - [三问首季经济：形如何，亮在哪，势怎样？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:38 - [泰国类鼻疽疫情今年已确诊732例死亡23例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:39 - [受伊朗战争影响，尿素化肥价格高企，阿根廷小麦生产面临威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:37 - [视频｜李在明首次访印 涉霍尔木兹海峡 呼吁韩印联手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:30 - [中国驻日使馆连遭威胁 外交部四字警告日方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:26 - [广西岑溪“村味擂台”亮相“三月三” 民俗与文明集市“双向奔赴”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:52 - [广西财政强化资金保障 筑牢基层应急管理“第一道防线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:37 - [广西百色5岁走失男童已不幸身亡，当地通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:25 - [中国·荆州2026全国历史文化名城羽毛球邀请赛开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:26 - [中国创新正在全方位加速突破](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:30 - [酒价内参4月20日价格发布：茅台系领涨 总价升至九日高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:50 - [蓝莓价格走低 国产品种研发多点推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:49 - [加拿大绝杀南非晋级](http://www.share.minike.top/Article/details/908046287868.shtml)
-- 2026-06-29 11:42 - [欧洲超1300例超额死亡与高温有关](https://www.blog.kurohicncr.top/Article/details/46807.shtml)
-- 2026-06-29 11:24 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/2649899.shtml)
-- 2026-06-29 11:32 - [国乒全主力参加美国大满贯](http://www.share.minike.top/Article/details/200269870699.shtml)
-- 2026-06-29 11:42 - [俄军新型无人机战力如何](https://www.share.kurohicncr.top/Article/details/615733129.shtml)
-- 2026-06-29 11:45 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/5562987723.shtml)
-- 2026-06-29 11:40 - [上海足协发布世界杯文明观赛倡议书](https://www.share.minike.top/Article/details/293026408.shtml)
-- 2026-06-29 11:44 - [加拿大92分钟绝杀](http://www.blog.minike.top/Article/details/163423371.shtml)
-- 2026-06-29 11:30 - [日本主帅：对战胜巴西很有信心](http://www.blog.minike.top/Article/details/1706393961.shtml)
-- 2026-06-29 11:30 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.minike.top/Article/details/974736891.shtml)
-- 2026-06-29 11:41 - [委内瑞拉地震已致1450死3150伤](http://www.share.minike.top/Article/details/009289.shtml)
-- 2026-06-29 11:34 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/48886777.shtml)
-- 2026-06-29 11:37 - [刘烨赶紧蹭个热度宣传四渡](http://www.blog.minike.top/Article/details/95106153.shtml)
-- 2026-06-29 11:48 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/06029505.shtml)
-- 2026-06-29 11:34 - [去美国加油？部分加拿大球迷陷入纠结](https://www.share.kurohicncr.top/Article/details/6787010.shtml)
+- 2026-06-29 11:44 - [“东北超”推动文旅体商融合 无形资产变红利](http://www.blog.kurohicncr.top/Article/details/432927.shtml)
+- 2026-06-29 11:45 - [台湾台中大甲妈祖起驾 开启九天八夜绕境活动](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:24 - [快讯：现货黄金回落至4750美元/盎司下方，日内跌1.76%](http://www.share.kurohicncr.top/Article/details/64170115719.shtml)
+- 2026-06-29 11:42 - [拾光纪·“让互联网更好造福人民、造福世界”，总书记这样嘱托](http://www.share.kurohicncr.top/Article/details/197990043964.shtml)
+- 2026-06-29 11:27 - [山东菏泽：槐花飘香春滋味 特色槐花宴受欢迎](http://www.blog.minike.top/Article/details/592324496425.shtml)
+- 2026-06-29 11:53 - [涉“幽灵外卖”，抖音食品安全总监廖天博被罚超64万](http://www.share.kurohicncr.top/Article/details/334071241.shtml)
+- 2026-06-29 11:29 - [2026全球豫商大会启幕 AI与机器人企业青睐河南机遇](http://www.blog.minike.top/Article/details/371901082509.shtml)
+- 2026-06-29 11:26 - [苏林、查波访华为何要去广西、湖南？](http://www.blog.minike.top/Article/details/80473.shtml)
+- 2026-06-29 11:48 - [日本东北部沿海地区发生7.4级地震 已发布海啸警报](http://www.blog.minike.top/Article/details/34889.shtml)
+- 2026-06-29 11:45 - [（文化中国行）千年山歌的“数字迁徙”：从广西唱响东盟](http://www.blog.minike.top/Article/details/12965548232.shtml)
+- 2026-06-29 11:31 - [度小满冠名《浪姐7》陷舆论反噬：透视助贷平台下沉的困局](http://www.blog.kurohicncr.top/Article/details/51236356.shtml)
+- 2026-06-29 11:50 - [2026江苏省侨界中餐厨艺大赛在无锡启动](http://www.blog.minike.top/Article/details/872290745.shtml)
+- 2026-06-29 11:34 - [中信建投：创业板新高后，还有多少空间？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [多国客商齐聚河南长垣 共觅起重装备商机](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:28 - [书香换花香 浙江杭州孔庙书市启幕](http://www.share.kurohicncr.top/Article/details/601539488782.shtml)

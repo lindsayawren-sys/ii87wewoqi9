@@ -1,59 +1,59 @@
-# 英伟达达成存储芯片协议，但SK海力士和三星股价大幅承压
+# 强化长效约束，券商薪酬管理制度迎来重大修订
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-英伟达首席执行官黄仁勋刚刚与SK海力士（SK Hynix）签署了一项新的合作协议，但这并未提振该韩国存储芯片制造商的股价。 在韩国股市，SK海力士股价低开10.3%，同为存储芯片供应商的三星电子股价低开10.9%。韩国综合指数盘中一度下跌8.8%，不过这三者随后均收窄了跌幅。 今年以来，SK海力士和三星电子是韩国综合指数强劲上涨的主要引擎，该指数2026年迄今已累计上涨94%。
+专题：事关券商薪酬！中证协，重磅发布！离职退休也要追索扣回 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月17日，中国证券业协会发布修订后的《证券公司建立稳健薪酬制度指引》，并自发布之日起施行。此次修订在保持总体框架稳定的基础上，重点围绕优化原则目标、强化内部治理、细化基本规范三大方面进行完善，旨在进一步规范证券公司薪酬管理行为，健全长效激励约束机
 
 ## 正文
 
-英伟达首席执行官黄仁勋刚刚与SK海力士（SK Hynix）签署了一项新的合作协议，但这并未提振该韩国存储芯片制造商的股价。
+专题：事关券商薪酬！
 
-在韩国股市，SK海力士股价低开10.3%，同为存储芯片供应商的三星电子股价低开10.9%。
+中证协，重磅发布！
 
-韩国综合指数盘中一度下跌8.8%，不过这三者随后均收窄了跌幅。
+离职退休也要追索扣回 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-今年以来，SK海力士和三星电子是韩国综合指数强劲上涨的主要引擎，该指数2026年迄今已累计上涨94%。
+4月17日，中国证券业协会发布修订后的《证券公司建立稳健薪酬制度指引》，并自发布之日起施行。
 
-但上周五，随著人工智能（AI）交易普遍承压，韩国综合指数下跌6.2%，周一早盘交易中，该指数又下跌了6.1%。
+此次修订在保持总体框架稳定的基础上，重点围绕优化原则目标、强化内部治理、细化基本规范三大方面进行完善，旨在进一步规范证券公司薪酬管理行为，健全长效激励约束机制。
 
-SPI Asset Management执行合伙人斯蒂芬．英尼斯（Stephen Innes）在Substack的一篇文章中表示：“一天的行情构不成趋势，但当市场上最热门的AI游乐场突然变成火警演习现场时，交易人士应该会注意到。
+适应行业发展强化长效约束 据中证协介绍，薪酬管理是公司治理的重要内容，构建科学合理的薪酬管理机制是保证行业长期健康稳定发展的基础。
 
-”他还写道：“从周一的价格走势看，韩国投资者一觉醒来发现自己的市场处于全球AI交易平仓的震中，这显然不是什么令人高兴的事。
+现行《指引》对证券公司建立薪酬管理制度应遵循的原则与目标、内控机制、基本规范提出明确要求，为证券公司建立稳健薪酬管理制度、健全薪酬激励约束机制起到积极作用。
 
-” 尽管如此，英尼斯提醒道，对于韩国股市来说，目前仍处于交易日的早段。
+为进一步规范证券公司薪酬管理行为，健全长效激励约束机制，协会对《指引》进行了修订。
 
 ## 相关推荐
 
-- 2026-06-29 11:50 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:50 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:24 - [《给阿嬷的情书》里的情义与守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:48 - [中国男篮抵达沈阳备战世预赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:28 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:37 - [美国230斤男孩在家中去世父母被捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:47 - [如何看待奔驰将取消德国9万名员工年终奖，并计划延长工作时间且不支付补偿性报酬？奔驰当下处于什么境况？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:26 - [国乒男单资格赛全员出局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:50 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:49 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:32 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:28 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:38 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:46 - [伊朗民航组织宣布伊朗部分空域重新开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:43 - [李强主持召开国务院常务会议 听取自由贸易试验区建设情况汇报 审议通过《中华人民共和国行政复议法实施条例（修订草案）》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:36 - [超3万名日本民众集会反对高市政权危险动向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:53 - [第44届香港电影金像奖红毯仪式举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:36 - [巴西Simpar以1.215亿雷亚尔出售Ciclus Amazônia股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:24 - [特朗普：若无法达成协议 或将不延长美伊临时停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:26 - [霍尔木兹海峡开放后油价大跌，欧洲斯托克600指数涨逾1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:31 - [国常会部署推动自贸试验区高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:34 - [英国金融时报称欧盟拟放宽并购规则 培育全球冠军企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:49 - [“90后”侨青走进上海虹口 读懂城市文脉与发展活力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:53 - [“寒潮”来袭！理财产品规模一季度缩水1.38万亿，投资者收益同比降低21%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:26 - [一季度广东货物以海运方式经海南自贸港进出口同比增长25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:25 - [特朗普过去24小时都忙了什么？（2026-04-19）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:32 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.blog.kurohicncr.top/Article/details/921870.shtml)
-- 2026-06-29 11:50 - [罗马诺：李刚仁已与马竞达成协议](https://www.share.minike.top/Article/details/68842.shtml)
-- 2026-06-29 11:34 - [Mrbeast的30天不吃饭挑战](http://www.blog.minike.top/Article/details/3063716.shtml)
-- 2026-06-29 11:48 - [埃博拉为何再次袭击非洲](http://www.blog.minike.top/Article/details/962102.shtml)
-- 2026-06-29 11:25 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/57942.shtml)
-- 2026-06-29 11:45 - [成都震感](https://www.share.kurohicncr.top/Article/details/986462069.shtml)
-- 2026-06-29 11:51 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/579346456.shtml)
-- 2026-06-29 11:32 - [高考结束了，你会让孩子在家玩手机吗？](https://www.blog.kurohicncr.top/Article/details/414638268.shtml)
-- 2026-06-29 11:50 - [上周末 多领域成果密集“上新”](http://www.blog.kurohicncr.top/Article/details/700270493179.shtml)
-- 2026-06-29 11:50 - [事关个税 明日截止请抓紧办理](http://www.blog.kurohicncr.top/Article/details/6821739.shtml)
-- 2026-06-29 11:28 - [韩国队主帅洪明甫下课](https://www.share.minike.top/Article/details/070005.shtml)
-- 2026-06-29 11:32 - [流金岁月](http://www.share.kurohicncr.top/Article/details/80825505.shtml)
-- 2026-06-29 11:48 - [韩国队是怎么把自己“作死”的](http://www.share.minike.top/Article/details/6191082.shtml)
-- 2026-06-29 11:32 - [恋与深空女玩家不该被冒犯](https://www.share.kurohicncr.top/Article/details/3363692.shtml)
-- 2026-06-29 11:36 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/84630.shtml)
+- 2026-06-29 11:41 - [浦发银行与中国银联签署全面战略合作协议](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [让机器人跑马拉松有什么用？专家：先带动技术发展 再逐步落地应用](http://www.share.minike.top/Article/details/893726958.shtml)
+- 2026-06-29 11:41 - [实拍江西上饶“三月三”篝火联欢现场 民众踏歌起舞庆佳节](http://www.blog.kurohicncr.top/Article/details/813739296.shtml)
+- 2026-06-29 11:33 - [万众期待的“霸王”来了！“宿迁子弟何在？”何润东身披甲胄亮相“苏超”现场](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [BOSS直聘-W于4月17日耗资约249.65万美元回购约34.97万股](http://www.blog.minike.top/Article/details/5270322.shtml)
+- 2026-06-29 11:40 - [去年翻倍赚钱的基金，今年怎么样了？](http://www.share.minike.top/Article/details/802829.shtml)
+- 2026-06-29 11:51 - [巴西、西班牙和墨西哥联合呼吁采取措施缓解古巴局势](http://www.share.kurohicncr.top/Article/details/014971.shtml)
+- 2026-06-29 11:49 - [产品业绩回撤38.53%，昔日百亿私募同犇投资最新回应：从来不是只买消费，AI产业链去年开始就有不少仓位](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [金价下跌 霍尔木兹海峡再度中断引发通胀担忧](http://www.blog.minike.top/Article/details/222111108749.shtml)
+- 2026-06-29 11:30 - [农业农村部：推动猪价合理回升](http://www.share.minike.top/Article/details/94227488.shtml)
+- 2026-06-29 11:44 - [鼎泰丰“回京”热度不减 稳中求进布局大陆北方市场](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [国际能源署称中东能源产出恢复需两年时间](http://www.share.minike.top/Article/details/205137744046.shtml)
+- 2026-06-29 11:25 - [直击广东消防救援力量多举措筑牢防汛救灾安全屏障](http://www.share.minike.top/Article/details/0003074110.shtml)
+- 2026-06-29 11:44 - [印度卢比在亚币中表现最佳 央行据报道对油企购买美元进行窗口指导](http://www.share.minike.top/Article/details/63957396.shtml)
+- 2026-06-29 11:41 - [西安直飞维也纳国际航线开通](http://www.share.kurohicncr.top/Article/details/836258285793.shtml)

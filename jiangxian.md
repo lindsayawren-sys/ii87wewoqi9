@@ -1,56 +1,60 @@
-# 中方：愿同俄、印双方就推进三国合作保持沟通
+# 中国经济圆桌会丨群核科技：让更多企业和消费者体验高效便捷的空间智能服务
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-中新网北京6月8日电 (记者 李京泽)中国外交部发言人林剑6月8日主持例行记者会。 有记者提问：俄罗斯总统普京上周接受媒体采访，详细谈到了俄印中三国关系。他说道，俄罗斯与印度、中国都保持友好交往。中印关系、俄印关系、俄中关系，三者互不干扰。中方对普京上述表态有何评论？ 林剑：中国、俄罗斯和印度都是新兴经济体，保持良好关系，不仅符合三国的自身利益，也有利于地区和全球和平、安全、稳
+新华社海口4月18日电(记者高敬、王晖余)杭州“六小龙”之一群核科技副总裁汤锡峰在新华社18日推出的“中国经济圆桌会”大型全媒体访谈节目中表示，企业以中国国际消费品博览会为重要窗口，精准对接市场需求，探索具身智能相关场景的落地应用可能性，让更多企业和消费者体验高效、便捷的空间智能服务。本届消博会上，群核科技带来了一款首发首秀的核心产品——酷家乐AI(人工智能)设计师。汤锡峰介绍
 
 ## 正文
 
-中新网北京6月8日电 (记者 李京泽)中国外交部发言人林剑6月8日主持例行记者会。
+新华社海口4月18日电(记者高敬、王晖余)杭州“六小龙”之一群核科技副总裁汤锡峰在新华社18日推出的“中国经济圆桌会”大型全媒体访谈节目中表示，企业以中国国际消费品博览会为重要窗口，精准对接市场需求，探索具身智能相关场景的落地应用可能性，让更多企业和消费者体验高效、便捷的空间智能服务。
 
-有记者提问：俄罗斯总统普京上周接受媒体采访，详细谈到了俄印中三国关系。
+本届消博会上，群核科技带来了一款首发首秀的核心产品——酷家乐AI(人工智能)设计师。
 
-他说道，俄罗斯与印度、中国都保持友好交往。
+汤锡峰介绍，当智能机器人搭载酷家乐AI设计师后，消费者就可以像跟真人设计师聊天一样，说出想要的设计需求和想法，系统通过空间大语言模型理解消费者的意图，生成专属的空间方案，让做设计变得又快又方便。
 
-中印关系、俄印关系、俄中关系，三者互不干扰。
+这一模式打破了传统软件的局限，让机器人能像专业设计师一样，为用户提供更为便捷和高效的新消费体验。
 
-中方对普京上述表态有何评论？
+本届消博会上，一系列全球首发、亚太首展、中国首秀亮相，更多全球好物、前沿科技、创新成果与消费者见面。
 
-林剑：中国、俄罗斯和印度都是新兴经济体，保持良好关系，不仅符合三国的自身利益，也有利于地区和全球和平、安全、稳定与繁荣。
+消博会已成为引领消费升级趋势的“风向标”。
 
-中方愿同俄、印双方就推进三国的合作保持沟通。
+“作为第二次参加消博会的企业，我们非常认可消博会的平台价值。
 
-当前中印边境的局势总体稳定，双方沟通的渠道畅通。
+”汤锡峰说，消博会作为全球重要的消费品展，能聚集国内外优秀展商，链接全球资源。
 
 ## 相关推荐
 
-- 2026-06-29 11:43 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:49 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:46 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:48 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:34 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:42 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:47 - [凯恩何时能拿到国际大赛冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:30 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:48 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:38 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:25 - [江苏扬州第十届“春的律动”举行：文艺添彩好地方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:53 - [香港财政司司长陈茂波：Web3+AI重塑全球金融生态 须确保人类主控干预 完善跨境监管与权责划分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:28 - [联合国秘书长欢迎伊朗宣布完全开放霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:31 - [经济观察：轻食，重新定义“吃”的健康价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:34 - [地平线机器人-W于4月17日斥资287.1万港元回购39.42万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:44 - [中越青年相聚广西南宁分享友好故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:29 - [歼-10升空！防以色列袭击，巴基斯坦出动20多架飞机护送伊朗谈判代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:24 - [旧金山联储行长戴利认为利率处于良好位置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:24 - [券商前十座次重排！“两超多强”格局显现，两大业务成新关键赛道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:52 - [黑龙江干流黑河段平稳开江 较历年提前9天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:53 - [标普500闪现罕见上涨信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:26 - [卡沙甘油田就50亿美元哈萨克斯坦硫磺罚款上诉再遭驳回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:51 - [霍尔木兹海峡开放提振市场，华尔街周五开盘走高，原油价格大跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:36 - [2026金鸡艺术电影展在上海举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:45 - [BW2026游览指南](https://www.share.kurohicncr.top/Article/details/999631.shtml)
-- 2026-06-29 11:30 - [金刚川](https://www.blog.minike.top/Article/details/5459442023.shtml)
-- 2026-06-29 11:30 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/87345461.shtml)
-- 2026-06-29 11:47 - [本周做什么都顺的星座](http://www.blog.kurohicncr.top/Article/details/919216557.shtml)
-- 2026-06-29 11:31 - [欧洲人买空调难点在哪](https://www.share.kurohicncr.top/Article/details/0558394.shtml)
-- 2026-06-29 11:31 - [请回答王牌2019](http://www.share.minike.top/Article/details/7212220.shtml)
-- 2026-06-29 11:33 - [陈丽君演出结束后饭撒](https://www.blog.minike.top/Article/details/308077.shtml)
-- 2026-06-29 11:31 - [BW2026游览指南](https://www.blog.kurohicncr.top/Article/details/68361.shtml)
-- 2026-06-29 11:47 - [四川宜宾发生5.5级地震](https://www.blog.kurohicncr.top/Article/details/322529.shtml)
-- 2026-06-29 11:49 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/82131197252.shtml)
-- 2026-06-29 11:24 - [金价银价下跌 油价上涨](http://www.blog.minike.top/Article/details/6609805464.shtml)
-- 2026-06-29 11:44 - [线路错接女子替7户邻居交17年电费](http://www.blog.kurohicncr.top/Article/details/5617231681.shtml)
-- 2026-06-29 11:34 - [下飞机后，我做了个很蠢的决定......](https://www.share.kurohicncr.top/Article/details/914890334.shtml)
-- 2026-06-29 11:31 - [中国邮政上海分公司总经理李柏平被查](https://www.share.minike.top/Article/details/458218236.shtml)
-- 2026-06-29 11:37 - [事关个税 明日截止请抓紧办理](https://www.share.kurohicncr.top/Article/details/999678815.shtml)
+- 2026-06-29 11:50 - [曾黎、李志希领衔主演 话剧《寻味》登陆广州大剧院](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [“10天订单涨2万+” 张雪机车夺冠后 广交会现场火爆吸睛](http://www.share.kurohicncr.top/Article/details/0967556.shtml)
+- 2026-06-29 11:25 - [A股收评：超3400只个股飘红，沪指、深指收涨，创业板指收跌](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [油气价格大跌 受霍尔木兹海峡开放和止战希望影响](http://www.blog.minike.top/Article/details/61369.shtml)
+- 2026-06-29 11:38 - [伊朗：将再次关闭霍尔木兹海峡](http://www.blog.kurohicncr.top/Article/details/31750725445.shtml)
+- 2026-06-29 11:33 - [百胜中国于4月17日斥资773.82万港元回购2.07万股](http://www.blog.kurohicncr.top/Article/details/75388795.shtml)
+- 2026-06-29 11:53 - [伊朗称将对美军扣押伊朗商船作出回应](http://www.share.kurohicncr.top/Article/details/687755200.shtml)
+- 2026-06-29 11:53 - [特朗普：霍尔木兹海峡已完全开放 但对伊朗海上封锁仍将持续](http://www.share.kurohicncr.top/Article/details/027482301048.shtml)
+- 2026-06-29 11:35 - [2026中小学“汉语桥”多伦多赛区选拔赛圆满收官](http://www.share.minike.top/Article/details/953835525.shtml)
+- 2026-06-29 11:32 - [现场视频：美军人员从直升机顺绳而下，控制伊朗货船](http://www.share.minike.top/Article/details/9214849317.shtml)
+- 2026-06-29 11:47 - [贵州纳雍：玛瑙红樱桃迎采摘热潮](http://www.blog.minike.top/Article/details/81897.shtml)
+- 2026-06-29 11:48 - [从“石旮旯”到“世界最佳” 重庆荆竹村涌文旅热潮](http://www.blog.kurohicncr.top/Article/details/60111.shtml)
+- 2026-06-29 11:46 - [ATFX五度斩获ADVFN最佳拉美地区经纪商 区域领导力再获国际权威认可](http://www.share.minike.top/Article/details/80663602490.shtml)
+- 2026-06-29 11:26 - [三亚与7家境外经贸合作区集中签约](http://www.blog.minike.top/Article/details/803099334.shtml)
+- 2026-06-29 11:45 - [三亚亚沙会临近 主媒体中心试运行赛事氛围渐浓](http://www.blog.kurohicncr.top/Article/details/84446.shtml)

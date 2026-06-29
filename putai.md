@@ -1,57 +1,52 @@
-# 吃喝板块继续走弱，华宝基金食品饮料ETF（515710）跌超1%！机构喊话：下半年业绩上行通道或将开启
+# 中国驻日使馆连遭威胁 外交部四字警告日方
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-吃喝板块今日（6月8日）继续走弱。反映吃喝板块整体走势的食品饮料ETF华宝（515710）开盘短暂拉升后震荡下行，截至发稿，场内价格跌1.01%。 成份股方面，大众品跌幅居前，部分白酒龙头亦表现不佳。截至发稿，技源集团、山西汾酒双双跌超3%，泸州老窖、盐津铺子、养元饮品等多股跌超2%。 中信证券指出，短期看，在“反内卷”政策持续推进、宏观经济逐步修复的背景下，白酒行业有望迎来产
+发布时间：2026年04月17日 20:27 来源：中国新闻网 当地时间4月16日，中国驻日本大使馆举行了新闻发布会，介绍了近段时间以来，驻日使馆接连遭受到恐怖威胁的情况。那根据驻日使馆披露的有关情况，当地时间3月5日，就有一个自称由前警察和前自卫队队员组成的组织向使馆寄出了恐吓信，使馆报警后，日本警方是既没有引起重视，也没有采取有力措施，到现在也没有查清事实，19天后，就发生
 
 ## 正文
 
-吃喝板块今日（6月8日）继续走弱。
+发布时间：2026年04月17日 20:27 来源：中国新闻网 当地时间4月16日，中国驻日本大使馆举行了新闻发布会，介绍了近段时间以来，驻日使馆接连遭受到恐怖威胁的情况。
 
-反映吃喝板块整体走势的食品饮料ETF华宝（515710）开盘短暂拉升后震荡下行，截至发稿，场内价格跌1.01%。
+那根据驻日使馆披露的有关情况，当地时间3月5日，就有一个自称由前警察和前自卫队队员组成的组织向使馆寄出了恐吓信，使馆报警后，日本警方是既没有引起重视，也没有采取有力措施，到现在也没有查清事实，19天后，就发生了现役自卫队官员村田晃大持刀翻墙闯入中国驻日使馆的严重事件，而就在闯馆事件发生仅仅一周后，又有一名自称应急预备自卫官的人向使馆发出了炸弹威胁。
 
-成份股方面，大众品跌幅居前，部分白酒龙头亦表现不佳。
+针对此事，在4月17日举行的中国外交部例行记者会上，发言人郭嘉昆表示，如果对此类案件轻描淡写，甚至转移视线、混淆是非，只会从恶如崩，产生更为严重的后果，导致更多日本民众深受其害。
 
-截至发稿，技源集团、山西汾酒双双跌超3%，泸州老窖、盐津铺子、养元饮品等多股跌超2%。
+我们再次敦促日方反思纠错、彻查整改，给中方一个负责任交代。
 
-中信证券指出，短期看，在“反内卷”政策持续推进、宏观经济逐步修复的背景下，白酒行业有望迎来产业底部的温和复苏。
+我们注意到，发言人回应中用到了一个词叫从恶如崩，也就是说日方这种不严厉打击、不彻底追责、不严肃道歉的消极态度，只会让针对中国驻日使馆的威胁越来越多、越来越极端，最终酿成更大的安全事件，而纵容极端势力蔓延，不仅会冲击双边关系与地区安全，更会让日本社会陷入对立与动荡。
 
-对于高端白酒而言，茅台批价本质上反映的是渠道信心、终端需求与资产属性的综合变化；随着价格竞争趋缓、企业盈利改善、消费信心修复以及高端商务和礼赠场景边际回暖，茅台批价有望从底部区间逐步企稳回升。
-
-其同时表示，若后续PPI、工业利润和核心城市资产价格继续改善，批价修复不仅将成为行业景气回暖的领先信号，也有望带动白酒板块从库存消化阶段进入更明确的复苏通道。
-
-从估值方面来看，吃喝板块当前仍处估值低位。
+(记者 刘世炯） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 11:41 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:33 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:31 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:31 - [成都震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:31 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:40 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:32 - [埃博拉为何再次袭击非洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:38 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:38 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:35 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:40 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:24 - [蓝莓价格走低 国产品种研发多点推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:50 - [宁夏兴庆大漠黄河徒步大会启幕 千余人乐享春日文旅健身行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:48 - [“战火重燃”：船只遭扣押、遇袭，美伊停火协议濒临破裂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:37 - [山东菏泽：一株三并蒂的“墨润绝伦”牡丹盛放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:38 - [曾黎、李志希领衔主演 话剧《寻味》登陆广州大剧院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:50 - [“10天订单涨2万+” 张雪机车夺冠后 广交会现场火爆吸睛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:47 - [A股收评：超3400只个股飘红，沪指、深指收涨，创业板指收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:38 - [油气价格大跌 受霍尔木兹海峡开放和止战希望影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:47 - [伊朗：将再次关闭霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:37 - [百胜中国于4月17日斥资773.82万港元回购2.07万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [王楚钦3比0周启豪](http://www.share.kurohicncr.top/Article/details/87886106923.shtml)
-- 2026-06-29 11:49 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/735313.shtml)
-- 2026-06-29 11:40 - [韩国队主帅洪明甫下课](http://www.blog.kurohicncr.top/Article/details/47927241.shtml)
-- 2026-06-29 11:24 - [下半年A股怎么走](http://www.blog.minike.top/Article/details/97966.shtml)
-- 2026-06-29 11:48 - [下飞机后，我做了个很蠢的决定......](http://www.blog.kurohicncr.top/Article/details/61671.shtml)
-- 2026-06-29 11:44 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.minike.top/Article/details/443808.shtml)
-- 2026-06-29 11:48 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.kurohicncr.top/Article/details/260163.shtml)
-- 2026-06-29 11:35 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/9464263.shtml)
-- 2026-06-29 11:26 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/500243280504.shtml)
-- 2026-06-29 11:25 - [扬名立万](http://www.blog.minike.top/Article/details/8407041168.shtml)
-- 2026-06-29 11:23 - [第一炉香](http://www.share.kurohicncr.top/Article/details/6854123001.shtml)
-- 2026-06-29 11:45 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://www.blog.kurohicncr.top/Article/details/6431673678.shtml)
-- 2026-06-29 11:47 - [退休化学教授帮医药研发人员制毒](http://www.blog.kurohicncr.top/Article/details/7121036.shtml)
-- 2026-06-29 11:44 - [6月我国降水为何偏多](http://www.share.minike.top/Article/details/511275.shtml)
-- 2026-06-29 11:26 - [日本主帅：对战胜巴西很有信心](http://www.blog.kurohicncr.top/Article/details/58879357.shtml)
+- 2026-06-29 11:48 - [2026江苏省侨界中餐厨艺大赛在无锡启动](http://www.blog.kurohicncr.top/Article/details/2929216564.shtml)
+- 2026-06-29 11:49 - [中信建投：创业板新高后，还有多少空间？](http://www.share.kurohicncr.top/Article/details/8805003652.shtml)
+- 2026-06-29 11:34 - [多国客商齐聚河南长垣 共觅起重装备商机](http://www.share.kurohicncr.top/Article/details/836437.shtml)
+- 2026-06-29 11:25 - [书香换花香 浙江杭州孔庙书市启幕](http://www.blog.minike.top/Article/details/13616985.shtml)
+- 2026-06-29 11:36 - [2026年河南省篮球城市联赛在古都安阳开赛](http://www.share.kurohicncr.top/Article/details/94159091902.shtml)
+- 2026-06-29 11:27 - [特斯拉：目前并无在上海超级工厂量产机器人的具体计划](http://www.blog.kurohicncr.top/Article/details/47163.shtml)
+- 2026-06-29 11:38 - [为投资者创收1619亿元！一季度理财“成绩单”来了](http://www.share.minike.top/Article/details/34460390753.shtml)
+- 2026-06-29 11:42 - [美国精神航空公司考虑清算](http://www.share.kurohicncr.top/Article/details/725630.shtml)
+- 2026-06-29 11:50 - [从汽车到易拉罐：伊朗战争如何冲击全球铝供应链](http://www.blog.minike.top/Article/details/65025.shtml)
+- 2026-06-29 11:31 - [东西问丨阿齐赞·巴哈鲁丁：“文明冲突论”必须让位于“和平共处论”](http://www.blog.kurohicncr.top/Article/details/523831850594.shtml)
+- 2026-06-29 11:50 - [侧记：一座园林连中法，解码园博会背后的“侨”味道](http://www.share.minike.top/Article/details/2154281993.shtml)
+- 2026-06-29 11:28 - [海外华媒侨领走进世界自然遗产地 感受喀斯特地貌奇观](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [四大证券报头版头条内容精华摘要_2026年4月20日_财经新闻](http://www.share.minike.top/Article/details/62919385.shtml)
+- 2026-06-29 11:31 - [中国经济开局良好 外媒：高质量发展助力中国经济更具可持续性](http://www.blog.minike.top/Article/details/240281944.shtml)
+- 2026-06-29 11:45 - [2026“发现宝藏山东”主题旅游年启幕 让宝藏可寻、可感、可品](http://www.share.kurohicncr.top/Article/details/841334365625.shtml)

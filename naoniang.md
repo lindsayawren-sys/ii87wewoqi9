@@ -1,57 +1,61 @@
-# “AI中转站”风险不容小觑 国家安全部发布提示
+# 侧记：一座园林连中法，解码园博会背后的“侨”味道
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-“AI中转站”，风险要防范 一段时间以来，随着人工智能应用需求的迅猛增长，批量提供海内外大模型访问服务的“AI中转站”在国内迅速走红。然而，当前“AI中转”市场鱼龙混杂，部分“AI中转站”运营资质缺失、安全防护薄弱，用户隐私泄露与数据倒卖问题时有发生，数据安全风险不容忽视。 什么是“AI中转站”？ “AI中转站”是介于用户和AI模型厂商官方服务之间的代理层。它把各家AI模型厂商
+中新网温州4月17日电(黄彦君 金冬冬 贾洁楠)喝红酒、买美妆、游览欧式园林……在浙江温州，第十五届中国国际园林博览会(以下简称“园博会”)期间，法国巴黎馆亮相，民众走出家门便能体验法式风情。 一园藏中西，一馆连万里。其背后，蕴藏着华侨华人的家乡情怀，中外文化的双向交融，商贸往来的澎湃活力。 “一开始，我们想找法国本土设计师，做出纯正的‘法国味道’。看了几个版本的设计稿，总感觉
 
 ## 正文
 
-“AI中转站”，风险要防范 一段时间以来，随着人工智能应用需求的迅猛增长，批量提供海内外大模型访问服务的“AI中转站”在国内迅速走红。
+中新网温州4月17日电(黄彦君 金冬冬 贾洁楠)喝红酒、买美妆、游览欧式园林……在浙江温州，第十五届中国国际园林博览会(以下简称“园博会”)期间，法国巴黎馆亮相，民众走出家门便能体验法式风情。
 
-然而，当前“AI中转”市场鱼龙混杂，部分“AI中转站”运营资质缺失、安全防护薄弱，用户隐私泄露与数据倒卖问题时有发生，数据安全风险不容忽视。
+一园藏中西，一馆连万里。
 
-什么是“AI中转站”？
+其背后，蕴藏着华侨华人的家乡情怀，中外文化的双向交融，商贸往来的澎湃活力。
 
-“AI中转站”是介于用户和AI模型厂商官方服务之间的代理层。
+“一开始，我们想找法国本土设计师，做出纯正的‘法国味道’。
 
-它把各家AI模型厂商的应用程序编程接口(API)统一整合到一个平台，再提供给用户。
+看了几个版本的设计稿，总感觉缺点什么。
 
-形象地讲，“AI中转站”就是用户和大模型之间的“中介”，可以帮助用户更便捷地调用多个AI大模型，一站式满足用户多样化使用需求。
+”温州市侨联兼职副主席、法国法华工商联合会终身名誉会长、瑞安籍侨领戴安友回忆道。
 
-——无需切换模型。
+2024年初，他受聘为园博会国际招展大使时，便接到了这个艰巨的任务：为法国巴黎馆拿出设计方案，时间只有10多天。
 
-用户只需接入中转站一个入口，即可调用国内外主流大模型，无需来回切换。
+为了打通中法园林之间的“情感联结”，他果断调整方向，寻找在法国生活工作的中国设计师。
 
 ## 相关推荐
 
-- 2026-06-29 11:48 - [中国男篮抵达沈阳备战世预赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:50 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:25 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:39 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:44 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:39 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:36 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:25 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:35 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:43 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:42 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:45 - [上巳传笺 望江听涛：成都望江楼公园复原明代制笺古礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:53 - [拼多多因“幽灵外卖”被罚，法定代表人赵佳臻被处693.73万元罚款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:24 - [中国试飞院开放日 各型飞机引民众打卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:27 - [预测市场平台Polymarket计划募资4亿美元 估值达约150亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:44 - [总书记的关切·落地的回响｜中国式现代化要靠科技现代化作支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:29 - [林毅夫：中国式现代化的成功实践为全球发展中国家提供重要借鉴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:25 - [湖北城市足球联赛点燃民众热情 赛事流量变消费增量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:43 - [国际传播纪录片《大道——永远的长征》在北京启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:37 - [千年古刹云居山谷雨见闻：一叶“攒林茶” 农禅指尖传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:49 - [灿能电力拟每10股派息1.66元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:42 - [光鲜销售下的深层危机：亚盛医药的盈利困局与三大致命风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:49 - [东方证券收购上海证券，又多了一家“前途未卜”的公募，上海证券持有100%股权的前海联合基金咋办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:39 - [巴基斯坦称已为所有“特殊访客”做好特别安保安排](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:31 - [天臣控股拟折让21.05%配售最多7000万股 净筹约1.03亿港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:41 - [西南大学120周年校庆高质量发展大会举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:30 - [马杜罗社交媒体账号再发文](http://www.blog.kurohicncr.top/Article/details/011068585.shtml)
-- 2026-06-29 11:37 - [韩国主教练连夜下课](https://www.blog.kurohicncr.top/Article/details/882801.shtml)
-- 2026-06-29 11:38 - [高考志愿今起开始填报](http://www.blog.minike.top/Article/details/522052556986.shtml)
-- 2026-06-29 11:49 - [原来大雷哥给杨紫准备了三件祖海高定](https://www.blog.minike.top/Article/details/51801.shtml)
-- 2026-06-29 11:50 - [户外吃烧烤多人头发变炸毛](http://www.share.kurohicncr.top/Article/details/9644920.shtml)
-- 2026-06-29 11:25 - [伊朗队球员哭诉：这届世界杯是场灾难](http://www.blog.kurohicncr.top/Article/details/47280023763.shtml)
-- 2026-06-29 11:32 - [李维嘉回应“人老了做什么都心酸”](https://www.share.kurohicncr.top/Article/details/640124150.shtml)
-- 2026-06-29 11:47 - [为何加快“扩编”成欧盟战略要务](http://www.share.kurohicncr.top/Article/details/9433489916.shtml)
-- 2026-06-29 11:29 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/17641589.shtml)
-- 2026-06-29 11:29 - [《给阿嬷的情书》里的情义与守望](http://www.blog.kurohicncr.top/Article/details/00755406769.shtml)
-- 2026-06-29 11:30 - [房屋抵押权与租赁权如何协调](http://www.share.minike.top/Article/details/978277626.shtml)
-- 2026-06-29 11:51 - [F1奥地利大奖赛正赛集锦](https://www.share.kurohicncr.top/Article/details/779275920.shtml)
-- 2026-06-29 11:35 - [拄拐少年高考663分：用行动回报社会](http://www.blog.kurohicncr.top/Article/details/9222925839.shtml)
-- 2026-06-29 11:31 - [热穹顶来了](https://www.share.minike.top/Article/details/84405439.shtml)
-- 2026-06-29 11:45 - [普京称考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/3129880.shtml)
+- 2026-06-29 11:36 - [李强主持召开国务院常务会议 听取自由贸易试验区建设情况汇报 审议通过《中华人民共和国行政复议法实施条例（修订草案）》](http://www.share.kurohicncr.top/Article/details/60982856.shtml)
+- 2026-06-29 11:51 - [超3万名日本民众集会反对高市政权危险动向](http://www.share.kurohicncr.top/Article/details/6883228.shtml)
+- 2026-06-29 11:32 - [第44届香港电影金像奖红毯仪式举行](http://www.share.kurohicncr.top/Article/details/1739732109.shtml)
+- 2026-06-29 11:49 - [巴西Simpar以1.215亿雷亚尔出售Ciclus Amazônia股份](http://www.blog.kurohicncr.top/Article/details/06286428.shtml)
+- 2026-06-29 11:27 - [特朗普：若无法达成协议 或将不延长美伊临时停火](http://www.share.kurohicncr.top/Article/details/178700742.shtml)
+- 2026-06-29 11:29 - [霍尔木兹海峡开放后油价大跌，欧洲斯托克600指数涨逾1%](http://www.share.minike.top/Article/details/5604152.shtml)
+- 2026-06-29 11:49 - [国常会部署推动自贸试验区高质量发展](http://www.blog.minike.top/Article/details/98470570.shtml)
+- 2026-06-29 11:38 - [英国金融时报称欧盟拟放宽并购规则 培育全球冠军企业](http://www.blog.kurohicncr.top/Article/details/696939131.shtml)
+- 2026-06-29 11:45 - [“90后”侨青走进上海虹口 读懂城市文脉与发展活力](http://www.blog.minike.top/Article/details/30480638.shtml)
+- 2026-06-29 11:50 - [“寒潮”来袭！理财产品规模一季度缩水1.38万亿，投资者收益同比降低21%](http://www.share.minike.top/Article/details/0484251074.shtml)
+- 2026-06-29 11:35 - [一季度广东货物以海运方式经海南自贸港进出口同比增长25%](http://www.blog.minike.top/Article/details/310469374398.shtml)
+- 2026-06-29 11:26 - [特朗普过去24小时都忙了什么？（2026-04-19）](http://www.share.kurohicncr.top/Article/details/299545.shtml)
+- 2026-06-29 11:40 - [A股“股王”更替见证中国经济新力量](http://www.share.kurohicncr.top/Article/details/82053.shtml)
+- 2026-06-29 11:48 - [北京：香椿宴带动京郊游 衍生品丰富山村体验](http://www.share.minike.top/Article/details/796448189.shtml)
+- 2026-06-29 11:39 - [又见内幕交易？霍尔木兹开放前20分钟，神秘交易员7.6亿美元精准做空原油，已被调查](https://github.com/lisacumin64-arch)

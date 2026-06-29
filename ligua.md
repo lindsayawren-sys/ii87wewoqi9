@@ -1,61 +1,50 @@
-# “巴西叶问”李荣基：武术带给巴西年轻人“很多机会”
+# 雄安新区首个戏曲特色工人文化宫正式投用
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-中新网圣保罗6月6日电 (记者 林春茵)拳术腾挪闪转，长棍呼啸生风，一招一式尽显中华武术魅力。日前，第十七届巴西全国武术公开赛在巴西圣保罗举行。来自巴西各州的近400名武术爱好者同台切磋，吸引上千名观众入场观摩，共同感受中华武术的独特魅力。 比赛现场，传统南北拳术、刀枪剑棍等器械项目轮番登场。除了竞技比赛，多位曾在世界级赛事中取得佳绩的武术名将也来到现场，带来龙狮表演、拳术展示
+中新网雄安4月18日电 (谌诗雨 韩冰)4月18日，雄安新区首个具有戏曲特色的组团级综合文体中心——雄安工人文化宫正式投入运营。 雄安工人文化宫位于容西片区，是新区重点打造的综合性职工服务载体，定位为重点面向职工民众的民俗戏曲文化宫。总建筑面积约3.8万平方米，集职工文化艺术中心、职工服务中心、职工文体活动中心、影院、创新创业工坊等功能于一体，构建“文体活动、技能提升、权益保障
 
 ## 正文
 
-中新网圣保罗6月6日电 (记者 林春茵)拳术腾挪闪转，长棍呼啸生风，一招一式尽显中华武术魅力。
+中新网雄安4月18日电 (谌诗雨 韩冰)4月18日，雄安新区首个具有戏曲特色的组团级综合文体中心——雄安工人文化宫正式投入运营。
 
-日前，第十七届巴西全国武术公开赛在巴西圣保罗举行。
+雄安工人文化宫位于容西片区，是新区重点打造的综合性职工服务载体，定位为重点面向职工民众的民俗戏曲文化宫。
 
-来自巴西各州的近400名武术爱好者同台切磋，吸引上千名观众入场观摩，共同感受中华武术的独特魅力。
+总建筑面积约3.8万平方米，集职工文化艺术中心、职工服务中心、职工文体活动中心、影院、创新创业工坊等功能于一体，构建“文体活动、技能提升、权益保障、便民服务”四大服务体系，将为新区建设者、疏解职工及民众提供高品质、一站式生活休闲体验。
 
-比赛现场，传统南北拳术、刀枪剑棍等器械项目轮番登场。
+开业期间，文化宫推出“戏聚容西 城市律动”系列活动，特邀京剧名家于魁智、李胜素领衔演绎《龙凤呈祥》，联动国家级院团开展戏曲展演，同步举办全民运动周、职工观影节、摄影书画展及美食市集，着力打造职工民众愿来、常来的“城市会客厅”。
 
-除了竞技比赛，多位曾在世界级赛事中取得佳绩的武术名将也来到现场，带来龙狮表演、拳术展示、中国式摔跤、巴西战舞等节目。
-
-当天赛事还进行了60余场男女擂台赛，现场掌声与喝彩声不断。
-
-赛事武术总监李荣基穿梭在各个赛场之间，不时与裁判、教练交流赛事情况。
-
-作为深耕巴西武术传播事业四十余载的武术大师，他被当地民众亲切地称为“巴西叶问”。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 11:46 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:28 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:52 - [国乒男单资格赛全员出局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:42 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:38 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:46 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:41 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:47 - [老虎瘦成纸片还吃草 园方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:41 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:50 - [中国U17男篮78-87加拿大U17男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:40 - [宜宾5.5级地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:36 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:51 - [浦玮：阿根廷所在半区对手实力偏弱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:28 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:44 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:29 - [价格大涨650%，国产光纤全球爆单，年内诞生3只翻倍股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:34 - [“小阳春”热度延续，深圳二手房市场正转向“量稳价稳”新阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:31 - [谷雨：祛湿排浊，双臂“甩起来”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:37 - [中东股市：霍尔木兹海峡局势再起变数，停火乐观预期降温，海湾股指走势低迷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:30 - [牛弹琴：美伊这出戏，编剧都不敢这样写](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:51 - [强化长效约束，券商薪酬管理制度迎来重大修订](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:24 - [AI算力重塑创业逻辑 郑州航空港区探索“轻创业”新路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:27 - [国元保险原董事长被查，收超400万罚单，成监管“重点户”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:28 - [美军在阿曼湾拦截并控制一艘伊朗货船](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:42 - [优步以3.18亿美元交易增持外卖平台Delivery Hero股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:47 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/6440418379.shtml)
-- 2026-06-29 11:35 - [美国230斤男孩在家中去世父母被捕](https://www.share.minike.top/Article/details/445019.shtml)
-- 2026-06-29 11:38 - [欧洲极端高温东扩](https://www.blog.kurohicncr.top/Article/details/81942.shtml)
-- 2026-06-29 11:29 - [扬名立万](https://www.share.kurohicncr.top/Article/details/172209.shtml)
-- 2026-06-29 11:48 - [宜宾地震后顾客折返用餐0人逃单](http://www.blog.minike.top/Article/details/94853.shtml)
-- 2026-06-29 11:28 - [DSpark论文深度解读](http://www.blog.kurohicncr.top/Article/details/852100350557.shtml)
-- 2026-06-29 11:52 - [伊朗队球员哭诉：这届世界杯是场灾难](https://www.blog.kurohicncr.top/Article/details/03277168869.shtml)
-- 2026-06-29 11:44 - [这位天才台湾人第一次来大陆，开智了](http://www.blog.minike.top/Article/details/5265142.shtml)
-- 2026-06-29 11:38 - [海清白玉兰奖运](http://www.blog.kurohicncr.top/Article/details/04497.shtml)
-- 2026-06-29 11:47 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/317883198.shtml)
-- 2026-06-29 11:50 - [欧洲热死人不是开玩笑](https://www.blog.kurohicncr.top/Article/details/762482462.shtml)
-- 2026-06-29 11:38 - [亚洲成世界杯最大失意者联盟](http://www.share.minike.top/Article/details/957241.shtml)
-- 2026-06-29 11:33 - [下飞机后，我做了个很蠢的决定......](https://www.blog.kurohicncr.top/Article/details/678132256490.shtml)
-- 2026-06-29 11:39 - [温州学子高考数学满分 分享学习经验](http://www.blog.kurohicncr.top/Article/details/9623198.shtml)
-- 2026-06-29 11:45 - [绘画区你赢了](https://www.share.minike.top/Article/details/0920005.shtml)
+- 2026-06-29 11:29 - [第十九届坚果果干食品展盛大开幕 洽洽展位成为人气焦点](http://www.blog.kurohicncr.top/Article/details/22389996.shtml)
+- 2026-06-29 11:45 - [第139届广交会一期到会境外采购商16.7万名](http://www.blog.minike.top/Article/details/491533990488.shtml)
+- 2026-06-29 11:31 - [杭州通报一诊所“用一个针头给多人采血”：涉事诊所已停业整顿](http://www.blog.minike.top/Article/details/7433007.shtml)
+- 2026-06-29 11:29 - [乌克兰基辅发生枪击事件 致数人死亡](http://www.share.minike.top/Article/details/46418964709.shtml)
+- 2026-06-29 11:35 - [中国证监会就《违规转让证券案件行政处罚实施规则（征求意见稿）》公开征求意见](http://www.share.kurohicncr.top/Article/details/9843498494.shtml)
+- 2026-06-29 11:42 - [全球乱局中，中国这块“金字招牌”越来越亮了](http://www.blog.minike.top/Article/details/10365532.shtml)
+- 2026-06-29 11:46 - [美菲启动年度联合军演，外交部：一味在安全上相互捆绑只会引火烧身](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [2026年中国香港（地区）商会京港地铁体育嘉年华活动举办](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [极氪8X正式上市：首次搭载舱驾融合超级智能体，上市限时售价32.98万元起](http://www.share.kurohicncr.top/Article/details/9223752805.shtml)
+- 2026-06-29 11:50 - [“患者被引荐至私立医院” 涉事医生被停止诊疗并终止聘用合同](http://www.blog.minike.top/Article/details/05631869.shtml)
+- 2026-06-29 11:32 - [东方证券与上海证券筹划合并重组，加快推进一流现代投资银行建设](http://www.blog.minike.top/Article/details/7558486.shtml)
+- 2026-06-29 11:50 - [涉案金额2.6亿元，我国摧毁山西特大假酒网络](http://www.share.kurohicncr.top/Article/details/52159550.shtml)
+- 2026-06-29 11:47 - [浦发银行与中国银联签署全面战略合作协议](http://www.share.kurohicncr.top/Article/details/46727.shtml)
+- 2026-06-29 11:41 - [让机器人跑马拉松有什么用？专家：先带动技术发展 再逐步落地应用](http://www.share.minike.top/Article/details/43264464.shtml)
+- 2026-06-29 11:24 - [实拍江西上饶“三月三”篝火联欢现场 民众踏歌起舞庆佳节](https://github.com/lisacumin64-arch)

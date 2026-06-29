@@ -1,47 +1,55 @@
-# 宝丰能源：目前新疆项目已上报国家发展改革委审核
+# “患者被引荐至私立医院” 涉事医生被停止诊疗并终止聘用合同
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 证券日报网讯 6月5日，宝丰能源在互动平台回答投资者提问时表示，目前新疆项目已上报国家发展改革委审核。取得重大进展时，公司将及时履行信息披露义务。（文章来源：证券日报）
+中新网太原4月17日电 (记者 范丽芳)近日，有媒体报道“山大二院医生李某将患者引荐到私立医院就诊”的消息，引发网络关注。 17日，涉事的山西医科大学第二医院发布情况说明称，经核实，网络反映问题基本属实，涉事医生李小峰系该院退休返聘人员。依据《医疗机构管理条例》及医院管理制度，医院已停止其在院内的所有诊疗活动并终止其聘用协议。同时，已安排专人与患者家属沟通对接，妥善做好后续工作
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 证券日报网讯 6月5日，宝丰能源在互动平台回答投资者提问时表示，目前新疆项目已上报国家发展改革委审核。
+中新网太原4月17日电 (记者 范丽芳)近日，有媒体报道“山大二院医生李某将患者引荐到私立医院就诊”的消息，引发网络关注。
 
-取得重大进展时，公司将及时履行信息披露义务。
+17日，涉事的山西医科大学第二医院发布情况说明称，经核实，网络反映问题基本属实，涉事医生李小峰系该院退休返聘人员。
 
-（文章来源：证券日报）
+依据《医疗机构管理条例》及医院管理制度，医院已停止其在院内的所有诊疗活动并终止其聘用协议。
+
+同时，已安排专人与患者家属沟通对接，妥善做好后续工作。
+
+医院称对违规引荐行为始终持“零容忍”态度，下一步，将深入开展医疗质量安全专项治理，持续规范医疗服务行为。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 11:42 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:52 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:46 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:23 - [人民日报：伊朗队昂着头告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:50 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:36 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:24 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:50 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:29 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:51 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:44 - [BOSS直聘-W于4月17日耗资约249.65万美元回购约34.97万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:37 - [去年翻倍赚钱的基金，今年怎么样了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:34 - [巴西、西班牙和墨西哥联合呼吁采取措施缓解古巴局势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:43 - [产品业绩回撤38.53%，昔日百亿私募同犇投资最新回应：从来不是只买消费，AI产业链去年开始就有不少仓位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:26 - [金价下跌 霍尔木兹海峡再度中断引发通胀担忧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:40 - [农业农村部：推动猪价合理回升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:43 - [鼎泰丰“回京”热度不减 稳中求进布局大陆北方市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:34 - [国际能源署称中东能源产出恢复需两年时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:39 - [直击广东消防救援力量多举措筑牢防汛救灾安全屏障](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:27 - [印度卢比在亚币中表现最佳 央行据报道对油企购买美元进行窗口指导](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:46 - [西安直飞维也纳国际航线开通](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:52 - [江西南昌久雨初晴：市民户外享受春光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:29 - [2026年巴黎图书节拉开帷幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:29 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/251678.shtml)
-- 2026-06-29 11:24 - [志愿选择倒计时！浙大学生送祝福](https://www.blog.minike.top/Article/details/4581275586.shtml)
-- 2026-06-29 11:48 - [高考志愿今起开始填报](https://www.blog.kurohicncr.top/Article/details/8214645238.shtml)
-- 2026-06-29 11:50 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.minike.top/Article/details/28877431.shtml)
-- 2026-06-29 11:47 - [夏粮收购陆续展开 质优价稳购销两旺](https://www.share.kurohicncr.top/Article/details/142836.shtml)
-- 2026-06-29 11:45 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/3644821.shtml)
-- 2026-06-29 11:31 - [委内瑞拉强震致中国公民8遇难1失联](https://www.share.kurohicncr.top/Article/details/9435864.shtml)
-- 2026-06-29 11:29 - [女子拍邻居家中裸照发业主群](https://www.share.kurohicncr.top/Article/details/92076.shtml)
-- 2026-06-29 11:38 - [女生雨天开车发现雨刮条被掰走](http://www.blog.kurohicncr.top/Article/details/9026767850.shtml)
-- 2026-06-29 11:44 - [宜宾5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/988898.shtml)
-- 2026-06-29 11:24 - [普京称考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/85381126.shtml)
-- 2026-06-29 11:51 - [加拿大绝杀南非晋级](http://www.share.kurohicncr.top/Article/details/4664536.shtml)
-- 2026-06-29 11:45 - [在自己家不穿衣服犯法吗](https://www.blog.kurohicncr.top/Article/details/9850287090.shtml)
-- 2026-06-29 11:23 - [俄政府批准巩固俄语地位行动计划](http://www.blog.minike.top/Article/details/47470.shtml)
-- 2026-06-29 11:26 - [扬名立万](http://www.blog.minike.top/Article/details/5541023701.shtml)
+- 2026-06-29 11:25 - [专家：金价翻倍没有悬念](http://www.share.kurohicncr.top/Article/details/868505775086.shtml)
+- 2026-06-29 11:37 - [从反对到支持，台湾姑娘含泪读妈妈短信：在大陆追梦，为和平统一发光](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:24 - [斯诺克世锦赛：丁俊晖暂时领先吉尔伯特 肖国栋淘汰周跃龙晋级](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [习言道｜让互联网更好造福国家和人民](http://www.blog.minike.top/Article/details/02381764.shtml)
+- 2026-06-29 11:48 - [消费升级+投资优化 一季度内需引擎动力增强](http://www.blog.kurohicncr.top/Article/details/376157028602.shtml)
+- 2026-06-29 11:30 - [于和伟、张若昀纷纷声明！爱奇艺回应：入驻不等于授权](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:24 - [Astro Offshore新增MPSV，扩展水下作业能力](http://www.share.minike.top/Article/details/4097024846.shtml)
+- 2026-06-29 11:39 - [美国债市：国债走高 交易员上调对美联储年内降息押注](http://www.blog.kurohicncr.top/Article/details/901939566.shtml)
+- 2026-06-29 11:42 - [松延动力创始人姜哲源揭秘参赛机器人技术升级：续航加强、扭矩提升超一倍](http://www.share.minike.top/Article/details/624404149.shtml)
+- 2026-06-29 11:34 - [易方达如意安悦3个月持有混合（FOF）今日首发 打造多元配置新选择](http://www.share.kurohicncr.top/Article/details/5668181.shtml)
+- 2026-06-29 11:30 - [陈茂波：香港将公布第六批引进重点企业](http://www.blog.kurohicncr.top/Article/details/14594.shtml)
+- 2026-06-29 11:28 - [33岁确诊胃癌晚期，她错过了身体4次“求救信号”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [黄金交易提醒：周末中东局势突变，伊朗拒绝第二轮谈判，金价大幅跳空低开](http://www.blog.minike.top/Article/details/808750801.shtml)
+- 2026-06-29 11:40 - [宁波前湾新区文旅提质升级 打造长三角全域度假新高地](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [行业性纵容！“幽灵外卖”黑产调查：7家电商平台“幽灵店铺”多达67604家](https://github.com/lisacumin64-arch)

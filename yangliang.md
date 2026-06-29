@@ -1,56 +1,54 @@
-# 服务业稳中向好 新动能持续增强
+# 避开昂贵汽油 电动汽车在欧洲主要市场销量飙升
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-服务业稳中向好 新动能持续增强 ——“十四五”时期我国服务业高质量发展取得积极成效 “十四五”时期，我国围绕促进服务业优质高效发展、培育服务新业态新模式、扩大服务业对外开放、推进产业融合发展等出台了一系列政策措施。国家统计局发布的“十四五”经济社会发展成就系列报告之十一显示，服务业呈现规模稳步扩大、质效持续提升、新动能蓬勃发展的良好局面。 服务业连续11年占据国民经济“半壁江山
+中新网北京4月20日电 综合消息：据路透社报道，2026年第一季度，欧洲主要汽车市场的纯电动汽车销量大幅增长近三分之一。在伊朗战争引发近年来汽油价格最大涨幅之后，消费者开始寻找内燃机汽车的替代方案。 行业协会“欧洲电动汽车协会(E-Mobility Europe)”与研究机构“新动能汽车(New Automotive)”20日公布的数据显示，以注册量作为销量指标，电池电动汽车第
 
 ## 正文
 
-服务业稳中向好 新动能持续增强 ——“十四五”时期我国服务业高质量发展取得积极成效 “十四五”时期，我国围绕促进服务业优质高效发展、培育服务新业态新模式、扩大服务业对外开放、推进产业融合发展等出台了一系列政策措施。
+中新网北京4月20日电 综合消息：据路透社报道，2026年第一季度，欧洲主要汽车市场的纯电动汽车销量大幅增长近三分之一。
 
-国家统计局发布的“十四五”经济社会发展成就系列报告之十一显示，服务业呈现规模稳步扩大、质效持续提升、新动能蓬勃发展的良好局面。
+在伊朗战争引发近年来汽油价格最大涨幅之后，消费者开始寻找内燃机汽车的替代方案。
 
-服务业连续11年占据国民经济“半壁江山”“十四五”时期，服务业增加值快速增长，从2020年的574851亿元增长至2025年的808879亿元，2021—2025年年均实际增长5.8%。
+行业协会“欧洲电动汽车协会(E-Mobility Europe)”与研究机构“新动能汽车(New Automotive)”20日公布的数据显示，以注册量作为销量指标，电池电动汽车第一季度的销量同比增长29.4%，达到近56万辆；其中3月份单月同比增幅高达51.3%，超过24万辆，覆盖欧洲15个市场。
 
-服务业增加值占GDP比重从2020年的55.5%提高至2025年的57.7%，连续11年占据国民经济“半壁江山”。
+两家机构的联合声明称，本季度注册的约50万辆电池电动汽车足以每年减少200万桶石油消费。
 
-2025年，服务业对国民经济增长的贡献率达61.4%，比2020年提高6.3个百分点，经济增长“主动力”作用更加坚定稳固。
+报告还指出，德国、法国、西班牙、意大利和波兰作为欧洲五大电动车市场，今年以来电池电动汽车销量均增长超过40%。
 
-服务业经济发展向好，转型升级创造了大量新的就业岗位，为广大就业者提供了更广阔的发展空间和更多元的职业选择。
-
-2025年末，服务业就业人员为35798万人，占全国就业人员的比重为49.4%，比2020年末提高1.7个百分点，就业人员占比稳居三次产业首位。
-
-直播电商、在线文娱、共享经济等新服务形态层出不穷，催生了网络主播、外卖骑手、视频创作者等大量新职业。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 11:44 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:46 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:28 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:31 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:34 - [月薪 1 万留在一线城市，和月薪 6000 回家乡工作，哪个更划算？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:32 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:33 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:38 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:29 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:22 - [洪明甫发布会没有提问环节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:39 - [受伊朗战争影响，尿素化肥价格高企，阿根廷小麦生产面临威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:25 - [视频｜李在明首次访印 涉霍尔木兹海峡 呼吁韩印联手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:40 - [中国驻日使馆连遭威胁 外交部四字警告日方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:25 - [广西岑溪“村味擂台”亮相“三月三” 民俗与文明集市“双向奔赴”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:32 - [广西财政强化资金保障 筑牢基层应急管理“第一道防线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:42 - [广西百色5岁走失男童已不幸身亡，当地通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:35 - [中国·荆州2026全国历史文化名城羽毛球邀请赛开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:46 - [中国创新正在全方位加速突破](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:47 - [酒价内参4月20日价格发布：茅台系领涨 总价升至九日高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:47 - [蓝莓价格走低 国产品种研发多点推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:25 - [宁夏兴庆大漠黄河徒步大会启幕 千余人乐享春日文旅健身行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:37 - [“战火重燃”：船只遭扣押、遇袭，美伊停火协议濒临破裂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:30 - [某高校学生被辅导员等人扭送至公安](http://www.share.minike.top/Article/details/113726.shtml)
-- 2026-06-29 11:48 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.minike.top/Article/details/2510452.shtml)
-- 2026-06-29 11:24 - [韩体育部长回应李在明痛批](http://www.blog.kurohicncr.top/Article/details/863842780.shtml)
-- 2026-06-29 11:50 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/75120.shtml)
-- 2026-06-29 11:51 - [普京称俄处于命运攸关之际](http://www.blog.kurohicncr.top/Article/details/27953666171.shtml)
-- 2026-06-29 11:34 - [中俄联合巡航阵容强大 日本慌了？](http://www.blog.minike.top/Article/details/613832868074.shtml)
-- 2026-06-29 11:32 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/051215811356.shtml)
-- 2026-06-29 11:27 - [男子撸铁后擦汗 脸部感染“脚气”](https://www.blog.minike.top/Article/details/9528504.shtml)
-- 2026-06-29 11:26 - [陈靖可虞书欣领衔主演](https://www.share.kurohicncr.top/Article/details/52418459.shtml)
-- 2026-06-29 11:40 - [下飞机后，我做了个很蠢的决定......](http://www.share.kurohicncr.top/Article/details/07475751.shtml)
-- 2026-06-29 11:40 - [法国过去5日死亡人数飙升](http://www.blog.minike.top/Article/details/755480938217.shtml)
-- 2026-06-29 11:24 - [温峥嵘直播回应恶评](https://www.share.minike.top/Article/details/808243808119.shtml)
-- 2026-06-29 11:52 - [法拉利被多名孩童当滑梯玩耍](http://www.share.kurohicncr.top/Article/details/89545638.shtml)
-- 2026-06-29 11:42 - [2025年人口增长10强城市出炉](https://www.share.kurohicncr.top/Article/details/63851874.shtml)
-- 2026-06-29 11:28 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/52843.shtml)
+- 2026-06-29 11:26 - [快讯：现货黄金回落至4750美元/盎司下方，日内跌1.76%](http://www.share.minike.top/Article/details/116708764.shtml)
+- 2026-06-29 11:44 - [拾光纪·“让互联网更好造福人民、造福世界”，总书记这样嘱托](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [山东菏泽：槐花飘香春滋味 特色槐花宴受欢迎](http://www.share.kurohicncr.top/Article/details/778258540218.shtml)
+- 2026-06-29 11:32 - [涉“幽灵外卖”，抖音食品安全总监廖天博被罚超64万](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [2026全球豫商大会启幕 AI与机器人企业青睐河南机遇](http://www.blog.minike.top/Article/details/4008738.shtml)
+- 2026-06-29 11:26 - [苏林、查波访华为何要去广西、湖南？](http://www.blog.kurohicncr.top/Article/details/497736597.shtml)
+- 2026-06-29 11:36 - [日本东北部沿海地区发生7.4级地震 已发布海啸警报](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [（文化中国行）千年山歌的“数字迁徙”：从广西唱响东盟](http://www.blog.minike.top/Article/details/239756400323.shtml)
+- 2026-06-29 11:49 - [度小满冠名《浪姐7》陷舆论反噬：透视助贷平台下沉的困局](http://www.share.kurohicncr.top/Article/details/512521253.shtml)
+- 2026-06-29 11:49 - [2026江苏省侨界中餐厨艺大赛在无锡启动](http://www.blog.minike.top/Article/details/87761558.shtml)
+- 2026-06-29 11:26 - [中信建投：创业板新高后，还有多少空间？](http://www.share.minike.top/Article/details/502488935.shtml)
+- 2026-06-29 11:29 - [多国客商齐聚河南长垣 共觅起重装备商机](http://www.share.kurohicncr.top/Article/details/2471496773.shtml)
+- 2026-06-29 11:38 - [书香换花香 浙江杭州孔庙书市启幕](http://www.share.minike.top/Article/details/10469.shtml)
+- 2026-06-29 11:46 - [2026年河南省篮球城市联赛在古都安阳开赛](http://www.share.kurohicncr.top/Article/details/9627215.shtml)
+- 2026-06-29 11:53 - [特斯拉：目前并无在上海超级工厂量产机器人的具体计划](http://www.share.minike.top/Article/details/1813478.shtml)

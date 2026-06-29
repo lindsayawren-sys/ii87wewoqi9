@@ -1,59 +1,57 @@
-# 中国纺织企业创新防晒面料走俏海外
+# 中国将对53个非洲建交国全面零关税 湖南对非贸易迎新机遇
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-中新社绍兴6月6日电 题：中国纺织企业创新防晒面料走俏海外 作者 项菁 “原纱防晒面料受到韩国消费者欢迎，简约风、基础款卖得最好。”近日，浙江绍兴柯桥的中国轻纺城户外功能面料专营区“文景防晒”门店内，负责人周良忙着招呼前来询价的客商。他受访时称，眼下企业正在研发格纹、横条纹等常规肌理的面料，满足亚洲客户需求。 防晒衣是夏季大众出行的常备单品。作为全球最大的纺织品集散中心，中国轻
+中新网长沙4月17日电 (记者 傅煜)今年5月1日起，中国将对53个非洲建交国全面实施零关税举措。长沙海关党委委员、副关长兰胜斌17日表示，此举将为中非经贸合作高质量发展注入新动能，并对湖南外贸特别是中非经贸深度合作先行区建设产生积极影响。2024年12月1日起，中国给予包括33个非洲国家在内的同中国建交的最不发达国家100%税目产品零关税待遇。兰胜斌称，截至今年一季度，长沙海
 
 ## 正文
 
-中新社绍兴6月6日电 题：中国纺织企业创新防晒面料走俏海外 作者 项菁 “原纱防晒面料受到韩国消费者欢迎，简约风、基础款卖得最好。
+中新网长沙4月17日电 (记者 傅煜)今年5月1日起，中国将对53个非洲建交国全面实施零关税举措。
 
-”近日，浙江绍兴柯桥的中国轻纺城户外功能面料专营区“文景防晒”门店内，负责人周良忙着招呼前来询价的客商。
+长沙海关党委委员、副关长兰胜斌17日表示，此举将为中非经贸合作高质量发展注入新动能，并对湖南外贸特别是中非经贸深度合作先行区建设产生积极影响。
 
-他受访时称，眼下企业正在研发格纹、横条纹等常规肌理的面料，满足亚洲客户需求。
+2024年12月1日起，中国给予包括33个非洲国家在内的同中国建交的最不发达国家100%税目产品零关税待遇。
 
-防晒衣是夏季大众出行的常备单品。
+兰胜斌称，截至今年一季度，长沙海关累计为湖南自33个非洲最不发达国家进口产品办理税款减让2697.89万元。
 
-作为全球最大的纺织品集散中心，中国轻纺城聚集3万余户经营户，纺织品种类超50万种。
+此举有力拉动了湖南对非进口增长。
 
-近年，不少布商创新推出的原纱防晒面料走俏海内外市场。
+统计显示，2025年湖南自非洲进口额达309.2亿元，同比增长27.2%；今年一季度进口70.4亿元，同比增长21.9%。
 
-“早期防晒面料大多依赖涂层或化学助剂，普遍存在透气性差、不耐洗等短板。
+“目前，肯尼亚、南非、尼日利亚、摩洛哥和突尼斯是湖南对非贸易的主要进口国，这些国家均不属于最不发达国家。
 
-”周良深耕纺织面料行业23年，4年前开始探索原纱面料。
+”兰胜斌介绍，2025年1月至2026年3月，湖南对这5国进口关税占自非洲进口关税总额的98.1%。
 
 ## 相关推荐
 
-- 2026-06-29 11:40 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:47 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:22 - [晋城暴雨车辆被淹冰箱在水中漂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:39 - [某高校学生被辅导员等人扭送至公安](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:41 - [薛之谦演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:23 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:34 - [温峥嵘直播回应恶评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:38 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:40 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:46 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:48 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:26 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:40 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:33 - [经济观察：轻食，重新定义“吃”的健康价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:25 - [地平线机器人-W于4月17日斥资287.1万港元回购39.42万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:51 - [中越青年相聚广西南宁分享友好故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:42 - [歼-10升空！防以色列袭击，巴基斯坦出动20多架飞机护送伊朗谈判代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:40 - [旧金山联储行长戴利认为利率处于良好位置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:53 - [券商前十座次重排！“两超多强”格局显现，两大业务成新关键赛道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:43 - [黑龙江干流黑河段平稳开江 较历年提前9天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:29 - [标普500闪现罕见上涨信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:29 - [卡沙甘油田就50亿美元哈萨克斯坦硫磺罚款上诉再遭驳回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:25 - [霍尔木兹海峡开放提振市场，华尔街周五开盘走高，原油价格大跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:35 - [2026金鸡艺术电影展在上海举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:37 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/062431687890.shtml)
-- 2026-06-29 11:44 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/1021877278.shtml)
-- 2026-06-29 11:30 - [女生雨天开车发现雨刮条被掰走](https://www.share.minike.top/Article/details/398741622.shtml)
-- 2026-06-29 11:50 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/375822.shtml)
-- 2026-06-29 11:45 - [当我回母校教书](http://www.share.minike.top/Article/details/7990952504.shtml)
-- 2026-06-29 11:49 - [吴海燕兰西雅漫步复兴岛](http://www.blog.kurohicncr.top/Article/details/953265.shtml)
-- 2026-06-29 11:41 - [迈巴赫提车第二天发现大灯起雾](https://www.blog.kurohicncr.top/Article/details/63953.shtml)
-- 2026-06-29 11:46 - [伊朗球员致歉](http://www.blog.kurohicncr.top/Article/details/234535102.shtml)
-- 2026-06-29 11:23 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/10683.shtml)
-- 2026-06-29 11:39 - [媒体人：警惕日本再次成战争加害国](http://www.blog.kurohicncr.top/Article/details/8269506.shtml)
-- 2026-06-29 11:51 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/968732244.shtml)
-- 2026-06-29 11:25 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.minike.top/Article/details/650008.shtml)
-- 2026-06-29 11:51 - [迈巴赫提车第二天发现大灯起雾](https://www.share.minike.top/Article/details/84385817.shtml)
-- 2026-06-29 11:35 - [伊朗球员道歉 说着说着哭了](https://www.share.kurohicncr.top/Article/details/823359149693.shtml)
-- 2026-06-29 11:30 - [请回答王牌2019](https://www.share.minike.top/Article/details/40975444877.shtml)
+- 2026-06-29 11:51 - [油气价格大跌 受霍尔木兹海峡开放和止战希望影响](http://www.blog.minike.top/Article/details/949817.shtml)
+- 2026-06-29 11:34 - [伊朗：将再次关闭霍尔木兹海峡](http://www.blog.minike.top/Article/details/537060725683.shtml)
+- 2026-06-29 11:44 - [百胜中国于4月17日斥资773.82万港元回购2.07万股](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [伊朗称将对美军扣押伊朗商船作出回应](http://www.blog.minike.top/Article/details/661554.shtml)
+- 2026-06-29 11:30 - [特朗普：霍尔木兹海峡已完全开放 但对伊朗海上封锁仍将持续](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [2026中小学“汉语桥”多伦多赛区选拔赛圆满收官](http://www.share.kurohicncr.top/Article/details/7238564332.shtml)
+- 2026-06-29 11:46 - [现场视频：美军人员从直升机顺绳而下，控制伊朗货船](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:51 - [贵州纳雍：玛瑙红樱桃迎采摘热潮](http://www.blog.kurohicncr.top/Article/details/5034218.shtml)
+- 2026-06-29 11:41 - [从“石旮旯”到“世界最佳” 重庆荆竹村涌文旅热潮](http://www.blog.kurohicncr.top/Article/details/4073873.shtml)
+- 2026-06-29 11:48 - [ATFX五度斩获ADVFN最佳拉美地区经纪商 区域领导力再获国际权威认可](http://www.share.kurohicncr.top/Article/details/269765.shtml)
+- 2026-06-29 11:51 - [三亚与7家境外经贸合作区集中签约](http://www.blog.minike.top/Article/details/99213.shtml)
+- 2026-06-29 11:43 - [三亚亚沙会临近 主媒体中心试运行赛事氛围渐浓](http://www.blog.minike.top/Article/details/66716766.shtml)
+- 2026-06-29 11:46 - [法国通过“文物归还法案”，260万件中国文物多少能回归？](http://www.blog.kurohicncr.top/Article/details/301035460.shtml)
+- 2026-06-29 11:27 - [OpenAI “Sora之父”宣布离职](http://www.share.kurohicncr.top/Article/details/2168276.shtml)
+- 2026-06-29 11:46 - [跨国药械企业竞逐“中国制造”新赛道](http://www.share.minike.top/Article/details/78183255.shtml)

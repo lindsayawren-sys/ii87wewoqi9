@@ -1,56 +1,49 @@
-# 什么是远视储备？眼睛也会“卒中” 这些护眼常识请收好→
+# 地平线机器人-W于4月17日斥资287.1万港元回购39.42万股
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-朝“问”健康丨什么是远视储备？眼睛也会“卒中” 这些护眼常识请收好→ 今天(6日)是全国爱眼日，今年的主题是“人人享有眼健康”，重点关注全年龄段人群眼健康，重点防控近视等眼病。根据国家卫生健康委的最新数据，2021年至2024年全国学生总体近视率实现“四连降”，2024年降至50.3%，较2018年下降3.3个百分点。 什么是远视储备？ 今年9月1日起至年底，北京将对全市幼儿园
+地平线机器人-W（09660）发布公告，于2026年4月17日斥资287.1万港元回购39.42万股。责任编辑：卢昱君
 
 ## 正文
 
-朝“问”健康丨什么是远视储备？
+地平线机器人-W（09660）发布公告，于2026年4月17日斥资287.1万港元回购39.42万股。
 
-眼睛也会“卒中” 这些护眼常识请收好→ 今天(6日)是全国爱眼日，今年的主题是“人人享有眼健康”，重点关注全年龄段人群眼健康，重点防控近视等眼病。
-
-根据国家卫生健康委的最新数据，2021年至2024年全国学生总体近视率实现“四连降”，2024年降至50.3%，较2018年下降3.3个百分点。
-
-什么是远视储备？
-
-今年9月1日起至年底，北京将对全市幼儿园，约13.4万名大班儿童开展远视储备筛查，建立专属视力健康档案，动态监测视力变化，提前预警近视风险。
-
-那么，什么是远视储备？
-
-学龄前儿童应该如何防近视呢？
-
-新生儿眼球尚未发育完全，普遍存在生理性远视，屈光度约为250到300度。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:49 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:47 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:26 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:32 - [温瑞博袁励岑晋级美国大满贯男双16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:33 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:44 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:51 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:31 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:51 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:32 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:52 - [卡沙甘油田就50亿美元哈萨克斯坦硫磺罚款上诉再遭驳回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:41 - [霍尔木兹海峡开放提振市场，华尔街周五开盘走高，原油价格大跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:25 - [2026金鸡艺术电影展在上海举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:49 - [ZFX山海证券:金矿合作拓展资源前景仍待验证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:38 - [做具身智能的银河通用，为什么要花1500多万元向宇树科技买机器人？ | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:51 - [蓝色起源火箭可重复使用助推器着陆 但卫星偏离轨道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:50 - [霍尔木兹海峡开放后多艘船只尝试通行但未竟全功 不确定性犹在](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:30 - [巴基斯坦内政部长前往美使馆讨论美伊第二轮谈判事宜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:33 - [避开昂贵汽油 电动汽车在欧洲主要市场销量飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:40 - [琼台同胞欢舞乐聚共庆“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:31 - [管弦藏诗意 民族交响乐持续拨动青年心弦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:54 - [吉韵东方入春城 中国华服周展示古韵风华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:50 - [中国经济圆桌会丨消博会是一个至关重要窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:46 - [三问首季经济：形如何，亮在哪，势怎样？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:31 - [泰国类鼻疽疫情今年已确诊732例死亡23例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:31 - [第一批缉毒警已全体退休](http://www.blog.minike.top/Article/details/49960.shtml)
-- 2026-06-29 11:39 - [韩国队启程回国众将回避镜头](http://www.blog.minike.top/Article/details/38675573.shtml)
-- 2026-06-29 11:24 - [游戏数据被用于军事目的 国安部提醒](http://www.blog.minike.top/Article/details/15288.shtml)
-- 2026-06-29 11:28 - [去了一趟潮汕。](http://www.share.minike.top/Article/details/6432079426.shtml)
-- 2026-06-29 11:52 - [巴西德国15次闯进世界杯淘汰赛](http://www.blog.kurohicncr.top/Article/details/92802336.shtml)
-- 2026-06-29 11:33 - [为什么6月以来北方频繁降雨](http://www.share.minike.top/Article/details/42519.shtml)
-- 2026-06-29 11:30 - [曝韩国球员目睹出局时正吃饭](http://www.blog.kurohicncr.top/Article/details/14223684.shtml)
-- 2026-06-29 11:24 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](http://www.blog.minike.top/Article/details/406719253.shtml)
-- 2026-06-29 11:44 - [曝太阳黄蜂完成阵容互换+签位置换](https://www.share.minike.top/Article/details/69690.shtml)
-- 2026-06-29 11:25 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](http://www.share.minike.top/Article/details/80558.shtml)
-- 2026-06-29 11:52 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/2430362.shtml)
-- 2026-06-29 11:25 - [刘宇宁现偶我就不要了](https://www.blog.minike.top/Article/details/48843.shtml)
-- 2026-06-29 11:47 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/607616.shtml)
-- 2026-06-29 11:49 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/226248.shtml)
-- 2026-06-29 11:29 - [吴昕要助理买的药6年前已停产](https://www.share.kurohicncr.top/Article/details/28270.shtml)
+- 2026-06-29 11:41 - [从“石旮旯”到“世界最佳” 重庆荆竹村涌文旅热潮](http://www.share.kurohicncr.top/Article/details/10840384.shtml)
+- 2026-06-29 11:32 - [ATFX五度斩获ADVFN最佳拉美地区经纪商 区域领导力再获国际权威认可](http://www.share.kurohicncr.top/Article/details/790635.shtml)
+- 2026-06-29 11:54 - [三亚与7家境外经贸合作区集中签约](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [三亚亚沙会临近 主媒体中心试运行赛事氛围渐浓](http://www.blog.minike.top/Article/details/743393090.shtml)
+- 2026-06-29 11:30 - [法国通过“文物归还法案”，260万件中国文物多少能回归？](http://www.blog.kurohicncr.top/Article/details/221555300653.shtml)
+- 2026-06-29 11:46 - [OpenAI “Sora之父”宣布离职](http://www.blog.minike.top/Article/details/634472332449.shtml)
+- 2026-06-29 11:26 - [跨国药械企业竞逐“中国制造”新赛道](http://www.share.kurohicncr.top/Article/details/41447979.shtml)
+- 2026-06-29 11:32 - [美国中央司令部：美军瘫痪了一艘试图驶入伊朗港口、违反封锁令的伊朗船只](http://www.share.kurohicncr.top/Article/details/477587.shtml)
+- 2026-06-29 11:32 - [霍尔木兹海峡开放消息提振米兰股市加速上涨，银行与奢侈品板块飙升，石油股下跌](http://www.blog.minike.top/Article/details/110488282.shtml)
+- 2026-06-29 11:27 - [建平台强队伍见实效 云南探路国企统战新模式](http://www.share.minike.top/Article/details/112064951250.shtml)
+- 2026-06-29 11:50 - [哥伦比亚国家石油公司：Copoazú-1井测试结果预计6月底揭晓](http://www.blog.kurohicncr.top/Article/details/688856514754.shtml)
+- 2026-06-29 11:52 - [吉林大学春花绽放春意浓](http://www.share.kurohicncr.top/Article/details/53176.shtml)
+- 2026-06-29 11:47 - [纽约汇市：美元第三周下跌 市场对伊朗和平前景乐观](http://www.share.minike.top/Article/details/588037.shtml)
+- 2026-06-29 11:42 - [“东北超”推动文旅体商融合 无形资产变红利](http://www.share.kurohicncr.top/Article/details/6906175166.shtml)
+- 2026-06-29 11:34 - [台湾台中大甲妈祖起驾 开启九天八夜绕境活动](http://www.share.kurohicncr.top/Article/details/24861647.shtml)

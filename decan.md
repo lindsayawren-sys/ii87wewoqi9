@@ -1,61 +1,52 @@
-# 广州启动高考志愿服务专项行动
+# A股收评：超3400只个股飘红，沪指、深指收涨，创业板指收跌
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-中新网广州6月7日电 (记者 张璐)6月7日，2026年全国高考正式拉开帷幕，广州6.9万余名考生奔赴考场。为筑牢高考暖心保障线，共青团广州市委员会(简称“团广州市委”)启动2026年广州“青春聚力 为梦护航”高考志愿服务专项行动。 据了解，高考期间，广州市共布设18个标准化助考服务站点。其中全新打造11个“高考爱心驿站”“高考加油站”，并升级小北驿站等7个现有志愿驿站的助考功
+A股收评：超3400只个股飘红，沪指、深指收涨，创业板指收跌，化纤、航天军工领涨，摩托车板块领跌 20日，A股三大指数开盘涨跌不一，随后集体翻红，午后创业板指翻绿。Wind数据显示，截至收盘，上证指数涨0.76%，深证成指涨0.55%，创业板指跌0.02%。 全市成交额2.61万亿，超3400只个股上涨。 板块方面，商业航天、光纤、液冷服务器、稀有金属、AI应用、光伏、特高压、
 
 ## 正文
 
-中新网广州6月7日电 (记者 张璐)6月7日，2026年全国高考正式拉开帷幕，广州6.9万余名考生奔赴考场。
+A股收评：超3400只个股飘红，沪指、深指收涨，创业板指收跌，化纤、航天军工领涨，摩托车板块领跌 20日，A股三大指数开盘涨跌不一，随后集体翻红，午后创业板指翻绿。
 
-为筑牢高考暖心保障线，共青团广州市委员会(简称“团广州市委”)启动2026年广州“青春聚力 为梦护航”高考志愿服务专项行动。
+Wind数据显示，截至收盘，上证指数涨0.76%，深证成指涨0.55%，创业板指跌0.02%。
 
-据了解，高考期间，广州市共布设18个标准化助考服务站点。
+全市成交额2.61万亿，超3400只个股上涨。
 
-其中全新打造11个“高考爱心驿站”“高考加油站”，并升级小北驿站等7个现有志愿驿站的助考功能，实现中心城区考点全覆盖。
+板块方面，商业航天、光纤、液冷服务器、稀有金属、AI应用、光伏、特高压、消费电子概念股活跃；锂电池、创新药题材走弱，摩托车、地产、煤炭板块回调。
 
-除物资补给外，各站点还提供考场咨询、路线指引等便民服务，特别设置家长休息区，为等候的家长提供座椅和饮用水，志愿者同步开展陪考心理疏导服务，缓解家长焦虑情绪。
-
-作为广州持续时间最长、影响力最广的公益品牌之一，2026年爱心送考服务再次升级保障力度。
-
-广州公交集团提前摸排全市72个考点周边公交线路运行情况，优化调整114条途经考点的线路班次，加密早高峰发车频次。
-
-同时，开通一对一预约送考通道，为特困家庭、残障考生、突发疾病考生提供免费专车接送服务。
+(中新经纬微信公众号)
 
 ## 相关推荐
 
-- 2026-06-29 11:35 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:35 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:39 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:34 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:32 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:51 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:25 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:40 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:26 - [鬼畜区全明星拼接遗憾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:27 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:39 - [詹姆斯下赛季会在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:26 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:45 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:45 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:26 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:28 - [现场视频：美军人员从直升机顺绳而下，控制伊朗货船](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:35 - [贵州纳雍：玛瑙红樱桃迎采摘热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:26 - [从“石旮旯”到“世界最佳” 重庆荆竹村涌文旅热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:46 - [ATFX五度斩获ADVFN最佳拉美地区经纪商 区域领导力再获国际权威认可](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:30 - [三亚与7家境外经贸合作区集中签约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:28 - [三亚亚沙会临近 主媒体中心试运行赛事氛围渐浓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:52 - [法国通过“文物归还法案”，260万件中国文物多少能回归？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:50 - [OpenAI “Sora之父”宣布离职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:44 - [跨国药械企业竞逐“中国制造”新赛道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:34 - [美国中央司令部：美军瘫痪了一艘试图驶入伊朗港口、违反封锁令的伊朗船只](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:32 - [霍尔木兹海峡开放消息提振米兰股市加速上涨，银行与奢侈品板块飙升，石油股下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:32 - [建平台强队伍见实效 云南探路国企统战新模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:37 - [民进党为什么拼命抹黑统战](http://www.blog.kurohicncr.top/Article/details/923072487975.shtml)
-- 2026-06-29 11:36 - [克洛普：加拿大主帅还能继续创造历史](http://www.share.kurohicncr.top/Article/details/47272.shtml)
-- 2026-06-29 11:42 - [韩国队如何把94%出线概率打到0%](http://www.share.minike.top/Article/details/336263.shtml)
-- 2026-06-29 11:32 - [美伊同意停止互袭 30日在多哈谈判](http://www.share.kurohicncr.top/Article/details/55834.shtml)
-- 2026-06-29 11:50 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/58974804.shtml)
-- 2026-06-29 11:27 - [南非门将单场77次成功传球](https://www.share.kurohicncr.top/Article/details/2656785888.shtml)
-- 2026-06-29 11:51 - [媒体：湖人把薪资空间玩明白了](https://www.share.kurohicncr.top/Article/details/62653561.shtml)
-- 2026-06-29 11:44 - [《昨夜将至》为何是悬疑黑马](https://www.blog.kurohicncr.top/Article/details/70857.shtml)
-- 2026-06-29 11:22 - [杨紫《生命树》播放量破百亿](http://www.blog.minike.top/Article/details/460043.shtml)
-- 2026-06-29 11:27 - [绘画区你赢了](https://www.share.minike.top/Article/details/717597.shtml)
-- 2026-06-29 11:25 - [千与千寻](https://www.blog.minike.top/Article/details/771350532532.shtml)
-- 2026-06-29 11:28 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/323762386112.shtml)
-- 2026-06-29 11:41 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.minike.top/Article/details/66302232.shtml)
-- 2026-06-29 11:38 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.blog.minike.top/Article/details/3738022668.shtml)
-- 2026-06-29 11:29 - [当我回母校教书](http://www.share.kurohicncr.top/Article/details/902358701116.shtml)
+- 2026-06-29 11:42 - [中国经济开局良好 外媒：高质量发展助力中国经济更具可持续性](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [2026“发现宝藏山东”主题旅游年启幕 让宝藏可寻、可感、可品](http://www.blog.kurohicncr.top/Article/details/419935464.shtml)
+- 2026-06-29 11:32 - [受伊朗局势缓和预期推动，美国股票基金持续获得资金流入](http://www.share.minike.top/Article/details/55885632372.shtml)
+- 2026-06-29 11:31 - [中国美术馆与千问AI眼镜开启合作探索，观展迈向“边看边懂”](http://www.share.minike.top/Article/details/727974289958.shtml)
+- 2026-06-29 11:38 - [上巳传笺 望江听涛：成都望江楼公园复原明代制笺古礼](http://www.blog.minike.top/Article/details/24548903237.shtml)
+- 2026-06-29 11:30 - [拼多多因“幽灵外卖”被罚，法定代表人赵佳臻被处693.73万元罚款](http://www.share.minike.top/Article/details/61801848.shtml)
+- 2026-06-29 11:42 - [中国试飞院开放日 各型飞机引民众打卡](http://www.share.minike.top/Article/details/661557078452.shtml)
+- 2026-06-29 11:48 - [预测市场平台Polymarket计划募资4亿美元 估值达约150亿美元](http://www.blog.minike.top/Article/details/217857721.shtml)
+- 2026-06-29 11:36 - [总书记的关切·落地的回响｜中国式现代化要靠科技现代化作支撑](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [林毅夫：中国式现代化的成功实践为全球发展中国家提供重要借鉴](http://www.blog.kurohicncr.top/Article/details/074952.shtml)
+- 2026-06-29 11:33 - [湖北城市足球联赛点燃民众热情 赛事流量变消费增量](http://www.share.minike.top/Article/details/499092.shtml)
+- 2026-06-29 11:53 - [国际传播纪录片《大道——永远的长征》在北京启动](http://www.share.kurohicncr.top/Article/details/1807804681.shtml)
+- 2026-06-29 11:47 - [千年古刹云居山谷雨见闻：一叶“攒林茶” 农禅指尖传](http://www.share.minike.top/Article/details/20614916375.shtml)
+- 2026-06-29 11:24 - [灿能电力拟每10股派息1.66元](http://www.share.minike.top/Article/details/990312673904.shtml)
+- 2026-06-29 11:44 - [光鲜销售下的深层危机：亚盛医药的盈利困局与三大致命风险](http://www.share.minike.top/Article/details/68208.shtml)

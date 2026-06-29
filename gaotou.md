@@ -1,53 +1,61 @@
-# 越疆午前涨逾3% 近日正式发布自研世界动作模型空弈DobotWAM具身大模型
+# 谷雨：祛湿排浊，双臂“甩起来”
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-越疆（02432）盘中涨超3%，截至发稿，股价上涨2.72%，现报31.02港元，成交额1.16亿港元。 近日，据越疆官微消息，公司正式发布自研世界动作模型空弈DobotWAM具身大模型。在具身智能标准评测基准LIBERO上，空弈DobotWAM具身大模型分别完成LIBERO-Spatial、LIBERO-Object、LIBERO-Goal 和 LIBERO-10四个标准任务
+扬子晚报讯(记者 许倩倩)谷雨是二十四节气中春季的最后一个节气。“谷雨”二字取“雨生百谷”之意，此时降水明显增多，正是谷类作物茁壮成长的关键时期，天地万物在春雨滋养下愈发繁茂，为暮春添上一抹生机。江苏省第二中医院公共卫生科副主任护师袁素洁提醒，此时正值四季交替的脾土当令期，脾胃运化能力达到顶峰，抓住这段时间健脾祛湿，能为整年气血打下扎实根基。运动方面，中医康复中心康复治疗师金玟
 
 ## 正文
 
-越疆（02432）盘中涨超3%，截至发稿，股价上涨2.72%，现报31.02港元，成交额1.16亿港元。
+扬子晚报讯(记者 许倩倩)谷雨是二十四节气中春季的最后一个节气。
 
-近日，据越疆官微消息，公司正式发布自研世界动作模型空弈DobotWAM具身大模型。
+“谷雨”二字取“雨生百谷”之意，此时降水明显增多，正是谷类作物茁壮成长的关键时期，天地万物在春雨滋养下愈发繁茂，为暮春添上一抹生机。
 
-在具身智能标准评测基准LIBERO上，空弈DobotWAM具身大模型分别完成LIBERO-Spatial、LIBERO-Object、LIBERO-Goal 和 LIBERO-10四个标准任务套件，覆盖空间关系理解、物体泛化、目标指令理解以及长时序任务执行等关键能力维度，平均成功率达99.25% ，领先于 π0.5、π0、GR00T-N1.5、π0+FAST等公开模型，以及行业内已有数据公布的其他模型结果。
+江苏省第二中医院公共卫生科副主任护师袁素洁提醒，此时正值四季交替的脾土当令期，脾胃运化能力达到顶峰，抓住这段时间健脾祛湿，能为整年气血打下扎实根基。
 
-责任编辑：卢昱君
+运动方面，中医康复中心康复治疗师金玟推荐了一套“快乐甩臂操”， 动作简单，易操作。
+
+我们只需像走路一样，大幅度开肩甩臂，身体重心随之前后转移即可，每次坚持一分钟，身体微微出汗为宜。
+
+这套动作可以帮助去湿排浊，还可以瘦手臂瘦肚子。
+
+袁素洁介绍，谷雨时节湿气骤增，易出现身体困重、脾胃不适、乏力嗜睡等问题，中医主张健脾祛湿、疏肝养阳，可多食山药、薏米、赤小豆、白扁豆等甘淡健脾之品；适当食用香椿、菠菜、芹菜等时令蔬菜及枸杞、黑木耳等以清肝养肝。
+
+少食酸涩收敛之物，忌生冷油腻以免助湿困脾。
 
 ## 相关推荐
 
-- 2026-06-29 11:31 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:45 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:28 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:51 - [世界杯小组赛阶段过人榜：马扎居首](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:51 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:37 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:50 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:28 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:49 - [派出所集体KTV招陪侍事发2年未通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:42 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:43 - [2岁幼童高铁突发惊厥呼吸骤停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:45 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:42 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:30 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:33 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:28 - [优步以3.18亿美元交易增持外卖平台Delivery Hero股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:45 - [福特召回至多139万辆F-150皮卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:53 - [文化中国行·联播一瞬丨谷雨：春去无憾 夏来有期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:45 - [伊朗民航组织宣布伊朗部分空域重新开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:26 - [李强主持召开国务院常务会议 听取自由贸易试验区建设情况汇报 审议通过《中华人民共和国行政复议法实施条例（修订草案）》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:36 - [超3万名日本民众集会反对高市政权危险动向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:48 - [第44届香港电影金像奖红毯仪式举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:36 - [巴西Simpar以1.215亿雷亚尔出售Ciclus Amazônia股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:52 - [特朗普：若无法达成协议 或将不延长美伊临时停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:26 - [霍尔木兹海峡开放后油价大跌，欧洲斯托克600指数涨逾1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:51 - [国常会部署推动自贸试验区高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:44 - [英国金融时报称欧盟拟放宽并购规则 培育全球冠军企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:41 - [“90后”侨青走进上海虹口 读懂城市文脉与发展活力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:45 - [“寒潮”来袭！理财产品规模一季度缩水1.38万亿，投资者收益同比降低21%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:33 - [一季度广东货物以海运方式经海南自贸港进出口同比增长25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:28 - [白鹿呵呵挽手比心](http://www.blog.kurohicncr.top/Article/details/685716.shtml)
-- 2026-06-29 11:36 - [乌拉圭出局之路](https://www.blog.minike.top/Article/details/9301066327.shtml)
-- 2026-06-29 11:22 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/711022.shtml)
-- 2026-06-29 11:49 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.blog.kurohicncr.top/Article/details/7201238195.shtml)
-- 2026-06-29 11:38 - [陈露发声引舆论反转](http://www.blog.kurohicncr.top/Article/details/484011443544.shtml)
-- 2026-06-29 11:50 - [世界杯用球成部分门将噩梦](http://www.share.kurohicncr.top/Article/details/5694194.shtml)
-- 2026-06-29 11:27 - [上海足协发布世界杯文明观赛倡议书](http://www.share.kurohicncr.top/Article/details/62877155.shtml)
-- 2026-06-29 11:51 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.share.kurohicncr.top/Article/details/352154425.shtml)
-- 2026-06-29 11:48 - [刘烨赶紧蹭个热度宣传四渡](https://www.share.kurohicncr.top/Article/details/29963525731.shtml)
-- 2026-06-29 11:50 - [小娘惹](http://www.share.kurohicncr.top/Article/details/176432.shtml)
-- 2026-06-29 11:43 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](http://www.share.kurohicncr.top/Article/details/8460011474.shtml)
-- 2026-06-29 11:23 - [水利部部署南方地区暴雨洪水防御工作](http://www.blog.minike.top/Article/details/160823009.shtml)
-- 2026-06-29 11:34 - [我国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/46134483476.shtml)
-- 2026-06-29 11:48 - [和阿根廷球员家属一起看球](https://www.share.kurohicncr.top/Article/details/31981.shtml)
-- 2026-06-29 11:50 - [四川宜宾地震](https://www.share.minike.top/Article/details/80778.shtml)
+- 2026-06-29 11:24 - [“患者被引荐至私立医院” 涉事医生被停止诊疗并终止聘用合同](http://www.share.kurohicncr.top/Article/details/302670122.shtml)
+- 2026-06-29 11:24 - [东方证券与上海证券筹划合并重组，加快推进一流现代投资银行建设](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [涉案金额2.6亿元，我国摧毁山西特大假酒网络](http://www.share.kurohicncr.top/Article/details/485215267534.shtml)
+- 2026-06-29 11:47 - [浦发银行与中国银联签署全面战略合作协议](http://www.share.minike.top/Article/details/5797786.shtml)
+- 2026-06-29 11:38 - [让机器人跑马拉松有什么用？专家：先带动技术发展 再逐步落地应用](http://www.share.kurohicncr.top/Article/details/532036025.shtml)
+- 2026-06-29 11:37 - [实拍江西上饶“三月三”篝火联欢现场 民众踏歌起舞庆佳节](http://www.blog.kurohicncr.top/Article/details/537328429711.shtml)
+- 2026-06-29 11:30 - [万众期待的“霸王”来了！“宿迁子弟何在？”何润东身披甲胄亮相“苏超”现场](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [BOSS直聘-W于4月17日耗资约249.65万美元回购约34.97万股](http://www.share.minike.top/Article/details/2468083038.shtml)
+- 2026-06-29 11:35 - [去年翻倍赚钱的基金，今年怎么样了？](http://www.blog.minike.top/Article/details/5452688631.shtml)
+- 2026-06-29 11:32 - [巴西、西班牙和墨西哥联合呼吁采取措施缓解古巴局势](http://www.blog.minike.top/Article/details/16442762736.shtml)
+- 2026-06-29 11:49 - [产品业绩回撤38.53%，昔日百亿私募同犇投资最新回应：从来不是只买消费，AI产业链去年开始就有不少仓位](http://www.share.minike.top/Article/details/5061754074.shtml)
+- 2026-06-29 11:46 - [金价下跌 霍尔木兹海峡再度中断引发通胀担忧](http://www.blog.minike.top/Article/details/773405898769.shtml)
+- 2026-06-29 11:49 - [农业农村部：推动猪价合理回升](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:26 - [鼎泰丰“回京”热度不减 稳中求进布局大陆北方市场](http://www.share.kurohicncr.top/Article/details/991138590.shtml)
+- 2026-06-29 11:51 - [国际能源署称中东能源产出恢复需两年时间](http://www.blog.kurohicncr.top/Article/details/508383209609.shtml)

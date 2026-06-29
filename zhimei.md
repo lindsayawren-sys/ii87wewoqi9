@@ -1,61 +1,56 @@
-# 浙江湖州：用小故事讲好“大团结” 共绘最美同心圆
+# 建平台强队伍见实效 云南探路国企统战新模式
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-中新网湖州6月5日电(蓝伊旎 孙东玉)情景剧《湖羊西行记》再现湖羊“西行”助力民族地区产业发展的协作精神，《国家的孩子》将浙江与内蒙古之间关于爱与团结的故事娓娓道来......6月4日，2026年度湖州市铸牢中华民族共同体意识巡回宣讲在浙江湖州南太湖新区启动。一个个鲜活的故事，奏响了各民族交往交流交融的动人乐章。 活动汇聚多方力量，湖州市委统战部、市教育局、在湖高校党委统战部、
+中新网昆明4月17日电 (时文枝)成立党外知识分子联谊会、设立党委统战部、开展主题活动……17日召开的云南省国有企业统战工作会议透露，拥有近10万名统战人士的云南省属国有企业，统战工作已形成“头部领跑、中部跟进、整体提升”的良好态势，平台建起来、队伍强起来、实效显出来的国企统战新模式日渐清晰。 建平台：从“建起来”到“转起来、活起来” 以平台载体为抓手，云南国有企业积极建立党外
 
 ## 正文
 
-中新网湖州6月5日电(蓝伊旎 孙东玉)情景剧《湖羊西行记》再现湖羊“西行”助力民族地区产业发展的协作精神，《国家的孩子》将浙江与内蒙古之间关于爱与团结的故事娓娓道来......6月4日，2026年度湖州市铸牢中华民族共同体意识巡回宣讲在浙江湖州南太湖新区启动。
+中新网昆明4月17日电 (时文枝)成立党外知识分子联谊会、设立党委统战部、开展主题活动……17日召开的云南省国有企业统战工作会议透露，拥有近10万名统战人士的云南省属国有企业，统战工作已形成“头部领跑、中部跟进、整体提升”的良好态势，平台建起来、队伍强起来、实效显出来的国企统战新模式日渐清晰。
 
-一个个鲜活的故事，奏响了各民族交往交流交融的动人乐章。
+建平台：从“建起来”到“转起来、活起来” 以平台载体为抓手，云南国有企业积极建立党外知识分子网格化服务机制，推动统战工作平台载体从“建起来”向“转起来、活起来”转变。
 
-活动汇聚多方力量，湖州市委统战部、市教育局、在湖高校党委统战部、各区县民宗局和南太湖新区党群工作部有关负责人以及湖州市民促会会员代表、“之江同心·石榴红”阵地代表等100余人到场。
+截至2026年4月，省属国企已建成知联会、留联会、工作室等各类平台载体40余个，服务触角不断延伸。
 
-湖州市委常委、统战部部长潘友明宣布巡回宣讲活动全面启动。
+其中，云南省建设投资控股集团有限公司在全省国有企业中首家成立党外知识分子联谊会，创新开展“知联荟智、知联荟策、知联荟友”特色活动，同步建立结对联谊交友、节日走访慰问、工作结对共建等工作机制，并设立“党外人士之家”“同心驿站”等，在政策宣传、联谊交友等方面实现精准服务。
 
-随后，舞台之上，情景剧、主题演讲、红色朗诵等节目轮番上演，以多元艺术形式生动诠释民族团结的深刻内涵。
+强队伍：专业化国企统战干部队伍加速成形 做好国企统战工作，关键在人。
 
-来自新疆的宣讲员木台力甫·木沙结合亲身经历，以一颗“石榴籽”的视角，讲述自己从塔里木河畔远赴钱塘江畔的“东游记”；德清宣讲员杨寅讲述一株茭白落地兴业、带动民族地区三万余户农户脱贫增收的帮扶故事，引来一片赞叹；安吉宣讲员张燕燕则立足当地生态优势，结合“绿水青山”与“石榴红”讲述同心共富实践。
+目前，云南省属企业已设立党委统战部19个，配备专兼职统战干部560余名。
 
-此外，双人朗诵《不朽》致敬了民族团结的精神丰碑，演讲《爱暖雪域，筑梦格桑》则让人看到了年轻一代的责任与担当。
+2025年，全省国资系统举办统战培训班33期，覆盖3000余人次。
 
-“能站在这里讲述身边的民族团结故事，我感到非常自豪。
+在人才梯队建设上，云南持续加强党外代表人士的发现、培养、选拔和使用。
 
 ## 相关推荐
 
-- 2026-06-29 11:45 - [李维嘉回应“人老了做什么都心酸”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:47 - [2岁幼童高铁突发惊厥呼吸骤停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:44 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:28 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:40 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:41 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:37 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:39 - [行程万里不忘初心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:22 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:37 - [黄博文：坚持这样打下去会成强队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:39 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:25 - [当地回应多辆“百吨王”强行冲卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:47 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:33 - [灿如繁星定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:48 - [拾光纪·“让互联网更好造福人民、造福世界”，总书记这样嘱托](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:34 - [山东菏泽：槐花飘香春滋味 特色槐花宴受欢迎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:31 - [涉“幽灵外卖”，抖音食品安全总监廖天博被罚超64万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:26 - [2026全球豫商大会启幕 AI与机器人企业青睐河南机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:42 - [苏林、查波访华为何要去广西、湖南？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:38 - [日本东北部沿海地区发生7.4级地震 已发布海啸警报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:49 - [（文化中国行）千年山歌的“数字迁徙”：从广西唱响东盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:28 - [度小满冠名《浪姐7》陷舆论反噬：透视助贷平台下沉的困局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:24 - [2026江苏省侨界中餐厨艺大赛在无锡启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:34 - [中信建投：创业板新高后，还有多少空间？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:43 - [恋与深空底线不该被娱乐化](http://www.share.kurohicncr.top/Article/details/530775.shtml)
-- 2026-06-29 11:51 - [白鹿呵呵挽手比心](http://www.blog.kurohicncr.top/Article/details/0421076678.shtml)
-- 2026-06-29 11:46 - [美人鱼](https://www.share.minike.top/Article/details/48216560.shtml)
-- 2026-06-29 11:33 - [美伊同意停止互袭 30日在多哈谈判](https://www.share.minike.top/Article/details/32912935349.shtml)
-- 2026-06-29 11:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/121340959167.shtml)
-- 2026-06-29 11:40 - [吴海燕兰西雅漫步复兴岛](http://www.blog.kurohicncr.top/Article/details/229930683.shtml)
-- 2026-06-29 11:42 - [欧洲热死人不是开玩笑](http://www.share.kurohicncr.top/Article/details/39912.shtml)
-- 2026-06-29 11:39 - [杨紫李现16年情谊藏于行动](http://www.blog.minike.top/Article/details/7893388.shtml)
-- 2026-06-29 11:44 - [曝韩国球员目睹出局时正吃饭](http://www.blog.kurohicncr.top/Article/details/99254780256.shtml)
-- 2026-06-29 11:22 - [法拉利被4个孩子当滑梯玩](http://www.share.kurohicncr.top/Article/details/9156763883.shtml)
-- 2026-06-29 11:35 - [手游300亿数据或被军事化运用](https://www.share.minike.top/Article/details/254563.shtml)
-- 2026-06-29 11:39 - [王祖蓝现场观看美加墨世界杯](http://www.blog.kurohicncr.top/Article/details/30483.shtml)
-- 2026-06-29 11:51 - [恋与深空底线不该被娱乐化](http://www.share.kurohicncr.top/Article/details/298468369210.shtml)
-- 2026-06-29 11:24 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/54234.shtml)
-- 2026-06-29 11:36 - [这位猫咪，请你自重！](http://www.share.minike.top/Article/details/55387566.shtml)
+- 2026-06-29 11:48 - [西南大学120周年校庆高质量发展大会举行](http://www.share.minike.top/Article/details/932482.shtml)
+- 2026-06-29 11:46 - [日本突发7.5级强震 震中附近有多个核电站](http://www.blog.kurohicncr.top/Article/details/77727886.shtml)
+- 2026-06-29 11:48 - [青海果洛：凝聚青年力量 共育民族团结之花](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [村里有了“小而美” 游客爱上“慢时光”](http://www.blog.minike.top/Article/details/194083357.shtml)
+- 2026-06-29 11:30 - [广交会观察：中东局势扰动下参展商采购商同觅“新出路”](http://www.blog.minike.top/Article/details/8641499.shtml)
+- 2026-06-29 11:43 - [雄安新区首个戏曲特色工人文化宫正式投用](http://www.share.minike.top/Article/details/773127.shtml)
+- 2026-06-29 11:36 - [伊朗最高领袖：伊朗海军已准备好给敌人“新的惨败”](http://www.blog.kurohicncr.top/Article/details/8428638.shtml)
+- 2026-06-29 11:35 - [习近平文化思想引领书香社会建设](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [新疆和田县群众治沙：沙地成自家“聚宝盆”](http://www.share.kurohicncr.top/Article/details/8760777906.shtml)
+- 2026-06-29 11:32 - [总书记引领强国之路｜共建美好网络家园](http://www.blog.kurohicncr.top/Article/details/13638084370.shtml)
+- 2026-06-29 11:24 - [从多轮冻结到易主在即 兰州银行第三大股东清仓式法拍！3.01亿股5月13日开槌 起拍总价近7亿元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [“霸王”助阵“苏超” 文旅体商融合新答卷](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [价格大涨650%，国产光纤全球爆单，年内诞生3只翻倍股](http://www.share.minike.top/Article/details/04642326.shtml)
+- 2026-06-29 11:48 - [“小阳春”热度延续，深圳二手房市场正转向“量稳价稳”新阶段](http://www.share.minike.top/Article/details/520649.shtml)
+- 2026-06-29 11:43 - [谷雨：祛湿排浊，双臂“甩起来”](https://github.com/lisacumin64-arch)

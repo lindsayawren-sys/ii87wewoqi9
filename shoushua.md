@@ -1,42 +1,46 @@
-# 山西省长治市沁源县应急管理局党委委员、应急管理综合行政执法队副队长岳晓东被查
+# 杭州通报一诊所“用一个针头给多人采血”：涉事诊所已停业整顿
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-中新网6月7日电 据长治市纪委监委网站消息，山西省长治市沁源县应急管理局党委委员、应急管理综合行政执法队副队长(负责日常工作)岳晓东涉嫌严重违纪违法，目前正接受沁县纪委监委纪律审查和监察调查。
+中新网4月17日电 据“滨江卫健”微信公众号消息，4月17日，杭州市滨江区卫生健康局就该区一诊所“用一个针头给多人采血”发布情况通报称，涉事诊所已停业整顿。 通报全文如下：
 
 ## 正文
 
-中新网6月7日电 据长治市纪委监委网站消息，山西省长治市沁源县应急管理局党委委员、应急管理综合行政执法队副队长(负责日常工作)岳晓东涉嫌严重违纪违法，目前正接受沁县纪委监委纪律审查和监察调查。
+中新网4月17日电 据“滨江卫健”微信公众号消息，4月17日，杭州市滨江区卫生健康局就该区一诊所“用一个针头给多人采血”发布情况通报称，涉事诊所已停业整顿。
+
+通报全文如下：
 
 ## 相关推荐
 
-- 2026-06-29 11:51 - [某高校学生被辅导员等人扭送至公安](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:30 - [韩媒一片哀嚎：没有奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:30 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:46 - [普京：俄罗斯将坚定捍卫自身根本利益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:25 - [上海足协发布世界杯文明观赛倡议书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:29 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:40 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:50 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:45 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:45 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:52 - [“患者被引荐至私立医院” 涉事医生被停止诊疗并终止聘用合同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:44 - [东方证券与上海证券筹划合并重组，加快推进一流现代投资银行建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:49 - [涉案金额2.6亿元，我国摧毁山西特大假酒网络](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:51 - [浦发银行与中国银联签署全面战略合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:48 - [让机器人跑马拉松有什么用？专家：先带动技术发展 再逐步落地应用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:27 - [实拍江西上饶“三月三”篝火联欢现场 民众踏歌起舞庆佳节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:37 - [万众期待的“霸王”来了！“宿迁子弟何在？”何润东身披甲胄亮相“苏超”现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:36 - [BOSS直聘-W于4月17日耗资约249.65万美元回购约34.97万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:50 - [去年翻倍赚钱的基金，今年怎么样了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:31 - [巴西、西班牙和墨西哥联合呼吁采取措施缓解古巴局势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:36 - [产品业绩回撤38.53%，昔日百亿私募同犇投资最新回应：从来不是只买消费，AI产业链去年开始就有不少仓位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:41 - [金价下跌 霍尔木兹海峡再度中断引发通胀担忧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:27 - [异世界一点都不好玩！](https://www.share.kurohicncr.top/Article/details/1172748.shtml)
-- 2026-06-29 11:41 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/4907985.shtml)
-- 2026-06-29 11:33 - [普京称考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/7631789.shtml)
-- 2026-06-29 11:33 - [月薪 1 万留在一线城市，和月薪 6000 回家乡工作，哪个更划算？](https://www.share.kurohicncr.top/Article/details/650333141.shtml)
-- 2026-06-29 11:52 - [下飞机后，我做了个很蠢的决定......](https://www.share.kurohicncr.top/Article/details/93364003.shtml)
-- 2026-06-29 11:41 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/9351815.shtml)
-- 2026-06-29 11:25 - [各路“神仙”扎堆洛阳乘地铁](https://www.blog.kurohicncr.top/Article/details/0872031367.shtml)
-- 2026-06-29 11:50 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.minike.top/Article/details/90965.shtml)
-- 2026-06-29 11:43 - [四川宜宾地震](http://www.blog.minike.top/Article/details/116477280611.shtml)
-- 2026-06-29 11:50 - [晋城暴雨车辆被淹冰箱在水中漂](https://www.share.kurohicncr.top/Article/details/2232840883.shtml)
-- 2026-06-29 11:40 - [Gucci全球首席营销官发肖战](https://www.blog.kurohicncr.top/Article/details/0930297436.shtml)
-- 2026-06-29 11:35 - [韩国队启程回国众将回避镜头](http://www.blog.minike.top/Article/details/24932596625.shtml)
-- 2026-06-29 11:32 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/36555214.shtml)
-- 2026-06-29 11:33 - [时光音乐会](https://www.blog.minike.top/Article/details/897466872.shtml)
-- 2026-06-29 11:50 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/3853397.shtml)
+- 2026-06-29 11:41 - [中国高尔夫球巡回赛·绍兴站举行 多国选手挥杆竞逐](http://www.share.kurohicncr.top/Article/details/22049368.shtml)
+- 2026-06-29 11:37 - [伊朗外长称霍尔木兹海峡开放 油气价格大跌](http://www.blog.kurohicncr.top/Article/details/226796566.shtml)
+- 2026-06-29 11:32 - [“中国菠萝之乡”徐闻举办百年菠萝文化旅游嘉年华](http://www.blog.kurohicncr.top/Article/details/672139.shtml)
+- 2026-06-29 11:53 - [百面崇阳铜鼓奏响“楚超”咸宁主场](http://www.share.kurohicncr.top/Article/details/601675.shtml)
+- 2026-06-29 11:26 - [天喻信息（300205）被预处罚，股民索赔可期](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:24 - [经济冲击逼近，以色列央行行长寄望和平](http://www.share.minike.top/Article/details/4851893495.shtml)
+- 2026-06-29 11:35 - [中英文双语绘本《埃德加·斯诺的红星之旅》首发式在西安举行](http://www.share.minike.top/Article/details/15185185.shtml)
+- 2026-06-29 11:47 - [专家：金价翻倍没有悬念](http://www.share.minike.top/Article/details/30375745862.shtml)
+- 2026-06-29 11:51 - [从反对到支持，台湾姑娘含泪读妈妈短信：在大陆追梦，为和平统一发光](http://www.blog.kurohicncr.top/Article/details/521021179.shtml)
+- 2026-06-29 11:25 - [斯诺克世锦赛：丁俊晖暂时领先吉尔伯特 肖国栋淘汰周跃龙晋级](http://www.blog.kurohicncr.top/Article/details/820359731284.shtml)
+- 2026-06-29 11:33 - [习言道｜让互联网更好造福国家和人民](http://www.share.minike.top/Article/details/93760847698.shtml)
+- 2026-06-29 11:33 - [消费升级+投资优化 一季度内需引擎动力增强](http://www.share.kurohicncr.top/Article/details/971240611149.shtml)
+- 2026-06-29 11:39 - [于和伟、张若昀纷纷声明！爱奇艺回应：入驻不等于授权](http://www.share.kurohicncr.top/Article/details/21521.shtml)
+- 2026-06-29 11:38 - [Astro Offshore新增MPSV，扩展水下作业能力](http://www.share.kurohicncr.top/Article/details/46265037191.shtml)
+- 2026-06-29 11:33 - [美国债市：国债走高 交易员上调对美联储年内降息押注](https://github.com/lisacumin64-arch)

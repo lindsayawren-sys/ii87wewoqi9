@@ -1,56 +1,57 @@
-# 拓展科普夜经济 上海科技馆推出“科奇星光嘉年华”
+# 废旧CT片回收能炼银？紧急提醒：污染环境还涉嫌违法
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-中新网上海6月6日电 (记者 郑莹莹)上海科技馆“科奇星光嘉年华”6日正式拉开帷幕。当晚，市民游客在璀璨光影与科技互动中，体验一场别开生面的科普夜间盛宴。 本次嘉年华以科技馆吉祥物“科奇”为核心IP，现场设有“星光”主题灯光秀、文创摊位、特色餐车、机器人足球互动体验区等内容。 历经约3年的升级改造后，上海科技馆于今年对外开放，持续吸引各地游客。该馆有十大常设展区，覆盖人工智能、
+您家里是否还留存着过往就医时的CT片？如果有人高价回收你会动心吗？现如今，废弃医疗胶片竟然成了“抢手货”，有人开价1.5元一张回收；在二手交易平台上，这些原本记录患者骨骼、器官影像的CT片、X光片，更是被人批量收购。记者调查发现，这些回收行为的一个最终目的是提炼白银。回收商们打着“绿色回收”“环保心意”的温情旗号，实则干着破坏环境的勾当，这背后究竟隐藏着怎样的利益链条？我们又该
 
 ## 正文
 
-中新网上海6月6日电 (记者 郑莹莹)上海科技馆“科奇星光嘉年华”6日正式拉开帷幕。
+您家里是否还留存着过往就医时的CT片？
 
-当晚，市民游客在璀璨光影与科技互动中，体验一场别开生面的科普夜间盛宴。
+如果有人高价回收你会动心吗？
 
-本次嘉年华以科技馆吉祥物“科奇”为核心IP，现场设有“星光”主题灯光秀、文创摊位、特色餐车、机器人足球互动体验区等内容。
+现如今，废弃医疗胶片竟然成了“抢手货”，有人开价1.5元一张回收；在二手交易平台上，这些原本记录患者骨骼、器官影像的CT片、X光片，更是被人批量收购。
 
-历经约3年的升级改造后，上海科技馆于今年对外开放，持续吸引各地游客。
+记者调查发现，这些回收行为的一个最终目的是提炼白银。
 
-该馆有十大常设展区，覆盖人工智能、量子科技、航空航天等前沿热门领域，呈现科普展项405组，展品互动率达80%，引领观众探知前沿热点、畅想科技未来。
+回收商们打着“绿色回收”“环保心意”的温情旗号，实则干着破坏环境的勾当，这背后究竟隐藏着怎样的利益链条？
 
-而此番通过激活下沉式广场及B1层公共空间，上海科技馆在日间科普功能之外，积极拓展夜经济，探索“科普+泛娱乐”新赛道，进而提升对城市文旅消费的带动作用。
+我们又该如何处理手中的废弃医用胶片呢？
 
-据悉，上海科技馆“科奇星光嘉年华”将持续开放至暑假。
+记者在北京走访发现，在小区门口、医院周边、商超附近，悄然出现了一些医用胶片回收摊贩，开价1到2元回收一张CT片。
 
-(完)
+在一家超市门前，有一块写着“回收CT胶片”的牌子，记者稍作停留，摊主就推销起她的“回收业务”。
 
 ## 相关推荐
 
-- 2026-06-29 11:48 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:37 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:44 - [李在明要调查韩国队出局原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:42 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:26 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:28 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:34 - [陈垣宇晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:29 - [黄灿灿恭喜自己拿到全季通告费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:35 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:38 - [初心如磐 红色足迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:42 - [经济观察：新时期中德创新合作的机遇与前景在哪里？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:31 - [亚太卫星午前涨近9% 公司为中国卫通控股子公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:50 - [中共早期历史红色场馆联盟主题交流暨中共山东早期历史沉浸式思政课活动在济南举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:48 - [树立和践行正确政绩观丨知行合一 务求实效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:31 - [百余人形机器人在京跑半马 “百家争鸣”彰显行业级跨越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:52 - [中越企业昆明面对面交流 碰撞合作机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:37 - [中国经济圆桌会丨群核科技：让更多企业和消费者体验高效便捷的空间智能服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:45 - [严惩“网络黑嘴”造谣诋毁 最高法例举涉胖某公司案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:28 - [演员何润东披项羽铠甲助阵“苏超”宿迁队新赛季首秀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:33 - [中国将对53个非洲建交国全面零关税 湖南对非贸易迎新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:50 - [特朗普称美国官员将赴巴基斯坦参与谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:24 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/0711148195.shtml)
-- 2026-06-29 11:44 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.kurohicncr.top/Article/details/1299772213.shtml)
-- 2026-06-29 11:33 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/69474990342.shtml)
-- 2026-06-29 11:39 - [普京称俄处于命运攸关之际](http://www.share.kurohicncr.top/Article/details/0619653602.shtml)
-- 2026-06-29 11:43 - [男子在家一丝不挂 邻居拍照发业主群](https://www.blog.minike.top/Article/details/80410.shtml)
-- 2026-06-29 11:27 - [和阿根廷球员家属一起看球](https://www.share.kurohicncr.top/Article/details/303445.shtml)
-- 2026-06-29 11:28 - [房屋抵押权与租赁权如何协调](http://www.share.kurohicncr.top/Article/details/3241806.shtml)
-- 2026-06-29 11:47 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/627034913059.shtml)
-- 2026-06-29 11:44 - [黄灿灿恭喜自己拿到全季通告费](https://www.share.minike.top/Article/details/890779.shtml)
-- 2026-06-29 11:35 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/97593073.shtml)
-- 2026-06-29 11:34 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/5980625.shtml)
-- 2026-06-29 11:26 - [1年内值得期待的12大游戏](http://www.share.kurohicncr.top/Article/details/415445.shtml)
-- 2026-06-29 11:27 - [杨紫《生命树》播放量破百亿](http://www.share.kurohicncr.top/Article/details/787978077.shtml)
-- 2026-06-29 11:28 - [中方回应对日本相关出口管制措施](https://www.share.kurohicncr.top/Article/details/156402523.shtml)
-- 2026-06-29 11:33 - [男子在家全裸被邻居拍照发业主群](http://www.blog.kurohicncr.top/Article/details/91377.shtml)
+- 2026-06-29 11:50 - [受伊朗战争影响，尿素化肥价格高企，阿根廷小麦生产面临威胁](http://www.blog.minike.top/Article/details/645832969775.shtml)
+- 2026-06-29 11:46 - [视频｜李在明首次访印 涉霍尔木兹海峡 呼吁韩印联手](http://www.blog.minike.top/Article/details/69833326436.shtml)
+- 2026-06-29 11:50 - [中国驻日使馆连遭威胁 外交部四字警告日方](http://www.share.minike.top/Article/details/153929492.shtml)
+- 2026-06-29 11:50 - [广西岑溪“村味擂台”亮相“三月三” 民俗与文明集市“双向奔赴”](http://www.blog.kurohicncr.top/Article/details/288986451684.shtml)
+- 2026-06-29 11:49 - [广西财政强化资金保障 筑牢基层应急管理“第一道防线”](http://www.blog.kurohicncr.top/Article/details/6052903211.shtml)
+- 2026-06-29 11:31 - [广西百色5岁走失男童已不幸身亡，当地通报](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:30 - [中国·荆州2026全国历史文化名城羽毛球邀请赛开幕](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [中国创新正在全方位加速突破](http://www.share.kurohicncr.top/Article/details/03680.shtml)
+- 2026-06-29 11:24 - [酒价内参4月20日价格发布：茅台系领涨 总价升至九日高位](http://www.blog.minike.top/Article/details/280908399.shtml)
+- 2026-06-29 11:51 - [蓝莓价格走低 国产品种研发多点推进](http://www.share.minike.top/Article/details/792192.shtml)
+- 2026-06-29 11:52 - [宁夏兴庆大漠黄河徒步大会启幕 千余人乐享春日文旅健身行](http://www.share.kurohicncr.top/Article/details/21448.shtml)
+- 2026-06-29 11:38 - [“战火重燃”：船只遭扣押、遇袭，美伊停火协议濒临破裂](http://www.blog.minike.top/Article/details/81084153235.shtml)
+- 2026-06-29 11:49 - [山东菏泽：一株三并蒂的“墨润绝伦”牡丹盛放](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [曾黎、李志希领衔主演 话剧《寻味》登陆广州大剧院](http://www.share.kurohicncr.top/Article/details/6271851.shtml)
+- 2026-06-29 11:35 - [“10天订单涨2万+” 张雪机车夺冠后 广交会现场火爆吸睛](http://www.share.minike.top/Article/details/57082889638.shtml)

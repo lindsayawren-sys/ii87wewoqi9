@@ -1,48 +1,57 @@
-# 怡亚通：公司暂无发展太空算力规划
+# “战火重燃”：船只遭扣押、遇袭，美伊停火协议濒临破裂
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-证券日报网讯 6月5日，怡亚通在互动平台回答投资者提问时表示，公司暂无发展太空算力规划。（文章来源：证券日报）
+核心要点 美以对伊朗开战已进入第 50 天，海湾地区的冲突导致航运中断持续，令本周即将到期的脆弱停火协议蒙上阴影，紧张局势再度升级。 经历动荡的周末后，美国总统特朗普表示，美伊谈判代表将于周一在巴基斯坦伊斯兰堡恢复会谈。但据报道，伊朗外交部发言人伊斯梅尔・巴盖伊称，“目前暂无与美方举行第二轮谈判的计划”。为期两周的停火协议将于周二到期。 上周五，伊朗宣布霍尔木兹海峡对商业航运全
 
 ## 正文
 
-证券日报网讯 6月5日，怡亚通在互动平台回答投资者提问时表示，公司暂无发展太空算力规划。
+核心要点 美以对伊朗开战已进入第 50 天，海湾地区的冲突导致航运中断持续，令本周即将到期的脆弱停火协议蒙上阴影，紧张局势再度升级。
 
-（文章来源：证券日报）
+经历动荡的周末后，美国总统特朗普表示，美伊谈判代表将于周一在巴基斯坦伊斯兰堡恢复会谈。
+
+但据报道，伊朗外交部发言人伊斯梅尔・巴盖伊称，“目前暂无与美方举行第二轮谈判的计划”。
+
+为期两周的停火协议将于周二到期。
+
+上周五，伊朗宣布霍尔木兹海峡对商业航运全面开放，原油价格应声暴跌超 10%。
+
+但到周六，由于特朗普拒绝解除美国对伊朗港口的海上封锁，德黑兰重新控制这一战略要道，海峡全面开放的希望迅速破灭。
+
+周六，海峡航运曾短暂恢复，但随即再度陷入停滞 —— 多艘船只在航行途中遭袭，被迫折返。
+
+周日，美国海军在阿曼湾开火并扣押了一艘伊朗集装箱货轮。
 
 ## 相关推荐
 
-- 2026-06-29 11:24 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:44 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:23 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:40 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:22 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:25 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:31 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:39 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:35 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:49 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:29 - [成都震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:24 - [2岁幼童高铁突发惊厥呼吸骤停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:50 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:34 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:30 - [百胜中国于4月17日斥资773.82万港元回购2.07万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:29 - [伊朗称将对美军扣押伊朗商船作出回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:50 - [特朗普：霍尔木兹海峡已完全开放 但对伊朗海上封锁仍将持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:45 - [2026中小学“汉语桥”多伦多赛区选拔赛圆满收官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:51 - [现场视频：美军人员从直升机顺绳而下，控制伊朗货船](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:34 - [贵州纳雍：玛瑙红樱桃迎采摘热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:43 - [从“石旮旯”到“世界最佳” 重庆荆竹村涌文旅热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:24 - [ATFX五度斩获ADVFN最佳拉美地区经纪商 区域领导力再获国际权威认可](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:52 - [三亚与7家境外经贸合作区集中签约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:31 - [三亚亚沙会临近 主媒体中心试运行赛事氛围渐浓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:26 - [法国通过“文物归还法案”，260万件中国文物多少能回归？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:30 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.kurohicncr.top/Article/details/7306302.shtml)
-- 2026-06-29 11:26 - [鬼畜区全明星拼接遗憾](http://www.blog.minike.top/Article/details/4018970873.shtml)
-- 2026-06-29 11:43 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/319691408828.shtml)
-- 2026-06-29 11:34 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://www.share.kurohicncr.top/Article/details/69642.shtml)
-- 2026-06-29 11:30 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.minike.top/Article/details/267941193.shtml)
-- 2026-06-29 11:33 - [张一山说杨紫早该拿奖了](http://www.share.minike.top/Article/details/73056.shtml)
-- 2026-06-29 11:39 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/81157742484.shtml)
-- 2026-06-29 11:51 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/33041736747.shtml)
-- 2026-06-29 11:37 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/271516162717.shtml)
-- 2026-06-29 11:42 - [宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/4790504917.shtml)
-- 2026-06-29 11:24 - [内马尔世界杯期间豪购百万美元腕表](https://www.share.kurohicncr.top/Article/details/86056037601.shtml)
-- 2026-06-29 11:45 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.blog.minike.top/Article/details/58683890901.shtml)
-- 2026-06-29 11:42 - [洪明甫发布会没有提问环节](https://www.blog.kurohicncr.top/Article/details/52909682995.shtml)
-- 2026-06-29 11:37 - [A股限售股解禁一览](https://www.blog.minike.top/Article/details/79131113959.shtml)
-- 2026-06-29 11:24 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/888971412.shtml)
+- 2026-06-29 11:31 - [东西问丨阿齐赞·巴哈鲁丁：“文明冲突论”必须让位于“和平共处论”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [侧记：一座园林连中法，解码园博会背后的“侨”味道](http://www.blog.minike.top/Article/details/25332764546.shtml)
+- 2026-06-29 11:30 - [海外华媒侨领走进世界自然遗产地 感受喀斯特地貌奇观](http://www.blog.kurohicncr.top/Article/details/45701.shtml)
+- 2026-06-29 11:42 - [四大证券报头版头条内容精华摘要_2026年4月20日_财经新闻](http://www.share.kurohicncr.top/Article/details/105818.shtml)
+- 2026-06-29 11:45 - [中国经济开局良好 外媒：高质量发展助力中国经济更具可持续性](http://www.blog.minike.top/Article/details/3957794737.shtml)
+- 2026-06-29 11:51 - [2026“发现宝藏山东”主题旅游年启幕 让宝藏可寻、可感、可品](http://www.share.kurohicncr.top/Article/details/3468176690.shtml)
+- 2026-06-29 11:29 - [受伊朗局势缓和预期推动，美国股票基金持续获得资金流入](http://www.blog.minike.top/Article/details/700908.shtml)
+- 2026-06-29 11:30 - [中国美术馆与千问AI眼镜开启合作探索，观展迈向“边看边懂”](http://www.share.kurohicncr.top/Article/details/620265081.shtml)
+- 2026-06-29 11:24 - [上巳传笺 望江听涛：成都望江楼公园复原明代制笺古礼](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:28 - [拼多多因“幽灵外卖”被罚，法定代表人赵佳臻被处693.73万元罚款](http://www.blog.kurohicncr.top/Article/details/4062975764.shtml)
+- 2026-06-29 11:49 - [中国试飞院开放日 各型飞机引民众打卡](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [预测市场平台Polymarket计划募资4亿美元 估值达约150亿美元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:26 - [总书记的关切·落地的回响｜中国式现代化要靠科技现代化作支撑](http://www.share.kurohicncr.top/Article/details/69031.shtml)
+- 2026-06-29 11:41 - [林毅夫：中国式现代化的成功实践为全球发展中国家提供重要借鉴](http://www.share.kurohicncr.top/Article/details/553368.shtml)
+- 2026-06-29 11:36 - [湖北城市足球联赛点燃民众热情 赛事流量变消费增量](http://www.share.minike.top/Article/details/65714.shtml)

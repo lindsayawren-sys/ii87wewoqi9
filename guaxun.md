@@ -1,57 +1,60 @@
-# 跨境支付通参与机构不断增多 香港金管局：最新名单会适时更新
+# 多国客商齐聚河南长垣 共觅起重装备商机
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-来源：上海证券报·中国证券网上证报中国证券网讯（记者 周亮）在跨境支付通推出将满一周年之际，跨境支付通香港参与机构即将增员的消息引发市场关注。据报道，渣打银行（香港）方面透露，即将推出跨境支付通服务，目前正进行最后测试。6月5日，香港金管局回复上证报记者称，自跨境支付通推出以来，跨境支付通参与机构不断增加，而有关香港参与机构的最新名单，香港金管局也会适时更新。跨境支付通是指内地
+中新网新乡4月19日电 (王佳宁)“中国的起重装备非常出色。”为期三天的第十一届中国·长垣国际起重装备博览交易会18日在河南长垣落幕，来自俄罗斯的客商尼建国参展后如是说。 长垣国际起重装备博览交易会被业内人士称为“全国起重行业风向标展会”。本届博览会由中国重型机械工业协会指导，长垣市起重装备制造行业协会主办。来自海内外的330余家企业在展会上集中展示行业新产品、新技术、新服务，
 
 ## 正文
 
-来源：上海证券报·中国证券网上证报中国证券网讯（记者 周亮）在跨境支付通推出将满一周年之际，跨境支付通香港参与机构即将增员的消息引发市场关注。
+中新网新乡4月19日电 (王佳宁)“中国的起重装备非常出色。
 
-据报道，渣打银行（香港）方面透露，即将推出跨境支付通服务，目前正进行最后测试。
+”为期三天的第十一届中国·长垣国际起重装备博览交易会18日在河南长垣落幕，来自俄罗斯的客商尼建国参展后如是说。
 
-6月5日，香港金管局回复上证报记者称，自跨境支付通推出以来，跨境支付通参与机构不断增加，而有关香港参与机构的最新名单，香港金管局也会适时更新。
+长垣国际起重装备博览交易会被业内人士称为“全国起重行业风向标展会”。
 
-跨境支付通是指内地网上支付跨行清算系统(IBPS)与香港快速支付系统(FPS)的连接。
+本届博览会由中国重型机械工业协会指导，长垣市起重装备制造行业协会主办。
 
-中国人民银行与香港金融管理局共同推动内地与香港的快速支付系统实现互联互通，为两地居民及机构提供即时跨境支付服务。
+来自海内外的330余家企业在展会上集中展示行业新产品、新技术、新服务，俄罗斯、印度、瑞士、西班牙等多国客商来此寻觅商机。
 
-2025年6月22日，跨境支付通启动运行。
+“在这里，能感受到中国制造业发展如此之快。
 
-首批参与跨境支付通机构共12家（两边各6家），内地机构包括工行、农行、中行、建行、交行、招行；香港机构包括中银香港、东亚银行、建银亚洲、恒生银行、汇丰银行、工银亚洲。
+”来自印度的客商苏里亚第二次参加该博览会。
 
-后续逐步扩大参与范围。
+他受访称，这里能看到最新的智能技术，还有一些专门服务钢铁行业、水泥行业的专用设备。
 
 ## 相关推荐
 
-- 2026-06-29 11:36 - [国乒男单资格赛全员出局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:37 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:30 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:34 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:30 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:47 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:32 - [派出所集体KTV招陪侍事发2年未通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:45 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:45 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:43 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:30 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:26 - [东西问丨阿齐赞·巴哈鲁丁：“文明冲突论”必须让位于“和平共处论”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:26 - [侧记：一座园林连中法，解码园博会背后的“侨”味道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:26 - [海外华媒侨领走进世界自然遗产地 感受喀斯特地貌奇观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:44 - [四大证券报头版头条内容精华摘要_2026年4月20日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:36 - [中国经济开局良好 外媒：高质量发展助力中国经济更具可持续性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:30 - [2026“发现宝藏山东”主题旅游年启幕 让宝藏可寻、可感、可品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:45 - [受伊朗局势缓和预期推动，美国股票基金持续获得资金流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:42 - [中国美术馆与千问AI眼镜开启合作探索，观展迈向“边看边懂”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:34 - [上巳传笺 望江听涛：成都望江楼公园复原明代制笺古礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:33 - [拼多多因“幽灵外卖”被罚，法定代表人赵佳臻被处693.73万元罚款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:24 - [中国试飞院开放日 各型飞机引民众打卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:25 - [预测市场平台Polymarket计划募资4亿美元 估值达约150亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:37 - [总书记的关切·落地的回响｜中国式现代化要靠科技现代化作支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:46 - [林毅夫：中国式现代化的成功实践为全球发展中国家提供重要借鉴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:26 - [灿如繁星定档](http://www.share.kurohicncr.top/Article/details/122456022380.shtml)
-- 2026-06-29 11:29 - [赵今麦客串电影版开端](http://www.blog.kurohicncr.top/Article/details/635356.shtml)
-- 2026-06-29 11:33 - [哈尔滨“全城追菠萝蜜”](http://www.blog.minike.top/Article/details/26032.shtml)
-- 2026-06-29 11:39 - [哈尔滨“全城追菠萝蜜”](https://www.blog.kurohicncr.top/Article/details/666853298178.shtml)
-- 2026-06-29 11:40 - [欧洲人驾车200公里抢购中国空调](http://www.share.minike.top/Article/details/80392754.shtml)
-- 2026-06-29 11:39 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/3594841323.shtml)
-- 2026-06-29 11:43 - [委内瑞拉地震死亡人数升至1450人](https://www.share.kurohicncr.top/Article/details/60766985.shtml)
-- 2026-06-29 11:24 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/694227969362.shtml)
-- 2026-06-29 11:23 - [重生赛伊德04](http://www.blog.kurohicncr.top/Article/details/85068.shtml)
-- 2026-06-29 11:38 - [吴昕要助理买的药6年前已停产](http://www.share.kurohicncr.top/Article/details/073814.shtml)
-- 2026-06-29 11:42 - [美媒：空警-3000服役即成全球最强](https://www.share.minike.top/Article/details/90499128267.shtml)
-- 2026-06-29 11:30 - [高考结束了，你会让孩子在家玩手机吗？](http://www.share.minike.top/Article/details/225572985.shtml)
-- 2026-06-29 11:25 - [实习期把公司领导开除了](https://www.blog.kurohicncr.top/Article/details/98321140.shtml)
-- 2026-06-29 11:48 - [成都震感](https://www.blog.kurohicncr.top/Article/details/74059171980.shtml)
-- 2026-06-29 11:22 - [广州某高校辟谣禁止小米汽车入校](http://www.blog.kurohicncr.top/Article/details/10810.shtml)
+- 2026-06-29 11:51 - [强化长效约束，券商薪酬管理制度迎来重大修订](http://www.share.minike.top/Article/details/83015.shtml)
+- 2026-06-29 11:45 - [AI算力重塑创业逻辑 郑州航空港区探索“轻创业”新路径](http://www.blog.minike.top/Article/details/63073.shtml)
+- 2026-06-29 11:52 - [国元保险原董事长被查，收超400万罚单，成监管“重点户”](http://www.blog.minike.top/Article/details/311295230332.shtml)
+- 2026-06-29 11:30 - [美军在阿曼湾拦截并控制一艘伊朗货船](http://www.blog.kurohicncr.top/Article/details/460644084031.shtml)
+- 2026-06-29 11:34 - [优步以3.18亿美元交易增持外卖平台Delivery Hero股份](http://www.blog.minike.top/Article/details/1179131.shtml)
+- 2026-06-29 11:25 - [福特召回至多139万辆F-150皮卡](http://www.blog.kurohicncr.top/Article/details/5433246.shtml)
+- 2026-06-29 11:34 - [文化中国行·联播一瞬丨谷雨：春去无憾 夏来有期](http://www.share.minike.top/Article/details/707516097572.shtml)
+- 2026-06-29 11:29 - [伊朗民航组织宣布伊朗部分空域重新开放](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [李强主持召开国务院常务会议 听取自由贸易试验区建设情况汇报 审议通过《中华人民共和国行政复议法实施条例（修订草案）》](http://www.share.kurohicncr.top/Article/details/9512621901.shtml)
+- 2026-06-29 11:42 - [超3万名日本民众集会反对高市政权危险动向](http://www.share.minike.top/Article/details/600132143072.shtml)
+- 2026-06-29 11:28 - [第44届香港电影金像奖红毯仪式举行](http://www.blog.kurohicncr.top/Article/details/7506539272.shtml)
+- 2026-06-29 11:29 - [巴西Simpar以1.215亿雷亚尔出售Ciclus Amazônia股份](http://www.blog.kurohicncr.top/Article/details/27787.shtml)
+- 2026-06-29 11:51 - [特朗普：若无法达成协议 或将不延长美伊临时停火](http://www.blog.minike.top/Article/details/722615.shtml)
+- 2026-06-29 11:50 - [霍尔木兹海峡开放后油价大跌，欧洲斯托克600指数涨逾1%](http://www.blog.kurohicncr.top/Article/details/110127772.shtml)
+- 2026-06-29 11:25 - [国常会部署推动自贸试验区高质量发展](http://www.share.kurohicncr.top/Article/details/49367969.shtml)

@@ -1,60 +1,59 @@
-# Quantinuum上市次日，量子计算板块集体重挫
+# ZFX山海证券:金矿合作拓展资源前景仍待验证
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-量子计算板块周五遭遇大幅抛售，多只个股跌幅达两位数。此次下跌发生在行业龙头Quantinuum于纳斯达克上市次日，市场资金从原有量子计算标的向新股轮动，叠加整体科技股风险偏好降温，共同引发板块深度回调。 截至周五早盘，D-Wave Quantum股价暴跌约11%，Rigetti Computing下跌逾10%，Quantum Computing Inc．跌幅接近9%。此前一日，
+4月17日，围绕内华达州New Pass金矿项目的最新合作进展，引发市场对资源类资产潜力的再度关注。ZFX山海证券认为，此次由企业通过合资方式推进项目开发，反映出在当前金价维持高位背景下，矿业公司更倾向通过合作分担风险并加速资源转化。尤其是在全球避险需求阶段性增强的环境中，黄金资产仍具备较强吸引力，这也促使更多企业重新评估早期项目的开发价值。 从合作结构来看，双方建立对等持股关
 
 ## 正文
 
-量子计算板块周五遭遇大幅抛售，多只个股跌幅达两位数。
+4月17日，围绕内华达州New Pass金矿项目的最新合作进展，引发市场对资源类资产潜力的再度关注。
 
-此次下跌发生在行业龙头Quantinuum于纳斯达克上市次日，市场资金从原有量子计算标的向新股轮动，叠加整体科技股风险偏好降温，共同引发板块深度回调。
+ZFX山海证券认为，此次由企业通过合资方式推进项目开发，反映出在当前金价维持高位背景下，矿业公司更倾向通过合作分担风险并加速资源转化。
 
-截至周五早盘，D-Wave Quantum股价暴跌约11%，Rigetti Computing下跌逾10%，Quantum Computing Inc．跌幅接近9%。
+尤其是在全球避险需求阶段性增强的环境中，黄金资产仍具备较强吸引力，这也促使更多企业重新评估早期项目的开发价值。
 
-此前一日，这些股票已普遍录得约8%至10%的跌幅。
+从合作结构来看，双方建立对等持股关系，并按比例承担勘探支出，这种模式有助于在控制资本开支的同时，提高项目推进效率。
 
-Quantinuum上市首日以每股68美元开盘，较60美元发行价上涨13.3%，但最终仅收涨0.63%，显示出市场对该板块的追高意愿有限。
+ZFX山海证券表示，类似安排在当前矿业投资周期中较为常见，尤其是在资源尚未完全验证的阶段，通过联合开发可以降低单一企业的财务压力，同时提升项目融资与执行能力。
 
-分析人士指出，此次量子计算板块集体下行的主要原因是资金轮动。
+不过，这类合作也意味着未来收益需要共享，对长期回报率构成一定约束。
 
-Quantinuum作为目前全球估值最高的量子计算公司，其IPO吸引了大量机构关注，部分基金和交易员通过减持现有量子计算头寸来腾挪资金、参与新股配置，从而对IonQ、Rigetti、D-Wave等纯量子计算标的形成抛售压力。
+在具体资源层面，已有数据表明该项目具备一定规模的黄金及白银资源基础，同时矿体在多个方向仍保持开放状态，这为后续扩展提供了空间。
 
-此外，Quantinuum为整个行业带来了新的估值基准，促使投资者重新评估原有标的的定价合理性。
+但市场更关注的并非静态储量，而是资源转化为经济储量的能力。
 
 ## 相关推荐
 
-- 2026-06-29 11:35 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:44 - [媒体：湖人把薪资空间玩明白了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:44 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:22 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:40 - [刘烨赶紧蹭个热度宣传四渡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:47 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:35 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:38 - [加拿大队史淘汰赛首胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:38 - [香港航天员黎家盈带招牌笑容工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:35 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:30 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:42 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:46 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:24 - [管弦藏诗意 民族交响乐持续拨动青年心弦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:32 - [吉韵东方入春城 中国华服周展示古韵风华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:34 - [中国经济圆桌会丨消博会是一个至关重要窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:38 - [三问首季经济：形如何，亮在哪，势怎样？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:29 - [泰国类鼻疽疫情今年已确诊732例死亡23例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:49 - [受伊朗战争影响，尿素化肥价格高企，阿根廷小麦生产面临威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:47 - [视频｜李在明首次访印 涉霍尔木兹海峡 呼吁韩印联手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:48 - [中国驻日使馆连遭威胁 外交部四字警告日方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:51 - [广西岑溪“村味擂台”亮相“三月三” 民俗与文明集市“双向奔赴”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:28 - [广西财政强化资金保障 筑牢基层应急管理“第一道防线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:31 - [广西百色5岁走失男童已不幸身亡，当地通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:36 - [中国·荆州2026全国历史文化名城羽毛球邀请赛开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:51 - [中国创新正在全方位加速突破](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:37 - [佛得角到底在哪个“角”](https://www.share.minike.top/Article/details/2324555.shtml)
-- 2026-06-29 11:32 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.minike.top/Article/details/508100769.shtml)
-- 2026-06-29 11:45 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/41435653.shtml)
-- 2026-06-29 11:48 - [2岁幼童高铁突发惊厥呼吸骤停](https://www.blog.kurohicncr.top/Article/details/868797026113.shtml)
-- 2026-06-29 11:37 - [高考结束了，你会让孩子在家玩手机吗？](https://www.share.minike.top/Article/details/507453.shtml)
-- 2026-06-29 11:41 - [谢霆锋演唱会变大型呲水现场](https://www.blog.minike.top/Article/details/7903706.shtml)
-- 2026-06-29 11:39 - [美加墨世界杯首支16强诞生](https://www.blog.minike.top/Article/details/476799055.shtml)
-- 2026-06-29 11:31 - [《给阿嬷的情书》里的情义与守望](https://www.share.minike.top/Article/details/165786.shtml)
-- 2026-06-29 11:42 - [papi酱回应毕业4年零收入](http://www.share.minike.top/Article/details/31648215.shtml)
-- 2026-06-29 11:34 - [王楚钦3-0周启豪 晋级32强](https://www.share.kurohicncr.top/Article/details/5366092445.shtml)
-- 2026-06-29 11:28 - [记者暗访贵州和云南多个养老机构](http://www.blog.kurohicncr.top/Article/details/443255338242.shtml)
-- 2026-06-29 11:50 - [南非门将单场77次成功传球](http://www.share.kurohicncr.top/Article/details/99829033609.shtml)
-- 2026-06-29 11:31 - [毒液2](https://www.share.minike.top/Article/details/5037389.shtml)
-- 2026-06-29 11:22 - [浦玮：阿根廷所在半区对手实力偏弱](https://www.share.minike.top/Article/details/30561187123.shtml)
-- 2026-06-29 11:34 - [韩国队启程回国众将回避镜头](https://www.blog.kurohicncr.top/Article/details/550356316.shtml)
+- 2026-06-29 11:45 - [哥伦比亚国家石油公司：Copoazú-1井测试结果预计6月底揭晓](http://www.blog.kurohicncr.top/Article/details/52139921200.shtml)
+- 2026-06-29 11:33 - [吉林大学春花绽放春意浓](http://www.blog.minike.top/Article/details/25432.shtml)
+- 2026-06-29 11:27 - [纽约汇市：美元第三周下跌 市场对伊朗和平前景乐观](http://www.blog.kurohicncr.top/Article/details/543290908.shtml)
+- 2026-06-29 11:43 - [“东北超”推动文旅体商融合 无形资产变红利](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [台湾台中大甲妈祖起驾 开启九天八夜绕境活动](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [快讯：现货黄金回落至4750美元/盎司下方，日内跌1.76%](http://www.blog.minike.top/Article/details/048197718267.shtml)
+- 2026-06-29 11:32 - [拾光纪·“让互联网更好造福人民、造福世界”，总书记这样嘱托](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [山东菏泽：槐花飘香春滋味 特色槐花宴受欢迎](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [涉“幽灵外卖”，抖音食品安全总监廖天博被罚超64万](http://www.share.minike.top/Article/details/2934196436.shtml)
+- 2026-06-29 11:53 - [2026全球豫商大会启幕 AI与机器人企业青睐河南机遇](http://www.blog.minike.top/Article/details/65577616003.shtml)
+- 2026-06-29 11:36 - [苏林、查波访华为何要去广西、湖南？](http://www.blog.minike.top/Article/details/33912818.shtml)
+- 2026-06-29 11:40 - [日本东北部沿海地区发生7.4级地震 已发布海啸警报](http://www.share.kurohicncr.top/Article/details/0229702.shtml)
+- 2026-06-29 11:39 - [（文化中国行）千年山歌的“数字迁徙”：从广西唱响东盟](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:53 - [度小满冠名《浪姐7》陷舆论反噬：透视助贷平台下沉的困局](http://www.share.minike.top/Article/details/604916232238.shtml)
+- 2026-06-29 11:41 - [2026江苏省侨界中餐厨艺大赛在无锡启动](http://www.blog.kurohicncr.top/Article/details/4410201989.shtml)

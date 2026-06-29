@@ -1,57 +1,54 @@
-# 2026年六五环境日国家主场活动在广州举办
+# 2026年中国香港（地区）商会京港地铁体育嘉年华活动举办
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-中新网广州6月5日电 (记者 阮煜琳)6月5日是世界环境日。当日，生态环境部、中央精神文明建设办公室、广东省人民政府、香港特别行政区政府、澳门特别行政区政府在广州市联合举办2026年六五环境日国家主场活动。广东省委书记黄坤明出席活动并致辞。生态环境部部长黄润秋出席活动并讲话。广东省委副书记、省长孟凡利出席活动。中央宣传部部务会成员、中央精神文明建设办公室专职副主任胡凯红出席活动
+发布时间：2026年04月18日 18:28 来源：中国新闻网 为深化促进京港交流，4月18日，由中国香港(地区)商会主办，京港地铁参与支持的“燃动十五五·京港同行·运动同心”体育嘉年华活动在北京举办。活动汇聚了相关政府部门及企业的代表队。 本次比赛设置了足球、乒乓球、羽毛球、篮球等项目。选手们以球会友，在竞技中展现拼搏精神，同时能够加强彼此交流，增进情谊。(记者 刘超) 责任
 
 ## 正文
 
-中新网广州6月5日电 (记者 阮煜琳)6月5日是世界环境日。
+发布时间：2026年04月18日 18:28 来源：中国新闻网 为深化促进京港交流，4月18日，由中国香港(地区)商会主办，京港地铁参与支持的“燃动十五五·京港同行·运动同心”体育嘉年华活动在北京举办。
 
-当日，生态环境部、中央精神文明建设办公室、广东省人民政府、香港特别行政区政府、澳门特别行政区政府在广州市联合举办2026年六五环境日国家主场活动。
+活动汇聚了相关政府部门及企业的代表队。
 
-广东省委书记黄坤明出席活动并致辞。
+本次比赛设置了足球、乒乓球、羽毛球、篮球等项目。
 
-生态环境部部长黄润秋出席活动并讲话。
+选手们以球会友，在竞技中展现拼搏精神，同时能够加强彼此交流，增进情谊。
 
-广东省委副书记、省长孟凡利出席活动。
-
-中央宣传部部务会成员、中央精神文明建设办公室专职副主任胡凯红出席活动并讲话。
-
-黄坤明指出，广东着力厚植“绿色家底”，深入打好蓝天、碧水、净土保卫战，有力攻坚解决一批“绿色难题”。
-
-大力推进生态产业化和产业生态化，积极探索绿水青山转化为金山银山的实现路径，持续激活“绿色动能”，不断深化“绿色合作”、凝聚“绿色共识”，携手港澳共建绿色湾区、美丽湾区。
+(记者 刘超) 责任编辑：【孙静波】
 
 ## 相关推荐
 
-- 2026-06-29 11:39 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:27 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:37 - [恋与深空女玩家不该被冒犯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:25 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:48 - [上海足协发布世界杯文明观赛倡议书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:34 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:47 - [四川宜宾地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:34 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:33 - [加拿大队史淘汰赛首胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:48 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:49 - [实拍江西上饶“三月三”篝火联欢现场 民众踏歌起舞庆佳节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:51 - [万众期待的“霸王”来了！“宿迁子弟何在？”何润东身披甲胄亮相“苏超”现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:30 - [BOSS直聘-W于4月17日耗资约249.65万美元回购约34.97万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:31 - [去年翻倍赚钱的基金，今年怎么样了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:37 - [巴西、西班牙和墨西哥联合呼吁采取措施缓解古巴局势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:32 - [产品业绩回撤38.53%，昔日百亿私募同犇投资最新回应：从来不是只买消费，AI产业链去年开始就有不少仓位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:26 - [金价下跌 霍尔木兹海峡再度中断引发通胀担忧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:43 - [农业农村部：推动猪价合理回升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:51 - [鼎泰丰“回京”热度不减 稳中求进布局大陆北方市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:50 - [国际能源署称中东能源产出恢复需两年时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:33 - [直击广东消防救援力量多举措筑牢防汛救灾安全屏障](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:44 - [印度卢比在亚币中表现最佳 央行据报道对油企购买美元进行窗口指导](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:49 - [西安直飞维也纳国际航线开通](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:37 - [江西南昌久雨初晴：市民户外享受春光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:27 - [韩国拟将部分刑责年龄降至13岁](https://www.blog.kurohicncr.top/Article/details/908434.shtml)
-- 2026-06-29 11:52 - [如何“亲菌子”又“远小人儿”](http://www.share.kurohicncr.top/Article/details/565555.shtml)
-- 2026-06-29 11:51 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/30559184384.shtml)
-- 2026-06-29 11:26 - [上海足协发布世界杯文明观赛倡议书](http://www.blog.minike.top/Article/details/4417616294.shtml)
-- 2026-06-29 11:35 - [严浩翔FIY断层第一](http://www.share.minike.top/Article/details/8421631.shtml)
-- 2026-06-29 11:36 - [专家建议城乡居民养老金增至每月千元](http://www.share.kurohicncr.top/Article/details/58239.shtml)
-- 2026-06-29 11:39 - [极限挑战第一季](https://www.share.minike.top/Article/details/12359229832.shtml)
-- 2026-06-29 11:51 - [【自制动画】佐鸣抖肩舞！！！](http://www.blog.kurohicncr.top/Article/details/728192.shtml)
-- 2026-06-29 11:32 - [DSpark论文深度解读](https://www.blog.kurohicncr.top/Article/details/27843269747.shtml)
-- 2026-06-29 11:32 - [高考公平需要延伸到志愿填报这一环](https://www.blog.kurohicncr.top/Article/details/79053383.shtml)
-- 2026-06-29 11:51 - [世界杯用球成部分门将噩梦](https://www.blog.minike.top/Article/details/506633108344.shtml)
-- 2026-06-29 11:52 - [记者暗访贵州和云南多个养老机构](http://www.blog.kurohicncr.top/Article/details/2783151640.shtml)
-- 2026-06-29 11:50 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/86177267947.shtml)
-- 2026-06-29 11:35 - [严浩翔FIY断层第一](https://www.share.minike.top/Article/details/61494313705.shtml)
-- 2026-06-29 11:42 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/16730252.shtml)
+- 2026-06-29 11:53 - [经济冲击逼近，以色列央行行长寄望和平](http://www.share.minike.top/Article/details/5741758088.shtml)
+- 2026-06-29 11:42 - [中英文双语绘本《埃德加·斯诺的红星之旅》首发式在西安举行](http://www.blog.minike.top/Article/details/1664665065.shtml)
+- 2026-06-29 11:46 - [专家：金价翻倍没有悬念](http://www.share.minike.top/Article/details/953840321029.shtml)
+- 2026-06-29 11:30 - [从反对到支持，台湾姑娘含泪读妈妈短信：在大陆追梦，为和平统一发光](http://www.blog.minike.top/Article/details/281451083.shtml)
+- 2026-06-29 11:45 - [斯诺克世锦赛：丁俊晖暂时领先吉尔伯特 肖国栋淘汰周跃龙晋级](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:51 - [习言道｜让互联网更好造福国家和人民](http://www.blog.minike.top/Article/details/983569525441.shtml)
+- 2026-06-29 11:39 - [消费升级+投资优化 一季度内需引擎动力增强](http://www.share.minike.top/Article/details/42845986.shtml)
+- 2026-06-29 11:40 - [于和伟、张若昀纷纷声明！爱奇艺回应：入驻不等于授权](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [Astro Offshore新增MPSV，扩展水下作业能力](http://www.blog.kurohicncr.top/Article/details/7699979.shtml)
+- 2026-06-29 11:34 - [美国债市：国债走高 交易员上调对美联储年内降息押注](http://www.blog.kurohicncr.top/Article/details/0232530.shtml)
+- 2026-06-29 11:26 - [松延动力创始人姜哲源揭秘参赛机器人技术升级：续航加强、扭矩提升超一倍](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [易方达如意安悦3个月持有混合（FOF）今日首发 打造多元配置新选择](http://www.blog.kurohicncr.top/Article/details/777779585.shtml)
+- 2026-06-29 11:37 - [陈茂波：香港将公布第六批引进重点企业](http://www.blog.minike.top/Article/details/8749412929.shtml)
+- 2026-06-29 11:37 - [33岁确诊胃癌晚期，她错过了身体4次“求救信号”](http://www.blog.kurohicncr.top/Article/details/231677540.shtml)
+- 2026-06-29 11:50 - [黄金交易提醒：周末中东局势突变，伊朗拒绝第二轮谈判，金价大幅跳空低开](http://www.share.minike.top/Article/details/2129909.shtml)

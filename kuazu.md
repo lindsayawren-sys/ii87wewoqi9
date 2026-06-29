@@ -1,56 +1,52 @@
-# 珠江流域部分中小河流或发生超警洪水
+# 联合国秘书长欢迎伊朗宣布完全开放霍尔木兹海峡
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-中新网广州6月7日电 (记者 王坚)受强降雨影响，珠江流域部分中小河流可能发生超警洪水。珠江防总7日11时启动防汛Ⅳ级应急响应，水利部珠江水利委员会(下称“珠江委”)同步启动洪水防御Ⅳ级应急响应。 珠江委介绍，受西南季风、高空槽、弱冷空气、切变线共同影响，预计7日至9日，珠江流域将出现大范围强降雨过程，云南东南部、贵州南部、广西大部、广东大部、福建西南部等地部分地区有大到暴雨，
+中新社联合国4月17日电 联合国秘书长古特雷斯17日通过发言人迪雅里克发表声明，欢迎伊朗宣布霍尔木兹海峡在黎巴嫩与以色列停火期间对所有商船完全开放。 声明说，古特雷斯认为，此举是朝着正确方向迈出的一步。联合国立场依然明确，即霍尔木兹海峡的国际航行权需要完全恢复，各方必须尊重水道通行自由。 声明说，古特雷斯全力支持旨在寻求和平解决当前中东冲突的外交努力，希望伊朗此举以及黎以停火有
 
 ## 正文
 
-中新网广州6月7日电 (记者 王坚)受强降雨影响，珠江流域部分中小河流可能发生超警洪水。
+中新社联合国4月17日电 联合国秘书长古特雷斯17日通过发言人迪雅里克发表声明，欢迎伊朗宣布霍尔木兹海峡在黎巴嫩与以色列停火期间对所有商船完全开放。
 
-珠江防总7日11时启动防汛Ⅳ级应急响应，水利部珠江水利委员会(下称“珠江委”)同步启动洪水防御Ⅳ级应急响应。
+声明说，古特雷斯认为，此举是朝着正确方向迈出的一步。
 
-珠江委介绍，受西南季风、高空槽、弱冷空气、切变线共同影响，预计7日至9日，珠江流域将出现大范围强降雨过程，云南东南部、贵州南部、广西大部、广东大部、福建西南部等地部分地区有大到暴雨，局地可能有大暴雨，流域大部地区累计降雨量将有70毫米至140毫米，局地可能超过300毫米。
+联合国立场依然明确，即霍尔木兹海峡的国际航行权需要完全恢复，各方必须尊重水道通行自由。
 
-珠江委表示，受强降雨影响，西江、北江、东江、韩江等主要河流将出现涨水过程，暴雨区内部分中小河流可能发生超警洪水，山洪灾害发生风险较高。
-
-当前，珠江防总、珠江委严格落实主汛期工作机制，密切监视流域雨水汛情发展态势，加密滚动预测预报和会商研判，强化防汛联合值守和靶向预警发布，第一时间向有关地方发出防御通知和汛情通报，派出工作组一线协助指导，督促地方做好强降雨区内水工程安全度汛、中小河流洪水和山洪灾害防御等工作，及时转移受威胁区域人员，全力确保人民群众生命安全。
+声明说，古特雷斯全力支持旨在寻求和平解决当前中东冲突的外交努力，希望伊朗此举以及黎以停火有助于各方建立互信，推进在巴基斯坦斡旋下的对话。
 
 (完)
 
 ## 相关推荐
 
-- 2026-06-29 11:45 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:48 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:48 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:30 - [【自制动画】佐鸣抖肩舞！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:46 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:25 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:32 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:38 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:36 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:50 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:28 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:46 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:51 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:27 - [中国版「星链」运营方启动新一轮增资，设50亿元投资门槛，明确拒绝境外资本，低轨卫星互联网为什么重要？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:51 - [黑龙江干流黑河段平稳开江 较历年提前9天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:49 - [标普500闪现罕见上涨信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:41 - [卡沙甘油田就50亿美元哈萨克斯坦硫磺罚款上诉再遭驳回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:30 - [霍尔木兹海峡开放提振市场，华尔街周五开盘走高，原油价格大跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:41 - [2026金鸡艺术电影展在上海举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:41 - [ZFX山海证券:金矿合作拓展资源前景仍待验证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:41 - [做具身智能的银河通用，为什么要花1500多万元向宇树科技买机器人？ | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:47 - [蓝色起源火箭可重复使用助推器着陆 但卫星偏离轨道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:25 - [霍尔木兹海峡开放后多艘船只尝试通行但未竟全功 不确定性犹在](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:29 - [巴基斯坦内政部长前往美使馆讨论美伊第二轮谈判事宜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:45 - [避开昂贵汽油 电动汽车在欧洲主要市场销量飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:50 - [琼台同胞欢舞乐聚共庆“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [跑步机上“爬坡”减肥公式爆火](https://www.blog.minike.top/Article/details/006227957243.shtml)
-- 2026-06-29 11:22 - [市民骑哈啰单车79分钟被收费30元](http://www.blog.kurohicncr.top/Article/details/942980868.shtml)
-- 2026-06-29 11:24 - [《给阿嬷的情书》里的情义与守望](https://www.blog.minike.top/Article/details/45964.shtml)
-- 2026-06-29 11:32 - [比亚迪市值为何蒸发8000亿](http://www.blog.kurohicncr.top/Article/details/4874665091.shtml)
-- 2026-06-29 11:41 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.minike.top/Article/details/513771.shtml)
-- 2026-06-29 11:23 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.share.kurohicncr.top/Article/details/804098.shtml)
-- 2026-06-29 11:42 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/00862.shtml)
-- 2026-06-29 11:45 - [黄博文：坚持这样打下去会成强队](http://www.share.minike.top/Article/details/4100463.shtml)
-- 2026-06-29 11:37 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/09782.shtml)
-- 2026-06-29 11:39 - [韩国记者：解码“合肥模式”](https://www.share.kurohicncr.top/Article/details/37764.shtml)
-- 2026-06-29 11:24 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/576236594727.shtml)
-- 2026-06-29 11:48 - [FIFA回应佛得角队长被指控强奸](https://www.blog.minike.top/Article/details/933582922.shtml)
-- 2026-06-29 11:39 - [灿如繁星定档](https://www.share.minike.top/Article/details/2336073762.shtml)
-- 2026-06-29 11:25 - [退休化学教授帮医药研发人员制毒](https://www.blog.kurohicncr.top/Article/details/09343160.shtml)
-- 2026-06-29 11:38 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/3059488012.shtml)
+- 2026-06-29 11:34 - [现场视频：美军人员从直升机顺绳而下，控制伊朗货船](http://www.blog.kurohicncr.top/Article/details/1380526319.shtml)
+- 2026-06-29 11:50 - [贵州纳雍：玛瑙红樱桃迎采摘热潮](http://www.share.minike.top/Article/details/41442.shtml)
+- 2026-06-29 11:38 - [从“石旮旯”到“世界最佳” 重庆荆竹村涌文旅热潮](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [ATFX五度斩获ADVFN最佳拉美地区经纪商 区域领导力再获国际权威认可](http://www.share.minike.top/Article/details/05252032.shtml)
+- 2026-06-29 11:44 - [三亚与7家境外经贸合作区集中签约](http://www.share.minike.top/Article/details/28485087096.shtml)
+- 2026-06-29 11:28 - [三亚亚沙会临近 主媒体中心试运行赛事氛围渐浓](http://www.share.minike.top/Article/details/926166.shtml)
+- 2026-06-29 11:49 - [法国通过“文物归还法案”，260万件中国文物多少能回归？](http://www.blog.kurohicncr.top/Article/details/52105618264.shtml)
+- 2026-06-29 11:31 - [OpenAI “Sora之父”宣布离职](http://www.share.minike.top/Article/details/5085364969.shtml)
+- 2026-06-29 11:39 - [跨国药械企业竞逐“中国制造”新赛道](http://www.blog.kurohicncr.top/Article/details/85376798.shtml)
+- 2026-06-29 11:41 - [美国中央司令部：美军瘫痪了一艘试图驶入伊朗港口、违反封锁令的伊朗船只](http://www.share.minike.top/Article/details/29426.shtml)
+- 2026-06-29 11:47 - [霍尔木兹海峡开放消息提振米兰股市加速上涨，银行与奢侈品板块飙升，石油股下跌](http://www.share.kurohicncr.top/Article/details/98964761279.shtml)
+- 2026-06-29 11:47 - [建平台强队伍见实效 云南探路国企统战新模式](http://www.blog.kurohicncr.top/Article/details/90007.shtml)
+- 2026-06-29 11:34 - [哥伦比亚国家石油公司：Copoazú-1井测试结果预计6月底揭晓](http://www.share.kurohicncr.top/Article/details/484109527.shtml)
+- 2026-06-29 11:37 - [吉林大学春花绽放春意浓](http://www.blog.kurohicncr.top/Article/details/56654827999.shtml)
+- 2026-06-29 11:34 - [纽约汇市：美元第三周下跌 市场对伊朗和平前景乐观](http://www.share.kurohicncr.top/Article/details/62382.shtml)

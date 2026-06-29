@@ -1,47 +1,49 @@
-# 国家防总针对重庆、贵州启动防汛四级应急响应
+# 实拍江西上饶“三月三”篝火联欢现场 民众踏歌起舞庆佳节
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:06 UTC+8
 
 ## 摘要
 
-中新网6月6日电 据国家应急管理部网站消息，据气象部门预报，6月6日至9日，南方地区将有新一轮强降雨过程，重庆、贵州等地部分地区有大到暴雨，局地有大暴雨，山洪和地质灾害、中小河流洪水以及城市内涝等灾害风险高。根据《国家防汛抗旱应急预案》及有关规定，国家防总于6月6日15时针对重庆、贵州启动防汛四级应急响应。
+发布时间：2026年04月19日 14:15 来源：中国新闻网 4月18日，第四届上饶“三月三”民族文化系列活动在有着“万里茶道第一镇”之称的江西铅山河口镇启幕。夜幕降临，各族群众手拉手围聚篝火，踏歌起舞，在跃动的火光中共叙民族团结情谊，共度民族传统佳节。 (王修君 刘占昆 俞嘉怡 制作 王嘉怡 ） 责任编辑：【李季】
 
 ## 正文
 
-中新网6月6日电 据国家应急管理部网站消息，据气象部门预报，6月6日至9日，南方地区将有新一轮强降雨过程，重庆、贵州等地部分地区有大到暴雨，局地有大暴雨，山洪和地质灾害、中小河流洪水以及城市内涝等灾害风险高。
+发布时间：2026年04月19日 14:15 来源：中国新闻网 4月18日，第四届上饶“三月三”民族文化系列活动在有着“万里茶道第一镇”之称的江西铅山河口镇启幕。
 
-根据《国家防汛抗旱应急预案》及有关规定，国家防总于6月6日15时针对重庆、贵州启动防汛四级应急响应。
+夜幕降临，各族群众手拉手围聚篝火，踏歌起舞，在跃动的火光中共叙民族团结情谊，共度民族传统佳节。
+
+(王修君 刘占昆 俞嘉怡 制作 王嘉怡 ） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 11:35 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:31 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:31 - [李维嘉回应“人老了做什么都心酸”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:50 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:39 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:38 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:51 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:45 - [2岁幼童高铁突发惊厥呼吸骤停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:33 - [宜宾地震监控画面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:45 - [本届世界杯黑马扎堆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:40 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:49 - [行程万里不忘初心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:25 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:52 - [农业农村部：推动猪价合理回升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:26 - [鼎泰丰“回京”热度不减 稳中求进布局大陆北方市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:36 - [国际能源署称中东能源产出恢复需两年时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:36 - [直击广东消防救援力量多举措筑牢防汛救灾安全屏障](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:48 - [印度卢比在亚币中表现最佳 央行据报道对油企购买美元进行窗口指导](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:30 - [西安直飞维也纳国际航线开通](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:40 - [江西南昌久雨初晴：市民户外享受春光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:32 - [2026年巴黎图书节拉开帷幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:25 - [韩国和美国一致认为，韩元汇率过度波动是不可取的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:53 - [新阶人士走进成都高新天府长岛 共话数字文创新未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:48 - [广西兴业县举办“三月三”民族团结系列活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:50 - [纳微科技7.1亿元定增背后：账面“不差钱” 实控人方减持套现3.8亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:28 - [多国学者：儒学与伊斯兰智慧 能解世界冲突之困](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:36 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/0052754.shtml)
-- 2026-06-29 11:29 - [岭南电影为何迎来“南方热”](https://www.blog.kurohicncr.top/Article/details/254348834078.shtml)
-- 2026-06-29 11:49 - [曝韩国球员目睹出局时正吃饭](https://www.share.minike.top/Article/details/637857.shtml)
-- 2026-06-29 11:39 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/70909555.shtml)
-- 2026-06-29 11:35 - [送你一朵小红花](http://www.share.minike.top/Article/details/84460.shtml)
-- 2026-06-29 11:29 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/99162124650.shtml)
-- 2026-06-29 11:26 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/41494004.shtml)
-- 2026-06-29 11:25 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.share.minike.top/Article/details/34601444665.shtml)
-- 2026-06-29 11:33 - [天津打雷](http://www.share.kurohicncr.top/Article/details/322498.shtml)
-- 2026-06-29 11:23 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/2329564.shtml)
-- 2026-06-29 11:35 - [艾莎唱出了多少牛马的心声🥹](http://www.share.kurohicncr.top/Article/details/43016.shtml)
-- 2026-06-29 11:41 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/69136522.shtml)
-- 2026-06-29 11:25 - [俄政府批准巩固俄语地位行动计划](https://www.share.minike.top/Article/details/8581795.shtml)
-- 2026-06-29 11:25 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.minike.top/Article/details/611716036.shtml)
-- 2026-06-29 11:48 - [罗马诺：李刚仁已与马竞达成协议](https://www.blog.kurohicncr.top/Article/details/112633587.shtml)
+- 2026-06-29 11:40 - [于和伟、张若昀纷纷声明！爱奇艺回应：入驻不等于授权](http://www.blog.kurohicncr.top/Article/details/4179538187.shtml)
+- 2026-06-29 11:38 - [Astro Offshore新增MPSV，扩展水下作业能力](http://www.share.kurohicncr.top/Article/details/522548.shtml)
+- 2026-06-29 11:53 - [美国债市：国债走高 交易员上调对美联储年内降息押注](http://www.share.minike.top/Article/details/9194854.shtml)
+- 2026-06-29 11:39 - [松延动力创始人姜哲源揭秘参赛机器人技术升级：续航加强、扭矩提升超一倍](http://www.blog.kurohicncr.top/Article/details/693199089.shtml)
+- 2026-06-29 11:44 - [易方达如意安悦3个月持有混合（FOF）今日首发 打造多元配置新选择](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [陈茂波：香港将公布第六批引进重点企业](http://www.share.minike.top/Article/details/87579674750.shtml)
+- 2026-06-29 11:45 - [33岁确诊胃癌晚期，她错过了身体4次“求救信号”](http://www.blog.kurohicncr.top/Article/details/803771.shtml)
+- 2026-06-29 11:51 - [黄金交易提醒：周末中东局势突变，伊朗拒绝第二轮谈判，金价大幅跳空低开](http://www.share.minike.top/Article/details/65285519.shtml)
+- 2026-06-29 11:47 - [宁波前湾新区文旅提质升级 打造长三角全域度假新高地](http://www.share.kurohicncr.top/Article/details/242762.shtml)
+- 2026-06-29 11:37 - [行业性纵容！“幽灵外卖”黑产调查：7家电商平台“幽灵店铺”多达67604家](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:50 - [习近平谈网络安全和信息化](http://www.blog.kurohicncr.top/Article/details/48680.shtml)
+- 2026-06-29 11:33 - [涉宇树科技、胖东来等，最高法谈知识产权司法保护](http://www.share.kurohicncr.top/Article/details/80765079.shtml)
+- 2026-06-29 11:53 - [伊朗谈判代表称以色列可能发动袭击，在和平会谈后由巴基斯坦护送回国](http://www.blog.minike.top/Article/details/290390499017.shtml)
+- 2026-06-29 11:30 - [白宫与Anthropic冰释前嫌，美政府拟推动Mythos模型落地](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [伊朗战争50天：5亿桶石油从市场“消失”，全球能源损失超500亿美元](http://www.blog.kurohicncr.top/Article/details/2982277407.shtml)

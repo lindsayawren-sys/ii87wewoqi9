@@ -1,48 +1,57 @@
-# 从“矿坑伤疤”到“生态明珠” 探访黑龙江宝清翡翠湖的绿色蜕变
+# 从“石旮旯”到“世界最佳” 重庆荆竹村涌文旅热潮
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月05日 20:23 来源：中国新闻网 在黑龙江省双鸭山市宝清县，一处因长期露天开采形成的废弃页岩矿坑，通过治理河湖水质、恢复山体植被等系统性生态工程，已成功蜕变为景致独特的翡翠湖矿坑森林公园。如今，该公园成为集婚纱摄影基地、婚礼殿堂、印象灯光秀、野外露营、科普教育、家庭亲子、森林康养、卡丁车运动等功能导向于一体的新兴郊野旅游度假目的地。6月5日，世界环
+中新网重庆4月20日电 题：从“石旮旯”到“世界最佳” 重庆荆竹村涌文旅热潮 作者 张旭 院士帮忙种果蔬、海外游客入住民宿、农妇变“首席咖啡师”……近日，中新网走进位于渝东南武陵山区的重庆市武隆区仙女山街道荆竹村，在逐渐涌起的文旅热潮中，感受到扑面而来的“国际范儿”。 荆竹村是名副其实的“石旮旯”，曾因喀斯特地貌带来土壤贫瘠、石漠化等问题。“但我们就地取材，筑路造屋，改良土壤，
 
 ## 正文
 
-发布时间：2026年06月05日 20:23 来源：中国新闻网 在黑龙江省双鸭山市宝清县，一处因长期露天开采形成的废弃页岩矿坑，通过治理河湖水质、恢复山体植被等系统性生态工程，已成功蜕变为景致独特的翡翠湖矿坑森林公园。
+中新网重庆4月20日电 题：从“石旮旯”到“世界最佳” 重庆荆竹村涌文旅热潮 作者 张旭 院士帮忙种果蔬、海外游客入住民宿、农妇变“首席咖啡师”……近日，中新网走进位于渝东南武陵山区的重庆市武隆区仙女山街道荆竹村，在逐渐涌起的文旅热潮中，感受到扑面而来的“国际范儿”。
 
-如今，该公园成为集婚纱摄影基地、婚礼殿堂、印象灯光秀、野外露营、科普教育、家庭亲子、森林康养、卡丁车运动等功能导向于一体的新兴郊野旅游度假目的地。
+荆竹村是名副其实的“石旮旯”，曾因喀斯特地貌带来土壤贫瘠、石漠化等问题。
 
-6月5日，世界环境日，记者探访这一生态治理的成功范例。
+“但我们就地取材，筑路造屋，改良土壤，发展产业，实现‘向下扎根，向上生长’。
 
-姜禹帆 王琳 黑龙江宝清报道 责任编辑：【叶攀】
+”仙女山街道党工委书记刘鹏介绍，该村于2022年获评联合国世界旅游组织“最佳旅游乡村”。
+
+如今，这种石上“生金”的故事仍在延续。
+
+荆竹村有一批重量级“荣誉村民”，如中国工程院院士向仲怀、“巴蜀译翁”杨武能。
+
+武隆区农业农村委员会正高级农艺师刘芳告诉中新社，向仲怀在该村有实验基地，帮助村民改良土壤、试种西南大学研发的果蔬新品种，以便村民大规模推广。
+
+每逢暑期，有大量游客在武隆仙女山避暑。
 
 ## 相关推荐
 
-- 2026-06-29 11:34 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:32 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:24 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:22 - [欧洲极端高温东扩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:26 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:40 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:46 - [浦玮：阿根廷所在半区对手实力偏弱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:31 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:34 - [女子拍邻居家中裸照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:33 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:39 - [美国中央司令部：美军瘫痪了一艘试图驶入伊朗港口、违反封锁令的伊朗船只](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:28 - [霍尔木兹海峡开放消息提振米兰股市加速上涨，银行与奢侈品板块飙升，石油股下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:42 - [建平台强队伍见实效 云南探路国企统战新模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:29 - [哥伦比亚国家石油公司：Copoazú-1井测试结果预计6月底揭晓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:28 - [吉林大学春花绽放春意浓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:52 - [纽约汇市：美元第三周下跌 市场对伊朗和平前景乐观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:42 - [“东北超”推动文旅体商融合 无形资产变红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:50 - [台湾台中大甲妈祖起驾 开启九天八夜绕境活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:51 - [快讯：现货黄金回落至4750美元/盎司下方，日内跌1.76%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:42 - [拾光纪·“让互联网更好造福人民、造福世界”，总书记这样嘱托](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:38 - [山东菏泽：槐花飘香春滋味 特色槐花宴受欢迎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:40 - [第一炉香](https://www.share.kurohicncr.top/Article/details/43096.shtml)
-- 2026-06-29 11:45 - [韩国记者：解码“合肥模式”](https://www.share.minike.top/Article/details/3206996.shtml)
-- 2026-06-29 11:39 - [三只羊大杨哥不直播改卖课](https://www.share.kurohicncr.top/Article/details/4520823005.shtml)
-- 2026-06-29 11:29 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/011768055.shtml)
-- 2026-06-29 11:45 - [记者率先试乘西十高铁](http://www.blog.kurohicncr.top/Article/details/866127364.shtml)
-- 2026-06-29 11:34 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/406002136380.shtml)
-- 2026-06-29 11:25 - [功率半导体缺货涨价](http://www.share.minike.top/Article/details/118689704.shtml)
-- 2026-06-29 11:49 - [温州学子高考数学满分 分享学习经验](http://www.blog.kurohicncr.top/Article/details/8265130.shtml)
-- 2026-06-29 11:41 - [和阿根廷球员家属一起看球](http://www.blog.kurohicncr.top/Article/details/62120.shtml)
-- 2026-06-29 11:25 - [宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/7697850049.shtml)
-- 2026-06-29 11:38 - [世界杯小组赛阶段过人榜：马扎居首](https://www.share.kurohicncr.top/Article/details/27635888.shtml)
-- 2026-06-29 11:44 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/89097.shtml)
-- 2026-06-29 11:28 - [克洛普：加拿大主帅还能继续创造历史](http://www.blog.minike.top/Article/details/09819216.shtml)
-- 2026-06-29 11:27 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/882116652.shtml)
-- 2026-06-29 11:30 - [欧洲超1300例超额死亡与高温有关](https://www.blog.kurohicncr.top/Article/details/3497298720.shtml)
+- 2026-06-29 11:28 - [林毅夫：中国式现代化的成功实践为全球发展中国家提供重要借鉴](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [湖北城市足球联赛点燃民众热情 赛事流量变消费增量](http://www.blog.kurohicncr.top/Article/details/25285821.shtml)
+- 2026-06-29 11:27 - [国际传播纪录片《大道——永远的长征》在北京启动](http://www.blog.kurohicncr.top/Article/details/233406977205.shtml)
+- 2026-06-29 11:51 - [千年古刹云居山谷雨见闻：一叶“攒林茶” 农禅指尖传](http://www.share.minike.top/Article/details/8374176.shtml)
+- 2026-06-29 11:27 - [灿能电力拟每10股派息1.66元](http://www.blog.minike.top/Article/details/69052669474.shtml)
+- 2026-06-29 11:45 - [光鲜销售下的深层危机：亚盛医药的盈利困局与三大致命风险](http://www.blog.kurohicncr.top/Article/details/4369559.shtml)
+- 2026-06-29 11:34 - [东方证券收购上海证券，又多了一家“前途未卜”的公募，上海证券持有100%股权的前海联合基金咋办？](http://www.share.kurohicncr.top/Article/details/129829393.shtml)
+- 2026-06-29 11:29 - [巴基斯坦称已为所有“特殊访客”做好特别安保安排](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [天臣控股拟折让21.05%配售最多7000万股 净筹约1.03亿港元](http://www.share.kurohicncr.top/Article/details/8602982668.shtml)
+- 2026-06-29 11:43 - [西南大学120周年校庆高质量发展大会举行](http://www.blog.minike.top/Article/details/224581910529.shtml)
+- 2026-06-29 11:34 - [日本突发7.5级强震 震中附近有多个核电站](http://www.blog.minike.top/Article/details/858920493578.shtml)
+- 2026-06-29 11:27 - [青海果洛：凝聚青年力量 共育民族团结之花](http://www.blog.minike.top/Article/details/218697764126.shtml)
+- 2026-06-29 11:43 - [村里有了“小而美” 游客爱上“慢时光”](http://www.blog.minike.top/Article/details/2189896.shtml)
+- 2026-06-29 11:25 - [广交会观察：中东局势扰动下参展商采购商同觅“新出路”](http://www.blog.minike.top/Article/details/17379242205.shtml)
+- 2026-06-29 11:53 - [雄安新区首个戏曲特色工人文化宫正式投用](http://www.blog.minike.top/Article/details/82924.shtml)

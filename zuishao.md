@@ -1,42 +1,56 @@
-# 微纪录片｜水润旱塬
+# 霍尔木兹海峡开放消息提振米兰股市加速上涨，银行与奢侈品板块飙升，石油股下跌
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月06日 20:05 来源：新华社 责任编辑：【王祎】
+米兰股市周五打破盘整格局，在伊朗宣布向所有商船开放霍尔木兹海峡直至停火期结束的消息推动下加速上涨。 截至收盘，富时MIB指数上涨约1.6%，银行股的强劲拉升为涨势提供了良好支撑，但石油股因原油价格大幅下跌而走低，形成对冲。 在此背景下，埃尼集团和塞班等石油股与所有欧洲石油股跌势一致，纷纷下挫。 欧洲各交易所的奢侈品股也普遍飙升。在米兰，库奇内利、菲拉格慕和盟可睐均录得显著涨幅。
 
 ## 正文
 
-发布时间：2026年06月06日 20:05 来源：新华社 责任编辑：【王祎】
+米兰股市周五打破盘整格局，在伊朗宣布向所有商船开放霍尔木兹海峡直至停火期结束的消息推动下加速上涨。
+
+截至收盘，富时MIB指数上涨约1.6%，银行股的强劲拉升为涨势提供了良好支撑，但石油股因原油价格大幅下跌而走低，形成对冲。
+
+在此背景下，埃尼集团和塞班等石油股与所有欧洲石油股跌势一致，纷纷下挫。
+
+欧洲各交易所的奢侈品股也普遍飙升。
+
+在米兰，库奇内利、菲拉格慕和盟可睐均录得显著涨幅。
+
+消息面强化了市场对美国与伊朗可能在周末举行新谈判的预期，这一预期在交易时段早期已被部分消化。
+
+伊朗外交部长在社交媒体上宣布，配合黎巴嫩停火，所有商船在停火剩余期间可完全通行霍尔木兹海峡。
+
+美国总统随后也证实了这一消息。
 
 ## 相关推荐
 
-- 2026-06-29 11:46 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:26 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:23 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:43 - [刘烨赶紧蹭个热度宣传四渡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:37 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:51 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:50 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:45 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:43 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:33 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:53 - [快讯：现货黄金回落至4750美元/盎司下方，日内跌1.76%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:50 - [拾光纪·“让互联网更好造福人民、造福世界”，总书记这样嘱托](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:50 - [山东菏泽：槐花飘香春滋味 特色槐花宴受欢迎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:53 - [涉“幽灵外卖”，抖音食品安全总监廖天博被罚超64万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:48 - [2026全球豫商大会启幕 AI与机器人企业青睐河南机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:25 - [苏林、查波访华为何要去广西、湖南？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:51 - [日本东北部沿海地区发生7.4级地震 已发布海啸警报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:24 - [（文化中国行）千年山歌的“数字迁徙”：从广西唱响东盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:32 - [度小满冠名《浪姐7》陷舆论反噬：透视助贷平台下沉的困局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:32 - [2026江苏省侨界中餐厨艺大赛在无锡启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:38 - [宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/837761.shtml)
-- 2026-06-29 11:47 - [F1奥地利大奖赛正赛集锦](https://www.share.kurohicncr.top/Article/details/281605.shtml)
-- 2026-06-29 11:46 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/928047708.shtml)
-- 2026-06-29 11:39 - [王楚钦美国大满贯晋级32强](http://www.share.minike.top/Article/details/97002.shtml)
-- 2026-06-29 11:34 - [T1 3-0 TLAW数据雷达图](https://www.blog.kurohicncr.top/Article/details/500887423.shtml)
-- 2026-06-29 11:28 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/38470914235.shtml)
-- 2026-06-29 11:51 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/77745950895.shtml)
-- 2026-06-29 11:35 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/29959.shtml)
-- 2026-06-29 11:48 - [王中磊儿子邹市明儿子曹格儿子同框](http://www.share.kurohicncr.top/Article/details/3343044.shtml)
-- 2026-06-29 11:32 - [市民骑哈啰单车79分钟被收费30元](https://www.blog.minike.top/Article/details/05985161.shtml)
-- 2026-06-29 11:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/63414.shtml)
-- 2026-06-29 11:28 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/770824149370.shtml)
-- 2026-06-29 11:44 - [一生一世](https://www.share.minike.top/Article/details/019692131767.shtml)
-- 2026-06-29 11:36 - [夏粮收购陆续展开 质优价稳购销两旺](https://www.share.minike.top/Article/details/1551359.shtml)
-- 2026-06-29 11:35 - [刘烨16岁儿子诺一颜值](https://www.share.kurohicncr.top/Article/details/87287427.shtml)
+- 2026-06-29 11:52 - [天臣控股拟折让21.05%配售最多7000万股 净筹约1.03亿港元](http://www.blog.kurohicncr.top/Article/details/552408137.shtml)
+- 2026-06-29 11:35 - [西南大学120周年校庆高质量发展大会举行](http://www.share.minike.top/Article/details/58249801.shtml)
+- 2026-06-29 11:38 - [日本突发7.5级强震 震中附近有多个核电站](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [青海果洛：凝聚青年力量 共育民族团结之花](http://www.blog.minike.top/Article/details/02358.shtml)
+- 2026-06-29 11:44 - [村里有了“小而美” 游客爱上“慢时光”](http://www.blog.minike.top/Article/details/046206.shtml)
+- 2026-06-29 11:25 - [广交会观察：中东局势扰动下参展商采购商同觅“新出路”](http://www.blog.minike.top/Article/details/6397611903.shtml)
+- 2026-06-29 11:34 - [雄安新区首个戏曲特色工人文化宫正式投用](http://www.share.minike.top/Article/details/61001229268.shtml)
+- 2026-06-29 11:35 - [伊朗最高领袖：伊朗海军已准备好给敌人“新的惨败”](http://www.blog.kurohicncr.top/Article/details/052681763237.shtml)
+- 2026-06-29 11:42 - [习近平文化思想引领书香社会建设](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [新疆和田县群众治沙：沙地成自家“聚宝盆”](http://www.blog.minike.top/Article/details/130480782728.shtml)
+- 2026-06-29 11:27 - [总书记引领强国之路｜共建美好网络家园](http://www.share.minike.top/Article/details/79194974.shtml)
+- 2026-06-29 11:36 - [从多轮冻结到易主在即 兰州银行第三大股东清仓式法拍！3.01亿股5月13日开槌 起拍总价近7亿元](http://www.share.minike.top/Article/details/35098.shtml)
+- 2026-06-29 11:51 - [“霸王”助阵“苏超” 文旅体商融合新答卷](http://www.blog.kurohicncr.top/Article/details/494949840.shtml)
+- 2026-06-29 11:50 - [价格大涨650%，国产光纤全球爆单，年内诞生3只翻倍股](http://www.share.kurohicncr.top/Article/details/7228726944.shtml)
+- 2026-06-29 11:48 - [“小阳春”热度延续，深圳二手房市场正转向“量稳价稳”新阶段](https://github.com/lisacumin64-arch)

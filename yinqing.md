@@ -1,57 +1,55 @@
-# ST星农大宗交易成交203.00万元
+# 亚太卫星午前涨近9% 公司为中国卫通控股子公司
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-ST星农（维权）6月5日大宗交易平台出现一笔成交，成交量35.00万股，成交金额203.00万元，大宗交易成交价为5.80元，相对今日收盘价溢价1.58%。该笔交易的买方营业部为浙商证券股份有限公司德清余英坊证券营业部，卖方营业部为广发证券股份有限公司湖州高富路证券营业部。进一步统计，近3个月内该股累计发生4笔大宗交易，合计成交金额为1010.10万元。证券时报·数据宝统计显示
+亚太卫星（01045）早盘涨超8%，截至发稿，股价上涨8.71%，现报4.12港元，成交额3524.65万港元。 商业航天领域再度升温，在4月17日国家航天局举办的2026年“中国航天日”新闻发布会上，国家航天局相关负责人发布2026年重要任务信息。2026年，中国航天任务继续密集实施：天问二号将接近目标小行星，开展近距离探测；载人航天工程将实施神舟二十三号等载人飞船任务；多型
 
 ## 正文
 
-ST星农（维权）6月5日大宗交易平台出现一笔成交，成交量35.00万股，成交金额203.00万元，大宗交易成交价为5.80元，相对今日收盘价溢价1.58%。
+亚太卫星（01045）早盘涨超8%，截至发稿，股价上涨8.71%，现报4.12港元，成交额3524.65万港元。
 
-该笔交易的买方营业部为浙商证券股份有限公司德清余英坊证券营业部，卖方营业部为广发证券股份有限公司湖州高富路证券营业部。
+商业航天领域再度升温，在4月17日国家航天局举办的2026年“中国航天日”新闻发布会上，国家航天局相关负责人发布2026年重要任务信息。
 
-进一步统计，近3个月内该股累计发生4笔大宗交易，合计成交金额为1010.10万元。
+2026年，中国航天任务继续密集实施：天问二号将接近目标小行星，开展近距离探测；载人航天工程将实施神舟二十三号等载人飞船任务；多型重复使用火箭将开展飞行验证；商业航天将以高水平安全保障高质量发展。
 
-证券时报·数据宝统计显示，ST星农今日收盘价为5.71元，下跌1.55%，日换手率为1.61%，成交额为2437.87万元，全天主力资金净流出54.47万元，近5日该股累计上涨2.51%，近5日资金合计净流出632.32万元。
+公开资料显示，亚太卫星为中国卫通集团股份有限公司控股子公司。
 
-两融数据显示，该股最新融资余额为1863.16万元，近5日增加16.12万元，增幅为0.87%。
+亚太卫星集团当前运营亚太5C、亚太6C、亚太7号和亚太9号卫星，并通过联营公司运营亚太6D卫星及亚太6E卫星。
 
-据天眼查APP显示，星光农机股份有限公司成立于2004年02月25日，注册资本26521.46万人民币。
+亚太卫星系统覆盖亚洲、欧洲、非洲和大洋洲等全球约75%人口之地区，为广播和电信客户提供优质的卫星转发器、卫星通信与卫星电视广播传输服务。
 
-（数据宝）6月5日ST星农大宗交易一览（文章来源：证券时报网）
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:52 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:27 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:48 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:40 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:38 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:31 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:36 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:35 - [三只羊线下课已下架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:42 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:50 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:30 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:49 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:48 - [韩国队是怎么把自己“作死”的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:34 - [演员何润东披项羽铠甲助阵“苏超”宿迁队新赛季首秀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:48 - [中国将对53个非洲建交国全面零关税 湖南对非贸易迎新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:25 - [特朗普称美国官员将赴巴基斯坦参与谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:24 - [受以色列-黎巴嫩停火消息影响，油价下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:37 - [CBA常规赛第40轮：福建客场战胜广东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:26 - [江苏扬州第十届“春的律动”举行：文艺添彩好地方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:50 - [香港财政司司长陈茂波：Web3+AI重塑全球金融生态 须确保人类主控干预 完善跨境监管与权责划分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:36 - [联合国秘书长欢迎伊朗宣布完全开放霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:40 - [经济观察：轻食，重新定义“吃”的健康价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:29 - [地平线机器人-W于4月17日斥资287.1万港元回购39.42万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:46 - [中越青年相聚广西南宁分享友好故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:25 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.kurohicncr.top/Article/details/967297492.shtml)
-- 2026-06-29 11:38 - [克洛普：加拿大主帅还能继续创造历史](http://www.blog.kurohicncr.top/Article/details/6020045963.shtml)
-- 2026-06-29 11:35 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/4038105770.shtml)
-- 2026-06-29 11:30 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/9849897669.shtml)
-- 2026-06-29 11:28 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/6553865054.shtml)
-- 2026-06-29 11:36 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.minike.top/Article/details/752598.shtml)
-- 2026-06-29 11:39 - [张杰下沉市场](https://www.share.minike.top/Article/details/10175861.shtml)
-- 2026-06-29 11:28 - [C罗关心罗德里戈伤情](https://www.share.minike.top/Article/details/16623883.shtml)
-- 2026-06-29 11:25 - [詹姆斯下赛季会在哪里](http://www.blog.kurohicncr.top/Article/details/58182.shtml)
-- 2026-06-29 11:25 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/28413.shtml)
-- 2026-06-29 11:27 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/304424293896.shtml)
-- 2026-06-29 11:40 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/09472.shtml)
-- 2026-06-29 11:45 - [加拿大92分钟绝杀成世界杯首个16强](https://www.share.kurohicncr.top/Article/details/157649456378.shtml)
-- 2026-06-29 11:39 - [曾沛慈夺冠后人气](http://www.blog.kurohicncr.top/Article/details/511984647255.shtml)
-- 2026-06-29 11:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/64050.shtml)
+- 2026-06-29 11:25 - [酒价内参4月20日价格发布：茅台系领涨 总价升至九日高位](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [蓝莓价格走低 国产品种研发多点推进](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [宁夏兴庆大漠黄河徒步大会启幕 千余人乐享春日文旅健身行](http://www.share.kurohicncr.top/Article/details/94871.shtml)
+- 2026-06-29 11:24 - [“战火重燃”：船只遭扣押、遇袭，美伊停火协议濒临破裂](http://www.share.minike.top/Article/details/98141020.shtml)
+- 2026-06-29 11:52 - [山东菏泽：一株三并蒂的“墨润绝伦”牡丹盛放](http://www.share.kurohicncr.top/Article/details/587563.shtml)
+- 2026-06-29 11:36 - [曾黎、李志希领衔主演 话剧《寻味》登陆广州大剧院](http://www.share.kurohicncr.top/Article/details/5612054.shtml)
+- 2026-06-29 11:48 - [“10天订单涨2万+” 张雪机车夺冠后 广交会现场火爆吸睛](http://www.share.kurohicncr.top/Article/details/823160253098.shtml)
+- 2026-06-29 11:40 - [A股收评：超3400只个股飘红，沪指、深指收涨，创业板指收跌](http://www.blog.minike.top/Article/details/55415290.shtml)
+- 2026-06-29 11:33 - [油气价格大跌 受霍尔木兹海峡开放和止战希望影响](http://www.blog.kurohicncr.top/Article/details/38713292103.shtml)
+- 2026-06-29 11:29 - [伊朗：将再次关闭霍尔木兹海峡](http://www.blog.kurohicncr.top/Article/details/481208.shtml)
+- 2026-06-29 11:36 - [百胜中国于4月17日斥资773.82万港元回购2.07万股](http://www.blog.minike.top/Article/details/61949720.shtml)
+- 2026-06-29 11:40 - [伊朗称将对美军扣押伊朗商船作出回应](http://www.blog.kurohicncr.top/Article/details/58610.shtml)
+- 2026-06-29 11:37 - [特朗普：霍尔木兹海峡已完全开放 但对伊朗海上封锁仍将持续](http://www.blog.minike.top/Article/details/0015953141.shtml)
+- 2026-06-29 11:52 - [2026中小学“汉语桥”多伦多赛区选拔赛圆满收官](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [现场视频：美军人员从直升机顺绳而下，控制伊朗货船](https://github.com/lisacumin64-arch)

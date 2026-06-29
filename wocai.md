@@ -1,56 +1,60 @@
-# 中国证券投资基金业协会第四届会员代表大会在京召开
+# 一季度广东货物以海运方式经海南自贸港进出口同比增长25%
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-来源：中国证券投资基金业协会 6月6日，中国证券投资基金业协会第四届会员代表大会在京隆重召开，中国证监会党委书记、主席吴清出席会议并发表致辞讲话，中国证监会党委委员、副主席李明出席会议。 吴清指出，“十四五”时期特别是2023年中央金融工作会议以来，面对复杂多变的内外部环境，基金行业紧紧围绕和深入落实防风险、强监管、促高质量发展的工作主线，规模稳健增长、结构深刻调整、功能持续深
+中新网广州4月17日电 (记者 许青青)湛江海关副关长原喆鹏17日在广州介绍，今年一季度，广东货物以海运方式经海南自贸港进出口同比增长25%。依托“并行港”物流模式，货物由湛江经海南自贸港出口到东南亚，运输时间较传统物流模式可节省一周左右，运输成本每一个40尺集装箱下降80-180美元。据了解，“并行港”物流模式是由湛江海关会同深圳海关、海口海关，联动深圳、湛江、海南三地港口打
 
 ## 正文
 
-来源：中国证券投资基金业协会 6月6日，中国证券投资基金业协会第四届会员代表大会在京隆重召开，中国证监会党委书记、主席吴清出席会议并发表致辞讲话，中国证监会党委委员、副主席李明出席会议。
+中新网广州4月17日电 (记者 许青青)湛江海关副关长原喆鹏17日在广州介绍，今年一季度，广东货物以海运方式经海南自贸港进出口同比增长25%。
 
-吴清指出，“十四五”时期特别是2023年中央金融工作会议以来，面对复杂多变的内外部环境，基金行业紧紧围绕和深入落实防风险、强监管、促高质量发展的工作主线，规模稳健增长、结构深刻调整、功能持续深化，在完善多层次资本市场体系、服务投资者资产管理、支持实体经济创新发展等方面作出了不可替代的重要贡献，已经成为践行中国特色金融发展之路的重要缩影和生动写照。
+依托“并行港”物流模式，货物由湛江经海南自贸港出口到东南亚，运输时间较传统物流模式可节省一周左右，运输成本每一个40尺集装箱下降80-180美元。
 
-吴清指出，当前和今后一个时期，我国基金行业既面临重要战略机遇，也存在一些结构性矛盾，总体上正处于从量的扩张向质的提升转变的关键时期。
+据了解，“并行港”物流模式是由湛江海关会同深圳海关、海口海关，联动深圳、湛江、海南三地港口打造的“海上环线班轮”集成创新改革，旨在积极探索发挥湛江连接粤港澳大湾区和海南自贸港区位优势。
 
-全行业要深入贯彻“十五五”规划纲要，全面落实新“国九条”和资本市场“1+N”政策体系，持续深化公募基金改革，坚决落实国办印发的《关于加强监管防范风险促进私募基金高质量发展的指导意见》，进一步强化金融报国的使命担当，抢抓机遇、直面挑战，回归本源、苦练内功，扎扎实实办好自己的事，加快建设一流投资机构，以自身高质量发展更好服务国家战略、民生福祉和资本市场持续稳定健康发展。
+该模式下，三地企业可以在同一班轮上自主集拼内贸外贸、进口出口、空箱重箱等6类货物，在试点港口间根据物流需求随装随卸，实现“内外贸一体化并行、水陆多式联运并行、港口间多向喂给并行”，共享航线资源，最大限度提升三地港口间船舶的装载率，大幅降低物流成本，实现货物高效集拼分拨。
 
-一要坚持规范为先，不断夯实合规风控内在基础。
+原喆鹏介绍，自2024年9月试行以来，“并行港”航次船舶装载率从30%大幅提高到约80%，货物覆盖水产品、小家电等数十个门类。
 
-私募基金要切实提高政治站位，把贯彻指导意见及配套的监管制度规则作为重中之重来抓，全面落实到展业全过程各环节，切实在理念、模式、行动上来一个大转变、大提升。
+今年一季度，“湛江—海南洋浦”开行“并行港”航次、货量、集装箱量同比分别增长5倍、7.7倍、10.1倍，有力支撑了粤琼物流发展与海南国际枢纽港的建设。
 
-公募基金要健全公司治理架构，夯实合规风控基础，真正做到全员参与、全面覆盖、全程落实。
+同时，湛江海关推行“并行港+多式联运”改革，开展湛江经海南直达东南亚的海运中转业务。
 
-二要坚持客户为本，始终注重投资者利益优先。
+探索“并行港+启运港退税”模式，将“湛江－海南－境外”的出口退税由原来的洋浦港离境环节前置至湛江启运环节，退税时间从20天以上压缩至3天，进一步降低区域物流制度性成本。
 
 ## 相关推荐
 
-- 2026-06-29 11:50 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:47 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:42 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:24 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:23 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:39 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:42 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:32 - [陈丽君演出结束后饭撒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:45 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:32 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:25 - [新的社会阶层人士开展“寻美‘广西三月三’ 数智共铸民族情”活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:28 - [港交所的新挑战与“护城河”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:33 - [报告称中小微外贸企业出口保持韧性 定价权稳步提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:36 - [政策持续催化！绿电概念股4天2板，电力ETF华宝（159146）涨逾1%，超2.8亿资金悄悄加码！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:45 - [美军封锁期间 驱逐舰尾随满载伊朗原油的油轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:28 - [昆明至泰戈尔故乡加尔各答直飞航线复航 各方热盼新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:50 - [男子潜伏通风管道9小时盗走百万黄金 3次换装终难逃法网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:38 - [2026人形机器人半马：机器人领先人类19分钟冲线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:34 - [雄安智慧农业春日见闻：北斗定垄、AI种花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:30 - [第十九届坚果果干食品展盛大开幕 洽洽展位成为人气焦点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:33 - [第139届广交会一期到会境外采购商16.7万名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:39 - [杭州通报一诊所“用一个针头给多人采血”：涉事诊所已停业整顿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:44 - [乌克兰基辅发生枪击事件 致数人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:45 - [中国证监会就《违规转让证券案件行政处罚实施规则（征求意见稿）》公开征求意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:31 - [薛之谦演唱会](http://www.blog.minike.top/Article/details/594034188988.shtml)
-- 2026-06-29 11:41 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/84417922066.shtml)
-- 2026-06-29 11:24 - [成都震感](http://www.share.kurohicncr.top/Article/details/0839908.shtml)
-- 2026-06-29 11:29 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.minike.top/Article/details/47822689151.shtml)
-- 2026-06-29 11:24 - [爱很美味](https://www.share.minike.top/Article/details/6870541.shtml)
-- 2026-06-29 11:38 - [我和我的家乡](http://www.share.minike.top/Article/details/96391187106.shtml)
-- 2026-06-29 11:25 - [媒体人：警惕日本再次成战争加害国](https://www.share.minike.top/Article/details/7830909.shtml)
-- 2026-06-29 11:51 - [人民日报：伊朗队昂着头告别世界杯](http://www.blog.kurohicncr.top/Article/details/69809302633.shtml)
-- 2026-06-29 11:33 - [第一炉香](https://www.blog.minike.top/Article/details/699697688.shtml)
-- 2026-06-29 11:29 - [细节之中抓作风](http://www.blog.kurohicncr.top/Article/details/982195040.shtml)
-- 2026-06-29 11:30 - [韩国记者：解码“合肥模式”](https://www.blog.minike.top/Article/details/565578278.shtml)
-- 2026-06-29 11:30 - [周锡玮：做堂堂正正的中国人](https://www.blog.minike.top/Article/details/53135966.shtml)
-- 2026-06-29 11:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/59046162542.shtml)
-- 2026-06-29 11:40 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.share.kurohicncr.top/Article/details/109463.shtml)
-- 2026-06-29 11:38 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/8357715.shtml)
+- 2026-06-29 11:41 - [新阶人士走进成都高新天府长岛 共话数字文创新未来](http://www.blog.kurohicncr.top/Article/details/21081870.shtml)
+- 2026-06-29 11:32 - [广西兴业县举办“三月三”民族团结系列活动](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [纳微科技7.1亿元定增背后：账面“不差钱” 实控人方减持套现3.8亿](http://www.share.minike.top/Article/details/92777010.shtml)
+- 2026-06-29 11:52 - [多国学者：儒学与伊斯兰智慧 能解世界冲突之困](http://www.share.kurohicncr.top/Article/details/7106558.shtml)
+- 2026-06-29 11:52 - [美国交通部长：空管岗位12小时内收到6000份申请](http://www.blog.kurohicncr.top/Article/details/78664433717.shtml)
+- 2026-06-29 11:36 - [AI复合型人才成“香饽饽” 重庆“才聚两江·照母山”青年人才活动月启幕](http://www.share.kurohicncr.top/Article/details/6573974321.shtml)
+- 2026-06-29 11:30 - [高德公开全球首款开放环境全自主具身机器人，化身智能导盲犬守护视障人士](http://www.blog.kurohicncr.top/Article/details/1311336.shtml)
+- 2026-06-29 11:35 - [广西梧州半程马拉松火热开赛 万名跑者竞速“岭南古郡”](http://www.blog.kurohicncr.top/Article/details/1481470526.shtml)
+- 2026-06-29 11:42 - [侨见重庆武隆 觅文旅、康养合作机遇](http://www.share.minike.top/Article/details/56489510208.shtml)
+- 2026-06-29 11:46 - [美伊谈判在即，A股下周怎么走？8大机构最新研判](http://www.blog.kurohicncr.top/Article/details/5126305.shtml)
+- 2026-06-29 11:53 - [苹果在华复苏将安卓对手甩在身后 iPhone出货量增长20%](http://www.blog.kurohicncr.top/Article/details/500823998.shtml)
+- 2026-06-29 11:32 - [第四届中国地方特色预制菜专题研讨会在江苏扬州召开](http://www.share.kurohicncr.top/Article/details/998458.shtml)
+- 2026-06-29 11:46 - [机器人参加马拉松赛如何散热？高速悬浮泵液冷方案可有效应对](http://www.blog.kurohicncr.top/Article/details/59575516.shtml)
+- 2026-06-29 11:39 - [翰墨因缘聚花海 两岸书画家走进洛阳国家牡丹园采风](http://www.blog.kurohicncr.top/Article/details/2969457953.shtml)
+- 2026-06-29 11:30 - [新易盛传考虑赴香港上市，计划募资30亿美元](http://www.share.minike.top/Article/details/35707017.shtml)

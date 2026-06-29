@@ -1,57 +1,56 @@
-# 300319，直接合作英伟达，股价创历史新高！
+# “小阳春”热度延续，深圳二手房市场正转向“量稳价稳”新阶段
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-近一周机构调研个股有320只，汉钟精机获调研机构数最多。 据证券时报·数据宝统计，近一周，汉钟精机获182家机构调研，包括33家基金公司、33家证券公司、15家私募、12家保险公司等。该公司2025年营业收入29.27亿元，同比下降20.35%；归母净利润4.69亿元，同比下降45.66%。公司2026年一季度营业收入6.89亿元，同比上升13.56%；一季度归母净利润1.22
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：第一财经 业内认为，深圳楼市活跃态势有望在二季度得到延续。 深圳市场上的改善客群正在变得越发活跃。 4月19日，位于深圳南山区的前海豪宅项目招商海晏府开盘，备案均价达14.2万元/平方米，共推出108套房源，首开去化达到9成。“海晏府剩下的几套后来也卖完了。”有深圳当地房地产业内人士透露，“4月改善客
 
 ## 正文
 
-近一周机构调研个股有320只，汉钟精机获调研机构数最多。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-据证券时报·数据宝统计，近一周，汉钟精机获182家机构调研，包括33家基金公司、33家证券公司、15家私募、12家保险公司等。
+来源：第一财经 业内认为，深圳楼市活跃态势有望在二季度得到延续。
 
-该公司2025年营业收入29.27亿元，同比下降20.35%；归母净利润4.69亿元，同比下降45.66%。
+深圳市场上的改善客群正在变得越发活跃。
 
-公司2026年一季度营业收入6.89亿元，同比上升13.56%；一季度归母净利润1.22亿元，同比上升3.3%。
+4月19日，位于深圳南山区的前海豪宅项目招商海晏府开盘，备案均价达14.2万元/平方米，共推出108套房源，首开去化达到9成。
 
-TCL科技、华润微、怡合达、强一股份等个股均有100家以上机构参与调研。
+“海晏府剩下的几套后来也卖完了。
 
-TCL科技在调研中透露，在半导体显示业务方面，TCL华星竞争力继续保持全球领先，业务营收结构更加均衡，单一业务的季节性影响趋弱。
+”有深圳当地房地产业内人士透露，“4月改善客户比较积极。
 
-2025年TCL华星每季度净利润中枢约为20亿元，2026年及长期来看营收利润仍处于增长趋势。
+” 在另一个即将入市的改善项目上亦有相同迹象。
 
-光伏业务方面，经过近两年的努力，公司在过去1—2个季度业务相对竞争力提升已初见成效，今年一季度归母净利润同比改善13.6%，环比改善超50%。
+招商蛇口与华润置地在宝安区开发的观潮府也开盘在即，首推220套房源，备案均价超15万元/平方米，目前冻资客户已超600组。
 
 ## 相关推荐
 
-- 2026-06-29 11:51 - [T1 3-0 TLAW数据雷达图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:36 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:26 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:46 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:45 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:49 - [全球首发核电站彩蛋攻略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:24 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:51 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:43 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:39 - [女子拍邻居家中裸照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:47 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:41 - [美军在阿曼湾拦截并控制一艘伊朗货船](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:41 - [优步以3.18亿美元交易增持外卖平台Delivery Hero股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:42 - [福特召回至多139万辆F-150皮卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:45 - [文化中国行·联播一瞬丨谷雨：春去无憾 夏来有期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:36 - [伊朗民航组织宣布伊朗部分空域重新开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:38 - [李强主持召开国务院常务会议 听取自由贸易试验区建设情况汇报 审议通过《中华人民共和国行政复议法实施条例（修订草案）》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:29 - [超3万名日本民众集会反对高市政权危险动向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:50 - [第44届香港电影金像奖红毯仪式举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:49 - [巴西Simpar以1.215亿雷亚尔出售Ciclus Amazônia股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:47 - [特朗普：若无法达成协议 或将不延长美伊临时停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:22 - [实习期把公司领导开除了](https://www.blog.minike.top/Article/details/9224189510.shtml)
-- 2026-06-29 11:40 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/65153.shtml)
-- 2026-06-29 11:25 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/0494317641.shtml)
-- 2026-06-29 11:24 - [热穹顶来了](http://www.blog.kurohicncr.top/Article/details/186117561.shtml)
-- 2026-06-29 11:39 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/765233992262.shtml)
-- 2026-06-29 11:26 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.blog.kurohicncr.top/Article/details/89232.shtml)
-- 2026-06-29 11:25 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/033491616952.shtml)
-- 2026-06-29 11:27 - [毕业群都在出什么东西](http://www.blog.minike.top/Article/details/75239229.shtml)
-- 2026-06-29 11:27 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/971234045.shtml)
-- 2026-06-29 11:41 - [实习期把公司领导开除了](http://www.share.minike.top/Article/details/59214715589.shtml)
-- 2026-06-29 11:46 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.minike.top/Article/details/798261.shtml)
-- 2026-06-29 11:23 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/740481.shtml)
-- 2026-06-29 11:41 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/79769728.shtml)
-- 2026-06-29 11:50 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/966177529695.shtml)
-- 2026-06-29 11:28 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/049597752.shtml)
+- 2026-06-29 11:30 - [极氪8X正式上市：首次搭载舱驾融合超级智能体，上市限时售价32.98万元起](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [“患者被引荐至私立医院” 涉事医生被停止诊疗并终止聘用合同](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [东方证券与上海证券筹划合并重组，加快推进一流现代投资银行建设](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [涉案金额2.6亿元，我国摧毁山西特大假酒网络](http://www.share.minike.top/Article/details/902562963.shtml)
+- 2026-06-29 11:38 - [浦发银行与中国银联签署全面战略合作协议](http://www.share.kurohicncr.top/Article/details/6629578507.shtml)
+- 2026-06-29 11:36 - [让机器人跑马拉松有什么用？专家：先带动技术发展 再逐步落地应用](http://www.share.kurohicncr.top/Article/details/8227869171.shtml)
+- 2026-06-29 11:44 - [实拍江西上饶“三月三”篝火联欢现场 民众踏歌起舞庆佳节](http://www.blog.minike.top/Article/details/879613875906.shtml)
+- 2026-06-29 11:27 - [万众期待的“霸王”来了！“宿迁子弟何在？”何润东身披甲胄亮相“苏超”现场](http://www.blog.minike.top/Article/details/882691.shtml)
+- 2026-06-29 11:34 - [BOSS直聘-W于4月17日耗资约249.65万美元回购约34.97万股](http://www.share.minike.top/Article/details/5664179127.shtml)
+- 2026-06-29 11:42 - [去年翻倍赚钱的基金，今年怎么样了？](http://www.blog.minike.top/Article/details/1353651649.shtml)
+- 2026-06-29 11:32 - [巴西、西班牙和墨西哥联合呼吁采取措施缓解古巴局势](http://www.blog.minike.top/Article/details/17115987.shtml)
+- 2026-06-29 11:37 - [产品业绩回撤38.53%，昔日百亿私募同犇投资最新回应：从来不是只买消费，AI产业链去年开始就有不少仓位](http://www.blog.kurohicncr.top/Article/details/440415051.shtml)
+- 2026-06-29 11:46 - [金价下跌 霍尔木兹海峡再度中断引发通胀担忧](http://www.share.kurohicncr.top/Article/details/731786628.shtml)
+- 2026-06-29 11:38 - [农业农村部：推动猪价合理回升](http://www.share.minike.top/Article/details/654460592.shtml)
+- 2026-06-29 11:43 - [鼎泰丰“回京”热度不减 稳中求进布局大陆北方市场](http://www.share.minike.top/Article/details/251817233861.shtml)

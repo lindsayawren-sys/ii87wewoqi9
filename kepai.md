@@ -1,56 +1,50 @@
-# 邮储银行两家分行被罚90万元：向公职人员发放个人经营性贷款等
+# 拾光纪·“让互联网更好造福人民、造福世界”，总书记这样嘱托
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-6月5日金融一线消息，国家金融监督管理总局天津监管局行政处罚信息公开表显示，中国邮政储蓄银行股份有限公司天津分行因贷款“三查”不尽职、向公职人员发放个人经营性贷款，被罚款60万元，对乔鹏警告。 中国邮政储蓄银行股份有限公司天津自由贸易试验区分行因向不符合条件固定资产项目发放贷款，被罚款30万元，对崔健警告。 序号 当事人名称 主要违法违规行为 行政处罚内容 作出决定机关 1 中
+视频：拾光纪·“让互联网更好造福人民、造福世界”，总书记这样嘱托来源：人民日报客户端 10年前的4月19日，习近平总书记主持召开网络安全和信息化工作座谈会并发表重要讲话。10年来，我国从网络大国向着网络强国阔步迈进。“让互联网更好造福人民、造福世界”，总书记这样嘱托。
 
 ## 正文
 
-6月5日金融一线消息，国家金融监督管理总局天津监管局行政处罚信息公开表显示，中国邮政储蓄银行股份有限公司天津分行因贷款“三查”不尽职、向公职人员发放个人经营性贷款，被罚款60万元，对乔鹏警告。
+视频：拾光纪·“让互联网更好造福人民、造福世界”，总书记这样嘱托来源：人民日报客户端 10年前的4月19日，习近平总书记主持召开网络安全和信息化工作座谈会并发表重要讲话。
 
-中国邮政储蓄银行股份有限公司天津自由贸易试验区分行因向不符合条件固定资产项目发放贷款，被罚款30万元，对崔健警告。
+10年来，我国从网络大国向着网络强国阔步迈进。
 
-序号 当事人名称 主要违法违规行为 行政处罚内容 作出决定机关 1 中国邮政储蓄银行股份有限公司天津分行 贷款“三查”不尽职、向公职人员发放个人经营性贷款 对中国邮政储蓄银行股份有限公司天津分行罚款60万元。
-
-对乔鹏警告。
-
-国家金融监督管理总局天津监管局 2 中国邮政储蓄银行股份有限公司天津自由贸易试验区分行 向不符合条件固定资产项目发放贷款 对中国邮政储蓄银行股份有限公司天津自由贸易试验区分行罚款30万元。
-
-对崔健警告。
-
-国家金融监督管理总局天津监管局 责任编辑：曹睿潼
+“让互联网更好造福人民、造福世界”，总书记这样嘱托。
 
 ## 相关推荐
 
-- 2026-06-29 11:24 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:42 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:33 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:42 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:28 - [全球首发核电站彩蛋攻略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:27 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:22 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:42 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:40 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:22 - [韩国主教练连夜下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:48 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:37 - [女子拍邻居家中裸照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:47 - [度小满冠名《浪姐7》陷舆论反噬：透视助贷平台下沉的困局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:40 - [2026江苏省侨界中餐厨艺大赛在无锡启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:40 - [中信建投：创业板新高后，还有多少空间？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:31 - [多国客商齐聚河南长垣 共觅起重装备商机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:46 - [书香换花香 浙江杭州孔庙书市启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:44 - [2026年河南省篮球城市联赛在古都安阳开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:46 - [特斯拉：目前并无在上海超级工厂量产机器人的具体计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:44 - [为投资者创收1619亿元！一季度理财“成绩单”来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:26 - [美国精神航空公司考虑清算](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:29 - [从汽车到易拉罐：伊朗战争如何冲击全球铝供应链](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:37 - [东西问丨阿齐赞·巴哈鲁丁：“文明冲突论”必须让位于“和平共处论”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:32 - [侧记：一座园林连中法，解码园博会背后的“侨”味道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:49 - [海外华媒侨领走进世界自然遗产地 感受喀斯特地貌奇观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:43 - [四大证券报头版头条内容精华摘要_2026年4月20日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](http://www.blog.kurohicncr.top/Article/details/38881.shtml)
-- 2026-06-29 11:27 - [杨紫李现16年情谊藏于行动](http://www.blog.kurohicncr.top/Article/details/3552703.shtml)
-- 2026-06-29 11:42 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/16478924159.shtml)
-- 2026-06-29 11:32 - [Mrbeast的30天不吃饭挑战](http://www.share.kurohicncr.top/Article/details/55838.shtml)
-- 2026-06-29 11:27 - [Agent带来token消耗爆炸](https://www.share.kurohicncr.top/Article/details/790020465170.shtml)
-- 2026-06-29 11:40 - [曝太阳黄蜂完成阵容互换+签位置换](https://www.share.kurohicncr.top/Article/details/563122303.shtml)
-- 2026-06-29 11:31 - [欧洲超1300例超额死亡与高温有关](http://www.share.minike.top/Article/details/277527965.shtml)
-- 2026-06-29 11:31 - [加拿大92分钟绝杀南非](https://www.share.minike.top/Article/details/24527252196.shtml)
-- 2026-06-29 11:22 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/631312134248.shtml)
-- 2026-06-29 11:33 - [世界杯打成了欧洲杯和美洲杯](http://www.blog.kurohicncr.top/Article/details/56726215.shtml)
-- 2026-06-29 11:51 - [金刚川](http://www.share.minike.top/Article/details/0083963146.shtml)
-- 2026-06-29 11:40 - [韩国队如何把94%出线概率打到0%](https://www.blog.kurohicncr.top/Article/details/351259.shtml)
-- 2026-06-29 11:32 - [南非门将单场77次成功传球](http://www.share.minike.top/Article/details/129954.shtml)
-- 2026-06-29 11:31 - [立陶宛为何此时生变](https://www.blog.minike.top/Article/details/810148.shtml)
-- 2026-06-29 11:29 - [明星大侦探第一季](https://www.share.minike.top/Article/details/787607431504.shtml)
+- 2026-06-29 11:24 - [习近平文化思想引领书香社会建设](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [新疆和田县群众治沙：沙地成自家“聚宝盆”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [总书记引领强国之路｜共建美好网络家园](http://www.blog.kurohicncr.top/Article/details/998796.shtml)
+- 2026-06-29 11:26 - [从多轮冻结到易主在即 兰州银行第三大股东清仓式法拍！3.01亿股5月13日开槌 起拍总价近7亿元](http://www.share.kurohicncr.top/Article/details/11799.shtml)
+- 2026-06-29 11:41 - [“霸王”助阵“苏超” 文旅体商融合新答卷](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [价格大涨650%，国产光纤全球爆单，年内诞生3只翻倍股](http://www.share.kurohicncr.top/Article/details/43257681.shtml)
+- 2026-06-29 11:46 - [“小阳春”热度延续，深圳二手房市场正转向“量稳价稳”新阶段](http://www.blog.minike.top/Article/details/4951368.shtml)
+- 2026-06-29 11:51 - [谷雨：祛湿排浊，双臂“甩起来”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [中东股市：霍尔木兹海峡局势再起变数，停火乐观预期降温，海湾股指走势低迷](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [牛弹琴：美伊这出戏，编剧都不敢这样写](http://www.blog.kurohicncr.top/Article/details/068248296505.shtml)
+- 2026-06-29 11:26 - [强化长效约束，券商薪酬管理制度迎来重大修订](http://www.share.kurohicncr.top/Article/details/389702801.shtml)
+- 2026-06-29 11:51 - [AI算力重塑创业逻辑 郑州航空港区探索“轻创业”新路径](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:28 - [国元保险原董事长被查，收超400万罚单，成监管“重点户”](http://www.blog.minike.top/Article/details/5929983093.shtml)
+- 2026-06-29 11:25 - [美军在阿曼湾拦截并控制一艘伊朗货船](http://www.blog.minike.top/Article/details/4198944.shtml)
+- 2026-06-29 11:28 - [优步以3.18亿美元交易增持外卖平台Delivery Hero股份](http://www.share.kurohicncr.top/Article/details/41724524.shtml)

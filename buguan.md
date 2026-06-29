@@ -1,59 +1,57 @@
-# “2026·全球人权治理高端论坛”将在北京举行
+# 拼多多因“幽灵外卖”被罚，法定代表人赵佳臻被处693.73万元罚款
 
-> 更新时间：2026-06-29 11:52:29 UTC+8
+> 更新时间：2026-06-29 11:54:05 UTC+8
 
 ## 摘要
 
-中新网北京6月8日电 (记者 李京泽 黄钰钦)中国外交部发言人林剑8日主持例行记者会。 有记者提问：据了解，“2026·全球人权治理高端论坛”将于6月11日至12日在北京举行，以纪念联合国《发展权利宣言》通过40周年为契机，探讨全球人权治理议题。中方能否介绍有关情况？ 林剑：“2026·全球人权治理高端论坛”将于6月11日至12日在北京举行，来自近百个国家和联合国等国际和地区组
+4月17日，市场监管总局依法对上海寻梦信息技术有限公司（拼多多）、北京三快科技有限公司（美团）、北京京东叁佰陆拾度电子商务有限公司（京东）、上海拉扎斯信息科技有限公司（原饿了么，现淘宝闪购）、北京抖音科技有限公司（抖音）、浙江淘宝网络有限公司（淘宝）、浙江天猫网络有限公司（天猫）等7家电商平台“幽灵外卖”系列案，依据《中华人民共和国食品安全法》第一百三十一条、《中华人民共和国电
 
 ## 正文
 
-中新网北京6月8日电 (记者 李京泽 黄钰钦)中国外交部发言人林剑8日主持例行记者会。
+4月17日，市场监管总局依法对上海寻梦信息技术有限公司（拼多多）、北京三快科技有限公司（美团）、北京京东叁佰陆拾度电子商务有限公司（京东）、上海拉扎斯信息科技有限公司（原饿了么，现淘宝闪购）、北京抖音科技有限公司（抖音）、浙江淘宝网络有限公司（淘宝）、浙江天猫网络有限公司（天猫）等7家电商平台“幽灵外卖”系列案，依据《中华人民共和国食品安全法》第一百三十一条、《中华人民共和国电子商务法》第八十三条的规定作出行政处罚决定，责令7家电商平台改正违法行为，暂停新增蛋糕店铺3至9个月不等，并处以罚没款共计35.97亿元。
 
-有记者提问：据了解，“2026·全球人权治理高端论坛”将于6月11日至12日在北京举行，以纪念联合国《发展权利宣言》通过40周年为契机，探讨全球人权治理议题。
+同时，依据《中华人民共和国食品安全法实施条例》第七十五条的规定，对7家平台企业法定代表人和食品安全总监合计处以罚款1968.74万元。
 
-中方能否介绍有关情况？
+经查，上述7家电商平台对入网食品经营者许可证审核把关不严，未依法履行资质审查义务；与转单平台签订合作协议，明知或应知转单行为侵害消费者合法权益，但未采取必要措施；7家电商平台法定代表人和食品安全总监，负有食品安全管理责任，但未全面履行有关岗位职责。
 
-林剑：“2026·全球人权治理高端论坛”将于6月11日至12日在北京举行，来自近百个国家和联合国等国际和地区组织的400余名中外嘉宾将应邀与会。
+上述行为严重违反《中华人民共和国食品安全法》《中华人民共和国电子商务法》《中华人民共和国食品安全法实施条例》有关规定。
 
-论坛以“携手发展 共享人权：《发展权利宣言》通过40周年与全球人权治理新愿景”为主题，由中国国务院新闻办公室与外交部共同主办。
+案件启动调查后，市场监管总局第一时间责成电商平台立行立改，7家电商平台均已下架未经审核的有关“幽灵店铺”，停止与相关转单平台的餐饮转单合作。
 
-除开幕式和全体会议外，论坛将围绕全球治理倡议的人权意义、发展权在全球人权发展中的地位和作用、人工智能时代的发展权利保障与新挑战、绿色发展与人权保障、现代化与人的自由全面发展等议题设5个分论坛。
+国家市场监督管理总局 行政处罚决定书 国市监处罚〔2026〕23号 当事人：赵佳臻 身份证件类型：居民身份证 身份证件号码：略 住址：略 上海寻梦信息技术有限公司存在未依法履行资质审查义务的违法行为，本局于2025年12月8日依法立案调查，当事人系该公司法定代表人。
 
-中方期待各方围绕“以发展促进人权”理念交流互鉴、凝聚共识，携手实现《发展权利宣言》勾勒的美好愿景，共建公正合理包容的全球人权治理体系。
+本局通过核查平台数据、询问相关人员、调取收入证明、提取书证、电子数据等方式，确定其违法事实。
 
-(完）
+上海寻梦信息技术有限公司作为网络食品交易第三方平台提供者，未依法履行资质审查义务，本局已决定依据《中华人民共和国食品安全法》第一百三十一条第一款“违反本法规定，网络食品交易第三方平台提供者未对入网食品经营者进行实名登记、审查许可证，或者未履行报告、停止提供网络交易平台服务等义务的，由县级以上人民政府食品安全监督管理部门责令改正，没收违法所得，并处五万元以上二十万元以下罚款；造成严重后果的，责令停业，直至由原发证部门吊销许可证；使消费者的合法权益受到损害的，应当与食品经营者承担连带责任”的规定，对上海寻梦信息技术有限公司给予行政处罚。
 
 ## 相关推荐
 
-- 2026-06-29 11:30 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:42 - [原来衣着打扮会影响对自己的感知](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:45 - [本届世界杯黑马扎堆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:26 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:36 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:29 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:30 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:29 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:43 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:51 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:29 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:33 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:29 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:32 - [千年古刹云居山谷雨见闻：一叶“攒林茶” 农禅指尖传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:38 - [灿能电力拟每10股派息1.66元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:26 - [光鲜销售下的深层危机：亚盛医药的盈利困局与三大致命风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:29 - [东方证券收购上海证券，又多了一家“前途未卜”的公募，上海证券持有100%股权的前海联合基金咋办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:37 - [巴基斯坦称已为所有“特殊访客”做好特别安保安排](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:36 - [天臣控股拟折让21.05%配售最多7000万股 净筹约1.03亿港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:32 - [西南大学120周年校庆高质量发展大会举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:37 - [日本突发7.5级强震 震中附近有多个核电站](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:35 - [青海果洛：凝聚青年力量 共育民族团结之花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:38 - [村里有了“小而美” 游客爱上“慢时光”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:37 - [广交会观察：中东局势扰动下参展商采购商同觅“新出路”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:26 - [温峥嵘直播回应恶评](http://www.blog.minike.top/Article/details/732804755470.shtml)
-- 2026-06-29 11:51 - [永远保持对人民的赤子之心](http://www.blog.minike.top/Article/details/890336075920.shtml)
-- 2026-06-29 11:27 - [世界杯小组赛阶段过人榜：马扎居首](https://www.share.minike.top/Article/details/411482871.shtml)
-- 2026-06-29 11:48 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.kurohicncr.top/Article/details/2021806.shtml)
-- 2026-06-29 11:24 - [广州某高校辟谣禁止小米汽车入校](https://www.blog.minike.top/Article/details/74247.shtml)
-- 2026-06-29 11:25 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/572003915.shtml)
-- 2026-06-29 11:40 - [高超感谢女友王佳欣](http://www.share.kurohicncr.top/Article/details/22074471204.shtml)
-- 2026-06-29 11:25 - [高考结束了，你会让孩子在家玩手机吗？](https://www.share.minike.top/Article/details/814151812495.shtml)
-- 2026-06-29 11:34 - [沉睡花园](https://www.blog.minike.top/Article/details/338051324733.shtml)
-- 2026-06-29 11:36 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/564522579.shtml)
-- 2026-06-29 11:47 - [105年初心滚烫](http://www.share.kurohicncr.top/Article/details/5587269936.shtml)
-- 2026-06-29 11:23 - [网友偶遇胡军和李乃文](http://www.blog.minike.top/Article/details/733946617669.shtml)
-- 2026-06-29 11:38 - [岭南电影为何迎来“南方热”](https://www.share.minike.top/Article/details/108464982.shtml)
-- 2026-06-29 11:48 - [迈巴赫提车第二天发现大灯起雾](https://www.share.minike.top/Article/details/54805112.shtml)
-- 2026-06-29 11:41 - [去美国加油？部分加拿大球迷陷入纠结](http://www.blog.minike.top/Article/details/286226527362.shtml)
+- 2026-06-29 11:29 - [“90后”侨青走进上海虹口 读懂城市文脉与发展活力](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [“寒潮”来袭！理财产品规模一季度缩水1.38万亿，投资者收益同比降低21%](http://www.blog.kurohicncr.top/Article/details/6844360.shtml)
+- 2026-06-29 11:31 - [一季度广东货物以海运方式经海南自贸港进出口同比增长25%](http://www.blog.kurohicncr.top/Article/details/4604759377.shtml)
+- 2026-06-29 11:28 - [特朗普过去24小时都忙了什么？（2026-04-19）](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:24 - [A股“股王”更替见证中国经济新力量](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:30 - [北京：香椿宴带动京郊游 衍生品丰富山村体验](http://www.share.minike.top/Article/details/51065348195.shtml)
+- 2026-06-29 11:33 - [又见内幕交易？霍尔木兹开放前20分钟，神秘交易员7.6亿美元精准做空原油，已被调查](http://www.share.kurohicncr.top/Article/details/9261168.shtml)
+- 2026-06-29 11:32 - [AI赋能文旅 2026西安丝路旅博会展示文旅科技新业态](http://www.share.kurohicncr.top/Article/details/81476.shtml)
+- 2026-06-29 11:49 - [4月20日人民币对美元中间价报6.8648 下调26个基点](http://www.blog.minike.top/Article/details/60319.shtml)
+- 2026-06-29 11:25 - [新的社会阶层人士开展“寻美‘广西三月三’ 数智共铸民族情”活动](http://www.blog.kurohicncr.top/Article/details/60957680442.shtml)
+- 2026-06-29 11:35 - [港交所的新挑战与“护城河”](http://www.blog.minike.top/Article/details/973462.shtml)
+- 2026-06-29 11:25 - [报告称中小微外贸企业出口保持韧性 定价权稳步提升](http://www.blog.minike.top/Article/details/183717.shtml)
+- 2026-06-29 11:48 - [政策持续催化！绿电概念股4天2板，电力ETF华宝（159146）涨逾1%，超2.8亿资金悄悄加码！](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [美军封锁期间 驱逐舰尾随满载伊朗原油的油轮](http://www.share.kurohicncr.top/Article/details/290730437281.shtml)
+- 2026-06-29 11:42 - [昆明至泰戈尔故乡加尔各答直飞航线复航 各方热盼新机遇](http://www.share.minike.top/Article/details/172698221497.shtml)
