@@ -1,58 +1,61 @@
-# 亿道信息7亿元并购调查：标的公司千万级直销客户业务，缘何交由一家 “合伙企业” 承接？
+# 报告：智能物流将成推动京津冀协同新引擎
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 每经记者｜赵李南 每经编辑｜杜宇 此前，亿道信息（SZ001314，股价57.84元，市值82.50亿元）公告称，拟以约7.15亿元的对价并购深圳市成为信息股份有限公司（以下简称成为信息）100%股权。据亿道信息公告，成为信息2025年前三季度的第一大客户为E Headway Media，系成为信息在印度的经销商。《每日经济新闻
+中新网北京6月18日电 (陈杭 韩莹莹 祁琪)18日在北京发布的《京津冀蓝皮书：京津冀物流协同发展报告(2025)》提出，智能物流将成为推动京津冀协同的新引擎。人工智能、大数据、物联网等新一代信息技术将深入应用于仓储调度、运输路径优化、冷链监控及供应链管理，实现物流全过程的智能感知与决策。三地计划共建“京津冀数智物流协同平台”，有利于推动信息系统互联互通与数据资源共享，提升区域
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 每经记者｜赵李南 每经编辑｜杜宇 此前，亿道信息（SZ001314，股价57.84元，市值82.50亿元）公告称，拟以约7.15亿元的对价并购深圳市成为信息股份有限公司（以下简称成为信息）100%股权。
+中新网北京6月18日电 (陈杭 韩莹莹 祁琪)18日在北京发布的《京津冀蓝皮书：京津冀物流协同发展报告(2025)》提出，智能物流将成为推动京津冀协同的新引擎。
 
-据亿道信息公告，成为信息2025年前三季度的第一大客户为E Headway Media，系成为信息在印度的经销商。
+人工智能、大数据、物联网等新一代信息技术将深入应用于仓储调度、运输路径优化、冷链监控及供应链管理，实现物流全过程的智能感知与决策。
 
-《每日经济新闻》记者（下称“每经记者”）调查发现，在印度官方公司注册网站上，查不到这家第一大客户。
+三地计划共建“京津冀数智物流协同平台”，有利于推动信息系统互联互通与数据资源共享，提升区域物流网络运行的整体效率与安全性。
 
-这意味着E Headway Media很可能是个体户或合伙企业。
+报告由北京物资学院北京现代物流研究基地组织编写。
 
-亿道信息方面回应每经记者采访时称，E Headway Media为普通合伙企业。
+根据报告，京津冀物流一体化进入以“质量提升、协同深化、绿色转型”为特征的新阶段，区域一体化体系和数智化基础初步形成，协同效应逐步显现。
 
-2025年，成为信息将其印度的千万级直销大客户转交给了E Headway Media承接。
+报告指出，展望未来，京津冀物流协同将继续朝“数智化、绿色化、一体化、高质量”四大发展方向推进。
 
-广东华商律师事务所对亿道信息的此次并购案，出具了法律意见书。
+未来三地将依托既有的交通网络和产业布局，进一步推进跨区域物流基础设施互联互通。
 
-值得注意的是，该法律意见书提供了成为信息主要经销商的基本情况。
+通过统一的区域规划，形成港口、空港、铁路、公路、内陆港及物流园区的协同网络，构建覆盖全区域的高效物流通道体系。
 
 ## 相关推荐
 
-- 2026-06-29 13:39 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-29 13:54 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 13:32 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 13:34 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 13:37 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 13:31 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 13:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-29 13:31 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 13:35 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 13:33 - [加拿大92分钟绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-29 13:24 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 13:43 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 13:59 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-29 13:42 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-29 13:35 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-29 13:48 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-29 13:35 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 13:48 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 13:35 - [双高胎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-29 13:39 - [恋与深空底线不该被娱乐化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 13:36 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-29 13:33 - [民进党为什么拼命抹黑统战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-29 13:46 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 13:55 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 13:53 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 13:51 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 13:52 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:36 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/608506604.shtml)
-- 2026-06-29 13:48 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/39939023611.shtml)
-- 2026-06-29 13:29 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/648467355.shtml)
-- 2026-06-29 13:27 - [未来5年全国能源体系将呈现这些特征](https://www.blog.minike.top/Article/details/009015553349.shtml)
-- 2026-06-29 13:35 - [男子偶遇婴儿被锁车内大哭挣扎](https://www.blog.minike.top/Article/details/8859742.shtml)
-- 2026-06-29 13:49 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/433467378.shtml)
-- 2026-06-29 13:41 - [上周末 多领域成果密集“上新”](https://www.blog.minike.top/Article/details/39108293552.shtml)
-- 2026-06-29 13:39 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/7954935409.shtml)
-- 2026-06-29 13:24 - [Agent带来token消耗爆炸](https://www.blog.kurohicncr.top/Article/details/56371233.shtml)
-- 2026-06-29 13:27 - [游戏数据被用于军事目的 国安部提醒](http://www.share.kurohicncr.top/Article/details/124864870.shtml)
-- 2026-06-29 13:33 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/818520314.shtml)
-- 2026-06-29 13:37 - [北极荒岛生存挑战](http://www.blog.kurohicncr.top/Article/details/20135.shtml)
-- 2026-06-29 13:34 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/5873112.shtml)
-- 2026-06-29 13:42 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](http://www.share.kurohicncr.top/Article/details/97051.shtml)
-- 2026-06-29 13:25 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/89736518.shtml)
+- 2026-06-29 13:40 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/3398087067.shtml)
+- 2026-06-29 13:59 - [时光音乐会](http://www.share.minike.top/Article/details/97930255178.shtml)
+- 2026-06-29 13:48 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/0437786.shtml)
+- 2026-06-29 13:38 - [中方回应对日本相关出口管制措施](http://www.blog.minike.top/Article/details/05925294.shtml)
+- 2026-06-29 13:59 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/54303590.shtml)
+- 2026-06-29 13:31 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.blog.kurohicncr.top/Article/details/04849.shtml)
+- 2026-06-29 13:50 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/76564642.shtml)
+- 2026-06-29 13:30 - [韩国拟将部分刑责年龄降至13岁](http://www.share.kurohicncr.top/Article/details/576734.shtml)
+- 2026-06-29 13:38 - [王佳佳江疏影13年前后同框对比](http://www.share.minike.top/Article/details/5438447494.shtml)
+- 2026-06-29 13:35 - [光与夜之恋](https://www.blog.minike.top/Article/details/569258522.shtml)
+- 2026-06-29 13:34 - [上周末 多领域成果密集“上新”](http://www.blog.kurohicncr.top/Article/details/7029355.shtml)
+- 2026-06-29 13:38 - [广州某高校辟谣禁止小米汽车入校](https://www.blog.minike.top/Article/details/48940455647.shtml)
+- 2026-06-29 13:45 - [和阿根廷球员家属一起看球](http://www.share.minike.top/Article/details/87905858.shtml)
+- 2026-06-29 13:46 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/97894.shtml)
+- 2026-06-29 13:46 - [向佑说向佐是一生依靠](https://www.share.minike.top/Article/details/8146693.shtml)

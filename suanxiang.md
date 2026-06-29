@@ -1,59 +1,59 @@
-# 华泰期货：海峡通航仍未恢复，燃料油市场结构存在支撑
+# 复购率61%、尾款付款率大涨27%：辛选初瑞雪618激活内需潜力
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 康远宁 市场分析 本周燃料油期货市场表现：市场仍围绕中东地缘局势进行交易。本周传闻美伊接近达成停战谅解备忘录，市场对霍尔木兹海峡重新开放的预期增加，国际油价一度大幅回撤，并带动燃料油价格下跌。然而，截至目前事态并未真正明朗，海峡维持封锁状态，油价依然处于相对高位区间。FU主力合约周度跌幅录得4.49%，LU主力合约周度跌幅录得6.28%。 供应方面：在美
+每年"618"都是观察国内消费趋势的重要窗口。今年，"悦己消费"成为年中大促关键词——消费者更愿意为取悦自己、提升生活品质的商品买单。据了解，辛选集团董事长初瑞雪带领团队精准把握中青年悦己消费需求，辛选618大促各项运营数据全线走高，交出亮眼答卷。 数据显示，今年618期间，初瑞雪直播间40岁以下年轻成交用户占比达到66%，年轻客群规模创下历史新高。同时辛选整体大促业绩稳步攀升
 
 ## 正文
 
-来源：华泰期货 作者： 康远宁 市场分析 本周燃料油期货市场表现：市场仍围绕中东地缘局势进行交易。
+每年"618"都是观察国内消费趋势的重要窗口。
 
-本周传闻美伊接近达成停战谅解备忘录，市场对霍尔木兹海峡重新开放的预期增加，国际油价一度大幅回撤，并带动燃料油价格下跌。
+今年，"悦己消费"成为年中大促关键词——消费者更愿意为取悦自己、提升生活品质的商品买单。
 
-然而，截至目前事态并未真正明朗，海峡维持封锁状态，油价依然处于相对高位区间。
+据了解，辛选集团董事长初瑞雪带领团队精准把握中青年悦己消费需求，辛选618大促各项运营数据全线走高，交出亮眼答卷。
 
-FU主力合约周度跌幅录得4.49%，LU主力合约周度跌幅录得6.28%。
+数据显示，今年618期间，初瑞雪直播间40岁以下年轻成交用户占比达到66%，年轻客群规模创下历史新高。
 
-供应方面：在美以与伊朗双方的冲突爆发后，中东地区石油供应面临巨大冲击。
+同时辛选整体大促业绩稳步攀升，破亿直播场次达11场，同比上涨22%；旗下6位主播GMV实现翻倍增长，其中徐杰GMV同比增长657%，刘小啦、张博分别同比增长390%、387%，主播矩阵增长势能强劲。
 
-由于霍尔木兹海峡被封锁，波斯湾燃料油出口受到阻断，从品质上看中东生产燃料油以高硫为主。
+悦己不盲从，品质成核心竞争力 年轻人“悦己”却不盲目。
 
-参考Kpler口径，2025年波斯湾整体高硫燃料油月均发货量估计在337.6万吨，大概占到全球高硫燃料油海运发货量的29%。
+初瑞雪在接受采访时表示："单纯'321上链接'已难以打动用户，沉下心做好品质、守住口碑才是根本。
 
-目前海峡通行的油轮数量依然维持低位，从船期数据来看，中东4月高硫燃料油发货量预计在71万吨，环比减少68万吨，同比下降332万吨，5月份截止目前的发货量预计在45万吨。
+"今年618，辛选美妆、健康养生、珠宝服饰等“悦己”属性突出的品类贡献显著增量，美容仪、钻戒、真皮大床等跻身销量榜前列。
 
 ## 相关推荐
 
-- 2026-06-29 13:41 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-29 13:50 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-29 13:39 - [T1对战KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-29 13:41 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 13:31 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-29 13:51 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-29 13:33 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 13:50 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 13:33 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 13:53 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 13:45 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 13:29 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 13:50 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 13:57 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-29 13:31 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-29 13:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-29 13:38 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-29 13:43 - [DSpark论文深度解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 13:55 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-29 13:48 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 13:40 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 13:51 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-29 13:35 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-29 13:56 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-29 13:41 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 13:49 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:42 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/13709641.shtml)
-- 2026-06-29 13:24 - [赵今麦客串电影版开端](http://www.blog.kurohicncr.top/Article/details/55017937837.shtml)
-- 2026-06-29 13:30 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/42377532310.shtml)
-- 2026-06-29 13:39 - [向佑说向佐是一生依靠](http://www.share.kurohicncr.top/Article/details/89352.shtml)
-- 2026-06-29 13:38 - [为什么欧洲人不装空调](http://www.blog.kurohicncr.top/Article/details/858559771.shtml)
-- 2026-06-29 13:35 - [河南考699分女生已接到清华大学电话](http://www.blog.minike.top/Article/details/984290.shtml)
-- 2026-06-29 13:32 - [海军舰艇编队将赴香港](http://www.blog.kurohicncr.top/Article/details/378834.shtml)
-- 2026-06-29 13:46 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/49176413.shtml)
-- 2026-06-29 13:31 - [吴海燕兰西雅漫步复兴岛](https://www.blog.kurohicncr.top/Article/details/032743.shtml)
-- 2026-06-29 13:32 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/82689887.shtml)
-- 2026-06-29 13:31 - [比亚迪为什么卖得越多市值越低](https://www.blog.minike.top/Article/details/17714774.shtml)
-- 2026-06-29 13:47 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/197872543542.shtml)
-- 2026-06-29 13:35 - [俄称继续推进 乌称打击俄军设施](http://www.share.minike.top/Article/details/4981549.shtml)
-- 2026-06-29 13:30 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/529700.shtml)
-- 2026-06-29 13:50 - [天道](http://www.blog.kurohicncr.top/Article/details/9237590.shtml)
+- 2026-06-29 13:32 - [欧洲超1300例超额死亡与高温有关](http://www.blog.minike.top/Article/details/0327812467.shtml)
+- 2026-06-29 13:39 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.share.minike.top/Article/details/660214891.shtml)
+- 2026-06-29 13:40 - [加拿大女球迷玩人浪把手机甩飞](http://www.share.minike.top/Article/details/02913677888.shtml)
+- 2026-06-29 13:34 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.share.minike.top/Article/details/90642506526.shtml)
+- 2026-06-29 13:58 - [前国足主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/96885467583.shtml)
+- 2026-06-29 13:34 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/11537046181.shtml)
+- 2026-06-29 13:33 - [F1奥地利大奖赛正赛集锦](http://www.blog.minike.top/Article/details/182282.shtml)
+- 2026-06-29 13:57 - [如果你一直单身，你准备怎么养老？](http://www.share.minike.top/Article/details/510396472587.shtml)
+- 2026-06-29 13:39 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.minike.top/Article/details/6452532.shtml)
+- 2026-06-29 13:48 - [内马尔世界杯期间豪购百万美元腕表](https://www.blog.minike.top/Article/details/2253286805.shtml)
+- 2026-06-29 13:31 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/085072029897.shtml)
+- 2026-06-29 13:42 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/4315169897.shtml)
+- 2026-06-29 13:46 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/00987533.shtml)
+- 2026-06-29 13:40 - [日本前锋言论激怒巴西](https://www.share.minike.top/Article/details/78514.shtml)
+- 2026-06-29 13:53 - [世界杯超牛补水广告出现了](https://www.share.kurohicncr.top/Article/details/25886943.shtml)

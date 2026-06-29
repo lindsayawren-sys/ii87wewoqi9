@@ -1,60 +1,55 @@
-# 摩根大通策略师：下半年维持做多新兴市场股票立场
+# 免费拎包入住：厦门“一张床”惠及两岸大学生上万人次
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-摩根大通策略师表示，新兴市场股票有望在今年下半年迎来新一轮显著反弹，继续看好该类资产表现优于发达市场股票。 由米斯拉夫・马泰伊卡领衔的策略师团队称，人工智能投资热潮仍在延续；而新兴市场相关标的估值更低、上行潜力更大。 团队预判后续美债收益率走低、美元走弱，将利好新兴市场股市。 预计伊朗局势趋于稳定，缓解市场对原油供应的担忧。 新兴市场当前估值吸引力凸显：相对市盈率较发达市场处于
+发布时间：2026年06月20日 19:37 来源：中国新闻网 近年来，厦门针对高校毕业生在该市不同阶段的居住难题，构建求职“一张床”、就业“一间屋”、安家“一套房”阶梯式全链条住房保障体系。该政策将求职、见习实习期间的高校大学生纳入保障范围，提供免费过渡性住宿，毕业 3年内来厦门求职、见习或在校大学生来厦门实习均可申请，按2至3人一间安排，每人累计可享12个月免费住宿。 中新
 
 ## 正文
 
-摩根大通策略师表示，新兴市场股票有望在今年下半年迎来新一轮显著反弹，继续看好该类资产表现优于发达市场股票。
+发布时间：2026年06月20日 19:37 来源：中国新闻网 近年来，厦门针对高校毕业生在该市不同阶段的居住难题，构建求职“一张床”、就业“一间屋”、安家“一套房”阶梯式全链条住房保障体系。
 
-由米斯拉夫・马泰伊卡领衔的策略师团队称，人工智能投资热潮仍在延续；而新兴市场相关标的估值更低、上行潜力更大。
+该政策将求职、见习实习期间的高校大学生纳入保障范围，提供免费过渡性住宿，毕业 3年内来厦门求职、见习或在校大学生来厦门实习均可申请，按2至3人一间安排，每人累计可享12个月免费住宿。
 
-团队预判后续美债收益率走低、美元走弱，将利好新兴市场股市。
+中新社记者走进厦门市首个大学“一张床”公寓——围里公寓，该公寓总计提供2421张人才床位，还专门预留150张床位供台湾青年申请。
 
-预计伊朗局势趋于稳定，缓解市场对原油供应的担忧。
+该公寓配套齐全可“拎包入住”，公共区域设有招聘对接室等功能空间，全方位便利大学生生活与求职，端午期间，围里公寓组织技能培训、香囊制作等活动，让求职学子感受到节日暖意。
 
-新兴市场当前估值吸引力凸显：相对市盈率较发达市场处于历史极低水平，同时机构低配仓位仍处低位，资金流入节奏正在加快。
+目前，厦门已在该市湖里区、集美区和海沧区布局6个居住点，累计惠及大学生1.4万余人次。
 
-欧洲市场方面，强烈看好矿业、半导体及工业板块。
-
-周期类消费股下半年行情有望改善，目前估值处于相对低位；但需注意，在伊朗冲突出现明确缓和迹象前，这类板块很难迎来强势表现。
-
-责任编辑：刘明亮
+(记者 李思源) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 13:24 - [王楚钦美国大满贯晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 13:34 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 13:46 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-29 13:43 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 13:42 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 13:52 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-29 13:38 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 13:47 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-29 13:44 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 13:43 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-29 13:39 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 13:39 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-29 13:53 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-29 13:29 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-29 13:38 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-29 13:55 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 13:54 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-29 13:44 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 13:53 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 13:31 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 13:37 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-29 13:44 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-29 13:48 - [东部机场集团新增釜山航线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-29 13:58 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 13:56 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-29 13:48 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 13:40 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:49 - [世界杯超牛补水广告出现了](https://www.share.minike.top/Article/details/93857153611.shtml)
-- 2026-06-29 13:32 - [比亚迪市值为何蒸发8000亿](http://www.blog.minike.top/Article/details/71876.shtml)
-- 2026-06-29 13:46 - [白宇摘下白玉兰送给杨幂](http://www.blog.minike.top/Article/details/38555926398.shtml)
-- 2026-06-29 13:24 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://www.blog.minike.top/Article/details/39884.shtml)
-- 2026-06-29 13:34 - [原来大雷哥给杨紫准备了三件祖海高定](https://www.blog.minike.top/Article/details/9283235.shtml)
-- 2026-06-29 13:41 - [志愿选择倒计时！浙大学生送祝福](https://www.blog.minike.top/Article/details/507317847851.shtml)
-- 2026-06-29 13:33 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/6101679.shtml)
-- 2026-06-29 13:48 - [中俄联合巡航阵容强大 日本慌了？](https://www.share.minike.top/Article/details/713121532.shtml)
-- 2026-06-29 13:37 - [欧洲超1300例超额死亡与高温有关](http://www.share.minike.top/Article/details/99961191531.shtml)
-- 2026-06-29 13:29 - [南部战区位南海海域进行例行巡航](https://www.blog.kurohicncr.top/Article/details/09375.shtml)
-- 2026-06-29 13:51 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://www.share.kurohicncr.top/Article/details/1801664833.shtml)
-- 2026-06-29 13:25 - [F1奥地利大奖赛正赛集锦](https://www.blog.minike.top/Article/details/110948256309.shtml)
-- 2026-06-29 13:50 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/003413.shtml)
-- 2026-06-29 13:52 - [撒旦的腋窝是什么比喻](http://www.blog.kurohicncr.top/Article/details/505378610534.shtml)
-- 2026-06-29 13:52 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/1663920655.shtml)
+- 2026-06-29 13:49 - [媒体：这一次合肥芜湖在伯仲之间](http://www.blog.kurohicncr.top/Article/details/8704010.shtml)
+- 2026-06-29 13:57 - [毕业群都在出什么东西](https://www.blog.minike.top/Article/details/3629523.shtml)
+- 2026-06-29 13:46 - [A股](http://www.blog.kurohicncr.top/Article/details/0574163.shtml)
+- 2026-06-29 13:30 - [加拿大绝杀南非晋级](http://www.share.kurohicncr.top/Article/details/290705598.shtml)
+- 2026-06-29 13:47 - [中央气象台发布强对流天气蓝色预警](https://www.blog.minike.top/Article/details/97039424.shtml)
+- 2026-06-29 13:39 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.blog.kurohicncr.top/Article/details/721180144.shtml)
+- 2026-06-29 13:43 - [韩国主帅洪明甫辞职](https://www.blog.minike.top/Article/details/7518294837.shtml)
+- 2026-06-29 13:46 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/137220967.shtml)
+- 2026-06-29 13:44 - [女孩遭霸凌网上认文身大哥求庇护](http://www.share.minike.top/Article/details/889448276557.shtml)
+- 2026-06-29 13:49 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/3006493293.shtml)
+- 2026-06-29 13:57 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/5723325.shtml)
+- 2026-06-29 13:43 - [为什么欧洲人不装空调](https://www.share.minike.top/Article/details/466997078001.shtml)
+- 2026-06-29 13:54 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/459108042.shtml)
+- 2026-06-29 13:43 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.minike.top/Article/details/142821.shtml)
+- 2026-06-29 13:41 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.minike.top/Article/details/55011456105.shtml)

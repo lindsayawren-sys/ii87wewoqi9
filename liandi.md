@@ -1,58 +1,56 @@
-# 长江有色：11日氧化铝期价跌0.77% 今日成交氛围清淡
+# “银龄正青春”2026年第二届全国中老年人才艺大会西北展演区启动
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-长江有色网5月11日讯，今日氧化铝所有合约涨跌不一，主力月2609合约窄幅走弱；截止当日15：00收盘，氧化铝主力月2609合约报2826元，跌22元，跌幅0.77%；加权合约累计成交322223手，比前一交易日减少36794手，跌幅10.25%；持仓量522040手增加14112手，涨幅2.78%。 今日国内氧化铝现货价格持稳；据长江有色网ccmn数据，5月11日氧化铝华南地
+中新网西宁6月18日电 (李隽)18日，“银龄正青春”2026年第二届全国中老年人才艺大会西北展演区启动仪式暨新闻发布会在青海省会西宁举行。 活动以“银龄正青春·闪耀大西北”为主题，中国广播艺术团副团长及与会嘉宾分别为陕西、甘肃、青海、宁夏、新疆西北五省(区)组委会授牌，标志着这一国家级文化品牌正式落地西北。 西北地区作为中华民族多元文化交融的核心区域，非物质文化遗产资源极为丰
 
 ## 正文
 
-长江有色网5月11日讯，今日氧化铝所有合约涨跌不一，主力月2609合约窄幅走弱；截止当日15：00收盘，氧化铝主力月2609合约报2826元，跌22元，跌幅0.77%；加权合约累计成交322223手，比前一交易日减少36794手，跌幅10.25%；持仓量522040手增加14112手，涨幅2.78%。
+中新网西宁6月18日电 (李隽)18日，“银龄正青春”2026年第二届全国中老年人才艺大会西北展演区启动仪式暨新闻发布会在青海省会西宁举行。
 
-今日国内氧化铝现货价格持稳；据长江有色网ccmn数据，5月11日氧化铝华南地区每吨报2680-2730元之间，与前一交易日报价持平；华东地区氧化铝每吨报2680-2720元之间，与前一交易日报价持平；西南地区氧化铝每吨2765-2805元之间，与前一交易日报价持平；西北地区氧化铝每吨报2985-3025元之间，与前一交易日报价持平。
+活动以“银龄正青春·闪耀大西北”为主题，中国广播艺术团副团长及与会嘉宾分别为陕西、甘肃、青海、宁夏、新疆西北五省(区)组委会授牌，标志着这一国家级文化品牌正式落地西北。
 
-今日上期所氧化铝期货主力2605合约偏弱震荡，日间交易收跌10.77%，国内氧化铝现货价格持稳； 宏观层面，美伊局势再次胶着，特朗普驳斥伊朗停火提议并称“完全不可接受”，霍尔木兹海峡持续实质封锁，全球能源供应紧绷加剧。
+西北地区作为中华民族多元文化交融的核心区域，非物质文化遗产资源极为丰厚。
 
-尽管能源成本高企为大宗商品提供了地缘风险溢价，但氧化铝受制于自身疲软的基本面，期价并未跟随原油走强，反而承压偏弱调整。
+本届大会将藏医药浴、土族盘绣、青绣等西北特色非遗代表性项目融入其中，让传统医学智慧与现代文艺展演交相辉映，为活动注入独特的健康养生文化内涵。
 
-基本面，供应端压力显著。
+“‘银龄正青春’大会旨在以文艺为纽带，让更多老年朋友登上专业舞台，感受艺术的魅力与力量。
 
-国内产能释放节奏加快。
+”中国广播艺术团副团长李玉兰表示，艺术团将发挥自身资源优势，为西北展演区提供专业指导与艺术支持，为全国中老年文艺爱好者搭建起国家级展示交流的广阔平台。
 
-广西前期停产产能已陆续复产，加之防城港240万吨新产能即将投放，市场供给增量持续释放，供应压力有增无减。
+启动仪式上，影视表演艺术家王丽云、陶慧敏正式受聘为全国银龄正青春才艺大会组委会艺术顾问。
 
-需求端表现平淡，下游电解铝企业多维持刚需采购策略，并未出现大规模补库行为，对氧化铝价格支撑乏力。
+“文艺活动能有效调节情绪、缓解压力，舞台表演能增强自信、愉悦身心，团队排练能促进社交、消除孤独，持续学习能延缓衰老、保持活力。
 
 ## 相关推荐
 
-- 2026-06-29 13:51 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 13:32 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 13:26 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-29 13:28 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-29 13:50 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 13:30 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 13:26 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-29 13:33 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-29 13:40 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-29 13:27 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-29 13:41 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-29 13:31 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-29 13:32 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 13:51 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-29 13:38 - [恋与深空需直面玩家6大疑问](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-29 13:43 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-29 13:53 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 13:45 - [2026年Mac能玩游戏了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 13:51 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-29 13:53 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-29 13:35 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 13:37 - [TOP 无畏契约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:47 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/1781263597.shtml)
-- 2026-06-29 13:38 - [江苏财政厅原一级调研员谢功成被查](https://www.share.minike.top/Article/details/5985797743.shtml)
-- 2026-06-29 13:52 - [千与千寻](http://www.blog.minike.top/Article/details/353916559111.shtml)
-- 2026-06-29 13:48 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://www.share.kurohicncr.top/Article/details/550976808093.shtml)
-- 2026-06-29 13:27 - [C罗关心罗德里戈伤情](https://www.blog.minike.top/Article/details/22657.shtml)
-- 2026-06-29 13:30 - [送你一朵小红花](https://www.share.minike.top/Article/details/18951098943.shtml)
-- 2026-06-29 13:27 - [毕业寄几百斤快递回家女生发声](http://www.share.kurohicncr.top/Article/details/083795.shtml)
-- 2026-06-29 13:40 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/680370980289.shtml)
-- 2026-06-29 13:30 - [日本前锋言论激怒巴西](http://www.share.kurohicncr.top/Article/details/122469072125.shtml)
-- 2026-06-29 13:50 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/346652.shtml)
-- 2026-06-29 13:38 - [普京：俄面临命运攸关时刻](https://www.share.minike.top/Article/details/698699.shtml)
-- 2026-06-29 13:24 - [扫黑风暴](http://www.share.minike.top/Article/details/92008.shtml)
-- 2026-06-29 13:42 - [2026年Mac能玩游戏了吗](https://www.blog.kurohicncr.top/Article/details/05948.shtml)
-- 2026-06-29 13:38 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/662378214739.shtml)
-- 2026-06-29 13:52 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/6091688881.shtml)
+- 2026-06-29 13:58 - [《昨夜将至》为何是悬疑黑马](https://www.share.minike.top/Article/details/457603709246.shtml)
+- 2026-06-29 13:34 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/310592.shtml)
+- 2026-06-29 13:48 - [四川宜宾地震](http://www.blog.minike.top/Article/details/03986.shtml)
+- 2026-06-29 13:37 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.kurohicncr.top/Article/details/1012951.shtml)
+- 2026-06-29 13:53 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.minike.top/Article/details/1847992.shtml)
+- 2026-06-29 13:41 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/29961.shtml)
+- 2026-06-29 13:45 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/483286.shtml)
+- 2026-06-29 13:52 - [大范围炎热天气将至](https://www.share.kurohicncr.top/Article/details/429171170.shtml)
+- 2026-06-29 13:51 - [林昀儒不敌17岁小将止步首轮](https://www.blog.minike.top/Article/details/78275537.shtml)
+- 2026-06-29 13:50 - [配音演员于小华病逝 享年78岁](http://www.blog.minike.top/Article/details/02023498.shtml)
+- 2026-06-29 13:45 - [唐艺昕女儿接唐艺昕回家](https://www.blog.kurohicncr.top/Article/details/61439431946.shtml)
+- 2026-06-29 13:39 - [双高胎](https://www.blog.kurohicncr.top/Article/details/9315249.shtml)
+- 2026-06-29 13:38 - [媒体：高考后消费应量力而行适度有度](http://www.share.kurohicncr.top/Article/details/261053038.shtml)
+- 2026-06-29 13:54 - [多只A股发布股价异动公告](http://www.blog.minike.top/Article/details/51590213.shtml)
+- 2026-06-29 13:32 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/43413106.shtml)

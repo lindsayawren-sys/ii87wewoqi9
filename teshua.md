@@ -1,59 +1,57 @@
-# 蔡志忠发起“文博共同体”倡议 呼吁共建联结世界的桥梁
+# 20寸行李箱不能免费登机了？部分差异化航司标准有所区别
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-中新网杭州5月9日电(曹丹)5月9日，2026年“5·18国际博物馆日”杭州市主会场活动在中国湿地博物馆举行。著名漫画家蔡志忠代表西湖区各家博物馆、艺术馆和文博机构发起“文博共同体”倡议，呼吁各方资源共享、活动联办、优势互补、品牌共创，以实际行动呼应2026年国际博物馆日“博物馆：联结世界的桥梁”的主题。 今年是国际博物馆协会成立80周年。此次活动主题为“博物馆：联结世界的桥梁
+假期出行，不少旅客反映乘坐飞机时，20寸的行李箱无法免费登机，并且各家航空公司执行标准也并不相同，这是怎么回事呢？ 在国内航空公司中，全服务航司与差异化航司执行两套标准，政策差异源于服务定价和票价模式。国航、东航、南航等全服务航司允许符合尺寸、重量要求的20寸及以下的行李箱免费随身携带上飞机。但是部分差异化航司如春秋、祥鹏等航空公司，考虑经济成本、运营需求等原因，不允许普通经济
 
 ## 正文
 
-中新网杭州5月9日电(曹丹)5月9日，2026年“5·18国际博物馆日”杭州市主会场活动在中国湿地博物馆举行。
+假期出行，不少旅客反映乘坐飞机时，20寸的行李箱无法免费登机，并且各家航空公司执行标准也并不相同，这是怎么回事呢？
 
-著名漫画家蔡志忠代表西湖区各家博物馆、艺术馆和文博机构发起“文博共同体”倡议，呼吁各方资源共享、活动联办、优势互补、品牌共创，以实际行动呼应2026年国际博物馆日“博物馆：联结世界的桥梁”的主题。
+在国内航空公司中，全服务航司与差异化航司执行两套标准，政策差异源于服务定价和票价模式。
 
-今年是国际博物馆协会成立80周年。
+国航、东航、南航等全服务航司允许符合尺寸、重量要求的20寸及以下的行李箱免费随身携带上飞机。
 
-此次活动主题为“博物馆：联结世界的桥梁”，旨在强调博物馆应通过对文物藏品和文化遗产的保护、阐释和传播，促进不同地区、不同民族、不同文化之间的相互理解与包容，推动人类文明交流互鉴，构建人类命运共同体。
+但是部分差异化航司如春秋、祥鹏等航空公司，考虑经济成本、运营需求等原因，不允许普通经济舱旅客免费携带。
 
-杭州市园林文物局党组书记、局长王宏伟在活动中介绍，杭州正扎实推进“博物馆之城”建设。
+目前部分低成本、差异化航空公司仅允许14寸以内迷你登机箱，部分航司允许旅客付费携带20寸行李箱上机。
 
-目前，杭州已制定《杭州市“博物馆之城”发展规划(2026-2030)》，推进国有博物馆馆藏文物安全管理专项行动，明确乡村(社区)博物馆的提质增效与退出机制。
+航司和售票平台会将差异化的规则在旅客购票界面说明，很多旅客购票时未留意行李条款，到机场才发现规则不符，误以为“20寸箱全面禁带”。
 
-同时，其与宁波市文物局签订《杭甬“双城记”战略合作五年计划》，将持续开展“博物馆之城”2.0系列活动。
+除了尺寸，随身行李还有重量要求，国内航司随身行李单件重量大多限制在5kg—8kg以内。
 
-活动现场公布了杭州市博物馆“展览+”优秀案例及第五批杭州市乡村(社区)博物馆名单，发布了第二批杭州文博金牌推荐官以及2026年版“博物馆之城”手绘地图与打卡护照发布。
+不少旅客把衣物、化妆品、重物塞满箱子，整体重量超标，同样会被要求办理托运。
 
 ## 相关推荐
 
-- 2026-06-29 13:31 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 13:40 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 13:42 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-29 13:51 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 13:52 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-29 13:30 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 13:42 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-29 13:29 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 13:38 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-29 13:37 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 13:36 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-29 13:28 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 13:41 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-29 13:46 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 13:38 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 13:41 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 13:52 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 13:54 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 13:38 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 13:53 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-29 13:53 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-29 13:52 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 13:44 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-29 13:41 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:45 - [王楚钦首轮赢下国乒德比](https://www.share.kurohicncr.top/Article/details/416106.shtml)
-- 2026-06-29 13:35 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/273365765681.shtml)
-- 2026-06-29 13:34 - [T1 vs KC MSI](http://www.share.minike.top/Article/details/2576318.shtml)
-- 2026-06-29 13:53 - [中央气象台发布强对流天气蓝色预警](http://www.share.kurohicncr.top/Article/details/7149418887.shtml)
-- 2026-06-29 13:39 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/3089564.shtml)
-- 2026-06-29 13:43 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.minike.top/Article/details/54498834.shtml)
-- 2026-06-29 13:44 - [下飞机后，我做了个很蠢的决定......](http://www.share.kurohicncr.top/Article/details/07845.shtml)
-- 2026-06-29 13:34 - [强⁶](https://www.blog.minike.top/Article/details/8125951.shtml)
-- 2026-06-29 13:40 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/15576219563.shtml)
-- 2026-06-29 13:53 - [高市早苗口齿不清被质疑醉酒](http://www.blog.minike.top/Article/details/60040.shtml)
-- 2026-06-29 13:43 - [欧洲超1300例超额死亡与高温有关](http://www.share.kurohicncr.top/Article/details/358973.shtml)
-- 2026-06-29 13:34 - [A股限售股解禁一览](https://www.blog.kurohicncr.top/Article/details/931488009.shtml)
-- 2026-06-29 13:48 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/801050080.shtml)
-- 2026-06-29 13:26 - [第一批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/96319.shtml)
-- 2026-06-29 13:35 - [一生一世](http://www.share.kurohicncr.top/Article/details/40502079.shtml)
+- 2026-06-29 13:46 - [这位天才台湾人第一次来大陆，开智了](http://www.share.kurohicncr.top/Article/details/19431.shtml)
+- 2026-06-29 13:53 - [智界V9成为高端圈层共同选择](http://www.share.minike.top/Article/details/0630987.shtml)
+- 2026-06-29 13:50 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.share.minike.top/Article/details/324905838478.shtml)
+- 2026-06-29 13:42 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/1540698.shtml)
+- 2026-06-29 13:54 - [世界杯用球成部分门将噩梦](http://www.blog.minike.top/Article/details/020417518771.shtml)
+- 2026-06-29 13:36 - [哈兰德之歌火到国外](http://www.share.minike.top/Article/details/778900385315.shtml)
+- 2026-06-29 13:50 - [曾沛慈夺冠后人气](https://www.share.kurohicncr.top/Article/details/31243792066.shtml)
+- 2026-06-29 13:55 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.kurohicncr.top/Article/details/240547858.shtml)
+- 2026-06-29 13:42 - [女心理师](http://www.share.minike.top/Article/details/7078448420.shtml)
+- 2026-06-29 13:56 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.kurohicncr.top/Article/details/46541.shtml)
+- 2026-06-29 13:43 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/30031208166.shtml)
+- 2026-06-29 13:41 - [德国连续三天刷新本国最高气温纪录](http://www.blog.kurohicncr.top/Article/details/1585961931.shtml)
+- 2026-06-29 13:32 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/5129410.shtml)
+- 2026-06-29 13:51 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/979314.shtml)
+- 2026-06-29 13:55 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/059360.shtml)

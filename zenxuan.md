@@ -1,57 +1,60 @@
-# 长江有色：11日碳酸锂现货价上涨 储能爆发与供应收缩共振
+# 2030年法国阿尔卑斯冬奥会会徽揭晓
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-期货方面： 2026年5月11日，广州期货交易所碳酸锂期货市场迎来强势突破。主力合约最新价报205，020元/吨，较前一交易日结算价198，060元/吨大幅上涨6，960元，日涨幅高达3.51%。当日盘面高开高走，开盘于196，560元/吨，盘中最高触及205，600元/吨，最低下探至195，200元/吨，最终收于全天高位区间。市场交投情绪异常活跃，全天成交量达236，895手
+2030年法国阿尔卑斯冬奥组委当地时间18日发布了两款会徽，它们以“光芒映照下显现的山峰”为共同意象，将分别作为2030年冬奥会和冬残奥会的标志性视觉符号。 组委会主席埃德加·格罗斯皮龙在发布仪式上表示：“同一座山峰将在2030年连接冬奥会与冬残奥会。这也是为什么我们的两款会徽被构思为同一愿景下相互呼应的表达。它们共同体现了我们的目标——给予奥林匹克和残奥运动同样的位置、力量和
 
 ## 正文
 
-期货方面： 2026年5月11日，广州期货交易所碳酸锂期货市场迎来强势突破。
+2030年法国阿尔卑斯冬奥组委当地时间18日发布了两款会徽，它们以“光芒映照下显现的山峰”为共同意象，将分别作为2030年冬奥会和冬残奥会的标志性视觉符号。
 
-主力合约最新价报205，020元/吨，较前一交易日结算价198，060元/吨大幅上涨6，960元，日涨幅高达3.51%。
+组委会主席埃德加·格罗斯皮龙在发布仪式上表示：“同一座山峰将在2030年连接冬奥会与冬残奥会。
 
-当日盘面高开高走，开盘于196，560元/吨，盘中最高触及205，600元/吨，最低下探至195，200元/吨，最终收于全天高位区间。
+这也是为什么我们的两款会徽被构思为同一愿景下相互呼应的表达。
 
-市场交投情绪异常活跃，全天成交量达236，895手，持仓量增加27，728手至540，980手，资金流入迹象明显，结算价定格在202，140元/吨。
+它们共同体现了我们的目标——给予奥林匹克和残奥运动同样的位置、力量和可见度。
 
-现货方面： 根据长江有色金属网2026年5月11日发布的最新现货行情数据，国内碳酸锂市场延续强势上涨态势。
+” 格罗斯皮龙还强调了法国深厚的奥运举办传统，并提到1924年霞慕尼冬奥会、1968年格勒诺布尔冬奥会、1992年阿尔贝维尔冬奥会，以及最近的2024年巴黎奥运会，都是法国举办世界级赛事能力的有力证明。
 
-其中，电池级碳酸锂（99.5%）现货均价报197，500元/吨，工业级碳酸锂（99.2%）均价报194，500元/吨，两者均较前一交易日上涨3，000元，单日涨幅分别约为1.54%和1.57%。
+会徽设计围绕三大核心元素展开：光芒勾勒山脉轮廓，打开全新视角，象征清晰、温暖与希望；山峰体现高山运动的竞技场域，承载挑战、原始之美与突破极限的壮丽景象；光线交汇之处形成汇聚点，山峰随之显现，寓意团结与相聚。
 
-至此，电池级碳酸锂现货价格已逼近20万元/吨关键心理关口，期货主力合约更是在近期一度突破20万元/吨，创下两年多来的新高。
+色彩方面，会徽从“光与冰”的自然元素中汲取灵感。
 
-从供给端审视，国内外多重扰动因素正共同收紧锂资源的有效供应，构成了本轮价格上涨最坚实的底部支撑。
+午夜蓝与天蓝色代表高海拔的深邃、稳定与遥远地平线，而被称为“高山辉光”的红色与粉色渐变，则捕捉了阳光洒落山巅、温暖峰峦的刹那，传递出赛事的激情与生命活力。
 
 ## 相关推荐
 
-- 2026-06-29 13:25 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-29 13:31 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-29 13:47 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 13:43 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-29 13:39 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-29 13:53 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 13:25 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-29 13:32 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 13:38 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-29 13:51 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-29 13:46 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 13:44 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 13:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-29 13:41 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 13:45 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-29 13:33 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-29 13:56 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 13:41 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 13:46 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 13:42 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-29 13:30 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-29 13:35 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 13:41 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 13:37 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-29 13:37 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:52 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/672921195162.shtml)
-- 2026-06-29 13:39 - [绘画区你赢了](http://www.blog.minike.top/Article/details/0428842.shtml)
-- 2026-06-29 13:52 - [行程万里不忘初心](http://www.blog.minike.top/Article/details/1803190.shtml)
-- 2026-06-29 13:38 - [利率一再降 “存款搬家”搬去哪](https://www.blog.minike.top/Article/details/487268930.shtml)
-- 2026-06-29 13:27 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/68907140487.shtml)
-- 2026-06-29 13:31 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/88997.shtml)
-- 2026-06-29 13:32 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.blog.kurohicncr.top/Article/details/93904283748.shtml)
-- 2026-06-29 13:29 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/96496078.shtml)
-- 2026-06-29 13:51 - [自然资源部派专家赴宜宾地震影响区](https://www.share.minike.top/Article/details/61593.shtml)
-- 2026-06-29 13:36 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/56937.shtml)
-- 2026-06-29 13:27 - [大疆7月15日起涨价？公司回应](http://www.blog.minike.top/Article/details/6518749.shtml)
-- 2026-06-29 13:25 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/00592725.shtml)
-- 2026-06-29 13:37 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/1497372.shtml)
-- 2026-06-29 13:34 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/534863.shtml)
-- 2026-06-29 13:31 - [记者暗访贵州和云南多个养老机构](http://www.share.kurohicncr.top/Article/details/60513.shtml)
+- 2026-06-29 13:40 - [T1对战KC](http://www.blog.minike.top/Article/details/99720.shtml)
+- 2026-06-29 13:39 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/14451864.shtml)
+- 2026-06-29 13:59 - [网约车司机转账15000元后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/558208.shtml)
+- 2026-06-29 13:30 - [男子月薪五千卖房借贷给女友转账百万](https://www.share.minike.top/Article/details/886101959.shtml)
+- 2026-06-29 13:31 - [扬名立万](http://www.share.minike.top/Article/details/38149.shtml)
+- 2026-06-29 13:51 - [张一山回应与杨紫友情](http://www.share.kurohicncr.top/Article/details/2732392256.shtml)
+- 2026-06-29 13:46 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/119114891.shtml)
+- 2026-06-29 13:36 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/339846613.shtml)
+- 2026-06-29 13:40 - [《贺子珍》](https://www.share.minike.top/Article/details/95221288886.shtml)
+- 2026-06-29 13:53 - [布里奇斯被交易至太阳](http://www.blog.minike.top/Article/details/966041.shtml)
+- 2026-06-29 13:44 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/19425.shtml)
+- 2026-06-29 13:31 - [克洛普：加拿大主帅还能继续创造历史](https://www.share.kurohicncr.top/Article/details/70005.shtml)
+- 2026-06-29 13:43 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.kurohicncr.top/Article/details/61230487088.shtml)
+- 2026-06-29 13:47 - [女生雨天开车发现雨刮条被掰走](http://www.share.minike.top/Article/details/02164.shtml)
+- 2026-06-29 13:39 - [扫黑风暴](http://www.share.minike.top/Article/details/466694140007.shtml)

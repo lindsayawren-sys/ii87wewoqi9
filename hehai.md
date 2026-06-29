@@ -1,58 +1,58 @@
-# 张雪机车发布安全隐患公告
+# 江苏扬州守护大运河文脉：让市民从运河“倾听者”变为“参与者”
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-5月10日，张雪机车官方微信发布公告（文末附公告全文），“旅狼牌”500RR与500F的磁电机线束压板，在长期高负荷振动工况下可能存在疲劳断裂风险，断裂后会导致发动机损坏。 为了消除隐患，针对以下范围的“旅狼牌”500RR和500F，工厂提供3项免费服务。符合召回范围的车辆包括：25款500RR单摇臂‌：SD000028–SD021720、TD000251–TD001672；2
+中新网扬州6月20日电 (徐珊珊 杨家华 陈娟)20日，在6·22中国大运河申遗成功纪念日前夕，由扬州世界文化遗产保护管理办公室主办，扬州大运河保护志愿服务总队、扬州职业技术大学联合开展“运河伙伴·守护文脉”2026扬州运河志愿服务主题活动。活动旨在将运河文化传播、非遗活化、生态保护有机融合，既让广大民众读懂运河遗产价值，更推动市民游客从运河文化“倾听者”转变为遗产保护“参与者
 
 ## 正文
 
-5月10日，张雪机车官方微信发布公告（文末附公告全文），“旅狼牌”500RR与500F的磁电机线束压板，在长期高负荷振动工况下可能存在疲劳断裂风险，断裂后会导致发动机损坏。
+中新网扬州6月20日电 (徐珊珊 杨家华 陈娟)20日，在6·22中国大运河申遗成功纪念日前夕，由扬州世界文化遗产保护管理办公室主办，扬州大运河保护志愿服务总队、扬州职业技术大学联合开展“运河伙伴·守护文脉”2026扬州运河志愿服务主题活动。
 
-为了消除隐患，针对以下范围的“旅狼牌”500RR和500F，工厂提供3项免费服务。
+活动旨在将运河文化传播、非遗活化、生态保护有机融合，既让广大民众读懂运河遗产价值，更推动市民游客从运河文化“倾听者”转变为遗产保护“参与者”。
 
-符合召回范围的车辆包括：25款500RR单摇臂‌：SD000028–SD021720、TD000251–TD001672；25款500RR双摇臂‌：SD000100–SD001795、TD000179–TD000234；25款500RR青春版‌：SD000002–SD000664、TD000011–TD000030；500F‌：SD000101–SD002636、TD000014–TD000146。
+扬州是中国大运河原点城市、中国大运河申遗牵头城市，也是全国唯一全域划入大运河文化保护传承利用规划核心区的地级市。
 
-本次免费服务包含三项内容：一是免费更换升级版磁电机线束压板；二是整车点检；三是车辆到店处理完成后，为发动机延长一年质保。
+2014年6月，扬州牵头中国大运河申遗成功，使得这一线性活态的巨型文化遗产为世界瞩目。
 
-公告还对服务进行了进一步说明，对于更换升级版磁电机线束压板，建议车辆行驶里程大于10000公里的，尽快与门店预约，到店处理；车辆已做完首次保养的（500公里），可在下一次5000公里到店保养时进行处理。
+当日，本次活动在中国大运河申遗展示馆、东关街、古运河沿线举办，通过公益宣讲、非遗科创市集、河道净滩护绿三类志愿服务形式，凝聚社会各界志愿力量，推进大运河遗产保护与文化宣传。
 
-另外，公告中明确列出了整车点检包括发动机检查、转向检查、离合检查、传动检查、制动检查、冷却系统检查、换挡检查、关键部位扭矩。
+在大运河申遗展示馆，一场文脉溯源·展馆公益讲解正在开展。
 
-更换磁电机线束压板、整车点检两个项目全部完成预估1-2小时。
+“运河伙伴”志愿者依托大运河申遗展示馆展陈体系，为观众提供精细化讲解服务，让运河遗产价值可看、可听、可感。
 
-此次为张雪机车主动公告并提供延保等补偿措施，体现其对产品质量问题的积极应对态度‌‌。
+志愿者以互动科普、情景宣讲的方式，系统梳理大运河千年发展脉络、申遗奋斗历程，细致解读世界文化遗产保护标准，重点阐释扬州作为运河原点城市的独特区位价值与历史担当，生动展示运河生态治理、活化利用的丰硕成果。
 
 ## 相关推荐
 
-- 2026-06-29 13:47 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 13:47 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 13:46 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-29 13:50 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 13:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-29 13:46 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 13:29 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-29 13:29 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 13:41 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 13:32 - [T1对战KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 13:27 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 13:52 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 13:59 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 13:31 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 13:47 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 13:40 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 13:33 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 13:45 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-29 13:51 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 13:30 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 13:40 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 13:47 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-29 13:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-29 13:42 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:38 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.kurohicncr.top/Article/details/7799054533.shtml)
-- 2026-06-29 13:37 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/2507625.shtml)
-- 2026-06-29 13:44 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/4795388480.shtml)
-- 2026-06-29 13:42 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/156836356306.shtml)
-- 2026-06-29 13:46 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.blog.kurohicncr.top/Article/details/230821.shtml)
-- 2026-06-29 13:44 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/29657410040.shtml)
-- 2026-06-29 13:25 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/3752848034.shtml)
-- 2026-06-29 13:36 - [日本主帅：对战胜巴西很有信心](http://www.blog.minike.top/Article/details/9818764.shtml)
-- 2026-06-29 13:32 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/4993371.shtml)
-- 2026-06-29 13:54 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.kurohicncr.top/Article/details/47876.shtml)
-- 2026-06-29 13:31 - [成都至北京将新增动卧](https://www.share.kurohicncr.top/Article/details/720191378109.shtml)
-- 2026-06-29 13:27 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/38695.shtml)
-- 2026-06-29 13:28 - [6月我国降水为何偏多](http://www.share.minike.top/Article/details/391955664720.shtml)
-- 2026-06-29 13:43 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/866104448173.shtml)
-- 2026-06-29 13:42 - [初心如磐 红色足迹](https://www.blog.kurohicncr.top/Article/details/153430647.shtml)
+- 2026-06-29 13:36 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/142331763.shtml)
+- 2026-06-29 13:55 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/05690.shtml)
+- 2026-06-29 13:36 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.blog.minike.top/Article/details/1112943876.shtml)
+- 2026-06-29 13:43 - [三星与SK集团或将投资2000万亿韩元](http://www.share.minike.top/Article/details/721139416.shtml)
+- 2026-06-29 13:52 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/13783040064.shtml)
+- 2026-06-29 13:43 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/7413708082.shtml)
+- 2026-06-29 13:58 - [四川宜宾地震](https://www.blog.minike.top/Article/details/5789885.shtml)
+- 2026-06-29 13:41 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/14386168.shtml)
+- 2026-06-29 13:52 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/003916.shtml)
+- 2026-06-29 13:51 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.share.kurohicncr.top/Article/details/371663107.shtml)
+- 2026-06-29 13:45 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/075991.shtml)
+- 2026-06-29 13:31 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.kurohicncr.top/Article/details/57281.shtml)
+- 2026-06-29 13:56 - [大范围炎热天气将至](http://www.share.minike.top/Article/details/88894508888.shtml)
+- 2026-06-29 13:46 - [古力娜扎美出新高度](https://www.share.kurohicncr.top/Article/details/4296955.shtml)
+- 2026-06-29 13:49 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/61579540098.shtml)

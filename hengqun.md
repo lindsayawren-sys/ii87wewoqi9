@@ -1,60 +1,56 @@
-# Brand Finance 2026中国品牌价值500强发布：29个汽车品牌入选，累计品牌价值同比增长10%
+# A股市值前10强半数是科技股，中际旭创市值首超贵州茅台
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-新浪财经讯，总部位于英国伦敦的品牌估值机构品牌金融集团9日发布《Brand Finance 2026中国品牌价值500强》报告，报告显示，2026年中国500强品牌的总品牌价值突破2.1万亿美元，品牌价值总额较上年增长7.6%，其中排名前10的品牌价值占比高达36%。 报告显示，抖音以1535.4 亿美元的品牌价值，连续第三年居中国品牌价值榜首，跃居全球第六，同比增长 45.1
+每经记者|王海慜 每经编辑|彭水萍 以往A股市场市值排名长期被传统金融、消费、能源巨头霸榜的格局正迎来深刻变化。2026年6月18日收盘，A股市值前10强中，科技股占据5席，前20强中，科技股占据8席。 值得关注的是，截至今日收盘，A股光模块龙头中际旭创市值首次超越贵州茅台。业内有观点称，这堪称“A股审美转向的一刻”。 相比之下，在2024年年初，A股市值前10强中，科技股仅有
 
 ## 正文
 
-新浪财经讯，总部位于英国伦敦的品牌估值机构品牌金融集团9日发布《Brand Finance 2026中国品牌价值500强》报告，报告显示，2026年中国500强品牌的总品牌价值突破2.1万亿美元，品牌价值总额较上年增长7.6%，其中排名前10的品牌价值占比高达36%。
+每经记者|王海慜 每经编辑|彭水萍 以往A股市场市值排名长期被传统金融、消费、能源巨头霸榜的格局正迎来深刻变化。
 
-报告显示，抖音以1535.4 亿美元的品牌价值，连续第三年居中国品牌价值榜首，跃居全球第六，同比增长 45.1%，在全球社交与数字商业领域持续赶超欧美传统巨头。
+2026年6月18日收盘，A股市值前10强中，科技股占据5席，前20强中，科技股占据8席。
 
-国家电网以突破1000以美元品牌价值稳居中国第二，全球第十，创历史新高。
+值得关注的是，截至今日收盘，A股光模块龙头中际旭创市值首次超越贵州茅台。
 
-之后是金融领域工行、建行、中行、农行。
+业内有观点称，这堪称“A股审美转向的一刻”。
 
-四大行同时集体入围全球前二十强，显示全球金融话语权稳步提升。
+相比之下，在2024年年初，A股市值前10强中，科技股仅有1席，前20强中，科技股仅有3席。
 
-新能源领域，比亚迪、宁德时代等品牌加速海外布局，在欧洲、东南亚市场份额持续扩大，成为“中国制造”向“中国创造”转型的典型代表。
+事实上，从2024年以来A股市场的权重股格局变化来看，“含科量”可谓逐年提升。
 
-同时，近年来，随着中国品牌在产业变革中展现出的强劲韧性与创新活力，本年度共有29个汽车品牌入选中国品牌价值500强，累计品牌价值546亿美元，占榜单总价值的 3%，实现了10%的同比增长。
+近期多家外资投行发布观点称， 从中长期视角来看，继续看好A股的科技主线。
 
-在头部阵营中，比亚迪以173亿美元的品牌价值继续稳居首位，同比增长23%；吉利汽车以45亿美元的品牌价值位列第二，同比增长 26%；问界以34亿美元的品牌价值位列第三，并凭借 78分的品牌强度成为年度最强中国汽车品牌。
+A股市值前10强“含科量”大增 2024年初，A 股市值排名依旧维持传统格局，前10强被传统金融、消费、能源巨头霸榜。
 
 ## 相关推荐
 
-- 2026-06-29 13:44 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-29 13:37 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-29 13:32 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 13:28 - [市民骑哈啰单车79分钟付30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-29 13:45 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 13:46 - [普京称俄处于命运攸关之际](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 13:48 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-29 13:41 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 13:31 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-29 13:47 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-29 13:44 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 13:29 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-29 13:43 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-29 13:35 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-29 13:40 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 13:34 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-29 13:38 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-29 13:50 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 13:36 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-29 13:57 - [退休化学教授帮医药研发人员制毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-29 13:47 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-29 13:48 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-29 13:44 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 13:49 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:39 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/1880005.shtml)
-- 2026-06-29 13:36 - [第一批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/24194978.shtml)
-- 2026-06-29 13:47 - [一生一世](http://www.blog.minike.top/Article/details/6037879.shtml)
-- 2026-06-29 13:31 - [小S在香港被偶遇](http://www.share.kurohicncr.top/Article/details/004940003320.shtml)
-- 2026-06-29 13:47 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/09671.shtml)
-- 2026-06-29 13:38 - [媒体评恋与深空争议](http://www.blog.kurohicncr.top/Article/details/6606815600.shtml)
-- 2026-06-29 13:43 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/506071051754.shtml)
-- 2026-06-29 13:43 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.kurohicncr.top/Article/details/48570264490.shtml)
-- 2026-06-29 13:38 - [BW2026游览指南](https://www.share.minike.top/Article/details/44751.shtml)
-- 2026-06-29 13:33 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/0855431.shtml)
-- 2026-06-29 13:28 - [中央气象台发布强对流天气蓝色预警](http://www.blog.minike.top/Article/details/4942835.shtml)
-- 2026-06-29 13:28 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/79976690.shtml)
-- 2026-06-29 13:34 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/5266523.shtml)
-- 2026-06-29 13:29 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/444146458.shtml)
-- 2026-06-29 13:32 - [海军舰艇编队将赴香港](https://www.share.minike.top/Article/details/077440913909.shtml)
+- 2026-06-29 13:51 - [我国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/621245.shtml)
+- 2026-06-29 13:46 - [配音演员于小华病逝 享年78岁](http://www.blog.kurohicncr.top/Article/details/117008651477.shtml)
+- 2026-06-29 13:46 - [大疆7月15日起涨价？公司回应](http://www.blog.kurohicncr.top/Article/details/339272.shtml)
+- 2026-06-29 13:57 - [韩国队启程回国众将回避镜头](https://www.blog.kurohicncr.top/Article/details/635598.shtml)
+- 2026-06-29 13:50 - [宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/45690.shtml)
+- 2026-06-29 13:45 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/45201152418.shtml)
+- 2026-06-29 13:51 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/684615583.shtml)
+- 2026-06-29 13:56 - [韩媒破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/468983.shtml)
+- 2026-06-29 13:44 - [男子偶遇婴儿被锁车内大哭挣扎](https://www.share.minike.top/Article/details/12372555332.shtml)
+- 2026-06-29 13:57 - [王楚钦3比0周启豪](https://www.blog.minike.top/Article/details/234413974.shtml)
+- 2026-06-29 13:31 - [2025年人口增长10强城市出炉](https://www.share.minike.top/Article/details/78502.shtml)
+- 2026-06-29 13:42 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/905524062286.shtml)
+- 2026-06-29 13:49 - [王楚钦 表演球擦网](https://www.blog.kurohicncr.top/Article/details/65011571966.shtml)
+- 2026-06-29 13:53 - [詹俊预测德国大胜巴拉圭](https://www.blog.kurohicncr.top/Article/details/19674664.shtml)
+- 2026-06-29 13:58 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/824160.shtml)

@@ -1,44 +1,50 @@
-# 绿地香港首4个月合约销售约为25.64亿元 同比增加191.36%
+# 中央气象台继续发布暴雨黄色预警
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-绿地香港（00337）发布公告，2026年首4个月，本公司、其子公司及其联属公司（统称本集团）的合约销售约为人民币25.64亿元，同比增加191.36%，已售合约总建筑面积则约为30.84万平方米。责任编辑：卢昱君
+中新网6月20日电 据中央气象台网站消息，中央气象台6月20日18时继续发布暴雨黄色预警： 预计，6月20日20时至21日20时，广西北部、贵州南部和东部、湖南北部、湖北东南部、江西西北部、安徽南部、浙江北部、上海以及四川南部和东北部、陕西西南部、山西东南部、河南北部、吉林西部、黑龙江西部、内蒙古东北部、云南西部、西藏东南部、新疆南部等地有大到暴雨，其中，广西北部、贵州南部、湖
 
 ## 正文
 
-绿地香港（00337）发布公告，2026年首4个月，本公司、其子公司及其联属公司（统称本集团）的合约销售约为人民币25.64亿元，同比增加191.36%，已售合约总建筑面积则约为30.84万平方米。
+中新网6月20日电 据中央气象台网站消息，中央气象台6月20日18时继续发布暴雨黄色预警： 预计，6月20日20时至21日20时，广西北部、贵州南部和东部、湖南北部、湖北东南部、江西西北部、安徽南部、浙江北部、上海以及四川南部和东北部、陕西西南部、山西东南部、河南北部、吉林西部、黑龙江西部、内蒙古东北部、云南西部、西藏东南部、新疆南部等地有大到暴雨，其中，广西北部、贵州南部、湖南北部、湖北东南部、江西西北部等地的部分地区有大暴雨(100～200毫米)。
 
-责任编辑：卢昱君
+上述部分地区伴有短时强降水(最大小时降雨量40～70毫米，局地可超过90毫米)，局地有雷暴大风等强对流天气。
+
+防御指南： 1、政府及相关部门按照职责做好防暴雨工作； 2、交通管理部门应当根据路况在强降雨路段采取交通管制措施，在积水路段实行交通引导； 3、切断低洼地带有危险的室外电源，暂停在空旷地方的户外作业，转移危险地带人员和危房居民到安全场所避雨； 4、检查城市、农田、鱼塘排水系统，采取必要的排涝措施。
 
 ## 相关推荐
 
-- 2026-06-29 13:40 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-29 13:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-29 13:25 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-29 13:46 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-29 13:27 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-29 13:34 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-29 13:37 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 13:34 - [A股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 13:50 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-29 13:41 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-29 13:36 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-29 13:48 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 13:54 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 13:34 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 13:46 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 13:45 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 13:56 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-29 13:53 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-29 13:54 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 13:45 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-29 13:51 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 13:52 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 13:51 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 13:32 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:48 - [恋与深空需直面玩家6大疑问](http://www.blog.minike.top/Article/details/77050624253.shtml)
-- 2026-06-29 13:33 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/040303.shtml)
-- 2026-06-29 13:51 - [海军舰艇编队将赴香港](https://www.blog.minike.top/Article/details/7731270.shtml)
-- 2026-06-29 13:26 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/675776388.shtml)
-- 2026-06-29 13:32 - [刘仲华院士愿当贺永辉导师](https://www.blog.kurohicncr.top/Article/details/90875412.shtml)
-- 2026-06-29 13:27 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/088672138108.shtml)
-- 2026-06-29 13:24 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/11152027.shtml)
-- 2026-06-29 13:35 - [和阿根廷球员家属一起看球](http://www.share.kurohicncr.top/Article/details/6762050.shtml)
-- 2026-06-29 13:24 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/58801.shtml)
-- 2026-06-29 13:47 - [T1 vs KC MSI](https://www.blog.kurohicncr.top/Article/details/02323637366.shtml)
-- 2026-06-29 13:48 - [NBA交易](http://www.blog.kurohicncr.top/Article/details/955769.shtml)
-- 2026-06-29 13:35 - [刘烨16岁儿子诺一颜值](http://www.share.kurohicncr.top/Article/details/89040587.shtml)
-- 2026-06-29 13:29 - [志愿选择倒计时！浙大学生送祝福](https://www.blog.kurohicncr.top/Article/details/49213.shtml)
-- 2026-06-29 13:44 - [韩体育部长回应李在明痛批](http://www.blog.minike.top/Article/details/12866870.shtml)
-- 2026-06-29 13:49 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/868102946.shtml)
+- 2026-06-29 13:52 - [千与千寻](https://www.share.kurohicncr.top/Article/details/69996.shtml)
+- 2026-06-29 13:46 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/55232845.shtml)
+- 2026-06-29 13:32 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/814512886781.shtml)
+- 2026-06-29 13:37 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/919248526553.shtml)
+- 2026-06-29 13:41 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/75861.shtml)
+- 2026-06-29 13:42 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/005054.shtml)
+- 2026-06-29 13:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/480759844.shtml)
+- 2026-06-29 13:37 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/7424288858.shtml)
+- 2026-06-29 13:31 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/635727943.shtml)
+- 2026-06-29 13:56 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.minike.top/Article/details/771455759.shtml)
+- 2026-06-29 13:54 - [韩国队如何把94%出线概率打到0%](http://www.share.minike.top/Article/details/301088700480.shtml)
+- 2026-06-29 13:54 - [灿如繁星定档](http://www.share.kurohicncr.top/Article/details/540185.shtml)
+- 2026-06-29 13:56 - [扫黑风暴](http://www.share.minike.top/Article/details/009383880234.shtml)
+- 2026-06-29 13:52 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/331912061.shtml)
+- 2026-06-29 13:47 - [赵露思爸爸拍vlog翻车了](http://www.blog.kurohicncr.top/Article/details/875846173.shtml)

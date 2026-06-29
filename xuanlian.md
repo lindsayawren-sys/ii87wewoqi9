@@ -1,58 +1,59 @@
-# 2026世界杯美加墨三国将分别举办开幕式
+# 斯塔默誓言不会退缩后 英国10年期国债收益率升至一周高点
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-新华社华盛顿5月8日电(记者杨伶)国际足联8日宣布，2026年世界杯举办国墨西哥、加拿大和美国将分别举办开幕式。 国际足联主席因凡蒂诺表示：“从墨西哥城开始，接下来是多伦多和洛杉矶，这些开幕式将音乐、文化和足球融为一体，既体现了每个国家的独特性，也展现了本届赛事所代表的团结精神……这将是开启一场全球盛会的有力方式。” 美加墨世界杯将于6月11日开幕，揭幕战是墨西哥队对阵南非队，
+英国国债全线扩大跌幅，此前首相基尔·斯塔默表示，如果出现党内领导权之争，他将参选。市场认为这一表态可能延长政治和财政政策方面的不确定性。 英国10年期国债收益率上涨7个基点至4.83%；掉期市场显示，投资者目前预计英国央行今年将累计加息35个基点，周四预期30个基点。 斯塔默发表上述言论之前，安迪·伯纳姆在补选中获胜。外界普遍认为，伯纳姆是目前对斯塔默领导地位威胁最大的潜在挑战
 
 ## 正文
 
-新华社华盛顿5月8日电(记者杨伶)国际足联8日宣布，2026年世界杯举办国墨西哥、加拿大和美国将分别举办开幕式。
+英国国债全线扩大跌幅，此前首相基尔·斯塔默表示，如果出现党内领导权之争，他将参选。
 
-国际足联主席因凡蒂诺表示：“从墨西哥城开始，接下来是多伦多和洛杉矶，这些开幕式将音乐、文化和足球融为一体，既体现了每个国家的独特性，也展现了本届赛事所代表的团结精神……这将是开启一场全球盛会的有力方式。
+市场认为这一表态可能延长政治和财政政策方面的不确定性。
 
-” 美加墨世界杯将于6月11日开幕，揭幕战是墨西哥队对阵南非队，比赛将在墨西哥城举行。
+英国10年期国债收益率上涨7个基点至4.83%；掉期市场显示，投资者目前预计英国央行今年将累计加息35个基点，周四预期30个基点。
 
-国际足联在声明中说，比赛开始前90分钟，墨西哥将以一场“史无前例的开幕式拉开这场地球上最盛大演出的序幕”。
+斯塔默发表上述言论之前，安迪·伯纳姆在补选中获胜。
 
-加拿大将于6月12日在多伦多举办开幕式，之后加拿大队将迎战波黑队。
+外界普遍认为，伯纳姆是目前对斯塔默领导地位威胁最大的潜在挑战者。
 
-美国将于6月12日在洛杉矶举行开幕式，之后美国队将迎来与巴拉圭队的小组赛。
+德国10年期国债收益率上涨4个基点至2.97%。
 
-美加墨世界杯将于6月11日至7月19日在美国、
+推进阅读：伯纳姆赢得英国议会空缺席位 为挑战首相斯塔默铺平道路责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 13:41 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-29 13:30 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-29 13:32 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 13:52 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 13:44 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 13:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-29 13:33 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-29 13:25 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-29 13:41 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-29 13:39 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-29 13:39 - [中餐厅南北饮食差异](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-29 13:32 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-29 13:26 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 13:34 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 13:43 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-29 13:40 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-29 13:37 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-29 13:47 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-29 13:53 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 13:45 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 13:47 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-29 13:46 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 13:50 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-29 13:46 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 13:54 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-29 13:39 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 13:56 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-29 13:43 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-29 13:52 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:40 - [这位猫咪，请你自重！](http://www.blog.minike.top/Article/details/89043757262.shtml)
-- 2026-06-29 13:43 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/924609246.shtml)
-- 2026-06-29 13:36 - [韩国记者：解码“合肥模式”](https://www.share.kurohicncr.top/Article/details/878175175.shtml)
-- 2026-06-29 13:38 - [42岁郭碧婷纯素颜状态](http://www.blog.minike.top/Article/details/89385226.shtml)
-- 2026-06-29 13:46 - [流金岁月](http://www.blog.minike.top/Article/details/76447.shtml)
-- 2026-06-29 13:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/45720289798.shtml)
-- 2026-06-29 13:25 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/092641.shtml)
-- 2026-06-29 13:31 - [光与夜之恋](http://www.share.kurohicncr.top/Article/details/7399307.shtml)
-- 2026-06-29 13:46 - [马斯克也站到了光里](http://www.share.minike.top/Article/details/845696.shtml)
-- 2026-06-29 13:28 - [美国近12万名科技员工被解雇](http://www.blog.kurohicncr.top/Article/details/79622.shtml)
-- 2026-06-29 13:31 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/308373073.shtml)
-- 2026-06-29 13:40 - [这位天才台湾人第一次来大陆，开智了](https://www.share.kurohicncr.top/Article/details/85169935697.shtml)
-- 2026-06-29 13:37 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/155904.shtml)
-- 2026-06-29 13:33 - [大范围炎热天气将至](https://www.share.kurohicncr.top/Article/details/16586863167.shtml)
-- 2026-06-29 13:24 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.share.minike.top/Article/details/028369010.shtml)
+- 2026-06-29 13:59 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/547377785834.shtml)
+- 2026-06-29 13:45 - [智界V9成为高端圈层共同选择](https://www.blog.minike.top/Article/details/17731218952.shtml)
+- 2026-06-29 13:37 - [中国避暑神器在欧洲卖爆了](https://www.blog.minike.top/Article/details/9338709.shtml)
+- 2026-06-29 13:51 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/4076095492.shtml)
+- 2026-06-29 13:44 - [哈兰德这该死的胜负欲](http://www.blog.minike.top/Article/details/0231350213.shtml)
+- 2026-06-29 13:36 - [当我回母校教书](http://www.share.kurohicncr.top/Article/details/86287729.shtml)
+- 2026-06-29 13:31 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.minike.top/Article/details/8249599239.shtml)
+- 2026-06-29 13:34 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.minike.top/Article/details/65284.shtml)
+- 2026-06-29 13:59 - [5万块的威力](http://www.blog.kurohicncr.top/Article/details/69124.shtml)
+- 2026-06-29 13:48 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/61845477032.shtml)
+- 2026-06-29 13:51 - [美国近12万名科技员工被解雇](http://www.share.kurohicncr.top/Article/details/878455731.shtml)
+- 2026-06-29 13:55 - [周锡玮：做堂堂正正的中国人](https://www.blog.kurohicncr.top/Article/details/95245878402.shtml)
+- 2026-06-29 13:56 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/267402.shtml)
+- 2026-06-29 13:54 - [法拉利被4个孩子当滑梯玩](https://www.share.kurohicncr.top/Article/details/507008041403.shtml)
+- 2026-06-29 13:59 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/28513.shtml)

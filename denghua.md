@@ -1,56 +1,61 @@
-# 全球狂飙！三重逻辑叠加共振 存储产业链掀涨停潮！多只绩优股获资金关注(名单)
+# 台青贵州铜仁观龙舟赛：同舟共渡两岸情
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-来源：东方财富研究中心 AI硬件行情再起，存储今天成为领涨赛道。 5月11日早盘，存储芯片板块飙涨6%，掀起涨停潮。其中，普冉股份、长川科技（维权）、澜起科技等5股20cm涨停，红板科技、博杰股份、长电科技等亦强势封板，江波龙、恒烁股份、精智达等均涨超10%。 消息面上，AI浪潮下，全球科技巨头们携手上修资本开支，存储市场甚至出现排队“锁单”行业巨头的情形。与此同时，在亮眼业绩
+中新社贵州铜仁6月19日电 (记者 周燕玲)“端午赛龙舟的活动台湾也有，但这样大规模两岸同胞共庆的浓厚氛围，让人倍感亲切。”台湾青年曾施伶19日接受记者采访时说，锦江上的龙舟竞逐是一段难忘的端午记忆。 当日，享有大陆“传统龙舟之乡”美誉的贵州省铜仁市碧江区，传统龙舟大赛迎来决赛阶段的激烈角逐。24支精英龙舟队齐聚锦江，随着鼓声响起，划手们奋力挥桨，龙舟如离弦之箭在水面飞驰，在赛
 
 ## 正文
 
-来源：东方财富研究中心 AI硬件行情再起，存储今天成为领涨赛道。
+中新社贵州铜仁6月19日电 (记者 周燕玲)“端午赛龙舟的活动台湾也有，但这样大规模两岸同胞共庆的浓厚氛围，让人倍感亲切。
 
-5月11日早盘，存储芯片板块飙涨6%，掀起涨停潮。
+”台湾青年曾施伶19日接受记者采访时说，锦江上的龙舟竞逐是一段难忘的端午记忆。
 
-其中，普冉股份、长川科技（维权）、澜起科技等5股20cm涨停，红板科技、博杰股份、长电科技等亦强势封板，江波龙、恒烁股份、精智达等均涨超10%。
+当日，享有大陆“传统龙舟之乡”美誉的贵州省铜仁市碧江区，传统龙舟大赛迎来决赛阶段的激烈角逐。
 
-消息面上，AI浪潮下，全球科技巨头们携手上修资本开支，存储市场甚至出现排队“锁单”行业巨头的情形。
+24支精英龙舟队齐聚锦江，随着鼓声响起，划手们奋力挥桨，龙舟如离弦之箭在水面飞驰，在赛道之上你追我赶。
 
-与此同时，在亮眼业绩的助推下，三星电子、SK海力士、美光科技等存储龙头迭创新高，今日早盘，暴涨的韩股甚至触发了熔断机制。
+锦江两岸，数万民众驻足观赛，欢呼声、呐喊声此起彼伏。
 
-分析人士指出，存储板块的持续走强并非单一因素驱动，而是供需错配、价格上涨、业绩支撑三重逻辑叠加共振的结果，板块交易逻辑正逐渐转向盈利增长持续性的兑现验证。
+在观赛人群中，近30名台青或踮脚张望，或举起手机追拍竞渡的龙舟，每当有龙舟冲线，他们便与周围人一同振臂喝彩，还有人学着当地方言喊起号子为选手助威。
 
-AI巨头加码投资+抢占产能 据报道，字节跳动正在加大起对AI基础设施的投入，公司今年计划资本支出将超过2000亿元人民币，较此前的初步计划增加大增25%。
+赛事期间，主办方还举行了龙舟点睛祈愿、千人齐跳摆手舞等民俗活动。
 
-上调资本开支主要源于两方面原因：字节对人工智能的投入不断增加，以及内存芯片的成本上涨。
+赛后，极具本土趣味的传统“抢鸭子”活动成为又一大亮点，各龙舟队的游泳好手与当地人纷纷跃入江中竞相追逐。
 
 ## 相关推荐
 
-- 2026-06-29 13:46 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 13:25 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-29 13:39 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 13:39 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 13:52 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-29 13:36 - [AG 钟意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-29 13:43 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 13:26 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-29 13:47 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-29 13:24 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-29 13:50 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 13:44 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 13:56 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 13:41 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-29 13:55 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-29 13:53 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 13:41 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-29 13:52 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 13:30 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 13:32 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 13:32 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-29 13:56 - [赵今麦客串电影版开端](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 13:50 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 13:37 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-29 13:37 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:46 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/1312211807.shtml)
-- 2026-06-29 13:52 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](http://www.share.kurohicncr.top/Article/details/70456399.shtml)
-- 2026-06-29 13:29 - [金刚川](https://www.share.kurohicncr.top/Article/details/020400002.shtml)
-- 2026-06-29 13:38 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/77470727.shtml)
-- 2026-06-29 13:24 - [男子月薪五千卖房借贷给女友转账百万](http://www.share.kurohicncr.top/Article/details/06953085.shtml)
-- 2026-06-29 13:51 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/712861.shtml)
-- 2026-06-29 13:26 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/97767.shtml)
-- 2026-06-29 13:46 - [韩剧编剧又升级了](http://www.share.minike.top/Article/details/081243.shtml)
-- 2026-06-29 13:53 - [媒体人：警惕日本再次成战争加害国](http://www.share.minike.top/Article/details/3329929.shtml)
-- 2026-06-29 13:28 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/50468.shtml)
-- 2026-06-29 13:44 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/22222744.shtml)
-- 2026-06-29 13:43 - [韩媒破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/398485.shtml)
-- 2026-06-29 13:39 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/0332233943.shtml)
-- 2026-06-29 13:26 - [如果你一直单身，你准备怎么养老？](https://www.blog.kurohicncr.top/Article/details/249007.shtml)
-- 2026-06-29 13:48 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/5955636.shtml)
+- 2026-06-29 13:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/346908405059.shtml)
+- 2026-06-29 13:31 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/252499150.shtml)
+- 2026-06-29 13:47 - [《昨夜将至》为何是悬疑黑马](http://www.share.minike.top/Article/details/946259126652.shtml)
+- 2026-06-29 13:35 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.blog.kurohicncr.top/Article/details/71653.shtml)
+- 2026-06-29 13:53 - [强⁶](http://www.blog.kurohicncr.top/Article/details/096555.shtml)
+- 2026-06-29 13:44 - [刘仲华院士愿当贺永辉导师](https://www.blog.kurohicncr.top/Article/details/36590930.shtml)
+- 2026-06-29 13:35 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.kurohicncr.top/Article/details/19031904.shtml)
+- 2026-06-29 13:44 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/02561118900.shtml)
+- 2026-06-29 13:56 - [加拿大92分钟绝杀](https://www.share.kurohicncr.top/Article/details/563711579371.shtml)
+- 2026-06-29 13:53 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/07648.shtml)
+- 2026-06-29 13:36 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/20407768651.shtml)
+- 2026-06-29 13:59 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.kurohicncr.top/Article/details/68756671635.shtml)
+- 2026-06-29 13:52 - [为什么6月以来北方频繁降雨](https://www.blog.minike.top/Article/details/2319408.shtml)
+- 2026-06-29 13:36 - [【独家】牧神记 第89集 明心](http://www.share.kurohicncr.top/Article/details/8053637.shtml)
+- 2026-06-29 13:45 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/962904156.shtml)

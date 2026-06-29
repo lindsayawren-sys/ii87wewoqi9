@@ -1,61 +1,50 @@
-# 美锦能源转债跌穿面值背后：货币资金无法覆盖未转股余额 业绩续亏氢能故事或难以为继
+# “经”彩开局·发展之路丨新动能加快成长 5月份我国经济发展向新向优
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：昊 近日，美锦转债价格出现大幅波动，一度跌破百元面值，正在被投资者抛弃。美锦转债的市场表现与美锦能源疲弱的基本面密切关联，公司近年来业绩持续下滑，股价也一路走低。 2025年，美锦能源营收连续第三年下滑，归母净利润第二年亏损，今年一季度继续亏损，毛利率从2021年的30%
+5月份主要经济指标已发布。数据显示，5月份，我国生产供给平稳增长，新动能加快成长，就业民生保障有力，国民经济延续总体平稳、向新向优的发展态势。 策划：赵艳艳 制作：实习生 李蔓蔓 作者：尚俊杰 王淑 来源：光明网
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+5月份主要经济指标已发布。
 
-出品：新浪财经上市公司研究院 作者：昊 近日，美锦转债价格出现大幅波动，一度跌破百元面值，正在被投资者抛弃。
+数据显示，5月份，我国生产供给平稳增长，新动能加快成长，就业民生保障有力，国民经济延续总体平稳、向新向优的发展态势。
 
-美锦转债的市场表现与美锦能源疲弱的基本面密切关联，公司近年来业绩持续下滑，股价也一路走低。
-
-2025年，美锦能源营收连续第三年下滑，归母净利润第二年亏损，今年一季度继续亏损，毛利率从2021年的30%跌至仅1%，负债率和有息负债维持高位，应付款有所降低但仍在百亿以上。
-
-更重要的是，账面23亿的货币资金已无法覆盖超27亿的未转股余额。
-
-作为转型核心方向的氢能业务，2025年美锦能源相关收入大降近50%，毛利率进一步跌至-31%。
-
-不仅如此，2022年36亿元可转债募投项目中，几个氢能项目也都出现延期或终止。
-
-自2017年以来，美锦能源向市场讲述的氢能转型故事，正在被越来越多的投资者质疑。
+策划：赵艳艳 制作：实习生 李蔓蔓 作者：尚俊杰 王淑 来源：光明网
 
 ## 相关推荐
 
-- 2026-06-29 13:26 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 13:52 - [俄军新型无人机战力如何](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-29 13:44 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-29 13:49 - [医药股集体爆发](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-29 13:43 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 13:27 - [《昨夜将至》为何是悬疑黑马](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-29 13:43 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 13:39 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-29 13:33 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-29 13:30 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 13:43 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-29 13:41 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 13:35 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 13:24 - [刘仲华院士愿当贺永辉导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 13:51 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-29 13:30 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-29 13:55 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-29 13:43 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 13:42 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 13:44 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 13:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-29 13:41 - [强⁶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 13:55 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-29 13:49 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 13:42 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 13:32 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 13:44 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 13:59 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 13:54 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:47 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/76388.shtml)
-- 2026-06-29 13:25 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/15907837986.shtml)
-- 2026-06-29 13:41 - [乔家的儿女](http://www.blog.minike.top/Article/details/52587.shtml)
-- 2026-06-29 13:41 - [恋与深空底线不该被娱乐化](http://www.blog.minike.top/Article/details/90143199.shtml)
-- 2026-06-29 13:45 - [NBA交易](https://www.blog.minike.top/Article/details/690535052.shtml)
-- 2026-06-29 13:37 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/0479524831.shtml)
-- 2026-06-29 13:27 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.blog.minike.top/Article/details/20191.shtml)
-- 2026-06-29 13:31 - [2026年Mac能玩游戏了吗](http://www.blog.minike.top/Article/details/3300130.shtml)
-- 2026-06-29 13:39 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.share.kurohicncr.top/Article/details/582297610814.shtml)
-- 2026-06-29 13:28 - [古力娜扎美出新高度](http://www.share.minike.top/Article/details/6298465088.shtml)
-- 2026-06-29 13:37 - [配音演员于小华病逝 享年78岁](http://www.blog.minike.top/Article/details/85481900.shtml)
-- 2026-06-29 13:43 - [C罗关心罗德里戈伤情](https://www.blog.minike.top/Article/details/067090352416.shtml)
-- 2026-06-29 13:52 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/265759169.shtml)
-- 2026-06-29 13:48 - [农发行总行专家委员会委员杜晓力被查](https://www.share.kurohicncr.top/Article/details/542308.shtml)
-- 2026-06-29 13:29 - [中方将20家日本实体列入关注名单](http://www.blog.minike.top/Article/details/53655239.shtml)
+- 2026-06-29 13:52 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/259749519424.shtml)
+- 2026-06-29 13:33 - [媒体人：警惕日本再次成战争加害国](https://www.share.kurohicncr.top/Article/details/9500127.shtml)
+- 2026-06-29 13:55 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/4432858.shtml)
+- 2026-06-29 13:52 - [欧洲超1300例超额死亡与高温有关](https://www.share.minike.top/Article/details/60612.shtml)
+- 2026-06-29 13:44 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.kurohicncr.top/Article/details/547093215107.shtml)
+- 2026-06-29 13:33 - [直击宜宾地震：监控剧烈摇晃](http://www.share.minike.top/Article/details/513549560756.shtml)
+- 2026-06-29 13:34 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/7153191.shtml)
+- 2026-06-29 13:56 - [如果你一直单身，你准备怎么养老？](http://www.blog.minike.top/Article/details/9071102.shtml)
+- 2026-06-29 13:50 - [Mrbeast的30天不吃饭挑战](https://www.blog.kurohicncr.top/Article/details/91870536180.shtml)
+- 2026-06-29 13:55 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/9650328.shtml)
+- 2026-06-29 13:57 - [成都至北京将新增动卧](https://www.blog.minike.top/Article/details/74188735545.shtml)
+- 2026-06-29 13:57 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/753993.shtml)
+- 2026-06-29 13:59 - [森保一：日本队要亲手改写历史](http://www.blog.minike.top/Article/details/364860748.shtml)
+- 2026-06-29 13:45 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/4574723.shtml)
+- 2026-06-29 13:57 - [严浩翔FIY断层第一](http://www.blog.kurohicncr.top/Article/details/360245923.shtml)

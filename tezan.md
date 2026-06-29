@@ -1,61 +1,59 @@
-# 宗馥莉被曝罢免销售负责人，直管营销
+# 我国拟修改注册会计师法 增加执业禁止性规定
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-据界面新闻，娃哈哈和宏胜饮料在去年经历一系列人事波动后，今年再次迎来核心部门人员的变动。 据报道，5月11日，宏胜饮料集团发布一份组织架构调整及人员任免通知。其中一个重点是：将营销中心划归总裁统筹直管；营销中心总监兼销售公司总经理吴汀燕被免职。宏胜饮料集团的总裁即为宗馥莉。 同时，对销售公司内设科室整合重组，组成两大科室：商超特通管理科和渠道管理科，新科室承接原有全部业务职能。
+中新网北京6月22日电 (记者 谢雁冰 曾玥)注册会计师法修正草案将提请十四届全国人大常委会第二十三次会议二次审议。全国人大常委会法工委发言人黄海华22日在记者会上表示，草案拟进一步规范执业行为，增加执业禁止性规定。黄海华表示，根据各方面意见，草案拟作以下主要修改：一是增加规定国家支持注册会计师行业加强诚信建设，提升执业活动规范化专业化水平，促进行业健康发展。二是进一步完善执业
 
 ## 正文
 
-据界面新闻，娃哈哈和宏胜饮料在去年经历一系列人事波动后，今年再次迎来核心部门人员的变动。
+中新网北京6月22日电 (记者 谢雁冰 曾玥)注册会计师法修正草案将提请十四届全国人大常委会第二十三次会议二次审议。
 
-据报道，5月11日，宏胜饮料集团发布一份组织架构调整及人员任免通知。
+全国人大常委会法工委发言人黄海华22日在记者会上表示，草案拟进一步规范执业行为，增加执业禁止性规定。
 
-其中一个重点是：将营销中心划归总裁统筹直管；营销中心总监兼销售公司总经理吴汀燕被免职。
+黄海华表示，根据各方面意见，草案拟作以下主要修改：一是增加规定国家支持注册会计师行业加强诚信建设，提升执业活动规范化专业化水平，促进行业健康发展。
 
-宏胜饮料集团的总裁即为宗馥莉。
+二是进一步完善执业原则，增加会计师事务所、注册会计师坚持诚信、客观、独立、公正的原则。
 
-同时，对销售公司内设科室整合重组，组成两大科室：商超特通管理科和渠道管理科，新科室承接原有全部业务职能。
+三是增加规定注册会计师协会应当为提升行业服务质量水平，拓展业务领域，实现创新发展提供支持。
 
-简单说，宏胜饮料集团和娃哈哈品牌的“营销中心”更像是管理和运营体系，“销售公司”则是具体承接经销商、渠道和回款的实体公司，两者是前后台的关系。
+四是完善法律责任，体现从严监管、精准处罚、过罚相当。
 
-此外，宏胜饮料还宣布了这些科室的相关负责人及相关人士变动。
+黄海华介绍，2026年2月27日至3月28日向社会公开征求意见期间，在中国人大网共收到441人次提出的760条意见，其中专门设置注册会计师职业一栏供行业主体反映意见，共收到注册会计师249人次提出的432条意见，占意见总数的56.8%。
 
-其中大部分人员都是升职，而只有吴汀燕和吴潘潘（原计划中心生产管理科科长）被免职。
+社会公众主要对注册会计师行业执业原则、监督管理、执行审计业务时的禁止行为、会计师事务所的组织形式和责任承担、改革审计委托模式、完善法律责任等提出了意见建议。
 
 ## 相关推荐
 
-- 2026-06-29 13:26 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-29 13:45 - [加拿大92分钟绝杀南非](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-29 13:45 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-29 13:43 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-29 13:35 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-29 13:51 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 13:44 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 13:48 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 13:31 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-29 13:45 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-29 13:49 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-29 13:46 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 13:24 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 13:46 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 13:45 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-29 13:42 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 13:54 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 13:46 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 13:36 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 13:58 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 13:55 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 13:50 - [韩国政府将对世界杯出局追责](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 13:34 - [严浩翔FIY断层第一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 13:31 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 13:57 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-29 13:36 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 13:45 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 13:35 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:50 - [这开放世界游戏，竟然允许玩家屠城？](http://www.blog.minike.top/Article/details/22032.shtml)
-- 2026-06-29 13:31 - [papi酱自曝曾因尝试21天减肥法患病](http://www.blog.kurohicncr.top/Article/details/68392252.shtml)
-- 2026-06-29 13:34 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/5736655.shtml)
-- 2026-06-29 13:32 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/338858570636.shtml)
-- 2026-06-29 13:46 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/55170449777.shtml)
-- 2026-06-29 13:27 - [布里奇斯被交易至太阳](https://www.blog.minike.top/Article/details/6044039.shtml)
-- 2026-06-29 13:28 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.blog.kurohicncr.top/Article/details/49209478.shtml)
-- 2026-06-29 13:43 - [美伊同意停止互袭 30日在多哈谈判](https://www.blog.kurohicncr.top/Article/details/8221678.shtml)
-- 2026-06-29 13:44 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.share.minike.top/Article/details/731975289322.shtml)
-- 2026-06-29 13:26 - [王楚钦3比0周启豪](http://www.share.kurohicncr.top/Article/details/217558.shtml)
-- 2026-06-29 13:44 - [普京：俄罗斯面临命运攸关时刻](https://www.share.minike.top/Article/details/9344421.shtml)
-- 2026-06-29 13:40 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/13371183713.shtml)
-- 2026-06-29 13:29 - [网友偶遇胡军和李乃文](http://www.blog.minike.top/Article/details/84018796768.shtml)
-- 2026-06-29 13:44 - [游戏数据被用于军事目的 国安部提醒](http://www.blog.minike.top/Article/details/719686.shtml)
-- 2026-06-29 13:29 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/16275372.shtml)
+- 2026-06-29 13:52 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/2334275608.shtml)
+- 2026-06-29 13:53 - [杨紫 你幸福的话我会比你先流泪](https://www.blog.minike.top/Article/details/871149179257.shtml)
+- 2026-06-29 13:30 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/1744172.shtml)
+- 2026-06-29 13:31 - [光与夜之恋](http://www.blog.minike.top/Article/details/96874.shtml)
+- 2026-06-29 13:43 - [哈兰德之歌火到国外](https://www.blog.kurohicncr.top/Article/details/84196973.shtml)
+- 2026-06-29 13:30 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/37739.shtml)
+- 2026-06-29 13:35 - [TLAW vs DCG MSI](http://www.share.kurohicncr.top/Article/details/1904019.shtml)
+- 2026-06-29 13:39 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.minike.top/Article/details/3761040.shtml)
+- 2026-06-29 13:33 - [唐国强打卡贵阳孔学堂](https://www.share.minike.top/Article/details/1798584630.shtml)
+- 2026-06-29 13:34 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/5360006.shtml)
+- 2026-06-29 13:52 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/921252.shtml)
+- 2026-06-29 13:48 - [撒旦的腋窝是什么比喻](https://www.blog.kurohicncr.top/Article/details/336470333.shtml)
+- 2026-06-29 13:33 - [我们注定是一撮县城葱姜蒜](http://www.share.minike.top/Article/details/605102248.shtml)
+- 2026-06-29 13:51 - [曾沛慈夺冠后人气](https://www.share.minike.top/Article/details/3926601.shtml)
+- 2026-06-29 13:44 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.kurohicncr.top/Article/details/627135183.shtml)

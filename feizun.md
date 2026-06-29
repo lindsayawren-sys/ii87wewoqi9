@@ -1,60 +1,61 @@
-# 盘前：纳指期货跌0.1% 美伊没谈拢布油涨逾2%
+# 美食文旅节目《三餐四季》在广西体验酸辣与鲜香碰撞的寻味之旅
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-在美国和伊朗未能就结束中东战争达成一致后，周一全球股市仍顶住油价上涨和债券收益率走高带来的压力。 截至发稿，道指期货跌0.1%，标普500期指跌0.1%，纳指期货跌0.1% MSCI全球指数日内基本持平。欧洲Stoxx 600指数震荡交投，标普500指数期货则运行在历史高位下方。 稍早，亚洲市场方面，在美国半导体股上周五大涨逾5%后，科技股领涨亚洲股市。韩国KOSPI指数上涨4
+中新网北京6月21日电 大型美食文旅节目《三餐四季》20日走进广西，主持人撒贝宁、王嘉宁携手嘉宾组成寻味团，来到柳州与玉林，深入街巷、山水，开启一场酸辣与鲜香碰撞的八桂寻味之旅。 品味柳州，从一碗螺蛳粉开始。螺蛳的鲜、骨汤的醇、酸笋的烈，尽数融于一锅。米粉煮至软韧弹牙，舀一勺滚烫红汤浇入碗中，配上炸得金黄的腐竹、吸饱汤汁的炸蛋，嗦一口，酸、辣、鲜、爽、烫，整个人瞬间被唤醒。 柳
 
 ## 正文
 
-在美国和伊朗未能就结束中东战争达成一致后，周一全球股市仍顶住油价上涨和债券收益率走高带来的压力。
+中新网北京6月21日电 大型美食文旅节目《三餐四季》20日走进广西，主持人撒贝宁、王嘉宁携手嘉宾组成寻味团，来到柳州与玉林，深入街巷、山水，开启一场酸辣与鲜香碰撞的八桂寻味之旅。
 
-截至发稿，道指期货跌0.1%，标普500期指跌0.1%，纳指期货跌0.1% MSCI全球指数日内基本持平。
+品味柳州，从一碗螺蛳粉开始。
 
-欧洲Stoxx 600指数震荡交投，标普500指数期货则运行在历史高位下方。
+螺蛳的鲜、骨汤的醇、酸笋的烈，尽数融于一锅。
 
-稍早，亚洲市场方面，在美国半导体股上周五大涨逾5%后，科技股领涨亚洲股市。
+米粉煮至软韧弹牙，舀一勺滚烫红汤浇入碗中，配上炸得金黄的腐竹、吸饱汤汁的炸蛋，嗦一口，酸、辣、鲜、爽、烫，整个人瞬间被唤醒。
 
-韩国KOSPI指数上涨4.3%，连续第五次创下纪录新高。
+柳州螺蛳粉也有潮流新吃法——鸳鸯螺蛳粉一碗两吃，干捞浓郁、汤粉鲜爽；凉拌螺蛳粉用螺蛳酱拌匀，夏日限定的清爽；更有螺蛳糍粑，把酸笋和螺蛳肉裹进糯米皮，外酥里糯，一口咬开满嘴鲜。
 
-此前一周，标普 500 指数与纳斯达克综合指数分别累计上涨超 2% 和 4%，双双录得连续第六周上涨—— 为 2024 年以来首次。
+柳州的螺蛳粉店主们各有各的绝活儿，既互相品鉴学习，又坚持自己那口独特的味道，为螺蛳粉带来无限可能。
 
-道琼斯指数上周上涨 0.2%，过去六周内有五周收涨。
+华灯初上，柳州的夜宵江湖开场。
 
-上周五收盘，美股全线走高。
+寻味团走进大排档，一锅螺蛳鸭脚煲端上桌，热气蒸腾，红汤翻滚。
 
 ## 相关推荐
 
-- 2026-06-29 13:38 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-29 13:26 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 13:32 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 13:25 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 13:53 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 13:34 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-29 13:31 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 13:35 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-29 13:28 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-29 13:49 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-29 13:50 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-29 13:44 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-29 13:26 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-29 13:28 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-29 13:57 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 13:52 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 13:32 - [张一山回应与杨紫友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-29 13:41 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-29 13:48 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 13:42 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 13:39 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 13:33 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 13:59 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 13:32 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 13:58 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-29 13:31 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 13:55 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 13:36 - [为什么6月以来北方频繁降雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 13:36 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:41 - [记者率先试乘西十高铁](https://www.share.kurohicncr.top/Article/details/435250962.shtml)
-- 2026-06-29 13:40 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.kurohicncr.top/Article/details/116116.shtml)
-- 2026-06-29 13:26 - [沙丘](http://www.blog.minike.top/Article/details/887106624.shtml)
-- 2026-06-29 13:25 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/20939094.shtml)
-- 2026-06-29 13:36 - [金牌调解](http://www.share.kurohicncr.top/Article/details/175498502230.shtml)
-- 2026-06-29 13:47 - [异世界一点都不好玩！](http://www.blog.kurohicncr.top/Article/details/0341025.shtml)
-- 2026-06-29 13:42 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/282281.shtml)
-- 2026-06-29 13:52 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/719598313.shtml)
-- 2026-06-29 13:34 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/0590858.shtml)
-- 2026-06-29 13:29 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.kurohicncr.top/Article/details/33981989.shtml)
-- 2026-06-29 13:24 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.minike.top/Article/details/0387846155.shtml)
-- 2026-06-29 13:35 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.kurohicncr.top/Article/details/663400.shtml)
-- 2026-06-29 13:29 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.minike.top/Article/details/996057054.shtml)
-- 2026-06-29 13:52 - [这开放世界游戏，竟然允许玩家屠城？](https://www.blog.minike.top/Article/details/52101868.shtml)
-- 2026-06-29 13:25 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/0121616.shtml)
+- 2026-06-29 13:57 - [毕业寄几百斤快递回家女生发声](https://www.share.kurohicncr.top/Article/details/90614.shtml)
+- 2026-06-29 13:53 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.minike.top/Article/details/406265444.shtml)
+- 2026-06-29 13:51 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.share.kurohicncr.top/Article/details/4012658.shtml)
+- 2026-06-29 13:45 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.share.kurohicncr.top/Article/details/25717532859.shtml)
+- 2026-06-29 13:47 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/24124.shtml)
+- 2026-06-29 13:35 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/48144872886.shtml)
+- 2026-06-29 13:51 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/933662119099.shtml)
+- 2026-06-29 13:33 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.blog.minike.top/Article/details/379146461.shtml)
+- 2026-06-29 13:39 - [加拿大绝杀南非晋级](https://www.blog.minike.top/Article/details/71947368.shtml)
+- 2026-06-29 13:57 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/354493225.shtml)
+- 2026-06-29 13:39 - [世界杯欧美八大豪强悉数出线](http://www.share.kurohicncr.top/Article/details/507124527661.shtml)
+- 2026-06-29 13:49 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/2083580.shtml)
+- 2026-06-29 13:40 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/0506342.shtml)
+- 2026-06-29 13:55 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.minike.top/Article/details/11855894838.shtml)
+- 2026-06-29 13:49 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.kurohicncr.top/Article/details/644980888.shtml)

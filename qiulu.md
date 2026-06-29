@@ -1,58 +1,47 @@
-# 突发！奔驰前高管执掌沃尔沃大中华区
+# 印度谋求在美印贸易协定中获取竞争优势
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-变革期，汽车高层变动不断。 5月11日，沃尔沃汽车突然宣布其大中华区管理层最新任命。在沃尔沃汽车工作16年后，沃尔沃汽车大中华区总裁兼CEO袁小林决定卸任公司日常运营管理工作，将更多的时间留给家庭。 接任袁小林职位的是今年4月底刚从奔驰离职的段建军。今年2月14日，奔驰中国宣布人事调整，段建军因个人原因离任奔驰销售公司总裁兼CEO，自3月1日起，段建军担任战略顾问，直至4月30
+媒体援引印度一名联邦部长的消息称，在取得相较于其他国家的竞争优势前，印度不太可能落实拟议中的美印贸易协定。 报道称，印度工商部长于周六新闻发布会上表示：“目前悬而未决的核心问题是，我方关税水平必须低于其他竞争国家。”责任编辑：何云
 
 ## 正文
 
-变革期，汽车高层变动不断。
+媒体援引印度一名联邦部长的消息称，在取得相较于其他国家的竞争优势前，印度不太可能落实拟议中的美印贸易协定。
 
-5月11日，沃尔沃汽车突然宣布其大中华区管理层最新任命。
+报道称，印度工商部长于周六新闻发布会上表示：“目前悬而未决的核心问题是，我方关税水平必须低于其他竞争国家。
 
-在沃尔沃汽车工作16年后，沃尔沃汽车大中华区总裁兼CEO袁小林决定卸任公司日常运营管理工作，将更多的时间留给家庭。
-
-接任袁小林职位的是今年4月底刚从奔驰离职的段建军。
-
-今年2月14日，奔驰中国宣布人事调整，段建军因个人原因离任奔驰销售公司总裁兼CEO，自3月1日起，段建军担任战略顾问，直至4月30日任期届满。
-
-沃尔沃汽车方面称，执掌沃尔沃汽车大中华区后，段建军将加入沃尔沃集团全球核心管理层以及全球销售管理层，并向中国董事会汇报，全面执掌大中华区端到端业务，负责全价值链的工业和商业整体运营（研产供销）。
-
-2010年，袁小林成为了吉利并购沃尔沃汽车项目的核心成员，并购事项完成后加入沃尔沃汽车集团，在瑞典总部担任董事长办公室主任、董事会秘书。
-
-2014年袁小林回国担任沃尔沃汽车集团中国区总裁，并于2015年被任命为沃尔沃汽车亚太区代理高级副总裁。
+”责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 13:46 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 13:31 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 13:40 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-29 13:24 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-29 13:27 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 13:53 - [双高胎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 13:29 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-29 13:29 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-29 13:42 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 13:50 - [链博会上的机器人太全能了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-29 13:34 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-29 13:51 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 13:35 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-29 13:47 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 13:30 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 13:34 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-29 13:34 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-29 13:37 - [普京称俄处于命运攸关之际](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-29 13:54 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 13:41 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 13:39 - [王楚钦周启豪爆分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 13:32 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-29 13:55 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:45 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.kurohicncr.top/Article/details/03939.shtml)
-- 2026-06-29 13:28 - [扫黑风暴](https://www.share.minike.top/Article/details/066069.shtml)
-- 2026-06-29 13:42 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/531439770.shtml)
-- 2026-06-29 13:43 - [日媒称韩国史诗级上上签终成噩梦](http://www.share.minike.top/Article/details/650319838.shtml)
-- 2026-06-29 13:48 - [C罗关心罗德里戈伤情](http://www.blog.minike.top/Article/details/6912883.shtml)
-- 2026-06-29 13:51 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.minike.top/Article/details/01348406136.shtml)
-- 2026-06-29 13:48 - [世界田联钻石联赛巴黎站严子怡夺冠](http://www.share.kurohicncr.top/Article/details/25326399917.shtml)
-- 2026-06-29 13:37 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.kurohicncr.top/Article/details/81911.shtml)
-- 2026-06-29 13:51 - [TLAW vs DCG MSI](http://www.blog.minike.top/Article/details/8927610854.shtml)
-- 2026-06-29 13:38 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/63586.shtml)
-- 2026-06-29 13:39 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.minike.top/Article/details/2728356.shtml)
-- 2026-06-29 13:36 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/9625356.shtml)
-- 2026-06-29 13:44 - [勇敢的心第二部](http://www.share.minike.top/Article/details/91430011.shtml)
-- 2026-06-29 13:36 - [DSpark论文深度解读](https://www.share.minike.top/Article/details/69976551.shtml)
-- 2026-06-29 13:47 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/8258593.shtml)
+- 2026-06-29 13:46 - [日本主帅：目标是冠军](http://www.share.minike.top/Article/details/65514735.shtml)
+- 2026-06-29 13:54 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/8204628294.shtml)
+- 2026-06-29 13:36 - [A股](https://www.blog.minike.top/Article/details/52911547.shtml)
+- 2026-06-29 13:58 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.kurohicncr.top/Article/details/4890458.shtml)
+- 2026-06-29 13:51 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/350030681.shtml)
+- 2026-06-29 13:39 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/401622522462.shtml)
+- 2026-06-29 13:57 - [为什么欧洲人不装空调](http://www.blog.kurohicncr.top/Article/details/591481726693.shtml)
+- 2026-06-29 13:34 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.share.kurohicncr.top/Article/details/11199.shtml)
+- 2026-06-29 13:47 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/27588508.shtml)
+- 2026-06-29 13:43 - [腾讯回应做独立支付APP](https://www.share.kurohicncr.top/Article/details/63373401998.shtml)
+- 2026-06-29 13:51 - [《贺子珍》](http://www.blog.minike.top/Article/details/50210.shtml)
+- 2026-06-29 13:42 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/2133598.shtml)
+- 2026-06-29 13:30 - [韩体育部长回应李在明痛批](https://www.share.minike.top/Article/details/0649182620.shtml)
+- 2026-06-29 13:51 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.kurohicncr.top/Article/details/9730289195.shtml)
+- 2026-06-29 13:35 - [比亚迪为什么卖得越多市值越低](https://www.blog.kurohicncr.top/Article/details/42471056407.shtml)

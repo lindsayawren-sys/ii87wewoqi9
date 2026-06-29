@@ -1,59 +1,61 @@
-# “中国式安全感”为何圈粉世界（人民时评）
+# 中国南方迎来新一轮持续强降雨 多部门会商部署防范应对
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-人民日报 常言道 “快递放门口不会丢”“凌晨3点敢独自在街头撸串”“笔记本电脑放咖啡馆桌子上也没人碰”……这些中国人习以为常的生活细节，近来被外国博主总结为“中国式安全感”，正在海外掀起一场“羡慕旋风”，也让我们再次审视这份安稳背后的深层逻辑。 这种安全感，照见平安中国建设的成就，彰显以人民为中心的价值取向。在中国，公共安全不是少数人的福利，而是以国家制度为依托、以全体人民为对
+中新社北京6月18日电 (记者 陈溯)记者18日从中国应急管理部获悉，中国南方多地迎来新一轮持续强降雨过程，多部门会商部署防范应对。 18日，国家防汛抗旱总指挥部办公室、应急管理部组织多部门联合会商，研判近期降雨发展趋势，研究部署重点地区防汛工作。国家防总启动针对湖北、安徽的防汛四级应急响应，将针对广西的防汛三级应急响应降至四级，维持针对浙江、江西、湖南、广东、重庆、贵州、云南
 
 ## 正文
 
-人民日报 常言道 “快递放门口不会丢”“凌晨3点敢独自在街头撸串”“笔记本电脑放咖啡馆桌子上也没人碰”……这些中国人习以为常的生活细节，近来被外国博主总结为“中国式安全感”，正在海外掀起一场“羡慕旋风”，也让我们再次审视这份安稳背后的深层逻辑。
+中新社北京6月18日电 (记者 陈溯)记者18日从中国应急管理部获悉，中国南方多地迎来新一轮持续强降雨过程，多部门会商部署防范应对。
 
-这种安全感，照见平安中国建设的成就，彰显以人民为中心的价值取向。
+18日，国家防汛抗旱总指挥部办公室、应急管理部组织多部门联合会商，研判近期降雨发展趋势，研究部署重点地区防汛工作。
 
-在中国，公共安全不是少数人的福利，而是以国家制度为依托、以全体人民为对象的普惠性安全。
+国家防总启动针对湖北、安徽的防汛四级应急响应，将针对广西的防汛三级应急响应降至四级，维持针对浙江、江西、湖南、广东、重庆、贵州、云南的防汛四级应急响应。
 
-遇到麻烦，碰到险情，“打了求助号码就会有人来”；邻里间的口角纠纷、走失老人儿童的紧急寻回，“有事找警察”给人以踏实的心理支撑……不论身在繁华城市还是偏远乡村，都能得到充分安全保障。
+会商指出，18日起，随着主雨带北抬，长江、淮河、太湖流域将迎来新一轮持续强降雨过程，降雨范围大、持续时间长且伴有短时强对流天气，此外，珠江流域“龙舟水”也将持续。
 
-无差别的安全供给，背后是鲜明的价值底色：人民至上。
+会商强调，要抓好人员转移避险，做到应转尽转、应转早转。
 
-徒法不足以自行，良法更需善治。
+落实预警响应闭环，压实预警“叫应”、预警响应联动两项核心机制，严格执行高级别预警必响应刚性要求，各有关部门要加密联合会商，实现信息互通、响应同步、措施协同。
 
-中国式安全感，扎根于基层治理的高效运转与持续发力。
+聚焦山洪和地质灾害、中小河流洪水、中小水库度汛、城市内涝等，针对性做好各项防御措施。
 
-从新时代“枫桥经验”引领矛盾纠纷有效化解，到人防与技防相结合实现网格化精细管理；从12345热线高效解决群众难题，到“朝阳群众”“红枫义警”等不断壮大群防群治力量……良好社会秩序是由千万个微小治理单元共同托举起来的。
+各级防汛抗旱指挥部门要高效运转，各级防汛责任人特别是包乡包村干部提前下沉一线，相关部门要加强行业监管和专业指导，确保责任链条无缝衔接。
 
 ## 相关推荐
 
-- 2026-06-29 13:43 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-29 13:36 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-29 13:25 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 13:35 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 13:37 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-29 13:25 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 13:24 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 13:27 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 13:42 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 13:31 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-29 13:35 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-29 13:39 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-29 13:33 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-29 13:51 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 13:48 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 13:38 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 13:35 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 13:41 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 13:36 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-29 13:41 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-29 13:57 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-29 13:33 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-29 13:31 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 13:47 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-29 13:43 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 13:56 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-29 13:32 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 13:47 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:27 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/98180619.shtml)
-- 2026-06-29 13:48 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.kurohicncr.top/Article/details/588760136547.shtml)
-- 2026-06-29 13:35 - [恋与深空评分暴跌至1.8](https://www.blog.minike.top/Article/details/4810270.shtml)
-- 2026-06-29 13:29 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/339562896.shtml)
-- 2026-06-29 13:41 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/1621948218.shtml)
-- 2026-06-29 13:30 - [网约车司机转账1.5万后被乘客拉黑](https://www.blog.minike.top/Article/details/143782392.shtml)
-- 2026-06-29 13:51 - [在委侨团负责人：家乡的帮助很及时](http://www.blog.minike.top/Article/details/848771480.shtml)
-- 2026-06-29 13:52 - [伊朗球员致歉](http://www.blog.minike.top/Article/details/18464.shtml)
-- 2026-06-29 13:50 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.minike.top/Article/details/23477373.shtml)
-- 2026-06-29 13:47 - [高考公平需要延伸到志愿填报这一环](https://www.share.kurohicncr.top/Article/details/74821779636.shtml)
-- 2026-06-29 13:53 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.kurohicncr.top/Article/details/1491275.shtml)
-- 2026-06-29 13:49 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/49091733.shtml)
-- 2026-06-29 13:52 - [未来5年全国能源体系将呈现这些特征](https://www.blog.minike.top/Article/details/881920059787.shtml)
-- 2026-06-29 13:41 - [中餐厅南北饮食差异](http://www.share.minike.top/Article/details/37324.shtml)
-- 2026-06-29 13:30 - [海清白玉兰奖运](http://www.share.minike.top/Article/details/821996717.shtml)
+- 2026-06-29 13:39 - [在家赤身裸体是否绝对自由](https://www.share.kurohicncr.top/Article/details/45130438669.shtml)
+- 2026-06-29 13:41 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/02760291.shtml)
+- 2026-06-29 13:49 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/89132319.shtml)
+- 2026-06-29 13:54 - [高考志愿今起开始填报](http://www.blog.kurohicncr.top/Article/details/118384.shtml)
+- 2026-06-29 13:48 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/786566986547.shtml)
+- 2026-06-29 13:55 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/136527781418.shtml)
+- 2026-06-29 13:30 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/435240.shtml)
+- 2026-06-29 13:30 - [恋与深空需直面玩家6大疑问](http://www.share.kurohicncr.top/Article/details/845818818.shtml)
+- 2026-06-29 13:36 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/7611405.shtml)
+- 2026-06-29 13:42 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/176462.shtml)
+- 2026-06-29 13:33 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/94397571.shtml)
+- 2026-06-29 13:50 - [中餐厅南北饮食差异](http://www.share.kurohicncr.top/Article/details/1546351576.shtml)
+- 2026-06-29 13:51 - [巴西德国15次闯进世界杯淘汰赛](http://www.share.kurohicncr.top/Article/details/22130955.shtml)
+- 2026-06-29 13:30 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.blog.kurohicncr.top/Article/details/56846.shtml)
+- 2026-06-29 13:41 - [曾沛慈夺冠后人气](http://www.blog.minike.top/Article/details/123236597.shtml)

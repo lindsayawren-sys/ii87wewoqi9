@@ -1,45 +1,61 @@
-# 中国外运将于6月29日派发末期股息每股0.1754港元
+# 再涨3%！近1年跑赢科创50的“宽基”科技ETF继续新高！光纤概念引爆AI算力，长飞光纤强势涨停
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-中国外运（00598）发布公告，将于2026年6月29日派发截至2025年12月31日止年度末期股息每股0.1754港元。责任编辑：卢昱君
+6月22日，截至9时40分，科技龙头强者恒强，国内首只*科技龙头先锋——科技ETF华宝（515000）场内涨超3%，日线五连阳再创上市近7年新高！ 成份股方面，AI算力方向继续强势，光纤龙头长飞光纤强势涨停，存储龙头协创数据涨超10%，半导体龙头士兰微、华润微涨超8%，中天科技、烽火同i性能、扬杰科技、中微公司、兆易创新等多股涨超5%。 中信建投表示，在全球AI算力产业蓬勃发展
 
 ## 正文
 
-中国外运（00598）发布公告，将于2026年6月29日派发截至2025年12月31日止年度末期股息每股0.1754港元。
+6月22日，截至9时40分，科技龙头强者恒强，国内首只*科技龙头先锋——科技ETF华宝（515000）场内涨超3%，日线五连阳再创上市近7年新高！
 
-责任编辑：卢昱君
+成份股方面，AI算力方向继续强势，光纤龙头长飞光纤强势涨停，存储龙头协创数据涨超10%，半导体龙头士兰微、华润微涨超8%，中天科技、烽火同i性能、扬杰科技、中微公司、兆易创新等多股涨超5%。
+
+中信建投表示，在全球AI算力产业蓬勃发展，泛AI行业和传统产业景气分化加剧的当下，我们继续看好AI算力作为本轮牛市中长期核心主线的后续表现。
+
+从短期来看，陆家嘴金融论坛等国内政策红利有望继续推动双创板块上涨，美联储加息预期也未阻挡全球科技股上行，预计创业板和科创板将继续保持强势。
+
+中泰证券也认为，就后续市场风格而言，我们认为科技行情或将持续，价值反转不具备条件。
+
+我们预计即将召开的会议仍将围绕新质生产力与科技创新展开部署，政策重心短期内不会偏移。
+
+就后续而言，长鑫科技上市在即或构成新一轮上涨催化。
+
+科技牛，买龙头！
 
 ## 相关推荐
 
-- 2026-06-29 13:53 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-29 13:53 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-29 13:44 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 13:39 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-29 13:35 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-29 13:40 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-29 13:35 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 13:42 - [爱情有烟火你是知道我爱看什么的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-29 13:37 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-29 13:34 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 13:31 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-29 13:33 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-29 13:50 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 13:32 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 13:37 - [退休化学教授帮医药研发人员制毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 13:59 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-29 13:39 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 13:46 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-29 13:52 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 13:39 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-29 13:48 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 13:40 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 13:33 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 13:53 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 13:51 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 13:51 - [爱情有烟火你是知道我爱看什么的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:26 - [韩国队启程回国众将回避镜头](http://www.share.kurohicncr.top/Article/details/121846489547.shtml)
-- 2026-06-29 13:30 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/0377141.shtml)
-- 2026-06-29 13:43 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.blog.kurohicncr.top/Article/details/32204024940.shtml)
-- 2026-06-29 13:43 - [去了一趟潮汕。](https://www.share.kurohicncr.top/Article/details/08868705724.shtml)
-- 2026-06-29 13:39 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/24161517526.shtml)
-- 2026-06-29 13:26 - [绘画区你赢了](http://www.blog.minike.top/Article/details/15384335.shtml)
-- 2026-06-29 13:44 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/028304265101.shtml)
-- 2026-06-29 13:37 - [多只A股发布股价异动公告](https://www.share.minike.top/Article/details/91374914750.shtml)
-- 2026-06-29 13:52 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/32911.shtml)
-- 2026-06-29 13:37 - [迈巴赫提车第二天发现大灯起雾](https://www.blog.minike.top/Article/details/2548302.shtml)
-- 2026-06-29 13:53 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/061918072.shtml)
-- 2026-06-29 13:32 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/71552.shtml)
-- 2026-06-29 13:44 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/245632.shtml)
-- 2026-06-29 13:41 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/47138190.shtml)
-- 2026-06-29 13:46 - [王楚钦3-0周启豪 晋级32强](https://www.share.minike.top/Article/details/69089774938.shtml)
+- 2026-06-29 13:30 - [民进党为什么拼命抹黑统战](http://www.share.minike.top/Article/details/50324.shtml)
+- 2026-06-29 13:32 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/1941849662.shtml)
+- 2026-06-29 13:55 - [小娘惹](http://www.share.kurohicncr.top/Article/details/094604859306.shtml)
+- 2026-06-29 13:32 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/179034699490.shtml)
+- 2026-06-29 13:48 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://www.share.minike.top/Article/details/8910882.shtml)
+- 2026-06-29 13:58 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.minike.top/Article/details/8047227396.shtml)
+- 2026-06-29 13:31 - [2025年人口增长10强城市出炉](https://www.blog.minike.top/Article/details/950503.shtml)
+- 2026-06-29 13:31 - [恋与深空底线不该被娱乐化](https://www.share.kurohicncr.top/Article/details/743814439.shtml)
+- 2026-06-29 13:55 - [毒液2](http://www.share.kurohicncr.top/Article/details/1654024415.shtml)
+- 2026-06-29 13:31 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/89893.shtml)
+- 2026-06-29 13:46 - [高考志愿今起开始填报](https://www.share.minike.top/Article/details/4950003772.shtml)
+- 2026-06-29 13:47 - [如何“亲菌子”又“远小人儿”](https://www.share.minike.top/Article/details/5941539424.shtml)
+- 2026-06-29 13:52 - [张一山回应与杨紫友情](https://www.blog.kurohicncr.top/Article/details/80445563.shtml)
+- 2026-06-29 13:59 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/5675553956.shtml)
+- 2026-06-29 13:47 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/330889215143.shtml)

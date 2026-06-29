@@ -1,57 +1,57 @@
-# 马斯克“最重要产品”即将量产：机器人板块20股涨超10%创一年新高
+# 持续开展多领域实试验 神舟二十三号乘组在轨动态更新
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-快科技5月10日消息，五一长假后，机器人板块交易活跃度显著提升，中证机器人指数单周收涨8.85%，周涨幅创逾一年新高，近20只个股股价涨超10%，绿的谐波、凌云光、震裕科技等个股刷新股价历史高点。 此轮行情的核心催化因素来自特斯拉。据特斯拉官方释放的信息，第三代人形机器人预计年中正式亮相，7至8月启动投产，最终规划年产能达100万台。 马斯克在一季度财报电话会上重申，人形机器人
+今天是端午假期最后一天，在大家享受假期的闲暇时，距离地面400多公里的中国空间站内，神舟二十三号乘组三名航天员朱杨柱、张志远、黎家盈仍然在忙碌着。 持续开展多领域实试验 上周，乘组利用太空拉曼光谱仪开展“菌群与营养代谢”相关实验研究，通过检测尿液样本中的代谢组分，探究长期飞行环境下肠道菌群的变化及其对营养代谢的影响。 同时，开展视觉运动加工、微重力直觉物理等项目相关行为实验，探
 
 ## 正文
 
-快科技5月10日消息，五一长假后，机器人板块交易活跃度显著提升，中证机器人指数单周收涨8.85%，周涨幅创逾一年新高，近20只个股股价涨超10%，绿的谐波、凌云光、震裕科技等个股刷新股价历史高点。
+今天是端午假期最后一天，在大家享受假期的闲暇时，距离地面400多公里的中国空间站内，神舟二十三号乘组三名航天员朱杨柱、张志远、黎家盈仍然在忙碌着。
 
-此轮行情的核心催化因素来自特斯拉。
+持续开展多领域实试验 上周，乘组利用太空拉曼光谱仪开展“菌群与营养代谢”相关实验研究，通过检测尿液样本中的代谢组分，探究长期飞行环境下肠道菌群的变化及其对营养代谢的影响。
 
-据特斯拉官方释放的信息，第三代人形机器人预计年中正式亮相，7至8月启动投产，最终规划年产能达100万台。
+同时，开展视觉运动加工、微重力直觉物理等项目相关行为实验，探究重力对视觉运动信息加工过程的影响及其机理，以及长期空间飞行对直觉物理表征的影响及恢复机制。
 
-马斯克在一季度财报电话会上重申，人形机器人将成为特斯拉有史以来最重要的产品，甚至可能是“人类历史上最重要的产品之一”。
+航天员还开展了在轨情绪识别与评价技术研究、应急决策能力评估相关测试，探究情绪状态及应急决策能力的变化规律。
 
-特斯拉今年资本支出将超过250亿美元，重点投入Cortex 2算力集群、Dojo 3定制芯片及Optimus工厂筹备。
+此外，乘组更换了流体柜内实验样品、拆装两相柜实验模块、安装红外热像仪，并开展了典型水生动植物空间共生与在轨加工技术试验下行样品处置等工作。
 
-从个股表现看，华中数控以23.2%的5月涨幅领跑板块；盈峰环境5月涨20.12%，年初至今累计涨幅已达122.07%；绿的谐波5月涨17.34%，股价于5月8日刷新历史高点。
+开展进驻以来首次医疗救护在轨训练 上周，乘组开展了进驻以来的首次医疗救护在轨训练，帮助航天员熟悉微重力环境下的救护操作方式、施力特性等。
 
-拓普集团、三花智控等特斯拉产业链核心公司也实现两位数上涨。
+在平台照料方面，乘组测量了舱内风速及温度、空气洁净度、采集微生物样本，检查维护再生生保系统设备、巡视低温存储装置，并更换了核心舱睡眠区软质门。
 
-然而，板块内一季度业绩分化显著。
+进行健康管理 坚持运动锻炼 在健康管理上，乘组完成了视力检查、眼压及眼底检查，使用骨丢失对抗仪，通过力负荷刺激开展防护工作，同时坚持运动锻炼。
 
 ## 相关推荐
 
-- 2026-06-29 13:33 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 13:51 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-29 13:36 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-29 13:44 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 13:44 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-29 13:26 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-29 13:45 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-29 13:28 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-29 13:50 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-29 13:38 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-29 13:53 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 13:49 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 13:48 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 13:58 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 13:41 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-29 13:54 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 13:50 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 13:38 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 13:39 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-29 13:32 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 13:52 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-29 13:34 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:42 - [杨紫下沉市场口碑](https://www.share.kurohicncr.top/Article/details/446776.shtml)
-- 2026-06-29 13:36 - [Mrbeast的30天不吃饭挑战](http://www.share.kurohicncr.top/Article/details/642744.shtml)
-- 2026-06-29 13:37 - [日本主帅：对战胜巴西很有信心](https://www.share.minike.top/Article/details/8952230.shtml)
-- 2026-06-29 13:46 - [AG冠军五人组轮换](https://www.blog.kurohicncr.top/Article/details/3057603888.shtml)
-- 2026-06-29 13:33 - [全国第三艘万车级汽车运输船交付](http://www.blog.kurohicncr.top/Article/details/17816933.shtml)
-- 2026-06-29 13:33 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.blog.minike.top/Article/details/60815441.shtml)
-- 2026-06-29 13:44 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.minike.top/Article/details/9837518.shtml)
-- 2026-06-29 13:37 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/962040090111.shtml)
-- 2026-06-29 13:52 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/4055530771.shtml)
-- 2026-06-29 13:46 - [市民骑哈啰单车79分钟付30元](http://www.blog.kurohicncr.top/Article/details/8093618.shtml)
-- 2026-06-29 13:43 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/79027.shtml)
-- 2026-06-29 13:48 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/466814.shtml)
-- 2026-06-29 13:35 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.kurohicncr.top/Article/details/48675391891.shtml)
-- 2026-06-29 13:53 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/416086224.shtml)
-- 2026-06-29 13:43 - [美媒：空警-3000服役即成全球最强](http://www.share.kurohicncr.top/Article/details/81055991.shtml)
+- 2026-06-29 13:52 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.share.minike.top/Article/details/7950496486.shtml)
+- 2026-06-29 13:35 - [6月我国降水为何偏多](http://www.blog.kurohicncr.top/Article/details/863923027.shtml)
+- 2026-06-29 13:56 - [韩国政府将对世界杯出局追责](https://www.blog.minike.top/Article/details/5717766379.shtml)
+- 2026-06-29 13:56 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/5044610951.shtml)
+- 2026-06-29 13:55 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/6716767.shtml)
+- 2026-06-29 13:37 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/1031599.shtml)
+- 2026-06-29 13:39 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/739452.shtml)
+- 2026-06-29 13:39 - [委内瑞拉地震已致1450死3150伤](http://www.blog.minike.top/Article/details/289759050.shtml)
+- 2026-06-29 13:48 - [三星与SK集团或将投资2000万亿韩元](http://www.share.minike.top/Article/details/52270.shtml)
+- 2026-06-29 13:55 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/239310.shtml)
+- 2026-06-29 13:36 - [陈靖可虞书欣领衔主演](http://www.share.kurohicncr.top/Article/details/391656.shtml)
+- 2026-06-29 13:31 - [袁隆平院士 不容诋毁！](https://www.blog.minike.top/Article/details/170651.shtml)
+- 2026-06-29 13:59 - [和阿根廷球员家属一起看球](https://www.share.minike.top/Article/details/23107.shtml)
+- 2026-06-29 13:57 - [AG冠军五人组轮换](http://www.blog.kurohicncr.top/Article/details/182634.shtml)
+- 2026-06-29 13:34 - [小娘惹](http://www.blog.minike.top/Article/details/494717379.shtml)

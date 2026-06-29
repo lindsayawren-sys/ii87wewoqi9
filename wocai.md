@@ -1,49 +1,59 @@
-# 浙江杭州举行防灾减灾宣传活动 沉浸式体验“圈粉”市民
+# 油菜地变“致富田”——多地油菜产业发展观察
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月09日 21:43 来源：中国新闻网 5月9日，在全国防灾减灾日前夕，2026年浙江省暨杭州市防灾减灾日主题宣传活动举行。活动通过沉浸体验、科技展示、情景演绎等多元形式，普及防灾减灾知识，提升民众自救互救能力。(吴怡欣) 责任编辑：【卢岩】
+当前正值“三夏”农忙时节，油菜收获接近尾声。作为我国第一大油料作物，今年各地油菜种植效益如何？怎样增产提质？记者在陕西、江西、湖南等地进行了实地调研。 夏至前夕，江西省樟树市吴城乡慧兰家庭农场560亩油菜迎来集中收获。看着收割机在农田里穿梭往返的场景，农场负责人杨慧兰黝黑的脸上满是笑意：“除去种子、化肥、机收成本，今年每亩油菜纯收益近260元，农场增收10多万元！” 慧兰家庭农
 
 ## 正文
 
-发布时间：2026年05月09日 21:43 来源：中国新闻网 5月9日，在全国防灾减灾日前夕，2026年浙江省暨杭州市防灾减灾日主题宣传活动举行。
+当前正值“三夏”农忙时节，油菜收获接近尾声。
 
-活动通过沉浸体验、科技展示、情景演绎等多元形式，普及防灾减灾知识，提升民众自救互救能力。
+作为我国第一大油料作物，今年各地油菜种植效益如何？
 
-(吴怡欣) 责任编辑：【卢岩】
+怎样增产提质？
+
+记者在陕西、江西、湖南等地进行了实地调研。
+
+夏至前夕，江西省樟树市吴城乡慧兰家庭农场560亩油菜迎来集中收获。
+
+看着收割机在农田里穿梭往返的场景，农场负责人杨慧兰黝黑的脸上满是笑意：“除去种子、化肥、机收成本，今年每亩油菜纯收益近260元，农场增收10多万元！
+
+” 慧兰家庭农场原先只种一季鲜食甘薯，每年8到10月收获后，几百亩土地要“闲置”小半年。
+
+2025年10月，在樟树市农业农村局技术人员的指导下，由中国农业科学院研发的高产高油优质油菜良种在她的农场“落地生根”。
 
 ## 相关推荐
 
-- 2026-06-29 13:47 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-29 13:34 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-29 13:37 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-29 13:34 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 13:38 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 13:24 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 13:29 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 13:26 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-29 13:28 - [以前不让妆女二可以艳压女主](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 13:48 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-29 13:35 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 13:34 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 13:25 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-29 13:32 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 13:46 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 13:35 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 13:37 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 13:34 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-29 13:38 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-29 13:47 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-29 13:34 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 13:43 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 13:38 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 13:38 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 13:35 - [【独家】牧神记 第89集 明心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 13:58 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:29 - [AG冠军五人组轮换](https://www.blog.kurohicncr.top/Article/details/72050105967.shtml)
-- 2026-06-29 13:38 - [中国避暑神器在欧洲卖爆了](http://www.share.kurohicncr.top/Article/details/93871876.shtml)
-- 2026-06-29 13:39 - [扬名立万](http://www.blog.minike.top/Article/details/187239065650.shtml)
-- 2026-06-29 13:34 - [爱很美味](http://www.blog.minike.top/Article/details/4296282387.shtml)
-- 2026-06-29 13:39 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/7676794.shtml)
-- 2026-06-29 13:28 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/714919251375.shtml)
-- 2026-06-29 13:36 - [巴黎两家殡仪馆爆满](https://www.share.kurohicncr.top/Article/details/06647010.shtml)
-- 2026-06-29 13:31 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/4409946.shtml)
-- 2026-06-29 13:30 - [下飞机后，我做了个很蠢的决定......](http://www.blog.minike.top/Article/details/32214812.shtml)
-- 2026-06-29 13:30 - [医护人员观影《四渡》传承长征精神](https://www.share.kurohicncr.top/Article/details/039141.shtml)
-- 2026-06-29 13:42 - [美伊同意停止互袭](http://www.blog.minike.top/Article/details/830917948.shtml)
-- 2026-06-29 13:43 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/916787115.shtml)
-- 2026-06-29 13:35 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.minike.top/Article/details/730919375.shtml)
-- 2026-06-29 13:25 - [韩体育部长回应李在明痛批](https://www.share.kurohicncr.top/Article/details/8380146.shtml)
-- 2026-06-29 13:42 - [东部机场集团新增釜山航线](http://www.blog.minike.top/Article/details/882792.shtml)
+- 2026-06-29 13:33 - [克洛普：加拿大主帅还能继续创造历史](https://www.blog.minike.top/Article/details/231164910.shtml)
+- 2026-06-29 13:47 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.minike.top/Article/details/973296998.shtml)
+- 2026-06-29 13:37 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.blog.minike.top/Article/details/279010591649.shtml)
+- 2026-06-29 13:58 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/0743030055.shtml)
+- 2026-06-29 13:45 - [金刚川](http://www.blog.kurohicncr.top/Article/details/08485126.shtml)
+- 2026-06-29 13:32 - [直击宜宾地震：监控剧烈摇晃](http://www.share.minike.top/Article/details/916596143.shtml)
+- 2026-06-29 13:56 - [南部战区位南海海域进行例行巡航](http://www.share.kurohicncr.top/Article/details/80661.shtml)
+- 2026-06-29 13:41 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/40411285740.shtml)
+- 2026-06-29 13:42 - [教育部发布预警 事关高招录取](https://www.blog.kurohicncr.top/Article/details/18006309.shtml)
+- 2026-06-29 13:37 - [白玉兰最佳女主角提名片段](https://www.share.kurohicncr.top/Article/details/3861551.shtml)
+- 2026-06-29 13:43 - [吴建豪宣布再婚](https://www.blog.minike.top/Article/details/1151493.shtml)
+- 2026-06-29 13:46 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/7111893.shtml)
+- 2026-06-29 13:51 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/03115785.shtml)
+- 2026-06-29 13:40 - [世界田联钻石联赛巴黎站严子怡夺冠](http://www.blog.minike.top/Article/details/707547975.shtml)
+- 2026-06-29 13:52 - [永远保持对人民的赤子之心](http://www.share.minike.top/Article/details/3487575.shtml)

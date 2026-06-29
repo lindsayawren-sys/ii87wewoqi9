@@ -1,53 +1,57 @@
-# 多地出现商场大屏投放、粉丝聚集应援等方式为国家队运动员庆生，体育总局发声
+# 香港国际机场黄金劫案7人被捕 约700万港元金条尚未寻回
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-转自：长安街知事 据央视新闻消息，国家体育总局有关部门负责人近日表示，近期，我们关注到全国多地出现通过商场大屏照片投放、线下粉丝聚集应援等方式为国家队运动员庆生相关活动。 此类活动不仅占用大量公共资源，而且容易对运动员备战参赛产生干扰。同时，活动组织方、商场等有关方面未经授权使用运动员肖像也涉嫌侵犯运动员合法权益。 希望大家关注运动员的赛场表现，为他们加油鼓劲。也请大家保持理性
+中新社香港6月20日电 香港特区政府警务处(简称“香港警方”)20日通报，已拘捕18日凌晨于香港国际机场发生的黄金抢劫案中的7名涉案人员。该案涉及6根总重6公斤的金条、总价值约700万港元。警方已寻获接应劫匪的车辆和涉案刀具，但尚未寻回金条。警方相信此案为有预谋作案，明显有“内鬼”通风报信，或是熟人所为。香港警方当天召开记者会介绍该案最新进展。据介绍，18日0时23分，警方接获
 
 ## 正文
 
-转自：长安街知事 据央视新闻消息，国家体育总局有关部门负责人近日表示，近期，我们关注到全国多地出现通过商场大屏照片投放、线下粉丝聚集应援等方式为国家队运动员庆生相关活动。
+中新社香港6月20日电 香港特区政府警务处(简称“香港警方”)20日通报，已拘捕18日凌晨于香港国际机场发生的黄金抢劫案中的7名涉案人员。
 
-此类活动不仅占用大量公共资源，而且容易对运动员备战参赛产生干扰。
+该案涉及6根总重6公斤的金条、总价值约700万港元。
 
-同时，活动组织方、商场等有关方面未经授权使用运动员肖像也涉嫌侵犯运动员合法权益。
+警方已寻获接应劫匪的车辆和涉案刀具，但尚未寻回金条。
 
-希望大家关注运动员的赛场表现，为他们加油鼓劲。
+警方相信此案为有预谋作案，明显有“内鬼”通风报信，或是熟人所为。
 
-也请大家保持理性，遵守相关法律法规，不组织、不参与运动员庆生等活动。
+香港警方当天召开记者会介绍该案最新进展。
 
-责任编辑：张恒星
+据介绍，18日0时23分，警方接获报案，一名受雇于内地商人的36岁香港本地男子，从印度尼西亚独自运送金条回港，他在香港国际机场三号停车场准备上车时，被3名蒙面男子持刀伏击，大腿及左臂受伤，6根金条被抢。
+
+劫匪得手后登上接应车辆逃走；受伤男子被送往医院接受治疗，目前情况稳定。
+
+香港警方指出，7名涉案人员为4男3女，年龄在20岁至39岁之间，均为香港本地居民。
 
 ## 相关推荐
 
-- 2026-06-29 13:34 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 13:28 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 13:50 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 13:26 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-29 13:27 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-29 13:43 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-29 13:48 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 13:34 - [比亚迪市值为何蒸发8000亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-29 13:43 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 13:26 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-29 13:31 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 13:55 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-29 13:39 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-29 13:46 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-29 13:51 - [民进党为什么拼命抹黑统战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 13:46 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 13:59 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 13:47 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 13:52 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 13:40 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 13:35 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-29 13:49 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:32 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.minike.top/Article/details/232856623048.shtml)
-- 2026-06-29 13:30 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.minike.top/Article/details/10106350978.shtml)
-- 2026-06-29 13:43 - [向佑说向佐是一生依靠](http://www.share.kurohicncr.top/Article/details/5068037853.shtml)
-- 2026-06-29 13:42 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.blog.minike.top/Article/details/8852353981.shtml)
-- 2026-06-29 13:41 - [农发行总行专家委员会委员杜晓力被查](http://www.blog.minike.top/Article/details/052661085608.shtml)
-- 2026-06-29 13:26 - [美媒：空警-3000服役即成全球最强](https://www.share.kurohicncr.top/Article/details/6318466.shtml)
-- 2026-06-29 13:31 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/306278.shtml)
-- 2026-06-29 13:30 - [王楚钦3-0周启豪 晋级32强](http://www.share.kurohicncr.top/Article/details/80819049860.shtml)
-- 2026-06-29 13:28 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.kurohicncr.top/Article/details/58816.shtml)
-- 2026-06-29 13:28 - [古力娜扎美出新高度](https://www.blog.minike.top/Article/details/44052300800.shtml)
-- 2026-06-29 13:48 - [T1对战KC](http://www.blog.kurohicncr.top/Article/details/69029839836.shtml)
-- 2026-06-29 13:34 - [巴基斯坦军方打死29名武装分子](http://www.blog.kurohicncr.top/Article/details/523106874545.shtml)
-- 2026-06-29 13:27 - [世界杯用球成部分门将噩梦](https://www.blog.kurohicncr.top/Article/details/8182969904.shtml)
-- 2026-06-29 13:51 - [布里奇斯被交易至太阳](https://www.share.minike.top/Article/details/72352959052.shtml)
-- 2026-06-29 13:40 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/36896180395.shtml)
+- 2026-06-29 13:44 - [TLAW vs DCG MSI](http://www.blog.kurohicncr.top/Article/details/35633017324.shtml)
+- 2026-06-29 13:33 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/86105396.shtml)
+- 2026-06-29 13:40 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.blog.kurohicncr.top/Article/details/5929364.shtml)
+- 2026-06-29 13:52 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/425299704456.shtml)
+- 2026-06-29 13:39 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.kurohicncr.top/Article/details/26915465735.shtml)
+- 2026-06-29 13:41 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/7374752.shtml)
+- 2026-06-29 13:59 - [媒体人：警惕日本再次成战争加害国](http://www.blog.minike.top/Article/details/252428.shtml)
+- 2026-06-29 13:53 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/96546516852.shtml)
+- 2026-06-29 13:59 - [加拿大92分钟绝杀成世界杯首个16强](http://www.share.minike.top/Article/details/771509747.shtml)
+- 2026-06-29 13:56 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/4913560.shtml)
+- 2026-06-29 13:30 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/23965486.shtml)
+- 2026-06-29 13:52 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/4923386661.shtml)
+- 2026-06-29 13:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/47162.shtml)
+- 2026-06-29 13:50 - [全国第三艘万车级汽车运输船交付](http://www.blog.kurohicncr.top/Article/details/950911.shtml)
+- 2026-06-29 13:42 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.blog.kurohicncr.top/Article/details/292378906.shtml)

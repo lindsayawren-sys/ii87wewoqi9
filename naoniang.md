@@ -1,52 +1,50 @@
-# 新疆：女子酒后从地库挪车被丈夫举报 交警取证后判其酒驾
+# 广西特色五色糯米粽端午热销
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月09日 17:45 来源：中国新闻网 近日，新疆，一女子酒后欲将车辆从地库门口挪至停车位，不料被丈夫当场举报酒驾。面对十二师公安局交警，女子辩解只是短距离挪车，并未上路行驶，殊不知小区地库、公共停车场均属于法律界定的道路范畴，只要酒后启动车辆并行驶，就属于酒驾违法行为。十二师公安交警现场检测取证后，依法对其作出相应处罚。(作者：姜瑞） 责任编辑：【魏聪
+发布时间：2026年06月19日 16:36 来源：中国新闻网 端午前夕，广西柳州市柳城县大埔镇靖西村“80后”女子梁丝珍创新制作纯手工五色糯米粽子。从采集植物、制作染料，到浸泡糯米、蒸制米饭，她将五色糯米饭的工艺延续至粽子，让传统粽子变出花样，日销量达上千个。广西把五色糯米饭视作吉祥如意、五谷丰登的象征，其制作技艺延传至今已有1000余年历史。 (林馨 郭志生 制作 徐妙巧）
 
 ## 正文
 
-发布时间：2026年05月09日 17:45 来源：中国新闻网 近日，新疆，一女子酒后欲将车辆从地库门口挪至停车位，不料被丈夫当场举报酒驾。
+发布时间：2026年06月19日 16:36 来源：中国新闻网 端午前夕，广西柳州市柳城县大埔镇靖西村“80后”女子梁丝珍创新制作纯手工五色糯米粽子。
 
-面对十二师公安局交警，女子辩解只是短距离挪车，并未上路行驶，殊不知小区地库、公共停车场均属于法律界定的道路范畴，只要酒后启动车辆并行驶，就属于酒驾违法行为。
+从采集植物、制作染料，到浸泡糯米、蒸制米饭，她将五色糯米饭的工艺延续至粽子，让传统粽子变出花样，日销量达上千个。
 
-十二师公安交警现场检测取证后，依法对其作出相应处罚。
+广西把五色糯米饭视作吉祥如意、五谷丰登的象征，其制作技艺延传至今已有1000余年历史。
 
-(作者：姜瑞） 责任编辑：【魏聪聪】
+(林馨 郭志生 制作 徐妙巧） 责任编辑：【孙静波】
 
 ## 相关推荐
 
-- 2026-06-29 13:46 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-29 13:31 - [海清白玉兰奖运](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-29 13:37 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 13:45 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-29 13:46 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 13:49 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 13:46 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-29 13:45 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-29 13:39 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 13:35 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 13:48 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-29 13:37 - [张真源解读相思锁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-29 13:45 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-29 13:46 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-29 13:33 - [【独家】牧神记 第89集 明心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 13:50 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-29 13:45 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-29 13:52 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-29 13:46 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 13:59 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 13:59 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 13:34 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 13:48 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 13:53 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-29 13:49 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 13:30 - [加拿大92分钟绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:28 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](http://www.share.kurohicncr.top/Article/details/62631.shtml)
-- 2026-06-29 13:34 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/10523192.shtml)
-- 2026-06-29 13:38 - [中方回应对日本相关出口管制措施](https://www.share.kurohicncr.top/Article/details/18397995.shtml)
-- 2026-06-29 13:46 - [在委侨团负责人：家乡的帮助很及时](http://www.share.minike.top/Article/details/2008284.shtml)
-- 2026-06-29 13:31 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.minike.top/Article/details/7797438.shtml)
-- 2026-06-29 13:34 - [边洗边甩干？游客玩大摆锤遇暴雨](http://www.blog.kurohicncr.top/Article/details/575176.shtml)
-- 2026-06-29 13:41 - [毒液2](https://www.share.kurohicncr.top/Article/details/97362423.shtml)
-- 2026-06-29 13:33 - [F1奥地利正赛战报](http://www.share.minike.top/Article/details/784075.shtml)
-- 2026-06-29 13:47 - [白玉兰最佳女主角提名片段](http://www.share.minike.top/Article/details/0407283002.shtml)
-- 2026-06-29 13:41 - [加拿大92分钟绝杀南非](https://www.blog.kurohicncr.top/Article/details/211378053997.shtml)
-- 2026-06-29 13:49 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.kurohicncr.top/Article/details/697382.shtml)
-- 2026-06-29 13:41 - [啊啊啊](http://www.share.minike.top/Article/details/70750.shtml)
-- 2026-06-29 13:30 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/785770428014.shtml)
-- 2026-06-29 13:25 - [在家赤身裸体是否绝对自由](http://www.blog.kurohicncr.top/Article/details/327975.shtml)
-- 2026-06-29 13:51 - [内马尔能上场15分钟](http://www.blog.kurohicncr.top/Article/details/02211633482.shtml)
+- 2026-06-29 13:55 - [王佳佳江疏影13年前后同框对比](https://www.blog.kurohicncr.top/Article/details/7536333.shtml)
+- 2026-06-29 13:54 - [世界杯超牛补水广告出现了](https://www.blog.kurohicncr.top/Article/details/84637.shtml)
+- 2026-06-29 13:44 - [高考志愿今起开始填报](http://www.share.minike.top/Article/details/52085325652.shtml)
+- 2026-06-29 13:55 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/66747.shtml)
+- 2026-06-29 13:56 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/3095670.shtml)
+- 2026-06-29 13:57 - [恋与深空底线不该被娱乐化](http://www.share.minike.top/Article/details/97208167018.shtml)
+- 2026-06-29 13:34 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/5674099342.shtml)
+- 2026-06-29 13:58 - [吴昕要助理买的药6年前已停产](http://www.blog.minike.top/Article/details/208147178.shtml)
+- 2026-06-29 13:53 - [逃狱兄弟](http://www.blog.minike.top/Article/details/59263942376.shtml)
+- 2026-06-29 13:39 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/56568069271.shtml)
+- 2026-06-29 13:30 - [和阿根廷球员家属一起看球](https://www.blog.kurohicncr.top/Article/details/12986.shtml)
+- 2026-06-29 13:53 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/450703047915.shtml)
+- 2026-06-29 13:56 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/50885.shtml)
+- 2026-06-29 13:33 - [如何“亲菌子”又“远小人儿”](http://www.blog.kurohicncr.top/Article/details/513951756.shtml)
+- 2026-06-29 13:49 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/1790946715.shtml)

@@ -1,57 +1,58 @@
-# 天喻信息（300205）被处罚，股民索赔可期
+# 匹克球赛事落地银川商圈 文体旅融合点燃端午消费热
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年5月1日，武汉天喻信息产业股份有限公司（简称：天喻信息、ST天喻，代码：300205）发布《关于收到中国证券监督管理委员会湖北监管局行政处罚决定书的公告》。 经中国证监会湖北监管局查明，天喻信息及相关人员涉嫌违法的事实如下： 一、天喻信息未按规定披
+中新网银川6月20日电 (记者 李佩珊)6月19日至20日，2026亚太匹克球联盟杯公开赛(银川金凤站)暨端午文旅促消费活动在建发悠阅城开赛，以国际积分赛事为纽带，联动文旅、商贸、民俗多元业态，打造一站式城市休闲嘉年华。 本次赛事获得亚太匹克球联盟(APBA)官方积分认证，由宁夏体育局指导，金凤区政府多部门联合主办。全国各地近500名匹克球爱好者同台竞技，专业赛事与大众休闲运动
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网银川6月20日电 (记者 李佩珊)6月19日至20日，2026亚太匹克球联盟杯公开赛(银川金凤站)暨端午文旅促消费活动在建发悠阅城开赛，以国际积分赛事为纽带，联动文旅、商贸、民俗多元业态，打造一站式城市休闲嘉年华。
 
-2026年5月1日，武汉天喻信息产业股份有限公司（简称：天喻信息、ST天喻，代码：300205）发布《关于收到中国证券监督管理委员会湖北监管局行政处罚决定书的公告》。
+本次赛事获得亚太匹克球联盟(APBA)官方积分认证，由宁夏体育局指导，金凤区政府多部门联合主办。
 
-经中国证监会湖北监管局查明，天喻信息及相关人员涉嫌违法的事实如下： 一、天喻信息未按规定披露关联交易，2023年年度报告存在重大遗漏。
+全国各地近500名匹克球爱好者同台竞技，专业赛事与大众休闲运动相融共生，也是当地推进“体育赛事进景区、进街区、进商圈”、落实“跟着赛事去旅行”的创新尝试。
 
-（一）关联人情况。
+本次活动创新商圈办赛模式，打破赛场与商场的边界，让潮流运动氛围碰撞端午市井烟火。
 
-2022年10月20日，天喻信息与深圳市锦瑞通信息科技有限公司（以下简称锦瑞通）签署的《模块产品供货协议》中约定，生效订单发货前锦瑞通向天喻信息支付全部货款，天喻信息在未收到锦瑞通货款的情况下发货，亦未要求锦瑞通承担违约责任。
+市民观赛之余，可同步逛街购物、休闲打卡，充分释放赛事引流优势。
 
-在与锦瑞通的业务中，天喻信息承担客户导入和维护、生产、发货、质量保证等责任，货物不经过锦瑞通，锦瑞通不承担货品损毁、灭失的责任，锦瑞通仅起到销售通道的作用。
+围绕促消费主线，现场设置七大特色板块，商圈专属优惠惠及市民与参赛选手，国潮展演、乐队演出吸引年轻群体，新能源车展、农特产品展区集中展示贺兰山东麓葡萄酒、冷凉蔬菜等宁夏特色产品，非遗创意集市、端午民俗体验、趣味运动区同步开放，兼顾亲子游玩与全民健身。
 
-天喻信息在违反内部《客户信用分类管理办法》（2022年3月修订）规定的授信标准和审批程序的情况下，于2023年2月17日与锦瑞通再次签订《模块产品供货协议》，仅增加授信相关条款。
+此次赛事的流量也转化为了消费增量。
 
-根据《上市公司信息披露管理办法》（证监会令第182 号）第六十二条第四项“实质重于形式的原则”，锦瑞通为天喻信息的关联法人。
+数据显示，6月19日开赛当天，建发悠阅城客流4.5万人次，销售额达500万元，同比增长5.7%。
 
 ## 相关推荐
 
-- 2026-06-29 13:50 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-29 13:42 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 13:37 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-29 13:28 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 13:29 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 13:45 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-29 13:41 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 13:30 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-29 13:47 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 13:42 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 13:25 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 13:45 - [薛之谦演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-29 13:53 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 13:54 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-29 13:56 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-29 13:35 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 13:54 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 13:37 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 13:51 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 13:58 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-29 13:49 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 13:50 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 13:58 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:42 - [链博会上的机器人太全能了](https://www.share.kurohicncr.top/Article/details/829614.shtml)
-- 2026-06-29 13:46 - [杨紫《生命树》播放量破百亿](http://www.blog.kurohicncr.top/Article/details/06213680342.shtml)
-- 2026-06-29 13:29 - [利率一再降 “存款搬家”搬去哪](https://www.blog.minike.top/Article/details/982184.shtml)
-- 2026-06-29 13:41 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.share.minike.top/Article/details/115650.shtml)
-- 2026-06-29 13:44 - [为什么欧洲人不装空调](http://www.share.kurohicncr.top/Article/details/84147.shtml)
-- 2026-06-29 13:48 - [去了一趟潮汕。](http://www.blog.kurohicncr.top/Article/details/6431602.shtml)
-- 2026-06-29 13:42 - [1954年以来闯进世界杯淘汰赛次数排行](https://www.share.minike.top/Article/details/32033771.shtml)
-- 2026-06-29 13:51 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.kurohicncr.top/Article/details/7490840890.shtml)
-- 2026-06-29 13:52 - [极限挑战第一季](http://www.share.minike.top/Article/details/0180763647.shtml)
-- 2026-06-29 13:50 - [王楚钦 表演球擦网](https://www.blog.kurohicncr.top/Article/details/180159561914.shtml)
-- 2026-06-29 13:38 - [航空运输旅客服务质量国标将实施](https://www.share.kurohicncr.top/Article/details/0982737.shtml)
-- 2026-06-29 13:29 - [中餐厅南北饮食差异](http://www.share.kurohicncr.top/Article/details/32814.shtml)
-- 2026-06-29 13:43 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/316537051089.shtml)
-- 2026-06-29 13:24 - [白宇摘下白玉兰送给杨幂](http://www.blog.kurohicncr.top/Article/details/595649.shtml)
-- 2026-06-29 13:50 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/34765.shtml)
+- 2026-06-29 13:46 - [四川宜宾地震](https://www.share.minike.top/Article/details/9282625777.shtml)
+- 2026-06-29 13:38 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/467818072591.shtml)
+- 2026-06-29 13:54 - [退休化学教授帮医药研发人员制毒](http://www.blog.kurohicncr.top/Article/details/54929534136.shtml)
+- 2026-06-29 13:58 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.minike.top/Article/details/3654908.shtml)
+- 2026-06-29 13:43 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/856046267.shtml)
+- 2026-06-29 13:30 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/60626921632.shtml)
+- 2026-06-29 13:41 - [亚洲成世界杯最大失意者联盟](http://www.share.kurohicncr.top/Article/details/0249093898.shtml)
+- 2026-06-29 13:48 - [成都至北京将新增动卧](https://www.blog.kurohicncr.top/Article/details/39550.shtml)
+- 2026-06-29 13:43 - [美伊同意停止互袭](http://www.share.kurohicncr.top/Article/details/5147833126.shtml)
+- 2026-06-29 13:51 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/144048703382.shtml)
+- 2026-06-29 13:46 - [水利部部署南方地区暴雨洪水防御工作](http://www.blog.minike.top/Article/details/142953.shtml)
+- 2026-06-29 13:51 - [高考志愿今起开始填报](http://www.share.kurohicncr.top/Article/details/947603977.shtml)
+- 2026-06-29 13:46 - [广州某高校辟谣禁止小米汽车入校](http://www.share.minike.top/Article/details/15642873260.shtml)
+- 2026-06-29 13:31 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/574629896736.shtml)
+- 2026-06-29 13:40 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.kurohicncr.top/Article/details/464392823.shtml)

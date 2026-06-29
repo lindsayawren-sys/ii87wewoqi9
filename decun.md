@@ -1,57 +1,61 @@
-# 任子行披露索赔进展，符合要求还可加入
+# 22家A股公司发布公告提示风险 回应氮化铝等多个热点事项
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！上海沪紫律师事务所刘鹏律师团队近日再次递交部分案件至法院立案。回溯此案，其被起诉跟一纸处罚有关，证监会的《行政处罚决定书》揭开了任子行连续两年半财务造假的真相。 至于投资者索赔案进展，据任子行2025年年报披露，部分投资者以公司证券虚假陈述致使原告在证券交易中遭受经济损失为由，要求公司给予赔偿。 截至本财务
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 6月18日晚间，22家A股公司发布股票交易异常波动或股票交易风险提示公告，分别是兆易创新、*ST艾艾、卓郎智能（维权）、爱迪特、铂力特（维权）、太极实业、*ST清越（维权）、晋拓股份、北自科技、福达股份、立航科技、珍宝岛、盛和资源、盛剑科技、ST海钦、ST绝味（维权）、鑫宏业、*ST三房（
 
 ## 正文
 
 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-上海沪紫律师事务所刘鹏律师团队近日再次递交部分案件至法院立案。
+来源：中国基金报 6月18日晚间，22家A股公司发布股票交易异常波动或股票交易风险提示公告，分别是兆易创新、*ST艾艾、卓郎智能（维权）、爱迪特、铂力特（维权）、太极实业、*ST清越（维权）、晋拓股份、北自科技、福达股份、立航科技、珍宝岛、盛和资源、盛剑科技、ST海钦、ST绝味（维权）、鑫宏业、*ST三房（维权）、旭光电子、金博股份、艾华集团、*ST正平（维权）。
 
-回溯此案，其被起诉跟一纸处罚有关，证监会的《行政处罚决定书》揭开了任子行连续两年半财务造假的真相。
+部分A股公司在公告中回应了多个热点事项，包括可控核聚变、氮化铝、超级电容、AI服务器、人形机器人、半导体、存储芯片等。
 
-至于投资者索赔案进展，据任子行2025年年报披露，部分投资者以公司证券虚假陈述致使原告在证券交易中遭受经济损失为由，要求公司给予赔偿。
+2家A股公司回应氮化铝 旭光电子公告称，近期，公司被归类为可控核聚变、氮化铝等概念股，但2026年初至今公司的可控核聚变相关产品尚未交付实现收入，并且2026年第一季度公司氮化铝相关产品占营业收入的比重约为5%，不会对公司目前经营业绩产生重大影响。
 
-截至本财务报表批准报出日止，根据《民事判决书》（2025）粤03民初365号等案件，公司证券虚假陈述责任纠纷案所涉诉讼一审判决金额为484.14万元，应承担的诉讼费为8.98万，公司对此确认了预计负债493.12万元，同时按照相关程序提起上诉，二审法院已受理但尚未开庭审理。
+金博股份公告称，公司的高纯氮化铝粉体产品尚未形成产能，相关产线正在投建，投产时间尚不确定。
 
-据处罚，任子行被处罚主要源于全资子公司亚鸿世纪相关年度存在多计资产、多计收入、多计利润等情况。
+同时，该产品的客户导入和验证工作存在不确定性风险，预计对公司2026年的经营业绩不构成影响。
 
-通过上述方式，导致2020年至2022年上半年虚增营业收入、虚增利润总额，导致任子行披露的相关年度年报及半年报存在虚假记载。
+2家A股公司分别回应人形机器人、存储芯片 北自科技公告称，近期，市场对人形机器人概念的关注度较高，但目前公司聚焦产业化落地，未生产人形机器人本体及零部件，也没有发现可能或已对公司股价产生影响的其他热点概念事项。
 
-并且2023年2月14日，任子行披露的《募集说明书》，引用了上述 2020 年度及2021年度营业收入数据，因此被监管严惩。
+兆易创新公告称，目前，公司所处的存储芯片行业，由于供给短缺促使价格出现较大幅度上涨，助力公司经营业绩提振，但存储行业在历史上呈现出显著的周期性波动特征，供给与需求终将走向再平衡。
 
 ## 相关推荐
 
-- 2026-06-29 13:52 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 13:47 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 13:52 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 13:35 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-29 13:47 - [T1对战KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 13:47 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 13:27 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-29 13:49 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-29 13:48 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 13:53 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-29 13:26 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-29 13:54 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 13:41 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 13:48 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 13:54 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-29 13:56 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 13:32 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-29 13:32 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-29 13:51 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-29 13:45 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-29 13:47 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 13:54 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 13:43 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-29 13:46 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 13:47 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 13:58 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/908687.shtml)
-- 2026-06-29 13:38 - [吴海燕兰西雅漫步复兴岛](http://www.share.kurohicncr.top/Article/details/174163412.shtml)
-- 2026-06-29 13:53 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.share.kurohicncr.top/Article/details/17832.shtml)
-- 2026-06-29 13:30 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/8073558.shtml)
-- 2026-06-29 13:24 - [毒液2](http://www.share.kurohicncr.top/Article/details/1065838718.shtml)
-- 2026-06-29 13:50 - [欧委会总部只给高层开空调](http://www.blog.minike.top/Article/details/3699775.shtml)
-- 2026-06-29 13:36 - [王佳佳江疏影13年前后同框对比](http://www.share.kurohicncr.top/Article/details/137934998.shtml)
-- 2026-06-29 13:32 - [叶一茜森碟一起回北京了](http://www.share.kurohicncr.top/Article/details/6219726482.shtml)
-- 2026-06-29 13:46 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/816292996516.shtml)
-- 2026-06-29 13:38 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/5495030539.shtml)
-- 2026-06-29 13:33 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/9332570594.shtml)
-- 2026-06-29 13:34 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.minike.top/Article/details/0729448189.shtml)
-- 2026-06-29 13:41 - [世界杯用球成部分门将噩梦](https://www.blog.kurohicncr.top/Article/details/0518946647.shtml)
-- 2026-06-29 13:31 - [女子遭家暴两次起诉离婚均被驳回](https://www.blog.kurohicncr.top/Article/details/268613913522.shtml)
-- 2026-06-29 13:31 - [爱很美味](http://www.share.kurohicncr.top/Article/details/517572.shtml)
+- 2026-06-29 13:45 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.share.minike.top/Article/details/343353.shtml)
+- 2026-06-29 13:54 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/7277712647.shtml)
+- 2026-06-29 13:54 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/0483925.shtml)
+- 2026-06-29 13:58 - [宜宾5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/127888882.shtml)
+- 2026-06-29 13:58 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://www.blog.kurohicncr.top/Article/details/1977396222.shtml)
+- 2026-06-29 13:34 - [急先锋](https://www.blog.minike.top/Article/details/1344041.shtml)
+- 2026-06-29 13:56 - [拄拐少年高考663分：用行动回报社会](http://www.blog.minike.top/Article/details/381541831220.shtml)
+- 2026-06-29 13:53 - [森保一：日本队要亲手改写历史](http://www.blog.kurohicncr.top/Article/details/25445.shtml)
+- 2026-06-29 13:37 - [为什么欧洲人不装空调](https://www.share.minike.top/Article/details/06681042.shtml)
+- 2026-06-29 13:43 - [张一山回应与杨紫友情](https://www.blog.minike.top/Article/details/208273676.shtml)
+- 2026-06-29 13:46 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/513358.shtml)
+- 2026-06-29 13:59 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://www.share.kurohicncr.top/Article/details/68847735611.shtml)
+- 2026-06-29 13:54 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.share.kurohicncr.top/Article/details/469387542520.shtml)
+- 2026-06-29 13:54 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.kurohicncr.top/Article/details/294167.shtml)
+- 2026-06-29 13:38 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/4914790.shtml)

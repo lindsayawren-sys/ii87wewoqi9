@@ -1,59 +1,58 @@
-# “榴莲自由”，真的要来了
+# 《梦寻苏毗女儿国》全球首映 斩获上影节多项荣誉
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-在昆明金马正昌水果批发市场，金枕、甲仑、托曼尼等泰国产榴莲琳琅满目，金枕的价格每公斤28元起。在不少电商直播平台，花129元即可买到2公斤以上的6房果肉榴莲，还包邮。相比过去动辄百元一斤的高价，如今榴莲价格正变得越来越“亲民”。 榴莲价格下降背后有哪些原因？“榴莲自由”真的更近了吗？从进口到国产，从物流到种植，这颗热带水果正在经历深刻变化。 物流提速助力榴莲跨国“鲜达” 4月中
+中新网拉萨6月22日电(贡嘎来松)近日，由中宣部电影剧本中心和西藏自治区党委宣传部指导，西藏自治区文化产业发展资金扶持，浙江省援藏指挥部和那曲市委宣传部联合摄制的电影《梦寻苏毗女儿国》在第28届上海国际电影节“一带一路”电影周完成全球首映。影片凭借细腻的叙事与独特的高原人文魅力，斩获本届电影周“最受观众喜爱影片”荣誉，同时入围电影频道传媒关注单元三项提名，收获观众与专业评审的双
 
 ## 正文
 
-在昆明金马正昌水果批发市场，金枕、甲仑、托曼尼等泰国产榴莲琳琅满目，金枕的价格每公斤28元起。
+中新网拉萨6月22日电(贡嘎来松)近日，由中宣部电影剧本中心和西藏自治区党委宣传部指导，西藏自治区文化产业发展资金扶持，浙江省援藏指挥部和那曲市委宣传部联合摄制的电影《梦寻苏毗女儿国》在第28届上海国际电影节“一带一路”电影周完成全球首映。
 
-在不少电商直播平台，花129元即可买到2公斤以上的6房果肉榴莲，还包邮。
+影片凭借细腻的叙事与独特的高原人文魅力，斩获本届电影周“最受观众喜爱影片”荣誉，同时入围电影频道传媒关注单元三项提名，收获观众与专业评审的双重认可。
 
-相比过去动辄百元一斤的高价，如今榴莲价格正变得越来越“亲民”。
+影片改编自作家妙莲同名小说，以公路片叙事形式展开，讲述女主角央庆拉姆为探寻身世根脉，与青年向导白玛结伴奔赴萨普雪山，探秘古老苏毗母系文明的故事。
 
-榴莲价格下降背后有哪些原因？
+影片将壮阔的高原自然风光、神秘的古文明传说与当代青年的自我成长、身份认同、亲情归属等议题相融，以温柔细腻的镜头语言，完成一场关于故乡与来处的心灵追寻。
 
-“榴莲自由”真的更近了吗？
+映后交流环节，导演拉华加介绍，影片在保留原著精神内核的基础上，重构叙事结构与人物关系，融入主创团队对高原土地与生活的真实感悟。
 
-从进口到国产，从物流到种植，这颗热带水果正在经历深刻变化。
+首次担当电影男主角的丁真珍珠分享表演心得，坦言角色兼具熟悉感与挑战性，需通过细腻的情感演绎塑造人物。
 
-物流提速助力榴莲跨国“鲜达” 4月中旬，泰国、马来西亚等东南亚国家进入榴莲集中上市期。
+女主角扮演者卓依娜姆表示，希望这部影片能如高原清风，为观众带来真诚温暖的观影体验。
 
-近日，一列满载泰国榴莲的中老铁路“澜湄快线”班列，从东南亚出发，26小时后抵达昆明。
+凭借出色的创作水准，影片在专业单元收获颇丰，入围电影频道传媒关注单元三项提名，丁真珍珠、卓依娜姆分获新人男女演员提名，音乐制作德格才让入围最佳音乐提名。
 
 ## 相关推荐
 
-- 2026-06-29 13:43 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-29 13:32 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-29 13:44 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-29 13:36 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-29 13:31 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-29 13:25 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-29 13:46 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-29 13:33 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 13:25 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 13:24 - [去了一趟潮汕。](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 13:49 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-29 13:31 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-29 13:40 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-29 13:43 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 13:44 - [王楚钦周启豪爆分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-29 13:32 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 13:41 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-29 13:49 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 13:36 - [如何“亲菌子”又“远小人儿”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-29 13:40 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-29 13:32 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-29 13:40 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-29 13:50 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-29 13:49 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 13:58 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:48 - [媒体评恋与深空争议](http://www.share.minike.top/Article/details/216424.shtml)
-- 2026-06-29 13:49 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/921557224212.shtml)
-- 2026-06-29 13:44 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/5692926085.shtml)
-- 2026-06-29 13:33 - [金刚川](http://www.blog.minike.top/Article/details/73265.shtml)
-- 2026-06-29 13:49 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.minike.top/Article/details/59153.shtml)
-- 2026-06-29 13:36 - [iPhone18系列预计将大幅涨价](http://www.share.kurohicncr.top/Article/details/2686122557.shtml)
-- 2026-06-29 13:48 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/1257603.shtml)
-- 2026-06-29 13:52 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/18311604.shtml)
-- 2026-06-29 13:42 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/73447.shtml)
-- 2026-06-29 13:52 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/23004995.shtml)
-- 2026-06-29 13:38 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/205056.shtml)
-- 2026-06-29 13:27 - [媒体：高考后消费应量力而行适度有度](http://www.share.minike.top/Article/details/418441210.shtml)
-- 2026-06-29 13:33 - [张真源解读相思锁](https://www.blog.kurohicncr.top/Article/details/8987630.shtml)
-- 2026-06-29 13:40 - [韩体育部长回应李在明痛批](http://www.blog.minike.top/Article/details/50206.shtml)
-- 2026-06-29 13:44 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/344264630729.shtml)
+- 2026-06-29 13:47 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/663554.shtml)
+- 2026-06-29 13:40 - [布里奇斯被交易至太阳](http://www.share.kurohicncr.top/Article/details/09368785358.shtml)
+- 2026-06-29 13:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/3711980966.shtml)
+- 2026-06-29 13:41 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/025618.shtml)
+- 2026-06-29 13:57 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/074160575009.shtml)
+- 2026-06-29 13:50 - [韩体育部长回应李在明痛批](https://www.share.kurohicncr.top/Article/details/57768326847.shtml)
+- 2026-06-29 13:46 - [委内瑞拉地震死亡人数升至1450人](http://www.share.kurohicncr.top/Article/details/069779.shtml)
+- 2026-06-29 13:35 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/8752830319.shtml)
+- 2026-06-29 13:50 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.kurohicncr.top/Article/details/676775638.shtml)
+- 2026-06-29 13:39 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/0248345177.shtml)
+- 2026-06-29 13:48 - [配音演员于小华病逝 享年78岁](http://www.blog.minike.top/Article/details/66047842794.shtml)
+- 2026-06-29 13:49 - [网友偶遇胡军和李乃文](https://www.share.kurohicncr.top/Article/details/22225441.shtml)
+- 2026-06-29 13:55 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.minike.top/Article/details/46611838.shtml)
+- 2026-06-29 13:37 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.kurohicncr.top/Article/details/6611000254.shtml)
+- 2026-06-29 13:45 - [专家建议城乡居民养老金增至每月千元](https://www.blog.kurohicncr.top/Article/details/300656.shtml)

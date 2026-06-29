@@ -1,59 +1,57 @@
-# 荔枝红透 榴莲飘香 夏季鲜果大量上市 挑选有诀窍
+# 在沪留学生围棋培训班结业：落子上海 友谊生根
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-随着夏季到来，各地时令鲜果大量上市。广东省中山市的果园里，红彤彤的“五月红”荔枝缀满枝头，较往年提前了10多天上市。广西南宁的水果市场，各品种的榴莲也到了上市高峰……我们一起来感受夏日果香。 广东中山：初夏满园飘香 “五月红”荔枝抢鲜上市 在广东中山市的一个果园里，荔枝树枝繁叶茂，红艳诱人的“五月红”挂满枝头，果香扑面而来。果农们忙着采摘、分装鲜果，处处洋溢着丰收的喜悦。 果农
+发布时间：2026年06月21日 17:27 来源：中国新闻网 6月20日，在沪留学生围棋培训班结业仪式在复旦大学举行。本次培训班共有32名学员顺利结业并获得结业证书，其中26名学员获得围棋业余1段等级证书，2名学员将出战第十届世界大学生围棋锦标赛。本次培训班自启动以来受到广大留学生积极响应，共吸引200余人报名，最终遴选86名留学生参加课程，学员来自35个国家和地区，覆盖13
 
 ## 正文
 
-随着夏季到来，各地时令鲜果大量上市。
+发布时间：2026年06月21日 17:27 来源：中国新闻网 6月20日，在沪留学生围棋培训班结业仪式在复旦大学举行。
 
-广东省中山市的果园里，红彤彤的“五月红”荔枝缀满枝头，较往年提前了10多天上市。
+本次培训班共有32名学员顺利结业并获得结业证书，其中26名学员获得围棋业余1段等级证书，2名学员将出战第十届世界大学生围棋锦标赛。
 
-广西南宁的水果市场，各品种的榴莲也到了上市高峰……我们一起来感受夏日果香。
+本次培训班自启动以来受到广大留学生积极响应，共吸引200余人报名，最终遴选86名留学生参加课程，学员来自35个国家和地区，覆盖13所高校。
 
-广东中山：初夏满园飘香 “五月红”荔枝抢鲜上市 在广东中山市的一个果园里，荔枝树枝繁叶茂，红艳诱人的“五月红”挂满枝头，果香扑面而来。
+作为同济大学的俄罗斯籍留学生，时美樱通过围棋，结识了来自不同国家的朋友，尽管大家母语各异，但围棋成了彼此沟通的共同语言。
 
-果农们忙着采摘、分装鲜果，处处洋溢着丰收的喜悦。
+“我们都是外国人，却因为学习围棋，有共同的话题，交流在一起。
 
-果农 黄敏：都是有酸有甜，有些比较熟就甜一点。
+” 中国围棋协会主席常昊说：“围棋不仅竞技性非常强，同时它也是中华优秀传统文化。
 
-今天第一天采摘。
+我们一直致力于在海外推广围棋，希望通过举办针对留学生这个群体的培训班，让更多国际上的年轻人了解围棋，喜欢围棋。
 
-一天采摘3000斤左右，大概三四十箱。
+”(记者 缪璐 制作 王佳琪) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 13:29 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 13:43 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-29 13:35 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-29 13:34 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-29 13:40 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-29 13:29 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 13:38 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-29 13:49 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-29 13:36 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-29 13:29 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 13:40 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-29 13:37 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 13:40 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 13:48 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 13:56 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 13:54 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 13:58 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 13:44 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 13:56 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 13:35 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 13:35 - [航空运输旅客服务质量国标将实施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 13:58 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 13:38 - [白玉兰最佳女主角提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 13:37 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:26 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/382088857613.shtml)
-- 2026-06-29 13:35 - [退休化学教授帮医药研发人员制毒](https://www.blog.kurohicncr.top/Article/details/08588814.shtml)
-- 2026-06-29 13:44 - [美人鱼](https://www.blog.minike.top/Article/details/3811844725.shtml)
-- 2026-06-29 13:36 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/4477244327.shtml)
-- 2026-06-29 13:47 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/64244257.shtml)
-- 2026-06-29 13:50 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/7859182073.shtml)
-- 2026-06-29 13:27 - [未来5年全国能源体系将呈现这些特征](https://www.share.kurohicncr.top/Article/details/07665642734.shtml)
-- 2026-06-29 13:47 - [多只A股发布股价异动公告](http://www.blog.minike.top/Article/details/38831909.shtml)
-- 2026-06-29 13:39 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/433883.shtml)
-- 2026-06-29 13:44 - [高考公平需要延伸到志愿填报这一环](https://www.blog.kurohicncr.top/Article/details/007814737.shtml)
-- 2026-06-29 13:44 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/91430608059.shtml)
-- 2026-06-29 13:35 - [美媒：空警-3000服役即成全球最强](http://www.share.kurohicncr.top/Article/details/246371.shtml)
-- 2026-06-29 13:30 - [王楚钦首轮赢下国乒德比](http://www.blog.kurohicncr.top/Article/details/9975647.shtml)
-- 2026-06-29 13:32 - [天道](https://www.share.kurohicncr.top/Article/details/684194080691.shtml)
-- 2026-06-29 13:41 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/447765970940.shtml)
+- 2026-06-29 13:52 - [唐艺昕女儿接唐艺昕回家](https://www.share.kurohicncr.top/Article/details/270494.shtml)
+- 2026-06-29 14:00 - [本周做什么都顺的星座](http://www.share.minike.top/Article/details/5730470.shtml)
+- 2026-06-29 13:43 - [北极荒岛生存挑战](http://www.blog.minike.top/Article/details/440364675.shtml)
+- 2026-06-29 13:38 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/487582.shtml)
+- 2026-06-29 13:34 - [恋与深空底线不该被娱乐化](https://www.share.minike.top/Article/details/996680.shtml)
+- 2026-06-29 13:33 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/198117.shtml)
+- 2026-06-29 13:38 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/76332380.shtml)
+- 2026-06-29 13:51 - [辽宁葫芦岛一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/2952393251.shtml)
+- 2026-06-29 13:54 - [宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/048125223.shtml)
+- 2026-06-29 13:47 - [韩国队差旅费亏麻了](http://www.share.kurohicncr.top/Article/details/425034.shtml)
+- 2026-06-29 13:31 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/4833279.shtml)
+- 2026-06-29 13:35 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/756112908127.shtml)
+- 2026-06-29 13:56 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/15050726279.shtml)
+- 2026-06-29 13:52 - [王楚钦首轮赢下国乒德比](http://www.blog.minike.top/Article/details/5649709575.shtml)
+- 2026-06-29 13:42 - [世界杯用球成部分门将噩梦](https://www.blog.kurohicncr.top/Article/details/95204374.shtml)

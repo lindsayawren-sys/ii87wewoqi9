@@ -1,58 +1,48 @@
-# 新紫光集团宣布组建新兴科技创新联盟，董事长李滨：剥离非核心业务，将全部资源集中于智能科技产业
+# 传音控股发布公告 已重新提交H股上市申请并披露相关资料
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-新浪科技讯 5月9日下午消息，在近日的2026新紫光集团创新峰会上，新紫光集团发布技术全家桶，展示集团面向AI时代的全产业链布局与科技创新成果，正式宣布组建新兴科技创新联盟并落地两支产业基金，还完成多项重要战略合作签约。 会上，新紫光集团董事长李滨发表了题为《创新时代》的主旨演讲。他表示，团队接手集团时，面临的是负债高达1500亿元的沉重包袱，业务横跨银行、保险、地产、教育等与
+6月21日，传音控股（688036.SH）发布公告称，公司已于2026年6月18日向香港联交所重新提交本次H股发行上市的申请，并于同日在香港联交所网站刊登申请资料。本次发行尚需取得证监会备案、香港证监会及香港联交所等批准，存在不确定性。（文章来源：央广财经）
 
 ## 正文
 
-新浪科技讯 5月9日下午消息，在近日的2026新紫光集团创新峰会上，新紫光集团发布技术全家桶，展示集团面向AI时代的全产业链布局与科技创新成果，正式宣布组建新兴科技创新联盟并落地两支产业基金，还完成多项重要战略合作签约。
+6月21日，传音控股（688036.SH）发布公告称，公司已于2026年6月18日向香港联交所重新提交本次H股发行上市的申请，并于同日在香港联交所网站刊登申请资料。
 
-会上，新紫光集团董事长李滨发表了题为《创新时代》的主旨演讲。
+本次发行尚需取得证监会备案、香港证监会及香港联交所等批准，存在不确定性。
 
-他表示，团队接手集团时，面临的是负债高达1500亿元的沉重包袱，业务横跨银行、保险、地产、教育等与智能科技毫不相干的众多领域，协同缺失，资源内耗，面对AI时代的新机遇几乎无力响应。
-
-新紫光开启了一场彻底的自我重建：2022年1月重整前负债1355亿元，截止目前，经过持续努力，负债已经降低74.2%，债务危机彻底成为历史。
-
-李滨表示，聚焦，是新紫光重建的核心战略动作。
-
-新紫光剥离非核心业务，将全部资源集中于智能科技产业，布局“半导体芯片、ICT通信基础设施、AI”三大支柱领域，以“大研发、大制造、大市场”三大举措赋能各成员企业创新发展。
-
-聚焦的成效已在市场中得到验证：集团营收同比增长超20%，除了已有3家上市公司外，多家核心产业公司IPO进程持续提速。
-
-峰会上，新紫光发布了“新紫光集团全家桶”，首次以整体形态系统呈现其面向AI时代的全产业链布局。
+（文章来源：央广财经）
 
 ## 相关推荐
 
-- 2026-06-29 13:37 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-29 13:40 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-29 13:47 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-29 13:27 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-29 13:27 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-29 13:26 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-29 13:45 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-29 13:36 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 13:48 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-29 13:34 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-29 13:31 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 13:24 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 13:45 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 13:32 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 13:41 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-29 13:32 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 13:54 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 13:43 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 13:39 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 13:55 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 13:50 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-29 13:40 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 13:52 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 13:49 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:28 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/2021964.shtml)
-- 2026-06-29 13:28 - [TOP 无畏契约](https://www.blog.minike.top/Article/details/94976441675.shtml)
-- 2026-06-29 13:38 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/93640.shtml)
-- 2026-06-29 13:47 - [韩剧编剧又升级了](http://www.share.minike.top/Article/details/19030.shtml)
-- 2026-06-29 13:53 - [人民日报评“AI脸看腻了”](https://www.blog.minike.top/Article/details/04586157.shtml)
-- 2026-06-29 13:41 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.minike.top/Article/details/164014.shtml)
-- 2026-06-29 13:30 - [一生一世](https://www.share.minike.top/Article/details/100893844.shtml)
-- 2026-06-29 13:39 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.share.minike.top/Article/details/60087113144.shtml)
-- 2026-06-29 13:37 - [比亚迪为什么卖得越多市值越低](http://www.share.minike.top/Article/details/29996.shtml)
-- 2026-06-29 13:48 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/62891601493.shtml)
-- 2026-06-29 13:49 - [媒体人：警惕日本再次成战争加害国](http://www.share.minike.top/Article/details/7932365435.shtml)
-- 2026-06-29 13:35 - [智界V9成为高端圈层共同选择](https://www.share.minike.top/Article/details/995929.shtml)
-- 2026-06-29 13:46 - [多家银行收紧个人贵金属业务](http://www.blog.kurohicncr.top/Article/details/613330309.shtml)
-- 2026-06-29 13:50 - [世界杯：日本将与巴西争夺16强席位](http://www.share.kurohicncr.top/Article/details/17354.shtml)
-- 2026-06-29 13:43 - [杨紫下沉市场口碑](https://www.blog.minike.top/Article/details/21833.shtml)
+- 2026-06-29 13:31 - [吴昕要助理买的药6年前已停产](http://www.blog.kurohicncr.top/Article/details/88476349.shtml)
+- 2026-06-29 13:58 - [河南考699分女生已接到清华大学电话](http://www.blog.minike.top/Article/details/87742.shtml)
+- 2026-06-29 13:40 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/3559937365.shtml)
+- 2026-06-29 13:55 - [三星与SK集团或将投资2000万亿韩元](https://www.share.minike.top/Article/details/338251208.shtml)
+- 2026-06-29 13:56 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/844691.shtml)
+- 2026-06-29 13:35 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.minike.top/Article/details/937576281.shtml)
+- 2026-06-29 13:49 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/382137478.shtml)
+- 2026-06-29 13:57 - [如何“亲菌子”又“远小人儿”](https://www.share.minike.top/Article/details/67625598850.shtml)
+- 2026-06-29 13:42 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/224028.shtml)
+- 2026-06-29 13:48 - [林昀儒不敌17岁小将止步首轮](http://www.share.kurohicncr.top/Article/details/855174244746.shtml)
+- 2026-06-29 13:37 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.minike.top/Article/details/81568783.shtml)
+- 2026-06-29 13:52 - [恋与深空失控领地](https://www.blog.kurohicncr.top/Article/details/737531855.shtml)
+- 2026-06-29 13:48 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/019429144176.shtml)
+- 2026-06-29 13:41 - [全国第三艘万车级汽车运输船交付](https://www.blog.minike.top/Article/details/30612860.shtml)
+- 2026-06-29 13:58 - [航空运输旅客服务质量国标将实施](https://www.blog.kurohicncr.top/Article/details/047124.shtml)

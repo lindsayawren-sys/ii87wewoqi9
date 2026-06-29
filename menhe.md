@@ -1,57 +1,55 @@
-# 彩讯股份：语音智能体Voice Agent已在多个行业实现规模化落地，推动企业降本增效与智能化升级
+# 武铁2026年端午假期预计发送旅客358万人次
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-新浪科技讯 5月9日下午消息，在近日的2026移动云大会上，彩讯股份在展区呈现了从算力底座、平台构建到AI应用落地的全栈 AI能力。在展会路演发布现场，彩讯语音智能体 Voice Agent 以语音交互能力与“感知-规划-执行”智能闭环引发关注。它打破了传统规则式语音机器人的局限，为企业打造听得懂业务、具备长效执行力的专属“数字员工”。 据悉，该产品已在多个行业实现规模化落地，
+发布时间：2026年06月18日 20:02 来源：中国新闻网 据中国铁路武汉局集团有限公司消息，2026年端午小长假铁路运输期(6月18日至6月22日)，武铁预计共发送旅客358万人次左右，日均71.6万人次。6月21日将迎来出行最高峰，预计当日发送85万人次。 为最大限度满足旅客出行需求，武铁采取早晚套跑、压缩整备时间、优化交路等方式挖掘运输潜力，预计日均上线旅客列车348
 
 ## 正文
 
-新浪科技讯 5月9日下午消息，在近日的2026移动云大会上，彩讯股份在展区呈现了从算力底座、平台构建到AI应用落地的全栈 AI能力。
+发布时间：2026年06月18日 20:02 来源：中国新闻网 据中国铁路武汉局集团有限公司消息，2026年端午小长假铁路运输期(6月18日至6月22日)，武铁预计共发送旅客358万人次左右，日均71.6万人次。
 
-在展会路演发布现场，彩讯语音智能体 Voice Agent 以语音交互能力与“感知-规划-执行”智能闭环引发关注。
+6月21日将迎来出行最高峰，预计当日发送85万人次。
 
-它打破了传统规则式语音机器人的局限，为企业打造听得懂业务、具备长效执行力的专属“数字员工”。
+为最大限度满足旅客出行需求，武铁采取早晚套跑、压缩整备时间、优化交路等方式挖掘运输潜力，预计日均上线旅客列车348.5对，并在热门方向和线路上计划加开旅客列车100对。
 
-据悉，该产品已在多个行业实现规模化落地，推动企业降本增效与智能化升级。
+铁路部门提示，当前多地降雨频繁，请旅客朋友及时关注出行信息和天气变化，预留充足进站时间，建议优先选择地铁、公交等公共交通方式前往车站。
 
-依托“感知-规划-执行”智能闭环能力，彩讯Voice Agent从企业高频通用场景切入，聚焦招聘、资源调度、故障排查与信息引导等场景需求，为客户提供轻量化、高适配的解决方案。
-
-在展会现场，彩讯Voice Agent 展示了针对招聘场景的全流程闭环交互能力。
-
-基于大多数企业招聘场景中所面临的候选人触达慢、初筛效率低、重复沟通耗时等问题，彩讯Voice Agent实现全流程自动化赋能 ：可批量导入候选人简历，联动知识库实现动态排期查询，自动生成标准化话术并主动外呼 。
-
-依托端到端延迟≤200ms的响应能力，彩讯Voice Agent支持候选人实时打断、自然插话，对话节奏完全贴合人类习惯 。
+(视频来源：中国铁路武汉局集团有限公司) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 13:36 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-29 13:35 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-29 13:51 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 13:49 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 13:43 - [医药股集体爆发](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-29 13:32 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 13:32 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-29 13:42 - [AG 钟意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-29 13:24 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 13:52 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-29 13:31 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 13:51 - [刘仲华院士愿当贺永辉导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 13:57 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 13:32 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-29 13:40 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 13:49 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-29 13:56 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 13:59 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 13:57 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-29 13:38 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-29 13:35 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 13:55 - [韩体育部长回应李在明痛批](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 13:43 - [2026年Mac能玩游戏了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-29 13:46 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-29 13:41 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-29 13:44 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:51 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/10538877547.shtml)
-- 2026-06-29 13:53 - [男子偶遇婴儿被锁车内大哭挣扎](http://www.blog.minike.top/Article/details/504234640.shtml)
-- 2026-06-29 13:35 - [Agent带来token消耗爆炸](http://www.blog.minike.top/Article/details/926433.shtml)
-- 2026-06-29 13:34 - [以前不让妆女二可以艳压女主](http://www.blog.minike.top/Article/details/227083703.shtml)
-- 2026-06-29 13:38 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/796891205.shtml)
-- 2026-06-29 13:51 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.kurohicncr.top/Article/details/16735.shtml)
-- 2026-06-29 13:38 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/411721574.shtml)
-- 2026-06-29 13:38 - [职业选手禁止参赛！](http://www.share.kurohicncr.top/Article/details/8124035.shtml)
-- 2026-06-29 13:39 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.minike.top/Article/details/008733.shtml)
-- 2026-06-29 13:49 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.kurohicncr.top/Article/details/9908825.shtml)
-- 2026-06-29 13:39 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/24638.shtml)
-- 2026-06-29 13:42 - [刘烨16岁儿子诺一颜值](http://www.share.minike.top/Article/details/5160667610.shtml)
-- 2026-06-29 13:32 - [普京称俄处于命运攸关之际](http://www.share.kurohicncr.top/Article/details/02826.shtml)
-- 2026-06-29 13:37 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.share.kurohicncr.top/Article/details/64529174821.shtml)
-- 2026-06-29 13:36 - [上周末 多领域成果密集“上新”](http://www.blog.minike.top/Article/details/33432390886.shtml)
+- 2026-06-29 13:43 - [内马尔能上场15分钟](https://www.blog.kurohicncr.top/Article/details/740200.shtml)
+- 2026-06-29 13:37 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/184479358.shtml)
+- 2026-06-29 13:43 - [成都至北京将新增动卧](http://www.blog.kurohicncr.top/Article/details/69158.shtml)
+- 2026-06-29 13:41 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.minike.top/Article/details/860133096.shtml)
+- 2026-06-29 13:47 - [媒体人：警惕日本再次成战争加害国](https://www.share.minike.top/Article/details/692286559960.shtml)
+- 2026-06-29 13:50 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/4769402.shtml)
+- 2026-06-29 13:40 - [急先锋](http://www.share.kurohicncr.top/Article/details/666437.shtml)
+- 2026-06-29 13:51 - [比亚迪为什么卖得越多市值越低](http://www.share.kurohicncr.top/Article/details/810961243.shtml)
+- 2026-06-29 13:50 - [我国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/03499520.shtml)
+- 2026-06-29 13:31 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/73139595640.shtml)
+- 2026-06-29 13:34 - [第一炉香](https://www.share.kurohicncr.top/Article/details/96441.shtml)
+- 2026-06-29 13:52 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/140521.shtml)
+- 2026-06-29 13:50 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/222407532.shtml)
+- 2026-06-29 13:40 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/65989032.shtml)
+- 2026-06-29 13:44 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/420170464264.shtml)

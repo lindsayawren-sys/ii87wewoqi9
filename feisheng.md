@@ -1,59 +1,57 @@
-# 银行理财增持债券、现金、公募基金，减持权益资产
+# 中国官方督导货拉拉落实反垄断合规整改
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-受地缘政治扰动、股市波动、客户低风险偏好及理财自身投研短板等因素影响，一季度，银行理财结束了此前连续三个季度减配债券的态势，开始增配债券、现金，同时加码投资公募基金。不过，权益类资产直投出现一定程度的萎缩。 业内人士表示，银行理财增配债券、现金存款意在做好稳健防御，加码公募基金则是希望补齐权益短板。 一季度增配债券资产 在连续三个季度减配后，银行理财开始增配债券资产。银行业理财
+中新社北京6月18日电 中国国家市场监管总局18日披露，前期该局依据《中华人民共和国反垄断法》公开约谈货拉拉，要求其停止利用算法不合理压低货运价格、利用平台规则实施强制独家车贴等行为，全面开展自查整改，依法合规经营。国家市场监管总局督促货拉拉严格落实整改要求，停止利用算法不合理压低货运价格，严格控制多因素计价订单占比，公平合理运用调价算法，推动平均每单运价、每公里运价合理回升，
 
 ## 正文
 
-受地缘政治扰动、股市波动、客户低风险偏好及理财自身投研短板等因素影响，一季度，银行理财结束了此前连续三个季度减配债券的态势，开始增配债券、现金，同时加码投资公募基金。
+中新社北京6月18日电 中国国家市场监管总局18日披露，前期该局依据《中华人民共和国反垄断法》公开约谈货拉拉，要求其停止利用算法不合理压低货运价格、利用平台规则实施强制独家车贴等行为，全面开展自查整改，依法合规经营。
 
-不过，权益类资产直投出现一定程度的萎缩。
+国家市场监管总局督促货拉拉严格落实整改要求，停止利用算法不合理压低货运价格，严格控制多因素计价订单占比，公平合理运用调价算法，推动平均每单运价、每公里运价合理回升，并常态化公示计价规则和运价涨降理由。
 
-业内人士表示，银行理财增配债券、现金存款意在做好稳健防御，加码公募基金则是希望补齐权益短板。
+国家市场监管总局要求其全面取消强制独家车贴规则，停止提高抽成、罚款等惩罚措施，并将向司机退还不合理费用1.2亿元(人民币，下同)；切实降低平台抽成费率，平台整体抽成费率由整改前约11%降至约9%，每年可减轻司机负担超13亿元。
 
-一季度增配债券资产 在连续三个季度减配后，银行理财开始增配债券资产。
+国家市场监管总局还督促货拉拉全面保障司机合法权益，取消非付费会员司机每天接2单限制，提升车型与订单匹配度，取消扣减里程机制，每年投入里程偏差补偿金1000万元，优化司机申诉流程，投入司机帮扶资金5000万元。
 
-银行业理财登记托管中心数据显示，截至 2026年一季度末，银行理财配置债券比例为41.6%，环比增长1.9个百分点。
+后续，国家市场监管总局表示，将深入整治平台经济领域“内卷式”竞争，督促货拉拉持续深化反垄断合规整改质效，保护货车司机和消费者利益，形成优质优价、良性竞争的市场秩序。
 
-而在此之前的三个季度，银行理财配置债券的比例分别为43.9%、41.8%、40.4%、39.7%，呈连续下降态势。
-
-华宝证券研究创新部副总经理蔡梦苑表示，一季度银行理财债券配置比例回升至 41.6%，结束连续三个季度的减配。
-
-这一变化一方面受到一季度债券收益率下行、资金面整体宽松的环境支撑，债券作为稳健底仓的阶段性配置价值显著提升；另一方面，“固收+”产品发行提速，带动债券资产被动增配。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 13:52 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 13:39 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-29 13:34 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-29 13:46 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-29 13:36 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 13:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 13:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 13:45 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-29 13:33 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-29 13:37 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 13:31 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-29 13:31 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-29 13:36 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 13:41 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-29 13:48 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 13:39 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 13:54 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-29 13:58 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-29 13:43 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 13:49 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 13:42 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-29 13:34 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-29 13:40 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 13:56 - [TOP 无畏契约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 13:54 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-29 13:58 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 13:56 - [强⁶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 13:31 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:28 - [退休化学教授帮医药研发人员制毒](https://www.blog.kurohicncr.top/Article/details/787398.shtml)
-- 2026-06-29 13:25 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/359273.shtml)
-- 2026-06-29 13:27 - [王楚钦3-0周启豪 晋级32强](https://www.blog.kurohicncr.top/Article/details/140377.shtml)
-- 2026-06-29 13:28 - [吴建豪老婆](http://www.blog.minike.top/Article/details/587942261616.shtml)
-- 2026-06-29 13:38 - [AG 钟意](http://www.blog.minike.top/Article/details/173066.shtml)
-- 2026-06-29 13:35 - [未来5年全国能源体系将呈现这些特征](http://www.share.kurohicncr.top/Article/details/369932305996.shtml)
-- 2026-06-29 13:35 - [杨紫《生命树》播放量破百亿](https://www.share.kurohicncr.top/Article/details/286683483982.shtml)
-- 2026-06-29 13:35 - [日本主帅：目标是冠军](http://www.share.minike.top/Article/details/7970062479.shtml)
-- 2026-06-29 13:53 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/63836513.shtml)
-- 2026-06-29 13:48 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/092683987.shtml)
-- 2026-06-29 13:50 - [韩国拟将部分刑责年龄降至13岁](http://www.blog.minike.top/Article/details/3758897201.shtml)
-- 2026-06-29 13:30 - [艾莎唱出了多少牛马的心声🥹](https://www.share.kurohicncr.top/Article/details/437852.shtml)
-- 2026-06-29 13:50 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/88867.shtml)
-- 2026-06-29 13:51 - [曾沛慈夺冠后人气](https://www.blog.minike.top/Article/details/583004298266.shtml)
-- 2026-06-29 13:46 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/977094.shtml)
+- 2026-06-29 13:30 - [A股限售股解禁一览](https://www.blog.kurohicncr.top/Article/details/61235845814.shtml)
+- 2026-06-29 13:58 - [一生一世](http://www.share.minike.top/Article/details/05609759388.shtml)
+- 2026-06-29 13:36 - [毒液2](http://www.blog.kurohicncr.top/Article/details/475132743.shtml)
+- 2026-06-29 13:50 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/808665138.shtml)
+- 2026-06-29 13:45 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/2125295535.shtml)
+- 2026-06-29 13:39 - [市民骑哈啰单车79分钟付30元](http://www.blog.kurohicncr.top/Article/details/581838493.shtml)
+- 2026-06-29 13:33 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/35894314.shtml)
+- 2026-06-29 13:52 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/98103334.shtml)
+- 2026-06-29 13:56 - [市民骑哈啰单车79分钟被收费30元](https://www.share.minike.top/Article/details/06468358342.shtml)
+- 2026-06-29 13:41 - [未来5年全国能源体系将呈现这些特征](https://www.share.minike.top/Article/details/558812.shtml)
+- 2026-06-29 13:41 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/1348056569.shtml)
+- 2026-06-29 13:38 - [女心理师](https://www.blog.minike.top/Article/details/829672820.shtml)
+- 2026-06-29 13:51 - [民进党为什么拼命抹黑统战](http://www.blog.minike.top/Article/details/79384794196.shtml)
+- 2026-06-29 13:41 - [速度与激情9](https://www.share.minike.top/Article/details/865999.shtml)
+- 2026-06-29 13:52 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.blog.minike.top/Article/details/4814111.shtml)

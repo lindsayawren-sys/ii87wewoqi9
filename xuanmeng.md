@@ -1,59 +1,60 @@
-# “长三角之星”旅游列车开启首次试运营 5月19日将从上海启程前往新疆
+# 中国北疆开行首趟音乐主题旅游专列
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-中新网上海5月9日电 (记者 殷立勤)5月8日晚，长三角地区首列舒适型旅游列车“长三角之星”亮相铁路上海站，并开启首次试运营。据悉，“长三角之星”旅游列车将于5月19日从上海启程前往新疆，18天的行程将带领游客穿越南北疆，串联赛里木湖、那拉提草原等绝美风光。 “长三角之星”旅游列车共配置12辆载客车厢，可容纳208名旅客。列车“以上海海派风格为引领，融合长三角文化元素”，将地域
+中新社哈尔滨6月20日电 (记者 史轶夫)搭载500余名旅客的Y783次列车20日从哈尔滨站发车，驶向漠河，开启为期4天的音乐与极光之旅。 这是中国铁路哈尔滨局集团有限公司今年开行的首趟“悠享龙江·歌声里的黑龙江”音乐主题旅游专列，也是创新“铁路+音乐+极地文旅”融合场景的全新实践。 本趟专列以银发游客为主，平均年龄60岁以上。专列采取“昼游夜行、车随人走、一铺到底”的模式，游
 
 ## 正文
 
-中新网上海5月9日电 (记者 殷立勤)5月8日晚，长三角地区首列舒适型旅游列车“长三角之星”亮相铁路上海站，并开启首次试运营。
+中新社哈尔滨6月20日电 (记者 史轶夫)搭载500余名旅客的Y783次列车20日从哈尔滨站发车，驶向漠河，开启为期4天的音乐与极光之旅。
 
-据悉，“长三角之星”旅游列车将于5月19日从上海启程前往新疆，18天的行程将带领游客穿越南北疆，串联赛里木湖、那拉提草原等绝美风光。
+这是中国铁路哈尔滨局集团有限公司今年开行的首趟“悠享龙江·歌声里的黑龙江”音乐主题旅游专列，也是创新“铁路+音乐+极地文旅”融合场景的全新实践。
 
-“长三角之星”旅游列车共配置12辆载客车厢，可容纳208名旅客。
+本趟专列以银发游客为主，平均年龄60岁以上。
 
-列车“以上海海派风格为引领，融合长三角文化元素”，将地域文化符号精巧嵌入车厢设计的每一处细节。
+专列采取“昼游夜行、车随人走、一铺到底”的模式，游客无需中转换乘，即可轻松出行。
 
-走道抬头是复刻的老洋房吊顶，墙面灰调暗纹刺绣在灯光下隐约泛光，像走进了一座移动的海派博物馆。
+列车采用9节编组，包括7节硬卧车厢和1节音乐主题餐车。
 
-包间门牌以石库门、荣府、江南园林等意象命名，车厢内陈设老上海影像、艺术画作与刺绣墙布，每走一步都是一处风景，像住在人文展厅里。
+其中，音乐主题餐车以“五线谱上的龙江”为设计理念，营造出浓郁的艺术氛围。
 
-为适配家庭出游、结伴出游和休闲旅居等多元需求，“长三角之星”旅游列车精心打造双人间、三人间、四人间三大主题房型。
+列车行进中，哈尔滨音乐学院组建20人专业演出团队，并特邀省内知名音乐人参演。
 
-每个房型严格按照星级酒店标准改造升级，秉持“实用型高端”设计理念，标配干湿分离独立卫浴、智能灯光控制系统、双端口充电接口、专属储物空间与全景观景窗，“一站式”满足旅客旅居出行核心需求。
+主舞台设于餐车内，演绎龙江经典曲目；其余车厢则化身“器乐小剧场”，由6支演奏组带来沉浸式表演。
 
 ## 相关推荐
 
-- 2026-06-29 13:25 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 13:30 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 13:28 - [世界杯用球成部分门将噩梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-29 13:45 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 13:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 13:30 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 13:33 - [航空运输旅客服务质量国标将实施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-29 13:41 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-29 13:52 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 13:38 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 13:35 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 13:46 - [2026年Mac能玩游戏了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-29 13:38 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-29 13:57 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-29 13:59 - [张一山说杨紫早该拿奖了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 13:46 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 13:41 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 13:48 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 13:31 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-29 13:51 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-29 13:59 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 13:36 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-29 13:35 - [去了一趟潮汕。](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-29 13:55 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-29 13:42 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-29 13:35 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 13:56 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:29 - [男子偶遇婴儿被锁车内大哭挣扎](http://www.share.kurohicncr.top/Article/details/356788.shtml)
-- 2026-06-29 13:29 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/4033209.shtml)
-- 2026-06-29 13:24 - [当我回母校教书](https://www.blog.kurohicncr.top/Article/details/16965962700.shtml)
-- 2026-06-29 13:31 - [游戏数据被用于军事目的 国安部提醒](http://www.share.minike.top/Article/details/754252690.shtml)
-- 2026-06-29 13:46 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/31900315.shtml)
-- 2026-06-29 13:31 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/68284.shtml)
-- 2026-06-29 13:31 - [周生如故](http://www.blog.kurohicncr.top/Article/details/019861.shtml)
-- 2026-06-29 13:29 - [哈兰德之歌火到国外](http://www.blog.kurohicncr.top/Article/details/94808970.shtml)
-- 2026-06-29 13:27 - [Agent带来token消耗爆炸](http://www.blog.kurohicncr.top/Article/details/8635950.shtml)
-- 2026-06-29 13:34 - [初心如磐 红色足迹](http://www.blog.kurohicncr.top/Article/details/416778.shtml)
-- 2026-06-29 13:45 - [恋与深空评分暴跌至1.8](https://www.blog.minike.top/Article/details/701909340.shtml)
-- 2026-06-29 13:31 - [金牌调解](http://www.share.minike.top/Article/details/61721927329.shtml)
-- 2026-06-29 13:40 - [水利部部署南方地区暴雨洪水防御工作](https://www.blog.minike.top/Article/details/667973611399.shtml)
-- 2026-06-29 13:26 - [AG冠军五人组轮换](https://www.share.minike.top/Article/details/0611359582.shtml)
-- 2026-06-29 13:26 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/7657963483.shtml)
+- 2026-06-29 13:36 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/506627257738.shtml)
+- 2026-06-29 13:34 - [巴西前锋说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/04008.shtml)
+- 2026-06-29 13:34 - [古力娜扎美出新高度](https://www.blog.minike.top/Article/details/4729434847.shtml)
+- 2026-06-29 13:38 - [A股](https://www.share.kurohicncr.top/Article/details/500675401174.shtml)
+- 2026-06-29 13:52 - [吴海燕兰西雅漫步复兴岛](https://www.share.kurohicncr.top/Article/details/1387907.shtml)
+- 2026-06-29 13:51 - [加拿大92分钟绝杀南非](http://www.blog.minike.top/Article/details/30065092.shtml)
+- 2026-06-29 13:56 - [四川宜宾地震](https://www.blog.minike.top/Article/details/56970498996.shtml)
+- 2026-06-29 13:30 - [赵露思爸爸拍vlog翻车了](http://www.share.kurohicncr.top/Article/details/02307562432.shtml)
+- 2026-06-29 13:55 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/569766519.shtml)
+- 2026-06-29 13:33 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/1119407.shtml)
+- 2026-06-29 13:51 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/9730656469.shtml)
+- 2026-06-29 13:32 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/882267533873.shtml)
+- 2026-06-29 13:43 - [王楚钦 表演球擦网](https://www.blog.kurohicncr.top/Article/details/828914359.shtml)
+- 2026-06-29 13:36 - [世界杯：日本将与巴西争夺16强席位](https://www.share.minike.top/Article/details/6585659.shtml)
+- 2026-06-29 13:56 - [爱情有烟火你是知道我爱看什么的](https://www.blog.kurohicncr.top/Article/details/210820996.shtml)

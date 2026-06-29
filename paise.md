@@ -1,61 +1,52 @@
-# 建起“石榴籽小银行” 把民族团结“存”进日常
+# 今年第7号台风“米克拉”生成 最强可达超强台风级
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-在内蒙古各地中小学推进铸牢中华民族共同体意识教育的背景下，舍伯吐镇第一小学这家乡镇校园里的“小银行”，以孩子们听得懂、看得见、摸得着的方式，让民族团结的种子在日常点滴中悄然生根。 在内蒙古自治区通辽市科左中旗舍伯吐镇第一小学的校园里，有一家特殊的“银行”。这里不办存取款业务，“办理”的是孩子们的好习惯、好品德和各民族学生之间的团结情谊。 这家名为“石榴籽小银行”的校园德育平台，
+中新网6月20日电 据中国气象局微博消息，今年第7号台风米克拉生成。英文名称：Mekkhala，名字来源：泰国，名称意义：雷电天使。 中央气象台预计，“米克拉”将以每小时15至20公里左右的速度向西偏北方向移动强度逐渐增强。最强可达超强台风级(52至60米/秒)并逐渐向我国台湾岛东南部海面靠近。不过，当前来看后续路径的不确定性仍较大。
 
 ## 正文
 
-在内蒙古各地中小学推进铸牢中华民族共同体意识教育的背景下，舍伯吐镇第一小学这家乡镇校园里的“小银行”，以孩子们听得懂、看得见、摸得着的方式，让民族团结的种子在日常点滴中悄然生根。
+中新网6月20日电 据中国气象局微博消息，今年第7号台风米克拉生成。
 
-在内蒙古自治区通辽市科左中旗舍伯吐镇第一小学的校园里，有一家特殊的“银行”。
+英文名称：Mekkhala，名字来源：泰国，名称意义：雷电天使。
 
-这里不办存取款业务，“办理”的是孩子们的好习惯、好品德和各民族学生之间的团结情谊。
+中央气象台预计，“米克拉”将以每小时15至20公里左右的速度向西偏北方向移动强度逐渐增强。
 
-这家名为“石榴籽小银行”的校园德育平台，自开业以来成为全校师生每天的“牵挂”。
+最强可达超强台风级(52至60米/秒)并逐渐向我国台湾岛东南部海面靠近。
 
-橙、绿、青、蓝、黄、紫、红七色行为卡，分别对应逐梦、好学、美德、探索、阳光、阅美、活力七个维度。
-
-学生在课堂发言、互助同学、参与劳动、传承民族文化、遵守校园规则等方面有优秀表现，老师当场发卡，存入学生人手一本的《石榴籽成长存折》。
-
-看见即奖励 “石榴籽小银行”构建了“一卡一折、三阶晋级”的完整体系。
-
-集齐5张基础卡可兑换“逐梦娃”或“好学娃”徽章，集齐5张特色卡可兑换“美德娃”“探索娃”“阳光娃”“阅美娃”或“活力娃”徽章，同时获得相应的“红领巾奖章”认证。
+不过，当前来看后续路径的不确定性仍较大。
 
 ## 相关推荐
 
-- 2026-06-29 13:47 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-29 13:41 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 13:46 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-29 13:24 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 13:43 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 13:35 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-29 13:32 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-29 13:42 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 13:43 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-29 13:50 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 13:25 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-29 13:39 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-29 13:35 - [严浩翔FIY断层第一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-29 13:24 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-29 13:50 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-29 13:47 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 13:58 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 13:43 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 13:56 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 13:59 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-29 13:36 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 13:45 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-29 13:59 - [A股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 13:34 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-29 13:43 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 13:30 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-29 13:48 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:37 - [初心如磐 红色足迹](http://www.blog.kurohicncr.top/Article/details/74037232.shtml)
-- 2026-06-29 13:41 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/48814123.shtml)
-- 2026-06-29 13:51 - [向佑说向佐是一生依靠](https://www.share.minike.top/Article/details/88274079.shtml)
-- 2026-06-29 13:32 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/480298304381.shtml)
-- 2026-06-29 13:35 - [急先锋](http://www.blog.kurohicncr.top/Article/details/7376113.shtml)
-- 2026-06-29 13:51 - [普京称俄处于命运攸关之际](https://www.blog.minike.top/Article/details/387453283.shtml)
-- 2026-06-29 13:31 - [赵露思爸爸拍vlog“翻车”](http://www.blog.kurohicncr.top/Article/details/00287911.shtml)
-- 2026-06-29 13:48 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/844212296664.shtml)
-- 2026-06-29 13:26 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/14647.shtml)
-- 2026-06-29 13:26 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/477267134682.shtml)
-- 2026-06-29 13:42 - [啊啊啊](https://www.share.minike.top/Article/details/9020509.shtml)
-- 2026-06-29 13:27 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.share.kurohicncr.top/Article/details/24897.shtml)
-- 2026-06-29 13:41 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/14033.shtml)
-- 2026-06-29 13:48 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/3285325.shtml)
-- 2026-06-29 13:52 - [德云色预测世界杯16强](https://www.share.minike.top/Article/details/4855296.shtml)
+- 2026-06-29 13:55 - [一见倾心](http://www.blog.minike.top/Article/details/6727196.shtml)
+- 2026-06-29 13:34 - [詹俊：巴西能凭借两大优势战胜日本](http://www.share.minike.top/Article/details/205722.shtml)
+- 2026-06-29 13:55 - [如何“亲菌子”又“远小人儿”](http://www.share.minike.top/Article/details/570612296196.shtml)
+- 2026-06-29 13:44 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/887689.shtml)
+- 2026-06-29 13:36 - [女子遭殴打驾车致丈夫身亡维持原判](https://www.blog.minike.top/Article/details/80858984781.shtml)
+- 2026-06-29 13:51 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/89166.shtml)
+- 2026-06-29 13:34 - [链博会上的机器人太全能了](https://www.blog.minike.top/Article/details/81179.shtml)
+- 2026-06-29 13:47 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.share.kurohicncr.top/Article/details/318635020.shtml)
+- 2026-06-29 13:59 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/4325764.shtml)
+- 2026-06-29 13:42 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.share.minike.top/Article/details/55132.shtml)
+- 2026-06-29 13:30 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.blog.kurohicncr.top/Article/details/977585947940.shtml)
+- 2026-06-29 13:57 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/391815292.shtml)
+- 2026-06-29 13:51 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/6899020.shtml)
+- 2026-06-29 13:56 - [拄拐少年高考663分：用行动回报社会](http://www.blog.minike.top/Article/details/012407706.shtml)
+- 2026-06-29 13:43 - [亚洲成世界杯最大失意者联盟](http://www.blog.minike.top/Article/details/700286779835.shtml)

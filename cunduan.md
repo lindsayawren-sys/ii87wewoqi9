@@ -1,58 +1,54 @@
-# 青海：凝心聚力推动高原特色康养与家政产业高质量发展
+# 乌江寨里“粽”头戏 中外游客共赏非遗盛宴
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-中新网青海乐都5月10日电 (记者 孙睿)5月9日，高原康养高质量发展与现代家政产教融合创新实践研讨会在青海高等职业技术学院召开。会议聚焦高原康养、“一老一小”及家政服务能力提升，汇聚政府、院校、医院、企业等多方力量，共探产教融合新路径，推动高原特色康养与家政产业高质量发展。 会上，青海高等职业技术学院、海东市第二人民医院、互助家政集团等单位负责人分别发言。各方认为，青海高原康
+发布时间：2026年06月20日 17:57 来源：中国新闻网 端午假期，贵州遵义乌江寨国际旅游度假区迎来了一场别开生面的非遗盛宴。国内外的游客现场体验传统手工艺，在互动中领略中华传统文化。在非遗体验区，传统技艺吸引中外游客驻足体验。不同肤色的手在各自的作品上专注穿行，在沉浸式体验中感受中华传统文化的独特魅力。夜幕降临，数百架无人机腾空而起，在夜空中呈现精美图案。(李兴群 刘静
 
 ## 正文
 
-中新网青海乐都5月10日电 (记者 孙睿)5月9日，高原康养高质量发展与现代家政产教融合创新实践研讨会在青海高等职业技术学院召开。
+发布时间：2026年06月20日 17:57 来源：中国新闻网 端午假期，贵州遵义乌江寨国际旅游度假区迎来了一场别开生面的非遗盛宴。
 
-会议聚焦高原康养、“一老一小”及家政服务能力提升，汇聚政府、院校、医院、企业等多方力量，共探产教融合新路径，推动高原特色康养与家政产业高质量发展。
+国内外的游客现场体验传统手工艺，在互动中领略中华传统文化。
 
-会上，青海高等职业技术学院、海东市第二人民医院、互助家政集团等单位负责人分别发言。
+在非遗体验区，传统技艺吸引中外游客驻足体验。
 
-各方认为，青海高原康养、居家照护、慢病管理需求旺盛，医养、康养与家政融合成为民生刚需发展趋势。
+不同肤色的手在各自的作品上专注穿行，在沉浸式体验中感受中华传统文化的独特魅力。
 
-当前行业面临人才不足、标准待完善、服务同质化等问题，亟需以政行企校协同破解瓶颈。
+夜幕降临，数百架无人机腾空而起，在夜空中呈现精美图案。
 
-活动现场发布了《老年照护》《母婴护理》《家政服务》三本技能培训教材，启动高原病患照护、汉藏双语照护特色技能认证，填补了青海省家政康养相关领域标准空白。
-
-专家研讨环节，与会者围绕顶层设计、资源整合、特色转型等方面建言献策，提出打造“旅游+高原康养”特色产品，推动养老服务向失能失智照护、康复护理转型，强化院校与岗位需求精准对接。
-
-会议解读了两项国家级家政服务规范，推介高原病患照护、汉藏双语照护等专项认证，拓宽技能人才成长通道。
+(李兴群 刘静 视频来源 播州融媒) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 13:45 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-29 13:40 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-29 13:37 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 13:33 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-29 13:50 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-29 13:33 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-29 13:41 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 13:40 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-29 13:46 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-29 13:33 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-29 13:26 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-29 13:36 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 13:46 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 13:50 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 13:52 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-29 13:31 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-29 13:40 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-29 13:35 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-29 13:46 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 13:40 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 13:45 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-29 13:42 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-29 13:34 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-29 13:55 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:52 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/85169295.shtml)
-- 2026-06-29 13:37 - [加拿大92分钟绝杀南非](http://www.blog.kurohicncr.top/Article/details/764194495.shtml)
-- 2026-06-29 13:24 - [男子月薪五千卖房借贷给女友转账百万](http://www.share.minike.top/Article/details/4004527.shtml)
-- 2026-06-29 13:43 - [灿如繁星定档](https://www.share.kurohicncr.top/Article/details/713804714.shtml)
-- 2026-06-29 13:52 - [河南考699分女生已接到清华大学电话](http://www.blog.minike.top/Article/details/13571439.shtml)
-- 2026-06-29 13:40 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/808151.shtml)
-- 2026-06-29 13:48 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/1485160.shtml)
-- 2026-06-29 13:45 - [江苏财政厅原一级调研员谢功成被查](https://www.share.minike.top/Article/details/638499908.shtml)
-- 2026-06-29 13:41 - [亚洲成世界杯最大失意者联盟](https://www.blog.kurohicncr.top/Article/details/6073547.shtml)
-- 2026-06-29 13:48 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/12326213206.shtml)
-- 2026-06-29 13:34 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/3573713058.shtml)
-- 2026-06-29 13:32 - [加拿大92分钟绝杀成世界杯首个16强](https://www.blog.minike.top/Article/details/0350132429.shtml)
-- 2026-06-29 13:37 - [严浩翔FIY断层第一](http://www.blog.kurohicncr.top/Article/details/55490.shtml)
-- 2026-06-29 13:52 - [以前不让妆女二可以艳压女主](https://www.blog.minike.top/Article/details/52256968584.shtml)
-- 2026-06-29 13:45 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.share.minike.top/Article/details/306034.shtml)
+- 2026-06-29 13:42 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/24709235.shtml)
+- 2026-06-29 13:38 - [多家银行收紧个人贵金属业务](https://www.share.minike.top/Article/details/312395033335.shtml)
+- 2026-06-29 13:56 - [薛之谦演唱会](https://www.share.minike.top/Article/details/92231334.shtml)
+- 2026-06-29 13:41 - [游戏数据竟被用于军事目的](https://www.share.kurohicncr.top/Article/details/4702068.shtml)
+- 2026-06-29 13:40 - [北极荒岛生存挑战](http://www.blog.kurohicncr.top/Article/details/318705050406.shtml)
+- 2026-06-29 13:35 - [赵露思爸爸拍vlog“翻车”](http://www.share.kurohicncr.top/Article/details/1271538.shtml)
+- 2026-06-29 13:55 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.kurohicncr.top/Article/details/097382785982.shtml)
+- 2026-06-29 13:52 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.kurohicncr.top/Article/details/28457708617.shtml)
+- 2026-06-29 13:54 - [美媒：空警-3000服役即成全球最强](http://www.share.minike.top/Article/details/55454023.shtml)
+- 2026-06-29 13:58 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/28634189426.shtml)
+- 2026-06-29 13:52 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/61543.shtml)
+- 2026-06-29 13:44 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/5343758571.shtml)
+- 2026-06-29 13:46 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/964810403529.shtml)
+- 2026-06-29 13:38 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/8025783.shtml)
+- 2026-06-29 13:47 - [水利部部署南方地区暴雨洪水防御工作](http://www.blog.minike.top/Article/details/530783640.shtml)

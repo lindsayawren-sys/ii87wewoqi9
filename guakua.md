@@ -1,61 +1,50 @@
-# 杨德龙：2026年年中将至 2026年“十大预言”多数已得到验证
+# 上交所拟推股票期权组合策略业务？暂不实施
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-去年年底我发布了2026年十大预言，目前时间已过半。现对全年判断进行回顾，部分已得到验证，部分还需下半年继续观察。 关于A股和港股，我判断今年仍将延续慢牛长牛行情，市场投资机会明显增多，投资者获得感增强。今年一季度本应有春季攻势，但2月28日美以突然袭击伊朗，中东战争爆发，霍尔木兹海峡作为全球石油运输咽喉要道被封锁，导致国际油价大涨，引发投资者对全球通胀的担忧，并担心战争持续影
+人民财讯6月20日电，近日有消息称，上交所拟完善股票期权组合策略业务，推出单边平仓功能。对此，证券时报记者获悉，2019年上交所和深交所同步推出股票期权组合策略业务，并在通知中明确单边平仓功能暂不实施。目前，上交所正在进行该功能的技术开发工作，发布了技术接口供市场进行技术开发使用，业务上该功能仍暂不实施。责任编辑：李铁民
 
 ## 正文
 
-去年年底我发布了2026年十大预言，目前时间已过半。
+人民财讯6月20日电，近日有消息称，上交所拟完善股票期权组合策略业务，推出单边平仓功能。
 
-现对全年判断进行回顾，部分已得到验证，部分还需下半年继续观察。
+对此，证券时报记者获悉，2019年上交所和深交所同步推出股票期权组合策略业务，并在通知中明确单边平仓功能暂不实施。
 
-关于A股和港股，我判断今年仍将延续慢牛长牛行情，市场投资机会明显增多，投资者获得感增强。
+目前，上交所正在进行该功能的技术开发工作，发布了技术接口供市场进行技术开发使用，业务上该功能仍暂不实施。
 
-今年一季度本应有春季攻势，但2月28日美以突然袭击伊朗，中东战争爆发，霍尔木兹海峡作为全球石油运输咽喉要道被封锁，导致国际油价大涨，引发投资者对全球通胀的担忧，并担心战争持续影响经济复苏，美联储因此不得不推迟降息节奏。
-
-A股和港股在3月份一度大幅下跌，上证指数逼近3800点。
-
-在众多投资者质疑中东战争是否会终结牛市行情时，我观点明确：当时我到北京与刘继鹏教授做直播，我们的观点是“4000点保卫战是牛回头，而不是熊来了”。
-
-回头来看，在3月份市场信心最弱的时候，我们给大家加油打气，市场逐步走出调整。
-
-中东战争打乱了春季攻势的节奏，但现在市场逐步回到正轨。
+责任编辑：李铁民
 
 ## 相关推荐
 
-- 2026-06-29 13:45 - [金价银价下跌 油价上涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 13:37 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-29 13:30 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-29 13:39 - [爱情有烟火你是知道我爱看什么的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-29 13:52 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-29 13:33 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-29 13:42 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-29 13:38 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 13:50 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-29 13:37 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-29 13:47 - [强⁶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 13:31 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-29 13:31 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 13:25 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 13:43 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 13:39 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-29 13:56 - [强⁶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 13:32 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 13:45 - [普京称俄处于命运攸关之际](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-29 13:42 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-29 13:42 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-29 13:32 - [Agent带来token消耗爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-29 13:53 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 13:45 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-29 13:39 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 13:59 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-29 13:42 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:32 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/45931928.shtml)
-- 2026-06-29 13:42 - [成都至北京将新增动卧](http://www.blog.kurohicncr.top/Article/details/71124263.shtml)
-- 2026-06-29 13:45 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/279667064.shtml)
-- 2026-06-29 13:42 - [流金岁月](http://www.blog.minike.top/Article/details/5645512.shtml)
-- 2026-06-29 13:25 - [赵今麦客串电影版开端](https://www.share.minike.top/Article/details/7851013.shtml)
-- 2026-06-29 13:51 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/8681061.shtml)
-- 2026-06-29 13:53 - [游戏数据被用于军事目的 国安部提醒](http://www.share.minike.top/Article/details/83829107.shtml)
-- 2026-06-29 13:28 - [巴西国脚说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/32851.shtml)
-- 2026-06-29 13:37 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.kurohicncr.top/Article/details/50066400.shtml)
-- 2026-06-29 13:25 - [大范围炎热天气将至](http://www.blog.minike.top/Article/details/47497.shtml)
-- 2026-06-29 13:51 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.kurohicncr.top/Article/details/20917.shtml)
-- 2026-06-29 13:34 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.minike.top/Article/details/73051377145.shtml)
-- 2026-06-29 13:46 - [委内瑞拉地震已致1450死3150伤](https://www.share.minike.top/Article/details/749228.shtml)
-- 2026-06-29 13:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/75854.shtml)
-- 2026-06-29 13:49 - [扬名立万](https://www.blog.minike.top/Article/details/20064.shtml)
+- 2026-06-29 13:36 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/36297906.shtml)
+- 2026-06-29 13:43 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/85046.shtml)
+- 2026-06-29 13:40 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/05663794203.shtml)
+- 2026-06-29 13:31 - [王楚钦 表演球擦网](https://www.blog.kurohicncr.top/Article/details/48799900.shtml)
+- 2026-06-29 13:55 - [内马尔能上场15分钟](http://www.blog.kurohicncr.top/Article/details/3816768.shtml)
+- 2026-06-29 13:42 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/1800428.shtml)
+- 2026-06-29 13:43 - [克洛普：加拿大主帅还能继续创造历史](http://www.blog.kurohicncr.top/Article/details/651181619435.shtml)
+- 2026-06-29 13:54 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/504512655.shtml)
+- 2026-06-29 13:55 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/429717980511.shtml)
+- 2026-06-29 13:47 - [成都至北京将新增动卧](https://www.blog.minike.top/Article/details/1635759670.shtml)
+- 2026-06-29 13:45 - [向佑说向佐是一生依靠](http://www.blog.minike.top/Article/details/14706503294.shtml)
+- 2026-06-29 13:54 - [林昀儒不敌17岁小将止步首轮](http://www.share.kurohicncr.top/Article/details/5247320562.shtml)
+- 2026-06-29 13:40 - [德国连续三天刷新本国最高气温纪录](http://www.share.minike.top/Article/details/1352330656.shtml)
+- 2026-06-29 13:55 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.minike.top/Article/details/1655083046.shtml)
+- 2026-06-29 13:53 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/5732845910.shtml)

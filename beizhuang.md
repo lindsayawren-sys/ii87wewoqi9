@@ -1,60 +1,58 @@
-# 海南离岛免税新政实施半年购物金额222.2亿元
+# 陕西宜川：深耕“双微服务” 精绘民生幸福底色
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-中新网海口5月11日电 (陈思筠 云金玉)据海口海关11日统计，自2025年11月海南离岛免税新政实施至2026年4月30日，海关监管离岛免税购物金额222.2亿元，购物人数297.3万人次，购物件数1745万件，同比分别增长22.6%、9.4%、5.5%。 “以前来海南购物，可选的商品类别比较有限。这次来海南，我不仅能给自家宠物购买零食套装，还能够买到心仪的迷你吉他，真是太让
+中新网陕西宜川6月19日电 (记者 阿琳娜)干净平整的路面、温馨雅致的文化墙、安全稳固的沟渠护栏……坐落于陕西省宜川县虎头山脚下的幸福巷，一改往日老旧杂乱的面貌，蜕变为整洁有序、温馨宜居的便民街巷。 近年来，随着宜川城区人口持续集聚，社区“一老一小”服务、人居环境提升等多元化、个性化民生需求日益凸显。该县精准衔接机关党组织职能优势和民众需求，探索建立“机关党组织到社区认领实施微
 
 ## 正文
 
-中新网海口5月11日电 (陈思筠 云金玉)据海口海关11日统计，自2025年11月海南离岛免税新政实施至2026年4月30日，海关监管离岛免税购物金额222.2亿元，购物人数297.3万人次，购物件数1745万件，同比分别增长22.6%、9.4%、5.5%。
+中新网陕西宜川6月19日电 (记者 阿琳娜)干净平整的路面、温馨雅致的文化墙、安全稳固的沟渠护栏……坐落于陕西省宜川县虎头山脚下的幸福巷，一改往日老旧杂乱的面貌，蜕变为整洁有序、温馨宜居的便民街巷。
 
-“以前来海南购物，可选的商品类别比较有限。
+近年来，随着宜川城区人口持续集聚，社区“一老一小”服务、人居环境提升等多元化、个性化民生需求日益凸显。
 
-这次来海南，我不仅能给自家宠物购买零食套装，还能够买到心仪的迷你吉他，真是太让我惊喜了。
+该县精准衔接机关党组织职能优势和民众需求，探索建立“机关党组织到社区认领实施微项目、机关在职党员联系居民完成微心愿”的“双微服务”机制，三年来，累计认领完成“微项目”273个，实现居民“微心愿”641个。
 
-”来自江苏的李女士说。
+2025年，宜川县党湾街社区将幸福巷纳入“微项目”清单。
 
-“新政实施后，我们感觉到门店的客流量和销量都有明显增长。
+针对街巷路面破损、墙面斑驳、设施缺失等问题，有序实施了路面硬化、墙面彩绘美化工程，全新增设安防护栏、照明路灯，拆除废弃老旧锅炉，修缮重建围墙大门，规范街巷车辆停放秩序。
 
-”万宁王府井国际免税港相关负责人介绍，“我们也积极响应政策，加大供货力度，丰富品牌品类，更好地满足消费者多元化的需求。
+经过系统性整治，如今的幸福巷路面干净整洁、公共设施齐全、夜间照明充足、车辆停放有序，彻底告别了老旧杂乱的旧模样。
 
-” 离岛免税新政的实施，围绕普通游客、岛内居民和离境出行人群三类消费主体进行规则优化，补齐了商品供给短板，拓宽免税商品品类范围，免税商品品类由原来的45大类扩充至47大类，增加了宠物用品和可随身携带乐器两类商品。
+同时，社区常态化在街巷开展文体活动、邻里互动活动，丰富居民精神文化生活，有效提升了居民的归属感和幸福感。
 
-同时，对既有商品进行优化扩容，小家电类新增扫地机器人、吸尘器、睡眠仪等15种商品，电子消费品类新增数码摄影器材、无人机2种商品，更好满足顾客多元化的消费需求。
+“大家实实在在感受到了这里的变化。
 
 ## 相关推荐
 
-- 2026-06-29 13:45 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-29 13:24 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-29 13:32 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-29 13:39 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-29 13:53 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-29 13:48 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 13:37 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-29 13:52 - [三都主：淘汰赛我会支持日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 13:50 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-29 13:50 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-29 13:24 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 13:46 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-29 13:44 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-29 13:34 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-29 13:37 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 13:42 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 13:58 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 13:42 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 13:42 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-29 13:37 - [恋与深空需直面玩家6大疑问](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-29 13:36 - [马斯克也站到了光里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 13:36 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 13:52 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 13:43 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 13:33 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 13:42 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:36 - [韩体育部长回应李在明痛批](http://www.blog.minike.top/Article/details/96535.shtml)
-- 2026-06-29 13:47 - [哈兰德之歌火到国外](http://www.blog.minike.top/Article/details/0636411341.shtml)
-- 2026-06-29 13:26 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/316532944.shtml)
-- 2026-06-29 13:33 - [农发行总行专家委员会委员杜晓力被查](https://www.blog.kurohicncr.top/Article/details/35760520392.shtml)
-- 2026-06-29 13:49 - [青春环游记第三季](https://www.share.minike.top/Article/details/810381.shtml)
-- 2026-06-29 13:29 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.blog.kurohicncr.top/Article/details/865945743718.shtml)
-- 2026-06-29 13:45 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/72961311216.shtml)
-- 2026-06-29 13:34 - [李连杰回应网传不管前妻俩女儿](https://www.share.kurohicncr.top/Article/details/8521011.shtml)
-- 2026-06-29 13:49 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/8211096.shtml)
-- 2026-06-29 13:49 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.minike.top/Article/details/01350.shtml)
-- 2026-06-29 13:45 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/255586273674.shtml)
-- 2026-06-29 13:25 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/99559375.shtml)
-- 2026-06-29 13:42 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.blog.minike.top/Article/details/2868643034.shtml)
-- 2026-06-29 13:32 - [为什么欧洲人不装空调](https://www.blog.kurohicncr.top/Article/details/268837750831.shtml)
-- 2026-06-29 13:53 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/27958.shtml)
+- 2026-06-29 13:54 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.kurohicncr.top/Article/details/4772365.shtml)
+- 2026-06-29 13:43 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/9643282414.shtml)
+- 2026-06-29 13:35 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/17956717666.shtml)
+- 2026-06-29 13:44 - [媒体评恋与深空争议](https://www.blog.minike.top/Article/details/68682358684.shtml)
+- 2026-06-29 13:49 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/63590.shtml)
+- 2026-06-29 13:46 - [宜宾发生5.5级地震 成都震感明显](http://www.share.kurohicncr.top/Article/details/316165.shtml)
+- 2026-06-29 13:44 - [吴建豪老婆](https://www.blog.kurohicncr.top/Article/details/190245993.shtml)
+- 2026-06-29 13:53 - [高市早苗口齿不清被质疑醉酒](http://www.share.minike.top/Article/details/7123961722.shtml)
+- 2026-06-29 13:53 - [吴磊爱上回收了](http://www.share.kurohicncr.top/Article/details/02588974123.shtml)
+- 2026-06-29 13:49 - [肖战深夜到达青岛赴十日终焉片场](http://www.blog.kurohicncr.top/Article/details/01225.shtml)
+- 2026-06-29 13:37 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/158413835.shtml)
+- 2026-06-29 13:30 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.blog.kurohicncr.top/Article/details/977644951.shtml)
+- 2026-06-29 13:42 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/0991608.shtml)
+- 2026-06-29 13:38 - [iPhone18系列预计将大幅涨价](https://www.share.minike.top/Article/details/594649.shtml)
+- 2026-06-29 13:34 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.blog.kurohicncr.top/Article/details/76577.shtml)

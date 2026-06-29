@@ -1,60 +1,61 @@
-# 前4月广西对东盟贸易平稳向好 电动汽车出口增逾286%
+# 油价大跌，冲击不再？【国盛宏观|高频半月观】
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-【东盟专线】前4月广西对东盟贸易平稳向好 电动汽车出口增逾286% 中新社南宁5月11日电 (韦佳秀 刘宇阳)南宁海关11日介绍，今年前4个月，广西外贸进出口额达2774.5亿元(人民币，下同)，同比(下同)增长7.1%。 得益于中国—东盟跨境产业链稳定，今年前4个月，广西对东盟进出口1389.6亿元，东盟仍稳居广西第一大贸易伙伴地位。其中，广西对越南进出口1002亿元，对马来
+国盛证券首席经济学家，熊园 博士国盛证券宏观分析师，薛舒宁每半月，我们基于“供给、需求、价格、库存、交通物流、流动性”6大维度，跟踪最新高频变化，本期为近半月（6.8—6.21）综述。核心结论：近半月高频变化有四：一是美伊达成谅解备忘录，布伦特原油价格一度跌至76.4美元/桶，之后黎以开火致伊朗封锁海峡，油价再度震荡小升；二是6月上中旬地产销售小幅走弱，新房销售同比降至-0.6
 
 ## 正文
 
-【东盟专线】前4月广西对东盟贸易平稳向好 电动汽车出口增逾286% 中新社南宁5月11日电 (韦佳秀 刘宇阳)南宁海关11日介绍，今年前4个月，广西外贸进出口额达2774.5亿元(人民币，下同)，同比(下同)增长7.1%。
+国盛证券首席经济学家，熊园 博士国盛证券宏观分析师，薛舒宁每半月，我们基于“供给、需求、价格、库存、交通物流、流动性”6大维度，跟踪最新高频变化，本期为近半月（6.8—6.21）综述。
 
-得益于中国—东盟跨境产业链稳定，今年前4个月，广西对东盟进出口1389.6亿元，东盟仍稳居广西第一大贸易伙伴地位。
+核心结论：近半月高频变化有四：一是美伊达成谅解备忘录，布伦特原油价格一度跌至76.4美元/桶，之后黎以开火致伊朗封锁海峡，油价再度震荡小升；二是6月上中旬地产销售小幅走弱，新房销售同比降至-0.6%（5月同比增0%），二手房销售同比降至10.6%（5月同比增16.6%）；三是近半月钢铁、水泥、沥青、焦煤、汽车开工率环比回落，地产链、基建实物工作量仍弱；四是国内货币市场利率时隔两月重回政策利率上方，资金面整体偏紧；美联储加息预期再升温，美元上行。
 
-其中，广西对越南进出口1002亿元，对马来西亚、柬埔寨进出口增速均超四成。
+1、继续提示：近期美伊局势波动反复、正朝着签署最后协议的方向发展，不过考虑到高油价已持续三个多月，滞后影响尚未全面显现：对经济，下游利润将被进一步挤压；对通胀，CPI和PPI同比读数有望延续回升趋势、但幅度应会放缓；对政策，短期重心是“用好用足”既定政策，后续增量政策可期、节奏“边走边看”。
 
-今年前4个月，广西进口额达1201.8亿元，增长25.4%。
+2、具体看，近半月（6.8—6.21）高频表现如下：>供给：高油价冲击显现，上下游开工多数回落；>需求：地产销售小幅走弱，生产复工多数回落；>价格：油价回落，上下游价格走势分化；>库存：美国石油库存降至22年来最低；>交通物流：航班执飞回升，地铁客运人数回落；>流动性：国内资金利率回升，美元指数上行。
 
-其中，水果进口增长迅猛。
+报告摘要：一、热点追踪：美伊有望达成协议，油价出现明显回落。
 
-今年东盟榴莲丰产，在中国国内需求持续旺盛叠加口岸通关效能提升的带动下，广西进口水果13.8亿元，增长78.1%；进口榴莲10.9亿元，增长165.4%。
+>尽管美伊达成谅解备忘录，但霍尔木兹海峡尚未解除封锁，通航量仍处低位。
 
-同时，广西规上工业增加值增速加快，带动大宗商品等生产原料进口需求旺盛。
+美伊于6月17日达成《美利坚合众国与伊朗伊斯兰共和国之间的伊斯兰堡谅解备忘录》，并于德黑兰时间18日完成远程签署，开启为期60天的谈判窗口以解决核问题等分歧，布伦特原油价格一度跌至76.4美元/桶。
 
-今年前4个月，广西进口大宗商品2406.7万吨，价值726.4亿元，增长24.2%。
+6月19日以色列向黎巴嫩开火，20日伊朗宣称将关闭霍尔木兹海峡。
 
 ## 相关推荐
 
-- 2026-06-29 13:29 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-29 13:46 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 13:51 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 13:38 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-29 13:34 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-29 13:28 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 13:33 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-29 13:32 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 13:46 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-29 13:24 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 13:45 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-29 13:31 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 13:39 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-29 13:51 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-29 13:52 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 13:56 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-29 13:46 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-29 13:30 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 13:39 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 13:32 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-29 13:50 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 13:42 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-29 13:57 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 13:56 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-29 13:59 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-29 13:39 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-29 13:35 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 13:49 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-29 13:49 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:51 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/206817.shtml)
-- 2026-06-29 13:49 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/76048.shtml)
-- 2026-06-29 13:29 - [韩体育部长回应李在明痛批](http://www.share.minike.top/Article/details/88614962945.shtml)
-- 2026-06-29 13:34 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/6774070565.shtml)
-- 2026-06-29 13:41 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/142084060.shtml)
-- 2026-06-29 13:39 - [严浩翔FIY断层第一](https://www.share.kurohicncr.top/Article/details/3712048.shtml)
-- 2026-06-29 13:46 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/58096125553.shtml)
-- 2026-06-29 13:24 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/42048797313.shtml)
-- 2026-06-29 13:38 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/3514895862.shtml)
-- 2026-06-29 13:26 - [水利部部署南方地区暴雨洪水防御工作](http://www.share.kurohicncr.top/Article/details/807201.shtml)
-- 2026-06-29 13:31 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/297896312.shtml)
-- 2026-06-29 13:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/4250483.shtml)
-- 2026-06-29 13:47 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/9358091.shtml)
-- 2026-06-29 13:53 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/842895140221.shtml)
-- 2026-06-29 13:44 - [这位猫咪，请你自重！](https://www.share.kurohicncr.top/Article/details/4243206725.shtml)
+- 2026-06-29 13:37 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/25732.shtml)
+- 2026-06-29 13:41 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/08520730.shtml)
+- 2026-06-29 13:44 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/50798.shtml)
+- 2026-06-29 13:55 - [毒液2](http://www.blog.kurohicncr.top/Article/details/287260106605.shtml)
+- 2026-06-29 13:30 - [拄拐少年高考663分：用行动回报社会](https://www.share.minike.top/Article/details/82301394.shtml)
+- 2026-06-29 13:49 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/94156.shtml)
+- 2026-06-29 13:49 - [加拿大女球迷玩人浪把手机甩飞](http://www.blog.kurohicncr.top/Article/details/60736964.shtml)
+- 2026-06-29 13:43 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/63070789081.shtml)
+- 2026-06-29 13:43 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/559486.shtml)
+- 2026-06-29 13:32 - [加拿大92分钟绝杀成世界杯首个16强](http://www.share.minike.top/Article/details/69912948919.shtml)
+- 2026-06-29 13:31 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/87738731661.shtml)
+- 2026-06-29 13:52 - [异世界一点都不好玩！](https://www.share.minike.top/Article/details/322846.shtml)
+- 2026-06-29 13:43 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.blog.minike.top/Article/details/14360896930.shtml)
+- 2026-06-29 13:55 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/460273.shtml)
+- 2026-06-29 13:32 - [记者率先试乘西十高铁](http://www.share.kurohicncr.top/Article/details/304147344.shtml)

@@ -1,57 +1,47 @@
-# 福建省“环戴云山”OPC联盟在德化成立
+# 在湖北洪湖，这里的端午划凤舟
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-中新网福建德化5月9日电 (记者 孙虹)作为福建省首个以“AI+个体创业+生态产业”为核心的跨县域合作组织，福建省“环戴云山”OPC(一人公司)联盟9日在德化县正式成立。以“AI赋能青年创业创新活力”为主题，德化、永春、大田、尤溪、仙游、永泰六县共建“环戴云山”OPC联盟，标志着环戴云山区域迈入数字赋能、生态转化、个体创业、产业共兴的全新发展阶段。 当天还发布了“环戴云山”OP
+发布时间：2026年06月21日 10:19 来源：中国新闻网 见过划龙舟，你见过划凤舟吗？在湖北洪湖，这里的端午划凤舟。(吴淘淘 朱正超） 责任编辑：【李季】
 
 ## 正文
 
-中新网福建德化5月9日电 (记者 孙虹)作为福建省首个以“AI+个体创业+生态产业”为核心的跨县域合作组织，福建省“环戴云山”OPC(一人公司)联盟9日在德化县正式成立。
+发布时间：2026年06月21日 10:19 来源：中国新闻网 见过划龙舟，你见过划凤舟吗？
 
-以“AI赋能青年创业创新活力”为主题，德化、永春、大田、尤溪、仙游、永泰六县共建“环戴云山”OPC联盟，标志着环戴云山区域迈入数字赋能、生态转化、个体创业、产业共兴的全新发展阶段。
+在湖北洪湖，这里的端午划凤舟。
 
-当天还发布了“环戴云山”OPC联盟政策和创新创业大赛活动方案。
-
-其中，政策明确人才孵化、技术赋能、金融支持、市场对接、场景落地五大支持体系，为个体创业者、中小微企业、行业机构提供清晰路径与政策保障；大赛设置核心赛题方向，吸引全国各地青年踊跃参赛。
-
-此外，五项战略合作集中签约，涵盖校地合作、人才培育、金融支持、技术赋能、产业融合等领域，高质量推进县域绿色经济跨界融合发展。
-
-作为福建重要的生态屏障和水源涵养地，“环戴云山”区域群山连绵、生态富集，发展绿色经济具有得天独厚的优势。
-
-“自2023年‘环戴云山’绿色经济产业区域联盟成立以来，六县共同策划闽中职业教育联盟、后备箱经济助力乡村振兴以及竹产业深加工、林下种植、森林康养等健康绿色产业项目，成效显现。
-
-”德化县委书记方俊钦表示，OPC联盟的成立将进一步统筹资源、人才、资金、项目，以AI技术为引擎，以生态产业为根基，全力打造县域绿色经济与数字创业深度融合的“闽中样板”。
+(吴淘淘 朱正超） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 13:53 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-29 13:26 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-29 13:38 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-29 13:52 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 13:35 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-29 13:46 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-29 13:39 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 13:44 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 13:31 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-29 13:51 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-29 13:35 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 13:57 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 13:49 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 13:55 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 13:52 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-29 13:37 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 13:44 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 13:39 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-29 13:44 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-29 13:47 - [拄拐少年高考663分：用行动回报社会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-29 13:49 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 13:41 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:35 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/249656900768.shtml)
-- 2026-06-29 13:34 - [美的空调 卡bug](https://www.blog.kurohicncr.top/Article/details/53055247.shtml)
-- 2026-06-29 13:25 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/29225.shtml)
-- 2026-06-29 13:39 - [女子跑步4年不拉伸小腿肌肉硬如铁](http://www.blog.kurohicncr.top/Article/details/76374205129.shtml)
-- 2026-06-29 13:49 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/72110143.shtml)
-- 2026-06-29 13:29 - [河南考699分女生已接到清华大学电话](https://www.blog.minike.top/Article/details/729415.shtml)
-- 2026-06-29 13:29 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/90324.shtml)
-- 2026-06-29 13:36 - [腾讯回应做独立支付APP](http://www.share.minike.top/Article/details/739475.shtml)
-- 2026-06-29 13:26 - [本周做什么都顺的星座](https://www.blog.minike.top/Article/details/52871674.shtml)
-- 2026-06-29 13:41 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/36692.shtml)
-- 2026-06-29 13:33 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/850275335.shtml)
-- 2026-06-29 13:51 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/436469758404.shtml)
-- 2026-06-29 13:37 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/51411524853.shtml)
-- 2026-06-29 13:49 - [全国第三艘万车级汽车运输船交付](http://www.blog.kurohicncr.top/Article/details/19538848.shtml)
-- 2026-06-29 13:51 - [唐艺昕女儿接唐艺昕回家](http://www.share.minike.top/Article/details/0075092.shtml)
+- 2026-06-29 13:42 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/6649977087.shtml)
+- 2026-06-29 13:45 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.kurohicncr.top/Article/details/583099089067.shtml)
+- 2026-06-29 13:52 - [第一炉香](http://www.blog.minike.top/Article/details/46462912.shtml)
+- 2026-06-29 13:58 - [海军舰艇编队将赴香港](https://www.blog.minike.top/Article/details/279647.shtml)
+- 2026-06-29 13:37 - [周锡玮：做堂堂正正的中国人](https://www.blog.kurohicncr.top/Article/details/5024769161.shtml)
+- 2026-06-29 13:37 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/73136697281.shtml)
+- 2026-06-29 13:57 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/076494687.shtml)
+- 2026-06-29 13:40 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/3330596.shtml)
+- 2026-06-29 13:58 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/236825.shtml)
+- 2026-06-29 13:47 - [伊朗球员致歉](http://www.share.minike.top/Article/details/577657.shtml)
+- 2026-06-29 13:32 - [双高胎](https://www.share.kurohicncr.top/Article/details/7793683287.shtml)
+- 2026-06-29 13:38 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/488860304818.shtml)
+- 2026-06-29 13:32 - [中国邮政上海分公司总经理李柏平被查](http://www.share.kurohicncr.top/Article/details/04041189.shtml)
+- 2026-06-29 13:55 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/10052668.shtml)
+- 2026-06-29 13:49 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/824389.shtml)

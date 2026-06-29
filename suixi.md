@@ -1,57 +1,43 @@
-# 澳大利亚卫生官员：涉疫邮轮返澳人员将隔离至少三周
+# 乌入盟进入谈判阶段 欧盟内部分歧显现
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-中新社悉尼5月11日电(记者 薄雯雯)澳大利亚卫生和老年护理部长马克·巴特勒11日表示，从涉汉坦病毒疫情的“洪迪厄斯”号邮轮疏散并返回澳大利亚的6人将接受至少三周隔离。 据澳大利亚广播公司报道，这6人包括4名澳大利亚公民、1名澳永久居民以及1名新西兰公民。他们预计将于11日晚些时候从西班牙特内里费岛搭乘澳政府安排的包机返澳，机上将配备医护人员。抵澳后，相关人员将被送往西澳大利亚
+发布时间：2026年06月21日 13:40 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新社悉尼5月11日电(记者 薄雯雯)澳大利亚卫生和老年护理部长马克·巴特勒11日表示，从涉汉坦病毒疫情的“洪迪厄斯”号邮轮疏散并返回澳大利亚的6人将接受至少三周隔离。
-
-据澳大利亚广播公司报道，这6人包括4名澳大利亚公民、1名澳永久居民以及1名新西兰公民。
-
-他们预计将于11日晚些时候从西班牙特内里费岛搭乘澳政府安排的包机返澳，机上将配备医护人员。
-
-抵澳后，相关人员将被送往西澳大利亚州首府珀斯附近的隔离设施。
-
-巴特勒表示，目前尚无澳大利亚人出现汉坦病毒感染症状。
-
-他说，汉坦病毒潜伏期可能长达42天，但传播风险通常会在前两周后下降，因此澳政府决定采取“预防性措施”。
-
-政府将在三周隔离期结束后，根据进一步的卫生建议决定后续安排。
-
-他还称，由于返澳人员需搭乘小型飞机进行长途飞行，旅途中存在一定传播风险。
+发布时间：2026年06月21日 13:40 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 13:31 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-29 13:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-29 13:52 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 13:29 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 13:25 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-29 13:39 - [A股限售股解禁一览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 13:34 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 13:39 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 13:39 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-29 13:33 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 13:42 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 13:50 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-29 13:34 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 13:37 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-29 13:55 - [腾讯回应做独立支付APP](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 13:47 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 13:31 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 13:48 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 13:59 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 13:44 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-29 13:38 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-29 13:44 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:52 - [爱情有烟火你是知道我爱看什么的](http://www.share.kurohicncr.top/Article/details/719342504.shtml)
-- 2026-06-29 13:52 - [手游300亿数据或被军事化运用](https://www.blog.kurohicncr.top/Article/details/068308.shtml)
-- 2026-06-29 13:31 - [医药股集体爆发](http://www.share.kurohicncr.top/Article/details/06032141584.shtml)
-- 2026-06-29 13:34 - [以前不让妆女二可以艳压女主](https://www.share.kurohicncr.top/Article/details/99342.shtml)
-- 2026-06-29 13:27 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.kurohicncr.top/Article/details/062119691.shtml)
-- 2026-06-29 13:38 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/30602462584.shtml)
-- 2026-06-29 13:46 - [AG冠军五人组轮换](https://www.blog.kurohicncr.top/Article/details/887602121401.shtml)
-- 2026-06-29 13:52 - [F1奥地利正赛战报](https://www.share.kurohicncr.top/Article/details/854989410120.shtml)
-- 2026-06-29 13:30 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/21147111.shtml)
-- 2026-06-29 13:37 - [为什么6月以来北方频繁降雨](http://www.share.minike.top/Article/details/817962307424.shtml)
-- 2026-06-29 13:39 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/59129885.shtml)
-- 2026-06-29 13:50 - [专家建议城乡居民养老金增至每月千元](http://www.blog.minike.top/Article/details/1938513920.shtml)
-- 2026-06-29 13:26 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/10050121.shtml)
-- 2026-06-29 13:28 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.kurohicncr.top/Article/details/1009686.shtml)
-- 2026-06-29 13:35 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.kurohicncr.top/Article/details/49348.shtml)
+- 2026-06-29 13:55 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/8919635.shtml)
+- 2026-06-29 13:44 - [金刚川](https://www.blog.minike.top/Article/details/560074.shtml)
+- 2026-06-29 13:41 - [日本前锋言论激怒巴西](http://www.blog.kurohicncr.top/Article/details/611980687991.shtml)
+- 2026-06-29 13:48 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/140114746.shtml)
+- 2026-06-29 13:42 - [毕业寄几百斤快递回家女生发声](http://www.blog.minike.top/Article/details/997581063.shtml)
+- 2026-06-29 13:46 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.blog.kurohicncr.top/Article/details/20836136271.shtml)
+- 2026-06-29 13:37 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/57524508268.shtml)
+- 2026-06-29 13:51 - [iPhone18系列预计将大幅涨价](https://www.share.kurohicncr.top/Article/details/016580.shtml)
+- 2026-06-29 13:53 - [各路“神仙”扎堆洛阳乘地铁](http://www.blog.kurohicncr.top/Article/details/7177553.shtml)
+- 2026-06-29 13:52 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/628744.shtml)
+- 2026-06-29 13:46 - [记者暗访贵州和云南多个养老机构](https://www.share.kurohicncr.top/Article/details/564760.shtml)
+- 2026-06-29 13:37 - [永远保持对人民的赤子之心](http://www.share.kurohicncr.top/Article/details/91459.shtml)
+- 2026-06-29 13:50 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.kurohicncr.top/Article/details/284126824404.shtml)
+- 2026-06-29 13:42 - [王楚钦美国大满贯晋级32强](https://www.blog.kurohicncr.top/Article/details/09913838692.shtml)
+- 2026-06-29 13:40 - [医护人员观影《四渡》传承长征精神](http://www.blog.minike.top/Article/details/677563376.shtml)

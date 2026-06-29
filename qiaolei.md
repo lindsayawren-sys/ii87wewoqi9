@@ -1,60 +1,56 @@
-# 东方时尚（603377）被处罚，股民索赔可期
+# 第二十六届安康汉江龙舟节主题活动举行
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年3月21日，东方时尚驾驶学校股份有限公司（简称：东方时尚、ST东时（维权），代码：603377）发布《关于公司及部分责任人收到北京证监局行政处罚事先告知书的公告》。 经中国证监会北京证监局查明，东方时尚涉嫌违法的事实如下：东方时尚2022年未对其子
+中新网陕西安康6月19日电 (杨英琦 吴单)仲夏汉江，清波漾翠，鼓乐齐鸣。6月19日，第二十六届安康汉江龙舟节主题活动在龙舟文化园启幕。 随着鼓点落定，主题活动的“重头戏”——合龙仪式庄重开启。随着主礼人一声“合——龙！”的号令，18名壮汉抬龙头、46名壮汉扛舟体，缓步来到舞台中央，将龙首龙身合为一体。随后，传统敬酒仪式上演。“一敬酒，水清河晏岁岁安，二敬酒……”50名传统龙舟
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网陕西安康6月19日电 (杨英琦 吴单)仲夏汉江，清波漾翠，鼓乐齐鸣。
 
-2026年3月21日，东方时尚驾驶学校股份有限公司（简称：东方时尚、ST东时（维权），代码：603377）发布《关于公司及部分责任人收到北京证监局行政处罚事先告知书的公告》。
+6月19日，第二十六届安康汉江龙舟节主题活动在龙舟文化园启幕。
 
-经中国证监会北京证监局查明，东方时尚涉嫌违法的事实如下：东方时尚2022年未对其子公司重庆东方时尚驾驶培训有限公司（以下简称重庆东方时尚）土地租赁业务进行会计处理，少计管理费用和财务费用，导致公司2022年半年度报告、2022年年度报告存在虚假记载，分别虚增利润9，402，916.83元和18，931，027.65元，占公司当期披露利润总额的比例分别为30.97%和 82.33%。
+随着鼓点落定，主题活动的“重头戏”——合龙仪式庄重开启。
 
-2024年4月30日，东方时尚发布《关于前期会计差错更正及追溯调整的公告》，主动更正并追溯调整2022年度财务报表。
+随着主礼人一声“合——龙！
 
-故中国证监会北京证监局决定：对东方时尚及其相关责任人员责令改正，给予警告，并各处以罚款。
+”的号令，18名壮汉抬龙头、46名壮汉扛舟体，缓步来到舞台中央，将龙首龙身合为一体。
 
-之前，2024年4月30日，东方时尚发布《关于前期会计差错更正及追溯调整的公告》。
+随后，传统敬酒仪式上演。
 
-2025年5月31日，东方时尚发布《关于收到中国证监会立案告知书的公告》。
+“一敬酒，水清河晏岁岁安，二敬酒……”50名传统龙舟划手在主礼人的引领下齐声应和。
 
-根据《民法典》、《证券法》及最高人民法院的关于虚假陈述民事赔偿司法解释的规定，上市公司、控股股东、实际控制人、董监高人员及其中介机构等因虚假陈述等的证券欺诈行为导致证券投资者权益受损的，应承担民事赔偿责任，赔偿范围包括：投资差额、佣金、印花税和利息损失等。
+紧接着，数十支标准龙舟代表队的龙舟健儿依次登上主舞台，10支传统龙舟从江面踏浪而来，依次抵达观礼台水岸。
 
 ## 相关推荐
 
-- 2026-06-29 13:25 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 13:49 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 13:24 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-29 13:24 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 13:44 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-29 13:31 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-29 13:26 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-29 13:29 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-29 13:28 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-29 13:29 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 13:33 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-29 13:35 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 13:51 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-29 13:52 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-29 13:33 - [医护人员观影《四渡》传承长征精神](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 13:57 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 13:39 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 13:58 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-29 13:53 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 13:38 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 13:48 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 13:50 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 13:40 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 13:30 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:52 - [陈靖可虞书欣领衔主演](http://www.share.kurohicncr.top/Article/details/1548301975.shtml)
-- 2026-06-29 13:44 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/434117.shtml)
-- 2026-06-29 13:47 - [尹恩惠自曝14年没谈过恋爱](http://www.share.kurohicncr.top/Article/details/929760285.shtml)
-- 2026-06-29 13:52 - [加拿大绝杀南非晋级](http://www.share.kurohicncr.top/Article/details/041138311.shtml)
-- 2026-06-29 13:44 - [张一山说杨紫早该拿奖了](https://www.share.minike.top/Article/details/726093553.shtml)
-- 2026-06-29 13:44 - [高市早苗口齿不清被质疑醉酒](http://www.blog.kurohicncr.top/Article/details/73665.shtml)
-- 2026-06-29 13:39 - [手游300亿数据或被军事化运用](http://www.share.minike.top/Article/details/69373235.shtml)
-- 2026-06-29 13:34 - [千与千寻](http://www.blog.minike.top/Article/details/33019163.shtml)
-- 2026-06-29 13:52 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.minike.top/Article/details/13469559.shtml)
-- 2026-06-29 13:46 - [广州某高校辟谣禁止小米汽车入校](http://www.blog.minike.top/Article/details/138022.shtml)
-- 2026-06-29 13:41 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/95266791.shtml)
-- 2026-06-29 13:24 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/37387.shtml)
-- 2026-06-29 13:30 - [毒液2](http://www.blog.minike.top/Article/details/441569614790.shtml)
-- 2026-06-29 13:42 - [初心如磐 红色足迹](https://www.share.kurohicncr.top/Article/details/605340.shtml)
-- 2026-06-29 13:38 - [世界杯：日本将与巴西争夺16强席位](https://www.share.minike.top/Article/details/114089613119.shtml)
+- 2026-06-29 13:38 - [韩国拟将部分刑责年龄降至13岁](https://www.share.kurohicncr.top/Article/details/286794470.shtml)
+- 2026-06-29 13:31 - [韩国队如何把94%出线概率打到0%](http://www.blog.minike.top/Article/details/5368296.shtml)
+- 2026-06-29 13:53 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.kurohicncr.top/Article/details/27421.shtml)
+- 2026-06-29 13:56 - [王楚钦周启豪爆分](http://www.blog.minike.top/Article/details/79522446862.shtml)
+- 2026-06-29 13:38 - [媒体：高考后消费应量力而行适度有度](http://www.blog.minike.top/Article/details/031209334.shtml)
+- 2026-06-29 13:58 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/387918903.shtml)
+- 2026-06-29 13:46 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/7247121.shtml)
+- 2026-06-29 13:37 - [女心理师](https://www.share.kurohicncr.top/Article/details/06557194.shtml)
+- 2026-06-29 13:46 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/51976681312.shtml)
+- 2026-06-29 13:56 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/79191364.shtml)
+- 2026-06-29 13:59 - [小娘惹](http://www.blog.minike.top/Article/details/61087.shtml)
+- 2026-06-29 13:54 - [女子遭殴打驾车致丈夫身亡维持原判](https://www.share.kurohicncr.top/Article/details/6148568105.shtml)
+- 2026-06-29 13:38 - [恋与深空底线不该被娱乐化](https://www.blog.kurohicncr.top/Article/details/34819184646.shtml)
+- 2026-06-29 13:43 - [媒体人：警惕日本再次成战争加害国](https://www.share.kurohicncr.top/Article/details/678179.shtml)
+- 2026-06-29 13:58 - [唐国强打卡贵阳孔学堂](http://www.share.kurohicncr.top/Article/details/17398.shtml)

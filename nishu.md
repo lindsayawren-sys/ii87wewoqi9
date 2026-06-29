@@ -1,57 +1,58 @@
-# 海钦股份（原庚星股份600753）被处罚，股民索赔可期
+# 多元一体，写在端午节的每一片粽叶上
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年5月1日，福建海钦能源集团股份有限公司（原庚星能源集团股份有限公司，简称：海钦股份、*ST海钦（维权）、庚星股份、 *ST庚星，代码：600753）发布《关于收到行政处罚决定书的公告》。 经中国证监会福建监管局查明，海钦股份涉嫌违法事实如下： 一、
+端午前夕的北京西单商圈，花店的门楣上悬着花束——艾草、菖蒲与风车果、洋甘菊等花材交织，为往来行人送上“安康到家”的祝福。年轻人把它拍下来发朋友圈，评论区里有人晒自家倒挂的艾草编环，有人晒刚缝好的“艾虎”香包，有人晒跟着外婆学的五彩绳系法。 一把草木，几缕药香，把2500多年的节日，过出了当代人的新鲜劲儿。 看起来是“新消费”，底下其实是“老根脉”。 端午节是中国首个入选联合国教
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+端午前夕的北京西单商圈，花店的门楣上悬着花束——艾草、菖蒲与风车果、洋甘菊等花材交织，为往来行人送上“安康到家”的祝福。
 
-2026年5月1日，福建海钦能源集团股份有限公司（原庚星能源集团股份有限公司，简称：海钦股份、*ST海钦（维权）、庚星股份、 *ST庚星，代码：600753）发布《关于收到行政处罚决定书的公告》。
+年轻人把它拍下来发朋友圈，评论区里有人晒自家倒挂的艾草编环，有人晒刚缝好的“艾虎”香包，有人晒跟着外婆学的五彩绳系法。
 
-经中国证监会福建监管局查明，海钦股份涉嫌违法事实如下： 一、未按规定披露关联交易及2020年年度报告、2021年年度报告存在重大遗漏。
+一把草木，几缕药香，把2500多年的节日，过出了当代人的新鲜劲儿。
 
-（一）庚星股份关联方情况。
+看起来是“新消费”，底下其实是“老根脉”。
 
-2018年至2021年，中庚集团是庚星股份控股股东，梁衍锋担任庚星股份董事长和中庚集团执行董事兼法定代表人，为公司实际控制人。
+端午节是中国首个入选联合国教科文组织《人类非物质文化遗产代表作名录》的传统节日，也是集防疫养生、祭祀先贤、水上竞技、驱邪纳福于一体的多民族共享节日。
 
-期间，中庚集团持有中庚汇建设发展有限公司（以下简称中庚汇）40%股份。
+有意思的是，这个“共享”从来不是千篇一律的复制： 湖北秭归有三段式的“头端午”“大端午”“末端午”，江苏苏州刻着对伍子胥的历史记忆；苗族侗族划独木龙舟，黎族用“洗龙水”，维吾尔族吃酸奶粽子，满族踏露水、挂纸葫芦，各地各民族的端午“打开方式”不尽相同，但企盼安康的精神内核却一脉贯通。
 
-根据《中华人民共和国公司法》（2018年修正）第二百一十六条第四项、《上市公司信息披露管理办法》（证监会令第40号，以下简称2007年《信披办法》）第七十一条第三项和《上市公司信息披露管理办法》（证监会令第182号，以下简称《信披办法》）第六十二条第四项规定，中庚集团、中庚汇为庚星股份的关联法人。
+“多元一体”四个字，写在端午节的每一片粽叶上。
 
-（二）庚星股份未按规定披露关联交易。
+最深沉的凝聚，往往发生在不易察觉的文化生活里。
 
 ## 相关推荐
 
-- 2026-06-29 13:39 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-29 13:44 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-29 13:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-29 13:46 - [Mrbeast的30天不吃饭挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 13:27 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-29 13:25 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 13:38 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-29 13:43 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 13:44 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 13:50 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-29 13:52 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 13:59 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 13:46 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 13:52 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 13:39 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 13:42 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 13:54 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-29 13:48 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-29 13:42 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 13:46 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 13:43 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-29 13:56 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-29 13:51 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:47 - [恋与深空失控领地](https://www.blog.kurohicncr.top/Article/details/876607588.shtml)
-- 2026-06-29 13:40 - [唐国强打卡贵阳孔学堂](http://www.blog.minike.top/Article/details/49274075.shtml)
-- 2026-06-29 13:34 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/773616519.shtml)
-- 2026-06-29 13:48 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/357995556.shtml)
-- 2026-06-29 13:46 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/082204.shtml)
-- 2026-06-29 13:50 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/4535679219.shtml)
-- 2026-06-29 13:36 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/128640347.shtml)
-- 2026-06-29 13:42 - [金价银价下跌 油价上涨](https://www.share.minike.top/Article/details/4856219.shtml)
-- 2026-06-29 13:50 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/56065651796.shtml)
-- 2026-06-29 13:43 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/702879531030.shtml)
-- 2026-06-29 13:28 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.kurohicncr.top/Article/details/3207081539.shtml)
-- 2026-06-29 13:27 - [实习期把公司领导开除了](https://www.blog.minike.top/Article/details/13901.shtml)
-- 2026-06-29 13:42 - [刘烨16岁儿子诺一颜值](https://www.share.kurohicncr.top/Article/details/42424.shtml)
-- 2026-06-29 13:49 - [市民骑哈啰单车79分钟被收费30元](https://www.blog.kurohicncr.top/Article/details/2678386.shtml)
-- 2026-06-29 13:38 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.kurohicncr.top/Article/details/767205.shtml)
+- 2026-06-29 13:34 - [全国第三艘万车级汽车运输船交付](https://www.blog.minike.top/Article/details/25866.shtml)
+- 2026-06-29 13:47 - [Mrbeast的30天不吃饭挑战](https://www.share.minike.top/Article/details/78982444.shtml)
+- 2026-06-29 13:32 - [王楚钦3-0周启豪 晋级32强](https://www.share.minike.top/Article/details/756318368051.shtml)
+- 2026-06-29 13:47 - [送你一朵小红花](http://www.blog.minike.top/Article/details/13179768962.shtml)
+- 2026-06-29 13:44 - [伊朗球员致歉](http://www.share.minike.top/Article/details/29178308.shtml)
+- 2026-06-29 13:32 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/149444.shtml)
+- 2026-06-29 13:41 - [四川宜宾地震致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/7343634.shtml)
+- 2026-06-29 13:53 - [在家赤身裸体是否绝对自由](https://www.share.kurohicncr.top/Article/details/81290.shtml)
+- 2026-06-29 13:40 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/911475624083.shtml)
+- 2026-06-29 13:31 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/61783.shtml)
+- 2026-06-29 13:50 - [布里奇斯被交易至太阳](http://www.blog.kurohicncr.top/Article/details/79854154541.shtml)
+- 2026-06-29 13:59 - [詹俊预测德国大胜巴拉圭](https://www.blog.kurohicncr.top/Article/details/069963.shtml)
+- 2026-06-29 13:43 - [T1零封KC MSI](http://www.share.minike.top/Article/details/1297708383.shtml)
+- 2026-06-29 13:48 - [【独家】牧神记 第89集 明心](https://www.share.kurohicncr.top/Article/details/0406952437.shtml)
+- 2026-06-29 13:31 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/55679.shtml)

@@ -1,57 +1,51 @@
-# 一季度中国造船三大指标国际市场份额保持全球领先
+# 宏桥控股：公司2025年通过GTS采购原材料235亿元
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-中新社北京5月9日电 (记者 阮煜琳)记者9日从中国船舶工业行业协会获悉，一季度，中国造船三大指标全面增长。全国造船完工量、新承接船舶订单量、手持船舶订单量分别占世界市场份额的57.3%、84.9%和69.8%。一季度，中国造船完工量1568万载重吨，同比增长46.0%，占世界总量的57.3%；新接订单量5953万载重吨，同比增长195.2%，占世界总量的84.9%；截至3月底
+证券日报网讯 6月18日，宏桥控股在互动平台回答投资者提问时表示，公司2025年通过GTS采购原材料235亿元，中国宏桥披露的对GTS采购总额273.5亿元已包含公司235亿元采购规模，二者差额系中国宏桥合并范围内其他主体向GTS采购铝土矿所致。关于公司2025年第一大供应商，为中国宏桥及其受同一控制的关联方。（文章来源：证券日报）
 
 ## 正文
 
-中新社北京5月9日电 (记者 阮煜琳)记者9日从中国船舶工业行业协会获悉，一季度，中国造船三大指标全面增长。
+证券日报网讯 6月18日，宏桥控股在互动平台回答投资者提问时表示，公司2025年通过GTS采购原材料235亿元，中国宏桥披露的对GTS采购总额273.5亿元已包含公司235亿元采购规模，二者差额系中国宏桥合并范围内其他主体向GTS采购铝土矿所致。
 
-全国造船完工量、新承接船舶订单量、手持船舶订单量分别占世界市场份额的57.3%、84.9%和69.8%。
+关于公司2025年第一大供应商，为中国宏桥及其受同一控制的关联方。
 
-一季度，中国造船完工量1568万载重吨，同比增长46.0%，占世界总量的57.3%；新接订单量5953万载重吨，同比增长195.2%，占世界总量的84.9%；截至3月底，手持订单量32230万载重吨，同比增长43.6%，占世界总量的69.8%。
-
-中国造船三大指标全面增长，国际市场份额保持全球领先。
-
-数据显示，一季度，中国船舶出口金额149.2亿美元。
-
-其中，出口船舶占全国造船完工量、新接订单量、手持订单量的比重为96.1%、94.6%和92.1%。
-
-(完)
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-29 13:52 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-29 13:33 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-29 13:42 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 13:32 - [强⁶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 13:25 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-29 13:27 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 13:43 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 13:40 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 13:31 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 13:51 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-29 13:30 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 13:50 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-29 13:34 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-29 13:30 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 13:33 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-29 13:48 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-29 13:33 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 13:31 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 13:59 - [AG 钟意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-29 13:55 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 13:38 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 13:54 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-29 13:52 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 13:59 - [韩体育部长回应李在明痛批](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-29 13:37 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-29 13:42 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 13:54 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 13:54 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:27 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/67391766.shtml)
-- 2026-06-29 13:30 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.minike.top/Article/details/854560036.shtml)
-- 2026-06-29 13:25 - [吴建豪老婆](https://www.share.minike.top/Article/details/3311535781.shtml)
-- 2026-06-29 13:42 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.minike.top/Article/details/967716994.shtml)
-- 2026-06-29 13:28 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/6251655774.shtml)
-- 2026-06-29 13:52 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.minike.top/Article/details/508341456.shtml)
-- 2026-06-29 13:43 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/813910068.shtml)
-- 2026-06-29 13:30 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.blog.kurohicncr.top/Article/details/720256085560.shtml)
-- 2026-06-29 13:24 - [退休化学教授帮医药研发人员制毒](https://www.share.minike.top/Article/details/15728.shtml)
-- 2026-06-29 13:39 - [中方回应对日本相关出口管制措施](http://www.share.minike.top/Article/details/501712252.shtml)
-- 2026-06-29 13:49 - [事关个税 明日截止请抓紧办理](http://www.blog.minike.top/Article/details/445691.shtml)
-- 2026-06-29 13:49 - [中国避暑神器在欧洲卖爆了](http://www.blog.minike.top/Article/details/8587688.shtml)
-- 2026-06-29 13:26 - [周锡玮：做堂堂正正的中国人](https://www.blog.minike.top/Article/details/167722633.shtml)
-- 2026-06-29 13:39 - [美媒：空警-3000服役即成全球最强](https://www.blog.kurohicncr.top/Article/details/12742.shtml)
-- 2026-06-29 13:53 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/956635.shtml)
+- 2026-06-29 13:52 - [恋与深空底线不该被娱乐化](http://www.share.minike.top/Article/details/52510.shtml)
+- 2026-06-29 13:42 - [女生雨天开车发现雨刮条被掰走](http://www.blog.minike.top/Article/details/498894331862.shtml)
+- 2026-06-29 13:51 - [宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/4198185.shtml)
+- 2026-06-29 13:30 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/07156380518.shtml)
+- 2026-06-29 13:43 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/339776548.shtml)
+- 2026-06-29 13:35 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/740207.shtml)
+- 2026-06-29 13:57 - [媒体人：警惕日本再次成战争加害国](https://www.blog.kurohicncr.top/Article/details/00418.shtml)
+- 2026-06-29 13:52 - [王楚钦 表演球擦网](https://www.blog.kurohicncr.top/Article/details/33397379.shtml)
+- 2026-06-29 13:34 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/75355744914.shtml)
+- 2026-06-29 13:30 - [巴西德国15次闯进世界杯淘汰赛](http://www.share.kurohicncr.top/Article/details/041269409268.shtml)
+- 2026-06-29 13:44 - [中方回应对日本相关出口管制措施](http://www.blog.kurohicncr.top/Article/details/80339445579.shtml)
+- 2026-06-29 13:56 - [在家赤身裸体是否绝对自由](https://www.share.kurohicncr.top/Article/details/903076603.shtml)
+- 2026-06-29 13:49 - [周锡玮：做堂堂正正的中国人](http://www.share.kurohicncr.top/Article/details/400557.shtml)
+- 2026-06-29 13:36 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/8172629.shtml)
+- 2026-06-29 13:45 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/323516515.shtml)

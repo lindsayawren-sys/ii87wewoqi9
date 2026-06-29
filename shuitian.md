@@ -1,55 +1,59 @@
-# 海洋潜水作业风险高？可下潜万米的仿生机器人来“替班”
+# 英媒称英外交大臣要求首相斯塔默辞职
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月10日 21:19 来源：中国新闻网 5月10日，第28届中国北京国际科技产业博览会正在举行。本届北京科博会主题为“科技引领 创享未来”，在展厅内，一款可以下潜万米的仿生机器人亮相北京丰台展区。世航智能科技有限公司工作人员江婉佳在接受中新社记者采访时介绍，该款全栈自研的虎鲸海洋通用具身机器人，可以在水下720度全自由度运动，最深可以下潜至海下一万米。过
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社伦敦6月21日电（记者于艾岑）据英国天空新闻频道21日报道，英国外交大臣库珀已于本周末私下要求首相斯塔默辞职。 英国商业贸易大臣彼得·凯尔21日早间接受英国天空新闻频道采访时说，他认为斯塔默正在“反思他所面临的政治现实、挑战和机遇”。 此前有英媒报道称，英国交通大臣海迪·亚历山大19日敦促斯塔默制定离
 
 ## 正文
 
-发布时间：2026年05月10日 21:19 来源：中国新闻网 5月10日，第28届中国北京国际科技产业博览会正在举行。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-本届北京科博会主题为“科技引领 创享未来”，在展厅内，一款可以下潜万米的仿生机器人亮相北京丰台展区。
+新华社伦敦6月21日电（记者于艾岑）据英国天空新闻频道21日报道，英国外交大臣库珀已于本周末私下要求首相斯塔默辞职。
 
-世航智能科技有限公司工作人员江婉佳在接受中新社记者采访时介绍，该款全栈自研的虎鲸海洋通用具身机器人，可以在水下720度全自由度运动，最深可以下潜至海下一万米。
+英国商业贸易大臣彼得·凯尔21日早间接受英国天空新闻频道采访时说，他认为斯塔默正在“反思他所面临的政治现实、挑战和机遇”。
 
-过去，海下船舶清洁作业多靠人工完成，然而海下浪、流、涌、高压、高盐、高腐蚀等作业环境存在诸多危险性，搭载了清洁模块的“虎鲸机器人”可以代替人类精准地贴合船的侧壁和底面开展清洁工作，有效降低了水下人工作业的潜在风险。
+此前有英媒报道称，英国交通大臣海迪·亚历山大19日敦促斯塔默制定离任时间表，内政大臣谢巴娜·马哈茂德也曾呼吁斯塔默确定离任日期。
 
-(谢龙飞 卢晓娜 林倬安 制作 王嘉怡) 责任编辑：【周驰】
+19日凌晨，英国大曼彻斯特市长安迪·伯纳姆赢得马克菲尔德选区下院议员补选，将重返议会下院，从而具备参与工党党首竞争、进而角逐首相职位的条件。
+
+伯纳姆被广泛视作斯塔默工党党首地位的有力竞争者，他曾在该选区一场补选候选人辩论中表示，如果他获胜，将寻求加入任何挑战斯塔默党首之位的活动。
+
+斯塔默19日对英国媒体表示，如果发生党首竞选，他将会参选，并重申自己不会“一走了之”。
+
+（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 13:31 - [海军舰艇编队将赴香港](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 13:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 13:53 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 13:36 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-29 13:48 - [BW2026游览指南](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 13:45 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-29 13:39 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 13:43 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 13:43 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 13:33 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 13:32 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-29 13:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-29 13:53 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 13:28 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-29 13:31 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 13:59 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-29 13:45 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 13:59 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 13:32 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 13:44 - [媒体评恋与深空争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-29 13:52 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-29 13:52 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 13:48 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-29 13:50 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 13:49 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 13:33 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-29 13:43 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 13:48 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:48 - [男子偶遇婴儿被锁车内大哭挣扎](http://www.blog.kurohicncr.top/Article/details/717707005955.shtml)
-- 2026-06-29 13:31 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.kurohicncr.top/Article/details/219020907.shtml)
-- 2026-06-29 13:47 - [BW2026游览指南](http://www.share.minike.top/Article/details/9112301.shtml)
-- 2026-06-29 13:25 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/9599797.shtml)
-- 2026-06-29 13:25 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/088120471143.shtml)
-- 2026-06-29 13:43 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/3092119.shtml)
-- 2026-06-29 13:52 - [法拉利被4个孩子当滑梯玩](https://www.blog.kurohicncr.top/Article/details/81226289.shtml)
-- 2026-06-29 13:49 - [李连杰回应网传不管前妻俩女儿](https://www.share.minike.top/Article/details/679075225488.shtml)
-- 2026-06-29 13:51 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/396895633.shtml)
-- 2026-06-29 13:31 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/88199401851.shtml)
-- 2026-06-29 13:31 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/5570236.shtml)
-- 2026-06-29 13:50 - [Agent带来token消耗爆炸](http://www.share.kurohicncr.top/Article/details/445905.shtml)
-- 2026-06-29 13:33 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.blog.minike.top/Article/details/2472864.shtml)
-- 2026-06-29 13:39 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/248893166.shtml)
-- 2026-06-29 13:36 - [詹俊：巴西能凭借两大优势战胜日本](http://www.blog.kurohicncr.top/Article/details/6257493.shtml)
+- 2026-06-29 13:56 - [欧洲人驾车200公里抢购中国空调](https://www.blog.minike.top/Article/details/027042988.shtml)
+- 2026-06-29 13:50 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/846848658.shtml)
+- 2026-06-29 13:35 - [AG 钟意](https://www.blog.minike.top/Article/details/5831199087.shtml)
+- 2026-06-29 13:44 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.blog.kurohicncr.top/Article/details/55726.shtml)
+- 2026-06-29 13:56 - [张真源解读相思锁](https://www.blog.minike.top/Article/details/4427279.shtml)
+- 2026-06-29 13:39 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/9010554.shtml)
+- 2026-06-29 13:56 - [亚洲成世界杯最大失意者联盟](https://www.share.kurohicncr.top/Article/details/088797604785.shtml)
+- 2026-06-29 13:54 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.kurohicncr.top/Article/details/029982942848.shtml)
+- 2026-06-29 13:51 - [市民骑哈啰单车79分钟付30元](https://www.share.minike.top/Article/details/88212.shtml)
+- 2026-06-29 13:53 - [杨紫 你幸福的话我会比你先流泪](https://www.share.kurohicncr.top/Article/details/87089178335.shtml)
+- 2026-06-29 13:52 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/399919.shtml)
+- 2026-06-29 13:55 - [明星大侦探第四季](https://www.share.minike.top/Article/details/516129.shtml)
+- 2026-06-29 13:31 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.minike.top/Article/details/26662091761.shtml)
+- 2026-06-29 13:45 - [下飞机后，我做了个很蠢的决定......](http://www.share.kurohicncr.top/Article/details/1769307.shtml)
+- 2026-06-29 13:51 - [强⁶](https://www.blog.kurohicncr.top/Article/details/97830126.shtml)

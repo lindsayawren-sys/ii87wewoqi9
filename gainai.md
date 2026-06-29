@@ -1,59 +1,61 @@
-# 2025年度全国秋粮收购超3.38亿吨
+# 今年端午档上映影片数量创近十年同期新高
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-新华社北京5月10日电(记者古一平)国家粮食和物资储备局最新发布数据显示，2025年度秋粮旺季收购于今年4月底结束，全国各类粮食经营主体累计收购秋粮超3.38亿吨，为近年来较高水平。收购总体呈现进度快、购销活、价格涨等特点。据初步统计，累计收购中晚稻1.03亿吨、玉米2.22亿吨、大豆1299万吨。河南、湖南、黑龙江3省启动中晚稻最低收购价执行预案，累计收购最低收购价中晚稻41
+截至目前，2026年度电影总票房已超165亿元。《给阿嬷的情书》6月18日全球上映，端午档20部新片云集，创近十年同期新高。影片类型丰富，满足多样化观影需求。 总台央视记者 曹岩：今年的端午档可以说是格外热闹，短短3天假期，近20部影片集中上映，创下近十年来同期新高。影片类型从谍战、爱情、悬疑到动画、动作、青春题材，几乎覆盖全年龄段观众的观影需求。 科幻爱情电影《我看见两朵一样
 
 ## 正文
 
-新华社北京5月10日电(记者古一平)国家粮食和物资储备局最新发布数据显示，2025年度秋粮旺季收购于今年4月底结束，全国各类粮食经营主体累计收购秋粮超3.38亿吨，为近年来较高水平。
+截至目前，2026年度电影总票房已超165亿元。
 
-收购总体呈现进度快、购销活、价格涨等特点。
+《给阿嬷的情书》6月18日全球上映，端午档20部新片云集，创近十年同期新高。
 
-据初步统计，累计收购中晚稻1.03亿吨、玉米2.22亿吨、大豆1299万吨。
+影片类型丰富，满足多样化观影需求。
 
-河南、湖南、黑龙江3省启动中晚稻最低收购价执行预案，累计收购最低收购价中晚稻418万吨。
+总台央视记者 曹岩：今年的端午档可以说是格外热闹，短短3天假期，近20部影片集中上映，创下近十年来同期新高。
 
-国家粮食和物资储备局粮食储备司司长罗守全表示，本季秋粮上市早、总体质量好，农民售粮踊跃、企业收粮积极，整体呈购销两旺的良好态势，收购价格稳中有涨。
+影片类型从谍战、爱情、悬疑到动画、动作、青春题材，几乎覆盖全年龄段观众的观影需求。
 
-同时，优质优价特征更加明显，优质食味稻价格每吨达3200元，优质高蛋白大豆价格每吨超过5000元。
+科幻爱情电影《我看见两朵一样的云》由王源饰演的阿志坚信自己活在虚拟世界里，不断寻找逃离现实的证据。
 
-据了解，2025年度秋粮旺季收购期间，国家粮食和物资储备局强化统筹组织，细化政策措施，相机灵活开展收储调控，多措并举推动产销衔接和农企对接，积极引导各类主体入市，不断激发市场购销活力，保障收购工作顺利开展。
+科幻设定遇上青春爱情，也让这部电影成为端午档最具想象力的一部作品。
 
-2026年夏粮收购即将展开，国家粮食和物资储备局将加强对夏粮收购形势的分析研判，指导各地和有关企业提前制定收购方案，扎实做好夏粮收购工作准备，全力维护粮食市场平稳运行，促进粮食价格保持在合理水平。
+《爱是愤怒》聚焦小镇青年的爱情故事，探讨情绪、成长与和解。
 
 ## 相关推荐
 
-- 2026-06-29 13:32 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 13:40 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 13:47 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-29 13:47 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-29 13:39 - [汪东城回应45岁婚约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-29 13:25 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 13:32 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 13:26 - [刘仲华院士愿当贺永辉导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 13:24 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-29 13:40 - [AG 钟意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 13:47 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-29 13:44 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 13:36 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-29 13:38 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-29 13:45 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 13:46 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-29 13:42 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-29 13:35 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-29 13:56 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-29 13:30 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 13:51 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 13:59 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 13:48 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 13:56 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 13:47 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 13:43 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-29 13:44 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-29 13:36 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:50 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/8411748.shtml)
-- 2026-06-29 13:34 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/898909657.shtml)
-- 2026-06-29 13:36 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.kurohicncr.top/Article/details/083333496588.shtml)
-- 2026-06-29 13:26 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/567574852.shtml)
-- 2026-06-29 13:37 - [网友偶遇胡军和李乃文](http://www.blog.kurohicncr.top/Article/details/697048786407.shtml)
-- 2026-06-29 13:38 - [急先锋](https://www.blog.kurohicncr.top/Article/details/92083294.shtml)
-- 2026-06-29 13:36 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/13258022.shtml)
-- 2026-06-29 13:51 - [F1奥地利大奖赛正赛集锦](https://www.share.minike.top/Article/details/557627.shtml)
-- 2026-06-29 13:31 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/85704760217.shtml)
-- 2026-06-29 13:30 - [记者率先试乘西十高铁](https://www.blog.kurohicncr.top/Article/details/99105.shtml)
-- 2026-06-29 13:34 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/202220986671.shtml)
-- 2026-06-29 13:37 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/123353716.shtml)
-- 2026-06-29 13:51 - [papi酱回应毕业4年零收入](http://www.share.minike.top/Article/details/23778.shtml)
-- 2026-06-29 13:52 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/519086576.shtml)
-- 2026-06-29 13:31 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/5351428194.shtml)
+- 2026-06-29 13:42 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/88061898.shtml)
+- 2026-06-29 13:53 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/47236073.shtml)
+- 2026-06-29 13:49 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.kurohicncr.top/Article/details/899219.shtml)
+- 2026-06-29 13:50 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.share.minike.top/Article/details/084339420.shtml)
+- 2026-06-29 13:36 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.minike.top/Article/details/28152.shtml)
+- 2026-06-29 13:34 - [5万块的威力](http://www.share.minike.top/Article/details/657284049.shtml)
+- 2026-06-29 13:56 - [Agent带来token消耗爆炸](http://www.share.minike.top/Article/details/61009146.shtml)
+- 2026-06-29 13:38 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/566167.shtml)
+- 2026-06-29 13:53 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/585761856.shtml)
+- 2026-06-29 13:57 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/27279696.shtml)
+- 2026-06-29 13:33 - [欧洲人驾车200公里抢购中国空调](https://www.blog.kurohicncr.top/Article/details/190897492796.shtml)
+- 2026-06-29 13:49 - [第一批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/16479791.shtml)
+- 2026-06-29 13:33 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/8562486.shtml)
+- 2026-06-29 13:42 - [吴海燕兰西雅漫步复兴岛](https://www.blog.kurohicncr.top/Article/details/93161175.shtml)
+- 2026-06-29 13:55 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/35277918.shtml)

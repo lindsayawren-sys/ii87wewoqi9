@@ -1,51 +1,59 @@
-# 石峰任长安大学党委书记
+# 弹窗广告“弹”出了间谍？国家安全机关出手
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-中新网5月11日电 据“微言教育”微信公众号消息，5月11日，教育部人事司在长安大学宣布了教育部党组的任免决定，石峰同志任长安大学党委书记，陈志坚同志不再担任长安大学党委书记职务。教育部人事司主要负责同志出席会议并讲话，陕西省委教育工委主要负责同志、陕西省委组织部有关负责同志出席会议。 石峰，1970年6月出生，研究生，法学硕士，中共党员，高级工程师。曾任西安电子科技大学党委常
+弹窗广告“弹”出了间谍？ ! “观看广告领取福利”“观看广告解锁免费时长”……这些弹窗广告在网络场景中十分常见。然而，国家安全机关工作发现，境外间谍情报机关正利用弹窗广告开展情报搜集、目标筛选和思想渗透等活动，对我国家安全构成威胁。目前，国家安全机关已依法责令有关网络平台运营者立即停止为不明境外链接提供广告推送服务，第一时间阻断了潜在危害扩散。 不一样的弹窗广告 打开网页或启动
 
 ## 正文
 
-中新网5月11日电 据“微言教育”微信公众号消息，5月11日，教育部人事司在长安大学宣布了教育部党组的任免决定，石峰同志任长安大学党委书记，陈志坚同志不再担任长安大学党委书记职务。
+弹窗广告“弹”出了间谍？
 
-教育部人事司主要负责同志出席会议并讲话，陕西省委教育工委主要负责同志、陕西省委组织部有关负责同志出席会议。
+!
 
-石峰，1970年6月出生，研究生，法学硕士，中共党员，高级工程师。
+“观看广告领取福利”“观看广告解锁免费时长”……这些弹窗广告在网络场景中十分常见。
 
-曾任西安电子科技大学党委常委、副校长，陕西师范大学党委副书记、纪委书记。
+然而，国家安全机关工作发现，境外间谍情报机关正利用弹窗广告开展情报搜集、目标筛选和思想渗透等活动，对我国家安全构成威胁。
+
+目前，国家安全机关已依法责令有关网络平台运营者立即停止为不明境外链接提供广告推送服务，第一时间阻断了潜在危害扩散。
+
+不一样的弹窗广告 打开网页或启动APP时，我们经常会遇到各种广告，不仅“跳过”键难以找到，而且特别容易误触跳转。
+
+这些“霸屏”的弹窗广告不仅扰乱了正常的网络秩序，也给了不法分子可乘之机。
+
+——“个性广告推送”明修栈道。
 
 ## 相关推荐
 
-- 2026-06-29 13:34 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-29 13:53 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 13:28 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-29 13:34 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-29 13:42 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 13:51 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-29 13:34 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-29 13:53 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 13:31 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-29 13:35 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 13:36 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-29 13:45 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-29 13:31 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-29 13:41 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 13:58 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 13:43 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 13:47 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 13:55 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-29 13:53 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 13:38 - [伊朗球员致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 13:32 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 13:47 - [薛之谦演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-29 13:41 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 13:36 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 13:39 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-29 13:56 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:50 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/848306334.shtml)
-- 2026-06-29 13:29 - [巴基斯坦军方打死29名武装分子](http://www.share.minike.top/Article/details/71964791822.shtml)
-- 2026-06-29 13:33 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/479485398359.shtml)
-- 2026-06-29 13:50 - [男子月薪五千卖房借贷给女友转账百万](http://www.share.kurohicncr.top/Article/details/6885638126.shtml)
-- 2026-06-29 13:27 - [强⁶](https://www.share.minike.top/Article/details/74786.shtml)
-- 2026-06-29 13:31 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/0196994413.shtml)
-- 2026-06-29 13:40 - [这位天才台湾人第一次来大陆，开智了](https://www.blog.kurohicncr.top/Article/details/32871224.shtml)
-- 2026-06-29 13:28 - [四川宜宾地震致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/6804472147.shtml)
-- 2026-06-29 13:37 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/693841600956.shtml)
-- 2026-06-29 13:26 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/331319.shtml)
-- 2026-06-29 13:51 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.kurohicncr.top/Article/details/68844.shtml)
-- 2026-06-29 13:30 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/3033980409.shtml)
-- 2026-06-29 13:46 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/72925618.shtml)
-- 2026-06-29 13:46 - [周生如故](http://www.share.minike.top/Article/details/4029438521.shtml)
-- 2026-06-29 13:47 - [中国战机大片上新](https://www.blog.minike.top/Article/details/558819402624.shtml)
+- 2026-06-29 13:47 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.kurohicncr.top/Article/details/9818755520.shtml)
+- 2026-06-29 13:38 - [杨紫 你幸福的话我会比你先流泪](http://www.blog.kurohicncr.top/Article/details/8627897351.shtml)
+- 2026-06-29 13:44 - [吴磊爱上回收了](http://www.share.minike.top/Article/details/6177881.shtml)
+- 2026-06-29 13:47 - [市民骑哈啰单车79分钟被收费30元](https://www.blog.kurohicncr.top/Article/details/192931129.shtml)
+- 2026-06-29 13:34 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/520302.shtml)
+- 2026-06-29 13:51 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/54660169807.shtml)
+- 2026-06-29 13:34 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.blog.kurohicncr.top/Article/details/079823840.shtml)
+- 2026-06-29 13:34 - [大疆7月15日起涨价？公司回应](https://www.blog.minike.top/Article/details/062827307836.shtml)
+- 2026-06-29 13:44 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.minike.top/Article/details/85610.shtml)
+- 2026-06-29 13:50 - [媒体：高考后消费应量力而行适度有度](https://www.blog.kurohicncr.top/Article/details/959779.shtml)
+- 2026-06-29 13:41 - [赵今麦客串电影版开端](https://www.share.minike.top/Article/details/15393068952.shtml)
+- 2026-06-29 13:36 - [普京称俄处于命运攸关之际](http://www.share.minike.top/Article/details/3406143.shtml)
+- 2026-06-29 13:58 - [7月1日起一批新规即将落地](https://www.share.kurohicncr.top/Article/details/484444525356.shtml)
+- 2026-06-29 13:52 - [金牌调解](http://www.share.kurohicncr.top/Article/details/875143971076.shtml)
+- 2026-06-29 13:41 - [中俄联合巡航阵容强大 日本慌了？](https://www.share.kurohicncr.top/Article/details/19983232.shtml)

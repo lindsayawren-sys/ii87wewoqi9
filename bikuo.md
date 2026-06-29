@@ -1,61 +1,58 @@
-# 光大期货：5月11日矿钢煤焦日报
+# 端午拾趣重庆百年古镇：泥鳅灯“游”出水岸 豆豉香“漫”过老街
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-钢材：出口分流产量下降，钢价仍将震荡偏强 （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 螺纹方面，本周全国螺纹产量环比回落10.27万吨至196.65万吨，公历同比减少10.27万吨，农历同比减少32.57万吨；社库环比回落7.15万吨至547.22万吨，公历同比增加81.84万吨，农历同比增加14.46万吨；厂库环比增加5.99万吨至179.84
+中新网重庆6月19日电 题：端午拾趣重庆百年古镇：泥鳅灯“游”出水岸 豆豉香“漫”过老街 作者 张霁雯 “咱们板桥人世代临水而居，勤恳务实，就像这溪间的泥鳅，踏实肯干、默默耕耘。每逢端午佳节，点亮泥鳅灯，巡游柳溪河两岸，早已成了板桥刻在烟火里的老民俗、老传承。快看，他们来了……” 6月19日，重庆永川区板桥镇的老街河道上，几只竹筏缓缓撑开水面。竹筏之上，悠扬的古筝、笛声随波荡漾
 
 ## 正文
 
-钢材：出口分流产量下降，钢价仍将震荡偏强 （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 螺纹方面，本周全国螺纹产量环比回落10.27万吨至196.65万吨，公历同比减少10.27万吨，农历同比减少32.57万吨；社库环比回落7.15万吨至547.22万吨，公历同比增加81.84万吨，农历同比增加14.46万吨；厂库环比增加5.99万吨至179.84万吨，公历同比减少8.43万吨，农历同比减少20.56万吨；螺纹表需环比回落47.34万吨至197.81万吨，公历同比减少16.06万吨，农历同比减少76万吨。
+中新网重庆6月19日电 题：端午拾趣重庆百年古镇：泥鳅灯“游”出水岸 豆豉香“漫”过老街 作者 张霁雯 “咱们板桥人世代临水而居，勤恳务实，就像这溪间的泥鳅，踏实肯干、默默耕耘。
 
-螺纹产量明显回落，库存降幅收窄，表需回落，数据表现偏中性。
+每逢端午佳节，点亮泥鳅灯，巡游柳溪河两岸，早已成了板桥刻在烟火里的老民俗、老传承。
 
-近期钢厂钢坯出口接单情况较好，部分钢厂出口订单排产已到7月份，钢厂加大排产钢坯减少螺纹产量，在很大程度上缓解了市场供应压力，钢厂挺价意愿普遍较强。
+快看，他们来了……” 6月19日，重庆永川区板桥镇的老街河道上，几只竹筏缓缓撑开水面。
 
-同时五一节后中下游用户采购和补库的积极性有所抬升，市场成交好转，对市场信心也形成较强提振。
+竹筏之上，悠扬的古筝、笛声随波荡漾，演员临水起舞，沉浸式演绎情景剧《板桥记忆·泥鳅灯》，生动再现本土民俗民间故事。
 
-不过近期价格上涨较快，长流程钢厂即期利润明显回升，短流程钢厂平电也基本能实现盈亏平衡，后期钢厂复产动力或将有所增强。
+当日，“豆豉飘香·和美板桥——镇园融合共话端午”主题系列活动在板桥镇启幕。
 
-预计短期螺纹盘面仍将震荡偏强运行。
+锣鼓起、竹筏行、灯影动，一场融合巡游展演、产业体验与民众互动的端午盛宴，在老街水岸间铺展开来。
 
-热卷方面，本周全国热卷产量环比回落4.6万吨至300.61万吨，公历同比减少19.77万吨，农历同比减少13.79万吨；社库环比回升2.33万吨至335.28万吨，公历同比增加54.96万吨，农历同比增加45.56万吨；厂库环比回升1.19万吨至82.6万吨，公历同比减少2.2万吨，农历同比减少2.23万吨；热卷表需环比回落9.33万吨至297.09万吨，公历同比减少12.44万吨，农历同比减少27.07万吨。
+与传统舞台演出不同，这场演绎把古镇河道、吊桥、滨河步道变成了天然剧场。
 
-热卷产量回落，库存小幅增加，表需回落，数据表现中性偏弱。
+表演以板桥本土泥鳅灯文化为底色，将民间传说、端午祈福、水岸歌舞和竹筏对歌串联起来。
 
 ## 相关推荐
 
-- 2026-06-29 13:49 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-29 13:40 - [异世界一点都不好玩！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 13:29 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 13:53 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 13:46 - [加拿大92分钟绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-29 13:26 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 13:50 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 13:43 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 13:39 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-29 13:39 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-29 13:46 - [宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 13:49 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 13:50 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-29 13:32 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-29 13:51 - [Mrbeast的30天不吃饭挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-29 13:50 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 13:53 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 13:44 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 13:59 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 13:39 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-29 13:54 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 13:42 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 13:55 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-29 13:34 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-29 13:44 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-29 13:50 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-29 13:37 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:50 - [人民日报评“AI脸看腻了”](https://www.blog.kurohicncr.top/Article/details/25686.shtml)
-- 2026-06-29 13:29 - [Mrbeast的30天不吃饭挑战](http://www.share.kurohicncr.top/Article/details/2039404570.shtml)
-- 2026-06-29 13:51 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/5337886.shtml)
-- 2026-06-29 13:35 - [张一山回应与杨紫友情](https://www.share.minike.top/Article/details/791048.shtml)
-- 2026-06-29 13:41 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/44438.shtml)
-- 2026-06-29 13:35 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/75653728409.shtml)
-- 2026-06-29 13:39 - [张一山回应与杨紫友情](https://www.share.kurohicncr.top/Article/details/1638618083.shtml)
-- 2026-06-29 13:37 - [明星大侦探第四季](http://www.share.minike.top/Article/details/136480.shtml)
-- 2026-06-29 13:40 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/749137564.shtml)
-- 2026-06-29 13:41 - [游戏数据被用于军事目的 国安部提醒](http://www.share.minike.top/Article/details/438769879.shtml)
-- 2026-06-29 13:46 - [第一批缉毒警已全体退休](https://www.blog.minike.top/Article/details/24769.shtml)
-- 2026-06-29 13:48 - [智界V9成为高端圈层共同选择](https://www.share.kurohicncr.top/Article/details/5619697329.shtml)
-- 2026-06-29 13:44 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/39233794914.shtml)
-- 2026-06-29 13:50 - [中国邮政上海分公司总经理李柏平被查](https://www.blog.minike.top/Article/details/5682734966.shtml)
-- 2026-06-29 13:28 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/041189258481.shtml)
+- 2026-06-29 13:30 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/251624.shtml)
+- 2026-06-29 13:53 - [巴黎两家殡仪馆爆满](https://www.share.minike.top/Article/details/35936697.shtml)
+- 2026-06-29 13:55 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/40653055.shtml)
+- 2026-06-29 13:39 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/740165658427.shtml)
+- 2026-06-29 13:58 - [一生一世](https://www.blog.kurohicncr.top/Article/details/716555.shtml)
+- 2026-06-29 13:36 - [速度与激情9](https://www.blog.minike.top/Article/details/621949470.shtml)
+- 2026-06-29 13:44 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.minike.top/Article/details/511815196.shtml)
+- 2026-06-29 13:40 - [退休化学教授帮医药研发人员制毒](http://www.blog.kurohicncr.top/Article/details/55764.shtml)
+- 2026-06-29 13:56 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.share.minike.top/Article/details/670514.shtml)
+- 2026-06-29 13:54 - [直击宜宾地震：监控剧烈摇晃](https://www.share.kurohicncr.top/Article/details/28082236988.shtml)
+- 2026-06-29 13:51 - [爱很美味](http://www.share.kurohicncr.top/Article/details/6755502.shtml)
+- 2026-06-29 13:42 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/646749334.shtml)
+- 2026-06-29 13:59 - [爱情有烟火你是知道我爱看什么的](http://www.blog.kurohicncr.top/Article/details/9495182654.shtml)
+- 2026-06-29 13:48 - [吴昕要助理买的药6年前已停产](http://www.blog.minike.top/Article/details/2015870.shtml)
+- 2026-06-29 13:34 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/87958.shtml)

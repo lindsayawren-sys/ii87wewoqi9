@@ -1,58 +1,59 @@
-# “免费修车”“高额返现”“维修补贴”……斩断车险骗保黑色产业链
+# 活力中国调研行丨精度可达0.2微米 总台记者探访：为机器人打造“火眼金睛”
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-原标题：斩断车险骗保黑色产业链 “免费修车”“高额返现”“维修补贴”——这些看似诱人的福利，很多是精心布设的车险骗保陷阱。近年来，车险骗保乱象屡禁不止、花样翻新，已形成集拉客、造事、定损、理赔于一体的黑色产业链，不法汽修厂、部分车主甚至保险公司内部人员纷纷卷入其中。 不法汽修厂精准抓住部分车主贪小便宜的心理，以“免费维修”“高额返现”为诱饵，通过伪造事故现场、夸大车辆损失、虚开
+原标题：活力中国调研行丨精度可达0.2微米 总台记者探访：为机器人打造“火眼金睛” 2026年“活力中国调研行”主题采访活动正在天津举行，调研的主题是科创活力。当下人工智能产业加速迭代，具身智能逐步走进生产生活各类场景。视觉感知是机器人感知、认知外界环境的核心基础，如同人类依靠双眼观察世界。 在天津就有这样一家企业，深耕具身智能视觉系统研发，为机器人打造精准“视觉大脑”，这项前
 
 ## 正文
 
-原标题：斩断车险骗保黑色产业链 “免费修车”“高额返现”“维修补贴”——这些看似诱人的福利，很多是精心布设的车险骗保陷阱。
+原标题：活力中国调研行丨精度可达0.2微米 总台记者探访：为机器人打造“火眼金睛” 2026年“活力中国调研行”主题采访活动正在天津举行，调研的主题是科创活力。
 
-近年来，车险骗保乱象屡禁不止、花样翻新，已形成集拉客、造事、定损、理赔于一体的黑色产业链，不法汽修厂、部分车主甚至保险公司内部人员纷纷卷入其中。
+当下人工智能产业加速迭代，具身智能逐步走进生产生活各类场景。
 
-不法汽修厂精准抓住部分车主贪小便宜的心理，以“免费维修”“高额返现”为诱饵，通过伪造事故现场、夸大车辆损失、虚开维修清单等手段骗取保费，更有甚者串通保险公司内部人员，打通骗保全流程，让骗保行为更具隐蔽性，严重侵蚀保险行业健康发展的根基。
+视觉感知是机器人感知、认知外界环境的核心基础，如同人类依靠双眼观察世界。
 
-车险骗保危害不小。
+在天津就有这样一家企业，深耕具身智能视觉系统研发，为机器人打造精准“视觉大脑”，这项前沿技术将为日常生产生活带来哪些全新变化？
 
-对保险行业而言，大量虚假理赔不仅推高保险赔付成本，扰乱正常市场秩序，更破坏行业诚信生态。
+智能视觉传感器识别 最高精准度达到0.2微米 记者在现场看到，这套视觉传感器装置每闪烁一次就相当于拍照记录了一次识别区范围内的所有物品。
 
-对车主而言，“免费维修”背后，隐藏着更高的经济成本与法律风险。
+现场这些物品都很小，有很多细节，然而小到一根头发，它也能精准地识别出来。
 
-异常理赔记录会让车主被认定为高风险客户，导致保费上涨；若默许他人虚报损失、出借证件提供虚假理赔资料，即便未直接参与造假，也需承担相应法律责任，不仅可能被驳回理赔申请，还会留下不良记录，影响后续投保，可谓“捡小便宜吃大亏”。
+通过镜头识别、拍到头发其实并不难，但我们将视觉传感器装置拍摄的画面挪动一下就能看到——这个系统搭载的人工智能，能把拍出来的二维图像识别出三维信息，包括头发丝的厚度、形态，可以达到工业级别的毫米精度，最大精度甚至可以达到0.2微米。
 
-惩治车险骗保，保险行业需率先压实主体责任，筑牢风险防线。
+所以在工业生产中，肉眼都很难识别出的，仅有一些微小差别的部件，它都可以轻松判断。
 
 ## 相关推荐
 
-- 2026-06-29 13:44 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-29 13:29 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 13:52 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 13:39 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-29 13:49 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-29 13:35 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 13:44 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-29 13:40 - [双高胎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 13:36 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-29 13:45 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-29 13:51 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 13:33 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-29 13:55 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 13:41 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 13:50 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 13:48 - [异世界一点都不好玩！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 13:33 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 13:39 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 13:42 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-29 13:35 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-29 13:44 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 13:57 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 13:37 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-29 13:41 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-29 13:47 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:42 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/2579952.shtml)
-- 2026-06-29 13:32 - [女生雨天开车发现雨刮条被掰走](http://www.share.minike.top/Article/details/1908923.shtml)
-- 2026-06-29 13:52 - [流金岁月](http://www.share.kurohicncr.top/Article/details/931949365.shtml)
-- 2026-06-29 13:29 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/7354984.shtml)
-- 2026-06-29 13:51 - [记者暗访贵州和云南多个养老机构](https://www.share.minike.top/Article/details/9778314.shtml)
-- 2026-06-29 13:30 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/1811469.shtml)
-- 2026-06-29 13:41 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/395902.shtml)
-- 2026-06-29 13:48 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/39265431.shtml)
-- 2026-06-29 13:44 - [天道](https://www.share.kurohicncr.top/Article/details/15023688972.shtml)
-- 2026-06-29 13:45 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.minike.top/Article/details/80760943446.shtml)
-- 2026-06-29 13:50 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/508727374474.shtml)
-- 2026-06-29 13:32 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/15122449.shtml)
-- 2026-06-29 13:41 - [美的空调 卡bug](http://www.share.minike.top/Article/details/708186818.shtml)
-- 2026-06-29 13:45 - [T1 vs KC MSI](http://www.blog.kurohicncr.top/Article/details/791591858.shtml)
-- 2026-06-29 13:35 - [绘画区你赢了](https://www.blog.minike.top/Article/details/11736185.shtml)
+- 2026-06-29 13:51 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/903426590.shtml)
+- 2026-06-29 13:30 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/364123458690.shtml)
+- 2026-06-29 13:54 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/018462.shtml)
+- 2026-06-29 13:59 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/240190.shtml)
+- 2026-06-29 13:55 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/2558097057.shtml)
+- 2026-06-29 13:58 - [普京称俄处于命运攸关之际](https://www.share.kurohicncr.top/Article/details/81072506236.shtml)
+- 2026-06-29 13:55 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/73324336875.shtml)
+- 2026-06-29 13:46 - [肖战深夜到达青岛赴十日终焉片场](http://www.blog.minike.top/Article/details/27515176.shtml)
+- 2026-06-29 13:58 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/519588570.shtml)
+- 2026-06-29 13:39 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/6558260612.shtml)
+- 2026-06-29 13:39 - [恋与深空底线不该被娱乐化](http://www.share.minike.top/Article/details/233668501792.shtml)
+- 2026-06-29 13:54 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/6888045.shtml)
+- 2026-06-29 13:39 - [比亚迪市值为何蒸发8000亿](https://www.share.kurohicncr.top/Article/details/886003.shtml)
+- 2026-06-29 13:59 - [这位天才台湾人第一次来大陆，开智了](https://www.blog.kurohicncr.top/Article/details/85245.shtml)
+- 2026-06-29 13:49 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/312373223727.shtml)

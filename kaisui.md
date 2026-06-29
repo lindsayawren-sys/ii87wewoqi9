@@ -1,56 +1,60 @@
-# 一场股东会投10张反对票！可靠股份“内斗”两年不休：高管再折一将，前老板娘称“经营不合规”
+# 长城脚下过端午 北京延庆将举办百余场特色文旅活动
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 文 | 《BUG》栏目 张奥 近日，被称为“中国银发产业第一股”的可靠股份接连交出两份“成绩单”：2025年营收11.5亿元，净利润0.36亿元；2026年一季度实现营收2.91亿元，归母净利润仅0.02亿元，较上年同期的1858.96万元暴跌89.89%；扣除非经常性损益后的归母净利润更降至21.22万元，同比大幅下滑98.7
+中新网北京6月20日电 (记者 陈杭)19日，第十八届北京端午文化节暨“长城脚下过端午”主题系列活动在北京世园国际旅游度假区启幕。端午音乐会、缝制艾草香包、编织五彩绳、手绘戏曲脸谱……北京市延庆区将上演百余场特色文旅活动，让市民游客在妫川山水间沉浸式邂逅古韵端午。 当天，位于北京世园国际旅游度假区的主会场内，国风科技主题巡游开展，智能机器人、机器狗创意方阵与身着华美汉服的演员队
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 文 | 《BUG》栏目 张奥 近日，被称为“中国银发产业第一股”的可靠股份接连交出两份“成绩单”：2025年营收11.5亿元，净利润0.36亿元；2026年一季度实现营收2.91亿元，归母净利润仅0.02亿元，较上年同期的1858.96万元暴跌89.89%；扣除非经常性损益后的归母净利润更降至21.22万元，同比大幅下滑98.79%，几乎濒临亏损边缘。
+中新网北京6月20日电 (记者 陈杭)19日，第十八届北京端午文化节暨“长城脚下过端午”主题系列活动在北京世园国际旅游度假区启幕。
 
-同时，公司高管之间的内斗已经持续两年且再度“升级”。
+端午音乐会、缝制艾草香包、编织五彩绳、手绘戏曲脸谱……北京市延庆区将上演百余场特色文旅活动，让市民游客在妫川山水间沉浸式邂逅古韵端午。
 
-副总经理、董事会秘书王向亭因个人原因主动申请辞职，彻底退出公司。
+当天，位于北京世园国际旅游度假区的主会场内，国风科技主题巡游开展，智能机器人、机器狗创意方阵与身着华美汉服的演员队伍联袂前行，机器狗舞狮、机器人舞蹈等新潮快闪轮番上演，古今碰撞的新奇表演引得游客纷纷驻足喝彩。
 
-关于原因，可靠股份第二大股东、董事鲍佳（系董事长金利伟前期）向《BUG》栏目透露，公司内部推行“跪拜感恩老板文化”：“安排员工参加感恩培训教育。
+“第一次看到机器人舞狮、国风巡游结合科技元素，特别震撼！
 
-上市后高管持续频繁离职更换的核心原因，仍然是在短期满足董事长需求与长期满足合法合规要求之间，存在着无法逾越的鸿沟。
+既有古风韵味，又有现代新意，带孩子过节既热闹又有意义。
 
-” 与财报同期公布的第五届董事会第二十次会议决议显示，董事鲍佳对审议通过的17项议案中的10项均投出反对票。
+”来自北京市通州区的游客高颖杰全程看完巡游，对新颖创意赞不绝口。
 
-鲍佳直言，会议公告再次对其的反对意见进行了大幅删改从而隐瞒投资者相关重要信息，“实在无法容忍该行为”，已就此事向证监会官方渠道举报。
+除了视听盛宴，世园公园为游客提供可参与、可体验的民俗互动。
 
-对于与鲍佳的争讨何时结束等事宜，可靠股份内部人士表示，无法确定具体（结束）时间，“正努力做好业绩经营，尽量改善现状，同（鲍佳争论的进展）以董事会后续决议公告为准”。
+国际馆门前，端午非遗民俗工坊人头攒动，游客有序体验包粽子、缝制艾草香包、编织五彩绳、手绘戏曲脸谱等传统项目，近距离感受节日传统习俗。
 
 ## 相关推荐
 
-- 2026-06-29 13:31 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 13:25 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-29 13:24 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 13:25 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 13:51 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 13:29 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 13:31 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 13:33 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-29 13:53 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-29 13:51 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 13:57 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 13:51 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-29 13:37 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 13:59 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 13:43 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-29 13:40 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 13:37 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 13:38 - [加拿大92分钟绝杀南非](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 13:35 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-29 13:42 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-29 13:41 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 13:46 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 13:47 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-29 13:46 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:35 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/698947998864.shtml)
-- 2026-06-29 13:25 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/518672516353.shtml)
-- 2026-06-29 13:52 - [四川宜宾地震](https://www.blog.minike.top/Article/details/5351514.shtml)
-- 2026-06-29 13:47 - [这位猫咪，请你自重！](http://www.share.minike.top/Article/details/976712464145.shtml)
-- 2026-06-29 13:24 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.blog.kurohicncr.top/Article/details/388778.shtml)
-- 2026-06-29 13:53 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/074359289.shtml)
-- 2026-06-29 13:49 - [中方将20家日本实体列入关注名单](https://www.blog.kurohicncr.top/Article/details/487890.shtml)
-- 2026-06-29 13:24 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/861399438.shtml)
-- 2026-06-29 13:28 - [张一山回应与杨紫友情](https://www.share.minike.top/Article/details/91226.shtml)
-- 2026-06-29 13:44 - [白玉兰最佳女主角提名片段](http://www.share.kurohicncr.top/Article/details/87788627.shtml)
-- 2026-06-29 13:35 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/580363396826.shtml)
-- 2026-06-29 13:32 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/910818427049.shtml)
-- 2026-06-29 13:45 - [赵露思爸爸拍vlog翻车了](http://www.blog.kurohicncr.top/Article/details/473490.shtml)
-- 2026-06-29 13:29 - [NBA交易](https://www.share.minike.top/Article/details/984946.shtml)
-- 2026-06-29 13:43 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/752101.shtml)
+- 2026-06-29 13:56 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/417337082.shtml)
+- 2026-06-29 13:31 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.kurohicncr.top/Article/details/72904.shtml)
+- 2026-06-29 13:42 - [腾讯回应做独立支付APP](http://www.share.kurohicncr.top/Article/details/22189.shtml)
+- 2026-06-29 13:38 - [巴西前锋说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/159487465841.shtml)
+- 2026-06-29 13:31 - [人民日报评“AI脸看腻了”](https://www.share.kurohicncr.top/Article/details/0887979.shtml)
+- 2026-06-29 13:58 - [我们注定是一撮县城葱姜蒜](http://www.blog.minike.top/Article/details/93438.shtml)
+- 2026-06-29 13:38 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/726441109.shtml)
+- 2026-06-29 13:36 - [明星大侦探第一季](https://www.share.minike.top/Article/details/98082026162.shtml)
+- 2026-06-29 13:37 - [F1奥地利正赛战报](https://www.blog.kurohicncr.top/Article/details/462991197.shtml)
+- 2026-06-29 13:45 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/72008.shtml)
+- 2026-06-29 13:33 - [斛珠夫人](https://www.blog.minike.top/Article/details/7768516994.shtml)
+- 2026-06-29 13:32 - [美的空调 卡bug](http://www.share.kurohicncr.top/Article/details/96178508607.shtml)
+- 2026-06-29 13:37 - [哈兰德之歌火到国外](https://www.blog.kurohicncr.top/Article/details/9901638917.shtml)
+- 2026-06-29 13:48 - [AG冠军五人组轮换](https://www.blog.minike.top/Article/details/7641478.shtml)
+- 2026-06-29 13:35 - [papi酱自曝曾因尝试21天减肥法患病](http://www.share.kurohicncr.top/Article/details/70285689.shtml)

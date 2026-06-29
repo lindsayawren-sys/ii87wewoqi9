@@ -1,57 +1,58 @@
-# 一季度我国黄金消费量同比增长4.41%
+# 2026海淀石刻艺术周发布国家植物园（北园）石刻文化地图
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-中新网5月9日电 据中国黄金协会最新统计数据显示：2026年一季度，国内原料产金81.065吨，同比减少6.178吨，同比下降7.08%；进口原料产金55.165吨，同比增加1.578吨，同比增长2.94%。国内原料和进口原料共计生产黄金136.230吨，同比减少4.600吨，同比下降3.27%。2026年一季度，黄金行业矿山与冶炼厂集中开展安全检查，对各类生产设施进行隐患排查
+中新网北京6月19日电 (记者 应妮)由海淀区文化发展促进中心联合国家植物园(北园)主办的2026海淀石刻艺术周正在国家植物园(北园)曹雪芹纪念馆举行。艺术周以“石上记忆——从《石头记》到海淀石刻艺术周”为主题，依托国家植物园(北园)丰富的石刻遗存，包括主题碑拓展、国家植物园(北园)石刻文化地图发布、石刻文化沙龙等多个活动。 作为2026海淀石刻艺术周的重要活动，国家植物园(北
 
 ## 正文
 
-中新网5月9日电 据中国黄金协会最新统计数据显示：2026年一季度，国内原料产金81.065吨，同比减少6.178吨，同比下降7.08%；进口原料产金55.165吨，同比增加1.578吨，同比增长2.94%。
+中新网北京6月19日电 (记者 应妮)由海淀区文化发展促进中心联合国家植物园(北园)主办的2026海淀石刻艺术周正在国家植物园(北园)曹雪芹纪念馆举行。
 
-国内原料和进口原料共计生产黄金136.230吨，同比减少4.600吨，同比下降3.27%。
+艺术周以“石上记忆——从《石头记》到海淀石刻艺术周”为主题，依托国家植物园(北园)丰富的石刻遗存，包括主题碑拓展、国家植物园(北园)石刻文化地图发布、石刻文化沙龙等多个活动。
 
-2026年一季度，黄金行业矿山与冶炼厂集中开展安全检查，对各类生产设施进行隐患排查，部分企业依规停产检修。
+作为2026海淀石刻艺术周的重要活动，国家植物园(北园)石刻文化地图18日正式发布。
 
-系列管控举措在一定程度上影响了一季度国内黄金产量。
+园内保存了大量从明代至民国时期的珍贵石刻，是研究北京西部历史变迁与文化交融的重要实物档案。
 
-同时，行业资源整合持续推进，紫金矿业公告拟收购赤峰黄金股权，进一步集中优质资源。
+这份地图清晰梳理了园内石刻遗存分布脉络，是海淀石刻艺术周服务公众的落地成果。
 
-大型黄金集团境外产能释放强劲，一季度实现矿产金产量24.173吨，同比增长30.77%。
+国家植物园(北园)党委副书记董亚力表示，这张石刻文化地图将园内散落的碑刻、摩崖等石刻遗存系统梳理、直观呈现，一方面推动文化资源的“活态保护”与公众参与，另一方面也践行了“以文塑旅、以旅彰文”的文旅融合思路。
 
-2026年一季度，我国黄金消费量303.292吨，同比增长4.41%。
+“石上记忆——北京西山碑志撷英”拓片展从6月16日开放，将持续至7月26日。
 
-其中：黄金首饰84.620吨，同比下降37.10%；金条及金币202.062吨，同比增长46.40%；工业及其他用金16.610吨，同比下降7.43%。
+展览内容全部来自国家植物园(北园)石刻，共展出44件珍贵碑石拓本，分为万物和谐、卧游胜迹、贞珉萃英、朴石成器四大板块，形成对京西石刻历史脉络的系统梳理。
 
 ## 相关推荐
 
-- 2026-06-29 13:48 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 13:53 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 13:31 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 13:47 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 13:48 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 13:44 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-29 13:37 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-29 13:37 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-29 13:27 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 13:46 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-29 13:29 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 13:40 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 13:56 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-29 13:30 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-29 13:47 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 13:47 - [媒体评恋与深空争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-29 13:56 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 13:33 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 13:47 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-29 13:37 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-29 13:39 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 13:47 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 13:34 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:33 - [比亚迪市值为何蒸发8000亿](https://www.share.kurohicncr.top/Article/details/0088371266.shtml)
-- 2026-06-29 13:43 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://www.blog.minike.top/Article/details/70327.shtml)
-- 2026-06-29 13:48 - [和阿根廷球员家属一起看球](https://www.blog.kurohicncr.top/Article/details/325060.shtml)
-- 2026-06-29 13:32 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/1426352583.shtml)
-- 2026-06-29 13:33 - [普京称考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/21350002671.shtml)
-- 2026-06-29 13:32 - [【独家】牧神记 第89集 明心](https://www.blog.kurohicncr.top/Article/details/05916737.shtml)
-- 2026-06-29 13:42 - [王楚钦 表演球擦网](https://www.share.minike.top/Article/details/2207786.shtml)
-- 2026-06-29 13:52 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/164767.shtml)
-- 2026-06-29 13:30 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/62706.shtml)
-- 2026-06-29 13:53 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/4335850.shtml)
-- 2026-06-29 13:53 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/0008647.shtml)
-- 2026-06-29 13:51 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/0012899.shtml)
-- 2026-06-29 13:29 - [媒体人：警惕日本再次成战争加害国](https://www.share.kurohicncr.top/Article/details/854991567013.shtml)
-- 2026-06-29 13:39 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/2945719.shtml)
-- 2026-06-29 13:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/49203263768.shtml)
+- 2026-06-29 13:58 - [伊朗球员致歉](https://www.share.minike.top/Article/details/3425173.shtml)
+- 2026-06-29 13:33 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/11486.shtml)
+- 2026-06-29 13:56 - [李连杰回应网传不管前妻俩女儿](https://www.blog.minike.top/Article/details/967977362.shtml)
+- 2026-06-29 13:48 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/33329.shtml)
+- 2026-06-29 13:52 - [前国足主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/604379071925.shtml)
+- 2026-06-29 13:52 - [世界杯超牛补水广告出现了](https://www.share.minike.top/Article/details/960872.shtml)
+- 2026-06-29 13:31 - [天道](https://www.blog.minike.top/Article/details/901503229476.shtml)
+- 2026-06-29 13:40 - [加拿大女球迷玩人浪把手机甩飞](http://www.share.kurohicncr.top/Article/details/87575.shtml)
+- 2026-06-29 13:32 - [一见倾心](https://www.share.minike.top/Article/details/6582085.shtml)
+- 2026-06-29 13:51 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/411042384.shtml)
+- 2026-06-29 13:53 - [克洛普：加拿大主帅还能继续创造历史](https://www.blog.minike.top/Article/details/63972.shtml)
+- 2026-06-29 13:51 - [TOP 无畏契约](http://www.share.minike.top/Article/details/58847319.shtml)
+- 2026-06-29 13:38 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/16338980309.shtml)
+- 2026-06-29 13:56 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/498411997.shtml)
+- 2026-06-29 13:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/3569281860.shtml)

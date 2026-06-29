@@ -1,60 +1,57 @@
-# 湖南三湘银行降息、下架5年期存款，去年营收净利润双降，个贷占比降至60%
+# 香港天籁敦煌乐团《陇港·和鸣》音乐会在甘肃天水举行
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 消费日报讯（记者 刘锦桃）5月8日，湖南三湘银行宣布对人民币存款产品利率进行调整：三年定期存款年利率降至1.95%，同时下架五年定期存款，存量产品到期后不再滚存。 这一不同寻常的调整引发市场对其经营状况的关注。数据显示，2025年上半年，三湘银行实现营收6.51亿元，同比下滑了28.78%，净利润为亏损2.14亿元。去年，三湘银
+中新社甘肃天水6月20日电 (记者 冯志军 李亚龙)香港天籁敦煌乐团《陇港·和鸣》音乐会20日晚在甘肃天水举行。 在演出现场，《三兽组曲》简约而灵动，《阳关三叠》以仿唐乐器演奏还原古乐神韵，《水鼓子》融合中西古典音乐元素。为三件香港文物谱写的乐章《寿·雅·武》，则展现文化传承与创新融合的新尝试。 “近年来，我们看见观众席上多了年轻的知音人，也在网上累积了很多支持者，他们喜见现代
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 消费日报讯（记者 刘锦桃）5月8日，湖南三湘银行宣布对人民币存款产品利率进行调整：三年定期存款年利率降至1.95%，同时下架五年定期存款，存量产品到期后不再滚存。
+中新社甘肃天水6月20日电 (记者 冯志军 李亚龙)香港天籁敦煌乐团《陇港·和鸣》音乐会20日晚在甘肃天水举行。
 
-这一不同寻常的调整引发市场对其经营状况的关注。
+在演出现场，《三兽组曲》简约而灵动，《阳关三叠》以仿唐乐器演奏还原古乐神韵，《水鼓子》融合中西古典音乐元素。
 
-数据显示，2025年上半年，三湘银行实现营收6.51亿元，同比下滑了28.78%，净利润为亏损2.14亿元。
+为三件香港文物谱写的乐章《寿·雅·武》，则展现文化传承与创新融合的新尝试。
 
-去年，三湘银行的营收净利润双双下降，其中净利润仅为0.16亿元。
+“近年来，我们看见观众席上多了年轻的知音人，也在网上累积了很多支持者，他们喜见现代中乐的旋律和视觉艺术的融合。
 
-从最新披露的2025年年报来看，三湘银行作为中部地区首家开业的民营银行，正面临转型关键期的多重挑战。
+”香港天籁敦煌乐团创办人纪文凤20日向中新社记者表示，该乐团由敦煌的“文化密码”，近年延伸到博大精深的中华文化，并逐步以中华文化软实力走向世界。
 
-1 存款利率下调，长期存款产品缩减 湖南三湘银行股份有限公司是中部地区首家开业的民营银行，由三一集团联合同发集团、汉森制药等9家湖南省内知名民营企业共同发起设立，于2016年12月26日正式开业，注册资本金30亿元，注册地湖南长沙。
+作为2026(丙午)年公祭中华人文始祖伏羲大典的重要活动之一，本场音乐会还特别创作新曲《龙腾伏羲台》，以敲击象征开辟天地，以低音描绘洪荒对话，勾勒宇宙由混沌进入秩序。
 
-据三湘银行发布的《关于调整存款产品挂牌利率的公告》，自5月8日起，三年期定期存款年利率将从2.05%下调至1.95%，并下架五年期定期存款，存量产品到期后不再滚存。
+香港特别行政区政府驻北京办事处助理主任陈燕婷介绍说，香港天籁敦煌乐团年轻而富有活力，他们充满对敦煌文化的执着与热忱，将古乐新诠、古谱入音，肩负着传承中华文化的使命。
 
-该行上一次调整存款利率是在2025年5月28日，当时其五年期定期存款利率下调至2.0%。
+乐团不断创新，曲目设计别出心裁，以不同主题的乐曲让历史可感、可听。
 
 ## 相关推荐
 
-- 2026-06-29 13:46 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-29 13:47 - [中国避暑神器在欧洲卖爆了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-29 13:37 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 13:49 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-29 13:43 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-29 13:49 - [马斯克也站到了光里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 13:25 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-29 13:47 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-29 13:43 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-29 13:41 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 13:31 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-29 13:39 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-29 13:43 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-29 13:39 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 13:44 - [吴海燕兰西雅漫步复兴岛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 13:40 - [普京称俄处于命运攸关之际](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 13:50 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-29 13:42 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-29 13:58 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 13:34 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-29 13:47 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 13:42 - [薛之谦演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 13:35 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-29 13:53 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-29 13:47 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:44 - [张真源解读相思锁](https://www.share.minike.top/Article/details/79101.shtml)
-- 2026-06-29 13:36 - [女心理师](https://www.blog.kurohicncr.top/Article/details/196807.shtml)
-- 2026-06-29 13:31 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.share.minike.top/Article/details/2353823155.shtml)
-- 2026-06-29 13:31 - [金牌调解](https://www.share.kurohicncr.top/Article/details/525086998.shtml)
-- 2026-06-29 13:42 - [大范围炎热天气将至](http://www.share.kurohicncr.top/Article/details/1259718.shtml)
-- 2026-06-29 13:31 - [唐艺昕女儿接唐艺昕回家](https://www.share.minike.top/Article/details/303932.shtml)
-- 2026-06-29 13:50 - [TLAW vs DCG MSI](http://www.blog.kurohicncr.top/Article/details/37293303.shtml)
-- 2026-06-29 13:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/5284679.shtml)
-- 2026-06-29 13:37 - [宜宾5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/0095802344.shtml)
-- 2026-06-29 13:26 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/636599531.shtml)
-- 2026-06-29 13:32 - [欧委会总部只给高层开空调](http://www.share.kurohicncr.top/Article/details/73108797.shtml)
-- 2026-06-29 13:36 - [女子遭殴打驾车致丈夫身亡维持原判](https://www.share.minike.top/Article/details/4466468.shtml)
-- 2026-06-29 13:34 - [赵今麦客串电影版开端](https://www.share.minike.top/Article/details/662764743548.shtml)
-- 2026-06-29 13:35 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.kurohicncr.top/Article/details/6656023821.shtml)
-- 2026-06-29 13:26 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/90489623796.shtml)
+- 2026-06-29 13:34 - [恋与深空底线不该被娱乐化](https://www.share.minike.top/Article/details/47023468.shtml)
+- 2026-06-29 13:48 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/5880956524.shtml)
+- 2026-06-29 13:34 - [C罗关心罗德里戈伤情](https://www.blog.minike.top/Article/details/43067291.shtml)
+- 2026-06-29 13:32 - [原来大雷哥给杨紫准备了三件祖海高定](http://www.blog.minike.top/Article/details/17758.shtml)
+- 2026-06-29 13:55 - [王楚钦美国大满贯晋级32强](http://www.blog.minike.top/Article/details/3012724.shtml)
+- 2026-06-29 13:58 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/894523151431.shtml)
+- 2026-06-29 13:59 - [世界杯超牛补水广告出现了](https://www.share.kurohicncr.top/Article/details/349651731.shtml)
+- 2026-06-29 13:57 - [一见倾心](https://www.blog.minike.top/Article/details/0136873325.shtml)
+- 2026-06-29 13:43 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/443688500.shtml)
+- 2026-06-29 13:47 - [赵露思爸爸拍vlog“翻车”](http://www.blog.kurohicncr.top/Article/details/57175427934.shtml)
+- 2026-06-29 13:40 - [男子偶遇婴儿被锁车内大哭挣扎](https://www.share.kurohicncr.top/Article/details/99267.shtml)
+- 2026-06-29 13:50 - [欧洲多国激辩“装不装空调”](https://www.blog.minike.top/Article/details/64671024026.shtml)
+- 2026-06-29 13:33 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.minike.top/Article/details/254400744521.shtml)
+- 2026-06-29 13:45 - [C罗关心罗德里戈伤情](https://www.blog.minike.top/Article/details/9207200.shtml)
+- 2026-06-29 13:58 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.kurohicncr.top/Article/details/5928784.shtml)

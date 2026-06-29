@@ -1,60 +1,58 @@
-# 定了！2026年公交更新补贴：换车补8万、换电池补4.2万
+# 星巴克推进重组 裁减伦敦和中国香港办公室职位
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-来源：电车汇 近日，交通运输部、国家发展改革委联合印发了《2026年新能源城市公交车及动力电池更新补贴实施细则》。作为国家推动大规模设备更新行动的延续，新政策在保持核心补贴框架稳定的基础上，对支持范围、时间衔接、资金管理和安全监管等方面进行了多项重要优化，旨在更精准、更安全地推进公交行业绿色转型。 2026年细则延续了定额补贴模式：对城市公交企业更新新能源公交车及更换动力电池给
+星巴克在伦敦和中国香港两个中心裁减公司职能员工，这两个中心负责其部分国际业务。与此同时，这家咖啡连锁企业正给予获得授权的第三方运营商更大自主权，以运营其北美以外的门店。 知情人士透露，这家总部位于西雅图的公司在中国香港办公室裁减了约20%的员工，约60个职位；该办公室负责中国和日本以外的亚太地区业务。星巴克还在伦敦裁撤了约120个职位，伦敦是其欧洲、中东和非洲业务总部所在地。
 
 ## 正文
 
-来源：电车汇 近日，交通运输部、国家发展改革委联合印发了《2026年新能源城市公交车及动力电池更新补贴实施细则》。
+星巴克在伦敦和中国香港两个中心裁减公司职能员工，这两个中心负责其部分国际业务。
 
-作为国家推动大规模设备更新行动的延续，新政策在保持核心补贴框架稳定的基础上，对支持范围、时间衔接、资金管理和安全监管等方面进行了多项重要优化，旨在更精准、更安全地推进公交行业绿色转型。
+与此同时，这家咖啡连锁企业正给予获得授权的第三方运营商更大自主权，以运营其北美以外的门店。
 
-2026年细则延续了定额补贴模式：对城市公交企业更新新能源公交车及更换动力电池给予补贴，每辆车平均补贴8万元。
+知情人士透露，这家总部位于西雅图的公司在中国香港办公室裁减了约20%的员工，约60个职位；该办公室负责中国和日本以外的亚太地区业务。
 
-其中，更换动力电池的车辆，每辆平均补贴4.2万元。
+星巴克还在伦敦裁撤了约120个职位，伦敦是其欧洲、中东和非洲业务总部所在地。
 
-与2025年政策一致，各地可根据本地更新车辆和更换电池的实际需求与数量比例“自主确定”更新公交车的具体补贴标准。
+星巴克一直在重组公司职能团队，以削减成本，并精简其所谓的冗余管理层级，裁撤负责协调工作的岗位。
 
-四大关键变化：范围放宽、衔接优化、资金隔离、安全加码 与2025年政策相比，2026年细则呈现出四处显著调整，体现了政策的延续性与精细化改进。
+随着公司推出新产品、调整营销并推出门店改造计划，经历长期低迷后，其销售额已回升。
 
-1、车辆支持年限放宽一年：2025年政策支持报废“2017年12月31日前注册登记”的车辆。
+除5月发布的全球重组公告外，星巴克拒绝进一步置评；当时该公司披露了最新一轮美国裁员，并表示正在评估其国际公司职能团队。
 
-2026年将这一门槛放宽至“2018年12月31日前注册登记”的车辆。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 13:47 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 13:42 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-29 13:43 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-29 13:42 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 13:42 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-29 13:48 - [严浩翔FIY断层第一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-29 13:34 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-29 13:44 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-29 13:36 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-29 13:44 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-29 13:29 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 13:41 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-29 13:37 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-29 13:24 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 13:52 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-29 13:38 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 13:49 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 13:36 - [吴海燕兰西雅漫步复兴岛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-29 13:33 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 13:58 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 13:56 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-29 13:57 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-29 13:44 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-29 13:51 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 13:52 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 13:46 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:35 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/31511575629.shtml)
-- 2026-06-29 13:31 - [赵今麦客串电影版开端](http://www.share.minike.top/Article/details/61750832.shtml)
-- 2026-06-29 13:33 - [当我回母校教书](http://www.share.kurohicncr.top/Article/details/288214062616.shtml)
-- 2026-06-29 13:50 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/728309087823.shtml)
-- 2026-06-29 13:45 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.kurohicncr.top/Article/details/506198712228.shtml)
-- 2026-06-29 13:36 - [第一批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/457925454.shtml)
-- 2026-06-29 13:24 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.minike.top/Article/details/308105119517.shtml)
-- 2026-06-29 13:27 - [明星大侦探第四季](https://www.share.minike.top/Article/details/08631169243.shtml)
-- 2026-06-29 13:28 - [王楚钦美国大满贯晋级32强](https://www.blog.kurohicncr.top/Article/details/895515.shtml)
-- 2026-06-29 13:43 - [金价银价下跌 油价上涨](http://www.share.minike.top/Article/details/7930742.shtml)
-- 2026-06-29 13:36 - [白宇摘下白玉兰送给杨幂](http://www.blog.minike.top/Article/details/4982861.shtml)
-- 2026-06-29 13:27 - [智界V9成为高端圈层共同选择](http://www.share.kurohicncr.top/Article/details/607293241.shtml)
-- 2026-06-29 13:26 - [伊朗球员致歉](https://www.share.kurohicncr.top/Article/details/35007.shtml)
-- 2026-06-29 13:37 - [唐国强打卡贵阳孔学堂](https://www.share.minike.top/Article/details/175843.shtml)
-- 2026-06-29 13:27 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.minike.top/Article/details/56508875664.shtml)
+- 2026-06-29 13:43 - [绘画区你赢了](http://www.blog.minike.top/Article/details/1820637954.shtml)
+- 2026-06-29 13:42 - [毒液2](https://www.share.kurohicncr.top/Article/details/3596415395.shtml)
+- 2026-06-29 13:50 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/00687557.shtml)
+- 2026-06-29 13:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/278268805699.shtml)
+- 2026-06-29 13:43 - [第一炉香](http://www.share.minike.top/Article/details/99063.shtml)
+- 2026-06-29 13:33 - [上周末 多领域成果密集“上新”](https://www.share.kurohicncr.top/Article/details/494294.shtml)
+- 2026-06-29 13:55 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/17239.shtml)
+- 2026-06-29 13:48 - [志愿选择倒计时！浙大学生送祝福](http://www.share.kurohicncr.top/Article/details/58746357.shtml)
+- 2026-06-29 13:46 - [成都至北京将新增动卧](https://www.blog.kurohicncr.top/Article/details/045376012.shtml)
+- 2026-06-29 13:55 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/9413684.shtml)
+- 2026-06-29 13:32 - [内马尔能上场15分钟](http://www.blog.kurohicncr.top/Article/details/6469210807.shtml)
+- 2026-06-29 13:43 - [普京：俄面临命运攸关时刻](https://www.share.minike.top/Article/details/455313778562.shtml)
+- 2026-06-29 13:54 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/2905386128.shtml)
+- 2026-06-29 13:50 - [在委侨团负责人：家乡的帮助很及时](https://www.share.kurohicncr.top/Article/details/9501063347.shtml)
+- 2026-06-29 13:43 - [唐国强打卡贵阳孔学堂](https://www.share.minike.top/Article/details/596709364374.shtml)

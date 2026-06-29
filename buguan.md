@@ -1,58 +1,48 @@
-# 酒价内参5月11日价格发布：飞天茅台下跌2元
+# 央行、证监会：支持香港于近期正式推出5年期人民币国债期货产品
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月11日整体继续回暖。如果主要单品各取一瓶整体打包售卖，今日总售价为9955元，较昨日上涨11元，创下近12天以来最高。市场连续两日走强，终端交投情绪保持活跃，核心单品涨跌分化依然显著。 今日白酒市场11大单品五涨五跌一平，涨跌结构均
+中新网6月18日电 据中国人民银行微信公众号消息，6月18日，香港证监会宣布将于近期启动5年期人民币国债期货上市交易。 对此，中国人民银行、中国证监会有关部门负责人表示，中国人民银行、中国证监会支持香港于近期正式推出5年期人民币国债期货产品，此举有利于进一步丰富国际投资者风险管理工具，提升人民币资产吸引力，巩固提升香港离岸人民币枢纽地位，增强长期配置型投资者投资中国的意愿和信心
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月11日整体继续回暖。
+中新网6月18日电 据中国人民银行微信公众号消息，6月18日，香港证监会宣布将于近期启动5年期人民币国债期货上市交易。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9955元，较昨日上涨11元，创下近12天以来最高。
+对此，中国人民银行、中国证监会有关部门负责人表示，中国人民银行、中国证监会支持香港于近期正式推出5年期人民币国债期货产品，此举有利于进一步丰富国际投资者风险管理工具，提升人民币资产吸引力，巩固提升香港离岸人民币枢纽地位，增强长期配置型投资者投资中国的意愿和信心。
 
-市场连续两日走强，终端交投情绪保持活跃，核心单品涨跌分化依然显著。
-
-今日白酒市场11大单品五涨五跌一平，涨跌结构均衡。
-
-上涨方面，古井贡古20与青花郎涨幅居前，均上涨5元/瓶，双双收获二连阳。
-
-前者价格连续两日快速回弹，重回月内高位550元关口，后者创下近一月最高价格，近期该酒品在700元关口附近波动较为剧烈；习酒君品上涨4元/瓶；国窖1573上涨3元/瓶；五粮液1618上涨1元/瓶。
-
-下跌方面，茅台系飞天茅台与精品茅台均下跌2元/瓶；青花汾20、洋河梦之蓝M6+及水晶剑南春均下跌1元/瓶。
-
-五粮液普五八代的价格环比保持不变。
+下一步，中国人民银行、中国证监会将按照防风险、强监管、促高质量发展的工作要求，会同香港方面加强市场监测分析、数据信息共享和跨境监管合作，共同维护两地市场平稳有序运行。
 
 ## 相关推荐
 
-- 2026-06-29 13:52 - [宜宾5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-29 13:40 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 13:42 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 13:33 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-29 13:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-29 13:26 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-29 13:35 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-29 13:43 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-29 13:47 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 13:48 - [强⁶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-29 13:31 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-29 13:46 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 13:53 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-29 13:36 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 13:33 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-29 13:34 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 13:45 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-29 13:31 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 13:55 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 13:30 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-29 13:34 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-29 13:32 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-29 13:55 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-29 13:52 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:47 - [王楚钦 表演球擦网](https://www.share.minike.top/Article/details/11779486732.shtml)
-- 2026-06-29 13:37 - [中央气象台发布强对流天气蓝色预警](http://www.share.minike.top/Article/details/07198.shtml)
-- 2026-06-29 13:33 - [张真源解读相思锁](https://www.blog.minike.top/Article/details/259465395134.shtml)
-- 2026-06-29 13:36 - [1954年以来闯进世界杯淘汰赛次数排行](https://www.share.kurohicncr.top/Article/details/519280.shtml)
-- 2026-06-29 13:39 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/920217956288.shtml)
-- 2026-06-29 13:30 - [拄拐少年高考663分：用行动回报社会](http://www.blog.minike.top/Article/details/1926125356.shtml)
-- 2026-06-29 13:51 - [巴基斯坦军方打死29名武装分子](https://www.blog.minike.top/Article/details/0274385.shtml)
-- 2026-06-29 13:24 - [网约车司机转账1.5万后被乘客拉黑](https://www.blog.minike.top/Article/details/604166741833.shtml)
-- 2026-06-29 13:32 - [2025年人口增长10强城市出炉](https://www.blog.kurohicncr.top/Article/details/79117133.shtml)
-- 2026-06-29 13:39 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/50775.shtml)
-- 2026-06-29 13:44 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/8869224379.shtml)
-- 2026-06-29 13:39 - [媒体评恋与深空争议](https://www.share.kurohicncr.top/Article/details/155423550.shtml)
-- 2026-06-29 13:28 - [三星与SK集团或将投资2000万亿韩元](http://www.share.minike.top/Article/details/428859003564.shtml)
-- 2026-06-29 13:29 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/515320307.shtml)
-- 2026-06-29 13:37 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/5016805359.shtml)
+- 2026-06-29 13:54 - [刘仲华院士愿当贺永辉导师](https://www.blog.kurohicncr.top/Article/details/586190.shtml)
+- 2026-06-29 13:32 - [肖战深夜到达青岛赴十日终焉片场](https://www.share.minike.top/Article/details/918335800131.shtml)
+- 2026-06-29 13:30 - [孙怡告别浪姐千字文](https://www.share.minike.top/Article/details/051274.shtml)
+- 2026-06-29 13:33 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.blog.kurohicncr.top/Article/details/2489023.shtml)
+- 2026-06-29 13:32 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/13888810065.shtml)
+- 2026-06-29 13:49 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/74317153.shtml)
+- 2026-06-29 13:34 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.kurohicncr.top/Article/details/61585090.shtml)
+- 2026-06-29 13:44 - [金刚川](https://www.blog.kurohicncr.top/Article/details/7637049338.shtml)
+- 2026-06-29 13:45 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/62224.shtml)
+- 2026-06-29 13:55 - [女生雨天开车发现雨刮条被掰走](http://www.share.kurohicncr.top/Article/details/537725509.shtml)
+- 2026-06-29 13:36 - [去了一趟潮汕。](https://www.blog.minike.top/Article/details/95603.shtml)
+- 2026-06-29 13:45 - [请回答王牌2019](http://www.share.minike.top/Article/details/369164.shtml)
+- 2026-06-29 13:46 - [腾讯回应做独立支付APP](http://www.blog.kurohicncr.top/Article/details/5031808653.shtml)
+- 2026-06-29 13:40 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/672100.shtml)
+- 2026-06-29 13:46 - [严浩翔FIY断层第一](https://www.share.minike.top/Article/details/252004906561.shtml)

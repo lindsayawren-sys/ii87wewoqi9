@@ -1,54 +1,56 @@
-# 澳元/美元下跌，此前特朗普拒绝伊朗对和谈提议的回应
+# 培育“农创客”，助力乡村振兴
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-周一早盘澳元兑美元下跌0.4%，因美伊和平前景急剧恶化。特朗普称伊朗对和谈提议的回应“完全无法接受”；伊朗表示无所谓。美国4月非农就业数据好于预期，增加11.5万个。澳元脱离波林格区间下轨，但下行压力犹存。澳洲第一季度薪资价格指数将于周三公布，将为顽固的服务业通胀提供指引。责任编辑：王永生
+【光明时评】培育“农创客”，助力乡村振兴 作者：孙瑞婷(北京联合大学马克思主义学院副教授) 在上海松江小昆山镇，95后女青年陈瑜斌扎根乡土，打造了一座融合文创、美食、研学与田园体验于一体的乡村户外综合体，用青年创意为乡村文旅发展注入新动能；深耕文旅行业17年的周斌，因一次宣传片拍摄与浙江丽水龙泉市住龙镇结缘，其运营的水陆一体研学乐园，带动村集体增收50余万元、群众增收100余万
 
 ## 正文
 
-周一早盘澳元兑美元下跌0.4%，因美伊和平前景急剧恶化。
+【光明时评】培育“农创客”，助力乡村振兴 作者：孙瑞婷(北京联合大学马克思主义学院副教授) 在上海松江小昆山镇，95后女青年陈瑜斌扎根乡土，打造了一座融合文创、美食、研学与田园体验于一体的乡村户外综合体，用青年创意为乡村文旅发展注入新动能；深耕文旅行业17年的周斌，因一次宣传片拍摄与浙江丽水龙泉市住龙镇结缘，其运营的水陆一体研学乐园，带动村集体增收50余万元、群众增收100余万元。
 
-特朗普称伊朗对和谈提议的回应“完全无法接受”；伊朗表示无所谓。
+当前，越来越多掌握先进技术、富有创造活力的“农创客”不断涌现。
 
-美国4月非农就业数据好于预期，增加11.5万个。
+他们敏锐抓住发展机遇，敢于改变传统发展模式，为乡村发展装上“新引擎”。
 
-澳元脱离波林格区间下轨，但下行压力犹存。
+日前，国务院印发《加快农业农村现代化“十五五”规划》，强调“激励各类人才下乡服务和创业就业，因地制宜培育农创客”；2026年中央一号文件也首次将“农创客”一词纳入国家政策视野，明确提出“加强乡村产业带头人和乡村治理人才培育，因地制宜培育农创客”。
 
-澳洲第一季度薪资价格指数将于周三公布，将为顽固的服务业通胀提供指引。
+所谓“农创客”，即在乡村建设、发展中创业创新的青年人才。
 
-责任编辑：王永生
+无论是运用物联网、大数据、生物育种等技术发展智慧农业，还是打通电商运营、直播带货、社群营销等数字渠道，打破农产品传统销售的地域限制……他们凭借多元领域的知识储备、市场化的思维方式与敢闯敢试的进取精神，为乡村全域发展注入生机活力。
+
+青年创新创业人才是盘活乡村资源、发展乡村产业、赋能基层治理的新生力量，是农业农村高质量发展的重要支撑。
+
+近年来，我国高度重视乡村人才队伍建设，各地各部门聚焦创新人才引育留用全链条，在系统化培育本土人才、完善多元激励机制、强化兜底服务保障等环节精准发力、综合施策，在创新人才队伍培育方面取得了明显成效。
 
 ## 相关推荐
 
-- 2026-06-29 13:47 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 13:35 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-29 13:41 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 13:32 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-29 13:47 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 13:40 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 13:51 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 13:36 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-29 13:35 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-29 13:27 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-29 13:34 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 13:25 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-29 13:31 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 13:34 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-29 13:47 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-29 13:56 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 13:48 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 13:35 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 13:53 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 13:53 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 13:32 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 13:38 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:26 - [中餐厅南北饮食差异](http://www.share.minike.top/Article/details/358950658589.shtml)
-- 2026-06-29 13:49 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/436250151.shtml)
-- 2026-06-29 13:33 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/9175464681.shtml)
-- 2026-06-29 13:48 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/8653555913.shtml)
-- 2026-06-29 13:31 - [手游300亿数据或被军事化运用](https://www.share.kurohicncr.top/Article/details/039591267841.shtml)
-- 2026-06-29 13:44 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.share.minike.top/Article/details/162479.shtml)
-- 2026-06-29 13:36 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.blog.minike.top/Article/details/4301011.shtml)
-- 2026-06-29 13:28 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/21709.shtml)
-- 2026-06-29 13:36 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/027108.shtml)
-- 2026-06-29 13:51 - [去了一趟潮汕。](http://www.blog.minike.top/Article/details/547783645.shtml)
-- 2026-06-29 13:43 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/07075266949.shtml)
-- 2026-06-29 13:47 - [AG冠军五人组轮换](http://www.share.kurohicncr.top/Article/details/737121742.shtml)
-- 2026-06-29 13:38 - [5万块的威力](https://www.blog.minike.top/Article/details/58236596.shtml)
-- 2026-06-29 13:50 - [3D打印不是工业革命，它是……](http://www.share.kurohicncr.top/Article/details/309072.shtml)
-- 2026-06-29 13:47 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.minike.top/Article/details/19373722.shtml)
+- 2026-06-29 13:59 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.blog.kurohicncr.top/Article/details/5693972101.shtml)
+- 2026-06-29 13:31 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/117983.shtml)
+- 2026-06-29 13:57 - [四川宜宾地震](http://www.blog.minike.top/Article/details/2381255.shtml)
+- 2026-06-29 13:59 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/9393995.shtml)
+- 2026-06-29 13:46 - [未来5年全国能源体系将呈现这些特征](https://www.share.kurohicncr.top/Article/details/0248595520.shtml)
+- 2026-06-29 13:56 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/78691.shtml)
+- 2026-06-29 13:32 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/2503851.shtml)
+- 2026-06-29 13:45 - [乔家的儿女](https://www.share.minike.top/Article/details/0924391.shtml)
+- 2026-06-29 13:41 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.kurohicncr.top/Article/details/26540023084.shtml)
+- 2026-06-29 13:47 - [张一山说杨紫早该拿奖了](http://www.blog.minike.top/Article/details/723025367.shtml)
+- 2026-06-29 13:51 - [韩体育部长回应李在明痛批](http://www.blog.kurohicncr.top/Article/details/791473138.shtml)
+- 2026-06-29 13:43 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/537094.shtml)
+- 2026-06-29 13:35 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/779540252.shtml)
+- 2026-06-29 13:41 - [一见倾心](https://www.share.kurohicncr.top/Article/details/090681432.shtml)
+- 2026-06-29 13:55 - [森保一：日本队要亲手改写历史](https://www.blog.kurohicncr.top/Article/details/3123146636.shtml)

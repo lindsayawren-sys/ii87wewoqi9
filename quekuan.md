@@ -1,51 +1,57 @@
-# 华为澄清招聘谣言：所谓“内推实习”“远程实习”等均为虚假信息
+# 美伊核谈因黎巴嫩问题未能举行 尚未启动便陷入停滞
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-观点网讯：5月11日，华为招聘官微发布提醒称，华为没有“内推实习”“远程实习”等实习方式，也从未与任何第三方（中介机构或个人）开展过任何形式的实习合作。请不要轻信需要付费的华为“内推实习”“实习推荐信”“远程实习”，以及自媒体关于“华为实习报名”直播等虚假信息。根据公开资料整理，部分个人或中介机构为非法牟利，在网络上兜售所谓华为“机考考题”“内推”“简历优化”等内容，华为强调其
+伊朗推迟与美国就持久和平协议启动谈判，此前黎巴嫩南部战事激化。这可能使唐纳德·特朗普结束战争、遏制德黑兰核计划的努力受挫。 两位知情人士透露，原定周五在瑞士举行的谈判因以色列与伊朗支持的真主党武装之间的冲突而推迟。 一名美国官员表示，以色列和真主党周五晚些时候同意停火。双方均表示，如果对方也遵守停火，己方将承诺停火，否则将作出回应。 伊朗坚持要求将黎巴嫩停火纳入本周与美国敲定的
 
 ## 正文
 
-观点网讯：5月11日，华为招聘官微发布提醒称，华为没有“内推实习”“远程实习”等实习方式，也从未与任何第三方（中介机构或个人）开展过任何形式的实习合作。
+伊朗推迟与美国就持久和平协议启动谈判，此前黎巴嫩南部战事激化。
 
-请不要轻信需要付费的华为“内推实习”“实习推荐信”“远程实习”，以及自媒体关于“华为实习报名”直播等虚假信息。
+这可能使唐纳德·特朗普结束战争、遏制德黑兰核计划的努力受挫。
 
-根据公开资料整理，部分个人或中介机构为非法牟利，在网络上兜售所谓华为“机考考题”“内推”“简历优化”等内容，华为强调其应届生招聘不会向候选人收取任何费用。
+两位知情人士透露，原定周五在瑞士举行的谈判因以色列与伊朗支持的真主党武装之间的冲突而推迟。
 
-免责声明：本文内容与数据由观点根据公开信息整理，不构成投资建议，使用前请核实。
+一名美国官员表示，以色列和真主党周五晚些时候同意停火。
+
+双方均表示，如果对方也遵守停火，己方将承诺停火，否则将作出回应。
+
+伊朗坚持要求将黎巴嫩停火纳入本周与美国敲定的临时和平协议，并因新一轮敌对行动而没有派代表团参加谈判。
+
+原定代表华盛顿出席的美国副总统JD·万斯也未成行。
+
+目前尚无新的磋商启动日期。
 
 ## 相关推荐
 
-- 2026-06-29 13:31 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 13:43 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 13:48 - [亚洲成世界杯最大失意者联盟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-29 13:29 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 13:28 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 13:43 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-29 13:31 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-29 13:38 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-29 13:35 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-29 13:26 - [唐艺昕女儿接唐艺昕回家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-29 13:45 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-29 13:35 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 13:27 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-29 13:45 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 13:47 - [东部机场集团新增釜山航线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-29 13:38 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 13:46 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-29 13:32 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 13:39 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-29 13:34 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 13:56 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 13:35 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-29 13:31 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 13:57 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:32 - [专家建议城乡居民养老金增至每月千元](https://www.share.minike.top/Article/details/64141856.shtml)
-- 2026-06-29 13:43 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/7514733965.shtml)
-- 2026-06-29 13:39 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.blog.kurohicncr.top/Article/details/3483389669.shtml)
-- 2026-06-29 13:38 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/3180878.shtml)
-- 2026-06-29 13:30 - [美媒：空警-3000服役即成全球最强](http://www.blog.kurohicncr.top/Article/details/33902594644.shtml)
-- 2026-06-29 13:29 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.blog.minike.top/Article/details/86298553.shtml)
-- 2026-06-29 13:36 - [韩国主帅洪明甫辞职](http://www.share.kurohicncr.top/Article/details/66025705.shtml)
-- 2026-06-29 13:25 - [事关个税 明日截止请抓紧办理](https://www.blog.kurohicncr.top/Article/details/16391212.shtml)
-- 2026-06-29 13:48 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.kurohicncr.top/Article/details/34302636.shtml)
-- 2026-06-29 13:51 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.minike.top/Article/details/9507786823.shtml)
-- 2026-06-29 13:39 - [王楚钦3-0周启豪 晋级32强](https://www.share.kurohicncr.top/Article/details/55233.shtml)
-- 2026-06-29 13:39 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/151038495.shtml)
-- 2026-06-29 13:34 - [恋与深空底线不该被娱乐化](https://www.blog.minike.top/Article/details/02676862.shtml)
-- 2026-06-29 13:35 - [韩体育部长回应李在明痛批](https://www.share.minike.top/Article/details/5287580662.shtml)
-- 2026-06-29 13:33 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/50770825.shtml)
+- 2026-06-29 13:34 - [赵今麦客串电影版开端](https://www.blog.kurohicncr.top/Article/details/575681.shtml)
+- 2026-06-29 13:55 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/726571.shtml)
+- 2026-06-29 13:31 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/208589977.shtml)
+- 2026-06-29 13:39 - [韩国拟将部分刑责年龄降至13岁](http://www.share.minike.top/Article/details/349371679.shtml)
+- 2026-06-29 13:44 - [李连杰回应网传不管前妻俩女儿](https://www.blog.kurohicncr.top/Article/details/89223275059.shtml)
+- 2026-06-29 13:33 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/1419804416.shtml)
+- 2026-06-29 13:34 - [第一批缉毒警已全体退休](https://www.share.minike.top/Article/details/0311532.shtml)
+- 2026-06-29 13:30 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/943555060.shtml)
+- 2026-06-29 13:37 - [爱情有烟火你是知道我爱看什么的](https://www.share.minike.top/Article/details/0313023829.shtml)
+- 2026-06-29 13:48 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/579953946.shtml)
+- 2026-06-29 13:42 - [白玉兰最佳女主角提名片段](http://www.share.minike.top/Article/details/40852388.shtml)
+- 2026-06-29 13:35 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/018556.shtml)
+- 2026-06-29 13:38 - [ENC瓦中国香港负印度数据图](http://www.share.minike.top/Article/details/0828390994.shtml)
+- 2026-06-29 13:32 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.kurohicncr.top/Article/details/5575008985.shtml)
+- 2026-06-29 13:59 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/234964897232.shtml)

@@ -1,59 +1,57 @@
-# 涉及上海绿捷校园餐事件 五起招投标领域系统整治典型案例公布
+# 兼顾古代科技传承与现代科技解读 科普出版精品北京图博会上引关注
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-市场监管总局今天（9日）公布五起招标投标领域系统整治典型案例。 一、上海市市场监管局查处上海绿捷实业发展有限公司违反招标投标法吊销营业执照案 2025年11月22日，上海市市场监管局对上海绿捷实业发展有限公司（下称绿捷公司）严重违反《中华人民共和国招标投标法》的行为，依法作出吊销营业执照的行政处罚。 2025年9月，上海绿捷校园餐事件引起社会广泛关注，上海市委、市政府高度重视迅
+中新网北京6月19日电 (记者 高凯)第三十二届北京国际图书博览会上，兼顾古代科技传承与现代科技解读，从《探访国家实验室(全5册)》，到系统整合古代科技典籍的《中国古代科技文献集成(第一辑)》，再到大众化科普丛书《大家小书(科普卷)》，系列科普好书的陈展收获关注。 在北京展区的文化科技融合特色专区，“精品科普出版+智能交互体验+数字内容创新”的立体化展示体系，展现出版科技融合创
 
 ## 正文
 
-市场监管总局今天（9日）公布五起招标投标领域系统整治典型案例。
+中新网北京6月19日电 (记者 高凯)第三十二届北京国际图书博览会上，兼顾古代科技传承与现代科技解读，从《探访国家实验室(全5册)》，到系统整合古代科技典籍的《中国古代科技文献集成(第一辑)》，再到大众化科普丛书《大家小书(科普卷)》，系列科普好书的陈展收获关注。
 
-一、上海市市场监管局查处上海绿捷实业发展有限公司违反招标投标法吊销营业执照案 2025年11月22日，上海市市场监管局对上海绿捷实业发展有限公司（下称绿捷公司）严重违反《中华人民共和国招标投标法》的行为，依法作出吊销营业执照的行政处罚。
+在北京展区的文化科技融合特色专区，“精品科普出版+智能交互体验+数字内容创新”的立体化展示体系，展现出版科技融合创新发展的探索。
 
-2025年9月，上海绿捷校园餐事件引起社会广泛关注，上海市委、市政府高度重视迅速部署，统筹多部门协同联动，依法开展全面调查。
+一批聚焦国家前沿科技、深耕全民科学普及、系统梳理古代科技文明的重磅出版物中，产业发展、基础科研、少儿科普、古籍科技等多个细分领域图书集结亮相。
 
-上海市市场监管局根据公安部门侦查绿捷公司涉嫌串通投标犯罪的线索，对绿捷公司立案调查。
+其中包含全景复盘中关村发展历程的《旗帜舒卷：中关村发展史论(上中下)》、探秘国家级科研平台的《探访国家实验室(全5册)》、面向青少年群体的《中国大科考系列绘本(全9册)》，以及系统整合古代科技典籍的《中国古代科技文献集成(第一辑)》、大众化科普丛书《大家小书(科普卷)》等系列好书。
 
-经查，绿捷公司为取得校园餐供应项目，组织5家餐饮企业作为陪标公司，共同参与项目竞标，在2025年7月至2025年9月间，非法获取86个校园餐供应项目。
+相关科普出版精品矩阵兼顾高端研究与全民科普，兼顾古代科技传承与现代科技解读，彰显我国科技发展硬实力与深厚科技文化底蕴，吸引海内外出版客商、科研从业者及青少年读者驻足观摩。
 
-在投标过程中，上述5家陪标公司的标书费用均由绿捷公司支付，其中3家公司的标书材料由绿捷公司制作，2家公司的投标受委托人由绿捷公司指定的人员担任。
+智能交互设备实景体验方面，北京展区打破静态展陈局限，通过智能机器人与AI智习室等，打造沉浸式互动体验空间。
 
-绿捷公司上述行为违反了《中华人民共和国招标投标法》第三十二条第一款的规定，构成投标人相互串通投标的违法行为。
+智能服务机器人搭载海量科普知识库，为中外来宾现场介绍北京展区参展情况，可完成科普问答、图书推介、文化讲解等功能，近距离体验数字阅读、智能科普的独特魅力，直观感受科技为出版行业带来的变革；区别于传统单向阅读模式，北教智学AI智习室等新型设备，依托大数据算法与人工智能算力，将人工智能技术融入自主学习、趣味科普、智能答疑等多元应用场景，精准匹配不同年龄段读者的学习需求，实现个性化智能学习。
 
-经主管部门上海市教育委员会认定，绿捷公司实施的串标行为属于“情节特别严重”情形。
+近年来，数字技术迭代升级重塑全球出版产业业态，文化科技融合已成为破解行业发展瓶颈、培育全新增长极的核心突破口。
 
 ## 相关推荐
 
-- 2026-06-29 13:31 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-29 13:50 - [三都主：淘汰赛我会支持日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 13:38 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 13:35 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 13:46 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 13:30 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 13:38 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 13:34 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-29 13:44 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 13:33 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-29 13:33 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-29 13:41 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 13:44 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 13:47 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-29 13:43 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 13:33 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-29 13:32 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 13:39 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 13:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-29 13:31 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 13:37 - [2026年Mac能玩游戏了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-29 13:53 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 13:46 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-29 13:52 - [世界杯用球成部分门将噩梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:46 - [德国队前往比赛场地遭遇囧途](http://www.share.kurohicncr.top/Article/details/4707655183.shtml)
-- 2026-06-29 13:37 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/835246714.shtml)
-- 2026-06-29 13:31 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.blog.kurohicncr.top/Article/details/317931.shtml)
-- 2026-06-29 13:50 - [C罗关心罗德里戈伤情](https://www.share.minike.top/Article/details/50627427.shtml)
-- 2026-06-29 13:44 - [拄拐少年高考663分：用行动回报社会](https://www.share.kurohicncr.top/Article/details/729629.shtml)
-- 2026-06-29 13:26 - [本周做什么都顺的星座](http://www.blog.minike.top/Article/details/95457482960.shtml)
-- 2026-06-29 13:52 - [委内瑞拉地震死亡人数升至1450人](https://www.share.minike.top/Article/details/7229870239.shtml)
-- 2026-06-29 13:35 - [韩国队启程回国 全员羞愧低头](https://www.blog.minike.top/Article/details/34592190.shtml)
-- 2026-06-29 13:42 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.kurohicncr.top/Article/details/543461834534.shtml)
-- 2026-06-29 13:51 - [大疆7月15日起涨价？公司回应](https://www.share.kurohicncr.top/Article/details/44210.shtml)
-- 2026-06-29 13:35 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/3324344.shtml)
-- 2026-06-29 13:52 - [韩国政府将对世界杯出局追责](http://www.share.kurohicncr.top/Article/details/00365.shtml)
-- 2026-06-29 13:27 - [大范围炎热天气将至](http://www.share.kurohicncr.top/Article/details/1154092.shtml)
-- 2026-06-29 13:28 - [高考志愿今起开始填报](http://www.share.kurohicncr.top/Article/details/5109744.shtml)
-- 2026-06-29 13:29 - [媒体：高考后消费应量力而行适度有度](https://www.blog.minike.top/Article/details/18929358.shtml)
+- 2026-06-29 13:41 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/771486857.shtml)
+- 2026-06-29 13:47 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/0312801022.shtml)
+- 2026-06-29 13:48 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/55864590217.shtml)
+- 2026-06-29 13:33 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/41110876.shtml)
+- 2026-06-29 13:56 - [委内瑞拉地震死亡人数升至1450人](https://www.blog.kurohicncr.top/Article/details/83475405355.shtml)
+- 2026-06-29 13:58 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.kurohicncr.top/Article/details/7845999758.shtml)
+- 2026-06-29 13:31 - [韩国主帅洪明甫辞职](http://www.share.kurohicncr.top/Article/details/55079114.shtml)
+- 2026-06-29 13:37 - [俄称继续推进 乌称打击俄军设施](https://www.blog.kurohicncr.top/Article/details/7471936.shtml)
+- 2026-06-29 13:51 - [1954年以来闯进世界杯淘汰赛次数排行](https://www.share.kurohicncr.top/Article/details/244942.shtml)
+- 2026-06-29 13:39 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.blog.minike.top/Article/details/21977275901.shtml)
+- 2026-06-29 13:57 - [加拿大女球迷玩人浪把手机甩飞](http://www.share.minike.top/Article/details/52754417.shtml)
+- 2026-06-29 13:45 - [高市早苗口齿不清被质疑醉酒](https://www.blog.kurohicncr.top/Article/details/438371.shtml)
+- 2026-06-29 13:42 - [美伊同意停止互袭](http://www.share.kurohicncr.top/Article/details/5328128.shtml)
+- 2026-06-29 13:30 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/16739611095.shtml)
+- 2026-06-29 13:32 - [江苏财政厅原一级调研员谢功成被查](https://www.share.kurohicncr.top/Article/details/31051902503.shtml)

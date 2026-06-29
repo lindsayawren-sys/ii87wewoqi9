@@ -1,60 +1,57 @@
-# 002428，十倍股，磷化铟概念龙头爆发（附名单）
+# 花旗：中国铝业重申“买入”评级 目标价为17.08港元
 
-> 更新时间：2026-06-29 13:54:02 UTC+8
+> 更新时间：2026-06-29 14:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！近一周机构调研个股有220多只，TCL科技调研机构数最多。 据证券时报·数据宝统计，TCL科技近一周有84家机构调研，包括13家基金公司、26家证券公司、15家私募、3家保险公司等。2026年一季度，公司实现营业收入434.5亿元，同比增长8.4%；归母净利润15.6亿元，同比增长53.7%，单季度归母利润
+花旗发布研报称，由于投资者担忧能源价格上涨背景下需求走弱，以及投资者资金配置从大宗商品板块转向AI相关科技板块，中国宏桥（01378）和中国铝业（02600）的股价表现均明显跑输铝价走势。与此同时，根据花旗近期与投资者的交流，市场又出现了一些新的担忧，包括印尼项目建设加速、以及担心中国电解铝产能天花板被突破。 对于市场的担忧，花旗表示，对于中国电解铝产能天花板被突破的担忧源于部
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+花旗发布研报称，由于投资者担忧能源价格上涨背景下需求走弱，以及投资者资金配置从大宗商品板块转向AI相关科技板块，中国宏桥（01378）和中国铝业（02600）的股价表现均明显跑输铝价走势。
 
-近一周机构调研个股有220多只，TCL科技调研机构数最多。
+与此同时，根据花旗近期与投资者的交流，市场又出现了一些新的担忧，包括印尼项目建设加速、以及担心中国电解铝产能天花板被突破。
 
-据证券时报·数据宝统计，TCL科技近一周有84家机构调研，包括13家基金公司、26家证券公司、15家私募、3家保险公司等。
+对于市场的担忧，花旗表示，对于中国电解铝产能天花板被突破的担忧源于部分企业因高盈利水平而出现超产现象。
 
-2026年一季度，公司实现营业收入434.5亿元，同比增长8.4%；归母净利润15.6亿元，同比增长53.7%，单季度归母利润创下过去17个季度的新高。
+尽管中国有效产能上限已从4550万吨提升至4800万吨，但中国的产能上限不会发生变化。
 
-公司在调研中表示，今年由于部分原材料涨价，预计电视面板需求量可能出现1%—2%的下滑，但由于原材料的上涨加速了市场需求从小尺寸电视往大尺寸的结构转移，预计2026年需求面积将同比实现3.5%—4%的增长，且增速好于2025年。
+据该行了解，在中国这并不是普遍现象，因为大多数大型冶炼厂都会避免超出获批产能进行生产。
 
-盛弘股份、海科新源、中富电路、百济神州等个股均有50家以上机构评级。
+部分冶炼厂的超产行为本质上属于机会主义行为，从长期来看不可持续。
 
-盛弘股份2026年一季度营业收入约为7.44亿元，同比增长23.13%；归母净利润约为8518.42万元，同比增长16.86%；归母扣非净利润为8546.59万元，同比增长25.01%。
+关于印尼项目建设加速，花旗指出，印尼项目加速推进将在2026至2027年带来290万吨新增铝产量，这一判断很可能是假设所有项目都能够按照项目业主宣称的计划实现全面达产。
 
-盛弘股份在调研中表示，公司的工业配套电源业务中电能质量产品如APF有源滤波器、SVG静止无功发生器等在AIDC行业持续为公司带来收入和利润；公司于2025年下半年成立了AIDC部门，其他AIDC相关产品的研发和市场推广活动正在按照计划有序开展，新展品的开发和上市有其自身推动的周期，专业的行业展会或论坛也会有相应的解决方案的展示。
+在进行供给预测时，直接按照项目储备规模进行测算通常会导致供应预期被高估。
 
 ## 相关推荐
 
-- 2026-06-29 13:53 - [AG 钟意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-29 13:41 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-29 13:28 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 13:29 - [初心如磐 红色足迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 13:47 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 13:44 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-29 13:33 - [灿如繁星定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 13:37 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 13:25 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-29 13:41 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-29 13:37 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-29 13:26 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 13:53 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-29 13:53 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 13:33 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-29 13:48 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 13:51 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 13:45 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-29 13:33 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-29 13:44 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-29 13:59 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 13:51 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 13:42 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 13:38 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 13:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:46 - [急先锋](https://www.share.kurohicncr.top/Article/details/82301238.shtml)
-- 2026-06-29 13:42 - [媒体：高考后消费应量力而行适度有度](http://www.blog.minike.top/Article/details/228595.shtml)
-- 2026-06-29 13:39 - [航空运输旅客服务质量国标将实施](http://www.share.minike.top/Article/details/042191134.shtml)
-- 2026-06-29 13:37 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.blog.kurohicncr.top/Article/details/407704.shtml)
-- 2026-06-29 13:53 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/4811819.shtml)
-- 2026-06-29 13:31 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/1613092.shtml)
-- 2026-06-29 13:43 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/63414131.shtml)
-- 2026-06-29 13:30 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/3811075591.shtml)
-- 2026-06-29 13:37 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.blog.kurohicncr.top/Article/details/590370.shtml)
-- 2026-06-29 13:40 - [人民日报评“AI脸看腻了”](http://www.blog.minike.top/Article/details/37448375194.shtml)
-- 2026-06-29 13:26 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.share.kurohicncr.top/Article/details/49047391.shtml)
-- 2026-06-29 13:38 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/67991.shtml)
-- 2026-06-29 13:29 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.minike.top/Article/details/528762.shtml)
-- 2026-06-29 13:26 - [异世界一点都不好玩！](http://www.blog.minike.top/Article/details/518658923.shtml)
-- 2026-06-29 13:37 - [王楚钦 表演球擦网](https://www.blog.minike.top/Article/details/20926.shtml)
+- 2026-06-29 13:56 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.minike.top/Article/details/06005164.shtml)
+- 2026-06-29 13:35 - [梅朗雄主张法国退出北约](http://www.share.minike.top/Article/details/51080.shtml)
+- 2026-06-29 13:50 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/03799.shtml)
+- 2026-06-29 13:39 - [俄称继续推进 乌称打击俄军设施](https://www.share.minike.top/Article/details/803975903.shtml)
+- 2026-06-29 13:46 - [天道](https://www.share.kurohicncr.top/Article/details/660108155908.shtml)
+- 2026-06-29 13:45 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/19911783987.shtml)
+- 2026-06-29 13:48 - [张一山回应与杨紫友情](http://www.share.minike.top/Article/details/12033.shtml)
+- 2026-06-29 13:42 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/1420949179.shtml)
+- 2026-06-29 13:46 - [哈兰德之歌火到国外](http://www.blog.minike.top/Article/details/3731021.shtml)
+- 2026-06-29 13:37 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/99444118167.shtml)
+- 2026-06-29 13:31 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/7701787.shtml)
+- 2026-06-29 13:39 - [媒体人：警惕日本再次成战争加害国](http://www.share.kurohicncr.top/Article/details/19959.shtml)
+- 2026-06-29 13:49 - [哈基米歌王争霸赛](https://www.share.kurohicncr.top/Article/details/49201.shtml)
+- 2026-06-29 13:57 - [韩体育部长回应李在明痛批](http://www.blog.minike.top/Article/details/1808018001.shtml)
+- 2026-06-29 13:49 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/612614.shtml)
