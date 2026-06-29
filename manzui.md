@@ -1,44 +1,57 @@
-# 古巴西部海域5.8级地震 加勒比地区罕见
+# Zillow首席执行官：成功并非靠线性职业路径，更像是一座“攀爬架”
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月10日 14:03 来源：央视新闻 责任编辑：【李骏】
+作者：阿什顿・杰克逊 Zillow 首席执行官杰里米・瓦克斯曼表示，很少有人能沿着一条笔直的职业道路走向成功。 “职业发展其实不是一条直线或台阶，” 瓦克斯曼对 CNBC Make It 栏目说道，“往往是接受那些能以全新不同方式锻炼你的新任务，才会带来最大的成长。” 在瓦克斯曼看来，大多数人会从接受意料之外的工作或本职以外的项目中获益更多，而非把自己束缚在严格、线性的职业路径
 
 ## 正文
 
-发布时间：2026年06月10日 14:03 来源：央视新闻 责任编辑：【李骏】
+作者：阿什顿・杰克逊 Zillow 首席执行官杰里米・瓦克斯曼表示，很少有人能沿着一条笔直的职业道路走向成功。
+
+“职业发展其实不是一条直线或台阶，” 瓦克斯曼对 CNBC Make It 栏目说道，“往往是接受那些能以全新不同方式锻炼你的新任务，才会带来最大的成长。
+
+” 在瓦克斯曼看来，大多数人会从接受意料之外的工作或本职以外的项目中获益更多，而非把自己束缚在严格、线性的职业路径上、从不偏离。
+
+他说，不妨让自己走一条更接近 “职业攀爬架” 的道路。
+
+不走线性职业路线，并不意味着要离开所在行业，甚至离开所在公司。
+
+瓦克斯曼以自身为例：他最初以营销副总裁的身份加入 Zillow，但就在他入职前后，苹果推出了 iPhone 及其应用商店。
+
+他表示，尽管自己毫无移动应用相关经验，却被委以重任，牵头推动公司的移动端房产购物业务。
+
+“当时 Zillow 完全没有任何移动端业务，” 瓦克斯曼说，“我们只是一个仅限电脑端使用的搜索引擎。
 
 ## 相关推荐
 
-- 2026-06-29 22:59 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 22:34 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 22:52 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-29 22:33 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-29 22:56 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 22:48 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 22:43 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-29 22:35 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-29 22:30 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 23:00 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-29 22:41 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-29 22:45 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 22:50 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 22:59 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 22:58 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-29 22:47 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 22:56 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-29 22:45 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-29 22:48 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-29 23:02 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-29 22:49 - [乌克兰发广告全球征兵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 22:58 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 23:04 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:47 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/6914239277.shtml)
-- 2026-06-29 22:32 - [爱奇艺抬高国剧新标尺](http://www.blog.minike.top/Article/details/668850303084.shtml)
-- 2026-06-29 22:39 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/99198255893.shtml)
-- 2026-06-29 22:46 - [上世纪90年代玩具成新宠](http://www.share.kurohicncr.top/Article/details/8935234.shtml)
-- 2026-06-29 22:42 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/854966552.shtml)
-- 2026-06-29 22:34 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/39831.shtml)
-- 2026-06-29 22:30 - [房价什么时候能涨](https://www.share.minike.top/Article/details/725024.shtml)
-- 2026-06-29 22:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/388769216428.shtml)
-- 2026-06-29 22:59 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/1708618372.shtml)
-- 2026-06-29 22:58 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/06404621959.shtml)
-- 2026-06-29 22:55 - [多人将马路护栏当球网打羽毛球](https://www.share.minike.top/Article/details/8654218147.shtml)
-- 2026-06-29 22:47 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/31105510.shtml)
-- 2026-06-29 22:32 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/65984.shtml)
-- 2026-06-29 22:37 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/6352172.shtml)
-- 2026-06-29 22:40 - [欧洲缘何成为变暖最快的大洲](https://www.share.kurohicncr.top/Article/details/720335708169.shtml)
+- 2026-06-29 22:43 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/433134689.shtml)
+- 2026-06-29 22:42 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/19349695.shtml)
+- 2026-06-29 22:49 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/34949826.shtml)
+- 2026-06-29 22:43 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/7381869167.shtml)
+- 2026-06-29 22:41 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/125741749.shtml)
+- 2026-06-29 22:55 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/5034658.shtml)
+- 2026-06-29 22:55 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/10953367086.shtml)
+- 2026-06-29 22:44 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/741955169.shtml)
+- 2026-06-29 23:02 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/79142819139.shtml)
+- 2026-06-29 23:01 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/26919.shtml)
+- 2026-06-29 22:48 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.kurohicncr.top/Article/details/2782978.shtml)
+- 2026-06-29 22:41 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/148708447182.shtml)
+- 2026-06-29 22:47 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/568462.shtml)
+- 2026-06-29 23:05 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/39145.shtml)
+- 2026-06-29 22:40 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.minike.top/Article/details/33350.shtml)

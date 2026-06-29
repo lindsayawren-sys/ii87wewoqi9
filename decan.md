@@ -1,56 +1,57 @@
-# 西安银行年度分红方案遭大股东全票 "弃权"，资产风险加速暴露
+# 中俄人才合作新平台在上合示范区发布
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券之星 5月22日，西安银行（600928.SH）2025年度股东大会审议通过了每10股派发现金股利1元（含税）的利润分配预案，但高达29.96%的弃权票在A股上市银行中极为罕见。此次弃权票全部来自第一大单一股东加拿大丰业银行，凸显出外资股东与公司管理层在分红水平上的分歧。 证券之星注意到，数据显示
+中新社青岛4月14日电 (王禹)2026中国—俄罗斯产教融合发展会议暨中俄人才信息数据平台发布会14日在中国—上海合作组织地方经贸合作示范区(简称“上合示范区”)举办，中国—上海合作组织经贸学院现场正式发布中俄人才信息数据平台。 据介绍，中俄人才信息数据平台将整合中俄双方教育、产业、人才等信息资源，通过智能化匹配实现人才供需精准对接与校企高效合作，有效破除跨境人才对接壁垒，提升
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社青岛4月14日电 (王禹)2026中国—俄罗斯产教融合发展会议暨中俄人才信息数据平台发布会14日在中国—上海合作组织地方经贸合作示范区(简称“上合示范区”)举办，中国—上海合作组织经贸学院现场正式发布中俄人才信息数据平台。
 
-来源：证券之星 5月22日，西安银行（600928.SH）2025年度股东大会审议通过了每10股派发现金股利1元（含税）的利润分配预案，但高达29.96%的弃权票在A股上市银行中极为罕见。
+据介绍，中俄人才信息数据平台将整合中俄双方教育、产业、人才等信息资源，通过智能化匹配实现人才供需精准对接与校企高效合作，有效破除跨境人才对接壁垒，提升协同育人效能，为深化中俄产教融合、服务区域经贸高质量发展提供有力支撑。
 
-此次弃权票全部来自第一大单一股东加拿大丰业银行，凸显出外资股东与公司管理层在分红水平上的分歧。
+圣彼得堡彼得大帝理工大学、南乌拉尔国立大学、山东科技大学等高校和机构获颁中俄人才信息数据平台首批合作伙伴证书。
 
-证券之星注意到，数据显示，西安银行2025年现金分红比例仅为16.77%，在42家A股上市银行中排名倒数第二。
+中俄人才信息数据平台将联动两国高校优化人才培养模式，促进课程设置与产业需求对接，形成“产教融合、校企联动”的可持续生态。
 
-与此同时，该行核心一级资本充足率连续两年下滑，资产质量隐忧逐步显现，2026年一季度关注类贷款更是出现大幅增长，不良贷款结构呈现恶化趋势。
+圣彼得堡彼得大帝理工大学副校长德米特里·弗拉基米罗维奇表示，俄中两国经贸联系日益紧密，人文交流持续深化，唯有坚持互学互鉴、经验共享、知识互通，才能应对时代挑战、实现共同发展。
 
-01． 分红方案引外资股东“温和抗议” 西安银行此次分红争议并非突发，早在董事会审议阶段就已显现分歧。
+上合示范区管委会副主任郝国新表示，近年来，该示范区不断推动中俄两国高校和企业开展产教协同对接，期待中俄人才信息数据平台切实发挥桥梁作用，让人才流动成为中俄交流合作的“赋能器”，为两国开展多层次、宽领域合作注入人才新动能。
 
-4月22日，在西安银行第六届董事会第三十五次会议上，丰业银行派驻的两名非执行董事李勇和陈永健对《2025年度利润分配预案》投出弃权票。
+活动现场，多项中俄教育合作项目集中签约落地，西伯利亚联邦大学(中国)招生中心同步揭牌成立。
 
-他们在弃权理由中表示：“理解公司从长远发展角度拟定利润分配预案的综合考量，但希望公司未来能在业绩持续良好发展的基础上，进一步提升分红水平。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:30 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-29 22:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-29 22:36 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 22:41 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-29 22:36 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 22:52 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-29 22:38 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 22:59 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-29 22:58 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 22:47 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 22:50 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 23:01 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 22:37 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 23:03 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-29 22:50 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 22:46 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 23:00 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-29 22:50 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-29 22:38 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-29 22:41 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-29 22:42 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:50 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/125497.shtml)
-- 2026-06-29 22:39 - [巴黎区长紧急采购50台中国空调](http://www.share.kurohicncr.top/Article/details/085148.shtml)
-- 2026-06-29 22:43 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/56551012.shtml)
-- 2026-06-29 22:49 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.minike.top/Article/details/36852.shtml)
-- 2026-06-29 22:53 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.minike.top/Article/details/02697.shtml)
-- 2026-06-29 22:42 - [恋与深空 日服](http://www.blog.minike.top/Article/details/45559344660.shtml)
-- 2026-06-29 22:53 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/810701.shtml)
-- 2026-06-29 22:58 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/1954822423.shtml)
-- 2026-06-29 22:43 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/3267763.shtml)
-- 2026-06-29 22:38 - [105岁女红军看到自己长征时的模样](http://www.share.kurohicncr.top/Article/details/373861737879.shtml)
-- 2026-06-29 22:45 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/1504217.shtml)
-- 2026-06-29 22:45 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/777088431.shtml)
-- 2026-06-29 22:54 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/067724174.shtml)
-- 2026-06-29 22:39 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/915107900307.shtml)
-- 2026-06-29 22:42 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/114200711.shtml)
+- 2026-06-29 22:55 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/054483.shtml)
+- 2026-06-29 22:59 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/6753732.shtml)
+- 2026-06-29 22:51 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/48492.shtml)
+- 2026-06-29 23:02 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/52500226154.shtml)
+- 2026-06-29 22:45 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/94994850.shtml)
+- 2026-06-29 22:55 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/96631.shtml)
+- 2026-06-29 22:59 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/7939712.shtml)
+- 2026-06-29 22:48 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/14773.shtml)
+- 2026-06-29 23:04 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/60934263175.shtml)
+- 2026-06-29 22:37 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/905691774.shtml)
+- 2026-06-29 22:54 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/656784954257.shtml)
+- 2026-06-29 22:45 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/81796.shtml)
+- 2026-06-29 22:57 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/905007710108.shtml)
+- 2026-06-29 23:02 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/1231410455.shtml)
+- 2026-06-29 23:01 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/32775.shtml)

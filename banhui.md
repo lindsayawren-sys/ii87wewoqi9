@@ -1,59 +1,52 @@
-# 端午将至 广东肇庆裹蒸飘香
+# 韩国前总统尹锡悦夫妇时隔9个月法庭相见
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-“世界第一碗面条”并非小麦制作，实证了什么？“粤车南下”扩围大湾区“双向奔赴”再提速“鹅腿阿姨”塌房？相关部门已介入，微信平台提示其账号违反使用规范揭秘档案修裱：秉承最小干预原则 补纸选择有讲究新疆算力布局优势显现，加速迈向绿色算力新高地数据中心发电厂噪音扰民！马斯克两公司遭万人集体诉讼抹黑中国，救不了欧洲产业更“世界”的世界杯要来了：哪些纪录有望改写？谁将是最大黑马？一首西北
+中新网4月14日电 综合韩联社、韩国《朝鲜日报》14日报道，韩国首尔中央地方法院当天举行韩国前总统尹锡悦涉嫌违反《政治资金法》一案庭审，尹锡悦妻子金建希以证人身份出庭。这是自2025年7月尹锡悦被拘捕后，二人时隔9个月后首次见面。 据报道，金建希当天下午作为证人出庭，但除“是否为尹锡悦配偶”这一问题外，对检方的其他询问均拒绝回答。 报道称，尹锡悦被指控与妻子金建希共谋，在202
 
 ## 正文
 
-“世界第一碗面条”并非小麦制作，实证了什么？
+中新网4月14日电 综合韩联社、韩国《朝鲜日报》14日报道，韩国首尔中央地方法院当天举行韩国前总统尹锡悦涉嫌违反《政治资金法》一案庭审，尹锡悦妻子金建希以证人身份出庭。
 
-“粤车南下”扩围大湾区“双向奔赴”再提速“鹅腿阿姨”塌房？
+这是自2025年7月尹锡悦被拘捕后，二人时隔9个月后首次见面。
 
-相关部门已介入，微信平台提示其账号违反使用规范揭秘档案修裱：秉承最小干预原则 补纸选择有讲究新疆算力布局优势显现，加速迈向绿色算力新高地数据中心发电厂噪音扰民！
+据报道，金建希当天下午作为证人出庭，但除“是否为尹锡悦配偶”这一问题外，对检方的其他询问均拒绝回答。
 
-马斯克两公司遭万人集体诉讼抹黑中国，救不了欧洲产业更“世界”的世界杯要来了：哪些纪录有望改写？
-
-谁将是最大黑马？
-
-一首西北神曲焊死循环键！
-
-人这一辈子一定要去一趟临夏黄仁勋轻描淡写一句话，让台湾“缺电焦虑”再升温？
-
-多位书记省长会见谢国民 释放重要合作信号董路谈足球小将第1000场比赛：“中国足球什么都不缺，只缺胜利”古典学家王焕生：“奥德赛时期”，靠四个字度过“国补”叠加电商促销，推动年中消费热吃薯条、闭眼打盹？
+报道称，尹锡悦被指控与妻子金建希共谋，在2022年总统选举期间，接受政治掮客明泰均免费为其提供的58次舆论调查服务，并以此对相关选举活动施加影响，涉嫌违反《政治资金法》。
 
 ## 相关推荐
 
-- 2026-06-29 22:43 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 22:35 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-29 22:33 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 22:59 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 22:59 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 22:34 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 22:47 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-29 22:58 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 22:33 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-29 22:33 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 22:43 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 22:51 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-29 22:39 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 22:45 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-29 22:37 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 22:55 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 22:40 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-29 22:44 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-29 22:46 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 22:43 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-29 22:36 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 22:47 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 22:41 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-29 22:48 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-29 22:40 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-29 22:46 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 23:03 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:30 - [欧洲缘何成为变暖最快的大洲](https://www.share.kurohicncr.top/Article/details/03799600865.shtml)
-- 2026-06-29 22:43 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/1011579.shtml)
-- 2026-06-29 22:56 - [仙游一峡谷5人身亡知情者发声](http://www.share.minike.top/Article/details/6739536494.shtml)
-- 2026-06-29 22:30 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/5466823334.shtml)
-- 2026-06-29 22:42 - [刘宇宁 好听](http://www.share.minike.top/Article/details/199202284974.shtml)
-- 2026-06-29 22:54 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/845807800.shtml)
-- 2026-06-29 22:31 - [巴黎区长紧急采购50台中国空调](https://www.blog.minike.top/Article/details/2415987.shtml)
-- 2026-06-29 22:35 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/14255324.shtml)
-- 2026-06-29 22:35 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/864898706.shtml)
-- 2026-06-29 22:43 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.minike.top/Article/details/11530987268.shtml)
-- 2026-06-29 22:36 - [战略导弹部队60年如何炼成大国长剑](https://www.share.minike.top/Article/details/3286443.shtml)
-- 2026-06-29 22:44 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/77771758.shtml)
-- 2026-06-29 22:49 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/450096.shtml)
-- 2026-06-29 22:47 - [我们的少年时代2](https://www.share.minike.top/Article/details/583978.shtml)
-- 2026-06-29 22:38 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/1512075.shtml)
+- 2026-06-29 22:49 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/910351388288.shtml)
+- 2026-06-29 22:53 - [炽夏](https://www.blog.minike.top/Article/details/5411681.shtml)
+- 2026-06-29 22:37 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/684745.shtml)
+- 2026-06-29 22:47 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/2973039.shtml)
+- 2026-06-29 23:02 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.blog.minike.top/Article/details/99123638791.shtml)
+- 2026-06-29 22:49 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/55416649.shtml)
+- 2026-06-29 22:48 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/55400.shtml)
+- 2026-06-29 23:00 - [追觅称质量不行终身包修也没意义](http://www.blog.kurohicncr.top/Article/details/66591481.shtml)
+- 2026-06-29 22:37 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/05171341286.shtml)
+- 2026-06-29 22:38 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/364606566.shtml)
+- 2026-06-29 23:05 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/96282085.shtml)
+- 2026-06-29 22:40 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/0063674082.shtml)
+- 2026-06-29 22:58 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/59330.shtml)
+- 2026-06-29 22:51 - [绿营污蔑大陆“海上袭扰”被批](https://www.share.kurohicncr.top/Article/details/228633.shtml)
+- 2026-06-29 22:54 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/58271108410.shtml)

@@ -1,56 +1,56 @@
-# 光大期货：6月11日金融日报
+# 俄罗斯与阿塞拜疆就阿航客机坠机善后问题达成一致
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-股指： （王东灜，从业资格号：F03087149；交易咨询资格号：Z0019537） 昨日，A股市场继续震荡回调，Wind全A下跌1.27%，成交额2.64万亿元。中证1000指数下跌1.44%，中证500指数下跌1.37%，沪深300指数下跌1.11%，上证50指数上涨0.27%。经过5月以来的加速上涨，中美科技题材均已达到高位，市场出现对于交易拥挤度过高的担忧。尽管近期中美
+中新社莫斯科/阿斯塔纳4月15日电 (记者 田冰 单璐)俄罗斯外交部和阿塞拜疆外交部15日发表联合声明称，双方已就2024年12月阿塞拜疆航空公司客机在哈萨克斯坦阿克套附近坠毁事件的善后处理达成一致，包括赔偿问题在内的相关事宜将获妥善处理。声明确认，阿客机坠机是由俄联邦领空内防空系统误击所致。 声明指出，所采取的措施是根据两国总统于2025年10月9日在塔吉克斯坦首都杜尚别会晤
 
 ## 正文
 
-股指： （王东灜，从业资格号：F03087149；交易咨询资格号：Z0019537） 昨日，A股市场继续震荡回调，Wind全A下跌1.27%，成交额2.64万亿元。
+中新社莫斯科/阿斯塔纳4月15日电 (记者 田冰 单璐)俄罗斯外交部和阿塞拜疆外交部15日发表联合声明称，双方已就2024年12月阿塞拜疆航空公司客机在哈萨克斯坦阿克套附近坠毁事件的善后处理达成一致，包括赔偿问题在内的相关事宜将获妥善处理。
 
-中证1000指数下跌1.44%，中证500指数下跌1.37%，沪深300指数下跌1.11%，上证50指数上涨0.27%。
+声明确认，阿客机坠机是由俄联邦领空内防空系统误击所致。
 
-经过5月以来的加速上涨，中美科技题材均已达到高位，市场出现对于交易拥挤度过高的担忧。
+声明指出，所采取的措施是根据两国总统于2025年10月9日在塔吉克斯坦首都杜尚别会晤期间达成的共识推进落实的。
 
-尽管近期中美科技题材走势相关性较高，但背后的逻辑并不完全相同。
+声明强调，上述举措体现了双方在盟友关系基础上继续推进两国合作的共同愿望。
 
-美股当前的风险主要在于宏观流动性收紧导致的高杠杆资金平仓，而A股的风险则来自于科技题材相关硬件需求出现明显回落。
+基于相互尊重和信任原则的合作将有助于发展两国睦邻友好关系。
 
-从这一视角出发，美国5月非农就业17.5万人，大超市场预期，可能会导致市场对于流动性收紧的预期进一步加强，对高估值美股形成冲击。
+双方在声明中再次向坠机事件遇难者亲友表示深切慰问。
 
-而A股方面，一季度工信部公布的集成电路产量数据亮眼，但出口数据同比处于高位回落的趋势，同时电子信息行业固定资产投资增速加快，未来需要关注供需平衡点的到来是否会对产业格局形成影响。
+2024年12月，一架从阿塞拜疆巴库飞往俄罗斯格罗兹尼的客机在哈萨克斯坦阿克套近郊坠毁。
 
-我们认为，A股未来回调幅度可能小于海外指数，且风格不易发生轮动，仍以科技题材的核心圈层为主。
+这架客机载有67人，其中包括62名乘客和5名机组人员。
 
 ## 相关推荐
 
-- 2026-06-29 22:44 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-29 22:37 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-29 22:49 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-29 22:41 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 22:34 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-29 22:55 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-29 22:35 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-29 22:43 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-29 22:50 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 22:33 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-29 22:47 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-29 22:43 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 22:41 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 22:38 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 22:41 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-29 22:42 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 22:58 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-29 22:36 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-29 23:04 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 22:55 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:58 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/542950.shtml)
-- 2026-06-29 22:42 - [美以这对亲密盟友要掰了吗](http://www.blog.minike.top/Article/details/296948272544.shtml)
-- 2026-06-29 22:35 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/540471705519.shtml)
-- 2026-06-29 22:50 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/68260762215.shtml)
-- 2026-06-29 22:51 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.minike.top/Article/details/47704.shtml)
-- 2026-06-29 22:50 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/905752107.shtml)
-- 2026-06-29 22:34 - [女心理师](http://www.share.minike.top/Article/details/933849283234.shtml)
-- 2026-06-29 22:57 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/41122335.shtml)
-- 2026-06-29 22:38 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/357680.shtml)
-- 2026-06-29 22:39 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/24349.shtml)
-- 2026-06-29 22:37 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/2672128003.shtml)
-- 2026-06-29 22:58 - [Prada在内娱首度签下偶像团体](https://www.share.minike.top/Article/details/38048.shtml)
-- 2026-06-29 22:40 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/61155.shtml)
-- 2026-06-29 22:32 - [曝iPhone涨价后不会再降](https://www.share.kurohicncr.top/Article/details/2111581794.shtml)
-- 2026-06-29 22:44 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/09424808.shtml)
+- 2026-06-29 22:53 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/18021886097.shtml)
+- 2026-06-29 22:41 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/9294857.shtml)
+- 2026-06-29 22:49 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/0035070052.shtml)
+- 2026-06-29 22:59 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/7200152240.shtml)
+- 2026-06-29 22:40 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/5821377284.shtml)
+- 2026-06-29 22:49 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/34847695423.shtml)
+- 2026-06-29 23:04 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/85445626864.shtml)
+- 2026-06-29 23:05 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/984051.shtml)
+- 2026-06-29 22:39 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/80638.shtml)
+- 2026-06-29 22:45 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/209302236.shtml)
+- 2026-06-29 22:57 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/35072405939.shtml)
+- 2026-06-29 23:02 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/969208095720.shtml)
+- 2026-06-29 22:39 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/18527552632.shtml)
+- 2026-06-29 22:44 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.blog.minike.top/Article/details/172323.shtml)
+- 2026-06-29 23:05 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.kurohicncr.top/Article/details/18521332.shtml)

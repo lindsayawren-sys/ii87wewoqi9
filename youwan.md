@@ -1,58 +1,56 @@
-# 中方：日本已经自己摘下了所谓“和平国家”的面具
+# 日联科技，停牌！拟购上海菲莱控股权
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-中新网北京6月11日电 (记者 张蔚然 黄钰钦)中国外交部发言人林剑11日主持例行记者会。 有记者提问：据报道，多名消息人士称，针对中国和巴基斯坦5月下旬发表的联合声明中提及“反对军国主义卷土重来的图谋”，日本政府表示，日本坚持专守防卫方针、作为和平国家的发展道路并未改变。请问中方对此有何评论？ 林剑：反对军国主义是国际社会不容撼动的共同意志，任何珍爱和平、维护战后国际秩序的国
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：资本秘闻 4月14日晚间，日联科技（688531）披露公告称，公司拟以发行股份、可转债及支付现金的方式购买上海菲莱测试技术有限公司（以下简称“上海菲莱”）的控股权并募集配套资金。公司股票4月15日起停牌，预计停牌时间不超过10个交易日。 公告显示，根据相关数据初步测算，本次交易预计未达到重大资产重组标
 
 ## 正文
 
-中新网北京6月11日电 (记者 张蔚然 黄钰钦)中国外交部发言人林剑11日主持例行记者会。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-有记者提问：据报道，多名消息人士称，针对中国和巴基斯坦5月下旬发表的联合声明中提及“反对军国主义卷土重来的图谋”，日本政府表示，日本坚持专守防卫方针、作为和平国家的发展道路并未改变。
+来源：资本秘闻 4月14日晚间，日联科技（688531）披露公告称，公司拟以发行股份、可转债及支付现金的方式购买上海菲莱测试技术有限公司（以下简称“上海菲莱”）的控股权并募集配套资金。
 
-请问中方对此有何评论？
+公司股票4月15日起停牌，预计停牌时间不超过10个交易日。
 
-林剑：反对军国主义是国际社会不容撼动的共同意志，任何珍爱和平、维护战后国际秩序的国家都应为此发出正义声音。
+公告显示，根据相关数据初步测算，本次交易预计未达到重大资产重组标准。
 
-日本嘴上喊着“和平”“防卫”，行动上却朝着“再军事化”狂飙突进，持续大幅扩充军费、放宽杀伤性武器出口、推进部署中远程导弹、扩充进攻性军事力量、囤积大量敏感核材料、推动修改和平宪法，甚至鼓吹成为“能战”国家。
+对于本次交易是否构成重大资产重组的具体认定，公司将在重组报告书中予以详细分析和披露。
 
-实际上已经自己摘下了所谓“和平国家”的面具。
+上海菲莱官网显示，公司专注于半导体芯片测试可靠性解决方案，在Si基芯片，化合物芯片（GaAs，InP，SiC）等领域都有量产经验，提供芯片从晶圆到器件的全形态解决方案。
 
-国际社会应对此高度警惕，决不允许日本军国主义死灰复燃、再度为祸世界。
+日联科技表示，目前本次交易正处于筹划阶段，交易各方尚未签署正式的交易协议，具体交易方案仍在商讨论证中，尚存在不确定性。
 
-(完)
+责任编辑：杨红卜
 
 ## 相关推荐
 
-- 2026-06-29 22:48 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-29 22:38 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 22:57 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 22:38 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-29 22:53 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 22:47 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-29 22:53 - [多人将马路护栏当球网打羽毛球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 22:39 - [委内瑞拉发生余震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-29 22:35 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-29 22:39 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-29 22:55 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 22:41 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-29 22:50 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 22:56 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 22:38 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 22:57 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-29 22:52 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-29 22:53 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-29 22:53 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 22:40 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-29 22:37 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-29 22:59 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:34 - [流金岁月](http://www.share.kurohicncr.top/Article/details/046374.shtml)
-- 2026-06-29 22:54 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/711680.shtml)
-- 2026-06-29 22:43 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/5570111091.shtml)
-- 2026-06-29 22:53 - [127只股涨停 最大封单资金6.04亿元](https://www.share.kurohicncr.top/Article/details/4680979784.shtml)
-- 2026-06-29 22:44 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/35457.shtml)
-- 2026-06-29 22:35 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/409913568004.shtml)
-- 2026-06-29 22:32 - [记者暗访养老机构消防安全](https://www.blog.minike.top/Article/details/14599948.shtml)
-- 2026-06-29 22:43 - [新官上任三把火](https://www.share.minike.top/Article/details/8624249.shtml)
-- 2026-06-29 22:56 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/263030.shtml)
-- 2026-06-29 22:58 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/08547097080.shtml)
-- 2026-06-29 22:32 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/880784.shtml)
-- 2026-06-29 22:49 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/26389166.shtml)
-- 2026-06-29 22:59 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/9249360.shtml)
-- 2026-06-29 22:49 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/15585.shtml)
-- 2026-06-29 22:51 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/95758903626.shtml)
+- 2026-06-29 22:42 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/119578768853.shtml)
+- 2026-06-29 23:01 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/211124.shtml)
+- 2026-06-29 22:39 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.blog.minike.top/Article/details/4434954015.shtml)
+- 2026-06-29 22:41 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/3279558788.shtml)
+- 2026-06-29 22:58 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/97498.shtml)
+- 2026-06-29 22:53 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/68243293.shtml)
+- 2026-06-29 23:04 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.minike.top/Article/details/985798.shtml)
+- 2026-06-29 23:01 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/76128256.shtml)
+- 2026-06-29 22:58 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/48674362093.shtml)
+- 2026-06-29 22:44 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/1077386.shtml)
+- 2026-06-29 22:41 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/70396367.shtml)
+- 2026-06-29 23:00 - [《恋与深空》回应争议](https://www.blog.minike.top/Article/details/2587950.shtml)
+- 2026-06-29 22:50 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/152053056.shtml)
+- 2026-06-29 23:03 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/29376.shtml)
+- 2026-06-29 22:41 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/860780094.shtml)

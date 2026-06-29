@@ -1,48 +1,48 @@
-# 薛建峰出任中国人民银行宁夏回族自治区分行党委书记、行长
+# 元琛科技（688659）：中标建投国电准格尔旗能源有限公司采购项目，中标金额为739.69万元
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-6月10日金融一线消息，中国人民银行宁夏回族自治区分行官网近日更新显示，薛建峰已出任中国人民银行宁夏回族自治区分行党委书记、行长，国家外汇管理局宁夏回族自治区分局局长。据了解，薛建峰曾任中国人民银行青海省分行副行长、天津市分行纪委书记等职。 责任编辑：王馨茹
+同壁财经讯，企查查数据显示，根据《建投国电准格尔旗能源有限公司2026年1、2号锅炉脱硝备用层催化剂采购、安装项目中标结果公示》，安徽元琛环保科技股份有限公司于2026年4月14日公告中标建投国电准格尔旗能源有限公司采购项目，中标金额为739.69万元。相关上市公司：元琛科技(688659.SH)同壁财经小贴士：元琛科技（688659.SH）2024年营业收入为6.30亿元，营
 
 ## 正文
 
-6月10日金融一线消息，中国人民银行宁夏回族自治区分行官网近日更新显示，薛建峰已出任中国人民银行宁夏回族自治区分行党委书记、行长，国家外汇管理局宁夏回族自治区分局局长。
+同壁财经讯，企查查数据显示，根据《建投国电准格尔旗能源有限公司2026年1、2号锅炉脱硝备用层催化剂采购、安装项目中标结果公示》，安徽元琛环保科技股份有限公司于2026年4月14日公告中标建投国电准格尔旗能源有限公司采购项目，中标金额为739.69万元。
 
-据了解，薛建峰曾任中国人民银行青海省分行副行长、天津市分行纪委书记等职。
+相关上市公司：元琛科技(688659.SH)同壁财经小贴士：元琛科技（688659.SH）2024年营业收入为6.30亿元，营业收入增长率为20.11%，归属母公司净利润为-0.61亿元，归属母公司净利润增长率为-139.79%，净资产收益率为-10.47%。
 
-责任编辑：王馨茹
+2025年上半年公司营业收入为3.52亿元，营业收入增长率为10.93%，归属母公司净利润为0.09亿元，归属母公司净利润增长率为23.76%。
+
+目前公司属于工业行业，主要产品类型为催化剂及化学助剂、特种纤维，2024年报主营构成为脱硝催化剂:64.99%;滤袋:29.94%;其他:4.92%;口罩及熔喷布等防护用品:0.12%;其他业务:0.03%。
 
 ## 相关推荐
 
-- 2026-06-29 22:34 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 22:58 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 22:58 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-29 22:34 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 22:30 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 22:35 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-29 22:59 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 22:48 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 22:30 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-29 22:53 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 22:45 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-29 22:45 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-29 22:42 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-29 22:49 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 22:45 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 23:02 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 22:36 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 22:51 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 23:04 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 22:37 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 22:56 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 22:48 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:41 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/647381644.shtml)
-- 2026-06-29 22:56 - [金刚川](http://www.blog.kurohicncr.top/Article/details/92212043061.shtml)
-- 2026-06-29 22:44 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/76421343908.shtml)
-- 2026-06-29 22:32 - [谁在推动“成都造”影视持续出圈](https://www.blog.minike.top/Article/details/24182.shtml)
-- 2026-06-29 22:37 - [法媒点赞分享中国小区降温方案](https://www.blog.minike.top/Article/details/977608270361.shtml)
-- 2026-06-29 22:50 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/422778255190.shtml)
-- 2026-06-29 22:44 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/215523.shtml)
-- 2026-06-29 22:52 - [王鸿薇要求删陆委会百余万特别费](http://www.share.minike.top/Article/details/383327.shtml)
-- 2026-06-29 22:50 - [急先锋](http://www.share.minike.top/Article/details/71259297335.shtml)
-- 2026-06-29 22:50 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/1706940.shtml)
-- 2026-06-29 22:38 - [返利科技盘中上演“天地板”](https://www.blog.minike.top/Article/details/3649217.shtml)
-- 2026-06-29 22:53 - [法拉利车主已自行承担修理费近3万](https://www.blog.kurohicncr.top/Article/details/6191441864.shtml)
-- 2026-06-29 22:45 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/0094077356.shtml)
-- 2026-06-29 22:52 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/09649591523.shtml)
-- 2026-06-29 22:52 - [我和我的家乡](http://www.share.minike.top/Article/details/7185312483.shtml)
+- 2026-06-29 22:45 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/2055825628.shtml)
+- 2026-06-29 23:04 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/3419309075.shtml)
+- 2026-06-29 22:42 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/182471449.shtml)
+- 2026-06-29 22:42 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/25676.shtml)
+- 2026-06-29 22:53 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/951495785961.shtml)
+- 2026-06-29 23:01 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/1406282202.shtml)
+- 2026-06-29 22:36 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/0938909.shtml)
+- 2026-06-29 23:00 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/13773140.shtml)
+- 2026-06-29 22:49 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/0582466.shtml)
+- 2026-06-29 22:46 - [汪苏泷年度歌手](http://www.blog.minike.top/Article/details/577760.shtml)
+- 2026-06-29 22:58 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/156093961186.shtml)
+- 2026-06-29 22:54 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/187988525102.shtml)
+- 2026-06-29 23:03 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/14510149.shtml)
+- 2026-06-29 22:54 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/59672.shtml)
+- 2026-06-29 23:03 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/110140822098.shtml)

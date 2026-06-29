@@ -1,57 +1,60 @@
-# 眼压“正常”，怎会确诊中晚期青光眼？
+# 以“质量意识”抓落实（大家谈·树立和践行正确政绩观②）
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-日常门诊中，经常碰到两类这样的患者：一类拿着体检报告惊慌失措，说自己眼压高，或者眼睛胀痛，非常担心，觉得自己肯定是青光眼，眼睛要瞎了。另一类患者视力一直保持在0.8甚至更好，体检眼压也“正常”，却最终被确诊为中晚期青光眼，视野已经缺损得只剩中央一点点。这两类患者背后，恰恰衍射出公众对眼压与青光眼关系很深的误解。 眼压高≠青光眼 先说说眼压。 眼压是眼球内容物对眼球壁产生的压力，
+习近平总书记强调：“抓落实，是党的政治路线、思想路线、群众路线的根本要求，也是衡量领导干部党性和政绩观的重要标志。”抓好落实，容不得半点马虎，必须真刀真枪干。本期大家谈，我们选刊3篇来稿，探讨如何更好抓落实。——编 者 不能“重速不重质” 董佳宁 “十五五”开局之年，各地只争朝夕向前进的氛围浓厚。与此同时，也需警惕“重速度，轻质量”的情况。 没有一定的发展速度，就难以实现既定的
 
 ## 正文
 
-日常门诊中，经常碰到两类这样的患者：一类拿着体检报告惊慌失措，说自己眼压高，或者眼睛胀痛，非常担心，觉得自己肯定是青光眼，眼睛要瞎了。
+习近平总书记强调：“抓落实，是党的政治路线、思想路线、群众路线的根本要求，也是衡量领导干部党性和政绩观的重要标志。
 
-另一类患者视力一直保持在0.8甚至更好，体检眼压也“正常”，却最终被确诊为中晚期青光眼，视野已经缺损得只剩中央一点点。
+”抓好落实，容不得半点马虎，必须真刀真枪干。
 
-这两类患者背后，恰恰衍射出公众对眼压与青光眼关系很深的误解。
+本期大家谈，我们选刊3篇来稿，探讨如何更好抓落实。
 
-眼压高≠青光眼 先说说眼压。
+——编 者 不能“重速不重质” 董佳宁 “十五五”开局之年，各地只争朝夕向前进的氛围浓厚。
 
-眼压是眼球内容物对眼球壁产生的压力，正常范围在10至21毫米汞柱之间。
+与此同时，也需警惕“重速度，轻质量”的情况。
 
-它由眼球内的水(称为“房水”)生成与排出，以维持动态平衡。
+没有一定的发展速度，就难以实现既定的目标；不把控好质量，即便速度上去了，发展也会难以为继。
 
-青光眼是全球首位不可逆的致盲眼病，其核心病理特征是青光眼特征性视神经萎缩和视野缺损，而病理性眼压升高确实是它最重要的危险因素。
+中部地区某市为开发温泉景区，不加论证就盲目引进打着生态发展旗号的“特色小镇”项目，结果项目大面积烂尾，造成土地闲置、资金浪费。
 
-但危险因素不等于确诊标准。
+这正说明，只有把速度和质量统一起来，发展才能可持续、没水分，避免留下“后遗症”。
 
 ## 相关推荐
 
-- 2026-06-29 22:32 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 22:45 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-29 22:58 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 22:59 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 22:55 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-29 22:37 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-29 22:36 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 22:36 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-29 22:30 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-29 22:41 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-29 22:41 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 23:01 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 22:44 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-29 23:02 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-29 22:45 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-29 22:51 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-29 22:45 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-29 22:49 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 22:42 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 23:01 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 22:50 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-29 23:01 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 22:36 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 22:57 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-29 22:43 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:37 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/62646751112.shtml)
-- 2026-06-29 22:40 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/21363275811.shtml)
-- 2026-06-29 22:57 - [天气热脾气都变差了](https://www.share.minike.top/Article/details/01119946726.shtml)
-- 2026-06-29 23:00 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/9697133342.shtml)
-- 2026-06-29 22:51 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/924207.shtml)
-- 2026-06-29 22:33 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/760277169972.shtml)
-- 2026-06-29 22:33 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/12196.shtml)
-- 2026-06-29 22:55 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/106498514.shtml)
-- 2026-06-29 22:30 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.minike.top/Article/details/147901053064.shtml)
-- 2026-06-29 22:53 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/47624611.shtml)
-- 2026-06-29 22:36 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/729785962076.shtml)
-- 2026-06-29 22:43 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/4361967.shtml)
-- 2026-06-29 22:54 - [委内瑞拉发生余震](https://www.share.minike.top/Article/details/95556031697.shtml)
-- 2026-06-29 22:56 - [一生一世](https://www.share.kurohicncr.top/Article/details/76383549543.shtml)
-- 2026-06-29 22:46 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/02738.shtml)
+- 2026-06-29 22:57 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/299690.shtml)
+- 2026-06-29 22:47 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/26349050.shtml)
+- 2026-06-29 22:57 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/412479.shtml)
+- 2026-06-29 22:55 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/463769074.shtml)
+- 2026-06-29 23:04 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/724045079610.shtml)
+- 2026-06-29 22:56 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/28076.shtml)
+- 2026-06-29 22:59 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/1992499802.shtml)
+- 2026-06-29 23:06 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/439687271366.shtml)
+- 2026-06-29 23:05 - [长沙菜农公交的人间烟火气](http://www.share.minike.top/Article/details/5524194.shtml)
+- 2026-06-29 22:52 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/906301554197.shtml)
+- 2026-06-29 22:52 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.minike.top/Article/details/742799726.shtml)
+- 2026-06-29 22:42 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/61765.shtml)
+- 2026-06-29 22:55 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/75870.shtml)
+- 2026-06-29 22:47 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/19963034.shtml)
+- 2026-06-29 22:40 - [恋与深空回应争议](https://www.share.minike.top/Article/details/85203323138.shtml)

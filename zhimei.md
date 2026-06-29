@@ -1,57 +1,56 @@
-# 博物馆里看电影 两岸光影融合向新发展
+# 中信建投期货：4月16日能化早报
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-在中国电影博物馆“台湾地区电影”展厅(简称“台湾展厅”)，全国政协委员、台盟北京市委会副主委、中国电影博物馆馆长陈伟近日接受本报记者专访，讲述展陈背后的两岸电影交流往事，以及影视合作何以促进两岸文化交流。 电影“破冰” 以情促融 台湾展厅的参观动线如一条时光长廊，清晰呈现台湾电影从萌芽到繁荣的发展脉络。从1925年台湾工作者拍摄的第一部故事片《谁之过》，到被影迷奉为经典的《侠女
+橡胶：风险仍存 周三，国产全乳胶16600/吨，环比上日持平；泰国20号混合胶15950元/吨，环比上日上涨50元/吨。 原料端：泰国宋干节假期，原料市场休市；云南胶水报收15.9元/公斤，环比上日持平；海南胶水报收15.8元/公斤，环比上日持平。 截至2026年4月12日，中国天然橡胶社会库存135.1万吨，环比增加0.53万吨，增幅0.4%。中国深色胶社会总库存为93万吨，
 
 ## 正文
 
-在中国电影博物馆“台湾地区电影”展厅(简称“台湾展厅”)，全国政协委员、台盟北京市委会副主委、中国电影博物馆馆长陈伟近日接受本报记者专访，讲述展陈背后的两岸电影交流往事，以及影视合作何以促进两岸文化交流。
+橡胶：风险仍存 周三，国产全乳胶16600/吨，环比上日持平；泰国20号混合胶15950元/吨，环比上日上涨50元/吨。
 
-电影“破冰” 以情促融 台湾展厅的参观动线如一条时光长廊，清晰呈现台湾电影从萌芽到繁荣的发展脉络。
+原料端：泰国宋干节假期，原料市场休市；云南胶水报收15.9元/公斤，环比上日持平；海南胶水报收15.8元/公斤，环比上日持平。
 
-从1925年台湾工作者拍摄的第一部故事片《谁之过》，到被影迷奉为经典的《侠女》《悲情城市》《饮食男女》……沿长廊前行，满墙海报和实物展品无声讲述着宝岛电影工业的辉煌过往。
+截至2026年4月12日，中国天然橡胶社会库存135.1万吨，环比增加0.53万吨，增幅0.4%。
 
-“这部《汪洋中的一条船》，是首部在大陆发行的台湾电影。
+中国深色胶社会总库存为93万吨，增0.9%。
 
-”行至一处场景展陈前，陈伟介绍道。
+其中青岛现货库存增2%；云南降2.3%；越南10降18.9%；NR库存小计降0.45%。
 
-场景里，一对恋人在月色中互相依偎。
+中国浅色胶社会总库存为42.1万吨，环比降0.7%。
 
-这是电影里男女主角感情升华的一幕，饰演者是台湾影坛“二秦二林”里的秦汉、林凤娇。
+其中老全乳胶环比降0.86%，3L环比降4.6%，RU库存小计增1.4%。
 
-《汪洋中的一条船》改编自台湾作家郑丰喜所著同名自传体小说。
+观点：近期偏北产区（泰国东北部、越南、国内云南海南）迎来持续的高温天气，国内产区暂停开割，科特迪瓦与印尼南部未出现明显少雨天气，目前出现比较明显干旱的产区占比全球产量的比例大约30%（泰国东北15%，越南9%，国内6%），集中在主产浅色胶与乳胶的产区。
 
 ## 相关推荐
 
-- 2026-06-29 22:44 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-29 22:55 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 22:38 - [恋与深空致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 22:52 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-29 22:58 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 22:40 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-29 22:57 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-29 22:45 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-29 22:34 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-29 22:45 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 22:48 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 22:41 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 23:03 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 22:37 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 22:58 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-29 22:38 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 22:37 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-29 23:01 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-29 22:56 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 22:46 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 22:54 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:33 - [世界杯高票价为何没劝退球迷](http://www.blog.kurohicncr.top/Article/details/4963627.shtml)
-- 2026-06-29 22:41 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/64138929.shtml)
-- 2026-06-29 22:57 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/07366904.shtml)
-- 2026-06-29 22:38 - [蓝箭航天科创板IPO审核状态为已问询](http://www.blog.minike.top/Article/details/669964164.shtml)
-- 2026-06-29 22:49 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/511213.shtml)
-- 2026-06-29 22:44 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/584298.shtml)
-- 2026-06-29 22:40 - [蓝箭航天科创板IPO审核状态为已问询](https://www.blog.minike.top/Article/details/253694804.shtml)
-- 2026-06-29 22:44 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/654196.shtml)
-- 2026-06-29 22:52 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/848303.shtml)
-- 2026-06-29 22:47 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/49383.shtml)
-- 2026-06-29 22:36 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/981816.shtml)
-- 2026-06-29 22:52 - [第一炉香](http://www.share.kurohicncr.top/Article/details/858158932133.shtml)
-- 2026-06-29 22:45 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/1087716064.shtml)
-- 2026-06-29 22:48 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/291031.shtml)
-- 2026-06-29 22:39 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/0089807105.shtml)
+- 2026-06-29 22:43 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/195603100.shtml)
+- 2026-06-29 22:51 - [天气热脾气都变差了](http://www.blog.kurohicncr.top/Article/details/893955.shtml)
+- 2026-06-29 22:58 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/50549.shtml)
+- 2026-06-29 22:56 - [Prada在内娱首度签下偶像团体](https://www.share.minike.top/Article/details/971186879860.shtml)
+- 2026-06-29 22:51 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/7212972961.shtml)
+- 2026-06-29 22:58 - [刘念回应](http://www.share.kurohicncr.top/Article/details/998764256.shtml)
+- 2026-06-29 22:36 - [Prada在内娱首度签下偶像团体](https://www.share.minike.top/Article/details/851402008.shtml)
+- 2026-06-29 22:52 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/28288.shtml)
+- 2026-06-29 22:39 - [炽夏](https://www.share.kurohicncr.top/Article/details/6072456.shtml)
+- 2026-06-29 23:03 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/202886.shtml)
+- 2026-06-29 22:37 - [恋与深空 日服](https://www.blog.minike.top/Article/details/88955.shtml)
+- 2026-06-29 23:05 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/7218026466.shtml)
+- 2026-06-29 22:41 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/94958735.shtml)
+- 2026-06-29 22:53 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/44792953806.shtml)
+- 2026-06-29 22:57 - [英法德葡存在什么隐患](https://www.share.kurohicncr.top/Article/details/347359151.shtml)

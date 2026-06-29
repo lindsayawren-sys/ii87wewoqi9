@@ -1,51 +1,59 @@
-# 中金：云顶新耀维持跑赢行业评级 目标价41.5港元
+# 果然跌停！光伏牛股高溢价并购折戟！
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-中金发布研报称，维持云顶新耀（01952）2026年和2027年盈利预测不变。基于DCF，予跑赢行业评级与目标价41.5港元，较当前股价有48.43%上行空间。6月2日，公司公告与Travere Therapeutics达成独家授权许可与合作协议，授予其EVER001（希布替尼，civorebrutinib）除大中华区及部分东南亚国家以外区域的独家开发及商业化权益。责任编辑：卢
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：资本秘闻 筹划近5个月时间，国晟科技（维权）（603778）的2.406亿元高溢价并购最终以失败收场。受此消息影响，4月14日，公司股价“一”字跌停，收于跌停价29.79元/股。据了解，国晟科技原拟受让铜陵市孚悦科技有限公司（以下简称“孚悦科技”）100%股权。重组终止背后，公司近年来资本动作频频，股
 
 ## 正文
 
-中金发布研报称，维持云顶新耀（01952）2026年和2027年盈利预测不变。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-基于DCF，予跑赢行业评级与目标价41.5港元，较当前股价有48.43%上行空间。
+来源：资本秘闻 筹划近5个月时间，国晟科技（维权）（603778）的2.406亿元高溢价并购最终以失败收场。
 
-6月2日，公司公告与Travere Therapeutics达成独家授权许可与合作协议，授予其EVER001（希布替尼，civorebrutinib）除大中华区及部分东南亚国家以外区域的独家开发及商业化权益。
+受此消息影响，4月14日，公司股价“一”字跌停，收于跌停价29.79元/股。
 
-责任编辑：卢昱君
+据了解，国晟科技原拟受让铜陵市孚悦科技有限公司（以下简称“孚悦科技”）100%股权。
+
+重组终止背后，公司近年来资本动作频频，股价也随之大涨。
+
+不过，从基本面来看，国晟科技业绩承压明显，2020年起，公司净利便处于亏损状态，2025年净利最高预亏6.5亿元。
+
+股价“一”字跌停 4月14日，国晟科技开盘跌停，全天未能打开跌停板，当日收于跌停价29.79元/股，总市值196.6亿元。
+
+消息面上，4月13日晚间，国晟科技披露公告称，公司终止收购孚悦科技100%股权。
 
 ## 相关推荐
 
-- 2026-06-29 22:42 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-29 22:37 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 22:58 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 22:41 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 22:59 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 22:34 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-29 22:48 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-29 22:39 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-29 22:51 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 22:34 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-29 22:50 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-29 22:41 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-29 22:34 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 22:47 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 22:47 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 22:49 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 22:39 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-29 22:55 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 22:39 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 22:52 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 22:50 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-29 22:45 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 22:59 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 22:58 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-29 22:43 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 22:42 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:30 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.minike.top/Article/details/2285874845.shtml)
-- 2026-06-29 22:57 - [片寄凉太胖了好多](http://www.blog.minike.top/Article/details/418397346.shtml)
-- 2026-06-29 22:59 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/79931636722.shtml)
-- 2026-06-29 22:45 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/864082957.shtml)
-- 2026-06-29 22:30 - [美以这对亲密盟友要掰了吗](https://www.share.kurohicncr.top/Article/details/29911033287.shtml)
-- 2026-06-29 22:31 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/092225.shtml)
-- 2026-06-29 22:52 - [宜宾地震已转移安置225人](https://www.share.minike.top/Article/details/786265.shtml)
-- 2026-06-29 22:51 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/0271855202.shtml)
-- 2026-06-29 22:39 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/2788322992.shtml)
-- 2026-06-29 22:49 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/21992.shtml)
-- 2026-06-29 22:45 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/10597617306.shtml)
-- 2026-06-29 22:40 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/567724599314.shtml)
-- 2026-06-29 22:59 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/32247787742.shtml)
-- 2026-06-29 22:50 - [扬名立万](https://www.share.minike.top/Article/details/987725251.shtml)
-- 2026-06-29 22:50 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/73577.shtml)
+- 2026-06-29 22:47 - [回顾世界杯争议事件](http://www.blog.minike.top/Article/details/783885.shtml)
+- 2026-06-29 22:39 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/56987437151.shtml)
+- 2026-06-29 23:04 - [法媒点赞分享中国小区降温方案](https://www.blog.minike.top/Article/details/611930.shtml)
+- 2026-06-29 22:48 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/2806521841.shtml)
+- 2026-06-29 22:38 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/8857835.shtml)
+- 2026-06-29 22:42 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/534079964613.shtml)
+- 2026-06-29 22:37 - [金刚川](https://www.share.minike.top/Article/details/852878838.shtml)
+- 2026-06-29 22:51 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/57166.shtml)
+- 2026-06-29 22:49 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/07207273837.shtml)
+- 2026-06-29 22:39 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/80450507.shtml)
+- 2026-06-29 22:45 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/1099206.shtml)
+- 2026-06-29 22:59 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/308378276408.shtml)
+- 2026-06-29 22:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/92677.shtml)
+- 2026-06-29 22:39 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/508458.shtml)
+- 2026-06-29 22:39 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/48416627498.shtml)

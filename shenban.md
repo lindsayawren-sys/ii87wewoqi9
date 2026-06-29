@@ -1,61 +1,54 @@
-# （乡村行·看振兴）湖北秭归：“端午艾”变身“致富宝”
+# 国家医保局：累计将199种创新药纳入到医保报销范围
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-中新网湖北秭归6月11日电 题：湖北秭归：“端午艾”变身“致富宝” 作者 李彩云 郭晓莹 临近端午，湖北省秭归县九畹溪村屈艾加工车间内，电动石碾加足马力转动。宜昌市级非物质文化遗产端午制艾技艺代表性传承人宋发龙，捧起一撮刚加工完成的金艾绒，只见其色泽金黄、绒丝如絮。 坐落于三峡西陵峡畔的九畹溪，相传是屈原开坛讲学、植兰修性之地。当地独特的气候条件与肥沃土壤，孕育出叶厚绒密、品质
+4月15日金融一线消息，国新办今日上午举行国务院政策例行吹风会，国家医保局医药价格和招标采购司司长王小宁表示，国家医保局始终旗帜鲜明支持医药创新，连续8年开展了医保目录谈判，累计将199种创新药纳入到医保报销范围。医保基金战略性购买为促进创新药发展发挥了关键性作用，截至今年2月份，医保基金累计为协议期内谈判药品支出5048亿元，带动销售7400亿元，惠及11.7亿人次。这是对创
 
 ## 正文
 
-中新网湖北秭归6月11日电 题：湖北秭归：“端午艾”变身“致富宝” 作者 李彩云 郭晓莹 临近端午，湖北省秭归县九畹溪村屈艾加工车间内，电动石碾加足马力转动。
+4月15日金融一线消息，国新办今日上午举行国务院政策例行吹风会，国家医保局医药价格和招标采购司司长王小宁表示，国家医保局始终旗帜鲜明支持医药创新，连续8年开展了医保目录谈判，累计将199种创新药纳入到医保报销范围。
 
-宜昌市级非物质文化遗产端午制艾技艺代表性传承人宋发龙，捧起一撮刚加工完成的金艾绒，只见其色泽金黄、绒丝如絮。
+医保基金战略性购买为促进创新药发展发挥了关键性作用，截至今年2月份，医保基金累计为协议期内谈判药品支出5048亿元，带动销售7400亿元，惠及11.7亿人次。
 
-坐落于三峡西陵峡畔的九畹溪，相传是屈原开坛讲学、植兰修性之地。
+这是对创新药真金白银的支持。
 
-当地独特的气候条件与肥沃土壤，孕育出叶厚绒密、品质优良的艾草。
+同时，我们增设商保创新药目录，引入了多元化的支付机制，推动医药产业走上重创新、强研发的发展道路。
 
-挂艾沐浴、缝制香包等端午民俗在此代代相传、绵延至今。
+可以说，这几年不管是从医药行业的利润水平，还是研发投入，都保持了高速增长，医药工业利润总额年均增长11.3%，研发投入年均增长23%，医药创新已经成为新质生产力加快发展的前沿赛道。
 
-宋发龙自幼跟随长辈研习制艾技艺，长大后扎根家乡深耕艾草特色产业。
-
-他盘活村内闲置资源，优先流转脱贫户土地建成标准化艾草基地，开办制艾工坊，重点吸纳留守老人、妇女就近就业，将寻常乡间艾草，打造成传承楚文化、带动村民增收的特色富民产业。
-
-加工车间内，45岁的王京琼正熟练卷制艾条，动作高效利落。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-29 22:52 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 22:50 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-29 22:37 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 22:57 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-29 22:57 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 22:33 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-29 22:57 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 22:40 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 22:45 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 22:30 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-29 22:32 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 22:33 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-29 22:52 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 22:39 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 22:35 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 22:40 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 22:37 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-29 22:43 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 22:48 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-29 23:04 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 22:36 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-29 23:02 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 23:03 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 22:59 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 22:51 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 22:46 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-29 22:43 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:40 - [毒液2](http://www.share.kurohicncr.top/Article/details/43125.shtml)
-- 2026-06-29 22:39 - [一生一世](http://www.share.minike.top/Article/details/18937793.shtml)
-- 2026-06-29 22:48 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/231291065636.shtml)
-- 2026-06-29 22:59 - [世界杯](http://www.blog.kurohicncr.top/Article/details/495722100.shtml)
-- 2026-06-29 22:59 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/2424598.shtml)
-- 2026-06-29 22:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/928559.shtml)
-- 2026-06-29 22:49 - [炽夏](https://www.share.minike.top/Article/details/942584.shtml)
-- 2026-06-29 22:45 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/53129.shtml)
-- 2026-06-29 22:45 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/47900.shtml)
-- 2026-06-29 22:46 - [千与千寻](https://www.blog.minike.top/Article/details/87249691.shtml)
-- 2026-06-29 22:35 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/8651366910.shtml)
-- 2026-06-29 22:50 - [一生一世](https://www.share.minike.top/Article/details/918121.shtml)
-- 2026-06-29 22:41 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/78307544117.shtml)
-- 2026-06-29 22:53 - [佛得角队长门德斯被控强奸](https://www.share.minike.top/Article/details/721285.shtml)
-- 2026-06-29 22:58 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/97284187087.shtml)
+- 2026-06-29 22:53 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/678771.shtml)
+- 2026-06-29 22:36 - [刘宇宁 好听](https://www.blog.minike.top/Article/details/516537782.shtml)
+- 2026-06-29 22:56 - [杨德龙：创新药迎来新的发展机遇](http://www.blog.kurohicncr.top/Article/details/975254064552.shtml)
+- 2026-06-29 23:03 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/42292.shtml)
+- 2026-06-29 22:53 - [第一炉香](http://www.blog.minike.top/Article/details/8100644.shtml)
+- 2026-06-29 23:02 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/60359085357.shtml)
+- 2026-06-29 22:52 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.blog.minike.top/Article/details/624985.shtml)
+- 2026-06-29 23:02 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/48724545295.shtml)
+- 2026-06-29 22:55 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/04020153442.shtml)
+- 2026-06-29 22:39 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/135429602.shtml)
+- 2026-06-29 22:48 - [福建海警位金门附近海域常态执法巡查](https://www.blog.minike.top/Article/details/359476399420.shtml)
+- 2026-06-29 22:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/301642137414.shtml)
+- 2026-06-29 22:43 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/58369.shtml)
+- 2026-06-29 22:42 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/544394125072.shtml)
+- 2026-06-29 22:40 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/6942535860.shtml)

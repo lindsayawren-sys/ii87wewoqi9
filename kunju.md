@@ -1,58 +1,60 @@
-# 彩虹无线一修大模型正式首发
+# 中国上调银行境外贷款杠杆率
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-6月9日，由彩虹无线(北京)新技术有限公司(以下简称“彩虹无线”)与中关村科学城城市大脑股份有限公司(以下简称“中科大脑”)联合主办的“‘数智赋能·智修无疆’IFlink&一修大模型产品发布会”在北京海淀永山宅院成功举办。行业大咖、产业链合作伙伴及主流媒体代表百余人齐聚，紧扣汽车产业智能化、新能源化、全球化发展趋势，见证双方深度战略合作落地，IF-Link mini智能栈与一修
+中新社北京4月15日电 中国人民银行、中国国家外汇管理局15日发布通知，将境内外商独资银行、境内中外合资银行、外国银行境内分行的境外贷款杠杆率由0.5上调至1.5，将进出口银行的境外贷款杠杆率由3上调至3.5。如计算的境外贷款余额上限小于100亿元(人民币，下同)，核定该银行境外贷款余额上限为100亿元。中国央行称，近年来银行境外贷款业务稳妥有序开展，境外贷款规模稳步增长，人民
 
 ## 正文
 
-6月9日，由彩虹无线(北京)新技术有限公司(以下简称“彩虹无线”)与中关村科学城城市大脑股份有限公司(以下简称“中科大脑”)联合主办的“‘数智赋能·智修无疆’IFlink&一修大模型产品发布会”在北京海淀永山宅院成功举办。
+中新社北京4月15日电 中国人民银行、中国国家外汇管理局15日发布通知，将境内外商独资银行、境内中外合资银行、外国银行境内分行的境外贷款杠杆率由0.5上调至1.5，将进出口银行的境外贷款杠杆率由3上调至3.5。
 
-行业大咖、产业链合作伙伴及主流媒体代表百余人齐聚，紧扣汽车产业智能化、新能源化、全球化发展趋势，见证双方深度战略合作落地，IF-Link mini智能栈与一修大模型重磅首发。
+如计算的境外贷款余额上限小于100亿元(人民币，下同)，核定该银行境外贷款余额上限为100亿元。
 
-此次中科大脑与彩虹无线强强联手，以AI技术破局，助力汽车后市场从“经验驱动”转向“数据驱动”，推动中国汽车产业服务全球化布局。
+中国央行称，近年来银行境外贷款业务稳妥有序开展，境外贷款规模稳步增长，人民币贷款占比不断提升，对支持“走出去”企业境外经营等发挥了积极作用。
 
-软硬一体，AI+汽车售后新方向 在数字经济时代，产业融合、软硬协同是创新的核心。
+同时，部分银行围绕贷款余额上限、用途管理等方面提出了一些问题和诉求。
 
-中科大脑CEO李浩浩在致辞中指出，双方融合“一修大模型”的算法优势与IFlink硬件算力优势，精准解决汽车智能诊断、运维、维修等行业痛点，推动 AI技术、硬件设备与汽车场景深度融合。
+因此央行决定调整优化相关规定。
 
-彩虹无线董事长黄亮结合行业现状指出，当下汽车产业正迎来新能源渗透加速、智能化全面升级、全球化深度出海三重变革，后市场已然成为车企角逐的新主战场。
+在国家金融与发展实验室特聘高级研究员庞溟看来，此时调整，是因为当前人民币汇率在双向波动中显现强势，适度放宽境外贷款杠杆率，有助于引导资金有序流出，平抑汇率升值压力，维持外汇市场供求平衡。
 
-通用大模型无法适配垂直产业精细化需求，专属汽车垂直大模型才是破解困局的关键。
+更重要的是，这与中国当前新质生产力“出海”的节奏高度契合。
 
-基于此，双方未来将赋能海内外汽车售后市场，持续深化数据、模型领域探索，秉持开放共赢理念，联合全产业链伙伴，推动汽车售后服务向智能化、精细化、全球化进阶。
+上调杠杆率，实质上是为企业全球化配置金融资源腾出更多物理空间。
 
 ## 相关推荐
 
-- 2026-06-29 22:52 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-29 22:37 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 22:53 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-29 22:48 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 22:30 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 22:38 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-29 22:39 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-29 22:42 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 22:56 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 22:56 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-29 22:42 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-29 22:42 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-29 22:59 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-29 22:46 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 23:03 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-29 22:41 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 23:02 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 22:52 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-29 22:36 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 22:39 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-29 22:36 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 22:45 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 23:02 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-29 22:45 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 23:01 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-29 22:58 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:50 - [炽夏](https://www.share.kurohicncr.top/Article/details/0382604.shtml)
-- 2026-06-29 22:56 - [小娘惹](https://www.share.minike.top/Article/details/1376646.shtml)
-- 2026-06-29 22:58 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/02102569.shtml)
-- 2026-06-29 22:32 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/97102.shtml)
-- 2026-06-29 22:57 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/049135481710.shtml)
-- 2026-06-29 22:58 - [上世纪90年代玩具成新宠](http://www.share.minike.top/Article/details/811926.shtml)
-- 2026-06-29 22:51 - [谁在推动“成都造”影视持续出圈](http://www.share.kurohicncr.top/Article/details/46488.shtml)
-- 2026-06-29 22:58 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/326789010819.shtml)
-- 2026-06-29 22:40 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/92419.shtml)
-- 2026-06-29 22:54 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.minike.top/Article/details/84609.shtml)
-- 2026-06-29 22:58 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/7296036338.shtml)
-- 2026-06-29 22:42 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/54234880215.shtml)
-- 2026-06-29 22:32 - [金刚川](https://www.share.kurohicncr.top/Article/details/36189422150.shtml)
-- 2026-06-29 22:51 - [广东水利防汛Ⅳ级应急响应结束](https://www.share.minike.top/Article/details/51438087675.shtml)
-- 2026-06-29 22:49 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/94103196535.shtml)
+- 2026-06-29 22:54 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/42639958936.shtml)
+- 2026-06-29 22:45 - [美国一牛仔表演发生事故](http://www.share.minike.top/Article/details/5333218184.shtml)
+- 2026-06-29 22:55 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/84470882.shtml)
+- 2026-06-29 22:54 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/286461651897.shtml)
+- 2026-06-29 22:47 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/380572644166.shtml)
+- 2026-06-29 22:46 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/173679442.shtml)
+- 2026-06-29 22:56 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/85928196.shtml)
+- 2026-06-29 22:44 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/43865711.shtml)
+- 2026-06-29 22:52 - [炽夏](http://www.blog.minike.top/Article/details/137611872621.shtml)
+- 2026-06-29 23:05 - [穆祉丞东方风云榜红毯](http://www.blog.minike.top/Article/details/70875999629.shtml)
+- 2026-06-29 22:38 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/18375384.shtml)
+- 2026-06-29 22:45 - [天道](http://www.blog.minike.top/Article/details/776142583626.shtml)
+- 2026-06-29 22:42 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/610793.shtml)
+- 2026-06-29 22:53 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/491941.shtml)
+- 2026-06-29 22:37 - [啊啊啊](http://www.blog.minike.top/Article/details/458890933402.shtml)

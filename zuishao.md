@@ -1,59 +1,60 @@
-# OpenAI秘密提交IPO申请，AI三巨头竞逐公开市场
+# 大涨日，“落袋为安”！
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-继SpaceX和Anthropic相继启动上市进程后，OpenAI也正式加入了这场史无前例的超级IPO竞逐赛。 当地时间6月8日，OpenAI宣布已向美国证券交易委员会秘密提交S-1招股书草案。该公司在声明中表示，鉴于相关消息可能被媒体提前曝光，因此决定主动对外披露。不过，OpenAI同时强调，目前尚未敲定具体的上市时间表，真正登陆公开市场可能仍需较长的准备周期。 据了解，秘密
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】昨日股票ETF市场净流出资金近110亿元 中国基金报记者 李树超 昨日A股三大指数直线暴力拉升，沪指重回4000点，创业板指创阶段新高。其中，算力产业链集体走强，存储芯片板块延续强势，光伏板块下挫。 股市大涨中，部分资金选择“落袋为安”，昨日股票ETF市场净流出资金接近110亿元。
 
 ## 正文
 
-继SpaceX和Anthropic相继启动上市进程后，OpenAI也正式加入了这场史无前例的超级IPO竞逐赛。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-当地时间6月8日，OpenAI宣布已向美国证券交易委员会秘密提交S-1招股书草案。
+来源：中国基金报 【导读】昨日股票ETF市场净流出资金近110亿元 中国基金报记者 李树超 昨日A股三大指数直线暴力拉升，沪指重回4000点，创业板指创阶段新高。
 
-该公司在声明中表示，鉴于相关消息可能被媒体提前曝光，因此决定主动对外披露。
+其中，算力产业链集体走强，存储芯片板块延续强势，光伏板块下挫。
 
-不过，OpenAI同时强调，目前尚未敲定具体的上市时间表，真正登陆公开市场可能仍需较长的准备周期。
+股市大涨中，部分资金选择“落袋为安”，昨日股票ETF市场净流出资金接近110亿元。
 
-据了解，秘密提交S-1是美国科技公司IPO的常规做法。
+其中，跟踪中证500指数的宽基ETF净流出居前；跟踪港股通创新药指数的ETF、策略风格ETF等净流入较多。
 
-该流程允许公司在财务信息公开披露前，先与监管机构完成沟通和修订工作。
+昨日股票ETF市场净流出近110亿元 Wind数据显示，截至4月14日，全市场1382只股票ETF（含跨境ETF）总规模达3.88万亿元。
 
-对大多数投资者而言，这意味着在正式IPO路演启动前，无法看到OpenAI的具体财务数据。
+在股市上涨行情中，股票ETF市场净流出资金达109.29亿元。
 
-OpenAI递表与其头号竞争对手Anthropic仅相差一周。
+从大类型来看，昨日债券ETF与策略风格ETF净流入居前，分别达23.63亿元与11.66亿元；规模变化方面，受益于股市普涨，行业主题ETF规模增加144.15亿元。
 
 ## 相关推荐
 
-- 2026-06-29 22:54 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 22:59 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-29 22:41 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 22:41 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-29 22:32 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-29 22:42 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-29 22:48 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 22:56 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-29 22:53 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-29 22:32 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-29 22:30 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-29 22:47 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-29 22:40 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 22:39 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 22:36 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-29 23:00 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 22:44 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-29 22:46 - [记者乘坐无人驾驶汽车去采访](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 22:56 - [委内瑞拉发生余震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 22:41 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 22:56 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 22:44 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 22:38 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 22:59 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 22:57 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-29 22:48 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 22:39 - [锐评T1零封KC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:58 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.minike.top/Article/details/12494.shtml)
-- 2026-06-29 22:38 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/204426.shtml)
-- 2026-06-29 22:33 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/018780524.shtml)
-- 2026-06-29 22:43 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/1304364160.shtml)
-- 2026-06-29 22:49 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/14416213941.shtml)
-- 2026-06-29 22:34 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/15918579217.shtml)
-- 2026-06-29 22:42 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/28788065700.shtml)
-- 2026-06-29 22:40 - [韩国800万亿韩元押注半导体](https://www.share.kurohicncr.top/Article/details/761610.shtml)
-- 2026-06-29 22:51 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/33441872815.shtml)
-- 2026-06-29 22:50 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/8076274.shtml)
-- 2026-06-29 22:52 - [斗破苍穹](https://www.blog.minike.top/Article/details/0932574.shtml)
-- 2026-06-29 22:57 - [片寄凉太胖了好多](http://www.blog.minike.top/Article/details/7294126.shtml)
-- 2026-06-29 22:49 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/9276498232.shtml)
-- 2026-06-29 22:42 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/9748419.shtml)
-- 2026-06-29 22:58 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/631450280836.shtml)
+- 2026-06-29 23:03 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/75216993.shtml)
+- 2026-06-29 22:50 - [足球“出口导向”造就佛得角奇迹](http://www.blog.minike.top/Article/details/12197.shtml)
+- 2026-06-29 22:40 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/716018.shtml)
+- 2026-06-29 22:38 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/28886.shtml)
+- 2026-06-29 22:45 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/1908206783.shtml)
+- 2026-06-29 23:03 - [速度与激情9](http://www.blog.minike.top/Article/details/66682875.shtml)
+- 2026-06-29 22:39 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/6703851445.shtml)
+- 2026-06-29 23:03 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/594661682885.shtml)
+- 2026-06-29 22:48 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/1984741377.shtml)
+- 2026-06-29 22:44 - [五只军犬招募领养人](http://www.share.kurohicncr.top/Article/details/842694279826.shtml)
+- 2026-06-29 22:53 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/834557337451.shtml)
+- 2026-06-29 22:57 - [欧洲缘何成为变暖最快的大洲](https://www.blog.kurohicncr.top/Article/details/061454398.shtml)
+- 2026-06-29 22:47 - [律师解读滚石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/64388911839.shtml)
+- 2026-06-29 22:56 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/12511.shtml)
+- 2026-06-29 22:42 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/14009649.shtml)

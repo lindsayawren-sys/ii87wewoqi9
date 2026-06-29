@@ -1,57 +1,58 @@
-# 亚马逊获得花旗牵头银团总计175亿美元贷款额度
+# 中外游客云南同庆泼水节
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-亚马逊公司在监管文件中披露，已与由花旗集团牵头的银团签署了一项总额175亿美元的贷款协议。 根据周三提交的监管文件，贷款方同意提供这笔延迟提取定期贷款（DDTL），额度将保留至今年9月底。亚马逊每次动用信贷额度借款时，均需在借款之日起三年内偿还。 该贷款的利率将在有担保隔夜融资利率（SOFR）的基础上，上浮0.625至0.875个百分点，具体幅度取决于亚马逊的信用评级。 参与此
+中新社云南西双版纳4月15日电 (韩帅南 陆希成)傣族、布朗族、德昂族等各族民众15日在云南省西双版纳傣族自治州景洪市泼水广场上，与来自中国各地及泰国、老挝、美国等国家和地区的游客，端起水盆、举起水枪，互送祝福，尽情享受“泼天的欢乐”。 泼水节源于古代先民对水的崇拜与对丰收的祈愿，在中国傣族、德昂族、阿昌族等众多民族中传承千年，泰国、缅甸、老挝等国也有相似习俗。 “泰国的泼水节
 
 ## 正文
 
-亚马逊公司在监管文件中披露，已与由花旗集团牵头的银团签署了一项总额175亿美元的贷款协议。
+中新社云南西双版纳4月15日电 (韩帅南 陆希成)傣族、布朗族、德昂族等各族民众15日在云南省西双版纳傣族自治州景洪市泼水广场上，与来自中国各地及泰国、老挝、美国等国家和地区的游客，端起水盆、举起水枪，互送祝福，尽情享受“泼天的欢乐”。
 
-根据周三提交的监管文件，贷款方同意提供这笔延迟提取定期贷款（DDTL），额度将保留至今年9月底。
+泼水节源于古代先民对水的崇拜与对丰收的祈愿，在中国傣族、德昂族、阿昌族等众多民族中传承千年，泰国、缅甸、老挝等国也有相似习俗。
 
-亚马逊每次动用信贷额度借款时，均需在借款之日起三年内偿还。
+“泰国的泼水节叫‘宋干节’，我们也以泼水狂欢、露天音乐会等形式庆祝。
 
-该贷款的利率将在有担保隔夜融资利率（SOFR）的基础上，上浮0.625至0.875个百分点，具体幅度取决于亚马逊的信用评级。
+”泰国游客何子嘉说，这次看到了傣族舞蹈的柔美、布朗族弹唱的古朴，与动感电音同台，这种传统与现代的碰撞让人震撼，更想深入探索中国文化的多元。
 
-参与此次交易的其他银行包括摩根大通、美国银行、汇丰银行和富国银行。
+台湾游客吴仁珷已在大陆多地体验苗族花山节、壮族“三月三”等活动。
 
-此外，还有十几家银行也参与了此次融资。
+这次，他与27位台湾同胞到云南一起感受泼水节的热情。
 
-当前，各大科技巨头正大举举债加码AI基础设施建设。
+“像泼水节这样的民俗文化活动，恰好给来自两岸乃至世界各地的人们提供了一个走到一起的机会。
 
-亚马逊近期也在海外市场发债，从而利用其他资金渠道。
+”吴仁珷说。
 
 ## 相关推荐
 
-- 2026-06-29 22:56 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 22:38 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-29 22:44 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-29 22:46 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 22:31 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-29 22:50 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-29 22:53 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-29 22:53 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-29 22:56 - [佛得角队长门德斯被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 22:35 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-29 22:52 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 22:57 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 23:05 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 22:49 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 22:51 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 22:37 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 22:41 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 22:42 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 22:37 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 23:05 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 23:04 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 23:05 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-29 22:54 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:57 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/21971.shtml)
-- 2026-06-29 22:58 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/719037298030.shtml)
-- 2026-06-29 22:37 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/228973.shtml)
-- 2026-06-29 22:42 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/963415.shtml)
-- 2026-06-29 22:51 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/723138844260.shtml)
-- 2026-06-29 22:30 - [山东发布山洪灾害气象预警](https://www.blog.kurohicncr.top/Article/details/85092263120.shtml)
-- 2026-06-29 22:41 - [法拉利车主已自行承担修理费近3万](https://www.blog.minike.top/Article/details/00486.shtml)
-- 2026-06-29 22:32 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/76031277430.shtml)
-- 2026-06-29 22:44 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/51892.shtml)
-- 2026-06-29 22:49 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/267388.shtml)
-- 2026-06-29 22:32 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/89667327.shtml)
-- 2026-06-29 22:32 - [上世纪90年代玩具成新宠](http://www.share.minike.top/Article/details/401342471.shtml)
-- 2026-06-29 22:58 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/234164862441.shtml)
-- 2026-06-29 22:44 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/99907.shtml)
-- 2026-06-29 22:45 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/82813166.shtml)
+- 2026-06-29 22:53 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/08996.shtml)
+- 2026-06-29 22:37 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/18886621.shtml)
+- 2026-06-29 22:56 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/55387.shtml)
+- 2026-06-29 23:04 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/4630074.shtml)
+- 2026-06-29 22:39 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/90594.shtml)
+- 2026-06-29 22:43 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/4887430463.shtml)
+- 2026-06-29 22:57 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/403793972191.shtml)
+- 2026-06-29 22:36 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/9776857.shtml)
+- 2026-06-29 22:43 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/21706893452.shtml)
+- 2026-06-29 22:43 - [演员都来上音综的原因](https://www.share.kurohicncr.top/Article/details/90265223351.shtml)
+- 2026-06-29 22:59 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/63492.shtml)
+- 2026-06-29 22:55 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/22435880627.shtml)
+- 2026-06-29 22:40 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/6083992.shtml)
+- 2026-06-29 22:56 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/8766997563.shtml)
+- 2026-06-29 23:05 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/3945751.shtml)

@@ -1,61 +1,56 @@
-# 花旗警告：金价或跌至3500美元
+# Uber确认将投资超100亿美元布局无人驾驶出租车
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-记者丨叶麦穗 编辑丨杨希 曾芳 黄金的下跌速度超过了市场的预期。6月10日早间，现货黄金击穿4200美元关口，最低跌至4172.64美元/盎司，创3月23日以来新低。截至15：20，现货黄金日内下跌1.4%报4199.57美元/盎司，今年的涨幅悉数抹平，目前累计跌超2%。 国内金饰价格也在跳水。6月10日，国内首饰金已经跌破1300元/克，较1月29日的阶段高点1713元/克，
+优步（Uber）正彻底告别其标志性的“轻资产”零工经济模式。据英国某媒体4月15日报道，这家网约车巨头已承诺投入超过100亿美元，用于大规模采购自动驾驶汽车并收购相关开发商的股权，旨在应对无人驾驶出租车带来的行业颠覆。 投资构成与市场布局 报道指出，这笔巨额投资将主要用于两个方向：在未来几年内投入超过25亿美元用于收购自动驾驶技术公司的股权，并支出超过75亿美元用于组建和扩充无
 
 ## 正文
 
-记者丨叶麦穗 编辑丨杨希 曾芳 黄金的下跌速度超过了市场的预期。
+优步（Uber）正彻底告别其标志性的“轻资产”零工经济模式。
 
-6月10日早间，现货黄金击穿4200美元关口，最低跌至4172.64美元/盎司，创3月23日以来新低。
+据英国某媒体4月15日报道，这家网约车巨头已承诺投入超过100亿美元，用于大规模采购自动驾驶汽车并收购相关开发商的股权，旨在应对无人驾驶出租车带来的行业颠覆。
 
-截至15：20，现货黄金日内下跌1.4%报4199.57美元/盎司，今年的涨幅悉数抹平，目前累计跌超2%。
+投资构成与市场布局 报道指出，这笔巨额投资将主要用于两个方向：在未来几年内投入超过25亿美元用于收购自动驾驶技术公司的股权，并支出超过75亿美元用于组建和扩充无人驾驶出租车车队。
 
-国内金饰价格也在跳水。
+具体的合作取决于合作伙伴能否达到特定的技术部署里程碑。
 
-6月10日，国内首饰金已经跌破1300元/克，较1月29日的阶段高点1713元/克，跌幅超过400元/克。
+优步将自己定位为多家无人驾驶出租车运营商的市场平台，目前已与百度、Rivian以及Lucid等多家行业关键企业建立了合作关系。
 
-雪上加霜的是，黄金进入下降通道之后，各路看空“小作文”纷至沓来。
+优步计划到2028年，在至少28个城市推出无人驾驶出租车服务。
 
-近日，花旗将黄金三个月目标价从每盎司4300美元下调至4000美元，他们警告称，若霍尔木兹海峡封锁状态延续至夏季末，黄金购买量的萎缩可能将金价推低至每盎司3500美元。
+战略背景与市场反应 此次战略大转弯的背景是，随着人工智能技术的突破，投资者长期以来担心特斯拉、Waymo等竞争对手可能通过无人驾驶技术直接取代优步的中介地位。
 
-这已经是短短一个月内，花旗二次更改对黄金价格的预测。
+值得注意的是，优步曾在2020年出售了自己的自动驾驶研发部门以专注于盈利，而此次超过100亿美元的投入几乎是当年出售所得的四倍。
 
 ## 相关推荐
 
-- 2026-06-29 22:49 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-29 22:34 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-29 22:48 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-29 22:33 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 22:49 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-29 22:44 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-29 22:35 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-29 22:44 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 22:37 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 22:35 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 22:50 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 22:54 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-29 22:34 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-29 22:37 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-29 22:45 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 22:51 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-29 22:51 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-29 22:52 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 23:00 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 22:58 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 22:48 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 22:54 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-29 22:49 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-29 22:36 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 23:05 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:39 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/547331.shtml)
-- 2026-06-29 22:39 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/641881708081.shtml)
-- 2026-06-29 22:32 - [请回答王牌2019](http://www.share.minike.top/Article/details/51754993.shtml)
-- 2026-06-29 22:42 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/8476729.shtml)
-- 2026-06-29 22:50 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/96091.shtml)
-- 2026-06-29 22:31 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/791245104.shtml)
-- 2026-06-29 22:35 - [国常会听取人工智能发展情况汇报](https://www.share.kurohicncr.top/Article/details/38220168166.shtml)
-- 2026-06-29 22:44 - [金牌调解](http://www.share.kurohicncr.top/Article/details/375343.shtml)
-- 2026-06-29 22:44 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/36456717.shtml)
-- 2026-06-29 22:34 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/66934.shtml)
-- 2026-06-29 22:49 - [穆祉丞东方风云榜红毯](https://www.share.minike.top/Article/details/23791733178.shtml)
-- 2026-06-29 22:42 - [《贺子珍》](http://www.share.minike.top/Article/details/6935738.shtml)
-- 2026-06-29 22:40 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/89003017.shtml)
-- 2026-06-29 22:40 - [法媒点赞分享中国小区降温方案](http://www.share.kurohicncr.top/Article/details/744814.shtml)
-- 2026-06-29 22:44 - [刘宇宁 好听](http://www.share.minike.top/Article/details/589170950.shtml)
+- 2026-06-29 22:55 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/0349535215.shtml)
+- 2026-06-29 22:42 - [法媒点赞分享中国小区降温方案](https://www.share.kurohicncr.top/Article/details/69872474.shtml)
+- 2026-06-29 22:49 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/90520585.shtml)
+- 2026-06-29 22:48 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.minike.top/Article/details/419703601027.shtml)
+- 2026-06-29 22:41 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/300305.shtml)
+- 2026-06-29 22:56 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/9222610.shtml)
+- 2026-06-29 23:04 - [极限挑战第一季](https://www.share.minike.top/Article/details/33898057354.shtml)
+- 2026-06-29 23:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/047612841.shtml)
+- 2026-06-29 22:56 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/57067733202.shtml)
+- 2026-06-29 22:45 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/05068.shtml)
+- 2026-06-29 23:01 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/838403699.shtml)
+- 2026-06-29 22:42 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/06873985501.shtml)
+- 2026-06-29 23:03 - [斗破苍穹](https://www.share.minike.top/Article/details/4696301780.shtml)
+- 2026-06-29 22:53 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/130664531.shtml)
+- 2026-06-29 22:55 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/888751968.shtml)

@@ -1,58 +1,57 @@
-# “光影刻印 交响之巅”：“扎西德勒”第六届西藏网络影像节在拉萨颁奖
+# Credo签署13亿美元光学交易，延续昨日涨势
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-中新网拉萨6月10日电(记者 赵朗)2026年“扎西德勒”第六届西藏网络影像节颁奖典礼10日在拉萨举行。颁奖典礼以“光影刻印交响之巅”为主题，来自海内外的优秀创作者、专家学者及媒体代表齐聚一堂，分享用影像记录伟大时代、让西藏更好走向世界的动人故事，共同见证这一记录时代变迁、彰显影像力量的行业盛事。 本届网络影像节由中央网信办网络传播局、西藏自治区党委宣传部指导，西藏自治区党委网
+Credo Technology股价周二尾盘大涨近20%，此前该公司宣布以7.5亿美元现金加约92万股Credo普通股收购以色列硅光子开发商DustPhotonics，并可能根据财务里程碑的实现情况额外支付至多约321万股的对价。交易总价值最高可达13亿美元。该股昨日已因杰富瑞以175美元目标价首次覆盖并给予“买入”评级而收涨12.35%。 该交易的战略逻辑在于垂直整合。Dus
 
 ## 正文
 
-中新网拉萨6月10日电(记者 赵朗)2026年“扎西德勒”第六届西藏网络影像节颁奖典礼10日在拉萨举行。
+Credo Technology股价周二尾盘大涨近20%，此前该公司宣布以7.5亿美元现金加约92万股Credo普通股收购以色列硅光子开发商DustPhotonics，并可能根据财务里程碑的实现情况额外支付至多约321万股的对价。
 
-颁奖典礼以“光影刻印交响之巅”为主题，来自海内外的优秀创作者、专家学者及媒体代表齐聚一堂，分享用影像记录伟大时代、让西藏更好走向世界的动人故事，共同见证这一记录时代变迁、彰显影像力量的行业盛事。
+交易总价值最高可达13亿美元。
 
-本届网络影像节由中央网信办网络传播局、西藏自治区党委宣传部指导，西藏自治区党委网信办主办。
+该股昨日已因杰富瑞以175美元目标价首次覆盖并给予“买入”评级而收涨12.35%。
 
-自2025年12月启动以来，广大影像爱好者用镜头聚焦雪域高原盛世，用光影展现人民群众幸福瞬间，共收到海内外投稿作品10.2万余件。
+该交易的战略逻辑在于垂直整合。
 
-根据本届活动作品征集要求及专家评审，秉持“公平、公正”原则，严格恪守专业标准，经过层层遴选，最终99件作品脱颖而出，5家单位获最佳组织奖。
+DustPhotonics开发的硅光子光电集成电路覆盖400G、800G和1.6G，并拥有3.2T路线图，已部署于超大规模AI收发器中。
 
-获奖作品内容涵盖“和润、共兴、绿韵、固边”四大主题。
+将这项技术纳入内部将消除Credo的ZeroFlap Optics平台对外部供应的依赖——这正是杰富瑞周一指出的超过3亿美元机遇所在的产品线。
 
-这些作品紧扣时代脉搏，扎根现实生活，以镜头捕捉雪域神韵，用旋律讲述西藏故事，以多元视角展现西藏的发展之美、和谐之美、生态之美、家园之美。
+Credo现在预计，2027财年合并后的光学业务收入将超过5亿美元，远高于此前市场预期。
 
-据悉，“扎西德勒”西藏网络影像节自2020年正式启动以来，历经六届，旨在鼓励广大摄影工作者、爱好者用镜头捕捉时代百态、用光影讲述西藏故事，持续推出有温度、有深度、有力量的影像作品。
+管理层预计该交易将在2027财年提升非GAAP每股收益。
 
 ## 相关推荐
 
-- 2026-06-29 22:49 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 22:39 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-29 22:48 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 22:35 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 22:46 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 22:58 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-29 22:51 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 22:39 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-29 22:35 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 22:38 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 22:31 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-29 22:53 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 22:59 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 22:46 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-29 22:41 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 22:53 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-29 22:45 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-29 22:57 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 22:49 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 22:38 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 23:05 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 22:37 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 22:44 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:53 - [美以这对亲密盟友要掰了吗](http://www.share.kurohicncr.top/Article/details/984646428.shtml)
-- 2026-06-29 22:51 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/031354.shtml)
-- 2026-06-29 22:41 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/159049.shtml)
-- 2026-06-29 22:32 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/8426931044.shtml)
-- 2026-06-29 22:47 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/6476534445.shtml)
-- 2026-06-29 22:44 - [MG总经理直播被冲](https://www.blog.minike.top/Article/details/88092993.shtml)
-- 2026-06-29 22:36 - [MG总经理直播被冲](http://www.share.minike.top/Article/details/00527062.shtml)
-- 2026-06-29 22:45 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/6630539097.shtml)
-- 2026-06-29 22:43 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/354970.shtml)
-- 2026-06-29 22:42 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/1954916.shtml)
-- 2026-06-29 22:52 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/927531025689.shtml)
-- 2026-06-29 22:43 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/8718088.shtml)
-- 2026-06-29 22:30 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/866732850457.shtml)
-- 2026-06-29 22:49 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/72967.shtml)
-- 2026-06-29 22:54 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/722959273.shtml)
+- 2026-06-29 22:40 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/388281401571.shtml)
+- 2026-06-29 22:55 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/865961.shtml)
+- 2026-06-29 22:44 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/475004158.shtml)
+- 2026-06-29 22:45 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/703038204338.shtml)
+- 2026-06-29 22:42 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/8234606.shtml)
+- 2026-06-29 22:56 - [记者乘坐无人驾驶汽车去采访](http://www.share.minike.top/Article/details/1504222634.shtml)
+- 2026-06-29 22:40 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/77401391.shtml)
+- 2026-06-29 23:03 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/67319632395.shtml)
+- 2026-06-29 22:57 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/75293283082.shtml)
+- 2026-06-29 22:37 - [王鸿薇要求删陆委会百余万特别费](https://www.blog.kurohicncr.top/Article/details/97249005.shtml)
+- 2026-06-29 23:00 - [哈兰德吃饭被镜中自己吓到](https://www.blog.minike.top/Article/details/59633.shtml)
+- 2026-06-29 23:01 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/3672799.shtml)
+- 2026-06-29 22:57 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/61006347074.shtml)
+- 2026-06-29 22:48 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/000079.shtml)
+- 2026-06-29 22:46 - [明星大侦探第一季](https://www.share.minike.top/Article/details/377465668569.shtml)

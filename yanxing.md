@@ -1,56 +1,59 @@
-# 茅台总经理王莉复盘茅台年轻化：酱香拿铁、茅台巧克力等产品“对品牌不是加持”
+# 高盛首申比特币溢价收益ETF 从持币大户迈向主动管理加密策略新阶段
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 专题：贵州茅台2025年度股东大会 6月11日，贵州茅台2025年度股东会在仁怀市茅台镇茅台会议中心召开。在股东提问环节，有股东建议茅台可考虑与泡泡玛特等潮牌企业在食品烘焙品类开展跨界合作，利用茅台独特的酱香风味优势，进一步拓宽消费群体。 对此，贵州茅台总经理王莉回应称，茅台在品牌联营方面将“非常谨慎”，并回顾了此前冰淇
+文章来源：智通财经 据美国证券交易委员会（SEC）最新披露的监管文件显示，高盛（GS.US）已于4月14日正式提交了名为“高盛比特币溢价收益ETF”（Goldman Sachs Bitcoin Premium Income ETF）的注册申请。这是该投行历史上首次申请以比特币为核心资产的自主品牌ETF产品，标志着高盛在数字资产领域的竞争策略已从单纯的经纪业务和资产持有，升级为主
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 专题：贵州茅台2025年度股东大会 6月11日，贵州茅台2025年度股东会在仁怀市茅台镇茅台会议中心召开。
+文章来源：智通财经 据美国证券交易委员会（SEC）最新披露的监管文件显示，高盛（GS.US）已于4月14日正式提交了名为“高盛比特币溢价收益ETF”（Goldman Sachs Bitcoin Premium Income ETF）的注册申请。
 
-在股东提问环节，有股东建议茅台可考虑与泡泡玛特等潮牌企业在食品烘焙品类开展跨界合作，利用茅台独特的酱香风味优势，进一步拓宽消费群体。
+这是该投行历史上首次申请以比特币为核心资产的自主品牌ETF产品，标志着高盛在数字资产领域的竞争策略已从单纯的经纪业务和资产持有，升级为主动管理与结构化产品的开发。
 
-对此，贵州茅台总经理王莉回应称，茅台在品牌联营方面将“非常谨慎”，并回顾了此前冰淇淋、酱香拿铁等年轻化尝试的复盘结论。
+与目前市场上主流的纯现货比特币ETF不同，高盛此次布局的产品采用了更为复杂的收益增强策略。
 
-问题的本质是“品牌管理与年轻化”的问题。
+该基金计划将其至少80%的资产投资于提供比特币敞口的工具，主要通过持有市场上现有的现货比特币ETF份额来实现。
 
-她透露，茅台在去年花了非常大的力气构建了公司的资产管理体系，包含四大组成部分：实物资产、无形资产、数字资产和知识。
+其核心投资逻辑在于引入“备兑看涨期权”（Covered Call）策略，即在持有比特币资产的同时，通过卖出对应的看涨期权来赚取期权权利金。
 
-其中，无形资产里茅台最大的资产就是品牌和商誉。
+这种结构设计旨在为投资者提供每月的现金分红，在市场震荡或温和上涨的环境中能够提供优于底层资产的收益，但在比特币价格大幅暴涨时，基金的潜在涨幅将会受到期权的限制。
 
-“我们把无形资产的管理提高到了非常高的维度，包括对它的决策。
+“产品中加入（期权）收益固然不错，但考虑到波动性以及该产品仍将使投资者面临下行风险，这可能很难推销出去，”晨星公司 ETF 分析师布莱恩·阿默尔在谈及高盛产品时说道。
 
-所以以后在品牌的联营上会非常谨慎。
+据了解，该文件未披露这只可能在 6 月底推出的新 ETF 的拟议费用。
 
 ## 相关推荐
 
-- 2026-06-29 22:38 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 22:59 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 22:59 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 22:41 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-29 22:53 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-29 22:44 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-29 22:54 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-29 22:49 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 22:43 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 22:32 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 22:38 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 22:51 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 23:01 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 22:53 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-29 23:00 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 23:05 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 22:59 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 23:05 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 22:46 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 23:00 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 23:01 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 22:51 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-29 22:53 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:55 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/885469861998.shtml)
-- 2026-06-29 22:35 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/08350527355.shtml)
-- 2026-06-29 22:31 - [多人将马路护栏当球网打羽毛球](http://www.share.kurohicncr.top/Article/details/2751105.shtml)
-- 2026-06-29 22:30 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/6267345.shtml)
-- 2026-06-29 22:30 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/1214936585.shtml)
-- 2026-06-29 22:45 - [半导体和股市为何没让韩国人起飞](https://www.share.minike.top/Article/details/2761735130.shtml)
-- 2026-06-29 22:54 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/2948106999.shtml)
-- 2026-06-29 22:33 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/84561421.shtml)
-- 2026-06-29 22:54 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/604279449.shtml)
-- 2026-06-29 22:36 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/92867212876.shtml)
-- 2026-06-29 22:43 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/94360256696.shtml)
-- 2026-06-29 22:37 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/05659847.shtml)
-- 2026-06-29 22:45 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/81561384.shtml)
-- 2026-06-29 22:37 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/39965539.shtml)
-- 2026-06-29 22:55 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/47764950632.shtml)
+- 2026-06-29 22:47 - [蔚来车主罚站](http://www.share.minike.top/Article/details/134313469294.shtml)
+- 2026-06-29 22:38 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/69439922766.shtml)
+- 2026-06-29 22:43 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/2289949506.shtml)
+- 2026-06-29 22:54 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/22234158101.shtml)
+- 2026-06-29 22:51 - [东方风云榜直播](https://www.share.kurohicncr.top/Article/details/724575.shtml)
+- 2026-06-29 22:55 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/498087210.shtml)
+- 2026-06-29 22:41 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/4487371.shtml)
+- 2026-06-29 23:04 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/849941494502.shtml)
+- 2026-06-29 22:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/8312613700.shtml)
+- 2026-06-29 22:51 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/680633181.shtml)
+- 2026-06-29 22:43 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/23634956582.shtml)
+- 2026-06-29 23:04 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/0939496.shtml)
+- 2026-06-29 22:37 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/86662568.shtml)
+- 2026-06-29 22:43 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/839169.shtml)
+- 2026-06-29 22:36 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/192973598.shtml)

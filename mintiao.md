@@ -1,59 +1,60 @@
-# 雀巢巴黎水再爆雷：90万瓶销毁、200万瓶封存、1400万瓶“复检放行”，专家称“欧洲标准严重滞后”
+# 习近平同越共中央总书记、国家主席苏林举行会谈
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-《欧陆志》栏目 郝倩 发日瑞士日内瓦 雀巢旗下的巴黎水（Perrier）丑闻再度升级。 近日，法国广播（Radio France）日前爆出了一组令人不安的数据：自从去年夏天出现多起微生物污染事件之后，巴黎水位于法国韦尔热兹（Vergèze）的工厂已经销毁了90万瓶水，至今仍有200多万瓶被封存，1400多万瓶在复检后批准上市。 这次针对雀巢旗下天然矿泉水的是法国矿泉水品牌Bon
+新华社北京4月15日电(记者冯歆然、董雪)4月15日上午，中共中央总书记、国家主席习近平在人民大会堂同来华进行国事访问的越共中央总书记、国家主席苏林举行会谈。 习近平再次祝贺苏林当选越南国家主席。习近平指出，你当选越南国家主席后第一时间到访中国，体现了你对发展中越关系的高度重视。相信在以苏林同志为首的越共中央坚强领导下，越南必将坚定走好社会主义道路，朝着建党建国“两个一百年”奋
 
 ## 正文
 
-《欧陆志》栏目 郝倩 发日瑞士日内瓦 雀巢旗下的巴黎水（Perrier）丑闻再度升级。
+新华社北京4月15日电(记者冯歆然、董雪)4月15日上午，中共中央总书记、国家主席习近平在人民大会堂同来华进行国事访问的越共中央总书记、国家主席苏林举行会谈。
 
-近日，法国广播（Radio France）日前爆出了一组令人不安的数据：自从去年夏天出现多起微生物污染事件之后，巴黎水位于法国韦尔热兹（Vergèze）的工厂已经销毁了90万瓶水，至今仍有200多万瓶被封存，1400多万瓶在复检后批准上市。
+习近平再次祝贺苏林当选越南国家主席。
 
-这次针对雀巢旗下天然矿泉水的是法国矿泉水品牌Bonneval。
+习近平指出，你当选越南国家主席后第一时间到访中国，体现了你对发展中越关系的高度重视。
 
-眼下巴黎水舆论风暴的核心有两点：巴黎水引以为豪的水源地是否还能够提供天然安全的饮用水？
+相信在以苏林同志为首的越共中央坚强领导下，越南必将坚定走好社会主义道路，朝着建党建国“两个一百年”奋斗目标砥砺奋进。
 
-假如天然矿泉水需要处理才能安全上市，是否还能被称为“天然矿泉水”？
+无论国际形势如何变化，中方始终将越南作为周边外交优先方向，愿同越方秉持初心、赓续友谊，团结协作、相互支持，继续按照“六个更”总体目标，高质量推进全面战略合作，加快构建更高水平具有战略意义的中越命运共同体，为推动构建人类命运共同体作出更大贡献。
 
-针对持续了两年不休的雀巢巴黎水丑闻，广东省食品安全保障促进会副会长、中国食品产业分析师朱丹蓬对《欧陆志》坦言，过去几十年，全球气候发生了根本性变化，世界性的污染都在加剧，不能用以前的标准来做界定。
+习近平强调，党的领导是社会主义的最本质特征和最大优势。
 
-“整体看来，欧洲这个标准有点严重滞后。
+捍卫社会主义制度和共产党执政地位，是中越两党最大的共同战略利益。
 
-从市场的角度来说，或许可以视作对天然水源矿泉水品牌的不公平。
+双方要保持高度的战略清醒和强大的战略定力，始终坚定道路自信和制度自信，坚持改革不改向、变革不变色。
 
 ## 相关推荐
 
-- 2026-06-29 22:31 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 22:52 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 22:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-29 22:58 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 22:54 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 22:36 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-29 22:39 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-29 22:40 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-29 22:50 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-29 22:42 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 22:31 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 22:59 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-29 22:46 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-29 22:41 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-29 22:47 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-29 22:43 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 22:46 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-29 22:44 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 22:55 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-29 22:38 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 22:49 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-29 23:04 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-29 22:42 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-29 22:42 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-29 22:59 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 23:01 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 22:40 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:39 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/9623113791.shtml)
-- 2026-06-29 22:49 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/599796.shtml)
-- 2026-06-29 22:40 - [DRG官宣选手Akeman离队](https://www.share.kurohicncr.top/Article/details/481476376607.shtml)
-- 2026-06-29 22:56 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/840944141691.shtml)
-- 2026-06-29 22:49 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/9213874.shtml)
-- 2026-06-29 22:34 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/9525569599.shtml)
-- 2026-06-29 22:34 - [上世纪90年代玩具成新宠](http://www.blog.minike.top/Article/details/530421.shtml)
-- 2026-06-29 22:42 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/575979.shtml)
-- 2026-06-29 22:59 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/046965691.shtml)
-- 2026-06-29 22:56 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/580856618374.shtml)
-- 2026-06-29 22:37 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/9143317.shtml)
-- 2026-06-29 22:36 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/443620980496.shtml)
-- 2026-06-29 22:38 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/288476670002.shtml)
-- 2026-06-29 22:52 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/45972361.shtml)
-- 2026-06-29 22:32 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/9246322798.shtml)
+- 2026-06-29 22:56 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/7699047655.shtml)
+- 2026-06-29 22:59 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/16960874662.shtml)
+- 2026-06-29 22:57 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/881344.shtml)
+- 2026-06-29 23:02 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/35754936.shtml)
+- 2026-06-29 23:01 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/6521294.shtml)
+- 2026-06-29 22:53 - [炽夏](https://www.blog.minike.top/Article/details/703382248.shtml)
+- 2026-06-29 23:03 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/3317202992.shtml)
+- 2026-06-29 22:42 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/2003990024.shtml)
+- 2026-06-29 22:51 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/529343385779.shtml)
+- 2026-06-29 22:41 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/83956461.shtml)
+- 2026-06-29 22:52 - [记者乘坐无人驾驶汽车去采访](https://www.share.kurohicncr.top/Article/details/0230821.shtml)
+- 2026-06-29 22:48 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/735435679.shtml)
+- 2026-06-29 22:55 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/224273.shtml)
+- 2026-06-29 22:39 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/19940117.shtml)
+- 2026-06-29 22:40 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/545094122762.shtml)

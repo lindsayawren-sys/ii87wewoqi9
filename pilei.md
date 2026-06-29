@@ -1,56 +1,60 @@
-# 中国埃及学者在杭州开展古都文明对话
+# Lululemon在美被调查！或与不孕不育、癌症等健康风险相关
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-中新社杭州6月10日电 (记者 王逸飞)6月10日是“文明对话国际日”。2026古都文明对话(杭州—开罗)国际学术交流活动杭州场当日在浙江杭州举行，来自中国与埃及的专家学者围绕文明传承发展、城市智慧治理等议题进行深度交流。中国和埃及同为世界文明古国。位于杭州余杭的良渚古城遗址是中国五千多年文明史的实证。埃及首都开罗则全面呈现了古埃及文明的灿烂历史。 “中华文明与古埃及文明，尽管
+红星资本局4月14日消息，据报道，美国得克萨斯州总检察长Ken Paxton当地时间周一称，已对运动休闲品牌露露乐蒙（Lululemon）展开调查，原因是其运动服饰中可能含有“永久性化学物”。 Paxton表示，此次调查将核查露露乐蒙的运动服装是否含有全氟及多氟烷基物质（PFAS）。Paxton指出，最新研究结果与消费者担忧引发质疑：服装中的部分合成材料，是否与内分泌紊乱、不孕
 
 ## 正文
 
-中新社杭州6月10日电 (记者 王逸飞)6月10日是“文明对话国际日”。
+红星资本局4月14日消息，据报道，美国得克萨斯州总检察长Ken Paxton当地时间周一称，已对运动休闲品牌露露乐蒙（Lululemon）展开调查，原因是其运动服饰中可能含有“永久性化学物”。
 
-2026古都文明对话(杭州—开罗)国际学术交流活动杭州场当日在浙江杭州举行，来自中国与埃及的专家学者围绕文明传承发展、城市智慧治理等议题进行深度交流。
+Paxton表示，此次调查将核查露露乐蒙的运动服装是否含有全氟及多氟烷基物质（PFAS）。
 
-中国和埃及同为世界文明古国。
+Paxton指出，最新研究结果与消费者担忧引发质疑：服装中的部分合成材料，是否与内分泌紊乱、不孕不育、癌症及其他健康风险相关。
 
-位于杭州余杭的良渚古城遗址是中国五千多年文明史的实证。
+报道称，得克萨斯州总检察长办公室将对照该州安全标准，核查露露乐蒙的检测流程、限用物质清单及供应链管理措施。
 
-埃及首都开罗则全面呈现了古埃及文明的灿烂历史。
+Paxton在帖文中称：“若露露乐蒙违反了得州法律，必将承担相应责任。
 
-“中华文明与古埃及文明，尽管相隔万里，却在治水营城、玉石崇拜、礼仪制度等方面展现出诸多智慧共鸣。
+” 对此，露露乐蒙一名发言人表示，已知悉此次调查，并将予以配合。
 
-”古都文明对话中方主席，中国传媒大学资深教授、文化发展与传播研究院院长熊澄宇认为，古代文明遗产如今对城市建设、精神传承、可持续发展仍具有启示作用，回望古老的智慧能够帮助当代人建立更长远的历史视野。
+露露乐蒙的发言人回应称：“公司产品中并未使用全氟及多氟烷基物质。
 
-聚焦文化遗产管理，全球未来研究论坛秘书长拉尼娅·阿布勒海尔表示，埃中两国在最大化利用文化遗产、助力可持续发展方面有着共同愿景。
+”该发言人补充称，此前该物质仅少量用于耐用防水类产品，公司已于2023财年完成对其的逐步淘汰。
 
 ## 相关推荐
 
-- 2026-06-29 22:32 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 22:47 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 22:40 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 22:30 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-29 22:57 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-29 22:37 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-29 22:30 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 22:32 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-29 22:49 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 22:40 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 23:02 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-29 23:00 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-29 22:57 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-29 22:45 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 22:41 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 23:00 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-29 23:02 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-29 22:45 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 22:49 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 22:50 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 22:38 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 22:42 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-29 22:45 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-29 22:40 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:59 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/89696529216.shtml)
-- 2026-06-29 22:58 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/797819966226.shtml)
-- 2026-06-29 22:34 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/01558855.shtml)
-- 2026-06-29 22:36 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/993056593.shtml)
-- 2026-06-29 22:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/34031.shtml)
-- 2026-06-29 22:46 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/64168.shtml)
-- 2026-06-29 22:34 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/4925335.shtml)
-- 2026-06-29 22:53 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/291623522181.shtml)
-- 2026-06-29 22:56 - [半导体和股市为何没让韩国人起飞](http://www.share.minike.top/Article/details/22764462882.shtml)
-- 2026-06-29 22:44 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/767339.shtml)
-- 2026-06-29 22:30 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/84796698358.shtml)
-- 2026-06-29 22:34 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/33338665.shtml)
-- 2026-06-29 22:50 - [巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/03611413.shtml)
-- 2026-06-29 22:44 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/06226231.shtml)
-- 2026-06-29 22:59 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/5417309706.shtml)
+- 2026-06-29 22:45 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/89425.shtml)
+- 2026-06-29 23:04 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/2307644.shtml)
+- 2026-06-29 22:37 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/889168462989.shtml)
+- 2026-06-29 22:54 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/9969383264.shtml)
+- 2026-06-29 22:42 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/981745.shtml)
+- 2026-06-29 22:49 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/16632633.shtml)
+- 2026-06-29 22:49 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/36948.shtml)
+- 2026-06-29 22:41 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/996792.shtml)
+- 2026-06-29 22:50 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.kurohicncr.top/Article/details/25689001.shtml)
+- 2026-06-29 22:54 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/8127404.shtml)
+- 2026-06-29 22:50 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/84956.shtml)
+- 2026-06-29 22:43 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.blog.kurohicncr.top/Article/details/06816588.shtml)
+- 2026-06-29 22:47 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/7217370366.shtml)
+- 2026-06-29 22:45 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/5403962805.shtml)
+- 2026-06-29 22:53 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/94148.shtml)

@@ -1,60 +1,61 @@
-# 这类ETF，逆势大涨
+# 国家医保局：进一步明确相关改革措施 切断医和药的利益链
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-01 6月10日，金融、半导体设备、创新药等板块相关ETF逆势上涨，港股通信息技术ETF领跌。 02 6月10日，4只ETF成交额超过百亿元，中韩半导体ETF华泰柏瑞连续两个交易日成交额超百亿元，为全市场溢价率最高的ETF。 03 上一个交易日（6月9日），股票型ETF中，行业ETF“吸金”，两只机器人ETF以及银行ETF华宝、通信ETF华夏有较多资金净流入，净流出金额较多的均
+中新网4月15日电 4月15日，在国新办举行的国务院政策例行吹风会上，国家医保局医药价格和招标采购司司长王小宁表示，长期以来，切断医和药的利益链都是医药领域改革的重要任务。近日，国务院办公厅印发了《关于健全药品价格形成机制的若干意见》(以下简称《意见》)，《意见》进一步明确了相关改革措施，在已有药品零差率、集中带量采购等基础上再出新招。会上，有记者提问，医疗机构是药品价格形成的
 
 ## 正文
 
-01 6月10日，金融、半导体设备、创新药等板块相关ETF逆势上涨，港股通信息技术ETF领跌。
+中新网4月15日电 4月15日，在国新办举行的国务院政策例行吹风会上，国家医保局医药价格和招标采购司司长王小宁表示，长期以来，切断医和药的利益链都是医药领域改革的重要任务。
 
-02 6月10日，4只ETF成交额超过百亿元，中韩半导体ETF华泰柏瑞连续两个交易日成交额超百亿元，为全市场溢价率最高的ETF。
+近日，国务院办公厅印发了《关于健全药品价格形成机制的若干意见》(以下简称《意见》)，《意见》进一步明确了相关改革措施，在已有药品零差率、集中带量采购等基础上再出新招。
 
-03 上一个交易日（6月9日），股票型ETF中，行业ETF“吸金”，两只机器人ETF以及银行ETF华宝、通信ETF华夏有较多资金净流入，净流出金额较多的均是宽基ETF。
+会上，有记者提问，医疗机构是药品价格形成的重要参与者，当前医药领域仍然存在利益输送等问题，影响药品价格合理形成，请问在药品价格方面将采取哪些措施来切断医和药的利益链？
 
-半导体设备ETF上涨 6月10日，A股三大指数调整，金融、半导体设备、创新药等板块相关ETF逆势上涨。
+王小宁介绍，长期以来，切断医和药的利益链都是医药领域改革的重要任务。
 
-其中，半导体设备ETF广发等5只半导体设备ETF涨幅超2%，创新药ETF南方、创新药ETF易方达涨幅居前。
+近年来，各部门认真落实党中央、国务院决策部署，采取了一系列措施，针对性解决医和药的利益绑定问题。
 
-广发基金基金经理吕鑫分析认为，半导体材料设备指数近日反弹的主要原因，是硅片板块涨停带动半导体材料设备板块大涨。
+比如针对公立医疗机构实行药品零差率政策，取得良好成效。
 
-AI算力需求爆发，推动大厂资本开支高增，设备采购进入高峰期，国产厂商扩产有望超预期。
+国家卫健委也连续多年部署，把它作为纠风工作重点。
 
-此外，硅片紧俏倒逼晶圆厂加速扩产，进一步拉动刻蚀、薄膜沉积、清洗等设备需求。
+国家医保局持续推进药品和耗材集中带量采购，很重要一点就是通过“招采合一、量价挂钩”，拓宽企业直接供应医疗机构的渠道，压缩药品耗材通过回扣进入医院的空间，降低药品的流通成本，推动形成风清气正的行业生态。
 
 ## 相关推荐
 
-- 2026-06-29 22:47 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-29 22:31 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-29 22:39 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 22:32 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-29 22:54 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-29 22:30 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 22:37 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-29 22:46 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-29 22:49 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 22:31 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-29 22:37 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-29 22:51 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-29 22:37 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-29 22:55 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 22:45 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 22:45 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 22:40 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 22:41 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 22:44 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 22:57 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 22:52 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 22:50 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-29 22:57 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 22:44 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 22:55 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-29 22:45 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-29 22:53 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-29 22:46 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 22:51 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:30 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/355394352623.shtml)
-- 2026-06-29 22:58 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/216876.shtml)
-- 2026-06-29 22:53 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/2434902.shtml)
-- 2026-06-29 22:46 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/404414908.shtml)
-- 2026-06-29 22:56 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/3660559.shtml)
-- 2026-06-29 22:50 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/1065525.shtml)
-- 2026-06-29 22:38 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/5749256.shtml)
-- 2026-06-29 22:51 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/07722648902.shtml)
-- 2026-06-29 22:31 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/3570159.shtml)
-- 2026-06-29 22:44 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/7241144.shtml)
-- 2026-06-29 22:39 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/59315.shtml)
-- 2026-06-29 22:33 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/994452063.shtml)
-- 2026-06-29 22:37 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/233253033.shtml)
-- 2026-06-29 22:50 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/7300144.shtml)
-- 2026-06-29 22:59 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/43275386.shtml)
+- 2026-06-29 22:36 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/995104577536.shtml)
+- 2026-06-29 23:03 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/056368.shtml)
+- 2026-06-29 22:38 - [沉睡花园](http://www.blog.minike.top/Article/details/630699920483.shtml)
+- 2026-06-29 22:50 - [国际清算银行警告AI投资热潮](http://www.blog.minike.top/Article/details/372560781.shtml)
+- 2026-06-29 23:01 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/35137732.shtml)
+- 2026-06-29 22:52 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/237173.shtml)
+- 2026-06-29 22:38 - [恋与深空7天掉粉超50万](http://www.blog.kurohicncr.top/Article/details/8938059096.shtml)
+- 2026-06-29 22:47 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/2187646466.shtml)
+- 2026-06-29 22:52 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/97967588.shtml)
+- 2026-06-29 22:51 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/113692223.shtml)
+- 2026-06-29 22:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/62693.shtml)
+- 2026-06-29 23:05 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/05652941.shtml)
+- 2026-06-29 22:47 - [律师解读滚石唱片要求万豪酒店道歉](https://www.blog.kurohicncr.top/Article/details/8360064009.shtml)
+- 2026-06-29 22:40 - [湖南姑娘被东北同事带偏口音](https://www.blog.kurohicncr.top/Article/details/364113576418.shtml)
+- 2026-06-29 22:37 - [欧洲缘何成为变暖最快的大洲](http://www.share.minike.top/Article/details/9168953402.shtml)

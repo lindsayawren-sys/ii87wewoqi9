@@ -1,59 +1,58 @@
-# 马斯克旗下xAI遭控非法解雇提出安全疑虑的工程师
+# （乡村行·看振兴）“一地双收”加码农文旅融合 山西忻州激活“金色密码”
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-马斯克旗下xAI公司的一位前工程师提起诉讼表示，自己因对人工智能（AI）对人类构成的风险提出担忧，而被xAI解雇。他目前是一家专门研究AI安全的智库负责人。 Devin Kim在周二向加州州法院提交的诉讼中表示，他试图为聊天机器人Grok的开发设置安全护栏，却因此成为公司高层打压的目标。 “Kim先生多次投诉表示，xAI未能将AI的安全置于优先地位，尤其是在Grok方面，这几乎
+中新网忻州4月15日电 (杨佩佩 陈文强)眼下，山西忻州忻府区已进入春耕备耕的忙碌时节。在忻州古城以南，仅一桥之隔的南关村，近百亩冬油菜田绿意铺展、黄花缀枝。“这是最新培育的强耐寒油菜新品种，也是首次在晋北地区大规模种植并成功越冬。”来自山西农业大学农业基因资源研究中心的胡奋山如是介绍。 2021年，胡奋山便将目光投向了忻定盆地的甜糯玉米耕地利用难题，作为全国甜糯玉米优质产区的
 
 ## 正文
 
-马斯克旗下xAI公司的一位前工程师提起诉讼表示，自己因对人工智能（AI）对人类构成的风险提出担忧，而被xAI解雇。
+中新网忻州4月15日电 (杨佩佩 陈文强)眼下，山西忻州忻府区已进入春耕备耕的忙碌时节。
 
-他目前是一家专门研究AI安全的智库负责人。
+在忻州古城以南，仅一桥之隔的南关村，近百亩冬油菜田绿意铺展、黄花缀枝。
 
-Devin Kim在周二向加州州法院提交的诉讼中表示，他试图为聊天机器人Grok的开发设置安全护栏，却因此成为公司高层打压的目标。
+“这是最新培育的强耐寒油菜新品种，也是首次在晋北地区大规模种植并成功越冬。
 
-“Kim先生多次投诉表示，xAI未能将AI的安全置于优先地位，尤其是在Grok方面，这几乎注定公司将犯下非法行为，从煽动歧视到大规模毁灭性武器的扩散等，”诉状中写道。
+”来自山西农业大学农业基因资源研究中心的胡奋山如是介绍。
 
-根据诉讼内容，Kim是2024年xAI的早期员工之一，入职数月后便被提拔至关键领导职位。
+2021年，胡奋山便将目光投向了忻定盆地的甜糯玉米耕地利用难题，作为全国甜糯玉米优质产区的忻定盆地广泛种植鲜食甜糯玉米，每年8月下旬采摘后由于积温不足和缺少科技成果支撑，导致后期采摘的甜糯玉米田难以利用而休闲过冬，造成光热水资源的巨大浪费。
 
-Kim表示，马斯克期望xAI能实施适当的安全测试和流程。
+“如果能把这段空闲期充分利用起来，既能盘活土地资源，又能提高复种指数和提升土地综合效益，岂不是一举两得。
 
-但诉状中称，Kim的直属上司、xAI联合创始人Jimmy Ba无视这些指示，并拒绝Kim坚持设置安全机制的要求。
+”这个念头，成了胡奋山五年来深耕研究的初心。
 
-Kim表示，去年9月，就在他准备向公司高管层做AI安全报告前夕，突然遭到Ba解雇。
+五年间，胡奋山带领团队不断攻关，结合山西省种质资源库的优势，开展冬油菜籽品种强耐寒性的鉴定和新品种选育，成功选育出能够经受忻定盆地、晋西北高寒区冬季严寒考验的新品种，并研发出配套栽培技术，实现突破。
 
 ## 相关推荐
 
-- 2026-06-29 22:59 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-29 22:48 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-29 22:53 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-29 22:49 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 22:30 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-29 22:37 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 22:47 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-29 22:38 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-29 22:59 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 22:43 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-29 22:55 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-29 22:32 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-29 22:50 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 22:57 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 23:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 22:58 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-29 22:52 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 22:52 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 22:57 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 23:04 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 23:03 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 22:59 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-29 23:00 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 23:02 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 22:46 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:51 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/1865511.shtml)
-- 2026-06-29 22:38 - [广东水利防汛Ⅳ级应急响应结束](https://www.share.kurohicncr.top/Article/details/662441897559.shtml)
-- 2026-06-29 22:43 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/39181.shtml)
-- 2026-06-29 22:36 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/727853567742.shtml)
-- 2026-06-29 22:34 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/581177800.shtml)
-- 2026-06-29 22:50 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/61210192.shtml)
-- 2026-06-29 22:37 - [山东发布山洪灾害气象预警](https://www.share.minike.top/Article/details/41665181.shtml)
-- 2026-06-29 22:32 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/12181.shtml)
-- 2026-06-29 22:50 - [AI接过张雪峰志愿填报衣钵](http://www.blog.kurohicncr.top/Article/details/79467079.shtml)
-- 2026-06-29 22:30 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/436281911.shtml)
-- 2026-06-29 22:41 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/000221204370.shtml)
-- 2026-06-29 22:47 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/47112.shtml)
-- 2026-06-29 22:35 - [广东水利防汛Ⅳ级应急响应结束](https://www.blog.minike.top/Article/details/7340017.shtml)
-- 2026-06-29 22:42 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.kurohicncr.top/Article/details/71464678.shtml)
-- 2026-06-29 22:55 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/886555888786.shtml)
+- 2026-06-29 23:03 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/30923332509.shtml)
+- 2026-06-29 23:05 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/41253.shtml)
+- 2026-06-29 22:45 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/04036767942.shtml)
+- 2026-06-29 22:52 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/500514.shtml)
+- 2026-06-29 23:05 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/709726796893.shtml)
+- 2026-06-29 22:56 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/2579347735.shtml)
+- 2026-06-29 22:39 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/55162426778.shtml)
+- 2026-06-29 22:39 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/47337837.shtml)
+- 2026-06-29 23:05 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/230671361202.shtml)
+- 2026-06-29 22:52 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/75144.shtml)
+- 2026-06-29 22:52 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/7687373423.shtml)
+- 2026-06-29 23:04 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/569159.shtml)
+- 2026-06-29 22:48 - [高考1357分的同学如何报志愿？](https://www.blog.kurohicncr.top/Article/details/5105525726.shtml)
+- 2026-06-29 22:55 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/756714597327.shtml)
+- 2026-06-29 22:58 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/9072092.shtml)

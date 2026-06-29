@@ -1,59 +1,53 @@
-# 福建三明：山里来了“客货邮” 家门口取件暖民心
+# 2026年北京市积分落户申报将于4月16日启动 落户规模保持6000人
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-中新网三明6月10日电 (雷朝良 朱丹宇)在福建三明永安贡川镇客货邮融合站，过去闲置的大楼如今变身为人气最旺的便民枢纽。站内快递分拣区，智慧灯条与包裹一一绑定，村民扫码或输入手机号，对应指示灯随即亮起并语音提示，实现“一秒找件”。这是三明推进“客货邮”进村工程的一个缩影。 三明地处闽西北山区。近年来，当地立足山区实际，把“快递进村”作为重点民生工程，统筹交通、邮政、供销等资源，
+新华社北京4月15日电(记者陈旭)北京市人力资源和社会保障局15日发布消息称，2026年北京市积分落户申报工作将于4月16日早8时正式启动，申报期限为30个自然日，7月13日起将在市政府门户网站“首都之窗”公示年度落户人员信息，2026年北京市积分落户规模为6000人，并实行同分同落。本年度申报工作分五个时间段，共计96个自然日，具体时间安排为：申报阶段(4月16日8时至5月1
 
 ## 正文
 
-中新网三明6月10日电 (雷朝良 朱丹宇)在福建三明永安贡川镇客货邮融合站，过去闲置的大楼如今变身为人气最旺的便民枢纽。
+新华社北京4月15日电(记者陈旭)北京市人力资源和社会保障局15日发布消息称，2026年北京市积分落户申报工作将于4月16日早8时正式启动，申报期限为30个自然日，7月13日起将在市政府门户网站“首都之窗”公示年度落户人员信息，2026年北京市积分落户规模为6000人，并实行同分同落。
 
-站内快递分拣区，智慧灯条与包裹一一绑定，村民扫码或输入手机号，对应指示灯随即亮起并语音提示，实现“一秒找件”。
+本年度申报工作分五个时间段，共计96个自然日，具体时间安排为：申报阶段(4月16日8时至5月15日20时)；部门审核结果汇总阶段(5月16日至6月4日)；审核结果查询阶段(6月5日8时至6月12日20时)；部门复核及积分排名阶段(6月13日至7月12日)；公示和落户办理阶段(7月13日起，公示8个自然日)，公示期满取得落户资格的申请人可按规定办理调京落户手续。
 
-这是三明推进“客货邮”进村工程的一个缩影。
+申请人可以登录北京市人力资源和社会保障局官方网站积分落户服务专栏(http://rsj.beijing.gov.cn/jflh/)填写申报信息。
 
-三明地处闽西北山区。
+北京市人社局温馨提示，申报人和用人单位要诚信申报，并共同对填报指标信息的真实性负责。
 
-近年来，当地立足山区实际，把“快递进村”作为重点民生工程，统筹交通、邮政、供销等资源，构建起县、乡、村三级农村寄递物流体系。
+积分落户申报工作不收取任何费用，不接受任何中介服务，用人单位和申请人请务必提高警惕，谨防上当受骗。
 
-数据显示，三明全市客货邮试点乡镇超110个，11个县(市、区)1739个建制村实现客货邮服务全覆盖，初步形成“产地集货、分级处理、专线运输、城市直达”的乡村物流链条。
-
-从“进城取件”到“快递进村” “以前网购，要专程跑镇上取件，大件更不敢下单。
-
-”贡川镇偏远山村村民李庆友说，现在快递直接送到村口，网上购物再没有顾虑。
+申请人可在申报前做好房屋租赁合同备案信息、自有住所信息、学历学位备案信息或认证信息等查询工作，核实无误后再行填报。
 
 ## 相关推荐
 
-- 2026-06-29 23:00 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-29 22:52 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 22:45 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 22:42 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-29 22:53 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-29 22:46 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 22:51 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 22:54 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-29 22:50 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 22:47 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 22:35 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-29 22:49 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 22:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-29 22:52 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-29 22:48 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 22:38 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 22:44 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-29 22:58 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 22:56 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-29 22:54 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 23:01 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 23:04 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 22:47 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 23:04 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:59 - [乌克兰发广告全球征兵](http://www.blog.minike.top/Article/details/5339024087.shtml)
-- 2026-06-29 22:46 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/902235569.shtml)
-- 2026-06-29 22:54 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.kurohicncr.top/Article/details/4378820645.shtml)
-- 2026-06-29 22:30 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/152330.shtml)
-- 2026-06-29 22:32 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/833694.shtml)
-- 2026-06-29 22:36 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/5398110204.shtml)
-- 2026-06-29 22:58 - [勇敢的心第二部](http://www.share.minike.top/Article/details/534795452907.shtml)
-- 2026-06-29 22:36 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/5802469409.shtml)
-- 2026-06-29 22:58 - [毒液2](http://www.blog.minike.top/Article/details/1263504.shtml)
-- 2026-06-29 22:58 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/9551688052.shtml)
-- 2026-06-29 22:52 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/23564.shtml)
-- 2026-06-29 22:37 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/1093069557.shtml)
-- 2026-06-29 22:31 - [孙俪开QQ的蛮好生活](http://www.share.kurohicncr.top/Article/details/0491910631.shtml)
-- 2026-06-29 22:45 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/48719417457.shtml)
-- 2026-06-29 22:46 - [王欣瑜：今年经历了一些起伏](https://www.share.minike.top/Article/details/737167.shtml)
+- 2026-06-29 22:51 - [恋与深空致歉](https://www.share.minike.top/Article/details/3909596220.shtml)
+- 2026-06-29 23:01 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/84446985.shtml)
+- 2026-06-29 22:50 - [回顾世界杯争议事件](https://www.share.minike.top/Article/details/32824383182.shtml)
+- 2026-06-29 22:48 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/50012429857.shtml)
+- 2026-06-29 22:38 - [足球“出口导向”造就佛得角奇迹](https://www.share.kurohicncr.top/Article/details/441047.shtml)
+- 2026-06-29 22:40 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/84154475.shtml)
+- 2026-06-29 23:02 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/465356816.shtml)
+- 2026-06-29 22:53 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/884897757.shtml)
+- 2026-06-29 23:00 - [金刚川](https://www.blog.kurohicncr.top/Article/details/33020.shtml)
+- 2026-06-29 22:51 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/662142.shtml)
+- 2026-06-29 22:40 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/012010112796.shtml)
+- 2026-06-29 22:53 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/957125.shtml)
+- 2026-06-29 22:53 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/39649479.shtml)
+- 2026-06-29 22:47 - [齐思钧回复孙怡](https://www.blog.kurohicncr.top/Article/details/711607220631.shtml)
+- 2026-06-29 22:40 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/046283.shtml)

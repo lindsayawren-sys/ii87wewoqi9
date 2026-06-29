@@ -1,56 +1,58 @@
-# 佑驾创新盘中涨超5% 无人巴士斩获超1.3亿元订单
+# 900万人力退潮后：中国寿险代理人未来三大画像
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-佑驾创新（02431）盘中涨超5%，截至发稿，股价上涨3.07%，现报11.09港元，成交额4117.58万港元。 佑驾创新昨晚公布，集团近期与专注智能汽车及其零部件、智慧交通领域的独立第三方正式签署自动驾驶车辆采购合同。本次合作顺利达成，标志集团无人巴士相关业务在商业化落地与市场拓展方面取得重要进展。 根据采购合同约定，双方本着“平等自愿、互利共赢、诚实信用”的原则，由集团向
+来源：今日保 从900万人力，到如今只剩200多万人力，这就是当下中国寿险代理人渠道最直观的现实。 在传统巨大惯性之下，人力的大幅缩减意味着什么，不言而喻。再看去年银保新单占比一度激增至70%，也就不难理解，今天的代理人渠道正面对着怎样的困境： 旧模式承压已成共识； 新模式仍在摸索之中； 而这种悬而未决，最终牵动的，是规模、新单、价值和未来利润基础。 也因此，代理人改革这些年始
 
 ## 正文
 
-佑驾创新（02431）盘中涨超5%，截至发稿，股价上涨3.07%，现报11.09港元，成交额4117.58万港元。
+来源：今日保 从900万人力，到如今只剩200多万人力，这就是当下中国寿险代理人渠道最直观的现实。
 
-佑驾创新昨晚公布，集团近期与专注智能汽车及其零部件、智慧交通领域的独立第三方正式签署自动驾驶车辆采购合同。
+在传统巨大惯性之下，人力的大幅缩减意味着什么，不言而喻。
 
-本次合作顺利达成，标志集团无人巴士相关业务在商业化落地与市场拓展方面取得重要进展。
+再看去年银保新单占比一度激增至70%，也就不难理解，今天的代理人渠道正面对着怎样的困境： 旧模式承压已成共识； 新模式仍在摸索之中； 而这种悬而未决，最终牵动的，是规模、新单、价值和未来利润基础。
 
-根据采购合同约定，双方本着“平等自愿、互利共赢、诚实信用”的原则，由集团向对方供应无人巴士、自动驾驶套件及提供配套技术服务，本次合约涉及采购上百台无人巴士及相关配套服务，合同含税总金额超过人民币1.3亿元。
+也因此，代理人改革这些年始终是行业最焦灼、也最难回避的话题之一。
 
-集团交付产品将主要应用于地方文旅、微循环及公交应用场景。
+头部公司在改，主流中小寿险公司也在改：精英化、职业化、专业化、高学历化，几乎成了共同方向。
 
-责任编辑：卢昱君
+但从眼下的数据表现看，这个渠道的问题，还远没有出清。
+
+尤其到了AI时代，这个问题变得更尖锐了。
+
+技术在进步，客户在变化，渠道也在分化，围绕代理人渠道的争议越来越多。
 
 ## 相关推荐
 
-- 2026-06-29 22:33 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 22:59 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-29 22:40 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-29 22:56 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 22:50 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 22:42 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 22:30 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-29 22:44 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 22:41 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-29 22:37 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 22:35 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 22:38 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 22:33 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-29 22:55 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 23:04 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 22:58 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 22:48 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-29 23:03 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 22:48 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-29 22:44 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 22:37 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 22:59 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 22:49 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-29 22:46 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-29 22:37 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 22:38 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:51 - [月亮](http://www.share.minike.top/Article/details/414350438339.shtml)
-- 2026-06-29 22:40 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/899711.shtml)
-- 2026-06-29 22:32 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/19729400.shtml)
-- 2026-06-29 22:50 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/60533.shtml)
-- 2026-06-29 22:39 - [仙游一峡谷5人身亡知情者发声](https://www.share.minike.top/Article/details/629091.shtml)
-- 2026-06-29 22:44 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/4873398.shtml)
-- 2026-06-29 22:46 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/491302300.shtml)
-- 2026-06-29 22:56 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/612359.shtml)
-- 2026-06-29 22:43 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/709102.shtml)
-- 2026-06-29 22:39 - [运20对中国空军的意义是什么](http://www.blog.minike.top/Article/details/967711351487.shtml)
-- 2026-06-29 22:58 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/8409252.shtml)
-- 2026-06-29 22:59 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/691958929.shtml)
-- 2026-06-29 22:57 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/5485881.shtml)
-- 2026-06-29 22:39 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/985630.shtml)
-- 2026-06-29 22:51 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/78424035551.shtml)
+- 2026-06-29 22:50 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/74252592.shtml)
+- 2026-06-29 22:57 - [这一刀 会很帅](http://www.share.minike.top/Article/details/822254217.shtml)
+- 2026-06-29 22:43 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/9508159622.shtml)
+- 2026-06-29 22:43 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/63450102872.shtml)
+- 2026-06-29 22:51 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/413924874.shtml)
+- 2026-06-29 22:57 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/69858687032.shtml)
+- 2026-06-29 22:53 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/533258282.shtml)
+- 2026-06-29 22:38 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/92394.shtml)
+- 2026-06-29 23:01 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/78918.shtml)
+- 2026-06-29 22:46 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/80947.shtml)
+- 2026-06-29 23:02 - [马光远谈马斯克最大的价值](http://www.share.minike.top/Article/details/4649854668.shtml)
+- 2026-06-29 22:52 - [流金岁月](http://www.blog.minike.top/Article/details/8733774.shtml)
+- 2026-06-29 23:02 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/0714638.shtml)
+- 2026-06-29 23:00 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/625960893.shtml)
+- 2026-06-29 22:41 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/1353026423.shtml)

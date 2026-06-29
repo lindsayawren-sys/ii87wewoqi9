@@ -1,56 +1,58 @@
-# 妖股直击：中船特气暴涨7倍成市场最强龙头，海外断供引爆六氟化钨，中巨芯、和远气体、昊华科技集体井喷
+# 上海最新监测数据：肺癌、大肠癌和甲状腺癌位列发病前三位
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-来源：金融界网站 6月11日，近期最热门个股中船特气继续上攻，早盘最高探至332.88元，涨幅达14%，市值超过1700亿元。不过随后股价剧烈震荡，一度跳水翻绿，后又快速拉起，目前涨幅约9%，成交额超过40亿元。 从近期的市场走势来看，中船特气是整个市场的最强龙头之一，2个月时间，股价从40元左右飙升至约333元，涨幅接近7倍。 市场炒作中船特气的核心逻辑，聚焦于六氟化钨这一半
+中新网上海4月15日电 (记者 陈静)上海市卫健委15日披露，最新监测数据显示，2022年上海新发癌症病例数为8.22万例，发病率为547.9/10万，发病前三位的癌症依次是肺癌、大肠癌和甲状腺癌；2022年，全上海有3.85万人因癌症而死亡，死亡率为256.8/10万，癌症仍是上海民众的第二位死因。4月15日-21日是第三十七届上海市肿瘤防治宣传周，今年的主题是“早防早筛早治
 
 ## 正文
 
-来源：金融界网站 6月11日，近期最热门个股中船特气继续上攻，早盘最高探至332.88元，涨幅达14%，市值超过1700亿元。
+中新网上海4月15日电 (记者 陈静)上海市卫健委15日披露，最新监测数据显示，2022年上海新发癌症病例数为8.22万例，发病率为547.9/10万，发病前三位的癌症依次是肺癌、大肠癌和甲状腺癌；2022年，全上海有3.85万人因癌症而死亡，死亡率为256.8/10万，癌症仍是上海民众的第二位死因。
 
-不过随后股价剧烈震荡，一度跳水翻绿，后又快速拉起，目前涨幅约9%，成交额超过40亿元。
+4月15日-21日是第三十七届上海市肿瘤防治宣传周，今年的主题是“早防早筛早治，同心携手抗癌”。
 
-从近期的市场走势来看，中船特气是整个市场的最强龙头之一，2个月时间，股价从40元左右飙升至约333元，涨幅接近7倍。
+15日，上海市卫健委举办肿瘤防治宣传周市级主题活动，发布申城最新癌症监测数据，组织知名医学专家现场咨询。
 
-市场炒作中船特气的核心逻辑，聚焦于六氟化钨这一半导体（核心股）关键材料的供需错配。
+据悉，上海大力推动癌症筛查技术的创新与应用，使常见癌症的筛查范围不断扩大。
 
-六氟化钨是芯片先进制程和存储芯片生产不可或缺的核心材料，当前海外供应链持续承压，上游钨原料供给收紧带动高纯六氟化钨价格持续飙升。
+全上海癌症防治核心指标稳步提升，总体癌症5年生存率已达65.2%。
 
-中船特气作为国内头部企业，具备产能与技术双重优势，正处于国产替代加速落地的关键窗口期。
+作为上海市重大公共卫生服务项目之一，社区居民大肠癌筛查已连续实施十多年，至2025年底，相关项目已累计为419万名50岁以上的上海居民提供842万次筛查服务，有效促进了大肠癌和癌前期病变患者的早诊早治，提高了患者生存质量，延长了生存期。
 
-消息面上，中船特气相关负责人近日透露，公司适配半导体（核心股）应用场景的6N级高纯六氟化钨当前市场实时报价约为2000至2500元每千克，公司整体产能订单处于饱和状态，同步承接海外订单需求。
+2025年，上海为超过61.4万名居民提供了筛查服务，已发现癌前期病变6860例、确诊大肠癌710例。
 
-在中船特气超预期强劲走势带动下，六氟化钨概念股全线崛起，中巨芯今日大涨18%，股价一周实现翻倍；和远气体3连板，昊华科技2连板。
+今年，上海将围绕“50岁以上人人参加一次大肠癌筛查”目标，向超过50万名居民提供免费的大肠癌筛查服务，重点加强对从未参加过大肠癌筛查居民的宣传动员和对初筛阳性居民的转诊服务。
 
 ## 相关推荐
 
-- 2026-06-29 22:33 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 22:48 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-29 22:47 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 22:53 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 22:43 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-29 22:31 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-29 22:51 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 22:59 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-29 22:36 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 22:33 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 22:50 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 22:51 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 22:51 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-29 22:36 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 23:01 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 22:41 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-29 23:00 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-29 23:05 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 22:46 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-29 22:56 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-29 22:37 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 22:54 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/7516130.shtml)
-- 2026-06-29 22:58 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.kurohicncr.top/Article/details/34795968269.shtml)
-- 2026-06-29 22:38 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/72320439.shtml)
-- 2026-06-29 22:46 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/2330003347.shtml)
-- 2026-06-29 22:41 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/090022527192.shtml)
-- 2026-06-29 22:30 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/278083970.shtml)
-- 2026-06-29 22:31 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/293728518.shtml)
-- 2026-06-29 22:54 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/312722436.shtml)
-- 2026-06-29 22:42 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/3912498460.shtml)
-- 2026-06-29 22:57 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/78586.shtml)
-- 2026-06-29 22:32 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/3347778679.shtml)
-- 2026-06-29 22:30 - [追觅称质量不行终身包修也没意义](https://www.share.kurohicncr.top/Article/details/4179587.shtml)
-- 2026-06-29 22:54 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/41693197.shtml)
-- 2026-06-29 22:59 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/19742707459.shtml)
-- 2026-06-29 22:57 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/377576829.shtml)
+- 2026-06-29 22:37 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/772326696363.shtml)
+- 2026-06-29 22:48 - [送你一朵小红花](http://www.blog.minike.top/Article/details/7971293.shtml)
+- 2026-06-29 22:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/62689739508.shtml)
+- 2026-06-29 22:55 - [起风了](http://www.share.minike.top/Article/details/59762945.shtml)
+- 2026-06-29 22:42 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/97747865106.shtml)
+- 2026-06-29 22:51 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/384682.shtml)
+- 2026-06-29 22:56 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/44745.shtml)
+- 2026-06-29 22:39 - [福建海警位金门附近海域常态执法巡查](https://www.share.kurohicncr.top/Article/details/47481202634.shtml)
+- 2026-06-29 22:47 - [国常会听取人工智能发展情况汇报](http://www.share.kurohicncr.top/Article/details/677843197.shtml)
+- 2026-06-29 22:51 - [欧洲缘何成为变暖最快的大洲](http://www.blog.kurohicncr.top/Article/details/150440841422.shtml)
+- 2026-06-29 23:04 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/6160559810.shtml)
+- 2026-06-29 22:59 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/8329526154.shtml)
+- 2026-06-29 22:49 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/487525202621.shtml)
+- 2026-06-29 22:41 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/6917093366.shtml)
+- 2026-06-29 22:43 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/1626257738.shtml)

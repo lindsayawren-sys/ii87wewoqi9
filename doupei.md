@@ -1,56 +1,61 @@
-# 世界杯前夕香港海关查获市值约1.56亿港元假冒周边商品
+# 18年，150亿美元，0铁轨？ 美国加州“高铁梦”沦为全美笑柄，马斯克急忙补刀｜硅谷观察
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-中新社香港6月11日电 香港海关11日召开案情简报会通报，海关在2026年美加墨世界杯举办前夕展开执法行动，重点打击与世界杯相关的跨境走私、线上售卖假冒商品行为，共侦破34起案件，查获约23万件涉嫌假冒及侵权商品，预估市值约1.56亿港元，并拘捕6人。香港海关版权及商标调查科版权及商标跨境调查组高级调查主任钟旨惠介绍，在上述34起案件中，有29起涉及跨境走私假冒商品，其中不乏售
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！文 | 《硅谷观察》栏目 郑骏 烧了150亿美元，一寸铁轨都没有铺好。加州高铁又一次成为全美关注焦点。但不是因为建成通车，也不是因为铺设进展，而是一事无成。 面对美国知名新闻节目《60分钟》的镜头，加州交通厅与高铁官员不得不公开承认失败：那条已经规划三十年、立项十八年的加州高铁项目，迄今已经投入了超过150
 
 ## 正文
 
-中新社香港6月11日电 香港海关11日召开案情简报会通报，海关在2026年美加墨世界杯举办前夕展开执法行动，重点打击与世界杯相关的跨境走私、线上售卖假冒商品行为，共侦破34起案件，查获约23万件涉嫌假冒及侵权商品，预估市值约1.56亿港元，并拘捕6人。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-香港海关版权及商标调查科版权及商标跨境调查组高级调查主任钟旨惠介绍，在上述34起案件中，有29起涉及跨境走私假冒商品，其中不乏售价偏高的球员版假冒球衣。
+文 | 《硅谷观察》栏目 郑骏 烧了150亿美元，一寸铁轨都没有铺好。
 
-香港海关表示，本届世界杯规模较大，参赛队伍数量较多。
+加州高铁又一次成为全美关注焦点。
 
-预计赛事举办期间，全球球迷和游客对相关周边商品的需求会大幅上涨，走私假冒商品的活动可能愈发猖獗。
+但不是因为建成通车，也不是因为铺设进展，而是一事无成。
 
-海关将继续通过情报分析，采取执法行动，全力打击侵权行为。
+面对美国知名新闻节目《60分钟》的镜头，加州交通厅与高铁官员不得不公开承认失败：那条已经规划三十年、立项十八年的加州高铁项目，迄今已经投入了超过150亿美元（约1022亿元），连一条铁轨都没有铺设出来。
 
-(完)
+加州交通厅长Toks Omishakin似乎想摆出坦诚的态度：“我们确实犯了错误，遭受批评是非常合理的。
+
+”但共和党联邦众议员方文思（Vince Fong）则直接抨击他：“现在都是2026年了。
+
+没有列车，也没有铁轨。
 
 ## 相关推荐
 
-- 2026-06-29 22:55 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-29 22:49 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 22:44 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 22:37 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 22:38 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 22:57 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-29 22:40 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 22:57 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-29 22:58 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-29 22:40 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-29 22:39 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-29 22:30 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-29 22:56 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 22:47 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-29 23:03 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 22:50 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 22:53 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-29 23:00 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 23:05 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 22:43 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 22:41 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 22:54 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 22:53 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 22:37 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 22:42 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 22:41 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 22:47 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-29 22:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 22:56 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:43 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/892395.shtml)
-- 2026-06-29 22:53 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/8631241075.shtml)
-- 2026-06-29 22:51 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/0074938832.shtml)
-- 2026-06-29 22:55 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/8062317819.shtml)
-- 2026-06-29 22:36 - [王鸿薇要求删陆委会百余万特别费](http://www.share.kurohicncr.top/Article/details/63157450152.shtml)
-- 2026-06-29 22:59 - [炽夏](https://www.share.kurohicncr.top/Article/details/520036645.shtml)
-- 2026-06-29 22:46 - [法拉利车主已自行承担修理费近3万](http://www.blog.kurohicncr.top/Article/details/287481999.shtml)
-- 2026-06-29 22:38 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/64264817.shtml)
-- 2026-06-29 22:41 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/74181.shtml)
-- 2026-06-29 22:47 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/272775778.shtml)
-- 2026-06-29 22:53 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/916111.shtml)
-- 2026-06-29 22:58 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/72210209.shtml)
-- 2026-06-29 22:51 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/112278924011.shtml)
-- 2026-06-29 22:58 - [巴西10号球衣是天才传承史](https://www.blog.minike.top/Article/details/06914261069.shtml)
-- 2026-06-29 22:52 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/837160.shtml)
+- 2026-06-29 22:51 - [恋与深空7天掉粉超50万](https://www.blog.kurohicncr.top/Article/details/77012404.shtml)
+- 2026-06-29 23:00 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/500029831.shtml)
+- 2026-06-29 22:52 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.kurohicncr.top/Article/details/887946726.shtml)
+- 2026-06-29 23:01 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/9241817.shtml)
+- 2026-06-29 22:47 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/85543409225.shtml)
+- 2026-06-29 23:05 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/290231.shtml)
+- 2026-06-29 22:52 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/9370868.shtml)
+- 2026-06-29 22:48 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/32626518.shtml)
+- 2026-06-29 22:43 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.blog.kurohicncr.top/Article/details/42507.shtml)
+- 2026-06-29 23:04 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/77243.shtml)
+- 2026-06-29 23:02 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/378032632336.shtml)
+- 2026-06-29 22:58 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/8643088137.shtml)
+- 2026-06-29 22:41 - [锐评T1零封KC](https://www.share.minike.top/Article/details/0698350572.shtml)
+- 2026-06-29 23:05 - [刘念回应](https://www.blog.minike.top/Article/details/437253951387.shtml)
+- 2026-06-29 22:37 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/190005329893.shtml)

@@ -1,57 +1,58 @@
-# 系统呈现京剧大家沈福存的艺术人生 纪录片《大青衣》将播出
+# 算力紧缺之下，Anthropic调整定价模式：按企业AI使用量计费
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-中新网重庆6月10日电 (记者 钟旖)“沈福存和他的朋友们——纪录片《大青衣》首映分享会”10日在重庆举行。记者获悉，以著名京剧表演艺术家沈福存艺术人生为主线制作的纪录片《大青衣》，近期将在中央电视台纪录频道、重庆卫视正式播出。 沈福存(1935-2021)是京剧“男旦”表演艺术家。他从戏班学徒一路走上专业舞台，融通诸派技艺，自成一派大青衣风骨，又因长期扎根西南，在戏曲爱好者中
+核心摘要 Anthropic 发言人证实，随着此次定价调整，Claude 企业版用户在每月 20 美元 / 用户固定费用之外，还需按使用软件时消耗的算力容量付费。Claude 企业版是面向大型企业推出的已上线两年的产品套餐，目前包含代码工具 Claude Code 与办公助手 Claude Cowork。 软件授权协议咨询公司 Redress Compliance 联合创始人弗
 
 ## 正文
 
-中新网重庆6月10日电 (记者 钟旖)“沈福存和他的朋友们——纪录片《大青衣》首映分享会”10日在重庆举行。
+核心摘要 Anthropic 发言人证实，随着此次定价调整，Claude 企业版用户在每月 20 美元 / 用户固定费用之外，还需按使用软件时消耗的算力容量付费。
 
-记者获悉，以著名京剧表演艺术家沈福存艺术人生为主线制作的纪录片《大青衣》，近期将在中央电视台纪录频道、重庆卫视正式播出。
+Claude 企业版是面向大型企业推出的已上线两年的产品套餐，目前包含代码工具 Claude Code 与办公助手 Claude Cowork。
 
-沈福存(1935-2021)是京剧“男旦”表演艺术家。
+软件授权协议咨询公司 Redress Compliance 联合创始人弗雷德里克・菲利普森表示，此前客户按每个授权用户每月最高 200 美元付费，订阅可获得固定额度的折扣代币使用量。
 
-他从戏班学徒一路走上专业舞台，融通诸派技艺，自成一派大青衣风骨，又因长期扎根西南，在戏曲爱好者中有“山城张君秋”“四川梅兰芳”的美誉。
+他估算，对部分高频用户而言，此次 Claude 企业版定价调整将使其成本翻倍甚至增至三倍。
 
-经过近三年的创作，纪录片《大青衣》以人物命运为主线，分《三级跳》《三出半》《三朵梅》三集，分别从“人生历程”“艺术成就”“薪火传承”三个维度展开叙事。
+多家为 Claude 付费企业的 IT 高管表示，他们已获悉近几周生效的定价调整，公司正在追踪此次变动是否会导致 Anthropic 账单大幅上涨。
 
-影片以戏曲传承为核心，通过珍贵历史影像、口述访谈、舞台资料、家庭记忆和教学现场等多重叙事线索，系统呈现了沈福存从少年入行、拜师学艺、登台成长，到艺术成熟、薪火相传的完整生命轨迹，也深入展现了中国戏曲艺术的传承机制、审美精神和时代价值。
+（部分 Claude 企业版用户需等到续约时才会看到新定价。
 
-作为第四届重庆都市艺术节的重要活动之一，当天的首映分享会通过“影像呈现+人物讲述+现场交流”的方式，带领观众们走近沈福存的人生历程与艺术世界。
+） 发言人表示，此次定价调整不影响用户数少于 150 人的企业，例如面向小型公司的团队版订阅用户，该套餐费用为每位用户每月最高 100 美元。
 
-“透过纪录片，我们看到了一个艺术家的美感，作为一个演员身上一以贯之的君子之风。
+今年以来，其 AI 代码智能体 Claude Code 以及可跨应用自动化办公任务的 AI 工具 Claude Cowork 使用量激增，Anthropic 随即推出了新定价政策。
 
 ## 相关推荐
 
-- 2026-06-29 22:39 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-29 22:41 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-29 22:52 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-29 22:36 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-29 22:58 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 22:49 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 22:49 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-29 22:54 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-29 22:58 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 22:50 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-29 22:46 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-29 22:53 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-29 22:48 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 22:59 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 22:44 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 22:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-29 22:44 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 22:59 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 22:43 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-29 22:47 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 22:40 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 22:55 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 22:44 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:32 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/239778.shtml)
-- 2026-06-29 22:58 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/532781417.shtml)
-- 2026-06-29 22:41 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/9411709.shtml)
-- 2026-06-29 22:54 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/309645.shtml)
-- 2026-06-29 22:57 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/346517314.shtml)
-- 2026-06-29 22:34 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/63299.shtml)
-- 2026-06-29 22:56 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/055278955.shtml)
-- 2026-06-29 22:48 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/3189119789.shtml)
-- 2026-06-29 22:30 - [6.5万观众40分钟“丝滑”离场](https://www.blog.kurohicncr.top/Article/details/45626530501.shtml)
-- 2026-06-29 22:35 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/76001896688.shtml)
-- 2026-06-29 22:31 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/936352970.shtml)
-- 2026-06-29 22:37 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/99252.shtml)
-- 2026-06-29 22:41 - [乌克兰发广告全球征兵](https://www.blog.minike.top/Article/details/551788.shtml)
-- 2026-06-29 22:44 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/61594240454.shtml)
-- 2026-06-29 22:58 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/5967017114.shtml)
+- 2026-06-29 22:52 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/046141600.shtml)
+- 2026-06-29 22:55 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/035405787346.shtml)
+- 2026-06-29 22:50 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/790105134.shtml)
+- 2026-06-29 22:40 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/29336250.shtml)
+- 2026-06-29 22:40 - [恋与深空制作组回应争议](http://www.share.minike.top/Article/details/57460.shtml)
+- 2026-06-29 23:04 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/401485772819.shtml)
+- 2026-06-29 22:58 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/368666.shtml)
+- 2026-06-29 22:39 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/273827817159.shtml)
+- 2026-06-29 22:43 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/4931401220.shtml)
+- 2026-06-29 22:42 - [曼城官宣马雷斯卡出任主教练](https://www.share.minike.top/Article/details/05157000.shtml)
+- 2026-06-29 22:39 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/322304606.shtml)
+- 2026-06-29 22:46 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/98391.shtml)
+- 2026-06-29 22:37 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/47570773.shtml)
+- 2026-06-29 22:37 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/27657764927.shtml)
+- 2026-06-29 23:03 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/926642398122.shtml)

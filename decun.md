@@ -1,59 +1,58 @@
-# “点心”变“主菜”，利率优势推动点心债发行规模大增
+# 德国媒体公司Ströer股价上涨9.4%，I Squared与黑石探讨收购要约
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者 叶麦穗 离岸人民币债券市场正迎来新一轮结构性发展机遇，昔日作为“配菜”的点心债，如今已逐步成长为市场“主菜”。当前，市场呈现发行规模持续扩容、发行人与投资者结构日趋多元、长期限品种不断增加的良好态势。 数据显示，去年香港点心债发行规模达1.1万亿元，去年年末余额突破1.6万亿元，较两年前增长74%。这一增长势头在今年延续，据Wind统计，今年以来市场已发行
+德国媒体公司Ströer SE可能再次出现私有化收购动向，而此次的财务组合更为强大。据知情人士透露，I Squared Capital已重新与黑石公司联手，就收购该公司核心广告业务进行可能的报价。近期与Ströer的谈判聚焦于一项将户外广告与数字内容相结合的业务，这表明即便市场对德国经济的整体情绪仍保持谨慎，该资产仍可能吸引战略兴趣。 背景已发生变化，这可能对交易的经济性产生影
 
 ## 正文
 
-21世纪经济报道记者 叶麦穗 离岸人民币债券市场正迎来新一轮结构性发展机遇，昔日作为“配菜”的点心债，如今已逐步成长为市场“主菜”。
+德国媒体公司Ströer SE可能再次出现私有化收购动向，而此次的财务组合更为强大。
 
-当前，市场呈现发行规模持续扩容、发行人与投资者结构日趋多元、长期限品种不断增加的良好态势。
+据知情人士透露，I Squared Capital已重新与黑石公司联手，就收购该公司核心广告业务进行可能的报价。
 
-数据显示，去年香港点心债发行规模达1.1万亿元，去年年末余额突破1.6万亿元，较两年前增长74%。
+近期与Ströer的谈判聚焦于一项将户外广告与数字内容相结合的业务，这表明即便市场对德国经济的整体情绪仍保持谨慎，该资产仍可能吸引战略兴趣。
 
-这一增长势头在今年延续，据Wind统计，今年以来市场已发行点心债943只，合计发行规模7679.22亿元。
+背景已发生变化，这可能对交易的经济性产生影响。
 
-按当前趋势，今年发行规模有望超越去年，再创新高。
+I Squared此前在1月份因难以获得足够的投资者支持而放弃了其早期尝试，但自那以后，Ströer的市值已降至约20亿欧元，可能重置了预期。
 
-业内人士表示，点心债市场正从早期小众市场，加速迈向具备核心配置价值的成熟债券市场。
+股市对这一重燃的兴趣反应迅速，该股周一盘中一度上涨9.4%，创下六个月来最大涨幅，随后在法兰克福市场收涨约3%。
 
-随着人民币国际化稳步推进、债券通“南向通”机制持续优化，叠加全球融资需求多元化发展，点心债市场正迎来提升国际影响力的重要窗口期。
+这一走势可能表明，即使交易可见性仍然有限，投资者已开始计入更高的交易可能性。
 
-发行规模有望再创新高 近年来，点心债发行规模稳步扩大。
+估值和结构现在看起来是关键变量。
 
 ## 相关推荐
 
-- 2026-06-29 22:48 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-29 22:57 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-29 22:41 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-29 22:34 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-29 22:51 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-29 22:56 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 22:43 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 22:37 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-29 22:47 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-29 22:44 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-29 22:52 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-29 22:50 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 22:49 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-29 23:02 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-29 23:01 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-29 22:36 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 22:42 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-29 22:47 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 22:37 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-29 23:02 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-29 22:41 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 22:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 23:05 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 22:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 22:56 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:50 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/61583.shtml)
-- 2026-06-29 22:55 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/7158106.shtml)
-- 2026-06-29 22:53 - [哈兰德吃饭被镜中自己吓到](https://www.share.kurohicncr.top/Article/details/93257.shtml)
-- 2026-06-29 22:51 - [网约车出事故平台拒赔称只是中介](https://www.share.kurohicncr.top/Article/details/99782.shtml)
-- 2026-06-29 22:35 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/913888.shtml)
-- 2026-06-29 22:34 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/493309722432.shtml)
-- 2026-06-29 22:39 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/37930744.shtml)
-- 2026-06-29 22:53 - [世界杯](https://www.share.kurohicncr.top/Article/details/13594590873.shtml)
-- 2026-06-29 22:52 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/50069959.shtml)
-- 2026-06-29 22:52 - [记者乘坐无人驾驶汽车去采访](http://www.share.minike.top/Article/details/305952653.shtml)
-- 2026-06-29 22:43 - [第一炉香](http://www.share.minike.top/Article/details/349420.shtml)
-- 2026-06-29 22:50 - [运20对中国空军的意义是什么](https://www.blog.kurohicncr.top/Article/details/56188134049.shtml)
-- 2026-06-29 22:52 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/204540896.shtml)
-- 2026-06-29 22:48 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/084076.shtml)
-- 2026-06-29 22:41 - [金刚川](https://www.share.minike.top/Article/details/54074055.shtml)
+- 2026-06-29 22:40 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/731153.shtml)
+- 2026-06-29 22:57 - [请回答王牌2019](https://www.blog.minike.top/Article/details/6157885445.shtml)
+- 2026-06-29 22:38 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/2452836.shtml)
+- 2026-06-29 22:49 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/192861957938.shtml)
+- 2026-06-29 22:40 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/42221843134.shtml)
+- 2026-06-29 23:05 - [乌克兰发广告全球征兵](http://www.blog.minike.top/Article/details/861257828739.shtml)
+- 2026-06-29 23:00 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/24444129279.shtml)
+- 2026-06-29 22:36 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/459705811185.shtml)
+- 2026-06-29 22:57 - [85花告别古偶](http://www.share.minike.top/Article/details/774702893.shtml)
+- 2026-06-29 22:40 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/611880324.shtml)
+- 2026-06-29 22:48 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/387325897.shtml)
+- 2026-06-29 22:39 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/76496155967.shtml)
+- 2026-06-29 22:52 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/271121.shtml)
+- 2026-06-29 22:56 - [曼城官宣马雷斯卡出任主教练](http://www.blog.kurohicncr.top/Article/details/358054.shtml)
+- 2026-06-29 23:00 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/50733.shtml)

@@ -1,57 +1,61 @@
-# 申万宏源傅静涛：市场第一阶段上涨来到低性价比区域 下半年还有新一轮上涨行情
+# 摩根士丹利首席执行官称私募信贷市场正处于“青春期”
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-专题：大势如潮 百花齐放——申万宏源2026资本市场夏季策略会 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月10日，申万宏源2026资本市场夏季策略会在深圳举行。申万宏源A股策略首席分析师傅静涛发表《牛市的纵深与波折》为主题的主旨演讲。 在2026年的年度策略中，傅静涛提出了“牛市两段论”的核心观点，即市场先有结构牛，再有全面牛，中间会有一个时间
+摩根士丹利首席执行官泰德·皮克表示，规模达1.8万亿美元的私募信贷市场正经历更多审视，这属于其“青春期阶段”。 “这个类别仍在不断壮大，正处于学习阶段，”皮克周三在与分析师的财报电话会议上表示。“我们可以称之为青春期阶段，贷款人和借款人都正受到密切审视。” 皮克表示，他最终认为市场具有“非凡的增长潜力”，经济形势良好时，信贷市场也将表现良好。他指出，过去几周促使人们对这一资产类
 
 ## 正文
 
-专题：大势如潮 百花齐放——申万宏源2026资本市场夏季策略会 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+摩根士丹利首席执行官泰德·皮克表示，规模达1.8万亿美元的私募信贷市场正经历更多审视，这属于其“青春期阶段”。
 
-6月10日，申万宏源2026资本市场夏季策略会在深圳举行。
+“这个类别仍在不断壮大，正处于学习阶段，”皮克周三在与分析师的财报电话会议上表示。
 
-申万宏源A股策略首席分析师傅静涛发表《牛市的纵深与波折》为主题的主旨演讲。
+“我们可以称之为青春期阶段，贷款人和借款人都正受到密切审视。
 
-在2026年的年度策略中，傅静涛提出了“牛市两段论”的核心观点，即市场先有结构牛，再有全面牛，中间会有一个时间不短的震荡调整波段。
+” 皮克表示，他最终认为市场具有“非凡的增长潜力”，经济形势良好时，信贷市场也将表现良好。
 
-结合该观点，傅静涛表示，当前市场第一阶段上涨来到低性价比区域，第二阶段上涨空间尚待打开，6-7月可能是快速调整窗口。
+他指出，过去几周促使人们对这一资产类别有了更深入的了解，这“非常健康”。
 
-他表示，这个阶段叠加科技赛道低性价比、微观结构隐含高波动以及海外科技股调整，A股可能也会有脉冲式调整。
+近几周来，由于对估值以及人工智能对部分借款人影响的担忧，对这一资产类别的审视有所加强。
 
-对于投资分析意见，傅静涛表示，市场全面进入业绩消化估值波段，需等待产业趋势再进步，更多行业验证周期性改善。
+这也促使投资者寻求从面向散户的私募信贷基金中撤出更多资金，给Blue Owl Capital等管理机构带来一定压力。
 
-对于第二阶段的研判，傅静涛指出，后续第二阶段上涨或在7-8月打开空间，市场风格迎来更加均衡的契机，更多结构融入上涨，行情需要拉长时间，拓展逻辑纵深，2026下半年还有新一轮上涨。
+皮克补充说，摩根士丹利对该资产类别的敞口“适中”。
 
 ## 相关推荐
 
-- 2026-06-29 22:45 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-29 22:52 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 22:56 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-29 22:59 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-29 22:43 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 22:37 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-29 22:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 22:41 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-29 22:49 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 22:52 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-29 22:56 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-29 22:42 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 23:05 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 23:04 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-29 22:55 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-29 22:43 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 22:44 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-29 23:03 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 22:45 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-29 22:45 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-29 22:38 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-29 22:48 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 22:47 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 22:54 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-29 23:05 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 22:38 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/208559767.shtml)
-- 2026-06-29 22:46 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/197384501.shtml)
-- 2026-06-29 22:46 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/990814.shtml)
-- 2026-06-29 22:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/5355431.shtml)
-- 2026-06-29 22:50 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/933847643151.shtml)
-- 2026-06-29 22:34 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.minike.top/Article/details/029604959667.shtml)
-- 2026-06-29 22:53 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/43778690.shtml)
-- 2026-06-29 22:40 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/274639.shtml)
-- 2026-06-29 22:37 - [《恋与深空》回应争议](http://www.share.kurohicncr.top/Article/details/57597481700.shtml)
-- 2026-06-29 22:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/3002396937.shtml)
-- 2026-06-29 22:33 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/781799583811.shtml)
-- 2026-06-29 22:43 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/976806989751.shtml)
-- 2026-06-29 22:32 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/26448869595.shtml)
-- 2026-06-29 22:35 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/0415397333.shtml)
-- 2026-06-29 22:36 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/11331.shtml)
+- 2026-06-29 22:40 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/482692.shtml)
+- 2026-06-29 22:46 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/4979476.shtml)
+- 2026-06-29 22:48 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/66592.shtml)
+- 2026-06-29 23:00 - [青春环游记第三季](https://www.blog.minike.top/Article/details/11575311.shtml)
+- 2026-06-29 22:42 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/687467921.shtml)
+- 2026-06-29 22:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/701067343093.shtml)
+- 2026-06-29 22:50 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/309946.shtml)
+- 2026-06-29 22:53 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/373885884149.shtml)
+- 2026-06-29 22:44 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/032969.shtml)
+- 2026-06-29 22:37 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/7663532.shtml)
+- 2026-06-29 22:57 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/068250735.shtml)
+- 2026-06-29 22:56 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/397110465911.shtml)
+- 2026-06-29 22:54 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/07851311.shtml)
+- 2026-06-29 22:47 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/1778330.shtml)
+- 2026-06-29 23:00 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/5479228.shtml)

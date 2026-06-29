@@ -1,61 +1,61 @@
-# 销量前十再无燃油车 “油退电进”按下加速键
+# 意大利天然气公司Edison称卡塔尔可能延长天然气不可抗力，预计美国LNG填补缺口
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-5月，燃油车彻底退出了国内乘用车零售销量前十的榜单。而上个月，榜单上还有一款燃油车。 据乘联分会发布的数据，5月，新能源汽车零售渗透率达到62.9%的历史高位。相对应的，燃油车萎缩至37.1%。 受高油价剧烈冲击，上个月燃油车的零售量全线下跌，自主品牌下降39%，主流合资品牌下降41%，豪华品牌下降31%。 数据传递出一个清晰的信号：“油退电进”按下加速键。 过去，燃油车在市场
+意大利天然气进口商Edison周三表示，卡塔尔可能会将其天然气供应的不可抗力状态延长至6月中旬之后，同时预计这一缺口将由美国供应而非俄罗斯天然气来填补。 供应中断背景 Edison与卡塔尔能源公司签有长期合同，每年接收64亿立方米液化天然气，约占意大利年消费量的10%。 该合同自2009年开始，为期25年。上个月，由于中东冲突及霍尔木兹海峡的持续敌对行动，卡塔尔能源公司通知Ed
 
 ## 正文
 
-5月，燃油车彻底退出了国内乘用车零售销量前十的榜单。
+意大利天然气进口商Edison周三表示，卡塔尔可能会将其天然气供应的不可抗力状态延长至6月中旬之后，同时预计这一缺口将由美国供应而非俄罗斯天然气来填补。
 
-而上个月，榜单上还有一款燃油车。
+供应中断背景 Edison与卡塔尔能源公司签有长期合同，每年接收64亿立方米液化天然气，约占意大利年消费量的10%。
 
-据乘联分会发布的数据，5月，新能源汽车零售渗透率达到62.9%的历史高位。
+该合同自2009年开始，为期25年。
 
-相对应的，燃油车萎缩至37.1%。
+上个月，由于中东冲突及霍尔木兹海峡的持续敌对行动，卡塔尔能源公司通知Edison，在4月至6月中旬期间将无法履行10船货物（相当于14亿立方米天然气）的合同义务。
 
-受高油价剧烈冲击，上个月燃油车的零售量全线下跌，自主品牌下降39%，主流合资品牌下降41%，豪华品牌下降31%。
+据卡塔尔能源公司首席执行官称，上个月伊朗的袭击导致该公司17%的LNG出口能力瘫痪。
 
-数据传递出一个清晰的信号：“油退电进”按下加速键。
+美国LNG填补缺口 Edison首席执行官Nicola Monti在媒体简报会上表示，在卡塔尔能源公司因中东战争取消了4月至6月中旬的10船LNG货物后，该意大利集团已从美国购买了7船LNG。
 
-过去，燃油车在市场上能与新能源车“掰手腕”，靠的不是单一优势，而是一套完整的竞争体系——全生命周期成本的可预期性、补能的便利性以及经过长周期验证的可靠性，这些优势成为油车的三张竞争王牌。
+Monti对美国LNG供应能力表示信心，他提到了今年美国两座LNG工厂的投产——Venture Global的Plaquemines项目和Golden Pass项目（后者部分由卡塔尔能源公司和埃克森美孚持有）。
 
-然而，伴随电动化浪潮推进，三张王牌正在被逐个击破。
+他指出，其他工厂也在建设中。
 
 ## 相关推荐
 
-- 2026-06-29 22:55 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 22:40 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-29 22:59 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-29 22:31 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-29 22:41 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 22:44 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 22:43 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-29 22:33 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 22:47 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 22:41 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 22:41 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 22:44 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-29 22:51 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-29 22:47 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-29 22:31 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 22:43 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-29 22:37 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-29 22:38 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-29 23:05 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 22:47 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 23:02 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 22:52 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 22:49 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 22:46 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-29 22:46 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-29 22:43 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-29 23:02 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 22:56 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 22:52 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 23:01 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:35 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/57788852.shtml)
-- 2026-06-29 22:42 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/335372706.shtml)
-- 2026-06-29 22:48 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/68942.shtml)
-- 2026-06-29 22:49 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/003348869295.shtml)
-- 2026-06-29 22:39 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/872965630779.shtml)
-- 2026-06-29 22:54 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/14153813.shtml)
-- 2026-06-29 22:51 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/2680602198.shtml)
-- 2026-06-29 22:32 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/629681394.shtml)
-- 2026-06-29 22:57 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/845701782.shtml)
-- 2026-06-29 22:58 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/09865254530.shtml)
-- 2026-06-29 22:54 - [穆祉丞东方风云榜红毯](https://www.share.minike.top/Article/details/36361423169.shtml)
-- 2026-06-29 22:57 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/006491153449.shtml)
-- 2026-06-29 22:53 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/5963240544.shtml)
-- 2026-06-29 22:36 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/3083581312.shtml)
-- 2026-06-29 22:49 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/9873629.shtml)
+- 2026-06-29 22:58 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/66704.shtml)
+- 2026-06-29 23:02 - [勇敢的心第二部](https://www.share.minike.top/Article/details/21206674695.shtml)
+- 2026-06-29 22:56 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/085421.shtml)
+- 2026-06-29 22:53 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.blog.minike.top/Article/details/778007499284.shtml)
+- 2026-06-29 22:55 - [恋与深空制作组回应争议](https://www.blog.minike.top/Article/details/98723288.shtml)
+- 2026-06-29 22:52 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/50421816.shtml)
+- 2026-06-29 22:42 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/049448.shtml)
+- 2026-06-29 23:00 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/0794983.shtml)
+- 2026-06-29 22:37 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/406055314.shtml)
+- 2026-06-29 23:03 - [周杰伦的歌勾起25年友情](http://www.blog.kurohicncr.top/Article/details/2603099879.shtml)
+- 2026-06-29 22:41 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/56184.shtml)
+- 2026-06-29 22:36 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/776337.shtml)
+- 2026-06-29 22:40 - [蓝箭航天科创板IPO审核状态为已问询](http://www.blog.minike.top/Article/details/30449319430.shtml)
+- 2026-06-29 22:54 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.minike.top/Article/details/6757929966.shtml)
+- 2026-06-29 23:01 - [追觅称质量不行终身包修也没意义](http://www.blog.kurohicncr.top/Article/details/143245678.shtml)

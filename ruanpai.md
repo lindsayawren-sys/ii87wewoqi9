@@ -1,57 +1,49 @@
-# 汇丰上调全球股票至最高超配：风险已充分计价 基本面提供支撑
+# 第十五届中国国际园林博览会开幕
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-6月8日当周，全球市场真切感受到市场情绪转变之迅速：高盛撤销了对美联储2026年降息的预期，纳斯达克指数也因5月就业数据大跌5%。 汇丰银行在同一周却向客户建议继续持仓做多。 据报道，汇丰环球投资研究首席多资产策略师马克斯・凯特纳于6月8日发布研报，重申该行看多全球股票的立场。他认为，当前投资者重点担忧的各类风险，要么已基本被市场消化，要么被过度放大。 据悉，这份研报进一步强化
+发布时间：2026年04月15日 21:35 来源：中国新闻网 4月15日，第十五届中国国际园林博览会在浙江省温州市开幕。本届园博会以“诗画山海·共享绿色生活”为主题，聚力打造“百姓园博、国际园博、先锋园博、文化园博、全城园博”五大特色。据悉，本届园博会展期100天。(孙杨洋 周健） 责任编辑：【罗攀】
 
 ## 正文
 
-6月8日当周，全球市场真切感受到市场情绪转变之迅速：高盛撤销了对美联储2026年降息的预期，纳斯达克指数也因5月就业数据大跌5%。
+发布时间：2026年04月15日 21:35 来源：中国新闻网 4月15日，第十五届中国国际园林博览会在浙江省温州市开幕。
 
-汇丰银行在同一周却向客户建议继续持仓做多。
+本届园博会以“诗画山海·共享绿色生活”为主题，聚力打造“百姓园博、国际园博、先锋园博、文化园博、全城园博”五大特色。
 
-据报道，汇丰环球投资研究首席多资产策略师马克斯・凯特纳于6月8日发布研报，重申该行看多全球股票的立场。
+据悉，本届园博会展期100天。
 
-他认为，当前投资者重点担忧的各类风险，要么已基本被市场消化，要么被过度放大。
-
-据悉，这份研报进一步强化了汇丰近数月以来的一贯配置策略：全球股票配置上调至最高超配级别，重点看好亚洲新兴市场、日本及欧洲股市（尤其欧洲银行股）；同时对新兴市场本币债券大幅超配，并看多高收益信用债。
-
-凯特纳对当前风险环境直言不讳。
-
-他在接受采访时表示：“无论是量化策略还是主观主动策略，我们目前的整体持仓完全没有发出卖出信号。
-
-” 为何汇丰认为市场担忧反而会利好行情 凯特纳研报的核心观点是：当前市场热议的风险并非新消息。
+(孙杨洋 周健） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 22:58 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-29 22:48 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-29 22:53 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-29 22:41 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-29 22:44 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 22:58 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-29 22:50 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-29 22:30 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 22:54 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 22:31 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-29 22:44 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 22:46 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-29 23:01 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-29 22:38 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-29 23:03 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 22:54 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 22:54 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-29 22:52 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 22:58 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 22:45 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-29 22:51 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 22:49 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:48 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/0130976862.shtml)
-- 2026-06-29 22:53 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/780274.shtml)
-- 2026-06-29 22:33 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/58546941.shtml)
-- 2026-06-29 22:44 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/232557837.shtml)
-- 2026-06-29 22:50 - [外交部回应中日经贸问题](https://www.share.kurohicncr.top/Article/details/32668.shtml)
-- 2026-06-29 22:58 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/2941469.shtml)
-- 2026-06-29 22:34 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/58290233040.shtml)
-- 2026-06-29 22:44 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/2555602837.shtml)
-- 2026-06-29 22:56 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/70407690.shtml)
-- 2026-06-29 22:39 - [记者：预计热火将追求小哈达威和康利](https://www.blog.minike.top/Article/details/80523.shtml)
-- 2026-06-29 22:57 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/7302296054.shtml)
-- 2026-06-29 22:47 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.kurohicncr.top/Article/details/2309973123.shtml)
-- 2026-06-29 22:58 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/7258508.shtml)
-- 2026-06-29 22:56 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/430165.shtml)
-- 2026-06-29 22:37 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/934766.shtml)
+- 2026-06-29 22:39 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/37661710.shtml)
+- 2026-06-29 22:47 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/095117.shtml)
+- 2026-06-29 22:46 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/1433676.shtml)
+- 2026-06-29 22:36 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/390330232.shtml)
+- 2026-06-29 23:03 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.minike.top/Article/details/40067091836.shtml)
+- 2026-06-29 22:38 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/661249675926.shtml)
+- 2026-06-29 22:39 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/510950385481.shtml)
+- 2026-06-29 22:57 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/3328223656.shtml)
+- 2026-06-29 22:49 - [扫黑风暴](http://www.blog.minike.top/Article/details/8867929.shtml)
+- 2026-06-29 22:52 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/42820883.shtml)
+- 2026-06-29 22:51 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/159713063.shtml)
+- 2026-06-29 22:54 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/18450704.shtml)
+- 2026-06-29 22:42 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/566473533528.shtml)
+- 2026-06-29 22:52 - [恋与深空7天掉粉超50万](https://www.share.kurohicncr.top/Article/details/30928.shtml)
+- 2026-06-29 22:50 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/923554785.shtml)

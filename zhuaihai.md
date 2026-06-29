@@ -1,57 +1,61 @@
-# 比尔·盖茨接受美众议院委员会的闭门问询
+# 美伊寻求安排新一轮和谈 德黑兰考虑暂停其霍尔木兹航运
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-微软联合创始人比尔·盖茨于周三上午开始接受众议院委员会的闭门问询，就其与臭名昭著的性犯罪者杰弗里·爱泼斯坦之间备受争议的友谊进行说明。 据盖茨在网上发布的声明副本显示，他在开场白中对委员会表示：“从一开始，我就不该与爱泼斯坦会面。” 盖茨表示：“根据我现在所了解的情况，我明白，即使他兑现了向盖茨基金会引荐新捐赠者的承诺，这也不能成为与他交往的正当理由。” 盖茨在抵达众议院监督与
+美国和伊朗正寻求在未来几天安排第二轮和谈，同时德黑兰正考虑暂停通过霍尔木兹海峡的航运，以为潜在谈判铺路。 知情人士称，目标是在4月7日宣布的停火协议于下周到期前举行进一步会谈。其中一个提议是重返首轮谈判的举办地巴基斯坦，不过其他会谈地点也在考虑中。 据《纽约邮报》报道，美国总统唐纳德·特朗普表示，会谈可能在“未来两天内”于巴基斯坦重启。此前，美伊于周六晚在伊斯兰堡举行了马拉松式
 
 ## 正文
 
-微软联合创始人比尔·盖茨于周三上午开始接受众议院委员会的闭门问询，就其与臭名昭著的性犯罪者杰弗里·爱泼斯坦之间备受争议的友谊进行说明。
+美国和伊朗正寻求在未来几天安排第二轮和谈，同时德黑兰正考虑暂停通过霍尔木兹海峡的航运，以为潜在谈判铺路。
 
-据盖茨在网上发布的声明副本显示，他在开场白中对委员会表示：“从一开始，我就不该与爱泼斯坦会面。
+知情人士称，目标是在4月7日宣布的停火协议于下周到期前举行进一步会谈。
 
-” 盖茨表示：“根据我现在所了解的情况，我明白，即使他兑现了向盖茨基金会引荐新捐赠者的承诺，这也不能成为与他交往的正当理由。
+其中一个提议是重返首轮谈判的举办地巴基斯坦，不过其他会谈地点也在考虑中。
 
-” 盖茨在抵达众议院监督与政府改革委员会接受问询前约一小时发表了一份简短声明，他表示：“希望我的证词能对委员会为受害者寻求正义的重要工作有所帮助。
+据《纽约邮报》报道，美国总统唐纳德·特朗普表示，会谈可能在“未来两天内”于巴基斯坦重启。
 
-” 盖茨的一位发言人在一份电子邮件声明中表示：“盖茨欢迎此次出席委员会的机会。
+此前，美伊于周六晚在伊斯兰堡举行了马拉松式长谈，但未取得结果。
 
-虽然他从未目睹或参与过爱泼斯坦的任何非法行为，但他期待回答委员会的所有问题，以支持他们的重要工作。
+与此同时，美国正推进对霍尔木兹海峡的海上封锁，以遏制伊朗的石油出口。
 
-” 这位超级富豪是接受该委员会严厉质询的最知名人士之一。
+围绕这一战略水道控制权的争夺不断升级。
 
-该委员会数月来一直在调查爱泼斯坦的知名朋友圈网络。
+一名白宫官员表示，特朗普政府会让一项临时允许购买某些伊朗原油的豁免于本周末到期。
 
 ## 相关推荐
 
-- 2026-06-29 22:32 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 22:51 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 22:50 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 22:30 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-29 22:44 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-29 22:31 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 22:48 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-29 22:42 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 22:31 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 22:51 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-29 22:31 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 22:58 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-29 22:42 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 22:39 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 22:49 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 23:05 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 22:39 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 22:39 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 22:48 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-29 23:02 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-29 22:58 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-29 22:55 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-29 23:05 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 22:52 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 22:48 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 23:02 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:33 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/893586.shtml)
-- 2026-06-29 22:34 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/241505306.shtml)
-- 2026-06-29 22:52 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/19212.shtml)
-- 2026-06-29 22:45 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/45408450897.shtml)
-- 2026-06-29 22:58 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/455757794863.shtml)
-- 2026-06-29 22:49 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/3639951214.shtml)
-- 2026-06-29 22:34 - [炽夏](https://www.blog.minike.top/Article/details/15243.shtml)
-- 2026-06-29 22:30 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/09112142.shtml)
-- 2026-06-29 22:46 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/047465.shtml)
-- 2026-06-29 22:43 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/976763512.shtml)
-- 2026-06-29 22:55 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/182935337014.shtml)
-- 2026-06-29 22:38 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/001400578646.shtml)
-- 2026-06-29 22:42 - [蓝箭航天科创板IPO审核状态为已问询](http://www.blog.minike.top/Article/details/446106482.shtml)
-- 2026-06-29 22:40 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/7315495.shtml)
-- 2026-06-29 22:35 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/6659066.shtml)
+- 2026-06-29 22:44 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.share.minike.top/Article/details/3476568.shtml)
+- 2026-06-29 22:55 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/155777688.shtml)
+- 2026-06-29 22:46 - [巴西队主帅称日本队是世界最佳之一](http://www.share.kurohicncr.top/Article/details/20552682.shtml)
+- 2026-06-29 22:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/584032.shtml)
+- 2026-06-29 22:47 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/71267830059.shtml)
+- 2026-06-29 23:00 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/381666714.shtml)
+- 2026-06-29 23:05 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/8955821.shtml)
+- 2026-06-29 22:39 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/602201996.shtml)
+- 2026-06-29 22:37 - [王鸿薇要求删陆委会百余万特别费](http://www.share.minike.top/Article/details/003650236.shtml)
+- 2026-06-29 22:43 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/66193923.shtml)
+- 2026-06-29 22:40 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/4452378.shtml)
+- 2026-06-29 22:42 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.kurohicncr.top/Article/details/39242.shtml)
+- 2026-06-29 22:47 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/99324.shtml)
+- 2026-06-29 22:54 - [记者：预计热火将追求小哈达威和康利](http://www.share.kurohicncr.top/Article/details/1726827.shtml)
+- 2026-06-29 22:40 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/025393455.shtml)

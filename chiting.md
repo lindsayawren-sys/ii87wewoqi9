@@ -1,56 +1,56 @@
-# 霍尔木兹海峡局势推高运营成本 联合国世界粮食计划署警告冲突或加剧全球饥饿危机
+# 80亿元拿下全球顶级铜矿，套保却巨亏49亿元！江西铜业2025年的扩张与失控
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-联合国世界粮食计划署（WFP）代理执行主任卡尔·斯考日前接受媒体采访时表示，中东冲突引发的连锁反应正严重威胁全球数百万弱势群体的粮食安全，地缘政治动荡导致燃料、食品及化肥价格飙升，或将使更多人口陷入严重饥饿危机。 斯考指出，霍尔木兹海峡的关闭导致燃料成本呈指数级增长，大幅抬高了粮食计划署的全球救援人道主义运营成本。同时，海湾地区关键航道受阻，直接切断了面向苏丹等危机地区的化肥供
+来源：华夏时报 金属周期上行未能掩盖财务结构的波动，考验的已不再是周期，而是经营质量。 4月13日，江西铜业（600362.SH）2025年年度业绩说明会完成召开。在沪铜、伦铜双双创下历史新高的2025年，这家国内铜业龙头却交出了一份充满争议的年度成绩单。 财报显示，其上市以来首次出现年度经营活动现金流净流出69.14亿元，衍生金融负债同比暴增11倍，公允价值变动与投资收益合计
 
 ## 正文
 
-联合国世界粮食计划署（WFP）代理执行主任卡尔·斯考日前接受媒体采访时表示，中东冲突引发的连锁反应正严重威胁全球数百万弱势群体的粮食安全，地缘政治动荡导致燃料、食品及化肥价格飙升，或将使更多人口陷入严重饥饿危机。
+来源：华夏时报 金属周期上行未能掩盖财务结构的波动，考验的已不再是周期，而是经营质量。
 
-斯考指出，霍尔木兹海峡的关闭导致燃料成本呈指数级增长，大幅抬高了粮食计划署的全球救援人道主义运营成本。
+4月13日，江西铜业（600362.SH）2025年年度业绩说明会完成召开。
 
-同时，海湾地区关键航道受阻，直接切断了面向苏丹等危机地区的化肥供应，导致当地农作物种植面临严重困境。
+在沪铜、伦铜双双创下历史新高的2025年，这家国内铜业龙头却交出了一份充满争议的年度成绩单。
 
-斯考强调，即便霍尔木兹海峡立即重新开放，其对全球供应链产生的滞后与长期负面影响仍将持续。
+财报显示，其上市以来首次出现年度经营活动现金流净流出69.14亿元，衍生金融负债同比暴增11倍，公允价值变动与投资收益合计亏损近49亿元，直接吞噬近半营业利润；存货规模同比大增52%至681.9亿元，仅备货一项就吞噬超233亿元经营现金流。
 
-目前，世界粮食计划署正面临严重的资金短缺。
+与此同时，江西铜业刚完成对索尔黄金的收购，斥资约80亿元锁定厄瓜多尔Cascabel全球顶级铜矿项目，海外资源扩张动作持续加码。
 
-作为主要依赖成员国政府捐款的联合国机构，其获取的国际援助资金出现大幅削减。
+业绩会上，投资者们围绕债务结构短期化、套保亏损合理性、现金流承压、存货跌价风险等核心问题接连发问，管理层虽逐一回应，却未能完全消解市场对其激进扩张背后盈利质量与风控边界的普遍质疑。
 
-数据显示，作为该机构最大捐助国，美国在2024年的捐款曾超过40亿美元，但截至2026年6月上旬，美国当年度的捐助额仅约为7.31亿美元。
+激进扩张 1997年的中国有色金属工业，正站在市场化与全球化的十字路口。
 
-斯考解释称，在高度依赖外部援助的贫困国家和地区，食品价格每上涨20%至30%，底层民众的食物摄入量就会被迫减少同等比例。
+彼时，国内铜矿资源禀赋先天不足，高品位矿山稀缺，冶炼技术与国际巨头差距显著，而随着中国工业化进程提速，对铜这一“工业金属”的需求正以每年两位数的速度攀升。
 
 ## 相关推荐
 
-- 2026-06-29 22:36 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-29 22:38 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-29 22:45 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-29 22:58 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 22:38 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-29 22:37 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 22:37 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 22:46 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 22:30 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-29 22:56 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 22:58 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-29 22:53 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-29 22:51 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 22:54 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 22:40 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 23:05 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 22:56 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 22:44 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 23:01 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-29 22:47 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:30 - [杨德龙：创新药迎来新的发展机遇](https://www.share.minike.top/Article/details/957060144638.shtml)
-- 2026-06-29 22:51 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/90654189823.shtml)
-- 2026-06-29 22:36 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/43017716780.shtml)
-- 2026-06-29 22:47 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/71371466.shtml)
-- 2026-06-29 22:33 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/12092824254.shtml)
-- 2026-06-29 22:42 - [返利科技盘中上演“天地板”](http://www.blog.minike.top/Article/details/261740.shtml)
-- 2026-06-29 22:45 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/01916042.shtml)
-- 2026-06-29 22:45 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/28434646776.shtml)
-- 2026-06-29 22:35 - [一见倾心](http://www.blog.minike.top/Article/details/63894674405.shtml)
-- 2026-06-29 22:33 - [回顾世界杯争议事件](http://www.share.kurohicncr.top/Article/details/82396.shtml)
-- 2026-06-29 22:32 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/08613989909.shtml)
-- 2026-06-29 22:53 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/92363197.shtml)
-- 2026-06-29 22:30 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.minike.top/Article/details/9782377.shtml)
-- 2026-06-29 22:51 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/543342.shtml)
-- 2026-06-29 22:38 - [恋与深空致歉](http://www.share.minike.top/Article/details/070125.shtml)
+- 2026-06-29 23:01 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/63492.shtml)
+- 2026-06-29 22:49 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/1666964.shtml)
+- 2026-06-29 22:45 - [齐思钧回复孙怡](https://www.blog.kurohicncr.top/Article/details/13120.shtml)
+- 2026-06-29 22:47 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/50456262.shtml)
+- 2026-06-29 22:56 - [绿营污蔑大陆“海上袭扰”被批](https://www.blog.minike.top/Article/details/252854133513.shtml)
+- 2026-06-29 22:41 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/217499227.shtml)
+- 2026-06-29 22:55 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/025330.shtml)
+- 2026-06-29 23:02 - [爱很美味](https://www.share.minike.top/Article/details/1543533571.shtml)
+- 2026-06-29 22:41 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.minike.top/Article/details/4444699.shtml)
+- 2026-06-29 22:37 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/038783163650.shtml)
+- 2026-06-29 22:38 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/945551342851.shtml)
+- 2026-06-29 23:00 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/262030.shtml)
+- 2026-06-29 23:05 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/561100.shtml)
+- 2026-06-29 22:44 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/227211.shtml)
+- 2026-06-29 22:49 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/7490713.shtml)

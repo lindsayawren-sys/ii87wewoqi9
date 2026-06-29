@@ -1,58 +1,59 @@
-# 分歧加剧，美以关系生变？
+# 中药饮片集采新进展：3000亿市场格局迎变
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-中新网6月10日电(冯小妍)近日，美国总统特朗普与以色列总理内塔尼亚胡之间的矛盾罕见公开化。在中东局势持续动荡的背景下，双方分歧正日益浮出水面。 特朗普指责以色列升级黎巴嫩局势危及美伊停火谈判进程，接连对内塔尼亚胡发出严厉警告，称其“疯了”，还放话称“现在所有人都讨厌你，讨厌以色列”，“你最好谨慎行事，否则可能会在对抗伊朗时陷入孤立”，“我说了算，一切由我做主，他无权做主”。
+时隔五个月，第二批全国中药饮片集采迎来新进展。 近日，全国中药饮片联盟采购办公室发布《全国中药饮片采购联盟集中采购文件（征求意见稿）》，拟采购41个品种，每个品种分为选货、统货2个规格等级。本轮集采遵循“稳临床、保质量、反内卷、防围标”原则，由山东医保局牵头推进。 中药饮片是指用中药材制成的固态制剂，是中医药领域的重要剂型之一。随着药品集中带量采购改革不断深化，越来越多的化药、
 
 ## 正文
 
-中新网6月10日电(冯小妍)近日，美国总统特朗普与以色列总理内塔尼亚胡之间的矛盾罕见公开化。
+时隔五个月，第二批全国中药饮片集采迎来新进展。
 
-在中东局势持续动荡的背景下，双方分歧正日益浮出水面。
+近日，全国中药饮片联盟采购办公室发布《全国中药饮片采购联盟集中采购文件（征求意见稿）》，拟采购41个品种，每个品种分为选货、统货2个规格等级。
 
-特朗普指责以色列升级黎巴嫩局势危及美伊停火谈判进程，接连对内塔尼亚胡发出严厉警告，称其“疯了”，还放话称“现在所有人都讨厌你，讨厌以色列”，“你最好谨慎行事，否则可能会在对抗伊朗时陷入孤立”，“我说了算，一切由我做主，他无权做主”。
+本轮集采遵循“稳临床、保质量、反内卷、防围标”原则，由山东医保局牵头推进。
 
-长期被视为“铁杆盟友”的美以领导人，为何在这一关键时刻公开暴露分歧？
+中药饮片是指用中药材制成的固态制剂，是中医药领域的重要剂型之一。
 
-在各自抱持不同政治考量的背景下，美以又是否会因此次裂痕而渐行渐远？
+随着药品集中带量采购改革不断深化，越来越多的化药、生物药、中成药纳入集采范围，有效减轻群众用药负担。
 
-分歧为何出现？
+而中药饮片因标准不统一、质量参差、价格波动大等特性，集采推进难度较高。
 
-对于此次美以分歧的根源，多家媒体将其归结于双方目标的错位。
+2023年，山东牵头15个联盟地区完成21种中药饮片集采，为实施全国中药饮片联采工作积累了经验。
 
-美联社称，在美国国内，汽油及其他商品价格正持续飙升，一些曾经的支持者指责特朗普违背竞选承诺，将美国拖入泥潭。
+2024年5月，山东省医保局牵头将中药饮片采购联盟首次扩大到全国；首批全国中药饮片集采纳入45个饮片品种，于2025年4月逐步落地，多数省份将于今年5月底结束。
 
 ## 相关推荐
 
-- 2026-06-29 22:42 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-29 22:48 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 22:44 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-29 22:52 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-29 23:00 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 22:50 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 22:31 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 22:44 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 22:33 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-29 22:32 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 22:55 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-29 22:51 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-29 22:47 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-29 22:36 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-29 22:40 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-29 22:54 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 22:49 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-29 23:05 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 22:38 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-29 22:52 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-29 22:59 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 22:43 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 22:56 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-29 22:47 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 22:40 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:30 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/126026.shtml)
-- 2026-06-29 22:35 - [一汽大众黄金超混技术来袭](https://www.share.kurohicncr.top/Article/details/59531.shtml)
-- 2026-06-29 22:51 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/9838909.shtml)
-- 2026-06-29 22:50 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/373601040.shtml)
-- 2026-06-29 22:45 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/824978894.shtml)
-- 2026-06-29 22:33 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/5577087779.shtml)
-- 2026-06-29 22:58 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/4939464.shtml)
-- 2026-06-29 22:59 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/29130970267.shtml)
-- 2026-06-29 22:49 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/07611841.shtml)
-- 2026-06-29 22:37 - [上世纪90年代玩具成新宠](http://www.share.kurohicncr.top/Article/details/67851143.shtml)
-- 2026-06-29 22:34 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/545596.shtml)
-- 2026-06-29 22:39 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/11606228.shtml)
-- 2026-06-29 22:38 - [山东发布山洪灾害气象预警](https://www.blog.kurohicncr.top/Article/details/21775.shtml)
-- 2026-06-29 22:58 - [被裁员后30岁儿子被抓去戒网瘾](https://www.share.kurohicncr.top/Article/details/2558838.shtml)
-- 2026-06-29 22:38 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/8912505771.shtml)
+- 2026-06-29 22:37 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/4343819.shtml)
+- 2026-06-29 23:03 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/691317304.shtml)
+- 2026-06-29 22:51 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/871273.shtml)
+- 2026-06-29 22:40 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/405963316154.shtml)
+- 2026-06-29 23:01 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/4880369.shtml)
+- 2026-06-29 23:03 - [爱奇艺抬高国剧新标尺](https://www.blog.kurohicncr.top/Article/details/3445961.shtml)
+- 2026-06-29 22:53 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/687490511.shtml)
+- 2026-06-29 22:40 - [张凌赫 客串](https://www.blog.minike.top/Article/details/435057.shtml)
+- 2026-06-29 22:59 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/50076655.shtml)
+- 2026-06-29 22:46 - [乌是否掌握了扭转战局的钥匙](http://www.blog.minike.top/Article/details/42958.shtml)
+- 2026-06-29 22:36 - [记者乘坐无人驾驶汽车去采访](https://www.blog.minike.top/Article/details/84110.shtml)
+- 2026-06-29 22:37 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/71147709250.shtml)
+- 2026-06-29 22:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/39698204.shtml)
+- 2026-06-29 22:52 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/065075513.shtml)
+- 2026-06-29 22:52 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/739941.shtml)

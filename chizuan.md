@@ -1,56 +1,56 @@
-# 做空报告揭开“幽灵交易”，SES AI因证券欺诈面临集体诉讼
+# 摩根大通第一季度表现高于预期 CEO警告多重风险
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-锂金属电池技术公司SES AI Corporation（NYSE： SES）正面临证券欺诈集体诉讼。此前做空机构指控该公司通过关联方自买自卖交易虚增营收，其人工智能平台也被指存在严重夸大。投资者申请担任首席原告的截止日期为2026年6月26日。 诉讼已在马萨诸塞州联邦地区法院提起，旨在代表在2025年1月29日至2026年3月4日期间购买SES AI证券的投资者。被告包括公司及
+摩根大通一季度利润与营收双双超预期，华尔街业务表现强劲，美国经济依旧保持韧性。 这家美国最大银行公布一季度利润为165亿美元，每股收益5.94美元，高于去年同期的146亿美元。分析师平均预期为每股5.45美元。 营收同比增长10%，至498.4亿美元，高于市场预期的491.3亿美元。 首席执行官杰米·戴蒙表示，尽管美国整体经济大体保持良好，但“一系列复杂风险”——包括能源价格、
 
 ## 正文
 
-锂金属电池技术公司SES AI Corporation（NYSE： SES）正面临证券欺诈集体诉讼。
+摩根大通一季度利润与营收双双超预期，华尔街业务表现强劲，美国经济依旧保持韧性。
 
-此前做空机构指控该公司通过关联方自买自卖交易虚增营收，其人工智能平台也被指存在严重夸大。
+这家美国最大银行公布一季度利润为165亿美元，每股收益5.94美元，高于去年同期的146亿美元。
 
-投资者申请担任首席原告的截止日期为2026年6月26日。
+分析师平均预期为每股5.45美元。
 
-诉讼已在马萨诸塞州联邦地区法院提起，旨在代表在2025年1月29日至2026年3月4日期间购买SES AI证券的投资者。
+营收同比增长10%，至498.4亿美元，高于市场预期的491.3亿美元。
 
-被告包括公司及部分高管，被指控违反联邦证券法，在业务前景和收入来源方面误导投资者。
+首席执行官杰米·戴蒙表示，尽管美国整体经济大体保持良好，但“一系列复杂风险”——包括能源价格、地缘政治紧张、高额财政赤字以及高企的资产价格——仍有可能打乱当前增长轨迹。
 
-事件的导火索是2025年12月9日。
+“我们无法预测这些风险与不确定性最终将如何演变，但它们的影响不容小觑。
 
-做空机构Wolfpack Research发布报告，指控SES AI存在虚假交易和沼泽地合资企业。
+”戴蒙在公告中表示。
 
-报告称，公司与AISPEX签署的价值4500万美元的谅解备忘录纯属虚设，对方在得克萨斯州的所谓加密货币挖矿业务几乎没有实际运营，其公司总部地址被另一家企业占据。
+本周陆续公布的银行财报，正清晰反映出2月底伊朗冲突爆发以来的经济状况。
 
 ## 相关推荐
 
-- 2026-06-29 22:46 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-29 22:46 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 22:45 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-29 22:55 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-29 22:37 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-29 22:46 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 22:56 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-29 22:35 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 22:55 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-29 22:36 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 23:03 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-29 22:52 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-29 22:59 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 23:00 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 22:41 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 22:48 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 22:39 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-29 22:54 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-29 22:36 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-29 23:05 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:59 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/582394.shtml)
-- 2026-06-29 22:53 - [足球“出口导向”造就佛得角奇迹](http://www.blog.minike.top/Article/details/03610172.shtml)
-- 2026-06-29 22:34 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/2914972.shtml)
-- 2026-06-29 22:44 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/608038481.shtml)
-- 2026-06-29 22:41 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/3449804.shtml)
-- 2026-06-29 22:48 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/1140535612.shtml)
-- 2026-06-29 22:47 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/62289738.shtml)
-- 2026-06-29 22:47 - [金刚川](https://www.share.kurohicncr.top/Article/details/911031.shtml)
-- 2026-06-29 22:52 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/3470794.shtml)
-- 2026-06-29 22:35 - [斗破苍穹](http://www.blog.minike.top/Article/details/42302470000.shtml)
-- 2026-06-29 22:42 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/65002682.shtml)
-- 2026-06-29 22:44 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/33604582744.shtml)
-- 2026-06-29 22:30 - [杨德龙：创新药迎来新的发展机遇](http://www.share.minike.top/Article/details/6310645.shtml)
-- 2026-06-29 22:51 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/929153.shtml)
-- 2026-06-29 22:32 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/028060.shtml)
+- 2026-06-29 22:44 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/595033329224.shtml)
+- 2026-06-29 22:47 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/778557.shtml)
+- 2026-06-29 22:36 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/36025427.shtml)
+- 2026-06-29 23:04 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/02199013.shtml)
+- 2026-06-29 23:02 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/9668886934.shtml)
+- 2026-06-29 22:51 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/1599435227.shtml)
+- 2026-06-29 22:41 - [记者：预计热火将追求小哈达威和康利](http://www.share.kurohicncr.top/Article/details/57373875.shtml)
+- 2026-06-29 22:40 - [女心理师](https://www.blog.minike.top/Article/details/4734415.shtml)
+- 2026-06-29 22:49 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/17712153793.shtml)
+- 2026-06-29 23:01 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/35040579.shtml)
+- 2026-06-29 22:47 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/70218.shtml)
+- 2026-06-29 22:36 - [返利科技盘中上演“天地板”](https://www.blog.kurohicncr.top/Article/details/483921578204.shtml)
+- 2026-06-29 22:45 - [巴西10号球衣是天才传承史](https://www.share.kurohicncr.top/Article/details/59409250238.shtml)
+- 2026-06-29 22:46 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/5275520339.shtml)
+- 2026-06-29 23:02 - [国际清算银行警告AI投资热潮](https://www.blog.minike.top/Article/details/95183.shtml)

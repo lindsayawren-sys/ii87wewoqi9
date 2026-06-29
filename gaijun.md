@@ -1,59 +1,55 @@
-# 美参议员沃伦敦促SEC推迟SpaceX的上市进程
+# 日本财务大臣会见美国财长，同意加强汇率沟通
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-美国参议员伊丽莎白·沃伦敦促美国证券交易委员会推迟SpaceX的首次公开募股（IPO）计划，并警告称，这一创纪录的上市可能会使投资者面临不寻常的估值、治理和指数基金风险。 沃伦在当地时间周三由其办公室发布的一封致美国证券交易委员会（SEC）主席保罗·阿特金斯的信中表示：“鉴于这一史上规模最大的IPO对投资者保护和市场诚信构成了前所未有的威胁，您必须相应地推迟任何加速注册声明生效
+日本财务大臣片山皋月周三与美国财长斯科特·贝森特会晤后表示，日美两国同意加强汇率沟通。 片山皋月此次访美是为了出席国际货币基金组织（IMF）年会以及七国集团（G7）和二十国集团（G20）财长会议。她在X账号上发表了上述言论。 日本决策者已多次口头警告，近期日元贬值将推高进口成本，加剧本已不断攀升的通胀压力。 日元疲软也可能加剧油价上涨的影响，因为日本严重依赖能源进口。 片山皋月
 
 ## 正文
 
-美国参议员伊丽莎白·沃伦敦促美国证券交易委员会推迟SpaceX的首次公开募股（IPO）计划，并警告称，这一创纪录的上市可能会使投资者面临不寻常的估值、治理和指数基金风险。
+日本财务大臣片山皋月周三与美国财长斯科特·贝森特会晤后表示，日美两国同意加强汇率沟通。
 
-沃伦在当地时间周三由其办公室发布的一封致美国证券交易委员会（SEC）主席保罗·阿特金斯的信中表示：“鉴于这一史上规模最大的IPO对投资者保护和市场诚信构成了前所未有的威胁，您必须相应地推迟任何加速注册声明生效的举措。
+片山皋月此次访美是为了出席国际货币基金组织（IMF）年会以及七国集团（G7）和二十国集团（G20）财长会议。
 
-” 这封信敦促SEC放缓此次上市进程，本次IPO预计于周五正式挂牌交易。
+她在X账号上发表了上述言论。
 
-沃伦在这封长达 12 页的信函中提出多项担忧，包括SpaceX收购埃隆・马斯克旗下人工智能企业xAI相关的会计核算与估值存在失实或误导问题、马斯克拥有 “几乎不受约束” 的绝对控制权所引发的利益冲突，以及指数编制机构可能将SpaceX快速纳入主流市场指数的相关风险。
+日本决策者已多次口头警告，近期日元贬值将推高进口成本，加剧本已不断攀升的通胀压力。
 
-沃伦写道：“对于那些自主选择投资标的的投资者来说，他们至少能够避免投资于那些从事高风险或不公平行为的公司。
+日元疲软也可能加剧油价上涨的影响，因为日本严重依赖能源进口。
 
-但SpaceX的IPO却引发了一个新的担忧：主要股票市场指数可能被操纵，迫使数百万被动型指数基金的投资者……投资SpaceX，并被迫承担SpaceX带来的巨大风险，而他们对此却别无选择。
+片山皋月和贝森特上次会面是在1月份，当时这位日本财务大臣在会谈后发出口头警告，提振了日元汇率，因为市场严阵以待，准备迎接可能的干预。
 
-” 沃伦表示，分析师们称SpaceX的估值计算“荒谬”、“弄虚作假”，“简直是天方夜谭”。
-
-SpaceX公布的2025年营收为186.7亿美元，净亏损49.4亿美元，这意味着其市销率约为93.7倍。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 22:58 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-29 22:39 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-29 22:41 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 22:31 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 22:46 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-29 22:34 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 22:47 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 22:52 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-29 22:30 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-29 22:55 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-29 22:50 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 22:58 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-29 22:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-29 22:39 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 22:47 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 22:41 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 23:01 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-29 22:43 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-29 22:46 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 22:47 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 23:03 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 22:58 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-29 22:42 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-29 22:53 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:46 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/146856.shtml)
-- 2026-06-29 22:46 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/626646291515.shtml)
-- 2026-06-29 22:37 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/45628615669.shtml)
-- 2026-06-29 22:46 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/4437059079.shtml)
-- 2026-06-29 22:31 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/25534737.shtml)
-- 2026-06-29 22:56 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/726057045.shtml)
-- 2026-06-29 22:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/7072479.shtml)
-- 2026-06-29 22:57 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/735010748591.shtml)
-- 2026-06-29 22:31 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/40834294.shtml)
-- 2026-06-29 22:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/76320.shtml)
-- 2026-06-29 22:46 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/8975703.shtml)
-- 2026-06-29 22:51 - [温网](https://www.blog.minike.top/Article/details/92662617.shtml)
-- 2026-06-29 22:50 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/42691723219.shtml)
-- 2026-06-29 22:35 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/76496.shtml)
-- 2026-06-29 22:41 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/4411875132.shtml)
+- 2026-06-29 22:42 - [时光音乐会](http://www.blog.minike.top/Article/details/81182988.shtml)
+- 2026-06-29 22:57 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/825149608054.shtml)
+- 2026-06-29 22:44 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/386381893685.shtml)
+- 2026-06-29 22:59 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/815744.shtml)
+- 2026-06-29 23:03 - [TOP Prada](http://www.share.minike.top/Article/details/903760161.shtml)
+- 2026-06-29 23:02 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/84365.shtml)
+- 2026-06-29 22:50 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/705176717.shtml)
+- 2026-06-29 22:49 - [18岁高二体育生训练晕倒后离世](https://www.blog.minike.top/Article/details/57587853102.shtml)
+- 2026-06-29 22:46 - [AI接过张雪峰志愿填报衣钵](https://www.share.kurohicncr.top/Article/details/0639929032.shtml)
+- 2026-06-29 22:41 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/21840.shtml)
+- 2026-06-29 22:45 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/01907.shtml)
+- 2026-06-29 22:58 - [天道](http://www.share.kurohicncr.top/Article/details/575469.shtml)
+- 2026-06-29 22:39 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/63302089.shtml)
+- 2026-06-29 23:02 - [如何看待乌空军3架米格-29被摧毁](http://www.share.minike.top/Article/details/2996576.shtml)
+- 2026-06-29 22:42 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/65358420.shtml)

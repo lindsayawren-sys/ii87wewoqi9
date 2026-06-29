@@ -1,50 +1,52 @@
-# 心动公司早盘涨超5% 拟回购最多4亿港元公司股份
+# 国务院办公厅印发《关于健全药品价格形成机制的若干意见》
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-心动公司（02400）早盘高开逾5%，截至发稿，股价上涨5.36%，报51.90港元，成交额3892.45万港元。 心动公司公布，公司于2026年6月10日与独立经纪商订立一份协议，据此，经纪商获委聘运作自动股份回购计划。根据股份回购协议，公司已协定参数，由经纪商在联交所回购最多4亿港元的公司股份。太平洋证券此前指出，公司《心动小镇》、《火炬之光：无限》等存量游戏长线运营，《心
+新华社北京4月14日电 近日，国务院办公厅印发《关于健全药品价格形成机制的若干意见》(以下简称《意见》)，强调充分发挥市场在资源配置中的决定性作用，更好发挥政府作用，有效服务药品领域全国统一大市场建设，健全以市场为主导的药品价格形成机制，支持医药产业高质量发展，保障人民群众获得质优价宜药品。根据药品上市后的不同阶段，《意见》提出优化创新药等新上市药品首发价格机制、发挥医保支付标
 
 ## 正文
 
-心动公司（02400）早盘高开逾5%，截至发稿，股价上涨5.36%，报51.90港元，成交额3892.45万港元。
+新华社北京4月14日电 近日，国务院办公厅印发《关于健全药品价格形成机制的若干意见》(以下简称《意见》)，强调充分发挥市场在资源配置中的决定性作用，更好发挥政府作用，有效服务药品领域全国统一大市场建设，健全以市场为主导的药品价格形成机制，支持医药产业高质量发展，保障人民群众获得质优价宜药品。
 
-心动公司公布，公司于2026年6月10日与独立经纪商订立一份协议，据此，经纪商获委聘运作自动股份回购计划。
+根据药品上市后的不同阶段，《意见》提出优化创新药等新上市药品首发价格机制、发挥医保支付标准对药品价格形成的引导作用、健全药品集中带量采购价格形成机制、完善药品挂网价格管理等措施，完善重点环节药品价格政策。
 
-根据股份回购协议，公司已协定参数，由经纪商在联交所回购最多4亿港元的公司股份。
+根据药品流通的不同渠道，《意见》明确发挥医疗机构专业作用、引导药店合理制定药品零售价格、用好网上药店价格发现功能等措施，鼓励各类主体参与价格形成。
 
-太平洋证券此前指出，公司《心动小镇》、《火炬之光：无限》等存量游戏长线运营，《心动小镇》海外服，及《仙境传说RO：守护永恒的爱2》等储备游戏上线有望贡献增量。
+根据药品的不同领域，《意见》强调促进创新药多元支付与价格合理形成、强化短缺药保供稳价、加强麻醉药品和精神药品价格管理、规范药品原辅料价格行为，引导关键领域药品价格保持合理水平。
 
-责任编辑：卢昱君
+《意见》要求加强药品价格治理，提出实行药品价格风险预警、健全药品价格风险处置制度、防范非理性竞价中标影响供应、严惩药品和原辅料生产经营领域以缺逼涨等违法违规行为、加强医药领域全链条穿透式审计监督、建立药品医保价值评估制度等针对性措施，引导药品价格运行在合理区间。
 
 ## 相关推荐
 
-- 2026-06-29 22:41 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-29 22:53 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-29 22:40 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 22:40 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-29 22:34 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 22:32 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 22:31 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 22:57 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 22:47 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 22:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 22:53 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-29 23:00 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-29 22:53 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 23:03 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 23:05 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 23:04 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-29 22:47 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-29 22:48 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-29 22:44 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 22:39 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-29 22:43 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 22:47 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:37 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/45209022301.shtml)
-- 2026-06-29 22:57 - [美国一牛仔表演发生事故](http://www.share.minike.top/Article/details/5322487976.shtml)
-- 2026-06-29 22:49 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/0044129.shtml)
-- 2026-06-29 22:58 - [绘画区你赢了](https://www.blog.minike.top/Article/details/93630.shtml)
-- 2026-06-29 22:30 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/29551.shtml)
-- 2026-06-29 22:51 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/275850498422.shtml)
-- 2026-06-29 22:31 - [乌是否掌握了扭转战局的钥匙](http://www.share.minike.top/Article/details/37042269190.shtml)
-- 2026-06-29 22:30 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/52292987104.shtml)
-- 2026-06-29 22:59 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/4730873.shtml)
-- 2026-06-29 22:31 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/501050.shtml)
-- 2026-06-29 22:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/335444.shtml)
-- 2026-06-29 22:31 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/393864.shtml)
-- 2026-06-29 22:54 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/1358862.shtml)
-- 2026-06-29 22:59 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/896635287.shtml)
-- 2026-06-29 22:52 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/45778322.shtml)
+- 2026-06-29 22:47 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/159653772891.shtml)
+- 2026-06-29 22:55 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/52987269515.shtml)
+- 2026-06-29 22:54 - [曼城官宣马雷斯卡出任主教练](https://www.share.kurohicncr.top/Article/details/9931044835.shtml)
+- 2026-06-29 22:47 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/999496246544.shtml)
+- 2026-06-29 22:38 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/3250782.shtml)
+- 2026-06-29 22:41 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/057767806.shtml)
+- 2026-06-29 23:04 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/04692081.shtml)
+- 2026-06-29 22:46 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/74998350709.shtml)
+- 2026-06-29 23:04 - [记者乘坐无人驾驶汽车去采访](http://www.share.minike.top/Article/details/450120015.shtml)
+- 2026-06-29 22:36 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/1004565.shtml)
+- 2026-06-29 22:49 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/684231000825.shtml)
+- 2026-06-29 22:42 - [恋与深空需正视价值观偏差](http://www.share.minike.top/Article/details/087875.shtml)
+- 2026-06-29 22:40 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/95554.shtml)
+- 2026-06-29 22:48 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/3972751367.shtml)
+- 2026-06-29 22:57 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/7490098589.shtml)

@@ -1,58 +1,56 @@
-# Meta敲定印度AI数据中心合作，大型云厂商持续加码基础设施建设
+# 童年回忆“背背佳”要赴港IPO了！可孚医疗通过港交所聆讯，A股股价已较发行价下跌约38%
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-Meta周三宣布，将从印度富豪穆克什・安巴尼旗下的信实工业集团，租赁一座算力规模达168兆瓦的人工智能数据中心。 这家美国企业在公告中表示，信实工业业务版图庞大，经营范围涵盖石化、纺织、大众传媒等多个领域。该集团将为Meta承建这座数据中心，项目两年内交付，且后续可按需扩容。 Meta创始人兼首席执行官马克・扎克伯格表示：“这座位于贾姆纳格尔的世界级数据中心，将助力我们拓展全球
+每经记者|李旭馗 每经编辑|陈俊杰 童年记忆里的背背佳，要去港股IPO（首次公开募股）了。 4月10日，背背佳品牌归属方可孚医疗科技股份有限公司（以下简称可孚医疗，SZ301087）的港股IPO申请通过港交所聆讯，华泰国际、法国巴黎银行担任联席保荐人。作为中国最大的家用医疗器械企业之一的可孚医疗，在深交所上市近四年半后，即将实现“A+H”双平台上市。 从湖南一个家用医疗器械夫妻
 
 ## 正文
 
-Meta周三宣布，将从印度富豪穆克什・安巴尼旗下的信实工业集团，租赁一座算力规模达168兆瓦的人工智能数据中心。
+每经记者|李旭馗 每经编辑|陈俊杰 童年记忆里的背背佳，要去港股IPO（首次公开募股）了。
 
-这家美国企业在公告中表示，信实工业业务版图庞大，经营范围涵盖石化、纺织、大众传媒等多个领域。
+4月10日，背背佳品牌归属方可孚医疗科技股份有限公司（以下简称可孚医疗，SZ301087）的港股IPO申请通过港交所聆讯，华泰国际、法国巴黎银行担任联席保荐人。
 
-该集团将为Meta承建这座数据中心，项目两年内交付，且后续可按需扩容。
+作为中国最大的家用医疗器械企业之一的可孚医疗，在深交所上市近四年半后，即将实现“A+H”双平台上市。
 
-Meta创始人兼首席执行官马克・扎克伯格表示：“这座位于贾姆纳格尔的世界级数据中心，将助力我们拓展全球人工智能基础设施，同时进一步加大对印度经济的长期投入。
+从湖南一个家用医疗器械夫妻店，到如今年营收近34亿元、市值超120亿元的上市公司，张敏与聂娟夫妇用近二十年时间，书写了一个草根逆袭的商业故事，也让“古早”品牌背背佳再度步入大众的视野。
 
-” 双方的合作最早可追溯至2020年，当时Meta向安巴尼旗下电信与数字服务公司吉奥平台投资57亿美元。
+但《每日经济新闻》记者注意到，为了让背背佳“翻红”并维持热度，公司销售支出逐年走高，研发投入逐年下降。
 
-去年，两家企业再度深化合作，成立合资公司，面向印度本土企业与开发者开放Meta的开源人工智能模型。
+尽管如此，背背佳的功效在网上却仍存在较大争议。
 
-信实工业董事长安巴尼称，Meta此次投资，是印度数字基础设施发展的标志性转折点。
+公司通过收购加速布局海外渠道，效果尚待市场验证，而其A股股价却仍在发行价之下挣扎。
 
-全球各大超大规模科技企业纷纷入局印度数据中心市场。
+公开资料显示，可孚医疗的故事始于2007年。
 
 ## 相关推荐
 
-- 2026-06-29 22:50 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-29 22:46 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 22:55 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-29 22:58 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 22:51 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-29 22:46 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-29 22:43 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-29 22:47 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 22:52 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 22:31 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-29 22:44 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-29 22:45 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 22:45 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-29 22:40 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-29 23:01 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 23:03 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 22:45 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 22:46 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-29 22:50 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 22:36 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-29 23:03 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-29 22:49 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:31 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/50705101441.shtml)
-- 2026-06-29 22:48 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/803286861470.shtml)
-- 2026-06-29 22:49 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/1388611.shtml)
-- 2026-06-29 22:51 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/665361478195.shtml)
-- 2026-06-29 22:30 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/94280110.shtml)
-- 2026-06-29 22:45 - [第一炉香](http://www.share.minike.top/Article/details/371940755081.shtml)
-- 2026-06-29 22:52 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/644655370654.shtml)
-- 2026-06-29 22:38 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/57249.shtml)
-- 2026-06-29 22:58 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/241934.shtml)
-- 2026-06-29 22:55 - [我和我的家乡](https://www.share.minike.top/Article/details/777214010437.shtml)
-- 2026-06-29 22:45 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/85344700.shtml)
-- 2026-06-29 22:52 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/178251395484.shtml)
-- 2026-06-29 22:53 - [刘宇宁 好听](https://www.share.kurohicncr.top/Article/details/984022426151.shtml)
-- 2026-06-29 22:44 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/974345.shtml)
-- 2026-06-29 22:51 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/48758801.shtml)
+- 2026-06-29 22:48 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/116579762660.shtml)
+- 2026-06-29 22:38 - [货车司机恶意闯卡逃费被行拘](https://www.blog.minike.top/Article/details/201838753092.shtml)
+- 2026-06-29 22:40 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/163542.shtml)
+- 2026-06-29 22:46 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/891232.shtml)
+- 2026-06-29 22:53 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/5404948561.shtml)
+- 2026-06-29 22:48 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/690935.shtml)
+- 2026-06-29 22:50 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/322432840.shtml)
+- 2026-06-29 23:01 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/02825.shtml)
+- 2026-06-29 22:55 - [返利科技盘中上演“天地板”](http://www.share.minike.top/Article/details/89559567.shtml)
+- 2026-06-29 22:36 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/32390.shtml)
+- 2026-06-29 22:52 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/3600110.shtml)
+- 2026-06-29 22:55 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/004618.shtml)
+- 2026-06-29 22:40 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/671742967693.shtml)
+- 2026-06-29 22:52 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/0959536426.shtml)
+- 2026-06-29 22:58 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/12784074592.shtml)

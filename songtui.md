@@ -1,61 +1,57 @@
-# （乡村行·看振兴）山西襄垣：田园硕果盈枝头 特色采摘引客来
+# 棕榈油3月MPOB报告解读：库存及产量高于预期 价格有下调压
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-中新网长治6月10日电 (杨佩佩 邓蓉)眼下，正值时令果蔬成熟上市的黄金季节。山西省长治市襄垣县多地的果蔬基地硕果满枝、瓜果飘香，乡村采摘游迎来客流小高峰，热度高涨、持续升温。 连日来，古韩镇八里庄村的樱桃采摘园，迎来采摘高峰。红彤彤的樱桃挂满枝头，果实饱满、色泽鲜亮，满园果香沁人心脾。不少游客慕名而来，结伴入园采摘，沉浸式体验田园乐趣。 “樱桃清甜多汁、口感很好。这里交通也十
+卓创资讯棕榈油分析师张兰兰 【导语】4月10日，马来西亚棕榈油局（MPOB）发布2026年3月棕榈油供需数据。数据显示，当月马棕产量环比增加，且高于市场预期；库存环比下降，但高于市场预期。供需面数据整体偏空，给予棕榈油回落压力，当前因处在增产期且因价格高出口前景有压力，预计4月后半月棕榈油现货价格或呈现高位回落走势。 3月MPOB报告产量及库存高于预期，价格有回落压力 马来西亚
 
 ## 正文
 
-中新网长治6月10日电 (杨佩佩 邓蓉)眼下，正值时令果蔬成熟上市的黄金季节。
+卓创资讯棕榈油分析师张兰兰 【导语】4月10日，马来西亚棕榈油局（MPOB）发布2026年3月棕榈油供需数据。
 
-山西省长治市襄垣县多地的果蔬基地硕果满枝、瓜果飘香，乡村采摘游迎来客流小高峰，热度高涨、持续升温。
+数据显示，当月马棕产量环比增加，且高于市场预期；库存环比下降，但高于市场预期。
 
-连日来，古韩镇八里庄村的樱桃采摘园，迎来采摘高峰。
+供需面数据整体偏空，给予棕榈油回落压力，当前因处在增产期且因价格高出口前景有压力，预计4月后半月棕榈油现货价格或呈现高位回落走势。
 
-红彤彤的樱桃挂满枝头，果实饱满、色泽鲜亮，满园果香沁人心脾。
+3月MPOB报告产量及库存高于预期，价格有回落压力 马来西亚棕榈油总署（MPOB）发布的3月供需报告整体偏空影响。
 
-不少游客慕名而来，结伴入园采摘，沉浸式体验田园乐趣。
+数据显示，当月产量为138万吨（环比+7.8%），出口量为155万吨（环比+38.39%），月末库存为227万吨（环比-15.93%）。
 
-“樱桃清甜多汁、口感很好。
+从产量看，3月棕榈油产量138万吨，环比有所提高7.8%，同比略回落0.58%，略高于市场预期值134万吨。
 
-这里交通也十分便利，非常适合约上亲朋好友前来采摘。
+产区处在增产期，产量环比增加符合市场预期，但略高于市场预期值，该数据中性偏空，不利于价格持续走高。
 
-”游客倪女士说。
+从出口量看，3月棕榈油出口量为155万吨，环比增加38.39%，同比增加54.00%，基本符合市场预期值155-156万吨。
 
 ## 相关推荐
 
-- 2026-06-29 22:32 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-29 22:51 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 22:53 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 22:35 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-29 22:46 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-29 22:37 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-29 22:46 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-29 22:33 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 22:36 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-29 22:45 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-29 22:57 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-29 22:56 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-29 22:37 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-29 22:44 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-29 22:49 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 22:43 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 23:02 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-29 23:00 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-29 22:36 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-29 22:40 - [福建海警位金门附近海域常态执法巡查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-29 22:59 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 23:01 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 22:36 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 22:50 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 22:45 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-29 23:00 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:30 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/093282747819.shtml)
-- 2026-06-29 22:34 - [TFing最具影响力音乐厂牌](http://www.blog.kurohicncr.top/Article/details/859744909792.shtml)
-- 2026-06-29 22:40 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/1116549.shtml)
-- 2026-06-29 22:51 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/7507769092.shtml)
-- 2026-06-29 22:43 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/00762335.shtml)
-- 2026-06-29 22:58 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/603822753.shtml)
-- 2026-06-29 22:45 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/8970213.shtml)
-- 2026-06-29 22:50 - [沙丘](https://www.blog.kurohicncr.top/Article/details/950513910.shtml)
-- 2026-06-29 22:33 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/8742353.shtml)
-- 2026-06-29 22:34 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/969010.shtml)
-- 2026-06-29 22:42 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/131781199.shtml)
-- 2026-06-29 22:42 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/70014.shtml)
-- 2026-06-29 22:32 - [爱奇艺抬高国剧新标尺](http://www.blog.kurohicncr.top/Article/details/659065.shtml)
-- 2026-06-29 22:31 - [极限挑战第一季](http://www.share.minike.top/Article/details/217130.shtml)
-- 2026-06-29 22:50 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/525952535.shtml)
+- 2026-06-29 23:02 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/338569.shtml)
+- 2026-06-29 23:03 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/83055500.shtml)
+- 2026-06-29 22:46 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/3112573.shtml)
+- 2026-06-29 23:01 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/2571382.shtml)
+- 2026-06-29 22:45 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/38818559.shtml)
+- 2026-06-29 22:44 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/551235730.shtml)
+- 2026-06-29 22:50 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/556938175771.shtml)
+- 2026-06-29 22:55 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/610258094.shtml)
+- 2026-06-29 22:41 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/1566107.shtml)
+- 2026-06-29 22:47 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/13958810.shtml)
+- 2026-06-29 23:02 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/53528893445.shtml)
+- 2026-06-29 22:51 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/67341364.shtml)
+- 2026-06-29 22:58 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/841635828256.shtml)
+- 2026-06-29 22:52 - [天气热脾气都变差了](http://www.share.kurohicncr.top/Article/details/3220376607.shtml)
+- 2026-06-29 22:56 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/82227998.shtml)

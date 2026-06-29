@@ -1,59 +1,60 @@
-# 新华电脑教育与阿里云正式签约，共探AI漫剧产教融合新路径
+# 美联储，重磅报告！
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-6月9日，中国东方教育（00667.HK）旗下新华电脑教育与阿里云在杭州阿里巴巴西溪园区签署全面合作协议。双方将围绕AI漫剧全流程创作深度协同，探索AIGC技术在漫剧创作链上的创新应用。阿里云“万镜一刻”一站式AI漫剧创作平台将全面落地新华电脑教育旗下院校，共同赋能AI漫剧内容自动化生产新场景。 中国东方教育集团电脑事业部常务副总经理邓兴华、阿里云“万镜一刻”产品总经理杨狄代表
+来源：中国基金报 【导读】美联储《褐皮书》称，中东冲突是经济不确定性的主要来源。特斯拉狂飙近8% 中国基金报记者 郭玟君 大家早上好！昨夜今晨又有很多大事发生。 美国三大股指收盘涨跌不一，标普500指数、纳指创收盘新高。大型科技股多数上涨，中概股多数上涨，特斯拉狂飙近8%。 美联储发布《褐皮书》称，中东冲突是经济不确定性的主要来源。 标普500指数、纳指创收盘新高 美国三大股指
 
 ## 正文
 
-6月9日，中国东方教育（00667.HK）旗下新华电脑教育与阿里云在杭州阿里巴巴西溪园区签署全面合作协议。
+来源：中国基金报 【导读】美联储《褐皮书》称，中东冲突是经济不确定性的主要来源。
 
-双方将围绕AI漫剧全流程创作深度协同，探索AIGC技术在漫剧创作链上的创新应用。
+特斯拉狂飙近8% 中国基金报记者 郭玟君 大家早上好！
 
-阿里云“万镜一刻”一站式AI漫剧创作平台将全面落地新华电脑教育旗下院校，共同赋能AI漫剧内容自动化生产新场景。
+昨夜今晨又有很多大事发生。
 
-中国东方教育集团电脑事业部常务副总经理邓兴华、阿里云“万镜一刻”产品总经理杨狄代表双方签约。
+美国三大股指收盘涨跌不一，标普500指数、纳指创收盘新高。
 
-瞄定AI漫剧新赛道，校企协同育人才 签约前，新华电脑教育代表团参观了阿里巴巴九号馆展厅，深入了解阿里核心业务布局与技术积淀。
+大型科技股多数上涨，中概股多数上涨，特斯拉狂飙近8%。
 
-在随后的专题研讨中，阿里云展示了一套覆盖短漫剧全链路的智能化解决方案，以“模型+平台+工具+生态”为核心，推动AI短漫剧从简单生成走向规模化生产。
+美联储发布《褐皮书》称，中东冲突是经济不确定性的主要来源。
 
-阿里云“万镜一刻”产品总经理杨狄介绍了平台的核心能力：“用户只需像聊天一样下达指令，多Agent即可协同完成从分镜到高品质画面的全部工作。
+标普500指数、纳指创收盘新高 美国三大股指收盘涨跌不一，道指跌0.15%，报48463.72点；标普500指数涨0.8%，报7022.95点；纳指涨1.59%，报24016.02点，录得连续11日上涨。
 
-无需专业背景，AI自动拆解分镜、生成画面——这就是工业化生产模式。
+标普500指数、纳指创收盘新高。
 
 ## 相关推荐
 
-- 2026-06-29 22:37 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-29 22:46 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 22:46 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-29 22:43 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-29 22:59 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-29 22:34 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 22:48 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 22:41 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-29 22:38 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-29 22:33 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-29 22:47 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-29 22:40 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-29 22:53 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 22:39 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 22:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-29 22:51 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-29 22:37 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-29 22:53 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-29 22:42 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-29 22:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 22:53 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 22:41 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 23:00 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 23:01 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 22:54 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-29 22:44 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-29 22:51 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:38 - [AI接过张雪峰志愿填报衣钵](https://www.share.minike.top/Article/details/442351271203.shtml)
-- 2026-06-29 22:58 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/531005.shtml)
-- 2026-06-29 22:57 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/052887.shtml)
-- 2026-06-29 22:51 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/9236562.shtml)
-- 2026-06-29 22:35 - [朱雀三号完成静态点火试验](https://www.blog.minike.top/Article/details/0875619891.shtml)
-- 2026-06-29 22:45 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/4255721275.shtml)
-- 2026-06-29 22:31 - [乔家的儿女](https://www.share.minike.top/Article/details/785640.shtml)
-- 2026-06-29 22:45 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/307555.shtml)
-- 2026-06-29 22:48 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/30720129.shtml)
-- 2026-06-29 22:34 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/44918407369.shtml)
-- 2026-06-29 22:37 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/044928058470.shtml)
-- 2026-06-29 22:37 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/71626135039.shtml)
-- 2026-06-29 22:46 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/811158998.shtml)
-- 2026-06-29 22:57 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/767965.shtml)
-- 2026-06-29 22:30 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/24339583063.shtml)
+- 2026-06-29 22:58 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/2387654671.shtml)
+- 2026-06-29 22:37 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/86073121928.shtml)
+- 2026-06-29 23:05 - [格莱美唱作人锐评歌手第6期](http://www.blog.minike.top/Article/details/951825.shtml)
+- 2026-06-29 22:54 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/35452.shtml)
+- 2026-06-29 22:37 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/422508.shtml)
+- 2026-06-29 22:57 - [曝iPhone涨价后不会再降](https://www.share.minike.top/Article/details/57711039.shtml)
+- 2026-06-29 22:53 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/3787061485.shtml)
+- 2026-06-29 22:50 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/0279125299.shtml)
+- 2026-06-29 22:46 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.minike.top/Article/details/4487875854.shtml)
+- 2026-06-29 22:55 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/943611.shtml)
+- 2026-06-29 22:45 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/1473504.shtml)
+- 2026-06-29 22:47 - [委内瑞拉发生余震](http://www.blog.minike.top/Article/details/36445940.shtml)
+- 2026-06-29 22:46 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/17985.shtml)
+- 2026-06-29 22:58 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/70695.shtml)
+- 2026-06-29 22:38 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/68967860852.shtml)

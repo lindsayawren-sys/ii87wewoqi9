@@ -1,44 +1,61 @@
-# 国内最大吨位石化管廊完成海上高空吊装
+# ATFX:美国3月PPI数据来袭 预计增幅较大
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月11日 09:28 来源：央视新闻 责任编辑：【李骏】
+专题：ATFX外汇专栏投稿 4月14日，ATFX：今日20点30分，美国劳工部劳动统计局将公布三月份的PPI数据。PPI数据主要用于衡量各种商品在不同生产阶段的价格变化情况，通常作为观察通货膨胀水平的重要指标。PPI数据对CPI数据具有前瞻作用，因为前者衡量的是生产端的价格变化，后者衡量的是消费端的价格变化，显然消费滞后于生产。 ▲ATFX图 从最近五年的ppi数据看，2023
 
 ## 正文
 
-发布时间：2026年06月11日 09:28 来源：央视新闻 责任编辑：【李骏】
+专题：ATFX外汇专栏投稿 4月14日，ATFX：今日20点30分，美国劳工部劳动统计局将公布三月份的PPI数据。
+
+PPI数据主要用于衡量各种商品在不同生产阶段的价格变化情况，通常作为观察通货膨胀水平的重要指标。
+
+PPI数据对CPI数据具有前瞻作用，因为前者衡量的是生产端的价格变化，后者衡量的是消费端的价格变化，显然消费滞后于生产。
+
+▲ATFX图 从最近五年的ppi数据看，2023年6月份之前，美国ppi数据从高位向下回落。
+
+2023年6月份之后，ppi数据有所反弹但整体保持横盘态势，最高点出现在2025年1月，数值为3.8%，目前3.4%的水平是近三年的相对高位。
+
+即便是在特朗普上台执政的第一年，美国的ppi数据也没有明显波动。
+
+三月份PPI年率的预期值是4.6%，远远高于前值3.4%，意味着三月份美国的生产端物价出现了剧烈波动。
+
+三月份PPI月率的预期值是1.2%，高于前值0.7%，同样意味着生产端价格升高。
 
 ## 相关推荐
 
-- 2026-06-29 22:45 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 22:53 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 22:37 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-29 22:40 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 22:44 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-29 22:41 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 22:44 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 22:41 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-29 22:39 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 22:42 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-29 22:31 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-29 22:38 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 22:58 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 22:57 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 22:47 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-29 22:41 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-29 22:40 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 22:51 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 22:49 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-29 22:36 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-29 23:02 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-29 22:40 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 22:59 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 22:41 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-29 22:37 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-29 22:48 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 22:52 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:47 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/395164859825.shtml)
-- 2026-06-29 22:40 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.minike.top/Article/details/93517894862.shtml)
-- 2026-06-29 22:55 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/526343247895.shtml)
-- 2026-06-29 22:58 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/3504456747.shtml)
-- 2026-06-29 22:44 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/75310018.shtml)
-- 2026-06-29 22:49 - [汪苏泷年度歌手](https://www.blog.kurohicncr.top/Article/details/3231128976.shtml)
-- 2026-06-29 22:47 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/702916844801.shtml)
-- 2026-06-29 22:30 - [记者乘坐无人驾驶汽车去采访](https://www.blog.kurohicncr.top/Article/details/94315080.shtml)
-- 2026-06-29 22:52 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/7916798476.shtml)
-- 2026-06-29 22:54 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/147621.shtml)
-- 2026-06-29 22:34 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.minike.top/Article/details/092336840.shtml)
-- 2026-06-29 22:46 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/251789.shtml)
-- 2026-06-29 22:30 - [马光远谈马斯克最大的价值](https://www.blog.minike.top/Article/details/9107237430.shtml)
-- 2026-06-29 22:47 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/35585516555.shtml)
-- 2026-06-29 22:46 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/15724.shtml)
+- 2026-06-29 22:51 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/05089776.shtml)
+- 2026-06-29 22:57 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/6410903.shtml)
+- 2026-06-29 22:46 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/21076722692.shtml)
+- 2026-06-29 22:42 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/39573636.shtml)
+- 2026-06-29 22:37 - [速度与激情9](https://www.share.minike.top/Article/details/5105086.shtml)
+- 2026-06-29 22:54 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/50781682.shtml)
+- 2026-06-29 23:05 - [巴黎区长紧急采购50台中国空调](https://www.share.kurohicncr.top/Article/details/8596237691.shtml)
+- 2026-06-29 22:39 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/52735088334.shtml)
+- 2026-06-29 23:00 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/6306005.shtml)
+- 2026-06-29 23:01 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/078993362427.shtml)
+- 2026-06-29 23:00 - [汪苏泷年度歌手](https://www.share.minike.top/Article/details/142393159331.shtml)
+- 2026-06-29 22:58 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/130080.shtml)
+- 2026-06-29 23:05 - [广东水利防汛Ⅳ级应急响应结束](https://www.share.kurohicncr.top/Article/details/4506428.shtml)
+- 2026-06-29 22:50 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/8039789.shtml)
+- 2026-06-29 22:37 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/399742361.shtml)

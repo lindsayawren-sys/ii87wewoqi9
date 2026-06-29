@@ -1,56 +1,61 @@
-# 调查显示：半数美国人向AI寻求医疗建议，多数人信任AI给出的指导
+# 300余只东方白鹳嘟噜河畔筑巢繁衍 绘就龙江生态美卷
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-eHealth最新发布的调查数据显示，人工智能正日益成为美国人寻求医疗建议的重要渠道。在参与调查的1000多名美国受访者中，有49%的人表示曾使用AI工具获取医疗建议，其中高达82%的人表示信任AI提供的信息。这一数据揭示了AI在医疗健康领域日益增长的影响力，以及公众对AI医疗建议接受度的显著提升。 AI在健康保险领域应用拓展 除了医疗建议，AI还被广泛用于帮助理解健康保险。调
+中新网鹤岗4月15日电 (吕婷婷 于嘉)春归湿地，百鸟翩飞。随着气温回暖，黑龙江嘟噜河省级自然保护区迎来大批候鸟回迁，珍稀鸟类扎堆栖息、繁衍生息，精细化生态保护让这片湿地成为候鸟的“幸福家园”，勾勒出人与自然和谐共生的生态画卷。 暮春时节，嘟噜河省级自然保护区迎来一年一度的候鸟回迁高峰期，各类候鸟陆续抵达，在此停歇、筑巢，为静谧的湿地注入勃勃生机。 “与去年相比，今年观测到的鸟
 
 ## 正文
 
-eHealth最新发布的调查数据显示，人工智能正日益成为美国人寻求医疗建议的重要渠道。
+中新网鹤岗4月15日电 (吕婷婷 于嘉)春归湿地，百鸟翩飞。
 
-在参与调查的1000多名美国受访者中，有49%的人表示曾使用AI工具获取医疗建议，其中高达82%的人表示信任AI提供的信息。
+随着气温回暖，黑龙江嘟噜河省级自然保护区迎来大批候鸟回迁，珍稀鸟类扎堆栖息、繁衍生息，精细化生态保护让这片湿地成为候鸟的“幸福家园”，勾勒出人与自然和谐共生的生态画卷。
 
-这一数据揭示了AI在医疗健康领域日益增长的影响力，以及公众对AI医疗建议接受度的显著提升。
+暮春时节，嘟噜河省级自然保护区迎来一年一度的候鸟回迁高峰期，各类候鸟陆续抵达，在此停歇、筑巢，为静谧的湿地注入勃勃生机。
 
-AI在健康保险领域应用拓展 除了医疗建议，AI还被广泛用于帮助理解健康保险。
+“与去年相比，今年观测到的鸟类数量增长约20%，种类也有所增加，部分往年未观测到的鸟类今年也相继现身。
 
-调查显示，34%的投保美国人曾使用AI来帮助理解健康保险的运作方式，无论是在购买保险时，还是在试图理解他们的保险福利时。
+”黑龙江省野生动物研究所研究员刘浩介绍，目前保护区内候鸟种群数量持续攀升，生态环境的持续改善为候鸟提供了优质栖息地。
 
-在这些人中，高达91%的人表示他们信任收到的信息，其中42%表示“完全信任”。
+在众多回迁候鸟中，国家一级保护动物东方白鹳的回迁繁殖情况尤为引人关注。
 
-这一趋势的背后，反映出美国消费者在医疗体系中面临的诸多挑战。
+今年，东方白鹳回迁种群规模大幅提升，目前已达300余只，保护区内的人工巢位迎来“入住高峰”，甚至出现巢位紧缺的情况。
 
-调查同时发现，53%的投保美国人在过去12个月内曾因费用问题而避免就医，56%的人在过去五年中至少跳过一年次的年度健康检查。
+“它马上就要进入孵化期了，这会儿不是在觅食，而是在寻找筑巢的材料。
 
 ## 相关推荐
 
-- 2026-06-29 22:51 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-29 22:55 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-29 22:38 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-29 22:48 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-29 22:57 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 22:46 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-29 22:58 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 22:36 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-29 22:43 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-29 22:32 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 22:45 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 22:36 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 22:49 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 22:54 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-29 23:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 22:53 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-29 22:40 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-29 22:54 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-29 22:41 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-29 22:50 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-29 22:39 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 22:37 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 23:03 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 23:01 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 22:44 - [返利科技盘中上演“天地板”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:35 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/1445215.shtml)
-- 2026-06-29 22:36 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/61181.shtml)
-- 2026-06-29 22:52 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/91119431.shtml)
-- 2026-06-29 22:43 - [女心理师](http://www.share.minike.top/Article/details/6683056.shtml)
-- 2026-06-29 22:55 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/0532653.shtml)
-- 2026-06-29 22:44 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/909003832.shtml)
-- 2026-06-29 22:42 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/62180402605.shtml)
-- 2026-06-29 22:48 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/675621.shtml)
-- 2026-06-29 22:55 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/009341.shtml)
-- 2026-06-29 22:55 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/61643.shtml)
-- 2026-06-29 22:58 - [时光音乐会](https://www.blog.minike.top/Article/details/803070576166.shtml)
-- 2026-06-29 22:45 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/12401322507.shtml)
-- 2026-06-29 22:44 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/03474573448.shtml)
-- 2026-06-29 22:52 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/1417183.shtml)
-- 2026-06-29 22:32 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/916760954647.shtml)
+- 2026-06-29 23:00 - [沙丘](http://www.share.minike.top/Article/details/548868162.shtml)
+- 2026-06-29 22:41 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.minike.top/Article/details/411890325176.shtml)
+- 2026-06-29 22:49 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/05110550.shtml)
+- 2026-06-29 22:59 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/653052.shtml)
+- 2026-06-29 23:01 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/66945419.shtml)
+- 2026-06-29 22:51 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/984205180024.shtml)
+- 2026-06-29 22:39 - [韩国队回国欢迎仪式取消](https://www.share.kurohicncr.top/Article/details/8807306.shtml)
+- 2026-06-29 22:41 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/601972.shtml)
+- 2026-06-29 23:02 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/51036.shtml)
+- 2026-06-29 22:37 - [法拉利车主已自行承担修理费近3万](http://www.blog.minike.top/Article/details/786153731105.shtml)
+- 2026-06-29 23:04 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.minike.top/Article/details/7452314641.shtml)
+- 2026-06-29 22:55 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/447605812.shtml)
+- 2026-06-29 22:42 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/74981.shtml)
+- 2026-06-29 22:39 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/241506552.shtml)
+- 2026-06-29 22:54 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/3647537.shtml)

@@ -1,61 +1,52 @@
-# 黄山风景区东大门正式开放
+# 山西大同浑源古城石旗杆异地迁移 当地文旅局回应
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-中新网黄山6月11日电(江婉琪)6月11日上午，黄山风景区东大门及东海索道正式开放运营。正式开启四门迎客、全域发展的新格局，有效缓解核心景区生态环境承载压力。 长期以来，超过七成游客选择从黄山南大门进山，旺季索道排队时间较长。东大门的开放，将极大缓解南大门交通换乘、索道候乘时间长的压力。同时通过山上山下协同发力，推动休闲度假、体育赛事、会展经济等重点产业在东大门聚势成群。 当日
+中新网4月15日电 据浑源县文化和旅游局微信公众号消息，山西大同市浑源县文化和旅游局15日发布关于浑源古城石旗杆保护迁移工作的情况说明称，经专业团队核验、文物专家评估，该石旗杆原址保护条件不足，与周边历史环境风貌难以相融，原址留存既无法保障文物安全，也难以彰显其历史文化价值。结合文物保护法律法规、专家建议及古城整体保护规划，为最大程度规避文物损毁风险、实现长效保护，浑源县依法依
 
 ## 正文
 
-中新网黄山6月11日电(江婉琪)6月11日上午，黄山风景区东大门及东海索道正式开放运营。
+中新网4月15日电 据浑源县文化和旅游局微信公众号消息，山西大同市浑源县文化和旅游局15日发布关于浑源古城石旗杆保护迁移工作的情况说明称，经专业团队核验、文物专家评估，该石旗杆原址保护条件不足，与周边历史环境风貌难以相融，原址留存既无法保障文物安全，也难以彰显其历史文化价值。
 
-正式开启四门迎客、全域发展的新格局，有效缓解核心景区生态环境承载压力。
+结合文物保护法律法规、专家建议及古城整体保护规划，为最大程度规避文物损毁风险、实现长效保护，浑源县依法依规将其列为可移动文物，实施异地迁移保护。
 
-长期以来，超过七成游客选择从黄山南大门进山，旺季索道排队时间较长。
+后续将把石旗杆安置于浑源历史文化展示馆，馆内具备专业文物保护条件与完善展陈体系，可对其进行精细化管护。
 
-东大门的开放，将极大缓解南大门交通换乘、索道候乘时间长的压力。
-
-同时通过山上山下协同发力，推动休闲度假、体育赛事、会展经济等重点产业在东大门聚势成群。
-
-当日，东海索道同步运营，索道全长6638米，设上、中、下3个站点，最高支架61.58米，最大支架跨度504米，被誉为“建在陡崖上的索道”。
-
-东海索道上站连接轩辕云道，全长1.4公里。
-
-以轩辕黄帝文化为核心脉络，串联1座山峰，4处节点，10处景点，包括黄帝开太平、老翁拜山、华盖松等，游客可漫步其间，饱览黄山东部的峰林奇观。
+同时依托专题展示，让石旗杆与馆内文物联动，全面展现其历史文化内涵，更好发挥文物展示、教育与研究价值，服务公众文化需求。
 
 ## 相关推荐
 
-- 2026-06-29 22:55 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 22:51 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-29 22:43 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-29 22:55 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 22:33 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 22:38 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 22:51 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-29 22:40 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 22:30 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-29 22:46 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-29 22:40 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-29 22:42 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-29 22:35 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 22:48 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 22:39 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 22:45 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-29 22:37 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 22:55 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 22:56 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-29 22:45 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 22:37 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 22:45 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 22:49 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 22:54 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-29 22:47 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 22:59 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 23:06 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 22:47 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 23:00 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:57 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/9317281301.shtml)
-- 2026-06-29 22:40 - [白玉兰答谢宴合影](http://www.share.kurohicncr.top/Article/details/818820388213.shtml)
-- 2026-06-29 22:42 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/849623296156.shtml)
-- 2026-06-29 22:44 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/23678554991.shtml)
-- 2026-06-29 22:52 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/19437905334.shtml)
-- 2026-06-29 22:55 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/65412119305.shtml)
-- 2026-06-29 22:33 - [哈兰德吃饭被镜中自己吓到](https://www.blog.minike.top/Article/details/482545071.shtml)
-- 2026-06-29 22:33 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/40711109.shtml)
-- 2026-06-29 22:50 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/541749268.shtml)
-- 2026-06-29 22:39 - [新官上任三把火](https://www.share.minike.top/Article/details/341206443627.shtml)
-- 2026-06-29 22:43 - [新官上任三把火](https://www.blog.minike.top/Article/details/8127824189.shtml)
-- 2026-06-29 22:43 - [福建海警位金门附近海域常态执法巡查](https://www.share.kurohicncr.top/Article/details/3254639.shtml)
-- 2026-06-29 22:38 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.kurohicncr.top/Article/details/383009503334.shtml)
-- 2026-06-29 22:46 - [送你一朵小红花](https://www.share.minike.top/Article/details/1655517.shtml)
-- 2026-06-29 22:43 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.minike.top/Article/details/5901809.shtml)
+- 2026-06-29 22:55 - [时光音乐会](https://www.blog.minike.top/Article/details/868067.shtml)
+- 2026-06-29 22:56 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/370146820.shtml)
+- 2026-06-29 22:48 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/343634480240.shtml)
+- 2026-06-29 22:50 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/081255.shtml)
+- 2026-06-29 22:38 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/25836.shtml)
+- 2026-06-29 22:38 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/138207.shtml)
+- 2026-06-29 22:57 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/17932387161.shtml)
+- 2026-06-29 23:01 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/57200464.shtml)
+- 2026-06-29 22:43 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/701020809462.shtml)
+- 2026-06-29 22:40 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/8144435711.shtml)
+- 2026-06-29 22:51 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/467855397113.shtml)
+- 2026-06-29 22:52 - [佛得角队长门德斯被控强奸](http://www.share.kurohicncr.top/Article/details/46651431.shtml)
+- 2026-06-29 22:47 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/5151576.shtml)
+- 2026-06-29 22:58 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/3877929.shtml)
+- 2026-06-29 22:52 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/09964001570.shtml)

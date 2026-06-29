@@ -1,58 +1,57 @@
-# 亚马逊扩张货运业务，引发货运股集体抛售
+# 301189，突然大涨，发生了什么？创新药迎来价值回归，业绩高增长股揭秘
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-核心要点 个股行情 亚马逊宣布将向自有业务体系之外的企业开放公路货运服务，多家大型货运承运商股价周三大幅下挫。 这家电商巨头表示，旗下全新推出的亚马逊供应链服务板块将面向全行业企业提供零担货运服务，不再仅限入仓至亚马逊仓储履约中心的商家，配送范围覆盖美国全境任意目的地。 零担货运（LTL）指一辆挂车整合多家客户零散货物统一运输，区别于整车整单运输模式。 奥德多米尼恩货运股价暴跌
+在多重利好刺激下，中国创新药商业天花板将显著抬升。 奥尼电子股价创历史新高 市值突破100亿元 4月15日，奥尼电子（301189）收盘时录得“20cm”涨停板，最新收盘价创历史新高，最新A股市值首次突破100亿元。 奥尼电子是国内规模较大的智能硬件综合服务商，核心业务覆盖消费物联网音视频智能终端的研发制造与高性能计算整机全链条业务。近年来受行业竞争加剧、下游需求波动等因素影响
 
 ## 正文
 
-核心要点 个股行情 亚马逊宣布将向自有业务体系之外的企业开放公路货运服务，多家大型货运承运商股价周三大幅下挫。
+在多重利好刺激下，中国创新药商业天花板将显著抬升。
 
-这家电商巨头表示，旗下全新推出的亚马逊供应链服务板块将面向全行业企业提供零担货运服务，不再仅限入仓至亚马逊仓储履约中心的商家，配送范围覆盖美国全境任意目的地。
+奥尼电子股价创历史新高 市值突破100亿元 4月15日，奥尼电子（301189）收盘时录得“20cm”涨停板，最新收盘价创历史新高，最新A股市值首次突破100亿元。
 
-零担货运（LTL）指一辆挂车整合多家客户零散货物统一运输，区别于整车整单运输模式。
+奥尼电子是国内规模较大的智能硬件综合服务商，核心业务覆盖消费物联网音视频智能终端的研发制造与高性能计算整机全链条业务。
 
-奥德多米尼恩货运股价暴跌超 6%，阿克贝斯特物流下跌 4%，赛亚物流、XPO 物流各跌 5%；本月刚从联邦快递分拆独立上市的联邦快递货运股价下跌约 3%。
+近年来受行业竞争加剧、下游需求波动等因素影响，公司经营业绩持续下滑。
 
-过去数年亚马逊搭建起完整物流体系，大幅降低对外合作承运商的依赖，核心初衷是满足自身履约需求、支撑极速配送时效。
+2023年、2024年净利润连续亏损，公司还预计2025年净利润亏损1.45亿元至1.62亿元。
 
-其自有物流资产包括亚马逊货运机队、数万台配送货车，规模持续扩张的陆路货运板块已配备 8 万台货运挂车、2.4 万个集装箱。
+在业绩承压的背景下，公司近期消息面频频释放积极信号。
 
-亚马逊货运负责人吉姆・鲁伊斯在声明中表示：“使用我们零担货运服务的亚马逊合作商家反馈十分明确：这套系统的数字化工具、全程可视化追踪与稳定履约能力，正是他们急需的资源，且希望能拓展至更多经营场景。
+据人民财讯报道，企查查APP显示，近日，奥尼算力科技（中山）有限公司成立，法定代表人为林荣玉，注册资本为1000万元，经营范围包含：通用设备修理；云计算设备制造；云计算装备技术服务；数据处理和存储支持服务等。
 
-如今亚马逊零担货运可承接各类货运订单，为全美大中小各类企业提供全境配送。
+企查查股权穿透显示，该公司由奥尼电子间接全资持股。
 
 ## 相关推荐
 
-- 2026-06-29 22:35 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 22:51 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-29 22:48 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-29 22:44 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-29 22:41 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 22:55 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-29 22:54 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-29 22:48 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 22:32 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-29 22:36 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 22:43 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 22:53 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-29 23:04 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-29 22:48 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-29 22:38 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-29 22:57 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 23:05 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 22:43 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-29 22:39 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 22:56 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-29 22:39 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 22:51 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-29 22:48 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:38 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/263193401.shtml)
-- 2026-06-29 22:31 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/887715457.shtml)
-- 2026-06-29 22:47 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/86832.shtml)
-- 2026-06-29 22:35 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/1647622362.shtml)
-- 2026-06-29 22:39 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/913346955258.shtml)
-- 2026-06-29 22:51 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/9884006.shtml)
-- 2026-06-29 22:30 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/738837755937.shtml)
-- 2026-06-29 22:49 - [乌克兰发广告全球征兵](https://www.share.minike.top/Article/details/8226193248.shtml)
-- 2026-06-29 22:38 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/28465565206.shtml)
-- 2026-06-29 22:33 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/05211792.shtml)
-- 2026-06-29 22:54 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/875149313965.shtml)
-- 2026-06-29 22:36 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/470221125408.shtml)
-- 2026-06-29 22:55 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/10175.shtml)
-- 2026-06-29 22:49 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/03968227302.shtml)
-- 2026-06-29 22:46 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/7627529116.shtml)
+- 2026-06-29 22:53 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/8486728.shtml)
+- 2026-06-29 22:59 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/8334652337.shtml)
+- 2026-06-29 22:55 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/837837411177.shtml)
+- 2026-06-29 22:45 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.minike.top/Article/details/086705518101.shtml)
+- 2026-06-29 22:47 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/300390020.shtml)
+- 2026-06-29 23:02 - [周杰伦的歌勾起25年友情](http://www.blog.kurohicncr.top/Article/details/7051759.shtml)
+- 2026-06-29 22:50 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/152282092.shtml)
+- 2026-06-29 23:03 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/433215074.shtml)
+- 2026-06-29 22:55 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/352430974.shtml)
+- 2026-06-29 22:55 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/77648.shtml)
+- 2026-06-29 23:01 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/00456794162.shtml)
+- 2026-06-29 22:45 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/985623240741.shtml)
+- 2026-06-29 23:05 - [金牌调解](http://www.share.minike.top/Article/details/484054.shtml)
+- 2026-06-29 22:51 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/247047974239.shtml)
+- 2026-06-29 22:59 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/02118119.shtml)

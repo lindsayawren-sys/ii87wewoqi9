@@ -1,42 +1,47 @@
-# 上海启用绿洲全球可持续科技创新平台
+# IMF下调2026年世界经济增长预期
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月10日 09:48 来源：央视新闻 责任编辑：【李骏】
+中新网4月14日电 国际货币基金组织(IMF)14日发布最新一期《世界经济展望报告》，将2026年世界经济增长预期下调0.2个百分点，至3.1%。报告认为，中东战事已显著影响当前世界经济增长势头。
 
 ## 正文
 
-发布时间：2026年06月10日 09:48 来源：央视新闻 责任编辑：【李骏】
+中新网4月14日电 国际货币基金组织(IMF)14日发布最新一期《世界经济展望报告》，将2026年世界经济增长预期下调0.2个百分点，至3.1%。
+
+报告认为，中东战事已显著影响当前世界经济增长势头。
 
 ## 相关推荐
 
-- 2026-06-29 22:31 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-29 22:38 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 22:53 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-29 22:55 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-29 22:34 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-29 22:51 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-29 22:55 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 22:44 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 22:39 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-29 22:59 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-29 22:41 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 22:56 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 22:38 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 22:39 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 22:55 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 22:48 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 23:00 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-29 22:51 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-29 22:47 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-29 22:44 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-29 22:41 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 22:57 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 23:05 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:45 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/516239.shtml)
-- 2026-06-29 22:41 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/912081945.shtml)
-- 2026-06-29 22:53 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/5601101652.shtml)
-- 2026-06-29 22:59 - [宜宾地震已转移安置225人](https://www.share.minike.top/Article/details/476163688.shtml)
-- 2026-06-29 22:43 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/460144.shtml)
-- 2026-06-29 22:37 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.minike.top/Article/details/28066088401.shtml)
-- 2026-06-29 22:35 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/58953.shtml)
-- 2026-06-29 22:38 - [宜宾地震已转移安置225人](https://www.blog.minike.top/Article/details/6922488172.shtml)
-- 2026-06-29 22:38 - [啊啊啊](http://www.blog.minike.top/Article/details/8850838.shtml)
-- 2026-06-29 22:30 - [哈兰德吃饭被镜中自己吓到](https://www.share.kurohicncr.top/Article/details/603456983459.shtml)
-- 2026-06-29 22:43 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/1236670.shtml)
-- 2026-06-29 22:54 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/03931553.shtml)
-- 2026-06-29 22:50 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/257770.shtml)
-- 2026-06-29 22:42 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/42649911771.shtml)
-- 2026-06-29 22:59 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/78137.shtml)
+- 2026-06-29 22:40 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/52071.shtml)
+- 2026-06-29 23:02 - [极限挑战第一季](https://www.share.minike.top/Article/details/19614283.shtml)
+- 2026-06-29 23:01 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.minike.top/Article/details/5006431083.shtml)
+- 2026-06-29 22:45 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/682342284318.shtml)
+- 2026-06-29 22:54 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/024770528898.shtml)
+- 2026-06-29 22:50 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/6670466642.shtml)
+- 2026-06-29 22:49 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/760975554926.shtml)
+- 2026-06-29 22:59 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/598101.shtml)
+- 2026-06-29 22:37 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/925230630926.shtml)
+- 2026-06-29 22:44 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.kurohicncr.top/Article/details/318066267521.shtml)
+- 2026-06-29 22:52 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/437395236.shtml)
+- 2026-06-29 22:56 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/4145828786.shtml)
+- 2026-06-29 22:40 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/67403745070.shtml)
+- 2026-06-29 22:56 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/8266179232.shtml)
+- 2026-06-29 22:50 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/807670848000.shtml)

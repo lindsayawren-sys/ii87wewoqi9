@@ -1,57 +1,48 @@
-# AI赋能创业新范式 浙江平阳探索“OPC青年创业社区”
+# 白宫首席经济顾问： 美联储仍有降息空间 得益于高生产率的推动
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-中新网温州6月10日电(胡丰盛 张炜)在人工智能浪潮席卷各行各业的今天，创业形态正在被重新定义。 浙江省温州市平阳县以AI赋能“OPC”(一人公司)的新模式，悄然打开了“轻资产、低门槛、快变现”的创业通道。从2025年平阳县星洋OPC青年创业社区(简称“星洋社区”)先行先试，到2026年“1035”三年行动计划全面铺开，平阳正尝试回答一个时代命题：AI时代，个体如何以最低成本、
+美国国家经济委员会主任凯文·哈塞特在接受采访时表示，美联储仍有降息空间。 哈塞特称，由于生产率提高令美国供给大幅增加，物价面临下行压力。责任编辑：李桐
 
 ## 正文
 
-中新网温州6月10日电(胡丰盛 张炜)在人工智能浪潮席卷各行各业的今天，创业形态正在被重新定义。
+美国国家经济委员会主任凯文·哈塞特在接受采访时表示，美联储仍有降息空间。
 
-浙江省温州市平阳县以AI赋能“OPC”(一人公司)的新模式，悄然打开了“轻资产、低门槛、快变现”的创业通道。
+哈塞特称，由于生产率提高令美国供给大幅增加，物价面临下行压力。
 
-从2025年平阳县星洋OPC青年创业社区(简称“星洋社区”)先行先试，到2026年“1035”三年行动计划全面铺开，平阳正尝试回答一个时代命题：AI时代，个体如何以最低成本、最高效率参与产业分工？
-
-县域经济又如何借此培育新质生产力？
-
-“过去接一个大型设计项目，需要五六人的团队，启动资金动辄几十万元。
-
-现在一个人、一台电脑，借助AI平台就能完成。
-
-”这是入驻星洋社区的00后创客的共同体验。
-
-依托社区自研的“蕉点AI设计师平台”及AI文案、漫剧制作等工具，创业者无需技术背景，就能承接腾讯、蚂蚁等企业的真实订单。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 22:51 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 22:38 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 22:52 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-29 22:47 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-29 22:46 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-29 22:40 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-29 22:36 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 22:50 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-29 22:32 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-29 22:56 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-29 22:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 22:58 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-29 22:43 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 22:40 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 22:42 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-29 22:54 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-29 22:40 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-29 22:57 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 22:50 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 22:47 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 22:37 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 22:47 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-29 22:49 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:52 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/2050415650.shtml)
-- 2026-06-29 22:47 - [乌克兰发广告全球征兵](https://www.share.minike.top/Article/details/460127.shtml)
-- 2026-06-29 22:48 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/4190648496.shtml)
-- 2026-06-29 22:51 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/973809.shtml)
-- 2026-06-29 22:41 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/77033609.shtml)
-- 2026-06-29 22:45 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/53484570.shtml)
-- 2026-06-29 22:44 - [上世纪90年代玩具成新宠](http://www.share.kurohicncr.top/Article/details/94325853619.shtml)
-- 2026-06-29 22:41 - [记者乘坐无人驾驶汽车去采访](https://www.share.minike.top/Article/details/742752.shtml)
-- 2026-06-29 22:48 - [恋与深空回应争议](https://www.share.minike.top/Article/details/3452748.shtml)
-- 2026-06-29 22:38 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/48446.shtml)
-- 2026-06-29 22:56 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/59468317174.shtml)
-- 2026-06-29 22:58 - [孙俪开QQ的蛮好生活](https://www.blog.kurohicncr.top/Article/details/9773459334.shtml)
-- 2026-06-29 22:36 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/28834568220.shtml)
-- 2026-06-29 22:31 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/2945290.shtml)
-- 2026-06-29 22:33 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/855504234938.shtml)
+- 2026-06-29 22:57 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/0635829596.shtml)
+- 2026-06-29 23:04 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/8063693414.shtml)
+- 2026-06-29 22:50 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/715593516.shtml)
+- 2026-06-29 22:57 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/91304.shtml)
+- 2026-06-29 22:36 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/0236938.shtml)
+- 2026-06-29 23:03 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/76459017.shtml)
+- 2026-06-29 22:51 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/04032810.shtml)
+- 2026-06-29 22:36 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/308345168808.shtml)
+- 2026-06-29 22:45 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/62697341.shtml)
+- 2026-06-29 23:03 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/22788625286.shtml)
+- 2026-06-29 22:42 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.kurohicncr.top/Article/details/5736600.shtml)
+- 2026-06-29 22:47 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/3986023653.shtml)
+- 2026-06-29 23:05 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/6939644.shtml)
+- 2026-06-29 22:50 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/209374480261.shtml)
+- 2026-06-29 23:01 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/682273665455.shtml)

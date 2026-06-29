@@ -1,56 +1,56 @@
-# 裕信银行：新一轮股份接受后，德国商业银行持股升至37.7%
+# 大叶股份业绩预告 “变脸” 收监管函，符合条件投资者可发起索赔
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 上周德国商业银行已要求德国金融监管机构核查裕信银行的信息披露情况 意大利裕信银行（UCG，涨幅 1.12%）发布公告称，在更多股东接受其收购要约后，该行直接持有德国商业银行（CBK，涨幅 0.08%）股份比例已达 37.7%，本次收购要约尚余一周截止。 这家意大利银行提交的监管文件显示，截至周二，本次要约新增有效接受股份占德商银
+近日，宁波大叶园林设备股份有限公司（以下简称“大叶股份（维权）”）收到深交所下发的《监管函》 ，上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2026年1月31日-2026年3月27日期间买入且有持仓，无论在2026年3月28日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿登记索赔。（赵敬国律师专栏） 回顾本案，2026年1月30
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 上周德国商业银行已要求德国金融监管机构核查裕信银行的信息披露情况 意大利裕信银行（UCG，涨幅 1.12%）发布公告称，在更多股东接受其收购要约后，该行直接持有德国商业银行（CBK，涨幅 0.08%）股份比例已达 37.7%，本次收购要约尚余一周截止。
+近日，宁波大叶园林设备股份有限公司（以下简称“大叶股份（维权）”）收到深交所下发的《监管函》 ，上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2026年1月31日-2026年3月27日期间买入且有持仓，无论在2026年3月28日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿登记索赔。
 
-这家意大利银行提交的监管文件显示，截至周二，本次要约新增有效接受股份占德商银行总股本 10.9%，叠加此前 26.8% 的直接持股，合计直接持股 37.7%。
+（赵敬国律师专栏） 回顾本案，2026年1月30日盘后，大叶股份披露《2025年度业绩预告》，预计2025年度归属于上市公司股东的净利润（以下简称“净利润”）亏损1000万元至2000万元。
 
-文件同时披露，裕信银行还持有金融衍生品合约，对应享有德商银行额外 16.4% 股份的经济收益权。
+2026年3月27日盘后，大叶股份披露《2025年度业绩预告修正公告》称，因所得税费用核算等原因，对2025年度业绩预告情况作出修正，预计2025年度的净利润为亏损4000万元至6000万元。
 
-6 月 2 日时，裕信银行披露的要约接受比例仅为 7.6%。
+2026年4月10日，深交所因上述两次业绩预告披露事项对大叶股份下发《监管函》。
 
-裕信银行发布本次持股更新之际，收购要约正式进入最后一周。
+信本股民索赔团队提醒，大叶股份两次业绩预告披露的净利润存在较大差异，因此受损投资者可通过“新浪股民维权平台”自愿登记索赔。
 
-今年早些时候，该行出价 240 亿欧元（折合 277 亿美元）收购其尚未持有的德商银行剩余股份。
+索赔条件： 大叶股份：于2026年1月31日-2026年3月27日期间买入且有持仓，无论在2026年3月28日及之后是否卖出的投资者（具体赔付范围由法院确定）（大叶股份维权入口） （本文由上海市信本律师事务所合伙人赵敬国律师供稿，不代表新浪财经的观点。
 
-这场旷日持久的收购计划遭到德商银行管理层、德国政府以及工会的一致反对。
+赵敬国律师，于1999年取得律师资格，法学理论知识扎实，曾在高校任教。
 
-裕信银行表示，若无延期，本次收购要约将于 6 月 16 日正式截止。
+2004年起开始律师执业，承办过千余起各类诉讼案件，积累了十分丰富的争议处理经验，尤其擅长处理证券纠纷、金融、不良资产等方面的业务。
 
 ## 相关推荐
 
-- 2026-06-29 22:47 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-29 22:36 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-29 22:51 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-29 22:30 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-29 22:50 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 22:43 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-29 22:50 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-29 22:48 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 22:46 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-29 22:51 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-29 22:44 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-29 22:44 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 22:46 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-29 22:59 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-29 22:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 23:02 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 22:46 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-29 22:59 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-29 22:40 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 22:50 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:43 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/3415676437.shtml)
-- 2026-06-29 22:42 - [日本足球能掀翻巴西吗](http://www.share.kurohicncr.top/Article/details/2517892.shtml)
-- 2026-06-29 22:41 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/39041.shtml)
-- 2026-06-29 22:41 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/98050.shtml)
-- 2026-06-29 22:37 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/97812.shtml)
-- 2026-06-29 22:45 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/73419.shtml)
-- 2026-06-29 22:36 - [朱雀三号完成静态点火试验](https://www.blog.kurohicncr.top/Article/details/5270088860.shtml)
-- 2026-06-29 22:35 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/0338831951.shtml)
-- 2026-06-29 22:47 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/07642444.shtml)
-- 2026-06-29 22:42 - [长沙菜农公交的人间烟火气](http://www.blog.minike.top/Article/details/35015.shtml)
-- 2026-06-29 22:43 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/6826983.shtml)
-- 2026-06-29 22:47 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/07432665647.shtml)
-- 2026-06-29 22:30 - [韩国队回国欢迎仪式取消](https://www.blog.minike.top/Article/details/823650764997.shtml)
-- 2026-06-29 22:36 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/9847584.shtml)
-- 2026-06-29 22:49 - [流金岁月](http://www.blog.minike.top/Article/details/5631269742.shtml)
+- 2026-06-29 23:00 - [85花告别古偶](http://www.blog.minike.top/Article/details/1607391440.shtml)
+- 2026-06-29 23:01 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/567919.shtml)
+- 2026-06-29 22:37 - [回顾世界杯争议事件](http://www.blog.kurohicncr.top/Article/details/08625199119.shtml)
+- 2026-06-29 23:04 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/18228881049.shtml)
+- 2026-06-29 22:52 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/2367810.shtml)
+- 2026-06-29 23:03 - [法拉利车主已自行承担修理费近3万](https://www.blog.kurohicncr.top/Article/details/956607524980.shtml)
+- 2026-06-29 22:50 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/23717357518.shtml)
+- 2026-06-29 22:44 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/55635.shtml)
+- 2026-06-29 23:02 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/404847190853.shtml)
+- 2026-06-29 22:50 - [炽夏](https://www.share.minike.top/Article/details/517628.shtml)
+- 2026-06-29 22:39 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/5909002786.shtml)
+- 2026-06-29 22:40 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.minike.top/Article/details/5676756.shtml)
+- 2026-06-29 22:43 - [记者乘坐无人驾驶汽车去采访](https://www.share.minike.top/Article/details/16901.shtml)
+- 2026-06-29 23:02 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/2884415.shtml)
+- 2026-06-29 23:03 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/319071.shtml)

@@ -1,60 +1,57 @@
-# 远东国际观察：沃什就任美联储新任主席 面临通胀挑战与独立性考验
+# 珍惜中国新能源产业的历史性机遇
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-5月22日，凯文·沃什在美国白宫举行的仪式上宣誓就任美国联邦储备委员会第17任主席，任期4年。就职仪式由美国总统特朗普主持，并由美国最高法院大法官托马斯监誓。沃什在致辞中表示，自己将领导一个“改革导向”的美联储，从以往成功和失误的经验中学习，摆脱不变的框架和模型，致力于实现物价稳定和充分就业的目标。特朗普在仪式上表示，希望沃什能够“完全独立”地开展工作。 远东点评： 沃什就任正
+2026年的春天，中国的新能源产业正站在新一轮周期的起点。 当全球能源转型的浪潮与“十五五”规划的政策红利交汇，中国新能源产业正在吸引全球目光。而突如其来的美伊冲突，正在推动世界各国将新能源由可选项变为必选项。 对于投资者来说，把握这一历史性机遇或许并不难，创业板新能源ETF华夏（159368）正是诸多新能源主题基金中值得重点关注的品种之一。 美伊冲突搅动全球能源市场 美伊冲突
 
 ## 正文
 
-5月22日，凯文·沃什在美国白宫举行的仪式上宣誓就任美国联邦储备委员会第17任主席，任期4年。
+2026年的春天，中国的新能源产业正站在新一轮周期的起点。
 
-就职仪式由美国总统特朗普主持，并由美国最高法院大法官托马斯监誓。
+当全球能源转型的浪潮与“十五五”规划的政策红利交汇，中国新能源产业正在吸引全球目光。
 
-沃什在致辞中表示，自己将领导一个“改革导向”的美联储，从以往成功和失误的经验中学习，摆脱不变的框架和模型，致力于实现物价稳定和充分就业的目标。
+而突如其来的美伊冲突，正在推动世界各国将新能源由可选项变为必选项。
 
-特朗普在仪式上表示，希望沃什能够“完全独立”地开展工作。
+对于投资者来说，把握这一历史性机遇或许并不难，创业板新能源ETF华夏（159368）正是诸多新能源主题基金中值得重点关注的品种之一。
 
-远东点评： 沃什就任正值美国货币政策面临复杂局面的关键时点，其政策取向将深刻影响未来全球金融市场的走向。
+美伊冲突搅动全球能源市场 美伊冲突的持续升级，让霍尔木兹海峡这一“世界能源咽喉”陷入瘫痪。
 
-沃什早年以鹰派立场著称，但近年来倡导“实用货币主义”，主张根据经济现实灵活调整政策。
+随着第一轮谈判未能达成结果，美国竟然也采取措施封锁霍尔木兹海峡。
 
-这一理念意味着他可能在抑制通胀与支持经济增长之间寻求更务实的平衡。
+霍尔木兹海峡的封锁，直接导致全球约20%的石油供应中断。
 
-然而，其上任伊始即面临严峻挑战，4月美国个人消费支出（PCE）物价指数同比升至3.8%，核心PCE同比上涨3.3%，持续高于2%的政策目标，导致美联储内部在利率政策路径上存在分歧；另一方面，白宫对低利率环境的偏好也对其形成政治压力。
+这一冲击的规模，几乎是1973年阿拉伯石油禁运的三倍，而更令人担忧的是，全球已无多少备用石油产能来应对这场危机。
 
 ## 相关推荐
 
-- 2026-06-29 22:41 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-29 22:40 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-29 22:36 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-29 22:31 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 22:49 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 22:45 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 22:38 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 22:58 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 22:49 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-29 22:33 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-29 22:35 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-29 22:37 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-29 22:43 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-29 22:36 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 22:37 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-29 22:57 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-29 22:37 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 22:43 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-29 22:44 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 22:58 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 22:42 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 23:02 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-29 22:51 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 22:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 22:59 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:43 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/242707177370.shtml)
-- 2026-06-29 22:55 - [毒液2](https://www.share.kurohicncr.top/Article/details/283345620550.shtml)
-- 2026-06-29 22:55 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/4181526907.shtml)
-- 2026-06-29 22:57 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/400557632832.shtml)
-- 2026-06-29 22:57 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/430194570.shtml)
-- 2026-06-29 22:31 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/16303303.shtml)
-- 2026-06-29 22:51 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/70689.shtml)
-- 2026-06-29 22:36 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/833135324.shtml)
-- 2026-06-29 22:56 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/859477.shtml)
-- 2026-06-29 22:52 - [明星大侦探第四季](http://www.share.minike.top/Article/details/639217030927.shtml)
-- 2026-06-29 22:36 - [哈兰德吃饭被镜中自己吓到](https://www.share.minike.top/Article/details/7309736.shtml)
-- 2026-06-29 22:47 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/2487968988.shtml)
-- 2026-06-29 22:33 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/493174.shtml)
-- 2026-06-29 22:44 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/41567434.shtml)
-- 2026-06-29 22:57 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/93598222687.shtml)
+- 2026-06-29 22:54 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/952688322595.shtml)
+- 2026-06-29 23:02 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/59734647.shtml)
+- 2026-06-29 22:56 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/47749118656.shtml)
+- 2026-06-29 22:58 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/2708406740.shtml)
+- 2026-06-29 22:36 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/660561.shtml)
+- 2026-06-29 22:48 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/2721473.shtml)
+- 2026-06-29 22:54 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/44399845794.shtml)
+- 2026-06-29 23:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/5962759415.shtml)
+- 2026-06-29 22:49 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/459930.shtml)
+- 2026-06-29 22:56 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/33085978.shtml)
+- 2026-06-29 23:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/553839663.shtml)
+- 2026-06-29 22:40 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/388061051.shtml)
+- 2026-06-29 22:49 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.kurohicncr.top/Article/details/000656078302.shtml)
+- 2026-06-29 22:53 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/189678.shtml)
+- 2026-06-29 23:05 - [我和我的家乡](https://www.blog.minike.top/Article/details/5045609.shtml)

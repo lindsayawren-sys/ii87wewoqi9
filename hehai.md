@@ -1,58 +1,50 @@
-# 端午假期国内机票预订量超180万张 民俗游持续升温
+# 2026上海市民艺术夜校春季班开班 外籍人士定制课搭起文化交融桥
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-随着端午假期的临近，假期机票预订量持续增长，部分节日氛围浓厚的目的地吸引大量旅客前往，民俗游成为端午出行的增长动力。 航旅纵横大数据显示，截至6月10日，端午假期国内航线机票预订量超183万张；出入境航线机票预订量超58万张，同比增长约8%。北京、上海、广州、成都等地依旧是出行的热门目的地。其中广州、深圳在节日期间举办龙舟赛、龙舟宴等传统民俗活动，浓厚的端午氛围吸引大量旅客专程
+发布时间：2026年04月15日 10:43 来源：中国新闻网 4月14日，2026年上海市民艺术夜校春季班国潮非遗手作外籍人士专属课程在位于上海的华漕国际社区中心正式开课。首期10名学员中，外籍学员占5人，通过系统学习非遗制作流程，直观感受中华优秀传统文化的独特魅力。 据介绍，课程聚焦国潮与非遗融合，精选掐丝珐琅、彩绘葫芦、海派绣球、非遗刻制等代表性项目，将传统技艺与现代国潮
 
 ## 正文
 
-随着端午假期的临近，假期机票预订量持续增长，部分节日氛围浓厚的目的地吸引大量旅客前往，民俗游成为端午出行的增长动力。
+发布时间：2026年04月15日 10:43 来源：中国新闻网 4月14日，2026年上海市民艺术夜校春季班国潮非遗手作外籍人士专属课程在位于上海的华漕国际社区中心正式开课。
 
-航旅纵横大数据显示，截至6月10日，端午假期国内航线机票预订量超183万张；出入境航线机票预订量超58万张，同比增长约8%。
+首期10名学员中，外籍学员占5人，通过系统学习非遗制作流程，直观感受中华优秀传统文化的独特魅力。
 
-北京、上海、广州、成都等地依旧是出行的热门目的地。
+据介绍，课程聚焦国潮与非遗融合，精选掐丝珐琅、彩绘葫芦、海派绣球、非遗刻制等代表性项目，将传统技艺与现代国潮审美相结合。
 
-其中广州、深圳在节日期间举办龙舟赛、龙舟宴等传统民俗活动，浓厚的端午氛围吸引大量旅客专程打卡，机票预订量同比增长均超10%。
-
-此外，这个端午假期，“草原游”也热度空前。
-
-大数据显示，呼伦贝尔成为今年端午假期机票预订量增速最快的旅游目的地之一，同比增长约100%；与此同时，锡林浩特、呼和浩特等多个内蒙古城市的机票预订量增速也位居全国前列，草原骑马、星空露营成为游客避暑新玩法。
-
-暑期国际航线机票预订热度快速增长 近期不仅是端午假期机票预订量在持续走高，假期后即将到来的暑期国际航线机票预订热度也在快速增长，出境游和入境游双向火爆。
-
-每年暑期都是出入境旅游的旺季。
+记者 徐银 康玉湛 上海报道 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-29 22:58 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-29 22:49 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 22:37 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-29 22:51 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-29 22:46 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-29 22:43 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 22:47 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-29 22:41 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-29 22:44 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-29 22:41 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 22:43 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-29 22:41 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-29 22:38 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 22:56 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 22:36 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 22:43 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 22:58 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 22:39 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 22:52 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 22:40 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-29 22:41 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-29 22:49 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 22:50 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 22:42 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:41 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/42673040088.shtml)
-- 2026-06-29 22:39 - [金牌调解](https://www.blog.minike.top/Article/details/63853.shtml)
-- 2026-06-29 22:32 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/61399.shtml)
-- 2026-06-29 22:45 - [极限挑战第一季](http://www.share.minike.top/Article/details/326460735.shtml)
-- 2026-06-29 22:43 - [世界杯](https://www.blog.kurohicncr.top/Article/details/2772002806.shtml)
-- 2026-06-29 22:47 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/33596302000.shtml)
-- 2026-06-29 22:57 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/1765248.shtml)
-- 2026-06-29 22:40 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/542561175.shtml)
-- 2026-06-29 22:41 - [日本在最东端离岛部署导弹发射装置](https://www.blog.minike.top/Article/details/8769492658.shtml)
-- 2026-06-29 22:40 - [韩国800万亿韩元押注半导体](https://www.share.kurohicncr.top/Article/details/9810856117.shtml)
-- 2026-06-29 22:44 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/1039201785.shtml)
-- 2026-06-29 22:50 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/789416408.shtml)
-- 2026-06-29 22:39 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/0200175.shtml)
-- 2026-06-29 22:50 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/3818584061.shtml)
-- 2026-06-29 22:55 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/52930810.shtml)
+- 2026-06-29 22:50 - [曼城官宣马雷斯卡出任主教练](http://www.blog.minike.top/Article/details/64326141.shtml)
+- 2026-06-29 22:44 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.minike.top/Article/details/620388904.shtml)
+- 2026-06-29 23:05 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/670760971.shtml)
+- 2026-06-29 22:42 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/55291540.shtml)
+- 2026-06-29 23:02 - [美人鱼](http://www.blog.minike.top/Article/details/65722019724.shtml)
+- 2026-06-29 22:53 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/5037796087.shtml)
+- 2026-06-29 22:50 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/36475042436.shtml)
+- 2026-06-29 22:56 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/3694076446.shtml)
+- 2026-06-29 22:52 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/972363994.shtml)
+- 2026-06-29 22:51 - [欧洲缘何成为变暖最快的大洲](https://www.blog.minike.top/Article/details/219598.shtml)
+- 2026-06-29 22:44 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/6290777042.shtml)
+- 2026-06-29 23:01 - [小龙女配音去世 李若彤发文悼念](http://www.blog.kurohicncr.top/Article/details/80092171382.shtml)
+- 2026-06-29 23:04 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/411405.shtml)
+- 2026-06-29 22:50 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/616820069.shtml)
+- 2026-06-29 22:53 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/4728997.shtml)

@@ -1,59 +1,56 @@
-# “某国内大模型厂商CPU需求提高了5倍”，海光信息猛拉13%，华宝基金科创芯片ETF（589190）再涨超3%！
+# 中国国家能源局：大胆推进氢能交易等机制创新
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-6月10日，芯片半导体延续攻势，权重龙头海光信息涨超13%，中船特气再创新高，杰华特、沪硅产业、佰维存储等涨幅居前。全“芯”布局芯片产业、成份股更硬核的科创芯片ETF华宝（589190）低开上冲，场内价格现涨逾3%。资金密集增仓，上交所数据显示，科创芯片ETF华宝（589190）连续3日吸金合计4796万元。 消息面上，Computex 2026电脑展期间，英特尔数据中心方表示
+中新社北京4月15日电 (记者 王梦瑶)记者15日获悉，中国国家能源局近日召开能源领域氢能区域试点工作推进会，梳理试点开展情况，聚焦堵点难点问题，部署下一阶段重点任务，加快培育氢能未来产业。其中提及，大胆推进氢能交易、绿色认证等机制创新。去年底，国家能源局正式发布能源领域氢能试点(第一批)名单，明确将内蒙古深能鄂托克旗风光制氢一体化合成绿氨及氢能耦合应用等41个重点项目、吉林长
 
 ## 正文
 
-6月10日，芯片半导体延续攻势，权重龙头海光信息涨超13%，中船特气再创新高，杰华特、沪硅产业、佰维存储等涨幅居前。
+中新社北京4月15日电 (记者 王梦瑶)记者15日获悉，中国国家能源局近日召开能源领域氢能区域试点工作推进会，梳理试点开展情况，聚焦堵点难点问题，部署下一阶段重点任务，加快培育氢能未来产业。
 
-全“芯”布局芯片产业、成份股更硬核的科创芯片ETF华宝（589190）低开上冲，场内价格现涨逾3%。
+其中提及，大胆推进氢能交易、绿色认证等机制创新。
 
-资金密集增仓，上交所数据显示，科创芯片ETF华宝（589190）连续3日吸金合计4796万元。
+去年底，国家能源局正式发布能源领域氢能试点(第一批)名单，明确将内蒙古深能鄂托克旗风光制氢一体化合成绿氨及氢能耦合应用等41个重点项目、吉林长春松原白城等9个区域纳入试点范畴。
 
-消息面上，Computex 2026电脑展期间，英特尔数据中心方表示，某国内领先的大模型厂商，从去年到今年CPU需求提高了5倍。
+会议认为，国家能源局组织实施9个能源领域氢能区域试点，立足各地资源禀赋、产业基础，形成差异化发展格局，整体平稳起步，将为探索氢能产业多元化发展路径、破解跨部门跨领域协同难题、完善全国氢能产业管理体系提供重要的实践支撑。
 
-美银证券预估，到2030年，全球服务器CPU市场规模将上看1250亿美元，年复合增长率31%，其中AI服务器CPU占比将高达77% 行业数据方面，WSTS预计2026年全球半导体增长90%，达到1.5万亿美元，主要由存储芯片驱动，同比增加250%。
+会议强调，要锚定“十五五”发展目标和能源强国建设，坚持因地制宜、统筹施策，以更大力度推动试点走深走实。
 
-SEMI数据显示，2026年Q1全球半导体设备出货金额365.5亿美元同比增长14%，单季度销售额创纪录，系AI相关的先进逻辑芯片、DRAM和先进封装的产能扩张和技术升级持续驱动。
+要强化科技创新，推动先进技术成果转化与首台(套)装备示范应用。
 
-华源证券表示，全球半导体产业链进入扩产周期，国内晶圆厂在供应链安全考量下加速扩产并扶持国内供应链，刻蚀/薄膜沉积/CMP等环节已实现显著国产化突破，涂胶显影/量检测等环节也有望取得进展，自主可控板块在相关公司业绩披露后展现增长势头，随着先进存储和制程晶圆厂扩产推进，该板块有望迎来新一轮上行周期。
+要加速制度改革，大胆推进氢能交易、绿色认证等机制创新。
 
-布局芯片产业“超级周期”，优选20CM高弹品种！
+要加大政策支持，强化要素保障。
 
 ## 相关推荐
 
-- 2026-06-29 22:54 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-29 22:56 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-29 22:48 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-29 22:43 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 22:55 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-29 22:40 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-29 22:33 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-29 22:56 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-29 22:49 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-29 22:56 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 22:33 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-29 22:49 - [世界杯高票价为何没劝退球迷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-29 22:52 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-29 23:03 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 22:48 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 23:05 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 22:38 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-29 22:40 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 22:59 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 22:46 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 22:52 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 22:41 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 22:37 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:33 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/918578.shtml)
-- 2026-06-29 22:42 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/33954129646.shtml)
-- 2026-06-29 22:30 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/81516452.shtml)
-- 2026-06-29 22:46 - [中外合作办学是“低分捷径”吗](https://www.share.minike.top/Article/details/07218984372.shtml)
-- 2026-06-29 22:32 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/7353282.shtml)
-- 2026-06-29 22:46 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/63154.shtml)
-- 2026-06-29 22:41 - [英法德葡存在什么隐患](http://www.share.kurohicncr.top/Article/details/3587088.shtml)
-- 2026-06-29 22:55 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/44184081.shtml)
-- 2026-06-29 22:47 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/865367043836.shtml)
-- 2026-06-29 22:45 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/88458.shtml)
-- 2026-06-29 22:37 - [恋与深空回应争议](http://www.share.minike.top/Article/details/55402195.shtml)
-- 2026-06-29 22:47 - [长沙菜农公交的人间烟火气](http://www.blog.kurohicncr.top/Article/details/092633241.shtml)
-- 2026-06-29 22:51 - [月亮](https://www.blog.minike.top/Article/details/907437487409.shtml)
-- 2026-06-29 22:49 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/3756378.shtml)
-- 2026-06-29 22:41 - [金刚川](http://www.blog.minike.top/Article/details/922862.shtml)
+- 2026-06-29 22:45 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/6606006126.shtml)
+- 2026-06-29 22:43 - [浙江进入梅雨最强“攻击时段”](http://www.share.minike.top/Article/details/52390276.shtml)
+- 2026-06-29 22:55 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.minike.top/Article/details/001523879541.shtml)
+- 2026-06-29 22:56 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/520507132.shtml)
+- 2026-06-29 22:53 - [委内瑞拉发生余震](http://www.share.minike.top/Article/details/685986.shtml)
+- 2026-06-29 23:01 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/509227.shtml)
+- 2026-06-29 22:53 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/798732118.shtml)
+- 2026-06-29 22:46 - [小娘惹](https://www.share.minike.top/Article/details/712337275390.shtml)
+- 2026-06-29 22:53 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/348872.shtml)
+- 2026-06-29 22:40 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/483053.shtml)
+- 2026-06-29 22:44 - [福建海警位金门附近海域常态执法巡查](https://www.blog.kurohicncr.top/Article/details/532531936278.shtml)
+- 2026-06-29 22:47 - [一见倾心](https://www.blog.minike.top/Article/details/75865466068.shtml)
+- 2026-06-29 22:49 - [急先锋](http://www.blog.minike.top/Article/details/48420742.shtml)
+- 2026-06-29 22:55 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/509817.shtml)
+- 2026-06-29 22:49 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/35099718.shtml)

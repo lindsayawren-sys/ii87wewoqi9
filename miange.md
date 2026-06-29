@@ -1,58 +1,58 @@
-# 港股硬科技巨震，资金出手了！规模最大港股通信息技术ETF华宝（159131）跌超6%，实时净申购1700万份
+# 海豚钻探公司为半潜式钻井平台锁定钻井作业合同
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-6月10日午后，港股硬科技持续下挫，联想集团、天岳先进、英诺赛科、峰岹科技等多股跌逾10%。同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内现跌6.38%溢价走阔，资金逢跌进场，实时净申购1700万份。 交银国际最新研报指出，考虑到AI拉动相关行业需求持续处于高位，并对整体产业链造成溢出影响，我们继续看好存储、计算、通信以及上游的半导体制造/设备/器件/
+海上钻井承包商海豚钻探公司已签署一份关于“ Borgland Dolphin ”号半潜式钻井平台作业合同的意向书。 该潜在合同价值预计约为2.3亿美元，计划于2027年下半年开始执行，紧随“ Borgland Dolphin ”号完成与雷普索尔现有合同之后直接衔接。 合同固定期限将持续至该钻井平台当前特别定期检验到期之日（2031年10月），包含动员和复员费用，并且预计还有再延
 
 ## 正文
 
-6月10日午后，港股硬科技持续下挫，联想集团、天岳先进、英诺赛科、峰岹科技等多股跌逾10%。
+海上钻井承包商海豚钻探公司已签署一份关于“ Borgland Dolphin ”号半潜式钻井平台作业合同的意向书。
 
-同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内现跌6.38%溢价走阔，资金逢跌进场，实时净申购1700万份。
+该潜在合同价值预计约为2.3亿美元，计划于2027年下半年开始执行，紧随“ Borgland Dolphin ”号完成与雷普索尔现有合同之后直接衔接。
 
-交银国际最新研报指出，考虑到AI拉动相关行业需求持续处于高位，并对整体产业链造成溢出影响，我们继续看好存储、计算、通信以及上游的半导体制造/设备/器件/封测在2H26持续保持高景气度。
+合同固定期限将持续至该钻井平台当前特别定期检验到期之日（2031年10月），包含动员和复员费用，并且预计还有再延长5年的选择权。
 
-我们上调A/H/海外半导体制造评级到超配，上调A/H多种元器件评级到超配。
+双方打算根据该意向书继续谈判合同条款。
 
-我们认为AI行情预计继续，但提醒投资者估值回调风险。
+意向书中包含一笔有利于海豚钻探公司的最高380万美元的终止费。
 
-东吴证券研报分析认为，当前港股处于外围扰动与自身修复的平衡期，整体风险收益比仍属合理。
+最终合同尚需达成协议并经过各自管理层的批准。
 
-市场短期以海外宏观风险为主导，建议动态观察未来两周数据及事件，重点跟踪美联储表态与美股AI扩散进度。
+“ Borgland Dolphin ”号钻井平台于1977年由哈兰德与沃尔夫造船厂建造，并于1998/1999年进行了升级。
 
-从近六月表现来看，聚焦港股硬科技的港股通信息技术ETF华宝（159131）标的指数——中证港股通信息技术综合指数累计涨幅超19%，跑赢同期恒生科技35%，跑赢港股通科技33%，跑赢港股通互联网超47%，锐度和弹性显著领先。
+该平台最大钻井深度为27，800英尺，可在1，476英尺的水深条件下作业。
 
 ## 相关推荐
 
-- 2026-06-29 22:32 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-29 22:34 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-29 22:52 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-29 22:41 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 22:54 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-29 22:52 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 22:38 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-29 22:34 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 22:57 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 22:47 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 22:51 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-29 22:38 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-29 22:37 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 22:57 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-29 22:45 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 22:59 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-29 22:52 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 22:39 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 22:54 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 22:55 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 22:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 22:51 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-29 22:43 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 22:54 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:46 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/16869737.shtml)
-- 2026-06-29 22:35 - [演员都来上音综的原因](https://www.blog.kurohicncr.top/Article/details/0892036407.shtml)
-- 2026-06-29 22:48 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/58856116.shtml)
-- 2026-06-29 22:51 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.kurohicncr.top/Article/details/06763061.shtml)
-- 2026-06-29 22:34 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/0587503947.shtml)
-- 2026-06-29 22:33 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/828391.shtml)
-- 2026-06-29 22:56 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/182523.shtml)
-- 2026-06-29 22:33 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/36026095898.shtml)
-- 2026-06-29 22:54 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/15997.shtml)
-- 2026-06-29 22:59 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/853164241842.shtml)
-- 2026-06-29 22:43 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/1069625544.shtml)
-- 2026-06-29 22:58 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/3848963819.shtml)
-- 2026-06-29 22:50 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/63410540.shtml)
-- 2026-06-29 22:56 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/198520866.shtml)
-- 2026-06-29 22:49 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/059361.shtml)
+- 2026-06-29 22:47 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/7373325095.shtml)
+- 2026-06-29 22:54 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/829157.shtml)
+- 2026-06-29 22:44 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/054680272.shtml)
+- 2026-06-29 22:38 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/89007679.shtml)
+- 2026-06-29 22:58 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/559131296.shtml)
+- 2026-06-29 23:02 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.kurohicncr.top/Article/details/71676303.shtml)
+- 2026-06-29 22:59 - [荷兰VS摩洛哥你看好谁](https://www.share.minike.top/Article/details/62168.shtml)
+- 2026-06-29 23:00 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/21453958266.shtml)
+- 2026-06-29 22:50 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/14077239.shtml)
+- 2026-06-29 23:03 - [曼城官宣马雷斯卡出任主教练](http://www.share.minike.top/Article/details/3769682.shtml)
+- 2026-06-29 22:49 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/34443.shtml)
+- 2026-06-29 22:50 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.kurohicncr.top/Article/details/65422382713.shtml)
+- 2026-06-29 22:56 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/5523827.shtml)
+- 2026-06-29 23:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/13661548794.shtml)
+- 2026-06-29 23:03 - [MG总经理直播被冲](http://www.blog.minike.top/Article/details/60771943.shtml)

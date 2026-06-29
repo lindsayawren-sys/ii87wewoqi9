@@ -1,44 +1,53 @@
-# 只是按个肩颈 为何会突发血栓
+# 中科宇航IPO状态变更为已问询
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月11日 17:43 来源：央视新闻 责任编辑：【王祎】
+上交所官网显示，4月15日，商业火箭企业中科宇航IPO状态变为已问询。中科宇航成立于2018年，3月31日，该公司IPO申请获受理，后被抽中现场检查。此次IPO，中科宇航拟募资41.8亿元，其保荐机构为国泰海通证券。责任编辑：江钰涵
 
 ## 正文
 
-发布时间：2026年06月11日 17:43 来源：央视新闻 责任编辑：【王祎】
+上交所官网显示，4月15日，商业火箭企业中科宇航IPO状态变为已问询。
+
+中科宇航成立于2018年，3月31日，该公司IPO申请获受理，后被抽中现场检查。
+
+此次IPO，中科宇航拟募资41.8亿元，其保荐机构为国泰海通证券。
+
+责任编辑：江钰涵
 
 ## 相关推荐
 
-- 2026-06-29 22:54 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 22:48 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-29 22:36 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 22:53 - [恋与深空致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 22:46 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-29 22:44 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-29 22:37 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 22:47 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 22:35 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-29 22:54 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 22:54 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-29 22:46 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-29 22:54 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-29 22:58 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-29 22:57 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-29 22:37 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-29 22:51 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 22:59 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-29 22:55 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-29 22:53 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 22:42 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-29 22:49 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 22:37 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-29 22:56 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-29 23:04 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-29 22:59 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 22:53 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:42 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/270754484694.shtml)
-- 2026-06-29 22:41 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/59716.shtml)
-- 2026-06-29 22:44 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/72408968.shtml)
-- 2026-06-29 22:51 - [任泽平：AI浪潮刚刚开始](http://www.share.kurohicncr.top/Article/details/36299697210.shtml)
-- 2026-06-29 22:56 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/84221.shtml)
-- 2026-06-29 22:59 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/338513.shtml)
-- 2026-06-29 22:34 - [世界杯](https://www.blog.minike.top/Article/details/543237469083.shtml)
-- 2026-06-29 22:55 - [一汽大众黄金超混技术来袭](https://www.blog.kurohicncr.top/Article/details/99887.shtml)
-- 2026-06-29 22:39 - [法媒点赞分享中国小区降温方案](https://www.blog.minike.top/Article/details/512076.shtml)
-- 2026-06-29 22:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/13031633886.shtml)
-- 2026-06-29 22:51 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.minike.top/Article/details/6483702054.shtml)
-- 2026-06-29 22:59 - [法拉利车主已自行承担修理费近3万](http://www.blog.kurohicncr.top/Article/details/133770194.shtml)
-- 2026-06-29 22:47 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/95599137256.shtml)
-- 2026-06-29 22:44 - [韩国800万亿韩元押注半导体](http://www.share.minike.top/Article/details/205193.shtml)
-- 2026-06-29 22:52 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/44251730982.shtml)
+- 2026-06-29 22:57 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/45168.shtml)
+- 2026-06-29 23:02 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/93957.shtml)
+- 2026-06-29 22:42 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/00839.shtml)
+- 2026-06-29 22:58 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/46690.shtml)
+- 2026-06-29 22:50 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/539829.shtml)
+- 2026-06-29 22:36 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/320790990.shtml)
+- 2026-06-29 22:55 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/47425860143.shtml)
+- 2026-06-29 23:05 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/745758.shtml)
+- 2026-06-29 22:56 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/8824458266.shtml)
+- 2026-06-29 23:00 - [中外合作办学是“低分捷径”吗](https://www.share.minike.top/Article/details/947657099.shtml)
+- 2026-06-29 23:03 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/552759892142.shtml)
+- 2026-06-29 23:04 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/2916337214.shtml)
+- 2026-06-29 22:47 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/8328694751.shtml)
+- 2026-06-29 22:41 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/4321815.shtml)
+- 2026-06-29 23:05 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/91440031.shtml)

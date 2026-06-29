@@ -1,56 +1,61 @@
-# 特朗普称其“喜欢通胀”，重申冲突结束后油价会暴跌
+# 北京2026年积分落户申报今天启动
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-美国总统特朗普似乎对通胀率超过4%的数据表示欢迎，他周三在白宫对记者表示，他“喜欢”通胀，并重申他认为伊朗战事结束后物价就会下降。 当被问及美国政府数据显示5月份消费者通胀率创三年新高，以及这是否会在11月中期选举前几个月拖累他的共和党同僚时，特朗普说：“我喜欢通胀。” 特朗普随后解释，出于对油价上涨和通胀加剧的担忧，他批准了一项让油轮秘密穿越霍尔木兹海峡的计划。谈及这项决策，
+北京市2026年积分落户申报工作将于4月16日早8时正式启动，申报期限为30个自然日，申请人可以登录北京市人力资源和社会保障局官方网站积分落户服务专栏(http://rsj.beijing.gov.cn/jflh/)填写申报信息。7月13日起，北京市人力资源和社会保障局将在市政府门户网站“首都之窗”公示年度落户人员信息。2026年本市积分落户规模为6000人，并实行同分同落。本
 
 ## 正文
 
-美国总统特朗普似乎对通胀率超过4%的数据表示欢迎，他周三在白宫对记者表示，他“喜欢”通胀，并重申他认为伊朗战事结束后物价就会下降。
+北京市2026年积分落户申报工作将于4月16日早8时正式启动，申报期限为30个自然日，申请人可以登录北京市人力资源和社会保障局官方网站积分落户服务专栏(http://rsj.beijing.gov.cn/jflh/)填写申报信息。
 
-当被问及美国政府数据显示5月份消费者通胀率创三年新高，以及这是否会在11月中期选举前几个月拖累他的共和党同僚时，特朗普说：“我喜欢通胀。
+7月13日起，北京市人力资源和社会保障局将在市政府门户网站“首都之窗”公示年度落户人员信息。
 
-” 特朗普随后解释，出于对油价上涨和通胀加剧的担忧，他批准了一项让油轮秘密穿越霍尔木兹海峡的计划。
+2026年本市积分落户规模为6000人，并实行同分同落。
 
-谈及这项决策，特朗普表示：“在我看来这么做是值得的”，并称此次行动取得了成功。
+本年度申报分为5个阶段，共计96个自然日，具体时间安排为：申报阶段(4月16日8时至5月15日20时，共计30个自然日)；部门审核结果汇总阶段(5月16日至6月4日，共计20个自然日)；审核结果查询阶段(6月5日8时至6月12日20时，共计8个自然日)；部门复核及积分排名阶段(6月13日至7月12日，共计30个自然日)；公示和落户办理阶段(7月13日起，公示8个自然日)，公示期满取得落户资格的申请人可按规定办理调京落户手续。
 
-“我们每晚都在运出数百万桶石油，”特朗普说。
+依据《北京市积分落户操作管理细则》第十七条规定，申请人和用人单位应确保所填报指标信息真实准确，并共同对填报指标信息的真实性负责。
 
-“战争结束后，你会看到油价跌回战前水平，”特朗普谈到这场冲突时说。
+申请人提供虚假材料的，取消其当年及以后5年内的积分落户申请资格；已取得本市常住户口的，由公安部门予以注销，并迁回调京前户籍所在地。
 
-“油价正在下跌，而且会像石头一样暴跌。
+对用人单位协助提供虚假材料的，当年及以后5年内不受理其积分落户申请事项。
 
-” 特朗普称对伊朗之战是一场偏离正轨的行动，并将其定性为国家安全议题 ，因为德黑兰方面关闭关键航运通道，已推高汽油、化肥及其他商品价格，加剧通胀。
+相关申请人和用人单位在积分落户过程中严重违反向行政机关做出承诺的失信记录纳入本市公共信用信息服务平台。
 
 ## 相关推荐
 
-- 2026-06-29 22:50 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-29 22:59 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 22:57 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-29 22:58 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 22:50 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-29 22:43 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-29 22:57 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 22:43 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 22:55 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 22:43 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-29 22:50 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 22:50 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 22:59 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 22:48 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 23:00 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 23:02 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-29 22:59 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-29 22:45 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 22:55 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-29 22:52 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-29 23:00 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 22:37 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-29 23:00 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 22:54 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-29 22:55 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:36 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/7383984.shtml)
-- 2026-06-29 22:42 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/720460949227.shtml)
-- 2026-06-29 22:41 - [月亮](http://www.share.kurohicncr.top/Article/details/93499.shtml)
-- 2026-06-29 22:44 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/8496039.shtml)
-- 2026-06-29 22:42 - [韩国队回国欢迎仪式取消](https://www.share.minike.top/Article/details/4693665.shtml)
-- 2026-06-29 22:41 - [王安宇聪明到导演组炸了](https://www.blog.minike.top/Article/details/949060.shtml)
-- 2026-06-29 22:42 - [极限挑战第一季](https://www.blog.minike.top/Article/details/09406114.shtml)
-- 2026-06-29 22:52 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/73089050.shtml)
-- 2026-06-29 22:30 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/924442304594.shtml)
-- 2026-06-29 22:43 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/81991019.shtml)
-- 2026-06-29 22:52 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/255948.shtml)
-- 2026-06-29 22:44 - [急先锋](http://www.blog.minike.top/Article/details/6977208848.shtml)
-- 2026-06-29 22:46 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/462859.shtml)
-- 2026-06-29 22:58 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/3372211787.shtml)
-- 2026-06-29 22:35 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/861878518.shtml)
+- 2026-06-29 22:46 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/00594.shtml)
+- 2026-06-29 22:45 - [乌是否掌握了扭转战局的钥匙](http://www.share.kurohicncr.top/Article/details/57440395.shtml)
+- 2026-06-29 22:58 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/10667512124.shtml)
+- 2026-06-29 23:00 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/7592466594.shtml)
+- 2026-06-29 22:42 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/29896.shtml)
+- 2026-06-29 22:40 - [炽夏](https://www.blog.kurohicncr.top/Article/details/914883.shtml)
+- 2026-06-29 23:03 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/66613918.shtml)
+- 2026-06-29 22:58 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/430157854918.shtml)
+- 2026-06-29 22:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/134609326.shtml)
+- 2026-06-29 22:42 - [金牌调解](http://www.share.minike.top/Article/details/4564262793.shtml)
+- 2026-06-29 23:02 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.minike.top/Article/details/103948194345.shtml)
+- 2026-06-29 22:52 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/930678241802.shtml)
+- 2026-06-29 22:59 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/140422279.shtml)
+- 2026-06-29 22:41 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/75149364337.shtml)
+- 2026-06-29 22:57 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/97369769.shtml)

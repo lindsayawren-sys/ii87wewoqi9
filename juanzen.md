@@ -1,56 +1,49 @@
-# 中方：愿同各方一道通过文明对话汲取破解全球难题的智慧
+# 乌军对克里米亚发动大规模袭击
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-中新网北京6月10日电 (记者 邢翀 张素)中国外交部发言人林剑6月10日主持例行记者会。 有记者提问：今天是第二个“文明对话国际日”。我们注意到，近日联合国总部和多个联合国机构所在地举办了丰富多彩的“文明对话国际日”主题活动。中国国际问题研究院也在今天发布了文明对话相关报告。可否请发言人介绍相关情况？ 林剑：三年前，习近平主席郑重提出全球文明倡议，为不同文明和合共生指明方向。
+乌克兰国防部长顾问谢尔盖·斯捷尔年科14日在社交媒体上说，乌克兰军队夜间对克里米亚发动了大规模袭击，克里米亚的辛菲罗波尔、费奥多西亚和刻赤地区响起爆炸声。 此外，乌军还袭击了扎波罗热地区梅利托波尔的一个变电站。 (央视新闻客户端)
 
 ## 正文
 
-中新网北京6月10日电 (记者 邢翀 张素)中国外交部发言人林剑6月10日主持例行记者会。
+乌克兰国防部长顾问谢尔盖·斯捷尔年科14日在社交媒体上说，乌克兰军队夜间对克里米亚发动了大规模袭击，克里米亚的辛菲罗波尔、费奥多西亚和刻赤地区响起爆炸声。
 
-有记者提问：今天是第二个“文明对话国际日”。
+此外，乌军还袭击了扎波罗热地区梅利托波尔的一个变电站。
 
-我们注意到，近日联合国总部和多个联合国机构所在地举办了丰富多彩的“文明对话国际日”主题活动。
-
-中国国际问题研究院也在今天发布了文明对话相关报告。
-
-可否请发言人介绍相关情况？
-
-林剑：三年前，习近平主席郑重提出全球文明倡议，为不同文明和合共生指明方向。
-
-设立“文明对话国际日”就是落实这一倡议的重要举措。
-
-今天是第二个“文明对话国际日”。
+(央视新闻客户端)
 
 ## 相关推荐
 
-- 2026-06-29 22:41 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-29 22:57 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-29 22:31 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-29 22:51 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-29 22:34 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-29 22:31 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 22:40 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-29 22:44 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-29 22:32 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-29 22:39 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 22:40 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 22:38 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 22:55 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-29 23:04 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-29 22:52 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 22:49 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 22:52 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 22:49 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 22:42 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 22:36 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 22:50 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 22:46 - [多人将马路护栏当球网打羽毛球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 22:56 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:34 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/368958509452.shtml)
-- 2026-06-29 22:43 - [一台空调背后的全球化逻辑](http://www.share.kurohicncr.top/Article/details/5284425592.shtml)
-- 2026-06-29 22:54 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/98325.shtml)
-- 2026-06-29 22:38 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/453773.shtml)
-- 2026-06-29 22:42 - [格莱美唱作人锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/135850.shtml)
-- 2026-06-29 22:36 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/115351066276.shtml)
-- 2026-06-29 22:55 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/3770473.shtml)
-- 2026-06-29 22:59 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/64398162625.shtml)
-- 2026-06-29 22:46 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/21379436260.shtml)
-- 2026-06-29 22:52 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/36179153673.shtml)
-- 2026-06-29 22:44 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/5947997.shtml)
-- 2026-06-29 22:52 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/499350.shtml)
-- 2026-06-29 22:59 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.minike.top/Article/details/808453971.shtml)
-- 2026-06-29 22:42 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/459675.shtml)
-- 2026-06-29 22:47 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/287944.shtml)
+- 2026-06-29 22:58 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/7552184.shtml)
+- 2026-06-29 22:48 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/512681.shtml)
+- 2026-06-29 22:44 - [佛得角队长门德斯被控强奸](https://www.blog.minike.top/Article/details/9995912.shtml)
+- 2026-06-29 22:52 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/8354191.shtml)
+- 2026-06-29 22:50 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/2431289.shtml)
+- 2026-06-29 22:55 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/80362.shtml)
+- 2026-06-29 22:56 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/421370042.shtml)
+- 2026-06-29 22:45 - [一生一世](https://www.blog.kurohicncr.top/Article/details/88540288275.shtml)
+- 2026-06-29 22:55 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/85961732.shtml)
+- 2026-06-29 22:43 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/36033017.shtml)
+- 2026-06-29 22:43 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/2107252257.shtml)
+- 2026-06-29 23:02 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/3195959.shtml)
+- 2026-06-29 22:39 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/8200242849.shtml)
+- 2026-06-29 22:37 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/026796194903.shtml)
+- 2026-06-29 23:01 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/8371267.shtml)

@@ -1,60 +1,58 @@
-# TGS将为赤道几内亚创建大型海上地震数据集
+# 第十五届中国国际园林博览会在侨乡温州开幕
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-TGS公司已与赤道几内亚碳氢化合物与矿业发展部签署协议，将创建一个覆盖该国海上盆地的全国性“大型地震测量”项目的第一阶段，该项目计划创建一个大型海上多客户地震数据集。 该项目的初始阶段将包括对约27，273公里的二维地震数据和约35，000平方公里的三维地震数据进行叠后重新处理，预计于2026年第三季度完成。 TGS表示，其“大型地震测量”是覆盖大片连续区域的协调统一的三维地震
+中新社温州4月15日电 (周健)第十五届中国国际园林博览会(以下简称“园博会”)15日在侨乡浙江温州开幕。 本届园博会为期100天，主会场园博园占地面积近230万平方米，精心布局了1个主题园、34个城市展园和6个主题展区。开幕当日，众多海内外嘉宾沉浸式游览园博园，在移步换景间领略中外园林的魅力。 值得关注的是，34个城市展园中包含了11个国际城市展园，它们各具风情，成为国际交流
 
 ## 正文
 
-TGS公司已与赤道几内亚碳氢化合物与矿业发展部签署协议，将创建一个覆盖该国海上盆地的全国性“大型地震测量”项目的第一阶段，该项目计划创建一个大型海上多客户地震数据集。
+中新社温州4月15日电 (周健)第十五届中国国际园林博览会(以下简称“园博会”)15日在侨乡浙江温州开幕。
 
-该项目的初始阶段将包括对约27，273公里的二维地震数据和约35，000平方公里的三维地震数据进行叠后重新处理，预计于2026年第三季度完成。
+本届园博会为期100天，主会场园博园占地面积近230万平方米，精心布局了1个主题园、34个城市展园和6个主题展区。
 
-TGS表示，其“大型地震测量”是覆盖大片连续区域的协调统一的三维地震数据集，能够支持地质解释，加深对构造和地层格架的理解，并有助于降低勘探不确定性。
+开幕当日，众多海内外嘉宾沉浸式游览园博园，在移步换景间领略中外园林的魅力。
 
-该项目是一项更广泛计划的第一阶段，旨在为赤道几内亚各海上盆地创建一个协调统一、无缝衔接的地震数据产品。
+值得关注的是，34个城市展园中包含了11个国际城市展园，它们各具风情，成为国际交流合作的重要载体。
 
-整个项目的远景规划包括约46，343测线公里的二维地震数据和超过59，000平方公里的三维地震数据。
+作为荷兰展园的设计者，米歇尔·范·卡门(Michel Van Kammen)借此将家乡最具代表性的风车、郁金香等元素带到了中国。
 
-该公司表示，“大型地震测量”将应用其最新的成像技术，以解决地下地质难题，并支持Rio del Rey盆地和Rio Muni盆地的勘探活动。
+国际园林盛宴的举办，离不开温州的“侨力量”。
 
-TGS公司多客户业务执行副总裁戴维·哈约夫斯基表示：“赤道几内亚大型地震测量项目是该国首个此类项目，它将应用TGS最新的成像技术来应对关键的地下地质挑战，并有助于降低Rio del Rey盆地和Rio Muni盆地的勘探风险。
+据了解，乌兹别克斯坦、意大利、英国、法国、荷兰、泰国、加拿大等7个国家的城市展园设计方案，由海外温籍侨团、侨商代表倾情捐赠。
 
-” “该数据产品旨在为客户提供一个覆盖全盆地的区域筛选工具，支持圈闭识别、圈闭优选以及未来工作承诺的规划。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:56 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 22:37 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-29 22:50 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 22:46 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 22:53 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 22:51 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 22:38 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-29 22:55 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-29 22:50 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 22:53 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-29 22:44 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-29 22:52 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-29 22:52 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 22:56 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-29 23:02 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 23:05 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-29 23:04 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 22:43 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 22:45 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 22:37 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 23:03 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 22:52 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 23:00 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-29 22:51 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-29 22:46 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 22:37 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:48 - [记者乘坐无人驾驶汽车去采访](https://www.share.kurohicncr.top/Article/details/62951.shtml)
-- 2026-06-29 22:38 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.minike.top/Article/details/45186.shtml)
-- 2026-06-29 22:39 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/6208387.shtml)
-- 2026-06-29 22:58 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/417002.shtml)
-- 2026-06-29 22:52 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/64025103042.shtml)
-- 2026-06-29 22:31 - [如何看待乌空军3架米格-29被摧毁](http://www.share.kurohicncr.top/Article/details/5738447160.shtml)
-- 2026-06-29 22:50 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/393065142.shtml)
-- 2026-06-29 22:48 - [金刚川](http://www.blog.kurohicncr.top/Article/details/33810.shtml)
-- 2026-06-29 22:59 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/5599535148.shtml)
-- 2026-06-29 22:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/279238.shtml)
-- 2026-06-29 22:38 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/44971.shtml)
-- 2026-06-29 22:59 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/48345.shtml)
-- 2026-06-29 22:32 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/446487546.shtml)
-- 2026-06-29 22:59 - [日本在最东端离岛部署导弹发射装置](https://www.share.minike.top/Article/details/1082950918.shtml)
-- 2026-06-29 22:45 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/3941335441.shtml)
+- 2026-06-29 22:49 - [卢卡申科发布解放军仪仗队视频](https://www.blog.minike.top/Article/details/737032368.shtml)
+- 2026-06-29 22:45 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/444167.shtml)
+- 2026-06-29 22:59 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/1350223874.shtml)
+- 2026-06-29 22:52 - [货车司机恶意闯卡逃费被行拘](https://www.blog.kurohicncr.top/Article/details/340817230.shtml)
+- 2026-06-29 22:58 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/440937.shtml)
+- 2026-06-29 23:00 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/2042745350.shtml)
+- 2026-06-29 22:40 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/324451875.shtml)
+- 2026-06-29 22:53 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/241103.shtml)
+- 2026-06-29 22:40 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/2181454076.shtml)
+- 2026-06-29 23:00 - [东方风云榜](http://www.share.minike.top/Article/details/037343821.shtml)
+- 2026-06-29 22:44 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/25245.shtml)
+- 2026-06-29 22:45 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/014932720757.shtml)
+- 2026-06-29 22:57 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/2754587.shtml)
+- 2026-06-29 22:36 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/017498841583.shtml)
+- 2026-06-29 22:51 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/306919602148.shtml)

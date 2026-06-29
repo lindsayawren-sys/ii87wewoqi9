@@ -1,60 +1,61 @@
-# 20国盲人门球运动员齐聚杭州 争夺洛杉矶残奥会门票
+# 我国新增的两处世界地质公园 有怎样的地质科学意义？
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-中新网杭州6月10日电(张煜欢)6月9日至6月15日，2026年IBSA世界盲人门球锦标赛在位于杭州市临平区的浙江省塘栖盲人门球训练基地举行。这是该赛事首次在中国举办。 本次赛事由国际盲人体育联合会(IBSA)主办，中国残疾人联合会、中国残奥委员会指导，浙江省残疾人联合会承办。来自中国、美国、英国、阿根廷、巴西等20个国家的32支队伍、共192名运动员参赛。其中中国队有12名运
+昨天(15日)，在法国巴黎召开的联合国教科文组织执行局第224届会议上，我国浙江常山和四川四姑娘山顺利通过会议审议，正式成为世界地质公园。至此，我国世界地质公园增至51处。我国新增的两处世界地质公园美在哪、奇在哪？具有怎样的地质科学意义？此次通过审议的常山世界地质公园，位于浙江省衢州市常山县。公园保存着新元古代至新生代的连续地层，是亚洲东部近10亿年地质演化历史中地层序列最连续
 
 ## 正文
 
-中新网杭州6月10日电(张煜欢)6月9日至6月15日，2026年IBSA世界盲人门球锦标赛在位于杭州市临平区的浙江省塘栖盲人门球训练基地举行。
+昨天(15日)，在法国巴黎召开的联合国教科文组织执行局第224届会议上，我国浙江常山和四川四姑娘山顺利通过会议审议，正式成为世界地质公园。
 
-这是该赛事首次在中国举办。
+至此，我国世界地质公园增至51处。
 
-本次赛事由国际盲人体育联合会(IBSA)主办，中国残疾人联合会、中国残奥委员会指导，浙江省残疾人联合会承办。
+我国新增的两处世界地质公园美在哪、奇在哪？
 
-来自中国、美国、英国、阿根廷、巴西等20个国家的32支队伍、共192名运动员参赛。
+具有怎样的地质科学意义？
 
-其中中国队有12名运动员参赛。
+此次通过审议的常山世界地质公园，位于浙江省衢州市常山县。
 
-男女组别前两名将获得2028年洛杉矶残奥会参赛资格。
+公园保存着新元古代至新生代的连续地层，是亚洲东部近10亿年地质演化历史中地层序列最连续的地区之一，拥有中国首枚“金钉子”及大量笔石、三叶虫、牙形类等古生物化石。
 
-盲人门球是一项专为视障运动员设计的团队运动，运动员们佩戴眼罩，在完全平等的听觉世界里，凭借一颗内置铃铛的球，判断方向、瞬间扑救、果断投掷。
+究竟什么是“金钉子”？
 
-赛场上，观众需保持安静，运动员却要在静默中爆发——每一次鱼跃、每一次封挡，依靠的不是视觉，而是千锤百炼的听觉、触觉与团队间无言的信任。
+常山地质公园管理中心党组成员、副主任秦海浪解释，地质学上的“金钉子”实际上是全球年代地层单位界线层型剖面和点位(GSSP)的俗称。
 
 ## 相关推荐
 
-- 2026-06-29 22:45 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-29 22:57 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-29 22:45 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-29 22:31 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-29 22:40 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-29 22:40 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-29 22:40 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-29 22:36 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-29 22:34 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-29 22:43 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 22:54 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-29 22:58 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-29 22:56 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-29 22:59 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-29 22:39 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 22:47 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-29 22:49 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-29 23:00 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-29 22:43 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-29 22:52 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 22:47 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-29 22:53 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 22:48 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 22:55 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 22:47 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 22:57 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 22:46 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 22:51 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-29 22:47 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:55 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/73447848.shtml)
-- 2026-06-29 22:52 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/80709444564.shtml)
-- 2026-06-29 22:40 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/488643956690.shtml)
-- 2026-06-29 22:48 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/29700.shtml)
-- 2026-06-29 22:30 - [哈兰德吃饭被镜中自己吓到](https://www.blog.kurohicncr.top/Article/details/082331.shtml)
-- 2026-06-29 22:31 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/341376841590.shtml)
-- 2026-06-29 22:58 - [金刚川](http://www.share.minike.top/Article/details/274945180190.shtml)
-- 2026-06-29 22:32 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/21479730.shtml)
-- 2026-06-29 22:46 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/1338511446.shtml)
-- 2026-06-29 22:34 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/13929786215.shtml)
-- 2026-06-29 22:46 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/757481796786.shtml)
-- 2026-06-29 22:36 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/1242506655.shtml)
-- 2026-06-29 22:57 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/3334208.shtml)
-- 2026-06-29 22:52 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/868473.shtml)
-- 2026-06-29 22:36 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/33274.shtml)
+- 2026-06-29 22:54 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/30273.shtml)
+- 2026-06-29 22:58 - [我和我的家乡](https://www.blog.minike.top/Article/details/934008.shtml)
+- 2026-06-29 22:42 - [英法德葡存在什么隐患](https://www.share.kurohicncr.top/Article/details/79360964.shtml)
+- 2026-06-29 22:42 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/00581088.shtml)
+- 2026-06-29 22:55 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/47911629.shtml)
+- 2026-06-29 23:03 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/0692802949.shtml)
+- 2026-06-29 22:53 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/5048370.shtml)
+- 2026-06-29 22:52 - [一汽大众黄金超混技术来袭](http://www.blog.kurohicncr.top/Article/details/6518836627.shtml)
+- 2026-06-29 22:48 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/1894021.shtml)
+- 2026-06-29 22:48 - [恋与深空制作组回应争议](http://www.blog.kurohicncr.top/Article/details/60329.shtml)
+- 2026-06-29 22:39 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/571481.shtml)
+- 2026-06-29 22:48 - [被裁员后30岁儿子被抓去戒网瘾](http://www.share.minike.top/Article/details/30241.shtml)
+- 2026-06-29 22:50 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/388955.shtml)
+- 2026-06-29 22:37 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/5610110.shtml)
+- 2026-06-29 23:05 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/46309.shtml)

@@ -1,53 +1,59 @@
-# 茅台董事长陈华：所有产品渠道存量处于良性健康水平
+# 人民币对日元汇率创新高
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 专题：贵州茅台2025年度股东大会 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月11日，贵州茅台酒股份有限公司2025年度股东会召开。 茅台集团党委书记、董事长陈华透露：“目前来看，我们所有产品的渠道存量处于良性健康水平。” 他还表示：“未来，白酒行业将步入存量竞争的新阶段，产业集聚效应会
+日经中文网 人民币对日元汇率一度达到1元兑23.40日元区间，自2005年以来刷新了最高纪录。在中美贸易减少的背景下，中国对东南亚和欧洲的出口增加，持续的贸易顺差为人民币买盘提供了支撑…… 人民币对日元升值，在中国转向管理浮动汇率制度的2005年以来刷新了最高水平。在中美贸易减少的背景下，中国对东南亚和欧洲的出口增加，贸易顺差扩大。随着以人民币结算的交易增多、国际化推进，人民币
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 专题：贵州茅台2025年度股东大会 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+日经中文网 人民币对日元汇率一度达到1元兑23.40日元区间，自2005年以来刷新了最高纪录。
 
-6月11日，贵州茅台酒股份有限公司2025年度股东会召开。
+在中美贸易减少的背景下，中国对东南亚和欧洲的出口增加，持续的贸易顺差为人民币买盘提供了支撑…… 人民币对日元升值，在中国转向管理浮动汇率制度的2005年以来刷新了最高水平。
 
-茅台集团党委书记、董事长陈华透露：“目前来看，我们所有产品的渠道存量处于良性健康水平。
+在中美贸易减少的背景下，中国对东南亚和欧洲的出口增加，贸易顺差扩大。
 
-” 他还表示：“未来，白酒行业将步入存量竞争的新阶段，产业集聚效应会进一步凸显，茅台依然具备强劲的发展韧性与增长潜力。
+随着以人民币结算的交易增多、国际化推进，人民币也更容易成为分散投资风险的对象。
 
-从当前看，茅台依然是一家非常健康的公司，拥有“高毛利、高净利、高分红、低负债”的独特优势。
+4月13日，人民币对日元汇率一度达到1元兑23.40日元区间。
 
-”责任编辑：孙同怀
+2025年底为1元兑22.0~22.4日元。
+
+人民币对美元的汇率在4月14日达到1美元兑6.80~6.84元，这是3年来的最高人民币升值水平。
+
+4月14日，中国海关总署公布的3月贸易统计（以美元计价）显示，出口减去进口后得出的贸易顺差为511亿美元，持续的贸易顺差为人民币买盘提供了支撑。
 
 ## 相关推荐
 
-- 2026-06-29 22:54 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 22:55 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 22:57 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-29 22:42 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-29 22:55 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-29 22:59 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 22:51 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 22:31 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-29 22:47 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-29 22:43 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 22:44 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-29 22:43 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 23:01 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 23:00 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-29 22:56 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-29 22:48 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-29 22:38 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 22:49 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 22:51 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 23:05 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 22:56 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 23:04 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 23:00 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-29 23:00 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:30 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/59801633.shtml)
-- 2026-06-29 22:36 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/5837049706.shtml)
-- 2026-06-29 22:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/54145186883.shtml)
-- 2026-06-29 22:58 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/2292110.shtml)
-- 2026-06-29 22:58 - [男子称在京东买到“同仁堂”假药](https://www.blog.minike.top/Article/details/8455309.shtml)
-- 2026-06-29 22:34 - [曝iPhone涨价后不会再降](http://www.share.minike.top/Article/details/005032696.shtml)
-- 2026-06-29 22:56 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/14012943381.shtml)
-- 2026-06-29 22:51 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/802930.shtml)
-- 2026-06-29 22:44 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/3540251980.shtml)
-- 2026-06-29 22:40 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/777573351598.shtml)
-- 2026-06-29 22:34 - [地震来临时铁路工作人员果断拦停列车](https://www.share.kurohicncr.top/Article/details/2863526.shtml)
-- 2026-06-29 22:32 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/99211071067.shtml)
-- 2026-06-29 22:57 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/169323090653.shtml)
-- 2026-06-29 22:41 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/496099.shtml)
-- 2026-06-29 22:36 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/428618.shtml)
+- 2026-06-29 23:04 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/514183224.shtml)
+- 2026-06-29 22:52 - [85花告别古偶](http://www.blog.minike.top/Article/details/83216.shtml)
+- 2026-06-29 22:38 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/35655855.shtml)
+- 2026-06-29 22:48 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/8724490.shtml)
+- 2026-06-29 22:47 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/736089593.shtml)
+- 2026-06-29 22:58 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/969684784131.shtml)
+- 2026-06-29 22:37 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/48741679.shtml)
+- 2026-06-29 22:44 - [流金岁月](https://www.blog.minike.top/Article/details/767985267.shtml)
+- 2026-06-29 22:37 - [急先锋](http://www.share.minike.top/Article/details/68180395983.shtml)
+- 2026-06-29 22:53 - [我们的少年时代2](http://www.share.minike.top/Article/details/4959480.shtml)
+- 2026-06-29 22:49 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/5876820.shtml)
+- 2026-06-29 22:45 - [急先锋](https://www.blog.minike.top/Article/details/7189750038.shtml)
+- 2026-06-29 22:58 - [周生如故](http://www.blog.kurohicncr.top/Article/details/31457009035.shtml)
+- 2026-06-29 22:51 - [炽夏](http://www.share.kurohicncr.top/Article/details/910406719811.shtml)
+- 2026-06-29 22:46 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.kurohicncr.top/Article/details/355047533.shtml)

@@ -1,60 +1,60 @@
-# 知情人士：韩国已消化与SpaceX IPO相关的约15亿美元买需
+# 身边产业|从“身边物”看懂化工产业：从一件衣服，看懂芳烃产业链
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-一位知情人士周三表示，与SpaceX首次公开发行（IPO）相关的大规模外汇兑换需求已得到消化，此前这些需求在过去几周对韩元造成了沉重压力。 这位掌握韩元兑美元在岸市场交易情况的消息人士表示，估计价值15亿美元的购汇订单已进入最后阶段。鉴于此事的敏感性，该消息人士要求匿名。 媒体周二援引消息人士报道称，马斯克的太空探索公司SpaceX已吸引超过2，500亿美元的投资者认购需求，有
+各位投资者，大家好。 欢迎来到中信保诚基金“身边产业”专栏。在这个系列中，我们希望不做复杂的产能数据堆砌，也不谈晦涩的炼化装置，而是从你的生活开始。 请你环顾四周：你手边的杯子，可能是塑料的；你穿的衣服，可能是化纤的；你开车上班的路上，轮胎是合成橡胶做的，路面是石油沥青铺的。 这些再平常不过的物品，其实都指向同一个源头——石油化工。 很多人觉得化工行业遥远、枯燥、难以理解。但实
 
 ## 正文
 
-一位知情人士周三表示，与SpaceX首次公开发行（IPO）相关的大规模外汇兑换需求已得到消化，此前这些需求在过去几周对韩元造成了沉重压力。
+各位投资者，大家好。
 
-这位掌握韩元兑美元在岸市场交易情况的消息人士表示，估计价值15亿美元的购汇订单已进入最后阶段。
+欢迎来到中信保诚基金“身边产业”专栏。
 
-鉴于此事的敏感性，该消息人士要求匿名。
+在这个系列中，我们希望不做复杂的产能数据堆砌，也不谈晦涩的炼化装置，而是从你的生活开始。
 
-媒体周二援引消息人士报道称，马斯克的太空探索公司SpaceX已吸引超过2，500亿美元的投资者认购需求，有望成为史上规模最大的IPO，远高于公司计划募集的750亿美元。
+请你环顾四周：你手边的杯子，可能是塑料的；你穿的衣服，可能是化纤的；你开车上班的路上，轮胎是合成橡胶做的，路面是石油沥青铺的。
 
-此次IPO将于周四定价，随后将确定机构和散户投资者的配售比例。
+这些再平常不过的物品，其实都指向同一个源头——石油化工。
 
-“市场此前高度关注SpaceX IPO将在美元—韩元外汇市场引发多大规模的美元需求，该规模约为12亿至15亿美元。
+很多人觉得化工行业遥远、枯燥、难以理解。
 
-”该消息人士表示。
+但实际上，它是现代文明的“材料库”。
 
-“不过该过程已被拆分执行且接近完成，因此未来外汇市场上（韩元）不会面临下行压力。
+投资化工，本质上是投资我们生活方式的改变。
 
 ## 相关推荐
 
-- 2026-06-29 22:44 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-29 22:40 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 22:59 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-29 22:39 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 22:55 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-29 22:30 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-29 22:34 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-29 22:33 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-29 22:33 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-29 22:43 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-29 22:50 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 22:56 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 22:45 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 22:45 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 22:52 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 22:38 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-29 22:56 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 22:57 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 22:57 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-29 22:47 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-29 22:41 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 22:37 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 22:58 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 23:01 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-29 22:55 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 22:59 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-29 22:58 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 22:52 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:54 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/05075446064.shtml)
-- 2026-06-29 22:36 - [世界杯高票价为何没劝退球迷](https://www.share.kurohicncr.top/Article/details/9946302.shtml)
-- 2026-06-29 22:53 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/295168927086.shtml)
-- 2026-06-29 22:52 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/57026225.shtml)
-- 2026-06-29 22:46 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/5393155946.shtml)
-- 2026-06-29 22:38 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/562570979.shtml)
-- 2026-06-29 22:33 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/42858599771.shtml)
-- 2026-06-29 22:43 - [肝不好身体这几处会“说话”](https://www.share.kurohicncr.top/Article/details/11118723.shtml)
-- 2026-06-29 22:34 - [起风了](http://www.blog.kurohicncr.top/Article/details/06358485.shtml)
-- 2026-06-29 22:59 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/3457509.shtml)
-- 2026-06-29 22:42 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/071912225301.shtml)
-- 2026-06-29 22:57 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/02401941.shtml)
-- 2026-06-29 22:57 - [追觅称质量不行终身包修也没意义](https://www.share.kurohicncr.top/Article/details/7669578231.shtml)
-- 2026-06-29 22:33 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/7318703088.shtml)
-- 2026-06-29 22:47 - [马光远谈马斯克最大的价值](http://www.share.kurohicncr.top/Article/details/68352.shtml)
+- 2026-06-29 23:01 - [委内瑞拉发生余震](https://www.share.minike.top/Article/details/07116.shtml)
+- 2026-06-29 22:52 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/88509990529.shtml)
+- 2026-06-29 22:49 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/61338259.shtml)
+- 2026-06-29 22:41 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/882602130.shtml)
+- 2026-06-29 22:59 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/8162104509.shtml)
+- 2026-06-29 22:56 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/92057.shtml)
+- 2026-06-29 22:39 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/849783099259.shtml)
+- 2026-06-29 22:38 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/234648.shtml)
+- 2026-06-29 22:59 - [急先锋](http://www.blog.kurohicncr.top/Article/details/866812628182.shtml)
+- 2026-06-29 22:39 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/91967514.shtml)
+- 2026-06-29 22:36 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/513929.shtml)
+- 2026-06-29 22:56 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/9412567681.shtml)
+- 2026-06-29 22:48 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/6406107.shtml)
+- 2026-06-29 22:37 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/1323140.shtml)
+- 2026-06-29 22:37 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/1915284756.shtml)

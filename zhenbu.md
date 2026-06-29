@@ -1,56 +1,61 @@
-# 长江有色：11日镍价下跌 观望情绪浓现货交投清淡
+# 菲律宾寻求美国延长购买俄罗斯石油的豁免
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-长江有色金属网 ccmn沪镍走势：今日午盘后沪期镍下跌，沪期镍主力月2607合约开盘报133640元/吨，盘中最高报135220元/吨，最低价报133130元/吨，收盘报133980元/吨，下跌1410元/吨，跌幅为1.04%，沪镍主力月2607主力合约成交量222328手。 据长江有色属网统计：6月11日ccmn长江综合1#镍价报133500元/吨-135800元/吨，均价报
+菲律宾能源部长莎伦·加林周二表示，该国已请求美国延长购买俄罗斯石油及石油产品的豁免许可。 加林表示，政府对延长已于4月11日到期的豁免持乐观态度，但也在准备替代供应方案，以防请求被拒。 “我们正在等待美方回应，但对获得这一新窗口期非常乐观，”加林在新闻发布会上表示。 加林说，菲律宾正在实现能源来源多元化，供应选择不限于俄罗斯，政府同时也在关注南美洲的产油国，包括哥伦比亚和阿根廷
 
 ## 正文
 
-长江有色金属网 ccmn沪镍走势：今日午盘后沪期镍下跌，沪期镍主力月2607合约开盘报133640元/吨，盘中最高报135220元/吨，最低价报133130元/吨，收盘报133980元/吨，下跌1410元/吨，跌幅为1.04%，沪镍主力月2607主力合约成交量222328手。
+菲律宾能源部长莎伦·加林周二表示，该国已请求美国延长购买俄罗斯石油及石油产品的豁免许可。
 
-据长江有色属网统计：6月11日ccmn长江综合1#镍价报133500元/吨-135800元/吨，均价报134650元/吨，较前一日价格下跌1200元，长江现货1#镍报133700元/吨-135700元/吨，均价报134700元/吨，较前一日价格下跌1200元，广东现货镍报136200元/吨-136600元/吨，均价报136400元/吨，较前一日价格下跌400元。
+加林表示，政府对延长已于4月11日到期的豁免持乐观态度，但也在准备替代供应方案，以防请求被拒。
 
-宏观面影响因素 美国 5 月 CPI 数据落地，通胀粘性超预期，市场彻底放弃年内降息预期，美元指数创两月新高，美元计价工业金属集体估值重估。
+“我们正在等待美方回应，但对获得这一新窗口期非常乐观，”加林在新闻发布会上表示。
 
-美股科技巨头回调，风险偏好降温，跨境资金减持金属多头，商品市场普跌氛围蔓延至镍市。
+加林说，菲律宾正在实现能源来源多元化，供应选择不限于俄罗斯，政府同时也在关注南美洲的产油国，包括哥伦比亚和阿根廷，以及加拿大和美国。
 
-欧美制造业订单收缩，国内不锈钢、新能源进入淡季，下游备货意愿低迷，无力托底镍价。
+“我们希望打开俄罗斯这个窗口，因为我们想要更多选择。
 
-供需端现状 红土镍矿因印尼配额大减，高品矿偏紧，但菲律宾低品矿补供，总供应平稳；硫化镍矿优质资源稀缺，新增产能滞后，长期偏紧。
+我们需要多元化，”她表示。
 
-高冰镍转产慢于预期，现货增量有限；MHP 受硫磺高价影响，部分产能检修，货源收紧；再生镍受废镍原料限制，产能增长停滞，供给稳定。
+菲律宾驻美国大使何塞·曼努埃尔·罗穆亚尔德斯上月表示，马尼拉正在与美国合作，以获得豁免和例外许可，使菲律宾能够从受美国制裁的国家获取石油。
 
-现货交投清淡 镍产业链处于成本支撑与高库存博弈阶段。
+总统费迪南德·马科斯 Jr． 在国会授予其调整燃油税率的紧急权力后，于周一暂停了对煤油和液化石油气的消费税。
 
 ## 相关推荐
 
-- 2026-06-29 22:58 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-29 22:31 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 22:39 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-29 22:46 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-29 22:37 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 22:36 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-29 22:58 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 22:56 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-29 22:45 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 22:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-29 22:51 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-29 22:51 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-29 22:44 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 22:38 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-29 22:53 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-29 22:57 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 22:59 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 22:43 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 22:48 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 22:53 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-29 22:54 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 22:37 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-29 22:58 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-29 22:59 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 22:47 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:34 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/21460.shtml)
-- 2026-06-29 22:52 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/59420.shtml)
-- 2026-06-29 22:40 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/65808830.shtml)
-- 2026-06-29 22:53 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/1882255239.shtml)
-- 2026-06-29 22:47 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/9215443608.shtml)
-- 2026-06-29 22:37 - [记者乘坐无人驾驶汽车去采访](http://www.blog.minike.top/Article/details/84506.shtml)
-- 2026-06-29 22:38 - [回顾世界杯争议事件](https://www.blog.minike.top/Article/details/969839.shtml)
-- 2026-06-29 22:38 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/581371.shtml)
-- 2026-06-29 22:45 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/870643.shtml)
-- 2026-06-29 22:39 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.kurohicncr.top/Article/details/540952122597.shtml)
-- 2026-06-29 22:51 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/80634276.shtml)
-- 2026-06-29 22:41 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/22188.shtml)
-- 2026-06-29 22:32 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/318072489908.shtml)
-- 2026-06-29 22:44 - [千与千寻](https://www.share.minike.top/Article/details/07010504752.shtml)
-- 2026-06-29 22:30 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/54825120.shtml)
+- 2026-06-29 22:49 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/87526.shtml)
+- 2026-06-29 23:01 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/61765285.shtml)
+- 2026-06-29 22:55 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/24798.shtml)
+- 2026-06-29 23:04 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/947726984.shtml)
+- 2026-06-29 23:01 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/477043327.shtml)
+- 2026-06-29 23:03 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/3412768.shtml)
+- 2026-06-29 22:43 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/30962010.shtml)
+- 2026-06-29 22:42 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/86188726687.shtml)
+- 2026-06-29 23:02 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/0821647.shtml)
+- 2026-06-29 22:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/23157050.shtml)
+- 2026-06-29 22:42 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/03168840436.shtml)
+- 2026-06-29 23:05 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/183180878.shtml)
+- 2026-06-29 22:41 - [一汽大众黄金超混技术来袭](http://www.share.kurohicncr.top/Article/details/48837.shtml)
+- 2026-06-29 23:00 - [律师解读滚石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/92727.shtml)
+- 2026-06-29 22:48 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/51997572809.shtml)

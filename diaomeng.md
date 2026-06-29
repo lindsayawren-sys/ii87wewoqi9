@@ -1,59 +1,58 @@
-# 共筑友谊路——阿布贾高速路见证中尼合作情谊
+# 优步据悉将投入超100亿美元购买自动驾驶汽车并入股相关公司
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-新华社阿布贾6月10日电 通讯｜共筑友谊路——阿布贾高速路见证中尼合作情谊 新华社记者洪泽华 9日，在尼日利亚首都阿布贾东南侧，一条崭新的双向六车道公路正式竣工。该路段将阿布贾一环路与二环路相连，投入使用后将大幅改善当地交通状况，提升阿布贾城市形象与投资吸引力。 这条道路由中地海外尼日利亚有限公司承建，连接阿布贾重要功能区和发展新区，为当地重点基础设施项目。项目包括新建双向6排
+据报道，美国打车软件巨头优步已承诺投入超过 100 亿美元购买数千辆自动驾驶汽车，并入股其开发商，此举打破了其轻资产的“零工经济”商业模式，以避免受到无人驾驶出租车的冲击。 优步将自身定位为多个机器人出租车运营商的市场，并与自动驾驶汽车行业的众多公司建立了合作关系，包括百度、Rivian 和 Lucid，并制定了到 2028 年在至少 28 个城市推出机器人出租车服务的计划。
 
 ## 正文
 
-新华社阿布贾6月10日电 通讯｜共筑友谊路——阿布贾高速路见证中尼合作情谊 新华社记者洪泽华 9日，在尼日利亚首都阿布贾东南侧，一条崭新的双向六车道公路正式竣工。
+据报道，美国打车软件巨头优步已承诺投入超过 100 亿美元购买数千辆自动驾驶汽车，并入股其开发商，此举打破了其轻资产的“零工经济”商业模式，以避免受到无人驾驶出租车的冲击。
 
-该路段将阿布贾一环路与二环路相连，投入使用后将大幅改善当地交通状况，提升阿布贾城市形象与投资吸引力。
+优步将自身定位为多个机器人出租车运营商的市场，并与自动驾驶汽车行业的众多公司建立了合作关系，包括百度、Rivian 和 Lucid，并制定了到 2028 年在至少 28 个城市推出机器人出租车服务的计划。
 
-这条道路由中地海外尼日利亚有限公司承建，连接阿布贾重要功能区和发展新区，为当地重点基础设施项目。
+根据分析师的预测和知情人士透露的消息，这些交易将使优步在未来几年内投资超过25亿美元用于股权投资，并在无人驾驶出租车车队方面投入超过75亿美元。
 
-项目包括新建双向6排主行车道、2座桥梁、3座人行天桥，工期约8个月，于2025年10月开工建设。
+这些协议的生效取决于其合作伙伴能否达到特定的部署里程碑。
 
-竣工仪式现场，尼日利亚参议院议长戈德斯威尔·阿克帕比奥代表总统提努布出席仪式并致辞。
+多年来，无人驾驶出租车的承诺屡屡落空，但近几个月来，人们对无人驾驶出租车的兴趣激增。
 
-尼日利亚政府要员、议员、中国驻尼日利亚大使馆参赞孙学昆、中地海外尼日利亚有限公司总经理钟翔等出席仪式。
+人工智能和技术合作有望更快地解决复杂的交通问题，并降低高昂的成本。
 
-竣工仪式结束后，中方项目副总工杨香伟与尼方工程师森迪握手道别。
-
-过去8个月里，他们与数百名中尼建设者并肩奋战，如今项目交付，两人相约未来在新的项目上再见。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 22:56 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 22:47 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 22:59 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 22:53 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-29 22:50 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 22:33 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-29 22:48 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-29 22:46 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 22:33 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-29 22:55 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-29 22:34 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-29 22:55 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 22:31 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 23:02 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 22:46 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 22:53 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-29 23:05 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-29 22:57 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 22:54 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-29 22:54 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-29 23:04 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 22:55 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 22:36 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-29 23:04 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 22:49 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-29 22:55 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-29 22:41 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:57 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/732219.shtml)
-- 2026-06-29 22:49 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/1747181.shtml)
-- 2026-06-29 22:38 - [爱奇艺抬高国剧新标尺](https://www.share.kurohicncr.top/Article/details/0423099328.shtml)
-- 2026-06-29 22:50 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/28618.shtml)
-- 2026-06-29 22:37 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/597266.shtml)
-- 2026-06-29 22:40 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/415101.shtml)
-- 2026-06-29 22:36 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/714940123.shtml)
-- 2026-06-29 22:51 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/2354722870.shtml)
-- 2026-06-29 22:44 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/46909382785.shtml)
-- 2026-06-29 22:47 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/13281472.shtml)
-- 2026-06-29 22:32 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/38728.shtml)
-- 2026-06-29 22:49 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/93602.shtml)
-- 2026-06-29 22:46 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/911242480.shtml)
-- 2026-06-29 22:51 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/7492498398.shtml)
-- 2026-06-29 22:49 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/926424859464.shtml)
+- 2026-06-29 23:02 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/353742840.shtml)
+- 2026-06-29 23:01 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/481947.shtml)
+- 2026-06-29 23:02 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/123301569.shtml)
+- 2026-06-29 22:39 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/37117332.shtml)
+- 2026-06-29 22:43 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/9851569663.shtml)
+- 2026-06-29 22:37 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/085698.shtml)
+- 2026-06-29 23:05 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/033969719250.shtml)
+- 2026-06-29 22:50 - [电影后室值得看吗](http://www.share.minike.top/Article/details/48366.shtml)
+- 2026-06-29 22:41 - [国常会听取人工智能发展情况汇报](https://www.share.minike.top/Article/details/714526.shtml)
+- 2026-06-29 22:59 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/818281620629.shtml)
+- 2026-06-29 22:40 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/97377665887.shtml)
+- 2026-06-29 23:04 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/2093641.shtml)
+- 2026-06-29 23:00 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/0987334.shtml)
+- 2026-06-29 22:44 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/215344312.shtml)
+- 2026-06-29 22:37 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/943053854195.shtml)

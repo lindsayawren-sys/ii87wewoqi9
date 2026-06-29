@@ -1,58 +1,60 @@
-# 国际锐评丨“四个坚持”引领新时代中朝关系续写新篇
+# 澳大利亚一炼油厂发生大火 或影响汽油供应
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-两党两国最高领导人共商中朝关系发展大计、共同出席多场活动、共同种下象征友谊生生不息的枞树……应朝鲜劳动党总书记、国务委员长金正恩邀请，中共中央总书记、国家主席习近平6月8日至9日对朝鲜进行国事访问。其间，两党两国最高领导人对新时期中朝关系作出顶层设计和战略指引，一致认为要从社会主义前途命运的战略高度，把握时代大势，推动中朝关系高水平发展。朝鲜《劳动新闻》发表社论称，“习近平同志
+中新社悉尼4月16日电 (记者 薄雯雯)澳大利亚维多利亚州吉朗市一家炼油厂15日深夜发生火灾。澳气候变化与能源部长鲍恩16日称，火灾或影响该国汽油生产。 起火炼油厂属于维瓦能源集团，是澳大利亚仅存的两家本土炼油厂之一。该厂每日可加工约12万桶原油，约占全国成品油需求的10%、维州成品油需求的50%。 据澳大利亚广播公司报道，当地时间15日23时许，消防人员在接到多起“爆炸和起火
 
 ## 正文
 
-两党两国最高领导人共商中朝关系发展大计、共同出席多场活动、共同种下象征友谊生生不息的枞树……应朝鲜劳动党总书记、国务委员长金正恩邀请，中共中央总书记、国家主席习近平6月8日至9日对朝鲜进行国事访问。
+中新社悉尼4月16日电 (记者 薄雯雯)澳大利亚维多利亚州吉朗市一家炼油厂15日深夜发生火灾。
 
-其间，两党两国最高领导人对新时期中朝关系作出顶层设计和战略指引，一致认为要从社会主义前途命运的战略高度，把握时代大势，推动中朝关系高水平发展。
+澳气候变化与能源部长鲍恩16日称，火灾或影响该国汽油生产。
 
-朝鲜《劳动新闻》发表社论称，“习近平同志此访具有深远意义”，“不断深化发展的朝中友好关系具有强大生命力”。
+起火炼油厂属于维瓦能源集团，是澳大利亚仅存的两家本土炼油厂之一。
 
-中朝两国都是共产党领导的社会主义国家，世代友好、命运与共、守望相助始终是中朝关系的鲜明特征。
+该厂每日可加工约12万桶原油，约占全国成品油需求的10%、维州成品油需求的50%。
 
-今年是《中朝友好合作互助条约》签订65周年。
+据澳大利亚广播公司报道，当地时间15日23时许，消防人员在接到多起“爆炸和起火”报告后赶往现场，火势一度“相当猛烈”。
 
-这次访问是习近平总书记时隔7年再次对朝鲜进行国事访问，也是今年首次出访。
+当地紧急救援部门16日中午通报称，大火已被扑灭，无人员伤亡报告。
 
-朝方以“最隆重礼遇欢迎最尊贵客人”。
+据报道，火灾发生在车用汽油生产区域，具体原因仍在调查中。
 
-这不仅展现出中朝牢不可破的传统友谊，也表明最高层战略引领是中朝关系的最大优势。
+有专家初步判断，可能是管道或阀门等设备故障引发泄漏，继而起火燃烧，最终酿成事故。
 
 ## 相关推荐
 
-- 2026-06-29 22:36 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-29 22:39 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 22:35 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-29 22:50 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-29 22:34 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-29 22:51 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 22:55 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-29 22:37 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 22:42 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-29 22:36 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-29 22:39 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-29 22:41 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 22:42 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-29 22:36 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-29 22:49 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 23:05 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 22:49 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-29 22:45 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-29 23:03 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 22:36 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 23:02 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 22:55 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-29 22:45 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 22:43 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 23:01 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 22:55 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:35 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/8171248261.shtml)
-- 2026-06-29 22:30 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/550015.shtml)
-- 2026-06-29 22:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/6231608.shtml)
-- 2026-06-29 22:53 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/38677127.shtml)
-- 2026-06-29 22:45 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/3759108492.shtml)
-- 2026-06-29 22:30 - [AI接过张雪峰志愿填报衣钵](http://www.blog.minike.top/Article/details/90513249.shtml)
-- 2026-06-29 22:47 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/111630.shtml)
-- 2026-06-29 22:56 - [葫芦岛居民楼闪爆事故致3死](http://www.share.kurohicncr.top/Article/details/503275.shtml)
-- 2026-06-29 22:43 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/1090593.shtml)
-- 2026-06-29 22:38 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/95228.shtml)
-- 2026-06-29 22:35 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/377336675343.shtml)
-- 2026-06-29 22:42 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/6188824.shtml)
-- 2026-06-29 22:51 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/50214.shtml)
-- 2026-06-29 22:33 - [恋与深空回应争议](https://www.share.minike.top/Article/details/074222887.shtml)
-- 2026-06-29 22:31 - [TFing最具影响力音乐厂牌](https://www.blog.kurohicncr.top/Article/details/15516026638.shtml)
+- 2026-06-29 22:48 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/45583775.shtml)
+- 2026-06-29 23:01 - [足球小将的剧本成真了](http://www.share.kurohicncr.top/Article/details/9410002.shtml)
+- 2026-06-29 22:58 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/69484237327.shtml)
+- 2026-06-29 23:05 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/338262543603.shtml)
+- 2026-06-29 23:05 - [把邻居裸体发群算维权还是侵权](https://www.share.kurohicncr.top/Article/details/722689836793.shtml)
+- 2026-06-29 22:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/324506738813.shtml)
+- 2026-06-29 23:00 - [这一刀 会很帅](https://www.share.minike.top/Article/details/3399803.shtml)
+- 2026-06-29 22:59 - [一汽大众黄金超混技术来袭](http://www.share.kurohicncr.top/Article/details/74792490.shtml)
+- 2026-06-29 22:40 - [TFing最具影响力音乐厂牌](https://www.blog.minike.top/Article/details/618049692025.shtml)
+- 2026-06-29 22:55 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/88712509.shtml)
+- 2026-06-29 22:39 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/95250629093.shtml)
+- 2026-06-29 22:56 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/76051646859.shtml)
+- 2026-06-29 22:57 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/6286733.shtml)
+- 2026-06-29 22:55 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/35897409940.shtml)
+- 2026-06-29 23:04 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/37414152.shtml)

@@ -1,57 +1,61 @@
-# 超1023亿元！五大上市险企“现金红包”密集到账
+# 花洒很干净，不用清洁……是真是假？| 谣言终结站
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-来源：金融时报 记者：孙榕 随着中国平安率先除息、中国太保年度利润分配方案获股东大会审议通过，A股五大上市险企2025年末期派息正式进入落地期。 据《金融时报》记者统计，五家A股上市险企2025年全年拟派发现金红利合计约1023.94亿元。对比2024年的907.89亿元，2025年增加约116.05亿元，同比增长约12.78%。整体而言，五家A股上市险企维持高位分红水平。 目
+很多人认为，花洒持续通水、本身就很干净，不需要特意清洁。事实上，长期未被清理的花洒的出水口和管道内壁会附着滑腻的生物膜，其中藏匿着军团菌、霉菌等致病菌。淋浴时，这些致病菌可通过呼吸或皮肤接触侵入人体，进而危害身体健康。在温暖、黑暗、潮湿的环境中，极易滋生非结核分枝杆菌，其中鸟分枝杆菌在花洒中检出率较高，可引发肺部感染、淋巴结炎等。健康人群接触后可能出现慢性轻度肺部感染，表现为疲
 
 ## 正文
 
-来源：金融时报 记者：孙榕 随着中国平安率先除息、中国太保年度利润分配方案获股东大会审议通过，A股五大上市险企2025年末期派息正式进入落地期。
+很多人认为，花洒持续通水、本身就很干净，不需要特意清洁。
 
-据《金融时报》记者统计，五家A股上市险企2025年全年拟派发现金红利合计约1023.94亿元。
+事实上，长期未被清理的花洒的出水口和管道内壁会附着滑腻的生物膜，其中藏匿着军团菌、霉菌等致病菌。
 
-对比2024年的907.89亿元，2025年增加约116.05亿元，同比增长约12.78%。
+淋浴时，这些致病菌可通过呼吸或皮肤接触侵入人体，进而危害身体健康。
 
-整体而言，五家A股上市险企维持高位分红水平。
+在温暖、黑暗、潮湿的环境中，极易滋生非结核分枝杆菌，其中鸟分枝杆菌在花洒中检出率较高，可引发肺部感染、淋巴结炎等。
 
-目前，中国平安已率先完成2025年末期派息，中国太保分红方案已获股东大会通过；中国人保、中国人寿、新华保险的末期分红方案将在6月下旬陆续迎来股东大会审议。
+健康人群接触后可能出现慢性轻度肺部感染，表现为疲倦、乏力、长期干咳等症状；支气管扩张患者、老年人以及免疫力低下人群，感染风险更高，症状也更严重，严重者还可能出现全身播散性感染。
 
-中国平安：全年派息总额约488.91亿元 6月10日，中国平安的投资者率先迎来2025年末期分红落地。
+可能有人会疑惑：“我家的花洒好几年没换了，但家人并没有觉得不舒服。
 
-作为A股五家上市险企中首家派发2025年末期现金股息的公司，中国平安于5月20日召开2025年年度股东大会，审议通过利润分配方案。
+这种病菌真有这么厉害吗？
 
-根据6月1日发布的实施公告，公司以总股本181.07亿股为基数，每股派发现金红利1.75元（含税），共计派发316.88亿元，其中A股共计派发186.55亿元。
+”事实上，鸟分枝杆菌属于条件致病菌，免疫功能正常者通常不易发病，但仍存在健康隐患。
 
 ## 相关推荐
 
-- 2026-06-29 22:59 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 22:31 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-29 22:43 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 22:55 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-29 22:44 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-29 22:36 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 22:31 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-29 22:57 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 22:43 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 22:30 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 22:32 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 23:05 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 23:01 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 22:41 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 23:02 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 23:01 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 22:42 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 22:55 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-29 22:52 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 22:46 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-29 23:03 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 22:56 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 23:03 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 22:36 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-29 23:05 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 22:42 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:58 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/3396631.shtml)
-- 2026-06-29 22:30 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/85283559588.shtml)
-- 2026-06-29 22:56 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/62296426912.shtml)
-- 2026-06-29 22:36 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/877570.shtml)
-- 2026-06-29 22:35 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/7559656.shtml)
-- 2026-06-29 22:31 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.kurohicncr.top/Article/details/104014830.shtml)
-- 2026-06-29 22:54 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/66971173.shtml)
-- 2026-06-29 22:57 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/49728109133.shtml)
-- 2026-06-29 22:51 - [青春环游记第三季](http://www.share.minike.top/Article/details/141632.shtml)
-- 2026-06-29 22:56 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/3799949.shtml)
-- 2026-06-29 22:40 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/957662808267.shtml)
-- 2026-06-29 22:53 - [曝iPhone涨价后不会再降](https://www.blog.minike.top/Article/details/84036701823.shtml)
-- 2026-06-29 22:34 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/884409186056.shtml)
-- 2026-06-29 22:51 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/4622791.shtml)
-- 2026-06-29 22:35 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/96071847035.shtml)
+- 2026-06-29 23:05 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/40152.shtml)
+- 2026-06-29 22:50 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/2259610.shtml)
+- 2026-06-29 23:03 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/83537964630.shtml)
+- 2026-06-29 22:55 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/7445782988.shtml)
+- 2026-06-29 22:56 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.kurohicncr.top/Article/details/377628010.shtml)
+- 2026-06-29 22:43 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/1526802803.shtml)
+- 2026-06-29 22:58 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/7598558.shtml)
+- 2026-06-29 22:48 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/46339854.shtml)
+- 2026-06-29 22:49 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/0750811591.shtml)
+- 2026-06-29 22:55 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/0992536.shtml)
+- 2026-06-29 22:53 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/52327.shtml)
+- 2026-06-29 23:00 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/00108631.shtml)
+- 2026-06-29 22:42 - [送你一朵小红花](http://www.share.minike.top/Article/details/998562.shtml)
+- 2026-06-29 22:54 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/4367856000.shtml)
+- 2026-06-29 22:39 - [男子称在京东买到“同仁堂”假药](https://www.blog.minike.top/Article/details/54690062337.shtml)

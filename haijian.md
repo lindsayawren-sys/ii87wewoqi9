@@ -1,61 +1,58 @@
-# 孙悟空开理疗馆？百度漫剧《正骨三界》颠覆神话，笑闹中重构三界秩序
+# 瑞银上调特斯拉评级至中性，看好长期AI机遇
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-百度漫剧匠心深耕，佳作频出再创高峰。由百度漫剧出品、影莳互动制作的AI漫剧《正骨三界：从闪腰开始》在百度APP、柚漫剧APP平台首发上线，其他平台也将陆续解锁！ 该剧以中国传统神话故事为底，借“理疗馆”“忘忧草”“升仙丸”“功德KPI”等当代设定，重构出一个被制度、欲望与病痛裹挟的三界。故事从孙悟空在花果山开起“理疗馆”开始，天庭神仙、妖界大佬、佛门高僧纷纷上门求医，一场围绕三
+瑞银不再看空特斯拉，认为近期需求挑战与长期AI机遇"现在更加平衡"。 该机构周二将特斯拉股票评级上调至中性，并重申其352美元的目标价，该目标价较当前水平仅低约2%。 分析师约瑟夫·斯帕克在一份报告中表示："特斯拉股票的交易更多是基于情绪、叙事和动量，而非基本面。我们认为，近期对电动汽车需求、2026年第一季度能源业务缺口、成本上升、资本支出要求提高，以及机器人出租车和Opti
 
 ## 正文
 
-百度漫剧匠心深耕，佳作频出再创高峰。
+瑞银不再看空特斯拉，认为近期需求挑战与长期AI机遇"现在更加平衡"。
 
-由百度漫剧出品、影莳互动制作的AI漫剧《正骨三界：从闪腰开始》在百度APP、柚漫剧APP平台首发上线，其他平台也将陆续解锁！
+该机构周二将特斯拉股票评级上调至中性，并重申其352美元的目标价，该目标价较当前水平仅低约2%。
 
-该剧以中国传统神话故事为底，借“理疗馆”“忘忧草”“升仙丸”“功德KPI”等当代设定，重构出一个被制度、欲望与病痛裹挟的三界。
+分析师约瑟夫·斯帕克在一份报告中表示："特斯拉股票的交易更多是基于情绪、叙事和动量，而非基本面。
 
-故事从孙悟空在花果山开起“理疗馆”开始，天庭神仙、妖界大佬、佛门高僧纷纷上门求医，一场围绕三界“系统性疾病”的荒诞治愈之旅就此展开。
+我们认为，近期对电动汽车需求、2026年第一季度能源业务缺口、成本上升、资本支出要求提高，以及机器人出租车和Optimus进展缓慢的担忧，已对股价造成压力。
 
-作为百度漫剧特有画风“江湖奇谭”系列的全新力作，《正骨三界：从闪腰开始》共包含53集内容，单集为1-2分钟的轻量化体量。
+然而，我们确实预计机器人出租车和Optimus最终将取得进展，并继续将特斯拉视为物理AI领域的领导者。
 
-作品以幽默笔触诠释传统神话，用“扎针”与“倾听”治愈三界，让观众在笑闹中看见一个不一样的神话。
+" 特斯拉股价最新上涨逾3%。
 
-剧情速览｜三界困局，一针难解 《正骨三界：从闪腰开始》以经典西游人物为载体，将传统神话IP进行当代激活，讲述孙悟空归隐花果山后被迫开起理疗馆，替各路神仙妖怪诊治疑难杂症，却意外发现所有病症都指向同一根源的故事。
-
-当母株脱根、灵山将塌，孙悟空等人联手闯入核心，最终如来取出燃灯舍利后入定，唐僧接手灵山，三界秩序得以重建。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 22:34 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-29 22:52 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-29 22:37 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-29 22:57 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 22:58 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 22:59 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-29 22:32 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-29 22:31 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 22:42 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 22:46 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 22:55 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-29 22:51 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 22:43 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-29 22:47 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 22:38 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 22:43 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 23:04 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 22:43 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 22:46 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-29 22:51 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 22:49 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 23:02 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-29 22:51 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 22:36 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-29 23:01 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-29 22:37 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 22:59 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-29 22:48 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-29 22:48 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:40 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.minike.top/Article/details/0730630.shtml)
-- 2026-06-29 22:39 - [天道](http://www.blog.minike.top/Article/details/8481553792.shtml)
-- 2026-06-29 22:53 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/18767605294.shtml)
-- 2026-06-29 22:54 - [18岁高二体育生训练晕倒后离世](https://www.blog.kurohicncr.top/Article/details/3686620404.shtml)
-- 2026-06-29 22:50 - [青春环游记第三季](http://www.blog.minike.top/Article/details/88744219.shtml)
-- 2026-06-29 22:59 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/76651930.shtml)
-- 2026-06-29 22:39 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/489887110.shtml)
-- 2026-06-29 22:47 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/8009576.shtml)
-- 2026-06-29 22:41 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/23317.shtml)
-- 2026-06-29 22:41 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/32764.shtml)
-- 2026-06-29 22:30 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/33765557.shtml)
-- 2026-06-29 22:41 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/487116.shtml)
-- 2026-06-29 22:49 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/46120520737.shtml)
-- 2026-06-29 22:50 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/050466572683.shtml)
-- 2026-06-29 22:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/63153457.shtml)
+- 2026-06-29 22:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/534600314924.shtml)
+- 2026-06-29 23:03 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/619086.shtml)
+- 2026-06-29 23:02 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/198416.shtml)
+- 2026-06-29 22:45 - [韩国股市绑架日本？高盛警告](https://www.share.kurohicncr.top/Article/details/6274385.shtml)
+- 2026-06-29 22:39 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/9102423558.shtml)
+- 2026-06-29 22:44 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/97010370.shtml)
+- 2026-06-29 22:44 - [福建海警位金门附近海域常态执法巡查](https://www.share.kurohicncr.top/Article/details/37613279316.shtml)
+- 2026-06-29 23:03 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/86017724605.shtml)
+- 2026-06-29 22:41 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/42576755.shtml)
+- 2026-06-29 23:01 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/72387967426.shtml)
+- 2026-06-29 23:03 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/6535172939.shtml)
+- 2026-06-29 22:55 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/4826338604.shtml)
+- 2026-06-29 22:46 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/05397293.shtml)
+- 2026-06-29 22:54 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/70720910878.shtml)
+- 2026-06-29 22:42 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.kurohicncr.top/Article/details/04385766145.shtml)

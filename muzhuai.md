@@ -1,57 +1,54 @@
-# 黄金、白银和比特币下跌 交易员加大对美联储加息的押注
+# 多部门联合发布《口岸重点管控外来物种名录》 5月1日起实施
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-周三，贵金属等资产大幅走低，因市场对通胀和美联储利率路径的担忧打压了投资者情绪。 美国东部时间上午7：05，现货黄金下跌2.4%，交易价格约为每盎司4，161.63美元。美国黄金期货也下跌2.2%，收于每盎司4，194.90美元。 与此同时，现货白银下跌2%，至每盎司64.01美元，收复了此前更深的跌幅。白银期货下跌1.6%。 周三盘前交易中，与黄金和白银相关的股票和基金也出现
+中新网4月15日电 据“海关发布”微信公众号消息，4月15日，海关总署举行新闻发布会。海关总署动植物检疫司司长王益愚在会上介绍，4月13日，海关总署联合农业农村部、自然资源部、生态环境部、住房城乡建设部和国家林草局，首次发布了《口岸重点管控外来物种名录》，自今年5月1日起实施。这是依据《中华人民共和国生物安全法》，基于海关多年口岸查获情况，经过专家多轮严谨科学的评估论证，最终确
 
 ## 正文
 
-周三，贵金属等资产大幅走低，因市场对通胀和美联储利率路径的担忧打压了投资者情绪。
+中新网4月15日电 据“海关发布”微信公众号消息，4月15日，海关总署举行新闻发布会。
 
-美国东部时间上午7：05，现货黄金下跌2.4%，交易价格约为每盎司4，161.63美元。
+海关总署动植物检疫司司长王益愚在会上介绍，4月13日，海关总署联合农业农村部、自然资源部、生态环境部、住房城乡建设部和国家林草局，首次发布了《口岸重点管控外来物种名录》，自今年5月1日起实施。
 
-美国黄金期货也下跌2.2%，收于每盎司4，194.90美元。
+这是依据《中华人民共和国生物安全法》，基于海关多年口岸查获情况，经过专家多轮严谨科学的评估论证，最终确定首批需在口岸实施重点管控、具有潜在入侵风险的外来物种清单，包括昆虫、软体动物、鱼类、两栖动物等4类21个科(属、种)。
 
-与此同时，现货白银下跌2%，至每盎司64.01美元，收复了此前更深的跌幅。
+“这些外来物种在国内无天然分布，一旦传入定殖，很可能对我国生态环境安全和生物多样性造成破坏，产生严重的生态危害和经济影响。
 
-白银期货下跌1.6%。
+名录实施后，未经批准，擅自引进该名录内外来物种的，海关将依法实施处罚。
 
-周三盘前交易中，与黄金和白银相关的股票和基金也出现下跌。
+”王益愚表示，在防范动植物疫情传入和外来物种入侵方面，完善全球疫情信息监测预警网络，全天候、多渠道搜集境外重大动植物疫情信息，及时研判处置重大风险，做到早发现、早预警、早应对；充分运用智慧海关建设成果，优化智能审图算法，精准识别瞒报、夹带、伪装入境的“异宠”等外来物种；运用“人—机—犬”协同查验模式，应用自动抽采样、木材AI识别、有害生物智能鉴定等科技利器，让潜藏的病虫害无处遁形。
 
-ProShares Ultra Silver ETF最新交易价格下跌2.8%，而iShares Silver Trust ETF下跌1.4%。
-
-First Majestic Silver下跌3.8%，Hecla Mining下跌3.1%。
+今年一季度，海关总署会同农业农村部共发布针对8个国家口蹄疫、高致病性禽流感等重大动物疫情的禁令，全国海关在口岸检出动物疫病和植物检疫性有害生物1.2万种次，同比增长15.6%，查获外来物种1163批次，增长5.9%，退回或销毁不合格进境农产品394批次，暂停169家境外农产品企业输华资质，有力防范了动植物疫情传入和外来物种入侵。
 
 ## 相关推荐
 
-- 2026-06-29 22:53 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 22:52 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 22:51 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-29 22:58 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-29 22:37 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-29 22:41 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-29 22:40 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-29 22:39 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-29 22:52 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-29 22:34 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-29 22:30 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 22:47 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 22:50 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 22:51 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 22:41 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-29 22:38 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 22:44 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 22:58 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-29 22:50 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 22:43 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-29 22:55 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:41 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/359113190.shtml)
-- 2026-06-29 22:46 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/711765169.shtml)
-- 2026-06-29 22:49 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/846237260.shtml)
-- 2026-06-29 22:58 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/8200159816.shtml)
-- 2026-06-29 22:38 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/25994743.shtml)
-- 2026-06-29 22:50 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/24368275.shtml)
-- 2026-06-29 22:59 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/113236110.shtml)
-- 2026-06-29 22:33 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.kurohicncr.top/Article/details/56938.shtml)
-- 2026-06-29 22:33 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/47901.shtml)
-- 2026-06-29 22:31 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/50117414789.shtml)
-- 2026-06-29 22:40 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/3001504973.shtml)
-- 2026-06-29 22:34 - [毒液2](http://www.share.minike.top/Article/details/100157439150.shtml)
-- 2026-06-29 22:57 - [被中方管控的20家日本实体什么来头](http://www.share.minike.top/Article/details/77424114567.shtml)
-- 2026-06-29 22:53 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/150235.shtml)
-- 2026-06-29 22:31 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/424706959504.shtml)
+- 2026-06-29 22:38 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/2030799023.shtml)
+- 2026-06-29 22:52 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/50982915.shtml)
+- 2026-06-29 23:05 - [巴黎区长紧急采购50台中国空调](https://www.blog.kurohicncr.top/Article/details/3804949829.shtml)
+- 2026-06-29 22:54 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/0925031.shtml)
+- 2026-06-29 22:49 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/096371025.shtml)
+- 2026-06-29 23:03 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/305037933397.shtml)
+- 2026-06-29 23:00 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/57441462.shtml)
+- 2026-06-29 23:03 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/6061885.shtml)
+- 2026-06-29 22:42 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/09398067519.shtml)
+- 2026-06-29 23:02 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/89774493948.shtml)
+- 2026-06-29 22:41 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/81457031.shtml)
+- 2026-06-29 22:51 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/85552593878.shtml)
+- 2026-06-29 22:42 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/56546.shtml)
+- 2026-06-29 23:03 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/5613058.shtml)
+- 2026-06-29 22:59 - [曝腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/534403321.shtml)

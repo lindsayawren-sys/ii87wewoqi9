@@ -1,59 +1,56 @@
-# NIKE旗舰店买鞋收到空盒？消费前瞄一眼就能少踩坑
+# 依必安派特亮相2026中国制冷展
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-花139元在耐克官方旗舰店买婴童凉拖鞋，签收后打开快递盒，里面只有一个空鞋盒——这是浙江郑女士最近的真实遭遇。更让她气愤的是，当她向商家和平台申请退款时，对方均以仓库核实发货无异常为由拒绝。平台先后提出补偿100元、130元、139元优惠券企图息事宁人，但始终不肯承认商家确实没有发货。直到郑女士用另一个账号重新下单同款商品，录制一镜到底的开箱称重视频，对比物流揽收重量后，才用实
+4月10日，第三十七届国际制冷、空调、供暖、通风及食品冷冻加工展览会(简称“2026中国制冷展”)在北京首都国际会展中心圆满落下帷幕。 展会现场，全球领先的风机与电机制造商依必安派特以“引领空气技术进入下一个新时代”为主题精彩亮相，集中展示了面向暖通空调、数据中心、制冷、住宅通风及新能源等领域的空气技术解决方案，并围绕技术创新、客户价值与本土发展等方向分享了公司在中国市场的发展
 
 ## 正文
 
-花139元在耐克官方旗舰店买婴童凉拖鞋，签收后打开快递盒，里面只有一个空鞋盒——这是浙江郑女士最近的真实遭遇。
+4月10日，第三十七届国际制冷、空调、供暖、通风及食品冷冻加工展览会(简称“2026中国制冷展”)在北京首都国际会展中心圆满落下帷幕。
 
-更让她气愤的是，当她向商家和平台申请退款时，对方均以仓库核实发货无异常为由拒绝。
+展会现场，全球领先的风机与电机制造商依必安派特以“引领空气技术进入下一个新时代”为主题精彩亮相，集中展示了面向暖通空调、数据中心、制冷、住宅通风及新能源等领域的空气技术解决方案，并围绕技术创新、客户价值与本土发展等方向分享了公司在中国市场的发展成果。
 
-平台先后提出补偿100元、130元、139元优惠券企图息事宁人，但始终不肯承认商家确实没有发货。
+三十载深耕，与中国市场共成长 当前，中国已成为全球最大的制冷空调设备生产国、消费国和出口国，为全球行业发展提供了坚实支撑，制冷空调产业作为我国装备制造业的重要支柱、实体经济的关键组成部分，在国家加快建设制造强国、推动实体经济高质量发展的战略指引下，砥砺前行、稳步发展，主要经济指标保持平稳向好态势，充分彰显了中国制冷展的国际吸引力和行业凝聚力。
 
-直到郑女士用另一个账号重新下单同款商品，录制一镜到底的开箱称重视频，对比物流揽收重量后，才用实打实的数据打脸了商家的说辞，最终拿到了139元退款。
+据悉，2026年，依必安派特迎来了进入中国市场的三十周年。
 
-而此时，她为维权已经投入了大量时间和精力。
+自1996年在上海成立首家全资子公司以来，公司持续推进本地化发展，目前已形成以上海大中华区总部、西安国家级绿色工厂及佛山空气技术华南聚合枢纽为核心的本地化布局。
 
-这个看似个案的事件，在网络上引发了巨大的共鸣。
+在中国，依必安派特拥有超过1,700名员工，本地化率约90%，构建起覆盖研发、生产、供应链与市场销售服务的完整体系，并将客户价值辐射至亚太、中东及非洲市场。
 
-在黑猫投诉 【下载黑猫投诉客户端】平台上，类似收到空包裹、货不对板、少发漏发的投诉屡见不鲜。
+客户需求演变驱动战略转型 回顾三十年的发展历程，依必安派特大中华区销售及市场副总裁程宏深有感触：“早期中国市场处于起步期，我们更多是引进国外成熟产品。
 
-2025年双十一期间，黑猫平台电商投诉量超过18万件，其中货不对板和客服推诿是最主要的投诉类型。
+而随着市场慢慢走向成熟，中国客户的需求发生了深刻变化——他们不仅关注品质、可靠性和能效，更关注低噪音、定制化解决方案以及系统层面的优化。
 
 ## 相关推荐
 
-- 2026-06-29 22:49 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-29 22:42 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-29 22:49 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 22:53 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-29 22:47 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 22:44 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-29 22:32 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-29 22:31 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-29 22:37 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-29 22:47 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-29 22:44 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-29 22:40 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-29 22:52 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 23:01 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-29 23:02 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 22:58 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-29 22:55 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 22:45 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 22:57 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 22:47 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 22:42 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 22:38 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-29 22:51 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:43 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/16828761504.shtml)
-- 2026-06-29 22:42 - [极限挑战第一季](http://www.blog.minike.top/Article/details/7211709.shtml)
-- 2026-06-29 22:48 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/15444.shtml)
-- 2026-06-29 22:44 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/551869.shtml)
-- 2026-06-29 22:51 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/6932529.shtml)
-- 2026-06-29 22:47 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/08873.shtml)
-- 2026-06-29 22:48 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.blog.kurohicncr.top/Article/details/843854050753.shtml)
-- 2026-06-29 22:46 - [返利科技盘中上演“天地板”](https://www.share.kurohicncr.top/Article/details/098717285177.shtml)
-- 2026-06-29 22:45 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/311658870998.shtml)
-- 2026-06-29 22:57 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/9737467.shtml)
-- 2026-06-29 22:37 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/111566685702.shtml)
-- 2026-06-29 22:33 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/72350529059.shtml)
-- 2026-06-29 22:48 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/163603171133.shtml)
-- 2026-06-29 22:41 - [肝不好身体这几处会“说话”](https://www.share.kurohicncr.top/Article/details/6562658212.shtml)
-- 2026-06-29 22:49 - [被裁员后30岁儿子被抓去戒网瘾](https://www.share.minike.top/Article/details/7731746559.shtml)
+- 2026-06-29 22:58 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/880208.shtml)
+- 2026-06-29 22:38 - [TFing最具影响力音乐厂牌](http://www.share.minike.top/Article/details/63416.shtml)
+- 2026-06-29 22:53 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/30789738660.shtml)
+- 2026-06-29 23:04 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/91697.shtml)
+- 2026-06-29 22:47 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/18203354425.shtml)
+- 2026-06-29 22:37 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/94791.shtml)
+- 2026-06-29 22:45 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/00187191.shtml)
+- 2026-06-29 22:58 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/824851901628.shtml)
+- 2026-06-29 22:56 - [广东水利防汛Ⅳ级应急响应结束](http://www.share.minike.top/Article/details/803038.shtml)
+- 2026-06-29 22:57 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/693376980550.shtml)
+- 2026-06-29 22:58 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/706442.shtml)
+- 2026-06-29 22:51 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/27181368.shtml)
+- 2026-06-29 22:51 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/27450254.shtml)
+- 2026-06-29 22:51 - [齐思钧回复孙怡](http://www.blog.kurohicncr.top/Article/details/6071161125.shtml)
+- 2026-06-29 22:53 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/3610416.shtml)

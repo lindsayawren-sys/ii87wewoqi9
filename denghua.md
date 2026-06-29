@@ -1,56 +1,60 @@
-# 中信建投：若封锁延宕致使库存击穿安全红线，油价二次飙升的风险犹存
+# 微软下月推新功能，限制企业"影子AI"使用风险
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-来源：中信建投证券研究 文|周君芝 陈怡 纵观战后原油周期演进，本次霍尔木兹封锁未重演70年代的“超级翻倍”，核心在于全球供需结构重塑与宏观缓冲机制的生效。 供给侧，定价权迈向多极化。非OPEC+产出弹性平抑远期风险溢价。 需求侧，历史冲击倒逼经济能耗强度持续下降，新能源的高渗透率进一步弱化了化石能源的刚性依赖。 尤为关键的是，不同于70年代西方经济体的储备真空，当前中国庞大的
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！（来源：IT之家）IT之家 4 月 16 日消息，科技媒体 NeoWin 昨日（4 月 15 日）发布博文，基于 Microsoft 365 路线图，微软计划支持 IT 管理员配置 Edge 浏览器，限制员工使用 Qwen、Gemini、Grok 等 AI 工具，并引导员工使用合规的 Copilot 服务。
 
 ## 正文
 
-来源：中信建投证券研究 文|周君芝 陈怡 纵观战后原油周期演进，本次霍尔木兹封锁未重演70年代的“超级翻倍”，核心在于全球供需结构重塑与宏观缓冲机制的生效。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-供给侧，定价权迈向多极化。
+（来源：IT之家）IT之家 4 月 16 日消息，科技媒体 NeoWin 昨日（4 月 15 日）发布博文，基于 Microsoft 365 路线图，微软计划支持 IT 管理员配置 Edge 浏览器，限制员工使用 Qwen、Gemini、Grok 等 AI 工具，并引导员工使用合规的 Copilot 服务。
 
-非OPEC+产出弹性平抑远期风险溢价。
+根据 Microsoft 365 公开路线图，微软计划限制 Edge 浏览器内的“影子 AI”（shadow AI）。
 
-需求侧，历史冲击倒逼经济能耗强度持续下降，新能源的高渗透率进一步弱化了化石能源的刚性依赖。
+IT之家注：指员工在未经组织批准或 IT 部门授权的情况下，擅自使用的 AI 工具和服务。
 
-尤为关键的是，不同于70年代西方经济体的储备真空，当前中国庞大的战略储备构筑了关键的缓冲带，阻断现货市场的恐慌挤兑。
+微软为了简化这一流程，正在构建全新的管理界面，在拦截页面上让 IT 管理员直接显示引导选项，将用户重定向至已打开的 Microsoft 365 Copilot 新标签页。
 
-短期油价的博弈本质是“封锁时长”与“库存耗减”的极限竞速。
+根据官方公告内容，IT 管理员可以配置 Edge for Business 浏览器，阻止访问以下 AI 工具：实际应用场景中，当员工尝试在 Edge 中访问 ChatGPT 等未授权 AI 工具处理办公事务后，策略将强制拦截该访问请求。
 
-若封锁延宕致使库存击穿安全红线，油价二次飙升的风险犹存。
+浏览器不会仅显示简单的拦截提示，而是提供一个按钮，引导用户转向微软官方的 Microsoft 365 Copilot。
 
-考虑能源结构的变迁，若要使能源消费占GDP比重触及70年代的系统性风险临界点（5%-7%），油价的出清区间或推升至150-220美元/桶。
+Microsoft 365 Copilot 支持企业数据保护，通过合规边界、租户隔离以及排除数据用于模型训练等机制，确保敏感信息不会外泄。
 
 ## 相关推荐
 
-- 2026-06-29 22:50 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 22:41 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-29 22:42 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-29 22:39 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-29 22:44 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-29 22:34 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 22:48 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-29 22:44 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-29 22:51 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-29 22:53 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-29 22:41 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-29 22:42 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-29 22:38 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-29 22:57 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-29 23:00 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 23:03 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 22:58 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 22:37 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 23:01 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-29 22:44 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-29 22:57 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 23:05 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 22:42 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 22:53 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:58 - [田曦薇没招了](https://www.blog.minike.top/Article/details/52085135519.shtml)
-- 2026-06-29 22:30 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/8756959.shtml)
-- 2026-06-29 22:41 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/35903.shtml)
-- 2026-06-29 22:47 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/64812554925.shtml)
-- 2026-06-29 22:36 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/562328933.shtml)
-- 2026-06-29 22:52 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/7178353.shtml)
-- 2026-06-29 22:31 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/0145038633.shtml)
-- 2026-06-29 22:48 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/51019.shtml)
-- 2026-06-29 22:30 - [国际清算银行警告AI投资热潮](http://www.share.minike.top/Article/details/30058.shtml)
-- 2026-06-29 22:38 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/2782828690.shtml)
-- 2026-06-29 22:44 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/462983005071.shtml)
-- 2026-06-29 22:41 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/29038743219.shtml)
-- 2026-06-29 22:53 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/506581225.shtml)
-- 2026-06-29 22:41 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/223512967188.shtml)
-- 2026-06-29 22:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/691994968.shtml)
+- 2026-06-29 22:37 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/81013.shtml)
+- 2026-06-29 22:39 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/037443411.shtml)
+- 2026-06-29 22:55 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/5327929.shtml)
+- 2026-06-29 22:51 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/09926952.shtml)
+- 2026-06-29 22:42 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/588113776318.shtml)
+- 2026-06-29 22:43 - [男子称在京东买到“同仁堂”假药](https://www.blog.kurohicncr.top/Article/details/353904786.shtml)
+- 2026-06-29 22:41 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/38266117586.shtml)
+- 2026-06-29 23:00 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/673775670.shtml)
+- 2026-06-29 22:44 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.kurohicncr.top/Article/details/185321.shtml)
+- 2026-06-29 22:50 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/5925058971.shtml)
+- 2026-06-29 22:36 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/401700776542.shtml)
+- 2026-06-29 22:51 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/19237670.shtml)
+- 2026-06-29 22:51 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/340329.shtml)
+- 2026-06-29 22:39 - [网约车出事故平台拒赔称只是中介](http://www.share.minike.top/Article/details/71291774.shtml)
+- 2026-06-29 23:00 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/955177573069.shtml)

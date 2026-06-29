@@ -1,50 +1,58 @@
-# 海港人寿接手恒大人寿旗下投资中心
+# 年化利率曾高达87%的欢太金融停止借钱服务 手机钱包仍存入口
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-6月10日金融一线消息，天眼查App显示，近日，珠海合源盈兴投资中心（有限合伙）发生工商变更，原股东恒大人寿保险有限公司退出，新增海港人寿保险股份有限公司为全资股东。该合伙企业成立于2016年1月，出资额10.51亿人民币，经营范围为以私募基金从事股权投资、投资管理、资产管理等活动。 责任编辑：王馨茹
+来源：腾讯财经 文|陈昭宇 OPPO生态旗下的欢太金融APP，于2026年4月1日正式停止提供所有借钱服务（含新申请、再次借款）。目前，欢太金融APP已停止受理一切新增借款申请，仅保留还款和记录查询功能。 但腾讯财经发现，在OPPO手机自带的“钱包”APP中，依然保留了借钱业务的入口。 资料显示，欢太金融是OPPO旗下的助贷平台。其实际运营主体欢太数字科技有限公司，是OPPO控
 
 ## 正文
 
-6月10日金融一线消息，天眼查App显示，近日，珠海合源盈兴投资中心（有限合伙）发生工商变更，原股东恒大人寿保险有限公司退出，新增海港人寿保险股份有限公司为全资股东。
+来源：腾讯财经 文|陈昭宇 OPPO生态旗下的欢太金融APP，于2026年4月1日正式停止提供所有借钱服务（含新申请、再次借款）。
 
-该合伙企业成立于2016年1月，出资额10.51亿人民币，经营范围为以私募基金从事股权投资、投资管理、资产管理等活动。
+目前，欢太金融APP已停止受理一切新增借款申请，仅保留还款和记录查询功能。
 
-责任编辑：王馨茹
+但腾讯财经发现，在OPPO手机自带的“钱包”APP中，依然保留了借钱业务的入口。
+
+资料显示，欢太金融是OPPO旗下的助贷平台。
+
+其实际运营主体欢太数字科技有限公司，是OPPO控股股东广东欧加控股的全资子公司，两家公司高管也存在重叠。
+
+“套娃式”授权陷阱 年化利率高至87% 尽管欢太金融APP关停了新增借贷服务，其存量业务的历史遗留问题仍在持续发。
+
+黑猫投诉 【下载黑猫投诉客户端】平台上，相关投诉已累计达4433条。
+
+用户投诉主要集中在两类问题上：一是“套娃式”授权引流，二是高利率。
 
 ## 相关推荐
 
-- 2026-06-29 22:42 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 22:45 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-29 22:38 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-29 22:44 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-29 22:46 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 22:52 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 22:44 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-29 22:55 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-29 22:38 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 22:51 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-29 22:33 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-29 22:48 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-29 22:57 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-29 22:38 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 22:41 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-29 22:47 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-29 22:55 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-29 22:57 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-29 23:04 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 23:00 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-29 22:40 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 23:00 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-29 23:01 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-29 23:03 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 22:48 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 22:54 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:31 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/65290086.shtml)
-- 2026-06-29 22:58 - [男子称在京东买到“同仁堂”假药](https://www.share.kurohicncr.top/Article/details/9030358.shtml)
-- 2026-06-29 22:43 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/279510275.shtml)
-- 2026-06-29 22:58 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/730083200.shtml)
-- 2026-06-29 22:38 - [把邻居裸体发群算维权还是侵权](http://www.blog.kurohicncr.top/Article/details/572070616.shtml)
-- 2026-06-29 22:54 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/72893.shtml)
-- 2026-06-29 22:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/092091.shtml)
-- 2026-06-29 22:41 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/270078.shtml)
-- 2026-06-29 22:55 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/078930.shtml)
-- 2026-06-29 22:35 - [美人鱼](http://www.share.minike.top/Article/details/307707050.shtml)
-- 2026-06-29 22:56 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/15770701.shtml)
-- 2026-06-29 22:38 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/291780385.shtml)
-- 2026-06-29 22:57 - [逃狱兄弟](https://www.share.minike.top/Article/details/9863161.shtml)
-- 2026-06-29 22:35 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/40986683.shtml)
-- 2026-06-29 22:52 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/4306783.shtml)
+- 2026-06-29 23:01 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/39857594.shtml)
+- 2026-06-29 22:58 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/73236695.shtml)
+- 2026-06-29 22:46 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/017117.shtml)
+- 2026-06-29 22:43 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/123761429584.shtml)
+- 2026-06-29 22:38 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/7303481.shtml)
+- 2026-06-29 22:52 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/74878756.shtml)
+- 2026-06-29 22:46 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/688574111410.shtml)
+- 2026-06-29 22:36 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/617751038.shtml)
+- 2026-06-29 22:51 - [美以这对亲密盟友要掰了吗](http://www.blog.minike.top/Article/details/606933.shtml)
+- 2026-06-29 22:54 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/70662162254.shtml)
+- 2026-06-29 22:48 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/78226.shtml)
+- 2026-06-29 22:43 - [长沙菜农公交的人间烟火气](https://www.share.kurohicncr.top/Article/details/933297575227.shtml)
+- 2026-06-29 22:39 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/8989159.shtml)
+- 2026-06-29 22:59 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/43557335.shtml)
+- 2026-06-29 22:55 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/5691734028.shtml)

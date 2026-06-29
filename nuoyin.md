@@ -1,56 +1,61 @@
-# 数据中心扩建耗资巨大，甲骨文股价大跌7%
+# Alphabet2015年对SpaceX的投资有望带来约1000亿美元的收益
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 甲骨文重申，2027 财年营收目标 900 亿美元。 云计算与软件巨头甲骨文盘前股价走低。公司当期利润、总营收双双上涨，但大规模基建扩张带来的高额资本开支引发市场担忧。 甲骨文公布，刚结束的完整财年资本开支达 557 亿美元，较分析师预期高出约 50 亿美元。公司首席财务官希拉里・马克森透露，预计 2027 财年资本开支净现金投入将达到 7
+谷歌母公司Alphabet即将迎来一笔巨额投资回报。据报道，Alphabet首席执行官桑达尔·皮查伊日前透露，公司2015年对SpaceX的投资有望带来约1000亿美元的收益。 投资背景与回报规模 2015年，Alphabet向SpaceX投资9亿美元，当时SpaceX估值约为120亿美元，Alphabet获得约7%的股权。此后，随着SpaceX业务的快速扩张，这笔“押注式投资
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 甲骨文重申，2027 财年营收目标 900 亿美元。
+谷歌母公司Alphabet即将迎来一笔巨额投资回报。
 
-云计算与软件巨头甲骨文盘前股价走低。
+据报道，Alphabet首席执行官桑达尔·皮查伊日前透露，公司2015年对SpaceX的投资有望带来约1000亿美元的收益。
 
-公司当期利润、总营收双双上涨，但大规模基建扩张带来的高额资本开支引发市场担忧。
+投资背景与回报规模 2015年，Alphabet向SpaceX投资9亿美元，当时SpaceX估值约为120亿美元，Alphabet获得约7%的股权。
 
-甲骨文公布，刚结束的完整财年资本开支达 557 亿美元，较分析师预期高出约 50 亿美元。
+此后，随着SpaceX业务的快速扩张，这笔“押注式投资”的价值持续攀升。
 
-公司首席财务官希拉里・马克森透露，预计 2027 财年资本开支净现金投入将达到 700 亿美元左右。
+今年2月，SpaceX与马斯克旗下的人工智能公司xAI完成合并，交易估值达到1.25万亿美元。
 
-周四美股盘前，甲骨文股价大跌 7%。
+近期，SpaceX已秘密提交IPO申请，据报道正寻求1.75万亿美元的上市估值，这将创下历史纪录。
 
-如此庞大的资金投入，直观反映出人工智能行业扩张的巨额成本压力。
+若IPO估值达到2万亿美元，Alphabet持有的股份价值将超过1000亿美元。
 
-据报道，甲骨文去年一跃成为 AI 赛道热门厂商，拿下数千亿美元人工智能相关业务订单，其中包含与 OpenAI 签订的五年约 3000 亿美元算力采购大单。
+CEO表态：AI时代投资机会增多 在近日与Stripe联合创始人John Collison的对话中，皮查伊将这笔成功投资与当前的AI投资热潮联系起来。
 
 ## 相关推荐
 
-- 2026-06-29 22:39 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 22:30 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 22:36 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-29 22:51 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 22:57 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 22:45 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-29 22:50 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 22:59 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-29 22:35 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-29 22:37 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-29 22:50 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 22:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 23:05 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 22:59 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 22:48 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-29 22:44 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 22:42 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 23:03 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 22:55 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-29 22:53 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-29 22:53 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 22:56 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 22:54 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-29 22:57 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 22:41 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:47 - [温网](http://www.share.minike.top/Article/details/1526502.shtml)
-- 2026-06-29 22:47 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/24163560363.shtml)
-- 2026-06-29 22:56 - [时光音乐会](http://www.share.minike.top/Article/details/1389887.shtml)
-- 2026-06-29 22:54 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/4296297881.shtml)
-- 2026-06-29 22:41 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.blog.minike.top/Article/details/01885644.shtml)
-- 2026-06-29 22:35 - [多人将马路护栏当球网打羽毛球](http://www.share.minike.top/Article/details/54807312910.shtml)
-- 2026-06-29 22:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/26255.shtml)
-- 2026-06-29 22:45 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/170436429.shtml)
-- 2026-06-29 22:44 - [葫芦岛居民楼闪爆事故致3死](http://www.share.kurohicncr.top/Article/details/284235816728.shtml)
-- 2026-06-29 22:53 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/7908673.shtml)
-- 2026-06-29 22:32 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/103589231270.shtml)
-- 2026-06-29 22:41 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/61662128402.shtml)
-- 2026-06-29 22:44 - [急先锋](http://www.share.kurohicncr.top/Article/details/1217106.shtml)
-- 2026-06-29 22:56 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/95903443205.shtml)
-- 2026-06-29 22:56 - [法拉利车主已自行承担修理费近3万](http://www.share.minike.top/Article/details/8582585.shtml)
+- 2026-06-29 22:43 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/1510561.shtml)
+- 2026-06-29 22:57 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/144974.shtml)
+- 2026-06-29 22:52 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/188786076279.shtml)
+- 2026-06-29 22:55 - [张凌赫 客串](http://www.blog.minike.top/Article/details/26730083.shtml)
+- 2026-06-29 22:51 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/1304555029.shtml)
+- 2026-06-29 23:01 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/675126679420.shtml)
+- 2026-06-29 23:05 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/1237950379.shtml)
+- 2026-06-29 22:46 - [葫芦岛居民楼闪爆事故致3死](http://www.share.minike.top/Article/details/14931837958.shtml)
+- 2026-06-29 22:49 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/96884667.shtml)
+- 2026-06-29 22:48 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/377165598.shtml)
+- 2026-06-29 22:45 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/21128225873.shtml)
+- 2026-06-29 22:39 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/5489520.shtml)
+- 2026-06-29 23:02 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/212614.shtml)
+- 2026-06-29 23:02 - [运20对中国空军的意义是什么](http://www.share.minike.top/Article/details/4455542386.shtml)
+- 2026-06-29 22:53 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/80964.shtml)

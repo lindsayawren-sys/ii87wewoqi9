@@ -1,61 +1,60 @@
-# A股低开，深证成指、创业板指跌超1%，贵金属跌幅居前
+# 花旗：降普拉达目标价至41.6港元 评级“中性”
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-中新经纬6月10日电 10日早盘，A股三大指数集体低开。上证指数跌0.62%，报3985.12点。深证成指跌1.35%，报15062.51点。创业板指跌1.62%，报3897.73点。科创综指跌0.55%，报2018.89点。 Wind截图 盘面上，体育、镍、代糖概念等板块领涨两市，贵金属、分立器件、激光设备等板块跌幅居前。 元件板块低开，宝鼎科技逼近跌停。中富电路、晶赛科技、
+花旗发布研报称，在普拉达（01913）公布2025财年业绩后更新预测模型，并纳入对Versace的预测，同时预测今年首季销售表现。花旗基于更新后的SOTP及DCF估值，将普拉达目标价由52港元下调至41.6港元，评级为“中性”。 该行将集团今明两年列账销售预测分别上调8%及6%，以反映Versace带来高单位数的范围贡献，但同时将有机增长假设下调，由原先增长8%、7%下调至增长
 
 ## 正文
 
-中新经纬6月10日电 10日早盘，A股三大指数集体低开。
+花旗发布研报称，在普拉达（01913）公布2025财年业绩后更新预测模型，并纳入对Versace的预测，同时预测今年首季销售表现。
 
-上证指数跌0.62%，报3985.12点。
+花旗基于更新后的SOTP及DCF估值，将普拉达目标价由52港元下调至41.6港元，评级为“中性”。
 
-深证成指跌1.35%，报15062.51点。
+该行将集团今明两年列账销售预测分别上调8%及6%，以反映Versace带来高单位数的范围贡献，但同时将有机增长假设下调，由原先增长8%、7%下调至增长5%、6%，并降低外汇逆风影响。
 
-创业板指跌1.62%，报3897.73点。
+但因毛利率预测下降以及与Versace整合相关的营运开支增长假设上调，花旗对集团今明两年EBIT预测分别下调5%、5%。
 
-科创综指跌0.55%，报2018.89点。
+花旗预测，普拉达今年首季有机集团销售同比增长2%，其中零售增1%、批发增2%； 列账销售料同比增8%至14.5亿欧元。
 
-Wind截图 盘面上，体育、镍、代糖概念等板块领涨两市，贵金属、分立器件、激光设备等板块跌幅居前。
+按品牌划分零售销售，Prada同比增长1%，Miu Miu同比增长3%。
 
-元件板块低开，宝鼎科技逼近跌停。
+按地区划分有机零售销售，欧洲同比跌4%，美洲同比增长14%，亚太区同比增长6%，日本同比跌1%，中东同比跌25%。
 
-中富电路、晶赛科技、顺络电子、沪电股份跌幅居前。
+责任编辑：史丽君
 
 ## 相关推荐
 
-- 2026-06-29 22:40 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-29 22:55 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-29 22:32 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 22:40 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-29 22:54 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-29 22:39 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-29 22:42 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-29 22:56 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 22:41 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 22:49 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 22:42 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-29 22:54 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-29 22:56 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 22:55 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-29 22:46 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 22:45 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 22:54 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 22:46 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 22:47 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 22:47 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-29 22:55 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 22:37 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-29 22:36 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 22:41 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 22:54 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-29 23:05 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 22:44 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 23:03 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-29 22:57 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:58 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/06913.shtml)
-- 2026-06-29 22:32 - [扬名立万](https://www.share.minike.top/Article/details/1667902594.shtml)
-- 2026-06-29 22:50 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.minike.top/Article/details/4104150890.shtml)
-- 2026-06-29 22:59 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/963900.shtml)
-- 2026-06-29 22:50 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/11178.shtml)
-- 2026-06-29 22:46 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/073564.shtml)
-- 2026-06-29 22:36 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/238093048.shtml)
-- 2026-06-29 22:30 - [韩国股市绑架日本？高盛警告](https://www.share.kurohicncr.top/Article/details/053769538.shtml)
-- 2026-06-29 22:50 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/964216336046.shtml)
-- 2026-06-29 22:49 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/15856483996.shtml)
-- 2026-06-29 22:30 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/1879171287.shtml)
-- 2026-06-29 22:35 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/736972312.shtml)
-- 2026-06-29 22:45 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/8277700164.shtml)
-- 2026-06-29 22:56 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/811995448.shtml)
-- 2026-06-29 22:35 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/5156916.shtml)
+- 2026-06-29 22:49 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/72883.shtml)
+- 2026-06-29 23:02 - [追觅称质量不行终身包修也没意义](https://www.share.minike.top/Article/details/756071667937.shtml)
+- 2026-06-29 22:41 - [金刚川](http://www.blog.kurohicncr.top/Article/details/93837.shtml)
+- 2026-06-29 22:52 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/1801242094.shtml)
+- 2026-06-29 22:39 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/5421992.shtml)
+- 2026-06-29 22:44 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/99420325289.shtml)
+- 2026-06-29 22:59 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/9914496.shtml)
+- 2026-06-29 22:54 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/611351142.shtml)
+- 2026-06-29 23:00 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/57105998.shtml)
+- 2026-06-29 23:02 - [马光远谈马斯克最大的价值](http://www.share.minike.top/Article/details/7157721.shtml)
+- 2026-06-29 22:39 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/866800198877.shtml)
+- 2026-06-29 22:56 - [扬名立万](https://www.blog.minike.top/Article/details/00706.shtml)
+- 2026-06-29 23:01 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/38443.shtml)
+- 2026-06-29 22:59 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/637534993445.shtml)
+- 2026-06-29 23:04 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/539073136.shtml)

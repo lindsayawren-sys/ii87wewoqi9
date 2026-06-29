@@ -1,56 +1,60 @@
-# 金价深度回调，“固收+”理财如何守住“黄金增强”不翻车？
+# 白宫：对美伊达成协议持乐观态度
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 冯丽君 黄金价格的下跌幅度与速度，似乎超出了市场预期。 6月10日，伦敦金现货价格跌破4200美元关口，一度低至4106.46美元，距年内高点跌去26.65%。今年以来，伦敦金现货价格已累计下跌超4%。 当日，上海黄金交易所SGE黄金9999价格来到898元/克，距年内高点1256元/克已跌去28.5%。 理财市场方面，“黄金+”系列理财产品在2025年较为火
+中新社华盛顿4月15日电 (记者 陈孟统)美国白宫新闻秘书莱维特15日表示，美方对美伊达成协议的前景持乐观态度。下一轮谈判很可能仍在巴基斯坦首都伊斯兰堡举行。 莱维特在白宫例行记者会上说，关于美方已正式要求延长停火的报道不实。“目前，我们仍在非常积极地参与谈判。这些对话是富有成效且持续进行的，这就是目前的情况。” 对于美伊再次举行面对面会谈的可能性，莱维特表示，相关讨论确实在进
 
 ## 正文
 
-界面新闻记者 | 冯丽君 黄金价格的下跌幅度与速度，似乎超出了市场预期。
+中新社华盛顿4月15日电 (记者 陈孟统)美国白宫新闻秘书莱维特15日表示，美方对美伊达成协议的前景持乐观态度。
 
-6月10日，伦敦金现货价格跌破4200美元关口，一度低至4106.46美元，距年内高点跌去26.65%。
+下一轮谈判很可能仍在巴基斯坦首都伊斯兰堡举行。
 
-今年以来，伦敦金现货价格已累计下跌超4%。
+莱维特在白宫例行记者会上说，关于美方已正式要求延长停火的报道不实。
 
-当日，上海黄金交易所SGE黄金9999价格来到898元/克，距年内高点1256元/克已跌去28.5%。
+“目前，我们仍在非常积极地参与谈判。
 
-理财市场方面，“黄金+”系列理财产品在2025年较为火热，当前布局则较为谨慎。
+这些对话是富有成效且持续进行的，这就是目前的情况。
 
-从目前存量产品来看，富邦华一银行发行的两款黄金类理财产品——贝莱德世界黄金基金人民币款与贝莱德世界黄金基金美金款属于中高风险（R4级）权益类理财。
+” 对于美伊再次举行面对面会谈的可能性，莱维特表示，相关讨论确实在进行，但一切尚无定论。
 
-Wind数据显示，截至6月10日，上述两款理财产品近1月收益率分别为-13.51%、-13.17%；近3月收益率分别为-21.10%、-20.27%；今年以来的收益率分别为-7.54%、-4.71%。
+“不过，我们对达成协议的前景持乐观态度。
 
-界面新闻记者梳理发现，根据Wind数据，国内银行理财子公司发行的产品中，与黄金相关的理财产品绝大部分为固收+类，少部分为混合类理财产品，风险等级绝大部分为R2级。
+” 莱维特同时表示，美伊下一轮谈判的地点很可能仍在伊斯兰堡。
 
 ## 相关推荐
 
-- 2026-06-29 22:51 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 22:35 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 22:41 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 22:35 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-29 22:58 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 22:40 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-29 22:54 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 22:57 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-29 22:42 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-29 22:51 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 22:48 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-29 22:39 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-29 22:37 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 22:37 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 22:49 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-29 22:54 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 22:39 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-29 22:37 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 22:55 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-29 22:55 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-29 22:53 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-29 22:58 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 23:05 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-29 22:45 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:35 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.kurohicncr.top/Article/details/26022960.shtml)
-- 2026-06-29 22:31 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/17396370.shtml)
-- 2026-06-29 22:38 - [天气热脾气都变差了](http://www.blog.kurohicncr.top/Article/details/25877478157.shtml)
-- 2026-06-29 22:43 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/389869.shtml)
-- 2026-06-29 22:43 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/602352490330.shtml)
-- 2026-06-29 22:46 - [小龙女配音去世 李若彤发文悼念](http://www.blog.kurohicncr.top/Article/details/9726842588.shtml)
-- 2026-06-29 22:47 - [小龙女配音去世 李若彤发文悼念](http://www.blog.kurohicncr.top/Article/details/254798150.shtml)
-- 2026-06-29 22:33 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/75976432186.shtml)
-- 2026-06-29 22:45 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/39024554.shtml)
-- 2026-06-29 22:58 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/24400693.shtml)
-- 2026-06-29 22:40 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/8883658036.shtml)
-- 2026-06-29 22:41 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/3246394.shtml)
-- 2026-06-29 22:53 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/12900331810.shtml)
-- 2026-06-29 22:55 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/841862681902.shtml)
-- 2026-06-29 22:46 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/04801413.shtml)
+- 2026-06-29 22:46 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/2398812165.shtml)
+- 2026-06-29 23:04 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/51969.shtml)
+- 2026-06-29 22:38 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/3995197410.shtml)
+- 2026-06-29 22:54 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/69022994.shtml)
+- 2026-06-29 22:40 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/37206.shtml)
+- 2026-06-29 22:39 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/68328537.shtml)
+- 2026-06-29 22:52 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/18855848.shtml)
+- 2026-06-29 22:48 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/757004332.shtml)
+- 2026-06-29 22:52 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/1085583500.shtml)
+- 2026-06-29 22:41 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/8554221424.shtml)
+- 2026-06-29 22:51 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/08592.shtml)
+- 2026-06-29 22:46 - [山东发布山洪灾害气象预警](https://www.share.kurohicncr.top/Article/details/274119568320.shtml)
+- 2026-06-29 23:04 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/89937803.shtml)
+- 2026-06-29 22:42 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/478526116.shtml)
+- 2026-06-29 23:03 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/755014157.shtml)

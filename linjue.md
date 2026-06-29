@@ -1,56 +1,57 @@
-# 中金公司三方合并遭大量小股东反对 申万宏源等现金提供方是否会严重亏损？
+# 以军袭击加沙地带已致10死 哈马斯拒绝解除武装
 
-> 更新时间：2026-06-29 23:00:03 UTC+8
+> 更新时间：2026-06-29 23:06:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：IPO再融资组/图灵 2026年6月8日晚间，中金公司、东兴证券、信达证券同步发布公告：中金公司换股吸收合并东兴证券与信达证券的相关议案，获得三家公司股东大会审议通过。 然而，中金公司股东反对票占比约10.7%；信达证券持股5%以下股东的反对比例高达46.9%，东兴证券中
+中新社北京4月15日电 综合消息：以军当地时间14日袭击加沙地带多地，造成至少10人丧生。另据外媒14日报道，巴勒斯坦伊斯兰抵抗运动(哈马斯)已拒绝解除其武装的计划。 综合路透社、半岛电视台及巴勒斯坦官方通讯社“瓦法”消息，加沙城一辆警车14日遭以色列空袭，造成4人死亡，其中包括一名儿童和一名警察，另有9人受伤。 当晚，以军对加沙城西侧的沙提难民营发动袭击，造成至少5人死亡，另
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社北京4月15日电 综合消息：以军当地时间14日袭击加沙地带多地，造成至少10人丧生。
 
-出品：新浪财经上市公司研究院 作者：IPO再融资组/图灵 2026年6月8日晚间，中金公司、东兴证券、信达证券同步发布公告：中金公司换股吸收合并东兴证券与信达证券的相关议案，获得三家公司股东大会审议通过。
+另据外媒14日报道，巴勒斯坦伊斯兰抵抗运动(哈马斯)已拒绝解除其武装的计划。
 
-然而，中金公司股东反对票占比约10.7%；信达证券持股5%以下股东的反对比例高达46.9%，东兴证券中小股东反对率亦达18.9%；合并本就以“强强联合”之名展开，为何在中小股东层面遭遇如此强烈的反对？
+综合路透社、半岛电视台及巴勒斯坦官方通讯社“瓦法”消息，加沙城一辆警车14日遭以色列空袭，造成4人死亡，其中包括一名儿童和一名警察，另有9人受伤。
 
-很大可能是因为现金选择权产生的套利空间。
+当晚，以军对加沙城西侧的沙提难民营发动袭击，造成至少5人死亡，另有多人受伤。
 
-值得关注的是，一旦所有异议股东全额行使现金选择权，第三方资金提供方将付出最高约81亿元的现金接盘。
+当天在加沙地带北部城市贾巴利亚的一处难民营内，一名14岁少年被以军打死。
 
-在当前券商板块整体估值承压的背景下，申万宏源等资金提供方是否有亏损风险？
+另据《以色列时报》报道，以色列国防军14日通报称，以军当天在加沙地带北部击毙一名“过于靠近以军部队的恐怖分子”；前一日，以军在加沙地带中部打死多名哈马斯武装人员。
 
-这些问题，将关系到万亿级券商整合能否平稳落地。
+报道还称，一名以军士兵14日在加沙地带中部遭不明来源枪击后受伤，以军已启动相关调查。
 
-现金选择权目前有较大套利空间 公告显示，从整体投票结果，中金公司、信达证券、东兴证券三家券商吸收合并相关议案获得“高票通过”，中金公司相关股东的同意比例超89%，东兴证券同意比例超93%，信达证券同意比例接近95%。
+当前，加沙地带停火第一阶段协议已生效半年多，相关方正就落实第二阶段协议进行磋商。
 
 ## 相关推荐
 
-- 2026-06-29 22:36 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 22:55 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-29 22:52 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 22:56 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 22:49 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-29 22:44 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-29 22:44 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-29 22:39 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-29 22:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-29 22:53 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 22:36 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-29 22:58 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 22:41 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 22:36 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-29 22:41 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 22:48 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-29 23:02 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 22:40 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 22:57 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 22:37 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-29 22:47 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:59 - [爱奇艺抬高国剧新标尺](http://www.share.minike.top/Article/details/67345084.shtml)
-- 2026-06-29 22:53 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/2559535149.shtml)
-- 2026-06-29 22:40 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/75713487.shtml)
-- 2026-06-29 22:53 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/23679836.shtml)
-- 2026-06-29 22:46 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/1972809534.shtml)
-- 2026-06-29 22:58 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.minike.top/Article/details/74077781.shtml)
-- 2026-06-29 22:40 - [田曦薇没招了](https://www.share.minike.top/Article/details/9150748.shtml)
-- 2026-06-29 22:57 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/86204782802.shtml)
-- 2026-06-29 22:32 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/3900037100.shtml)
-- 2026-06-29 22:41 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/8391581.shtml)
-- 2026-06-29 22:34 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/15084.shtml)
-- 2026-06-29 22:53 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/450572550587.shtml)
-- 2026-06-29 22:40 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/33867751282.shtml)
-- 2026-06-29 22:57 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/77879.shtml)
-- 2026-06-29 22:30 - [记者乘坐无人驾驶汽车去采访](http://www.blog.minike.top/Article/details/298965889777.shtml)
+- 2026-06-29 22:39 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/0039438205.shtml)
+- 2026-06-29 22:43 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/6547082183.shtml)
+- 2026-06-29 22:47 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/85559.shtml)
+- 2026-06-29 22:37 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/034442138.shtml)
+- 2026-06-29 22:46 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/1326789098.shtml)
+- 2026-06-29 22:47 - [世界杯](https://www.blog.kurohicncr.top/Article/details/38613931.shtml)
+- 2026-06-29 22:56 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/227721947.shtml)
+- 2026-06-29 22:53 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/724282951.shtml)
+- 2026-06-29 22:38 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/773328408.shtml)
+- 2026-06-29 22:37 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/0884039590.shtml)
+- 2026-06-29 23:05 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/632931.shtml)
+- 2026-06-29 22:52 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/575232.shtml)
+- 2026-06-29 22:59 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/677831525313.shtml)
+- 2026-06-29 22:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/65103142.shtml)
+- 2026-06-29 22:50 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/11135959748.shtml)
