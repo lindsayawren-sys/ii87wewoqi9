@@ -1,59 +1,54 @@
-# 苹果因Siri人工智能功能推迟发布，以2.5亿美元和解诉讼
+# 乐动机器人午前涨逾7% 公司填补物理AI感知层标的空白
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-苹果周二就一起股东诉讼达成和解，赔偿金额为2.5亿美元。该诉讼源于该公司推迟了其Siri语音助手的人工智能升级。 该诉讼由彼得·兰德谢夫特于2024年在加利福尼亚州联邦法院提起，起因是这家iPhone制造商在2024年年度软件开发者大会上宣布了一系列AI升级功能 并开始投放广告，称这些功能将于当年秋季随新款iPhone一同推出。 但最终发布的iPhone并未包含这些功能，原告方
+乐动机器人（01236）盘中涨超7%，截至发稿，股价上涨6.58%，现报38.90港元，成交额768.55万港元。 近日，OpenAI首席执行官山姆·奥特曼（Sam Altman）在社交平台发布的一则招聘信息，正式宣告进军实体机器人赛道。奥特曼透露，进军机器人赛道是基于OpenAI内部一项名为“世界模拟”（Worldsim）的研究项目的快速发展。该项目在过去一年中演变为Open
 
 ## 正文
 
-苹果周二就一起股东诉讼达成和解，赔偿金额为2.5亿美元。
+乐动机器人（01236）盘中涨超7%，截至发稿，股价上涨6.58%，现报38.90港元，成交额768.55万港元。
 
-该诉讼源于该公司推迟了其Siri语音助手的人工智能升级。
+近日，OpenAI首席执行官山姆·奥特曼（Sam Altman）在社交平台发布的一则招聘信息，正式宣告进军实体机器人赛道。
 
-该诉讼由彼得·兰德谢夫特于2024年在加利福尼亚州联邦法院提起，起因是这家iPhone制造商在2024年年度软件开发者大会上宣布了一系列AI升级功能 并开始投放广告，称这些功能将于当年秋季随新款iPhone一同推出。
+奥特曼透露，进军机器人赛道是基于OpenAI内部一项名为“世界模拟”（Worldsim）的研究项目的快速发展。
 
-但最终发布的iPhone并未包含这些功能，原告方声称这损害了股东利益。
+该项目在过去一年中演变为OpenAI Robotics，并由公司研究副总裁、文生图模型DALL·E和视频生成模型Sora的核心开发者阿迪亚·拉梅什（Aditya Ramesh）领导。
 
-2025年，苹果表示Siri的人工智能全面升级要等到今年才推出 ，公司高管现已确认，新版Siri功能将于下月在苹果年度开发者大会上亮相。
+而该项目的根基在于机器人硬件研究与机器学习研究的深度融合与协同设计。
 
-苹果在和解协议中并未承认存在任何过错，该协议仍需获得法官批准。
-
-苹果在声明中表示，自2024年推出其所谓的“Apple Intelligence”以来，已发布了众多其他AI功能。
-
-“苹果已达成和解，以解决与两项新增功能可用性相关的索赔。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 03:36 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-30 03:34 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-30 03:30 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-30 03:27 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-30 03:41 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-30 03:21 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-30 03:43 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-30 03:20 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-30 03:25 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-30 03:34 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-30 03:34 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-30 03:37 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-30 03:39 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-30 03:40 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-30 03:36 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-30 03:45 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-30 03:49 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-30 03:30 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-30 03:41 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 03:33 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-30 03:50 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-30 03:39 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-30 03:28 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-30 03:50 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-30 03:51 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:43 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/092961994474.shtml)
-- 2026-06-30 03:46 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/458068842.shtml)
-- 2026-06-30 03:39 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/4588991900.shtml)
-- 2026-06-30 03:33 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/594548704.shtml)
-- 2026-06-30 03:21 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/9460290.shtml)
-- 2026-06-30 03:20 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/8701666489.shtml)
-- 2026-06-30 03:42 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/76655222735.shtml)
-- 2026-06-30 03:33 - [UP主复刻百万英镑牛排套餐](http://www.blog.kurohicncr.top/Article/details/3850915.shtml)
-- 2026-06-30 03:24 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/31754.shtml)
-- 2026-06-30 03:30 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/84132623.shtml)
-- 2026-06-30 03:25 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/757786979.shtml)
-- 2026-06-30 03:34 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/73847997.shtml)
-- 2026-06-30 03:40 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/30079747.shtml)
-- 2026-06-30 03:33 - [时光音乐会](https://www.share.minike.top/Article/details/1119585443.shtml)
-- 2026-06-30 03:37 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/571762267.shtml)
+- 2026-06-30 03:36 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/7373739.shtml)
+- 2026-06-30 03:28 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/344247.shtml)
+- 2026-06-30 03:44 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/081667558.shtml)
+- 2026-06-30 03:47 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/402292860.shtml)
+- 2026-06-30 03:47 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/465323.shtml)
+- 2026-06-30 03:28 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/170659805878.shtml)
+- 2026-06-30 03:30 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/0558092375.shtml)
+- 2026-06-30 03:38 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/1463705.shtml)
+- 2026-06-30 03:48 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/200956281.shtml)
+- 2026-06-30 03:24 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/074647207927.shtml)
+- 2026-06-30 03:50 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/807777723624.shtml)
+- 2026-06-30 03:26 - [时光音乐会](https://www.share.minike.top/Article/details/11582635.shtml)
+- 2026-06-30 03:43 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/85647341.shtml)
+- 2026-06-30 03:39 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/683548.shtml)
+- 2026-06-30 03:46 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/62941068.shtml)

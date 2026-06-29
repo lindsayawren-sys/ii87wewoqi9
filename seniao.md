@@ -1,56 +1,58 @@
-# 闽籍侨领王万瑞任巴西华人协会会长
+# Once Upon a Farm发布2025年影响力报告，推进“重塑未来食品”使命
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-中新网圣保罗5月4日电 (记者 林春茵)巴西华人协会3日晚在巴西圣保罗进行第24届理监事换届选举。福建莆田籍华侨王万瑞任会长，浙江青田籍华人叶王永任监事长。 巴西华人协会成立于1980年，是巴西成立最早、影响力最大的华人社团之一。 王万瑞表示，华协自成立以来，一直秉承爱国爱乡、服务侨胞的宗旨，在未来的任期内，将积极维护广大在巴华侨华人的合法权益；持续推动中华优秀文化的传播推广，
+Once Upon a Farm日前发布了其2025年影响力报告，详细阐述了该公司在可持续发展框架下取得的持续进展。该框架涵盖三大支柱：赋能健康社区、为人与地球而耕作，以及减少环境影响。报告还重点强调了公司重新获得的共益企业认证，彰显其通过利益相关者导向的治理来平衡使命与利润的长期承诺。 报告显示，在赋能健康社区方面，Once Upon a Farm持续扩大其在妇女、婴儿及儿童
 
 ## 正文
 
-中新网圣保罗5月4日电 (记者 林春茵)巴西华人协会3日晚在巴西圣保罗进行第24届理监事换届选举。
+Once Upon a Farm日前发布了其2025年影响力报告，详细阐述了该公司在可持续发展框架下取得的持续进展。
 
-福建莆田籍华侨王万瑞任会长，浙江青田籍华人叶王永任监事长。
+该框架涵盖三大支柱：赋能健康社区、为人与地球而耕作，以及减少环境影响。
 
-巴西华人协会成立于1980年，是巴西成立最早、影响力最大的华人社团之一。
+报告还重点强调了公司重新获得的共益企业认证，彰显其通过利益相关者导向的治理来平衡使命与利润的长期承诺。
 
-王万瑞表示，华协自成立以来，一直秉承爱国爱乡、服务侨胞的宗旨，在未来的任期内，将积极维护广大在巴华侨华人的合法权益；持续推动中华优秀文化的传播推广，促进中巴经贸往来、文教合作深度联动；关注华裔新生代群体的成长发展，搭建学习、就业、交流的桥梁。
+报告显示，在赋能健康社区方面，Once Upon a Farm持续扩大其在妇女、婴儿及儿童营养计划（WIC）中的参与度，仍是首个且唯一获WIC授权的有机冷藏婴儿食品品牌。
 
-监事长叶王永表示，华协将积极推动中巴两国在经济、文化等各领域的交流与合作，搭建更多交流平台，为两国的友好关系添砖加瓦。
+2025年，公司通过其与救助儿童会的持续合作，捐赠餐食数量已超过120万份。
 
-巴西华协永久荣誉会长吴耀宙、朱苏忠、苏均亮等理监事成员120余人与会。
+在可持续农业领域，Once Upon a Farm在2025年采购了超过3000万磅经认证的有机原料，并从经公平食品倡议认证的果园采购了1000万磅苹果、梨和樱桃等水果。
 
-(完)
+公司还支持更广泛的农场工人健康计划，致力于构建透明且有弹性的供应链。
+
+在减少环境足迹方面，报告显示其重新设计的全聚乙烯包装袋已全面投入使用。
 
 ## 相关推荐
 
-- 2026-06-30 03:41 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-30 03:26 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-30 03:21 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-30 03:19 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-30 03:32 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-30 03:36 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-30 03:42 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-30 03:21 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-30 03:28 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-30 03:40 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-30 03:34 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-30 03:20 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-30 03:52 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-30 03:27 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-30 03:28 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-30 03:46 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-30 03:43 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 03:29 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-30 03:36 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-30 03:26 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-30 03:51 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-30 03:42 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-30 03:45 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-30 03:32 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:27 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/349738897660.shtml)
-- 2026-06-30 03:32 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/3742438847.shtml)
-- 2026-06-30 03:35 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/59140.shtml)
-- 2026-06-30 03:45 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/38869.shtml)
-- 2026-06-30 03:36 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/925375209.shtml)
-- 2026-06-30 03:25 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/36098.shtml)
-- 2026-06-30 03:35 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/83513360666.shtml)
-- 2026-06-30 03:32 - [德约科维奇向温网对手放狠话](http://www.share.minike.top/Article/details/40000.shtml)
-- 2026-06-30 03:36 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/1338626.shtml)
-- 2026-06-30 03:23 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/8938453532.shtml)
-- 2026-06-30 03:44 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/58131217130.shtml)
-- 2026-06-30 03:23 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/466733.shtml)
-- 2026-06-30 03:45 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/9803229743.shtml)
-- 2026-06-30 03:25 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/2199662.shtml)
-- 2026-06-30 03:43 - [巴西扳平比分](http://www.share.kurohicncr.top/Article/details/108744778.shtml)
+- 2026-06-30 03:51 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/503140.shtml)
+- 2026-06-30 03:25 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/8330111982.shtml)
+- 2026-06-30 03:53 - [月亮](https://www.share.minike.top/Article/details/013831170346.shtml)
+- 2026-06-30 03:27 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/77150023.shtml)
+- 2026-06-30 03:24 - [日本反击率先破门](https://www.blog.minike.top/Article/details/80432.shtml)
+- 2026-06-30 03:45 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/7305527.shtml)
+- 2026-06-30 03:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/807624250577.shtml)
+- 2026-06-30 03:34 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/471134577549.shtml)
+- 2026-06-30 03:33 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/871994.shtml)
+- 2026-06-30 03:24 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/0785704.shtml)
+- 2026-06-30 03:40 - [千香](http://www.share.kurohicncr.top/Article/details/8059435614.shtml)
+- 2026-06-30 03:34 - [巴西vs日本首发名单](http://www.blog.minike.top/Article/details/16372228826.shtml)
+- 2026-06-30 03:47 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/20590116580.shtml)
+- 2026-06-30 03:45 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.minike.top/Article/details/9084960122.shtml)
+- 2026-06-30 03:47 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/17213039.shtml)

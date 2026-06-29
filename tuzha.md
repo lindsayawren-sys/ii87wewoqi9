@@ -1,61 +1,52 @@
-# 各界人士共祭济南“五三惨案”98周年
+# 关税协议落地后，瑞士企业已向美国投资270亿美元
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-中新网济南5月3日电 (吕妍)5月3日10时，防空警报响彻山东济南上空。当日，“五三惨案”98周年纪念活动举行。 1928年5月3日，日本帝国主义为阻止北伐军北伐，借口“保护侨民”，凶残杀害蔡公时等17名外交人员，强占济南城，大肆屠杀中国军人和民众，制造了震惊中外的“五三惨案”。 活动现场，社会各界人士代表首先向逝去的革命先烈默哀，表达对惨案罹难者的哀思，接着向英烈敬献花篮，缅
+据媒体报道，在瑞士与美国达成关税协议、承诺大幅扩大对美投资后，今年1至4月，瑞士企业已在美国完成270亿美元投资。 该媒体称，上述数据来自瑞士-美国商会发给会员的一封内部邮件。 美瑞两国于2025年11月14日达成共识，瑞士企业承诺未来五年内在美投资2000亿美元。作为这份初步协议的一部分，美国总统特朗普将瑞士商品的惩罚性关税从今年8月初开始执行的39%下调至15%。 瑞士-美
 
 ## 正文
 
-中新网济南5月3日电 (吕妍)5月3日10时，防空警报响彻山东济南上空。
+据媒体报道，在瑞士与美国达成关税协议、承诺大幅扩大对美投资后，今年1至4月，瑞士企业已在美国完成270亿美元投资。
 
-当日，“五三惨案”98周年纪念活动举行。
+该媒体称，上述数据来自瑞士-美国商会发给会员的一封内部邮件。
 
-1928年5月3日，日本帝国主义为阻止北伐军北伐，借口“保护侨民”，凶残杀害蔡公时等17名外交人员，强占济南城，大肆屠杀中国军人和民众，制造了震惊中外的“五三惨案”。
+美瑞两国于2025年11月14日达成共识，瑞士企业承诺未来五年内在美投资2000亿美元。
 
-活动现场，社会各界人士代表首先向逝去的革命先烈默哀，表达对惨案罹难者的哀思，接着向英烈敬献花篮，缅怀致敬。
+作为这份初步协议的一部分，美国总统特朗普将瑞士商品的惩罚性关税从今年8月初开始执行的39%下调至15%。
 
-随后，各界嘉宾代表合力撞响“五三钟”，以此纪念历史，警醒世人。
+瑞士-美国商会首席执行官表示：“我们是恪守承诺的典范，会兑现所有约定。
 
-“社会各界人士铭记这段历史，不是为了延续仇恨，而是为了以史为鉴、勿忘国耻。
-
-”民革济南市委会副主委、济南市民营经济发展局局长李轶锋在致辞时表示，应厚植家国情怀、砥砺自强之志，凝聚起捍卫和平、守护家园、奋发图强、助推民族复兴的强大精神力量。
-
-参加此次纪念活动的济南学生代表党子超说：“我们生活在和平年代，更要弘扬先辈们的崇高精神，努力学习，创造更加美好的生活，用实际行动守护来之不易的和平。
+”责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-30 03:37 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-30 03:38 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-30 03:27 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-30 03:23 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 03:38 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 03:34 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-30 03:47 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-30 03:35 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-30 03:23 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-30 03:45 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-30 03:33 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-30 03:32 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-30 03:22 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-30 03:36 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-30 03:38 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-30 03:44 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-30 03:33 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-30 03:25 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 03:24 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-30 03:51 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 03:43 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-30 03:28 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-30 03:50 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-30 03:47 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-30 03:30 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:31 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/67996177789.shtml)
-- 2026-06-30 03:46 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/787070842.shtml)
-- 2026-06-30 03:18 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/55831293.shtml)
-- 2026-06-30 03:28 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/42243694.shtml)
-- 2026-06-30 03:23 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.kurohicncr.top/Article/details/385738208.shtml)
-- 2026-06-30 03:27 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/57321.shtml)
-- 2026-06-30 03:25 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/837858729.shtml)
-- 2026-06-30 03:22 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/18719813629.shtml)
-- 2026-06-30 03:35 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/07083817289.shtml)
-- 2026-06-30 03:36 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/500934428895.shtml)
-- 2026-06-30 03:43 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/301596419.shtml)
-- 2026-06-30 03:21 - [时光音乐会](https://www.blog.minike.top/Article/details/862385944004.shtml)
-- 2026-06-30 03:35 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/89154.shtml)
-- 2026-06-30 03:40 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/189356718.shtml)
-- 2026-06-30 03:35 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/04938.shtml)
+- 2026-06-30 03:41 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/0299268.shtml)
+- 2026-06-30 03:40 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/18571268396.shtml)
+- 2026-06-30 03:34 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/7026976547.shtml)
+- 2026-06-30 03:31 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/2691218943.shtml)
+- 2026-06-30 03:39 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/9052356598.shtml)
+- 2026-06-30 03:42 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/1239280.shtml)
+- 2026-06-30 03:51 - [张凌赫 客串](http://www.share.minike.top/Article/details/774889575.shtml)
+- 2026-06-30 03:37 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/309877.shtml)
+- 2026-06-30 03:40 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/49851.shtml)
+- 2026-06-30 03:47 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/72355.shtml)
+- 2026-06-30 03:46 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/1707841.shtml)
+- 2026-06-30 03:28 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/301143173.shtml)
+- 2026-06-30 03:27 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/89494851.shtml)
+- 2026-06-30 03:47 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/2785248.shtml)
+- 2026-06-30 03:36 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/8823735.shtml)

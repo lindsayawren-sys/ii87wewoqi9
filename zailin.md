@@ -1,47 +1,56 @@
-# 美丽田园医疗健康于5月5日斥资119.5万港元回购6万股
+# 高考前后五大典型诈骗话术全披露，所有“捷径”皆是陷阱
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-美丽田园医疗健康（02373）发布公告，于2026年5月5日斥资119.5万港元回购6万股。责任编辑：卢昱君
+高考前后，各类涉考诈骗进入高发期。诈骗分子常冒充教育局、高校招生办等机构工作人员，利用考生及家长的焦虑心理设计陷阱。为帮助广大考生与家长识别风险、防范损失，现整理五类典型诈骗话术及应对策略，请务必提高警惕！高考前后五大常见诈骗话术解析 PART 01 作弊通知类诈骗 骗子冒充官方机构，向考生发送短信，声称其在考试过程中被监控发现有作弊行为，该科目成绩记为0分，并附咨询电话。利用
 
 ## 正文
 
-美丽田园医疗健康（02373）发布公告，于2026年5月5日斥资119.5万港元回购6万股。
+高考前后，各类涉考诈骗进入高发期。
 
-责任编辑：卢昱君
+诈骗分子常冒充教育局、高校招生办等机构工作人员，利用考生及家长的焦虑心理设计陷阱。
+
+为帮助广大考生与家长识别风险、防范损失，现整理五类典型诈骗话术及应对策略，请务必提高警惕！
+
+高考前后五大常见诈骗话术解析 PART 01 作弊通知类诈骗 骗子冒充官方机构，向考生发送短信，声称其在考试过程中被监控发现有作弊行为，该科目成绩记为0分，并附咨询电话。
+
+利用考生恐慌心理，要求支付“罚款”或提供身份证号、银行卡号等个人信息，一旦个人信息，银行卡等信息泄露将会可能导致资金被骗子盗刷。
+
+PART 02 修改分数类诈骗 骗子宣称认识考试院内部人员，能够从后台修改卷面分数。
+
+实际上，高考成绩数据采用多重备份与加密技术，任何个人或机构均无权、无法篡改。
+
+PART 03 内部指标、低分高录类诈骗 骗子冒充教育局干部、高校招办领导等身份，谎称掌握“专项计划”“预留补录”“内部指标”等资源，声称低分也可进入985/211高校。
 
 ## 相关推荐
 
-- 2026-06-30 03:38 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-30 03:38 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-30 03:40 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-30 03:36 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-30 03:23 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-30 03:42 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-30 03:44 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 03:31 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-30 03:20 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-30 03:40 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-30 03:22 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-30 03:47 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-30 03:39 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-30 03:26 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 03:28 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-30 03:25 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-30 03:49 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 03:40 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-30 03:48 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-30 03:49 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-30 03:43 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-30 03:31 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 03:42 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:44 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/36246156360.shtml)
-- 2026-06-30 03:33 - [电影后室值得看吗](http://www.share.minike.top/Article/details/4505389.shtml)
-- 2026-06-30 03:19 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/16672689304.shtml)
-- 2026-06-30 03:40 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/89166957498.shtml)
-- 2026-06-30 03:22 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/7054845174.shtml)
-- 2026-06-30 03:21 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/8167280.shtml)
-- 2026-06-30 03:39 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/6012791414.shtml)
-- 2026-06-30 03:44 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/8869175170.shtml)
-- 2026-06-30 03:46 - [恋与深空 巧合](http://www.share.minike.top/Article/details/304401.shtml)
-- 2026-06-30 03:25 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/60543978635.shtml)
-- 2026-06-30 03:40 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/20863.shtml)
-- 2026-06-30 03:41 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/207925749501.shtml)
-- 2026-06-30 03:24 - [上半年全国特种设备安全形势总体平稳](http://www.share.kurohicncr.top/Article/details/02221190679.shtml)
-- 2026-06-30 03:44 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/532863.shtml)
-- 2026-06-30 03:38 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/389130654.shtml)
+- 2026-06-30 03:38 - [扫黑风暴](http://www.blog.minike.top/Article/details/656281461223.shtml)
+- 2026-06-30 03:35 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/981684.shtml)
+- 2026-06-30 03:27 - [世界杯](https://www.blog.kurohicncr.top/Article/details/57348620.shtml)
+- 2026-06-30 03:47 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/435182649.shtml)
+- 2026-06-30 03:39 - [斗破苍穹](https://www.blog.minike.top/Article/details/58785.shtml)
+- 2026-06-30 03:40 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/3394954952.shtml)
+- 2026-06-30 03:34 - [斛珠夫人](http://www.blog.minike.top/Article/details/25643.shtml)
+- 2026-06-30 03:26 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/527273.shtml)
+- 2026-06-30 03:47 - [周生如故](http://www.share.kurohicncr.top/Article/details/83270.shtml)
+- 2026-06-30 03:47 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/572631767756.shtml)
+- 2026-06-30 03:45 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/9192419.shtml)
+- 2026-06-30 03:41 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/96567402.shtml)
+- 2026-06-30 03:50 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/0596748171.shtml)
+- 2026-06-30 03:28 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/0961477.shtml)
+- 2026-06-30 03:53 - [王欣瑜温网开门红](https://www.blog.minike.top/Article/details/09782621.shtml)

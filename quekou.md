@@ -1,59 +1,50 @@
-# 菲律宾马荣火山活动持续致近20万人受灾
+# 报道：伊朗称特朗普与哈梅内伊不会进行会晤
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-中新社马尼拉5月5日电 (记者 张兴龙)菲律宾民防办公室5日通报，马荣火山持续活动引发多次火山碎屑密度流并伴随大量火山灰扩散，已导致周边地区近20万人受灾。 菲律宾火山地震研究所5日通报称，当天7时19分至7时26分，马荣火山西南坡再次发生由熔岩流坍塌引发的火山碎屑密度流。过去24小时，该所还在马荣火山录得14次火山地震和336次落石事件。 目前，马荣火山维持3级警戒状态。菲火
+伊朗最高领袖哈梅内伊的军事顾问Mohsen Rezaei对媒体表示，特朗普与哈梅内伊不会进行会晤。 Rezaei表示，和平协议能否达成取决于美国是否同意解冻240亿美元伊朗被冻结资产。 据媒体报道，Rezaei称：“球现在在特朗普那边。” 媒体称，当被问及哈梅内伊的健康状况及其在伊朗决策中的角色时，Rezaei未作回应。责任编辑：江学思
 
 ## 正文
 
-中新社马尼拉5月5日电 (记者 张兴龙)菲律宾民防办公室5日通报，马荣火山持续活动引发多次火山碎屑密度流并伴随大量火山灰扩散，已导致周边地区近20万人受灾。
+伊朗最高领袖哈梅内伊的军事顾问Mohsen Rezaei对媒体表示，特朗普与哈梅内伊不会进行会晤。
 
-菲律宾火山地震研究所5日通报称，当天7时19分至7时26分，马荣火山西南坡再次发生由熔岩流坍塌引发的火山碎屑密度流。
+Rezaei表示，和平协议能否达成取决于美国是否同意解冻240亿美元伊朗被冻结资产。
 
-过去24小时，该所还在马荣火山录得14次火山地震和336次落石事件。
+据媒体报道，Rezaei称：“球现在在特朗普那边。
 
-目前，马荣火山维持3级警戒状态。
+” 媒体称，当被问及哈梅内伊的健康状况及其在伊朗决策中的角色时，Rezaei未作回应。
 
-菲火山地震研究所将火山警戒级别分为0级至5级，其中0级表示“无警戒”，5级意味着“火山正在喷发”。
-
-菲民防办公室表示，截至5日，马荣火山周边已有124个村庄受到影响，5459人被转移至临时避难场所。
-
-菲火山地震研究所还警告民众不要进入以火山口为中心、半径6公里的永久危险区，并提醒航空部门避免飞机靠近火山口上空。
-
-马荣火山位于菲律宾阿尔拜省，海拔约2460米，是菲最活跃的火山之一。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-30 03:37 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-30 03:45 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-30 03:47 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-30 03:20 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-30 03:24 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 03:44 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 03:18 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-30 03:30 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-30 03:37 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-30 03:23 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-30 03:30 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-30 03:41 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-30 03:35 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-30 03:34 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 03:41 - [张凌赫 客串](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 03:49 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-30 03:31 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 03:29 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-30 03:24 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-30 03:49 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 03:40 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-30 03:39 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-30 03:26 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:35 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/479548.shtml)
-- 2026-06-30 03:46 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/0464905.shtml)
-- 2026-06-30 03:29 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/9683762.shtml)
-- 2026-06-30 03:29 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/077037512.shtml)
-- 2026-06-30 03:19 - [明星大侦探第一季](https://www.share.minike.top/Article/details/088308.shtml)
-- 2026-06-30 03:32 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/524706943.shtml)
-- 2026-06-30 03:34 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/892665766.shtml)
-- 2026-06-30 03:20 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/681886106.shtml)
-- 2026-06-30 03:37 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/29527347829.shtml)
-- 2026-06-30 03:35 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/94532.shtml)
-- 2026-06-30 03:42 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/7637372098.shtml)
-- 2026-06-30 03:20 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/222211107564.shtml)
-- 2026-06-30 03:32 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/66865791087.shtml)
-- 2026-06-30 03:24 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/9846982.shtml)
-- 2026-06-30 03:22 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/25397373152.shtml)
+- 2026-06-30 03:50 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/744506553807.shtml)
+- 2026-06-30 03:29 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/571109424.shtml)
+- 2026-06-30 03:49 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/140795018.shtml)
+- 2026-06-30 03:31 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/637276047097.shtml)
+- 2026-06-30 03:26 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/604436596162.shtml)
+- 2026-06-30 03:50 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/873853312089.shtml)
+- 2026-06-30 03:46 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/903913169627.shtml)
+- 2026-06-30 03:47 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/279691.shtml)
+- 2026-06-30 03:39 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/279916.shtml)
+- 2026-06-30 03:30 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/8372906432.shtml)
+- 2026-06-30 03:39 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/60954903.shtml)
+- 2026-06-30 03:30 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/002496034.shtml)
+- 2026-06-30 03:53 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/5110670834.shtml)
+- 2026-06-30 03:39 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/66231758.shtml)
+- 2026-06-30 03:50 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/852616.shtml)

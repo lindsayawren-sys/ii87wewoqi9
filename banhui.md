@@ -1,59 +1,48 @@
-# 国际人士：警惕日本军国主义死灰复燃
+# 菲律宾棉兰老岛海域发生7.9级强震 对当地镍矿整体影响相对有限
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-5月3日是东京审判开庭纪念日。多国人士呼吁日本正视东京审判的历史正义，彻底反省历史罪责，停止在激进右倾化道路上狂飙。 阿根廷政治学家 国际问题分析师 阿蒂利奥·博隆：东京审判80周年是值得世界铭记的日子。但是我作为国际观察家，看到日本正在逐渐背离二战后确立的和平宪法。日本军国主义死灰复燃，对于整个东亚是一个极坏的消息，因为日本政府内部还存在着根深蒂固的帝国扩张传统，并带有强烈的
+上海有色网 周一早间（6月8日），菲律宾南部棉兰老岛海域发生7.9级强烈地震并引发区域海啸预警。SMM第一时间调研显示，此次地震对该国镍矿供应的整体影响有限。尽管受海啸警报影响，局部受灾区域内个别镍矿企业已暂时停止了发往印尼的货物装载作业，但由于本次震源深度较深，且海啸波主要面向印尼方向，其他绝大多数矿区均反馈震感轻微、暂无影响，目前整体矿区生产及日常运营维持正常。责任编辑：李
 
 ## 正文
 
-5月3日是东京审判开庭纪念日。
+上海有色网 周一早间（6月8日），菲律宾南部棉兰老岛海域发生7.9级强烈地震并引发区域海啸预警。
 
-多国人士呼吁日本正视东京审判的历史正义，彻底反省历史罪责，停止在激进右倾化道路上狂飙。
+SMM第一时间调研显示，此次地震对该国镍矿供应的整体影响有限。
 
-阿根廷政治学家 国际问题分析师 阿蒂利奥·博隆：东京审判80周年是值得世界铭记的日子。
+尽管受海啸警报影响，局部受灾区域内个别镍矿企业已暂时停止了发往印尼的货物装载作业，但由于本次震源深度较深，且海啸波主要面向印尼方向，其他绝大多数矿区均反馈震感轻微、暂无影响，目前整体矿区生产及日常运营维持正常。
 
-但是我作为国际观察家，看到日本正在逐渐背离二战后确立的和平宪法。
-
-日本军国主义死灰复燃，对于整个东亚是一个极坏的消息，因为日本政府内部还存在着根深蒂固的帝国扩张传统，并带有强烈的种族主义色彩。
-
-他们一贯想利用军事力量对外扩张，而这一切引发国际社会的强烈批评，极大不满和深切担忧。
-
-智利圣地亚哥大学高等研究学院学者 费尔南多·埃斯登索罗：东京审判是国际秩序发展进程中的一个进步，旨在避免重复20世纪上半叶的战争罪行。
-
-中国作为安理会常任理事国，是击败日本军国主义及轴心国集团的关键大国之一。
+责任编辑：李铁民
 
 ## 相关推荐
 
-- 2026-06-30 03:35 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-30 03:19 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-30 03:37 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-30 03:44 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-30 03:23 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-30 03:28 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-30 03:40 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-30 03:42 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-30 03:36 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-30 03:43 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-30 03:23 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-30 03:45 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 03:19 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-30 03:41 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-30 03:40 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-30 03:35 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-30 03:34 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 03:30 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-30 03:44 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-30 03:53 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 03:24 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-30 03:42 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-30 03:30 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:29 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/0326509535.shtml)
-- 2026-06-30 03:25 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/649929.shtml)
-- 2026-06-30 03:41 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/82183506205.shtml)
-- 2026-06-30 03:28 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/3640138.shtml)
-- 2026-06-30 03:29 - [斛珠夫人](https://www.blog.minike.top/Article/details/159547.shtml)
-- 2026-06-30 03:23 - [爱很美味](http://www.share.minike.top/Article/details/254323688.shtml)
-- 2026-06-30 03:43 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/123211.shtml)
-- 2026-06-30 03:38 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/84577.shtml)
-- 2026-06-30 03:38 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/81104414.shtml)
-- 2026-06-30 03:37 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/59498668.shtml)
-- 2026-06-30 03:28 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/29455382.shtml)
-- 2026-06-30 03:27 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/577454101.shtml)
-- 2026-06-30 03:18 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/18423226.shtml)
-- 2026-06-30 03:33 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/571484696.shtml)
-- 2026-06-30 03:20 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/8053625188.shtml)
+- 2026-06-30 03:37 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/63991586.shtml)
+- 2026-06-30 03:41 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/68562675010.shtml)
+- 2026-06-30 03:42 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/230117477878.shtml)
+- 2026-06-30 03:25 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/703551588.shtml)
+- 2026-06-30 03:29 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/3955559.shtml)
+- 2026-06-30 03:34 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.kurohicncr.top/Article/details/807873560.shtml)
+- 2026-06-30 03:26 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/5178752.shtml)
+- 2026-06-30 03:30 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/612886788.shtml)
+- 2026-06-30 03:30 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/53195075.shtml)
+- 2026-06-30 03:39 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/82516519749.shtml)
+- 2026-06-30 03:24 - [法媒点赞分享中国小区降温方案](https://www.blog.kurohicncr.top/Article/details/22116713.shtml)
+- 2026-06-30 03:24 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/090091.shtml)
+- 2026-06-30 03:41 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/87504001.shtml)
+- 2026-06-30 03:34 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/0317616980.shtml)
+- 2026-06-30 03:37 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/52057.shtml)

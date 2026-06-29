@@ -1,61 +1,59 @@
-# “反省战争是其出发点” 日本各界呼吁守护和平宪法
+# 东西问·古典学｜德国汉学家叶翰：当今世界为何仍需研读经典？
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-针对日本首相高市早苗3日再度鼓噪修宪，日本舆论和多个在野党当天表达对修宪的担忧，呼吁守护宪法第九条。 日媒：反省战争才是日本宪法的出发点 日本《琉球新报》3日发表题为《宪法施行79年 反省战争是其出发点》的社论。文章指出，对于战争行为的反省是日本宪法的出发点，规定“放弃战争”的宪法第九条则是具体的体现。不过，目前掏空宪法和平条款的动向早已在推进，包括容许行使集体自卫权、拥有所谓
+中新社柏林6月7日电 题：德国汉学家叶翰：当今世界为何仍需研读经典？ 中新社记者 马秀秀 以“古今对话：古典智慧的现代启示”为主题的第二届世界古典学大会将于9日至10日在希腊雅典举办。 如何理解“世界古典学”中的“世界”？古典智慧对当今世界最重要的现实启示是什么？人工智能能否真正“理解”经典？围绕以上话题，德国慕尼黑大学前副校长、汉学研究所所长叶翰(Hans van Ess)教
 
 ## 正文
 
-针对日本首相高市早苗3日再度鼓噪修宪，日本舆论和多个在野党当天表达对修宪的担忧，呼吁守护宪法第九条。
+中新社柏林6月7日电 题：德国汉学家叶翰：当今世界为何仍需研读经典？
 
-日媒：反省战争才是日本宪法的出发点 日本《琉球新报》3日发表题为《宪法施行79年 反省战争是其出发点》的社论。
+中新社记者 马秀秀 以“古今对话：古典智慧的现代启示”为主题的第二届世界古典学大会将于9日至10日在希腊雅典举办。
 
-文章指出，对于战争行为的反省是日本宪法的出发点，规定“放弃战争”的宪法第九条则是具体的体现。
+如何理解“世界古典学”中的“世界”？
 
-不过，目前掏空宪法和平条款的动向早已在推进，包括容许行使集体自卫权、拥有所谓“对敌基地攻击能力”、解禁武器出口等。
+古典智慧对当今世界最重要的现实启示是什么？
 
-修宪可以说就是要把日本打造成一个可以发动战争的国家。
+人工智能能否真正“理解”经典？
 
-多个在野党发声 表示将守护宪法第九条3日，多个在野党纷纷发表声明和谈话，表达守护宪法第九条的意愿。
+围绕以上话题，德国慕尼黑大学前副校长、汉学研究所所长叶翰(Hans van Ess)教授就此接受中新社“东西问”专访。
 
-日本共产党表示，若将自卫队写入宪法第九条，“最后的约束”将被打破，日本将发生重大转变，走向战争国家。
+现将访谈实录摘要如下： 中新社记者：您如何理解“世界古典学”中的“世界”？
 
-日本社民党表示，该党将坚守宪法第九条，将自卫队写入宪法第九条等修宪议题被提上政治议程，一些政党附和这一动向，令人遗憾。
+叶翰：我所理解的“世界古典学”中的“世界”，确实是指整个世界。
 
 ## 相关推荐
 
-- 2026-06-30 03:21 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 03:20 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-30 03:32 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-30 03:28 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-30 03:33 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-30 03:34 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-30 03:38 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-30 03:43 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-30 03:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-30 03:36 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-30 03:42 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-30 03:23 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 03:18 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-30 03:20 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-30 03:38 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-30 03:46 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 03:24 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 03:37 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-30 03:29 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-30 03:33 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 03:35 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-30 03:53 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-30 03:31 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-30 03:46 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-30 03:25 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-30 03:36 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 03:44 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-30 03:34 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:46 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/370930215447.shtml)
-- 2026-06-30 03:29 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/702272.shtml)
-- 2026-06-30 03:29 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/4491999.shtml)
-- 2026-06-30 03:29 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/03900232.shtml)
-- 2026-06-30 03:45 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/62691.shtml)
-- 2026-06-30 03:35 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/91003484056.shtml)
-- 2026-06-30 03:42 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/6617671688.shtml)
-- 2026-06-30 03:37 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/08775.shtml)
-- 2026-06-30 03:32 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/33464322.shtml)
-- 2026-06-30 03:26 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/8853946.shtml)
-- 2026-06-30 03:39 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/9241690.shtml)
-- 2026-06-30 03:30 - [美人鱼](http://www.share.kurohicncr.top/Article/details/2767112.shtml)
-- 2026-06-30 03:18 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/570551210113.shtml)
-- 2026-06-30 03:36 - [巴西补时绝杀日本](https://www.share.kurohicncr.top/Article/details/47280792.shtml)
-- 2026-06-30 03:27 - [明星大侦探第四季](http://www.share.minike.top/Article/details/039387.shtml)
+- 2026-06-30 03:31 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/002764984.shtml)
+- 2026-06-30 03:32 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/236301911.shtml)
+- 2026-06-30 03:26 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/54261373.shtml)
+- 2026-06-30 03:45 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/039339025153.shtml)
+- 2026-06-30 03:45 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/364342621654.shtml)
+- 2026-06-30 03:24 - [急先锋](https://www.share.minike.top/Article/details/51413657591.shtml)
+- 2026-06-30 03:49 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/77029.shtml)
+- 2026-06-30 03:32 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/4673512279.shtml)
+- 2026-06-30 03:28 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/74725.shtml)
+- 2026-06-30 03:31 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/983677757.shtml)
+- 2026-06-30 03:47 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/5257542948.shtml)
+- 2026-06-30 03:42 - [时光音乐会](http://www.blog.minike.top/Article/details/30169.shtml)
+- 2026-06-30 03:33 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/104617730.shtml)
+- 2026-06-30 03:31 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/014173.shtml)
+- 2026-06-30 03:51 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/28419374029.shtml)

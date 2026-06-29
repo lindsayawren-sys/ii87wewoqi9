@@ -1,60 +1,59 @@
-# 两连胜！中国队提前锁定U17女足亚洲杯八强席位
+# 重庆20.9万学子参与2026年全国高考 各方全力保驾护航
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-2026亚足联U17女足亚洲杯4日在江苏苏州继续进行，中国队3:0击败越南队，取得小组两连胜的同时，提前一轮锁定一个八强席位。 本届U17女足亚洲杯12支参赛队伍分为三个小组进行单循环比赛，小组前两名和两个成绩最好的第三名晋级淘汰赛。中国队与缅甸队、越南队和泰国队同在A组，首战中国队6:0大胜缅甸队。 4日对阵越南队，实力明显更胜一筹的中国队全面压制对手，越南队全场没能获得一次
+中新网重庆6月7日电 (记者 钟旖)2026年全国普通高校招生统一考试7日拉开帷幕。记者从重庆市教育考试院获悉，2026年重庆市普通高校招生考试报名总数34.8万人，除高职分类考试招生、保送生等已录取考生和体育单招等不参加统一高考的考生外，重庆全市应参加统一高考的考生为20.9万人。 目前，重庆全市共设考区39个、考点112个、考场7075个。 据了解，重庆市教育系统及招考战线
 
 ## 正文
 
-2026亚足联U17女足亚洲杯4日在江苏苏州继续进行，中国队3:0击败越南队，取得小组两连胜的同时，提前一轮锁定一个八强席位。
+中新网重庆6月7日电 (记者 钟旖)2026年全国普通高校招生统一考试7日拉开帷幕。
 
-本届U17女足亚洲杯12支参赛队伍分为三个小组进行单循环比赛，小组前两名和两个成绩最好的第三名晋级淘汰赛。
+记者从重庆市教育考试院获悉，2026年重庆市普通高校招生考试报名总数34.8万人，除高职分类考试招生、保送生等已录取考生和体育单招等不参加统一高考的考生外，重庆全市应参加统一高考的考生为20.9万人。
 
-中国队与缅甸队、越南队和泰国队同在A组，首战中国队6:0大胜缅甸队。
+目前，重庆全市共设考区39个、考点112个、考场7075个。
 
-4日对阵越南队，实力明显更胜一筹的中国队全面压制对手，越南队全场没能获得一次射门机会，中国队持续围攻对方球门，终于在第15分钟打破僵局，鞠芷桐头球破门。
+据了解，重庆市教育系统及招考战线会同宣传、网信、保密、公安、经济信息、卫生健康、市场监管、生态环境、通信、电力等近30个部门和单位，着力多方面保障，确保高考平稳顺利。
 
-第31分钟，中国队吴逸晨左路下底传中，鞠芷桐门前抢点打进个人本场第二球，中国队半场2:0领先。
+强化安全保障方面，重庆集中开展净化涉考网络环境、打击销售作弊器材、净化考点周边环境等专项行动，综合治理考试环境。
 
-易边再战，刚刚替补登场的成宛迪在第48分钟头球破门，这也是她连续两场比赛替补得分。
+每日发布天气、洪水等预警信息，确保妥善应对极端天气等突发情况。
 
-第82分钟黄沁怡险些扩大分差，她突入禁区后推射远角，皮球击中立柱。
+认真检修输电设施设备，保障电力供应。
 
-最终中国队3:0击败对手，取得小组两连胜。
+强化送考交通安全、考生集中食宿安全。
 
 ## 相关推荐
 
-- 2026-06-30 03:39 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-30 03:25 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-30 03:39 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 03:32 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-30 03:24 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-30 03:20 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-30 03:46 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-30 03:33 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-30 03:42 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-30 03:43 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-30 03:37 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-30 03:31 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-30 03:28 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 03:35 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 03:27 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-30 03:25 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-30 03:29 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-30 03:50 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-30 03:43 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 03:24 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 03:29 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-30 03:53 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-30 03:43 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-30 03:28 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-30 03:30 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-30 03:42 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-30 03:31 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:21 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/457834787112.shtml)
-- 2026-06-30 03:33 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/7083278678.shtml)
-- 2026-06-30 03:20 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/276559.shtml)
-- 2026-06-30 03:37 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/4132700.shtml)
-- 2026-06-30 03:19 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/37010.shtml)
-- 2026-06-30 03:37 - [月亮](http://www.share.kurohicncr.top/Article/details/631814.shtml)
-- 2026-06-30 03:46 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/3908535.shtml)
-- 2026-06-30 03:19 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/035523.shtml)
-- 2026-06-30 03:20 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/88211802354.shtml)
-- 2026-06-30 03:40 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/25472.shtml)
-- 2026-06-30 03:25 - [巴西2-1绝杀日本](http://www.share.minike.top/Article/details/26781258.shtml)
-- 2026-06-30 03:35 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/140518.shtml)
-- 2026-06-30 03:37 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/0881976187.shtml)
-- 2026-06-30 03:30 - [我们的少年时代2](http://www.share.minike.top/Article/details/582368438.shtml)
-- 2026-06-30 03:24 - [足球“出口导向”造就佛得角奇迹](http://www.share.minike.top/Article/details/80317062.shtml)
+- 2026-06-30 03:41 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/0029235239.shtml)
+- 2026-06-30 03:37 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/26946585.shtml)
+- 2026-06-30 03:31 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.kurohicncr.top/Article/details/80379.shtml)
+- 2026-06-30 03:47 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/305606400002.shtml)
+- 2026-06-30 03:25 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/65585.shtml)
+- 2026-06-30 03:24 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/3216465311.shtml)
+- 2026-06-30 03:25 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/29339246530.shtml)
+- 2026-06-30 03:29 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/587696711.shtml)
+- 2026-06-30 03:44 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/1811416.shtml)
+- 2026-06-30 03:53 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/0169013114.shtml)
+- 2026-06-30 03:42 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/02476.shtml)
+- 2026-06-30 03:51 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/54847788.shtml)
+- 2026-06-30 03:38 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/20280051692.shtml)
+- 2026-06-30 03:42 - [孙兴慜道歉](http://www.share.minike.top/Article/details/624430561059.shtml)
+- 2026-06-30 03:24 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/4578535520.shtml)

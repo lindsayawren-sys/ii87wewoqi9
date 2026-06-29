@@ -1,57 +1,56 @@
-# 四大互联网券商日赚超4500万元 合规成竞争新变量
+# 遇事不决问AI？治理“AI污染”要防管结合
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨刘夏菲 编辑丨姜诗蔷 巫燕玲 随着2026年一季度财报季收官，东方财富、同花顺、指南针、大智慧四大互联网券商的成绩单悉数揭晓。 受益于一季度A股市场交投活跃，互联网券商四强营收普增，但利润端冷暖殊途：东方财富继续领跑，同花顺利润翻番，指南针“增收不增利”，大智慧则由盈转亏。 而放眼行业生态，随着流量与
+治理“AI污染”要防管结合(创新谈) 随着AI(人工智能)深度融入千家万户，“遇事不决问AI”成了许多人的选择，但AI回答未必都是“干净”的。不久前，有媒体曝光“AI投毒”隐蔽产业链现象，引发社会广泛关注。 所谓“AI投毒”，是向人工智能大模型的训练数据中，掺入伪装成正常样本的恶意数据或虚假信息，进而影响模型判断、操纵输出结果。“投毒者”可以批量制造虚假网页、新闻，让AI在抓取
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+治理“AI污染”要防管结合(创新谈) 随着AI(人工智能)深度融入千家万户，“遇事不决问AI”成了许多人的选择，但AI回答未必都是“干净”的。
 
-记者丨刘夏菲 编辑丨姜诗蔷 巫燕玲 随着2026年一季度财报季收官，东方财富、同花顺、指南针、大智慧四大互联网券商的成绩单悉数揭晓。
+不久前，有媒体曝光“AI投毒”隐蔽产业链现象，引发社会广泛关注。
 
-受益于一季度A股市场交投活跃，互联网券商四强营收普增，但利润端冷暖殊途：东方财富继续领跑，同花顺利润翻番，指南针“增收不增利”，大智慧则由盈转亏。
+所谓“AI投毒”，是向人工智能大模型的训练数据中，掺入伪装成正常样本的恶意数据或虚假信息，进而影响模型判断、操纵输出结果。
 
-而放眼行业生态，随着流量与技术竞争日趋激烈，合规约束正成为竞争新变量。
+“投毒者”可以批量制造虚假网页、新闻，让AI在抓取数据时一并“吞下”，在不知不觉中“学歪”，最终固化为针对特定问题的“标准答案”；也可以在模型中植入隐蔽的后门指令，一旦触发特定关键词就输出预设信息。
 
-同花顺净利大增超110% 大智慧由盈转亏 从营收表现来看，一季度市场交投活跃，四家互联网券商营收普增，但在营收规模和增速上出现分化。
+信任是链接人与人工智能的重要前提。
 
-东方财富继续发挥规模优势，一季度以50.31亿元的营业总收入遥遥领先，相当于其余三家营收总和的约2.6倍；同花顺以10.53亿元的营收规模稳居第二；指南针（7.10亿元）、大智慧（1.81亿元）分列第三、四位。
+对个人而言，这种“看不见的污染”轻则影响体验，重则误导决策。
 
-营收增速方面，东方财富（+44.34%）、同花顺（+40.81%）、指南针（+30.96%）均实现超过三成的同比增长，而大智慧增幅仅为9.88%，相对落后。
+比如AI推荐购物，它可能引导你购买被包装出来的“爆款”；向AI咨询医疗建议，它可能引用虚假病例，给出危险的治疗方案……在医疗、金融等关键领域，这种风险尤其值得警惕。
 
-利润表现的分化则比营收更加明显。
+对产业而言，如果“数据不可信”成为普遍担忧，企业之间的合作意愿就会下降，行业的创新效率也会受到影响。
 
 ## 相关推荐
 
-- 2026-06-30 03:32 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 03:42 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-30 03:41 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-30 03:23 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-30 03:30 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-30 03:38 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-30 03:40 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-30 03:35 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-30 03:25 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-30 03:27 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-30 03:30 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-30 03:35 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-30 03:40 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-30 03:24 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 03:48 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-30 03:45 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-30 03:31 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-30 03:29 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 03:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 03:40 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-30 03:40 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:32 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/135386824204.shtml)
-- 2026-06-30 03:21 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/319238665.shtml)
-- 2026-06-30 03:32 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/4052444.shtml)
-- 2026-06-30 03:22 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/489114537112.shtml)
-- 2026-06-30 03:20 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/1190128656.shtml)
-- 2026-06-30 03:43 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/3172369.shtml)
-- 2026-06-30 03:25 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/633359900325.shtml)
-- 2026-06-30 03:24 - [日本 高位逼抢](http://www.blog.kurohicncr.top/Article/details/44517703.shtml)
-- 2026-06-30 03:40 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/61408.shtml)
-- 2026-06-30 03:34 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/7238957985.shtml)
-- 2026-06-30 03:25 - [张凌赫 客串](http://www.blog.minike.top/Article/details/061559096.shtml)
-- 2026-06-30 03:21 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/503295.shtml)
-- 2026-06-30 03:44 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/551838.shtml)
-- 2026-06-30 03:37 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/4003560.shtml)
-- 2026-06-30 03:34 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/18648255697.shtml)
+- 2026-06-30 03:47 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/04192084153.shtml)
+- 2026-06-30 03:49 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.minike.top/Article/details/489316508.shtml)
+- 2026-06-30 03:53 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/8695613852.shtml)
+- 2026-06-30 03:43 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/867022209.shtml)
+- 2026-06-30 03:52 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/50814.shtml)
+- 2026-06-30 03:43 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/071531786366.shtml)
+- 2026-06-30 03:40 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/66925556.shtml)
+- 2026-06-30 03:41 - [第一炉香](https://www.share.kurohicncr.top/Article/details/682771073.shtml)
+- 2026-06-30 03:41 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/9163308.shtml)
+- 2026-06-30 03:52 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/539898242.shtml)
+- 2026-06-30 03:45 - [法媒点赞分享中国小区降温方案](http://www.blog.minike.top/Article/details/9318422.shtml)
+- 2026-06-30 03:33 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/3066809.shtml)
+- 2026-06-30 03:26 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/21930961.shtml)
+- 2026-06-30 03:39 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/386239.shtml)
+- 2026-06-30 03:40 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/008561851.shtml)

@@ -1,55 +1,59 @@
-# 哥伦比亚发生车辆表演事故致3人死亡近40人受伤
+# VisionWave以1750万美元收购Foresight控股权，加码国防AI感知技术
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-中新社北京5月4日电 波哥大消息：当地时间5月3日，哥伦比亚西部考卡省首府波帕扬市发生一起车辆表演事故，一辆正在表演的卡车突然失控冲撞观众，造成至少3人死亡、近40人受伤。 综合英国广播公司等媒体消息，事发时一辆巨型卡车在表演跳跃障碍物后突然失去控制冲破护栏，并直接冲向观众区域，最终撞上一根电线杆后停下。事故造成一名未成年人当场死亡，另有两人送医后不治身亡。此外，还有约40人受
+VisionWave Holdings与Foresight Autonomous Holdings于6月3日签署了一项最终证券交换协议，VisionWave将以最高1750万美元的股票收购Foresight的控股权。根据协议条款，这笔交易对Foresight的投后估值约为3400万美元。 该交易将分两个阶段进行。第一阶段，VisionWave将以价值约1548万美元的普通股换取
 
 ## 正文
 
-中新社北京5月4日电 波哥大消息：当地时间5月3日，哥伦比亚西部考卡省首府波帕扬市发生一起车辆表演事故，一辆正在表演的卡车突然失控冲撞观众，造成至少3人死亡、近40人受伤。
+VisionWave Holdings与Foresight Autonomous Holdings于6月3日签署了一项最终证券交换协议，VisionWave将以最高1750万美元的股票收购Foresight的控股权。
 
-综合英国广播公司等媒体消息，事发时一辆巨型卡车在表演跳跃障碍物后突然失去控制冲破护栏，并直接冲向观众区域，最终撞上一根电线杆后停下。
+根据协议条款，这笔交易对Foresight的投后估值约为3400万美元。
 
-事故造成一名未成年人当场死亡，另有两人送医后不治身亡。
+该交易将分两个阶段进行。
 
-此外，还有约40人受伤，伤者随后被送至波帕扬市多家医疗机构接受救治。
+第一阶段，VisionWave将以价值约1548万美元的普通股换取Foresight已发行普通股的46%。
 
-波帕扬市警察局局长胡利安·卡斯塔涅达(Julián Castañeda)透露，初步调查显示，涉事卡车存在机械故障，且刹车可能存在问题，导致车辆在加速后无法刹车。
+第二阶段，在达成特定商业里程碑，即启动利用集成感知平台的约束性试点项目后，VisionWave将以价值约202万美元的股票再收购6%的股权。
 
-波帕扬市市长胡安·卡洛斯·穆尼奥斯·布拉沃(Juan Carlos Muñoz Bravo)表示，有关部门将就事故原因展开调查。
+两阶段完成后，VisionWave将合计持有Foresight 52%的控股权，并获得最多三个董事会席位。
 
-(完)
+此次战略合作的核心在于技术整合。
+
+Foresight的高分辨率可见光、红外及神经形态传感器技术将与VisionWave的人工智能和射频感知系统相结合，共同开发面向国防与安全市场的智能实时感知解决方案。
 
 ## 相关推荐
 
-- 2026-06-30 03:26 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-30 03:39 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-30 03:40 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-30 03:34 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-30 03:20 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-30 03:30 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-30 03:39 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-30 03:44 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-30 03:29 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-30 03:18 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-30 03:26 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 03:27 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-30 03:24 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-30 03:37 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 03:40 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-30 03:46 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 03:51 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-30 03:42 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-30 03:25 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-30 03:36 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-30 03:45 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-30 03:40 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-30 03:31 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-30 03:29 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:25 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/72769.shtml)
-- 2026-06-30 03:35 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/691806.shtml)
-- 2026-06-30 03:34 - [流金岁月](http://www.blog.minike.top/Article/details/50495508405.shtml)
-- 2026-06-30 03:19 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/6181517.shtml)
-- 2026-06-30 03:44 - [极限挑战第一季](http://www.share.minike.top/Article/details/791438709490.shtml)
-- 2026-06-30 03:41 - [普京间接喊话特朗普有何考量](https://www.share.kurohicncr.top/Article/details/589620440009.shtml)
-- 2026-06-30 03:24 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/07514.shtml)
-- 2026-06-30 03:39 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/09068.shtml)
-- 2026-06-30 03:43 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/145611129.shtml)
-- 2026-06-30 03:33 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/822208883093.shtml)
-- 2026-06-30 03:34 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.minike.top/Article/details/498911951508.shtml)
-- 2026-06-30 03:20 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/26519.shtml)
-- 2026-06-30 03:33 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/1562930.shtml)
-- 2026-06-30 03:38 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/6632238.shtml)
-- 2026-06-30 03:45 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/817960102.shtml)
+- 2026-06-30 03:31 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/14589862.shtml)
+- 2026-06-30 03:40 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/83992.shtml)
+- 2026-06-30 03:24 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/6976804.shtml)
+- 2026-06-30 03:41 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/402306.shtml)
+- 2026-06-30 03:41 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/32640403.shtml)
+- 2026-06-30 03:35 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/2924836.shtml)
+- 2026-06-30 03:39 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/1472731.shtml)
+- 2026-06-30 03:31 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/40559.shtml)
+- 2026-06-30 03:43 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/239812511.shtml)
+- 2026-06-30 03:35 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/41052.shtml)
+- 2026-06-30 03:45 - [日本16强魔咒](http://www.share.minike.top/Article/details/793905006840.shtml)
+- 2026-06-30 03:46 - [沉睡花园](https://www.blog.minike.top/Article/details/241152862009.shtml)
+- 2026-06-30 03:40 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/4857030.shtml)
+- 2026-06-30 03:49 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/7702822915.shtml)
+- 2026-06-30 03:42 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/510076207701.shtml)

@@ -1,58 +1,42 @@
-# 铜价高烧与价格战夹击，格力去年营收净利双降近10％，2026空调“内卷”向何方
+# 苏拉威西海发生6.6级地震 震源深度60千米
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！华夏时报记者 卢晓 北京报道 持续上涨的铜价和激烈的价格战，在2025年给予空调行业双重夹击，行业龙头格力电器（下称“格力”）也未能幸免。 4月28日晚间，格力交出了一份营收和归母净利润双双同比下降近10%的2025年成绩单。但有意思的是，格力股价在次日却以上涨5.28%收尾，4月30日格力股价微降1.05
+中新网6月8日电 中国地震台网正式测定：06月08日08时55分在苏拉威西海(北纬5.45度，东经125.30度)发生6.6级地震，震源深度60千米。
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
-
-华夏时报记者 卢晓 北京报道 持续上涨的铜价和激烈的价格战，在2025年给予空调行业双重夹击，行业龙头格力电器（下称“格力”）也未能幸免。
-
-4月28日晚间，格力交出了一份营收和归母净利润双双同比下降近10%的2025年成绩单。
-
-但有意思的是，格力股价在次日却以上涨5.28%收尾，4月30日格力股价微降1.05%至40.05元。
-
-资本市场的“波澜不惊”，一定程度上源于格力也及时抛出了慷慨的回购和分红方案，新出炉的今年一季报也显示出它已重回增长轨道。
-
-但此前格力与海信之间的“铜铝之争”已经释放出明显信号：空调市场今年的日子也不会太好过。
-
-双重夹击利润承压 格力一直是空调行业乃至整个白电企业的盈利标杆。
-
-但2025年它也没能扛住压力。
+中新网6月8日电 中国地震台网正式测定：06月08日08时55分在苏拉威西海(北纬5.45度，东经125.30度)发生6.6级地震，震源深度60千米。
 
 ## 相关推荐
 
-- 2026-06-30 03:26 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-30 03:18 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-30 03:42 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 03:19 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-30 03:29 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-30 03:36 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-30 03:41 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-30 03:22 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-30 03:34 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-30 03:35 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-30 03:29 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-30 03:19 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-30 03:43 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-30 03:25 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-30 03:34 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-30 03:45 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-30 03:51 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-30 03:36 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-30 03:45 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-30 03:32 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-30 03:39 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-30 03:44 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:24 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/648822.shtml)
-- 2026-06-30 03:47 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/4019499.shtml)
-- 2026-06-30 03:45 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/14636187209.shtml)
-- 2026-06-30 03:34 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/02633609.shtml)
-- 2026-06-30 03:29 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/9272007.shtml)
-- 2026-06-30 03:30 - [王楚钦谈表演球](http://www.share.kurohicncr.top/Article/details/4345535.shtml)
-- 2026-06-30 03:19 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/52596506.shtml)
-- 2026-06-30 03:40 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/38764663626.shtml)
-- 2026-06-30 03:25 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/6816564106.shtml)
-- 2026-06-30 03:43 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/6385938874.shtml)
-- 2026-06-30 03:19 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/56951586.shtml)
-- 2026-06-30 03:40 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/279297.shtml)
-- 2026-06-30 03:30 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/75348091.shtml)
-- 2026-06-30 03:41 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/81291.shtml)
-- 2026-06-30 03:42 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/01399256364.shtml)
+- 2026-06-30 03:46 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/27627071318.shtml)
+- 2026-06-30 03:25 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/361484066678.shtml)
+- 2026-06-30 03:51 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/02764714958.shtml)
+- 2026-06-30 03:48 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/0034741.shtml)
+- 2026-06-30 03:52 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/874360637066.shtml)
+- 2026-06-30 03:50 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/77089.shtml)
+- 2026-06-30 03:41 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/020720.shtml)
+- 2026-06-30 03:44 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/58897557983.shtml)
+- 2026-06-30 03:31 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/40284.shtml)
+- 2026-06-30 03:26 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/398391378.shtml)
+- 2026-06-30 03:40 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/2881313.shtml)
+- 2026-06-30 03:29 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/34114.shtml)
+- 2026-06-30 03:25 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/19875563083.shtml)
+- 2026-06-30 03:28 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/67923901.shtml)
+- 2026-06-30 03:33 - [内马尔替补](https://www.blog.minike.top/Article/details/433458528834.shtml)

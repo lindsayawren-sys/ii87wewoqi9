@@ -1,59 +1,58 @@
-# 美图公司早盘涨超16% 第一季度影像与设计收入同比增长34%
+# 各国“高考”怎么考？“世界最难的考试”来自这个国家
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-美图公司（01357）盘中涨超18%，截至发稿，股价上涨16.23%，现报4.87港元，成交额6.64亿港元。 5月6日早间，美图公司发布公告称，截至2026年3月，付费订阅用户数超过1790万，同比增长30.2%。其中，来自生产力应用的付费订阅用户数同比增长52.9%至234万，来自生活场景应用的付费订阅用户数同比增长27.4%至1556万。今年一季度，集团核心业务影像与设计
+中新网6月7日电(魏晨曦)2026年全国高考于6月7日正式拉开帷幕，全国1290万名考生走进考场，为人生的重要一战奋力拼搏。 高考是中国最重要的升学考试之一，事实上，不光在中国，在世界许多国家和地区，同样存在决定学生升学命运的重要考试。尽管名称不同、形式各异，但背后承载的竞争压力、家庭期待和社会关注却颇为相似。 为了这场考试，在有的国家，考前前往古庙祈福已成风景；还有的国家，考
 
 ## 正文
 
-美图公司（01357）盘中涨超18%，截至发稿，股价上涨16.23%，现报4.87港元，成交额6.64亿港元。
+中新网6月7日电(魏晨曦)2026年全国高考于6月7日正式拉开帷幕，全国1290万名考生走进考场，为人生的重要一战奋力拼搏。
 
-5月6日早间，美图公司发布公告称，截至2026年3月，付费订阅用户数超过1790万，同比增长30.2%。
+高考是中国最重要的升学考试之一，事实上，不光在中国，在世界许多国家和地区，同样存在决定学生升学命运的重要考试。
 
-其中，来自生产力应用的付费订阅用户数同比增长52.9%至234万，来自生活场景应用的付费订阅用户数同比增长27.4%至1556万。
+尽管名称不同、形式各异，但背后承载的竞争压力、家庭期待和社会关注却颇为相似。
 
-今年一季度，集团核心业务影像与设计产品的收入（未经审核）保持强劲增速，同比增长34.3%至人民币8.52亿元，其他业务整体保持稳定。
+为了这场考试，在有的国家，考前前往古庙祈福已成风景；还有的国家，考生要面对被称为“世界最难考试之一”的激烈竞争。
 
-就影像与设计产品而言，一季度生产力应用收入同比增长45.4%，占影像与设计产品收入约18%；生活场景应用收入同比增长35.5%，占影像与设计产品收入的 82。
+那么，各国的“高考”究竟怎么考？
 
-截至2026年3月，AI生产力应用ARR约为人民币5.8亿元，同比增长56.2%。
+日本：信息科正式进入“高考时代” 日本的“大学入学考试”全国统一命题，相当于日本版高考。
 
-责任编辑：卢昱君
+2026年是日本将信息学科正式纳入大学入学统一考试后的第二年。
+
+这一变化被视为日本教育改革的重要标志。
 
 ## 相关推荐
 
-- 2026-06-30 03:26 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-30 03:28 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-30 03:24 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-30 03:32 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-30 03:46 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 03:43 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-30 03:30 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 03:37 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-30 03:30 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-30 03:34 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-30 03:43 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-30 03:35 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-30 03:32 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-30 03:33 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-30 03:40 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-30 03:52 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-30 03:38 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-30 03:27 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-30 03:30 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-30 03:48 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-30 03:34 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 03:53 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 03:51 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-30 03:47 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-30 03:47 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-30 03:28 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 03:34 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:18 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/2557580279.shtml)
-- 2026-06-30 03:32 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/591351939.shtml)
-- 2026-06-30 03:26 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/5930531059.shtml)
-- 2026-06-30 03:33 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/58276.shtml)
-- 2026-06-30 03:42 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/52225.shtml)
-- 2026-06-30 03:42 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/34667.shtml)
-- 2026-06-30 03:27 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/504735845656.shtml)
-- 2026-06-30 03:34 - [这一刀 会很帅](http://www.share.minike.top/Article/details/338961113177.shtml)
-- 2026-06-30 03:20 - [急先锋](http://www.share.minike.top/Article/details/380235.shtml)
-- 2026-06-30 03:46 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/509248.shtml)
-- 2026-06-30 03:30 - [庆祝中国共产党成立105周年音乐会](http://www.blog.minike.top/Article/details/93472167343.shtml)
-- 2026-06-30 03:26 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/66457296967.shtml)
-- 2026-06-30 03:43 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/215579814.shtml)
-- 2026-06-30 03:23 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/7057642.shtml)
-- 2026-06-30 03:30 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/7502835.shtml)
+- 2026-06-30 03:41 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/298226613.shtml)
+- 2026-06-30 03:45 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/668805152.shtml)
+- 2026-06-30 03:40 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/09093644.shtml)
+- 2026-06-30 03:39 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/7114020.shtml)
+- 2026-06-30 03:36 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/73469.shtml)
+- 2026-06-30 03:53 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/29203704.shtml)
+- 2026-06-30 03:53 - [上半年全国特种设备安全形势总体平稳](http://www.blog.kurohicncr.top/Article/details/72634154692.shtml)
+- 2026-06-30 03:25 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/7848498.shtml)
+- 2026-06-30 03:46 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/7151716711.shtml)
+- 2026-06-30 03:34 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/67912248999.shtml)
+- 2026-06-30 03:47 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/9963121.shtml)
+- 2026-06-30 03:47 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/53341453702.shtml)
+- 2026-06-30 03:34 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/7320441.shtml)
+- 2026-06-30 03:51 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/27896.shtml)
+- 2026-06-30 03:25 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/631894552.shtml)

@@ -1,58 +1,60 @@
-# 媒体：两艘美国驱逐舰避开伊朗密集袭击后穿越霍尔木兹海峡
+# “爱达·地中海”号邮轮回归天津 京津冀游客出行再添新选择
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-据多名美国国防部官员透露，两艘美国海军驱逐舰在躲过伊朗的密集火力攻击后，穿越霍尔木兹海峡驶入波斯湾。 美方国防部官员表示，特鲁斯顿号与梅森号驱逐舰在阿帕奇直升机及其他军机支援掩护下，航行途中遭遇一系列协同式军事威胁。伊朗出动小型快艇、导弹及无人机对两艘军舰发动持续饱和式袭扰。 尽管袭击强度很高，两艘美军舰艇均未被击中。 军方官员称，依托空中支援配合防御作战手段，美方成功拦截并击
+中新网天津6月7日电 (记者 周亚强)记者从天津东疆边检站获悉，“爱达·地中海”号邮轮7日正式回归天津母港，天津国际邮轮母港至此同时拥有“爱达·地中海”号和“理想”号两艘母港运营邮轮，为京津冀游客出行增加了更多选择。 当日7时许，“爱达·地中海”号邮轮搭载近2400名旅客缓缓靠泊天津国际邮轮母港；15时许，邮轮又搭载近1000名旅客驶往韩国，开启六天五晚的邮轮之旅。据边检部门介
 
 ## 正文
 
-据多名美国国防部官员透露，两艘美国海军驱逐舰在躲过伊朗的密集火力攻击后，穿越霍尔木兹海峡驶入波斯湾。
+中新网天津6月7日电 (记者 周亚强)记者从天津东疆边检站获悉，“爱达·地中海”号邮轮7日正式回归天津母港，天津国际邮轮母港至此同时拥有“爱达·地中海”号和“理想”号两艘母港运营邮轮，为京津冀游客出行增加了更多选择。
 
-美方国防部官员表示，特鲁斯顿号与梅森号驱逐舰在阿帕奇直升机及其他军机支援掩护下，航行途中遭遇一系列协同式军事威胁。
+当日7时许，“爱达·地中海”号邮轮搭载近2400名旅客缓缓靠泊天津国际邮轮母港；15时许，邮轮又搭载近1000名旅客驶往韩国，开启六天五晚的邮轮之旅。
 
-伊朗出动小型快艇、导弹及无人机对两艘军舰发动持续饱和式袭扰。
+据边检部门介绍，今年6月至8月，天津邮轮口岸预计运行邮轮30余个航次，出入境旅客数量持续走高。
 
-尽管袭击强度很高，两艘美军舰艇均未被击中。
+为应对密集的船期和增大的客流，东疆边检站与邮轮公司、码头公司建立实时信息共享机制，提前做好信息预审和备案，精简现场查验流程，最大程度减少旅客现场等待时间，保障安全高效快速通关。
 
-军方官员称，依托空中支援配合防御作战手段，美方成功拦截并击退了所有来袭威胁，所有发射的弹药均未能击中军舰。
+该站还全面启用邮轮管控系统，以科技赋能通关服务，实现旅客“到港即下”，最大限度缩短入境时间。
 
-此次军舰通航发生在特朗普周日表态之后。
+针对需换乘飞机、高铁的联程旅客，东疆边检站专门开辟速通通道，安排专人现场引导分流，精准衔接邮轮出行与空铁换乘，有效解决了中转旅客换乘时间紧、通关耗时长的问题。
 
-特朗普宣布，美国将协助为过往船只护航引导通行霍尔木兹海峡。
+东疆边检站表示，将持续坚守岗位，以高标准勤务、高品质服务护航两艘母港运营邮轮，着力提升旅客通关体验，为天津邮轮产业高质量发展贡献力量。
 
-这条关键海上咽喉要道自2月末美军展开军事行动以来，一直是伊朗谋求掌控的战略要地。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:18 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-30 03:40 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-30 03:18 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-30 03:43 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-30 03:37 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-30 03:29 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 03:45 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-30 03:31 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-30 03:25 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-30 03:33 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-30 03:41 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-30 03:28 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-30 03:34 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-30 03:38 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-30 03:40 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-30 03:40 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-30 03:51 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-30 03:51 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-30 03:45 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-30 03:39 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-30 03:50 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 03:53 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-30 03:46 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-30 03:27 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-30 03:43 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-30 03:27 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:39 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/864899.shtml)
-- 2026-06-30 03:33 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/38709984.shtml)
-- 2026-06-30 03:29 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/810680801840.shtml)
-- 2026-06-30 03:43 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/862355577.shtml)
-- 2026-06-30 03:44 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/997820628670.shtml)
-- 2026-06-30 03:47 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/2431488668.shtml)
-- 2026-06-30 03:44 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.kurohicncr.top/Article/details/0108789.shtml)
-- 2026-06-30 03:33 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/38108538983.shtml)
-- 2026-06-30 03:45 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/56608456.shtml)
-- 2026-06-30 03:47 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/8945912377.shtml)
-- 2026-06-30 03:29 - [时光音乐会](http://www.blog.minike.top/Article/details/670771323833.shtml)
-- 2026-06-30 03:47 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/543441.shtml)
-- 2026-06-30 03:32 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/93591629.shtml)
-- 2026-06-30 03:32 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/562843592484.shtml)
-- 2026-06-30 03:43 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/177910.shtml)
+- 2026-06-30 03:48 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/84626.shtml)
+- 2026-06-30 03:49 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/614304.shtml)
+- 2026-06-30 03:48 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/37884.shtml)
+- 2026-06-30 03:36 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/331098857822.shtml)
+- 2026-06-30 03:37 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/05019.shtml)
+- 2026-06-30 03:44 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/76875237267.shtml)
+- 2026-06-30 03:29 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/2304917668.shtml)
+- 2026-06-30 03:27 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/3105440965.shtml)
+- 2026-06-30 03:54 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/75333115522.shtml)
+- 2026-06-30 03:35 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/05560.shtml)
+- 2026-06-30 03:43 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/77604379437.shtml)
+- 2026-06-30 03:48 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/010610440.shtml)
+- 2026-06-30 03:47 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/3907971638.shtml)
+- 2026-06-30 03:39 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/379839.shtml)
+- 2026-06-30 03:36 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/18791659151.shtml)

@@ -1,46 +1,54 @@
-# 这群年轻人，出手即“王炸”
+# 从边陲渔村到APEC举办地：多国驻华使节见证深圳“奇迹之路”
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-100坦克、福建舰、歼-16、长剑巡航导弹 四个军种 最硬的牌都在这里 别眨眼一口气看完 他们的超强气场 这，是铁甲洪流的“钢铁巨兽” 是一群把青春焊进履带的铁血青年 汗一起流，血一起淌 在“陆战之王”里同甘共苦的 个个都是硬茬 这，是战斗力满格的“移动国土” 是一群把身影嵌进甲板的执旗手 为了“冲”出100多米的跑道 几代人，用了几十年 今天，接过这班岗的是00后新青年 这，
+发布时间：2026年06月06日 22:32 来源：中国新闻网 近日，来自37个国家的60名驻华使节和外交官参加“启航‘十五五’：中国发展与全球机遇(广东行)”活动时访问深圳，参观了深圳的博物馆和科技企业主题展，听取了深圳专题推介。 对于菲律宾驻华大使吉米而言，此次深圳的访问更像是“故地重游”。他在1971年就曾到访深圳，从边陲小渔村到国际化大都市，他见证了这座中国“奇迹之城”
 
 ## 正文
 
-100坦克、福建舰、歼-16、长剑巡航导弹 四个军种 最硬的牌都在这里 别眨眼一口气看完 他们的超强气场 这，是铁甲洪流的“钢铁巨兽” 是一群把青春焊进履带的铁血青年 汗一起流，血一起淌 在“陆战之王”里同甘共苦的 个个都是硬茬 这，是战斗力满格的“移动国土” 是一群把身影嵌进甲板的执旗手 为了“冲”出100多米的跑道 几代人，用了几十年 今天，接过这班岗的是00后新青年 这，是划破天际的“炸弹卡车” 是一群身体素质顶格的“六边形战士” 既然穿上了这身“皮肤”，就得干到极致 24小时365天的值班室，就在跑道起点！
+发布时间：2026年06月06日 22:32 来源：中国新闻网 近日，来自37个国家的60名驻华使节和外交官参加“启航‘十五五’：中国发展与全球机遇(广东行)”活动时访问深圳，参观了深圳的博物馆和科技企业主题展，听取了深圳专题推介。
 
-这，是“覆盖全球”的底牌 是一群出手即“王炸”的年轻人 战争中的第一张牌是他们 这些被尾焰点燃的炽热青春，让人放心 重器在手，本事在身！
+对于菲律宾驻华大使吉米而言，此次深圳的访问更像是“故地重游”。
 
-这群年轻人 骨子里就自带那股气势 出品人：钱彤、石锋 策划：张中虎、吴丹 制片人：陈卓、于卫亚 导演：焦旭锋 剪辑：刘思录 编导：常清潭、冯子雄、陈星佐 摄像：孟菁、刘思录、孔令杭、焦旭锋、李小波 脚本：焦旭锋、常清潭 制作：冯子雄、邱浩、高蕊、卜寄傲、何思妍 推广：刘奕枫、陈星佐、冯子雄、张国党 中央军委政治工作部宣传局 新华社新媒体中心 联合出品
+他在1971年就曾到访深圳，从边陲小渔村到国际化大都市，他见证了这座中国“奇迹之城”的沧桑巨变。
+
+他认为，深圳展示了一个极佳的城市发展范例。
+
+今年11月，亚太经合组织(APEC)第三十三次领导人非正式会议将在深圳举办。
+
+多位驻华使节表示，非常期待即将在深圳举办的APEC会议，希望借此机会在众多领域进一步加强与中国的合作。
+
+(记者 何俊杰 广东深圳报道) 责任编辑：【胡寒笑】
 
 ## 相关推荐
 
-- 2026-06-30 03:45 - [田曦薇没招了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-30 03:40 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-30 03:19 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-30 03:44 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-30 03:29 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-30 03:47 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-30 03:26 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-30 03:27 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-30 03:32 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-30 03:30 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 03:28 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-30 03:28 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 03:33 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-30 03:43 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-30 03:24 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-30 03:31 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 03:34 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-30 03:38 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-30 03:48 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-30 03:25 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:20 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/611835.shtml)
-- 2026-06-30 03:24 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/26012940.shtml)
-- 2026-06-30 03:18 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/01325831.shtml)
-- 2026-06-30 03:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/9202739367.shtml)
-- 2026-06-30 03:47 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/7596268342.shtml)
-- 2026-06-30 03:43 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/777363260.shtml)
-- 2026-06-30 03:44 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/5431974423.shtml)
-- 2026-06-30 03:20 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/83331017.shtml)
-- 2026-06-30 03:29 - [时光音乐会](https://www.share.minike.top/Article/details/4159145199.shtml)
-- 2026-06-30 03:21 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/595327.shtml)
-- 2026-06-30 03:22 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/100213346.shtml)
-- 2026-06-30 03:18 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/02440698.shtml)
-- 2026-06-30 03:35 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/21194.shtml)
-- 2026-06-30 03:42 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/93075592925.shtml)
-- 2026-06-30 03:41 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/718125.shtml)
+- 2026-06-30 03:29 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/9664206.shtml)
+- 2026-06-30 03:46 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/668269.shtml)
+- 2026-06-30 03:44 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/0104336499.shtml)
+- 2026-06-30 03:26 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/868624606261.shtml)
+- 2026-06-30 03:34 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/317179405.shtml)
+- 2026-06-30 03:36 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/2056388268.shtml)
+- 2026-06-30 03:25 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/6580024.shtml)
+- 2026-06-30 03:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/280999.shtml)
+- 2026-06-30 03:36 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/53881722461.shtml)
+- 2026-06-30 03:40 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/409751920.shtml)
+- 2026-06-30 03:47 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/401874970.shtml)
+- 2026-06-30 03:41 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/3620886908.shtml)
+- 2026-06-30 03:48 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/31551586.shtml)
+- 2026-06-30 03:37 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/56690.shtml)
+- 2026-06-30 03:40 - [啊啊啊](http://www.blog.minike.top/Article/details/0068633210.shtml)

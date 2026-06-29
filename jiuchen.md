@@ -1,56 +1,56 @@
-# 英特尔再挖高通墙角 任命Alex Katouzian执掌客户端计算部门
+# AI巨无霸，冲击IPO！警惕资本市场“最贵的陷阱”
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-英特尔公司周一宣布两项重要高管任命，从高通再次引入一名资深高管，以加强其核心产品业务并推动AI创新议程。 曾在高通任职多年的Alex Katouzian将加入英特尔，担任执行副总裁兼客户端计算与物理AI集团总经理。在这一职位上，他将负责协调英特尔的客户端计算业务与新兴的物理AI系统（涵盖机器人、自主机器及其他AI设备）的融合发展。Katouzian将直接向英特尔CEO陈立武汇报
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！“这次不同”或是资本市场最贵陷阱！ 人工智能初创公司Anthropic本周官方宣布，已向美国证券交易委员会（SEC）秘密递交S-1招股书，就在交表前夕，该公司刚刚宣布完成了H轮融资，投后估值为6.5万亿元人民币（9650亿美元）。这家成立时间仅5年、今年二季度才开始盈利的公司，正创造着资本市场历史上的奇迹。
 
 ## 正文
 
-英特尔公司周一宣布两项重要高管任命，从高通再次引入一名资深高管，以加强其核心产品业务并推动AI创新议程。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-曾在高通任职多年的Alex Katouzian将加入英特尔，担任执行副总裁兼客户端计算与物理AI集团总经理。
+“这次不同”或是资本市场最贵陷阱！
 
-在这一职位上，他将负责协调英特尔的客户端计算业务与新兴的物理AI系统（涵盖机器人、自主机器及其他AI设备）的融合发展。
+人工智能初创公司Anthropic本周官方宣布，已向美国证券交易委员会（SEC）秘密递交S-1招股书，就在交表前夕，该公司刚刚宣布完成了H轮融资，投后估值为6.5万亿元人民币（9650亿美元）。
 
-Katouzian将直接向英特尔CEO陈立武汇报，于本月正式履新。
+这家成立时间仅5年、今年二季度才开始盈利的公司，正创造着资本市场历史上的奇迹。
 
-这是英特尔今年从高通挖来的第二位高管。
+自2022年11月ChatGPT正式发布以来，全球股市陷入了对人工智能板块的追逐之中。
 
-今年1月，英特尔已任命另一位前高通高管Eric Demers担任GPU架构高级副总裁。
+在为时两年多的上涨之后，AI板块市盈率超过百倍的个股比比皆是，远超2000年互联网泡沫破裂前夕的估值高度。
 
-陈立武在声明中表示：“Alex带来了深厚的技术专长、强大的运营纪律以及数十年构建和扩展全球计算平台的经验，是帮助我们重新构想PC之外的客户端计算的合适领导者。
+人们相信人工智能板块已经挣脱了传统的估值方式。
 
-” Katouzian在高通长期担任执行副总裁兼移动、计算和扩展现实集团总经理，在高通任职长达25年。
+不过，当这一切发生时，一定要牢记约翰·邓普顿的那句名言：“英语里‘最贵’的四个单词是This time，it’s diffrent（这次与以往不同）。
 
 ## 相关推荐
 
-- 2026-06-30 03:31 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-30 03:27 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-30 03:31 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-30 03:31 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-30 03:46 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-30 03:46 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-30 03:40 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-30 03:33 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-30 03:26 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-30 03:43 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-30 03:43 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-30 03:24 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-30 03:35 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-30 03:46 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-30 03:40 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-30 03:42 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 03:49 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-30 03:44 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-30 03:46 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-30 03:45 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:31 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/117385205.shtml)
-- 2026-06-30 03:19 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/94088471.shtml)
-- 2026-06-30 03:26 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/78376255055.shtml)
-- 2026-06-30 03:29 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/63712672599.shtml)
-- 2026-06-30 03:32 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/305223.shtml)
-- 2026-06-30 03:20 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/480077279949.shtml)
-- 2026-06-30 03:28 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/9717415113.shtml)
-- 2026-06-30 03:24 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/449041944067.shtml)
-- 2026-06-30 03:21 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/69286468.shtml)
-- 2026-06-30 03:23 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/26429544053.shtml)
-- 2026-06-30 03:23 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/61738271.shtml)
-- 2026-06-30 03:24 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/51179.shtml)
-- 2026-06-30 03:25 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/869968.shtml)
-- 2026-06-30 03:47 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/1494102.shtml)
-- 2026-06-30 03:20 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/734995597.shtml)
+- 2026-06-30 03:27 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/912822051005.shtml)
+- 2026-06-30 03:49 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/945543.shtml)
+- 2026-06-30 03:25 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/1344372.shtml)
+- 2026-06-30 03:37 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/6178959344.shtml)
+- 2026-06-30 03:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/94738787.shtml)
+- 2026-06-30 03:46 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/447650.shtml)
+- 2026-06-30 03:28 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/976414069.shtml)
+- 2026-06-30 03:40 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/2319815005.shtml)
+- 2026-06-30 03:43 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/81507.shtml)
+- 2026-06-30 03:47 - [第一炉香](http://www.share.kurohicncr.top/Article/details/286911.shtml)
+- 2026-06-30 03:29 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/28382.shtml)
+- 2026-06-30 03:44 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/4556836.shtml)
+- 2026-06-30 03:40 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/126259.shtml)
+- 2026-06-30 03:52 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/633791366.shtml)
+- 2026-06-30 03:50 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/948448.shtml)

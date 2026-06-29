@@ -1,59 +1,57 @@
-# 游戏驿站发起560亿美元竞购eBay，暗示敌意收购
+# 上海开启暑期出入境夜间办证专场
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-游戏驿站（GameStop， GME）以560亿美元的竞购价震惊市场，意图收购eBay，这一大胆举措可能使两家公司发生戏剧性的转变。 该公司提议以现金加股票的方式，按每股125美元（较eBay上一次收盘价溢价约20%）进行收购。CEO瑞安·科恩（Ryan Cohen）表示，如果eBay董事会拒绝，他准备直接将报价提交给eBay股东。 游戏驿站目前已持有eBay约5%的股份，并已
+发布时间：2026年06月07日 10:48 来源：中国新闻网 6月6日傍晚，记者在上海市公安局出入境接待大厅门口看到，虽天色渐暗，但前来办证的市民群众络绎不绝。与往年不同，今年专场时间由周五调整为周六17时至20时，连续四周轮动开放，无需预约即可办理，更加匹配学生、家长和上班族的时间节奏。 据介绍，今年新推出“现场容缺受理、线上补正材料、后台加急审核”的急事急办机制。同时，上
 
 ## 正文
 
-游戏驿站（GameStop， GME）以560亿美元的竞购价震惊市场，意图收购eBay，这一大胆举措可能使两家公司发生戏剧性的转变。
+发布时间：2026年06月07日 10:48 来源：中国新闻网 6月6日傍晚，记者在上海市公安局出入境接待大厅门口看到，虽天色渐暗，但前来办证的市民群众络绎不绝。
 
-该公司提议以现金加股票的方式，按每股125美元（较eBay上一次收盘价溢价约20%）进行收购。
+与往年不同，今年专场时间由周五调整为周六17时至20时，连续四周轮动开放，无需预约即可办理，更加匹配学生、家长和上班族的时间节奏。
 
-CEO瑞安·科恩（Ryan Cohen）表示，如果eBay董事会拒绝，他准备直接将报价提交给eBay股东。
+据介绍，今年新推出“现场容缺受理、线上补正材料、后台加急审核”的急事急办机制。
 
-游戏驿站目前已持有eBay约5%的股份，并已安排好融资，包括一笔估计为200亿美元的贷款承诺。
+同时，上海已推出护照换补发“全程网办”，符合条件的户籍居民可足不出户办证。
 
-科恩表示，两家公司可能实现成本节约和效率提升，预计每年可削减约20亿美元的成本。
+专场期间，上海公安机关还同步启动了“文明出境游，防范跨境诈骗”12367主题宣传活动，公布十起典型反诈案例，提醒市民警惕境外高薪骗局、冒充公检法等跨境诈骗手段。
 
-这将是一笔非同寻常的交易——游戏驿站试图收购一家规模约为其四倍的公司。
-
-投资者将关注eBay如何回应，以及这场竞购是否会升级为一场全面的收购战。
-
-责任编辑：张俊 SF065
+(李姝徵 狄权） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 03:43 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-30 03:36 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-30 03:37 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-30 03:44 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-30 03:29 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-30 03:37 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-30 03:40 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-30 03:33 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-30 03:34 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-30 03:19 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-30 03:33 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-30 03:35 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-30 03:38 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-30 03:26 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 03:48 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-30 03:44 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-30 03:39 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-30 03:53 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-30 03:37 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-30 03:32 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-30 03:24 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-30 03:36 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 03:29 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 03:31 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-30 03:49 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-30 03:38 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 03:47 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-30 03:44 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:26 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/984250.shtml)
-- 2026-06-30 03:38 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/361406390.shtml)
-- 2026-06-30 03:26 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/939080211.shtml)
-- 2026-06-30 03:36 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/341759196195.shtml)
-- 2026-06-30 03:23 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/50260354234.shtml)
-- 2026-06-30 03:19 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/4445772.shtml)
-- 2026-06-30 03:30 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/1048519031.shtml)
-- 2026-06-30 03:26 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/84227.shtml)
-- 2026-06-30 03:43 - [赵今麦电影开端客串路透](http://www.blog.kurohicncr.top/Article/details/54192778924.shtml)
-- 2026-06-30 03:46 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/399223.shtml)
-- 2026-06-30 03:20 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/164212622.shtml)
-- 2026-06-30 03:42 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/89424963892.shtml)
-- 2026-06-30 03:41 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/061141846.shtml)
-- 2026-06-30 03:35 - [内马尔替补](http://www.blog.minike.top/Article/details/49316264.shtml)
-- 2026-06-30 03:32 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/2720646.shtml)
+- 2026-06-30 03:53 - [巴西绝杀日本](http://www.blog.kurohicncr.top/Article/details/8091400.shtml)
+- 2026-06-30 03:31 - [沙丘](http://www.blog.minike.top/Article/details/51467262.shtml)
+- 2026-06-30 03:52 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/47227.shtml)
+- 2026-06-30 03:42 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/7404627356.shtml)
+- 2026-06-30 03:31 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/052179092.shtml)
+- 2026-06-30 03:45 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/771193.shtml)
+- 2026-06-30 03:51 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/80139.shtml)
+- 2026-06-30 03:42 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/256456472357.shtml)
+- 2026-06-30 03:29 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/31831761.shtml)
+- 2026-06-30 03:32 - [苗族银饰](https://www.share.minike.top/Article/details/45126835087.shtml)
+- 2026-06-30 03:51 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/462139369979.shtml)
+- 2026-06-30 03:24 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/657275929894.shtml)
+- 2026-06-30 03:49 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/91559200418.shtml)
+- 2026-06-30 03:48 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/10679615.shtml)
+- 2026-06-30 03:38 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/31565.shtml)

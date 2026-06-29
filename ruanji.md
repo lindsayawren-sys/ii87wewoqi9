@@ -1,60 +1,60 @@
-# 高盛警示：战事持续拉锯，油品库存消耗态势令人担忧
+# 奇瑞澄清：没有在印度市场直接投资和技术转让
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-高盛集团表示，受伊朗战事持续影响，全球原油及成品油库存正加速消耗，其中石脑油、航空煤油与液化石油气的供给风险最为严峻。 分析师尤利娅·热斯特科娃·格里格斯比、达安·斯特鲁伊文等在5月4日研报中指出：尽管今夏全球石油库存不至于触及运营最低警戒线，但部分地区及油品的去库速度与供应损失已令人担忧。 分析师称，整体全球石油库存已萎缩至近八年低位；库存可覆盖全球需求的天数，预计将从当前1
+中新网北京6月8日电(记者 张尼)近日“奇瑞汽车要进入印度造车”传闻引发市场关注。8日，奇瑞汽车发布一份澄清声明称，部分媒体和账号所称的“技术出口”“技术输出”等表述，均与事实不符。 奇瑞汽车在声明中称，关注到近日许多媒体援引外媒信息，解读奇瑞与印度塔塔集团的相关合作，其中不乏善意的关心，但也衍生出大量不实猜测。 奇瑞与印度塔塔集团正在商谈的合作协议，限定为车型相关的零部件供应
 
 ## 正文
 
-高盛集团表示，受伊朗战事持续影响，全球原油及成品油库存正加速消耗，其中石脑油、航空煤油与液化石油气的供给风险最为严峻。
+中新网北京6月8日电(记者 张尼)近日“奇瑞汽车要进入印度造车”传闻引发市场关注。
 
-分析师尤利娅·热斯特科娃·格里格斯比、达安·斯特鲁伊文等在5月4日研报中指出：尽管今夏全球石油库存不至于触及运营最低警戒线，但部分地区及油品的去库速度与供应损失已令人担忧。
+8日，奇瑞汽车发布一份澄清声明称，部分媒体和账号所称的“技术出口”“技术输出”等表述，均与事实不符。
 
-分析师称，整体全球石油库存已萎缩至近八年低位；库存可覆盖全球需求的天数，预计将从当前101天，在5月底进一步降至98天。
+奇瑞汽车在声明中称，关注到近日许多媒体援引外媒信息，解读奇瑞与印度塔塔集团的相关合作，其中不乏善意的关心，但也衍生出大量不实猜测。
 
-报告同时认为，现有数据严重低估了部分国家、特定油品的短缺风险：即便全球整体原油库存尚未到危急水平，单一国家某类油品的过剩，往往无法缓解其他地区的短缺局面。
+奇瑞与印度塔塔集团正在商谈的合作协议，限定为车型相关的零部件供应，为其提供汽车散件。
 
-目前伊朗战事已进入第三个月，彻底打乱全球石油市场格局。
+奇瑞没有在印度市场直接投资和技术转让等安排，部分媒体和账号所称的“平台转让”“平台授权”“技术授权”“技术出口”“技术输出”等表述，均与事实不符。
 
-美伊冲突再起令停火协议岌岌可危，霍尔木兹海峡基本处于断航状态。
+公开报道显示，塔塔集团是印度最大的公司之一，经营信息及通讯、工程、材料、能源、消费品、化工品及服务业等七大类业务。
 
-布伦特原油基准价自冲突爆发以来暴涨近60%，各类成品油涨幅更高。
+其旗下的塔塔汽车是印度最大的汽车制造商，捷豹路虎就隶属于塔塔汽车。
 
-分析师指出，欧洲商业航空煤油库存或在6月跌破紧缺临界警戒线。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:34 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-30 03:32 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-30 03:35 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-30 03:35 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-30 03:18 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-30 03:41 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-30 03:25 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-30 03:47 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-30 03:44 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-30 03:33 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-30 03:26 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-30 03:41 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-30 03:19 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-30 03:25 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-30 03:53 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 03:33 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-30 03:36 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-30 03:44 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-30 03:32 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 03:43 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 03:47 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-30 03:37 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-30 03:37 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 03:26 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 03:27 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 03:35 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-30 03:46 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-30 03:41 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:23 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/3902097741.shtml)
-- 2026-06-30 03:41 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/6907443.shtml)
-- 2026-06-30 03:44 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/32495.shtml)
-- 2026-06-30 03:31 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/646810996.shtml)
-- 2026-06-30 03:23 - [流金岁月](https://www.blog.minike.top/Article/details/0539212.shtml)
-- 2026-06-30 03:42 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/238830973089.shtml)
-- 2026-06-30 03:46 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/0267031.shtml)
-- 2026-06-30 03:24 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/18279.shtml)
-- 2026-06-30 03:32 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/410838037.shtml)
-- 2026-06-30 03:43 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/0435505.shtml)
-- 2026-06-30 03:32 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/29141325965.shtml)
-- 2026-06-30 03:35 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/02792747452.shtml)
-- 2026-06-30 03:47 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/503521367576.shtml)
-- 2026-06-30 03:43 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/27180693206.shtml)
-- 2026-06-30 03:23 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/838636399287.shtml)
+- 2026-06-30 03:33 - [TOP Prada](https://www.blog.minike.top/Article/details/840501876451.shtml)
+- 2026-06-30 03:53 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/401825.shtml)
+- 2026-06-30 03:30 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/22674.shtml)
+- 2026-06-30 03:34 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/76760740.shtml)
+- 2026-06-30 03:43 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/8237392.shtml)
+- 2026-06-30 03:30 - [千香](https://www.blog.kurohicncr.top/Article/details/7737591317.shtml)
+- 2026-06-30 03:49 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/1088650.shtml)
+- 2026-06-30 03:51 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/757217704100.shtml)
+- 2026-06-30 03:38 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/6269506.shtml)
+- 2026-06-30 03:52 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/466819068.shtml)
+- 2026-06-30 03:34 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/5960585.shtml)
+- 2026-06-30 03:41 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/40475982011.shtml)
+- 2026-06-30 03:26 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/87663421752.shtml)
+- 2026-06-30 03:25 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/65355.shtml)
+- 2026-06-30 03:52 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/28156789753.shtml)

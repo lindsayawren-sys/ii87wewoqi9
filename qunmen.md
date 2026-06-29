@@ -1,57 +1,48 @@
-# 网红概念股游戏驿站出价560亿美元收购eBay，欲打造亚马逊竞品
+# 大唐新能源获贝莱德增持58.8万股 每股作价约1.75港元
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-核心要点 美国游戏零售商游戏驿站（GameStop） 于周日宣布，已向电商平台eBay发出主动、非约束性收购要约，以每股 125 美元的现金加股票方式全资收购，对 eBay 整体估值约555 亿美元。 游戏驿站表示，本次收购对价由现金与公司普通股各占一半组成；较 eBay 上周五收盘价 104.07 美元溢价 20%，较今年 2 月 4 日收盘价溢价 46%—— 彼时这家游戏零
+香港联交所最新数据显示，6月1日，贝莱德增持大唐新能源（01798）58.8万股，每股作价1.751港元，总金额约为102.96万港元。增持后最新持股数目约为1.50亿股，最新持股比例为6.01%。责任编辑：卢昱君
 
 ## 正文
 
-核心要点 美国游戏零售商游戏驿站（GameStop） 于周日宣布，已向电商平台eBay发出主动、非约束性收购要约，以每股 125 美元的现金加股票方式全资收购，对 eBay 整体估值约555 亿美元。
+香港联交所最新数据显示，6月1日，贝莱德增持大唐新能源（01798）58.8万股，每股作价1.751港元，总金额约为102.96万港元。
 
-游戏驿站表示，本次收购对价由现金与公司普通股各占一半组成；较 eBay 上周五收盘价 104.07 美元溢价 20%，较今年 2 月 4 日收盘价溢价 46%—— 彼时这家游戏零售巨头已开始悄然建仓 eBay 股份。
+增持后最新持股数目约为1.50亿股，最新持股比例为6.01%。
 
-受收购消息提振，eBay盘前涨9.5%，报113.91美元，但仍远低于游戏驿站 125 美元的报价，反映出投资者普遍质疑这笔交易最终能否落地。
-
-曾在 2021 年散户逼空行情中爆红、成为典型网红概念股的游戏驿站，盘前跌0.8%。
-
-此次官宣之际，游戏驿站首席执行官瑞安・科恩表示，他有清晰路径将 eBay 打造成亚马逊的强力竞争对手。
-
-科恩称：“eBay 现在的估值被严重低估，未来理应价值高得多。
-
-我的目标是把 eBay 打造成一家市值数千亿美元的企业。
-
-” 游戏驿站已持有 eBay 约 5% 股份，并已获得多伦多道明银行最高 200 亿美元的债务融资承诺，为收购铺路；交易剩余资金将动用公司约 94 亿美元的现金储备。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 03:36 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-30 03:26 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-30 03:34 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-30 03:37 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-30 03:24 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-30 03:47 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-30 03:29 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-30 03:25 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-30 03:46 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-30 03:21 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-30 03:30 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 03:53 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-30 03:34 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 03:25 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-30 03:31 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 03:46 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 03:43 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-30 03:48 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 03:45 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-30 03:40 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-30 03:30 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-30 03:43 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-30 03:52 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:47 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/60998036.shtml)
-- 2026-06-30 03:24 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/901722253.shtml)
-- 2026-06-30 03:35 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/086810905041.shtml)
-- 2026-06-30 03:35 - [宗元舞2.0 迟来的50万女装福利](http://www.share.minike.top/Article/details/239169419944.shtml)
-- 2026-06-30 03:31 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/71963.shtml)
-- 2026-06-30 03:21 - [日本 高位逼抢](http://www.share.minike.top/Article/details/91344534833.shtml)
-- 2026-06-30 03:33 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/5329181380.shtml)
-- 2026-06-30 03:41 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/00337481.shtml)
-- 2026-06-30 03:36 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/96411.shtml)
-- 2026-06-30 03:30 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/698786296.shtml)
-- 2026-06-30 03:41 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.minike.top/Article/details/174484198957.shtml)
-- 2026-06-30 03:29 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/307549987970.shtml)
-- 2026-06-30 03:28 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/0263962208.shtml)
-- 2026-06-30 03:27 - [周杰伦的歌勾起25年友情](http://www.blog.kurohicncr.top/Article/details/402560.shtml)
-- 2026-06-30 03:25 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/3330244791.shtml)
+- 2026-06-30 03:45 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/588101148.shtml)
+- 2026-06-30 03:26 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/714831349.shtml)
+- 2026-06-30 03:42 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/49218559955.shtml)
+- 2026-06-30 03:38 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/882721998097.shtml)
+- 2026-06-30 03:47 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/523164683.shtml)
+- 2026-06-30 03:25 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/418094324.shtml)
+- 2026-06-30 03:36 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/429727468382.shtml)
+- 2026-06-30 03:42 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/27572488401.shtml)
+- 2026-06-30 03:38 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/28808957417.shtml)
+- 2026-06-30 03:41 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/65727164.shtml)
+- 2026-06-30 03:34 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/480114.shtml)
+- 2026-06-30 03:32 - [恋与深空 日服](http://www.blog.minike.top/Article/details/93963.shtml)
+- 2026-06-30 03:26 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/29453.shtml)
+- 2026-06-30 03:30 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/64720354469.shtml)
+- 2026-06-30 03:34 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/64076.shtml)

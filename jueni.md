@@ -1,56 +1,57 @@
-# 华宝基金科创人工智能ETF (589520)量价齐升！
+# 焦虑容貌？超六成受访青年认为要接纳自己不完美
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-4月最后一个交易日（4月30日）或由于一季度亮眼业绩提振，寒武纪20CM涨停，创历史新高，股价首次突破1600元，超越源杰科技，成为A股股价最高的股票。芯原股份、凌云光携手涨停助攻，科创人工智能指数一度领跑全市场，重点布局国产AI产业链的科创人工智能ETF华宝（589520）场内涨幅最高上探6.44%，收涨6.12%，全天成交额9089万元，环比激增158%。 科创人工智能方向
+当下，社交媒体上关于极致审美的内容、随处可见的整形医美宣传，都让年轻人不断审视自身外形，也让他们容易因此陷入容貌焦虑中。年轻人该如何理性看待外貌？ 中国青年报社社会调查中心对1518名年轻人开展的“容貌与审美”专项调查显示，72.5%的受访青年感觉身边存在容貌焦虑的年轻人多，受访女性这一感受强于受访男性。超六成的受访青年认为要接纳自己的不完美，珍视独一无二的自己。 72.5%受
 
 ## 正文
 
-4月最后一个交易日（4月30日）或由于一季度亮眼业绩提振，寒武纪20CM涨停，创历史新高，股价首次突破1600元，超越源杰科技，成为A股股价最高的股票。
+当下，社交媒体上关于极致审美的内容、随处可见的整形医美宣传，都让年轻人不断审视自身外形，也让他们容易因此陷入容貌焦虑中。
 
-芯原股份、凌云光携手涨停助攻，科创人工智能指数一度领跑全市场，重点布局国产AI产业链的科创人工智能ETF华宝（589520）场内涨幅最高上探6.44%，收涨6.12%，全天成交额9089万元，环比激增158%。
+年轻人该如何理性看待外貌？
 
-科创人工智能方向为何强势上涨？
+中国青年报社社会调查中心对1518名年轻人开展的“容貌与审美”专项调查显示，72.5%的受访青年感觉身边存在容貌焦虑的年轻人多，受访女性这一感受强于受访男性。
 
-或可从三个维度进行拆解： 1、宏观层面，高层在讲话中指出，要多路线布局前沿技术探索，全链条推进关键核心技术攻关，不断巩固人工智能发展领先地位。
+超六成的受访青年认为要接纳自己的不完美，珍视独一无二的自己。
 
-在科技博弈的背景下，AI作为核心技术，实现自主可控至关重要。
+72.5%受访青年感觉身边有容貌焦虑的人多，低龄青年感受更强烈 浙江的05后郑淼说，身边不少朋友外在形象已经很好看了，却还或多或少存在不满意——鼻梁不够挺、腰有点粗、小腿不够细……她感到，女生这种情况更常见。
 
-2、产业层面，东方证券指出，市场低估了此前DeepSeek-V4发布对于国产算力产业链的带动*。
+26岁的私企职员李晓婷对此也深有体会：“总觉得自己这里不够好，那里有点缺憾。
 
-国泰君安证券表示，DeepSeek-V4与国产芯片的原生适配取得关键进展，或将重塑全球AI产业链的利润分配格局，硬件端有望优先享受行业发展红利。
+一些男生也挺在意自己的容貌，但相比之下，女孩的焦虑更普遍。
 
-此前市场的核心担忧是国产算力缺乏顶级大模型适配，而此次发布彻底打消了这一顾虑，国产算力产业链的业绩兑现确定性大幅提升，市场尚未充分定价这一变化带来的估值修复空间*。
+” 四川成都的95后青年陈意俊，平时生活与工作中时常跟朋友、同事聊起外貌话题，他身边也有为了达到流行的“美”而整形的年轻人。
 
 ## 相关推荐
 
-- 2026-06-30 03:21 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-30 03:21 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-30 03:30 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-30 03:38 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 03:43 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-30 03:45 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-30 03:23 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 03:36 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-30 03:20 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 03:34 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-30 03:44 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-30 03:33 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-30 03:50 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-30 03:46 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 03:38 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-30 03:32 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-30 03:47 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-30 03:34 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-30 03:40 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-30 03:36 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 03:45 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:23 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/063209.shtml)
-- 2026-06-30 03:31 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/884102396852.shtml)
-- 2026-06-30 03:31 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/9379114284.shtml)
-- 2026-06-30 03:46 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/688678390.shtml)
-- 2026-06-30 03:31 - [沉睡花园](https://www.blog.minike.top/Article/details/8728693.shtml)
-- 2026-06-30 03:22 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/622681.shtml)
-- 2026-06-30 03:28 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/823433.shtml)
-- 2026-06-30 03:33 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/019185685.shtml)
-- 2026-06-30 03:38 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/154730135076.shtml)
-- 2026-06-30 03:26 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/446400706.shtml)
-- 2026-06-30 03:22 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/260486.shtml)
-- 2026-06-30 03:37 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/009598815014.shtml)
-- 2026-06-30 03:27 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/598268.shtml)
-- 2026-06-30 03:33 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/269435946.shtml)
-- 2026-06-30 03:33 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/08174.shtml)
+- 2026-06-30 03:38 - [上半年全国特种设备安全形势总体平稳](http://www.blog.minike.top/Article/details/644618257.shtml)
+- 2026-06-30 03:29 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/756736271.shtml)
+- 2026-06-30 03:24 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/57948072.shtml)
+- 2026-06-30 03:43 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/0568252766.shtml)
+- 2026-06-30 03:52 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/49835727177.shtml)
+- 2026-06-30 03:30 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/883935440.shtml)
+- 2026-06-30 03:50 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/18227641943.shtml)
+- 2026-06-30 03:25 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/04053983.shtml)
+- 2026-06-30 03:52 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/08142500072.shtml)
+- 2026-06-30 03:50 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/4337423466.shtml)
+- 2026-06-30 03:41 - [上半年全国特种设备安全形势总体平稳](https://www.share.minike.top/Article/details/490761988.shtml)
+- 2026-06-30 03:44 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/057453777818.shtml)
+- 2026-06-30 03:41 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/23036.shtml)
+- 2026-06-30 03:45 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/928141885.shtml)
+- 2026-06-30 03:27 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/632882494284.shtml)

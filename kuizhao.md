@@ -1,45 +1,45 @@
-# 主要产油国宣布6月增产
+# 快讯：伊朗称袭击以色列两处空军基地
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-新华社快讯：主要产油国宣布6月增产 新华社快讯：石油输出国组织(欧佩克)3日发表声明说，7个“欧佩克+”主要产油国决定6月日均增产原油18.8万桶。这是“欧佩克+”在阿联酋正式退出后的首次决策。
+中新网6月8日电 据法新社当地时间8日报道，伊朗方面表示，已对以色列境内两处空军基地发动袭击。 早些时候，据《以色列时报》8日报道，以色列国防军发布声明称，伊朗当天向以色列发射弹道导弹，以色列全国多地随即拉响防空警报。
 
 ## 正文
 
-新华社快讯：主要产油国宣布6月增产 新华社快讯：石油输出国组织(欧佩克)3日发表声明说，7个“欧佩克+”主要产油国决定6月日均增产原油18.8万桶。
+中新网6月8日电 据法新社当地时间8日报道，伊朗方面表示，已对以色列境内两处空军基地发动袭击。
 
-这是“欧佩克+”在阿联酋正式退出后的首次决策。
+早些时候，据《以色列时报》8日报道，以色列国防军发布声明称，伊朗当天向以色列发射弹道导弹，以色列全国多地随即拉响防空警报。
 
 ## 相关推荐
 
-- 2026-06-30 03:33 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-30 03:43 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-30 03:37 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-30 03:42 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-30 03:22 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-30 03:40 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-30 03:21 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-30 03:38 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-30 03:27 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-30 03:39 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-30 03:21 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 03:45 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-30 03:28 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-30 03:42 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-30 03:30 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-30 03:28 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-30 03:26 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 03:40 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-30 03:34 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-30 03:26 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-30 03:38 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-30 03:36 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:27 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/420748375.shtml)
-- 2026-06-30 03:32 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/646591410.shtml)
-- 2026-06-30 03:26 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/93095768127.shtml)
-- 2026-06-30 03:22 - [送你一朵小红花](http://www.share.minike.top/Article/details/76686.shtml)
-- 2026-06-30 03:27 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/427685.shtml)
-- 2026-06-30 03:18 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/846932.shtml)
-- 2026-06-30 03:45 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/1128251.shtml)
-- 2026-06-30 03:44 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/550398871.shtml)
-- 2026-06-30 03:23 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/177411012.shtml)
-- 2026-06-30 03:42 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/8676317498.shtml)
-- 2026-06-30 03:22 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/48218.shtml)
-- 2026-06-30 03:24 - [金刚川](https://www.blog.kurohicncr.top/Article/details/42522824234.shtml)
-- 2026-06-30 03:43 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/1081545302.shtml)
-- 2026-06-30 03:43 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/746792899902.shtml)
-- 2026-06-30 03:35 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/11878332.shtml)
+- 2026-06-30 03:52 - [月亮](https://www.share.minike.top/Article/details/2052805.shtml)
+- 2026-06-30 03:46 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.kurohicncr.top/Article/details/196431565.shtml)
+- 2026-06-30 03:28 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/28439942.shtml)
+- 2026-06-30 03:36 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/580424524267.shtml)
+- 2026-06-30 03:35 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/68532126447.shtml)
+- 2026-06-30 03:30 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/49513220.shtml)
+- 2026-06-30 03:45 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/1719092.shtml)
+- 2026-06-30 03:33 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/86780126524.shtml)
+- 2026-06-30 03:38 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/04319933.shtml)
+- 2026-06-30 03:42 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/02923608.shtml)
+- 2026-06-30 03:47 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/981859626189.shtml)
+- 2026-06-30 03:48 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/01916.shtml)
+- 2026-06-30 03:27 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/66530.shtml)
+- 2026-06-30 03:41 - [小娘惹](http://www.blog.minike.top/Article/details/58993.shtml)
+- 2026-06-30 03:25 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/27420562.shtml)

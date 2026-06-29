@@ -1,60 +1,56 @@
-# 营收成本攀升，Shopify下调第二季度盈利预期 股价大跌13.28%
+# 广西公开遴选1400名“头雁” 带动乡村产业振兴
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 公司指引运营支出占营收比例介于 35%–36% 内容速览 受运营支出预计高于预期影响，尽管营收保持强劲增长，Shopify 第二季度盈利展望仍不及市场预期。 电商平台巨头 Shopify（SHOP）股价大跌 13.28%。公司营收虽保持高增速，但运营支出高于预期，导致第二季度盈利指引低于市场预期。 该电商平台为商户提供线上销售、订单管理及支
+中新网南宁6月8日电(杨陈 李贤宇 罗雪娇)广西农业农村厅8日介绍，2026年乡村产业振兴带头人“头雁”项目学员遴选工作日前正式启动，计划面向广西公开遴选1400名“头雁”培育对象。这也是当地“头雁”项目实施以来培育规模最大、覆盖领域最广的一次遴选，旨在育强“千雁万群”，带动“千家万户”共同发展。据了解，自2022年农业农村部、财政部启动“头雁”项目以来，广西已累计培育国家级“
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 公司指引运营支出占营收比例介于 35%–36% 内容速览 受运营支出预计高于预期影响，尽管营收保持强劲增长，Shopify 第二季度盈利展望仍不及市场预期。
+中新网南宁6月8日电(杨陈 李贤宇 罗雪娇)广西农业农村厅8日介绍，2026年乡村产业振兴带头人“头雁”项目学员遴选工作日前正式启动，计划面向广西公开遴选1400名“头雁”培育对象。
 
-电商平台巨头 Shopify（SHOP）股价大跌 13.28%。
+这也是当地“头雁”项目实施以来培育规模最大、覆盖领域最广的一次遴选，旨在育强“千雁万群”，带动“千家万户”共同发展。
 
-公司营收虽保持高增速，但运营支出高于预期，导致第二季度盈利指引低于市场预期。
+据了解，自2022年农业农村部、财政部启动“头雁”项目以来，广西已累计培育国家级“头雁”2800名，辐射带动农户54.4万户，形成了“头雁领航、群雁齐飞”的生动局面。
 
-该电商平台为商户提供线上销售、订单管理及支付处理服务。
+2026年，广西将培育名额从往年的700名翻倍至1400名，标志着“头雁”项目迈入扩面提质的新阶段。
 
-公司给出第二季度指引： 运营支出占营收比例35%–36%；毛利总额同比增速维持25% 左右中段水平。
+本次遴选坚持“优中选优、带农为要”的原则，重点面向农民专业合作社理事长、家庭农场主、农村集体经济组织负责人、市县级农业产业化龙头企业负责人、种养大户等乡村产业带头人。
 
-这一业绩指引凸显出公司当前经营现状：营收仍强势增长，但成本走高、以及营收结构向低利润率商户服务业务倾斜，持续拖累盈利水平。
+特别值得关注的是，遴选政策显著向“新农人”倾斜，鼓励善于运用智慧农业、人工智能等新技术的“农创客”，从事乡村运营、文旅发展、电商直播的“乡村运营师”，以及传承非遗技艺、传统手工技艺的“乡村工匠”积极申报。
 
-首席财务官杰夫・霍夫迈斯特预计，利润率压力后续将逐步缓解；但受同比基数抬升影响，短期业绩增速将有所放缓。
+凡年龄在55周岁以下、高中(中专)以上学历，身心健康(无明显基础性疾病)，具备外出参训身体条件，诚信经营、遵纪守法，从事当地特色产业3年以上、近3年累计带动30户或100名以上农民增收致富的带头人，均可报名。
 
-分析师预计公司二季度营收达34.2 亿美元，同比增幅接近 28%。
+广西农业农村厅相关负责人表示，“头雁”项目不是普通的培训，而是一套“集中培训+导师跟踪+金融扶持+项目支持”的全链条培育体系。
 
 ## 相关推荐
 
-- 2026-06-30 03:22 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-30 03:28 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-30 03:46 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-30 03:45 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 03:40 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-30 03:40 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-30 03:32 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-30 03:19 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-30 03:33 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-30 03:22 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-30 03:26 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-30 03:38 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-30 03:39 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-30 03:35 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-30 03:26 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-30 03:25 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-30 03:53 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-30 03:47 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-30 03:43 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-30 03:47 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-30 03:38 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-30 03:49 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-30 03:37 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-30 03:37 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:46 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/7869082.shtml)
-- 2026-06-30 03:18 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/1874726.shtml)
-- 2026-06-30 03:35 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/89208.shtml)
-- 2026-06-30 03:42 - [急先锋](https://www.share.kurohicncr.top/Article/details/9414457049.shtml)
-- 2026-06-30 03:31 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/9934159.shtml)
-- 2026-06-30 03:23 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/18250.shtml)
-- 2026-06-30 03:30 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/38620844284.shtml)
-- 2026-06-30 03:40 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/7070326.shtml)
-- 2026-06-30 03:27 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/866223256433.shtml)
-- 2026-06-30 03:45 - [天道](http://www.share.kurohicncr.top/Article/details/6882366.shtml)
-- 2026-06-30 03:24 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/45079.shtml)
-- 2026-06-30 03:31 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/4124868823.shtml)
-- 2026-06-30 03:24 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/98505400056.shtml)
-- 2026-06-30 03:42 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/989190904.shtml)
-- 2026-06-30 03:18 - [大范围高温会带来哪些经济影响](http://www.blog.minike.top/Article/details/52030119739.shtml)
+- 2026-06-30 03:30 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/533273.shtml)
+- 2026-06-30 03:30 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/630607653881.shtml)
+- 2026-06-30 03:32 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/2123483308.shtml)
+- 2026-06-30 03:39 - [足球“出口导向”造就佛得角奇迹](https://www.blog.minike.top/Article/details/11293697392.shtml)
+- 2026-06-30 03:41 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/1981052674.shtml)
+- 2026-06-30 03:39 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/4411028.shtml)
+- 2026-06-30 03:33 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/443437.shtml)
+- 2026-06-30 03:44 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/190431849396.shtml)
+- 2026-06-30 03:46 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/688849010314.shtml)
+- 2026-06-30 03:44 - [毒液2](https://www.share.minike.top/Article/details/6364988944.shtml)
+- 2026-06-30 03:41 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/74892.shtml)
+- 2026-06-30 03:49 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/14717.shtml)
+- 2026-06-30 03:32 - [内马尔替补](http://www.share.minike.top/Article/details/552142606152.shtml)
+- 2026-06-30 03:38 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/61380429.shtml)
+- 2026-06-30 03:48 - [法媒点赞分享中国小区降温方案](http://www.share.kurohicncr.top/Article/details/57676961301.shtml)

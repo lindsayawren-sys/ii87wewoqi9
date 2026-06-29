@@ -1,56 +1,57 @@
-# 加拿大爱德华王子岛省第四届亚裔传统月庆典揭幕
+# 菲律宾群岛地区强震后 多国地震监测机构发布海啸预警
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-中新网北京5月4日电 加拿大爱德华王子岛省第四届亚裔传统月庆典于当地时间5月2日在该省省会夏洛特敦市爱德华王子岛大学表演艺术中心开幕。 此次亚裔传统月庆典得到加拿大联邦政府支持，由爱德华王子岛亚裔传统协会和中华文化联合会联合主办，由夏洛特敦市、萨姆赛德市市政府，省移民与难民服务协会及中国诗歌春晚组委会、加拿大皇家银行、思博学院等当地多个社团、机构等协办。 爱德华王子岛省督瓦思姆
+6月8日，菲律宾火山地震研究所以及印尼气象、气候和地球物理局和日本方面在当天菲律宾群岛地区附近发生强震后发布海啸预警。 菲律宾火山地震研究所称，该地震引发海啸预警，浪高将超过正常潮位1米左右，海啸可能持续数小时。菲火山地震研究所建议南部多个沿海地区的居民立即撤离至地势较高的地方或向内陆转移。 在菲律宾火山地震研究所发布海啸预警后，印尼气象、气候和地球物理局也发布海啸预警。日本方
 
 ## 正文
 
-中新网北京5月4日电 加拿大爱德华王子岛省第四届亚裔传统月庆典于当地时间5月2日在该省省会夏洛特敦市爱德华王子岛大学表演艺术中心开幕。
+6月8日，菲律宾火山地震研究所以及印尼气象、气候和地球物理局和日本方面在当天菲律宾群岛地区附近发生强震后发布海啸预警。
 
-此次亚裔传统月庆典得到加拿大联邦政府支持，由爱德华王子岛亚裔传统协会和中华文化联合会联合主办，由夏洛特敦市、萨姆赛德市市政府，省移民与难民服务协会及中国诗歌春晚组委会、加拿大皇家银行、思博学院等当地多个社团、机构等协办。
+菲律宾火山地震研究所称，该地震引发海啸预警，浪高将超过正常潮位1米左右，海啸可能持续数小时。
 
-爱德华王子岛省督瓦思姆·萨拉姆向活动致函祝贺，加联邦众议员肖恩·凯西、爱德华王子岛省长罗博·兰兹、夏洛特敦市市长菲利普·布朗等联邦、省、市三级政界人士出席开幕仪式。
+菲火山地震研究所建议南部多个沿海地区的居民立即撤离至地势较高的地方或向内陆转移。
 
-超过20个族裔的社区代表参加庆典。
+在菲律宾火山地震研究所发布海啸预警后，印尼气象、气候和地球物理局也发布海啸预警。
 
-加拿大爱德华王子岛亚裔社区在过去约20年间得到了很大发展，华人社区更是成为本地最大的亚裔社区之一。
+日本方面也针对太平洋沿岸等广大地区发布海啸注意警报。
 
-本次开幕式期间，华人社区九拍青少年艺术团进行了精彩的架子鼓表演。
+8日稍早时，中国地震台网自动测定数据显示，8日7时37分，在菲律宾群岛地区附近(北纬5.65度，东经125.27度)发生8.2级左右地震。
 
-来自印度、菲律宾、墨西哥、日本、马来西亚、越南、中东等族裔社区的团体也以各具特色的文艺节目共同打造了一场文化艺术盛宴。
+后经中国地震台网正式测定，菲律宾群岛地区(北纬5.55度，东经125.10度)发生7.9级地震，震源深度40千米。
 
-爱德华王子岛中华文化联合会会长张联表示，人与人之间的和谐相处、人与自然之间的和谐共生，是中国古人便已追求的理想境界，也是当今世界共同追求的生活愿景。
+(总台记者 黄铮铮 陶家乐 何欣蕾)
 
 ## 相关推荐
 
-- 2026-06-30 03:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-30 03:32 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-30 03:45 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-30 03:35 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-30 03:28 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 03:38 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-30 03:38 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-30 03:23 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-30 03:46 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-30 03:32 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-30 03:48 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-30 03:25 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 03:38 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 03:49 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 03:50 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-30 03:26 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 03:46 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-30 03:25 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-30 03:44 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 03:42 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-30 03:31 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:20 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/5333154.shtml)
-- 2026-06-30 03:32 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/52269822.shtml)
-- 2026-06-30 03:35 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/893819143466.shtml)
-- 2026-06-30 03:18 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/72124144.shtml)
-- 2026-06-30 03:35 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/528383243981.shtml)
-- 2026-06-30 03:46 - [周生如故](https://www.share.kurohicncr.top/Article/details/0816460.shtml)
-- 2026-06-30 03:30 - [日本 高位逼抢](http://www.blog.kurohicncr.top/Article/details/80303242361.shtml)
-- 2026-06-30 03:35 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/070211469.shtml)
-- 2026-06-30 03:38 - [法媒点赞分享中国小区降温方案](https://www.blog.minike.top/Article/details/62355.shtml)
-- 2026-06-30 03:38 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/80187887.shtml)
-- 2026-06-30 03:35 - [日本 高位逼抢](http://www.share.kurohicncr.top/Article/details/44812.shtml)
-- 2026-06-30 03:41 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/78936253.shtml)
-- 2026-06-30 03:32 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/11614.shtml)
-- 2026-06-30 03:39 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/18470644.shtml)
-- 2026-06-30 03:29 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/84543859852.shtml)
+- 2026-06-30 03:31 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/57656333.shtml)
+- 2026-06-30 03:34 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/70107387.shtml)
+- 2026-06-30 03:34 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/649183628652.shtml)
+- 2026-06-30 03:44 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/07963.shtml)
+- 2026-06-30 03:50 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/4360210410.shtml)
+- 2026-06-30 03:47 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/15147156.shtml)
+- 2026-06-30 03:44 - [王欣瑜：今年经历了一些起伏](https://www.share.minike.top/Article/details/567948724.shtml)
+- 2026-06-30 03:34 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/570422738365.shtml)
+- 2026-06-30 03:52 - [急先锋](https://www.share.minike.top/Article/details/6314309140.shtml)
+- 2026-06-30 03:30 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/7068430.shtml)
+- 2026-06-30 03:29 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/9520030.shtml)
+- 2026-06-30 03:45 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/743156.shtml)
+- 2026-06-30 03:48 - [普京间接喊话特朗普有何考量](https://www.share.kurohicncr.top/Article/details/206593342.shtml)
+- 2026-06-30 03:35 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/00001.shtml)
+- 2026-06-30 03:51 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/5891397.shtml)

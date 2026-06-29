@@ -1,57 +1,51 @@
-# 在美国面临政治压力的背景下 美国食品药品监督管理局（FDA）批准了首批水果口味的电子烟
+# 日本10年期国债收益率上涨5个基点至2.715% 受美联储加息预期影响
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-美国食品和药物管理局（FDA）面临日益增大的政治压力之际，该机构周二批准了水果味电子烟的上市销售，这是该机构首次批准非烟草口味的电子烟产品。 FDA表示，获批的产品来自总部位于洛杉矶的Glas公司——这是一家利用技术对设备进行年龄验证的小型电子烟制造商，其获批的烟弹口味包括经典薄荷、清新薄荷、黄金和蓝宝石等。 该监管机构表示：“FDA对这些产品进行了严格、科学的审查，发现申请人
+日本10年期国债收益率上升，强劲的美国就业报告提振了市场对美联储今年加息的预期。日本10年期国债收益率上涨5个基点至2.715%。责任编辑：王永生
 
 ## 正文
 
-美国食品和药物管理局（FDA）面临日益增大的政治压力之际，该机构周二批准了水果味电子烟的上市销售，这是该机构首次批准非烟草口味的电子烟产品。
+日本10年期国债收益率上升，强劲的美国就业报告提振了市场对美联储今年加息的预期。
 
-FDA表示，获批的产品来自总部位于洛杉矶的Glas公司——这是一家利用技术对设备进行年龄验证的小型电子烟制造商，其获批的烟弹口味包括经典薄荷、清新薄荷、黄金和蓝宝石等。
-
-该监管机构表示：“FDA对这些产品进行了严格、科学的审查，发现申请人充分证明，Glas的设备访问限制技术结合FDA要求的营销限制，有望有效降低青少年使用该产品的可能性。
-
-” 当天早些时候，媒体报道称，唐纳德·特朗普总统上周末批评了FDA局长马卡里（Marty Makary），指责其批准调味电子烟和尼古丁产品的速度不够快。
-
-美国监管机构一直避免向调味电子烟发放许可证，FDA 曾表示，对于那些对青少年极具吸引力的电子烟口味（如水果味或糖果味），将继续要求提供大量证据，以证明其对吸烟者的益处。
-
-然而，今年早些时候，该机构调整了对调味电子烟的严格立场，这一转变源于烟草行业日益加剧的游说活动以及允许更多产品上市的政治压力。
-
-随着这一最新决定，FDA目前已批准45种电子烟产品在美国销售。
+日本10年期国债收益率上涨5个基点至2.715%。
 
 责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 03:19 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-30 03:47 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-30 03:42 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-30 03:31 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-30 03:45 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-30 03:44 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 03:31 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-30 03:37 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-30 03:45 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-30 03:39 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 03:24 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-30 03:36 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-30 03:26 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-30 03:27 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 03:28 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-30 03:26 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-30 03:39 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 03:39 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 03:35 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-30 03:36 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-30 03:48 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 03:53 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-30 03:40 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-30 03:46 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-30 03:24 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-30 03:32 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:26 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/5339278602.shtml)
-- 2026-06-30 03:43 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/552010378240.shtml)
-- 2026-06-30 03:30 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/9998224.shtml)
-- 2026-06-30 03:20 - [我们的少年时代2](https://www.blog.minike.top/Article/details/413673307242.shtml)
-- 2026-06-30 03:27 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/34541466644.shtml)
-- 2026-06-30 03:29 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/9050727196.shtml)
-- 2026-06-30 03:24 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/566813.shtml)
-- 2026-06-30 03:39 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/687302.shtml)
-- 2026-06-30 03:22 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/892837240487.shtml)
-- 2026-06-30 03:26 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/41315.shtml)
-- 2026-06-30 03:18 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/40879951985.shtml)
-- 2026-06-30 03:34 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/71380345901.shtml)
-- 2026-06-30 03:30 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/2416541.shtml)
-- 2026-06-30 03:44 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/3337470.shtml)
-- 2026-06-30 03:30 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/3417569.shtml)
+- 2026-06-30 03:40 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/9914808008.shtml)
+- 2026-06-30 03:24 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/80980676.shtml)
+- 2026-06-30 03:33 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/374316105.shtml)
+- 2026-06-30 03:34 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/01553108400.shtml)
+- 2026-06-30 03:44 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/5836798096.shtml)
+- 2026-06-30 03:40 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/60163.shtml)
+- 2026-06-30 03:48 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/910570.shtml)
+- 2026-06-30 03:41 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/663908.shtml)
+- 2026-06-30 03:39 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/879805436.shtml)
+- 2026-06-30 03:51 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/0544276.shtml)
+- 2026-06-30 03:33 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/634222276.shtml)
+- 2026-06-30 03:38 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/415383745.shtml)
+- 2026-06-30 03:50 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/220976860.shtml)
+- 2026-06-30 03:30 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/916443.shtml)
+- 2026-06-30 03:49 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/8849084.shtml)

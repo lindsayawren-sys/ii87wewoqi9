@@ -1,61 +1,46 @@
-# 程伟豪谈《消失的人》：日常缝隙中的不安视角
+# 习言道｜跑出当代青年的最好成绩
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-中新网北京5月4日电 (记者 高凯)2026年五一档行程过半，立于档期票房榜高位的，是犯罪悬疑惊悚电影《消失的人》。该片不仅在竞争激烈的档期中稳居票房前列，更在豆瓣以7.7分开局，被认为显示出观众对高品质类型作品的持续需求。 “这次最想挑战的，恰恰是那种我们每个人都身处其中的日常熟悉感。”该片编剧/导演程伟豪日前接受中新网记者专访，如此概括其新作的创作核心。 这位以《目击者之追
+发布时间：2026年06月07日 07:20 来源：中国新闻网 又逢一年高考季，习近平总书记这句话送给正在高考的你。希望你“在青春的赛道上奋力奔跑，争取跑出当代青年的最好成绩！” 责任编辑：【张舰元】
 
 ## 正文
 
-中新网北京5月4日电 (记者 高凯)2026年五一档行程过半，立于档期票房榜高位的，是犯罪悬疑惊悚电影《消失的人》。
+发布时间：2026年06月07日 07:20 来源：中国新闻网 又逢一年高考季，习近平总书记这句话送给正在高考的你。
 
-该片不仅在竞争激烈的档期中稳居票房前列，更在豆瓣以7.7分开局，被认为显示出观众对高品质类型作品的持续需求。
+希望你“在青春的赛道上奋力奔跑，争取跑出当代青年的最好成绩！
 
-“这次最想挑战的，恰恰是那种我们每个人都身处其中的日常熟悉感。
-
-”该片编剧/导演程伟豪日前接受中新网记者专访，如此概括其新作的创作核心。
-
-这位以《目击者之追凶》《缉魂》等片在犯罪悬疑类型领域建立起鲜明风格的创作者，此次将镜头从相对极端的戏剧环境，转向最具烟火气的日常生活空间。
-
-在他看来，真正的惊悚往往潜藏于日常表象之下，“犯罪故事离我们越近，那种不安全感就越真实、越有冲击力。
-
-我想做的，就是让观众从最熟悉的环境里，感受到陌生的战栗。
-
-” 电影《消失的人》以父母寻子、独居女性遭遇入室侵犯、赌徒藏尸三条相互交织的线索，构筑了一个发生在同一栋居民楼内的环形谜局。
+” 责任编辑：【张舰元】
 
 ## 相关推荐
 
-- 2026-06-30 03:41 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 03:38 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-30 03:28 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-30 03:35 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-30 03:33 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 03:37 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-30 03:42 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-30 03:21 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-30 03:34 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 03:22 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-30 03:40 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-30 03:29 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-30 03:18 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-30 03:20 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 03:33 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 03:27 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-30 03:51 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-30 03:46 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-30 03:36 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-30 03:25 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-30 03:27 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-30 03:42 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-30 03:30 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-30 03:25 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 03:39 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:30 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/086317.shtml)
-- 2026-06-30 03:23 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/503589126749.shtml)
-- 2026-06-30 03:18 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/78653650.shtml)
-- 2026-06-30 03:19 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/814059627998.shtml)
-- 2026-06-30 03:25 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/8431408882.shtml)
-- 2026-06-30 03:22 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/136556294889.shtml)
-- 2026-06-30 03:20 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/3436315.shtml)
-- 2026-06-30 03:36 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/219923.shtml)
-- 2026-06-30 03:47 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/63820478.shtml)
-- 2026-06-30 03:24 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/029434928191.shtml)
-- 2026-06-30 03:46 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/09937629.shtml)
-- 2026-06-30 03:34 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/088246009.shtml)
-- 2026-06-30 03:29 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/2681776908.shtml)
-- 2026-06-30 03:34 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/784519.shtml)
-- 2026-06-30 03:41 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/594123.shtml)
+- 2026-06-30 03:46 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/55642.shtml)
+- 2026-06-30 03:49 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/985364.shtml)
+- 2026-06-30 03:35 - [足球“出口导向”造就佛得角奇迹](http://www.blog.kurohicncr.top/Article/details/0650163.shtml)
+- 2026-06-30 03:44 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/753956890916.shtml)
+- 2026-06-30 03:36 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/3929425384.shtml)
+- 2026-06-30 03:38 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/01814.shtml)
+- 2026-06-30 03:45 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/50346588.shtml)
+- 2026-06-30 03:32 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/045523632747.shtml)
+- 2026-06-30 03:35 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/0746907.shtml)
+- 2026-06-30 03:29 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/950372.shtml)
+- 2026-06-30 03:50 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/01954864000.shtml)
+- 2026-06-30 03:28 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/1782065321.shtml)
+- 2026-06-30 03:49 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/233416.shtml)
+- 2026-06-30 03:41 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/92078.shtml)
+- 2026-06-30 03:36 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/899284610328.shtml)

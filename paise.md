@@ -1,59 +1,60 @@
-# “智慧医疗”扩容升级 中国高端医疗器械亮相广交会
+# 闫瑞祥:美指如期借助非农上涨 欧美如期顺势大跌
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-中新社广州5月4日电 (记者 程景伟)第139届广交会第三期4日正在广州举行，“智慧医疗专区”扩容升级，吸引数十家中国企业参展，展示从AI诊断、手术机器人到智能康养的智慧医疗创新生态。 上海微创医疗机器人(集团)股份有限公司带来的多孔腔镜手术机器人，可辅助医生在狭小的腔体内开展精准识别与解剖、精细切除以及缝合重建等工作。据介绍，截至今年2月，该产品全球市场订单量超过220台，人
+宏观面 6月8日，中东冲突再度升级，伊朗对以色列军事基地发动导弹袭击，地区停火协议岌岌可危。霍尔木兹海峡通行受阻，国际油价大幅上涨，全球通胀担忧加剧。在美国多方斡旋施压下，以色列暂缓报复行动，紧张局势短暂降温，也让市场情绪趋于分化。 轮地缘危机并未推动黄金走强，美国亮眼的非农就业数据才是主导因素。数据远超预期，市场大幅强化美联储加息预期，金价此前一度大跌，创下阶段低点。高利率抬
 
 ## 正文
 
-中新社广州5月4日电 (记者 程景伟)第139届广交会第三期4日正在广州举行，“智慧医疗专区”扩容升级，吸引数十家中国企业参展，展示从AI诊断、手术机器人到智能康养的智慧医疗创新生态。
+宏观面 6月8日，中东冲突再度升级，伊朗对以色列军事基地发动导弹袭击，地区停火协议岌岌可危。
 
-上海微创医疗机器人(集团)股份有限公司带来的多孔腔镜手术机器人，可辅助医生在狭小的腔体内开展精准识别与解剖、精细切除以及缝合重建等工作。
+霍尔木兹海峡通行受阻，国际油价大幅上涨，全球通胀担忧加剧。
 
-据介绍，截至今年2月，该产品全球市场订单量超过220台，人体临床手术量累计突破15000例。
+在美国多方斡旋施压下，以色列暂缓报复行动，紧张局势短暂降温，也让市场情绪趋于分化。
 
-浙江迈克赛德医疗科技有限公司带来“全自动尿液分析流水线”产品。
+轮地缘危机并未推动黄金走强，美国亮眼的非农就业数据才是主导因素。
 
-该产品将光学显微成像技术和AI智能识别算法融合，支持28项有形成分自动分类和临床疾病智能提示。
+数据远超预期，市场大幅强化美联储加息预期，金价此前一度大跌，创下阶段低点。
 
-目前，这款产品已服务于中国百余家三甲医院。
+高利率抬升黄金持有成本，叠加美元、美债收益率走强，持续压制金价。
 
-来自中国医药保健品进出口商会的信息显示，从本届广交会现场看，高端医疗器械领跑市场，诊疗设备与耗材受热捧，中国医药保健品出口正加速从传统原料药向高附加值制剂、高端医疗器械转型。
+目前金价在区间内震荡，避险买盘与加息利空相互博弈。
 
-医疗器械板块继续担当拉动中国医药出口增长的主力。
+自冲突爆发以来，金价累计跌幅已超 17%。
 
 ## 相关推荐
 
-- 2026-06-30 03:40 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-30 03:39 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 03:22 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 03:37 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-30 03:42 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-30 03:35 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 03:20 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-30 03:41 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 03:23 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-30 03:40 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-30 03:32 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-30 03:39 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-30 03:38 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-30 03:30 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-30 03:28 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 03:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 03:53 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-30 03:52 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-30 03:30 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-30 03:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-30 03:36 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-30 03:25 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 03:30 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-30 03:38 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
+- 2026-06-30 03:31 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-30 03:51 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-30 03:38 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:21 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/53456717441.shtml)
-- 2026-06-30 03:28 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/15527.shtml)
-- 2026-06-30 03:40 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/10118154.shtml)
-- 2026-06-30 03:47 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/08326820569.shtml)
-- 2026-06-30 03:28 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/51646903762.shtml)
-- 2026-06-30 03:31 - [爱很美味](http://www.blog.minike.top/Article/details/214206.shtml)
-- 2026-06-30 03:29 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/22313436.shtml)
-- 2026-06-30 03:40 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/24357463.shtml)
-- 2026-06-30 03:42 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/635701602.shtml)
-- 2026-06-30 03:30 - [荷兰VS摩洛哥你看好谁](https://www.share.minike.top/Article/details/928937165.shtml)
-- 2026-06-30 03:20 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/7349689519.shtml)
-- 2026-06-30 03:21 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/546268.shtml)
-- 2026-06-30 03:21 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/965026660646.shtml)
-- 2026-06-30 03:29 - [沙丘](http://www.share.kurohicncr.top/Article/details/90367499658.shtml)
-- 2026-06-30 03:27 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/8117773.shtml)
+- 2026-06-30 03:47 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/251237.shtml)
+- 2026-06-30 03:33 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/50480.shtml)
+- 2026-06-30 03:49 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/56076521.shtml)
+- 2026-06-30 03:36 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/518715991.shtml)
+- 2026-06-30 03:40 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/362703129.shtml)
+- 2026-06-30 03:25 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/788579743966.shtml)
+- 2026-06-30 03:49 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/56335400344.shtml)
+- 2026-06-30 03:37 - [《共患难》](http://www.blog.minike.top/Article/details/73111270002.shtml)
+- 2026-06-30 03:24 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/6644278883.shtml)
+- 2026-06-30 03:37 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/30333.shtml)
+- 2026-06-30 03:36 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/1884610807.shtml)
+- 2026-06-30 03:50 - [这一刀 会很帅](http://www.share.minike.top/Article/details/9963367.shtml)
+- 2026-06-30 03:29 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/098409.shtml)
+- 2026-06-30 03:33 - [乔家的儿女](https://www.share.minike.top/Article/details/100510011.shtml)
+- 2026-06-30 03:26 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/64123507792.shtml)

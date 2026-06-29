@@ -1,56 +1,57 @@
-# 前纽约联储行长Dudley支持鲍威尔在美联储遭“无情攻击”后留任理事
+# 中东突发！伊朗向以色列发射导弹，特朗普发声
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-Bill Dudley表示，在总统唐纳德·特朗普持续施压要求降息之后，美联储主席杰罗姆·鲍威尔在主席任期结束后继续留任理事，将有助于安抚华尔街和公众情绪。 美联储一直受到“总统无情的攻击，其独立性受到质疑，”Dudley周一表示。Dudley曾任纽约联储行长，现为彭博观点专栏作家。“鲍威尔认为，继续留在美联储将有助于强化外界对美联储独立性的看法。如果他愿意留下来，我认为这样做是
+6月8日亚太早盘，截至记者发稿，WTI原油期货价格涨3.35%，报93.57美元/桶。美股期指普跌，道琼斯指数期货跌0.46%，标普500指数期货跌0.50%，纳斯达克100指数期货跌0.62%。消息面上，伊朗再次向以色列发射导弹。 伊朗武装部队警告：或对以色列采取进一步行动 新华社德黑兰6月7日电 据伊朗媒体报道，伊朗武装部队哈塔姆安比亚中央司令部司令7日晚发表声明，警告以色
 
 ## 正文
 
-Bill Dudley表示，在总统唐纳德·特朗普持续施压要求降息之后，美联储主席杰罗姆·鲍威尔在主席任期结束后继续留任理事，将有助于安抚华尔街和公众情绪。
+6月8日亚太早盘，截至记者发稿，WTI原油期货价格涨3.35%，报93.57美元/桶。
 
-美联储一直受到“总统无情的攻击，其独立性受到质疑，”Dudley周一表示。
+美股期指普跌，道琼斯指数期货跌0.46%，标普500指数期货跌0.50%，纳斯达克100指数期货跌0.62%。
 
-Dudley曾任纽约联储行长，现为彭博观点专栏作家。
+消息面上，伊朗再次向以色列发射导弹。
 
-“鲍威尔认为，继续留在美联储将有助于强化外界对美联储独立性的看法。
+伊朗武装部队警告：或对以色列采取进一步行动 新华社德黑兰6月7日电 据伊朗媒体报道，伊朗武装部队哈塔姆安比亚中央司令部司令7日晚发表声明，警告以色列立即停止对黎巴嫩南部和首都贝鲁特南郊的袭击，否则伊朗将针对以色列及其支持者采取更强烈的行动。
 
-如果他愿意留下来，我认为这样做是合理的。
+伊朗当晚向以色列发射导弹，以回应以色列在黎巴嫩扩大军事行动。
 
-” 鲍威尔的理事任期持续到2028年，他选择在5月15日卸任主席后继续留在理事会，这在美联储历史上并不常见。
+伊朗外交部长阿拉格齐在社交媒体上发布一张伊朗和黎巴嫩国旗“肩并肩”的照片。
 
-数十年来未有先例。
+伊朗革命卫队称导弹打击目标是以色列空军基地 新华社德黑兰6月7日电 伊朗伊斯兰革命卫队7日晚发表声明说，伊朗当晚对以色列实施弹道导弹打击的目标是以北部拉马特戴维空军基地。
 
-特朗普一直对鲍威尔及美联储提出严厉批评，威胁发起刑事调查、提起诉讼并解雇美联储官员。
+伊朗打以色列后以军称将猛打黎巴嫩真主党 新华社耶路撒冷6月7日电 以色列国防军发言人埃菲·德弗林7日深夜说，伊朗当晚向以色列发射导弹是“一个严重错误”，以军将继续在黎巴嫩展开行动，并加大对黎真主党的打击力度。
 
 ## 相关推荐
 
-- 2026-06-30 03:21 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-30 03:45 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-30 03:27 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-30 03:23 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 03:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-30 03:20 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-30 03:38 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 03:23 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-30 03:28 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-30 03:46 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-30 03:34 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-30 03:53 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-30 03:29 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-30 03:41 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-30 03:48 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-30 03:45 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-30 03:26 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 03:52 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-30 03:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-30 03:36 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-30 03:31 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:23 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/056651.shtml)
-- 2026-06-30 03:44 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/60646.shtml)
-- 2026-06-30 03:28 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/5694055.shtml)
-- 2026-06-30 03:41 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/8564347.shtml)
-- 2026-06-30 03:32 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/309219776.shtml)
-- 2026-06-30 03:31 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/91199724073.shtml)
-- 2026-06-30 03:47 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/9953224090.shtml)
-- 2026-06-30 03:43 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/1916717613.shtml)
-- 2026-06-30 03:38 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/825118753.shtml)
-- 2026-06-30 03:21 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/2609117.shtml)
-- 2026-06-30 03:37 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/262876.shtml)
-- 2026-06-30 03:18 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/1912728.shtml)
-- 2026-06-30 03:35 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/70343.shtml)
-- 2026-06-30 03:28 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/37930305.shtml)
-- 2026-06-30 03:29 - [老外对中国cosplay竟这样评价…](http://www.blog.minike.top/Article/details/1680265823.shtml)
+- 2026-06-30 03:25 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/47662296.shtml)
+- 2026-06-30 03:50 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/8879361.shtml)
+- 2026-06-30 03:53 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/581929155.shtml)
+- 2026-06-30 03:27 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/582576323.shtml)
+- 2026-06-30 03:24 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/55341.shtml)
+- 2026-06-30 03:51 - [上半年全国特种设备安全形势总体平稳](https://www.share.kurohicncr.top/Article/details/40287296294.shtml)
+- 2026-06-30 03:50 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/209713791.shtml)
+- 2026-06-30 03:35 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/99003.shtml)
+- 2026-06-30 03:31 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/2894057.shtml)
+- 2026-06-30 03:33 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/1994978.shtml)
+- 2026-06-30 03:29 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/042849927.shtml)
+- 2026-06-30 03:31 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/4127447.shtml)
+- 2026-06-30 03:30 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/1771346.shtml)
+- 2026-06-30 03:27 - [上半年全国特种设备安全形势总体平稳](http://www.share.kurohicncr.top/Article/details/490297.shtml)
+- 2026-06-30 03:44 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/28866295089.shtml)

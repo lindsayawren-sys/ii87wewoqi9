@@ -1,61 +1,61 @@
-# Calamos全球动态收益基金宣布月度派息
+# 四川康定4.5级地震：暂无人员伤亡情况报告
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-Calamos投资公司宣布，旗下封闭式基金Calamos全球动态收益基金（CHW）将进行月度股息派发。 根据公司公告，CHW基金将于2026年5月21日向股东派发每股0.05美元的现金股息，股权登记日及除息日均为5月14日。此次派息延续了该基金长期以来的月度派息政策，数据显示CHW基金持续保持稳定的月度分红记录。 CHW基金成立于2007年6月27日，是一家封闭式管理投资公司。
+中新网成都6月8日电 (记者 刘忠俊)记者8日从四川省甘孜州康定市委宣传部、四川省地震局获悉，康定4.5级地震暂未收到人员伤亡情况报告，已启动地震四级应急服务响应。 中国地震台网正式测定，6月8日5时7分在甘孜州康定市发生4.5级地震，震源深度10公里，震中位于北纬29.90度，东经101.91度。 地震发生时，康定市城区震感明显。“感觉摇了下，其他没有什么情况。”家住康定城区
 
 ## 正文
 
-Calamos投资公司宣布，旗下封闭式基金Calamos全球动态收益基金（CHW）将进行月度股息派发。
+中新网成都6月8日电 (记者 刘忠俊)记者8日从四川省甘孜州康定市委宣传部、四川省地震局获悉，康定4.5级地震暂未收到人员伤亡情况报告，已启动地震四级应急服务响应。
 
-根据公司公告，CHW基金将于2026年5月21日向股东派发每股0.05美元的现金股息，股权登记日及除息日均为5月14日。
+中国地震台网正式测定，6月8日5时7分在甘孜州康定市发生4.5级地震，震源深度10公里，震中位于北纬29.90度，东经101.91度。
 
-此次派息延续了该基金长期以来的月度派息政策，数据显示CHW基金持续保持稳定的月度分红记录。
+地震发生时，康定市城区震感明显。
 
-CHW基金成立于2007年6月27日，是一家封闭式管理投资公司。
+“感觉摇了下，其他没有什么情况。
 
-基金的投资目标是以创造高水平的当期收益为主，以资本增值为次要目标。
+”家住康定城区的杨姓居民称。
 
-基金主要投资于全球多元化的可转换工具、普通股和优先股，以及投资级和低于投资级（高收益/高风险）的收益型证券。
+地震发生后，四川省地震局迅速启动地震四级应急服务响应，并与中国地震台网中心、四川省地震局康定地震监测中心站、甘孜州应急管理局联合会商，向中国地震局和四川省委、省政府汇报了初步震情，部署应急响应工作。
 
-截至2026年2月28日，基金前三大持仓分别为台积电（5.38%）、三星电子（3.60%）和英伟达（2.86%）。
+同时，调度甘孜州防震减灾部门核查灾情，先期指派康定地震监测中心站4名同志赶赴震中，开展现场应急处置工作。
 
-从股息构成来看，2026年5月派息全部来自短期资本收益，不包含普通收益或长期资本收益成分。
+目前，甘孜州、康定市应急管理部门正在震中开展地震灾情核查工作。
 
 ## 相关推荐
 
-- 2026-06-30 03:33 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-30 03:20 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-30 03:39 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-30 03:44 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-30 03:21 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-30 03:40 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-30 03:35 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-30 03:30 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-30 03:28 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-30 03:37 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 03:45 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-30 03:26 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-30 03:37 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-30 03:37 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-30 03:31 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-30 03:48 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-30 03:36 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-30 03:30 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-30 03:28 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-30 03:31 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 03:46 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-30 03:47 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-30 03:52 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-30 03:32 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-30 03:40 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-30 03:30 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-30 03:37 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-30 03:50 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-30 03:48 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-30 03:30 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:32 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/734529.shtml)
-- 2026-06-30 03:33 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/877943983.shtml)
-- 2026-06-30 03:43 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/91439581.shtml)
-- 2026-06-30 03:19 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/49647603.shtml)
-- 2026-06-30 03:35 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/32119031.shtml)
-- 2026-06-30 03:21 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/95166045.shtml)
-- 2026-06-30 03:39 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/90068014057.shtml)
-- 2026-06-30 03:34 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/3845535.shtml)
-- 2026-06-30 03:34 - [老外对中国cosplay竟这样评价…](https://www.share.kurohicncr.top/Article/details/103114266537.shtml)
-- 2026-06-30 03:46 - [扬名立万](https://www.share.kurohicncr.top/Article/details/72539.shtml)
-- 2026-06-30 03:28 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/41289322.shtml)
-- 2026-06-30 03:25 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/84283.shtml)
-- 2026-06-30 03:37 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/916368840754.shtml)
-- 2026-06-30 03:46 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/61913.shtml)
-- 2026-06-30 03:26 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/62848.shtml)
+- 2026-06-30 03:29 - [千与千寻](http://www.share.minike.top/Article/details/31079661300.shtml)
+- 2026-06-30 03:37 - [沙丘](https://www.share.kurohicncr.top/Article/details/645546209682.shtml)
+- 2026-06-30 03:39 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/830985187.shtml)
+- 2026-06-30 03:29 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/435345750.shtml)
+- 2026-06-30 03:48 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/286365004.shtml)
+- 2026-06-30 03:48 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/755669620.shtml)
+- 2026-06-30 03:46 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/51065.shtml)
+- 2026-06-30 03:38 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/974891.shtml)
+- 2026-06-30 03:46 - [《贺子珍》](https://www.blog.minike.top/Article/details/30355610215.shtml)
+- 2026-06-30 03:29 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/197113585.shtml)
+- 2026-06-30 03:50 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/970025198548.shtml)
+- 2026-06-30 03:50 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/639715740864.shtml)
+- 2026-06-30 03:25 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/26297.shtml)
+- 2026-06-30 03:32 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/3300419.shtml)
+- 2026-06-30 03:39 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/2430349.shtml)

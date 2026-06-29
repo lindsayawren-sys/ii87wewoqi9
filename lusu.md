@@ -1,58 +1,57 @@
-# 宁夏镇北堡西部影城用“电影+”拓展文旅体验
+# 白宫边境事务主管：将向纽约市大举增派移民执法人员
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-中新社银川5月4日电 (记者 于晶)“曾经有一份真挚的爱情放在我面前，我没有珍惜……”在位于宁夏银川市的镇北堡西部影城，电影《大话西游》的经典台词被游客反复演绎。这座诞生过无数银幕经典的西北影城，正在进行文旅融合变革。 今年“五一”假期，镇北堡西部影城人潮涌动。热闹背后，这座影城正悄然转型：从“影视遗迹”变为“沉浸式剧场”，从“打卡地”变为“创作现场”。 5月4日，西安游客陈松
+特朗普政府已制定计划，将向纽约市大举增派美国移民和海关执法局（ICE）人员，此举恐将加剧特朗普与纽约州州长Kathy Hochul之间因移民政策导致的紧张关系， 总统特朗普任命的白宫边境事务主管Tom Homan周一表示，在Hochul上月底签署一项限制ICE在该州开展行动并禁止ICE特工蒙面的法案之前，他已就增派人员一事向其发出过警告。 “你将在纽约市看到前所未有的ICE人员
 
 ## 正文
 
-中新社银川5月4日电 (记者 于晶)“曾经有一份真挚的爱情放在我面前，我没有珍惜……”在位于宁夏银川市的镇北堡西部影城，电影《大话西游》的经典台词被游客反复演绎。
+特朗普政府已制定计划，将向纽约市大举增派美国移民和海关执法局（ICE）人员，此举恐将加剧特朗普与纽约州州长Kathy Hochul之间因移民政策导致的紧张关系， 总统特朗普任命的白宫边境事务主管Tom Homan周一表示，在Hochul上月底签署一项限制ICE在该州开展行动并禁止ICE特工蒙面的法案之前，他已就增派人员一事向其发出过警告。
 
-这座诞生过无数银幕经典的西北影城，正在进行文旅融合变革。
+“你将在纽约市看到前所未有的ICE人员部署，行动就在眼前，”Homan在电视节目中说，“我刚刚审阅了一份行动计划。
 
-今年“五一”假期，镇北堡西部影城人潮涌动。
+我不会透露具体实施时间，但行动即将展开。
 
-热闹背后，这座影城正悄然转型：从“影视遗迹”变为“沉浸式剧场”，从“打卡地”变为“创作现场”。
+” 特朗普和Homan此前曾威胁要大幅增加纽约市的移民执法人员数量，但尚未像此前针对其他民主党执政的城市和州那样真正付诸实施。
 
-5月4日，西安游客陈松梅站在城墙上，身着定制的紫霞仙子服装，绯红丝带在风中飘动。
+Homan坚持认为，对于移民执法人员来说，在监狱中直接逮捕已被拘留的人员，要比在社区中实施抓捕容易得多。
 
-“这些经典场景我以前只在屏幕上看过，现在能站在取景地拍同款画面，还能和团队一起演一段名场面，真的感觉穿越进电影了。
+他表示，自己曾私下告诉Hochul，如果她阻挠ICE人员逮捕那些已被警方拘留的人员，他将向纽约市大量增派ICE特工。
 
-” 据了解，镇北堡西部影城今年推出的“沉浸式角色体验”项目，并非简单的换装拍照，而是一套完整的“微电影生产流程”：专业拍摄团队，十余个涵盖民国风、西北武侠、经典影视IP改编的短剧剧本，现场工作人员的台词和动作指导以及最终为游客专属剪辑的表演短片。
+Homan发表上述言论之际，新泽西州一家移民拘留中心正持续面临紧张局势和抗议活动。
 
-广州游客林宇选择《新龙门客栈》的武侠剧本，换上剑客的粗布衣服，佩上木剑，在工作人员指导下完成了客栈里的整场打戏。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-30 03:24 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 03:27 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-30 03:30 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-30 03:20 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-30 03:31 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-30 03:30 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-30 03:46 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-30 03:41 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-30 03:32 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-30 03:33 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-30 03:42 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-30 03:47 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-30 03:37 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-30 03:32 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-30 03:32 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-30 03:46 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 03:38 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 03:38 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 03:52 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-30 03:51 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-30 03:53 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-30 03:42 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-30 03:53 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:22 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/59590104.shtml)
-- 2026-06-30 03:29 - [《男人至死是傻得儿》](http://www.blog.kurohicncr.top/Article/details/8421511.shtml)
-- 2026-06-30 03:18 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/893980060.shtml)
-- 2026-06-30 03:30 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/718860.shtml)
-- 2026-06-30 03:32 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/7468507550.shtml)
-- 2026-06-30 03:45 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/11370.shtml)
-- 2026-06-30 03:23 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/0660801602.shtml)
-- 2026-06-30 03:22 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/9758063.shtml)
-- 2026-06-30 03:43 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/01905254.shtml)
-- 2026-06-30 03:42 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/232545.shtml)
-- 2026-06-30 03:46 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/373614045.shtml)
-- 2026-06-30 03:40 - [孙兴慜道歉](https://www.share.minike.top/Article/details/24447937.shtml)
-- 2026-06-30 03:42 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/602201379357.shtml)
-- 2026-06-30 03:20 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/9929540.shtml)
-- 2026-06-30 03:18 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/1194466756.shtml)
+- 2026-06-30 03:26 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/784177326362.shtml)
+- 2026-06-30 03:30 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/89932021.shtml)
+- 2026-06-30 03:39 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/28260606843.shtml)
+- 2026-06-30 03:41 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/094620725.shtml)
+- 2026-06-30 03:34 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/4131999882.shtml)
+- 2026-06-30 03:41 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/58751601.shtml)
+- 2026-06-30 03:34 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/75092896487.shtml)
+- 2026-06-30 03:30 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/6700696.shtml)
+- 2026-06-30 03:33 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/76025470.shtml)
+- 2026-06-30 03:49 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/00524.shtml)
+- 2026-06-30 03:26 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/534694664560.shtml)
+- 2026-06-30 03:32 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/7447207337.shtml)
+- 2026-06-30 03:40 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/49127595523.shtml)
+- 2026-06-30 03:49 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/9173161137.shtml)
+- 2026-06-30 03:52 - [送你一朵小红花](http://www.blog.minike.top/Article/details/101692.shtml)

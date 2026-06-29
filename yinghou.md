@@ -1,59 +1,56 @@
-# 浙江建设者的劳动“五一”：焊花当烟花 塔吊作背景
+# 港股收评：恒指跌1.22% 科指跌2.71% 科网股、黄金股低迷 百度跌超7% 山东墨龙逆势涨超25%
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-中新网宁波5月4日电 (张斌)焊枪喷出蓝白色火花，滋滋声在桥体间回荡。赵培轩趁着擦汗的工夫说：“工程早一天通车，大家通行就会更便捷。想到这儿，我们干活更有劲头。” 说完，他又蹲下身，对着接缝处点焊。 今年“五一”假期，来自河南的焊工赵培轩没有休息。他和70多名工友、30多台大型机械一起，坚守在宁波镇海九龙大道快速路(北外环—东海大道)一期工程Ⅲ标段施工现场。 这条快速路采用“公
+6月8日消息，港股三大指数集体下跌。截至收盘，恒生指数跌1.22%，报24657.06，恒生科技指数跌2.71%，国企指数跌1.13%。盘面上，科网股普跌，百度跌超7%，快手跌超5%，美团跌超4%；油气股部分走强，山东墨龙涨超25%；黄金股下挫，紫金黄金国际跌超8%；光伏太阳能股跌幅居前，钧达股份跌超8%；半导体板块走弱，芯智控股跌超9%。 油气股部分走强，山东墨龙涨超25%。
 
 ## 正文
 
-中新网宁波5月4日电 (张斌)焊枪喷出蓝白色火花，滋滋声在桥体间回荡。
+6月8日消息，港股三大指数集体下跌。
 
-赵培轩趁着擦汗的工夫说：“工程早一天通车，大家通行就会更便捷。
+截至收盘，恒生指数跌1.22%，报24657.06，恒生科技指数跌2.71%，国企指数跌1.13%。
 
-想到这儿，我们干活更有劲头。
+盘面上，科网股普跌，百度跌超7%，快手跌超5%，美团跌超4%；油气股部分走强，山东墨龙涨超25%；黄金股下挫，紫金黄金国际跌超8%；光伏太阳能股跌幅居前，钧达股份跌超8%；半导体板块走弱，芯智控股跌超9%。
 
-” 说完，他又蹲下身，对着接缝处点焊。
+油气股部分走强，山东墨龙涨超25%。
 
-今年“五一”假期，来自河南的焊工赵培轩没有休息。
+以色列国防军今天（6月8日）表示，当天稍早，在以军情报局的指挥下，数十架以色列空军战斗机对伊朗境内战略防御系统实施了大规模打击。
 
-他和70多名工友、30多台大型机械一起，坚守在宁波镇海九龙大道快速路(北外环—东海大道)一期工程Ⅲ标段施工现场。
+以军称，伊朗近期在多地部署防御系统，试图恢复其在此前军事冲突中受损的探测和防御能力。
 
-这条快速路采用“公轨共建”模式——高架上层为城市快速路，双向6车道；中间层是宁波市域铁路宁慈线(轨道交通10号线)；下层地面道路为城市主干路，双向6车道。
+以军表示，此次打击已摧毁这些系统。
 
-三层“叠”在一起，未来从宁波中心城区可一路畅达当地的慈溪、余姚。
+以军称，在今年早些时候以军对伊朗的军事打击中，伊朗的防御体系已被严重削弱，而最新一次的打击则进一步提升了以色列空军在伊朗领空的行动自由度。
 
 ## 相关推荐
 
-- 2026-06-30 03:32 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-30 03:19 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-30 03:21 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-30 03:41 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-30 03:32 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-30 03:26 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-30 03:42 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-30 03:19 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-30 03:44 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-30 03:35 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-30 03:23 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-30 03:29 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-30 03:28 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-30 03:34 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-30 03:31 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-30 03:30 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-30 03:28 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-30 03:30 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 03:52 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 03:43 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-30 03:53 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-30 03:41 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-30 03:32 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:25 - [恋与深空回应争议](https://www.share.minike.top/Article/details/361403088.shtml)
-- 2026-06-30 03:26 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/609306.shtml)
-- 2026-06-30 03:44 - [千与千寻](https://www.share.minike.top/Article/details/7737645.shtml)
-- 2026-06-30 03:28 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/500950705518.shtml)
-- 2026-06-30 03:39 - [斛珠夫人](http://www.blog.minike.top/Article/details/7936911.shtml)
-- 2026-06-30 03:33 - [巴西绝杀](http://www.share.kurohicncr.top/Article/details/8137840.shtml)
-- 2026-06-30 03:36 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/896578059453.shtml)
-- 2026-06-30 03:19 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/49100549635.shtml)
-- 2026-06-30 03:26 - [周生如故](https://www.blog.kurohicncr.top/Article/details/576944.shtml)
-- 2026-06-30 03:40 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/2972790.shtml)
-- 2026-06-30 03:30 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/58075700.shtml)
-- 2026-06-30 03:34 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/066819206.shtml)
-- 2026-06-30 03:34 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/15162366.shtml)
-- 2026-06-30 03:27 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/06582.shtml)
-- 2026-06-30 03:36 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/3361395.shtml)
+- 2026-06-30 03:28 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/839067.shtml)
+- 2026-06-30 03:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/84553500887.shtml)
+- 2026-06-30 03:49 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/434486896.shtml)
+- 2026-06-30 03:47 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/14713103.shtml)
+- 2026-06-30 03:42 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/85910172.shtml)
+- 2026-06-30 03:50 - [极限挑战第一季](http://www.share.minike.top/Article/details/6806818.shtml)
+- 2026-06-30 03:33 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/621522685556.shtml)
+- 2026-06-30 03:37 - [请回答王牌2019](http://www.blog.minike.top/Article/details/669688640.shtml)
+- 2026-06-30 03:46 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/832242791644.shtml)
+- 2026-06-30 03:35 - [《贺子珍》](http://www.blog.minike.top/Article/details/36772582150.shtml)
+- 2026-06-30 03:46 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/261948.shtml)
+- 2026-06-30 03:27 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/62918409.shtml)
+- 2026-06-30 03:26 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/439684562009.shtml)
+- 2026-06-30 03:51 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/689676580.shtml)
+- 2026-06-30 03:33 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/047436.shtml)

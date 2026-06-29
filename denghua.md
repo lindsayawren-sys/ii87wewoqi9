@@ -1,59 +1,58 @@
-# 大反弹！A股悄然收复4100点，这波行情究竟在“涨”什么？
+# 国家网信办、市场监管总局联合印发《网络测评活动规范》
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！A股为何突然“易涨难跌”？答案藏在“大国复利”里。 “五一”小长假之前，上证指数重返4100点。自2025年10月以来，大盘已经悄然在4000点之上运行了7个月。上证指数在2024年一季度曾下探至2600点，从2600点到4100点是一段接近60%的反弹。 “股市未必是经济的晴雨表，但一定是社会预期的晴雨表
+中新网6月8日电 据“网信中国”微信公众号8日消息，近日，国家网信办、市场监管总局联合印发《网络测评活动规范》(以下简称《规范》)。国家网信办有关负责人表示，《规范》旨在规范网络测评活动，维护公平市场竞争秩序，保护公民、法人和其他组织合法权益。近年来，网络测评快速兴起，测评类经营主体通过开展测试、对比分析数据、引用专业检测结果或者表达使用感受等方式，发布测试过程与评价结果，为消
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网6月8日电 据“网信中国”微信公众号8日消息，近日，国家网信办、市场监管总局联合印发《网络测评活动规范》(以下简称《规范》)。
 
-A股为何突然“易涨难跌”？
+国家网信办有关负责人表示，《规范》旨在规范网络测评活动，维护公平市场竞争秩序，保护公民、法人和其他组织合法权益。
 
-答案藏在“大国复利”里。
+近年来，网络测评快速兴起，测评类经营主体通过开展测试、对比分析数据、引用专业检测结果或者表达使用感受等方式，发布测试过程与评价结果，为消费者购物提供参考。
 
-“五一”小长假之前，上证指数重返4100点。
+但一些网络测评存在夸大宣传、只评不测、商测一体等问题，不仅影响消费者信任度和购物体验，也扰乱市场环境。
 
-自2025年10月以来，大盘已经悄然在4000点之上运行了7个月。
+出台《规范》，是推动网络测评活动健康发展的需要，也是优化营商网络环境、维护企业合法权益的需要。
 
-上证指数在2024年一季度曾下探至2600点，从2600点到4100点是一段接近60%的反弹。
+《规范》明确，从事网络测评活动，应当遵守法律、行政法规和国家有关规定，遵循商业道德、公序良俗，坚持客观、公正、全面、准确原则。
 
-“股市未必是经济的晴雨表，但一定是社会预期的晴雨表。
+《规范》要求，从事网络测评活动，涉及对产品功能、性能等项目测试，应当委托具有法定检验检测资质许可的检验检测机构按照相关标准以及技术规范开展测试。
 
-”正如中国人民大学重阳研究院院长王文所说，2023年二季度到2024年三季度，上证指数长期在2600点到3400点之间徘徊，长达多月的股市低迷，多少受了“中国见顶论”悲观论调影响。
+对食品开展检验检测的，测试方应当具备相应资质，不得使用非标方法，不得测评无国家标准检验方法的项目。
 
 ## 相关推荐
 
-- 2026-06-30 03:42 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 03:47 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-30 03:43 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-30 03:32 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-30 03:45 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-30 03:35 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-30 03:41 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-30 03:21 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-30 03:24 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-30 03:47 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-30 03:42 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-30 03:24 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-30 03:29 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-30 03:26 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-30 03:26 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-30 03:35 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-30 03:46 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-30 03:27 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-30 03:51 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-30 03:37 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-30 03:47 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-30 03:29 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-30 03:38 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-30 03:37 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-30 03:47 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:28 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/170158.shtml)
-- 2026-06-30 03:19 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/0161898.shtml)
-- 2026-06-30 03:29 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/632761.shtml)
-- 2026-06-30 03:28 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/59239.shtml)
-- 2026-06-30 03:36 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/818686.shtml)
-- 2026-06-30 03:21 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/108937756.shtml)
-- 2026-06-30 03:18 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/66229568.shtml)
-- 2026-06-30 03:32 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/6298134000.shtml)
-- 2026-06-30 03:37 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/96442241.shtml)
-- 2026-06-30 03:27 - [日本进球](https://www.blog.kurohicncr.top/Article/details/24616157.shtml)
-- 2026-06-30 03:21 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/339764261.shtml)
-- 2026-06-30 03:23 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/022660.shtml)
-- 2026-06-30 03:23 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/14328199.shtml)
-- 2026-06-30 03:18 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/85595667.shtml)
-- 2026-06-30 03:29 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/1834023.shtml)
+- 2026-06-30 03:25 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/84391785311.shtml)
+- 2026-06-30 03:31 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/829313367.shtml)
+- 2026-06-30 03:29 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/690959941423.shtml)
+- 2026-06-30 03:44 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/332185753664.shtml)
+- 2026-06-30 03:27 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/5639575.shtml)
+- 2026-06-30 03:28 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/48466939.shtml)
+- 2026-06-30 03:26 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/7019241282.shtml)
+- 2026-06-30 03:27 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/78651170.shtml)
+- 2026-06-30 03:24 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/843836.shtml)
+- 2026-06-30 03:52 - [我们的少年时代2](http://www.blog.minike.top/Article/details/863598468.shtml)
+- 2026-06-30 03:41 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/49632.shtml)
+- 2026-06-30 03:43 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/20632176.shtml)
+- 2026-06-30 03:50 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/031262.shtml)
+- 2026-06-30 03:52 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/23682.shtml)
+- 2026-06-30 03:29 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/1629583.shtml)

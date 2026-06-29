@@ -1,56 +1,60 @@
-# 特写：沸腾的库布其沙漠
+# 国泰君安期货：金银铂钯，今日开盘集体大跌
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-中新网鄂尔多斯5月3日电 题：沸腾的库布其沙漠 中新网记者李爱平 “嗷呜！”在库布其沙漠，郑立增的越野车引擎骤然炸响，低沉的轰鸣裹挟着风沙，车轮卷起黄沙簌簌翻飞，呼啸向前。5月3日上午，他在接受记者专访时表示：“再次来沙漠参赛，太美妙了。” 43岁的郑立增是北京顺义人，这是他第15次踏入库布其沙漠参加越野比赛。他笑着说：“来沙漠前一夜，兴奋得都失眠了！” 位于内蒙古自治区鄂尔多
+国泰君安期货市场分析师 张驰宁 Z0020302 今日（2026年6月8日）早盘，贵金属市场出现集体回调，黄金、白银、铂金、钯金价格同步下跌。 【商品异动分析】 此次下跌承接了上周五夜盘时段因强劲非农数据而引发的抛售压力，市场情绪整体偏弱。 l 超预期非农数据强化市场担忧：上周五公布的美国5月非农就业人口新增17.2万人，远超市场预期，强劲的数据引发了市场对美联储可能推迟降息的
 
 ## 正文
 
-中新网鄂尔多斯5月3日电 题：沸腾的库布其沙漠 中新网记者李爱平 “嗷呜！
+国泰君安期货市场分析师 张驰宁 Z0020302 今日（2026年6月8日）早盘，贵金属市场出现集体回调，黄金、白银、铂金、钯金价格同步下跌。
 
-”在库布其沙漠，郑立增的越野车引擎骤然炸响，低沉的轰鸣裹挟着风沙，车轮卷起黄沙簌簌翻飞，呼啸向前。
+【商品异动分析】 此次下跌承接了上周五夜盘时段因强劲非农数据而引发的抛售压力，市场情绪整体偏弱。
 
-5月3日上午，他在接受记者专访时表示：“再次来沙漠参赛，太美妙了。
+l 超预期非农数据强化市场担忧：上周五公布的美国5月非农就业人口新增17.2万人，远超市场预期，强劲的数据引发了市场对美联储可能推迟降息的担忧，推动美元指数快速走强，直接压制了以美元计价的贵金属。
 
-” 43岁的郑立增是北京顺义人，这是他第15次踏入库布其沙漠参加越野比赛。
+（然而，从行业结构分析，新增就业高度集中于休闲与酒店业等少数板块，这种就业增长集中在个别行业，不代表整体经济普遍好转，后续可能难以维持。
 
-他笑着说：“来沙漠前一夜，兴奋得都失眠了！
+） （资料来源：金十数据、国泰君安期货研究所） l 市场资金持续流出：上周五美股，特别是半导体板块，因市场对AI需求前景的担忧而大幅回调，引发全市场流动性被动收紧。
 
-” 位于内蒙古自治区鄂尔多斯市境内的库布其沙漠，是中国第七大沙漠。
+贵金属在此过程中未能发挥避险属性，反而与风险资产一同被抛售，全球主要贵金属ETF持仓持续降低，COMEX金银的持仓也回落到了低位，尽管有央行购金（如中国央行5月购金近10吨）提供长期托底，但难以抵挡短期投机盘的集中离场压力。
 
-5月2日至3日，这片沉寂的沙漠彻底沸腾，来自全国各地的车手，伴随着强劲的摇滚乐，在大漠之上驰骋竞速。
+（资料来源：Wind、国泰君安期货研究所） l 铂钯基本面偏弱：由于价格急促下行，终端采购“买涨不买跌”，难以指望刚需集中入场支撑价格。
 
-“沙漠、摇滚、越野的组合，只有来到现场才能有真切感受。
+伦敦市场的远期结构也显示铂钯短期内供应压力边际增加。
 
 ## 相关推荐
 
-- 2026-06-30 03:44 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-30 03:40 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-30 03:20 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-30 03:46 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-30 03:18 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-30 03:29 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-30 03:34 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-30 03:34 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-30 03:33 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 03:43 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-30 03:25 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-30 03:43 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-30 03:43 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-30 03:35 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-30 03:40 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-30 03:26 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 03:49 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-30 03:53 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-30 03:51 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-30 03:34 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 03:43 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 03:31 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-30 03:46 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-30 03:51 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:19 - [点菜也要教吗](http://www.blog.minike.top/Article/details/224706.shtml)
-- 2026-06-30 03:24 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/832527154233.shtml)
-- 2026-06-30 03:24 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/97985130460.shtml)
-- 2026-06-30 03:37 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/42222336.shtml)
-- 2026-06-30 03:35 - [世界杯](http://www.share.minike.top/Article/details/64784.shtml)
-- 2026-06-30 03:29 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/520026017.shtml)
-- 2026-06-30 03:44 - [千与千寻](http://www.share.kurohicncr.top/Article/details/44416452.shtml)
-- 2026-06-30 03:21 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/83799415.shtml)
-- 2026-06-30 03:23 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/808197.shtml)
-- 2026-06-30 03:42 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/45812.shtml)
-- 2026-06-30 03:20 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/850743.shtml)
-- 2026-06-30 03:34 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/904427.shtml)
-- 2026-06-30 03:28 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/29242.shtml)
-- 2026-06-30 03:48 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/7465689.shtml)
-- 2026-06-30 03:37 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/116815.shtml)
+- 2026-06-30 03:33 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/213486.shtml)
+- 2026-06-30 03:34 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/85017302463.shtml)
+- 2026-06-30 03:26 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/602552.shtml)
+- 2026-06-30 03:41 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/80513253.shtml)
+- 2026-06-30 03:30 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/906269.shtml)
+- 2026-06-30 03:44 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/29776.shtml)
+- 2026-06-30 03:35 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/447713831.shtml)
+- 2026-06-30 03:51 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/953264669.shtml)
+- 2026-06-30 03:47 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/8472096205.shtml)
+- 2026-06-30 03:39 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/13166893.shtml)
+- 2026-06-30 03:48 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/38826.shtml)
+- 2026-06-30 03:34 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/37046633.shtml)
+- 2026-06-30 03:28 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/074813807040.shtml)
+- 2026-06-30 03:38 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/619406308.shtml)
+- 2026-06-30 03:25 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/00294.shtml)

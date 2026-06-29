@@ -1,57 +1,60 @@
-# 芒格书院施宏俊：价投和风投在核心原则上一致——投对的人
+# 韩国陶艺家结缘云南潦浒 助千年陶镇提质扬名
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-专题：对话奥马哈·第十一届中美投资人酒会 2026年5月2日，在伯克希尔·哈撒韦股东大会期间举行的新浪财经中美投资人酒会主题论坛“价值投资的当代实践”上，芒格书院创始人施宏俊回溯了价值投资的历史起点。他提到，1956年26岁的巴菲特在奥马哈创立首家合伙公司，募资仅10万美元，却由此开启了持续70年的价值投资时代；几乎同一时期，仙童半导体的成立则标志着风险投资模式的兴起，推动了硅
+中新网曲靖6月8日电 题：韩国陶艺家结缘云南潦浒 助千年陶镇提质扬名 作者 陆希成 白玲 李嘉娴 “火焰在窑里跳动，柴烧的声响像一支交响乐。”回忆三年前第一次在云南省曲靖市越州镇潦浒村点燃龙窑，韩国陶艺家郑东薰记忆犹新，称那一刻只想“与其合二为一”。 郑东薰曾任韩国圆光大学陶瓷艺术学院院长，从事陶艺五十余年。2023年，他应邀来到云南潦浒，参与当地陶瓷文化的保护、研究与对外交流
 
 ## 正文
 
-专题：对话奥马哈·第十一届中美投资人酒会 2026年5月2日，在伯克希尔·哈撒韦股东大会期间举行的新浪财经中美投资人酒会主题论坛“价值投资的当代实践”上，芒格书院创始人施宏俊回溯了价值投资的历史起点。
+中新网曲靖6月8日电 题：韩国陶艺家结缘云南潦浒 助千年陶镇提质扬名 作者 陆希成 白玲 李嘉娴 “火焰在窑里跳动，柴烧的声响像一支交响乐。
 
-他提到，1956年26岁的巴菲特在奥马哈创立首家合伙公司，募资仅10万美元，却由此开启了持续70年的价值投资时代；几乎同一时期，仙童半导体的成立则标志着风险投资模式的兴起，推动了硅谷的诞生。
+”回忆三年前第一次在云南省曲靖市越州镇潦浒村点燃龙窑，韩国陶艺家郑东薰记忆犹新，称那一刻只想“与其合二为一”。
 
-两种投资范式在同一历史节点出现，却走向了截然不同的路径。
+郑东薰曾任韩国圆光大学陶瓷艺术学院院长，从事陶艺五十余年。
 
-施宏俊指出，风险投资以寻找颠覆性技术和商业模式为核心，强调对变化的敏感与前沿布局；而价值投资则更关注在变化世界中寻找“不被改变”的公司，其核心在于稳定现金流与可持续竞争优势。
+2023年，他应邀来到云南潦浒，参与当地陶瓷文化的保护、研究与对外交流，潜心至今。
 
-他引用巴菲特在1999年互联网泡沫时期的反思强调，在产业剧变中，投资者更应思考“谁会失败”，而非仅关注行业增长性，真正的关键在于判断具体公司是否具备长期护城河。
+在郑东薰看来，中国是瓷器的重要发源地，在世界陶瓷史上地位独特。
 
-不过，在他看来，价值投资与风险投资在一个核心原则上高度一致——“投对的人”。
+“英文里的‘china’，本就指瓷器。
 
-无论是巴菲特近年来反复强调的“the right person”，还是投资案例中将管理者置于首位的判断逻辑，最终都指向同一结论：无论是寻找伟大公司，还是押注未来技术，识别并信任正确的人，是穿越周期的底层能力。
+”他说，而潦浒，正是这条脉络上一处难得的活样本——现存明代以来的龙窑及遗址16处，数量居全中国之首，其中12处窑火不熄，仍以柴烧的方式制陶。
 
-附演讲全文： 今天的论坛主题是“价值投资的当代实践”，但是，我想先把时间拉到更远一点，回到巴菲特的青年时代。
+据研究潦浒陶瓷三十余年、著有《潦浒陶瓷史》的学者王启国介绍，潦浒制陶始于宋代，明清时已发展为滇东重要的陶瓷集镇；古桥、古街、古码头与一间间作坊相连，至今成片保留着依山而建的古龙窑，窑火未熄，从选泥、踩泥、揉泥到晾坯、装窑，传统工序数年未断。
 
 ## 相关推荐
 
-- 2026-06-30 03:44 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-30 03:20 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-30 03:29 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 03:33 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 03:19 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-30 03:32 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-30 03:37 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-30 03:45 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-30 03:23 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-30 03:42 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 03:26 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-30 03:42 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-30 03:52 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-30 03:32 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 03:29 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-30 03:32 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-30 03:46 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 03:46 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-30 03:51 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 03:46 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 03:32 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 03:49 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-30 03:50 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-30 03:37 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-30 03:53 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:32 - [巴西2比1日本](https://www.blog.kurohicncr.top/Article/details/3934733136.shtml)
-- 2026-06-30 03:39 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/427236.shtml)
-- 2026-06-30 03:24 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/08630095162.shtml)
-- 2026-06-30 03:30 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/6312634437.shtml)
-- 2026-06-30 03:40 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/69581018.shtml)
-- 2026-06-30 03:32 - [金刚川](http://www.share.minike.top/Article/details/337390.shtml)
-- 2026-06-30 03:31 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/613340.shtml)
-- 2026-06-30 03:38 - [沙丘](http://www.share.kurohicncr.top/Article/details/27045941451.shtml)
-- 2026-06-30 03:34 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/9635430053.shtml)
-- 2026-06-30 03:30 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/87132136.shtml)
-- 2026-06-30 03:44 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/1305850962.shtml)
-- 2026-06-30 03:33 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/76921559.shtml)
-- 2026-06-30 03:23 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/20200830.shtml)
-- 2026-06-30 03:27 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/9544625.shtml)
-- 2026-06-30 03:19 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/65642223728.shtml)
+- 2026-06-30 03:27 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/141764.shtml)
+- 2026-06-30 03:36 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/22599228.shtml)
+- 2026-06-30 03:47 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/162037044.shtml)
+- 2026-06-30 03:35 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/749791.shtml)
+- 2026-06-30 03:42 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/57101.shtml)
+- 2026-06-30 03:26 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/7748456.shtml)
+- 2026-06-30 03:32 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/167283156.shtml)
+- 2026-06-30 03:53 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/97781246.shtml)
+- 2026-06-30 03:43 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/987186.shtml)
+- 2026-06-30 03:25 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/833167186329.shtml)
+- 2026-06-30 03:25 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/8808905.shtml)
+- 2026-06-30 03:51 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/8879134849.shtml)
+- 2026-06-30 03:42 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/883674.shtml)
+- 2026-06-30 03:25 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/71026.shtml)
+- 2026-06-30 03:37 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/96347855387.shtml)

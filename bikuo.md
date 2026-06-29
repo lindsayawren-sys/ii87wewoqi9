@@ -1,61 +1,58 @@
-# 山西晋城：千年老街焕新彩 文旅盛宴醉游人
+# 浙江仙居：一颗杨梅串起土特产全链致富路
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-中新网晋城5月5日电 (杨佩佩 高俊明)“五一”假期，山西省晋城市城区南大街以“‘晋’享好戏 花漾凤城”为核心，开启文化艺术周活动。千年古街深挖历史文脉与本土文化底蕴，将传统演艺、非遗韵律、潮流体验与市井烟火完美相融，让老街焕发新活力，成为全市假期热门文旅打卡地。 本次南大街文化艺术周活动全方位打造沉浸式文旅体验场景，让游客在青石板路与古巷风貌中，感受老城底蕴，品味文化魅力。文
+中新网台州6月6日电(张益聪)六月浙江杨梅熟，海内外民众共盼一口“鲜”味。此前，随着今年首批出口的仙居杨梅落地新加坡，浙江全域也迎来了杨梅产销旺季。 近日，2026浙江土特产“六月杨梅红”仙居杨梅季系列活动在浙江省台州市仙居县举行。这颗小小的红果背后，是一条完整的杨梅产业链。 截至2025年底，仙居杨梅种植面积稳定在15万亩以上，2025年鲜果产值13亿元(人民币，下同)，全产
 
 ## 正文
 
-中新网晋城5月5日电 (杨佩佩 高俊明)“五一”假期，山西省晋城市城区南大街以“‘晋’享好戏 花漾凤城”为核心，开启文化艺术周活动。
+中新网台州6月6日电(张益聪)六月浙江杨梅熟，海内外民众共盼一口“鲜”味。
 
-千年古街深挖历史文脉与本土文化底蕴，将传统演艺、非遗韵律、潮流体验与市井烟火完美相融，让老街焕发新活力，成为全市假期热门文旅打卡地。
+此前，随着今年首批出口的仙居杨梅落地新加坡，浙江全域也迎来了杨梅产销旺季。
 
-本次南大街文化艺术周活动全方位打造沉浸式文旅体验场景，让游客在青石板路与古巷风貌中，感受老城底蕴，品味文化魅力。
+近日，2026浙江土特产“六月杨梅红”仙居杨梅季系列活动在浙江省台州市仙居县举行。
 
-文庙巷口，“花漾凤城一路有戏”街区行进式表演成为一大亮点，表演队伍移步换景，与古色古香的街巷建筑、青砖黛瓦相得益彰，勾勒出“一步一景、一景一戏”的唯美画卷。
+这颗小小的红果背后，是一条完整的杨梅产业链。
 
-非遗广场上，“最晋城最动听”古建音乐会悠扬奏响，成为老街人气聚集地。
+截至2025年底，仙居杨梅种植面积稳定在15万亩以上，2025年鲜果产值13亿元(人民币，下同)，全产业链总产值突破48亿元。
 
-独具特色的老式录音机舞台造型吸睛十足，传统音律与现代潮流音乐碰撞交融，既有本土民俗曲调的温婉绵长，又有潮流乐曲的青春活力，灯光随旋律变幻，游客们自发打开手机闪光灯，跟着节奏合唱互动，用音乐点亮老街夜空，勾勒出兼具烟火气与文艺感的诗意画面。
+数字背后，仙居因地制宜探索出一套标准化的生产体系。
 
-漫步南大街，既能触摸千年老街的历史厚重感，感受老城街巷的岁月积淀，又能沉浸式参与丰富的文化活动，解锁多元文旅体验。
+得益于优越的自然生态禀赋，仙居杨梅果大汁多、糖分充足。
 
-古街两侧，剪纸、面塑等非遗技艺展示让游客近距离感受非遗魅力，本土特色小吃勾起浓浓乡愁，让游客在游玩之余，品味晋城独特的风味与文化。
+在此基础上，当地还全域推广“梅—茶—鸡—蜂”绿色复合种养体系，形成生态保护与生态价值转化的良性循环。
 
 ## 相关推荐
 
-- 2026-06-30 03:31 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-30 03:32 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-30 03:42 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 03:33 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-30 03:29 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-30 03:22 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-30 03:30 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-30 03:45 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-30 03:27 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 03:35 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-30 03:25 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 03:45 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-30 03:45 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-30 03:44 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-30 03:46 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-30 03:51 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-30 03:52 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-30 03:27 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-30 03:27 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-30 03:25 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 03:41 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 03:36 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-30 03:33 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-30 03:43 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-30 03:35 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-30 03:50 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 03:27 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:36 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/9730646286.shtml)
-- 2026-06-30 03:38 - [勇敢的心第二部](http://www.share.minike.top/Article/details/323166245.shtml)
-- 2026-06-30 03:41 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/1458004049.shtml)
-- 2026-06-30 03:23 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/587136984.shtml)
-- 2026-06-30 03:33 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/05373642.shtml)
-- 2026-06-30 03:25 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/8171881487.shtml)
-- 2026-06-30 03:44 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/283255.shtml)
-- 2026-06-30 03:46 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/771267968920.shtml)
-- 2026-06-30 03:38 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/094227.shtml)
-- 2026-06-30 03:42 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/043639.shtml)
-- 2026-06-30 03:25 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/6588458.shtml)
-- 2026-06-30 03:38 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/22484.shtml)
-- 2026-06-30 03:26 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/30913878246.shtml)
-- 2026-06-30 03:45 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/41240999946.shtml)
-- 2026-06-30 03:21 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/82444545518.shtml)
+- 2026-06-30 03:36 - [女心理师](http://www.blog.kurohicncr.top/Article/details/55282465183.shtml)
+- 2026-06-30 03:26 - [巴西2比1日本](https://www.blog.kurohicncr.top/Article/details/72383.shtml)
+- 2026-06-30 03:37 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/409921195.shtml)
+- 2026-06-30 03:52 - [金刚川](https://www.share.kurohicncr.top/Article/details/53128.shtml)
+- 2026-06-30 03:35 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/864944763075.shtml)
+- 2026-06-30 03:47 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/1789799.shtml)
+- 2026-06-30 03:47 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/7541535.shtml)
+- 2026-06-30 03:40 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/507381400814.shtml)
+- 2026-06-30 03:28 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/1903189349.shtml)
+- 2026-06-30 03:43 - [天道](https://www.share.kurohicncr.top/Article/details/628548962.shtml)
+- 2026-06-30 03:52 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/522741544995.shtml)
+- 2026-06-30 03:25 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/4781341319.shtml)
+- 2026-06-30 03:30 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/9612808.shtml)
+- 2026-06-30 03:26 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/776753389624.shtml)
+- 2026-06-30 03:37 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/239331.shtml)

@@ -1,56 +1,58 @@
-# 尾盘：美股继续下滑 中东紧张局势推动油价走高
+# 美股半导体及人工智能板块盘前反弹 科技股暴跌引发市场关注
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-北京时间5月5日凌晨，美股周一尾盘继续下滑，道指跌逾500点。中东地缘政治紧张局势再度升温，油价持续攀升打压了市场风险偏好。投资者正等待本周晚些时候公布的4月非农就业报告。 道指跌548.50点，跌幅为1.11%，报48950.77点；纳指跌73.94点，跌幅为0.29%，报25040.50点；标普500指数跌33.92点，跌幅为0.47%，报7196.20点。 由于中东最新局
+纽约股市周一盘前交易中，半导体及人工智能（AI）基础设施类股票迎来集体反弹，多只核心标的显著回升，正逐步收复上周五因地缘政治引发的巨大跌幅。 市场数据显示，具有行业风向标意义的 VanEck 半导体 ETF 在盘前交易中上涨 3.3%。此前，费城半导体指数在上周五暴跌 10%，创下 2020 年 3 月以来的最大单日跌幅。在最新盘前时段中，相关个股波动显著。其中，Marvell
 
 ## 正文
 
-北京时间5月5日凌晨，美股周一尾盘继续下滑，道指跌逾500点。
+纽约股市周一盘前交易中，半导体及人工智能（AI）基础设施类股票迎来集体反弹，多只核心标的显著回升，正逐步收复上周五因地缘政治引发的巨大跌幅。
 
-中东地缘政治紧张局势再度升温，油价持续攀升打压了市场风险偏好。
+市场数据显示，具有行业风向标意义的 VanEck 半导体 ETF 在盘前交易中上涨 3.3%。
 
-投资者正等待本周晚些时候公布的4月非农就业报告。
+此前，费城半导体指数在上周五暴跌 10%，创下 2020 年 3 月以来的最大单日跌幅。
 
-道指跌548.50点，跌幅为1.11%，报48950.77点；纳指跌73.94点，跌幅为0.29%，报25040.50点；标普500指数跌33.92点，跌幅为0.47%，报7196.20点。
+在最新盘前时段中，相关个股波动显著。
 
-由于中东最新局势发展推高油价，进一步引发对该地区不稳定的担忧，美国股市下跌。
+其中，Marvell 领涨 8.7%，美光科技上涨 5.7%，超威半导体（AMD）上涨 2.8%，英伟达上涨 2.4%，台积电美股上涨 3.2%。
 
-周一阿拉伯联合酋长国表示拦截了从伊朗发射的多枚导弹。
+此外，英特尔、西部数据、Super Micro 等产业链骨干企业也均出现不同程度的温和上涨。
 
-这是自美伊上月开始停火以来，阿联酋的导弹警报系统首次启动。
+针对上周五科技股的剧烈回调，英伟达首席执行官黄仁勋日前公开表示，全球人工智能基础设施的建设才刚刚开始，科技股的短期暴跌反而为长线资金创造了买入机会。
 
-油价在此次事件后应声上涨。
+市场分析人士普遍指出，虽然全球半导体产业链在经历前期高歌猛进后正面临地缘冲突外溢与高估值的双重考验，但短期技术性回调并未动摇由生成式人工智能需求催生的行业基本面。
 
 ## 相关推荐
 
-- 2026-06-30 03:44 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-30 03:38 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-30 03:39 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-30 03:19 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-30 03:27 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-30 03:31 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-30 03:28 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 03:46 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-30 03:29 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-30 03:35 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 03:35 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 03:47 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-30 03:51 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-30 03:49 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-30 03:53 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-30 03:43 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-30 03:42 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-30 03:39 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 03:40 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-30 03:50 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 03:28 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-30 03:33 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:33 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/44837490280.shtml)
-- 2026-06-30 03:42 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/8492990.shtml)
-- 2026-06-30 03:34 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/301260038.shtml)
-- 2026-06-30 03:44 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/69539917799.shtml)
-- 2026-06-30 03:40 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/727634821.shtml)
-- 2026-06-30 03:32 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/74376104648.shtml)
-- 2026-06-30 03:35 - [巴西2比1日本](http://www.share.kurohicncr.top/Article/details/98837.shtml)
-- 2026-06-30 03:24 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/38876571.shtml)
-- 2026-06-30 03:40 - [勇敢的心第二部](https://www.share.minike.top/Article/details/9334710321.shtml)
-- 2026-06-30 03:36 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/377880172.shtml)
-- 2026-06-30 03:32 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/27592230552.shtml)
-- 2026-06-30 03:42 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/03163129.shtml)
-- 2026-06-30 03:23 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/49900.shtml)
-- 2026-06-30 03:22 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/6805808522.shtml)
-- 2026-06-30 03:18 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/941831704.shtml)
+- 2026-06-30 03:46 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/799287.shtml)
+- 2026-06-30 03:44 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/194418188105.shtml)
+- 2026-06-30 03:38 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/96896473768.shtml)
+- 2026-06-30 03:28 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/7887312500.shtml)
+- 2026-06-30 03:39 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/765488344526.shtml)
+- 2026-06-30 03:28 - [TOP Prada](https://www.blog.minike.top/Article/details/3361199.shtml)
+- 2026-06-30 03:49 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/881526171251.shtml)
+- 2026-06-30 03:34 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/69294674905.shtml)
+- 2026-06-30 03:28 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/80121.shtml)
+- 2026-06-30 03:25 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/394533.shtml)
+- 2026-06-30 03:45 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/86921100053.shtml)
+- 2026-06-30 03:38 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/97575.shtml)
+- 2026-06-30 03:27 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/3684497070.shtml)
+- 2026-06-30 03:52 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/89577971.shtml)
+- 2026-06-30 03:50 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/03436450369.shtml)

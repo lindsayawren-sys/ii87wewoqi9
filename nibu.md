@@ -1,51 +1,50 @@
-# 伊朗高级官员否认美军击沉多艘小型船只的言论
+# 摩根大通将10年期美债收益率预期上调至4.70%
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-伊朗方面4日发布消息，驳斥美军关于击沉多艘伊朗小型船只的说法。 据悉，一名伊朗武装力量高级官员对美军相关言论予以否认。 当天早些时候，美军中央司令部司令库珀对媒体说，伊朗当天向美海军舰艇以及受美军“保护”商船发射多枚巡航导弹、无人机等，美军“阿帕奇”武装直升机和SH-60型“海鹰”直升机随后向这些伊朗船只发动攻击。美军在霍尔木兹海峡已击沉6艘试图阻挠商船航行的伊朗小型船只。
+据6月6日的一份报告，摩根大通策略师建议维持做空美国国债、做多德国国债的策略。“我们目前预计2年期和10年期美债收益率将分别升至4.20%和4.70%，较我们之前的预测高出30个基点和20个基点，” Jay Barry等该行策略师写道。过去一年美国劳动力市场在“稳健增长”的背景下趋稳，引发了市场对当前货币政策立场是否“实际上具有紧缩性”的质疑。责任编辑：王永生
 
 ## 正文
 
-伊朗方面4日发布消息，驳斥美军关于击沉多艘伊朗小型船只的说法。
+据6月6日的一份报告，摩根大通策略师建议维持做空美国国债、做多德国国债的策略。
 
-据悉，一名伊朗武装力量高级官员对美军相关言论予以否认。
+“我们目前预计2年期和10年期美债收益率将分别升至4.20%和4.70%，较我们之前的预测高出30个基点和20个基点，” Jay Barry等该行策略师写道。
 
-当天早些时候，美军中央司令部司令库珀对媒体说，伊朗当天向美海军舰艇以及受美军“保护”商船发射多枚巡航导弹、无人机等，美军“阿帕奇”武装直升机和SH-60型“海鹰”直升机随后向这些伊朗船只发动攻击。
+过去一年美国劳动力市场在“稳健增长”的背景下趋稳，引发了市场对当前货币政策立场是否“实际上具有紧缩性”的质疑。
 
-美军在霍尔木兹海峡已击沉6艘试图阻挠商船航行的伊朗小型船只。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 03:41 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-30 03:37 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-30 03:44 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-30 03:31 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-30 03:26 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-30 03:47 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-30 03:31 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-30 03:35 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-30 03:45 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-30 03:21 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-30 03:22 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-30 03:29 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-30 03:46 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-30 03:35 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-30 03:46 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-30 03:41 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-30 03:41 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 03:40 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-30 03:46 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-30 03:29 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-30 03:39 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-30 03:42 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-30 03:53 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-30 03:33 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-30 03:27 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:40 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/810125563648.shtml)
-- 2026-06-30 03:35 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/753417676724.shtml)
-- 2026-06-30 03:43 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/410256.shtml)
-- 2026-06-30 03:20 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/08534759.shtml)
-- 2026-06-30 03:32 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/32174879910.shtml)
-- 2026-06-30 03:38 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/9010111263.shtml)
-- 2026-06-30 03:37 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/518520474676.shtml)
-- 2026-06-30 03:35 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/8269476.shtml)
-- 2026-06-30 03:32 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/3540200.shtml)
-- 2026-06-30 03:33 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/281582808542.shtml)
-- 2026-06-30 03:21 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/4561071112.shtml)
-- 2026-06-30 03:25 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/3694009.shtml)
-- 2026-06-30 03:23 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/366179.shtml)
-- 2026-06-30 03:30 - [毒液2](http://www.blog.minike.top/Article/details/23880.shtml)
-- 2026-06-30 03:18 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/0113634439.shtml)
+- 2026-06-30 03:42 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/890525242905.shtml)
+- 2026-06-30 03:41 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/151180455.shtml)
+- 2026-06-30 03:27 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/051816467.shtml)
+- 2026-06-30 03:51 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/880451.shtml)
+- 2026-06-30 03:42 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/49880.shtml)
+- 2026-06-30 03:49 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/4796977265.shtml)
+- 2026-06-30 03:50 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/1884751985.shtml)
+- 2026-06-30 03:49 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/148291728735.shtml)
+- 2026-06-30 03:24 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/40320552431.shtml)
+- 2026-06-30 03:52 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/43117715481.shtml)
+- 2026-06-30 03:38 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/562780864.shtml)
+- 2026-06-30 03:29 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/13716907.shtml)
+- 2026-06-30 03:41 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/59324.shtml)
+- 2026-06-30 03:30 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/1429673668.shtml)
+- 2026-06-30 03:53 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/4246886.shtml)

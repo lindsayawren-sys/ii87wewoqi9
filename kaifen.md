@@ -1,60 +1,61 @@
-# 日产欧洲裁员900人 桑德兰工厂合并生产线
+# AI进入影视行业，平台只需要艺人的一张脸？
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-日产汽车周二宣布，作为全球重组计划的一部分，将在欧洲裁减约900个岗位，约占欧洲员工总数的10%，并合并英国桑德兰工厂的两条生产线。 裁员将集中于白领及仓库岗位。除裁员外，日产还将部分关闭巴塞罗那仓库，并在北欧市场转向进口商分销模式。日产发言人称，公司正在“采取果断行动，打造更精简、更具韧性的业务”。 桑德兰工厂两条生产线合并为一条，不会导致生产岗位流失。通过释放闲置产能，日产
+近期，AI换脸艺人和AI仿真人短剧引发关注。有媒体报道，拒绝授权面部数据用于AI模型训练的演员，正面临“不签就没戏拍”的集体困境。 这是影视行业持续调整的又一阶段。长剧和电影市场长期承压，短剧发出行业变革先声。AI进入表演环节后，更是把“降本增效”发挥到极致：不需要选角、协调档期、片酬。数据显示，今年1月，漫剧百强榜中AI仿真人短剧占比已从去年的7%提升至38%。一部真人短剧成
 
 ## 正文
 
-日产汽车周二宣布，作为全球重组计划的一部分，将在欧洲裁减约900个岗位，约占欧洲员工总数的10%，并合并英国桑德兰工厂的两条生产线。
+近期，AI换脸艺人和AI仿真人短剧引发关注。
 
-裁员将集中于白领及仓库岗位。
+有媒体报道，拒绝授权面部数据用于AI模型训练的演员，正面临“不签就没戏拍”的集体困境。
 
-除裁员外，日产还将部分关闭巴塞罗那仓库，并在北欧市场转向进口商分销模式。
+这是影视行业持续调整的又一阶段。
 
-日产发言人称，公司正在“采取果断行动，打造更精简、更具韧性的业务”。
+长剧和电影市场长期承压，短剧发出行业变革先声。
 
-桑德兰工厂两条生产线合并为一条，不会导致生产岗位流失。
+AI进入表演环节后，更是把“降本增效”发挥到极致：不需要选角、协调档期、片酬。
 
-通过释放闲置产能，日产正与中国奇瑞汽车等潜在伙伴洽谈合作，以最大化工厂利用率。
+数据显示，今年1月，漫剧百强榜中AI仿真人短剧占比已从去年的7%提升至38%。
 
-西班牙日产工会代表表示，当地约500人受裁员影响，但最终人数将与工会谈判确定。
+一部真人短剧成本100万元，同样的体量，AI短剧成本10万-20万元。
 
-这是自2020年日产关闭巴塞罗那主要工厂、影响约3000个岗位以来的又一次重大重组。
+从市场角度看，平台入局AI艺人几乎是必然的，但市场行为也需法律规制。
 
 ## 相关推荐
 
-- 2026-06-30 03:43 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-30 03:34 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-30 03:44 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 03:22 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-30 03:32 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-30 03:29 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 03:24 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-30 03:29 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-30 03:34 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 03:31 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-30 03:44 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-30 03:22 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-30 03:35 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-30 03:31 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-30 03:51 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-30 03:33 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 03:29 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-30 03:40 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-30 03:37 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-30 03:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-30 03:38 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-30 03:39 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-30 03:43 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-30 03:53 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-30 03:43 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-30 03:25 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-30 03:35 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-30 03:29 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-30 03:42 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:22 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/17149.shtml)
-- 2026-06-30 03:22 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/18177846459.shtml)
-- 2026-06-30 03:41 - [极限挑战第一季](https://www.share.minike.top/Article/details/04134709.shtml)
-- 2026-06-30 03:47 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/495062.shtml)
-- 2026-06-30 03:33 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/66552384.shtml)
-- 2026-06-30 03:39 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/3367733.shtml)
-- 2026-06-30 03:20 - [流金岁月](http://www.blog.minike.top/Article/details/92289790.shtml)
-- 2026-06-30 03:37 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/811149937540.shtml)
-- 2026-06-30 03:26 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/08915.shtml)
-- 2026-06-30 03:19 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/40937789.shtml)
-- 2026-06-30 03:31 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/167793967.shtml)
-- 2026-06-30 03:43 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/1903583214.shtml)
-- 2026-06-30 03:23 - [房价什么时候能涨](https://www.share.minike.top/Article/details/967323616109.shtml)
-- 2026-06-30 03:27 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/21048613123.shtml)
-- 2026-06-30 03:18 - [扬名立万](http://www.blog.minike.top/Article/details/3873439192.shtml)
+- 2026-06-30 03:44 - [千香](https://www.share.minike.top/Article/details/15767305638.shtml)
+- 2026-06-30 03:49 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/457580872039.shtml)
+- 2026-06-30 03:33 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/38393846514.shtml)
+- 2026-06-30 03:35 - [金牌调解](http://www.share.minike.top/Article/details/13360114579.shtml)
+- 2026-06-30 03:48 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/27535484309.shtml)
+- 2026-06-30 03:46 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/511147.shtml)
+- 2026-06-30 03:34 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/4823790.shtml)
+- 2026-06-30 03:45 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/011364444.shtml)
+- 2026-06-30 03:49 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/79745472.shtml)
+- 2026-06-30 03:37 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/76304944652.shtml)
+- 2026-06-30 03:32 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/550965797.shtml)
+- 2026-06-30 03:53 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/552057255.shtml)
+- 2026-06-30 03:45 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/002494944.shtml)
+- 2026-06-30 03:40 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/259720692981.shtml)
+- 2026-06-30 03:52 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/77808191.shtml)

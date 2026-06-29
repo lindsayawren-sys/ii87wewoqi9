@@ -1,58 +1,46 @@
-# 欧洲央行行长称能源成本飙升敲响警钟 呼吁减少化石燃料依赖
+# 外媒：伊朗称美国应为伊以冲突再起负责
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-欧洲央行行长克里斯蒂娜·拉加德表示，伊朗战争引发的能源成本飙升，应成为欧洲减少对化石燃料和能源进口依赖的警钟。 欧洲约60%的能源依赖进口，且几乎全部为化石燃料，拉加德周二在法兰克福一场气候会议上表示，这种现状“显然不可持续”。 “当前能源价格飙升提醒我们这种依赖的代价，”她说。“替代能源为在能源安全、可持续性与可负担性之间实现平衡提供了最清晰的路径。” 中东冲突推动油气价格上
+中新网6月8日电 据法新社8日报道，伊朗方面表示，美国应当为伊朗与以色列之间再起冲突负责。 据报道，伊朗方面还称，以色列的行为“无法与美国的政策分开”。
 
 ## 正文
 
-欧洲央行行长克里斯蒂娜·拉加德表示，伊朗战争引发的能源成本飙升，应成为欧洲减少对化石燃料和能源进口依赖的警钟。
+中新网6月8日电 据法新社8日报道，伊朗方面表示，美国应当为伊朗与以色列之间再起冲突负责。
 
-欧洲约60%的能源依赖进口，且几乎全部为化石燃料，拉加德周二在法兰克福一场气候会议上表示，这种现状“显然不可持续”。
-
-“当前能源价格飙升提醒我们这种依赖的代价，”她说。
-
-“替代能源为在能源安全、可持续性与可负担性之间实现平衡提供了最清晰的路径。
-
-” 中东冲突推动油气价格上涨，对于像欧洲这样依赖进口化石燃料的地区而言构成脆弱性。
-
-数据显示，欧洲经济活动正受到明显冲击，威胁到刚刚起步的复苏，并使欧洲央行在应对高于2%目标的通胀时面临更复杂局面。
-
-拉加德的表态呼应了她去年关于欧洲迈向可再生能源路径的讲话，其他官员也频繁参与气候与自然议题的讨论。
-
-不过，也有批评认为此类表态超出了欧洲央行的职责范围。
+据报道，伊朗方面还称，以色列的行为“无法与美国的政策分开”。
 
 ## 相关推荐
 
-- 2026-06-30 03:21 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-30 03:35 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-30 03:27 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 03:23 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-30 03:31 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-30 03:23 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-30 03:36 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-30 03:34 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-30 03:20 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-30 03:20 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-30 03:44 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-30 03:19 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-30 03:41 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-30 03:40 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-30 03:44 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-30 03:42 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 03:25 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-30 03:51 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-30 03:36 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-30 03:31 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-30 03:43 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-30 03:38 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-30 03:39 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 03:48 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:36 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/3985634050.shtml)
-- 2026-06-30 03:26 - [日本16强魔咒](https://www.blog.minike.top/Article/details/306219334129.shtml)
-- 2026-06-30 03:36 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/7763295.shtml)
-- 2026-06-30 03:24 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/538591.shtml)
-- 2026-06-30 03:39 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/898729101.shtml)
-- 2026-06-30 03:19 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/263776182.shtml)
-- 2026-06-30 03:22 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/63722588.shtml)
-- 2026-06-30 03:26 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/929922386132.shtml)
-- 2026-06-30 03:20 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/313085.shtml)
-- 2026-06-30 03:22 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/5201898.shtml)
-- 2026-06-30 03:23 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/881671060.shtml)
-- 2026-06-30 03:47 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/333966957660.shtml)
-- 2026-06-30 03:21 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/76518.shtml)
-- 2026-06-30 03:39 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/15033.shtml)
-- 2026-06-30 03:38 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/7579289955.shtml)
+- 2026-06-30 03:48 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/5304508712.shtml)
+- 2026-06-30 03:49 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/252650.shtml)
+- 2026-06-30 03:24 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/53233774295.shtml)
+- 2026-06-30 03:39 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/5921616974.shtml)
+- 2026-06-30 03:43 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/258944.shtml)
+- 2026-06-30 03:53 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/4638940.shtml)
+- 2026-06-30 03:46 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/196843400235.shtml)
+- 2026-06-30 03:40 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/03099886.shtml)
+- 2026-06-30 03:39 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/31578.shtml)
+- 2026-06-30 03:48 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/9443233778.shtml)
+- 2026-06-30 03:42 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/4636463.shtml)
+- 2026-06-30 03:32 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/4441167.shtml)
+- 2026-06-30 03:31 - [一生一世](http://www.blog.minike.top/Article/details/083709479425.shtml)
+- 2026-06-30 03:36 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/1192430.shtml)
+- 2026-06-30 03:29 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/9050620023.shtml)

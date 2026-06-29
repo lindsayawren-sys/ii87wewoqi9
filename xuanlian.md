@@ -1,60 +1,46 @@
-# 立夏万物生 全国初夏尝鲜地图带你寻找夏日味道
+# 万科A：公司持续推进城市与业务聚焦
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-节气物候图鉴：立夏万物生 全国初夏尝鲜地图带你寻找夏日味道 中国天气网讯 时光流转，岁月更迭，跟着物候图鉴，读懂二十四节气。今天(5月5日)，我们迎来夏季的第一个节气——立夏。此时我国升温显著，夏季版图开始向北扩张，万物蓬勃生长，各种瓜果也迎来尝鲜的好时节。中国天气网推出立夏全国初夏尝鲜地图，看看哪些地方的初夏时令美味即将上市。 立夏意味着风暖昼长、万物并秀，也意味着拔擢成长、
+证券日报网讯6月8日，万科A在互动平台回答投资者提问时表示，公司持续推进城市与业务聚焦，现已在深圳联合产权交易所挂牌转让食品业务环山集团的股权，依托公开挂牌交易，保障本次交易作价公允、流程合规。
 
 ## 正文
 
-节气物候图鉴：立夏万物生 全国初夏尝鲜地图带你寻找夏日味道 中国天气网讯 时光流转，岁月更迭，跟着物候图鉴，读懂二十四节气。
-
-今天(5月5日)，我们迎来夏季的第一个节气——立夏。
-
-此时我国升温显著，夏季版图开始向北扩张，万物蓬勃生长，各种瓜果也迎来尝鲜的好时节。
-
-中国天气网推出立夏全国初夏尝鲜地图，看看哪些地方的初夏时令美味即将上市。
-
-立夏意味着风暖昼长、万物并秀，也意味着拔擢成长、欣欣向荣。
-
-此时，北方气温渐升，易出现干热风；而在南方雷雨增多，强对流天气频发。
-
-古人将立夏节气分为三候：一候蝼蝈鸣；二候蚯蚓出；三候王瓜生。
-
-一候：蝼蝈鸣 立夏到来，最先听到的便是蝼蝈在田间鸣叫。
+证券日报网讯6月8日，万科A在互动平台回答投资者提问时表示，公司持续推进城市与业务聚焦，现已在深圳联合产权交易所挂牌转让食品业务环山集团的股权，依托公开挂牌交易，保障本次交易作价公允、流程合规。
 
 ## 相关推荐
 
-- 2026-06-30 03:40 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-30 03:18 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-30 03:25 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-30 03:29 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-30 03:39 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-30 03:32 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-30 03:21 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-30 03:46 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-30 03:38 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-30 03:31 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-30 03:28 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-30 03:34 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 03:22 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-30 03:32 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-30 03:25 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-30 03:44 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 03:47 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-30 03:49 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-30 03:34 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-30 03:44 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-30 03:27 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 03:49 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-30 03:30 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-30 03:33 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-30 03:31 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-30 03:44 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 03:32 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 03:42 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:25 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/353341.shtml)
-- 2026-06-30 03:38 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/7792066111.shtml)
-- 2026-06-30 03:36 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/479784680923.shtml)
-- 2026-06-30 03:31 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/6581645446.shtml)
-- 2026-06-30 03:34 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/6607030618.shtml)
-- 2026-06-30 03:35 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/739659266276.shtml)
-- 2026-06-30 03:20 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/00584339.shtml)
-- 2026-06-30 03:23 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/75026602.shtml)
-- 2026-06-30 03:20 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/7381195.shtml)
-- 2026-06-30 03:40 - [庆祝中国共产党成立105周年音乐会](https://www.blog.minike.top/Article/details/13246453.shtml)
-- 2026-06-30 03:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/51833795.shtml)
-- 2026-06-30 03:43 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/198014884.shtml)
-- 2026-06-30 03:29 - [送你一朵小红花](https://www.blog.minike.top/Article/details/64091398.shtml)
-- 2026-06-30 03:18 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/01077225645.shtml)
-- 2026-06-30 03:43 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/430200951.shtml)
+- 2026-06-30 03:31 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/212790.shtml)
+- 2026-06-30 03:27 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/9142076388.shtml)
+- 2026-06-30 03:43 - [第一炉香](https://www.share.kurohicncr.top/Article/details/325103331491.shtml)
+- 2026-06-30 03:31 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/0471478.shtml)
+- 2026-06-30 03:33 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/94123.shtml)
+- 2026-06-30 03:29 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/3456744.shtml)
+- 2026-06-30 03:24 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/7494518189.shtml)
+- 2026-06-30 03:26 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/2496533.shtml)
+- 2026-06-30 03:42 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/00914568.shtml)
+- 2026-06-30 03:52 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/05721533.shtml)
+- 2026-06-30 03:50 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/16876490.shtml)
+- 2026-06-30 03:40 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/69822008.shtml)
+- 2026-06-30 03:52 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/059373.shtml)
+- 2026-06-30 03:24 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/4551475.shtml)
+- 2026-06-30 03:40 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/047631.shtml)

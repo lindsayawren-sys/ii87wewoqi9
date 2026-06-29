@@ -1,56 +1,58 @@
-# 拍照别再用这个手势了，小心指纹被隔空盗取
+# 高考首日 考场内奋笔追梦想，考场外贴心暖相伴
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-“五一”假期 你都去了哪些景点打卡？ 拍照晒照前 先别急！ 这个手势要谨慎了近日，“剪刀手拍照会泄露指纹信息”冲上热搜，不少网友表示，没想到手指轻轻比个“耶”，竟可能把自己的隐私暴露在危险中。 “剪刀手”照片 会泄露指纹吗？ 专家指出，拍照时摆出剪刀手、清晰露出指纹，可能会导致个人信息泄露。 1.5米以内拍照，如果手是完全对着镜头，可以100%提取手部信息； 1.5米到3米距离
+高考首日 考场内奋笔追梦想 考场外贴心暖相伴 盛夏启新程，执笔赴山海。6月7日，2026年全国高考拉开大幕，江苏数十万考生奔赴考场为梦想奋力一搏。考场外，家长、老师、民警、城管全力以赴，为考生做好保障，扬子晚报/紫牛新闻记者用镜头记录下一幕幕暖心场景。 备好面点花零食花，还有机器人来整活 在南京市金陵中学考点外，不少家长特意为考生准备了各式暖心小礼物。南京市第十二中学考生小姚的
 
 ## 正文
 
-“五一”假期 你都去了哪些景点打卡？
+高考首日 考场内奋笔追梦想 考场外贴心暖相伴 盛夏启新程，执笔赴山海。
 
-拍照晒照前 先别急！
+6月7日，2026年全国高考拉开大幕，江苏数十万考生奔赴考场为梦想奋力一搏。
 
-这个手势要谨慎了近日，“剪刀手拍照会泄露指纹信息”冲上热搜，不少网友表示，没想到手指轻轻比个“耶”，竟可能把自己的隐私暴露在危险中。
+考场外，家长、老师、民警、城管全力以赴，为考生做好保障，扬子晚报/紫牛新闻记者用镜头记录下一幕幕暖心场景。
 
-“剪刀手”照片 会泄露指纹吗？
+备好面点花零食花，还有机器人来整活 在南京市金陵中学考点外，不少家长特意为考生准备了各式暖心小礼物。
 
-专家指出，拍照时摆出剪刀手、清晰露出指纹，可能会导致个人信息泄露。
+南京市第十二中学考生小姚的妈妈和姨妈，手捧两捧造型精巧的面点花，分别做成向日葵与粽子的样式，并笑着送上祝福：“愿孩子一举夺魁，圆梦心仪高校！
 
-1.5米以内拍照，如果手是完全对着镜头，可以100%提取手部信息； 1.5米到3米距离拍照，可以提取50%； 3米以上距离拍照，基本上不太能识别到手部信息。
+”来自南京市第六十六中学的考生家长周女士，手持亲手制作的红色零食花束静静等候。
 
-那么，这种情况发生的可能性究竟有多大？
+她坦言：“不想给孩子太大压力，只愿他健健康康、开开心心顺利考完。
 
-实际上，提取指纹除了要符合拍照距离外，还需同时满足这些条件： 高清原图未压缩 手指完全正对镜头且光线充足 具备专业设备与AI处理技术 专家表示，现在的相机一般能够达到1200万像素，利用多张照片有可能恢复指纹。
+”花束里的零食皆是红色包装，寓意高考开门红，点缀其间的绿色粽子，则表示一路“绿灯”，畅通无阻。
 
 ## 相关推荐
 
-- 2026-06-30 03:37 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-30 03:46 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-30 03:44 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 03:22 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-30 03:21 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-30 03:31 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-30 03:25 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-30 03:33 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-30 03:18 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-30 03:31 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-30 03:28 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-30 03:37 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-30 03:35 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-30 03:30 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-30 03:45 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-30 03:26 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-30 03:29 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 03:27 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-30 03:40 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-30 03:48 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-30 03:36 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-30 03:25 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:31 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/362025954.shtml)
-- 2026-06-30 03:42 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/33918418684.shtml)
-- 2026-06-30 03:27 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/118556.shtml)
-- 2026-06-30 03:35 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/02723507041.shtml)
-- 2026-06-30 03:26 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/763976105455.shtml)
-- 2026-06-30 03:18 - [恋与深空 日服](http://www.blog.minike.top/Article/details/382657.shtml)
-- 2026-06-30 03:32 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/77912.shtml)
-- 2026-06-30 03:28 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/98037.shtml)
-- 2026-06-30 03:45 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/348724543.shtml)
-- 2026-06-30 03:27 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/231711486.shtml)
-- 2026-06-30 03:21 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/37219.shtml)
-- 2026-06-30 03:35 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/635604360118.shtml)
-- 2026-06-30 03:25 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/65568760927.shtml)
-- 2026-06-30 03:47 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/27825843.shtml)
-- 2026-06-30 03:31 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.kurohicncr.top/Article/details/377237591.shtml)
+- 2026-06-30 03:47 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/3773340.shtml)
+- 2026-06-30 03:29 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/7984175939.shtml)
+- 2026-06-30 03:38 - [送你一朵小红花](http://www.blog.minike.top/Article/details/7304163845.shtml)
+- 2026-06-30 03:31 - [送你一朵小红花](http://www.blog.minike.top/Article/details/5226982412.shtml)
+- 2026-06-30 03:44 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/593971619463.shtml)
+- 2026-06-30 03:41 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/28786084.shtml)
+- 2026-06-30 03:47 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/770827120.shtml)
+- 2026-06-30 03:31 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/484363.shtml)
+- 2026-06-30 03:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/18528175.shtml)
+- 2026-06-30 03:32 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/06791.shtml)
+- 2026-06-30 03:49 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/055215.shtml)
+- 2026-06-30 03:41 - [审核了不止十年的低创鬼畜](https://www.blog.minike.top/Article/details/024447147516.shtml)
+- 2026-06-30 03:37 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/611823505.shtml)
+- 2026-06-30 03:32 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/410311.shtml)
+- 2026-06-30 03:52 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/923053148371.shtml)

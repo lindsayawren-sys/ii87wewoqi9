@@ -1,58 +1,56 @@
-# 首位“00后”世锦赛冠军，吴宜泽夺冠创历史
+# 吴清：完善程序化交易监管机制，防范滥用技术优势，坚决打击操纵市场、扰乱市场秩序行为
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-中新网北京5月5日电 北京时间5日凌晨，2026斯诺克世界锦标赛在英国谢菲尔德收官。首次跻身世锦赛决赛的中国小将吴宜泽以18比17击败英格兰名将肖恩·墨菲，成为首位“00后”世锦赛冠军。他也是继赵心童之后，第二位问鼎世锦赛的中国球员。 斯诺克世锦赛是斯诺克领域最具影响力和最高水平的赛事。共有11位中国球员闯入今年世锦赛正赛，人数创历史新高。其中，赵心童、丁俊晖、肖国栋和吴宜泽4
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月6日，中国证券投资基金业协会第四届会员代表大会举行，证监会主席吴清出席会议并发表讲话。吴清表示，近年来，程序化交易已成为包括我国在内的全球各主要资本市场的重要交易方式。除了大家熟知的量化私募外，外资、公募及其他专业机构投资者，甚至一些个人投资者，都不同程度采用程序化交易的方式。充分考虑个人投资者占大多数
 
 ## 正文
 
-中新网北京5月5日电 北京时间5日凌晨，2026斯诺克世界锦标赛在英国谢菲尔德收官。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-首次跻身世锦赛决赛的中国小将吴宜泽以18比17击败英格兰名将肖恩·墨菲，成为首位“00后”世锦赛冠军。
+6月6日，中国证券投资基金业协会第四届会员代表大会举行，证监会主席吴清出席会议并发表讲话。
 
-他也是继赵心童之后，第二位问鼎世锦赛的中国球员。
+吴清表示，近年来，程序化交易已成为包括我国在内的全球各主要资本市场的重要交易方式。
 
-斯诺克世锦赛是斯诺克领域最具影响力和最高水平的赛事。
+除了大家熟知的量化私募外，外资、公募及其他专业机构投资者，甚至一些个人投资者，都不同程度采用程序化交易的方式。
 
-共有11位中国球员闯入今年世锦赛正赛，人数创历史新高。
+充分考虑个人投资者占大多数的国情市情，先后出台了一系列程序化交易监管规则制度，建立交易报告机制，强化针对性监测监控，从严监管异常交易行为，引导降频降速，强化交易业务单元管理等。
 
-其中，赵心童、丁俊晖、肖国栋和吴宜泽4人进入16强。
+在此基础上，我们还将深入调研，持续完善程序化交易监管的机制安排，更突出公平和规范，加强针对性监管，切实防范滥用技术优势，坚决打击操纵市场、扰乱市场秩序等违法违规行为。
 
-出生于2003年的吴宜泽堪称本届世锦赛最大黑马。
-
-他先在首轮中大比分淘汰雷佩凡，随后凭借顽强的表现力克英格兰名将马克·塞尔比。
+责任编辑：常福强
 
 ## 相关推荐
 
-- 2026-06-30 03:36 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-30 03:45 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-30 03:41 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-30 03:45 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-30 03:33 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-30 03:32 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-30 03:46 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-30 03:41 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-30 03:39 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-30 03:32 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-30 03:27 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-30 03:43 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-30 03:45 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 03:52 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-30 03:53 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 03:42 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-30 03:50 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-30 03:53 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-30 03:51 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 03:38 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-30 03:36 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-30 03:43 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 03:48 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-30 03:29 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:26 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/4609568246.shtml)
-- 2026-06-30 03:32 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/821955461517.shtml)
-- 2026-06-30 03:36 - [DeepSeek V4正式版要来了](https://www.blog.kurohicncr.top/Article/details/13011655.shtml)
-- 2026-06-30 03:37 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/122779.shtml)
-- 2026-06-30 03:30 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/713694.shtml)
-- 2026-06-30 03:36 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/276262.shtml)
-- 2026-06-30 03:24 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/73731699246.shtml)
-- 2026-06-30 03:45 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/68005.shtml)
-- 2026-06-30 03:24 - [请回答王牌2019](http://www.share.minike.top/Article/details/18397906094.shtml)
-- 2026-06-30 03:41 - [千与千寻](https://www.share.minike.top/Article/details/434743.shtml)
-- 2026-06-30 03:32 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/1237651243.shtml)
-- 2026-06-30 03:46 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/446159.shtml)
-- 2026-06-30 03:43 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/98863.shtml)
-- 2026-06-30 03:23 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/79501.shtml)
-- 2026-06-30 03:26 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/41183714293.shtml)
+- 2026-06-30 03:25 - [我们的少年时代2](http://www.share.minike.top/Article/details/06163792.shtml)
+- 2026-06-30 03:42 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/00502580835.shtml)
+- 2026-06-30 03:53 - [日本进球](http://www.blog.minike.top/Article/details/799498786.shtml)
+- 2026-06-30 03:48 - [巴西绝杀](http://www.blog.kurohicncr.top/Article/details/406285329.shtml)
+- 2026-06-30 03:33 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/326299.shtml)
+- 2026-06-30 03:35 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/8472658.shtml)
+- 2026-06-30 03:48 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/1281598289.shtml)
+- 2026-06-30 03:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/5609797574.shtml)
+- 2026-06-30 03:34 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/0299241.shtml)
+- 2026-06-30 03:44 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/28212637.shtml)
+- 2026-06-30 03:24 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/2456920.shtml)
+- 2026-06-30 03:32 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/09178599.shtml)
+- 2026-06-30 03:50 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/373260.shtml)
+- 2026-06-30 03:33 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/48172.shtml)
+- 2026-06-30 03:44 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/91703703.shtml)

@@ -1,57 +1,58 @@
-# 牛市来了？比特币升破8万美元关口创年内新高 市场风险偏好回升
+# 6月预警？花旗：股市泡沫程度为2008年金融危机以来最高
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：智通财经网 全球最大加密货币比特币周一升破8万美元关口，为今年1月底以来首次，受中东局势预期变化及加密政策前景改善提振，市场风险偏好回升。 数据显示，比特币盘中一度上涨约2.1%，触及80，594美元高点，随后在纽约交易时段围绕8万美元关口震荡。其他主流加密资产如以太坊和Solana也录得小幅上涨。
+未来两周多项重大事件或引发市场波动。 美股脱离历史高位之际，花旗表示，一项市场风险指标创下2008年金融危机以来峰值，但投资者眼下暂无需撤离市场。 重大警告 贝娅塔・曼泰领衔的花旗策略师团队周五向客户表示，其编制的熊市预警清单中，全球市场触发18项预警中的10项，美国市场触发11.5项；该指标当前预警数量已达到全球金融危机之后的最高水平。 不过和历次熊市前夕的数据相比，当前预警
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+未来两周多项重大事件或引发市场波动。
 
-来源：智通财经网 全球最大加密货币比特币周一升破8万美元关口，为今年1月底以来首次，受中东局势预期变化及加密政策前景改善提振，市场风险偏好回升。
+美股脱离历史高位之际，花旗表示，一项市场风险指标创下2008年金融危机以来峰值，但投资者眼下暂无需撤离市场。
 
-数据显示，比特币盘中一度上涨约2.1%，触及80，594美元高点，随后在纽约交易时段围绕8万美元关口震荡。
+重大警告 贝娅塔・曼泰领衔的花旗策略师团队周五向客户表示，其编制的熊市预警清单中，全球市场触发18项预警中的10项，美国市场触发11.5项；该指标当前预警数量已达到全球金融危机之后的最高水平。
 
-其他主流加密资产如以太坊和Solana也录得小幅上涨。
+不过和历次熊市前夕的数据相比，当前预警烈度仍相对温和：2000年互联网泡沫破裂前预警触发17.5项，金融危机爆发前触发13项。
 
-自美国与伊朗冲突升级以来，比特币累计上涨约20%，显示数字资产在地缘政治冲击及油价上涨背景下整体表现出较强韧性。
+因此策略师判断，市场暂未显露 “过度狂热”苗头，在警惕风险抬升的同时，依旧看好股市后市表现。
 
-市场同时受到政策利好预期推动。
+花旗这份预警清单的监测维度包含股票估值、市场情绪、信用利差、收益率曲线、资金流向、企业基本面以及融资活动。
 
-投资者对美国可能就稳定币收益相关条款达成协议持乐观态度，这或为加密货币相关立法在参议院推进扫清障碍，进一步提升市场情绪。
+策略师强调，该指标无法精准择时、预判股市回调的起止节点，主要用于在大盘回落阶段辅助投资决策，并提示投资者何时需要提高避险警惕。
 
-衍生品市场数据显示，过去24小时内，加密市场空头头寸清算规模达到约3.59亿美元，远高于多头约1.5亿美元的清算规模，显示空头回补推动价格上行。
+团队在研报中写道：“但我们留意到，该预警指标一旦迈入两位数触发区间，历史数据显示后续警示信号往往会加速增多，意味着市场风险或将快速发酵。
 
 ## 相关推荐
 
-- 2026-06-30 03:37 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-30 03:38 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-30 03:32 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-30 03:41 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 03:34 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-30 03:46 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-30 03:35 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-30 03:33 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-30 03:36 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-30 03:41 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-30 03:37 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-30 03:49 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-30 03:24 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-30 03:49 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 03:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 03:45 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-30 03:24 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-30 03:27 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-30 03:52 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-30 03:29 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-30 03:43 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 03:27 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-30 03:37 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:38 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/134256805.shtml)
-- 2026-06-30 03:46 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/6252867.shtml)
-- 2026-06-30 03:41 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/86992976.shtml)
-- 2026-06-30 03:47 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/63182303.shtml)
-- 2026-06-30 03:24 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/4226715.shtml)
-- 2026-06-30 03:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/9248255.shtml)
-- 2026-06-30 03:19 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/693881.shtml)
-- 2026-06-30 03:47 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/50735978.shtml)
-- 2026-06-30 03:46 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/16915.shtml)
-- 2026-06-30 03:21 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/2090392744.shtml)
-- 2026-06-30 03:47 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/0556866.shtml)
-- 2026-06-30 03:44 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/956415.shtml)
-- 2026-06-30 03:27 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/51286871.shtml)
-- 2026-06-30 03:24 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/926719.shtml)
-- 2026-06-30 03:28 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/208091222.shtml)
+- 2026-06-30 03:31 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/481612509.shtml)
+- 2026-06-30 03:50 - [请回答王牌2019](https://www.share.minike.top/Article/details/73700.shtml)
+- 2026-06-30 03:46 - [周生如故](http://www.share.minike.top/Article/details/1561583679.shtml)
+- 2026-06-30 03:25 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/90084.shtml)
+- 2026-06-30 03:24 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/04269198.shtml)
+- 2026-06-30 03:27 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/0540583086.shtml)
+- 2026-06-30 03:40 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/294069835775.shtml)
+- 2026-06-30 03:45 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/58215.shtml)
+- 2026-06-30 03:45 - [人类...完蛋了...](http://www.share.minike.top/Article/details/82154.shtml)
+- 2026-06-30 03:43 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/65365.shtml)
+- 2026-06-30 03:48 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/380151454.shtml)
+- 2026-06-30 03:25 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/484610050286.shtml)
+- 2026-06-30 03:33 - [这一刀 会很帅](http://www.share.minike.top/Article/details/504293.shtml)
+- 2026-06-30 03:42 - [日本16强魔咒](http://www.share.minike.top/Article/details/866786.shtml)
+- 2026-06-30 03:38 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/71688816.shtml)

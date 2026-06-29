@@ -1,60 +1,50 @@
-# 一杯清香里的世界连接：青花汾酒走进全球投资者的感官与记忆
+# 泓富产业信托遭ESR Asset Management (Prosperity) Limited减持8万股 每股作价约1.43港元
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 专题：巴菲特2026年股东大会重磅来袭 美东时间5月2日下午至晚间，第十一届中美投资人酒会在奥马哈市中心万豪酒店如期举行。作为巴菲特股东大会期间的重要配套活动，这一由新浪财经主办的酒会汇聚来自全球的投资机构专家、商界精英与媒体代表，在深度思想交流之外，也为跨文化沟通提供了平台。 在今年的酒会现场，青花汾酒作为首席合作伙伴
+香港联交所最新数据显示，6月4日，ESR Asset Management （Prosperity） Limited减持泓富产业信托（00808）8万股，每股作价1.4314港元，总金额约为11.45万港元。减持后最新持股数目约为1.20亿股，最新持股比例为7.53%。责任编辑：卢昱君
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 专题：巴菲特2026年股东大会重磅来袭 美东时间5月2日下午至晚间，第十一届中美投资人酒会在奥马哈市中心万豪酒店如期举行。
+香港联交所最新数据显示，6月4日，ESR Asset Management （Prosperity） Limited减持泓富产业信托（00808）8万股，每股作价1.4314港元，总金额约为11.45万港元。
 
-作为巴菲特股东大会期间的重要配套活动，这一由新浪财经主办的酒会汇聚来自全球的投资机构专家、商界精英与媒体代表，在深度思想交流之外，也为跨文化沟通提供了平台。
+减持后最新持股数目约为1.20亿股，最新持股比例为7.53%。
 
-在今年的酒会现场，青花汾酒作为首席合作伙伴身份亮相，以“青花汾酒，世界共赏，清香无界”为主题，贯穿整个活动进程。
-
-从嘉宾论坛到晚宴交流，来自东方的一缕清香，始终萦绕不绝，融入全球投资者的感官与记忆之中。
-
-奥马哈之约：一场跨越文化的品鉴体验 中美投资人酒会活动丰富，包括但不限于主办方致辞、论坛环节与晚宴等。
-
-围绕“财富创造与时代机遇”和“财富向善与价值共生”等议题，嘉宾们展开深入讨论，人工智能、先进制造、能源转型等关键词频频出现，勾勒出全球经济演进的关键方向。
-
-现场精彩纷呈，气氛热烈，也为随后的晚宴与品鉴营造出轻松而开放的交流氛围。
-
-品鉴活动现场，青花汾酒以极具中国韵味的蓝白瓷瓶，为会场带来一阵别样的清雅风韵。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 03:36 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-30 03:28 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-30 03:34 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-30 03:23 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-30 03:38 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-30 03:29 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-30 03:45 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-30 03:33 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-30 03:25 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-30 03:22 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-30 03:23 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-30 03:36 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-30 03:27 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-30 03:40 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-30 03:25 - [世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 03:42 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-30 03:31 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-30 03:51 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-30 03:37 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-30 03:37 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-30 03:37 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-30 03:48 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-30 03:34 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-30 03:30 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 03:44 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-30 03:33 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 03:50 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-30 03:38 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:25 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/25157239351.shtml)
-- 2026-06-30 03:22 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/15096647787.shtml)
-- 2026-06-30 03:43 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/9414250.shtml)
-- 2026-06-30 03:23 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/7506922214.shtml)
-- 2026-06-30 03:19 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/447314659.shtml)
-- 2026-06-30 03:41 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/6486775917.shtml)
-- 2026-06-30 03:34 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/1798531643.shtml)
-- 2026-06-30 03:32 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/1843175324.shtml)
-- 2026-06-30 03:32 - [扬名立万](http://www.share.kurohicncr.top/Article/details/7361744.shtml)
-- 2026-06-30 03:21 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/706856860.shtml)
-- 2026-06-30 03:47 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/87534698400.shtml)
-- 2026-06-30 03:22 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/83413359.shtml)
-- 2026-06-30 03:27 - [沉睡花园](http://www.blog.minike.top/Article/details/4824391137.shtml)
-- 2026-06-30 03:27 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/29505.shtml)
-- 2026-06-30 03:38 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/84848143740.shtml)
+- 2026-06-30 03:52 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/4986161798.shtml)
+- 2026-06-30 03:36 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/001144291.shtml)
+- 2026-06-30 03:38 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/863799673629.shtml)
+- 2026-06-30 03:39 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/93407673375.shtml)
+- 2026-06-30 03:36 - [青春环游记第三季](https://www.share.minike.top/Article/details/3381214401.shtml)
+- 2026-06-30 03:38 - [流金岁月](https://www.share.kurohicncr.top/Article/details/66253023.shtml)
+- 2026-06-30 03:24 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/82378837.shtml)
+- 2026-06-30 03:24 - [急先锋](https://www.share.kurohicncr.top/Article/details/639205362.shtml)
+- 2026-06-30 03:49 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/04897386224.shtml)
+- 2026-06-30 03:42 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/37681.shtml)
+- 2026-06-30 03:49 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/5679091205.shtml)
+- 2026-06-30 03:28 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/93123045986.shtml)
+- 2026-06-30 03:37 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/640204.shtml)
+- 2026-06-30 03:38 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/46750.shtml)
+- 2026-06-30 03:40 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/603285340.shtml)

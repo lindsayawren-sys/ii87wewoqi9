@@ -1,59 +1,59 @@
-# 韩国综合股价指数突破7000点创下新高
+# 手机广告弹窗乱象屡禁不绝，别让App偷走用户的“拒绝权”
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-周三，随着亚太市场开盘走高，韩国 KOSPI 指数再创历史新高，追随隔夜华尔街的涨势。此前油价下跌和强劲的企业财报提振了投资者情绪。 为表明解决中东危机的外交努力正在推进，唐纳德·特朗普表示，美国引导船只驶出霍尔木兹海峡的尝试已暂停 。 “我们已达成共识，在封锁措施全面维持效力的前提下，‘自由计划’将暂时中止一段时间，以观察协议能否最终敲定并签署。”特朗普在其 Truth So
+别让App偷走用户的“拒绝权” 走路晃一下手机，广告弹出来了；坐公交颠一下，下载页面跳出来了。这不是段子，而是无数人每天经历的“数字绑架”。近日，工业和信息化部组织第三方检测机构抽查，发现31款App及SDK(软件工具开发包)存在侵害用户权益行为，涉及信息窗口点击乱跳转、违规收集个人信息等问题。疯读小说、Now冥想、水印宝……名单拉出来，不少是手机里的“老熟人”。此类问题年年通
 
 ## 正文
 
-周三，随着亚太市场开盘走高，韩国 KOSPI 指数再创历史新高，追随隔夜华尔街的涨势。
+别让App偷走用户的“拒绝权” 走路晃一下手机，广告弹出来了；坐公交颠一下，下载页面跳出来了。
 
-此前油价下跌和强劲的企业财报提振了投资者情绪。
+这不是段子，而是无数人每天经历的“数字绑架”。
 
-为表明解决中东危机的外交努力正在推进，唐纳德·特朗普表示，美国引导船只驶出霍尔木兹海峡的尝试已暂停 。
+近日，工业和信息化部组织第三方检测机构抽查，发现31款App及SDK(软件工具开发包)存在侵害用户权益行为，涉及信息窗口点击乱跳转、违规收集个人信息等问题。
 
-“我们已达成共识，在封锁措施全面维持效力的前提下，‘自由计划’将暂时中止一段时间，以观察协议能否最终敲定并签署。
+疯读小说、Now冥想、水印宝……名单拉出来，不少是手机里的“老熟人”。
 
-”特朗普在其 Truth Social 帖子中表示。
+此类问题年年通报年年犯，不禁让人要问：我们的手机，到底是我们自己的，还是广告商的？
 
-美国军方周一在“自由计划”框架下开始引导商船驶离霍尔木兹海峡。
+从此次通报内容看，有7款App存在信息窗口点击乱跳转的问题。
 
-美国国防部长皮特·赫格塞斯周二称，“两艘美国商船已在美国驱逐舰护航下安全通过该海峡，表明航道畅通无阻。
+这些App通过降低触发门槛、隐藏关闭按钮等方式，让用户在无意间就完成了点击、下载甚至授权，实质上是剥夺了用户对自身设备的控制权。
 
-” 韩国综合股价指数（Kospi）上涨 5.56%，创下新高，在假期后恢复交易的基础上，今年迄今涨幅已超过 70%。
+这类行为已超出正常商业推广边界，涉嫌违反广告法、消费者权益保护法、反不正当竞争法等法律法规。
 
 ## 相关推荐
 
-- 2026-06-30 03:46 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-30 03:36 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 03:29 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-30 03:28 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-30 03:42 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-30 03:40 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-30 03:21 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-30 03:46 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-30 03:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-30 03:27 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-30 03:45 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-30 03:47 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-30 03:21 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-30 03:43 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-30 03:24 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-30 03:40 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-30 03:27 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-30 03:52 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 03:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-30 03:36 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-30 03:41 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-30 03:44 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-30 03:36 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-30 03:44 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-30 03:50 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-30 03:44 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:40 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/261968.shtml)
-- 2026-06-30 03:21 - [Prada在内娱首度签下偶像团体](https://www.blog.kurohicncr.top/Article/details/7867487909.shtml)
-- 2026-06-30 03:33 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/85716547797.shtml)
-- 2026-06-30 03:39 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/190967115.shtml)
-- 2026-06-30 03:36 - [送你一朵小红花](https://www.share.minike.top/Article/details/474640.shtml)
-- 2026-06-30 03:31 - [日本进球](http://www.share.kurohicncr.top/Article/details/77121477070.shtml)
-- 2026-06-30 03:44 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/936371.shtml)
-- 2026-06-30 03:37 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/04090839442.shtml)
-- 2026-06-30 03:46 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/83287836.shtml)
-- 2026-06-30 03:47 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/781722576.shtml)
-- 2026-06-30 03:38 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/8685460.shtml)
-- 2026-06-30 03:38 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/362659765531.shtml)
-- 2026-06-30 03:45 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/316046570.shtml)
-- 2026-06-30 03:30 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/97297976.shtml)
-- 2026-06-30 03:28 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/86525054.shtml)
+- 2026-06-30 03:39 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/0292064.shtml)
+- 2026-06-30 03:36 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/98618.shtml)
+- 2026-06-30 03:45 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/4738381.shtml)
+- 2026-06-30 03:41 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/971981207118.shtml)
+- 2026-06-30 03:24 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/58963.shtml)
+- 2026-06-30 03:26 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/45877.shtml)
+- 2026-06-30 03:32 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/379822607444.shtml)
+- 2026-06-30 03:53 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/7983030.shtml)
+- 2026-06-30 03:25 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/44416.shtml)
+- 2026-06-30 03:49 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/816272230.shtml)
+- 2026-06-30 03:39 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/987308563524.shtml)
+- 2026-06-30 03:53 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/83042948794.shtml)
+- 2026-06-30 03:37 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/068198372.shtml)
+- 2026-06-30 03:41 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/681492867.shtml)
+- 2026-06-30 03:32 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/22770152.shtml)

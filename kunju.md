@@ -1,56 +1,51 @@
-# 广东多举措防御强降雨
+# Fortior遭Temasek Holdings (Private) Limited减持2.1万股 每股作价约147.08港元
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-中新网广州5月4日电 (记者 王坚)据广东省应急管理厅4日消息，广东近期遭遇持续强降雨过程，各相关部门多举措做好本轮强降雨防御工作。截至3日17时，全省河道水位均在警戒水位以下，水情平稳；无人员伤亡，全省平安。 广东省应急管理厅介绍，气象部门监测显示，5月3日凌晨2时开始，全省出现新一轮大雨局部暴雨或大暴雨的强降雨强对流过程，湛江徐闻下洋镇录得最大累积雨量145.5毫米和最大小
+香港联交所最新数据显示，6月2日，Temasek Holdings （Private） Limited减持Fortior（01304）2.1万股，每股作价147.0794港元，总金额约为308.87万港元。减持后最新持股数目为129万股，最新持股比例为5.98%。责任编辑：卢昱君
 
 ## 正文
 
-中新网广州5月4日电 (记者 王坚)据广东省应急管理厅4日消息，广东近期遭遇持续强降雨过程，各相关部门多举措做好本轮强降雨防御工作。
+香港联交所最新数据显示，6月2日，Temasek Holdings （Private） Limited减持Fortior（01304）2.1万股，每股作价147.0794港元，总金额约为308.87万港元。
 
-截至3日17时，全省河道水位均在警戒水位以下，水情平稳；无人员伤亡，全省平安。
+减持后最新持股数目为129万股，最新持股比例为5.98%。
 
-广东省应急管理厅介绍，气象部门监测显示，5月3日凌晨2时开始，全省出现新一轮大雨局部暴雨或大暴雨的强降雨强对流过程，湛江徐闻下洋镇录得最大累积雨量145.5毫米和最大小时雨量84.7毫米，湛江遂溪乐民镇录得最大阵风27.6米/秒(10级)。
-
-广东省三防办加强综合会商，提前印发防御工作通知和提醒函，召开全省视频会议，进一步研判部署强降雨防御工作，持续调度降雨严重地区提醒做好防御工作。
-
-广东省水利厅按照水利防汛四级应急响应要求组织防御工作，加强重点部位和薄弱环节的监测预报预警和一线巡查防守，处置山洪灾害编号预警15个。
-
-广东省水文局发布水文预报9份，水情简报16份，水情快报141份，水情预警短信27754次，防御会商7次。
-
-广东省消防救援总队组织3.8万人、5700车、1174艘舟艇保持待命状态，3支重型、8支中型、12支轻型水域救援队和23支抗洪抢险编队随时做好跨区域增援准备。
-
-广东消防救援机动总队在广州、韶关、河源、东莞等8市前置部署790人。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 03:36 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-30 03:24 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-30 03:36 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-30 03:46 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-30 03:34 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-30 03:18 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-30 03:38 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-30 03:19 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-30 03:31 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-30 03:46 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-30 03:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-30 03:39 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-30 03:52 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-30 03:40 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-30 03:40 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 03:32 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 03:26 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-30 03:37 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-30 03:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-30 03:50 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-30 03:35 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-30 03:28 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-30 03:53 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 03:52 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-30 03:42 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:47 - [周生如故](https://www.share.minike.top/Article/details/223654239.shtml)
-- 2026-06-30 03:42 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/522301.shtml)
-- 2026-06-30 03:32 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/3995889024.shtml)
-- 2026-06-30 03:30 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/456054.shtml)
-- 2026-06-30 03:39 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/76981397.shtml)
-- 2026-06-30 03:38 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/665412.shtml)
-- 2026-06-30 03:22 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/95509.shtml)
-- 2026-06-30 03:47 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/99712805485.shtml)
-- 2026-06-30 03:26 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/25310737.shtml)
-- 2026-06-30 03:27 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/814610643834.shtml)
-- 2026-06-30 03:26 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/9183595.shtml)
-- 2026-06-30 03:26 - [荷兰vs摩洛哥前瞻](http://www.blog.minike.top/Article/details/229665093018.shtml)
-- 2026-06-30 03:45 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/91851178.shtml)
-- 2026-06-30 03:47 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/9796279.shtml)
-- 2026-06-30 03:31 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/1296089.shtml)
+- 2026-06-30 03:33 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/23155831.shtml)
+- 2026-06-30 03:29 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/93479.shtml)
+- 2026-06-30 03:34 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/87294205.shtml)
+- 2026-06-30 03:39 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/954954935104.shtml)
+- 2026-06-30 03:31 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/05387141.shtml)
+- 2026-06-30 03:51 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/292946009998.shtml)
+- 2026-06-30 03:33 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/4476929606.shtml)
+- 2026-06-30 03:51 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/6234053.shtml)
+- 2026-06-30 03:51 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/199060090268.shtml)
+- 2026-06-30 03:38 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/676812.shtml)
+- 2026-06-30 03:50 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/873022418564.shtml)
+- 2026-06-30 03:48 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/981195.shtml)
+- 2026-06-30 03:26 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/894419.shtml)
+- 2026-06-30 03:46 - [金刚川](http://www.blog.minike.top/Article/details/47653.shtml)
+- 2026-06-30 03:52 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/79908102704.shtml)

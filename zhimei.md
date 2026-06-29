@@ -1,57 +1,57 @@
-# 酒价内参5月6日价格发布：五粮液1618小幅下跌1元
+# 泰国5月总体通胀率2.79%
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月6日整体温和回升。如果主要单品各取一瓶整体打包售卖，今日总售价为9952元，较昨日上涨7元，升至近三天高位。市场在止跌后连续两日回暖，终端交投情绪小幅改善，核心单品涨跌分化依然显著。 今日白酒市场11大单品六涨五跌，赢家略占上风。上
+中新社曼谷6月5日电 (记者 李映民)泰国商务部5日发布数据称，泰国5月总体通胀率为2.79%，低于4月份的2.89%。 泰国4月份的通胀数据是自2025年3月以来总体通胀率首次上涨，也是自2023年2月以来的最大涨幅。 剔除波动较大的能源和新鲜食品价格，泰国核心消费者价格指数在5月份比去年同期上涨了0.92%。除了能源价格之外，泰国通货膨胀还受到预制食品价格上涨、动物饲料和化
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月6日整体温和回升。
+中新社曼谷6月5日电 (记者 李映民)泰国商务部5日发布数据称，泰国5月总体通胀率为2.79%，低于4月份的2.89%。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9952元，较昨日上涨7元，升至近三天高位。
+泰国4月份的通胀数据是自2025年3月以来总体通胀率首次上涨，也是自2023年2月以来的最大涨幅。
 
-市场在止跌后连续两日回暖，终端交投情绪小幅改善，核心单品涨跌分化依然显著。
+剔除波动较大的能源和新鲜食品价格，泰国核心消费者价格指数在5月份比去年同期上涨了0.92%。
 
-今日白酒市场11大单品六涨五跌，赢家略占上风。
+除了能源价格之外，泰国通货膨胀还受到预制食品价格上涨、动物饲料和化肥等农业原材料成本增加以及物流费用上涨的影响。
 
-上涨方面，青花郎涨幅居前，上涨6元/瓶，价格创下20余日以来新高；习酒君品上涨5元/瓶；国窖1573上涨4元/瓶，重返900元大关以上；水晶剑南春上涨3元/瓶；古井贡古20上涨2元/瓶，逼近一个月来最高纪录；洋河梦之蓝M6+上涨1元/瓶。
+泰国银行指出，中东战事的影响波及广泛，削弱了消费者的购买力，并推高了整体商业成本。
 
-下跌方面，青花汾20与精品茅台均下跌5元/瓶；飞天茅台下跌2元/瓶；五粮液普五八代与五粮液1618均小幅下跌1元/瓶。
+供应链中断对食品行业的影响尤为显著，由于物流受阻，罐装金枪鱼和大米的出口预计将大幅下降。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+此外，包装必需品塑料颗粒成本的上涨也进一步推高消费品和医疗用品的零售价格。
 
-随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
+泰国商务部贸易政策和战略办公室主任南塔蓬·奇拉勒斯蓬表示，预计6月份总体通胀率将上升，可能达到3%。
 
 ## 相关推荐
 
-- 2026-06-30 03:22 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-30 03:25 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-30 03:28 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 03:28 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-30 03:39 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-30 03:33 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 03:45 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-30 03:39 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-30 03:38 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-30 03:44 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-30 03:32 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-30 03:45 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-30 03:48 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-30 03:24 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-30 03:51 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-30 03:24 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-30 03:33 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-30 03:44 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-30 03:30 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-30 03:44 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-30 03:47 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-30 03:42 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:33 - [男子身高一米八二仍做断骨增高](http://www.share.kurohicncr.top/Article/details/1232965.shtml)
-- 2026-06-30 03:40 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/612746.shtml)
-- 2026-06-30 03:41 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/50349909.shtml)
-- 2026-06-30 03:43 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/72982515.shtml)
-- 2026-06-30 03:39 - [《共患难》](http://www.share.minike.top/Article/details/21598267038.shtml)
-- 2026-06-30 03:28 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/292714.shtml)
-- 2026-06-30 03:27 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/969882708920.shtml)
-- 2026-06-30 03:42 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/968156.shtml)
-- 2026-06-30 03:29 - [警犬“多多”助民警寻回失联老人](http://www.share.kurohicncr.top/Article/details/8530881.shtml)
-- 2026-06-30 03:33 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/967749.shtml)
-- 2026-06-30 03:20 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/351528738.shtml)
-- 2026-06-30 03:42 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/3516101398.shtml)
-- 2026-06-30 03:46 - [TOP Prada](https://www.share.minike.top/Article/details/1427763513.shtml)
-- 2026-06-30 03:18 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/639196495303.shtml)
-- 2026-06-30 03:34 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/926955842704.shtml)
+- 2026-06-30 03:24 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/49120554708.shtml)
+- 2026-06-30 03:28 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/55517976.shtml)
+- 2026-06-30 03:36 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/1840618.shtml)
+- 2026-06-30 03:29 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/59606643576.shtml)
+- 2026-06-30 03:27 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/344012104911.shtml)
+- 2026-06-30 03:46 - [急先锋](http://www.blog.kurohicncr.top/Article/details/484123772.shtml)
+- 2026-06-30 03:40 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/374600921008.shtml)
+- 2026-06-30 03:40 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/2488180745.shtml)
+- 2026-06-30 03:43 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/55929.shtml)
+- 2026-06-30 03:25 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/1501242.shtml)
+- 2026-06-30 03:50 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/222559336688.shtml)
+- 2026-06-30 03:37 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/34442215852.shtml)
+- 2026-06-30 03:31 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/227578.shtml)
+- 2026-06-30 03:47 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/30235026942.shtml)
+- 2026-06-30 03:42 - [第一炉香](https://www.blog.minike.top/Article/details/4036226702.shtml)

@@ -1,54 +1,59 @@
-# 高盛：信达生物给予“买入”评级 目标价升至105.94港元
+# 财务造假！派瑞股份戴帽：公司及三名高管拟被罚1020万元，此前已被证监会立案
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-高盛发布研报称，上调信达生物（01801）2026至2028年每股盈利预测，分别为1.42元、3.11元、4.19元人民币，以反映首季销售胜预期；目标价由104.61港元微升至105.94港元；评级“买入”。今年首季产品收入超过38亿元人民币，同比增逾50%，高于该行预测的约35亿元人民币。强劲增长主要受玛仕度肽等产品组合扩张，以及新纳入国家医保目录的产品所带动。 该行指出，今
+登录新浪财经APP 搜索【信披】查看更多考评等级 6月7日晚间，派瑞股份（维权）（300831.SZ，西安派瑞功率半导体变流技术股份有限公司）发布关于收到《行政处罚事先告知书》的公告。 根据公告，西安派瑞功率半导体变流技术股份有限公司于2025年12月26日收到中国证券监督管理委员会（简称中国证监会）下发的《立案告知书》（编号：证监立案字0092025016号）。因公司涉嫌信息
 
 ## 正文
 
-高盛发布研报称，上调信达生物（01801）2026至2028年每股盈利预测，分别为1.42元、3.11元、4.19元人民币，以反映首季销售胜预期；目标价由104.61港元微升至105.94港元；评级“买入”。
+登录新浪财经APP 搜索【信披】查看更多考评等级 6月7日晚间，派瑞股份（维权）（300831.SZ，西安派瑞功率半导体变流技术股份有限公司）发布关于收到《行政处罚事先告知书》的公告。
 
-今年首季产品收入超过38亿元人民币，同比增逾50%，高于该行预测的约35亿元人民币。
+根据公告，西安派瑞功率半导体变流技术股份有限公司于2025年12月26日收到中国证券监督管理委员会（简称中国证监会）下发的《立案告知书》（编号：证监立案字0092025016号）。
 
-强劲增长主要受玛仕度肽等产品组合扩张，以及新纳入国家医保目录的产品所带动。
+因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》、《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司立案。
 
-该行指出，今年6月将有两项关键数据成为市场焦点，包括预计公司在ADA会议上，将公布口服小分子GLP-1药物IBI3032更详细的早期临床数据，管理层此前曾简报该分子在4周内实现10%的体重下降，具备同类最佳潜力；在美国临床肿瘤学会（ASCO）会议上，IBI363（PD-1/IL-2b偏向性双特异性抗体）的两项数据将是重点关注，特别是一线非小细胞肺癌的二期临床数据首度亮相。
+《行政处罚事先告知书》主要内容显示，派瑞股份为平滑公司业绩，通过篡改商品验收单据的方式延迟确认销售收入，导致公司2024年年度报告虚减营业收入22715044.25元、虚减利润总额17117330.37元，分别占当期报告披露金额的11.84%和26.18%；2025年半年度报告虚增营业收入22715044.25元、虚增利润总额 17117330.37元，分别占当期报告披露金额的26.87%和50.02%。
 
-责任编辑：卢昱君
+公司时任董事长刘强，知悉销售收入延迟确认的情形，放任违法违规行为发生，在2024年年度报告和2025年半年度报告上签字，保证报告内容的真实、准确、完整。
+
+公司时任董事、总经理白杰和时任财务总监郭伟策划并组织实施了销售收入延迟确认行为，在2024年年度报告和2025年半年度报告上签字，保证报告内容的真实、准确、完整。
+
+2025年12月26日，派瑞股份披露《关于前期会计差错更正及追溯调整的公告》，对受影响的相关定期报告中有关财务数据进行了更正调整。
+
+根据上述违法行为，陕西证监局拟对西安派瑞功率半导体变流技术股份有限公司给予警告，并处以400万元罚款；对刘强给予警告，处以220万元罚款；对白杰、郭伟给予警告，并分别处以200万元罚款。
 
 ## 相关推荐
 
-- 2026-06-30 03:35 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-30 03:46 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-30 03:30 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-30 03:37 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-30 03:22 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-30 03:25 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-30 03:27 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 03:41 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-30 03:19 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 03:18 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-30 03:35 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-30 03:31 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-30 03:30 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-30 03:33 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-30 03:47 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 03:42 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-30 03:35 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-30 03:28 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-30 03:44 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-30 03:36 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-30 03:27 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-30 03:51 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 03:33 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-30 03:43 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-30 03:48 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-30 03:36 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-30 03:24 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:44 - [2026MSI应援曲《如果季中成回忆》](http://www.share.kurohicncr.top/Article/details/79758319927.shtml)
-- 2026-06-30 03:23 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/89457198405.shtml)
-- 2026-06-30 03:21 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/6644457724.shtml)
-- 2026-06-30 03:38 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/74017.shtml)
-- 2026-06-30 03:47 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/54184252.shtml)
-- 2026-06-30 03:34 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/29827758762.shtml)
-- 2026-06-30 03:42 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/219513254213.shtml)
-- 2026-06-30 03:42 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/7132280187.shtml)
-- 2026-06-30 03:29 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/75745.shtml)
-- 2026-06-30 03:45 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/47520012.shtml)
-- 2026-06-30 03:29 - [逃狱兄弟](https://www.share.minike.top/Article/details/16351.shtml)
-- 2026-06-30 03:21 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/59217632.shtml)
-- 2026-06-30 03:28 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/76835396.shtml)
-- 2026-06-30 03:40 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/538098043829.shtml)
-- 2026-06-30 03:37 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/50058.shtml)
+- 2026-06-30 03:25 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/96237752723.shtml)
+- 2026-06-30 03:41 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/84333701841.shtml)
+- 2026-06-30 03:37 - [爱很美味](https://www.blog.minike.top/Article/details/73072755213.shtml)
+- 2026-06-30 03:51 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/862992.shtml)
+- 2026-06-30 03:46 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/07249.shtml)
+- 2026-06-30 03:45 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/525703011196.shtml)
+- 2026-06-30 03:24 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/2663779164.shtml)
+- 2026-06-30 03:27 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/68080715517.shtml)
+- 2026-06-30 03:51 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/3665499.shtml)
+- 2026-06-30 03:24 - [绘画区你赢了](http://www.blog.minike.top/Article/details/408360790.shtml)
+- 2026-06-30 03:48 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/538853333.shtml)
+- 2026-06-30 03:49 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/12831520.shtml)
+- 2026-06-30 03:49 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/68594297.shtml)
+- 2026-06-30 03:38 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/8835877520.shtml)
+- 2026-06-30 03:46 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/68065691749.shtml)

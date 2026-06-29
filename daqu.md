@@ -1,57 +1,60 @@
-# 中芯国际大涨超10%，华虹半导体涨超9%！规模最大港股通信息技术ETF华宝（159131）飙涨逾6%
+# 利好！2570亿元中央资金力挺城市更新
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-港股硬科技，五月开门红！ 5月6日，港股硬科技强势上攻，恒生科技张逾1%，聚焦港股硬科技的港股通信息技术指数涨超3.6%强势跑赢。中芯国际大涨超10%、华虹半导体涨逾9%。同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内快速冲高逾6%，冲击跨境类ETF涨幅榜首！ 银河证券最新研报指出，当前港股整体估值并不便宜（PE处于80%分位），但科技板块、能源等高股
+记者丨张敏 编辑丨张星 2026年6月8日，国新办举行国务院政策例行吹风会，请住房城乡建设部、国家发展改革委、财政部、自然资源部等部委的相关负责人介绍《城市更新“十五五”规划》（以下简称《规划》）有关情况，并答记者问。 今年5月末，国务院印发《城市更新“十五五”规划》，明确了“十五五”时期城市更新工作的目标指标、重点任务、重大工程和政策举措。《规划》部署培育壮大城市发展新动能、
 
 ## 正文
 
-港股硬科技，五月开门红！
+记者丨张敏 编辑丨张星 2026年6月8日，国新办举行国务院政策例行吹风会，请住房城乡建设部、国家发展改革委、财政部、自然资源部等部委的相关负责人介绍《城市更新“十五五”规划》（以下简称《规划》）有关情况，并答记者问。
 
-5月6日，港股硬科技强势上攻，恒生科技张逾1%，聚焦港股硬科技的港股通信息技术指数涨超3.6%强势跑赢。
+今年5月末，国务院印发《城市更新“十五五”规划》，明确了“十五五”时期城市更新工作的目标指标、重点任务、重大工程和政策举措。
 
-中芯国际大涨超10%、华虹半导体涨逾9%。
+《规划》部署培育壮大城市发展新动能、营造高品质城市生活空间、推动城市发展绿色低碳转型、增强城市安全韧性、促进城市文化繁荣发展、提升城市治理能力水平等6方面重点任务。
 
-同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内快速冲高逾6%，冲击跨境类ETF涨幅榜首！
+这也是城市更新领域的第一部国家级专项规划。
 
-银河证券最新研报指出，当前港股整体估值并不便宜（PE处于80%分位），但科技板块、能源等高股息板块结构性估值优势仍在，性价比叙事从“全面低估”转向“结构性低估”。
+去年7月召开的中央城市工作会议明确，将“推进城市更新”作为实现城市内涵式发展的重要抓手。
 
-投资策略上，科技板块主线建议聚焦半导体/硬件设备。
+这份顶层设计文件的出台，使得城市更新领域的任务目标、规划与实施均更加清晰。
 
-AI应用端的Token出海逻辑仍在，5月或有新模型发布，维持关注。
+作为一项系统工程，城市更新涵盖多项工作内容，涉及多个相关领域，也需要多部门协同推进。
 
-自3月31日触底反弹以来，港股通信息技术ETF华宝（159131）标的指数——中证港股通信息技术综合指数（简称港股通信息C）累计涨幅17.8%，同期恒生科技、港股通科技的涨幅分别为3.91%、4.69%，锐度和弹性显著领先。
+针对《规划》中提到的城市地下管网改造、“好房子”建设等重点话题，以及配套支持政策、协同保障机制等，相关负责人均给出了详细解读。
 
 ## 相关推荐
 
-- 2026-06-30 03:26 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-30 03:19 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-30 03:47 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-30 03:29 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-30 03:42 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-30 03:34 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-30 03:26 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-30 03:36 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-30 03:37 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-30 03:23 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 03:28 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 03:34 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-30 03:47 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-30 03:43 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-30 03:32 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-30 03:24 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-30 03:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 03:32 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-30 03:34 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-30 03:46 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 03:35 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-30 03:41 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-30 03:51 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-30 03:51 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-30 03:52 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:18 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/64887.shtml)
-- 2026-06-30 03:33 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/84516.shtml)
-- 2026-06-30 03:38 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/1541083337.shtml)
-- 2026-06-30 03:36 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/066374535569.shtml)
-- 2026-06-30 03:42 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/0978472.shtml)
-- 2026-06-30 03:47 - [巴西扳平比分](http://www.share.minike.top/Article/details/649666.shtml)
-- 2026-06-30 03:22 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/482155.shtml)
-- 2026-06-30 03:30 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/8018424.shtml)
-- 2026-06-30 03:37 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/91963639338.shtml)
-- 2026-06-30 03:22 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/091708734.shtml)
-- 2026-06-30 03:31 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/488464.shtml)
-- 2026-06-30 03:36 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/51453658.shtml)
-- 2026-06-30 03:46 - [爱很美味](http://www.share.kurohicncr.top/Article/details/722406074.shtml)
-- 2026-06-30 03:23 - [蔚来车主罚站](https://www.share.minike.top/Article/details/33479943629.shtml)
-- 2026-06-30 03:40 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/8225825.shtml)
+- 2026-06-30 03:40 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/9281821387.shtml)
+- 2026-06-30 03:26 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/207628122453.shtml)
+- 2026-06-30 03:24 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/32291881.shtml)
+- 2026-06-30 03:38 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/760281953.shtml)
+- 2026-06-30 03:34 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/51538070981.shtml)
+- 2026-06-30 03:51 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/73602.shtml)
+- 2026-06-30 03:26 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/32265158963.shtml)
+- 2026-06-30 03:51 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/336599.shtml)
+- 2026-06-30 03:24 - [“十五五”优质本科扩容](http://www.blog.minike.top/Article/details/99520291.shtml)
+- 2026-06-30 03:38 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/31075.shtml)
+- 2026-06-30 03:38 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/358776670617.shtml)
+- 2026-06-30 03:49 - [沙丘](http://www.blog.minike.top/Article/details/00503.shtml)
+- 2026-06-30 03:49 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/405451.shtml)
+- 2026-06-30 03:34 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/7947446.shtml)
+- 2026-06-30 03:40 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/05671.shtml)

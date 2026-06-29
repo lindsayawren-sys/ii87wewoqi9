@@ -1,57 +1,54 @@
-# 犹他医疗宣布季度派息 连续多年保持稳定分红
+# 中方谈中东局势：战事再起不符合任何一方利益
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-犹他医疗产品公司周二宣布，董事会批准了每股0.31美元的季度现金股息，延续了公司长期以来的稳定分红政策。 根据公告，此次派息将于2026年6月4日支付给5月22日登记在册的股东。这是该公司自2025年11月将股息从0.305美元提高至0.31美元后的持续执行，标志着公司已连续多年保持稳定的季度分红记录。 此次派息决定基于公司稳健的财务基础。根据公司最新财报，截至2026年3月底
+中新网北京6月8日电 (记者 李京泽)中国外交部发言人林剑6月8日主持例行记者会。 在回答有关中东局势的提问时，林剑表示，中方对当前局势深表关切。战事再起不符合任何一方的利益。希望相关各方履行停火承诺，保持谈判势头，坚持通过政治外交途径化解争端，尽早实现全面持久停火，为恢复中东海湾地区和平安宁创造必要条件。(完）
 
 ## 正文
 
-犹他医疗产品公司周二宣布，董事会批准了每股0.31美元的季度现金股息，延续了公司长期以来的稳定分红政策。
+中新网北京6月8日电 (记者 李京泽)中国外交部发言人林剑6月8日主持例行记者会。
 
-根据公告，此次派息将于2026年6月4日支付给5月22日登记在册的股东。
+在回答有关中东局势的提问时，林剑表示，中方对当前局势深表关切。
 
-这是该公司自2025年11月将股息从0.305美元提高至0.31美元后的持续执行，标志着公司已连续多年保持稳定的季度分红记录。
+战事再起不符合任何一方的利益。
 
-此次派息决定基于公司稳健的财务基础。
+希望相关各方履行停火承诺，保持谈判势头，坚持通过政治外交途径化解争端，尽早实现全面持久停火，为恢复中东海湾地区和平安宁创造必要条件。
 
-根据公司最新财报，截至2026年3月底，公司资产负债表保持零负债状态，现金及投资总额增至8740万美元，股东权益达1.2037亿美元。
-
-尽管一季度净销售额同比下降10.2%至872万美元，每股收益下降11%至0.818美元，但公司毛利率从57%扩大至60.6%，显示出产品组合优化和成本控制的成效。
-
-在资本配置方面，公司一季度回购了2196股股票，平均回购价格为58.58美元。
-
-管理层重申了“在认为对剩余股东具有吸引力的价格下回购股票”的强烈意愿和财务能力。
+(完）
 
 ## 相关推荐
 
-- 2026-06-30 03:31 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 03:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-30 03:38 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 03:35 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-30 03:31 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-30 03:41 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-30 03:45 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-30 03:21 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 03:25 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-30 03:24 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-30 03:24 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 03:42 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-30 03:37 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 03:48 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 03:51 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 03:29 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-30 03:35 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-30 03:52 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 03:36 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-30 03:29 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-30 03:53 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-30 03:27 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-30 03:38 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-30 03:29 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-30 03:50 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:35 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/553553.shtml)
-- 2026-06-30 03:44 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/1165820885.shtml)
-- 2026-06-30 03:40 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/8582309715.shtml)
-- 2026-06-30 03:27 - [沙丘](http://www.share.minike.top/Article/details/35080680.shtml)
-- 2026-06-30 03:46 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/104815.shtml)
-- 2026-06-30 03:24 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/2109500243.shtml)
-- 2026-06-30 03:33 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/8986825.shtml)
-- 2026-06-30 03:37 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/2992338.shtml)
-- 2026-06-30 03:39 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/8135611.shtml)
-- 2026-06-30 03:43 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/6545746.shtml)
-- 2026-06-30 03:22 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/37921511.shtml)
-- 2026-06-30 03:37 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/377230896.shtml)
-- 2026-06-30 03:23 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/683499124.shtml)
-- 2026-06-30 03:47 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/703290014301.shtml)
-- 2026-06-30 03:45 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/55689865070.shtml)
+- 2026-06-30 03:53 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/163433072.shtml)
+- 2026-06-30 03:43 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/890911.shtml)
+- 2026-06-30 03:47 - [日本进球](http://www.blog.kurohicncr.top/Article/details/698764021.shtml)
+- 2026-06-30 03:51 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/100653.shtml)
+- 2026-06-30 03:27 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/9611805.shtml)
+- 2026-06-30 03:40 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/4619028199.shtml)
+- 2026-06-30 03:49 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/38978751.shtml)
+- 2026-06-30 03:47 - [人类...完蛋了...](http://www.blog.kurohicncr.top/Article/details/73575097.shtml)
+- 2026-06-30 03:40 - [日本反击率先破门](https://www.blog.minike.top/Article/details/600479729.shtml)
+- 2026-06-30 03:43 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/438891071815.shtml)
+- 2026-06-30 03:48 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/08016316263.shtml)
+- 2026-06-30 03:46 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/876375238240.shtml)
+- 2026-06-30 03:33 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/569190551.shtml)
+- 2026-06-30 03:24 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/9802785996.shtml)
+- 2026-06-30 03:26 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/842142.shtml)

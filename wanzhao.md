@@ -1,48 +1,58 @@
-# 浙江杭州上演“音乐任意门” “草根音乐人”站上CBD舞台
+# 高盛不再预计美联储今年降息
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月05日 13:15 来源：中国新闻网 “五一”假期，浙江杭州“音乐任意门”五一专场演出在武林广场上演，当地“草根音乐人”在CBD舞台聚光灯下献唱、表演，让民众在“五一”假期内感受音乐艺术。 责任编辑：【卢岩】
+鉴于美国劳动力市场表现超出预期，高盛经济学家撤销了此前对美联储2026年12月降息的预测。该行仍预计美联储将两次降息，每次下调25个基点，但降息时间推迟至2027年6月和12月。 高盛首席美国经济学家David Mericle在6月5日发布的报告中表示：“劳动力市场走势强于我们此前预期。目前我们预计失业率仅小幅升至4.4%，尚不构成降息的迫切理由。”此前公布的5月就业数据显示，
 
 ## 正文
 
-发布时间：2026年05月05日 13:15 来源：中国新闻网 “五一”假期，浙江杭州“音乐任意门”五一专场演出在武林广场上演，当地“草根音乐人”在CBD舞台聚光灯下献唱、表演，让民众在“五一”假期内感受音乐艺术。
+鉴于美国劳动力市场表现超出预期，高盛经济学家撤销了此前对美联储2026年12月降息的预测。
 
-责任编辑：【卢岩】
+该行仍预计美联储将两次降息，每次下调25个基点，但降息时间推迟至2027年6月和12月。
+
+高盛首席美国经济学家David Mericle在6月5日发布的报告中表示：“劳动力市场走势强于我们此前预期。
+
+目前我们预计失业率仅小幅升至4.4%，尚不构成降息的迫切理由。
+
+”此前公布的5月就业数据显示，新增就业人数远超彭博社调查的所有市场预期。
+
+因此我们认为，联邦公开市场委员会最合理的做法是推迟后续降息，直至关税、地缘冲突及人工智能相关需求带来的影响消退，同时核心个人消费支出通胀率回落至2%附近。
+
+4月核心个人消费支出通胀率同比上涨3.3%。
+
+高盛此前预测美联储将在2026年12月和2027年3月各降息25个基点。
 
 ## 相关推荐
 
-- 2026-06-30 03:30 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-30 03:30 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-30 03:32 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-30 03:21 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-30 03:22 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-30 03:31 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 03:28 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 03:37 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-30 03:46 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 03:44 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-30 03:23 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-30 03:38 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-30 03:33 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-30 03:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-30 03:48 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-30 03:30 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 03:30 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-30 03:43 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 03:52 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-30 03:30 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 03:43 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-30 03:35 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-30 03:45 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-30 03:29 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-30 03:35 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-30 03:52 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:31 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/985408101197.shtml)
-- 2026-06-30 03:44 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/9424630686.shtml)
-- 2026-06-30 03:44 - [周生如故](https://www.blog.minike.top/Article/details/628977584.shtml)
-- 2026-06-30 03:44 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/681310998.shtml)
-- 2026-06-30 03:26 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/0807249010.shtml)
-- 2026-06-30 03:21 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/283260466858.shtml)
-- 2026-06-30 03:21 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/19542.shtml)
-- 2026-06-30 03:47 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/61753632.shtml)
-- 2026-06-30 03:34 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/990893320952.shtml)
-- 2026-06-30 03:38 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/58523085.shtml)
-- 2026-06-30 03:42 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/8528073352.shtml)
-- 2026-06-30 03:19 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/466814193.shtml)
-- 2026-06-30 03:33 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/279843.shtml)
-- 2026-06-30 03:38 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/95816314.shtml)
-- 2026-06-30 03:41 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/081312038.shtml)
+- 2026-06-30 03:37 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/24473.shtml)
+- 2026-06-30 03:42 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/468978925.shtml)
+- 2026-06-30 03:31 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/49899.shtml)
+- 2026-06-30 03:50 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/85495998781.shtml)
+- 2026-06-30 03:48 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/41739498.shtml)
+- 2026-06-30 03:38 - [巴西2比1日本](https://www.blog.minike.top/Article/details/62493654.shtml)
+- 2026-06-30 03:43 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/364157842823.shtml)
+- 2026-06-30 03:46 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/206971.shtml)
+- 2026-06-30 03:52 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/7799411174.shtml)
+- 2026-06-30 03:33 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/5856126245.shtml)
+- 2026-06-30 03:50 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/86793629165.shtml)
+- 2026-06-30 03:30 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/145340.shtml)
+- 2026-06-30 03:44 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/04708290981.shtml)
+- 2026-06-30 03:41 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/9345691481.shtml)
+- 2026-06-30 03:41 - [日本进球](http://www.blog.kurohicncr.top/Article/details/608802092378.shtml)

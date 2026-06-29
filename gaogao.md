@@ -1,51 +1,44 @@
-# eBay确认收到GameStop主动发起的收购要约
+# 习近平出席金正恩举行的欢迎仪式
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-eBay在声明中确认，已收到GameStop主动提出的、不具约束力的收购提议。 eBay表示，在收到该提议之前，公司未与GameStop进行任何讨论，也未接到对方接洽： “eBay董事会将在其财务和法律顾问的协助下，审慎评估这一未经请求的提议，以确定其认为符合公司及全体股东最佳利益的行动方案”； 建议股东目前不要采取任何行动； 董事会将重点评估该提议为eBay股东带来的价值，包
+发布时间：2026年06月08日 19:03 来源：央视新闻客户端 责任编辑：【王祎】
 
 ## 正文
 
-eBay在声明中确认，已收到GameStop主动提出的、不具约束力的收购提议。
-
-eBay表示，在收到该提议之前，公司未与GameStop进行任何讨论，也未接到对方接洽： “eBay董事会将在其财务和法律顾问的协助下，审慎评估这一未经请求的提议，以确定其认为符合公司及全体股东最佳利益的行动方案”； 建议股东目前不要采取任何行动； 董事会将重点评估该提议为eBay股东带来的价值，包括GameStop股票对价的价值，以及GameStop提出具有约束力、可执行提议的能力； 公司表示，在董事会对该提议进行进一步全面审慎评估之前，无意提供更多评论。
-
-责任编辑：陈钰嘉
+发布时间：2026年06月08日 19:03 来源：央视新闻客户端 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 03:31 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-30 03:20 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-30 03:23 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-30 03:18 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-30 03:18 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-30 03:44 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-30 03:33 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 03:27 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-30 03:27 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-30 03:21 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-30 03:24 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 03:31 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-30 03:46 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-30 03:19 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-30 03:28 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-30 03:35 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-30 03:41 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-30 03:37 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-30 03:38 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-30 03:42 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-30 03:53 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-30 03:30 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-30 03:48 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 03:48 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-30 03:33 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 03:34 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-30 03:36 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:36 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/07412742.shtml)
-- 2026-06-30 03:27 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/444275125221.shtml)
-- 2026-06-30 03:29 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.minike.top/Article/details/63428.shtml)
-- 2026-06-30 03:45 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/689273939356.shtml)
-- 2026-06-30 03:18 - [法媒点赞分享中国小区降温方案](http://www.share.kurohicncr.top/Article/details/584730118242.shtml)
-- 2026-06-30 03:40 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/74374274.shtml)
-- 2026-06-30 03:22 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/258182211.shtml)
-- 2026-06-30 03:23 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/5528816870.shtml)
-- 2026-06-30 03:43 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/7882328.shtml)
-- 2026-06-30 03:47 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/9727553874.shtml)
-- 2026-06-30 03:30 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/732511447.shtml)
-- 2026-06-30 03:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/8507168031.shtml)
-- 2026-06-30 03:34 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/601351599.shtml)
-- 2026-06-30 03:32 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/5972026.shtml)
-- 2026-06-30 03:35 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/12630799506.shtml)
+- 2026-06-30 03:51 - [演员都来上音综的原因](http://www.blog.kurohicncr.top/Article/details/459980061482.shtml)
+- 2026-06-30 03:36 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/89958227739.shtml)
+- 2026-06-30 03:27 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/6788046.shtml)
+- 2026-06-30 03:29 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/6117264.shtml)
+- 2026-06-30 03:32 - [男子身高一米八二仍做断骨增高](http://www.share.kurohicncr.top/Article/details/1089882972.shtml)
+- 2026-06-30 03:41 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/317607773.shtml)
+- 2026-06-30 03:24 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/257360.shtml)
+- 2026-06-30 03:39 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/3006168.shtml)
+- 2026-06-30 03:46 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/58537290476.shtml)
+- 2026-06-30 03:32 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/568503582.shtml)
+- 2026-06-30 03:31 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/569234.shtml)
+- 2026-06-30 03:24 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/311083.shtml)
+- 2026-06-30 03:38 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/446524.shtml)
+- 2026-06-30 03:29 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/120205716.shtml)
+- 2026-06-30 03:43 - [巴西醒醒 这是淘汰赛](http://www.share.minike.top/Article/details/497750576781.shtml)

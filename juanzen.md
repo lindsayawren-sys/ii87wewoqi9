@@ -1,48 +1,59 @@
-# 新世界发展：有潜在买家不时就公司的各项资产与公司接洽 尚未就任何出售事项订立协议
+# 中国住房公积金拟拓宽使用范围：自住住房装修、支付物业费纳入提取范围
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-新世界发展（00017）发布公告，本公司注意到有媒体报导揣测本集团可能出售其于若干香港酒店资产的权益。经作出在相关情况下有关本公司的合理查询后，本公司谨此澄清，尽管有潜在买家不时就本公司的各项资产（包括其香港酒店资产）与本公司接洽，截至本公告日期，本公司尚未就任何该等出售事项订立根据上巿规则须予以披露的协议。责任编辑：卢昱君
+中新社北京6月6日电 中国住房和城乡建设部日前就《住房公积金管理条例(修订征求意见稿)》公开征求意见。 此番征求意见稿的修订涉及拓宽住房公积金使用范围、扩大缴存覆盖面、缩短批贷时限等内容。 中国从20世纪90年代开始实行住房公积金制度，其主要目的是帮助职工解决住房问题。1999年，国务院颁布施行《住房公积金管理条例》。专家指出，当前，房地产市场供求关系发生重大变化，对住房公积金
 
 ## 正文
 
-新世界发展（00017）发布公告，本公司注意到有媒体报导揣测本集团可能出售其于若干香港酒店资产的权益。
+中新社北京6月6日电 中国住房和城乡建设部日前就《住房公积金管理条例(修订征求意见稿)》公开征求意见。
 
-经作出在相关情况下有关本公司的合理查询后，本公司谨此澄清，尽管有潜在买家不时就本公司的各项资产（包括其香港酒店资产）与本公司接洽，截至本公告日期，本公司尚未就任何该等出售事项订立根据上巿规则须予以披露的协议。
+此番征求意见稿的修订涉及拓宽住房公积金使用范围、扩大缴存覆盖面、缩短批贷时限等内容。
 
-责任编辑：卢昱君
+中国从20世纪90年代开始实行住房公积金制度，其主要目的是帮助职工解决住房问题。
+
+1999年，国务院颁布施行《住房公积金管理条例》。
+
+专家指出，当前，房地产市场供求关系发生重大变化，对住房公积金制度运行提出新要求，有必要对条例进行修订完善。
+
+具体来看，此番征求意见稿拓宽了住房公积金的使用范围，将自住住房装修、支付物业费纳入可提取住房公积金的情形，增加经国务院批准的其他住房消费情形作为兜底条款。
+
+同时，扩大了缴存覆盖面。
+
+明确原条例规定单位以外的其他单位及其在职职工，可参照条例规定执行；个体工商户、非全日制从业人员以及其他灵活就业人员，可自愿参加住房公积金制度。
 
 ## 相关推荐
 
-- 2026-06-30 03:25 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-30 03:23 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-30 03:28 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-30 03:18 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-30 03:31 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-30 03:20 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-30 03:39 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-30 03:26 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-30 03:28 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-30 03:22 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-30 03:20 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-30 03:43 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 03:34 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-30 03:42 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 03:32 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-30 03:38 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-30 03:26 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-30 03:37 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-30 03:42 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 03:35 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-30 03:48 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-30 03:27 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-30 03:24 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-30 03:52 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-30 03:37 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:29 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/1089813938.shtml)
-- 2026-06-30 03:27 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/446165.shtml)
-- 2026-06-30 03:39 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/5440684600.shtml)
-- 2026-06-30 03:46 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/99601.shtml)
-- 2026-06-30 03:41 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/1517875.shtml)
-- 2026-06-30 03:27 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/82721913.shtml)
-- 2026-06-30 03:23 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/47317.shtml)
-- 2026-06-30 03:32 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/6543846838.shtml)
-- 2026-06-30 03:38 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/50107.shtml)
-- 2026-06-30 03:33 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/79546842.shtml)
-- 2026-06-30 03:19 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/8234921.shtml)
-- 2026-06-30 03:42 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/323158732.shtml)
-- 2026-06-30 03:29 - [足球“出口导向”造就佛得角奇迹](https://www.share.kurohicncr.top/Article/details/57724298081.shtml)
-- 2026-06-30 03:33 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/6033141606.shtml)
-- 2026-06-30 03:36 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/638305.shtml)
+- 2026-06-30 03:47 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/39111.shtml)
+- 2026-06-30 03:51 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/812297260226.shtml)
+- 2026-06-30 03:39 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/91543963128.shtml)
+- 2026-06-30 03:27 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/52878598340.shtml)
+- 2026-06-30 03:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/95941236705.shtml)
+- 2026-06-30 03:36 - [金刚川](https://www.blog.minike.top/Article/details/408058164160.shtml)
+- 2026-06-30 03:53 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/61561.shtml)
+- 2026-06-30 03:42 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/690925.shtml)
+- 2026-06-30 03:35 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/2661352.shtml)
+- 2026-06-30 03:51 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/928704612002.shtml)
+- 2026-06-30 03:40 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/561980568.shtml)
+- 2026-06-30 03:40 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/3194324.shtml)
+- 2026-06-30 03:34 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/7729186.shtml)
+- 2026-06-30 03:31 - [送你一朵小红花](https://www.share.minike.top/Article/details/37867988886.shtml)
+- 2026-06-30 03:41 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/10636110.shtml)

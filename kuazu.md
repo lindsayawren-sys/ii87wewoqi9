@@ -1,60 +1,58 @@
-# “AI是否会取代人类工作” 诺奖得主这样说
+# 马王堆汉墓里藏着怎样的“舌尖秘密”？这场读者开放日给出答案
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-世界周刊丨“AI是否会取代人类工作” 诺奖得主这样说 过去一年，“AI是否会取代人类工作”的讨论持续升温，相关研究报告、行业预判和真实案例不断刷屏，让职场人士人心生忧虑。但其实，传来的也不全是坏消息。 AI模型训练带来新的工作机会 马达加斯加位列全球最贫困国家之一，全国约3100万人口里，超七成民众身处贫困线以下，而AI浪潮的兴起，为这个国家带来了全新的发展契机。25岁的埃莉娜
+中新网长沙6月6日电 (记者 邓霞)“马王堆汉墓和海昏侯墓都出土了甜瓜籽，是巧合吗”“马王堆汉墓中香料主要用途是什么”……6月6日，在长沙举行的岳麓书社第四届读者开放日上，一场围绕马王堆汉墓饮食“密码”的文博分享，带领读者穿越千年，解锁西汉长沙国贵族的饮食文明。 活动现场，岳麓书社编辑邱建明以马王堆汉墓出土饮食类文物、食物遗存、简牍文献为核心依据，结合考古研究成果，介绍了汉代长
 
 ## 正文
 
-世界周刊丨“AI是否会取代人类工作” 诺奖得主这样说 过去一年，“AI是否会取代人类工作”的讨论持续升温，相关研究报告、行业预判和真实案例不断刷屏，让职场人士人心生忧虑。
+中新网长沙6月6日电 (记者 邓霞)“马王堆汉墓和海昏侯墓都出土了甜瓜籽，是巧合吗”“马王堆汉墓中香料主要用途是什么”……6月6日，在长沙举行的岳麓书社第四届读者开放日上，一场围绕马王堆汉墓饮食“密码”的文博分享，带领读者穿越千年，解锁西汉长沙国贵族的饮食文明。
 
-但其实，传来的也不全是坏消息。
+活动现场，岳麓书社编辑邱建明以马王堆汉墓出土饮食类文物、食物遗存、简牍文献为核心依据，结合考古研究成果，介绍了汉代长沙国贵族的饮食体系、食俗礼仪与养生智慧。
 
-AI模型训练带来新的工作机会 马达加斯加位列全球最贫困国家之一，全国约3100万人口里，超七成民众身处贫困线以下，而AI浪潮的兴起，为这个国家带来了全新的发展契机。
+“马王堆汉墓食物遗存种类齐全、包罗万象，体现了西汉‘事死如事生’的厚葬观念。
 
-25岁的埃莉娜就是抓住时代红利的一员。
+”邱建明指着图片说，光是谷物类，就有稻、麦、黍、粟、菽、麻籽等。
 
-埃莉娜就职的AI公司，是当地头部数字企业，位于马达加斯加安布西特拉市中心商务区的一栋现代化大楼内。
+其中稻谷品种又分籼、粳、黏、糯，做法也多种多样。
 
-公司有80名员工，日常工作是数据标注工作。
+除了直接蒸煮的“稻食”，还有加红枣、桂圆等配料的“稻粥”，把大米磨成粉、制成饼的“稻饼”，和肉类、蔬菜一起蒸煮的“稻饭”等。
 
-工作人员通过贴标签、做标记、区分颜色、划定重点等方式，对数据的差异特征、相似特征及所属类别进行规整标注，为AI模型提供训练与学习所需的基础素材。
+“今天我们吃的‘米饭套餐’‘粥品’‘米糕’，在汉代已经有了雏形。
 
-埃莉娜这份工作月薪120欧元，比当地80欧元的平均薪资高出50%。
+” 邱建明提问：“大家知道，马王堆汉墓中哪种鱼最多吗？
 
 ## 相关推荐
 
-- 2026-06-30 03:21 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-30 03:42 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-30 03:43 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-30 03:44 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 03:32 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-30 03:44 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-30 03:28 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-30 03:22 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-30 03:33 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-30 03:27 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-30 03:46 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-30 03:41 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-30 03:40 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-30 03:36 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 03:31 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-30 03:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 03:36 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-30 03:49 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-30 03:26 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-30 03:50 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-30 03:36 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 03:47 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-30 03:35 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 03:44 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 03:50 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 03:48 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:41 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/459886326336.shtml)
-- 2026-06-30 03:47 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/18709752.shtml)
-- 2026-06-30 03:39 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/8455613082.shtml)
-- 2026-06-30 03:35 - [“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/863334982.shtml)
-- 2026-06-30 03:23 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/35551396.shtml)
-- 2026-06-30 03:26 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/4607944896.shtml)
-- 2026-06-30 03:39 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/790475874.shtml)
-- 2026-06-30 03:27 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/47878.shtml)
-- 2026-06-30 03:23 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/25380417024.shtml)
-- 2026-06-30 03:21 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/860548324.shtml)
-- 2026-06-30 03:27 - [一见倾心](http://www.share.minike.top/Article/details/758558539971.shtml)
-- 2026-06-30 03:38 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/21000128.shtml)
-- 2026-06-30 03:41 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/345731876.shtml)
-- 2026-06-30 03:38 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/2010915800.shtml)
-- 2026-06-30 03:29 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/11941702931.shtml)
+- 2026-06-30 03:25 - [扫黑风暴](https://www.share.minike.top/Article/details/16792861664.shtml)
+- 2026-06-30 03:25 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/69161976.shtml)
+- 2026-06-30 03:26 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/05255.shtml)
+- 2026-06-30 03:50 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/10109091.shtml)
+- 2026-06-30 03:43 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/11219.shtml)
+- 2026-06-30 03:48 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/610373930.shtml)
+- 2026-06-30 03:33 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/4259195337.shtml)
+- 2026-06-30 03:43 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/7790258.shtml)
+- 2026-06-30 03:31 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/77562784.shtml)
+- 2026-06-30 03:41 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/4082426.shtml)
+- 2026-06-30 03:33 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.minike.top/Article/details/67969963106.shtml)
+- 2026-06-30 03:47 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/3839137374.shtml)
+- 2026-06-30 03:31 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/256991049211.shtml)
+- 2026-06-30 03:25 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/49058444.shtml)
+- 2026-06-30 03:47 - [普京间接喊话特朗普有何考量](http://www.share.minike.top/Article/details/946360628.shtml)

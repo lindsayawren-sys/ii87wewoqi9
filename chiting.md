@@ -1,56 +1,57 @@
-# 微软Xbox营收持续下滑 首席执行官重组高管团队：我们必须变革工作方式
+# 美国廉价航空公司Breeze Airways计划于2027年上市
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-核心要点 微软 Xbox 首席执行官阿莎・夏尔马于周二向员工发布内部备忘录，宣布任命新一届领导层。这家科技巨头正试图扭转游戏业务颓势，重回增长轨道。 今年 2 月，游戏业务负责人菲尔・斯宾塞宣布退休，夏尔马正式接手 Xbox 业务。她于 2024 年加入微软，此前曾在 Meta 与 Instacart 担任高管；入职微软后出任核心 AI 工程团队产品总裁，主导 GitHub C
+美国国内低成本航空公司Breeze Airways首席执行官大卫·尼尔曼周六表示，该公司计划于2027年进行首次公开募股（IPO），但他指出该计划取决于市场状况。 他在里约热内卢举行的国际航空运输协会年度峰会上接受采访时补充道，该航空公司曾考虑更早进行IPO，但因市场状况决定暂缓。 “要进行IPO，市场必须配合，行业也必须配合，”他说。 尼尔曼表示，这家成立于2021年的航空公
 
 ## 正文
 
-核心要点 微软 Xbox 首席执行官阿莎・夏尔马于周二向员工发布内部备忘录，宣布任命新一届领导层。
+美国国内低成本航空公司Breeze Airways首席执行官大卫·尼尔曼周六表示，该公司计划于2027年进行首次公开募股（IPO），但他指出该计划取决于市场状况。
 
-这家科技巨头正试图扭转游戏业务颓势，重回增长轨道。
+他在里约热内卢举行的国际航空运输协会年度峰会上接受采访时补充道，该航空公司曾考虑更早进行IPO，但因市场状况决定暂缓。
 
-今年 2 月，游戏业务负责人菲尔・斯宾塞宣布退休，夏尔马正式接手 Xbox 业务。
+“要进行IPO，市场必须配合，行业也必须配合，”他说。
 
-她于 2024 年加入微软，此前曾在 Meta 与 Instacart 担任高管；入职微软后出任核心 AI 工程团队产品总裁，主导 GitHub Copilot、Visual Studio Code 等开发者工具业务。
+尼尔曼表示，这家成立于2021年的航空公司一直在稳步迈向财务稳定，并补充说公司目前无需融资，因此有余裕等待合适的股市环境再进行首次公开募股。
 
-夏尔马在 CNBC 看到的这份内部备忘录中写道： “我们必须在整个平台体系内，变革工作模式与组织架构。
+尼尔曼此前曾创立捷蓝航空（JetBlue）和阿苏尔航空（Azul），他打造Breeze航空的初衷是通过经济实惠的点对点航班，连接美国那些服务不足的中等规模城市。
 
-目前我们难以快速推出有影响力的产品，内部内耗耗时过多，对外与玩家社群联结不足，部分基础核心能力也存在短板。
+Breeze 还正在进军国际市场。
 
-” 上周微软公布财报，Xbox 游戏营收在过去六个季度里第四次出现下滑。
+该航空公司已宣布开通飞往墨西哥、哥斯达黎加和多米尼加共和国的航线，牙买加最初也在计划之中，但因飓风灾害影响而暂缓。
 
-微软首席执行官萨提亚・纳德拉表示，公司正努力赢回 Xbox、必应搜索及其他消费级业务的用户与粉丝。
+“国际业务是我们业务的重要组成部分，”尼尔曼表示。
 
 ## 相关推荐
 
-- 2026-06-30 03:19 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-30 03:39 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-30 03:38 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-30 03:47 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-30 03:34 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 03:27 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-30 03:31 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-30 03:39 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-30 03:20 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-30 03:23 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-30 03:35 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 03:45 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-30 03:37 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-30 03:46 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 03:40 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-30 03:37 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-30 03:52 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-30 03:33 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-30 03:29 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-30 03:40 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-30 03:39 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:22 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/0059296.shtml)
-- 2026-06-30 03:31 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/162542.shtml)
-- 2026-06-30 03:46 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/372880249.shtml)
-- 2026-06-30 03:47 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/8129355.shtml)
-- 2026-06-30 03:45 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/373824.shtml)
-- 2026-06-30 03:27 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/166769006322.shtml)
-- 2026-06-30 03:34 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/8002527.shtml)
-- 2026-06-30 03:26 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/9500860.shtml)
-- 2026-06-30 03:36 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/87906861789.shtml)
-- 2026-06-30 03:48 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/1327948741.shtml)
-- 2026-06-30 03:37 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/9089042294.shtml)
-- 2026-06-30 03:38 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/351513.shtml)
-- 2026-06-30 03:43 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/8781188.shtml)
-- 2026-06-30 03:41 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/31427240.shtml)
-- 2026-06-30 03:40 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/4006390.shtml)
+- 2026-06-30 03:28 - [逃狱兄弟](https://www.share.minike.top/Article/details/4112359.shtml)
+- 2026-06-30 03:33 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/80689.shtml)
+- 2026-06-30 03:27 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/4622281120.shtml)
+- 2026-06-30 03:47 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/10768366.shtml)
+- 2026-06-30 03:46 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/22979553.shtml)
+- 2026-06-30 03:26 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/743036.shtml)
+- 2026-06-30 03:27 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/898599170.shtml)
+- 2026-06-30 03:41 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/78133.shtml)
+- 2026-06-30 03:31 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/125543.shtml)
+- 2026-06-30 03:50 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/23629162.shtml)
+- 2026-06-30 03:51 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/407763607.shtml)
+- 2026-06-30 03:36 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/903839549.shtml)
+- 2026-06-30 03:34 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/56783.shtml)
+- 2026-06-30 03:31 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/84466511.shtml)
+- 2026-06-30 03:53 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/78719.shtml)

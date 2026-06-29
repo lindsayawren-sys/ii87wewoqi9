@@ -1,56 +1,59 @@
-# Anthropic承诺斥资2,000亿美元购买谷歌云服务和芯片
+# 美中企业总商会会长林明华：中美企业合作路径正经历新变
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-据媒体援引一位知情人士的话报道，Anthropic已承诺未来五年内在谷歌云（Google Cloud）服务上支出2，000亿美元，这是双方近期协议的部分内容。这一承诺表明，这家人工智能初创公司占谷歌上周向投资者披露的未实现收入的40%以上。 受此消息影响，谷歌母公司Alphabet 的股价周二在盘后交易中上涨约2%。 Anthropic 于 4 月与谷歌及其芯片合作伙伴博通签署
+中新网重庆6月6日电 (张旭)“中美企业现在的合作，和十年前已经大为不同。”美中企业总商会会长林明华5日在重庆对中新网介绍，如今，中美企业合作的领域、方式正经历新变化，从单一、传统的领域升级到了高科技、绿色农业与跨境文化融合等综合性领域，从过去的单向招商逐步变为双向赋能。 6月3日至5日，林明华随团参访了重庆市潼南区、永川区、沙坪坝区、渝中区等地，参访间隙，林明华接受采访时如是
 
 ## 正文
 
-据媒体援引一位知情人士的话报道，Anthropic已承诺未来五年内在谷歌云（Google Cloud）服务上支出2，000亿美元，这是双方近期协议的部分内容。
+中新网重庆6月6日电 (张旭)“中美企业现在的合作，和十年前已经大为不同。
 
-这一承诺表明，这家人工智能初创公司占谷歌上周向投资者披露的未实现收入的40%以上。
+”美中企业总商会会长林明华5日在重庆对中新网介绍，如今，中美企业合作的领域、方式正经历新变化，从单一、传统的领域升级到了高科技、绿色农业与跨境文化融合等综合性领域，从过去的单向招商逐步变为双向赋能。
 
-受此消息影响，谷歌母公司Alphabet 的股价周二在盘后交易中上涨约2%。
+6月3日至5日，林明华随团参访了重庆市潼南区、永川区、沙坪坝区、渝中区等地，参访间隙，林明华接受采访时如是说。
 
-Anthropic 于 4 月与谷歌及其芯片合作伙伴博通签署了一项协议，将获得数吉瓦的张量处理单元（TPU）算力，预计将于 2027 年开始投入使用。
+潼南是“西部绿色菜都”，食品及农产品加工产业、汽车后市场产业等很发达。
 
-Alphabet还计划向Anthropic投资高达400亿美元，以深化合作关系。
+林明华介绍，在美中企业总商会里，亦有大量相关行业的企业，他将发挥桥梁作用，促成交流合作。
 
-报道称，涉及Anthropic和OpenAI的合同目前占亚马逊AWS、微软Azure和谷歌云等主要云服务提供商2万亿美元订单的一半以上。
+林明华在海外创业40多年，所从事的行业包含了餐饮、酒店地产、文化创新园区等。
 
-在人工智能领域的投入以及蓬勃发展的云业务推动下，Alphabet股价录得创纪录涨势，有望超越英伟达，成为全球市值最高的公司。
+他认为，海外创业的成功，需要诚信包容、吃苦耐劳、敢为人先的精神以及关键时刻超前的判断、过人的胆略。
 
-责任编辑：王永生
+林明华说，在中外经贸往来、人文交流中，侨商具有独特优势，他们既了解中国文化和市场，又熟悉当地的法律和商业环境。
 
 ## 相关推荐
 
-- 2026-06-30 03:33 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-30 03:22 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-30 03:22 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-30 03:41 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 03:31 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 03:29 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-30 03:39 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-30 03:29 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-30 03:29 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-30 03:41 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-30 03:51 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-30 03:29 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 03:26 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-30 03:42 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-30 03:30 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-30 03:49 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 03:39 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-30 03:47 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-30 03:37 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-30 03:32 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 03:51 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-30 03:52 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-30 03:29 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:28 - [《共患难》](http://www.share.minike.top/Article/details/40055.shtml)
-- 2026-06-30 03:41 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/371555.shtml)
-- 2026-06-30 03:37 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/8669896.shtml)
-- 2026-06-30 03:42 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/1693151.shtml)
-- 2026-06-30 03:23 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/65677.shtml)
-- 2026-06-30 03:43 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/814193.shtml)
-- 2026-06-30 03:20 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/938313695437.shtml)
-- 2026-06-30 03:45 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/6801601730.shtml)
-- 2026-06-30 03:28 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/02126090598.shtml)
-- 2026-06-30 03:41 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/258711.shtml)
-- 2026-06-30 03:34 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/5957489482.shtml)
-- 2026-06-30 03:20 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/4007145017.shtml)
-- 2026-06-30 03:41 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.kurohicncr.top/Article/details/21564.shtml)
-- 2026-06-30 03:31 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/692267440037.shtml)
-- 2026-06-30 03:24 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/27167252552.shtml)
+- 2026-06-30 03:42 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/6264998.shtml)
+- 2026-06-30 03:44 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/092549850640.shtml)
+- 2026-06-30 03:37 - [金牌调解](http://www.blog.minike.top/Article/details/3480702779.shtml)
+- 2026-06-30 03:25 - [金牌调解](https://www.blog.minike.top/Article/details/7726902216.shtml)
+- 2026-06-30 03:31 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/1587362485.shtml)
+- 2026-06-30 03:33 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/0353881.shtml)
+- 2026-06-30 03:27 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/335627497096.shtml)
+- 2026-06-30 03:49 - [房价什么时候能涨](http://www.share.minike.top/Article/details/289659928067.shtml)
+- 2026-06-30 03:41 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/83480.shtml)
+- 2026-06-30 03:32 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/910393014379.shtml)
+- 2026-06-30 03:46 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/695743075061.shtml)
+- 2026-06-30 03:50 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/45349351086.shtml)
+- 2026-06-30 03:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/499418.shtml)
+- 2026-06-30 03:52 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/815634091.shtml)
+- 2026-06-30 03:31 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/6487895786.shtml)

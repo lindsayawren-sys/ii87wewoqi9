@@ -1,51 +1,46 @@
-# 小摩：港交所给予“增持”评级 目标价535港元
+# 扎根沃土放眼世界 云花云茶云咖特色农产品“香气十足”
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-摩根大通发布研报称，香港交易所（00388）今年首季净利润录得52亿元，按季增长20%，同比增长27%。盈利较该行预期高出9%，各业务收入及成本方面均表现强劲，证券及衍生产品成交量稳健，料股价反应正面；给予港交所“增持”评级，目标价535港元。责任编辑：卢昱君
+发布时间：2026年06月06日 16:34 来源：中国新闻网 从馥郁芬芳的云花、醇厚回甘的云茶，到醇香浓郁的云咖，一众云南特色“土特产”扎根沃土、提质培优，借着南博会等对外开放平台，走出大山、畅销全国、飘香海外。 （白玲 陆希成 李嘉娴 云南大理保山报道 部分视频来源 保山市隆阳区融媒体中心） 责任编辑：【卢岩】
 
 ## 正文
 
-摩根大通发布研报称，香港交易所（00388）今年首季净利润录得52亿元，按季增长20%，同比增长27%。
+发布时间：2026年06月06日 16:34 来源：中国新闻网 从馥郁芬芳的云花、醇厚回甘的云茶，到醇香浓郁的云咖，一众云南特色“土特产”扎根沃土、提质培优，借着南博会等对外开放平台，走出大山、畅销全国、飘香海外。
 
-盈利较该行预期高出9%，各业务收入及成本方面均表现强劲，证券及衍生产品成交量稳健，料股价反应正面；给予港交所“增持”评级，目标价535港元。
-
-责任编辑：卢昱君
+（白玲 陆希成 李嘉娴 云南大理保山报道 部分视频来源 保山市隆阳区融媒体中心） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-30 03:43 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-30 03:47 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-30 03:47 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-30 03:35 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-30 03:39 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-30 03:27 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-30 03:43 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-30 03:19 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-30 03:31 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 03:38 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-30 03:23 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-30 03:36 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-30 03:28 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-30 03:38 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-30 03:22 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-30 03:48 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 03:25 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 03:28 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-30 03:33 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-30 03:35 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-30 03:24 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-30 03:45 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-30 03:47 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-30 03:35 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-30 03:51 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-30 03:47 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-30 03:37 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:26 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/291444524.shtml)
-- 2026-06-30 03:36 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/738532610.shtml)
-- 2026-06-30 03:40 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/20212110529.shtml)
-- 2026-06-30 03:42 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/8561127899.shtml)
-- 2026-06-30 03:23 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/62778.shtml)
-- 2026-06-30 03:39 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/7260561196.shtml)
-- 2026-06-30 03:38 - [毒液2](http://www.blog.minike.top/Article/details/795068043.shtml)
-- 2026-06-30 03:35 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.minike.top/Article/details/06875.shtml)
-- 2026-06-30 03:19 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/8651440569.shtml)
-- 2026-06-30 03:47 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/4271656072.shtml)
-- 2026-06-30 03:25 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/368779962154.shtml)
-- 2026-06-30 03:37 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/19342494252.shtml)
-- 2026-06-30 03:40 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/83093026.shtml)
-- 2026-06-30 03:36 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/61871.shtml)
-- 2026-06-30 03:19 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/15266860.shtml)
+- 2026-06-30 03:28 - [青春环游记第三季](https://www.blog.minike.top/Article/details/278163.shtml)
+- 2026-06-30 03:31 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/40005641.shtml)
+- 2026-06-30 03:52 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/3993938369.shtml)
+- 2026-06-30 03:39 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/34532918138.shtml)
+- 2026-06-30 03:33 - [演员都来上音综的原因](https://www.blog.kurohicncr.top/Article/details/18684077465.shtml)
+- 2026-06-30 03:49 - [美人鱼](https://www.blog.minike.top/Article/details/469913.shtml)
+- 2026-06-30 03:47 - [千香](https://www.share.minike.top/Article/details/858275.shtml)
+- 2026-06-30 03:35 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/6342240557.shtml)
+- 2026-06-30 03:34 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.kurohicncr.top/Article/details/084954313.shtml)
+- 2026-06-30 03:39 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/54118640876.shtml)
+- 2026-06-30 03:35 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/181683353.shtml)
+- 2026-06-30 03:50 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/0834352.shtml)
+- 2026-06-30 03:27 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/6129075.shtml)
+- 2026-06-30 03:46 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.minike.top/Article/details/71079456.shtml)
+- 2026-06-30 03:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/01067882899.shtml)

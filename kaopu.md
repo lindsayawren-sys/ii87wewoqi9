@@ -1,57 +1,61 @@
-# 商业航天领域大收购！300069，明起停牌
+# A股年内93家半导体公司减持
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！金利华电（300069）正拟通过外延收购方式布局商业航天领域。 5月5日晚间，公司发布公告称正在筹划发行股份及支付现金购买资产并募集配套资金暨关联交易事项，公司股票5月6日开市时起开始停牌。 此番，金利华电拟收购标的为商业航天领域知名企业——西安中科西光航天
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨张赛男 编辑丨包芳鸣 曾静娇 6月8日，A股主要指数集体回调，沪指失守4000点。Wind数据显示，半导体指数收盘跌超4%，东微半导、新相微、宏微科技（维权）跌超11%，燕东微跌逾10%，国芯科技、安路科技跌逾8%。截至8日收盘，半导体板块年内翻倍股共有20只，其中年内涨幅TOP3为中船特气（524%
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-金利华电（300069）正拟通过外延收购方式布局商业航天领域。
+记者丨张赛男 编辑丨包芳鸣 曾静娇 6月8日，A股主要指数集体回调，沪指失守4000点。
 
-5月5日晚间，公司发布公告称正在筹划发行股份及支付现金购买资产并募集配套资金暨关联交易事项，公司股票5月6日开市时起开始停牌。
+Wind数据显示，半导体指数收盘跌超4%，东微半导、新相微、宏微科技（维权）跌超11%，燕东微跌逾10%，国芯科技、安路科技跌逾8%。
 
-此番，金利华电拟收购标的为商业航天领域知名企业——西安中科西光航天科技集团有限公司（简称“中科西光”）。
+截至8日收盘，半导体板块年内翻倍股共有20只，其中年内涨幅TOP3为中船特气（524%）、唯特偶（277%）、源杰科技（214%）。
 
-业绩承压 发力并购 4月份大涨45%的金利华电发布了发行股份购买资产并停牌的公告。
+此前A股科技板块迎来一轮强势行情，半导体作为领涨先锋，多只个股股价接连创出历史新高。
 
-金利华电公告称，正在筹划发行股份及支付现金购买资产并募集配套资金暨关联交易事项，因有关事项尚存不确定性，为了维护投资者利益，避免对公司证券交易造成重大影响，根据深圳证券交易所的相关规定，经公司申请，公司证券自2026年5月6日开市时起开始停牌。
+然而，就在市场情绪高涨之际，一波密集的股东减持潮悄然来袭。
 
-公司预计在不超过10个交易日的时间内披露本次交易方案，即在2026年5月20日前按照《公开发行证券的公司信息披露内容与格式准则第26号——上市公司重大资产重组》的要求披露相关信息。
+据21世纪经济报道记者不完全统计，自今年以来，已有93家半导体上市公司披露减持计划或完成减持。
 
-若公司未能在上述期限内召开董事会审议并披露交易方案，公司证券最晚将于2026年5月20日开市起复牌并终止筹划相关事项，同时披露停牌期间筹划事项的主要工作、事项进展、对公司的影响以及后续安排等事项，充分提示相关事项的风险和不确定性，并承诺自披露相关公告之日起至少1个月内不再筹划重大资产重组事项。
+仅6月第一周，就有14家公司相继披露减持计划。
 
 ## 相关推荐
 
-- 2026-06-30 03:42 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-30 03:43 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-30 03:37 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-30 03:20 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-30 03:23 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-30 03:35 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 03:40 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-30 03:23 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-30 03:23 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-30 03:40 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-30 03:39 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-30 03:36 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 03:46 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 03:38 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-30 03:42 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-30 03:25 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-30 03:54 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-30 03:40 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-30 03:37 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-30 03:24 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-30 03:27 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-30 03:51 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-30 03:43 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-30 03:33 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-30 03:44 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-30 03:28 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:21 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/092813384.shtml)
-- 2026-06-30 03:36 - [流金岁月](https://www.share.minike.top/Article/details/365728524.shtml)
-- 2026-06-30 03:46 - [巴西vs日本](http://www.blog.minike.top/Article/details/973566342401.shtml)
-- 2026-06-30 03:26 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/3763838.shtml)
-- 2026-06-30 03:22 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/4674358737.shtml)
-- 2026-06-30 03:23 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/73931319.shtml)
-- 2026-06-30 03:35 - [毒液2](https://www.share.minike.top/Article/details/3439664138.shtml)
-- 2026-06-30 03:25 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/7955908472.shtml)
-- 2026-06-30 03:29 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/217831.shtml)
-- 2026-06-30 03:42 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/856834.shtml)
-- 2026-06-30 03:32 - [斗破苍穹](http://www.share.minike.top/Article/details/3303565.shtml)
-- 2026-06-30 03:31 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/2540386123.shtml)
-- 2026-06-30 03:37 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/962187730.shtml)
-- 2026-06-30 03:42 - [金刚川](http://www.share.minike.top/Article/details/73021293.shtml)
-- 2026-06-30 03:20 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/259066974.shtml)
+- 2026-06-30 03:39 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/5289609212.shtml)
+- 2026-06-30 03:27 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/64134.shtml)
+- 2026-06-30 03:47 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/39871.shtml)
+- 2026-06-30 03:24 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/09161.shtml)
+- 2026-06-30 03:40 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/6909017326.shtml)
+- 2026-06-30 03:26 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/66743143092.shtml)
+- 2026-06-30 03:24 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/866288472.shtml)
+- 2026-06-30 03:29 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/5138814219.shtml)
+- 2026-06-30 03:49 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/8852773.shtml)
+- 2026-06-30 03:46 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/89128931.shtml)
+- 2026-06-30 03:45 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/38259554250.shtml)
+- 2026-06-30 03:27 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/61253.shtml)
+- 2026-06-30 03:35 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/63610538685.shtml)
+- 2026-06-30 03:40 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/50022.shtml)
+- 2026-06-30 03:37 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/40078756840.shtml)

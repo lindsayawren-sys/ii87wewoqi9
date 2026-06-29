@@ -1,57 +1,60 @@
-# 恒生科技指数进入5000点“拉锯战”
+# 业内首个中文服务跨洲邮轮航线在上海启航
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！互联网公司一季报或主导5月行情。 劳动节假期之后，在地缘政治局势影响下，恒生科技指数5000点关口“得而复失”，港股形成“拉锯战”局面。 业内预计，5月中旬开始多家互联网平台科技股将披露业绩，这些企业的人工智能业务进展以及外卖补贴情况将会继续影响指数走势。 其中，腾讯控股（00700.HK）和阿里巴巴（09
+中新网上海6月5日电 (记者 李佳佳)维京游轮旗下首艘为中国游客定制的中小型豪华海轮“维京伊敦号”5日带领逾700位游客从上海虹口北外滩启程，并计划于60天后抵达西班牙巴塞罗那(塔拉戈纳)。据称，该航线也是业内首个中文服务的跨洲航线。 首个中文服务跨洲航线“60日亚非欧发现之旅”以长线航程为纽带，横跨太平洋、印度洋以及大西洋，串联亚洲、非洲与欧洲的16国27个目的地。从上海启航
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网上海6月5日电 (记者 李佳佳)维京游轮旗下首艘为中国游客定制的中小型豪华海轮“维京伊敦号”5日带领逾700位游客从上海虹口北外滩启程，并计划于60天后抵达西班牙巴塞罗那(塔拉戈纳)。
 
-互联网公司一季报或主导5月行情。
+据称，该航线也是业内首个中文服务的跨洲航线。
 
-劳动节假期之后，在地缘政治局势影响下，恒生科技指数5000点关口“得而复失”，港股形成“拉锯战”局面。
+首个中文服务跨洲航线“60日亚非欧发现之旅”以长线航程为纽带，横跨太平洋、印度洋以及大西洋，串联亚洲、非洲与欧洲的16国27个目的地。
 
-业内预计，5月中旬开始多家互联网平台科技股将披露业绩，这些企业的人工智能业务进展以及外卖补贴情况将会继续影响指数走势。
+从上海启航后，“维京伊敦号”将带领游客前往新加坡、泰国普吉岛、斯里兰卡等地，邂逅亚洲璀璨的文化瑰宝；随后远航至非洲海岸，在塞舌尔、南非、纳米比亚等地追寻独特自然奇观，并探访摩洛哥各具风情的城市；最终沉醉于西班牙的艺术与激情中，全方位领略跨洲文明的交汇体验。
 
-其中，腾讯控股（00700.HK）和阿里巴巴（09988.HK）将于5月13日披露2026年第一季度业绩。
+在启航仪式现场，来自天津、也是第三次登上维京游轮的游客代表周凤荣分享了她的期待：“这次长达60天的跨洲旅行，能亲身感受亚非欧三大洲的人文风貌，是前所未有的体验。
 
-5月4日，恒生科技指数上涨突破5000点，随后美伊局势再度紧张，5月5日恒生科技指数一度大跌超过2%，一度跌破4900点。
+我期待接下来收获更多难忘的见闻，跟随维京看到更广阔的世界。
 
-博大资本国际行政总裁温天纳向第一财经记者表示，5月5日受中东地缘政治紧张重燃影响指数回落，呈现典型的消息面驱动波动格局，预计南下资金作为科技板块的重要支撑，历史上常在风险事件后形成“抄底”效应，如果地缘政治紧张局面缓解，资金有望加速回流估值具吸引力的科技龙头，为指数提供正向支撑；反之，若地缘持续紧张或全球流动性收紧，流入节奏仍将偏谨慎。
+” 作为高端定位的中小型豪华海轮，载客量仅为930人的“维京伊敦号”，得益于“小而美”的船舶设计，可驶入大型邮轮无法靠泊的码头，离游览目的地更近，让宾客享受更充裕的岸上时光。
 
-温天纳称，即将披露的第一季度业绩报告成为关键变量，AI商业化加速且核心业务稳健，将提振成长信心并催化估值修复，也要看外卖补贴导致利润率变化。
+全船采用北欧设计风格，六大房型均配备阳台，无赌场、无闹腾娱乐，兼具简约质感与宁静氛围。
 
 ## 相关推荐
 
-- 2026-06-30 03:35 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-30 03:29 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-30 03:36 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-30 03:30 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-30 03:18 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-30 03:40 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-30 03:23 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-30 03:20 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 03:34 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-30 03:22 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 03:40 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-30 03:41 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-30 03:40 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-30 03:51 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-30 03:25 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-30 03:40 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-30 03:24 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-30 03:37 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-30 03:27 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-30 03:51 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-30 03:53 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-30 03:32 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 03:50 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-30 03:51 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-30 03:28 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:24 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.minike.top/Article/details/904129.shtml)
-- 2026-06-30 03:36 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/87231205174.shtml)
-- 2026-06-30 03:35 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/0934774.shtml)
-- 2026-06-30 03:46 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/06619956066.shtml)
-- 2026-06-30 03:22 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/59482085.shtml)
-- 2026-06-30 03:39 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/64386846.shtml)
-- 2026-06-30 03:34 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/905201083.shtml)
-- 2026-06-30 03:34 - [爱很美味](http://www.share.kurohicncr.top/Article/details/887694300.shtml)
-- 2026-06-30 03:22 - [绘画区你赢了](http://www.blog.minike.top/Article/details/861166.shtml)
-- 2026-06-30 03:35 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/349237.shtml)
-- 2026-06-30 03:29 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/783845434.shtml)
-- 2026-06-30 03:38 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/33183.shtml)
-- 2026-06-30 03:36 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/75622830328.shtml)
-- 2026-06-30 03:26 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/48663828.shtml)
-- 2026-06-30 03:46 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/03024707.shtml)
+- 2026-06-30 03:38 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/006292774.shtml)
+- 2026-06-30 03:44 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/8879041151.shtml)
+- 2026-06-30 03:29 - [一见倾心](https://www.share.minike.top/Article/details/448075814121.shtml)
+- 2026-06-30 03:33 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/97531984748.shtml)
+- 2026-06-30 03:35 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/94942579.shtml)
+- 2026-06-30 03:45 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/7090641778.shtml)
+- 2026-06-30 03:38 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/4307982373.shtml)
+- 2026-06-30 03:48 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/496094743320.shtml)
+- 2026-06-30 03:37 - [女子发现孩子非现任亲生起诉前任](https://www.blog.minike.top/Article/details/83048576574.shtml)
+- 2026-06-30 03:32 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/24349141.shtml)
+- 2026-06-30 03:26 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/10468182.shtml)
+- 2026-06-30 03:46 - [房价什么时候能涨](https://www.share.minike.top/Article/details/50969.shtml)
+- 2026-06-30 03:26 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/921582903989.shtml)
+- 2026-06-30 03:50 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/393448761329.shtml)
+- 2026-06-30 03:47 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/91994973208.shtml)

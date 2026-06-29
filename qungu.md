@@ -1,57 +1,58 @@
-# 三星创下历史新高，但SK海力士12%的涨幅抢尽风头
+# 女子滥用“减肥神药”致切肠 医生提醒：别将任何泻药当控制体重的手段
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-三星的劳资争议可能给其AI芯片业务复苏带来压力，而SK海力士在高带宽存储器领域的领先优势正在扩大。 三星电子（Samsung Electronics）股价即使在创下历史新高后，仍可能面临更为艰难的局面。投资者正在权衡该公司由人工智能驱动的半导体复苏与一场迫在眉睫的劳资纠纷——这场纠纷可能进一步扩大其近期与SK海力士（SK Hynix）的差距。周一，受持续的人工智能乐观情绪推动，
+日服“减肥神药”800粒，女子不得不切肠 医生提醒别将任何泻药当作控制体重的手段 本报讯(记者李晨琰)从每天1粒、5粒，到10粒、100粒，最高时一天800粒……日前，上海市第十人民医院接诊了一名特殊的患者，27岁女子滥用网红“减肥神药”小粉丸四年之久，导致严重电解质紊乱、肾功能受损，最终不得不切除结肠。 医生提醒，近年来此类病例激增，市面上以“清宿便”“排毒”“促排减重”“天
 
 ## 正文
 
-三星的劳资争议可能给其AI芯片业务复苏带来压力，而SK海力士在高带宽存储器领域的领先优势正在扩大。
+日服“减肥神药”800粒，女子不得不切肠 医生提醒别将任何泻药当作控制体重的手段 本报讯(记者李晨琰)从每天1粒、5粒，到10粒、100粒，最高时一天800粒……日前，上海市第十人民医院接诊了一名特殊的患者，27岁女子滥用网红“减肥神药”小粉丸四年之久，导致严重电解质紊乱、肾功能受损，最终不得不切除结肠。
 
-三星电子（Samsung Electronics）股价即使在创下历史新高后，仍可能面临更为艰难的局面。
+医生提醒，近年来此类病例激增，市面上以“清宿便”“排毒”“促排减重”“天然植物”“温和草本”等为宣传话术的通便茶、丸、酵素等产品很多，消费者切勿将任何泻药当作控制体重或日常养生的手段。
 
-投资者正在权衡该公司由人工智能驱动的半导体复苏与一场迫在眉睫的劳资纠纷——这场纠纷可能进一步扩大其近期与SK海力士（SK Hynix）的差距。
+据介绍，这名年轻的女患者长期受便秘困扰，还伴有体重控制焦虑，大约在四年前开始服用网红“减肥神药”小粉丸，其主要成分为比沙可啶。
 
-周一，受持续的人工智能乐观情绪推动，三星在全球股市上涨行情中一度上涨4.8%，但其涨幅完全被SK海力士12%的飙升所掩盖。
+最初，她每日仅需1粒即可通便，然而随着时间推移，她对小粉丸的依赖日益加深，剂量逐步增至5粒、10粒、100粒，直至此次入院前惊人的每日800粒。
 
-这种分化已成为投资者的一个重要信号，上个月三星的表现落后其存储芯片竞争对手超过25个百分点。
+一旦停止服药，她便几乎无法自主排便，并出现全身水肿、乏力、尿量减少及血肌酐水平异常升高，一度超过300微摩尔/升，肾功能受到严重威胁。
 
-市场担忧的并非AI需求减退，而是在面临如何分享AI驱动利润的内部压力不断上升之际，三星能否充分抓住这一需求。
+入院后经评估，十院功能肠道外科陈启仪团队发现她不仅存在顽固的泻药依赖，还伴有显著的结肠动力丧失、营养不良以及电解质紊乱，血钾、血钠等指标均明显偏低。
 
-这场劳资纠纷正日益成为三星投资故事的重要组成部分。
+面对持续四年多的恶性循环，以及药物对肾脏等多脏器造成的持续损害，医疗团队经审慎评估并与患者及家属充分沟通后，为她成功实施“腹腔镜结肠切除+结肠直肠吻合术”，切除了神经丛“枯萎”、肌层明显萎缩、蠕动功能几乎丧失的一段结肠，帮助患者摆脱“服药—排便—便秘—加药”的恶性循环。
 
-该公司工会于4月23日举行集会，要求获得更大份额的利润，并威胁从5月21日起举行为期18天的罢工。
+术后经严密监护、生活方式调整、心理疏导，患者恢复顺利，肾功能指标显著改善，逐渐恢复了自主排便功能，目前已出院并进入后续康复阶段。
 
 ## 相关推荐
 
-- 2026-06-30 03:28 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 03:25 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-30 03:32 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-30 03:46 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-30 03:32 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-30 03:47 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-30 03:22 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-30 03:42 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-30 03:31 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-30 03:36 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-30 03:25 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-30 03:26 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-30 03:34 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 03:43 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 03:24 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-30 03:45 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 03:36 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-30 03:32 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-30 03:40 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-30 03:42 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-30 03:53 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 03:52 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-30 03:39 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:41 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/51013.shtml)
-- 2026-06-30 03:27 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/29317.shtml)
-- 2026-06-30 03:46 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/0849685436.shtml)
-- 2026-06-30 03:21 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/41610843140.shtml)
-- 2026-06-30 03:40 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/74588840512.shtml)
-- 2026-06-30 03:25 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/375938212206.shtml)
-- 2026-06-30 03:37 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/9827725938.shtml)
-- 2026-06-30 03:29 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/2457427936.shtml)
-- 2026-06-30 03:46 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/898568151329.shtml)
-- 2026-06-30 03:41 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/099226741.shtml)
-- 2026-06-30 03:45 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/705834716803.shtml)
-- 2026-06-30 03:43 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/786397052289.shtml)
-- 2026-06-30 03:44 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/69002.shtml)
-- 2026-06-30 03:30 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/2021896282.shtml)
-- 2026-06-30 03:41 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/628594.shtml)
+- 2026-06-30 03:39 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/30642.shtml)
+- 2026-06-30 03:52 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/48524.shtml)
+- 2026-06-30 03:42 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/817222145.shtml)
+- 2026-06-30 03:24 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/5412737.shtml)
+- 2026-06-30 03:34 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/427840.shtml)
+- 2026-06-30 03:53 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/23014905.shtml)
+- 2026-06-30 03:44 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/77320222048.shtml)
+- 2026-06-30 03:33 - [法媒点赞分享中国小区降温方案](http://www.blog.minike.top/Article/details/36745248057.shtml)
+- 2026-06-30 03:42 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/0590358.shtml)
+- 2026-06-30 03:40 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/360097.shtml)
+- 2026-06-30 03:25 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/546047.shtml)
+- 2026-06-30 03:48 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/502960859934.shtml)
+- 2026-06-30 03:46 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/56528.shtml)
+- 2026-06-30 03:29 - [Prada在内娱首度签下偶像团体](https://www.share.minike.top/Article/details/06728.shtml)
+- 2026-06-30 03:26 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/540036192.shtml)

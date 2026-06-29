@@ -1,56 +1,54 @@
-# 阿联酋国防部：探测到四枚来自伊朗的导弹 防空系统正在应对导弹威胁
+# 美国总统特朗普：伊朗军力已遭严重削弱
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-阿联酋国防部在X平台发文称，探测到四枚从伊朗飞向阿联酋的巡航导弹。 阿联酋国家应急危机与灾难管理局在X平台发文称，阿联酋防空系统正在应对导弹威胁。 其中三枚导弹在领海内被成功拦截，第四枚落入海中。 阿联酋多地可听到拦截声。这是该国周一发布的第三次警报。责任编辑：李桐
+美国总统唐纳德·特朗普表示，他不打算撤出美军，并称：“我认为我们会把军队留在那里，直至任务完成。” 他在接受美国媒体采访时谈及美军在该地区的驻军，表示：“维持驻军的成本极低。” 特朗普还称，伊朗军力已遭严重削弱，战前的导弹储备如今仅剩下“21%、22%”。 “你看，我们已经彻底摧毁了他们的军事力量，”他说，“他们还剩一些导弹，一些无人机。” 对于是否知晓伊朗最高领袖的下落，他拒
 
 ## 正文
 
-阿联酋国防部在X平台发文称，探测到四枚从伊朗飞向阿联酋的巡航导弹。
+美国总统唐纳德·特朗普表示，他不打算撤出美军，并称：“我认为我们会把军队留在那里，直至任务完成。
 
-阿联酋国家应急危机与灾难管理局在X平台发文称，阿联酋防空系统正在应对导弹威胁。
+” 他在接受美国媒体采访时谈及美军在该地区的驻军，表示：“维持驻军的成本极低。
 
-其中三枚导弹在领海内被成功拦截，第四枚落入海中。
+” 特朗普还称，伊朗军力已遭严重削弱，战前的导弹储备如今仅剩下“21%、22%”。
 
-阿联酋多地可听到拦截声。
+“你看，我们已经彻底摧毁了他们的军事力量，”他说，“他们还剩一些导弹，一些无人机。
 
-这是该国周一发布的第三次警报。
+” 对于是否知晓伊朗最高领袖的下落，他拒绝正面回应，但补充说自己“很有可能”知情。
 
-责任编辑：李桐
+“我不便透露是否知道他的位置，”特朗普说，“但我很有可能知道。
+
+”责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-30 03:47 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 03:27 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-30 03:41 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-30 03:45 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-30 03:46 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 03:42 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-30 03:29 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 03:46 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-30 03:20 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-30 03:36 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-30 03:26 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-30 03:26 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-30 03:33 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-30 03:41 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-30 03:51 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-30 03:50 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-30 03:24 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-30 03:24 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-30 03:49 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-30 03:35 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-30 03:47 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-30 03:25 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-30 03:40 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-30 03:35 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:32 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/368992153227.shtml)
-- 2026-06-30 03:21 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/590364013.shtml)
-- 2026-06-30 03:18 - [刘念回应](http://www.share.minike.top/Article/details/09360.shtml)
-- 2026-06-30 03:29 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/399663.shtml)
-- 2026-06-30 03:40 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/46109718807.shtml)
-- 2026-06-30 03:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/4522600166.shtml)
-- 2026-06-30 03:35 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/40032436.shtml)
-- 2026-06-30 03:20 - [点菜也要教吗](https://www.share.minike.top/Article/details/484121.shtml)
-- 2026-06-30 03:43 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/13046.shtml)
-- 2026-06-30 03:46 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/061866092.shtml)
-- 2026-06-30 03:30 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/10637.shtml)
-- 2026-06-30 03:21 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/41813.shtml)
-- 2026-06-30 03:29 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/65942.shtml)
-- 2026-06-30 03:37 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/241137581579.shtml)
-- 2026-06-30 03:34 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/933544046004.shtml)
+- 2026-06-30 03:39 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/63355834194.shtml)
+- 2026-06-30 03:33 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/70949560466.shtml)
+- 2026-06-30 03:51 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/3309503.shtml)
+- 2026-06-30 03:28 - [急先锋](http://www.blog.kurohicncr.top/Article/details/287138449331.shtml)
+- 2026-06-30 03:48 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/38616129925.shtml)
+- 2026-06-30 03:28 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/969872626924.shtml)
+- 2026-06-30 03:24 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/027357.shtml)
+- 2026-06-30 03:42 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/21822276714.shtml)
+- 2026-06-30 03:30 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/31914398.shtml)
+- 2026-06-30 03:45 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/5885266.shtml)
+- 2026-06-30 03:29 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/1615596973.shtml)
+- 2026-06-30 03:26 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/0120583.shtml)
+- 2026-06-30 03:34 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/19253648940.shtml)
+- 2026-06-30 03:33 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/3840580112.shtml)
+- 2026-06-30 03:36 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/442881242.shtml)

@@ -1,60 +1,58 @@
-# 宾夕法尼亚州起诉Character AI 指控聊天机器人冒充医生提供医疗建议
+# 冲刺IPO！本源量子完成30亿元融资
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-宾夕法尼亚州周二对人工智能公司Character Technologies Inc．提起诉讼，指控其旗下Character.AI平台的聊天机器人冒充执业医师并提供医疗建议，违反该州《医疗执业法》。这是美国首个由州长发起的针对AI聊天机器人冒充医疗专业人士的执法行动。 根据诉状，州调查人员与名为“Emilie”的聊天机器人进行对话时，对方自称毕业于伦敦帝国理工学院医学院，拥有七年
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！据多家创投机构消息，近日，知名量子计算公司本源量子历时30天，完成近30亿元Pre-IPO轮融资，投前估值达210亿元，成为国内估值最高的量子计算公司。 本轮融资由中国兵器集团领投，增资5亿元；中科育成投资作为老股东跟投，再次增资3亿多元，累计持股超过5%，位列公司实控人之后，为第六大股东；新增华民投为股东
 
 ## 正文
 
-宾夕法尼亚州周二对人工智能公司Character Technologies Inc．提起诉讼，指控其旗下Character.AI平台的聊天机器人冒充执业医师并提供医疗建议，违反该州《医疗执业法》。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这是美国首个由州长发起的针对AI聊天机器人冒充医疗专业人士的执法行动。
+据多家创投机构消息，近日，知名量子计算公司本源量子历时30天，完成近30亿元Pre-IPO轮融资，投前估值达210亿元，成为国内估值最高的量子计算公司。
 
-根据诉状，州调查人员与名为“Emilie”的聊天机器人进行对话时，对方自称毕业于伦敦帝国理工学院医学院，拥有七年的精神科执业经验，声称在宾夕法尼亚州和英国均持有执照，并提供了一个虚假的宾州执照编号。
+本轮融资由中国兵器集团领投，增资5亿元；中科育成投资作为老股东跟投，再次增资3亿多元，累计持股超过5%，位列公司实控人之后，为第六大股东；新增华民投为股东单位，出资2亿元。
 
-当调查人员询问能否评估抑郁症状并开具药物时，“Emilie”回答：“严格来说，我可以——这属于我作为医生的职责范围”。
+此外，山东省、江西省、河南省等省级政府的投资平台，青岛市市级政府投资平台，以及上市公司等多元机构作为LP，加码了此次Pre-IPO轮融资。
 
-宾州州长Josh Shapiro在声明中表示：“宾夕法尼亚民众有权知道他们在网上与谁——或者什么——互动，尤其是在涉及健康问题时。
+2025年9月，本源量子在安徽证监局完成IPO辅导备案，成为继国盾量子、国仪量子后，国内第三家开启IPO进程的量子科技企业，冲刺国内“量子计算第一股”。
 
-我们不会允许企业部署AI工具误导人们相信他们正在接受持证医疗专业人员的建议”。
+本轮完全市场化募集的资金，将主要用于对标IBM，建设千比特、万比特、12寸量子芯片中试线，以及新一代超导量子计算机整机的软硬件研发与产业化生产，加速中国自主量子计算技术的规模化落地。
 
-州务卿Al Schmidt强调，州法律明确禁止无证人员以执业医师身份自居，无论违规者是个体还是“新兴技术”。
+本源量子成立于2017年，是中国第一家量子计算企业，由中国科学院量子信息重点实验室副主任郭国平创办，中国量子光学和量子信息科学开拓者、中国科学院院士郭光灿为联合创始人，并担任公司首席科技顾问。
 
-Character.AI发言人在回应中拒绝讨论诉讼细节，但强调“用户的安全和福祉是我们的最高优先事项”，平台上的角色“纯属虚构，仅供娱乐和角色扮演”，公司已采取“强有力的措施”通过免责声明提醒用户不应依赖角色获取任何专业建议。
+本源量子团队技术起源于中国科学院量子信息重点实验室。
 
 ## 相关推荐
 
-- 2026-06-30 03:32 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 03:30 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 03:31 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-30 03:24 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-30 03:19 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 03:31 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-30 03:25 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-30 03:28 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-30 03:18 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-30 03:23 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-30 03:44 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-30 03:47 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-30 03:21 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-30 03:43 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-30 03:30 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-30 03:45 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-30 03:49 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 03:34 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-30 03:34 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 03:30 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-30 03:39 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-30 03:41 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-30 03:32 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 03:43 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 03:45 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 03:53 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:43 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/49419845.shtml)
-- 2026-06-30 03:47 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/38063531.shtml)
-- 2026-06-30 03:24 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/03560.shtml)
-- 2026-06-30 03:22 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/002117942161.shtml)
-- 2026-06-30 03:34 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/32198158.shtml)
-- 2026-06-30 03:27 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/48733508.shtml)
-- 2026-06-30 03:28 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/31644208464.shtml)
-- 2026-06-30 03:20 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/33698132.shtml)
-- 2026-06-30 03:27 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/36626396.shtml)
-- 2026-06-30 03:32 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/205890.shtml)
-- 2026-06-30 03:42 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/45188.shtml)
-- 2026-06-30 03:37 - [Prada在内娱首度签下偶像团体](http://www.share.minike.top/Article/details/437276053196.shtml)
-- 2026-06-30 03:42 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/3744394343.shtml)
-- 2026-06-30 03:33 - [毒液2](http://www.share.kurohicncr.top/Article/details/92434420.shtml)
-- 2026-06-30 03:24 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/0930348164.shtml)
+- 2026-06-30 03:24 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/3161305442.shtml)
+- 2026-06-30 03:47 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/99742.shtml)
+- 2026-06-30 03:53 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/1938391458.shtml)
+- 2026-06-30 03:49 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/55431.shtml)
+- 2026-06-30 03:28 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/59192842625.shtml)
+- 2026-06-30 03:30 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/382718.shtml)
+- 2026-06-30 03:42 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/944748141857.shtml)
+- 2026-06-30 03:35 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/58026.shtml)
+- 2026-06-30 03:49 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/858701373.shtml)
+- 2026-06-30 03:37 - [苗族银饰](https://www.blog.minike.top/Article/details/34681.shtml)
+- 2026-06-30 03:45 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/83035264.shtml)
+- 2026-06-30 03:47 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/55951421628.shtml)
+- 2026-06-30 03:27 - [上半年全国特种设备安全形势总体平稳](https://www.blog.kurohicncr.top/Article/details/440731724.shtml)
+- 2026-06-30 03:27 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/60805869.shtml)
+- 2026-06-30 03:48 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/34372.shtml)

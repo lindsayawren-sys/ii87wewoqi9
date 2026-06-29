@@ -1,60 +1,59 @@
-# 标普连创新高，但聪明钱在撤退，高盛交易台警告：闪崩只是时间问题
+# 美国提议动用冻结伊朗资产，供海湾盟友修复损失
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-来源：华尔街见闻 对冲基金连续三周净卖出美股——恰恰是在标普500连创新高，连续三周刷新历史收盘纪录的这三周。 高盛衍生品交易专家Brian Garrett在周末备忘录中警告称，该行交易台上的讨论持续聚焦于现货价格正在“忽略大局”，标普500 3%-5%的抛售“只是时间问题”。 值得一提的是，基本面多空对冲基金4月刚录得有记录以来最佳单月回报（+9.1%）。 赚了历史最好的钱，
+特朗普政府正考虑将伊朗被冻结资产用于帮助美国在波斯湾地区的盟友，修复因伊朗袭击造成的损失，并应对未来可能的破坏。 这项计划由一名未获授权公开表态的政府高级官员透露，与此同时，美伊双方就延长伊朗战争停火协议的谈判时断时续。由于伊朗坚持要求解冻约240亿美元被冻结资产，谈判似乎已陷入僵局。 特朗普政府的方案将改变部分资产的处置路径。该官员称，财政部将动用一切可用手段，允许海湾盟友使
 
 ## 正文
 
-来源：华尔街见闻 对冲基金连续三周净卖出美股——恰恰是在标普500连创新高，连续三周刷新历史收盘纪录的这三周。
+特朗普政府正考虑将伊朗被冻结资产用于帮助美国在波斯湾地区的盟友，修复因伊朗袭击造成的损失，并应对未来可能的破坏。
 
-高盛衍生品交易专家Brian Garrett在周末备忘录中警告称，该行交易台上的讨论持续聚焦于现货价格正在“忽略大局”，标普500 3%-5%的抛售“只是时间问题”。
+这项计划由一名未获授权公开表态的政府高级官员透露，与此同时，美伊双方就延长伊朗战争停火协议的谈判时断时续。
 
-值得一提的是，基本面多空对冲基金4月刚录得有记录以来最佳单月回报（+9.1%）。
+由于伊朗坚持要求解冻约240亿美元被冻结资产，谈判似乎已陷入僵局。
 
-赚了历史最好的钱，却跑得最快 高盛Prime Brokerage（主经纪商）数据显示，对冲基金连续三周在美股上做减法——卖出多头持仓、做空个股，仅部分被宏观产品的空头回补所对冲。
+特朗普政府的方案将改变部分资产的处置路径。
 
-该部门对此的表述是：“在市场历史高位采取更审慎的风险管理。
+该官员称，财政部将动用一切可用手段，允许海湾盟友使用伊朗资产支持重建工作。
 
-” 配置上的分化达到了历史极值：对冲基金对北美股票相对MSCI ACWI指数的配置比例降至有数据以来最低，同时极度超配新兴市场。
+此举可能进一步破坏停火谈判，影响霍尔木兹海峡通航，并阻碍就伊朗核问题开展更深入对话。
 
-Garrett本人称对这一数据感到“意外”。
+目前美方已启动初步步骤，着手估算修复费用。
 
-科技板块首当其冲。
+该官员表示，财政部长斯科特·贝森特已指示团队评估海湾盟国情况，并全面核算自冲突爆发以来，伊朗袭击造成的各类损失修复成本。
 
 ## 相关推荐
 
-- 2026-06-30 03:34 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-30 03:22 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-30 03:45 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 03:34 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-30 03:25 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-30 03:42 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-30 03:43 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 03:22 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-30 03:21 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-30 03:43 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-30 03:22 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-30 03:31 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-30 03:18 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 03:35 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-30 03:36 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-30 03:30 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 03:37 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-30 03:52 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-30 03:31 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-30 03:41 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-30 03:27 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-30 03:52 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-30 03:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 03:45 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-30 03:53 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-30 03:38 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-30 03:35 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:25 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/627024546.shtml)
-- 2026-06-30 03:43 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/62755.shtml)
-- 2026-06-30 03:27 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/987337716.shtml)
-- 2026-06-30 03:23 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/744306692.shtml)
-- 2026-06-30 03:31 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/30000.shtml)
-- 2026-06-30 03:26 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/065953346.shtml)
-- 2026-06-30 03:37 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/146370.shtml)
-- 2026-06-30 03:23 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/24482815403.shtml)
-- 2026-06-30 03:42 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/4101441454.shtml)
-- 2026-06-30 03:38 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/90015.shtml)
-- 2026-06-30 03:34 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/2008359.shtml)
-- 2026-06-30 03:45 - [起风了](http://www.share.minike.top/Article/details/498887.shtml)
-- 2026-06-30 03:29 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/549446579.shtml)
-- 2026-06-30 03:33 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/526507835.shtml)
-- 2026-06-30 03:23 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/85346928173.shtml)
+- 2026-06-30 03:39 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.minike.top/Article/details/728784901.shtml)
+- 2026-06-30 03:35 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/573351650206.shtml)
+- 2026-06-30 03:40 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/954810411.shtml)
+- 2026-06-30 03:53 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/4460819.shtml)
+- 2026-06-30 03:47 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/186563571.shtml)
+- 2026-06-30 03:48 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/05352135.shtml)
+- 2026-06-30 03:48 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/722712.shtml)
+- 2026-06-30 03:27 - [孙兴慜道歉](https://www.share.minike.top/Article/details/315767.shtml)
+- 2026-06-30 03:27 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/891076.shtml)
+- 2026-06-30 03:44 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/4805826.shtml)
+- 2026-06-30 03:44 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/93045381963.shtml)
+- 2026-06-30 03:24 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/4021611.shtml)
+- 2026-06-30 03:37 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/673235487801.shtml)
+- 2026-06-30 03:39 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/8968109.shtml)
+- 2026-06-30 03:37 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/42689190.shtml)

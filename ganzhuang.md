@@ -1,57 +1,56 @@
-# 远东国际观察：日本国会参议院通过2026财年预算案
+# 上海首家公益性人乳库十年获捐超1.16万升母乳：4091人受益
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-4月7日，日本国会参议院批准了2026财年（2026年4月至2027年3月）财政预算案，标志着该预算案在国会正式通过。新财年预算支出规模高达122.3万亿日元，远超2025财年的115.2万亿日元，创下历史新高。其中，防卫预算首次突破9万亿日元大关，同样刷新纪录。此次预算审议过程充满波折，由于首相高市早苗在今年1月突然解散众议院并提前举行大选，导致审议日程被迫延迟约一个月。整个
+中新网上海6月6日电 (记者 陈静)十年前，公益性人乳库在上海市儿童医院建成，成为上海市加强公共卫生体系三年行动计划示范项目之一。 2016年6月至2026年5月，该人乳库累计母乳捐献者数达1142人、总计4397人次；捐献母乳总量超过1.16万升，其中现场捐奶31.7万毫升，冻奶1135万毫升；用奶量达940万毫升，惠及4091名早产儿及高危患儿，总计53612人次。该人乳库
 
 ## 正文
 
-4月7日，日本国会参议院批准了2026财年（2026年4月至2027年3月）财政预算案，标志着该预算案在国会正式通过。
+中新网上海6月6日电 (记者 陈静)十年前，公益性人乳库在上海市儿童医院建成，成为上海市加强公共卫生体系三年行动计划示范项目之一。
 
-新财年预算支出规模高达122.3万亿日元，远超2025财年的115.2万亿日元，创下历史新高。
+2016年6月至2026年5月，该人乳库累计母乳捐献者数达1142人、总计4397人次；捐献母乳总量超过1.16万升，其中现场捐奶31.7万毫升，冻奶1135万毫升；用奶量达940万毫升，惠及4091名早产儿及高危患儿，总计53612人次。
 
-其中，防卫预算首次突破9万亿日元大关，同样刷新纪录。
+该人乳库单日最大出库量达15145毫升。
 
-此次预算审议过程充满波折，由于首相高市早苗在今年1月突然解散众议院并提前举行大选，导致审议日程被迫延迟约一个月。
+6日，上海市儿童医院人乳库成立十周年主题活动举行。
 
-整个审议过程因执政党凭借席位优势强行压缩时间，众议院审议时长仅为59小时，被指为2000年以来最低，首相出席集中审议的时间也不足10小时。
+“十年前，我们面对的是重症高危早产儿‘无奶可吃’的困境，是一无先例、二无标准、三无保障的艰难起点。
 
-远东点评： 日本2026财年预算案以创历史新高规模获批通过，但其背后的财政与政策风险不容忽视。
+”上海市儿童医院院长鲁冰当日表示。
 
-一方面，本次预算支出总额达122.3万亿日元，其中国债还本付息费用升至31.3万亿日元，创历史记录。
+据悉，十年来，人乳库不仅攻克了冻乳质量安全难关，探索出“多对一”混合捐赠创新模式，更率先在全国接受冻乳、建立冷链、推动标准制定，并设立院外爱心站点，联动骑手志愿者搭建冷链转运网络。
 
-在政府债务余额已占GDP约240%的背景下，持续依靠大规模发债的扩张性财政政策，或将进一步冲击日元信用，加大汇率贬值压力。
+目前，人乳库已牵头成立人乳库联盟，联动8家医疗机构实现资源共享，并助力南疆首家公益人乳库落地。
 
 ## 相关推荐
 
-- 2026-06-30 03:32 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 03:38 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-30 03:26 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 03:46 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-30 03:44 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-30 03:43 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-30 03:24 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-30 03:26 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-30 03:26 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-30 03:44 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-30 03:41 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-30 03:45 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 03:35 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-30 03:40 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-30 03:38 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-30 03:38 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-30 03:24 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-30 03:33 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-30 03:45 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-30 03:43 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-30 03:28 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:30 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/814038534743.shtml)
-- 2026-06-30 03:41 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/176149.shtml)
-- 2026-06-30 03:23 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/26221923.shtml)
-- 2026-06-30 03:42 - [日本淘汰](https://www.blog.minike.top/Article/details/301897.shtml)
-- 2026-06-30 03:26 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/5661541.shtml)
-- 2026-06-30 03:25 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/248081.shtml)
-- 2026-06-30 03:35 - [2026MSI应援曲《如果季中成回忆》](http://www.share.kurohicncr.top/Article/details/750795.shtml)
-- 2026-06-30 03:44 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/228661849.shtml)
-- 2026-06-30 03:28 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/31096580.shtml)
-- 2026-06-30 03:45 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/7992624.shtml)
-- 2026-06-30 03:20 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/943631627.shtml)
-- 2026-06-30 03:19 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/86178809546.shtml)
-- 2026-06-30 03:39 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/030774034.shtml)
-- 2026-06-30 03:33 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/86526060449.shtml)
-- 2026-06-30 03:29 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/205089811185.shtml)
+- 2026-06-30 03:25 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/1457947725.shtml)
+- 2026-06-30 03:50 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/26003306547.shtml)
+- 2026-06-30 03:31 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/38317.shtml)
+- 2026-06-30 03:48 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/24544.shtml)
+- 2026-06-30 03:47 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/2638168.shtml)
+- 2026-06-30 03:51 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/671645974.shtml)
+- 2026-06-30 03:32 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/9525650.shtml)
+- 2026-06-30 03:42 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/7529464091.shtml)
+- 2026-06-30 03:32 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/1574108383.shtml)
+- 2026-06-30 03:29 - [佐野海舟远射破门](http://www.share.kurohicncr.top/Article/details/417709.shtml)
+- 2026-06-30 03:31 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/8077037680.shtml)
+- 2026-06-30 03:35 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/56596.shtml)
+- 2026-06-30 03:27 - [《共患难》](http://www.blog.minike.top/Article/details/280690981.shtml)
+- 2026-06-30 03:46 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/4469149068.shtml)
+- 2026-06-30 03:26 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/857566180.shtml)

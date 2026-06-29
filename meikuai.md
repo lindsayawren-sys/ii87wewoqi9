@@ -1,61 +1,61 @@
-# 英债遭遇抛售 30年期收益率升至1998年以来新高
+# 美法官下达禁令 叫停特朗普政府食品券申领附加条件
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-受中东冲突持续升级及英国国内政治不确定性影响，英国长期政府债券遭遇猛烈抛售，30年期国债收益率周二飙升至1998年以来最高水平。 周二午后交易时段，英国30年期国债收益率一度跃升至5.798%，较前一交易日大幅上涨14个基点。这是该期限收益率自1998年以来首次触及这一水平，创下28年新高。10年期国债收益率同步攀升至5.122%，同样处于多年高位。 债市抛售的双重推手十分明确
+一名联邦法官于当地时间周五站在20个民主党州一边，叫停了特朗普政府的一项举措。该举措试图强制各州满足多项条件，才能领取数十亿美元的补充营养援助计划（食品券）资金。 美国地区法官Myong Joun就此项针对食品券资金申领附加条件的诉讼，下达了临时禁令。附加条件涉及“性别理念”、“移民政策”，以及保障女性与女童平等“体育赛事机会”等相关限制。 法官表示，后续将出具备忘录阐释裁决理
 
 ## 正文
 
-受中东冲突持续升级及英国国内政治不确定性影响，英国长期政府债券遭遇猛烈抛售，30年期国债收益率周二飙升至1998年以来最高水平。
+一名联邦法官于当地时间周五站在20个民主党州一边，叫停了特朗普政府的一项举措。
 
-周二午后交易时段，英国30年期国债收益率一度跃升至5.798%，较前一交易日大幅上涨14个基点。
+该举措试图强制各州满足多项条件，才能领取数十亿美元的补充营养援助计划（食品券）资金。
 
-这是该期限收益率自1998年以来首次触及这一水平，创下28年新高。
+美国地区法官Myong Joun就此项针对食品券资金申领附加条件的诉讼，下达了临时禁令。
 
-10年期国债收益率同步攀升至5.122%，同样处于多年高位。
+附加条件涉及“性别理念”、“移民政策”，以及保障女性与女童平等“体育赛事机会”等相关限制。
 
-债市抛售的双重推手十分明确。
+法官表示，后续将出具备忘录阐释裁决理由。
 
-外部因素方面，伊朗与美以冲突持续发酵、霍尔木兹海峡航运受阻，推动布伦特原油价格维持在每桶110美元上方。
+各州在诉讼中主张，美国农业部设置了多项违宪且违法的阻碍，割裂国会设立的福利项目与依赖该项目的各州之间的联系，危及重要的营养补助、农业研究工作，以及全国食品供应链和社区安全。
 
-油价高企加剧了通胀担忧，市场对英国央行加息的预期急剧升温——利率互换显示市场已完全定价今年将有三次25个基点的加息。
+联邦政府律师反对这项临时禁令，并在庭审文件中称，新规定有助于合理管理纳税人资金，强化农业部对专项拨款的管控与监督，同时确保补助申领方遵守联邦法律法规及相关政策。
 
-内部因素同样不容忽视。
+食品券计划是美国社会保障体系的重要组成部分，约有3900万美国人（每9人中就有1人）依靠该计划购买食品。
 
 ## 相关推荐
 
-- 2026-06-30 03:37 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-30 03:41 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-30 03:22 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-30 03:31 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-30 03:36 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-30 03:23 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-30 03:32 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-30 03:32 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-30 03:34 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-30 03:30 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-30 03:40 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-30 03:33 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-30 03:24 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-30 03:46 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-30 03:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-30 03:49 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-30 03:42 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-30 03:41 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-30 03:34 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-30 03:24 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-30 03:26 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-30 03:44 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-30 03:45 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-30 03:33 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-30 03:26 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-30 03:33 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-30 03:31 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-30 03:29 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-30 03:47 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-30 03:48 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:18 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/77932941123.shtml)
-- 2026-06-30 03:31 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/205324689.shtml)
-- 2026-06-30 03:21 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/351184801810.shtml)
-- 2026-06-30 03:47 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/0504324.shtml)
-- 2026-06-30 03:21 - [我和我的家乡](http://www.share.minike.top/Article/details/45868454.shtml)
-- 2026-06-30 03:43 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/3562004.shtml)
-- 2026-06-30 03:41 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/957857368592.shtml)
-- 2026-06-30 03:46 - [女心理师](http://www.share.minike.top/Article/details/99585961.shtml)
-- 2026-06-30 03:36 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/983640149062.shtml)
-- 2026-06-30 03:19 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/3400664.shtml)
-- 2026-06-30 03:30 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/376755827985.shtml)
-- 2026-06-30 03:28 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/0378656.shtml)
-- 2026-06-30 03:30 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/983601.shtml)
-- 2026-06-30 03:30 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/72762.shtml)
-- 2026-06-30 03:46 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/8528225540.shtml)
+- 2026-06-30 03:46 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/37400017.shtml)
+- 2026-06-30 03:35 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/282305.shtml)
+- 2026-06-30 03:33 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/81974522878.shtml)
+- 2026-06-30 03:48 - [时光音乐会](https://www.blog.minike.top/Article/details/68121048.shtml)
+- 2026-06-30 03:41 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/37984933411.shtml)
+- 2026-06-30 03:40 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/73016616526.shtml)
+- 2026-06-30 03:33 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/2286409275.shtml)
+- 2026-06-30 03:33 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/095753319788.shtml)
+- 2026-06-30 03:44 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/827142.shtml)
+- 2026-06-30 03:43 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/7719314.shtml)
+- 2026-06-30 03:25 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/33008531.shtml)
+- 2026-06-30 03:31 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/89110198101.shtml)
+- 2026-06-30 03:37 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/783664261.shtml)
+- 2026-06-30 03:42 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/4495563.shtml)
+- 2026-06-30 03:35 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/69512672.shtml)

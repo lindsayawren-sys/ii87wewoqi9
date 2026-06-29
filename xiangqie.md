@@ -1,60 +1,60 @@
-# 国家下达11.99亿元中央预算内资金支持云南医疗卫生服务体系建设
+# 2026高考作文题汇总
 
-> 更新时间：2026-06-30 03:48:02 UTC+8
+> 更新时间：2026-06-30 03:54:02 UTC+8
 
 ## 摘要
 
-中新网昆明5月3日电(白玲)记者2日从云南省发展和改革委员会获悉，国家近日下达医疗卫生服务体系专项2026年第二批中央预算内资金11.99亿元，支持云南省级血液中心安全保障、县级疾控提标扩能、医疗卫生强基工程、城市三级医院病房改造、地市级精神卫生等24个项目，助力健康云南建设，提升全省医疗卫生服务能力。据了解，为让群众就近获得公平可及、优质高效的医疗卫生服务，云南省发展和改革委
+全国I卷 阅读下面的材料，根据要求写作。（60分） 词语是表达思想情感的载体，也是展现社会生活变化的窗口。当前，世界之变、时代之变、历史之变正以前所未有的方式展开。青年是常为新的，在你的成长过程中，你对哪一个词语的理解发生了变化？这变化有你成长的印记，对你有特殊的意义…… 以上材料引发了你怎样的联想和思考？请写一篇文章。 要求：选准角度，确定立意，明确文体，自拟标题；不要套作，
 
 ## 正文
 
-中新网昆明5月3日电(白玲)记者2日从云南省发展和改革委员会获悉，国家近日下达医疗卫生服务体系专项2026年第二批中央预算内资金11.99亿元，支持云南省级血液中心安全保障、县级疾控提标扩能、医疗卫生强基工程、城市三级医院病房改造、地市级精神卫生等24个项目，助力健康云南建设，提升全省医疗卫生服务能力。
+全国I卷 阅读下面的材料，根据要求写作。
 
-据了解，为让群众就近获得公平可及、优质高效的医疗卫生服务，云南省发展和改革委员会同云南省卫生健康委员会、云南省疾病预防控制局抢抓政策机遇，聚焦2026年医疗卫生领域中央预算内资金支持投向，及时动员组织各州(市)谋项目、推前期，向上汇报争取。
+（60分） 词语是表达思想情感的载体，也是展现社会生活变化的窗口。
 
-据介绍，此次下达资金将覆盖省级、州市级和县级多个医疗卫生层级。
+当前，世界之变、时代之变、历史之变正以前所未有的方式展开。
 
-项目建成后，将进一步补齐边境(口岸)地区州(市)、县(市、区)两级疾控机构设施短板，有效改善县域内医学影像、医学检验、中心药房等资源共享中心以及县域卫生次中心设施设备条件。
+青年是常为新的，在你的成长过程中，你对哪一个词语的理解发生了变化？
 
-同时，城市三级医院功能布局和诊疗环境将得到优化提升，人口大市血液安全保障能力将进一步加强，州(市)精神卫生服务能力水平也将迈上新台阶。
+这变化有你成长的印记，对你有特殊的意义…… 以上材料引发了你怎样的联想和思考？
 
-云南省发展和改革委员会表示，下一步将抢抓“投资于人”政策机遇，服务各地加强项目谋储，做细做实项目前期，积极承接好国家利好政策。
+请写一篇文章。
 
-同时做好已下达资金项目全生命周期管理，着力抓好项目建设质量和效益发挥，助推卫生健康事业高质量发展，造福全省人民群众。
+要求：选准角度，确定立意，明确文体，自拟标题；不要套作，不得抄袭；不得泄露个人信息；不少于800字。
 
-(完)
+全国II卷 阅读下面的材料，根据要求写作。
 
 ## 相关推荐
 
-- 2026-06-30 03:37 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-30 03:27 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 03:23 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 03:44 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-30 03:46 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-30 03:34 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 03:30 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-30 03:29 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 03:24 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-30 03:23 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-30 03:28 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-30 03:33 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-30 03:25 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-30 03:18 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 03:30 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-30 03:44 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-30 03:33 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-30 03:25 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 03:30 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-30 03:26 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-30 03:34 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 03:47 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-30 03:39 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 03:31 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-30 03:35 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-30 03:32 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 03:42 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 03:35 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:33 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/8057732.shtml)
-- 2026-06-30 03:44 - [警犬“多多”助民警寻回失联老人](http://www.blog.kurohicncr.top/Article/details/3241641246.shtml)
-- 2026-06-30 03:43 - [巴西绝杀日本](http://www.blog.minike.top/Article/details/414882804236.shtml)
-- 2026-06-30 03:46 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.kurohicncr.top/Article/details/73026701212.shtml)
-- 2026-06-30 03:43 - [送你一朵小红花](http://www.share.minike.top/Article/details/974274.shtml)
-- 2026-06-30 03:43 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/77390337589.shtml)
-- 2026-06-30 03:42 - [法媒点赞分享中国小区降温方案](http://www.blog.minike.top/Article/details/4868822.shtml)
-- 2026-06-30 03:19 - [巴西半场0比1日本](http://www.blog.minike.top/Article/details/5482810.shtml)
-- 2026-06-30 03:28 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/895055.shtml)
-- 2026-06-30 03:25 - [女心理师](http://www.share.minike.top/Article/details/968884666.shtml)
-- 2026-06-30 03:18 - [张凌赫 客串](http://www.blog.minike.top/Article/details/40292630.shtml)
-- 2026-06-30 03:18 - [点菜也要教吗](http://www.share.minike.top/Article/details/2771911831.shtml)
-- 2026-06-30 03:45 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/253347.shtml)
-- 2026-06-30 03:20 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/808909457015.shtml)
-- 2026-06-30 03:21 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/329723442605.shtml)
+- 2026-06-30 03:37 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/25139.shtml)
+- 2026-06-30 03:40 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/31903154.shtml)
+- 2026-06-30 03:40 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/716470374198.shtml)
+- 2026-06-30 03:25 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/513901839498.shtml)
+- 2026-06-30 03:50 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/720334.shtml)
+- 2026-06-30 03:24 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/90060.shtml)
+- 2026-06-30 03:27 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/578996.shtml)
+- 2026-06-30 03:50 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/177939450461.shtml)
+- 2026-06-30 03:49 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/89337.shtml)
+- 2026-06-30 03:38 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/9956018.shtml)
+- 2026-06-30 03:48 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.kurohicncr.top/Article/details/474975.shtml)
+- 2026-06-30 03:47 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/3174141289.shtml)
+- 2026-06-30 03:28 - [一生一世](https://www.blog.kurohicncr.top/Article/details/056193612.shtml)
+- 2026-06-30 03:28 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/60604904833.shtml)
+- 2026-06-30 03:44 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/37104866681.shtml)
