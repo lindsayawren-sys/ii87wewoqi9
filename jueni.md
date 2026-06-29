@@ -1,56 +1,46 @@
-# 从课堂到云端 自媒体重构海外华文教育生态
+# 中海油服：一季度归母净利润8.56亿元，同比下滑3.60%
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-中新网北京4月27日电 华文学校自媒体建设线上研讨会近日在线上举行，活动由温州大学华侨学院牵头举办，来自全球30余个国家和地区的上百位海外华校校长、华文教育教师齐聚云端会议室，探讨如何用自媒体让海外华文教育走出课堂、走向更广阔的天地。“过去我们总说，华文教育的主阵地在45分钟的课堂里。但现在，孩子们接触中文、了解中华文化的第一触点，往往是手机里的一条短视频、一篇公众号推文。”德
+中海油服4月22日公告，2026年第一季度实现营业收入112.96亿元，同比增长4.60%；归属于上市公司股东的净利润8.56亿元，同比下滑3.60%；基本每股收益0.18元。
 
 ## 正文
 
-中新网北京4月27日电 华文学校自媒体建设线上研讨会近日在线上举行，活动由温州大学华侨学院牵头举办，来自全球30余个国家和地区的上百位海外华校校长、华文教育教师齐聚云端会议室，探讨如何用自媒体让海外华文教育走出课堂、走向更广阔的天地。
-
-“过去我们总说，华文教育的主阵地在45分钟的课堂里。
-
-但现在，孩子们接触中文、了解中华文化的第一触点，往往是手机里的一条短视频、一篇公众号推文。
-
-”德国布伦瑞克语言文化中心校长彭可希表示。
-
-顺应这一趋势，彭可希与团队将德国孩子耳熟能详的四季童谣翻译成中文，制作成1分钟左右的短视频，配套分级教学设计和练习素材，发布在海外社交平台上。
-
-这些原本的课堂补充内容，不仅走进德国多所大学的汉学系课堂，也在华裔家庭间受到广泛欢迎。
-
-类似案例正在全球各地的华校不断上演。
-
-菲律宾一所华文学校借助AI工具，每周稳定产出3条华文识字、成语故事类短视频，半年内账号粉丝量增长至2万；意大利西西里中文学校通过公众号和视频号，把课堂瞬间、学生成长、文化活动转化为鲜活内容，不仅让中文学习从周末课堂延伸到华人家庭日常，更借此吸引多名当地学生报名中文班。
+中海油服4月22日公告，2026年第一季度实现营业收入112.96亿元，同比增长4.60%；归属于上市公司股东的净利润8.56亿元，同比下滑3.60%；基本每股收益0.18元。
 
 ## 相关推荐
 
-- 2026-06-29 11:40 - [关于白宫记者晚宴枪击案嫌疑人科尔・艾伦的全部已知信息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:00 - [002779、603360，被证监会立案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:59 - [台湾新北市长民调结果出炉，蓝白共推李四川参选](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:41 - [患恶性肿瘤理赔遭拒 和谐健康被指竟多次“恶意”拒赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:44 - [外交部评白宫记协年度晚宴枪击事件：一贯反对和谴责非法暴力行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:40 - [珠江流域进一步强化节约用水管理工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:45 - [“五一”假期预计全国日均租车量将超70万辆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:53 - [2026粤超首轮东莞主场获胜 科学家+企业家携手开球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:39 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:40 - [西藏社科院举办专题研讨：以法治力量夯实民族团结进步根基](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:42 - [中国选手范俊杰夺得三亚亚沙会首金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:03 - [美国西弗吉尼亚州一工厂发生化学品泄漏 造成两人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:02 - [日韩股市集体高开 日股升至纪录新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:02 - [世界地球日｜用我们的力量守护高原生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:52 - [必维国际检验集团设立新亚洲中心，扩大海上服务能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:57 - [一季度ETF市场回顾：四只沪深300ETF缩水6300亿，黄金ETF、短融ETF成“避风港”，新发产品扎堆电池港股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:55 - [涨幅超A股，四大行H股盘中集体创新高，谁在买？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:04 - [4月23日美股成交额前20：美光创历史新高，此前获高盛唱好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:51 - [液冷牛股英维克，火热后急冻，现场探访](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:59 - [减肥药意外带火豌豆扁豆，美国农民弃麦种豆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:59 - [80.3%受访者看好相关政策提升大众阅读兴趣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:07 - [南航否认在飞机上闹事女乘客为“南航空姐”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:58 - [国际刑事法院声称要对杜特尔特进行审判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:57 - [上交所举办东南亚专题国际路演活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:50 - [稳面积 提单产 夯实粮食稳产丰产基础](http://www.blog.kurohicncr.top/Article/details/65339.shtml)
-- 2026-06-29 12:03 - [直播海报：国务院政策例行吹风会：介绍《关于推进服务业扩能提质的意见》有关情况](http://www.share.minike.top/Article/details/75960633647.shtml)
-- 2026-06-29 11:58 - [非法募资314亿余元 刘必安等十六人非法集资案一审宣判](http://www.share.kurohicncr.top/Article/details/186461811.shtml)
-- 2026-06-29 12:02 - [中共中央政治局召开会议 分析研究当前经济形势和经济工作 中共中央总书记习近平主持会议](http://www.blog.kurohicncr.top/Article/details/9616919.shtml)
-- 2026-06-29 11:38 - [华裔Z视界｜在行走间读懂中国文化 华裔青年爱上中式养生](http://www.blog.minike.top/Article/details/0196428502.shtml)
-- 2026-06-29 11:37 - [日元回吐部分涨幅 此前日本央行行长未发出明确的加息信号](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [今年“五一”假期小客车上高速继续免收通行费](http://www.blog.kurohicncr.top/Article/details/83607.shtml)
-- 2026-06-29 11:57 - [《爱情没有神话》开播 唐嫣出演亦舒笔下“独身女人”](http://www.share.kurohicncr.top/Article/details/97340795120.shtml)
-- 2026-06-29 11:55 - [姚高员辞去杭州市市长职务](http://www.share.kurohicncr.top/Article/details/41767697.shtml)
-- 2026-06-29 11:41 - [法学大先生·张晋藩](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [美国加州亿万富豪税已集齐请愿签名，获准纳入公投议程](http://www.share.kurohicncr.top/Article/details/63898442574.shtml)
-- 2026-06-29 11:42 - [绍兴越城：以“三抓实”落实统战工作责任制](http://www.share.minike.top/Article/details/42288.shtml)
-- 2026-06-29 11:50 - [知情人士：美官员将讨论上周停火延期后 是否恢复对伊朗的轰炸行动](http://www.blog.minike.top/Article/details/053067123171.shtml)
-- 2026-06-29 11:41 - [青春，就应该这样！——写在2026年五四青年节到来之际](http://www.blog.kurohicncr.top/Article/details/50205600.shtml)
-- 2026-06-29 11:36 - [人社部：一季度全国城镇新增就业299万人](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [中国首次记录高魔芋开花 西双版纳植物园上演“巨花”奇观](http://www.share.kurohicncr.top/Article/details/46266.shtml)
+- 2026-06-29 12:04 - [Swift数据显示 美元3月份在国际交易中占比升至51.1%的新高](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [海尔智家获Pzena Investment Management, LLC增持180.92万股 每股作价约20.99港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](http://www.share.kurohicncr.top/Article/details/227956.shtml)
+- 2026-06-29 12:07 - [华勤技术首挂上市 早盘高开13.13%公司为全栈智能产品ODM平台](http://www.share.minike.top/Article/details/898411.shtml)
+- 2026-06-29 11:58 - [ABB上调业绩指引、股价一度涨超5%](http://www.share.minike.top/Article/details/89486968633.shtml)
+- 2026-06-29 12:05 - [突发！香港证监会与普华永道就恒大财务造假达成赔偿协议，10亿港元赔付受损股东](http://www.blog.kurohicncr.top/Article/details/8008116.shtml)
+- 2026-06-29 11:44 - [大美边疆看我家丨云南漾濞：来“二月十九街”买扫帚啦！](http://www.share.minike.top/Article/details/849826214.shtml)
+- 2026-06-29 12:05 - [A股收评：超4000只个股飘绿，三大指数集体收跌](http://www.blog.minike.top/Article/details/60011810536.shtml)
+- 2026-06-29 12:03 - [隔夜逼近1.2%、资金利率持续倒挂，超宽松还能持续多久？](http://www.share.kurohicncr.top/Article/details/44890191.shtml)
+- 2026-06-29 12:00 - [华贵人寿董事长刘刚将任新职，第一大股东茅台集团持股已超49%](http://www.blog.kurohicncr.top/Article/details/12792459.shtml)
+- 2026-06-29 11:59 - [班诺特银行加速阿兹特克球场无现金化改造，备战世界杯](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [西南航空：受燃油价格上涨影响，第二季度盈利将低于预期](http://www.share.minike.top/Article/details/3359282.shtml)
+- 2026-06-29 12:03 - [花旗：中国联通给予“买入”评级 目标价11.2港元](http://www.share.kurohicncr.top/Article/details/615472.shtml)
+- 2026-06-29 11:55 - [规范升级！32万亿银行理财信息披露迎重大调整](https://github.com/lisacumin64-arch)

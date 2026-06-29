@@ -1,59 +1,57 @@
-# 生态环境部：一季度我国环境空气质量总体改善
+# 理财公司渐成网下“打新”新势力，在深交所打新报价量激增
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-中新网4月27日电 据生态环境部官方微博消息，4月27日，生态环境部召开4月例行新闻发布会，生态环境部新闻发言人裴晓菲介绍，今年第一季度，我国环境空气质量总体改善，部分区域污染有所反弹，地表水环境质量总体稳定。在环境空气质量方面，全国339个地级及以上城市PM2.5平均浓度为40.6微克/立方米，同比下降1.2%；PM10平均浓度为63微克/立方米，同比下降3.1%；平均空气质
+华夏时报记者 卢梦雪 北京报道 当传统固收收益难以为继，权益市场正成为理财公司寻求超额收益的新战场。 深交所数据显示，理财公司在深交所“打新”报价量激增，截至4月23日，仅宁银、兴银、光大三家理财公司在深交所的打新报价次数，短短一个半月内就激增了87%。与此同时，理财公司正在定增、港股IPO基石投资、指数化投资等多方面着手，加大权益市场布局力度。 相关分析人士认为，这一趋势背后
 
 ## 正文
 
-中新网4月27日电 据生态环境部官方微博消息，4月27日，生态环境部召开4月例行新闻发布会，生态环境部新闻发言人裴晓菲介绍，今年第一季度，我国环境空气质量总体改善，部分区域污染有所反弹，地表水环境质量总体稳定。
+华夏时报记者 卢梦雪 北京报道 当传统固收收益难以为继，权益市场正成为理财公司寻求超额收益的新战场。
 
-在环境空气质量方面，全国339个地级及以上城市PM2.5平均浓度为40.6微克/立方米，同比下降1.2%；PM10平均浓度为63微克/立方米，同比下降3.1%；平均空气质量优良天数比例为76.4%，同比上升0.1个百分点；平均重度及以上污染天数比例为1.6%，同比下降0.2个百分点。
+深交所数据显示，理财公司在深交所“打新”报价量激增，截至4月23日，仅宁银、兴银、光大三家理财公司在深交所的打新报价次数，短短一个半月内就激增了87%。
 
-从重点区域来看，京津冀及周边地区“2+36”城市PM2.5平均浓度为65.1微克/立方米，同比上升26.9%；平均优良天数比例为49.3%，同比下降11.6个百分点；平均重度及以上污染天数比例为2.6%，同比上升1.0个百分点。
+与此同时，理财公司正在定增、港股IPO基石投资、指数化投资等多方面着手，加大权益市场布局力度。
 
-长三角地区31个城市PM2.5平均浓度为47.0微克/立方米，同比下降2.3%；平均优良天数比例为69.7%，同比下降0.5个百分点；平均重度及以上污染天数比例为0.4%，同比上升0.1个百分点。
+相关分析人士认为，这一趋势背后，是银行理财收益率下行的倒逼、政策红利的驱动，以及打新等权益策略带来的收益增厚效应。
 
-汾渭平原13个城市PM2.5平均浓度为55.2微克/立方米，同比上升9.7%；平均优良天数比例为56.9%，同比下降6.6个百分点；平均重度及以上污染天数比例为2.3%，同比下降2.0个百分点。
+而理财底层资产投资中权益资产的提升，部分低风险理财产品对权益资产的增配，正是这一连锁反应的直接体现。
 
-在地表水环境质量方面，我们对国控断面进行了优化调整，新增了水质较差河流的国控断面。
+打新“新势力”：理财公司不断亮相新股配售名单 银行理财公司已成为新股市场上一支不可忽视的“买方”力量。
 
-3030个地表水国控断面中，Ⅰ—Ⅲ类水质比例为89.5%，劣Ⅴ类比例为0.9%。
+自2025年3月被纳入“A类投资者”并获准参与网下打新以来，光大理财、宁银理财、兴银理财都已成功参与上市公司新股发售并获得配售。
 
-其中，长江、黄河、珠江、松花江、淮河、海河、辽河等七大流域及西北诸河、西南诸河和浙闽片河流Ⅰ—Ⅲ类水质比例为90.3%，劣Ⅴ类断面比例为0.9%。
+深交所数据显示，截至4月23日，上述三家理财公司累计报价次数已达187次，较3月6日的100次增长了87%。
 
 ## 相关推荐
 
-- 2026-06-29 11:47 - [春节档爆冷了？一季度全国电影票房下降51%！万达电影更名后首场大考：扣非净利大降92.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:54 - [天天学习｜书友习近平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:54 - [“国产GPU第一股”摩尔线程，开盘666！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:49 - [2026年3月广东省进口重点商品总值表（人民币值）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:43 - [辽宁省贸促会经贸代表团在科特迪瓦开展经贸交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:53 - [拉卡拉：“炒股”大赚，主业承压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:38 - [航旅纵横：五一叠加春假长线出游升温 上海居国内热门目的地首位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:45 - [时政微周刊丨总书记的一周（4月20日—4月26日）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:00 - [从课堂到云端 自媒体重构海外华文教育生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 12:03 - [巴克莱：美联储本周料将按兵不动，2026年晚些时候可能降息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:53 - [一季度高技术产业实际使用外资同比增长30.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:38 - [四川大巴山“爱心帮帮团”：用“微力量”汇聚“大温暖”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 12:01 - [亚洲芯片股走高 市场对地缘政治风险的担忧降温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:58 - [北京多措并举推进扬尘治理 提高城市清洁度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:02 - [公用手机卡频繁被盗 窃贼为什么不偷手机只偷卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:01 - [2025年贵州法院受理知识产权案件8608件审结7699件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:43 - [抖音整治AI不当内容，重点处置利用AI技术换脸、盗声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:59 - [第六届亚洲沙滩运动会在海南省三亚市开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:00 - [美国贸易代表格里尔周五将与欧盟贸易专员讨论数字税问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:57 - [2026一季度新发ETF：83只募资335亿，平均发行规模同比降5.09亿，电力、港股科技等主题成布局重点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:48 - [涨价拉动快递公司业绩，燃油成本仍成隐忧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:50 - [中海油服：一季度归母净利润8.56亿元，同比下滑3.60%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:42 - [湘图古籍数字化成果显著 珍贵典籍“活”化出新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:59 - [群山为“岸” 商贸成“海”：重庆秀山于武陵山腹地开“世界超市”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [2026北京国际花展开幕 荷兰景观设计师：中国花卉产业发展速度非常快](http://www.blog.kurohicncr.top/Article/details/7552000.shtml)
-- 2026-06-29 11:36 - [CIPS资金托管行扩容至14家 中信银行、中银香港等四家入列](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [真香！这枚刚出炉“果仁列巴”能刷300余城市公交地铁](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:01 - [韩国总统府：谷歌将在韩国新建人工智能园区](http://www.blog.kurohicncr.top/Article/details/89429418.shtml)
-- 2026-06-29 11:54 - [2026年芒市海关综合技术服务中心预算公开](http://www.blog.minike.top/Article/details/3190100.shtml)
-- 2026-06-29 12:05 - [ARR季度环比飙升300%，迅策科技迎戴维斯双击](http://www.share.kurohicncr.top/Article/details/26183524.shtml)
-- 2026-06-29 12:03 - [一季度新疆外送电量同比增长23.42% 创历史同期新高](http://www.share.kurohicncr.top/Article/details/5865473249.shtml)
-- 2026-06-29 11:49 - [丰田3月全球销量同比下降7.3%，中国销量下降8%](http://www.share.kurohicncr.top/Article/details/881459.shtml)
-- 2026-06-29 12:03 - [珠光控股：进一步延迟刊发2025年全年业绩](http://www.share.minike.top/Article/details/332727810.shtml)
-- 2026-06-29 12:02 - [宁夏闽宁镇：短袖订单迎旺季 服装企业赶工忙](http://www.blog.minike.top/Article/details/3474540.shtml)
-- 2026-06-29 11:54 - [启境GT7亮相北京国际车展，首发搭载华为乾崑全新一代智能技术](http://www.share.minike.top/Article/details/2395144150.shtml)
-- 2026-06-29 11:38 - [能源高价推升通胀风险，英债收益率走高](http://www.share.minike.top/Article/details/060764489690.shtml)
-- 2026-06-29 11:48 - [文旅部：将督促属地集中整治龙虎山、长白山、稻城亚丁等景区摆渡车](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:00 - [谷歌DeepMind首席执行官访韩，会见现代汽车和LG集团负责人](http://www.blog.kurohicncr.top/Article/details/842151724723.shtml)
-- 2026-06-29 11:40 - [逐绿而行暖万家——推动能源消费绿色化低碳化的丰台探索](http://www.blog.kurohicncr.top/Article/details/704530.shtml)
+- 2026-06-29 12:09 - [浙江行刑联动破题商业秘密保护“三难”](http://www.blog.minike.top/Article/details/692426436954.shtml)
+- 2026-06-29 11:48 - [社保基金重仓+机构高关注股来了（附名单）](http://www.share.minike.top/Article/details/8420133350.shtml)
+- 2026-06-29 12:01 - [广州黄埔：“AI+高端智造”抢占生物医药产业新高地](http://www.share.minike.top/Article/details/10865.shtml)
+- 2026-06-29 11:53 - [中新健康｜日常做好这些事，可有效降低肿瘤发生风险](http://www.blog.minike.top/Article/details/684984913.shtml)
+- 2026-06-29 11:46 - [英特尔股价盘后飙升 强劲业绩展望显示人工智能支出开始奏效](http://www.share.minike.top/Article/details/31458041360.shtml)
+- 2026-06-29 11:53 - [目标落空、渠道收缩、大额分红，迎驾贡酒如何挽救颓势？](http://www.blog.minike.top/Article/details/78001.shtml)
+- 2026-06-29 11:58 - [述评：数字时代 浙江书香何处寻？](http://www.share.minike.top/Article/details/61164898830.shtml)
+- 2026-06-29 12:07 - [牛弹琴：伊朗反击了](http://www.blog.kurohicncr.top/Article/details/93858.shtml)
+- 2026-06-29 11:47 - [美媒：特朗普称未来36至72小时内“可能”与伊朗谈判](http://www.blog.minike.top/Article/details/8114055504.shtml)
+- 2026-06-29 11:59 - [能定位会判断 AI乒乓机器人击败人类高手](http://www.share.minike.top/Article/details/04609.shtml)
+- 2026-06-29 11:50 - [第十三批在韩中国人民志愿军烈士遗骸在沈阳安葬](http://www.share.minike.top/Article/details/135974611.shtml)
+- 2026-06-29 11:59 - [证监会出手！4只A股被立案！](http://www.share.minike.top/Article/details/882439764.shtml)
+- 2026-06-29 11:56 - [从“企业找政策”到“政策找企业” 成都“1+N”精准对接会为油气产业链“搭桥铺路”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:03 - [海港人寿总经理变更：齐美祝任临时负责人，代行总经理职权](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:58 - [快讯：美股股指期货、现货金银跳水，国际原油快速拉升，WTI原油涨幅扩大至4%](http://www.blog.minike.top/Article/details/53956980202.shtml)

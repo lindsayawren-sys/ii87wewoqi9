@@ -1,54 +1,56 @@
-# 西藏社科院举办专题研讨：以法治力量夯实民族团结进步根基
+# 减肥药意外带火豌豆扁豆，美国农民弃麦种豆
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月28日 18:41 来源：中国新闻网 4月27日，西藏自治区社科院举办专题研讨会，聚焦学习贯彻《中华人民共和国民族团结进步促进法》，推动中华民族共有精神家园建设。 研讨会上，与会代表先后分享了非遗保护、双语普法，以及推进互嵌式社区建设等实践经验。他们认为，《中华人民共和国民族团结进步促进法》是新时代民族工作的法治基石。法律需通过进课堂、社区、农牧区，促
+据媒体4月23日报道，受社交媒体“蛋白质最大化”风潮及GLP-1减肥药副作用影响，美国爱达荷州与蒙大拿州的农民正大规模将麦田改种豌豆与扁豆，以寻求更高的利润空间。 报道指出，GLP-1类药物（如司美格鲁肽）虽然能显著减重，但会导致高达40%的体重流失来自肌肉，且伴随肌肉流失的焦虑。这迫使使用者转向“蛋白质最大化”饮食，推高了豌豆分离蛋白和扁豆粉的市场需求。 这一需求端的剧变直接
 
 ## 正文
 
-发布时间：2026年04月28日 18:41 来源：中国新闻网 4月27日，西藏自治区社科院举办专题研讨会，聚焦学习贯彻《中华人民共和国民族团结进步促进法》，推动中华民族共有精神家园建设。
+据媒体4月23日报道，受社交媒体“蛋白质最大化”风潮及GLP-1减肥药副作用影响，美国爱达荷州与蒙大拿州的农民正大规模将麦田改种豌豆与扁豆，以寻求更高的利润空间。
 
-研讨会上，与会代表先后分享了非遗保护、双语普法，以及推进互嵌式社区建设等实践经验。
+报道指出，GLP-1类药物（如司美格鲁肽）虽然能显著减重，但会导致高达40%的体重流失来自肌肉，且伴随肌肉流失的焦虑。
 
-他们认为，《中华人民共和国民族团结进步促进法》是新时代民族工作的法治基石。
+这迫使使用者转向“蛋白质最大化”饮食，推高了豌豆分离蛋白和扁豆粉的市场需求。
 
-法律需通过进课堂、社区、农牧区，促实践等方式，让条文“活”起来，成为凝聚人心的纽带。
+这一需求端的剧变直接传导至种植端。
 
-会议强调，要深化文化认同，促进各民族全方位嵌入，像石榴籽一样紧紧抱在一起，共同维护平等、团结、互助、和谐的民族关系。
+数据显示，黄豌豆种植面积在过去十五年间扩张了55%。
 
-(记者 贡桑拉姆 赵朗） 责任编辑：【周驰】
+对于农民而言，这是一笔经济账：目前每英亩小麦亏损约35美元，而每英亩扁豆可盈利8美元。
+
+食品巨头也在迅速调整策略。
+
+百事公司推出了富含蛋白质的多力多滋和纤维丰富的零食，阿拉食品原料则推出了针对GLP-1人群的配套营养方案。
 
 ## 相关推荐
 
-- 2026-06-29 11:37 - [互联网广告要跳出“流量至上”误区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:03 - [2026第二届飞剑“大使杯”国际板球邀请赛在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:56 - [上海定制何以走红？外籍人士为何偏爱这份“专属质感”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 12:01 - [中国黄河流域137处国家级自然保护区优良率达99.27％](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:46 - [豆粕：周期无声，趋势有痕 —— 豆粕多空拉锯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:05 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:36 - [伪满皇宫博物院举办吉林省首个海事文化科普展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:53 - [科创综指，历史新高！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:36 - [2026北京国际花展开幕 荷兰景观设计师：中国花卉产业发展速度非常快](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 12:01 - [CIPS资金托管行扩容至14家 中信银行、中银香港等四家入列](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:36 - [真香！这枚刚出炉“果仁列巴”能刷300余城市公交地铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:54 - [韩国总统府：谷歌将在韩国新建人工智能园区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:58 - [国家国际发展合作署、中国气象局与世界气象组织签署关于推动落实全球发展倡议的谅解备忘录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:47 - [上海银行：2025年净息差1.16%，同比微降0.01个百分点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:52 - [（乡村行·看振兴）茶旅融合叠加整村运营 大别山茶村焕新生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:58 - [一季度市场监管部门查处商标侵权、假冒专利案件0.7万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 12:04 - [八达岭夜长城将于4月底在京亮相 升级沉浸式互动体验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:00 - [军号再次吹响，这次是接他们回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:05 - [煤炭股午后逆势上扬 兖煤澳大利亚及兖矿能源均涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:45 - [文件显示SpaceX获200亿美元过桥贷款，对其债务进行再融资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:54 - [浙江行刑联动破题商业秘密保护“三难”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:55 - [社保基金重仓+机构高关注股来了（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:36 - [青海西宁：文体商旅融合点燃五月高原消费热潮](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:48 - [2026年3月广东省外贸进出口总值表（人民币值）](http://www.blog.minike.top/Article/details/397857.shtml)
-- 2026-06-29 12:01 - [跨境电商架桥梁 让互利之花在中越边境绽放](http://www.share.minike.top/Article/details/60648341669.shtml)
-- 2026-06-29 11:36 - [韩国上市公司总市值首次突破6000万亿韩元](http://www.blog.kurohicncr.top/Article/details/636777.shtml)
-- 2026-06-29 11:37 - [兆易创新将于5月29日派发末期股息每股0.8555198港元](http://www.share.minike.top/Article/details/15111268541.shtml)
-- 2026-06-29 11:49 - [交通银行：400亿元二级资本债券（债券通）发行完毕](http://www.share.minike.top/Article/details/104901174147.shtml)
-- 2026-06-29 11:46 - [华泰期货：美伊分歧难以弥合，原油市场维持较高的波动率](http://www.share.minike.top/Article/details/37320256.shtml)
-- 2026-06-29 12:00 - [中肯政商界人士认为零关税举措将为两国合作带来新机遇](http://www.blog.kurohicncr.top/Article/details/199016386.shtml)
-- 2026-06-29 12:05 - [2026广东时装周（春季）以时尚之力赋能产业升级](http://www.share.minike.top/Article/details/300376.shtml)
-- 2026-06-29 11:56 - [如何防控蚊媒传染病？专家：清积水、灭成蚊、防叮咬](http://www.share.minike.top/Article/details/8346359.shtml)
-- 2026-06-29 12:01 - [中国心连心化肥将于7月28日派发末期股息每股0.32元](http://www.blog.kurohicncr.top/Article/details/210862955628.shtml)
-- 2026-06-29 11:41 - [澳大利亚拟对科技巨头征收约2%税费 除非达成本地新闻付费协议](http://www.blog.kurohicncr.top/Article/details/720887265439.shtml)
-- 2026-06-29 11:36 - [美国政府：白宫晚宴枪手意图刺杀特朗普](http://www.blog.kurohicncr.top/Article/details/587975086.shtml)
-- 2026-06-29 11:38 - [秦农银行国有持股占比首超50%](http://www.share.minike.top/Article/details/1652193068.shtml)
-- 2026-06-29 12:04 - [“十五五”中国将发射风云四号D星 为共建“一带一路”国家提供服务](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:03 - [光大期货：4月23日矿钢煤焦日报](http://www.share.minike.top/Article/details/3053891.shtml)
+- 2026-06-29 11:48 - [志愿军老战士连续多年吹号迎接战友：我要告诉他们 我们赢了](http://www.blog.kurohicncr.top/Article/details/565439.shtml)
+- 2026-06-29 11:54 - [山东省泰安市委常委、副市长刘峰梅接受审查调查](http://www.share.minike.top/Article/details/7024693119.shtml)
+- 2026-06-29 11:52 - [一间中国礼物商店，如何让在地非遗老技艺“活”在当下？](http://www.blog.minike.top/Article/details/13580674560.shtml)
+- 2026-06-29 11:53 - [美以失算！伊朗强硬派全面掌权，温和派靠边站，美伊谈判又熄火](http://www.blog.kurohicncr.top/Article/details/05087427683.shtml)
+- 2026-06-29 12:03 - [“不只是司机的苦日子”——美高油价压力从运输业向消费端蔓延](http://www.blog.kurohicncr.top/Article/details/04703407.shtml)
+- 2026-06-29 12:10 - [专访IMF世界经济研究部主管：全球增长或受2%“衰退线”挑战，美联储需防通胀预期脱锚](http://www.blog.kurohicncr.top/Article/details/377009505396.shtml)
+- 2026-06-29 11:53 - [伊朗最高领袖、总统、议长、外长同日喊话](http://www.blog.minike.top/Article/details/4735780.shtml)
+- 2026-06-29 12:06 - [【香港故事】方寸之间 书中蝴蝶——世界读书日走近藏书票](http://www.share.minike.top/Article/details/4055358.shtml)
+- 2026-06-29 11:58 - [三亚亚沙会沙排比赛首日：传统强队集体“速胜”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [放量大跌！A股多空博弈升级，投资者该怎么办？](http://www.share.kurohicncr.top/Article/details/91056.shtml)
+- 2026-06-29 12:11 - [建发物业获FIDELITY FUNDS增持23.9万股 每股作价约2.89港元](http://www.blog.kurohicncr.top/Article/details/7770122.shtml)
+- 2026-06-29 11:44 - [华裔留学生昆明共读书：在文字中“寻根” 在交流中传承](http://www.blog.minike.top/Article/details/5689293101.shtml)
+- 2026-06-29 11:43 - [新疆：升级版“新东方快车”启程 海内外游客共赴丝路之旅](http://www.share.kurohicncr.top/Article/details/882878936884.shtml)
+- 2026-06-29 11:44 - [南宁加快打造面向东盟的“新茶饮之都”](http://www.share.kurohicncr.top/Article/details/2739252.shtml)

@@ -1,59 +1,53 @@
-# 辽宁省贸促会经贸代表团在科特迪瓦开展经贸交流活动
+# 第六届亚洲沙滩运动会在海南省三亚市开幕
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-中新网沈阳4月28日电 (李晛)记者28日自辽宁省贸促会获悉，当地时间4月27日，辽宁省贸促会会长、辽宁省国际商会会长庞宝国率经贸代表团在科特迪瓦阿比让访问科特迪瓦投资促进中心(CEPICI)，与国际事务总监蒂埃里·巴杜座谈交流。双方就发挥各自优势，共同推动辽宁与科特迪瓦产业链合作达成共识。 同日，辽宁省贸促会经贸代表团与科特迪瓦夸西夸西克罗市市长夸考·约瑟夫一行座谈交流。庞宝
+发布时间：2026年04月23日 10:09 来源：中国新闻网 4月22日，第六届亚洲沙滩运动会在海南省三亚市开幕，来自亚奥理事会全部45个成员国家和地区的体育代表团相继入场，收获观众热烈欢呼与掌声。 三亚亚沙会是海南自贸港封关运作后迎来的首个国际大型综合性体育赛事。本届亚沙会共设置14个大项、62个小项，1600余名运动员参赛。中国体育代表团将有171名运动员参加除沙滩卡巴迪
 
 ## 正文
 
-中新网沈阳4月28日电 (李晛)记者28日自辽宁省贸促会获悉，当地时间4月27日，辽宁省贸促会会长、辽宁省国际商会会长庞宝国率经贸代表团在科特迪瓦阿比让访问科特迪瓦投资促进中心(CEPICI)，与国际事务总监蒂埃里·巴杜座谈交流。
+发布时间：2026年04月23日 10:09 来源：中国新闻网 4月22日，第六届亚洲沙滩运动会在海南省三亚市开幕，来自亚奥理事会全部45个成员国家和地区的体育代表团相继入场，收获观众热烈欢呼与掌声。
 
-双方就发挥各自优势，共同推动辽宁与科特迪瓦产业链合作达成共识。
+三亚亚沙会是海南自贸港封关运作后迎来的首个国际大型综合性体育赛事。
 
-同日，辽宁省贸促会经贸代表团与科特迪瓦夸西夸西克罗市市长夸考·约瑟夫一行座谈交流。
+本届亚沙会共设置14个大项、62个小项，1600余名运动员参赛。
 
-庞宝国代表辽宁省贸促会与夸西夸西克罗市政府签署战略合作框架协议。
+中国体育代表团将有171名运动员参加除沙滩卡巴迪外的13个大项、60个小项的比赛。
 
-参加交流会的辽宁企业与科特迪瓦企业就在农产品加工、生物疫苗等领域开展合作进行现场对接并达成初步合作意向。
-
-庞宝国表示，近年来科特迪瓦经济高速发展，农产品丰富，对商业、工业需求巨大。
-
-辽宁作为工业大省、农业大省，与科特迪瓦未来合作空间广阔。
-
-辽宁省贸促会将当好桥梁纽带，服务辽宁企业“出海”科特迪瓦并辐射西非地区市场。
+(林士杰 李宇凡 陈英清 部分视频来源 第六届亚洲沙滩运动会组委会） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 12:02 - [四川大巴山“爱心帮帮团”：用“微力量”汇聚“大温暖”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:04 - [亚洲芯片股走高 市场对地缘政治风险的担忧降温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:51 - [现场下单！中国机器人“圈粉”爱尔兰老球员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:43 - [新兴市场“越涨越便宜”：亚洲芯片三雄引领的估值悖论](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:58 - [关于白宫记者晚宴枪击案嫌疑人科尔・艾伦的全部已知信息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:06 - [002779、603360，被证监会立案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:55 - [台湾新北市长民调结果出炉，蓝白共推李四川参选](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:51 - [患恶性肿瘤理赔遭拒 和谐健康被指竟多次“恶意”拒赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:38 - [外交部评白宫记协年度晚宴枪击事件：一贯反对和谴责非法暴力行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:54 - [珠江流域进一步强化节约用水管理工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:43 - [“五一”假期预计全国日均租车量将超70万辆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:46 - [2026粤超首轮东莞主场获胜 科学家+企业家携手开球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:41 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:50 - [燃油成本飙升，美国航空腰斩2026年盈利预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:50 - [操盘必读：影响股市利好或利空消息_2026年4月24日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:58 - [伊朗总统府官员：与美达成协议“需要时间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:50 - [宏润建设：2025年归母净利润2.8亿元，同比下降1.14%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:09 - [中国选手范俊杰夺得三亚亚沙会首金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:56 - [美国西弗吉尼亚州一工厂发生化学品泄漏 造成两人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:45 - [日韩股市集体高开 日股升至纪录新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:08 - [世界地球日｜用我们的力量守护高原生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:11 - [必维国际检验集团设立新亚洲中心，扩大海上服务能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:07 - [一季度ETF市场回顾：四只沪深300ETF缩水6300亿，黄金ETF、短融ETF成“避风港”，新发产品扎堆电池港股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:50 - [涨幅超A股，四大行H股盘中集体创新高，谁在买？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:55 - [4月23日美股成交额前20：美光创历史新高，此前获高盛唱好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:48 - [液冷牛股英维克，火热后急冻，现场探访](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:57 - [能源高价推升通胀风险，英债收益率走高](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:37 - [文旅部：将督促属地集中整治龙虎山、长白山、稻城亚丁等景区摆渡车](http://www.share.kurohicncr.top/Article/details/58810217708.shtml)
-- 2026-06-29 11:55 - [谷歌DeepMind首席执行官访韩，会见现代汽车和LG集团负责人](http://www.share.minike.top/Article/details/51923.shtml)
-- 2026-06-29 12:01 - [逐绿而行暖万家——推动能源消费绿色化低碳化的丰台探索](http://www.blog.kurohicncr.top/Article/details/42470305.shtml)
-- 2026-06-29 11:48 - [稳面积 提单产 夯实粮食稳产丰产基础](http://www.blog.minike.top/Article/details/17378105.shtml)
-- 2026-06-29 11:54 - [直播海报：国务院政策例行吹风会：介绍《关于推进服务业扩能提质的意见》有关情况](http://www.blog.kurohicncr.top/Article/details/35007096.shtml)
-- 2026-06-29 11:58 - [非法募资314亿余元 刘必安等十六人非法集资案一审宣判](http://www.share.kurohicncr.top/Article/details/70992692014.shtml)
-- 2026-06-29 11:51 - [中共中央政治局召开会议 分析研究当前经济形势和经济工作 中共中央总书记习近平主持会议](http://www.blog.minike.top/Article/details/07924630582.shtml)
-- 2026-06-29 11:50 - [华裔Z视界｜在行走间读懂中国文化 华裔青年爱上中式养生](http://www.blog.kurohicncr.top/Article/details/05070936.shtml)
-- 2026-06-29 11:57 - [日元回吐部分涨幅 此前日本央行行长未发出明确的加息信号](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:01 - [今年“五一”假期小客车上高速继续免收通行费](http://www.share.kurohicncr.top/Article/details/5449018.shtml)
-- 2026-06-29 11:55 - [《爱情没有神话》开播 唐嫣出演亦舒笔下“独身女人”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:59 - [姚高员辞去杭州市市长职务](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [法学大先生·张晋藩](http://www.share.minike.top/Article/details/72601940.shtml)
-- 2026-06-29 11:49 - [美国加州亿万富豪税已集齐请愿签名，获准纳入公投议程](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:07 - [证监会出手！4只A股被立案！](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:51 - [从“企业找政策”到“政策找企业” 成都“1+N”精准对接会为油气产业链“搭桥铺路”](http://www.blog.kurohicncr.top/Article/details/5698623528.shtml)
+- 2026-06-29 12:06 - [海港人寿总经理变更：齐美祝任临时负责人，代行总经理职权](http://www.blog.kurohicncr.top/Article/details/93789443617.shtml)
+- 2026-06-29 11:47 - [快讯：美股股指期货、现货金银跳水，国际原油快速拉升，WTI原油涨幅扩大至4%](http://www.blog.kurohicncr.top/Article/details/397481189.shtml)
+- 2026-06-29 12:08 - [中国首次记录高魔芋开花 西双版纳植物园上演“巨花”奇观](http://www.share.minike.top/Article/details/3709963.shtml)
+- 2026-06-29 11:57 - [Swift数据显示 美元3月份在国际交易中占比升至51.1%的新高](http://www.share.kurohicncr.top/Article/details/005477715361.shtml)
+- 2026-06-29 11:56 - [海尔智家获Pzena Investment Management, LLC增持180.92万股 每股作价约20.99港元](http://www.blog.kurohicncr.top/Article/details/1428302.shtml)
+- 2026-06-29 11:51 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](http://www.blog.minike.top/Article/details/978346239.shtml)
+- 2026-06-29 11:48 - [华勤技术首挂上市 早盘高开13.13%公司为全栈智能产品ODM平台](http://www.blog.minike.top/Article/details/98322.shtml)
+- 2026-06-29 11:48 - [ABB上调业绩指引、股价一度涨超5%](http://www.blog.minike.top/Article/details/690298719805.shtml)
+- 2026-06-29 11:43 - [突发！香港证监会与普华永道就恒大财务造假达成赔偿协议，10亿港元赔付受损股东](http://www.blog.minike.top/Article/details/6518717968.shtml)
+- 2026-06-29 11:56 - [大美边疆看我家丨云南漾濞：来“二月十九街”买扫帚啦！](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [A股收评：超4000只个股飘绿，三大指数集体收跌](http://www.blog.kurohicncr.top/Article/details/08910922552.shtml)
+- 2026-06-29 11:57 - [隔夜逼近1.2%、资金利率持续倒挂，超宽松还能持续多久？](http://www.blog.kurohicncr.top/Article/details/598593310561.shtml)
+- 2026-06-29 12:07 - [华贵人寿董事长刘刚将任新职，第一大股东茅台集团持股已超49%](https://github.com/lisacumin64-arch)

@@ -1,58 +1,59 @@
-# “鸟中大熊猫”彩鹮首次现身云南云县
+# 英伟达参投AI公司Vast Data，估值达300亿美元
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-中新网云南临沧4月27日电 (沈仕春 鲁维荟)近日，云南省临沧市云县摄影爱好者在爱华镇芦蒿箐意外发现并成功抓拍到两只国家一级重点保护野生动物——彩鹮，这是该物种首次在该县县域内被清晰记录。 彩鹮是典型的湿地鸟类，因数量稀少、野外罕见，被称为“鸟中大熊猫”。其体长约50至60厘米，羽毛在光线下可折射出铜绿、紫蓝等金属光泽，标志性的长喙细长而下弯。 此次发现地爱华镇芦蒿箐，水系充沛
+核心要点 Vast Data 周三宣布完成 10 亿美元融资，估值达 300 亿美元，英伟达是此次投资方之一。 Vast Data 成立于 2016 年，主营用于管理海量数据的软件基础设施，聚焦人工智能应用领域。该公司表示，其技术可支撑搭载数百万颗 GPU 的项目运行，客户包括 CoreWeave、Mistral、美国空军以及 Cursor 等。 此轮融资后，Vast Data
 
 ## 正文
 
-中新网云南临沧4月27日电 (沈仕春 鲁维荟)近日，云南省临沧市云县摄影爱好者在爱华镇芦蒿箐意外发现并成功抓拍到两只国家一级重点保护野生动物——彩鹮，这是该物种首次在该县县域内被清晰记录。
+核心要点 Vast Data 周三宣布完成 10 亿美元融资，估值达 300 亿美元，英伟达是此次投资方之一。
 
-彩鹮是典型的湿地鸟类，因数量稀少、野外罕见，被称为“鸟中大熊猫”。
+Vast Data 成立于 2016 年，主营用于管理海量数据的软件基础设施，聚焦人工智能应用领域。
 
-其体长约50至60厘米，羽毛在光线下可折射出铜绿、紫蓝等金属光泽，标志性的长喙细长而下弯。
+该公司表示，其技术可支撑搭载数百万颗 GPU 的项目运行，客户包括 CoreWeave、Mistral、美国空军以及 Cursor 等。
 
-此次发现地爱华镇芦蒿箐，水系充沛、植被完好，湿地生境优越，为彩鹮提供了理想的觅食与栖息环境。
+此轮融资后，Vast Data 的估值较 2023 年上一轮融资时的 91 亿美元飙升逾两倍。
 
-拍摄画面显示，两只彩鹮与白鹭、牛背鹭友好相处，时而在浅水中缓步踱步，时而低头用长喙探觅水生昆虫、小鱼及软体动物，姿态从容警觉。
+据 Dealroom 统计，今年全球 AI 企业已完成创纪录规模的融资，投资者出资总额达 2805 亿美元，其中 OpenAI、Anthropic 和 xAI 三家就募资超 1700 亿美元。
 
-近年来，云县持续推进湿地修复与生态保护，先后吸引钳嘴鹳、褐翅鸦鹃等多种珍稀鸟类栖息。
+Vast Data 本轮 F 轮融资由 Drive Capital 和 Access Industries 领投，富达管理研究公司、NEA 以及英伟达参与跟投，融资包含新股发行与老股转让两部分。
 
-彩鹮的现身，是对当地生态环境质量的高度认可。
+Drive Capital 联合创始人兼合伙人克里斯・奥尔森在声明中表示：“人工智能应用的普及规模与速度，正在催生一类全新的基础设施企业。
 
-目前，云县林草部门已加强对芦蒿箐区域的巡护监测，并将加大宣传力度，引导公众共同守护珍稀物种的栖息家园。
+” “VAST 正成为该领域毫无争议的领导者，其架构与发展势头足以支撑全球要求最严苛的人工智能环境。
 
 ## 相关推荐
 
-- 2026-06-29 12:00 - [韩国要求七大电商平台修改不公平条款以加强消费者保护](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:44 - [阿联酋宣布自5月1日起退出欧佩克 退出后逐步上调石油产量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:48 - [从一座城的两座“灯塔”，看江苏制造业的转型升级之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:52 - [分析：霍尔木兹海峡命运未卜，欧洲央行和英国央行料按兵不动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:47 - [2026年度瑞丽海关本级部门预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:55 - [伊朗暂停出口部分钢铁产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 12:00 - [摩根士丹利认为沃什将带来长期机制变革风险 加剧美债市场波动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:38 - [涨得越猛越危险，AI行情已现"上涨式崩盘"信号！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:54 - [外交部：坚决遏制日本“新型军国主义”的妄动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:57 - [富瑞：鹰普精密给予“买入”评级 目标价10.34港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:55 - [中国国家能源局：可保障各种情形下的油气安全保供能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:40 - [富瑞：洛阳钼业维持“买入”评级 目标价25港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:55 - [商业航天“超级发射月”继续发力！华宝基金通用航空ETF（159231）逆市冲高逾1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:11 - [“中国高质量发展和中欧经贸合作”专题讲座在布鲁塞尔举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:58 - [亚马逊进军GLP-1医疗领域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:42 - [什么样的遗嘱才具备法律效力？丨法律顾问在身边](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:55 - [港股平安好医生一季度高质量开局：净利润增138%，长期主义兑现增长动能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:57 - [中国驻菲律宾大使馆举办“舟楫千年 丝路新章”人文交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:47 - [一季度存款“搬家”搬去哪了？ 保险成重要吸金方向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:54 - [（乡村行·看振兴）浙江观察：乡村振兴何以“片区组团发展”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:52 - [猪价下跌的背后：本轮猪周期的变与不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:59 - [长江有色：美伊和谈生变及AI 半导体狂欢提振 23日锡价或上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:44 - [德政府据悉正与波兰就石油替代供应展开磋商](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:48 - [2026“文化中国·水立方杯”中文歌曲大赛柏林赛区结果揭晓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:52 - [6家城商行年报业绩分化：净利全增长、5家营收飘红，贵阳银行营收3连降](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:58 - [酒价内参4月27日价格发布：青花汾20下跌4元跌幅居前](http://www.blog.kurohicncr.top/Article/details/298477091446.shtml)
-- 2026-06-29 11:46 - [《中国新时代文学蓝皮书（2025）》在京发布](http://www.blog.kurohicncr.top/Article/details/16170.shtml)
-- 2026-06-29 11:41 - [国家开放大学将推出劳模工匠主题直播](http://www.share.kurohicncr.top/Article/details/33256.shtml)
-- 2026-06-29 11:48 - [我国拟修订农业法加快建设农业强国](http://www.share.kurohicncr.top/Article/details/0560724901.shtml)
-- 2026-06-29 11:47 - [当广州“烟火气”遇见展会“国际范” “商旅+文化体验”点燃入境消费新热潮](http://www.share.minike.top/Article/details/6491089643.shtml)
-- 2026-06-29 11:41 - [中东硝烟起，巴西“粮仓”承压：化肥暴涨或致下季作物减产](http://www.blog.kurohicncr.top/Article/details/16157.shtml)
-- 2026-06-29 11:47 - [中东冲突下的地缘局势、能源格局与宏观影响](http://www.share.kurohicncr.top/Article/details/82262316180.shtml)
-- 2026-06-29 11:49 - [中美科学家联手验证新型抗衰老药物，实现哺乳动物寿命延长三分之一](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:56 - [巴基斯坦总统来华访问 在湖南沉浸式体验中国茶文化](http://www.share.kurohicncr.top/Article/details/735364.shtml)
-- 2026-06-29 11:38 - [中共中央政治局：抓好农业生产 稳定生猪等农产品价格](http://www.share.minike.top/Article/details/1501819572.shtml)
-- 2026-06-29 11:56 - [静守景气，慢越周期，详解华夏行业景气混合业绩长青密码](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [朱鹤新局长会见香港金管局总裁余伟文](http://www.blog.kurohicncr.top/Article/details/2517718498.shtml)
-- 2026-06-29 11:36 - [欧盟延长对缅甸制裁](http://www.blog.kurohicncr.top/Article/details/24164137.shtml)
-- 2026-06-29 11:52 - [新任CEO首个完整季度：威瑞森实现无线用户正增长](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [强对流、暴雨预警齐发 这些地方需注意防范](http://www.share.minike.top/Article/details/97821.shtml)
+- 2026-06-29 12:01 - [红利主题“双引擎”：华夏基金这两只ETF，正在重新定义2026年的超额收益](http://www.share.minike.top/Article/details/35437.shtml)
+- 2026-06-29 11:59 - [徽商银行2025年报：资产突破2.3万亿，存贷双增、资产向优](http://www.share.minike.top/Article/details/18585.shtml)
+- 2026-06-29 11:44 - [辽宁持续优化营商环境 2025年审结知识产权案件超1.1万件](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [运-20B接英烈回家，为何呼号“荣归50”？](http://www.share.minike.top/Article/details/4829792014.shtml)
+- 2026-06-29 11:46 - [国台办：两岸空中直航是沟通桥梁，非政治筹码](http://www.share.minike.top/Article/details/91545250.shtml)
+- 2026-06-29 11:51 - [量化投资先驱马丁·卢克警告勿将交易决策全盘交予人工智能](http://www.share.minike.top/Article/details/8500443793.shtml)
+- 2026-06-29 11:53 - [起势有力 量稳质升 长沙市外贸一季度同比增长17.6%](http://www.blog.kurohicncr.top/Article/details/20025.shtml)
+- 2026-06-29 11:51 - [酒钢宏兴：2025年净亏损19.98亿元](http://www.share.kurohicncr.top/Article/details/58138.shtml)
+- 2026-06-29 11:59 - [“创客北京2026”创新创业大赛启动报名 单个获奖项目最高可获100万元奖励](http://www.blog.kurohicncr.top/Article/details/8261788.shtml)
+- 2026-06-29 11:46 - [一季度中国经济领域改革热度继续维持高位](http://www.share.minike.top/Article/details/40812100.shtml)
+- 2026-06-29 12:04 - [学习新语｜共同构建地球生命共同体](http://www.share.minike.top/Article/details/848627.shtml)
+- 2026-06-29 12:09 - [欧元区私营部门商业活动意外萎缩 服务业大幅下滑](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:53 - [特朗普：美伊第二轮谈判最快或于周五举行](http://www.blog.kurohicncr.top/Article/details/27881803.shtml)
+- 2026-06-29 12:02 - [民企“常敲门” 精准服务“一老一小”](http://www.share.kurohicncr.top/Article/details/32349079.shtml)
+- 2026-06-29 12:09 - [工地也有“金钟罩”？揭秘罩住扬尘噪音的“最强辅助”](http://www.share.minike.top/Article/details/68968276737.shtml)

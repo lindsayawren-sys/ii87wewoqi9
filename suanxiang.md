@@ -1,53 +1,60 @@
-# 交通银行：400亿元二级资本债券（债券通）发行完毕
+# “不只是司机的苦日子”——美高油价压力从运输业向消费端蔓延
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-4月27日金融一线消息，交通银行发布公告称，经相关监管机构批准，该行在全国银行间债券市场公开发行“交通银行股份有限公司2026年第一期二级资本债券（债券通）”（以下简称“本期债券”），并已于2026年4月27日发行完毕。 本期债券发行规模为人民币400亿元，票面利率为1.97%，为10年期固定利率债券，在第5年末附有条件的发行人赎回权。 本期债券募集资金在扣除发行费用后，将依据
+新华社洛杉矶4月22日电 记者手记丨“不只是司机的苦日子”——美高油价压力从运输业向消费端蔓延 新华社记者高山 在美国加利福尼亚州洛杉矶市北部邻近5号州际高速的一处卡车服务区，大型集装箱卡车进进出出，司机们在此补给、加油、小憩。随着中东战事持续，服务区告示牌上屡刷新高的柴油价格，令司机们感到沉重压力。 重型卡车司机斯特罗姆斯特德对新华社记者说，重卡的威猛带来的自豪感逐渐被成本压
 
 ## 正文
 
-4月27日金融一线消息，交通银行发布公告称，经相关监管机构批准，该行在全国银行间债券市场公开发行“交通银行股份有限公司2026年第一期二级资本债券（债券通）”（以下简称“本期债券”），并已于2026年4月27日发行完毕。
+新华社洛杉矶4月22日电 记者手记丨“不只是司机的苦日子”——美高油价压力从运输业向消费端蔓延 新华社记者高山 在美国加利福尼亚州洛杉矶市北部邻近5号州际高速的一处卡车服务区，大型集装箱卡车进进出出，司机们在此补给、加油、小憩。
 
-本期债券发行规模为人民币400亿元，票面利率为1.97%，为10年期固定利率债券，在第5年末附有条件的发行人赎回权。
+随着中东战事持续，服务区告示牌上屡刷新高的柴油价格，令司机们感到沉重压力。
 
-本期债券募集资金在扣除发行费用后，将依据适用法律和主管部门的批准全部用于补充本行二级资本。
+重型卡车司机斯特罗姆斯特德对新华社记者说，重卡的威猛带来的自豪感逐渐被成本压力取代。
 
-责任编辑：王馨茹
+“在当前油价下，卡车司机面临苦日子，所有人也都面临苦日子。
+
+” 在加州蒙罗维亚市一处加油站，另一位重卡司机对记者说，如今加满一箱油比两个月前多花400美元，“跑一趟活儿很辛苦，却赚不到钱，都是因为战争的影响”。
+
+自美国和以色列2月底对伊朗发动袭击以来，柴油价格大幅上涨，全美350多万名货车司机不堪重负，加州情况尤为突出。
+
+美国汽车协会数据显示，加州柴油均价4月9日创新高，与1月初相比涨幅逾60%。
+
+根据加利福尼亚能源委员会数据，柴油约占加州燃料总销量的17%，每年销量约为35亿加仑，主要用于重型卡车、公交车及农业和建筑行业。
 
 ## 相关推荐
 
-- 2026-06-29 11:50 - [美国政府：白宫晚宴枪手意图刺杀特朗普](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:57 - [秦农银行国有持股占比首超50%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:03 - [“十五五”中国将发射风云四号D星 为共建“一带一路”国家提供服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:54 - [华宝基金红利风向标：高股息“倒车接人”？关注低波策略配置价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 12:02 - [2026年“汉语桥”比利时赛区决赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:45 - [张雪发视频回应力挺余承东，称“拒绝了半个亿的商务合作”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:52 - [国产芯片强势逼空，华宝基金科创芯片ETF（589190）猛攻5%，量价双高！国产替代主线重燃，成份股批量新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:51 - [OpenAI进军手机！“牵手”立讯精密！电子板块领涨两市，华宝基金电子ETF（515260）猛拉4.14%，续创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:57 - [上海家化发布2026年一季报：营业收入17.95亿同比增长5.4% 归母净利润2.22亿同比增长2.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:01 - [德银：迅策目标价上调至351港元 维持“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:38 - [上海傅利叶董事长顾捷荣获全国五一劳动奖章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:49 - [一季度石家庄海关签发RCEP原产地证书2532份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:43 - [2粒药错写成21粒，失误何以“一路绿灯”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:45 - [氧化铝：惊弓之鸟还是风雨欲来？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:57 - [数智赋能民间文艺传承 2026“世界艺术和科技对话”上海活动举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:48 - [华裔留学生昆明共读书：在文字中“寻根” 在交流中传承](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:48 - [新疆：升级版“新东方快车”启程 海内外游客共赴丝路之旅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:54 - [南宁加快打造面向东盟的“新茶饮之都”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:09 - [特斯拉第三代人形机器人预计年中发布，三季度启动正式投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:00 - [小城游火了！这些“小而美”的城市性价比高、体验感强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:57 - [抗美援朝老战士后代带糖迎接志愿军英烈回家：我想让他们尝一下 我们今天的甜滋滋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:54 - [一习话丨“要提倡多读书 建设书香社会”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:51 - [黑龙江“换心人”健康存活32年 刷新亚洲纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:43 - [中新控股拟折让约19.81%配售最多3612.2万股 净筹约1427.7万港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:54 - [一季度江西外贸进出口增长16% 汽车出口大增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:54 - [市值单日蒸发超百亿，千亿液冷龙头一季报“踩急刹”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:48 - [原万家基金董事长方一天，今日被提名华安基金总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:04 - [成都银行：2025年末不良贷款率0.68%，较上年末上升0.02个百分点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:08 - [美国航空因燃油价格上涨下调展望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:47 - [壳牌164亿美元收购加拿大ARC Resources，押注蒙特尼页岩气扩张](http://www.blog.minike.top/Article/details/67711593954.shtml)
-- 2026-06-29 11:49 - [浙江安吉：跨区域公共法律服务协作站让民族同胞安心就业](http://www.blog.minike.top/Article/details/03400587.shtml)
-- 2026-06-29 11:59 - [“鸟中大熊猫”彩鹮首次现身云南云县](http://www.share.kurohicncr.top/Article/details/544908878685.shtml)
-- 2026-06-29 11:37 - [东珠生态业绩预告更正不及时，受损股民可索赔](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [“安徽酒王”倪永培迎“交班”考题：儿子神秘“隐退” ，澳籍儿媳悄然走到台前](http://www.blog.kurohicncr.top/Article/details/6840362138.shtml)
-- 2026-06-29 11:55 - [三亚亚沙会男子沙滩卡巴迪：伊朗队夺冠](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:48 - [爱尔兰都柏林大学足球队时隔50年重访韶山：中国一如既往热情友好](http://www.blog.kurohicncr.top/Article/details/843206138.shtml)
-- 2026-06-29 11:53 - [5100藏冰川午前涨超5% 近期针对“5100”产品开展系统性健康功能研究](http://www.share.minike.top/Article/details/89521666.shtml)
-- 2026-06-29 11:55 - [OpenAI放宽合作限制，微软独占云时代终结](http://www.blog.kurohicncr.top/Article/details/395228924.shtml)
-- 2026-06-29 11:47 - [韩国要求七大电商平台修改不公平条款以加强消费者保护](http://www.blog.kurohicncr.top/Article/details/06883787777.shtml)
-- 2026-06-29 11:53 - [阿联酋宣布自5月1日起退出欧佩克 退出后逐步上调石油产量](http://www.share.minike.top/Article/details/8222509.shtml)
-- 2026-06-29 11:49 - [从一座城的两座“灯塔”，看江苏制造业的转型升级之路](http://www.blog.minike.top/Article/details/11815855384.shtml)
-- 2026-06-29 12:04 - [分析：霍尔木兹海峡命运未卜，欧洲央行和英国央行料按兵不动](http://www.blog.minike.top/Article/details/89485.shtml)
-- 2026-06-29 11:46 - [2026年度瑞丽海关本级部门预算公开](http://www.share.minike.top/Article/details/34536.shtml)
-- 2026-06-29 11:47 - [伊朗暂停出口部分钢铁产品](http://www.blog.kurohicncr.top/Article/details/807951.shtml)
+- 2026-06-29 12:11 - [在民进党高压下 为何一直坚持说“我是中国人” 吕礼诗霸气回应](http://www.blog.minike.top/Article/details/78716.shtml)
+- 2026-06-29 11:52 - [外交部：中方敦促美方停止助台巩固所谓“邦交”](http://www.share.minike.top/Article/details/99081.shtml)
+- 2026-06-29 12:06 - [英伟达参投AI公司Vast Data，估值达300亿美元](http://www.share.kurohicncr.top/Article/details/5677867.shtml)
+- 2026-06-29 11:46 - [富瑞：紫金矿业给予“买入”评级 目标价49.10港元](http://www.blog.minike.top/Article/details/969812437078.shtml)
+- 2026-06-29 12:07 - [笔墨承文脉 上海市文史研究馆推出《王劼音卷》](http://www.share.kurohicncr.top/Article/details/384144425930.shtml)
+- 2026-06-29 11:50 - [买理财险说好随用随取，到期才发现要105岁才能取本金](http://www.blog.kurohicncr.top/Article/details/96280.shtml)
+- 2026-06-29 12:09 - [“瑞士制造”不等于瑞士制造？瑞士联邦知识产权局答一财](http://www.share.minike.top/Article/details/754199.shtml)
+- 2026-06-29 11:44 - [美国称“布什号”航母已经在中央司令部责任区航行](http://www.share.kurohicncr.top/Article/details/7829939.shtml)
+- 2026-06-29 11:43 - [好客山东：每次相遇，都是久别重逢](http://www.blog.kurohicncr.top/Article/details/248036.shtml)
+- 2026-06-29 12:02 - [商业航天“超级发射月”继续发力！华宝基金通用航空ETF（159231）逆市冲高逾1%](http://www.share.kurohicncr.top/Article/details/15481.shtml)
+- 2026-06-29 11:43 - [“中国高质量发展和中欧经贸合作”专题讲座在布鲁塞尔举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [亚马逊进军GLP-1医疗领域](http://www.blog.kurohicncr.top/Article/details/5082402.shtml)
+- 2026-06-29 11:46 - [什么样的遗嘱才具备法律效力？丨法律顾问在身边](http://www.blog.minike.top/Article/details/29217.shtml)
+- 2026-06-29 11:58 - [港股平安好医生一季度高质量开局：净利润增138%，长期主义兑现增长动能](http://www.share.kurohicncr.top/Article/details/97974.shtml)
+- 2026-06-29 12:09 - [中国驻菲律宾大使馆举办“舟楫千年 丝路新章”人文交流活动](http://www.blog.kurohicncr.top/Article/details/1553127.shtml)

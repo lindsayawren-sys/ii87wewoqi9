@@ -1,56 +1,58 @@
-# 强脑科技为什么做假肢？韩璧丞：因为遇到一位残障大学生
+# 特斯拉靠边站：日本车企凭借混合动力车巩固在印度汽车市场的主导地位
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-新浪科技讯 4月27日午间消息，BrainCo强脑科技创始人兼CEO韩璧丞今天在强脑科技脑机沉浸式研习社交流活动中谈起创业初期的心路历程。韩璧丞谈到，强脑科技选择做假肢的原因，是当时遇到一位残障大学生，这位大学生做实验的时候把右手炸没了，“当时就想，既然是做解析神经信号的，有没有可能为他做一个手。” 他表示，当时帮这位学生做了一只仿生手，虽然这只手很简单很粗糙，可那位同学非常喜
+核心要点 大家好，我是普丽扬卡・萨尔维，从新加坡为您发稿。 印度消费者希望摆脱汽油车的趋势，本应是特斯拉和比亚迪在这个全球第三大汽车市场大放异彩的时机。但数十年来主导印度市场的传统车企却手握一张王牌 —— 混合动力汽车。 重磅新闻 全球电动汽车需求持续飙升，但印度消费者却选择了另一条路线 —— 无需外接充电的混合动力汽车。 印度研究机构 Care Ratings 的报告显示，在
 
 ## 正文
 
-新浪科技讯 4月27日午间消息，BrainCo强脑科技创始人兼CEO韩璧丞今天在强脑科技脑机沉浸式研习社交流活动中谈起创业初期的心路历程。
+核心要点 大家好，我是普丽扬卡・萨尔维，从新加坡为您发稿。
 
-韩璧丞谈到，强脑科技选择做假肢的原因，是当时遇到一位残障大学生，这位大学生做实验的时候把右手炸没了，“当时就想，既然是做解析神经信号的，有没有可能为他做一个手。
+印度消费者希望摆脱汽油车的趋势，本应是特斯拉和比亚迪在这个全球第三大汽车市场大放异彩的时机。
 
-” 他表示，当时帮这位学生做了一只仿生手，虽然这只手很简单很粗糙，可那位同学非常喜欢，还带回学校去展示。
+但数十年来主导印度市场的传统车企却手握一张王牌 —— 混合动力汽车。
 
-韩璧丞谈到，经历了这一事件，他觉得自己做的事情很有用，这是激发强脑科技团队做仿生手的原因。
+重磅新闻 全球电动汽车需求持续飙升，但印度消费者却选择了另一条路线 —— 无需外接充电的混合动力汽车。
 
-“这个事情也有一种唏嘘感和宿命感，想起金庸小说里的话，风陵渡口初相遇，一见杨过误终身。
+印度研究机构 Care Ratings 的报告显示，在截至 2027 年 3 月的财年，混动汽车销量预计将占到印度汽车总销量的 10%，而电动汽车仅为 5%。
 
-” 他还谈到，现在强脑科技已经有 9 位全职的残障员工。
+标普全球汽车专注印度市场的总监普尼特・古普塔向 CNBC 表示，注重成本的消费者已开始从柴油车转向混合动力汽车。
 
-责任编辑：曹睿潼
+该机构数据显示，在截至 2026 年 3 月的财年，这一全球第三大汽车市场的混动汽车销量从截至 2020 年 3 月财年的 98，010 辆飙升至 362，866 辆，增长近三倍。
+
+报告基于印度政府车辆登记数据显示，同期印度电动汽车年销量为 131，865 辆。
 
 ## 相关推荐
 
-- 2026-06-29 12:05 - [软银携手科技巨头，打造5000亿美元AI数据中心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:41 - [我国拟修订农业法 增加建立粮食安全监测预警制度等内容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:46 - [“全球AI光算力第一股”诞生 上海“芯片先锋队”再添新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:06 - [中国人民银行茂名市分行：普惠金改品牌影响力持续扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:00 - [深圳莲塘口岸单日出入境人次再攀新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:03 - [原青海省地方金融监督管理局一级巡视员吴春庆被开除党籍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:48 - [视频 | 理财亏716万元，金融街证券被判赔偿10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:50 - [姑苏城外瑞光塔 夜半灯火照客游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:51 - [1.8米杖头木偶亮相厦门“屿见闽南” 16米长绸翩舞引惊呼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:41 - [中天期货:商品指数板块分化小反弹 原油短线反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:50 - [重庆银行：一季度归母净利润17.93亿元 同比增长10.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:54 - [多部门协同发力 上海出台14项举措助力民营经济高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:54 - [Adobe公布250亿美元回购计划 旨在向投资者传递信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:01 - [成都双流“国字号”立法联系点运行一周年：民意搭上国家立法“直通车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:46 - [美国司法部将医用大麻重新归类为低危险性毒品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:01 - [广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:56 - [常熟银行：2025年实现营业收入116.19亿元，同比增长6.51%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:08 - [国际能源署署长：世界正面临史上最严重的能源安全威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:48 - [台湾作家新作《往日食光》书写家常风味 蕴藏两岸记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:43 - [特斯拉将对HW3车辆进行改造](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:57 - [涉恒大财务造假，香港证监会和会财局处罚落地，普华永道回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:45 - [广东茂名港口岸扩大对外开放通过国家验收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:45 - [习言道｜把“义乌发展经验”进一步总结好运用好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:08 - [育碧官宣：《刺客信条：黑旗》重制版7月9日发售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:49 - [一季度高技术产业实际使用外资同比增长30.7%](http://www.share.kurohicncr.top/Article/details/19916922163.shtml)
-- 2026-06-29 11:38 - [四川大巴山“爱心帮帮团”：用“微力量”汇聚“大温暖”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:39 - [亚洲芯片股走高 市场对地缘政治风险的担忧降温](http://www.share.kurohicncr.top/Article/details/75313694.shtml)
-- 2026-06-29 11:46 - [现场下单！中国机器人“圈粉”爱尔兰老球员](http://www.share.minike.top/Article/details/687804781043.shtml)
-- 2026-06-29 11:37 - [新兴市场“越涨越便宜”：亚洲芯片三雄引领的估值悖论](http://www.share.kurohicncr.top/Article/details/505230.shtml)
-- 2026-06-29 11:54 - [关于白宫记者晚宴枪击案嫌疑人科尔・艾伦的全部已知信息](http://www.blog.minike.top/Article/details/40316777.shtml)
-- 2026-06-29 11:50 - [002779、603360，被证监会立案！](http://www.blog.kurohicncr.top/Article/details/7562700.shtml)
-- 2026-06-29 11:39 - [台湾新北市长民调结果出炉，蓝白共推李四川参选](http://www.share.kurohicncr.top/Article/details/08955381228.shtml)
-- 2026-06-29 11:52 - [患恶性肿瘤理赔遭拒 和谐健康被指竟多次“恶意”拒赔](http://www.share.minike.top/Article/details/387479.shtml)
-- 2026-06-29 11:50 - [外交部评白宫记协年度晚宴枪击事件：一贯反对和谴责非法暴力行为](http://www.share.minike.top/Article/details/64747931579.shtml)
-- 2026-06-29 11:36 - [珠江流域进一步强化节约用水管理工作](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:00 - [“五一”假期预计全国日均租车量将超70万辆](http://www.blog.kurohicncr.top/Article/details/813342076905.shtml)
-- 2026-06-29 11:48 - [2026粤超首轮东莞主场获胜 科学家+企业家携手开球](http://www.share.minike.top/Article/details/7267083592.shtml)
-- 2026-06-29 11:40 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](http://www.blog.minike.top/Article/details/0348586.shtml)
-- 2026-06-29 11:45 - [西藏社科院举办专题研讨：以法治力量夯实民族团结进步根基](http://www.share.minike.top/Article/details/7213268.shtml)
+- 2026-06-29 11:58 - [群山为“岸” 商贸成“海”：重庆秀山于武陵山腹地开“世界超市”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [燃油成本飙升，美国航空腰斩2026年盈利预期](http://www.blog.kurohicncr.top/Article/details/662615397.shtml)
+- 2026-06-29 11:44 - [操盘必读：影响股市利好或利空消息_2026年4月24日_财经新闻](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:06 - [伊朗总统府官员：与美达成协议“需要时间”](http://www.share.kurohicncr.top/Article/details/2578881595.shtml)
+- 2026-06-29 11:59 - [宏润建设：2025年归母净利润2.8亿元，同比下降1.14%](http://www.blog.minike.top/Article/details/00231051.shtml)
+- 2026-06-29 11:56 - [中国选手范俊杰夺得三亚亚沙会首金](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [美国西弗吉尼亚州一工厂发生化学品泄漏 造成两人死亡](http://www.share.kurohicncr.top/Article/details/379834.shtml)
+- 2026-06-29 12:06 - [日韩股市集体高开 日股升至纪录新高](http://www.blog.minike.top/Article/details/80516709.shtml)
+- 2026-06-29 12:06 - [世界地球日｜用我们的力量守护高原生态](http://www.blog.minike.top/Article/details/2526376.shtml)
+- 2026-06-29 12:07 - [必维国际检验集团设立新亚洲中心，扩大海上服务能力](http://www.share.minike.top/Article/details/12894.shtml)
+- 2026-06-29 11:56 - [一季度ETF市场回顾：四只沪深300ETF缩水6300亿，黄金ETF、短融ETF成“避风港”，新发产品扎堆电池港股](http://www.blog.kurohicncr.top/Article/details/7207571791.shtml)
+- 2026-06-29 12:08 - [涨幅超A股，四大行H股盘中集体创新高，谁在买？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:51 - [4月23日美股成交额前20：美光创历史新高，此前获高盛唱好](http://www.share.minike.top/Article/details/2375282.shtml)
+- 2026-06-29 11:52 - [液冷牛股英维克，火热后急冻，现场探访](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:07 - [减肥药意外带火豌豆扁豆，美国农民弃麦种豆](http://www.blog.kurohicncr.top/Article/details/364744696.shtml)

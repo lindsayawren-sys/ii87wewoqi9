@@ -1,54 +1,52 @@
-# 台湾新北市长民调结果出炉，蓝白共推李四川参选
+# 日韩股市集体高开 日股升至纪录新高
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月28日 19:50 来源：中国新闻网 台湾新北市长选战“蓝白合”民调结果28日出炉，中国国民党与台湾民众党决定，共同推举民调胜出的国民党籍李四川参选。据介绍，新北市人口数近400万，合格选民数全台最高。新北市选民结构长期被认为蓝略大于绿，是国民党的“铁票防线”之一。自该市2010年更名(之前称作“台北县”)以来，一直由国民党籍人士担任市长。李四川历任新
+专题：夏季攻势渐入佳境 主升逻辑沿一季报景气展开 日经225指数上午开盘报59758.64点，涨幅0.29%。日本股市日经指数升至纪录新高。韩国综合股价指数（KOSPI）开盘上涨1.1%，至6488.83点。责任编辑：王永生
 
 ## 正文
 
-发布时间：2026年04月28日 19:50 来源：中国新闻网 台湾新北市长选战“蓝白合”民调结果28日出炉，中国国民党与台湾民众党决定，共同推举民调胜出的国民党籍李四川参选。
+专题：夏季攻势渐入佳境 主升逻辑沿一季报景气展开 日经225指数上午开盘报59758.64点，涨幅0.29%。
 
-据介绍，新北市人口数近400万，合格选民数全台最高。
+日本股市日经指数升至纪录新高。
 
-新北市选民结构长期被认为蓝略大于绿，是国民党的“铁票防线”之一。
+韩国综合股价指数（KOSPI）开盘上涨1.1%，至6488.83点。
 
-自该市2010年更名(之前称作“台北县”)以来，一直由国民党籍人士担任市长。
-
-李四川历任新北市、高雄市、台北市副市长。
-
-民进党新北市长参选人苏巧慧为现任民意代表，其父为民进党前主席苏贞昌，苏贞昌曾担任新北市前身台北县县长。
-
-(策划/制作：燕新台 君言晚 常望涛 中新网“燕新台”工作室出品） 责任编辑：【吉翔】
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 11:51 - [西藏社科院举办专题研讨：以法治力量夯实民族团结进步根基](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:47 - [伊朗战事推高油价，英国石油利润翻倍、大幅超出预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:43 - [长江“微笑天使”又添丁，见证江苏生态之变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:52 - [春到桑干河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:45 - [一季度浙江算力中心用电规模和增速创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:56 - [墨西哥比索走稳，股市受美伊僵局影响小幅回落](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:37 - [甘肃银行空前分红17.78亿为归母净利三倍 营收两连降零售贷款不良率4.16%压力增大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:57 - [互联网广告要跳出“流量至上”误区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:03 - [2026第二届飞剑“大使杯”国际板球邀请赛在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:45 - [上海定制何以走红？外籍人士为何偏爱这份“专属质感”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 12:05 - [减肥药意外带火豌豆扁豆，美国农民弃麦种豆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:06 - [80.3%受访者看好相关政策提升大众阅读兴趣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:44 - [南航否认在飞机上闹事女乘客为“南航空姐”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:54 - [国际刑事法院声称要对杜特尔特进行审判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:44 - [上交所举办东南亚专题国际路演活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:03 - [ISS建议ConocoPhillips股东支持独立董事主席提案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:03 - [浙商银行金华分行被罚169.3万元：违反金融统计相关规定等](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:11 - [国家国际发展合作署、中国气象局与世界气象组织签署关于推动落实全球发展倡议的谅解备忘录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 12:05 - [上海银行：2025年净息差1.16%，同比微降0.01个百分点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:58 - [（乡村行·看振兴）茶旅融合叠加整村运营 大别山茶村焕新生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:50 - [一季度市场监管部门查处商标侵权、假冒专利案件0.7万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:47 - [八达岭夜长城将于4月底在京亮相 升级沉浸式互动体验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:11 - [军号再次吹响，这次是接他们回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:00 - [煤炭股午后逆势上扬 兖煤澳大利亚及兖矿能源均涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:36 - [法学大先生·张晋藩](http://www.share.minike.top/Article/details/4196740941.shtml)
-- 2026-06-29 11:37 - [美国加州亿万富豪税已集齐请愿签名，获准纳入公投议程](http://www.share.kurohicncr.top/Article/details/83484976.shtml)
-- 2026-06-29 11:59 - [绍兴越城：以“三抓实”落实统战工作责任制](http://www.share.minike.top/Article/details/80973.shtml)
-- 2026-06-29 11:47 - [知情人士：美官员将讨论上周停火延期后 是否恢复对伊朗的轰炸行动](http://www.share.kurohicncr.top/Article/details/487818909.shtml)
-- 2026-06-29 11:48 - [青春，就应该这样！——写在2026年五四青年节到来之际](http://www.blog.kurohicncr.top/Article/details/305530.shtml)
-- 2026-06-29 11:38 - [人社部：一季度全国城镇新增就业299万人](http://www.blog.kurohicncr.top/Article/details/60713465.shtml)
-- 2026-06-29 12:03 - [江西鄱阳湖南矶湿地首次发现蓝喉太阳鸟](http://www.blog.minike.top/Article/details/93003661616.shtml)
-- 2026-06-29 11:51 - [青海西宁：文体商旅融合点燃五月高原消费热潮](http://www.share.kurohicncr.top/Article/details/0427374416.shtml)
-- 2026-06-29 11:40 - [2026年3月广东省外贸进出口总值表（人民币值）](http://www.share.kurohicncr.top/Article/details/35173881339.shtml)
-- 2026-06-29 11:48 - [跨境电商架桥梁 让互利之花在中越边境绽放](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [韩国上市公司总市值首次突破6000万亿韩元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [兆易创新将于5月29日派发末期股息每股0.8555198港元](http://www.blog.kurohicncr.top/Article/details/434458320.shtml)
-- 2026-06-29 11:37 - [交通银行：400亿元二级资本债券（债券通）发行完毕](http://www.blog.minike.top/Article/details/83143210022.shtml)
-- 2026-06-29 12:05 - [华泰期货：美伊分歧难以弥合，原油市场维持较高的波动率](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [中肯政商界人士认为零关税举措将为两国合作带来新机遇](http://www.blog.kurohicncr.top/Article/details/7153548.shtml)
+- 2026-06-29 12:01 - [隔夜逼近1.2%、资金利率持续倒挂，超宽松还能持续多久？](http://www.share.kurohicncr.top/Article/details/241246.shtml)
+- 2026-06-29 12:08 - [华贵人寿董事长刘刚将任新职，第一大股东茅台集团持股已超49%](http://www.blog.kurohicncr.top/Article/details/6692138117.shtml)
+- 2026-06-29 11:51 - [班诺特银行加速阿兹特克球场无现金化改造，备战世界杯](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:51 - [西南航空：受燃油价格上涨影响，第二季度盈利将低于预期](http://www.blog.kurohicncr.top/Article/details/50385973.shtml)
+- 2026-06-29 11:45 - [花旗：中国联通给予“买入”评级 目标价11.2港元](http://www.blog.kurohicncr.top/Article/details/791712.shtml)
+- 2026-06-29 11:45 - [规范升级！32万亿银行理财信息披露迎重大调整](http://www.share.kurohicncr.top/Article/details/687646987.shtml)
+- 2026-06-29 12:10 - [2026上海·静安现代戏剧谷链接全球戏剧资源](http://www.share.minike.top/Article/details/27705736.shtml)
+- 2026-06-29 11:55 - [光大期货：4月23日矿钢煤焦日报](http://www.share.kurohicncr.top/Article/details/00427428253.shtml)
+- 2026-06-29 12:11 - [志愿军老战士连续多年吹号迎接战友：我要告诉他们 我们赢了](http://www.share.minike.top/Article/details/051638.shtml)
+- 2026-06-29 12:10 - [山东省泰安市委常委、副市长刘峰梅接受审查调查](http://www.blog.minike.top/Article/details/017841366007.shtml)
+- 2026-06-29 12:04 - [一间中国礼物商店，如何让在地非遗老技艺“活”在当下？](http://www.blog.kurohicncr.top/Article/details/53017686693.shtml)
+- 2026-06-29 12:00 - [美以失算！伊朗强硬派全面掌权，温和派靠边站，美伊谈判又熄火](http://www.share.kurohicncr.top/Article/details/13831519.shtml)
+- 2026-06-29 11:51 - [“不只是司机的苦日子”——美高油价压力从运输业向消费端蔓延](http://www.blog.kurohicncr.top/Article/details/72142450.shtml)
+- 2026-06-29 11:48 - [专访IMF世界经济研究部主管：全球增长或受2%“衰退线”挑战，美联储需防通胀预期脱锚](http://www.blog.minike.top/Article/details/07990.shtml)
+- 2026-06-29 12:10 - [伊朗最高领袖、总统、议长、外长同日喊话](http://www.blog.minike.top/Article/details/899525659.shtml)

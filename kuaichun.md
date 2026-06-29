@@ -1,56 +1,61 @@
-# 德国据悉尝试为德国商业银行寻找白衣骑士 以应对裕信银行的收购
+# 受权发布｜中共中央办公厅 国务院办公厅印发《碳达峰碳中和综合评价考核办法》
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-据知情人士透露，德国向欧洲一些银行询问是否有意对德国商业银行施以援手，帮助它抵御意大利裕信银行今年早些时候提出的收购要约。 要求匿名的知情人士说，德国官员曾与相关银行进行非正式接触，探讨引入新的战略投资者收购股权、甚至接管这家总部位于法兰克福银行的可行性。这些会谈并未超出非常初步的阶段。 这显示出柏林为维护德国商业银行独立性所付出的努力，同时也表明了其在抵御裕信银行方面所面临的
+新华社北京4月23日电 近日，中共中央办公厅、国务院办公厅印发《碳达峰碳中和综合评价考核办法》，并发出通知，要求各地区各部门认真遵照执行。 《碳达峰碳中和综合评价考核办法》全文如下。 碳达峰碳中和综合评价考核办法 (2026年2月26日中共中央政治局常委会会议审议批准 2026年4月12日中共中央办公厅、国务院办公厅发布)第一章 总则 第一条 为了发挥碳达峰碳中和的战略牵引作用
 
 ## 正文
 
-据知情人士透露，德国向欧洲一些银行询问是否有意对德国商业银行施以援手，帮助它抵御意大利裕信银行今年早些时候提出的收购要约。
+新华社北京4月23日电 近日，中共中央办公厅、国务院办公厅印发《碳达峰碳中和综合评价考核办法》，并发出通知，要求各地区各部门认真遵照执行。
 
-要求匿名的知情人士说，德国官员曾与相关银行进行非正式接触，探讨引入新的战略投资者收购股权、甚至接管这家总部位于法兰克福银行的可行性。
+《碳达峰碳中和综合评价考核办法》全文如下。
 
-这些会谈并未超出非常初步的阶段。
+碳达峰碳中和综合评价考核办法 (2026年2月26日中共中央政治局常委会会议审议批准 2026年4月12日中共中央办公厅、国务院办公厅发布)第一章 总则 第一条 为了发挥碳达峰碳中和的战略牵引作用，加快构建碳排放总量和强度双控制度体系，推动地方党委和政府树立和践行正确政绩观、坚决扛起碳达峰碳中和责任，根据《中共中央、国务院关于完整准确全面贯彻新发展理念做好碳达峰碳中和工作的意见》、《中共中央、国务院关于加快经济社会发展全面绿色转型的意见》和有关规定，制定本办法。
 
-这显示出柏林为维护德国商业银行独立性所付出的努力，同时也表明了其在抵御裕信银行方面所面临的局限性。
+第二条 本办法适用于自2026年度起对各省(自治区、直辖市)党委和政府落实碳达峰碳中和目标任务，加快经济社会发展全面绿色转型进展情况的评价考核。
 
-德国财政部发言人不予评论。
+第三条 在党中央集中统一领导下，评价考核工作由中央组织部统筹指导，由国家发展改革委会同有关部门实施。
 
-德国政府继续反对其所称的“敌意收购”。
+第四条 评价考核实行党政同责、一岗双责，坚持统筹兼顾、客观公正、科学规范、注重实效的工作原则。
 
-自2024年底开始投资以来，裕信银行一直在稳步提高持股份额。
+第二章 评价考核内容 第五条 评价考核紧紧围绕贯彻落实党中央、国务院关于碳达峰碳中和的决策部署以及应对气候变化国家自主贡献目标开展，推动各省(自治区、直辖市)落实碳排放总量和强度双控目标。
 
-柏林担心，这笔交易可能会将对德国中小企业融资至关重要的业务的决策权从法兰克福转移到米兰。
+第六条 评价考核设置控制指标、支撑指标。
 
 ## 相关推荐
 
-- 2026-06-29 12:02 - [大美边疆看我家丨内蒙古锡林浩特：百鸟翔集绘春图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:44 - [陈旭：日方应恪守中日四个政治文件 勿因错误言论干扰APEC合作环境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:52 - [湖北：“五一”假期文旅融合主题产品焕新登场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:58 - [生态环境部：一季度我国环境空气质量总体改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:59 - [收评：国内期货主力合约涨多跌少 多晶硅跌近7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:45 - [王兆星同志逝世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:58 - [江西省人大常委会原副主任洪礼和一审被判20年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:03 - [高盛：紫金矿业维持“买入”评级 目标价微降至51港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:55 - [2026年度大理海关部门预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:51 - [辽宁岫岩：翠绿山林间 夺目映山红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:47 - [中办 国办发布关于更高水平更高质量做好节能降碳工作的意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:47 - [万里同心 共护山河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:09 - [中播数据公布于4月23日上午起复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:04 - [理财公司渐成网下“打新”新势力，在深交所打新报价量激增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:09 - [新西兰财长称经济复苏延缓 但并未脱离轨道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:58 - [舰艇留言板上贴满“望台湾早日回归” 吕礼诗：这个愿望定要成真](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:50 - [1-3月中国销售彩票1439.59亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:59 - [杭州银行：2025年末不良贷款率0.76%，与上年末持平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:48 - [世界地球日山西自然博物馆开启系列展览探寻地球血脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:04 - [京雄快线预计2026年下半年开通运营](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:12 - [北京多措并举推进扬尘治理 提高城市清洁度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:44 - [公用手机卡频繁被盗 窃贼为什么不偷手机只偷卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:04 - [2025年贵州法院受理知识产权案件8608件审结7699件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:05 - [抖音整治AI不当内容，重点处置利用AI技术换脸、盗声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:53 - [第六届亚洲沙滩运动会在海南省三亚市开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:44 - [墨西哥比索走稳，股市受美伊僵局影响小幅回落](http://www.share.minike.top/Article/details/33205080690.shtml)
-- 2026-06-29 11:59 - [甘肃银行空前分红17.78亿为归母净利三倍 营收两连降零售贷款不良率4.16%压力增大](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:00 - [互联网广告要跳出“流量至上”误区](http://www.blog.minike.top/Article/details/540630661.shtml)
-- 2026-06-29 12:04 - [2026第二届飞剑“大使杯”国际板球邀请赛在京举办](http://www.share.kurohicncr.top/Article/details/984060444.shtml)
-- 2026-06-29 11:36 - [上海定制何以走红？外籍人士为何偏爱这份“专属质感”](http://www.blog.minike.top/Article/details/940401.shtml)
-- 2026-06-29 12:04 - [中国黄河流域137处国家级自然保护区优良率达99.27％](http://www.share.kurohicncr.top/Article/details/167630.shtml)
-- 2026-06-29 12:03 - [豆粕：周期无声，趋势有痕 —— 豆粕多空拉锯](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [伪满皇宫博物院举办吉林省首个海事文化科普展](http://www.share.minike.top/Article/details/61559170.shtml)
-- 2026-06-29 11:41 - [科创综指，历史新高！](http://www.blog.minike.top/Article/details/0315424922.shtml)
-- 2026-06-29 11:39 - [2026北京国际花展开幕 荷兰景观设计师：中国花卉产业发展速度非常快](http://www.share.minike.top/Article/details/090914.shtml)
-- 2026-06-29 11:57 - [CIPS资金托管行扩容至14家 中信银行、中银香港等四家入列](http://www.share.minike.top/Article/details/60403789.shtml)
-- 2026-06-29 11:57 - [真香！这枚刚出炉“果仁列巴”能刷300余城市公交地铁](http://www.blog.minike.top/Article/details/709366.shtml)
-- 2026-06-29 12:03 - [韩国总统府：谷歌将在韩国新建人工智能园区](http://www.share.kurohicncr.top/Article/details/9715702005.shtml)
-- 2026-06-29 11:40 - [2026年芒市海关综合技术服务中心预算公开](http://www.blog.kurohicncr.top/Article/details/8594065.shtml)
+- 2026-06-29 12:01 - [ISS建议ConocoPhillips股东支持独立董事主席提案](http://www.share.minike.top/Article/details/476489743771.shtml)
+- 2026-06-29 11:47 - [浙商银行金华分行被罚169.3万元：违反金融统计相关规定等](http://www.blog.minike.top/Article/details/40875.shtml)
+- 2026-06-29 11:45 - [国家国际发展合作署、中国气象局与世界气象组织签署关于推动落实全球发展倡议的谅解备忘录](http://www.share.kurohicncr.top/Article/details/88395627.shtml)
+- 2026-06-29 12:01 - [上海银行：2025年净息差1.16%，同比微降0.01个百分点](http://www.blog.kurohicncr.top/Article/details/8416998.shtml)
+- 2026-06-29 11:54 - [（乡村行·看振兴）茶旅融合叠加整村运营 大别山茶村焕新生](http://www.blog.minike.top/Article/details/00999551.shtml)
+- 2026-06-29 11:43 - [一季度市场监管部门查处商标侵权、假冒专利案件0.7万件](http://www.blog.minike.top/Article/details/902312.shtml)
+- 2026-06-29 11:58 - [八达岭夜长城将于4月底在京亮相 升级沉浸式互动体验](http://www.share.minike.top/Article/details/59204544690.shtml)
+- 2026-06-29 12:00 - [军号再次吹响，这次是接他们回家](http://www.share.minike.top/Article/details/04191699.shtml)
+- 2026-06-29 12:11 - [煤炭股午后逆势上扬 兖煤澳大利亚及兖矿能源均涨超4%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [文件显示SpaceX获200亿美元过桥贷款，对其债务进行再融资](http://www.blog.kurohicncr.top/Article/details/678732.shtml)
+- 2026-06-29 11:42 - [浙江行刑联动破题商业秘密保护“三难”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [社保基金重仓+机构高关注股来了（附名单）](http://www.blog.minike.top/Article/details/9143343670.shtml)
+- 2026-06-29 12:01 - [广州黄埔：“AI+高端智造”抢占生物医药产业新高地](http://www.blog.minike.top/Article/details/96139779913.shtml)
+- 2026-06-29 12:05 - [中新健康｜日常做好这些事，可有效降低肿瘤发生风险](http://www.blog.kurohicncr.top/Article/details/98966.shtml)
+- 2026-06-29 11:52 - [英特尔股价盘后飙升 强劲业绩展望显示人工智能支出开始奏效](http://www.share.minike.top/Article/details/3044914.shtml)

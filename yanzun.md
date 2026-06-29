@@ -1,50 +1,57 @@
-# 法学大先生·张晋藩
+# 隔夜逼近1.2%、资金利率持续倒挂，超宽松还能持续多久？
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-“人民教育家”、中国政法大学终身教授张晋藩，七十余载深耕中国法制史，是新中国中国法制史学科的主要创建者和杰出代表。 他坚守杏坛七十余载，潜心育人，培育百余名博士英才；伏案治学，笔耕不辍，撰写六十余部专著，二十余部教材；凝心聚力，久久为功，十九载编纂鸿篇巨制《中国法制通史》，引领中国法制史研究走向世界。观看《法学大先生》纪录片第一期，感悟张晋藩的家国情怀与法治初心。 联合出品丨中
+近期市场资金面持续维持超宽松态势，4月22日盘中，DR001（银行间市场存款类机构隔夜质押回购利率）、DR007加权平均利率分别为1.2182%、1.3202%，与7天期逆回购利率（1.40%）呈现小幅倒挂态势。 自4月7日以来，DR001就持续低于1.23%，引发关注。央行呵护、实体信贷需求疲弱、人民币升值等多重因素共同作用，导致本轮资金面宽松，而宽松格局持续时长、DR001
 
 ## 正文
 
-“人民教育家”、中国政法大学终身教授张晋藩，七十余载深耕中国法制史，是新中国中国法制史学科的主要创建者和杰出代表。
+近期市场资金面持续维持超宽松态势，4月22日盘中，DR001（银行间市场存款类机构隔夜质押回购利率）、DR007加权平均利率分别为1.2182%、1.3202%，与7天期逆回购利率（1.40%）呈现小幅倒挂态势。
 
-他坚守杏坛七十余载，潜心育人，培育百余名博士英才；伏案治学，笔耕不辍，撰写六十余部专著，二十余部教材；凝心聚力，久久为功，十九载编纂鸿篇巨制《中国法制通史》，引领中国法制史研究走向世界。
+自4月7日以来，DR001就持续低于1.23%，引发关注。
 
-观看《法学大先生》纪录片第一期，感悟张晋藩的家国情怀与法治初心。
+央行呵护、实体信贷需求疲弱、人民币升值等多重因素共同作用，导致本轮资金面宽松，而宽松格局持续时长、DR001后续走势及央行调控动向，也成为当前市场关注的焦点。
 
-联合出品丨中国法学交流基金会 法治日报社法治网 出品人丨张所菲 万学忠 总制片人丨张所菲 余飞 总策划丨张所菲 赵颖 总顾问丨黄文艺 吴韬 总导演、总撰稿丨罗子建 本集制片人丨马亮 张冬梅 策划丨李青 胡建霞 孙剑 统筹丨李青 戎珊 导演丨刘东生 丁武胜 赵慧 撰稿丨魏瑞东 丁武胜 解说丨李立宏 鸣谢单位 中央政法委六局 中央政法委宣传教育局 中国法学会研究部 中国法学会机关党委(人事部)宣传处 中国法学会法学教育研究会 《民主与法制》社 中国政法大学党委宣传部/教师工作部 中国政法大学法律史学研究院 特别支持 中国法学交流基金会金融服务与法治建设专项基金 北京中宝国祐科技有限公司 制作单位 北京电广数科文化产业有限公司 来源：法治日报-法治网
+资金面持续超宽松 4月22日截至16：30左右，DR001加权平均利率为1.2182%，DR007加权平均利率为1.3202%。
+
+当日，央行开展60亿元7天期逆回购操作，操作利率维持1.40%不变，两者与公开市场操作（OMO）利率继续倒挂。
+
+3月末，央行为护航资金跨季，加大逆回购投放力度，连续多日出现千亿级净投放，有效稳定了市场预期，推动资金面平稳过渡。
+
+进入4月后，季末等季节性扰动因素明显减弱，尽管央行持续回收流动性，但资金面依然维持宽松。
+
+数据显示，自4月7日以来，DR001持续低于1.23%，20日更进一步跌破1.22%，下行至1.2167%，同日DR007为1.3358%，二者均略低于7天期OMO操作利率，呈现小幅倒挂态势，反映出银行间的超宽松状态。
 
 ## 相关推荐
 
-- 2026-06-29 11:48 - [青海西宁：文体商旅融合点燃五月高原消费热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:51 - [2026年3月广东省外贸进出口总值表（人民币值）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:54 - [跨境电商架桥梁 让互利之花在中越边境绽放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:05 - [韩国上市公司总市值首次突破6000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:45 - [兆易创新将于5月29日派发末期股息每股0.8555198港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:40 - [交通银行：400亿元二级资本债券（债券通）发行完毕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:03 - [华泰期货：美伊分歧难以弥合，原油市场维持较高的波动率](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:04 - [中肯政商界人士认为零关税举措将为两国合作带来新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:40 - [2026广东时装周（春季）以时尚之力赋能产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:00 - [如何防控蚊媒传染病？专家：清积水、灭成蚊、防叮咬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:59 - [中国心连心化肥将于7月28日派发末期股息每股0.32元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:46 - [澳大利亚拟对科技巨头征收约2%税费 除非达成本地新闻付费协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:55 - [光大期货：4月23日矿钢煤焦日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:57 - [志愿军老战士连续多年吹号迎接战友：我要告诉他们 我们赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:51 - [山东省泰安市委常委、副市长刘峰梅接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:48 - [一间中国礼物商店，如何让在地非遗老技艺“活”在当下？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:47 - [美以失算！伊朗强硬派全面掌权，温和派靠边站，美伊谈判又熄火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:47 - [“不只是司机的苦日子”——美高油价压力从运输业向消费端蔓延](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:02 - [专访IMF世界经济研究部主管：全球增长或受2%“衰退线”挑战，美联储需防通胀预期脱锚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:45 - [伊朗最高领袖、总统、议长、外长同日喊话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:03 - [【香港故事】方寸之间 书中蝴蝶——世界读书日走近藏书票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:11 - [三亚亚沙会沙排比赛首日：传统强队集体“速胜”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:04 - [放量大跌！A股多空博弈升级，投资者该怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:56 - [中非银联体召开第二届高官会暨中非金融合作研讨会](http://www.blog.minike.top/Article/details/5297880.shtml)
-- 2026-06-29 11:50 - [有的亏超2亿元，有的净利翻2倍！2025年支付公司业绩分化严重](http://www.blog.minike.top/Article/details/50718.shtml)
-- 2026-06-29 11:38 - [外交部回应白宫记者晚宴枪击事件：中方一贯反对和谴责非法暴力行为](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [粤港澳大湾区自行车骑行嘉年华（惠州博罗站）举行](http://www.blog.kurohicncr.top/Article/details/3104971.shtml)
-- 2026-06-29 11:41 - [高市称为长期战争做好准备，外交部：日本是不是要重蹈历史覆辙？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:41 - [南华早报出版人谭卫儿：应营造良好舆论环境，为各领域合作创造有利条件](http://www.share.minike.top/Article/details/520271.shtml)
-- 2026-06-29 11:36 - [“机器人大牛股”中坚科技突遭证监会立案，近2万股民或可索赔](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:41 - [受气象不佳影响 “两马”航线将双向停航](http://www.share.minike.top/Article/details/017017217.shtml)
-- 2026-06-29 11:45 - [探访武汉都市圈花展：近千种花卉盛放 12城共绘春韵](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [壁仞科技午前涨超5% 壁砺™166系列产品完成DeepSeek-V4适配验证与优化](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [北京平谷打造农业中关村人才综合改革试验区 多举措激励创新创业](http://www.share.kurohicncr.top/Article/details/642489.shtml)
-- 2026-06-29 11:52 - [【百万庄小课堂】真会被气出结节吗？专家解答女性怎么爱护乳腺](http://www.blog.minike.top/Article/details/0913962772.shtml)
-- 2026-06-29 11:55 - [壳牌164亿美元收购加拿大ARC Resources，押注蒙特尼页岩气扩张](http://www.share.kurohicncr.top/Article/details/76490118343.shtml)
-- 2026-06-29 11:57 - [浙江安吉：跨区域公共法律服务协作站让民族同胞安心就业](http://www.blog.minike.top/Article/details/36965089517.shtml)
-- 2026-06-29 11:44 - [“鸟中大熊猫”彩鹮首次现身云南云县](http://www.share.kurohicncr.top/Article/details/3258216.shtml)
+- 2026-06-29 12:03 - [第六届亚洲沙滩运动会在三亚开幕 谌贻琴出席并宣布开幕](http://www.share.minike.top/Article/details/15133803.shtml)
+- 2026-06-29 12:04 - [美伊和平谈判陷入僵局，霍尔木兹海峡局势加剧](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [午评：国内期货主力合约涨跌互现 低硫燃油涨超6%](http://www.blog.kurohicncr.top/Article/details/06910981.shtml)
+- 2026-06-29 11:43 - [百思买任命资深人士为CEO](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [达能销售额增长，美国市场重拾增长动力](http://www.blog.kurohicncr.top/Article/details/867352824470.shtml)
+- 2026-06-29 12:04 - [中办、国办：支持发展绿色低碳、集约循环的算力设施](http://www.share.kurohicncr.top/Article/details/0898551206.shtml)
+- 2026-06-29 11:53 - [ASMPT盘中涨超7% 首季盈利及第二季展望均超预期](http://www.share.minike.top/Article/details/268192.shtml)
+- 2026-06-29 11:42 - [西安检察探索知识产权保护“立体解题”新路径](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [事关节能降碳工作 中办、国办重磅文件对外发布](http://www.share.minike.top/Article/details/8728669.shtml)
+- 2026-06-29 11:52 - [福建宁德启动“一句话见民生”机制 专解民众身边“小而急”难题](http://www.blog.minike.top/Article/details/0962164582.shtml)
+- 2026-06-29 11:44 - [多地学子齐聚沈阳 共同迎接第十三批志愿军英烈归国](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:58 - [贵州印江：半世纪人鸟相依 共绘生态宜居新家园](http://www.share.minike.top/Article/details/84066099736.shtml)
+- 2026-06-29 12:11 - [在民进党高压下 为何一直坚持说“我是中国人” 吕礼诗霸气回应](http://www.blog.kurohicncr.top/Article/details/597312320908.shtml)
+- 2026-06-29 11:52 - [外交部：中方敦促美方停止助台巩固所谓“邦交”](http://www.share.kurohicncr.top/Article/details/95679.shtml)
+- 2026-06-29 11:59 - [英伟达参投AI公司Vast Data，估值达300亿美元](http://www.blog.kurohicncr.top/Article/details/171349391506.shtml)

@@ -1,60 +1,57 @@
-# 直播海报：国务院政策例行吹风会：介绍《关于推进服务业扩能提质的意见》有关情况
+# Swift数据显示 美元3月份在国际交易中占比升至51.1%的新高
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-深山侗寨为何受联合国旅游组织青睐？万斯先撤、总统跌倒？ 特朗普回应晚宴撤离细节从一碗烟火到一句问候，我们和东盟邻居的“朋友圈”有多暖？“700台机器没日没夜打，月赚10万”，年轻人开始靠3D打印“搞钱”杨某某每天90元扮流浪女 “深山救助”视频摆拍细节公开“我们第一次来，太震撼了”，老外涌入北京车展采茶专列、球迷专列，旅游列车扎堆上新抢占“五一”市场如何从萨迦寺历史看中华民族大
+根据环球银行金融电信协会（Swift）最新汇编的数据，美元在3月份国际交易中的比例升至创纪录的51.1%，高于一个月前的49.2%。这也创下自2023年以来的最高，当时这家总部位于比利时组织修改了其搜集交易资料的方式。 Swift是大型国际银行用来彼此沟通并促成银行间外汇交易的重要系统。在各主要货币中，美元仍居首位，其次为欧元（约21%），之后依序为英镑、日元、人民币及加币。
 
 ## 正文
 
-深山侗寨为何受联合国旅游组织青睐？
+根据环球银行金融电信协会（Swift）最新汇编的数据，美元在3月份国际交易中的比例升至创纪录的51.1%，高于一个月前的49.2%。
 
-万斯先撤、总统跌倒？
+这也创下自2023年以来的最高，当时这家总部位于比利时组织修改了其搜集交易资料的方式。
 
-特朗普回应晚宴撤离细节从一碗烟火到一句问候，我们和东盟邻居的“朋友圈”有多暖？
+Swift是大型国际银行用来彼此沟通并促成银行间外汇交易的重要系统。
 
-“700台机器没日没夜打，月赚10万”，年轻人开始靠3D打印“搞钱”杨某某每天90元扮流浪女 “深山救助”视频摆拍细节公开“我们第一次来，太震撼了”，老外涌入北京车展采茶专列、球迷专列，旅游列车扎堆上新抢占“五一”市场如何从萨迦寺历史看中华民族大一统？
+在各主要货币中，美元仍居首位，其次为欧元（约21%），之后依序为英镑、日元、人民币及加币。
 
-推动海洋经济高质量发展 加快建设海洋强国1.65亿实时人口筑牢广东发展根基从“中国游”到“中式生活”：外国人眼中的中国魅力与巨变餐桌上的泾源风物诗：一块黄牛肉的乡野与醇厚被忽视的“口腔杀手”，正悄悄盯上年轻人生猪价格创7年多新低 零售市场和居民消费体验有啥变化巴基斯坦记者：新疆“强迫劳动”何在？
+摩根大通以Joyce Chang为首的研究团队在4月21日的一份报告指出，去年观察到的美元走弱，并未转化为美元在储备货币或资本市场基准货币地位的明显下滑。
 
-义乌“因地制宜”发展的启示演员陈丽君晋升副主任 戏剧青年人才如何蓄力成长？
+2025年，一个美元指数曾下跌8%，触及四年低点。
 
-太阳今日爆发X2.4级耀斑，有何影响？
+不过，自2月底伊朗战事爆发以来，该指数已回升约0.8%。
 
-内蒙古锡林浩特：百鸟翔集绘春图12位志愿军烈士在沈阳安葬 鸣枪12响致敬志愿军烈士寻根黄帝故里！
+上个月，美国和以色列对伊朗动武后，外汇市场交易异常动荡，引发全球风险资产抛售、油价飙涨以及对可供避险的美元的需求。
 
 ## 相关推荐
 
-- 2026-06-29 12:02 - [姚高员辞去杭州市市长职务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:47 - [法学大先生·张晋藩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:51 - [美国加州亿万富豪税已集齐请愿签名，获准纳入公投议程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:48 - [绍兴越城：以“三抓实”落实统战工作责任制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:01 - [知情人士：美官员将讨论上周停火延期后 是否恢复对伊朗的轰炸行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:44 - [青春，就应该这样！——写在2026年五四青年节到来之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:59 - [人社部：一季度全国城镇新增就业299万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:51 - [江西鄱阳湖南矶湿地首次发现蓝喉太阳鸟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:48 - [青海西宁：文体商旅融合点燃五月高原消费热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:04 - [2026年3月广东省外贸进出口总值表（人民币值）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:59 - [跨境电商架桥梁 让互利之花在中越边境绽放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:57 - [韩国上市公司总市值首次突破6000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:55 - [兆易创新将于5月29日派发末期股息每股0.8555198港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:52 - [交通银行：400亿元二级资本债券（债券通）发行完毕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:45 - [A股收评：超4000只个股飘绿，三大指数集体收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:43 - [隔夜逼近1.2%、资金利率持续倒挂，超宽松还能持续多久？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:58 - [华贵人寿董事长刘刚将任新职，第一大股东茅台集团持股已超49%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:42 - [班诺特银行加速阿兹特克球场无现金化改造，备战世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:46 - [西南航空：受燃油价格上涨影响，第二季度盈利将低于预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:44 - [花旗：中国联通给予“买入”评级 目标价11.2港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:44 - [规范升级！32万亿银行理财信息披露迎重大调整](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:05 - [2026上海·静安现代戏剧谷链接全球戏剧资源](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:10 - [光大期货：4月23日矿钢煤焦日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:07 - [志愿军老战士连续多年吹号迎接战友：我要告诉他们 我们赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:55 - [山东省泰安市委常委、副市长刘峰梅接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [OEXN:黄金震荡观望央行信号](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:49 - [“五一”假日期间海南省天气总体较好 适宜出游](http://www.blog.kurohicncr.top/Article/details/50693.shtml)
-- 2026-06-29 11:41 - [绿城的"体外"生意，撑不住了](http://www.blog.kurohicncr.top/Article/details/902180793.shtml)
-- 2026-06-29 11:41 - [油价冲击波袭来，全球消费品巨头面临定价压力测试](http://www.blog.kurohicncr.top/Article/details/79770422232.shtml)
-- 2026-06-29 11:47 - [全国首批米粉“批次检验（检疫）”改革试点落地江西抚州](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [五一假期注意出行安全 南方多地有大范围降雨](http://www.blog.kurohicncr.top/Article/details/0922217.shtml)
-- 2026-06-29 11:37 - [江河与共丨九三学社中央主席武维华：“既找病灶又开药方” 九三学社助力长江生态保护](http://www.share.kurohicncr.top/Article/details/4544088.shtml)
-- 2026-06-29 11:49 - [解决新旧海商法衔接适用问题 最高法出台司法解释](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [中非银联体召开第二届高官会暨中非金融合作研讨会](http://www.blog.minike.top/Article/details/8805180.shtml)
-- 2026-06-29 11:46 - [有的亏超2亿元，有的净利翻2倍！2025年支付公司业绩分化严重](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:37 - [外交部回应白宫记者晚宴枪击事件：中方一贯反对和谴责非法暴力行为](http://www.share.kurohicncr.top/Article/details/9234880278.shtml)
-- 2026-06-29 11:43 - [粤港澳大湾区自行车骑行嘉年华（惠州博罗站）举行](http://www.blog.kurohicncr.top/Article/details/04501264615.shtml)
-- 2026-06-29 12:03 - [高市称为长期战争做好准备，外交部：日本是不是要重蹈历史覆辙？](http://www.share.minike.top/Article/details/79032127812.shtml)
-- 2026-06-29 11:48 - [南华早报出版人谭卫儿：应营造良好舆论环境，为各领域合作创造有利条件](http://www.blog.kurohicncr.top/Article/details/401047.shtml)
-- 2026-06-29 11:56 - [“机器人大牛股”中坚科技突遭证监会立案，近2万股民或可索赔](http://www.blog.kurohicncr.top/Article/details/53878911151.shtml)
+- 2026-06-29 11:44 - [在第57个世界地球日，“最美自然守护者”讲述绿色发展故事](http://www.share.kurohicncr.top/Article/details/57143784.shtml)
+- 2026-06-29 12:07 - [胃不适、腰背酸、血糖高？警惕“癌王”发出的预警信号](http://www.share.kurohicncr.top/Article/details/917795.shtml)
+- 2026-06-29 11:50 - [“6.0%”的浙江看点](http://www.blog.minike.top/Article/details/784171.shtml)
+- 2026-06-29 11:50 - [特朗普称美国“已完全控制了霍尔木兹海峡”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [中际旭创市值破万亿 老实业家如何逆袭硅谷](http://www.share.kurohicncr.top/Article/details/07620325892.shtml)
+- 2026-06-29 11:49 - [俄总统新闻秘书：普京愿随时与泽连斯基会面但须“富有成效”](http://www.share.minike.top/Article/details/540814796.shtml)
+- 2026-06-29 12:06 - [“四季新韵·感知重庆”境外媒体重庆行交流活动启动](http://www.blog.minike.top/Article/details/18123.shtml)
+- 2026-06-29 11:53 - [连亏5年，越亏越多！知名超市学胖东来效果不佳，去年关店414家，巨亏9.57亿元，最新市值仅35亿元](http://www.share.kurohicncr.top/Article/details/05897007.shtml)
+- 2026-06-29 11:45 - [第六届亚洲沙滩运动会在三亚开幕 谌贻琴出席并宣布开幕](http://www.share.kurohicncr.top/Article/details/206552587147.shtml)
+- 2026-06-29 11:53 - [美伊和平谈判陷入僵局，霍尔木兹海峡局势加剧](http://www.share.kurohicncr.top/Article/details/7696093.shtml)
+- 2026-06-29 11:57 - [午评：国内期货主力合约涨跌互现 低硫燃油涨超6%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [百思买任命资深人士为CEO](http://www.share.minike.top/Article/details/03606507.shtml)
+- 2026-06-29 11:55 - [达能销售额增长，美国市场重拾增长动力](http://www.share.kurohicncr.top/Article/details/14184855012.shtml)
+- 2026-06-29 11:47 - [中办、国办：支持发展绿色低碳、集约循环的算力设施](http://www.share.kurohicncr.top/Article/details/834805969968.shtml)
+- 2026-06-29 11:58 - [ASMPT盘中涨超7% 首季盈利及第二季展望均超预期](http://www.blog.kurohicncr.top/Article/details/27167882098.shtml)

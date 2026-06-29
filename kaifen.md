@@ -1,59 +1,56 @@
-# 江西省人大常委会原副主任洪礼和一审被判20年
+# 1-3月中国销售彩票1439.59亿元
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-中新社北京4月28日电 (记者 张素)记者从中国最高人民法院获悉，4月28日，福建省福州市中级人民法院一审公开宣判江西省人大常委会原党组副书记、副主任洪礼和受贿、滥用职权、洗钱案。 法院对被告人洪礼和以受贿罪判处有期徒刑十五年，并处罚金人民币七百万元，以滥用职权罪判处有期徒刑九年六个月，以洗钱罪判处有期徒刑三年六个月，并处罚金人民币五十万元，决定执行有期徒刑二十年，并处罚金人民
+中新社北京4月23日电 (记者 赵建华)中国财政部23日公布的数据显示，1-3月累计，全国共销售彩票1439.59亿元(人民币，下同)，同比下降3.1%。其中，福利彩票机构销售484.03亿元，下降5.6%；体育彩票机构销售955.57亿元，下降1.8%。3月份，全国共销售彩票544亿元，同比下降6.6%。其中，福利彩票机构销售184.49亿元，下降3.9%；体育彩票机构销售3
 
 ## 正文
 
-中新社北京4月28日电 (记者 张素)记者从中国最高人民法院获悉，4月28日，福建省福州市中级人民法院一审公开宣判江西省人大常委会原党组副书记、副主任洪礼和受贿、滥用职权、洗钱案。
+中新社北京4月23日电 (记者 赵建华)中国财政部23日公布的数据显示，1-3月累计，全国共销售彩票1439.59亿元(人民币，下同)，同比下降3.1%。
 
-法院对被告人洪礼和以受贿罪判处有期徒刑十五年，并处罚金人民币七百万元，以滥用职权罪判处有期徒刑九年六个月，以洗钱罪判处有期徒刑三年六个月，并处罚金人民币五十万元，决定执行有期徒刑二十年，并处罚金人民币七百五十万元；对其犯罪所得财物及孳息依法予以追缴，上缴国库。
+其中，福利彩票机构销售484.03亿元，下降5.6%；体育彩票机构销售955.57亿元，下降1.8%。
 
-公开资料显示，洪礼和生于1953年，江西余干人。
+3月份，全国共销售彩票544亿元，同比下降6.6%。
 
-2024年6月，官方通报其被查。
+其中，福利彩票机构销售184.49亿元，下降3.9%；体育彩票机构销售359.51亿元，下降7.9%。
 
-2025年6月，官方通报其被开除党籍。
+财政部解释，主要是有关体育赛事活动减少导致竞猜型彩票销量下降较多。
 
-他被指“长期在党内搞团团伙伙、拉帮结派，妄议党中央大政方针”“搞权色、钱色交易”等。
+财政部介绍，3月份，与上年同期相比，全国9个省份彩票销量增长，其中吉林、海南、河南、河北增加额较多。
 
-今年年初播放的专题片披露，其曾在机场与乘客对骂，还带着外甥、侄女大搞“全家腐”。
+22个省份彩票销量下降，其中江苏、浙江、重庆、江西下降额较多。
 
-经审理查明，2000年至2024年，被告人洪礼和利用担任江西省新余市市长、市委书记，江西省发改委党组书记、主任，江西省政府党组成员、副省长，江西省人大常委会党组副书记、副主任，江西老年大学校长等职务上的便利，为有关单位和个人在企业经营、股权收购、项目承接、职务晋升等方面提供帮助，直接或者通过他人非法收受财物共计折合人民币9220万余元。
+1-3月累计，与上年同期相比，全国12个省份彩票销量增长，其中河南、甘肃、吉林、西藏增加额较多。
 
 ## 相关推荐
 
-- 2026-06-29 11:58 - [2026年3月广东省进口重点商品总值表（人民币值）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:37 - [辽宁省贸促会经贸代表团在科特迪瓦开展经贸交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:38 - [拉卡拉：“炒股”大赚，主业承压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:36 - [航旅纵横：五一叠加春假长线出游升温 上海居国内热门目的地首位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:53 - [时政微周刊丨总书记的一周（4月20日—4月26日）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:52 - [从课堂到云端 自媒体重构海外华文教育生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:02 - [巴克莱：美联储本周料将按兵不动，2026年晚些时候可能降息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:52 - [一季度高技术产业实际使用外资同比增长30.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 12:02 - [四川大巴山“爱心帮帮团”：用“微力量”汇聚“大温暖”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:49 - [亚洲芯片股走高 市场对地缘政治风险的担忧降温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:39 - [现场下单！中国机器人“圈粉”爱尔兰老球员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:38 - [新兴市场“越涨越便宜”：亚洲芯片三雄引领的估值悖论](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:53 - [关于白宫记者晚宴枪击案嫌疑人科尔・艾伦的全部已知信息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:01 - [抖音整治AI不当内容，重点处置利用AI技术换脸、盗声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:08 - [第六届亚洲沙滩运动会在海南省三亚市开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:01 - [美国贸易代表格里尔周五将与欧盟贸易专员讨论数字税问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:43 - [2026一季度新发ETF：83只募资335亿，平均发行规模同比降5.09亿，电力、港股科技等主题成布局重点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:53 - [涨价拉动快递公司业绩，燃油成本仍成隐忧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:05 - [中海油服：一季度归母净利润8.56亿元，同比下滑3.60%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:49 - [湘图古籍数字化成果显著 珍贵典籍“活”化出新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:49 - [群山为“岸” 商贸成“海”：重庆秀山于武陵山腹地开“世界超市”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:06 - [燃油成本飙升，美国航空腰斩2026年盈利预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:07 - [操盘必读：影响股市利好或利空消息_2026年4月24日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:57 - [韩国总统府：谷歌将在韩国新建人工智能园区](http://www.share.kurohicncr.top/Article/details/204791.shtml)
-- 2026-06-29 11:46 - [2026年芒市海关综合技术服务中心预算公开](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [ARR季度环比飙升300%，迅策科技迎戴维斯双击](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:45 - [一季度新疆外送电量同比增长23.42% 创历史同期新高](http://www.share.minike.top/Article/details/02052142.shtml)
-- 2026-06-29 11:48 - [丰田3月全球销量同比下降7.3%，中国销量下降8%](http://www.share.kurohicncr.top/Article/details/041463.shtml)
-- 2026-06-29 11:36 - [珠光控股：进一步延迟刊发2025年全年业绩](http://www.blog.minike.top/Article/details/401237519013.shtml)
-- 2026-06-29 11:58 - [宁夏闽宁镇：短袖订单迎旺季 服装企业赶工忙](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [启境GT7亮相北京国际车展，首发搭载华为乾崑全新一代智能技术](http://www.blog.kurohicncr.top/Article/details/333990137.shtml)
-- 2026-06-29 11:48 - [能源高价推升通胀风险，英债收益率走高](http://www.blog.minike.top/Article/details/7947744.shtml)
-- 2026-06-29 11:58 - [文旅部：将督促属地集中整治龙虎山、长白山、稻城亚丁等景区摆渡车](http://www.share.minike.top/Article/details/772976549094.shtml)
-- 2026-06-29 12:04 - [谷歌DeepMind首席执行官访韩，会见现代汽车和LG集团负责人](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [逐绿而行暖万家——推动能源消费绿色化低碳化的丰台探索](http://www.blog.minike.top/Article/details/4243071315.shtml)
-- 2026-06-29 11:48 - [稳面积 提单产 夯实粮食稳产丰产基础](http://www.share.minike.top/Article/details/271319965261.shtml)
-- 2026-06-29 12:03 - [直播海报：国务院政策例行吹风会：介绍《关于推进服务业扩能提质的意见》有关情况](http://www.blog.kurohicncr.top/Article/details/5238293.shtml)
-- 2026-06-29 11:46 - [非法募资314亿余元 刘必安等十六人非法集资案一审宣判](http://www.blog.kurohicncr.top/Article/details/38951183033.shtml)
+- 2026-06-29 12:07 - [中新健康｜日常做好这些事，可有效降低肿瘤发生风险](http://www.share.kurohicncr.top/Article/details/83772.shtml)
+- 2026-06-29 11:51 - [英特尔股价盘后飙升 强劲业绩展望显示人工智能支出开始奏效](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:03 - [目标落空、渠道收缩、大额分红，迎驾贡酒如何挽救颓势？](http://www.share.kurohicncr.top/Article/details/131754.shtml)
+- 2026-06-29 12:07 - [述评：数字时代 浙江书香何处寻？](http://www.share.minike.top/Article/details/3719832783.shtml)
+- 2026-06-29 12:04 - [牛弹琴：伊朗反击了](http://www.share.kurohicncr.top/Article/details/28847196222.shtml)
+- 2026-06-29 11:52 - [美媒：特朗普称未来36至72小时内“可能”与伊朗谈判](http://www.share.minike.top/Article/details/975605695890.shtml)
+- 2026-06-29 11:58 - [能定位会判断 AI乒乓机器人击败人类高手](http://www.blog.kurohicncr.top/Article/details/26460.shtml)
+- 2026-06-29 11:44 - [第十三批在韩中国人民志愿军烈士遗骸在沈阳安葬](http://www.blog.minike.top/Article/details/8778657251.shtml)
+- 2026-06-29 11:53 - [证监会出手！4只A股被立案！](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:58 - [从“企业找政策”到“政策找企业” 成都“1+N”精准对接会为油气产业链“搭桥铺路”](http://www.share.kurohicncr.top/Article/details/65891843.shtml)
+- 2026-06-29 12:11 - [海港人寿总经理变更：齐美祝任临时负责人，代行总经理职权](http://www.share.kurohicncr.top/Article/details/85912000129.shtml)
+- 2026-06-29 11:42 - [快讯：美股股指期货、现货金银跳水，国际原油快速拉升，WTI原油涨幅扩大至4%](http://www.share.minike.top/Article/details/770631.shtml)
+- 2026-06-29 11:48 - [中国首次记录高魔芋开花 西双版纳植物园上演“巨花”奇观](http://www.share.minike.top/Article/details/026135076.shtml)
+- 2026-06-29 11:46 - [Swift数据显示 美元3月份在国际交易中占比升至51.1%的新高](http://www.share.kurohicncr.top/Article/details/63161931.shtml)
+- 2026-06-29 11:50 - [海尔智家获Pzena Investment Management, LLC增持180.92万股 每股作价约20.99港元](http://www.share.kurohicncr.top/Article/details/197968693.shtml)

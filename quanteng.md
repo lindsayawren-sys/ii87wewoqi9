@@ -1,52 +1,53 @@
-# 高盛：紫金矿业维持“买入”评级 目标价微降至51港元
+# 杭州银行：2025年末不良贷款率0.76%，与上年末持平
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-高盛发布研报称，紫金矿业（02899）2026年首季度业绩符预期，期内录经常性净利润189亿元人民币，同比增88%，达到该行对集团2026年全年预测的24%。集团矿产金及矿产铜产量分别达到该行全年预测的23%及22%，进度大致符合预期。高盛认为紫金当前估值具吸引力，维持对紫金（601899.SH）A股及H股的“买入”评级，H股目标价由52港元下调至51港元，A股目标价从50元人
+4月22日金融一线消息，杭州银行发布2025年度报告。报告期，公司实现营业收入 387.99 亿元，同比增长 1.09%，其中利息净 收入 275.92 亿元，同比增长 12.82%，手续费及佣金净收入 42.07 亿元，同比增长 13.10%；实现归属于公司股东净利润 190.29 亿元，同比增长 12.05%。 截至报告期末，公司不良贷款率 0.76%，与上年末持平；逾期贷
 
 ## 正文
 
-高盛发布研报称，紫金矿业（02899）2026年首季度业绩符预期，期内录经常性净利润189亿元人民币，同比增88%，达到该行对集团2026年全年预测的24%。
+4月22日金融一线消息，杭州银行发布2025年度报告。
 
-集团矿产金及矿产铜产量分别达到该行全年预测的23%及22%，进度大致符合预期。
+报告期，公司实现营业收入 387.99 亿元，同比增长 1.09%，其中利息净 收入 275.92 亿元，同比增长 12.82%，手续费及佣金净收入 42.07 亿元，同比增长 13.10%；实现归属于公司股东净利润 190.29 亿元，同比增长 12.05%。
 
-高盛认为紫金当前估值具吸引力，维持对紫金（601899.SH）A股及H股的“买入”评级，H股目标价由52港元下调至51港元，A股目标价从50元人民币降至49元人民币。
+截至报告期末，公司不良贷款率 0.76%，与上年末持平；逾期贷款与不良贷款比例、逾期 90 天以上贷款与不良贷款比例分别为 55.87%和 45.44%；拨备覆盖率 502.24%。
 
-该行表示，考虑到中东危机导致能源价格上升，上调了黄金及铜矿的单位成本预测，并相应下调今明两年盈利预测1%至3%。
-
-惟该行仍然预期紫金在2026年可维持强劲增长势头，受惠于金、铜价格上升以及产量增长，预测全年经常性利润将增长53%至779亿元人民币。
-
-责任编辑：卢昱君
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-29 11:49 - [辽宁省贸促会经贸代表团在科特迪瓦开展经贸交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:55 - [拉卡拉：“炒股”大赚，主业承压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 12:03 - [航旅纵横：五一叠加春假长线出游升温 上海居国内热门目的地首位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:56 - [时政微周刊丨总书记的一周（4月20日—4月26日）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 12:04 - [从课堂到云端 自媒体重构海外华文教育生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:44 - [巴克莱：美联储本周料将按兵不动，2026年晚些时候可能降息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:54 - [一季度高技术产业实际使用外资同比增长30.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:37 - [四川大巴山“爱心帮帮团”：用“微力量”汇聚“大温暖”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:52 - [亚洲芯片股走高 市场对地缘政治风险的担忧降温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:50 - [现场下单！中国机器人“圈粉”爱尔兰老球员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:55 - [第六届亚洲沙滩运动会在海南省三亚市开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:50 - [美国贸易代表格里尔周五将与欧盟贸易专员讨论数字税问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:03 - [2026一季度新发ETF：83只募资335亿，平均发行规模同比降5.09亿，电力、港股科技等主题成布局重点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:50 - [涨价拉动快递公司业绩，燃油成本仍成隐忧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:03 - [中海油服：一季度归母净利润8.56亿元，同比下滑3.60%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:08 - [湘图古籍数字化成果显著 珍贵典籍“活”化出新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:43 - [群山为“岸” 商贸成“海”：重庆秀山于武陵山腹地开“世界超市”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:44 - [燃油成本飙升，美国航空腰斩2026年盈利预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:56 - [操盘必读：影响股市利好或利空消息_2026年4月24日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:53 - [伊朗总统府官员：与美达成协议“需要时间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:43 - [宏润建设：2025年归母净利润2.8亿元，同比下降1.14%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:58 - [中国选手范俊杰夺得三亚亚沙会首金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:49 - [美国西弗吉尼亚州一工厂发生化学品泄漏 造成两人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 12:10 - [日韩股市集体高开 日股升至纪录新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:06 - [世界地球日｜用我们的力量守护高原生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:02 - [2026年芒市海关综合技术服务中心预算公开](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:56 - [ARR季度环比飙升300%，迅策科技迎戴维斯双击](http://www.blog.minike.top/Article/details/210534114100.shtml)
-- 2026-06-29 11:52 - [一季度新疆外送电量同比增长23.42% 创历史同期新高](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:01 - [丰田3月全球销量同比下降7.3%，中国销量下降8%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:41 - [珠光控股：进一步延迟刊发2025年全年业绩](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [宁夏闽宁镇：短袖订单迎旺季 服装企业赶工忙](http://www.blog.minike.top/Article/details/105099.shtml)
-- 2026-06-29 11:43 - [启境GT7亮相北京国际车展，首发搭载华为乾崑全新一代智能技术](http://www.share.minike.top/Article/details/32788701575.shtml)
-- 2026-06-29 12:00 - [能源高价推升通胀风险，英债收益率走高](http://www.share.kurohicncr.top/Article/details/57542198.shtml)
-- 2026-06-29 11:57 - [文旅部：将督促属地集中整治龙虎山、长白山、稻城亚丁等景区摆渡车](http://www.share.kurohicncr.top/Article/details/7391409298.shtml)
-- 2026-06-29 11:57 - [谷歌DeepMind首席执行官访韩，会见现代汽车和LG集团负责人](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:58 - [逐绿而行暖万家——推动能源消费绿色化低碳化的丰台探索](http://www.share.kurohicncr.top/Article/details/628385517553.shtml)
-- 2026-06-29 11:51 - [稳面积 提单产 夯实粮食稳产丰产基础](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [直播海报：国务院政策例行吹风会：介绍《关于推进服务业扩能提质的意见》有关情况](http://www.share.kurohicncr.top/Article/details/8038166.shtml)
-- 2026-06-29 12:00 - [非法募资314亿余元 刘必安等十六人非法集资案一审宣判](http://www.share.kurohicncr.top/Article/details/12084.shtml)
-- 2026-06-29 12:04 - [中共中央政治局召开会议 分析研究当前经济形势和经济工作 中共中央总书记习近平主持会议](http://www.share.kurohicncr.top/Article/details/09524887106.shtml)
+- 2026-06-29 11:58 - [英特尔股价盘后飙升 强劲业绩展望显示人工智能支出开始奏效](http://www.share.minike.top/Article/details/644762.shtml)
+- 2026-06-29 11:50 - [目标落空、渠道收缩、大额分红，迎驾贡酒如何挽救颓势？](http://www.share.minike.top/Article/details/214483.shtml)
+- 2026-06-29 12:04 - [述评：数字时代 浙江书香何处寻？](http://www.share.kurohicncr.top/Article/details/542281.shtml)
+- 2026-06-29 11:46 - [牛弹琴：伊朗反击了](http://www.share.kurohicncr.top/Article/details/0974572.shtml)
+- 2026-06-29 11:47 - [美媒：特朗普称未来36至72小时内“可能”与伊朗谈判](http://www.share.kurohicncr.top/Article/details/408783818374.shtml)
+- 2026-06-29 11:57 - [能定位会判断 AI乒乓机器人击败人类高手](http://www.share.minike.top/Article/details/8488637586.shtml)
+- 2026-06-29 11:42 - [第十三批在韩中国人民志愿军烈士遗骸在沈阳安葬](http://www.share.kurohicncr.top/Article/details/0333122.shtml)
+- 2026-06-29 12:07 - [证监会出手！4只A股被立案！](http://www.share.minike.top/Article/details/883801881088.shtml)
+- 2026-06-29 11:42 - [从“企业找政策”到“政策找企业” 成都“1+N”精准对接会为油气产业链“搭桥铺路”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [海港人寿总经理变更：齐美祝任临时负责人，代行总经理职权](http://www.blog.minike.top/Article/details/1687378640.shtml)
+- 2026-06-29 11:42 - [快讯：美股股指期货、现货金银跳水，国际原油快速拉升，WTI原油涨幅扩大至4%](http://www.share.minike.top/Article/details/8367027790.shtml)
+- 2026-06-29 12:10 - [中国首次记录高魔芋开花 西双版纳植物园上演“巨花”奇观](http://www.blog.minike.top/Article/details/14865288451.shtml)
+- 2026-06-29 12:06 - [Swift数据显示 美元3月份在国际交易中占比升至51.1%的新高](http://www.blog.kurohicncr.top/Article/details/929495389.shtml)
+- 2026-06-29 11:52 - [海尔智家获Pzena Investment Management, LLC增持180.92万股 每股作价约20.99港元](http://www.share.kurohicncr.top/Article/details/181225767236.shtml)
+- 2026-06-29 11:59 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](http://www.blog.kurohicncr.top/Article/details/5656058.shtml)

@@ -1,61 +1,54 @@
-# 青春，就应该这样！——写在2026年五四青年节到来之际
+# 花旗：中国联通给予“买入”评级 目标价11.2港元
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-作者：关铭闻 历史的册页，又一次定格在“五四”。 “青年者，国家之魂。” “青年兴则国家兴，青年强则国家强。”这个春天，“十五五”规划纲要正式发布，全面建设社会主义现代化国家迎来关键一程。 在这个历史方位，时代对青年人发出这样的叩问： 青年当何为？青年如何为？ 一 欲知大道，必先为史。 ——革命岁月，他们以“觉醒”和“牺牲”铸就青春底色。 “茫茫大陆起风云，举国昏沉岂足云。”1
+花旗发布研报称，中国联通（00762）今年首季业绩逊预期。期内总收入同比下跌0.5%至1，028亿元人民币（下同），较市场预期低1%； EBITDA同比下跌6.6%至243亿元，较市场预期低7%； 纯利同比下跌17.6%至49亿元。营运开支同比增长2.8%，主要受员工成本上升拖累。花旗给予联通H股“买入”评级，目标价11.2港元。责任编辑：卢昱君
 
 ## 正文
 
-作者：关铭闻 历史的册页，又一次定格在“五四”。
+花旗发布研报称，中国联通（00762）今年首季业绩逊预期。
 
-“青年者，国家之魂。
+期内总收入同比下跌0.5%至1，028亿元人民币（下同），较市场预期低1%； EBITDA同比下跌6.6%至243亿元，较市场预期低7%； 纯利同比下跌17.6%至49亿元。
 
-” “青年兴则国家兴，青年强则国家强。
+营运开支同比增长2.8%，主要受员工成本上升拖累。
 
-”这个春天，“十五五”规划纲要正式发布，全面建设社会主义现代化国家迎来关键一程。
+花旗给予联通H股“买入”评级，目标价11.2港元。
 
-在这个历史方位，时代对青年人发出这样的叩问： 青年当何为？
-
-青年如何为？
-
-一 欲知大道，必先为史。
-
-——革命岁月，他们以“觉醒”和“牺牲”铸就青春底色。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:52 - [兆易创新将于5月29日派发末期股息每股0.8555198港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:48 - [交通银行：400亿元二级资本债券（债券通）发行完毕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:55 - [华泰期货：美伊分歧难以弥合，原油市场维持较高的波动率](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:45 - [中肯政商界人士认为零关税举措将为两国合作带来新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:57 - [2026广东时装周（春季）以时尚之力赋能产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:45 - [如何防控蚊媒传染病？专家：清积水、灭成蚊、防叮咬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:56 - [中国心连心化肥将于7月28日派发末期股息每股0.32元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:57 - [澳大利亚拟对科技巨头征收约2%税费 除非达成本地新闻付费协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:48 - [美国政府：白宫晚宴枪手意图刺杀特朗普](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:54 - [秦农银行国有持股占比首超50%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 12:03 - [“十五五”中国将发射风云四号D星 为共建“一带一路”国家提供服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:58 - [华宝基金红利风向标：高股息“倒车接人”？关注低波策略配置价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:45 - [2026年“汉语桥”比利时赛区决赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:47 - [张雪发视频回应力挺余承东，称“拒绝了半个亿的商务合作”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:56 - [国产芯片强势逼空，华宝基金科创芯片ETF（589190）猛攻5%，量价双高！国产替代主线重燃，成份股批量新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:59 - [美以失算！伊朗强硬派全面掌权，温和派靠边站，美伊谈判又熄火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:05 - [“不只是司机的苦日子”——美高油价压力从运输业向消费端蔓延](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 12:03 - [专访IMF世界经济研究部主管：全球增长或受2%“衰退线”挑战，美联储需防通胀预期脱锚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:54 - [伊朗最高领袖、总统、议长、外长同日喊话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 12:09 - [【香港故事】方寸之间 书中蝴蝶——世界读书日走近藏书票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:04 - [三亚亚沙会沙排比赛首日：传统强队集体“速胜”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:10 - [放量大跌！A股多空博弈升级，投资者该怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:09 - [建发物业获FIDELITY FUNDS增持23.9万股 每股作价约2.89港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:04 - [华裔留学生昆明共读书：在文字中“寻根” 在交流中传承](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:06 - [新疆：升级版“新东方快车”启程 海内外游客共赴丝路之旅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:45 - [南宁加快打造面向东盟的“新茶饮之都”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:43 - [特斯拉第三代人形机器人预计年中发布，三季度启动正式投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:43 - [小城游火了！这些“小而美”的城市性价比高、体验感强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:52 - [抗美援朝老战士后代带糖迎接志愿军英烈回家：我想让他们尝一下 我们今天的甜滋滋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:40 - [高市称为长期战争做好准备，外交部：日本是不是要重蹈历史覆辙？](http://www.blog.minike.top/Article/details/4517633503.shtml)
-- 2026-06-29 11:44 - [南华早报出版人谭卫儿：应营造良好舆论环境，为各领域合作创造有利条件](http://www.share.kurohicncr.top/Article/details/7233009109.shtml)
-- 2026-06-29 11:40 - [“机器人大牛股”中坚科技突遭证监会立案，近2万股民或可索赔](http://www.blog.kurohicncr.top/Article/details/338350857129.shtml)
-- 2026-06-29 12:03 - [受气象不佳影响 “两马”航线将双向停航](http://www.blog.kurohicncr.top/Article/details/9794479.shtml)
-- 2026-06-29 11:44 - [探访武汉都市圈花展：近千种花卉盛放 12城共绘春韵](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [壁仞科技午前涨超5% 壁砺™166系列产品完成DeepSeek-V4适配验证与优化](http://www.blog.kurohicncr.top/Article/details/7551361.shtml)
-- 2026-06-29 11:54 - [北京平谷打造农业中关村人才综合改革试验区 多举措激励创新创业](http://www.share.minike.top/Article/details/862240.shtml)
-- 2026-06-29 11:54 - [【百万庄小课堂】真会被气出结节吗？专家解答女性怎么爱护乳腺](http://www.blog.minike.top/Article/details/65871588.shtml)
-- 2026-06-29 11:41 - [壳牌164亿美元收购加拿大ARC Resources，押注蒙特尼页岩气扩张](http://www.share.minike.top/Article/details/307489442.shtml)
-- 2026-06-29 12:02 - [浙江安吉：跨区域公共法律服务协作站让民族同胞安心就业](http://www.share.kurohicncr.top/Article/details/489220950785.shtml)
-- 2026-06-29 11:37 - [“鸟中大熊猫”彩鹮首次现身云南云县](http://www.blog.kurohicncr.top/Article/details/2194391737.shtml)
-- 2026-06-29 12:05 - [东珠生态业绩预告更正不及时，受损股民可索赔](http://www.share.minike.top/Article/details/594606675665.shtml)
-- 2026-06-29 11:48 - [“安徽酒王”倪永培迎“交班”考题：儿子神秘“隐退” ，澳籍儿媳悄然走到台前](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:03 - [三亚亚沙会男子沙滩卡巴迪：伊朗队夺冠](http://www.share.kurohicncr.top/Article/details/13980018204.shtml)
-- 2026-06-29 11:39 - [爱尔兰都柏林大学足球队时隔50年重访韶山：中国一如既往热情友好](http://www.blog.minike.top/Article/details/9334829.shtml)
+- 2026-06-29 11:47 - [达能销售额增长，美国市场重拾增长动力](http://www.blog.kurohicncr.top/Article/details/388372.shtml)
+- 2026-06-29 11:49 - [中办、国办：支持发展绿色低碳、集约循环的算力设施](http://www.share.kurohicncr.top/Article/details/832268.shtml)
+- 2026-06-29 11:54 - [ASMPT盘中涨超7% 首季盈利及第二季展望均超预期](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:04 - [西安检察探索知识产权保护“立体解题”新路径](http://www.share.kurohicncr.top/Article/details/11397771085.shtml)
+- 2026-06-29 12:08 - [事关节能降碳工作 中办、国办重磅文件对外发布](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [福建宁德启动“一句话见民生”机制 专解民众身边“小而急”难题](http://www.share.minike.top/Article/details/1747279963.shtml)
+- 2026-06-29 12:03 - [多地学子齐聚沈阳 共同迎接第十三批志愿军英烈归国](http://www.blog.minike.top/Article/details/6194153.shtml)
+- 2026-06-29 12:07 - [贵州印江：半世纪人鸟相依 共绘生态宜居新家园](http://www.blog.kurohicncr.top/Article/details/98973128.shtml)
+- 2026-06-29 11:46 - [在民进党高压下 为何一直坚持说“我是中国人” 吕礼诗霸气回应](http://www.blog.minike.top/Article/details/119869.shtml)
+- 2026-06-29 11:56 - [外交部：中方敦促美方停止助台巩固所谓“邦交”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [英伟达参投AI公司Vast Data，估值达300亿美元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:50 - [富瑞：紫金矿业给予“买入”评级 目标价49.10港元](http://www.blog.kurohicncr.top/Article/details/315060212.shtml)
+- 2026-06-29 12:01 - [笔墨承文脉 上海市文史研究馆推出《王劼音卷》](http://www.blog.kurohicncr.top/Article/details/49314.shtml)
+- 2026-06-29 12:01 - [买理财险说好随用随取，到期才发现要105岁才能取本金](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:04 - [“瑞士制造”不等于瑞士制造？瑞士联邦知识产权局答一财](http://www.share.kurohicncr.top/Article/details/3644761.shtml)

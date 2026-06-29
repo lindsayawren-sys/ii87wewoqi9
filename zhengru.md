@@ -1,58 +1,61 @@
-# 越来越多中国茶饮等品牌开启新一轮出海热潮 外交部回应
+# 飙涨11倍！紫金矿业悄然炼成“锂”想版图
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-中新网北京4月28日电 (记者 黄钰钦 曾玥)中国外交部发言人林剑28日主持例行记者会。 有记者提问：近日多家外媒报道，越来越多中国茶饮、火锅、运动等品牌开启新一轮出海热潮。报道认为，中国企业不仅把产品销售到海外，而且以技术、设计、供应链效率、本地化服务等赢得外国民众青睐，致力于打造具有全球辨识度的品牌。发言人对此有何评论？ 林剑：近年来，中国品牌凭借卓越品质、创新科技和兼具文
+界面新闻记者 | 田鹤琪 在金价与铜价双双飙升的背景下，紫金矿业（601899.SH）交出了一份亮眼的一季度成绩单。这并非只是属于传统贵金属的狂欢。财报显示，该公司碳酸锂业务正呈现爆发式增长，标志着这家矿业巨头正加速构建新能源时代的“白色石油”版图。 今年一季度，紫金矿业实现营业收入985亿元，同比增长25%；归母净利润201亿元，同比增长98%。这是该公司季度利润首次突破20
 
 ## 正文
 
-中新网北京4月28日电 (记者 黄钰钦 曾玥)中国外交部发言人林剑28日主持例行记者会。
+界面新闻记者 | 田鹤琪 在金价与铜价双双飙升的背景下，紫金矿业（601899.SH）交出了一份亮眼的一季度成绩单。
 
-有记者提问：近日多家外媒报道，越来越多中国茶饮、火锅、运动等品牌开启新一轮出海热潮。
+这并非只是属于传统贵金属的狂欢。
 
-报道认为，中国企业不仅把产品销售到海外，而且以技术、设计、供应链效率、本地化服务等赢得外国民众青睐，致力于打造具有全球辨识度的品牌。
+财报显示，该公司碳酸锂业务正呈现爆发式增长，标志着这家矿业巨头正加速构建新能源时代的“白色石油”版图。
 
-发言人对此有何评论？
+今年一季度，紫金矿业实现营业收入985亿元，同比增长25%；归母净利润201亿元，同比增长98%。
 
-林剑：近年来，中国品牌凭借卓越品质、创新科技和兼具文化温度的设计，在全球市场广获认可。
+这是该公司季度利润首次突破200亿。
 
-它们为各国消费者带来了更丰富、优质的选择，也成为各国民众观察中国、感知中国的鲜活载体。
+2025年年末，紫金矿业完成了重要的人事交接，副董事长兼总裁邹来昌升任董事长，这也是其履新后交出的首份业绩答卷。
 
-从代工加工到自主研发，从规模扩张到价值深耕，从借鉴“洋元素”到弘扬“民族风”，中国以充沛的创新能力、市场活力与文化张力推动“中国制造”换挡升级，以开放合作拥抱全球市场。
+今年一季度，该公司实现矿产金23.5吨，同比增加23%；实现矿产铜26万吨，同比下降9.9%，主要因卡莫阿-卡库拉铜矿减产影响。
 
-中国品牌成为中国品质的代言人，是中国发展利好世界的生动注脚。
+综合毛利率36.33%，同比提升13.44个百分点，矿山毛利率更是高达71.01%。
 
 ## 相关推荐
 
-- 2026-06-29 11:54 - [迎来24项“国家红利”，综保区加速扩能提质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:39 - [中国再保险：中再寿险一季度净亏损2.51亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:48 - [小新带你看亚沙：这个展馆为何吸引老外扎堆打卡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:06 - [软银携手科技巨头，打造5000亿美元AI数据中心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:52 - [我国拟修订农业法 增加建立粮食安全监测预警制度等内容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:56 - [“全球AI光算力第一股”诞生 上海“芯片先锋队”再添新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:52 - [中国人民银行茂名市分行：普惠金改品牌影响力持续扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:41 - [深圳莲塘口岸单日出入境人次再攀新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:59 - [原青海省地方金融监督管理局一级巡视员吴春庆被开除党籍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:51 - [视频 | 理财亏716万元，金融街证券被判赔偿10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:49 - [姑苏城外瑞光塔 夜半灯火照客游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:36 - [1.8米杖头木偶亮相厦门“屿见闽南” 16米长绸翩舞引惊呼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:52 - [南京银行：2025年净利润为218.07亿元，同比增长8.08%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:48 - [（寻味中华｜书香）全民阅读续文脉 解缙故事咏流传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:46 - [从《黑神话：悟空》到“佛小伴”：山西织密新兴领域知识产权保护网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:58 - [Adobe公布250亿美元回购计划 旨在向投资者传递信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:56 - [成都双流“国字号”立法联系点运行一周年：民意搭上国家立法“直通车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:03 - [美国司法部将医用大麻重新归类为低危险性毒品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:49 - [广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:58 - [常熟银行：2025年实现营业收入116.19亿元，同比增长6.51%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:51 - [国际能源署署长：世界正面临史上最严重的能源安全威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:03 - [台湾作家新作《往日食光》书写家常风味 蕴藏两岸记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:55 - [特斯拉将对HW3车辆进行改造](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:10 - [涉恒大财务造假，香港证监会和会财局处罚落地，普华永道回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 12:09 - [广东茂名港口岸扩大对外开放通过国家验收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:49 - [习言道｜把“义乌发展经验”进一步总结好运用好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:50 - [育碧官宣：《刺客信条：黑旗》重制版7月9日发售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:52 - [时政微周刊丨总书记的一周（4月20日—4月26日）](http://www.share.kurohicncr.top/Article/details/79477.shtml)
-- 2026-06-29 11:56 - [从课堂到云端 自媒体重构海外华文教育生态](http://www.blog.kurohicncr.top/Article/details/8962828624.shtml)
-- 2026-06-29 11:56 - [巴克莱：美联储本周料将按兵不动，2026年晚些时候可能降息](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [一季度高技术产业实际使用外资同比增长30.7%](http://www.blog.kurohicncr.top/Article/details/70789469999.shtml)
-- 2026-06-29 11:53 - [四川大巴山“爱心帮帮团”：用“微力量”汇聚“大温暖”](http://www.blog.minike.top/Article/details/881913533946.shtml)
-- 2026-06-29 11:49 - [亚洲芯片股走高 市场对地缘政治风险的担忧降温](http://www.share.minike.top/Article/details/14883824747.shtml)
-- 2026-06-29 11:51 - [现场下单！中国机器人“圈粉”爱尔兰老球员](http://www.share.kurohicncr.top/Article/details/3916071767.shtml)
-- 2026-06-29 11:51 - [新兴市场“越涨越便宜”：亚洲芯片三雄引领的估值悖论](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:51 - [关于白宫记者晚宴枪击案嫌疑人科尔・艾伦的全部已知信息](http://www.share.minike.top/Article/details/84795204.shtml)
-- 2026-06-29 11:50 - [002779、603360，被证监会立案！](http://www.blog.minike.top/Article/details/6122916491.shtml)
-- 2026-06-29 12:05 - [台湾新北市长民调结果出炉，蓝白共推李四川参选](http://www.blog.kurohicncr.top/Article/details/97848.shtml)
-- 2026-06-29 12:05 - [患恶性肿瘤理赔遭拒 和谐健康被指竟多次“恶意”拒赔](http://www.share.kurohicncr.top/Article/details/229897.shtml)
-- 2026-06-29 11:39 - [外交部评白宫记协年度晚宴枪击事件：一贯反对和谴责非法暴力行为](http://www.share.minike.top/Article/details/513012.shtml)
-- 2026-06-29 11:46 - [珠江流域进一步强化节约用水管理工作](http://www.blog.minike.top/Article/details/927226296890.shtml)
-- 2026-06-29 11:43 - [“五一”假期预计全国日均租车量将超70万辆](http://www.blog.minike.top/Article/details/3159868.shtml)
+- 2026-06-29 12:00 - [涨价拉动快递公司业绩，燃油成本仍成隐忧](http://www.blog.kurohicncr.top/Article/details/14787100059.shtml)
+- 2026-06-29 11:52 - [中海油服：一季度归母净利润8.56亿元，同比下滑3.60%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [湘图古籍数字化成果显著 珍贵典籍“活”化出新](http://www.blog.minike.top/Article/details/311327.shtml)
+- 2026-06-29 11:51 - [群山为“岸” 商贸成“海”：重庆秀山于武陵山腹地开“世界超市”](http://www.share.kurohicncr.top/Article/details/71899103.shtml)
+- 2026-06-29 11:59 - [燃油成本飙升，美国航空腰斩2026年盈利预期](http://www.share.kurohicncr.top/Article/details/1649511074.shtml)
+- 2026-06-29 11:55 - [操盘必读：影响股市利好或利空消息_2026年4月24日_财经新闻](http://www.blog.minike.top/Article/details/8048450175.shtml)
+- 2026-06-29 12:09 - [伊朗总统府官员：与美达成协议“需要时间”](http://www.blog.kurohicncr.top/Article/details/1786527564.shtml)
+- 2026-06-29 12:00 - [宏润建设：2025年归母净利润2.8亿元，同比下降1.14%](http://www.share.kurohicncr.top/Article/details/4152637029.shtml)
+- 2026-06-29 12:11 - [中国选手范俊杰夺得三亚亚沙会首金](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [美国西弗吉尼亚州一工厂发生化学品泄漏 造成两人死亡](http://www.share.kurohicncr.top/Article/details/18276372.shtml)
+- 2026-06-29 12:10 - [日韩股市集体高开 日股升至纪录新高](http://www.share.minike.top/Article/details/19934103522.shtml)
+- 2026-06-29 11:56 - [世界地球日｜用我们的力量守护高原生态](http://www.blog.minike.top/Article/details/77345808299.shtml)
+- 2026-06-29 11:44 - [必维国际检验集团设立新亚洲中心，扩大海上服务能力](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [一季度ETF市场回顾：四只沪深300ETF缩水6300亿，黄金ETF、短融ETF成“避风港”，新发产品扎堆电池港股](http://www.blog.kurohicncr.top/Article/details/170220465241.shtml)
+- 2026-06-29 12:06 - [涨幅超A股，四大行H股盘中集体创新高，谁在买？](https://github.com/lisacumin64-arch)

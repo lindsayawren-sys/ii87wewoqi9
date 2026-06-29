@@ -1,57 +1,48 @@
-# 姑苏城外瑞光塔 夜半灯火照客游
+# 特斯拉将对HW3车辆进行改造
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-中新网苏州4月27日电 (记者 钟升)皓月东升，苏州城中的灯火次第点亮，夜幕中的盘门褪去了日间的古朴，始建于宋代的瑞光塔静谧地绽放着华彩。近年来，苏州创新夜游业态，在盘门景区推出“古韵+新潮”“观赏+体验”的特色模式，为这千年不变的风景涂抹上不一样的色彩。 “月落乌啼霜满天，江枫渔火对愁眠。”唐朝张继的一首《枫桥夜泊》，令一幅略显清冷的苏州夜景流传千古。如今，伴着夜色徜徉于曾经
+特斯拉表示，搭载Hardware 3的老款车辆若不进行升级，将无法支持无监督版FSD，并计划设立“微型工厂”用于折价置换和硬件改造升级至HW4；HW3车主可能需要更换计算机和摄像头。责任编辑：张俊 SF065
 
 ## 正文
 
-中新网苏州4月27日电 (记者 钟升)皓月东升，苏州城中的灯火次第点亮，夜幕中的盘门褪去了日间的古朴，始建于宋代的瑞光塔静谧地绽放着华彩。
+特斯拉表示，搭载Hardware 3的老款车辆若不进行升级，将无法支持无监督版FSD，并计划设立“微型工厂”用于折价置换和硬件改造升级至HW4；HW3车主可能需要更换计算机和摄像头。
 
-近年来，苏州创新夜游业态，在盘门景区推出“古韵+新潮”“观赏+体验”的特色模式，为这千年不变的风景涂抹上不一样的色彩。
-
-“月落乌啼霜满天，江枫渔火对愁眠。
-
-”唐朝张继的一首《枫桥夜泊》，令一幅略显清冷的苏州夜景流传千古。
-
-如今，伴着夜色徜徉于曾经的姑苏城外，瑞光塔化身画卷，光影变作画笔，吴越争霸、唐宋烟雨、明清市井等逐一“绘制”于塔身，将古城兴衰娓娓道来。
-
-各色古风NPC穿梭于景区，沉浸式的体验打破了传统夜游的单向观赏模式，令游人仿佛穿越时空，于一个个历史现场探寻江南的过往。
-
-塔下，青衣紫髯的“孙权”询问着游客三国往事，并为答对者送上奖励；池中，评弹演员乘着扁舟低眉信手续续弹，以吴侬软语唱和着江南烟雨；台上，雄姿英发的“周瑜”对着嫁衣翩翩的“小乔”，令人在故国神游中“遥想公瑾当年，小乔初嫁了”。
-
-一如苏州城“双面绣”的美誉，苏州夜游经济正呈现出“古韵”与“潮流”双轮驱动格局。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 11:36 - [台湾导演林家亿：AI短片“雪山救狐狸”在岛内爆火，源于两岸共同记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:54 - [GTC泽汇:尼日利亚炼化驱动转型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:37 - [我国拟修改水法提升水安全保障能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:39 - [APEC中国年，中美互动预期几何？中方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:55 - [“探店”网红白冰偷税被查 追缴并罚款共计超1891万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:03 - [大美边疆看我家丨内蒙古锡林浩特：百鸟翔集绘春图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:56 - [陈旭：日方应恪守中日四个政治文件 勿因错误言论干扰APEC合作环境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:36 - [湖北：“五一”假期文旅融合主题产品焕新登场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:57 - [生态环境部：一季度我国环境空气质量总体改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:54 - [收评：国内期货主力合约涨多跌少 多晶硅跌近7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:49 - [王兆星同志逝世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:55 - [摩根大通上调日经指数年底目标至70000点，因人工智能热潮及日元走软](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:01 - [邦达亚洲:经济数据表现疲软 欧元小幅收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:49 - [杭州一季度GDP6109亿元 同比增长5.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:51 - [人民领袖｜黄土地上的生态守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:50 - [海港人寿首度调将：乔宁到龄辞任，“精算背景”齐美祝拟任总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:56 - [中办 国办发布关于更高水平更高质量做好节能降碳工作的意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:55 - [万里同心 共护山河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:10 - [中播数据公布于4月23日上午起复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:43 - [理财公司渐成网下“打新”新势力，在深交所打新报价量激增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 12:07 - [新西兰财长称经济复苏延缓 但并未脱离轨道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:54 - [舰艇留言板上贴满“望台湾早日回归” 吕礼诗：这个愿望定要成真](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:43 - [1-3月中国销售彩票1439.59亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:51 - [杭州银行：2025年末不良贷款率0.76%，与上年末持平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:02 - [世界地球日山西自然博物馆开启系列展览探寻地球血脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:05 - [西藏社科院举办专题研讨：以法治力量夯实民族团结进步根基](http://www.share.minike.top/Article/details/654611.shtml)
-- 2026-06-29 11:44 - [伊朗战事推高油价，英国石油利润翻倍、大幅超出预期](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:03 - [长江“微笑天使”又添丁，见证江苏生态之变](http://www.share.minike.top/Article/details/386764.shtml)
-- 2026-06-29 11:55 - [春到桑干河](http://www.blog.minike.top/Article/details/525428.shtml)
-- 2026-06-29 11:59 - [一季度浙江算力中心用电规模和增速创新高](http://www.share.minike.top/Article/details/509460028051.shtml)
-- 2026-06-29 11:43 - [墨西哥比索走稳，股市受美伊僵局影响小幅回落](http://www.blog.minike.top/Article/details/41577.shtml)
-- 2026-06-29 11:40 - [甘肃银行空前分红17.78亿为归母净利三倍 营收两连降零售贷款不良率4.16%压力增大](http://www.share.kurohicncr.top/Article/details/683557931.shtml)
-- 2026-06-29 11:55 - [互联网广告要跳出“流量至上”误区](http://www.share.kurohicncr.top/Article/details/318435123600.shtml)
-- 2026-06-29 11:59 - [2026第二届飞剑“大使杯”国际板球邀请赛在京举办](http://www.blog.kurohicncr.top/Article/details/22427368181.shtml)
-- 2026-06-29 12:02 - [上海定制何以走红？外籍人士为何偏爱这份“专属质感”](http://www.blog.minike.top/Article/details/43442.shtml)
-- 2026-06-29 12:06 - [中国黄河流域137处国家级自然保护区优良率达99.27％](http://www.share.kurohicncr.top/Article/details/10576162110.shtml)
-- 2026-06-29 11:39 - [豆粕：周期无声，趋势有痕 —— 豆粕多空拉锯](http://www.share.minike.top/Article/details/6553260016.shtml)
-- 2026-06-29 11:40 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [伪满皇宫博物院举办吉林省首个海事文化科普展](http://www.blog.kurohicncr.top/Article/details/48396249.shtml)
-- 2026-06-29 11:39 - [科创综指，历史新高！](http://www.blog.minike.top/Article/details/4692643.shtml)
+- 2026-06-29 11:50 - [减肥药意外带火豌豆扁豆，美国农民弃麦种豆](http://www.blog.kurohicncr.top/Article/details/624536336401.shtml)
+- 2026-06-29 12:03 - [80.3%受访者看好相关政策提升大众阅读兴趣](http://www.blog.minike.top/Article/details/83690.shtml)
+- 2026-06-29 12:00 - [南航否认在飞机上闹事女乘客为“南航空姐”](http://www.share.kurohicncr.top/Article/details/041316554.shtml)
+- 2026-06-29 12:11 - [国际刑事法院声称要对杜特尔特进行审判](http://www.share.kurohicncr.top/Article/details/376500.shtml)
+- 2026-06-29 12:05 - [上交所举办东南亚专题国际路演活动](http://www.share.kurohicncr.top/Article/details/9200128.shtml)
+- 2026-06-29 12:05 - [ISS建议ConocoPhillips股东支持独立董事主席提案](http://www.share.kurohicncr.top/Article/details/59781985131.shtml)
+- 2026-06-29 11:42 - [浙商银行金华分行被罚169.3万元：违反金融统计相关规定等](http://www.share.kurohicncr.top/Article/details/408664.shtml)
+- 2026-06-29 12:09 - [国家国际发展合作署、中国气象局与世界气象组织签署关于推动落实全球发展倡议的谅解备忘录](http://www.blog.kurohicncr.top/Article/details/00771178944.shtml)
+- 2026-06-29 11:47 - [上海银行：2025年净息差1.16%，同比微降0.01个百分点](http://www.share.minike.top/Article/details/01495456824.shtml)
+- 2026-06-29 12:11 - [（乡村行·看振兴）茶旅融合叠加整村运营 大别山茶村焕新生](http://www.share.minike.top/Article/details/189748.shtml)
+- 2026-06-29 11:45 - [一季度市场监管部门查处商标侵权、假冒专利案件0.7万件](http://www.share.minike.top/Article/details/9631369.shtml)
+- 2026-06-29 11:46 - [八达岭夜长城将于4月底在京亮相 升级沉浸式互动体验](http://www.share.kurohicncr.top/Article/details/01204.shtml)
+- 2026-06-29 12:03 - [军号再次吹响，这次是接他们回家](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [煤炭股午后逆势上扬 兖煤澳大利亚及兖矿能源均涨超4%](http://www.blog.kurohicncr.top/Article/details/53551.shtml)
+- 2026-06-29 11:55 - [文件显示SpaceX获200亿美元过桥贷款，对其债务进行再融资](http://www.blog.kurohicncr.top/Article/details/30912718578.shtml)

@@ -1,56 +1,52 @@
-# 2026年3月广东省进口重点商品总值表（人民币值）
+# 抖音整治AI不当内容，重点处置利用AI技术换脸、盗声
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-万斯先撤、总统跌倒？ 特朗普回应晚宴撤离细节从一碗烟火到一句问候，我们和东盟邻居的“朋友圈”有多暖？“700台机器没日没夜打，月赚10万”，年轻人开始靠3D打印“搞钱”杨某某每天90元扮流浪女 “深山救助”视频摆拍细节公开“我们第一次来，太震撼了”，老外涌入北京车展采茶专列、球迷专列，旅游列车扎堆上新抢占“五一”市场如何从萨迦寺历史看中华民族大一统？推动海洋经济高质量发展 加快
+新浪科技讯 4月23日下午消息，近日，抖音发布“AI生成不当内容及侵犯他人权益”的专项治理公告。公告对外披露了阶段性治理成效，截至目前已累计下架AI侵权视频超53.8万条，处罚违规账号4000余个，同时明确了重点整治场景与长效管控举措。平台将重点处置利用AI技术换脸、盗声，利用AI生成内容仿冒、蹭热他人等典型违规行为。抖音相关负责人也表示，平台会持续投入提升相关治理能力，但需要
 
 ## 正文
 
-万斯先撤、总统跌倒？
+新浪科技讯 4月23日下午消息，近日，抖音发布“AI生成不当内容及侵犯他人权益”的专项治理公告。
 
-特朗普回应晚宴撤离细节从一碗烟火到一句问候，我们和东盟邻居的“朋友圈”有多暖？
+公告对外披露了阶段性治理成效，截至目前已累计下架AI侵权视频超53.8万条，处罚违规账号4000余个，同时明确了重点整治场景与长效管控举措。
 
-“700台机器没日没夜打，月赚10万”，年轻人开始靠3D打印“搞钱”杨某某每天90元扮流浪女 “深山救助”视频摆拍细节公开“我们第一次来，太震撼了”，老外涌入北京车展采茶专列、球迷专列，旅游列车扎堆上新抢占“五一”市场如何从萨迦寺历史看中华民族大一统？
+平台将重点处置利用AI技术换脸、盗声，利用AI生成内容仿冒、蹭热他人等典型违规行为。
 
-推动海洋经济高质量发展 加快建设海洋强国1.65亿实时人口筑牢广东发展根基从“中国游”到“中式生活”：外国人眼中的中国魅力与巨变餐桌上的泾源风物诗：一块黄牛肉的乡野与醇厚被忽视的“口腔杀手”，正悄悄盯上年轻人生猪价格创7年多新低 零售市场和居民消费体验有啥变化巴基斯坦记者：新疆“强迫劳动”何在？
+抖音相关负责人也表示，平台会持续投入提升相关治理能力，但需要承认，当前行业仍普遍面临AI生成内容判断难、AI声音识别能力不足等难题。
 
-义乌“因地制宜”发展的启示演员陈丽君晋升副主任 戏剧青年人才如何蓄力成长？
-
-太阳今日爆发X2.4级耀斑，有何影响？
-
-为何说中国全面推广普及国家通用语言文字和保护少数民族语言文化并行不悖？
-
-内蒙古锡林浩特：百鸟翔集绘春图12位志愿军烈士在沈阳安葬 鸣枪12响致敬志愿军烈士寻根黄帝故里！
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 11:56 - [一季度高技术产业实际使用外资同比增长30.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:40 - [四川大巴山“爱心帮帮团”：用“微力量”汇聚“大温暖”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:51 - [亚洲芯片股走高 市场对地缘政治风险的担忧降温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:42 - [现场下单！中国机器人“圈粉”爱尔兰老球员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:52 - [新兴市场“越涨越便宜”：亚洲芯片三雄引领的估值悖论](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:50 - [关于白宫记者晚宴枪击案嫌疑人科尔・艾伦的全部已知信息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:37 - [002779、603360，被证监会立案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:36 - [台湾新北市长民调结果出炉，蓝白共推李四川参选](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:56 - [患恶性肿瘤理赔遭拒 和谐健康被指竟多次“恶意”拒赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:38 - [外交部评白宫记协年度晚宴枪击事件：一贯反对和谴责非法暴力行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:03 - [群山为“岸” 商贸成“海”：重庆秀山于武陵山腹地开“世界超市”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:04 - [燃油成本飙升，美国航空腰斩2026年盈利预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:05 - [操盘必读：影响股市利好或利空消息_2026年4月24日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 12:01 - [伊朗总统府官员：与美达成协议“需要时间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:54 - [宏润建设：2025年归母净利润2.8亿元，同比下降1.14%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:59 - [中国选手范俊杰夺得三亚亚沙会首金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:03 - [美国西弗吉尼亚州一工厂发生化学品泄漏 造成两人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:03 - [日韩股市集体高开 日股升至纪录新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:05 - [世界地球日｜用我们的力量守护高原生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:43 - [必维国际检验集团设立新亚洲中心，扩大海上服务能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 12:00 - [一季度ETF市场回顾：四只沪深300ETF缩水6300亿，黄金ETF、短融ETF成“避风港”，新发产品扎堆电池港股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:54 - [涨幅超A股，四大行H股盘中集体创新高，谁在买？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:59 - [启境GT7亮相北京国际车展，首发搭载华为乾崑全新一代智能技术](http://www.blog.kurohicncr.top/Article/details/756133750180.shtml)
-- 2026-06-29 12:04 - [能源高价推升通胀风险，英债收益率走高](http://www.share.kurohicncr.top/Article/details/02661032880.shtml)
-- 2026-06-29 11:45 - [文旅部：将督促属地集中整治龙虎山、长白山、稻城亚丁等景区摆渡车](http://www.blog.kurohicncr.top/Article/details/8733310239.shtml)
-- 2026-06-29 11:54 - [谷歌DeepMind首席执行官访韩，会见现代汽车和LG集团负责人](http://www.blog.minike.top/Article/details/42446.shtml)
-- 2026-06-29 11:40 - [逐绿而行暖万家——推动能源消费绿色化低碳化的丰台探索](http://www.share.kurohicncr.top/Article/details/52024825033.shtml)
-- 2026-06-29 11:59 - [稳面积 提单产 夯实粮食稳产丰产基础](http://www.share.kurohicncr.top/Article/details/10295.shtml)
-- 2026-06-29 11:52 - [直播海报：国务院政策例行吹风会：介绍《关于推进服务业扩能提质的意见》有关情况](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:41 - [非法募资314亿余元 刘必安等十六人非法集资案一审宣判](http://www.share.kurohicncr.top/Article/details/011803622749.shtml)
-- 2026-06-29 11:48 - [中共中央政治局召开会议 分析研究当前经济形势和经济工作 中共中央总书记习近平主持会议](http://www.share.kurohicncr.top/Article/details/1099355.shtml)
-- 2026-06-29 11:52 - [华裔Z视界｜在行走间读懂中国文化 华裔青年爱上中式养生](http://www.share.minike.top/Article/details/10552396.shtml)
-- 2026-06-29 11:41 - [日元回吐部分涨幅 此前日本央行行长未发出明确的加息信号](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:48 - [今年“五一”假期小客车上高速继续免收通行费](http://www.share.minike.top/Article/details/887684916.shtml)
-- 2026-06-29 11:49 - [《爱情没有神话》开播 唐嫣出演亦舒笔下“独身女人”](http://www.share.minike.top/Article/details/25497685.shtml)
-- 2026-06-29 11:54 - [姚高员辞去杭州市市长职务](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [法学大先生·张晋藩](http://www.blog.kurohicncr.top/Article/details/246725461.shtml)
+- 2026-06-29 11:51 - [第十三批在韩中国人民志愿军烈士遗骸在沈阳安葬](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [证监会出手！4只A股被立案！](http://www.blog.kurohicncr.top/Article/details/830313.shtml)
+- 2026-06-29 11:44 - [从“企业找政策”到“政策找企业” 成都“1+N”精准对接会为油气产业链“搭桥铺路”](http://www.share.kurohicncr.top/Article/details/80742842.shtml)
+- 2026-06-29 12:09 - [海港人寿总经理变更：齐美祝任临时负责人，代行总经理职权](http://www.share.minike.top/Article/details/44482004.shtml)
+- 2026-06-29 12:06 - [快讯：美股股指期货、现货金银跳水，国际原油快速拉升，WTI原油涨幅扩大至4%](http://www.share.minike.top/Article/details/730616890043.shtml)
+- 2026-06-29 11:45 - [中国首次记录高魔芋开花 西双版纳植物园上演“巨花”奇观](http://www.blog.minike.top/Article/details/81611167.shtml)
+- 2026-06-29 11:53 - [Swift数据显示 美元3月份在国际交易中占比升至51.1%的新高](http://www.share.minike.top/Article/details/270697029138.shtml)
+- 2026-06-29 11:53 - [海尔智家获Pzena Investment Management, LLC增持180.92万股 每股作价约20.99港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [华勤技术首挂上市 早盘高开13.13%公司为全栈智能产品ODM平台](http://www.share.kurohicncr.top/Article/details/21593029175.shtml)
+- 2026-06-29 11:59 - [ABB上调业绩指引、股价一度涨超5%](http://www.blog.kurohicncr.top/Article/details/230781.shtml)
+- 2026-06-29 11:45 - [突发！香港证监会与普华永道就恒大财务造假达成赔偿协议，10亿港元赔付受损股东](http://www.share.kurohicncr.top/Article/details/700502222682.shtml)
+- 2026-06-29 11:50 - [大美边疆看我家丨云南漾濞：来“二月十九街”买扫帚啦！](http://www.blog.minike.top/Article/details/0760300889.shtml)
+- 2026-06-29 12:03 - [A股收评：超4000只个股飘绿，三大指数集体收跌](http://www.share.minike.top/Article/details/8855864245.shtml)
+- 2026-06-29 11:56 - [隔夜逼近1.2%、资金利率持续倒挂，超宽松还能持续多久？](http://www.share.minike.top/Article/details/67950.shtml)

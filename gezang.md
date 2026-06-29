@@ -1,44 +1,57 @@
-# 中国再保险：中再寿险一季度净亏损2.51亿元
+# （寻味中华｜书香）全民阅读续文脉 解缙故事咏流传
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-4月28日金融一线消息，中国再保险在港交所发布公告称，该公司附属公司中国人寿再保险有限责任公司（中再寿险）截至2026年3月31日止三个月取得营业收入人民币24.79亿元，净亏损人民币2.51亿元。 责任编辑：王馨茹
+中新社江西吉水4月23日电 题：全民阅读续文脉 解缙故事咏流传 中新社记者 王修君 吴鹏泉 4月23日是第31个“世界读书日”。正值中国首部全民阅读领域行政法规《全民阅读促进条例》施行后的首个“全民阅读活动周”，从城市书房到乡村书屋，神州大地书香氤氲。 2026年“全民阅读活动周”于4月20日至26日举行，提倡开展形式丰富多样的全民阅读活动。如今，阅读已不局限于书本，而是以更有
 
 ## 正文
 
-4月28日金融一线消息，中国再保险在港交所发布公告称，该公司附属公司中国人寿再保险有限责任公司（中再寿险）截至2026年3月31日止三个月取得营业收入人民币24.79亿元，净亏损人民币2.51亿元。
+中新社江西吉水4月23日电 题：全民阅读续文脉 解缙故事咏流传 中新社记者 王修君 吴鹏泉 4月23日是第31个“世界读书日”。
 
-责任编辑：王馨茹
+正值中国首部全民阅读领域行政法规《全民阅读促进条例》施行后的首个“全民阅读活动周”，从城市书房到乡村书屋，神州大地书香氤氲。
+
+2026年“全民阅读活动周”于4月20日至26日举行，提倡开展形式丰富多样的全民阅读活动。
+
+如今，阅读已不局限于书本，而是以更有趣的方式融入生活场景、社群连接和数字潮流中，比如广州举办读书音乐会、南京推出CityWalk读城路线、成都开展以书换“蔬”活动…… 在江西省吉安市吉水县，世界读书日前夕，年近古稀的解淦通过拍摄手机视频讲述流传600余年的解缙故事，让典籍里的大明奇才以新的方式走近年轻一代。
+
+“听故事和翻书一样，都是一种阅读。
+
+”解淦是“解缙故事”江西省级非物质文化遗产代表性传承人，不仅开通短视频账号讲述解缙故事，还时常走进校园与景区讲给学生和游客听。
+
+解缙是江西吉水人，明朝内阁首辅，主持编纂了中国古代最大的一部类书《永乐大典》。
+
+解缙故事是一个广泛流传于海内外的传说故事群，主要内容涵盖其家世背景、科举经历、人际交往等，2014年被列入中国国家级非物质文化遗产代表性项目名录。
 
 ## 相关推荐
 
-- 2026-06-29 12:04 - [原青海省地方金融监督管理局一级巡视员吴春庆被开除党籍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:46 - [视频 | 理财亏716万元，金融街证券被判赔偿10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:51 - [姑苏城外瑞光塔 夜半灯火照客游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:48 - [1.8米杖头木偶亮相厦门“屿见闽南” 16米长绸翩舞引惊呼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:44 - [中天期货:商品指数板块分化小反弹 原油短线反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:59 - [重庆银行：一季度归母净利润17.93亿元 同比增长10.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:02 - [多部门协同发力 上海出台14项举措助力民营经济高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:40 - [德国据悉尝试为德国商业银行寻找白衣骑士 以应对裕信银行的收购](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:41 - [上海家化一季度扣非净利润同比增长38.2%，四个聚焦战略加速兑现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:03 - [台湾导演林家亿：AI短片“雪山救狐狸”在岛内爆火，源于两岸共同记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:51 - [国际能源署署长：世界正面临史上最严重的能源安全威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:46 - [台湾作家新作《往日食光》书写家常风味 蕴藏两岸记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:03 - [特斯拉将对HW3车辆进行改造](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:59 - [涉恒大财务造假，香港证监会和会财局处罚落地，普华永道回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:58 - [广东茂名港口岸扩大对外开放通过国家验收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:11 - [习言道｜把“义乌发展经验”进一步总结好运用好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:42 - [育碧官宣：《刺客信条：黑旗》重制版7月9日发售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:05 - [受权发布｜中共中央办公厅 国务院办公厅印发《碳达峰碳中和综合评价考核办法》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:45 - [海外公司诉蔚来换电专利侵权索赔2.5亿美元 蔚来回应技术自主研发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:11 - [摩根大通上调日经指数年底目标至70000点，因人工智能热潮及日元走软](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:59 - [邦达亚洲:经济数据表现疲软 欧元小幅收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:01 - [关于白宫记者晚宴枪击案嫌疑人科尔・艾伦的全部已知信息](http://www.share.minike.top/Article/details/3363591.shtml)
-- 2026-06-29 11:50 - [002779、603360，被证监会立案！](http://www.share.kurohicncr.top/Article/details/048099565255.shtml)
-- 2026-06-29 11:39 - [台湾新北市长民调结果出炉，蓝白共推李四川参选](http://www.blog.minike.top/Article/details/864231.shtml)
-- 2026-06-29 11:39 - [患恶性肿瘤理赔遭拒 和谐健康被指竟多次“恶意”拒赔](http://www.share.minike.top/Article/details/302893324.shtml)
-- 2026-06-29 11:51 - [外交部评白宫记协年度晚宴枪击事件：一贯反对和谴责非法暴力行为](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:48 - [珠江流域进一步强化节约用水管理工作](http://www.blog.minike.top/Article/details/44836.shtml)
-- 2026-06-29 11:59 - [“五一”假期预计全国日均租车量将超70万辆](http://www.blog.kurohicncr.top/Article/details/7291892504.shtml)
-- 2026-06-29 12:00 - [2026粤超首轮东莞主场获胜 科学家+企业家携手开球](http://www.blog.kurohicncr.top/Article/details/48672002989.shtml)
-- 2026-06-29 11:39 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](http://www.share.kurohicncr.top/Article/details/138234671.shtml)
-- 2026-06-29 11:46 - [西藏社科院举办专题研讨：以法治力量夯实民族团结进步根基](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [伊朗战事推高油价，英国石油利润翻倍、大幅超出预期](http://www.share.minike.top/Article/details/552209.shtml)
-- 2026-06-29 11:49 - [长江“微笑天使”又添丁，见证江苏生态之变](http://www.share.kurohicncr.top/Article/details/37454.shtml)
-- 2026-06-29 12:04 - [春到桑干河](http://www.blog.kurohicncr.top/Article/details/35091.shtml)
-- 2026-06-29 12:04 - [一季度浙江算力中心用电规模和增速创新高](http://www.share.kurohicncr.top/Article/details/57353.shtml)
-- 2026-06-29 11:40 - [墨西哥比索走稳，股市受美伊僵局影响小幅回落](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [中国选手范俊杰夺得三亚亚沙会首金](http://www.share.minike.top/Article/details/667096788108.shtml)
+- 2026-06-29 11:57 - [美国西弗吉尼亚州一工厂发生化学品泄漏 造成两人死亡](http://www.blog.minike.top/Article/details/2211850.shtml)
+- 2026-06-29 11:45 - [日韩股市集体高开 日股升至纪录新高](http://www.blog.minike.top/Article/details/8860466620.shtml)
+- 2026-06-29 11:45 - [世界地球日｜用我们的力量守护高原生态](http://www.blog.minike.top/Article/details/376330828962.shtml)
+- 2026-06-29 12:06 - [必维国际检验集团设立新亚洲中心，扩大海上服务能力](http://www.blog.kurohicncr.top/Article/details/16895527.shtml)
+- 2026-06-29 11:45 - [一季度ETF市场回顾：四只沪深300ETF缩水6300亿，黄金ETF、短融ETF成“避风港”，新发产品扎堆电池港股](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [涨幅超A股，四大行H股盘中集体创新高，谁在买？](http://www.share.minike.top/Article/details/3317513718.shtml)
+- 2026-06-29 11:45 - [4月23日美股成交额前20：美光创历史新高，此前获高盛唱好](http://www.blog.minike.top/Article/details/153269514.shtml)
+- 2026-06-29 12:07 - [液冷牛股英维克，火热后急冻，现场探访](http://www.blog.kurohicncr.top/Article/details/282537635.shtml)
+- 2026-06-29 11:55 - [减肥药意外带火豌豆扁豆，美国农民弃麦种豆](http://www.share.kurohicncr.top/Article/details/04025861305.shtml)
+- 2026-06-29 12:04 - [80.3%受访者看好相关政策提升大众阅读兴趣](http://www.blog.minike.top/Article/details/1177643.shtml)
+- 2026-06-29 11:44 - [南航否认在飞机上闹事女乘客为“南航空姐”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [国际刑事法院声称要对杜特尔特进行审判](http://www.blog.kurohicncr.top/Article/details/78453175618.shtml)
+- 2026-06-29 11:43 - [上交所举办东南亚专题国际路演活动](http://www.blog.kurohicncr.top/Article/details/98721437173.shtml)
+- 2026-06-29 12:10 - [ISS建议ConocoPhillips股东支持独立董事主席提案](http://www.blog.minike.top/Article/details/697435.shtml)

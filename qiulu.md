@@ -1,58 +1,58 @@
-# 我国拟修订农业法 增加建立粮食安全监测预警制度等内容
+# 成都双流“国字号”立法联系点运行一周年：民意搭上国家立法“直通车”
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-中新网北京4月27日电(记者 郭超凯 黄钰钦)农业法修订草案27日提请十四届全国人大常委会首次审议。为保障粮食安全和重要农产品供给，草案明确国家粮食安全战略，增加建立粮食安全监测预警制度、建立政府粮食储备体系、完善粮食应急管理体制等内容。全国人大农业与农村委员会主任委员杜家毫27日受委托对草案作说明。杜家毫表示，此次修订旨在进一步巩固和加强农业在国民经济中的基础地位，坚持大农业
+中新网成都4月22日电(单鹏)22日，“川流不息·民意汇集——全国人大常委会法工委双流基层立法联系点运行一周年法治宣传系列活动”在成都市双流区举行，成都市人大常委会主任何礼出席活动并讲话。 全国人大常委会法工委办公室副主任石红莉，四川省人大法制委主任委员黄智刚，省人大法制委副主任委员、常委会法工委主任王俊，成都市人大常委会副主任王平江，双流区人大常委会主任刘航参加活动。双流区委
 
 ## 正文
 
-中新网北京4月27日电(记者 郭超凯 黄钰钦)农业法修订草案27日提请十四届全国人大常委会首次审议。
+中新网成都4月22日电(单鹏)22日，“川流不息·民意汇集——全国人大常委会法工委双流基层立法联系点运行一周年法治宣传系列活动”在成都市双流区举行，成都市人大常委会主任何礼出席活动并讲话。
 
-为保障粮食安全和重要农产品供给，草案明确国家粮食安全战略，增加建立粮食安全监测预警制度、建立政府粮食储备体系、完善粮食应急管理体制等内容。
+全国人大常委会法工委办公室副主任石红莉，四川省人大法制委主任委员黄智刚，省人大法制委副主任委员、常委会法工委主任王俊，成都市人大常委会副主任王平江，双流区人大常委会主任刘航参加活动。
 
-全国人大农业与农村委员会主任委员杜家毫27日受委托对草案作说明。
+双流区委书记钟静远主持。
 
-杜家毫表示，此次修订旨在进一步巩固和加强农业在国民经济中的基础地位，坚持大农业观、大食物观，推动农业高质量发展，推进乡村全面振兴，加快建设农业强国，为实现农业农村现代化提供有力法治保障。
+石红莉充分肯定了双流基层立法联系点一年的工作成效，她指出，双流联系点广泛吸纳民意、汇集民智，各项工作有力有序推进，先后就《民营经济促进法》《民用航空法》等7部法律草案反馈意见建议1589条，其中很多意见被吸收采纳；以“品一杯茶、说一部法”为品牌，创新收集民情民意特色做法，取得很好的效果。
 
-为保障粮食安全和重要农产品供给，草案明确国家粮食安全战略，健全粮食主产区利益补偿机制和粮食生产者收益保障机制，增加建立粮食安全监测预警制度、建立政府粮食储备体系、完善粮食应急管理体制等内容。
+各方面都对双流联系点建设和工作高度重视，在阵地建设、人员配备、经费保障等方面给予了大力支持。
 
-草案明确落实大食物观，构建多元化食物供给体系，将“林业”修改为“林草业”，增加发展粮食和棉、油、糖、蔬菜等农产品及饲草饲料生产，发展经济林和林下经济、保障畜禽养殖用地、发展草原畜牧业、发展食物产业等内容。
+“我真切感受到大家一直在用心、用情、用力做好这项工作，为国家的立法事业贡献了智慧、方案和力量。
 
-草案还规定强化农业气象综合监测、农业防灾减灾、动植物疫情监测预警等措施。
+” 何礼指出，双流基层立法联系点作为成都唯一的“国字号”联系点，肩负着为国家立法传递民声的重要使命，运行一年来取得了一系列丰硕成果，值得充分肯定。
 
-加强耕地保护和质量提升，加强高标准农田建设，保护黑土地，治理和利用盐碱地。
+他强调，要提高政治站位，坚持把党的领导贯穿工作全过程、各方面，不折不扣落实全国人大、四川省人大各项部署，确保联系点工作沿着正确方向前行。
 
 ## 相关推荐
 
-- 2026-06-29 12:01 - [1.8米杖头木偶亮相厦门“屿见闽南” 16米长绸翩舞引惊呼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:49 - [中天期货:商品指数板块分化小反弹 原油短线反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:02 - [重庆银行：一季度归母净利润17.93亿元 同比增长10.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:53 - [多部门协同发力 上海出台14项举措助力民营经济高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:59 - [德国据悉尝试为德国商业银行寻找白衣骑士 以应对裕信银行的收购](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:59 - [上海家化一季度扣非净利润同比增长38.2%，四个聚焦战略加速兑现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:03 - [台湾导演林家亿：AI短片“雪山救狐狸”在岛内爆火，源于两岸共同记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:44 - [GTC泽汇:尼日利亚炼化驱动转型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:03 - [我国拟修改水法提升水安全保障能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:52 - [APEC中国年，中美互动预期几何？中方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:37 - [“探店”网红白冰偷税被查 追缴并罚款共计超1891万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:50 - [大美边疆看我家丨内蒙古锡林浩特：百鸟翔集绘春图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:48 - [涉恒大财务造假，香港证监会和会财局处罚落地，普华永道回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:43 - [广东茂名港口岸扩大对外开放通过国家验收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:43 - [习言道｜把“义乌发展经验”进一步总结好运用好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:07 - [育碧官宣：《刺客信条：黑旗》重制版7月9日发售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:50 - [受权发布｜中共中央办公厅 国务院办公厅印发《碳达峰碳中和综合评价考核办法》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:58 - [海外公司诉蔚来换电专利侵权索赔2.5亿美元 蔚来回应技术自主研发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:43 - [摩根大通上调日经指数年底目标至70000点，因人工智能热潮及日元走软](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:55 - [邦达亚洲:经济数据表现疲软 欧元小幅收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:43 - [杭州一季度GDP6109亿元 同比增长5.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:59 - [人民领袖｜黄土地上的生态守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:58 - [海港人寿首度调将：乔宁到龄辞任，“精算背景”齐美祝拟任总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:43 - [中办 国办发布关于更高水平更高质量做好节能降碳工作的意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:03 - [患恶性肿瘤理赔遭拒 和谐健康被指竟多次“恶意”拒赔](http://www.blog.minike.top/Article/details/68907069.shtml)
-- 2026-06-29 11:44 - [外交部评白宫记协年度晚宴枪击事件：一贯反对和谴责非法暴力行为](http://www.share.kurohicncr.top/Article/details/915124553167.shtml)
-- 2026-06-29 11:49 - [珠江流域进一步强化节约用水管理工作](http://www.blog.kurohicncr.top/Article/details/484502406.shtml)
-- 2026-06-29 11:42 - [“五一”假期预计全国日均租车量将超70万辆](http://www.share.kurohicncr.top/Article/details/053881.shtml)
-- 2026-06-29 11:47 - [2026粤超首轮东莞主场获胜 科学家+企业家携手开球](http://www.blog.kurohicncr.top/Article/details/00157856740.shtml)
-- 2026-06-29 11:54 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](http://www.blog.kurohicncr.top/Article/details/005541260.shtml)
-- 2026-06-29 11:55 - [西藏社科院举办专题研讨：以法治力量夯实民族团结进步根基](http://www.blog.minike.top/Article/details/08130845.shtml)
-- 2026-06-29 11:49 - [伊朗战事推高油价，英国石油利润翻倍、大幅超出预期](http://www.blog.minike.top/Article/details/820620.shtml)
-- 2026-06-29 11:43 - [长江“微笑天使”又添丁，见证江苏生态之变](http://www.blog.minike.top/Article/details/4022942.shtml)
-- 2026-06-29 11:38 - [春到桑干河](http://www.share.minike.top/Article/details/723429.shtml)
-- 2026-06-29 11:43 - [一季度浙江算力中心用电规模和增速创新高](http://www.share.minike.top/Article/details/550824.shtml)
-- 2026-06-29 11:45 - [墨西哥比索走稳，股市受美伊僵局影响小幅回落](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:50 - [甘肃银行空前分红17.78亿为归母净利三倍 营收两连降零售贷款不良率4.16%压力增大](http://www.blog.kurohicncr.top/Article/details/336380089291.shtml)
-- 2026-06-29 11:49 - [互联网广告要跳出“流量至上”误区](http://www.blog.kurohicncr.top/Article/details/4511216386.shtml)
-- 2026-06-29 11:44 - [2026第二届飞剑“大使杯”国际板球邀请赛在京举办](http://www.share.minike.top/Article/details/6785310.shtml)
+- 2026-06-29 11:47 - [世界地球日｜用我们的力量守护高原生态](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:10 - [必维国际检验集团设立新亚洲中心，扩大海上服务能力](http://www.share.minike.top/Article/details/564611946.shtml)
+- 2026-06-29 12:11 - [一季度ETF市场回顾：四只沪深300ETF缩水6300亿，黄金ETF、短融ETF成“避风港”，新发产品扎堆电池港股](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:50 - [涨幅超A股，四大行H股盘中集体创新高，谁在买？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [4月23日美股成交额前20：美光创历史新高，此前获高盛唱好](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [液冷牛股英维克，火热后急冻，现场探访](http://www.share.kurohicncr.top/Article/details/9322650809.shtml)
+- 2026-06-29 12:10 - [减肥药意外带火豌豆扁豆，美国农民弃麦种豆](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [80.3%受访者看好相关政策提升大众阅读兴趣](http://www.share.kurohicncr.top/Article/details/427336417040.shtml)
+- 2026-06-29 11:50 - [南航否认在飞机上闹事女乘客为“南航空姐”](http://www.blog.kurohicncr.top/Article/details/03504367.shtml)
+- 2026-06-29 11:44 - [国际刑事法院声称要对杜特尔特进行审判](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:10 - [上交所举办东南亚专题国际路演活动](http://www.share.minike.top/Article/details/123693.shtml)
+- 2026-06-29 11:57 - [ISS建议ConocoPhillips股东支持独立董事主席提案](http://www.blog.kurohicncr.top/Article/details/587800651.shtml)
+- 2026-06-29 11:48 - [浙商银行金华分行被罚169.3万元：违反金融统计相关规定等](http://www.blog.kurohicncr.top/Article/details/5393446.shtml)
+- 2026-06-29 12:00 - [国家国际发展合作署、中国气象局与世界气象组织签署关于推动落实全球发展倡议的谅解备忘录](http://www.share.kurohicncr.top/Article/details/650091.shtml)
+- 2026-06-29 11:45 - [上海银行：2025年净息差1.16%，同比微降0.01个百分点](https://github.com/lisacumin64-arch)

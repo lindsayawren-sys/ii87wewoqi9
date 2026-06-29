@@ -1,57 +1,60 @@
-# 豆粕：周期无声，趋势有痕 —— 豆粕多空拉锯
+# 八达岭夜长城将于4月底在京亮相 升级沉浸式互动体验
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-大地期货研究院 观点小结 核心观点：震荡美豆播种超预期但存在天气升水风险，中长期有上涨潜力。短期仍受供应宽松压制，料继续区间震荡为主。 现货基差：偏空供应转宽松，现货和远月基差承压。节前备货利好提货，区域分化加大。 南美大豆：偏空巴西丰产且进入出口旺季；阿根廷进入收割期，产量相对稳定。 美国大豆：中性旧作出口疲软但国内压榨需求旺盛，新作播种超前。或受厄尔尼诺影响。 进口采购：中
+中新网北京4月22日电 (陈杭 李晓鹏)记者22日从北京市延庆区获悉，八达岭夜长城已完成全要素彩排，为即将到来的“五一”假期做好准备。今年八达岭夜长城将于4月30日至10月6日面向海内外游客开放，在延续经典夜间景观与成熟服务的基础上全面升级，以“城上互动+主题演艺”为核心，打造一场穿越时空、沉浸感拉满的长城夜游盛宴。相较于往年，2026年夜长城打破传统观光模式，推动沉浸式互动体
 
 ## 正文
 
-大地期货研究院 观点小结 核心观点：震荡美豆播种超预期但存在天气升水风险，中长期有上涨潜力。
+中新网北京4月22日电 (陈杭 李晓鹏)记者22日从北京市延庆区获悉，八达岭夜长城已完成全要素彩排，为即将到来的“五一”假期做好准备。
 
-短期仍受供应宽松压制，料继续区间震荡为主。
+今年八达岭夜长城将于4月30日至10月6日面向海内外游客开放，在延续经典夜间景观与成熟服务的基础上全面升级，以“城上互动+主题演艺”为核心，打造一场穿越时空、沉浸感拉满的长城夜游盛宴。
 
-现货基差：偏空供应转宽松，现货和远月基差承压。
+相较于往年，2026年夜长城打破传统观光模式，推动沉浸式互动体验全面升级，让每一位游客从历史的“旁观者”转变为故事的“参与者”。
 
-节前备货利好提货，区域分化加大。
+景区深度挖掘长城历史文化与民间传说，精心打造“孟姜女寻夫”NPC演绎场景，身着古装的演员生动还原经典片段，游客可与角色近距离对话，聆听戍边将士的家国故事，沉浸式感受长城背后的悲欢离合。
 
-南美大豆：偏空巴西丰产且进入出口旺季；阿根廷进入收割期，产量相对稳定。
+漫步城墙途中，游客或偶遇身着戎装的明代将领、戍边士兵等角色，通过行进式观演与情景互动，触摸长城绵延千年的历史脉络。
 
-美国大豆：中性旧作出口疲软但国内压榨需求旺盛，新作播种超前。
+除了情景演绎，景区还推出“驿站写信传福”特色环节，游客可在城下写下心愿与祝福，由身着甲胄的“传令兵”策马送至长城之上，在古今交融中传递美好期许，仪式感十足。
 
-或受厄尔尼诺影响。
+同时，八达岭文化街区沉浸式再现“茶马互市”盛景——这一曾在边关地区盛极一时的贸易场景，搭配特色角色互动游戏，让游客在欢声笑语中感受古代边塞的商贸繁华与民族交融的风情。
 
-进口采购：中性以近月巴西豆为主，5月-9月到港量大。
+夜间演艺内容同步丰富升级，舞蹈《塞外篝火》以蒙古舞为基底，巧妙融合传统韵律与现代艺术表达，舞者刚劲有力的舞姿与恢宏的舞美设计相得益彰。
 
 ## 相关推荐
 
-- 2026-06-29 11:57 - [韩国总统府：谷歌将在韩国新建人工智能园区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:37 - [2026年芒市海关综合技术服务中心预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:59 - [ARR季度环比飙升300%，迅策科技迎戴维斯双击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:47 - [一季度新疆外送电量同比增长23.42% 创历史同期新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:58 - [丰田3月全球销量同比下降7.3%，中国销量下降8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:54 - [珠光控股：进一步延迟刊发2025年全年业绩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:40 - [宁夏闽宁镇：短袖订单迎旺季 服装企业赶工忙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:40 - [启境GT7亮相北京国际车展，首发搭载华为乾崑全新一代智能技术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:44 - [能源高价推升通胀风险，英债收益率走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:45 - [文旅部：将督促属地集中整治龙虎山、长白山、稻城亚丁等景区摆渡车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:58 - [谷歌DeepMind首席执行官访韩，会见现代汽车和LG集团负责人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:49 - [中新健康｜日常做好这些事，可有效降低肿瘤发生风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 12:07 - [英特尔股价盘后飙升 强劲业绩展望显示人工智能支出开始奏效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:02 - [目标落空、渠道收缩、大额分红，迎驾贡酒如何挽救颓势？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:55 - [述评：数字时代 浙江书香何处寻？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:45 - [牛弹琴：伊朗反击了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:07 - [美媒：特朗普称未来36至72小时内“可能”与伊朗谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:02 - [能定位会判断 AI乒乓机器人击败人类高手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:00 - [第十三批在韩中国人民志愿军烈士遗骸在沈阳安葬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:10 - [证监会出手！4只A股被立案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:54 - [从“企业找政策”到“政策找企业” 成都“1+N”精准对接会为油气产业链“搭桥铺路”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 12:10 - [海港人寿总经理变更：齐美祝任临时负责人，代行总经理职权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:07 - [快讯：美股股指期货、现货金银跳水，国际原油快速拉升，WTI原油涨幅扩大至4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:03 - [中国首次记录高魔芋开花 西双版纳植物园上演“巨花”奇观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 12:10 - [Swift数据显示 美元3月份在国际交易中占比升至51.1%的新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:36 - [澳大利亚拟对科技巨头征收约2%税费 除非达成本地新闻付费协议](http://www.blog.kurohicncr.top/Article/details/762224163.shtml)
-- 2026-06-29 11:37 - [美国政府：白宫晚宴枪手意图刺杀特朗普](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:40 - [秦农银行国有持股占比首超50%](http://www.blog.kurohicncr.top/Article/details/545915859049.shtml)
-- 2026-06-29 12:02 - [“十五五”中国将发射风云四号D星 为共建“一带一路”国家提供服务](http://www.share.kurohicncr.top/Article/details/94310905.shtml)
-- 2026-06-29 11:51 - [华宝基金红利风向标：高股息“倒车接人”？关注低波策略配置价值](http://www.blog.minike.top/Article/details/474723024.shtml)
-- 2026-06-29 12:04 - [2026年“汉语桥”比利时赛区决赛举行](http://www.share.minike.top/Article/details/43417428227.shtml)
-- 2026-06-29 11:46 - [张雪发视频回应力挺余承东，称“拒绝了半个亿的商务合作”](http://www.blog.minike.top/Article/details/434303125804.shtml)
-- 2026-06-29 11:46 - [国产芯片强势逼空，华宝基金科创芯片ETF（589190）猛攻5%，量价双高！国产替代主线重燃，成份股批量新高](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:49 - [OpenAI进军手机！“牵手”立讯精密！电子板块领涨两市，华宝基金电子ETF（515260）猛拉4.14%，续创历史新高](http://www.blog.minike.top/Article/details/2548853775.shtml)
-- 2026-06-29 11:58 - [上海家化发布2026年一季报：营业收入17.95亿同比增长5.4% 归母净利润2.22亿同比增长2.3%](http://www.share.kurohicncr.top/Article/details/545037.shtml)
-- 2026-06-29 12:01 - [德银：迅策目标价上调至351港元 维持“买入”评级](http://www.share.minike.top/Article/details/5446402.shtml)
-- 2026-06-29 11:46 - [上海傅利叶董事长顾捷荣获全国五一劳动奖章](http://www.blog.minike.top/Article/details/11836705827.shtml)
-- 2026-06-29 11:56 - [一季度石家庄海关签发RCEP原产地证书2532份](http://www.blog.minike.top/Article/details/227164218.shtml)
-- 2026-06-29 11:36 - [2粒药错写成21粒，失误何以“一路绿灯”](http://www.share.kurohicncr.top/Article/details/57455273.shtml)
-- 2026-06-29 11:39 - [氧化铝：惊弓之鸟还是风雨欲来？](http://www.share.minike.top/Article/details/0213803528.shtml)
+- 2026-06-29 11:57 - [建发物业获FIDELITY FUNDS增持23.9万股 每股作价约2.89港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [华裔留学生昆明共读书：在文字中“寻根” 在交流中传承](http://www.share.minike.top/Article/details/82647.shtml)
+- 2026-06-29 12:04 - [新疆：升级版“新东方快车”启程 海内外游客共赴丝路之旅](http://www.blog.kurohicncr.top/Article/details/612877.shtml)
+- 2026-06-29 11:46 - [南宁加快打造面向东盟的“新茶饮之都”](http://www.share.minike.top/Article/details/80263.shtml)
+- 2026-06-29 11:50 - [特斯拉第三代人形机器人预计年中发布，三季度启动正式投产](http://www.blog.kurohicncr.top/Article/details/362218.shtml)
+- 2026-06-29 11:51 - [小城游火了！这些“小而美”的城市性价比高、体验感强](http://www.blog.kurohicncr.top/Article/details/903646.shtml)
+- 2026-06-29 12:00 - [抗美援朝老战士后代带糖迎接志愿军英烈回家：我想让他们尝一下 我们今天的甜滋滋](http://www.blog.kurohicncr.top/Article/details/998802.shtml)
+- 2026-06-29 11:53 - [一习话丨“要提倡多读书 建设书香社会”](http://www.share.minike.top/Article/details/208999069621.shtml)
+- 2026-06-29 12:02 - [黑龙江“换心人”健康存活32年 刷新亚洲纪录](http://www.share.kurohicncr.top/Article/details/26611982.shtml)
+- 2026-06-29 11:56 - [中新控股拟折让约19.81%配售最多3612.2万股 净筹约1427.7万港元](http://www.blog.kurohicncr.top/Article/details/97615439036.shtml)
+- 2026-06-29 12:09 - [一季度江西外贸进出口增长16% 汽车出口大增](http://www.share.kurohicncr.top/Article/details/164123.shtml)
+- 2026-06-29 11:52 - [市值单日蒸发超百亿，千亿液冷龙头一季报“踩急刹”](http://www.blog.kurohicncr.top/Article/details/02945861.shtml)
+- 2026-06-29 12:05 - [原万家基金董事长方一天，今日被提名华安基金总经理](http://www.share.minike.top/Article/details/2256234.shtml)
+- 2026-06-29 12:04 - [成都银行：2025年末不良贷款率0.68%，较上年末上升0.02个百分点](http://www.share.minike.top/Article/details/3377129.shtml)
+- 2026-06-29 11:55 - [美国航空因燃油价格上涨下调展望](http://www.share.kurohicncr.top/Article/details/78606.shtml)

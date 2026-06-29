@@ -1,57 +1,52 @@
-# 江河与共丨九三学社中央主席武维华：“既找病灶又开药方” 九三学社助力长江生态保护
+# “四季新韵·感知重庆”境外媒体重庆行交流活动启动
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月28日 07:03 来源：中国新闻网 从2021年6月开始，各民主党派中央、无党派人士受中共中央委托，开展为期五年的长江生态环境保护民主监督。从冰川之巅到东海之滨，民主监督如涓涓细流，正不断汇入长江保护的磅礴力量，书写出江河与共新篇章。 九三学社中央主席武维华表示，自接受中共中央委托开展长江生态环境保护民主监督工作以来，九三学社中央始终将其视为重大的政
+发布时间：2026年04月22日 20:34 来源：中国新闻网 4月21日晚，“四季新韵·感知重庆”境外媒体重庆行交流活动在重庆正式启幕，境内外媒体记者、香港嘉宾、海外侨商侨领、留学生代表等百余人出席启动仪式。 该活动以“四季”为主线，组织开展“行走中国·侨见重庆”——2026海外华媒侨领走进渝东南联合参访活动(下称，“行走中国·侨见重庆”活动)、国际友城“外媒观察团”参访活动
 
 ## 正文
 
-发布时间：2026年04月28日 07:03 来源：中国新闻网 从2021年6月开始，各民主党派中央、无党派人士受中共中央委托，开展为期五年的长江生态环境保护民主监督。
+发布时间：2026年04月22日 20:34 来源：中国新闻网 4月21日晚，“四季新韵·感知重庆”境外媒体重庆行交流活动在重庆正式启幕，境内外媒体记者、香港嘉宾、海外侨商侨领、留学生代表等百余人出席启动仪式。
 
-从冰川之巅到东海之滨，民主监督如涓涓细流，正不断汇入长江保护的磅礴力量，书写出江河与共新篇章。
+该活动以“四季”为主线，组织开展“行走中国·侨见重庆”——2026海外华媒侨领走进渝东南联合参访活动(下称，“行走中国·侨见重庆”活动)、国际友城“外媒观察团”参访活动、长江文明探源——国际媒体重庆行交流活动等10项重点媒体交流活动，全方位、多角度、立体式展现现代化新重庆建设成绩。
 
-九三学社中央主席武维华表示，自接受中共中央委托开展长江生态环境保护民主监督工作以来，九三学社中央始终将其视为重大的政治责任和光荣使命。
+现场，不少参加“行走中国·侨见重庆”活动的华媒侨领告诉记者，此次实地走访重庆武隆、酉阳、秀山等地，深入了解了当地的民族文化、生态旅游、乡村发展与科技制造，也希望能发挥自身桥梁作用，让更多海外民众了解真实的重庆，助力重庆产品走向世界。
 
-工作中，九三学社带着问题深入调研，在调研中深挖症结、共商对策，尽可能“既找病灶又开药方”。
-
-从专业视角深入分析问题，努力提出科学可行的解决问题的方案。
-
-通过本轮专项监督，九三学社亲身见证了中国生态文明建设取得的历史性成就，进一步激励其按照中共中央统一部署，立足人民群众对美好生活的向往，出实招、聚共识、谋发展，凝聚起助力美丽中国建设的九三力量。
-
-责任编辑：【张令旗】
+(景诗雁) 责任编辑：【于晓】
 
 ## 相关推荐
 
-- 2026-06-29 12:01 - [南华早报出版人谭卫儿：应营造良好舆论环境，为各领域合作创造有利条件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:44 - [“机器人大牛股”中坚科技突遭证监会立案，近2万股民或可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:51 - [受气象不佳影响 “两马”航线将双向停航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:02 - [探访武汉都市圈花展：近千种花卉盛放 12城共绘春韵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:49 - [壁仞科技午前涨超5% 壁砺™166系列产品完成DeepSeek-V4适配验证与优化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:42 - [北京平谷打造农业中关村人才综合改革试验区 多举措激励创新创业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:02 - [【百万庄小课堂】真会被气出结节吗？专家解答女性怎么爱护乳腺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:42 - [壳牌164亿美元收购加拿大ARC Resources，押注蒙特尼页岩气扩张](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:46 - [浙江安吉：跨区域公共法律服务协作站让民族同胞安心就业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:38 - [“鸟中大熊猫”彩鹮首次现身云南云县](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:46 - [东珠生态业绩预告更正不及时，受损股民可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:54 - [“安徽酒王”倪永培迎“交班”考题：儿子神秘“隐退” ，澳籍儿媳悄然走到台前](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:41 - [三亚亚沙会男子沙滩卡巴迪：伊朗队夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:06 - [中办、国办：支持发展绿色低碳、集约循环的算力设施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:02 - [ASMPT盘中涨超7% 首季盈利及第二季展望均超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:43 - [西安检察探索知识产权保护“立体解题”新路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:06 - [事关节能降碳工作 中办、国办重磅文件对外发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:02 - [福建宁德启动“一句话见民生”机制 专解民众身边“小而急”难题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:11 - [多地学子齐聚沈阳 共同迎接第十三批志愿军英烈归国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:52 - [贵州印江：半世纪人鸟相依 共绘生态宜居新家园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:52 - [在民进党高压下 为何一直坚持说“我是中国人” 吕礼诗霸气回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:58 - [外交部：中方敦促美方停止助台巩固所谓“邦交”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:53 - [英伟达参投AI公司Vast Data，估值达300亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:43 - [富瑞：紫金矿业给予“买入”评级 目标价49.10港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:48 - [笔墨承文脉 上海市文史研究馆推出《王劼音卷》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:11 - [买理财险说好随用随取，到期才发现要105岁才能取本金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:00 - [“瑞士制造”不等于瑞士制造？瑞士联邦知识产权局答一财](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:53 - [姐弟组队勇闯吃瓜比赛 为了赢姐姐拼命“刷刷刷”，弟弟秒变“西瓜粉碎机”](http://www.blog.kurohicncr.top/Article/details/399401935.shtml)
-- 2026-06-29 11:50 - [从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变](http://www.share.minike.top/Article/details/395568.shtml)
-- 2026-06-29 11:56 - [美国多地再发生枪击事件，致十余人伤亡](http://www.share.kurohicncr.top/Article/details/8250923426.shtml)
-- 2026-06-29 11:57 - [沃顿教授西格尔：围绕鲍威尔的美联储“大戏”远未落幕](http://www.blog.kurohicncr.top/Article/details/1524443.shtml)
-- 2026-06-29 11:48 - [日本北部山火已连烧6天 过火面积超1600公顷](http://www.blog.kurohicncr.top/Article/details/457583230.shtml)
-- 2026-06-29 11:48 - [重庆法院发布首例承认欧洲仲裁机构裁决案件](http://www.share.minike.top/Article/details/544456263.shtml)
-- 2026-06-29 11:42 - [“广货行天下 文旅邀您来”相关活动推出](http://www.blog.kurohicncr.top/Article/details/319115260542.shtml)
-- 2026-06-29 11:58 - [中方禁止外资收购Manus项目，外交部回应](http://www.blog.kurohicncr.top/Article/details/1218998801.shtml)
-- 2026-06-29 11:52 - [伊朗恢复飞往重要国际目的地航班](http://www.share.minike.top/Article/details/35675180.shtml)
-- 2026-06-29 12:04 - [印尼列车相撞事故已致14死84伤 总统要求彻查](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [京津冀三地人民银行组织开展2026年党委理论学习中心组联组学习](http://www.blog.kurohicncr.top/Article/details/25795.shtml)
-- 2026-06-29 12:05 - [国证国际：滨海投资维持“买入”评级 目标价1.43港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:40 - [火箭超级工厂竣工投产 力箭二号运载火箭迈入批量化生产阶段](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [参与OpenAI手机项目？002475市值一日爆增400亿元！](http://www.share.kurohicncr.top/Article/details/5374156643.shtml)
-- 2026-06-29 11:43 - [北京银行：一季度实现归母净利润80.98亿元，同比增长5.55%](http://www.share.minike.top/Article/details/323973284.shtml)
+- 2026-06-29 11:59 - [西安银行：2025年实现营业收入99.66亿元，同比增长21.68%](http://www.blog.minike.top/Article/details/9891181.shtml)
+- 2026-06-29 12:06 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](http://www.share.minike.top/Article/details/870347059760.shtml)
+- 2026-06-29 12:08 - [受人工智能需求推动，ASM国际销售额超预期 股价上涨8.2%](http://www.blog.kurohicncr.top/Article/details/69242979.shtml)
+- 2026-06-29 11:47 - [Palantir与美国农业部签署3亿美元协议，保障粮食供应链安全](http://www.share.minike.top/Article/details/22634.shtml)
+- 2026-06-29 12:02 - [直线拉升！涨停！伊朗，传来大消息！](http://www.blog.kurohicncr.top/Article/details/715784.shtml)
+- 2026-06-29 11:56 - [赵明车圈首秀：千里科技 AI 战略暨产品发布会今晚 7 点举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [Rivian：已开始生产全新纯电动车型R2](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [香港创新科技及工业局局长：相信会有更多优秀企业落户港深创科园](http://www.share.minike.top/Article/details/46810.shtml)
+- 2026-06-29 11:46 - [“手工经济”兴起：换一种方式“感受生活”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:07 - [威高股份获Wellington Management Group LLP增持约811.35万股 每股作价约3.69港元](http://www.blog.minike.top/Article/details/8669944960.shtml)
+- 2026-06-29 12:06 - [原油市场遭遇“双重压力测试”！交易者如何应对？](http://www.share.kurohicncr.top/Article/details/8533976642.shtml)
+- 2026-06-29 11:42 - [接到这类电话，请立即挂断！](http://www.blog.kurohicncr.top/Article/details/669614.shtml)
+- 2026-06-29 11:58 - [宁德时代与河南省五家重点国企达成战略合作](http://www.share.kurohicncr.top/Article/details/268695074093.shtml)
+- 2026-06-29 11:43 - [日本反对韩国 MBK Partners 收购牧野铣床制作所](http://www.blog.minike.top/Article/details/0937422.shtml)
+- 2026-06-29 12:07 - [英国石油年度股东大会气氛紧张，股东就气候信息透明度发起抗议](http://www.blog.kurohicncr.top/Article/details/711447472.shtml)

@@ -1,48 +1,51 @@
-# 韩国总统府：谷歌将在韩国新建人工智能园区
+# 中新健康｜日常做好这些事，可有效降低肿瘤发生风险
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-韩国总统政策顾问金龙范于周一表示，韩国政府与谷歌达成协议，将在首尔共建一座人工智能园区，深化谷歌与韩国本土技术人才、初创企业的合作。 金龙范介绍，韩国总统李在明当日在首尔会见了谷歌深度思维（DeepMind）首席执行官德米斯・哈萨比斯。韩国科学技术部与谷歌就此人工智能园区项目签署了合作谅解备忘录。 本次会谈及园区规划核心要点如下： 责任编辑：郭明煜
+发布时间：2026年04月23日 22:17 来源：中国新闻网 4月23日，国家卫生健康委举行“介绍肿瘤预防及早筛相关健康知识”新闻发布会。国家癌症中心研究员魏文强在会上表示，预防肿瘤可从几方面入手：养成健康生活方式，不吸烟、控制饮酒、规律运动；坚持科学饮食，充足摄入蔬果全谷物，避开霉变、过烫等食物；注意个人卫生，用公勺公筷，按规接种乙肝疫苗和HPV疫苗。许多肿瘤可通过健康生活
 
 ## 正文
 
-韩国总统政策顾问金龙范于周一表示，韩国政府与谷歌达成协议，将在首尔共建一座人工智能园区，深化谷歌与韩国本土技术人才、初创企业的合作。
+发布时间：2026年04月23日 22:17 来源：中国新闻网 4月23日，国家卫生健康委举行“介绍肿瘤预防及早筛相关健康知识”新闻发布会。
 
-金龙范介绍，韩国总统李在明当日在首尔会见了谷歌深度思维（DeepMind）首席执行官德米斯・哈萨比斯。
+国家癌症中心研究员魏文强在会上表示，预防肿瘤可从几方面入手：养成健康生活方式，不吸烟、控制饮酒、规律运动；坚持科学饮食，充足摄入蔬果全谷物，避开霉变、过烫等食物；注意个人卫生，用公勺公筷，按规接种乙肝疫苗和HPV疫苗。
 
-韩国科学技术部与谷歌就此人工智能园区项目签署了合作谅解备忘录。
+许多肿瘤可通过健康生活方式预防。
 
-本次会谈及园区规划核心要点如下： 责任编辑：郭明煜
+(张静) 责任编辑：【宋宇晟】
 
 ## 相关推荐
 
-- 2026-06-29 11:45 - [启境GT7亮相北京国际车展，首发搭载华为乾崑全新一代智能技术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:58 - [能源高价推升通胀风险，英债收益率走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:38 - [文旅部：将督促属地集中整治龙虎山、长白山、稻城亚丁等景区摆渡车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:55 - [谷歌DeepMind首席执行官访韩，会见现代汽车和LG集团负责人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:04 - [逐绿而行暖万家——推动能源消费绿色化低碳化的丰台探索](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:38 - [稳面积 提单产 夯实粮食稳产丰产基础](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:00 - [直播海报：国务院政策例行吹风会：介绍《关于推进服务业扩能提质的意见》有关情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:53 - [非法募资314亿余元 刘必安等十六人非法集资案一审宣判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:43 - [中共中央政治局召开会议 分析研究当前经济形势和经济工作 中共中央总书记习近平主持会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:02 - [华裔Z视界｜在行走间读懂中国文化 华裔青年爱上中式养生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:11 - [第十三批在韩中国人民志愿军烈士遗骸在沈阳安葬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:47 - [证监会出手！4只A股被立案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 12:04 - [从“企业找政策”到“政策找企业” 成都“1+N”精准对接会为油气产业链“搭桥铺路”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:48 - [海港人寿总经理变更：齐美祝任临时负责人，代行总经理职权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:01 - [快讯：美股股指期货、现货金银跳水，国际原油快速拉升，WTI原油涨幅扩大至4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:48 - [中国首次记录高魔芋开花 西双版纳植物园上演“巨花”奇观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:44 - [Swift数据显示 美元3月份在国际交易中占比升至51.1%的新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:45 - [海尔智家获Pzena Investment Management, LLC增持180.92万股 每股作价约20.99港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:08 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:42 - [华勤技术首挂上市 早盘高开13.13%公司为全栈智能产品ODM平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:04 - [ABB上调业绩指引、股价一度涨超5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:53 - [突发！香港证监会与普华永道就恒大财务造假达成赔偿协议，10亿港元赔付受损股东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:44 - [大美边疆看我家丨云南漾濞：来“二月十九街”买扫帚啦！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:56 - [国产芯片强势逼空，华宝基金科创芯片ETF（589190）猛攻5%，量价双高！国产替代主线重燃，成份股批量新高](http://www.blog.kurohicncr.top/Article/details/972068891596.shtml)
-- 2026-06-29 11:48 - [OpenAI进军手机！“牵手”立讯精密！电子板块领涨两市，华宝基金电子ETF（515260）猛拉4.14%，续创历史新高](http://www.blog.kurohicncr.top/Article/details/63644475.shtml)
-- 2026-06-29 11:48 - [上海家化发布2026年一季报：营业收入17.95亿同比增长5.4% 归母净利润2.22亿同比增长2.3%](http://www.share.minike.top/Article/details/517806196.shtml)
-- 2026-06-29 11:39 - [德银：迅策目标价上调至351港元 维持“买入”评级](http://www.blog.minike.top/Article/details/30988.shtml)
-- 2026-06-29 12:02 - [上海傅利叶董事长顾捷荣获全国五一劳动奖章](http://www.share.kurohicncr.top/Article/details/40363729637.shtml)
-- 2026-06-29 12:03 - [一季度石家庄海关签发RCEP原产地证书2532份](http://www.share.minike.top/Article/details/1455267321.shtml)
-- 2026-06-29 11:39 - [2粒药错写成21粒，失误何以“一路绿灯”](http://www.share.minike.top/Article/details/2780454.shtml)
-- 2026-06-29 11:44 - [氧化铝：惊弓之鸟还是风雨欲来？](http://www.share.minike.top/Article/details/5588404067.shtml)
-- 2026-06-29 11:58 - [数智赋能民间文艺传承 2026“世界艺术和科技对话”上海活动举办](http://www.blog.kurohicncr.top/Article/details/0992769.shtml)
-- 2026-06-29 12:01 - [喀什至吉尔吉斯斯坦奥什国际客运航线成功首航](http://www.share.kurohicncr.top/Article/details/85667.shtml)
-- 2026-06-29 11:39 - [欧洲股市小幅攀升，传伊朗提出和平提议](http://www.share.kurohicncr.top/Article/details/7247410550.shtml)
-- 2026-06-29 11:43 - [央行上海总部：一季度上海社会融资规模增加4743亿元 同比多增138亿元](http://www.blog.kurohicncr.top/Article/details/63268615438.shtml)
-- 2026-06-29 11:51 - [白宫晚宴枪击最新调查进展：被捕枪手为一名家教，曾留下字条](http://www.blog.kurohicncr.top/Article/details/5967482045.shtml)
-- 2026-06-29 11:48 - [OEXN:黄金震荡观望央行信号](http://www.share.kurohicncr.top/Article/details/76024.shtml)
-- 2026-06-29 11:43 - [“五一”假日期间海南省天气总体较好 适宜出游](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [一习话丨“要提倡多读书 建设书香社会”](http://www.blog.minike.top/Article/details/288028.shtml)
+- 2026-06-29 11:47 - [黑龙江“换心人”健康存活32年 刷新亚洲纪录](http://www.blog.kurohicncr.top/Article/details/274038264683.shtml)
+- 2026-06-29 11:51 - [中新控股拟折让约19.81%配售最多3612.2万股 净筹约1427.7万港元](http://www.share.minike.top/Article/details/24740362166.shtml)
+- 2026-06-29 12:00 - [一季度江西外贸进出口增长16% 汽车出口大增](http://www.share.minike.top/Article/details/801863752.shtml)
+- 2026-06-29 12:02 - [市值单日蒸发超百亿，千亿液冷龙头一季报“踩急刹”](http://www.blog.kurohicncr.top/Article/details/603631850.shtml)
+- 2026-06-29 11:44 - [原万家基金董事长方一天，今日被提名华安基金总经理](http://www.share.kurohicncr.top/Article/details/8401289.shtml)
+- 2026-06-29 11:56 - [成都银行：2025年末不良贷款率0.68%，较上年末上升0.02个百分点](http://www.blog.minike.top/Article/details/69164189.shtml)
+- 2026-06-29 11:46 - [美国航空因燃油价格上涨下调展望](http://www.share.minike.top/Article/details/8215790034.shtml)
+- 2026-06-29 12:02 - [以军称黎巴嫩真主党“违反停火协议”](http://www.blog.kurohicncr.top/Article/details/738694932284.shtml)
+- 2026-06-29 11:48 - [欧元区消费者信心下滑 凸显消费风险](http://www.blog.minike.top/Article/details/4383902456.shtml)
+- 2026-06-29 11:44 - [科尔沁沙地核心区：人工铺设草方格固沙](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [中方回应美方退税举措：是在纠正错误道路上的有益一步](http://www.blog.kurohicncr.top/Article/details/24692532234.shtml)
+- 2026-06-29 11:53 - [传习录丨读书，总书记倡导的生活方式](http://www.share.minike.top/Article/details/174151495.shtml)
+- 2026-06-29 11:45 - [在第57个世界地球日，“最美自然守护者”讲述绿色发展故事](http://www.share.minike.top/Article/details/935917.shtml)
+- 2026-06-29 11:56 - [胃不适、腰背酸、血糖高？警惕“癌王”发出的预警信号](http://www.share.kurohicncr.top/Article/details/8470863170.shtml)

@@ -1,54 +1,60 @@
-# “探店”网红白冰偷税被查 追缴并罚款共计超1891万元
+# 海港人寿首度调将：乔宁到龄辞任，“精算背景”齐美祝拟任总经理
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-中新网4月28日电 据国家税务总局网站消息，近期，国家税务总局根据税收大数据分析，依法查处“探店”网红白冰偷税案件。 经查，白冰在2021年至2024年期间通过转换收入性质、虚假申报等方式，少缴个人所得税、增值税、契税等税费共计911.18万元。2025年10月，国家税务总局依据《中华人民共和国税收征收管理法》等相关法律法规规定，对其作出追缴税费款、加收滞纳金并处罚款共计189
+蓝鲸新闻4月23日讯（记者 石雨）近日，海港人寿保险股份有限公司（以下简称“海港人寿”）公告称，经董事会临时会议审议通过，同意聘任齐美祝为公司总经理，任期自监管核准其任职资格并经公司正式任命之日开始，正式任命前指定齐美祝为公司临时负责人，代行总经理职权；乔宁因年龄原因不再担任总经理职务。 “公司将按照董事会决议及相关规定履行临时负责人报告程序，并将尽快履行总经理任职资格核准程序
 
 ## 正文
 
-中新网4月28日电 据国家税务总局网站消息，近期，国家税务总局根据税收大数据分析，依法查处“探店”网红白冰偷税案件。
+蓝鲸新闻4月23日讯（记者 石雨）近日，海港人寿保险股份有限公司（以下简称“海港人寿”）公告称，经董事会临时会议审议通过，同意聘任齐美祝为公司总经理，任期自监管核准其任职资格并经公司正式任命之日开始，正式任命前指定齐美祝为公司临时负责人，代行总经理职权；乔宁因年龄原因不再担任总经理职务。
 
-经查，白冰在2021年至2024年期间通过转换收入性质、虚假申报等方式，少缴个人所得税、增值税、契税等税费共计911.18万元。
+“公司将按照董事会决议及相关规定履行临时负责人报告程序，并将尽快履行总经理任职资格核准程序”，海港人寿表示。
 
-2025年10月，国家税务总局依据《中华人民共和国税收征收管理法》等相关法律法规规定，对其作出追缴税费款、加收滞纳金并处罚款共计1891.24万元的处理处罚决定。
+乔宁出生于1964年，今年已62岁。
 
-目前，涉案税费款、滞纳金及罚款已全部追缴入库。
+据公开信息，乔宁早年曾在银行业任职，后加入太平人寿，先后在地方支公司及多家分公司历练。
 
-税务部门有关负责人表示，通过转换收入性质、虚假申报等手段偷逃税款，属于税收征管法明确的违法行为，不仅造成国家税款流失，也严重扰乱正常的经济税收秩序。
+2016年10月，他出任太平人寿市场总监，随后兼任公司新闻发言人，并分管过社保商办管理部、运营管理部、客户服务部等部门。
 
-税务部门将在持续优化税费服务的同时，坚决依法查处各类涉税违法行为，切实维护法治公平的税收环境，促进网络直播行业有序健康发展。
+此后，他还担任过太平人寿合规负责人、首席风险官。
+
+2023年，保险保障基金、太平人寿及广东省、深圳市和重庆市地方国有企业共同设立的海港人寿获批开业，并整体受让恒大人寿的保险业务及相应的资产、负债，来自股东太平人寿的乔宁出任首任总经理。
+
+海港人寿的首任领导班子，肩负着对恒大人寿存量保险业务承接、确保平稳过渡，以及新寿险公司战略明确、稳健开局等任务。
 
 ## 相关推荐
 
-- 2026-06-29 11:53 - [江西省人大常委会原副主任洪礼和一审被判20年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:57 - [高盛：紫金矿业维持“买入”评级 目标价微降至51港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:44 - [2026年度大理海关部门预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:00 - [辽宁岫岩：翠绿山林间 夺目映山红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:44 - [春节档爆冷了？一季度全国电影票房下降51%！万达电影更名后首场大考：扣非净利大降92.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:53 - [天天学习｜书友习近平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:59 - [“国产GPU第一股”摩尔线程，开盘666！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:38 - [2026年3月广东省进口重点商品总值表（人民币值）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:46 - [辽宁省贸促会经贸代表团在科特迪瓦开展经贸交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:48 - [拉卡拉：“炒股”大赚，主业承压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:52 - [航旅纵横：五一叠加春假长线出游升温 上海居国内热门目的地首位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:37 - [时政微周刊丨总书记的一周（4月20日—4月26日）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:55 - [1-3月中国销售彩票1439.59亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:54 - [杭州银行：2025年末不良贷款率0.76%，与上年末持平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:09 - [世界地球日山西自然博物馆开启系列展览探寻地球血脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:52 - [京雄快线预计2026年下半年开通运营](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:11 - [北京多措并举推进扬尘治理 提高城市清洁度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:43 - [公用手机卡频繁被盗 窃贼为什么不偷手机只偷卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:58 - [2025年贵州法院受理知识产权案件8608件审结7699件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:06 - [抖音整治AI不当内容，重点处置利用AI技术换脸、盗声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:09 - [第六届亚洲沙滩运动会在海南省三亚市开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:48 - [美国贸易代表格里尔周五将与欧盟贸易专员讨论数字税问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:00 - [2026一季度新发ETF：83只募资335亿，平均发行规模同比降5.09亿，电力、港股科技等主题成布局重点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:56 - [涨价拉动快递公司业绩，燃油成本仍成隐忧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:08 - [中海油服：一季度归母净利润8.56亿元，同比下滑3.60%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:52 - [湘图古籍数字化成果显著 珍贵典籍“活”化出新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:05 - [豆粕：周期无声，趋势有痕 —— 豆粕多空拉锯](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](http://www.share.kurohicncr.top/Article/details/0068066221.shtml)
-- 2026-06-29 11:53 - [伪满皇宫博物院举办吉林省首个海事文化科普展](http://www.share.kurohicncr.top/Article/details/860827.shtml)
-- 2026-06-29 11:45 - [科创综指，历史新高！](http://www.share.kurohicncr.top/Article/details/0107297.shtml)
-- 2026-06-29 11:46 - [2026北京国际花展开幕 荷兰景观设计师：中国花卉产业发展速度非常快](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:45 - [CIPS资金托管行扩容至14家 中信银行、中银香港等四家入列](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [真香！这枚刚出炉“果仁列巴”能刷300余城市公交地铁](http://www.share.kurohicncr.top/Article/details/556017500.shtml)
-- 2026-06-29 11:40 - [韩国总统府：谷歌将在韩国新建人工智能园区](http://www.share.minike.top/Article/details/4379803.shtml)
-- 2026-06-29 11:56 - [2026年芒市海关综合技术服务中心预算公开](http://www.blog.kurohicncr.top/Article/details/578013265.shtml)
-- 2026-06-29 12:02 - [ARR季度环比飙升300%，迅策科技迎戴维斯双击](http://www.blog.minike.top/Article/details/92140849.shtml)
-- 2026-06-29 11:38 - [一季度新疆外送电量同比增长23.42% 创历史同期新高](http://www.share.minike.top/Article/details/498996415613.shtml)
-- 2026-06-29 12:04 - [丰田3月全球销量同比下降7.3%，中国销量下降8%](http://www.share.minike.top/Article/details/7245144333.shtml)
-- 2026-06-29 11:51 - [珠光控股：进一步延迟刊发2025年全年业绩](http://www.blog.kurohicncr.top/Article/details/40884488470.shtml)
-- 2026-06-29 11:43 - [宁夏闽宁镇：短袖订单迎旺季 服装企业赶工忙](http://www.share.kurohicncr.top/Article/details/76853096131.shtml)
-- 2026-06-29 11:44 - [启境GT7亮相北京国际车展，首发搭载华为乾崑全新一代智能技术](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [八达岭夜长城将于4月底在京亮相 升级沉浸式互动体验](http://www.blog.kurohicncr.top/Article/details/479639.shtml)
+- 2026-06-29 11:44 - [军号再次吹响，这次是接他们回家](http://www.blog.kurohicncr.top/Article/details/362419663.shtml)
+- 2026-06-29 11:47 - [煤炭股午后逆势上扬 兖煤澳大利亚及兖矿能源均涨超4%](http://www.blog.minike.top/Article/details/75069.shtml)
+- 2026-06-29 12:01 - [文件显示SpaceX获200亿美元过桥贷款，对其债务进行再融资](http://www.share.kurohicncr.top/Article/details/69037547201.shtml)
+- 2026-06-29 11:56 - [浙江行刑联动破题商业秘密保护“三难”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [社保基金重仓+机构高关注股来了（附名单）](http://www.blog.minike.top/Article/details/117970274421.shtml)
+- 2026-06-29 12:00 - [广州黄埔：“AI+高端智造”抢占生物医药产业新高地](http://www.share.kurohicncr.top/Article/details/05878741085.shtml)
+- 2026-06-29 11:46 - [中新健康｜日常做好这些事，可有效降低肿瘤发生风险](http://www.blog.kurohicncr.top/Article/details/298636.shtml)
+- 2026-06-29 11:59 - [英特尔股价盘后飙升 强劲业绩展望显示人工智能支出开始奏效](http://www.share.kurohicncr.top/Article/details/799340641.shtml)
+- 2026-06-29 11:51 - [目标落空、渠道收缩、大额分红，迎驾贡酒如何挽救颓势？](http://www.share.kurohicncr.top/Article/details/887593351833.shtml)
+- 2026-06-29 12:04 - [述评：数字时代 浙江书香何处寻？](http://www.blog.kurohicncr.top/Article/details/956271070573.shtml)
+- 2026-06-29 12:04 - [牛弹琴：伊朗反击了](http://www.share.minike.top/Article/details/058699598114.shtml)
+- 2026-06-29 11:52 - [美媒：特朗普称未来36至72小时内“可能”与伊朗谈判](http://www.share.kurohicncr.top/Article/details/81128047.shtml)
+- 2026-06-29 12:10 - [能定位会判断 AI乒乓机器人击败人类高手](http://www.blog.minike.top/Article/details/866162.shtml)
+- 2026-06-29 11:54 - [第十三批在韩中国人民志愿军烈士遗骸在沈阳安葬](http://www.share.kurohicncr.top/Article/details/45924005342.shtml)

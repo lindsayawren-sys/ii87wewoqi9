@@ -1,61 +1,59 @@
-# 亚洲芯片股走高 市场对地缘政治风险的担忧降温
+# 操盘必读：影响股市利好或利空消息_2026年4月24日_财经新闻
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-亚洲芯片股普遍走高，因投资者开始将目光从地缘政治紧张局势上移开，重新聚焦于AI相关需求的持续激增。 过去两个月，由于担心发生在中东的冲突会导致能源成本急剧上升和原材料短缺，该地区芯片股表现低迷。 但过去两周，台积电和SK海力士等亚洲主要芯片公司公布了一系列强劲业绩，重新点燃了投资者对AI概念股的兴趣。 周一早盘，韩国大型芯片制造商三星电子和SK海力士的股价最新分别上涨2.5%和
+专题：A股配置风向标：机构建议关注景气成长、周期资源、高股息三条主线 影响股市利好与利空消息 宏观新闻 1、中共中央办公厅、国务院办公厅印发《碳达峰碳中和综合评价考核办法》。其中指出，“十五五”时期，国家发展改革委应当会同有关部门围绕如期实现2030年前碳达峰目标，制定“十五五”碳达峰行动方案，确保实现2030年碳排放强度比2005年降低65%以上、2030年非化石能源消费占比
 
 ## 正文
 
-亚洲芯片股普遍走高，因投资者开始将目光从地缘政治紧张局势上移开，重新聚焦于AI相关需求的持续激增。
+专题：A股配置风向标：机构建议关注景气成长、周期资源、高股息三条主线 影响股市利好与利空消息 宏观新闻 1、中共中央办公厅、国务院办公厅印发《碳达峰碳中和综合评价考核办法》。
 
-过去两个月，由于担心发生在中东的冲突会导致能源成本急剧上升和原材料短缺，该地区芯片股表现低迷。
+其中指出，“十五五”时期，国家发展改革委应当会同有关部门围绕如期实现2030年前碳达峰目标，制定“十五五”碳达峰行动方案，确保实现2030年碳排放强度比2005年降低65%以上、2030年非化石能源消费占比达到25%等目标，实现煤炭消费总量和石油消费总量达峰，合理控制煤电装机规模和发电量，力争年度新增清洁能源电量逐步覆盖全社会新增用电量。
 
-但过去两周，台积电和SK海力士等亚洲主要芯片公司公布了一系列强劲业绩，重新点燃了投资者对AI概念股的兴趣。
+2、商务部4月23日下午举行例行新闻发布会，针对美国海关与边境保护局在20日开始相关关税的退款工作，商务部表示，中方一贯反对任何形式的单边加征关税措施，美方对等关税、芬太尼关税等单边措施，既违反国际经贸规则，也违反美国国内法，危害全球经贸秩序，不符合各方利益。
 
-周一早盘，韩国大型芯片制造商三星电子和SK海力士的股价最新分别上涨2.5%和6.3%。
+何咏前表示，美方退税举措是在纠正错误道路上的有利一步。
 
-这两家全球最大的存储芯片制造商的市值占韩国综合指数（Kospi）市值的40%以上，它们的上涨推动该基准指数走高逾2%。
+3、香港证监会与普华永道香港达成协议，据此，普华永道香港同意预留10亿港元，以向中国恒大集团的合资格独立少数股东作出赔偿。
 
-在中国台湾，全球最大的芯片代工制造商台积电的股价一度上涨6.6%，带动该地区的基准股指台湾加权指数（Taiex）首次短暂突破40000点。
+4、美国总统特朗普23日在社交媒体上称，他已向美国海军下令，一旦发现任何船只在霍尔木兹海峡水域布设水雷，可开火将其击沉。
 
-日本的东京电子上涨2.7%，铠侠上涨5.35%。
+5、伊朗议会副议长当地时间23日称，首笔霍尔木兹海峡通行费收入已汇入中央银行账户。
 
-在中国香港上市的中芯国际和华虹半导体分别上涨7.2%和5.0%。
+6、美国总统唐纳德·特朗普在其社交媒体“真实社交”发文表示，以色列与黎巴嫩之间的停火协议将延长三周。
 
 ## 相关推荐
 
-- 2026-06-29 12:00 - [外交部评白宫记协年度晚宴枪击事件：一贯反对和谴责非法暴力行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:54 - [珠江流域进一步强化节约用水管理工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:01 - [“五一”假期预计全国日均租车量将超70万辆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:59 - [2026粤超首轮东莞主场获胜 科学家+企业家携手开球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:46 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:44 - [西藏社科院举办专题研讨：以法治力量夯实民族团结进步根基](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:39 - [伊朗战事推高油价，英国石油利润翻倍、大幅超出预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:45 - [长江“微笑天使”又添丁，见证江苏生态之变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 12:03 - [春到桑干河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:57 - [一季度浙江算力中心用电规模和增速创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:02 - [墨西哥比索走稳，股市受美伊僵局影响小幅回落](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:40 - [甘肃银行空前分红17.78亿为归母净利三倍 营收两连降零售贷款不良率4.16%压力增大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:54 - [互联网广告要跳出“流量至上”误区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:48 - [2026第二届飞剑“大使杯”国际板球邀请赛在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:05 - [上海定制何以走红？外籍人士为何偏爱这份“专属质感”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:47 - [必维国际检验集团设立新亚洲中心，扩大海上服务能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:54 - [一季度ETF市场回顾：四只沪深300ETF缩水6300亿，黄金ETF、短融ETF成“避风港”，新发产品扎堆电池港股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:52 - [涨幅超A股，四大行H股盘中集体创新高，谁在买？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:46 - [4月23日美股成交额前20：美光创历史新高，此前获高盛唱好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:48 - [液冷牛股英维克，火热后急冻，现场探访](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 12:07 - [减肥药意外带火豌豆扁豆，美国农民弃麦种豆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:11 - [80.3%受访者看好相关政策提升大众阅读兴趣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:53 - [南航否认在飞机上闹事女乘客为“南航空姐”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:00 - [国际刑事法院声称要对杜特尔特进行审判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:09 - [上交所举办东南亚专题国际路演活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:09 - [ISS建议ConocoPhillips股东支持独立董事主席提案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:11 - [浙商银行金华分行被罚169.3万元：违反金融统计相关规定等](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:02 - [国家国际发展合作署、中国气象局与世界气象组织签署关于推动落实全球发展倡议的谅解备忘录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:48 - [华裔Z视界｜在行走间读懂中国文化 华裔青年爱上中式养生](http://www.share.kurohicncr.top/Article/details/81088.shtml)
-- 2026-06-29 11:42 - [日元回吐部分涨幅 此前日本央行行长未发出明确的加息信号](http://www.share.kurohicncr.top/Article/details/5343010.shtml)
-- 2026-06-29 11:52 - [今年“五一”假期小客车上高速继续免收通行费](http://www.share.minike.top/Article/details/7925013305.shtml)
-- 2026-06-29 11:58 - [《爱情没有神话》开播 唐嫣出演亦舒笔下“独身女人”](http://www.share.minike.top/Article/details/73506942.shtml)
-- 2026-06-29 12:03 - [姚高员辞去杭州市市长职务](http://www.share.minike.top/Article/details/49285950432.shtml)
-- 2026-06-29 11:38 - [法学大先生·张晋藩](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [美国加州亿万富豪税已集齐请愿签名，获准纳入公投议程](http://www.share.minike.top/Article/details/05081901126.shtml)
-- 2026-06-29 12:03 - [绍兴越城：以“三抓实”落实统战工作责任制](http://www.share.kurohicncr.top/Article/details/852688023.shtml)
-- 2026-06-29 12:05 - [知情人士：美官员将讨论上周停火延期后 是否恢复对伊朗的轰炸行动](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:55 - [青春，就应该这样！——写在2026年五四青年节到来之际](http://www.share.minike.top/Article/details/49264.shtml)
-- 2026-06-29 12:00 - [人社部：一季度全国城镇新增就业299万人](http://www.share.kurohicncr.top/Article/details/76354.shtml)
-- 2026-06-29 11:57 - [江西鄱阳湖南矶湿地首次发现蓝喉太阳鸟](http://www.blog.minike.top/Article/details/91650250.shtml)
-- 2026-06-29 11:57 - [青海西宁：文体商旅融合点燃五月高原消费热潮](http://www.blog.minike.top/Article/details/84573.shtml)
-- 2026-06-29 11:45 - [2026年3月广东省外贸进出口总值表（人民币值）](http://www.blog.minike.top/Article/details/939358765.shtml)
-- 2026-06-29 11:42 - [跨境电商架桥梁 让互利之花在中越边境绽放](http://www.blog.kurohicncr.top/Article/details/075486098.shtml)
+- 2026-06-29 12:07 - [华勤技术首挂上市 早盘高开13.13%公司为全栈智能产品ODM平台](http://www.blog.kurohicncr.top/Article/details/147026194.shtml)
+- 2026-06-29 12:01 - [ABB上调业绩指引、股价一度涨超5%](http://www.blog.minike.top/Article/details/02154855740.shtml)
+- 2026-06-29 11:56 - [突发！香港证监会与普华永道就恒大财务造假达成赔偿协议，10亿港元赔付受损股东](http://www.blog.minike.top/Article/details/8513979364.shtml)
+- 2026-06-29 11:48 - [大美边疆看我家丨云南漾濞：来“二月十九街”买扫帚啦！](http://www.blog.minike.top/Article/details/76947.shtml)
+- 2026-06-29 12:05 - [A股收评：超4000只个股飘绿，三大指数集体收跌](http://www.blog.minike.top/Article/details/26627625.shtml)
+- 2026-06-29 12:06 - [隔夜逼近1.2%、资金利率持续倒挂，超宽松还能持续多久？](http://www.share.minike.top/Article/details/32475550.shtml)
+- 2026-06-29 11:55 - [华贵人寿董事长刘刚将任新职，第一大股东茅台集团持股已超49%](http://www.blog.minike.top/Article/details/90124598.shtml)
+- 2026-06-29 11:42 - [班诺特银行加速阿兹特克球场无现金化改造，备战世界杯](http://www.blog.kurohicncr.top/Article/details/58164888.shtml)
+- 2026-06-29 11:42 - [西南航空：受燃油价格上涨影响，第二季度盈利将低于预期](http://www.blog.kurohicncr.top/Article/details/376493463.shtml)
+- 2026-06-29 12:11 - [花旗：中国联通给予“买入”评级 目标价11.2港元](http://www.blog.kurohicncr.top/Article/details/9502659629.shtml)
+- 2026-06-29 11:46 - [规范升级！32万亿银行理财信息披露迎重大调整](http://www.share.minike.top/Article/details/436610.shtml)
+- 2026-06-29 11:54 - [2026上海·静安现代戏剧谷链接全球戏剧资源](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:50 - [光大期货：4月23日矿钢煤焦日报](http://www.blog.minike.top/Article/details/49286783.shtml)
+- 2026-06-29 12:07 - [志愿军老战士连续多年吹号迎接战友：我要告诉他们 我们赢了](http://www.blog.kurohicncr.top/Article/details/388206562.shtml)
+- 2026-06-29 12:07 - [山东省泰安市委常委、副市长刘峰梅接受审查调查](https://github.com/lisacumin64-arch)

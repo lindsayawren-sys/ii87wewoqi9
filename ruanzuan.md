@@ -1,59 +1,57 @@
-# 南京苏州两巨头抢滩无人驾驶：T3出行招股书提及78次，曹操出行计划2027年量产
+# 公众获取权威防癌科普知识的渠道有哪些？国家卫生健康委解答
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：鱼禾财经 4月下旬，来自江苏两大网约车巨头，接连在Robotaxi（无人驾驶出租车）赛道投下重磅消息。 4月24日，在2026北京国际汽车展览会上，苏州曹操出行深度参与定义研发的中国首款原生开发Robotaxi原型车——Eva Cab正式亮相。就在两天前，南京T3出行向港交所递交招股书，宣布IPO募集
+中新网4月23日电 国家卫生健康委23日下午召开新闻发布会，介绍肿瘤预防及早筛相关健康知识有关情况。会上，国家癌症中心研究员魏文强介绍获取权威的防癌科普知识的主要渠道。 一是各级卫生健康部门和医疗卫生机构的官方平台。这是最基础也最可靠的权威信息来源。例如国家卫生健康委的官网以及“健康中国”系列政务新媒体的账号。各省市卫生健康委、肿瘤医院等医疗机构、疾控中心的官网和平台，也都可以
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网4月23日电 国家卫生健康委23日下午召开新闻发布会，介绍肿瘤预防及早筛相关健康知识有关情况。
 
-来源：鱼禾财经 4月下旬，来自江苏两大网约车巨头，接连在Robotaxi（无人驾驶出租车）赛道投下重磅消息。
+会上，国家癌症中心研究员魏文强介绍获取权威的防癌科普知识的主要渠道。
 
-4月24日，在2026北京国际汽车展览会上，苏州曹操出行深度参与定义研发的中国首款原生开发Robotaxi原型车——Eva Cab正式亮相。
+一是各级卫生健康部门和医疗卫生机构的官方平台。
 
-就在两天前，南京T3出行向港交所递交招股书，宣布IPO募集资金将优先用于建设全栈Robotaxi能力。
+这是最基础也最可靠的权威信息来源。
 
-“吉利Robotaxi最重要商业化载体” 曹操出行发布首款原生开发无人驾驶出租车 从硬件上看，曹操出行Eva Cab最抢眼的特征是没有方向盘，这正折射出其与市面上多数Robotaxi在开发逻辑上的不同。
+例如国家卫生健康委的官网以及“健康中国”系列政务新媒体的账号。
 
-图源：曹操出行 目前市面上的多数Robotaxi，都采用“后装改制”模式，即采购现成的量产车，通过追加自动驾驶设备，实现测试运营能力。
+各省市卫生健康委、肿瘤医院等医疗机构、疾控中心的官网和平台，也都可以获取本地化的权威健康科普信息。
 
-而Eva Cab从设计之初，就以L4级自动驾驶场景为参考，将智驾系统、感知硬件等内嵌到造车环节。
+二是具有资质的医务人员自媒体账号。
 
-据曹操出行披露，这款定制化车型计划于2027年实现量产，长远目标是到2030年累计投放10万辆，逐步推进规模化运营。
+现在不少医务工作者通过自媒体平台开展科普。
 
 ## 相关推荐
 
-- 2026-06-29 12:03 - [首都机场“五一”假期预计运送旅客102.3万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:51 - [美国库恩基金会主席人民日报撰文：制度优势成就中国发展的“接力跑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:01 - [北京银行去年净利润同比降逾23%，一季度净利润同比增逾5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:49 - [越来越多中国茶饮等品牌开启新一轮出海热潮 外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:44 - [葛优调侃“与三元合作已过二十年”：我一直在想怎么不找我了，是不是等我长头发呢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:47 - [《公开募捐平台服务管理办法》解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:55 - [强脑科技为什么做假肢？韩璧丞：因为遇到一位残障大学生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:02 - [邦达亚洲:多重利空因素打压 美元指数小幅收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:39 - [新教育完美教室班本课程研发专题研讨会在沪举办 聚焦卓越课程与幸福教育](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:36 - [“剪映”“猫箱”“即梦AI”因合成内容标识违法问题被依法查处](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:51 - [迎来24项“国家红利”，综保区加速扩能提质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:53 - [中国再保险：中再寿险一季度净亏损2.51亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:36 - [小新带你看亚沙：这个展馆为何吸引老外扎堆打卡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:01 - [古井贡酒：截至4月20日股东人数为59907户](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:06 - [库克时代落幕，苹果新帅面临AI关键战役](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:54 - [美中嘉和与妙佑医疗国际正式签署新合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:44 - [飙涨11倍！紫金矿业悄然炼成“锂”想版图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:02 - [连续15日回购、四年累计耗资超千亿港元，友邦保险为何如此坚定？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:03 - [英国行业组织称银行业已做好准备应对Mythos风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:51 - [特斯拉靠边站：日本车企凭借混合动力车巩固在印度汽车市场的主导地位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:47 - [SK海力士业绩超预期 营业利润和销售额呈数倍增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:53 - [亿腾嘉和早盘涨超3% 于2026年AACR年会公布四特异性抗体EDP001临床前研究数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:46 - [青海省现有鸟类22目75科541种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:01 - [南京银行：2025年净利润为218.07亿元，同比增长8.08%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:00 - [高盛：紫金矿业维持“买入”评级 目标价微降至51港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:37 - [2026年度大理海关部门预算公开](http://www.share.kurohicncr.top/Article/details/81059.shtml)
-- 2026-06-29 12:03 - [辽宁岫岩：翠绿山林间 夺目映山红](http://www.share.minike.top/Article/details/248749716.shtml)
-- 2026-06-29 11:59 - [春节档爆冷了？一季度全国电影票房下降51%！万达电影更名后首场大考：扣非净利大降92.5%](http://www.blog.minike.top/Article/details/433981615376.shtml)
-- 2026-06-29 12:03 - [天天学习｜书友习近平](http://www.share.minike.top/Article/details/4069223.shtml)
-- 2026-06-29 11:37 - [“国产GPU第一股”摩尔线程，开盘666！](http://www.blog.kurohicncr.top/Article/details/3651875.shtml)
-- 2026-06-29 11:52 - [2026年3月广东省进口重点商品总值表（人民币值）](http://www.share.minike.top/Article/details/822479850944.shtml)
-- 2026-06-29 11:45 - [辽宁省贸促会经贸代表团在科特迪瓦开展经贸交流活动](http://www.share.minike.top/Article/details/83607997524.shtml)
-- 2026-06-29 11:50 - [拉卡拉：“炒股”大赚，主业承压](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [航旅纵横：五一叠加春假长线出游升温 上海居国内热门目的地首位](http://www.blog.minike.top/Article/details/7432994.shtml)
-- 2026-06-29 11:51 - [时政微周刊丨总书记的一周（4月20日—4月26日）](http://www.share.kurohicncr.top/Article/details/011198.shtml)
-- 2026-06-29 11:55 - [从课堂到云端 自媒体重构海外华文教育生态](http://www.blog.minike.top/Article/details/3823362477.shtml)
-- 2026-06-29 12:00 - [巴克莱：美联储本周料将按兵不动，2026年晚些时候可能降息](http://www.share.kurohicncr.top/Article/details/81305.shtml)
-- 2026-06-29 11:44 - [一季度高技术产业实际使用外资同比增长30.7%](http://www.blog.minike.top/Article/details/166016871.shtml)
-- 2026-06-29 11:49 - [四川大巴山“爱心帮帮团”：用“微力量”汇聚“大温暖”](http://www.share.minike.top/Article/details/65455083.shtml)
+- 2026-06-29 11:45 - [杭州银行：2025年末不良贷款率0.76%，与上年末持平](http://www.blog.minike.top/Article/details/2617226.shtml)
+- 2026-06-29 11:43 - [世界地球日山西自然博物馆开启系列展览探寻地球血脉](http://www.share.kurohicncr.top/Article/details/429789260326.shtml)
+- 2026-06-29 11:53 - [京雄快线预计2026年下半年开通运营](http://www.share.kurohicncr.top/Article/details/04771373976.shtml)
+- 2026-06-29 11:47 - [北京多措并举推进扬尘治理 提高城市清洁度](http://www.blog.kurohicncr.top/Article/details/886646.shtml)
+- 2026-06-29 12:03 - [公用手机卡频繁被盗 窃贼为什么不偷手机只偷卡](http://www.share.kurohicncr.top/Article/details/75269.shtml)
+- 2026-06-29 11:50 - [2025年贵州法院受理知识产权案件8608件审结7699件](http://www.share.kurohicncr.top/Article/details/7900840.shtml)
+- 2026-06-29 12:06 - [抖音整治AI不当内容，重点处置利用AI技术换脸、盗声](http://www.share.kurohicncr.top/Article/details/2247217.shtml)
+- 2026-06-29 11:49 - [第六届亚洲沙滩运动会在海南省三亚市开幕](http://www.blog.minike.top/Article/details/432562.shtml)
+- 2026-06-29 11:55 - [美国贸易代表格里尔周五将与欧盟贸易专员讨论数字税问题](http://www.share.minike.top/Article/details/34161968328.shtml)
+- 2026-06-29 12:10 - [2026一季度新发ETF：83只募资335亿，平均发行规模同比降5.09亿，电力、港股科技等主题成布局重点](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:55 - [涨价拉动快递公司业绩，燃油成本仍成隐忧](http://www.blog.kurohicncr.top/Article/details/74515249128.shtml)
+- 2026-06-29 12:07 - [中海油服：一季度归母净利润8.56亿元，同比下滑3.60%](http://www.blog.minike.top/Article/details/0500947.shtml)
+- 2026-06-29 11:44 - [湘图古籍数字化成果显著 珍贵典籍“活”化出新](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:50 - [群山为“岸” 商贸成“海”：重庆秀山于武陵山腹地开“世界超市”](http://www.blog.kurohicncr.top/Article/details/69857750.shtml)
+- 2026-06-29 12:09 - [燃油成本飙升，美国航空腰斩2026年盈利预期](http://www.share.kurohicncr.top/Article/details/695687980460.shtml)

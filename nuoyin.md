@@ -1,60 +1,60 @@
-# “茶和天下·雅集”中韩茶文化交流会在韩国举办
+# 军号再次吹响，这次是接他们回家
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-中新网首尔4月27日电 (记者 金旭)采茶拾翠、铁锅杀青、品茗寻韵……24日至25日，“茶和天下·雅集”中韩茶文化交流会在韩国全罗南道康津郡白莲寺举办，活动邀请中国西湖龙井制茶师赴韩宣传中国茶文化，展示中国绿茶制作技艺。 首尔中国文化中心副主任张观微表示，中韩两国地缘相近、人缘相亲、文缘相通，茶文化交流由来已久。两国茶文化爱好者通过此次活动不仅能够面对面分享经验、探讨技艺，更能
+中新网沈阳4月22日电 (李京统 杨茜茜) 22日的辽宁沈阳，气温骤降，春风带寒。但对于这座浸染着红色记忆的城市而言，今天是一个注定被铭记的日子——第十三批在韩中国人民志愿军烈士遗骸，历经七十余载漫长等待，终于荣归故土。 当日上午，呼号为“荣归50”的中国空军运-20B专机进入中国领空后，4架歼-20战机升空护航，五机编队以“箭”形列阵长空，以空军最高礼仪告慰先烈。专机降落沈阳
 
 ## 正文
 
-中新网首尔4月27日电 (记者 金旭)采茶拾翠、铁锅杀青、品茗寻韵……24日至25日，“茶和天下·雅集”中韩茶文化交流会在韩国全罗南道康津郡白莲寺举办，活动邀请中国西湖龙井制茶师赴韩宣传中国茶文化，展示中国绿茶制作技艺。
+中新网沈阳4月22日电 (李京统 杨茜茜) 22日的辽宁沈阳，气温骤降，春风带寒。
 
-首尔中国文化中心副主任张观微表示，中韩两国地缘相近、人缘相亲、文缘相通，茶文化交流由来已久。
+但对于这座浸染着红色记忆的城市而言，今天是一个注定被铭记的日子——第十三批在韩中国人民志愿军烈士遗骸，历经七十余载漫长等待，终于荣归故土。
 
-两国茶文化爱好者通过此次活动不仅能够面对面分享经验、探讨技艺，更能促进两国民众心灵的沟通与交融。
+当日上午，呼号为“荣归50”的中国空军运-20B专机进入中国领空后，4架歼-20战机升空护航，五机编队以“箭”形列阵长空，以空军最高礼仪告慰先烈。
 
-加强中韩茶文化交流，有助于共同弘扬东方茶文化的魅力，提升东方文化在世界文化舞台上的影响力。
+专机降落沈阳桃仙国际机场时，机场以民航最高礼仪“过水门”迎接英烈。
 
-活动现场，中国西湖龙井制茶师唐鹤君展示了龙井炒制工艺。
+与此同时，大连旅顺军港内，海军鄂尔多斯舰高悬满旗，全舰官兵分区列队，以海军最高礼节向飞越军港上空的“荣归50”致敬。
 
-茶叶清香弥漫，吸引韩国茶文化爱好者驻足围观，近距离感受中国传统制茶技艺。
+舰上呼号穿越长空：“志愿军先烈，欢迎回家！
 
-唐鹤君说：“看到韩国朋友喜欢中国茶，我特别开心，茶叶也越炒越有劲头了。
+山河无恙，国泰民安，这盛世如您所愿。
 
-” “中国拥有非常悠久的茶史。
+” 从桃仙国际机场到沈阳抗美援朝烈士陵园的街路沿线，数千面五星红旗悬挂在灯杆两侧。
 
 ## 相关推荐
 
-- 2026-06-29 11:47 - [2026年芒市海关综合技术服务中心预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:58 - [ARR季度环比飙升300%，迅策科技迎戴维斯双击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:48 - [一季度新疆外送电量同比增长23.42% 创历史同期新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:56 - [丰田3月全球销量同比下降7.3%，中国销量下降8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 12:04 - [珠光控股：进一步延迟刊发2025年全年业绩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:53 - [宁夏闽宁镇：短袖订单迎旺季 服装企业赶工忙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:42 - [启境GT7亮相北京国际车展，首发搭载华为乾崑全新一代智能技术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:46 - [能源高价推升通胀风险，英债收益率走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:54 - [文旅部：将督促属地集中整治龙虎山、长白山、稻城亚丁等景区摆渡车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:03 - [谷歌DeepMind首席执行官访韩，会见现代汽车和LG集团负责人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:38 - [逐绿而行暖万家——推动能源消费绿色化低碳化的丰台探索](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:38 - [稳面积 提单产 夯实粮食稳产丰产基础](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:05 - [直播海报：国务院政策例行吹风会：介绍《关于推进服务业扩能提质的意见》有关情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:37 - [非法募资314亿余元 刘必安等十六人非法集资案一审宣判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:45 - [英特尔股价盘后飙升 强劲业绩展望显示人工智能支出开始奏效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:09 - [目标落空、渠道收缩、大额分红，迎驾贡酒如何挽救颓势？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:01 - [述评：数字时代 浙江书香何处寻？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:07 - [牛弹琴：伊朗反击了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:47 - [美媒：特朗普称未来36至72小时内“可能”与伊朗谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:01 - [能定位会判断 AI乒乓机器人击败人类高手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:56 - [第十三批在韩中国人民志愿军烈士遗骸在沈阳安葬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:52 - [证监会出手！4只A股被立案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:42 - [从“企业找政策”到“政策找企业” 成都“1+N”精准对接会为油气产业链“搭桥铺路”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:56 - [海港人寿总经理变更：齐美祝任临时负责人，代行总经理职权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:50 - [快讯：美股股指期货、现货金银跳水，国际原油快速拉升，WTI原油涨幅扩大至4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:00 - [中国首次记录高魔芋开花 西双版纳植物园上演“巨花”奇观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:44 - [Swift数据显示 美元3月份在国际交易中占比升至51.1%的新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:46 - [海尔智家获Pzena Investment Management, LLC增持180.92万股 每股作价约20.99港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:47 - [美国政府：白宫晚宴枪手意图刺杀特朗普](http://www.blog.minike.top/Article/details/64895652657.shtml)
-- 2026-06-29 11:41 - [秦农银行国有持股占比首超50%](http://www.share.minike.top/Article/details/428744583.shtml)
-- 2026-06-29 11:49 - [“十五五”中国将发射风云四号D星 为共建“一带一路”国家提供服务](http://www.share.minike.top/Article/details/42127.shtml)
-- 2026-06-29 11:43 - [华宝基金红利风向标：高股息“倒车接人”？关注低波策略配置价值](http://www.share.kurohicncr.top/Article/details/928733781.shtml)
-- 2026-06-29 11:46 - [2026年“汉语桥”比利时赛区决赛举行](http://www.blog.kurohicncr.top/Article/details/74275600.shtml)
-- 2026-06-29 11:45 - [张雪发视频回应力挺余承东，称“拒绝了半个亿的商务合作”](http://www.share.kurohicncr.top/Article/details/608432382384.shtml)
-- 2026-06-29 11:42 - [国产芯片强势逼空，华宝基金科创芯片ETF（589190）猛攻5%，量价双高！国产替代主线重燃，成份股批量新高](http://www.blog.kurohicncr.top/Article/details/228264509070.shtml)
-- 2026-06-29 11:59 - [OpenAI进军手机！“牵手”立讯精密！电子板块领涨两市，华宝基金电子ETF（515260）猛拉4.14%，续创历史新高](http://www.blog.kurohicncr.top/Article/details/93964.shtml)
-- 2026-06-29 11:41 - [上海家化发布2026年一季报：营业收入17.95亿同比增长5.4% 归母净利润2.22亿同比增长2.3%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:37 - [德银：迅策目标价上调至351港元 维持“买入”评级](http://www.blog.kurohicncr.top/Article/details/216841.shtml)
-- 2026-06-29 11:44 - [上海傅利叶董事长顾捷荣获全国五一劳动奖章](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:58 - [一季度石家庄海关签发RCEP原产地证书2532份](http://www.share.minike.top/Article/details/51607087.shtml)
-- 2026-06-29 12:02 - [2粒药错写成21粒，失误何以“一路绿灯”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:56 - [氧化铝：惊弓之鸟还是风雨欲来？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:51 - [数智赋能民间文艺传承 2026“世界艺术和科技对话”上海活动举办](http://www.blog.minike.top/Article/details/02932736652.shtml)
+- 2026-06-29 11:46 - [华裔留学生昆明共读书：在文字中“寻根” 在交流中传承](http://www.share.minike.top/Article/details/35958302735.shtml)
+- 2026-06-29 12:04 - [新疆：升级版“新东方快车”启程 海内外游客共赴丝路之旅](http://www.share.kurohicncr.top/Article/details/877247874.shtml)
+- 2026-06-29 12:03 - [南宁加快打造面向东盟的“新茶饮之都”](http://www.share.minike.top/Article/details/450608342374.shtml)
+- 2026-06-29 12:07 - [特斯拉第三代人形机器人预计年中发布，三季度启动正式投产](http://www.blog.kurohicncr.top/Article/details/31221203238.shtml)
+- 2026-06-29 11:48 - [小城游火了！这些“小而美”的城市性价比高、体验感强](http://www.share.minike.top/Article/details/788632650.shtml)
+- 2026-06-29 12:07 - [抗美援朝老战士后代带糖迎接志愿军英烈回家：我想让他们尝一下 我们今天的甜滋滋](http://www.share.minike.top/Article/details/1372843499.shtml)
+- 2026-06-29 11:47 - [一习话丨“要提倡多读书 建设书香社会”](http://www.blog.minike.top/Article/details/19123826.shtml)
+- 2026-06-29 11:47 - [黑龙江“换心人”健康存活32年 刷新亚洲纪录](http://www.share.minike.top/Article/details/8176188.shtml)
+- 2026-06-29 12:09 - [中新控股拟折让约19.81%配售最多3612.2万股 净筹约1427.7万港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [一季度江西外贸进出口增长16% 汽车出口大增](http://www.share.kurohicncr.top/Article/details/2218018331.shtml)
+- 2026-06-29 11:59 - [市值单日蒸发超百亿，千亿液冷龙头一季报“踩急刹”](http://www.share.minike.top/Article/details/031327007.shtml)
+- 2026-06-29 11:53 - [原万家基金董事长方一天，今日被提名华安基金总经理](http://www.blog.minike.top/Article/details/069973754.shtml)
+- 2026-06-29 11:55 - [成都银行：2025年末不良贷款率0.68%，较上年末上升0.02个百分点](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:03 - [美国航空因燃油价格上涨下调展望](http://www.blog.minike.top/Article/details/03147350.shtml)
+- 2026-06-29 12:08 - [以军称黎巴嫩真主党“违反停火协议”](http://www.blog.kurohicncr.top/Article/details/7699207.shtml)

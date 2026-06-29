@@ -1,58 +1,57 @@
-# 美国库恩基金会主席人民日报撰文：制度优势成就中国发展的“接力跑”
+# 库克时代落幕，苹果新帅面临AI关键战役
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-能够集中力量实现国家长远目标，是中国制度体系的一个优势。为确保制度运行能够不断为人民带来福祉，中国始终强调要持续推进改革、完善体制、提升政府透明度，不断发展全过程人民民主 中国制度体系的一大显著优势，在于能够确保长期战略持续推进、落到实处。最具说服力的例证之一，就是从2012年拉开新时代脱贫攻坚序幕，到2020年底全面消除绝对贫困，历时8年圆满完成的中国脱贫攻坚战。随后，中国实
+北京时间4月21日一早，Apple官网上挂出了“来自Tim的一封信”，信中蒂姆﹒库克（Tim Cook）写到：“在接下来的几个月里，我将过渡到一个新的角色，于9月份卸任CEO一职。”随后，Apple正式宣布，蒂姆﹒库克将出任Apple董事会的执行董事长，硬件工程高级副总裁约翰﹒特努斯（John Ternus）将于2026年9月1日起担任 Apple 的下一任CEO。记者了解到，
 
 ## 正文
 
-能够集中力量实现国家长远目标，是中国制度体系的一个优势。
+北京时间4月21日一早，Apple官网上挂出了“来自Tim的一封信”，信中蒂姆﹒库克（Tim Cook）写到：“在接下来的几个月里，我将过渡到一个新的角色，于9月份卸任CEO一职。
 
-为确保制度运行能够不断为人民带来福祉，中国始终强调要持续推进改革、完善体制、提升政府透明度，不断发展全过程人民民主 中国制度体系的一大显著优势，在于能够确保长期战略持续推进、落到实处。
+”随后，Apple正式宣布，蒂姆﹒库克将出任Apple董事会的执行董事长，硬件工程高级副总裁约翰﹒特努斯（John Ternus）将于2026年9月1日起担任 Apple 的下一任CEO。
 
-最具说服力的例证之一，就是从2012年拉开新时代脱贫攻坚序幕，到2020年底全面消除绝对贫困，历时8年圆满完成的中国脱贫攻坚战。
+记者了解到，库克自2011年成为Apple CEO，在其任期内，Apple推出了Apple Watch、AirPods 和 Vision Pro 等新品类，以及从iCloud、Apple Pay 到 Apple TV 和 Apple Music 等一系列服务。
 
-随后，中国实施乡村振兴战略，目标是最终实现农业强、农村美、农民富的乡村全面振兴。
+记者查阅Apple财报获悉，在库克的领导下，Apple的市值从约 3500 亿美元增长至 4 万亿美元，增幅超过1000%；年营收从2011财年的1080亿美元增长至2025 财年的超过4160 亿美元，翻了接近两番。
 
-类似体现长期战略优势的中国实践还有很多：南水北调工程，历时数十年建设，是世界上最大的调水工程；医疗改革持续深化，基本医疗保险参保率稳定在95%左右；实施西部大开发战略，缩小了沿海与内陆地区的发展差距；航天事业不断推进，在载人航天、空间站建设、探月工程、火星探测等领域捷报频传…… 能够集中力量实现国家长远目标，是中国制度体系的一个优势。
+在他的任期内，Apple活跃设备保有量超过 25 亿台。
 
-为确保制度运行能够不断为人民带来福祉，中国始终强调要持续推进改革、完善体制、提升政府透明度，不断发展全过程人民民主。
+Apple公司表示，库克在Apple创建可穿戴设备品类方面发挥了重要作用，还推出了自研芯片，使公司能够掌握更多核心技术，产品在能效和性能方面实现了提升。
 
-在科技创新、脱贫攻坚等重大领域，中国都较好发挥了制度优势。
+不过，库克任内也面临争议。
 
-简而言之，就是中国政府集中资源、凝聚全体人民力量，实现国家发展重要目标的“接力跑”。
+近年来，“创新乏力”成为挂在苹果头上的达摩克利斯之剑。
 
 ## 相关推荐
 
-- 2026-06-29 11:36 - [新教育完美教室班本课程研发专题研讨会在沪举办 聚焦卓越课程与幸福教育](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:53 - [“剪映”“猫箱”“即梦AI”因合成内容标识违法问题被依法查处](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:39 - [迎来24项“国家红利”，综保区加速扩能提质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:47 - [中国再保险：中再寿险一季度净亏损2.51亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:45 - [小新带你看亚沙：这个展馆为何吸引老外扎堆打卡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:00 - [软银携手科技巨头，打造5000亿美元AI数据中心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:46 - [我国拟修订农业法 增加建立粮食安全监测预警制度等内容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:53 - [“全球AI光算力第一股”诞生 上海“芯片先锋队”再添新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:56 - [中国人民银行茂名市分行：普惠金改品牌影响力持续扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:57 - [深圳莲塘口岸单日出入境人次再攀新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:03 - [原青海省地方金融监督管理局一级巡视员吴春庆被开除党籍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:55 - [视频 | 理财亏716万元，金融街证券被判赔偿10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:55 - [亿腾嘉和早盘涨超3% 于2026年AACR年会公布四特异性抗体EDP001临床前研究数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:54 - [青海省现有鸟类22目75科541种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:46 - [南京银行：2025年净利润为218.07亿元，同比增长8.08%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:48 - [（寻味中华｜书香）全民阅读续文脉 解缙故事咏流传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:02 - [从《黑神话：悟空》到“佛小伴”：山西织密新兴领域知识产权保护网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:46 - [Adobe公布250亿美元回购计划 旨在向投资者传递信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 12:05 - [成都双流“国字号”立法联系点运行一周年：民意搭上国家立法“直通车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:54 - [美国司法部将医用大麻重新归类为低危险性毒品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:05 - [广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:43 - [常熟银行：2025年实现营业收入116.19亿元，同比增长6.51%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:45 - [国际能源署署长：世界正面临史上最严重的能源安全威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:47 - [拉卡拉：“炒股”大赚，主业承压](http://www.blog.minike.top/Article/details/6151547465.shtml)
-- 2026-06-29 11:51 - [航旅纵横：五一叠加春假长线出游升温 上海居国内热门目的地首位](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:48 - [时政微周刊丨总书记的一周（4月20日—4月26日）](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:55 - [从课堂到云端 自媒体重构海外华文教育生态](http://www.blog.minike.top/Article/details/37636814.shtml)
-- 2026-06-29 12:03 - [巴克莱：美联储本周料将按兵不动，2026年晚些时候可能降息](http://www.share.minike.top/Article/details/64311921.shtml)
-- 2026-06-29 11:49 - [一季度高技术产业实际使用外资同比增长30.7%](http://www.share.kurohicncr.top/Article/details/23499598095.shtml)
-- 2026-06-29 11:53 - [四川大巴山“爱心帮帮团”：用“微力量”汇聚“大温暖”](http://www.blog.kurohicncr.top/Article/details/12007.shtml)
-- 2026-06-29 12:04 - [亚洲芯片股走高 市场对地缘政治风险的担忧降温](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [现场下单！中国机器人“圈粉”爱尔兰老球员](http://www.blog.kurohicncr.top/Article/details/433211054733.shtml)
-- 2026-06-29 11:42 - [新兴市场“越涨越便宜”：亚洲芯片三雄引领的估值悖论](http://www.share.kurohicncr.top/Article/details/190674135756.shtml)
-- 2026-06-29 11:44 - [关于白宫记者晚宴枪击案嫌疑人科尔・艾伦的全部已知信息](http://www.share.minike.top/Article/details/2097591.shtml)
-- 2026-06-29 11:50 - [002779、603360，被证监会立案！](http://www.blog.minike.top/Article/details/84897.shtml)
-- 2026-06-29 11:41 - [台湾新北市长民调结果出炉，蓝白共推李四川参选](http://www.blog.minike.top/Article/details/352238664037.shtml)
-- 2026-06-29 11:53 - [患恶性肿瘤理赔遭拒 和谐健康被指竟多次“恶意”拒赔](http://www.share.minike.top/Article/details/42270.shtml)
-- 2026-06-29 11:38 - [外交部评白宫记协年度晚宴枪击事件：一贯反对和谴责非法暴力行为](http://www.share.minike.top/Article/details/7735481.shtml)
+- 2026-06-29 11:54 - [美国贸易代表格里尔周五将与欧盟贸易专员讨论数字税问题](http://www.share.minike.top/Article/details/871799.shtml)
+- 2026-06-29 12:11 - [2026一季度新发ETF：83只募资335亿，平均发行规模同比降5.09亿，电力、港股科技等主题成布局重点](http://www.blog.minike.top/Article/details/29191158238.shtml)
+- 2026-06-29 12:08 - [涨价拉动快递公司业绩，燃油成本仍成隐忧](http://www.share.minike.top/Article/details/5010256392.shtml)
+- 2026-06-29 11:51 - [中海油服：一季度归母净利润8.56亿元，同比下滑3.60%](http://www.share.minike.top/Article/details/7975895.shtml)
+- 2026-06-29 11:48 - [湘图古籍数字化成果显著 珍贵典籍“活”化出新](http://www.share.kurohicncr.top/Article/details/533488777788.shtml)
+- 2026-06-29 12:11 - [群山为“岸” 商贸成“海”：重庆秀山于武陵山腹地开“世界超市”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [燃油成本飙升，美国航空腰斩2026年盈利预期](http://www.blog.kurohicncr.top/Article/details/26984.shtml)
+- 2026-06-29 11:43 - [操盘必读：影响股市利好或利空消息_2026年4月24日_财经新闻](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [伊朗总统府官员：与美达成协议“需要时间”](http://www.share.kurohicncr.top/Article/details/070191518.shtml)
+- 2026-06-29 11:55 - [宏润建设：2025年归母净利润2.8亿元，同比下降1.14%](http://www.blog.minike.top/Article/details/735628242294.shtml)
+- 2026-06-29 11:52 - [中国选手范俊杰夺得三亚亚沙会首金](http://www.share.kurohicncr.top/Article/details/45651618507.shtml)
+- 2026-06-29 11:43 - [美国西弗吉尼亚州一工厂发生化学品泄漏 造成两人死亡](http://www.blog.minike.top/Article/details/749670829801.shtml)
+- 2026-06-29 11:48 - [日韩股市集体高开 日股升至纪录新高](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:06 - [世界地球日｜用我们的力量守护高原生态](http://www.share.minike.top/Article/details/26631.shtml)
+- 2026-06-29 12:09 - [必维国际检验集团设立新亚洲中心，扩大海上服务能力](http://www.blog.minike.top/Article/details/4739983.shtml)

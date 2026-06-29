@@ -1,52 +1,59 @@
-# 国际龙舟联合会主席：推动龙舟运动加速“划向”奥运殿堂
+# 从法国名家手稿展到MBTI荐书 浙大这样让阅读“破圈”
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月27日 08:06 来源：中国新闻网 4月26日，第六届亚洲沙滩运动会龙舟项目比赛历经三天，在三亚河落幕。 国际龙舟联合会主席克劳迪奥·舍米接受中新社专访时表示，本届亚沙会龙舟项目采用12人龙舟制，涵盖男、女两组100米、200米、400米直道竞速。短距离项目也让冲刺观赏性更强，胜负仅在“毫厘之间”，展现出亚洲龙舟运动高水平竞争格局。目前，龙舟尚未成为
+中新网杭州4月23日电 题：从法国名家手稿展到MBTI荐书 浙大这样让阅读“破圈” 作者 林波 曹丹 孙琳茹 拿破仑的军事手谕、卢梭未发表的法律文书、莫奈的艺术札记……这些墨迹斑驳的纸页，不仅是历史的鲜活证物，更是阅读行为的生动见证。它们诞生于沉思、对话、抗争与创造之中，唯有通过深度阅读，才能重焕生机。 4月23日是世界阅读日，在浙江大学(下称“浙大”)图书馆主馆展厅，“法兰西
 
 ## 正文
 
-发布时间：2026年04月27日 08:06 来源：中国新闻网 4月26日，第六届亚洲沙滩运动会龙舟项目比赛历经三天，在三亚河落幕。
+中新网杭州4月23日电 题：从法国名家手稿展到MBTI荐书 浙大这样让阅读“破圈” 作者 林波 曹丹 孙琳茹 拿破仑的军事手谕、卢梭未发表的法律文书、莫奈的艺术札记……这些墨迹斑驳的纸页，不仅是历史的鲜活证物，更是阅读行为的生动见证。
 
-国际龙舟联合会主席克劳迪奥·舍米接受中新社专访时表示，本届亚沙会龙舟项目采用12人龙舟制，涵盖男、女两组100米、200米、400米直道竞速。
+它们诞生于沉思、对话、抗争与创造之中，唯有通过深度阅读，才能重焕生机。
 
-短距离项目也让冲刺观赏性更强，胜负仅在“毫厘之间”，展现出亚洲龙舟运动高水平竞争格局。
+4月23日是世界阅读日，在浙江大学(下称“浙大”)图书馆主馆展厅，“法兰西文心与阅读之光——法国名人名家手稿珍品展”正在举行，35件跨越三个世纪的珍贵手稿，将师生带入一场与历史对话、与思想对坐的文化盛宴。
 
-目前，龙舟尚未成为奥运会正式比赛项目。
+据浙大图书馆党委书记兼副馆长王苑介绍，这场展览是2026年“书香浙大”阅读文化节“览见新知”板块的重要组成部分。
 
-国际龙舟联合会将持续依托各类综合性国际运动会，推广这项运动至更多的国家和地区，全力推动龙舟运动加速“划向”奥运殿堂。
+本届阅读文化节以“书香引航”“共读共振”“览见新知”三大板块为支撑，依托这座拥有12个分馆体系的高校图书馆，践行“时时、处处、人人皆可阅读”的理念，让阅读成为一种生活方式。
 
-(李宇凡 周昕 部分视频来源 第六届亚洲沙滩运动会组委会） 责任编辑：【黄钰涵】
+“我们鼓励学生走进历史深处，同时积极参与中外文化交流、中西文明互鉴。
+
+”王苑介绍，展览还展示了包括浙大法国研究院首席专家许钧翻译《追忆似水年华》的手稿等研究成果。
+
+“阅读更重要的是有所输出，把自己的感受通过文字表达出来，这样也有助于更好地深入思考。
 
 ## 相关推荐
 
-- 2026-06-29 12:04 - [从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:59 - [美国多地再发生枪击事件，致十余人伤亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:03 - [沃顿教授西格尔：围绕鲍威尔的美联储“大戏”远未落幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:42 - [日本北部山火已连烧6天 过火面积超1600公顷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:37 - [重庆法院发布首例承认欧洲仲裁机构裁决案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:59 - [“广货行天下 文旅邀您来”相关活动推出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:52 - [中方禁止外资收购Manus项目，外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:39 - [伊朗恢复飞往重要国际目的地航班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 12:04 - [印尼列车相撞事故已致14死84伤 总统要求彻查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:56 - [京津冀三地人民银行组织开展2026年党委理论学习中心组联组学习](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 12:09 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:57 - [受人工智能需求推动，ASM国际销售额超预期 股价上涨8.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:57 - [Palantir与美国农业部签署3亿美元协议，保障粮食供应链安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:54 - [直线拉升！涨停！伊朗，传来大消息！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:44 - [赵明车圈首秀：千里科技 AI 战略暨产品发布会今晚 7 点举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:57 - [Rivian：已开始生产全新纯电动车型R2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:06 - [香港创新科技及工业局局长：相信会有更多优秀企业落户港深创科园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:00 - [“手工经济”兴起：换一种方式“感受生活”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:56 - [威高股份获Wellington Management Group LLP增持约811.35万股 每股作价约3.69港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:43 - [原油市场遭遇“双重压力测试”！交易者如何应对？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:02 - [接到这类电话，请立即挂断！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:49 - [宁德时代与河南省五家重点国企达成战略合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:50 - [日本反对韩国 MBK Partners 收购牧野铣床制作所](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:54 - [江河与共丨从卫星遥感到基因解码！致公党中央给皖江做了五年“全面体检”](http://www.share.kurohicncr.top/Article/details/854293621850.shtml)
-- 2026-06-29 11:47 - [亚市早盘金价小幅走高，因投资者评估伊朗向美国提出的提议](http://www.blog.minike.top/Article/details/11016308.shtml)
-- 2026-06-29 11:54 - [北京银行：聘任魏昱为首席合规官](http://www.blog.minike.top/Article/details/19765482.shtml)
-- 2026-06-29 11:57 - [酒价内参4月28日价格发布：飞天茅台小幅上涨3元](http://www.blog.kurohicncr.top/Article/details/57117848.shtml)
-- 2026-06-29 11:52 - [特朗普：白宫周围很安全 英国国王会非常安全](http://www.share.minike.top/Article/details/16508.shtml)
-- 2026-06-29 11:37 - [新疆伊犁：充电服务提质效 新能源汽车惠民生](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [药明康德一季报营收首破百亿！港股生物医药概念股集体走强](http://www.share.minike.top/Article/details/800943.shtml)
-- 2026-06-29 12:02 - [8000亿青岛银行“低分红”迷局：资本消耗加剧，零售短板待解](http://www.blog.kurohicncr.top/Article/details/38061279.shtml)
-- 2026-06-29 11:54 - [福莱新材2025年扣非净利润增长31.57% 拟10派1.5元](http://www.share.kurohicncr.top/Article/details/905668045.shtml)
-- 2026-06-29 11:52 - [美国官宣中东亚洲货币互换大布局，背后深层战略布局藏不住](http://www.blog.kurohicncr.top/Article/details/886857005794.shtml)
-- 2026-06-29 11:44 - [从老建筑到古运河 扬州这样“有机”生长](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [全国妇联授予徐梦桃等4名女运动员全国三八红旗手称号](http://www.share.minike.top/Article/details/09383490.shtml)
-- 2026-06-29 11:36 - [冀凯股份业绩预告“变脸”：总额法改净额法藏猫腻 投资者索赔窗口已开启](http://www.blog.kurohicncr.top/Article/details/500730855.shtml)
-- 2026-06-29 11:45 - [上海论坛分论坛“共治与协同：构建AI全球治理新秩序”举办](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:04 - [东珠生态（603359）投资者索赔分析](http://www.blog.kurohicncr.top/Article/details/1768511.shtml)
+- 2026-06-29 12:11 - [联合国发展系统驻华协调员：中国为全球数字化转型提供宝贵经验](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:07 - [中老各界友人云南共庆两国建交65周年 展望合作新方向](http://www.blog.kurohicncr.top/Article/details/08968.shtml)
+- 2026-06-29 12:09 - [大美边疆看我家丨黑龙江哈尔滨：江畔夜景醉人心](http://www.share.minike.top/Article/details/215316102726.shtml)
+- 2026-06-29 11:48 - [私募巨头克林斯基：当前是配置私募股权和信贷的“绝佳时机”](http://www.blog.kurohicncr.top/Article/details/96963631.shtml)
+- 2026-06-29 11:58 - [第三艘美国航空母舰预计将在3至5天内抵达中东](http://www.share.kurohicncr.top/Article/details/849454191169.shtml)
+- 2026-06-29 12:05 - [宁夏：“垂钓节”绘就乡村振兴新画卷](http://www.share.kurohicncr.top/Article/details/6096556.shtml)
+- 2026-06-29 11:55 - [“君约鹰城·鉴藏千秋——傅申先生书画特展”举办](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:51 - [4月23日收盘：美股收涨纳指创历史新高 美国延长对伊停火](http://www.blog.kurohicncr.top/Article/details/447737109371.shtml)
+- 2026-06-29 11:44 - [日本以国家安全风险为由 反对韩国MBK Partners收购牧野铣床](http://www.blog.kurohicncr.top/Article/details/69502876283.shtml)
+- 2026-06-29 11:49 - [分析师：股市正艰难维持平衡态势](http://www.share.kurohicncr.top/Article/details/77545.shtml)
+- 2026-06-29 12:10 - [芯片制造商股价延续史上最长涨势 受德州仪器强劲业绩提振](http://www.share.kurohicncr.top/Article/details/666903.shtml)
+- 2026-06-29 12:09 - [夏凤俭任山东省人民政府副省长](http://www.blog.kurohicncr.top/Article/details/393867.shtml)
+- 2026-06-29 11:42 - [普华永道涉恒大审计失当 被香港会财局罚款3.1亿港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [从车间到星河 四川加速构建商业航天全产业链](http://www.share.kurohicncr.top/Article/details/6205183.shtml)
+- 2026-06-29 12:10 - [成都银行：一季度实现营业收入61.98亿元，同比增长6.54%](http://www.share.minike.top/Article/details/2655851.shtml)

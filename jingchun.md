@@ -1,56 +1,58 @@
-# 中共中央政治局召开会议 分析研究当前经济形势和经济工作 中共中央总书记习近平主持会议
+# 伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-新华社北京4月28日电中共中央政治局4月28日召开会议，分析研究当前经济形势和经济工作。中共中央总书记习近平主持会议。 会议认为，今年以来，以习近平同志为核心的党中央加强对经济工作的全面领导，着眼全局、前瞻布局，各地区各部门靠前发力、综合施策，我国经济起步有力，主要指标好于预期，彰显强大韧性和活力。同时，也面临一些困难和挑战，经济持续稳中向好的基础还需进一步巩固。要增强信心，以
+此次工厂关闭将影响约 600 名员工 伊莱克斯（Electrolux）宣布，将计提约 6500 万美元重组费用，并关闭其位于匈牙利瑙吉伯勒尼（Jaszbereny）的工厂，该工厂主要生产嵌入式及独立式制冷家电产品。 这家瑞典家电制造商周三表示，在对公司战略进行评估后，决定于 2026 年底前停止该工厂生产，以通过优化生产布局提升成本竞争力与运营灵活性。 公司称：“这一决定源于当
 
 ## 正文
 
-新华社北京4月28日电中共中央政治局4月28日召开会议，分析研究当前经济形势和经济工作。
+此次工厂关闭将影响约 600 名员工 伊莱克斯（Electrolux）宣布，将计提约 6500 万美元重组费用，并关闭其位于匈牙利瑙吉伯勒尼（Jaszbereny）的工厂，该工厂主要生产嵌入式及独立式制冷家电产品。
 
-中共中央总书记习近平主持会议。
+这家瑞典家电制造商周三表示，在对公司战略进行评估后，决定于 2026 年底前停止该工厂生产，以通过优化生产布局提升成本竞争力与运营灵活性。
 
-会议认为，今年以来，以习近平同志为核心的党中央加强对经济工作的全面领导，着眼全局、前瞻布局，各地区各部门靠前发力、综合施策，我国经济起步有力，主要指标好于预期，彰显强大韧性和活力。
+公司称：“这一决定源于当前的竞争环境，市场需求疲软、价格压力以及成本竞争力受限等因素共同影响所致。
 
-同时，也面临一些困难和挑战，经济持续稳中向好的基础还需进一步巩固。
+” 此次计划中的工厂关闭将影响约 600 名员工。
 
-要增强信心，以更大力度和更实举措抓好经济工作。
+伊莱克斯将在第二季度确认约 6 亿瑞典克朗（合 6530 万美元）的重组费用，其中 3 亿克朗为现金相关支出。
 
-会议指出，要坚持稳中求进工作总基调，完整准确全面贯彻新发展理念，加快构建新发展格局，更好统筹国内国际两个大局，统筹发展和安全，坚定不移深化改革开放，推动科技自立自强、产业链自主可控，精准有效实施更加积极的财政政策和适度宽松的货币政策，持续扩大内需、优化供给，做优增量、盘活存量，着力稳就业、稳企业、稳市场、稳预期，增强经济发展内生动力，进一步做强国内大循环，做优国内国际双循环，努力实现“十五五”良好开局。
+伊莱克斯表示，将通过现有产能及外部制造合作伙伴完全满足制冷产品的市场需求。
 
-会议强调，要用好用足宏观政策。
+该决定不会影响其布达佩斯办事处负责的当地销售与营销业务。
 
-持续优化财政支出结构，兜牢基层“三保”底线。
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 11:42 - [美国加州亿万富豪税已集齐请愿签名，获准纳入公投议程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:43 - [绍兴越城：以“三抓实”落实统战工作责任制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:53 - [知情人士：美官员将讨论上周停火延期后 是否恢复对伊朗的轰炸行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:51 - [青春，就应该这样！——写在2026年五四青年节到来之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 12:00 - [人社部：一季度全国城镇新增就业299万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 12:04 - [江西鄱阳湖南矶湿地首次发现蓝喉太阳鸟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 12:01 - [青海西宁：文体商旅融合点燃五月高原消费热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:40 - [2026年3月广东省外贸进出口总值表（人民币值）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:58 - [跨境电商架桥梁 让互利之花在中越边境绽放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:50 - [韩国上市公司总市值首次突破6000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:08 - [华贵人寿董事长刘刚将任新职，第一大股东茅台集团持股已超49%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:06 - [班诺特银行加速阿兹特克球场无现金化改造，备战世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:48 - [西南航空：受燃油价格上涨影响，第二季度盈利将低于预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:59 - [花旗：中国联通给予“买入”评级 目标价11.2港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:06 - [规范升级！32万亿银行理财信息披露迎重大调整](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:42 - [2026上海·静安现代戏剧谷链接全球戏剧资源](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:02 - [光大期货：4月23日矿钢煤焦日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:11 - [志愿军老战士连续多年吹号迎接战友：我要告诉他们 我们赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:43 - [山东省泰安市委常委、副市长刘峰梅接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:46 - [一间中国礼物商店，如何让在地非遗老技艺“活”在当下？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:11 - [美以失算！伊朗强硬派全面掌权，温和派靠边站，美伊谈判又熄火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:53 - [“不只是司机的苦日子”——美高油价压力从运输业向消费端蔓延](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:00 - [绿城的"体外"生意，撑不住了](http://www.blog.minike.top/Article/details/019394049.shtml)
-- 2026-06-29 11:51 - [油价冲击波袭来，全球消费品巨头面临定价压力测试](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:58 - [全国首批米粉“批次检验（检疫）”改革试点落地江西抚州](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:50 - [五一假期注意出行安全 南方多地有大范围降雨](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [江河与共丨九三学社中央主席武维华：“既找病灶又开药方” 九三学社助力长江生态保护](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:48 - [解决新旧海商法衔接适用问题 最高法出台司法解释](http://www.share.kurohicncr.top/Article/details/38508.shtml)
-- 2026-06-29 11:37 - [中非银联体召开第二届高官会暨中非金融合作研讨会](http://www.share.minike.top/Article/details/667509723.shtml)
-- 2026-06-29 11:48 - [有的亏超2亿元，有的净利翻2倍！2025年支付公司业绩分化严重](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [外交部回应白宫记者晚宴枪击事件：中方一贯反对和谴责非法暴力行为](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:39 - [粤港澳大湾区自行车骑行嘉年华（惠州博罗站）举行](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [高市称为长期战争做好准备，外交部：日本是不是要重蹈历史覆辙？](http://www.share.kurohicncr.top/Article/details/26712295.shtml)
-- 2026-06-29 11:57 - [南华早报出版人谭卫儿：应营造良好舆论环境，为各领域合作创造有利条件](http://www.share.minike.top/Article/details/03852.shtml)
-- 2026-06-29 11:36 - [“机器人大牛股”中坚科技突遭证监会立案，近2万股民或可索赔](http://www.share.minike.top/Article/details/3985918165.shtml)
-- 2026-06-29 11:54 - [受气象不佳影响 “两马”航线将双向停航](http://www.blog.kurohicncr.top/Article/details/3763432.shtml)
-- 2026-06-29 11:39 - [探访武汉都市圈花展：近千种花卉盛放 12城共绘春韵](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [“6.0%”的浙江看点](http://www.blog.kurohicncr.top/Article/details/73891.shtml)
+- 2026-06-29 12:01 - [特朗普称美国“已完全控制了霍尔木兹海峡”](http://www.share.kurohicncr.top/Article/details/3214839.shtml)
+- 2026-06-29 11:58 - [中际旭创市值破万亿 老实业家如何逆袭硅谷](http://www.blog.kurohicncr.top/Article/details/66841.shtml)
+- 2026-06-29 12:07 - [俄总统新闻秘书：普京愿随时与泽连斯基会面但须“富有成效”](http://www.share.kurohicncr.top/Article/details/7514731750.shtml)
+- 2026-06-29 11:49 - [“四季新韵·感知重庆”境外媒体重庆行交流活动启动](http://www.share.minike.top/Article/details/12259.shtml)
+- 2026-06-29 11:59 - [连亏5年，越亏越多！知名超市学胖东来效果不佳，去年关店414家，巨亏9.57亿元，最新市值仅35亿元](http://www.blog.kurohicncr.top/Article/details/51177271851.shtml)
+- 2026-06-29 11:58 - [第六届亚洲沙滩运动会在三亚开幕 谌贻琴出席并宣布开幕](http://www.blog.minike.top/Article/details/66641407766.shtml)
+- 2026-06-29 11:51 - [美伊和平谈判陷入僵局，霍尔木兹海峡局势加剧](http://www.share.minike.top/Article/details/828168330.shtml)
+- 2026-06-29 11:42 - [午评：国内期货主力合约涨跌互现 低硫燃油涨超6%](http://www.share.kurohicncr.top/Article/details/6453800289.shtml)
+- 2026-06-29 12:11 - [百思买任命资深人士为CEO](http://www.share.kurohicncr.top/Article/details/991215.shtml)
+- 2026-06-29 12:06 - [达能销售额增长，美国市场重拾增长动力](http://www.blog.minike.top/Article/details/972692275.shtml)
+- 2026-06-29 11:43 - [中办、国办：支持发展绿色低碳、集约循环的算力设施](http://www.share.kurohicncr.top/Article/details/8116217439.shtml)
+- 2026-06-29 11:57 - [ASMPT盘中涨超7% 首季盈利及第二季展望均超预期](http://www.blog.minike.top/Article/details/2386595638.shtml)
+- 2026-06-29 12:02 - [西安检察探索知识产权保护“立体解题”新路径](http://www.blog.kurohicncr.top/Article/details/861249.shtml)
+- 2026-06-29 12:06 - [事关节能降碳工作 中办、国办重磅文件对外发布](https://github.com/lisacumin64-arch)

@@ -1,50 +1,58 @@
-# 中国人民银行茂名市分行：普惠金改品牌影响力持续扩大
+# 广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-上证报中国证券网讯（记者 周亮）记者27日从中国人民银行茂名市分行获悉，2025年9月，茂名成功入选全国新一批深化普惠金融改革试点，成为广东省唯一普惠金融改革试点城市。试点落地以来，在省委、省政府和市委、市政府的统筹部署下，茂名构建起省市联动、政银协同、校地合作、上下贯通的改革推进格局，打造普惠金融数字平台、数智化物权、数字链农产业联合体、“荔枝气候贷”、罗非鱼金融协同创新等特
+中新网广州4月22日电 (记者 程景伟)广东省2026年“全民阅读活动周”启动仪式22日在广州白鹅潭大湾区艺术中心举行。作为本次启动仪式的重要环节，广东全民经典阅读大赛宣布正式启动。 作为广东推动全民阅读、建设书香社会的重要举措，广东全民经典阅读大赛以“粤读粤精彩”为主题，由广东省委教育工作领导小组、广东全民终身学习平台主办，广东省委宣传部牵头。大赛秉持“全民参与”宗旨，创新“
 
 ## 正文
 
-上证报中国证券网讯（记者 周亮）记者27日从中国人民银行茂名市分行获悉，2025年9月，茂名成功入选全国新一批深化普惠金融改革试点，成为广东省唯一普惠金融改革试点城市。
+中新网广州4月22日电 (记者 程景伟)广东省2026年“全民阅读活动周”启动仪式22日在广州白鹅潭大湾区艺术中心举行。
 
-试点落地以来，在省委、省政府和市委、市政府的统筹部署下，茂名构建起省市联动、政银协同、校地合作、上下贯通的改革推进格局，打造普惠金融数字平台、数智化物权、数字链农产业联合体、“荔枝气候贷”、罗非鱼金融协同创新等特色模式，形成一批可复制可推广的茂名实践案例，普惠金改品牌影响力持续扩大。
+作为本次启动仪式的重要环节，广东全民经典阅读大赛宣布正式启动。
 
-责任编辑：秦艺
+作为广东推动全民阅读、建设书香社会的重要举措，广东全民经典阅读大赛以“粤读粤精彩”为主题，由广东省委教育工作领导小组、广东全民终身学习平台主办，广东省委宣传部牵头。
+
+大赛秉持“全民参与”宗旨，创新“赛学一体、以赛促读”的机制，深度对接“广东全民终身学习平台”，实现参赛者学习行为记录与成果认证，是推动学习型社会建设的生动实践。
+
+大赛以“赛学一体、以赛促读”为机制，不设门槛、不限形式，将全民阅读化作可参与、可竞技、可分享的公共话题，让一个人的静读，变成一群人的共鸣、一座城的风尚。
+
+本次大赛面向广东全省广大群众，不限年龄、职业、地域，人人皆可参赛。
+
+赛事设置三大赛道，分别为青少年组(18岁以下)、成人组(18岁及以上)、家庭/团队组(成员不超过8人)，广泛征集与经典阅读相关的“读写讲演”图文及视频。
+
+参赛作品需根据大赛推荐书目，紧密围绕粤港澳大湾区发展、绿美广东、历史人物、乡土民俗、风景名胜等岭南元素展开创新解读与深度演绎，展现岭南文化的时代精神与地方品格。
 
 ## 相关推荐
 
-- 2026-06-29 11:45 - [重庆银行：一季度归母净利润17.93亿元 同比增长10.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:59 - [多部门协同发力 上海出台14项举措助力民营经济高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:48 - [德国据悉尝试为德国商业银行寻找白衣骑士 以应对裕信银行的收购](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:54 - [上海家化一季度扣非净利润同比增长38.2%，四个聚焦战略加速兑现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:48 - [台湾导演林家亿：AI短片“雪山救狐狸”在岛内爆火，源于两岸共同记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:01 - [GTC泽汇:尼日利亚炼化驱动转型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:58 - [我国拟修改水法提升水安全保障能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:46 - [APEC中国年，中美互动预期几何？中方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:38 - [“探店”网红白冰偷税被查 追缴并罚款共计超1891万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:59 - [大美边疆看我家丨内蒙古锡林浩特：百鸟翔集绘春图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 12:02 - [陈旭：日方应恪守中日四个政治文件 勿因错误言论干扰APEC合作环境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:50 - [湖北：“五一”假期文旅融合主题产品焕新登场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:01 - [生态环境部：一季度我国环境空气质量总体改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:05 - [收评：国内期货主力合约涨多跌少 多晶硅跌近7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:56 - [习言道｜把“义乌发展经验”进一步总结好运用好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:50 - [育碧官宣：《刺客信条：黑旗》重制版7月9日发售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:49 - [受权发布｜中共中央办公厅 国务院办公厅印发《碳达峰碳中和综合评价考核办法》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:55 - [海外公司诉蔚来换电专利侵权索赔2.5亿美元 蔚来回应技术自主研发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:42 - [摩根大通上调日经指数年底目标至70000点，因人工智能热潮及日元走软](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:10 - [邦达亚洲:经济数据表现疲软 欧元小幅收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:01 - [杭州一季度GDP6109亿元 同比增长5.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:44 - [人民领袖｜黄土地上的生态守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:00 - [海港人寿首度调将：乔宁到龄辞任，“精算背景”齐美祝拟任总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:09 - [中办 国办发布关于更高水平更高质量做好节能降碳工作的意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:49 - [万里同心 共护山河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:12 - [中播数据公布于4月23日上午起复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:05 - [珠江流域进一步强化节约用水管理工作](http://www.share.kurohicncr.top/Article/details/3040011.shtml)
-- 2026-06-29 11:57 - [“五一”假期预计全国日均租车量将超70万辆](http://www.share.minike.top/Article/details/84176.shtml)
-- 2026-06-29 11:56 - [2026粤超首轮东莞主场获胜 科学家+企业家携手开球](http://www.blog.kurohicncr.top/Article/details/1185287980.shtml)
-- 2026-06-29 11:56 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](http://www.share.kurohicncr.top/Article/details/10919448.shtml)
-- 2026-06-29 11:36 - [西藏社科院举办专题研讨：以法治力量夯实民族团结进步根基](http://www.blog.kurohicncr.top/Article/details/653246022.shtml)
-- 2026-06-29 11:50 - [伊朗战事推高油价，英国石油利润翻倍、大幅超出预期](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [长江“微笑天使”又添丁，见证江苏生态之变](http://www.blog.minike.top/Article/details/040034214.shtml)
-- 2026-06-29 11:58 - [春到桑干河](http://www.blog.kurohicncr.top/Article/details/20532388.shtml)
-- 2026-06-29 11:37 - [一季度浙江算力中心用电规模和增速创新高](http://www.share.minike.top/Article/details/064678.shtml)
-- 2026-06-29 12:04 - [墨西哥比索走稳，股市受美伊僵局影响小幅回落](http://www.blog.kurohicncr.top/Article/details/60558758899.shtml)
-- 2026-06-29 11:58 - [甘肃银行空前分红17.78亿为归母净利三倍 营收两连降零售贷款不良率4.16%压力增大](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [互联网广告要跳出“流量至上”误区](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [2026第二届飞剑“大使杯”国际板球邀请赛在京举办](http://www.share.kurohicncr.top/Article/details/1400356.shtml)
-- 2026-06-29 12:05 - [上海定制何以走红？外籍人士为何偏爱这份“专属质感”](http://www.share.kurohicncr.top/Article/details/921112482129.shtml)
-- 2026-06-29 11:45 - [中国黄河流域137处国家级自然保护区优良率达99.27％](http://www.share.minike.top/Article/details/50459440298.shtml)
+- 2026-06-29 12:08 - [一季度ETF市场回顾：四只沪深300ETF缩水6300亿，黄金ETF、短融ETF成“避风港”，新发产品扎堆电池港股](http://www.blog.minike.top/Article/details/5106310358.shtml)
+- 2026-06-29 12:08 - [涨幅超A股，四大行H股盘中集体创新高，谁在买？](http://www.share.minike.top/Article/details/608573839.shtml)
+- 2026-06-29 12:00 - [4月23日美股成交额前20：美光创历史新高，此前获高盛唱好](http://www.blog.kurohicncr.top/Article/details/76525.shtml)
+- 2026-06-29 11:49 - [液冷牛股英维克，火热后急冻，现场探访](http://www.blog.minike.top/Article/details/79197601150.shtml)
+- 2026-06-29 11:47 - [减肥药意外带火豌豆扁豆，美国农民弃麦种豆](http://www.share.minike.top/Article/details/56092547.shtml)
+- 2026-06-29 12:03 - [80.3%受访者看好相关政策提升大众阅读兴趣](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:53 - [南航否认在飞机上闹事女乘客为“南航空姐”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [国际刑事法院声称要对杜特尔特进行审判](http://www.share.kurohicncr.top/Article/details/5411307.shtml)
+- 2026-06-29 12:02 - [上交所举办东南亚专题国际路演活动](http://www.blog.minike.top/Article/details/95341805428.shtml)
+- 2026-06-29 12:09 - [ISS建议ConocoPhillips股东支持独立董事主席提案](http://www.share.kurohicncr.top/Article/details/708465320.shtml)
+- 2026-06-29 11:43 - [浙商银行金华分行被罚169.3万元：违反金融统计相关规定等](http://www.blog.minike.top/Article/details/503875876.shtml)
+- 2026-06-29 12:09 - [国家国际发展合作署、中国气象局与世界气象组织签署关于推动落实全球发展倡议的谅解备忘录](http://www.share.minike.top/Article/details/526382488127.shtml)
+- 2026-06-29 12:04 - [上海银行：2025年净息差1.16%，同比微降0.01个百分点](http://www.blog.minike.top/Article/details/94730011594.shtml)
+- 2026-06-29 11:57 - [（乡村行·看振兴）茶旅融合叠加整村运营 大别山茶村焕新生](http://www.share.minike.top/Article/details/608270.shtml)
+- 2026-06-29 11:43 - [一季度市场监管部门查处商标侵权、假冒专利案件0.7万件](http://www.blog.kurohicncr.top/Article/details/1973395.shtml)

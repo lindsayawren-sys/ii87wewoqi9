@@ -1,56 +1,59 @@
-# 上海傅利叶董事长顾捷荣获全国五一劳动奖章
+# 市值单日蒸发超百亿，千亿液冷龙头一季报“踩急刹”
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-4月28日，中华全国总工会发布《关于表彰2026年全国五一劳动奖的决定》。 2025年是“十四五”规划收官之年，全国广大职工为推进中国式现代化作出突出贡献，涌现出一大批先进集体和个人。他们在推动高质量发展中建功立业，在服务重大战略、重大工程、重大项目、重点产业中勇挑重担，在深化产业工人队伍建设改革中锐意进取，充分发挥了主力军作用。 为表彰激励先进典型，凝聚起团结奋进的强大力量，
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：雷达Finance 雷达财经出品 文|彭程 编|孟帅 从4月20日股价一度触及历史新高，到次日开盘一字跌停，千亿液冷大牛股英维克在一日内市值蒸发118亿元。 英维克在资本市场经历“冰火两重天”，或源自其4月20日晚发布的一季报。财报显示，今年第一季度，公司营收同比增长26.03%至11.75亿元，但归
 
 ## 正文
 
-4月28日，中华全国总工会发布《关于表彰2026年全国五一劳动奖的决定》。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-2025年是“十四五”规划收官之年，全国广大职工为推进中国式现代化作出突出贡献，涌现出一大批先进集体和个人。
+来源：雷达Finance 雷达财经出品 文|彭程 编|孟帅 从4月20日股价一度触及历史新高，到次日开盘一字跌停，千亿液冷大牛股英维克在一日内市值蒸发118亿元。
 
-他们在推动高质量发展中建功立业，在服务重大战略、重大工程、重大项目、重点产业中勇挑重担，在深化产业工人队伍建设改革中锐意进取，充分发挥了主力军作用。
+英维克在资本市场经历“冰火两重天”，或源自其4月20日晚发布的一季报。
 
-为表彰激励先进典型，凝聚起团结奋进的强大力量，中华全国总工会决定，授予北京北一机床有限责任公司等379个单位全国五一劳动奖状，授予吴勇等1462名职工全国五一劳动奖章，授予北京北斗星通导航技术股份有限公司地基云端算法团队等1183个集体全国工人先锋号，对受表彰的先进女职工个人和集体同时授予全国五一巾帼标兵和全国五一巾帼标兵岗。
+财报显示，今年第一季度，公司营收同比增长26.03%至11.75亿元，但归母净利润却大跌81.97%至0.09亿元。
 
-希望受到表彰的先进集体和个人，珍惜荣誉、保持本色，继续努力、再立新功。
+针对这一业绩表现，英维克给出了多方面的解释：财务费用的显著增加、信用减值损失的上升、收入结构变化引发的毛利率下滑，以及订单充沛但未能实现更高的发货和收入确认。
 
-中华全国总工会号召，全国广大职工要紧紧围绕党的中心任务，大力弘扬劳模精神、劳动精神、工匠精神，以受表彰的先进典型为榜样，立足岗位、创新创造、奋发进取、拼搏奉献，奋力实现“十五五”良好开局，在以中国式现代化全面推进强国建设、民族复兴伟业中作出新的更大贡献。
+尽管头顶千亿液冷龙头的光环，但花旗银行报告指出，市场对英维克的一致盈利预期太高。
 
-上海傅利叶智能科技股份有限公司董事长、正高级工程师顾捷荣获全国五一劳动奖章。
+市场仅关注其为英伟达专用集成电路（ASIC）客户供应液冷，却忽视了小业务敞口、国内价格竞争加剧以及未来更多新进入者带来的压力。
 
-责任编辑：李昂
+值得一提的是，在今年3月揭晓的《2026胡润全球富豪榜》上，站在英维克身后的齐勇以225亿元的财富登榜。
 
 ## 相关推荐
 
-- 2026-06-29 11:41 - [央行上海总部：一季度上海社会融资规模增加4743亿元 同比多增138亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:52 - [白宫晚宴枪击最新调查进展：被捕枪手为一名家教，曾留下字条](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:52 - [OEXN:黄金震荡观望央行信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:55 - [“五一”假日期间海南省天气总体较好 适宜出游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:50 - [绿城的"体外"生意，撑不住了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:02 - [油价冲击波袭来，全球消费品巨头面临定价压力测试](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:50 - [全国首批米粉“批次检验（检疫）”改革试点落地江西抚州](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:51 - [五一假期注意出行安全 南方多地有大范围降雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:55 - [江河与共丨九三学社中央主席武维华：“既找病灶又开药方” 九三学社助力长江生态保护](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:45 - [解决新旧海商法衔接适用问题 最高法出台司法解释](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:46 - [中方回应美方退税举措：是在纠正错误道路上的有益一步](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:42 - [传习录丨读书，总书记倡导的生活方式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:52 - [在第57个世界地球日，“最美自然守护者”讲述绿色发展故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:00 - [胃不适、腰背酸、血糖高？警惕“癌王”发出的预警信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:56 - [“6.0%”的浙江看点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:45 - [特朗普称美国“已完全控制了霍尔木兹海峡”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:02 - [中际旭创市值破万亿 老实业家如何逆袭硅谷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:43 - [俄总统新闻秘书：普京愿随时与泽连斯基会面但须“富有成效”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:51 - [“四季新韵·感知重庆”境外媒体重庆行交流活动启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:11 - [连亏5年，越亏越多！知名超市学胖东来效果不佳，去年关店414家，巨亏9.57亿元，最新市值仅35亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:11 - [第六届亚洲沙滩运动会在三亚开幕 谌贻琴出席并宣布开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:48 - [美伊和平谈判陷入僵局，霍尔木兹海峡局势加剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:59 - [午评：国内期货主力合约涨跌互现 低硫燃油涨超6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:43 - [外交部：坚决遏制日本“新型军国主义”的妄动](http://www.blog.kurohicncr.top/Article/details/35978.shtml)
-- 2026-06-29 12:03 - [富瑞：鹰普精密给予“买入”评级 目标价10.34港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:56 - [中国国家能源局：可保障各种情形下的油气安全保供能力](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [富瑞：洛阳钼业维持“买入”评级 目标价25港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [东睦股份：Q1增长势头放缓、回款承压，加码MIM商誉风险悬顶](http://www.blog.kurohicncr.top/Article/details/695560744.shtml)
-- 2026-06-29 12:02 - [中国美术馆新展启幕：“文艺复兴三杰”珍贵原作亮相](http://www.share.kurohicncr.top/Article/details/947059520.shtml)
-- 2026-06-29 11:39 - [人身险预定利率研究值环比上行4BP升至1.93%，业内预判年内触发再次调降概率较低](http://www.share.minike.top/Article/details/534149557595.shtml)
-- 2026-06-29 11:50 - [2025银行年报观察室｜江苏两大农商行的冷暖答卷：常熟“县域称王”，紫金“夹缝求生”](http://www.share.minike.top/Article/details/005624205.shtml)
-- 2026-06-29 11:39 - [星动纪元获2亿美元新融资，顺丰集团领投](http://www.blog.minike.top/Article/details/06550265.shtml)
-- 2026-06-29 11:54 - [国际龙舟联合会主席：推动龙舟运动加速“划向”奥运殿堂](http://www.share.minike.top/Article/details/375079.shtml)
-- 2026-06-29 11:43 - [英伟达收高4%，创历史新高](http://www.blog.minike.top/Article/details/8834819.shtml)
-- 2026-06-29 11:57 - [业绩大变脸触发退市红线！冀凯股份索赔正式开启](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:56 - [中国能源建设第一季度新签合同额2761.96亿元 同比减少28.98%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [安井食品将于7月2日派发末期股息每股1.44元](http://www.share.minike.top/Article/details/718613093040.shtml)
-- 2026-06-29 12:04 - [跌停！近7倍机器人大牛股遭立案，故事讲完谁在买单](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:10 - [猪价下跌的背后：本轮猪周期的变与不变](http://www.blog.minike.top/Article/details/424617.shtml)
+- 2026-06-29 11:59 - [长江有色：美伊和谈生变及AI 半导体狂欢提振 23日锡价或上涨](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [德政府据悉正与波兰就石油替代供应展开磋商](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [2026“文化中国·水立方杯”中文歌曲大赛柏林赛区结果揭晓](http://www.share.kurohicncr.top/Article/details/98751566.shtml)
+- 2026-06-29 12:01 - [6家城商行年报业绩分化：净利全增长、5家营收飘红，贵阳银行营收3连降](http://www.share.minike.top/Article/details/7943509.shtml)
+- 2026-06-29 12:11 - [“小城游”热度持续攀升、出入境旅游双向升温 “五一”文旅市场蓄势待发](http://www.blog.minike.top/Article/details/8220527871.shtml)
+- 2026-06-29 11:49 - [确定！方一天出任华安基金党委副书记，获提名总经理](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [《静夜思》还能这样翻译？看译界泰斗如何让世界“读”懂中国诗词](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [天津生物多样性保护水平提升 已记录野生鸟类增至475种](http://www.blog.minike.top/Article/details/453452019.shtml)
+- 2026-06-29 12:05 - [从法国名家手稿展到MBTI荐书 浙大这样让阅读“破圈”](http://www.share.kurohicncr.top/Article/details/658107.shtml)
+- 2026-06-29 12:11 - [美方称拦截一艘从伊朗运输石油的油轮](http://www.share.minike.top/Article/details/48578.shtml)
+- 2026-06-29 11:51 - [总书记的人民情怀 |“中国式现代化关键在科技现代化”](http://www.share.kurohicncr.top/Article/details/896872.shtml)
+- 2026-06-29 12:09 - [作家王蒙：“越是在信息爆炸的时代，越不能丢掉深度阅读的能力”](http://www.blog.kurohicncr.top/Article/details/7751803797.shtml)
+- 2026-06-29 12:11 - [券商并购提速，板块或迎中长期关注契机](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [特朗普政府即将达成救助精神航空的协议](http://www.share.kurohicncr.top/Article/details/402570508.shtml)

@@ -1,52 +1,58 @@
-# 葛优调侃“与三元合作已过二十年”：我一直在想怎么不找我了，是不是等我长头发呢
+# 连续15日回购、四年累计耗资超千亿港元，友邦保险为何如此坚定？
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月28日，“真心七十载 鲜活向未来”三元真鲜活品牌战略发布会举行。 现场，著名演员葛优现身，三元牛奶吉祥物“元宝”和其同台互动。 他对着“元宝”调侃：“我跟三元牛奶二十年前（合作）做的广告，那会还没你呢。” 葛优反思：“这二十年间，我一直在想，怎么（三元）不（再）找我了，是不是等着这人头发长出来呢。” 责
+友邦保险（01299.HK）再启巨额回购。 4月22日，友邦保险斥资约2.35亿港元回购282.6万股股份。截至4月23日，友邦保险自3月30日以来已连续15个交易日进行回购，合计回购4471.92万股，累计回购金额38.22亿港元。 事实上，友邦保险的回购动作已持续了四年。 2022年3月，友邦保险宣布推出100亿美元股票回购计划，旨在提升股东回报，减少市场上流通股数量，进而
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+友邦保险（01299.HK）再启巨额回购。
 
-4月28日，“真心七十载 鲜活向未来”三元真鲜活品牌战略发布会举行。
+4月22日，友邦保险斥资约2.35亿港元回购282.6万股股份。
 
-现场，著名演员葛优现身，三元牛奶吉祥物“元宝”和其同台互动。
+截至4月23日，友邦保险自3月30日以来已连续15个交易日进行回购，合计回购4471.92万股，累计回购金额38.22亿港元。
 
-他对着“元宝”调侃：“我跟三元牛奶二十年前（合作）做的广告，那会还没你呢。
+事实上，友邦保险的回购动作已持续了四年。
 
-” 葛优反思：“这二十年间，我一直在想，怎么（三元）不（再）找我了，是不是等着这人头发长出来呢。
+2022年3月，友邦保险宣布推出100亿美元股票回购计划，旨在提升股东回报，减少市场上流通股数量，进而提升每股收益，同时让公司保留财务实力以继续投资于重大增长机遇。
 
-” 责任编辑：宋雅芳
+公告称，股份回购计划的资金将以友邦保险集团可用资本及现金储备拨付，该计划所回购的股份将被注销。
+
+2024年4月，友邦保险公布优化的资本管理政策，在现有股份回购计划中增加20亿美元，总额增至120亿美元。
+
+2025年2月，友邦保险公告称其已完成120亿美元回购计划。
 
 ## 相关推荐
 
-- 2026-06-29 11:50 - [中国再保险：中再寿险一季度净亏损2.51亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:59 - [小新带你看亚沙：这个展馆为何吸引老外扎堆打卡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:58 - [软银携手科技巨头，打造5000亿美元AI数据中心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:45 - [我国拟修订农业法 增加建立粮食安全监测预警制度等内容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:52 - [“全球AI光算力第一股”诞生 上海“芯片先锋队”再添新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:59 - [中国人民银行茂名市分行：普惠金改品牌影响力持续扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:43 - [深圳莲塘口岸单日出入境人次再攀新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:05 - [原青海省地方金融监督管理局一级巡视员吴春庆被开除党籍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:55 - [视频 | 理财亏716万元，金融街证券被判赔偿10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:52 - [姑苏城外瑞光塔 夜半灯火照客游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:57 - [（寻味中华｜书香）全民阅读续文脉 解缙故事咏流传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:00 - [从《黑神话：悟空》到“佛小伴”：山西织密新兴领域知识产权保护网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:50 - [Adobe公布250亿美元回购计划 旨在向投资者传递信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 12:07 - [成都双流“国字号”立法联系点运行一周年：民意搭上国家立法“直通车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:54 - [美国司法部将医用大麻重新归类为低危险性毒品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:05 - [广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:52 - [常熟银行：2025年实现营业收入116.19亿元，同比增长6.51%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:47 - [国际能源署署长：世界正面临史上最严重的能源安全威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:07 - [台湾作家新作《往日食光》书写家常风味 蕴藏两岸记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:46 - [特斯拉将对HW3车辆进行改造](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:56 - [涉恒大财务造假，香港证监会和会财局处罚落地，普华永道回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:58 - [广东茂名港口岸扩大对外开放通过国家验收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:58 - [从课堂到云端 自媒体重构海外华文教育生态](http://www.blog.minike.top/Article/details/408661472516.shtml)
-- 2026-06-29 11:53 - [巴克莱：美联储本周料将按兵不动，2026年晚些时候可能降息](http://www.share.kurohicncr.top/Article/details/446814.shtml)
-- 2026-06-29 11:39 - [一季度高技术产业实际使用外资同比增长30.7%](http://www.share.minike.top/Article/details/182818520.shtml)
-- 2026-06-29 11:39 - [四川大巴山“爱心帮帮团”：用“微力量”汇聚“大温暖”](http://www.share.kurohicncr.top/Article/details/728054.shtml)
-- 2026-06-29 11:40 - [亚洲芯片股走高 市场对地缘政治风险的担忧降温](http://www.blog.minike.top/Article/details/348136147174.shtml)
-- 2026-06-29 11:37 - [现场下单！中国机器人“圈粉”爱尔兰老球员](http://www.share.kurohicncr.top/Article/details/93607817493.shtml)
-- 2026-06-29 11:45 - [新兴市场“越涨越便宜”：亚洲芯片三雄引领的估值悖论](http://www.blog.minike.top/Article/details/69107.shtml)
-- 2026-06-29 11:55 - [关于白宫记者晚宴枪击案嫌疑人科尔・艾伦的全部已知信息](http://www.blog.kurohicncr.top/Article/details/717963.shtml)
-- 2026-06-29 11:55 - [002779、603360，被证监会立案！](http://www.blog.kurohicncr.top/Article/details/275572232490.shtml)
-- 2026-06-29 11:53 - [台湾新北市长民调结果出炉，蓝白共推李四川参选](http://www.share.kurohicncr.top/Article/details/68180089.shtml)
-- 2026-06-29 11:44 - [患恶性肿瘤理赔遭拒 和谐健康被指竟多次“恶意”拒赔](http://www.blog.kurohicncr.top/Article/details/64152257.shtml)
-- 2026-06-29 11:38 - [外交部评白宫记协年度晚宴枪击事件：一贯反对和谴责非法暴力行为](http://www.blog.minike.top/Article/details/777021901430.shtml)
-- 2026-06-29 12:04 - [珠江流域进一步强化节约用水管理工作](http://www.blog.kurohicncr.top/Article/details/643466585.shtml)
-- 2026-06-29 11:42 - [“五一”假期预计全国日均租车量将超70万辆](http://www.blog.minike.top/Article/details/21482511.shtml)
-- 2026-06-29 12:05 - [2026粤超首轮东莞主场获胜 科学家+企业家携手开球](http://www.blog.minike.top/Article/details/376298.shtml)
+- 2026-06-29 12:05 - [中海油服：一季度归母净利润8.56亿元，同比下滑3.60%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [湘图古籍数字化成果显著 珍贵典籍“活”化出新](http://www.blog.kurohicncr.top/Article/details/13043053186.shtml)
+- 2026-06-29 11:50 - [群山为“岸” 商贸成“海”：重庆秀山于武陵山腹地开“世界超市”](http://www.blog.minike.top/Article/details/0071874.shtml)
+- 2026-06-29 11:55 - [燃油成本飙升，美国航空腰斩2026年盈利预期](http://www.blog.kurohicncr.top/Article/details/957801.shtml)
+- 2026-06-29 12:02 - [操盘必读：影响股市利好或利空消息_2026年4月24日_财经新闻](http://www.share.minike.top/Article/details/26316100803.shtml)
+- 2026-06-29 11:51 - [伊朗总统府官员：与美达成协议“需要时间”](http://www.blog.minike.top/Article/details/86081174.shtml)
+- 2026-06-29 11:54 - [宏润建设：2025年归母净利润2.8亿元，同比下降1.14%](http://www.share.minike.top/Article/details/5513915.shtml)
+- 2026-06-29 12:02 - [中国选手范俊杰夺得三亚亚沙会首金](http://www.share.kurohicncr.top/Article/details/72267.shtml)
+- 2026-06-29 12:01 - [美国西弗吉尼亚州一工厂发生化学品泄漏 造成两人死亡](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [日韩股市集体高开 日股升至纪录新高](http://www.blog.minike.top/Article/details/42866.shtml)
+- 2026-06-29 11:50 - [世界地球日｜用我们的力量守护高原生态](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [必维国际检验集团设立新亚洲中心，扩大海上服务能力](http://www.blog.kurohicncr.top/Article/details/706373190.shtml)
+- 2026-06-29 11:44 - [一季度ETF市场回顾：四只沪深300ETF缩水6300亿，黄金ETF、短融ETF成“避风港”，新发产品扎堆电池港股](http://www.share.kurohicncr.top/Article/details/3799342.shtml)
+- 2026-06-29 11:46 - [涨幅超A股，四大行H股盘中集体创新高，谁在买？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [4月23日美股成交额前20：美光创历史新高，此前获高盛唱好](http://www.share.minike.top/Article/details/16787.shtml)

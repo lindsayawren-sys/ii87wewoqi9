@@ -1,60 +1,59 @@
-# “五一”假期预计全国日均租车量将超70万辆
+# 涨幅超A股，四大行H股盘中集体创新高，谁在买？
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-今天(4月28日)，交通运输部召开新闻发布会，介绍“五一”假期出行情况。近年来，异地租车自驾游成为很多人假期出行的选择。今年“五一”假期，公众租车出行需求较为旺盛，预计全国日均租车量将超70万辆，同比增长30%。为提升小微型客车租赁服务水平，交通运输部指导各地交通运输部门和主要汽车租赁企业提前准备，采取便民措施，努力让大家租车出行更安全、更便捷、更放心。 一是订车更省心。指导租
+界面新闻记者 | 何柳颖 界面新闻编辑 | 王姝 近段时间以来，银行股H股涨势强劲。 对比来看，在经历2024、2025年的上涨后，A股银行股在2026年表现相对疲软，截至4月23日收盘，中证银行指数（399986）报7366.59点，年初至今下跌3.11%。 而银行股H股表现亮眼，中证香港银行投资指数（930792，指数样本为港股通范围内的银行股）年初至今已实现了超过10%的
 
 ## 正文
 
-今天(4月28日)，交通运输部召开新闻发布会，介绍“五一”假期出行情况。
+界面新闻记者 | 何柳颖 界面新闻编辑 | 王姝 近段时间以来，银行股H股涨势强劲。
 
-近年来，异地租车自驾游成为很多人假期出行的选择。
+对比来看，在经历2024、2025年的上涨后，A股银行股在2026年表现相对疲软，截至4月23日收盘，中证银行指数（399986）报7366.59点，年初至今下跌3.11%。
 
-今年“五一”假期，公众租车出行需求较为旺盛，预计全国日均租车量将超70万辆，同比增长30%。
+而银行股H股表现亮眼，中证香港银行投资指数（930792，指数样本为港股通范围内的银行股）年初至今已实现了超过10%的涨幅。
 
-为提升小微型客车租赁服务水平，交通运输部指导各地交通运输部门和主要汽车租赁企业提前准备，采取便民措施，努力让大家租车出行更安全、更便捷、更放心。
+且在4月21日，四大行H股（工商银行、农业银行、中国银行、建设银行）均在盘中创下历史高价，H股估值进一步修复。
 
-一是订车更省心。
+从个股表现看，多家银行H股年度涨幅都跑赢A股。
 
-指导租赁企业加大租车热门城市、高峰时段、不同车型智能预判，精准投放相应车辆，更好满足亲子游、家庭游等租车需求。
+市场为何青睐银行股H股？
 
-推行App、微信小程序、电话、门店等多渠道预订方式，消费者可提前预订所需车辆。
+上涨动力来自哪里？
 
-二是取车更便捷。
+后市预计如何表现？
 
 ## 相关推荐
 
-- 2026-06-29 11:45 - [一季度浙江算力中心用电规模和增速创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:59 - [墨西哥比索走稳，股市受美伊僵局影响小幅回落](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:47 - [甘肃银行空前分红17.78亿为归母净利三倍 营收两连降零售贷款不良率4.16%压力增大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:04 - [互联网广告要跳出“流量至上”误区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 12:04 - [2026第二届飞剑“大使杯”国际板球邀请赛在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:45 - [上海定制何以走红？外籍人士为何偏爱这份“专属质感”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:42 - [中国黄河流域137处国家级自然保护区优良率达99.27％](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 12:02 - [豆粕：周期无声，趋势有痕 —— 豆粕多空拉锯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:46 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:46 - [伪满皇宫博物院举办吉林省首个海事文化科普展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:57 - [科创综指，历史新高！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:05 - [2026北京国际花展开幕 荷兰景观设计师：中国花卉产业发展速度非常快](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:57 - [CIPS资金托管行扩容至14家 中信银行、中银香港等四家入列](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:41 - [真香！这枚刚出炉“果仁列巴”能刷300余城市公交地铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:05 - [上交所举办东南亚专题国际路演活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:51 - [ISS建议ConocoPhillips股东支持独立董事主席提案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:53 - [浙商银行金华分行被罚169.3万元：违反金融统计相关规定等](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:07 - [国家国际发展合作署、中国气象局与世界气象组织签署关于推动落实全球发展倡议的谅解备忘录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 12:00 - [上海银行：2025年净息差1.16%，同比微降0.01个百分点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:01 - [（乡村行·看振兴）茶旅融合叠加整村运营 大别山茶村焕新生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:52 - [一季度市场监管部门查处商标侵权、假冒专利案件0.7万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:55 - [八达岭夜长城将于4月底在京亮相 升级沉浸式互动体验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 12:05 - [军号再次吹响，这次是接他们回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:04 - [煤炭股午后逆势上扬 兖煤澳大利亚及兖矿能源均涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 12:00 - [文件显示SpaceX获200亿美元过桥贷款，对其债务进行再融资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:49 - [浙江行刑联动破题商业秘密保护“三难”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:43 - [社保基金重仓+机构高关注股来了（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:50 - [青春，就应该这样！——写在2026年五四青年节到来之际](http://www.share.minike.top/Article/details/192993836.shtml)
-- 2026-06-29 12:04 - [人社部：一季度全国城镇新增就业299万人](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [江西鄱阳湖南矶湿地首次发现蓝喉太阳鸟](http://www.blog.kurohicncr.top/Article/details/936347490371.shtml)
-- 2026-06-29 12:00 - [青海西宁：文体商旅融合点燃五月高原消费热潮](http://www.blog.kurohicncr.top/Article/details/58689734375.shtml)
-- 2026-06-29 11:56 - [2026年3月广东省外贸进出口总值表（人民币值）](http://www.blog.minike.top/Article/details/744953.shtml)
-- 2026-06-29 11:45 - [跨境电商架桥梁 让互利之花在中越边境绽放](http://www.share.kurohicncr.top/Article/details/92356930040.shtml)
-- 2026-06-29 11:38 - [韩国上市公司总市值首次突破6000万亿韩元](http://www.blog.kurohicncr.top/Article/details/55099400.shtml)
-- 2026-06-29 11:55 - [兆易创新将于5月29日派发末期股息每股0.8555198港元](http://www.share.minike.top/Article/details/40784.shtml)
-- 2026-06-29 11:59 - [交通银行：400亿元二级资本债券（债券通）发行完毕](http://www.blog.minike.top/Article/details/608609225622.shtml)
-- 2026-06-29 12:00 - [华泰期货：美伊分歧难以弥合，原油市场维持较高的波动率](http://www.share.kurohicncr.top/Article/details/130429197316.shtml)
-- 2026-06-29 11:39 - [中肯政商界人士认为零关税举措将为两国合作带来新机遇](http://www.blog.kurohicncr.top/Article/details/39346302242.shtml)
-- 2026-06-29 11:53 - [2026广东时装周（春季）以时尚之力赋能产业升级](http://www.share.minike.top/Article/details/809866239388.shtml)
-- 2026-06-29 11:37 - [如何防控蚊媒传染病？专家：清积水、灭成蚊、防叮咬](http://www.share.minike.top/Article/details/9723558559.shtml)
-- 2026-06-29 12:00 - [中国心连心化肥将于7月28日派发末期股息每股0.32元](http://www.blog.minike.top/Article/details/97337.shtml)
-- 2026-06-29 12:00 - [澳大利亚拟对科技巨头征收约2%税费 除非达成本地新闻付费协议](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:03 - [花旗：中国联通给予“买入”评级 目标价11.2港元](http://www.blog.minike.top/Article/details/965087568693.shtml)
+- 2026-06-29 12:01 - [规范升级！32万亿银行理财信息披露迎重大调整](http://www.blog.minike.top/Article/details/99287.shtml)
+- 2026-06-29 11:45 - [2026上海·静安现代戏剧谷链接全球戏剧资源](http://www.share.minike.top/Article/details/841288.shtml)
+- 2026-06-29 12:03 - [光大期货：4月23日矿钢煤焦日报](http://www.share.kurohicncr.top/Article/details/394030269.shtml)
+- 2026-06-29 11:57 - [志愿军老战士连续多年吹号迎接战友：我要告诉他们 我们赢了](http://www.share.kurohicncr.top/Article/details/88003568347.shtml)
+- 2026-06-29 12:00 - [山东省泰安市委常委、副市长刘峰梅接受审查调查](http://www.share.kurohicncr.top/Article/details/29851320.shtml)
+- 2026-06-29 11:55 - [一间中国礼物商店，如何让在地非遗老技艺“活”在当下？](http://www.share.minike.top/Article/details/6122016.shtml)
+- 2026-06-29 12:04 - [美以失算！伊朗强硬派全面掌权，温和派靠边站，美伊谈判又熄火](http://www.share.minike.top/Article/details/37601.shtml)
+- 2026-06-29 12:08 - [“不只是司机的苦日子”——美高油价压力从运输业向消费端蔓延](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [专访IMF世界经济研究部主管：全球增长或受2%“衰退线”挑战，美联储需防通胀预期脱锚](http://www.share.minike.top/Article/details/72711.shtml)
+- 2026-06-29 11:47 - [伊朗最高领袖、总统、议长、外长同日喊话](http://www.share.kurohicncr.top/Article/details/2399742.shtml)
+- 2026-06-29 11:59 - [【香港故事】方寸之间 书中蝴蝶——世界读书日走近藏书票](http://www.share.minike.top/Article/details/420442704.shtml)
+- 2026-06-29 11:43 - [三亚亚沙会沙排比赛首日：传统强队集体“速胜”](http://www.blog.kurohicncr.top/Article/details/9410913.shtml)
+- 2026-06-29 11:44 - [放量大跌！A股多空博弈升级，投资者该怎么办？](http://www.blog.kurohicncr.top/Article/details/472074981.shtml)
+- 2026-06-29 11:45 - [建发物业获FIDELITY FUNDS增持23.9万股 每股作价约2.89港元](http://www.blog.minike.top/Article/details/25656600.shtml)

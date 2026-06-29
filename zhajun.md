@@ -1,59 +1,61 @@
-# 青海西宁：文体商旅融合点燃五月高原消费热潮
+# 光大期货：4月23日矿钢煤焦日报
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-中新网西宁4月27日电 (记者 孙睿)记者27日从西宁市“五一”期间及五月份重点活动专题新闻通气会上获悉，自“五一”假期开始，西宁市将推出99项特色活动，以赏花、文化、演艺、体育、街区、美食、乡村七大板块打造春季文旅嘉年华，点燃消费新热度，向八方宾客展现高原城市的独特活力。 西宁以花为媒，满城风光迎客来。人民公园郁金香、海棠公园汉服游园、南山丁香观景带次第绽放，民谣轻唱、观景休
+螺纹钢： （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 昨日螺纹盘面偏强震荡，截止日盘螺纹2610合约收盘价格为3186元/吨，较上一交易收盘价格上涨10元/吨，涨幅为0.31%，持仓增加3.63万手。现货价格稳中有涨，成交基本平稳，唐山普方坯价格持平于3020元/吨，杭州市场中天螺纹价格上涨10元/吨至3220元/吨，全国建材成交量11.38吨。
 
 ## 正文
 
-中新网西宁4月27日电 (记者 孙睿)记者27日从西宁市“五一”期间及五月份重点活动专题新闻通气会上获悉，自“五一”假期开始，西宁市将推出99项特色活动，以赏花、文化、演艺、体育、街区、美食、乡村七大板块打造春季文旅嘉年华，点燃消费新热度，向八方宾客展现高原城市的独特活力。
+螺纹钢： （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 昨日螺纹盘面偏强震荡，截止日盘螺纹2610合约收盘价格为3186元/吨，较上一交易收盘价格上涨10元/吨，涨幅为0.31%，持仓增加3.63万手。
 
-西宁以花为媒，满城风光迎客来。
+现货价格稳中有涨，成交基本平稳，唐山普方坯价格持平于3020元/吨，杭州市场中天螺纹价格上涨10元/吨至3220元/吨，全国建材成交量11.38吨。
 
-人民公园郁金香、海棠公园汉服游园、南山丁香观景带次第绽放，民谣轻唱、观景休闲相映成趣。
+中共中央办公厅、国务院办公厅《关于更高水平更高质量做好节能降碳工作的意见》对外发布，意见从协同推进节能降碳与绿色转型、大力推进重点领域节能降碳、进一步加强节能降碳监督管理、强化节能降碳工作支撑保障等方面作出具体部署。
 
-全市文博场馆假期正常开放，生态书展、河湟文物展、非遗体验轮番上线，丹噶尔古城民俗表演与实景演艺相结合，让传统文化可感可触。
+据SMM调研，国际局势影响下钢坯订单流向中国，3月至今国内长材接单量长期处于高位，目前钢厂接单船期已排到6-8月，预计第二季度方坯出口量有望创新高；另外板坯出口价格优势明显，前期钢厂放量接单情况下出口船期也排到6月，第二季度板坯出口量或有望翻倍。
 
-潮流演艺与全民体育同频升温。
+钢坯出口量大幅增长，在一定程度上减缓了国内钢材供应压力。
 
-海湖广场“五一欢乐汇”连续5天乐队开唱，青海大剧院相声、演唱会、动漫嘉年华集聚人气。
+预计短期螺纹盘面表现或将震荡偏强。
 
-青少年冰球、羽毛球、三人篮球等赛事集中举办，30项体育活动覆盖五区两县，“体育+文旅”带动全链条消费。
+铁矿石： （柳浠，从业资格号：F03087689；交易咨询资格号：Z0019538） 昨日铁矿石期货主力合约i2609价格有所上涨，收于786.5元/吨，较前一个交易日收盘价上涨2.5元/吨，涨幅为0.3%，成交18.95万手，增仓1.94万手。
 
-城市烟火与乡村休闲双向发力。
+港口现货主流品种市场价格，现青岛港PB粉60.8%775涨2，超特粉655持平。
 
 ## 相关推荐
 
-- 2026-06-29 11:50 - [中肯政商界人士认为零关税举措将为两国合作带来新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:48 - [2026广东时装周（春季）以时尚之力赋能产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:44 - [如何防控蚊媒传染病？专家：清积水、灭成蚊、防叮咬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:45 - [中国心连心化肥将于7月28日派发末期股息每股0.32元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:57 - [澳大利亚拟对科技巨头征收约2%税费 除非达成本地新闻付费协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:01 - [美国政府：白宫晚宴枪手意图刺杀特朗普](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:04 - [秦农银行国有持股占比首超50%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:55 - [“十五五”中国将发射风云四号D星 为共建“一带一路”国家提供服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:47 - [华宝基金红利风向标：高股息“倒车接人”？关注低波策略配置价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:59 - [2026年“汉语桥”比利时赛区决赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:56 - [张雪发视频回应力挺余承东，称“拒绝了半个亿的商务合作”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:55 - [国产芯片强势逼空，华宝基金科创芯片ETF（589190）猛攻5%，量价双高！国产替代主线重燃，成份股批量新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:37 - [OpenAI进军手机！“牵手”立讯精密！电子板块领涨两市，华宝基金电子ETF（515260）猛拉4.14%，续创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:46 - [伊朗最高领袖、总统、议长、外长同日喊话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:55 - [【香港故事】方寸之间 书中蝴蝶——世界读书日走近藏书票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:09 - [三亚亚沙会沙排比赛首日：传统强队集体“速胜”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:55 - [放量大跌！A股多空博弈升级，投资者该怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:50 - [建发物业获FIDELITY FUNDS增持23.9万股 每股作价约2.89港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:49 - [华裔留学生昆明共读书：在文字中“寻根” 在交流中传承](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:45 - [新疆：升级版“新东方快车”启程 海内外游客共赴丝路之旅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:55 - [南宁加快打造面向东盟的“新茶饮之都”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:42 - [特斯拉第三代人形机器人预计年中发布，三季度启动正式投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:45 - [小城游火了！这些“小而美”的城市性价比高、体验感强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 12:11 - [抗美援朝老战士后代带糖迎接志愿军英烈回家：我想让他们尝一下 我们今天的甜滋滋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:55 - [一习话丨“要提倡多读书 建设书香社会”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:11 - [黑龙江“换心人”健康存活32年 刷新亚洲纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:51 - [中新控股拟折让约19.81%配售最多3612.2万股 净筹约1427.7万港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:49 - [一季度江西外贸进出口增长16% 汽车出口大增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:48 - [受气象不佳影响 “两马”航线将双向停航](http://www.blog.minike.top/Article/details/7367722659.shtml)
-- 2026-06-29 12:00 - [探访武汉都市圈花展：近千种花卉盛放 12城共绘春韵](http://www.share.kurohicncr.top/Article/details/3130471.shtml)
-- 2026-06-29 11:49 - [壁仞科技午前涨超5% 壁砺™166系列产品完成DeepSeek-V4适配验证与优化](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [北京平谷打造农业中关村人才综合改革试验区 多举措激励创新创业](http://www.share.minike.top/Article/details/089242.shtml)
-- 2026-06-29 11:54 - [【百万庄小课堂】真会被气出结节吗？专家解答女性怎么爱护乳腺](http://www.blog.minike.top/Article/details/7815746481.shtml)
-- 2026-06-29 11:43 - [壳牌164亿美元收购加拿大ARC Resources，押注蒙特尼页岩气扩张](http://www.blog.kurohicncr.top/Article/details/374312977079.shtml)
-- 2026-06-29 11:55 - [浙江安吉：跨区域公共法律服务协作站让民族同胞安心就业](http://www.share.kurohicncr.top/Article/details/64537335.shtml)
-- 2026-06-29 11:41 - [“鸟中大熊猫”彩鹮首次现身云南云县](http://www.share.minike.top/Article/details/5245665.shtml)
-- 2026-06-29 11:36 - [东珠生态业绩预告更正不及时，受损股民可索赔](http://www.blog.kurohicncr.top/Article/details/511877791.shtml)
-- 2026-06-29 11:41 - [“安徽酒王”倪永培迎“交班”考题：儿子神秘“隐退” ，澳籍儿媳悄然走到台前](http://www.blog.kurohicncr.top/Article/details/48323796.shtml)
-- 2026-06-29 11:53 - [三亚亚沙会男子沙滩卡巴迪：伊朗队夺冠](http://www.share.minike.top/Article/details/748541.shtml)
-- 2026-06-29 11:44 - [爱尔兰都柏林大学足球队时隔50年重访韶山：中国一如既往热情友好](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:55 - [5100藏冰川午前涨超5% 近期针对“5100”产品开展系统性健康功能研究](http://www.share.minike.top/Article/details/158170720.shtml)
-- 2026-06-29 11:55 - [OpenAI放宽合作限制，微软独占云时代终结](http://www.share.minike.top/Article/details/474369821.shtml)
-- 2026-06-29 11:39 - [韩国要求七大电商平台修改不公平条款以加强消费者保护](http://www.blog.kurohicncr.top/Article/details/26470763197.shtml)
+- 2026-06-29 12:04 - [西安检察探索知识产权保护“立体解题”新路径](http://www.blog.kurohicncr.top/Article/details/0792300364.shtml)
+- 2026-06-29 12:02 - [事关节能降碳工作 中办、国办重磅文件对外发布](http://www.share.minike.top/Article/details/63958443.shtml)
+- 2026-06-29 12:09 - [福建宁德启动“一句话见民生”机制 专解民众身边“小而急”难题](http://www.blog.minike.top/Article/details/4824674.shtml)
+- 2026-06-29 11:47 - [多地学子齐聚沈阳 共同迎接第十三批志愿军英烈归国](http://www.blog.minike.top/Article/details/7210621.shtml)
+- 2026-06-29 12:11 - [贵州印江：半世纪人鸟相依 共绘生态宜居新家园](http://www.blog.kurohicncr.top/Article/details/08667054.shtml)
+- 2026-06-29 11:49 - [在民进党高压下 为何一直坚持说“我是中国人” 吕礼诗霸气回应](http://www.share.kurohicncr.top/Article/details/82111142468.shtml)
+- 2026-06-29 11:53 - [外交部：中方敦促美方停止助台巩固所谓“邦交”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [英伟达参投AI公司Vast Data，估值达300亿美元](http://www.blog.minike.top/Article/details/04387431895.shtml)
+- 2026-06-29 12:06 - [富瑞：紫金矿业给予“买入”评级 目标价49.10港元](http://www.blog.kurohicncr.top/Article/details/554139143004.shtml)
+- 2026-06-29 11:45 - [笔墨承文脉 上海市文史研究馆推出《王劼音卷》](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [买理财险说好随用随取，到期才发现要105岁才能取本金](http://www.share.kurohicncr.top/Article/details/01497169.shtml)
+- 2026-06-29 11:55 - [“瑞士制造”不等于瑞士制造？瑞士联邦知识产权局答一财](http://www.blog.kurohicncr.top/Article/details/523347632320.shtml)
+- 2026-06-29 12:09 - [美国称“布什号”航母已经在中央司令部责任区航行](http://www.share.minike.top/Article/details/69345655.shtml)
+- 2026-06-29 11:47 - [好客山东：每次相遇，都是久别重逢](http://www.share.kurohicncr.top/Article/details/78590.shtml)
+- 2026-06-29 12:06 - [商业航天“超级发射月”继续发力！华宝基金通用航空ETF（159231）逆市冲高逾1%](https://github.com/lisacumin64-arch)

@@ -1,55 +1,54 @@
-# “剪映”“猫箱”“即梦AI”因合成内容标识违法问题被依法查处
+# 青海省现有鸟类22目75科541种
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-近期网信部门工作中发现，“剪映”“猫箱”App及“即梦AI”网站存在未有效落实人工智能生成合成内容标识规定要求等问题，违反《中华人民共和国网络安全法》《生成式人工智能服务管理暂行办法》《人工智能生成合成内容标识办法》等法律规定。国家互联网信息办公室指导属地互联网信息办公室，依法对上述网站平台采取约谈、责令改正、警告、从严处理责任人等处置处罚措施。 国家互联网信息办公室相关负责人
+中新社西宁4月23日电 (潘雨洁)青海省林业和草原局(下称林草局)23日消息，最新数据显示，青海省现有鸟类22目75科541种，较2024年增加方尾鹟、棕头鸦雀、噪鹃等9种，候鸟增加至389种，国家一级重点保护鸟类27种、二级89种。 青海作为中国重要的生态安全屏障，是全球候鸟迁徙的关键通道与停歇驿站，东亚—澳大利西亚和中亚两条鸟类迁徙通道在此交汇，孕育了丰富的鸟类资源。 《青
 
 ## 正文
 
-近期网信部门工作中发现，“剪映”“猫箱”App及“即梦AI”网站存在未有效落实人工智能生成合成内容标识规定要求等问题，违反《中华人民共和国网络安全法》《生成式人工智能服务管理暂行办法》《人工智能生成合成内容标识办法》等法律规定。
+中新社西宁4月23日电 (潘雨洁)青海省林业和草原局(下称林草局)23日消息，最新数据显示，青海省现有鸟类22目75科541种，较2024年增加方尾鹟、棕头鸦雀、噪鹃等9种，候鸟增加至389种，国家一级重点保护鸟类27种、二级89种。
 
-国家互联网信息办公室指导属地互联网信息办公室，依法对上述网站平台采取约谈、责令改正、警告、从严处理责任人等处置处罚措施。
+青海作为中国重要的生态安全屏障，是全球候鸟迁徙的关键通道与停歇驿站，东亚—澳大利西亚和中亚两条鸟类迁徙通道在此交汇，孕育了丰富的鸟类资源。
 
-国家互联网信息办公室相关负责人表示，网站平台要严守法律底线红线，严格落实人工智能生成合成内容标识相关规定要求。
+《青海省野生动物保护条例》规定，每年4月第四周为青海省“爱鸟周”，今年是该省第45届“爱鸟周”。
 
-网信部门将深入推进依法管网治网，持续加大人工智能生成合成内容标识监督管理力度，切实维护社会公共利益，推动人工智能健康有序发展。
+在当日举行的“爱鸟周”启动仪式上，青海省林草局副局长侯天民表示，近年来，青海省持续开展全省越冬水鸟同步监测和春秋季迁徙水鸟调查试点，全面摸清白尾海雕、黑颈鹤、大天鹅、红喉歌鸲等多种候鸟迁徙路线及越冬和繁殖区域，向社会公布22处候鸟重要迁徙通道保护范围。
 
-责任编辑：刘万里 SF014
+本届“爱鸟周”期间，青海省林草局联合青海国家公园观鸟协会发起“笔尖寻羽·镜藏生机”线上作品征集；启动“栖羽少年·校园观鸟团”项目，陆续开展为鸟筑家、线上科普宣传等活动。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 11:56 - [中国人民银行茂名市分行：普惠金改品牌影响力持续扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:04 - [深圳莲塘口岸单日出入境人次再攀新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:00 - [原青海省地方金融监督管理局一级巡视员吴春庆被开除党籍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:59 - [视频 | 理财亏716万元，金融街证券被判赔偿10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:37 - [姑苏城外瑞光塔 夜半灯火照客游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:51 - [1.8米杖头木偶亮相厦门“屿见闽南” 16米长绸翩舞引惊呼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:52 - [中天期货:商品指数板块分化小反弹 原油短线反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:03 - [重庆银行：一季度归母净利润17.93亿元 同比增长10.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:47 - [多部门协同发力 上海出台14项举措助力民营经济高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:41 - [德国据悉尝试为德国商业银行寻找白衣骑士 以应对裕信银行的收购](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 12:05 - [上海家化一季度扣非净利润同比增长38.2%，四个聚焦战略加速兑现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:57 - [台湾导演林家亿：AI短片“雪山救狐狸”在岛内爆火，源于两岸共同记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:51 - [GTC泽汇:尼日利亚炼化驱动转型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:46 - [我国拟修改水法提升水安全保障能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:55 - [APEC中国年，中美互动预期几何？中方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:11 - [广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:06 - [常熟银行：2025年实现营业收入116.19亿元，同比增长6.51%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:46 - [国际能源署署长：世界正面临史上最严重的能源安全威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:52 - [台湾作家新作《往日食光》书写家常风味 蕴藏两岸记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:46 - [特斯拉将对HW3车辆进行改造](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:57 - [涉恒大财务造假，香港证监会和会财局处罚落地，普华永道回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 12:04 - [广东茂名港口岸扩大对外开放通过国家验收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:09 - [习言道｜把“义乌发展经验”进一步总结好运用好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:01 - [育碧官宣：《刺客信条：黑旗》重制版7月9日发售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 12:10 - [受权发布｜中共中央办公厅 国务院办公厅印发《碳达峰碳中和综合评价考核办法》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:06 - [海外公司诉蔚来换电专利侵权索赔2.5亿美元 蔚来回应技术自主研发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:09 - [摩根大通上调日经指数年底目标至70000点，因人工智能热潮及日元走软](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:37 - [现场下单！中国机器人“圈粉”爱尔兰老球员](http://www.blog.minike.top/Article/details/054302791.shtml)
-- 2026-06-29 11:54 - [新兴市场“越涨越便宜”：亚洲芯片三雄引领的估值悖论](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [关于白宫记者晚宴枪击案嫌疑人科尔・艾伦的全部已知信息](http://www.share.kurohicncr.top/Article/details/986681585973.shtml)
-- 2026-06-29 11:54 - [002779、603360，被证监会立案！](http://www.blog.minike.top/Article/details/09868182.shtml)
-- 2026-06-29 12:04 - [台湾新北市长民调结果出炉，蓝白共推李四川参选](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:50 - [患恶性肿瘤理赔遭拒 和谐健康被指竟多次“恶意”拒赔](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [外交部评白宫记协年度晚宴枪击事件：一贯反对和谴责非法暴力行为](http://www.blog.minike.top/Article/details/3859590212.shtml)
-- 2026-06-29 11:52 - [珠江流域进一步强化节约用水管理工作](http://www.blog.kurohicncr.top/Article/details/157607281.shtml)
-- 2026-06-29 11:47 - [“五一”假期预计全国日均租车量将超70万辆](http://www.blog.kurohicncr.top/Article/details/0559938.shtml)
-- 2026-06-29 11:45 - [2026粤超首轮东莞主场获胜 科学家+企业家携手开球](http://www.share.kurohicncr.top/Article/details/03154018709.shtml)
-- 2026-06-29 11:43 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](http://www.blog.kurohicncr.top/Article/details/7430623865.shtml)
-- 2026-06-29 12:02 - [西藏社科院举办专题研讨：以法治力量夯实民族团结进步根基](http://www.blog.minike.top/Article/details/517728670.shtml)
-- 2026-06-29 11:44 - [伊朗战事推高油价，英国石油利润翻倍、大幅超出预期](http://www.blog.kurohicncr.top/Article/details/48976.shtml)
-- 2026-06-29 11:41 - [长江“微笑天使”又添丁，见证江苏生态之变](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:39 - [春到桑干河](http://www.blog.minike.top/Article/details/92764196913.shtml)
+- 2026-06-29 12:02 - [伊朗总统府官员：与美达成协议“需要时间”](http://www.share.minike.top/Article/details/60073013496.shtml)
+- 2026-06-29 11:56 - [宏润建设：2025年归母净利润2.8亿元，同比下降1.14%](http://www.share.minike.top/Article/details/1983327.shtml)
+- 2026-06-29 11:59 - [中国选手范俊杰夺得三亚亚沙会首金](http://www.blog.minike.top/Article/details/21391571058.shtml)
+- 2026-06-29 12:07 - [美国西弗吉尼亚州一工厂发生化学品泄漏 造成两人死亡](http://www.share.minike.top/Article/details/810995601.shtml)
+- 2026-06-29 11:48 - [日韩股市集体高开 日股升至纪录新高](http://www.share.minike.top/Article/details/318561681255.shtml)
+- 2026-06-29 12:08 - [世界地球日｜用我们的力量守护高原生态](http://www.blog.kurohicncr.top/Article/details/5293888.shtml)
+- 2026-06-29 11:46 - [必维国际检验集团设立新亚洲中心，扩大海上服务能力](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:51 - [一季度ETF市场回顾：四只沪深300ETF缩水6300亿，黄金ETF、短融ETF成“避风港”，新发产品扎堆电池港股](http://www.share.kurohicncr.top/Article/details/295218138495.shtml)
+- 2026-06-29 12:07 - [涨幅超A股，四大行H股盘中集体创新高，谁在买？](http://www.blog.kurohicncr.top/Article/details/386919407139.shtml)
+- 2026-06-29 11:53 - [4月23日美股成交额前20：美光创历史新高，此前获高盛唱好](http://www.blog.minike.top/Article/details/1473405028.shtml)
+- 2026-06-29 11:49 - [液冷牛股英维克，火热后急冻，现场探访](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [减肥药意外带火豌豆扁豆，美国农民弃麦种豆](http://www.share.kurohicncr.top/Article/details/79876.shtml)
+- 2026-06-29 11:50 - [80.3%受访者看好相关政策提升大众阅读兴趣](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:11 - [南航否认在飞机上闹事女乘客为“南航空姐”](http://www.blog.kurohicncr.top/Article/details/559642710122.shtml)
+- 2026-06-29 12:05 - [国际刑事法院声称要对杜特尔特进行审判](http://www.share.minike.top/Article/details/517805853218.shtml)

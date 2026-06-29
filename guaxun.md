@@ -1,56 +1,60 @@
-# 能源高价推升通胀风险，英债收益率走高
+# 证监会出手！4只A股被立案！
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-受高油价与能源供应中断持续发酵影响，通胀风险上行，英国国债收益率走高。美伊冲突背景下，重要航运要道霍尔木兹海峡持续关停，引发全球能源供给冲击。伦敦证券交易所集团数据显示，投资者已完全计价消化英国央行 2026 年加息两次以抑制通胀的预期。市场预计，英国央行将在本周四利率决议中维持基准利率不变。Tradeweb 数据显示，英国 10 年期国债收益率上行 3.6 个基点，最新报 4
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！监管发威。 *ST数源（000909）4月22日晚间公告，公司于2026年4月22日收到中国证券监督管理委员会（简称“中国证监会”）出具的《立案告知书》。因涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决
 
 ## 正文
 
-受高油价与能源供应中断持续发酵影响，通胀风险上行，英国国债收益率走高。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-美伊冲突背景下，重要航运要道霍尔木兹海峡持续关停，引发全球能源供给冲击。
+监管发威。
 
-伦敦证券交易所集团数据显示，投资者已完全计价消化英国央行 2026 年加息两次以抑制通胀的预期。
+*ST数源（000909）4月22日晚间公告，公司于2026年4月22日收到中国证券监督管理委员会（简称“中国证监会”）出具的《立案告知书》。
 
-市场预计，英国央行将在本周四利率决议中维持基准利率不变。
+因涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司立案。
 
-Tradeweb 数据显示，英国 10 年期国债收益率上行 3.6 个基点，最新报 4.964%。
+在立案调查期间，公司将积极配合中国证监会的调查工作，并严格按照监管要求履行信息披露义务。
 
-责任编辑：江学思
+傲农生物（维权）（603363）4月22日晚间也发布公告，公司于2026年4月22日收到中国证监会出具的《立案告知书》。
+
+因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司立案。
+
+立案调查期间，公司将积极配合中国证监会的调查工作，并严格按照相关法律法规及监管要求履行信息披露义务。
 
 ## 相关推荐
 
-- 2026-06-29 11:48 - [中共中央政治局召开会议 分析研究当前经济形势和经济工作 中共中央总书记习近平主持会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:40 - [华裔Z视界｜在行走间读懂中国文化 华裔青年爱上中式养生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:53 - [日元回吐部分涨幅 此前日本央行行长未发出明确的加息信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:41 - [今年“五一”假期小客车上高速继续免收通行费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:36 - [《爱情没有神话》开播 唐嫣出演亦舒笔下“独身女人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:46 - [姚高员辞去杭州市市长职务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:40 - [法学大先生·张晋藩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:52 - [美国加州亿万富豪税已集齐请愿签名，获准纳入公投议程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 12:01 - [绍兴越城：以“三抓实”落实统战工作责任制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:39 - [知情人士：美官员将讨论上周停火延期后 是否恢复对伊朗的轰炸行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:39 - [青春，就应该这样！——写在2026年五四青年节到来之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:53 - [人社部：一季度全国城镇新增就业299万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:44 - [江西鄱阳湖南矶湿地首次发现蓝喉太阳鸟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:56 - [青海西宁：文体商旅融合点燃五月高原消费热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:44 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:56 - [华勤技术首挂上市 早盘高开13.13%公司为全栈智能产品ODM平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:59 - [ABB上调业绩指引、股价一度涨超5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:10 - [突发！香港证监会与普华永道就恒大财务造假达成赔偿协议，10亿港元赔付受损股东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:02 - [大美边疆看我家丨云南漾濞：来“二月十九街”买扫帚啦！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:51 - [A股收评：超4000只个股飘绿，三大指数集体收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:08 - [隔夜逼近1.2%、资金利率持续倒挂，超宽松还能持续多久？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:04 - [华贵人寿董事长刘刚将任新职，第一大股东茅台集团持股已超49%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:58 - [班诺特银行加速阿兹特克球场无现金化改造，备战世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:46 - [西南航空：受燃油价格上涨影响，第二季度盈利将低于预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:54 - [花旗：中国联通给予“买入”评级 目标价11.2港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 12:05 - [规范升级！32万亿银行理财信息披露迎重大调整](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:49 - [2026上海·静安现代戏剧谷链接全球戏剧资源](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:48 - [光大期货：4月23日矿钢煤焦日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:40 - [数智赋能民间文艺传承 2026“世界艺术和科技对话”上海活动举办](http://www.blog.minike.top/Article/details/94590.shtml)
-- 2026-06-29 11:47 - [喀什至吉尔吉斯斯坦奥什国际客运航线成功首航](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [欧洲股市小幅攀升，传伊朗提出和平提议](http://www.share.kurohicncr.top/Article/details/06183772154.shtml)
-- 2026-06-29 11:52 - [央行上海总部：一季度上海社会融资规模增加4743亿元 同比多增138亿元](http://www.share.minike.top/Article/details/213418366991.shtml)
-- 2026-06-29 11:46 - [白宫晚宴枪击最新调查进展：被捕枪手为一名家教，曾留下字条](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [OEXN:黄金震荡观望央行信号](http://www.blog.kurohicncr.top/Article/details/07253053766.shtml)
-- 2026-06-29 11:56 - [“五一”假日期间海南省天气总体较好 适宜出游](http://www.blog.minike.top/Article/details/05518881886.shtml)
-- 2026-06-29 12:01 - [绿城的"体外"生意，撑不住了](http://www.share.minike.top/Article/details/27110283.shtml)
-- 2026-06-29 11:48 - [油价冲击波袭来，全球消费品巨头面临定价压力测试](http://www.blog.kurohicncr.top/Article/details/915023130.shtml)
-- 2026-06-29 11:39 - [全国首批米粉“批次检验（检疫）”改革试点落地江西抚州](http://www.blog.kurohicncr.top/Article/details/4639184.shtml)
-- 2026-06-29 11:55 - [五一假期注意出行安全 南方多地有大范围降雨](http://www.share.kurohicncr.top/Article/details/232766.shtml)
-- 2026-06-29 12:05 - [江河与共丨九三学社中央主席武维华：“既找病灶又开药方” 九三学社助力长江生态保护](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:45 - [解决新旧海商法衔接适用问题 最高法出台司法解释](http://www.blog.minike.top/Article/details/152376305.shtml)
-- 2026-06-29 11:42 - [中非银联体召开第二届高官会暨中非金融合作研讨会](http://www.share.kurohicncr.top/Article/details/8469953263.shtml)
-- 2026-06-29 11:46 - [有的亏超2亿元，有的净利翻2倍！2025年支付公司业绩分化严重](http://www.share.minike.top/Article/details/47564.shtml)
+- 2026-06-29 11:45 - [以军称黎巴嫩真主党“违反停火协议”](http://www.blog.minike.top/Article/details/318470613583.shtml)
+- 2026-06-29 12:03 - [欧元区消费者信心下滑 凸显消费风险](http://www.share.minike.top/Article/details/033932.shtml)
+- 2026-06-29 11:46 - [科尔沁沙地核心区：人工铺设草方格固沙](http://www.blog.minike.top/Article/details/986664231.shtml)
+- 2026-06-29 11:45 - [中方回应美方退税举措：是在纠正错误道路上的有益一步](http://www.blog.minike.top/Article/details/82668.shtml)
+- 2026-06-29 11:47 - [传习录丨读书，总书记倡导的生活方式](http://www.share.minike.top/Article/details/20073.shtml)
+- 2026-06-29 11:58 - [在第57个世界地球日，“最美自然守护者”讲述绿色发展故事](http://www.blog.kurohicncr.top/Article/details/4856002.shtml)
+- 2026-06-29 11:47 - [胃不适、腰背酸、血糖高？警惕“癌王”发出的预警信号](http://www.share.minike.top/Article/details/937090009.shtml)
+- 2026-06-29 11:42 - [“6.0%”的浙江看点](http://www.blog.minike.top/Article/details/43705.shtml)
+- 2026-06-29 12:00 - [特朗普称美国“已完全控制了霍尔木兹海峡”](http://www.blog.kurohicncr.top/Article/details/81872555.shtml)
+- 2026-06-29 11:57 - [中际旭创市值破万亿 老实业家如何逆袭硅谷](http://www.share.minike.top/Article/details/775551460337.shtml)
+- 2026-06-29 12:03 - [俄总统新闻秘书：普京愿随时与泽连斯基会面但须“富有成效”](http://www.blog.kurohicncr.top/Article/details/06249.shtml)
+- 2026-06-29 11:46 - [“四季新韵·感知重庆”境外媒体重庆行交流活动启动](http://www.share.kurohicncr.top/Article/details/548012.shtml)
+- 2026-06-29 11:57 - [连亏5年，越亏越多！知名超市学胖东来效果不佳，去年关店414家，巨亏9.57亿元，最新市值仅35亿元](http://www.share.kurohicncr.top/Article/details/3964229.shtml)
+- 2026-06-29 12:04 - [第六届亚洲沙滩运动会在三亚开幕 谌贻琴出席并宣布开幕](http://www.share.kurohicncr.top/Article/details/027882200.shtml)
+- 2026-06-29 11:42 - [美伊和平谈判陷入僵局，霍尔木兹海峡局势加剧](http://www.share.kurohicncr.top/Article/details/51516.shtml)

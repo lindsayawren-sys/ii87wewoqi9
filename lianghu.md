@@ -1,59 +1,60 @@
-# 中国国家能源局：可保障各种情形下的油气安全保供能力
+# 德政府据悉正与波兰就石油替代供应展开磋商
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-中新社北京4月27日电 (记者 王梦瑶)中东战事引发的能源危机波及多国，中国国家能源局综合司副司长张星27日在北京表示，中国积极推进油气行业高质量发展，可以保障在各种情形下的安全保供能力。 在当天召开的国家能源局例行新闻发布会上，张星表示，中国大力提升油气勘探开发力度，稳步提升国内油气产量，原油产量持续保持年产2亿吨以上并创新高，天然气产量连续9年超百亿方增产。 加快推进油气基
+据德国政府圈内消息，为确保德国东部炼油厂的原油供应安全，德国联邦政府正与波兰政府就通过格但斯克港进口替代性原油进行谈判。此举旨在为彻底停止进口俄罗斯原油做准备，并应对因中东局势动荡可能导致的供应中断。 报道称，德波两国技术团队已在华沙举行初步会谈，讨论利用波兰的港口及管道基础设施，将北海、西非或中东原油输送至德国施韦特、洛伊纳等主要炼油厂。这些炼油厂目前主要依赖“友谊”管道输送
 
 ## 正文
 
-中新社北京4月27日电 (记者 王梦瑶)中东战事引发的能源危机波及多国，中国国家能源局综合司副司长张星27日在北京表示，中国积极推进油气行业高质量发展，可以保障在各种情形下的安全保供能力。
+据德国政府圈内消息，为确保德国东部炼油厂的原油供应安全，德国联邦政府正与波兰政府就通过格但斯克港进口替代性原油进行谈判。
 
-在当天召开的国家能源局例行新闻发布会上，张星表示，中国大力提升油气勘探开发力度，稳步提升国内油气产量，原油产量持续保持年产2亿吨以上并创新高，天然气产量连续9年超百亿方增产。
+此举旨在为彻底停止进口俄罗斯原油做准备，并应对因中东局势动荡可能导致的供应中断。
 
-加快推进油气基础设施规划建设，长输油气管道里程突破20万公里，油气“全国一张网”进一步拓展，液化天然气(LNG)总接收能力超过1.2亿吨/年。
+报道称，德波两国技术团队已在华沙举行初步会谈，讨论利用波兰的港口及管道基础设施，将北海、西非或中东原油输送至德国施韦特、洛伊纳等主要炼油厂。
 
-持续巩固完善多元油气进口体系建设。
+这些炼油厂目前主要依赖“友谊”管道输送的俄罗斯原油。
 
-目前已经与全球近50个国家开展油气贸易合作，进口来源涵盖全球主要油气出口国，始终保持油气资源进口稳定可靠。
+然而，德波能源合作的深化面临显著的政治障碍。
 
-此外，还持续开展油气消费可靠有序替代。
+波兰总理图斯克已多次明确表示，恢复与俄罗斯的能源合作“绝无可能”，并强调能源安全关乎“真正的主权问题”，波兰仅与“可以依赖的伙伴”开展合作。
 
-张星说，在上述工作的共同支撑促进下，中国油气行业产业韧性和灵活应对风险挑战能力不断增强。
+这一强硬立场意味着，任何涉及俄罗斯能源背景的替代方案都将遭到波方坚决抵制。
 
-今年以来，中国国家发改委、国家能源局会同有关方面积极应对外部环境变化的挑战，全力做好油气保供工作，通过稳产、多元化进口、价格临时调控等多种方式确保油气供应平稳有序，有效保障了经济平稳运行和民生需求。
+此前，德国和波兰已承诺在今年年底前停止购买俄罗斯石油，相关计划正在具体化。
 
 ## 相关推荐
 
-- 2026-06-29 11:52 - [国际龙舟联合会主席：推动龙舟运动加速“划向”奥运殿堂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:53 - [英伟达收高4%，创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:58 - [业绩大变脸触发退市红线！冀凯股份索赔正式开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:01 - [中国能源建设第一季度新签合同额2761.96亿元 同比减少28.98%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 12:00 - [安井食品将于7月2日派发末期股息每股1.44元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:39 - [跌停！近7倍机器人大牛股遭立案，故事讲完谁在买单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:53 - [姐弟组队勇闯吃瓜比赛 为了赢姐姐拼命“刷刷刷”，弟弟秒变“西瓜粉碎机”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:41 - [从“黑土疤”到“绿绒毯”：祁连山下天峻草原的生态蝶变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:02 - [美国多地再发生枪击事件，致十余人伤亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:38 - [沃顿教授西格尔：围绕鲍威尔的美联储“大戏”远未落幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:38 - [日本北部山火已连烧6天 过火面积超1600公顷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:46 - [重庆法院发布首例承认欧洲仲裁机构裁决案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:40 - [“广货行天下 文旅邀您来”相关活动推出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:49 - [从法国名家手稿展到MBTI荐书 浙大这样让阅读“破圈”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:04 - [美方称拦截一艘从伊朗运输石油的油轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:04 - [总书记的人民情怀 |“中国式现代化关键在科技现代化”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:43 - [作家王蒙：“越是在信息爆炸的时代，越不能丢掉深度阅读的能力”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:45 - [券商并购提速，板块或迎中长期关注契机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:50 - [特朗普政府即将达成救助精神航空的协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:03 - [西安银行：2025年实现营业收入99.66亿元，同比增长21.68%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:51 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:45 - [受人工智能需求推动，ASM国际销售额超预期 股价上涨8.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:56 - [Palantir与美国农业部签署3亿美元协议，保障粮食供应链安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:09 - [直线拉升！涨停！伊朗，传来大消息！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:52 - [赵明车圈首秀：千里科技 AI 战略暨产品发布会今晚 7 点举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:56 - [Rivian：已开始生产全新纯电动车型R2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:45 - [香港创新科技及工业局局长：相信会有更多优秀企业落户港深创科园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:58 - [北京农商银行：2025年实现净利润81.49亿元，同比增长2.21%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [重庆：高铁乘务员开展服务礼仪培训 备战“五一”假期](http://www.blog.kurohicncr.top/Article/details/028492576879.shtml)
-- 2026-06-29 11:37 - [中国三三传媒股份拆细将于4月28日生效](http://www.share.minike.top/Article/details/0472832880.shtml)
-- 2026-06-29 11:39 - [TD Cowen首次覆盖DoorDash给予买入评级](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:39 - [原料供应收紧，4月下半月猪肉鲜品分割品价格止跌反弹](http://www.blog.minike.top/Article/details/37311.shtml)
-- 2026-06-29 11:38 - [平陆运河主题影像作品巡展在广西桂林开展](http://www.blog.kurohicncr.top/Article/details/341010.shtml)
-- 2026-06-29 11:39 - [法治蓝皮书：中国体育反腐法治建设正处于转型关键时期](http://www.blog.kurohicncr.top/Article/details/317705198468.shtml)
-- 2026-06-29 12:03 - [江河与共丨从卫星遥感到基因解码！致公党中央给皖江做了五年“全面体检”](http://www.blog.minike.top/Article/details/88240.shtml)
-- 2026-06-29 11:49 - [亚市早盘金价小幅走高，因投资者评估伊朗向美国提出的提议](http://www.share.kurohicncr.top/Article/details/721635438.shtml)
-- 2026-06-29 11:41 - [北京银行：聘任魏昱为首席合规官](http://www.share.kurohicncr.top/Article/details/5868442605.shtml)
-- 2026-06-29 11:46 - [酒价内参4月28日价格发布：飞天茅台小幅上涨3元](http://www.share.minike.top/Article/details/8550404230.shtml)
-- 2026-06-29 11:43 - [特朗普：白宫周围很安全 英国国王会非常安全](http://www.blog.minike.top/Article/details/3775785131.shtml)
-- 2026-06-29 11:50 - [新疆伊犁：充电服务提质效 新能源汽车惠民生](http://www.blog.minike.top/Article/details/683886.shtml)
-- 2026-06-29 12:00 - [药明康德一季报营收首破百亿！港股生物医药概念股集体走强](http://www.blog.kurohicncr.top/Article/details/0264108823.shtml)
-- 2026-06-29 11:40 - [8000亿青岛银行“低分红”迷局：资本消耗加剧，零售短板待解](http://www.share.kurohicncr.top/Article/details/9870469.shtml)
+- 2026-06-29 11:47 - [《2025现场音乐演出市场报告》：大型演唱会票房超295亿元](http://www.share.minike.top/Article/details/53684383328.shtml)
+- 2026-06-29 11:52 - [沙海“织”网 青海格尔木“三北”工程日均治沙2300亩](http://www.share.minike.top/Article/details/8187976960.shtml)
+- 2026-06-29 12:06 - [菲莫国际营收上涨，受益于国际市场增长](http://www.share.kurohicncr.top/Article/details/34473.shtml)
+- 2026-06-29 11:47 - [小食堂托起晚年大幸福](http://www.blog.kurohicncr.top/Article/details/054830576.shtml)
+- 2026-06-29 11:42 - [斯诺克世锦赛：奥沙利文淘汰中国球手晋级16强](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [伊朗总统称封锁和威胁是谈判的主要障碍](http://www.blog.kurohicncr.top/Article/details/599811.shtml)
+- 2026-06-29 11:59 - [华安基金胡宜斌|洞见互联生态：掘金产业投资新范式](http://www.blog.kurohicncr.top/Article/details/643549040.shtml)
+- 2026-06-29 11:57 - [联合国发展系统驻华协调员：中国为全球数字化转型提供宝贵经验](http://www.blog.kurohicncr.top/Article/details/22526695.shtml)
+- 2026-06-29 12:04 - [中老各界友人云南共庆两国建交65周年 展望合作新方向](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [大美边疆看我家丨黑龙江哈尔滨：江畔夜景醉人心](http://www.blog.kurohicncr.top/Article/details/26214690259.shtml)
+- 2026-06-29 11:54 - [私募巨头克林斯基：当前是配置私募股权和信贷的“绝佳时机”](http://www.blog.minike.top/Article/details/2419756.shtml)
+- 2026-06-29 11:46 - [第三艘美国航空母舰预计将在3至5天内抵达中东](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:53 - [宁夏：“垂钓节”绘就乡村振兴新画卷](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:04 - [“君约鹰城·鉴藏千秋——傅申先生书画特展”举办](http://www.blog.kurohicncr.top/Article/details/14729542739.shtml)
+- 2026-06-29 11:56 - [4月23日收盘：美股收涨纳指创历史新高 美国延长对伊停火](http://www.share.kurohicncr.top/Article/details/029090.shtml)

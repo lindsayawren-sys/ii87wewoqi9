@@ -1,56 +1,53 @@
-# 拉卡拉：“炒股”大赚，主业承压
+# 美国贸易代表格里尔周五将与欧盟贸易专员讨论数字税问题
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：财熵 资料图。 拉卡拉：“炒股”大赚，主业承压 王琳 4月16日，A股“支付第一股”拉卡拉（300773.SZ）同步发布2025年年度报告与2026年一季度报告。2025年，受投资收益拉动，拉卡拉实现归母净利润同比暴增超两倍创下历史新高，但营收、扣非核心净利双双下滑，2026年一季度延续净利暴涨态势，
+美国贸易代表贾米森·格里尔表示，他周五将与欧盟贸易专员讨论数字服务税问题。 格里尔在众议院筹款委员会听证会上作出上述表态。 格里尔表示，其办公室已起草可能采取的301条款行动方案，以应对包括服务税以及他国对在线流媒体实施禁令等数字领域问题。 “我们正努力通过谈判达成解决方案，”格里尔称，并表示，如有必要，其办公室将动用包括301条款在内的工具。责任编辑：李桐
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+美国贸易代表贾米森·格里尔表示，他周五将与欧盟贸易专员讨论数字服务税问题。
 
-来源：财熵 资料图。
+格里尔在众议院筹款委员会听证会上作出上述表态。
 
-拉卡拉：“炒股”大赚，主业承压 王琳 4月16日，A股“支付第一股”拉卡拉（300773.SZ）同步发布2025年年度报告与2026年一季度报告。
+格里尔表示，其办公室已起草可能采取的301条款行动方案，以应对包括服务税以及他国对在线流媒体实施禁令等数字领域问题。
 
-2025年，受投资收益拉动，拉卡拉实现归母净利润同比暴增超两倍创下历史新高，但营收、扣非核心净利双双下滑，2026年一季度延续净利暴涨态势，主业营收虽迎来阶段性回暖，但经营现金流与盈利质量隐忧仍存。
+“我们正努力通过谈判达成解决方案，”格里尔称，并表示，如有必要，其办公室将动用包括301条款在内的工具。
 
-当前国内第三方支付行业步入存量竞争深水区，行业竞争、监管合规、费率下行等多方压力不断加大的背景下，作为老牌头部支付机构，拉卡拉也正处在传统支付基本盘收缩调整、跨境支付与科技服务新增长极加速培育的转型阵痛期，短期账面亮眼业绩与主业真实经营承压形成强烈反差，与此同时，港股上市搁浅，也成为转型路上的又一挑战。
-
-净利暴增“虚火” 年报数据显示，2025年拉卡拉实现营业总收入55.47亿元，同比下降3.68%；归母净利润11.71亿元，同比大幅增长233.33%，创下历史新高；但扣非归母净利润仅3.01亿元，同比下滑45.58%；经营活动现金流净额6.07亿元，同比下降32.53%。
-
-数据来源 ：拉卡拉2025年业绩报告 从业绩构成看，非经常性损益是净利暴增的核心推手。
-
-年报显示，拉卡拉2025年短期内出售蓝色光标股票，持股比例降低至2.62%，且不再对蓝色光标具有重大影响，核算方法由长期股权投资权益法转为以公允价值计量且其变动计入当期损益的金融资产。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 11:43 - [亚洲芯片股走高 市场对地缘政治风险的担忧降温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:41 - [现场下单！中国机器人“圈粉”爱尔兰老球员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:59 - [新兴市场“越涨越便宜”：亚洲芯片三雄引领的估值悖论](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:01 - [关于白宫记者晚宴枪击案嫌疑人科尔・艾伦的全部已知信息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:04 - [002779、603360，被证监会立案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:44 - [台湾新北市长民调结果出炉，蓝白共推李四川参选](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:59 - [患恶性肿瘤理赔遭拒 和谐健康被指竟多次“恶意”拒赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:51 - [外交部评白宫记协年度晚宴枪击事件：一贯反对和谴责非法暴力行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:56 - [珠江流域进一步强化节约用水管理工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:55 - [“五一”假期预计全国日均租车量将超70万辆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:01 - [操盘必读：影响股市利好或利空消息_2026年4月24日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:51 - [伊朗总统府官员：与美达成协议“需要时间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:56 - [宏润建设：2025年归母净利润2.8亿元，同比下降1.14%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:53 - [中国选手范俊杰夺得三亚亚沙会首金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:05 - [美国西弗吉尼亚州一工厂发生化学品泄漏 造成两人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:09 - [日韩股市集体高开 日股升至纪录新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:03 - [世界地球日｜用我们的力量守护高原生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:00 - [必维国际检验集团设立新亚洲中心，扩大海上服务能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:11 - [一季度ETF市场回顾：四只沪深300ETF缩水6300亿，黄金ETF、短融ETF成“避风港”，新发产品扎堆电池港股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:59 - [涨幅超A股，四大行H股盘中集体创新高，谁在买？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:05 - [4月23日美股成交额前20：美光创历史新高，此前获高盛唱好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:52 - [液冷牛股英维克，火热后急冻，现场探访](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:45 - [减肥药意外带火豌豆扁豆，美国农民弃麦种豆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:05 - [文旅部：将督促属地集中整治龙虎山、长白山、稻城亚丁等景区摆渡车](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:58 - [谷歌DeepMind首席执行官访韩，会见现代汽车和LG集团负责人](http://www.share.minike.top/Article/details/253170.shtml)
-- 2026-06-29 11:38 - [逐绿而行暖万家——推动能源消费绿色化低碳化的丰台探索](http://www.share.minike.top/Article/details/92890.shtml)
-- 2026-06-29 11:56 - [稳面积 提单产 夯实粮食稳产丰产基础](http://www.share.minike.top/Article/details/79625893.shtml)
-- 2026-06-29 11:52 - [直播海报：国务院政策例行吹风会：介绍《关于推进服务业扩能提质的意见》有关情况](http://www.blog.kurohicncr.top/Article/details/3366253.shtml)
-- 2026-06-29 11:49 - [非法募资314亿余元 刘必安等十六人非法集资案一审宣判](http://www.share.kurohicncr.top/Article/details/564494813448.shtml)
-- 2026-06-29 11:50 - [中共中央政治局召开会议 分析研究当前经济形势和经济工作 中共中央总书记习近平主持会议](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [华裔Z视界｜在行走间读懂中国文化 华裔青年爱上中式养生](http://www.blog.kurohicncr.top/Article/details/0938941508.shtml)
-- 2026-06-29 11:47 - [日元回吐部分涨幅 此前日本央行行长未发出明确的加息信号](http://www.blog.minike.top/Article/details/554318.shtml)
-- 2026-06-29 11:50 - [今年“五一”假期小客车上高速继续免收通行费](http://www.blog.kurohicncr.top/Article/details/7026400051.shtml)
-- 2026-06-29 12:02 - [《爱情没有神话》开播 唐嫣出演亦舒笔下“独身女人”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [姚高员辞去杭州市市长职务](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:00 - [法学大先生·张晋藩](http://www.blog.minike.top/Article/details/263106881.shtml)
-- 2026-06-29 11:46 - [美国加州亿万富豪税已集齐请愿签名，获准纳入公投议程](http://www.blog.minike.top/Article/details/583766180.shtml)
-- 2026-06-29 11:40 - [绍兴越城：以“三抓实”落实统战工作责任制](http://www.blog.minike.top/Article/details/87374947597.shtml)
+- 2026-06-29 11:43 - [从“企业找政策”到“政策找企业” 成都“1+N”精准对接会为油气产业链“搭桥铺路”](http://www.share.minike.top/Article/details/84607420.shtml)
+- 2026-06-29 11:42 - [海港人寿总经理变更：齐美祝任临时负责人，代行总经理职权](http://www.share.minike.top/Article/details/61450390.shtml)
+- 2026-06-29 11:55 - [快讯：美股股指期货、现货金银跳水，国际原油快速拉升，WTI原油涨幅扩大至4%](http://www.share.minike.top/Article/details/9577010939.shtml)
+- 2026-06-29 11:49 - [中国首次记录高魔芋开花 西双版纳植物园上演“巨花”奇观](http://www.blog.kurohicncr.top/Article/details/34918.shtml)
+- 2026-06-29 12:06 - [Swift数据显示 美元3月份在国际交易中占比升至51.1%的新高](http://www.share.minike.top/Article/details/443816170316.shtml)
+- 2026-06-29 12:09 - [海尔智家获Pzena Investment Management, LLC增持180.92万股 每股作价约20.99港元](http://www.blog.minike.top/Article/details/442278.shtml)
+- 2026-06-29 11:51 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](http://www.share.minike.top/Article/details/044808.shtml)
+- 2026-06-29 11:42 - [华勤技术首挂上市 早盘高开13.13%公司为全栈智能产品ODM平台](http://www.blog.minike.top/Article/details/971364.shtml)
+- 2026-06-29 12:00 - [ABB上调业绩指引、股价一度涨超5%](http://www.share.kurohicncr.top/Article/details/8098141.shtml)
+- 2026-06-29 11:49 - [突发！香港证监会与普华永道就恒大财务造假达成赔偿协议，10亿港元赔付受损股东](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:55 - [大美边疆看我家丨云南漾濞：来“二月十九街”买扫帚啦！](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [A股收评：超4000只个股飘绿，三大指数集体收跌](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [隔夜逼近1.2%、资金利率持续倒挂，超宽松还能持续多久？](http://www.share.kurohicncr.top/Article/details/142981875.shtml)
+- 2026-06-29 12:10 - [华贵人寿董事长刘刚将任新职，第一大股东茅台集团持股已超49%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [班诺特银行加速阿兹特克球场无现金化改造，备战世界杯](http://www.share.minike.top/Article/details/115833681.shtml)

@@ -1,57 +1,59 @@
-# “茶和天下·雅集”中韩茶文化交流会在韩国举办
+# 液冷牛股英维克，火热后急冻，现场探访
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月27日 11:54 来源：中国新闻网 采茶拾翠、铁锅杀青、品茗寻韵……近日，“茶和天下·雅集”中韩茶文化交流会在韩国全罗南道康津郡白莲寺举办。活动邀请中国西湖龙井制茶师赴韩展示中国茶文化，展示中国绿茶制作技艺。 活动现场，来自中韩两国的制茶师走进茶园，现场采茶、制茶，深入交流互动。中国西湖龙井制茶师唐鹤君展示了龙井炒制工艺。茶叶清香弥漫，吸引韩国茶文化
+登录新浪财经APP 搜索【信披】查看更多考评等级 专题：A股配置风向标：机构建议关注景气成长、周期资源、高股息三条主线 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！因一季度净利润的大幅下挫和股价的大幅震荡，液冷人气股英维克被推上风口浪尖。 英维克的一季报中，消失的不仅有“预期中的丰厚利润”，还有牛散的身影——“超级牛散”章建平之妻方文艳在一季度退出英
 
 ## 正文
 
-发布时间：2026年04月27日 11:54 来源：中国新闻网 采茶拾翠、铁锅杀青、品茗寻韵……近日，“茶和天下·雅集”中韩茶文化交流会在韩国全罗南道康津郡白莲寺举办。
+登录新浪财经APP 搜索【信披】查看更多考评等级 专题：A股配置风向标：机构建议关注景气成长、周期资源、高股息三条主线 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-活动邀请中国西湖龙井制茶师赴韩展示中国茶文化，展示中国绿茶制作技艺。
+因一季度净利润的大幅下挫和股价的大幅震荡，液冷人气股英维克被推上风口浪尖。
 
-活动现场，来自中韩两国的制茶师走进茶园，现场采茶、制茶，深入交流互动。
+英维克的一季报中，消失的不仅有“预期中的丰厚利润”，还有牛散的身影——“超级牛散”章建平之妻方文艳在一季度退出英维克前十大流通股股东榜。
 
-中国西湖龙井制茶师唐鹤君展示了龙井炒制工艺。
+而就在去年四季度，方文艳新进公司前十大流通股股东榜，持股达614.79万股。
 
-茶叶清香弥漫，吸引韩国茶文化爱好者驻足围观。
+与此同时，有关“英维克并非英伟达生态合作伙伴”等质疑之声也不绝于耳。
 
-两国制茶师用不同的技艺手法炒制茶叶，大家共品佳茗，感受不同茶文化。
+火热的液冷概念炒作之下，英维克的虚实究竟如何？
 
-此次活动由首尔中国文化中心和韩国康津郡共同主办，杭州西湖风景名胜区管委会文物遗产局、韩国香道协会、康津白莲寺承办，通过中韩绿茶制作技艺互鉴、中韩茶文化百人茶会、中韩茶文化项目考察与学术探究等活动生动展现中国传统茶文化，以茶会友，增进更多理解与交流。
+近日，上海证券报记者在深圳实地探访英维克，并采访了多位业内人士，试图拨开层层迷雾。
 
-(记者 金旭 制作 乐小敏） 责任编辑：【黄钰涵】
+市值背后实力几何？
 
 ## 相关推荐
 
-- 2026-06-29 12:03 - [甘肃银行空前分红17.78亿为归母净利三倍 营收两连降零售贷款不良率4.16%压力增大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:45 - [互联网广告要跳出“流量至上”误区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:52 - [2026第二届飞剑“大使杯”国际板球邀请赛在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:03 - [上海定制何以走红？外籍人士为何偏爱这份“专属质感”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:01 - [中国黄河流域137处国家级自然保护区优良率达99.27％](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:44 - [豆粕：周期无声，趋势有痕 —— 豆粕多空拉锯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:51 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:45 - [伪满皇宫博物院举办吉林省首个海事文化科普展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:46 - [科创综指，历史新高！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:45 - [2026北京国际花展开幕 荷兰景观设计师：中国花卉产业发展速度非常快](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 12:04 - [CIPS资金托管行扩容至14家 中信银行、中银香港等四家入列](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:06 - [浙商银行金华分行被罚169.3万元：违反金融统计相关规定等](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:42 - [国家国际发展合作署、中国气象局与世界气象组织签署关于推动落实全球发展倡议的谅解备忘录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:06 - [上海银行：2025年净息差1.16%，同比微降0.01个百分点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:55 - [（乡村行·看振兴）茶旅融合叠加整村运营 大别山茶村焕新生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:51 - [一季度市场监管部门查处商标侵权、假冒专利案件0.7万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:11 - [八达岭夜长城将于4月底在京亮相 升级沉浸式互动体验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:50 - [军号再次吹响，这次是接他们回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:47 - [煤炭股午后逆势上扬 兖煤澳大利亚及兖矿能源均涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:53 - [文件显示SpaceX获200亿美元过桥贷款，对其债务进行再融资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:58 - [浙江行刑联动破题商业秘密保护“三难”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:59 - [社保基金重仓+机构高关注股来了（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:46 - [广州黄埔：“AI+高端智造”抢占生物医药产业新高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:03 - [中新健康｜日常做好这些事，可有效降低肿瘤发生风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:37 - [江西鄱阳湖南矶湿地首次发现蓝喉太阳鸟](http://www.share.minike.top/Article/details/395764965.shtml)
-- 2026-06-29 11:38 - [青海西宁：文体商旅融合点燃五月高原消费热潮](http://www.blog.minike.top/Article/details/03817828463.shtml)
-- 2026-06-29 12:00 - [2026年3月广东省外贸进出口总值表（人民币值）](http://www.blog.kurohicncr.top/Article/details/724620841.shtml)
-- 2026-06-29 11:55 - [跨境电商架桥梁 让互利之花在中越边境绽放](http://www.blog.kurohicncr.top/Article/details/13978348.shtml)
-- 2026-06-29 11:44 - [韩国上市公司总市值首次突破6000万亿韩元](http://www.blog.kurohicncr.top/Article/details/961614.shtml)
-- 2026-06-29 11:57 - [兆易创新将于5月29日派发末期股息每股0.8555198港元](http://www.blog.minike.top/Article/details/74008430823.shtml)
-- 2026-06-29 11:51 - [交通银行：400亿元二级资本债券（债券通）发行完毕](http://www.share.minike.top/Article/details/60103337607.shtml)
-- 2026-06-29 11:51 - [华泰期货：美伊分歧难以弥合，原油市场维持较高的波动率](http://www.blog.minike.top/Article/details/018384874.shtml)
-- 2026-06-29 11:57 - [中肯政商界人士认为零关税举措将为两国合作带来新机遇](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [2026广东时装周（春季）以时尚之力赋能产业升级](http://www.blog.minike.top/Article/details/38696657573.shtml)
-- 2026-06-29 12:04 - [如何防控蚊媒传染病？专家：清积水、灭成蚊、防叮咬](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [中国心连心化肥将于7月28日派发末期股息每股0.32元](http://www.share.minike.top/Article/details/33625328701.shtml)
-- 2026-06-29 11:53 - [澳大利亚拟对科技巨头征收约2%税费 除非达成本地新闻付费协议](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:40 - [美国政府：白宫晚宴枪手意图刺杀特朗普](http://www.blog.kurohicncr.top/Article/details/01793363795.shtml)
-- 2026-06-29 11:58 - [秦农银行国有持股占比首超50%](http://www.blog.minike.top/Article/details/7272101.shtml)
+- 2026-06-29 12:00 - [2026上海·静安现代戏剧谷链接全球戏剧资源](http://www.share.kurohicncr.top/Article/details/81480679229.shtml)
+- 2026-06-29 11:54 - [光大期货：4月23日矿钢煤焦日报](http://www.share.kurohicncr.top/Article/details/5846106.shtml)
+- 2026-06-29 12:02 - [志愿军老战士连续多年吹号迎接战友：我要告诉他们 我们赢了](http://www.share.minike.top/Article/details/44598651.shtml)
+- 2026-06-29 11:49 - [山东省泰安市委常委、副市长刘峰梅接受审查调查](http://www.blog.kurohicncr.top/Article/details/13807571422.shtml)
+- 2026-06-29 12:06 - [一间中国礼物商店，如何让在地非遗老技艺“活”在当下？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [美以失算！伊朗强硬派全面掌权，温和派靠边站，美伊谈判又熄火](http://www.blog.minike.top/Article/details/759469690.shtml)
+- 2026-06-29 11:49 - [“不只是司机的苦日子”——美高油价压力从运输业向消费端蔓延](http://www.blog.minike.top/Article/details/895369350510.shtml)
+- 2026-06-29 12:06 - [专访IMF世界经济研究部主管：全球增长或受2%“衰退线”挑战，美联储需防通胀预期脱锚](http://www.share.kurohicncr.top/Article/details/404746.shtml)
+- 2026-06-29 11:47 - [伊朗最高领袖、总统、议长、外长同日喊话](http://www.blog.kurohicncr.top/Article/details/38873.shtml)
+- 2026-06-29 11:48 - [【香港故事】方寸之间 书中蝴蝶——世界读书日走近藏书票](http://www.blog.minike.top/Article/details/943406.shtml)
+- 2026-06-29 11:52 - [三亚亚沙会沙排比赛首日：传统强队集体“速胜”](http://www.share.minike.top/Article/details/5636936.shtml)
+- 2026-06-29 11:59 - [放量大跌！A股多空博弈升级，投资者该怎么办？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [建发物业获FIDELITY FUNDS增持23.9万股 每股作价约2.89港元](http://www.share.minike.top/Article/details/310146241.shtml)
+- 2026-06-29 11:46 - [华裔留学生昆明共读书：在文字中“寻根” 在交流中传承](http://www.share.minike.top/Article/details/434724174.shtml)
+- 2026-06-29 12:08 - [新疆：升级版“新东方快车”启程 海内外游客共赴丝路之旅](http://www.blog.minike.top/Article/details/0925576221.shtml)

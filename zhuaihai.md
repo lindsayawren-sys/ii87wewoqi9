@@ -1,49 +1,61 @@
-# 光通信概念股涨幅居前 长飞光纤光缆涨超9%鸿腾精密涨超8%
+# 天津东疆联合多地实施海事政务业务跨域通办
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-光通信概念股涨幅居前，截至发稿，长飞光纤光缆（06869）上涨9.26%，报240.80港元；鸿腾精密（06088）上涨8.03%，报7.94港元；汇聚科技（01729）上涨4.13%，报22.68港元；剑桥科技（06166）上涨1.97%，报129.4港元。责任编辑：卢昱君
+中新网天津4月22日电 (薛淳月 王君妍)“开通环渤海自贸区海事政务业务跨域互通办理后，企业一周就可以拿到证书，能压缩三分之二以上的工作时间。”天津东疆海事局政务中心主任李云斌22日表示。 当日，天津东疆海事局举办“聚力政务服务创新 赋能东疆提质发展”新闻发布会，介绍东疆海事局再推“环渤海自贸区海事政务业务跨域互通办理”、推动探索“海事信用+”场景、“无证明海事”建设、“首席政
 
 ## 正文
 
-光通信概念股涨幅居前，截至发稿，长飞光纤光缆（06869）上涨9.26%，报240.80港元；鸿腾精密（06088）上涨8.03%，报7.94港元；汇聚科技（01729）上涨4.13%，报22.68港元；剑桥科技（06166）上涨1.97%，报129.4港元。
+中新网天津4月22日电 (薛淳月 王君妍)“开通环渤海自贸区海事政务业务跨域互通办理后，企业一周就可以拿到证书，能压缩三分之二以上的工作时间。
 
-责任编辑：卢昱君
+”天津东疆海事局政务中心主任李云斌22日表示。
+
+当日，天津东疆海事局举办“聚力政务服务创新 赋能东疆提质发展”新闻发布会，介绍东疆海事局再推“环渤海自贸区海事政务业务跨域互通办理”、推动探索“海事信用+”场景、“无证明海事”建设、“首席政务官”服务、政务服务“秒批秒办”五项利企便民创新服务举措。
+
+据悉，今年天津东疆海事局联合河北曹妃甸海事局、辽宁大连海事局、山东青岛海事局、山东烟台海事局，共同实施环渤海自贸区海事政务业务跨域互通办理，试点实施船舶所有权登记、船舶国籍证书核发(换发)、船舶光船租赁登记、船舶变更登记(登记项目变更)等9项海事业务。
+
+李云斌介绍，以往企业异地办证需要长途奔波，成本较高。
+
+跨域互通后，企业可以在青岛、大连等地提交材料、领取证书。
+
+天津东疆海事局在接收纸质材料传递的同时，利用数字化手段进行先期审核，通过优化流程大幅度提升审批效率。
+
+自2021年以来，天津东疆海事局持续优化营商环境，不断优化升级“东疆事东疆办”政务服务体系。
 
 ## 相关推荐
 
-- 2026-06-29 12:02 - [同一个投诉，不同渠道商家的回复态度差距有多大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:36 - [第139届广交会第二期收官 累计24.5万名境外采购商到会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:04 - [新党主席吴成典：台湾同胞要直面统一，不负“中国人”身份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:51 - [首都机场“五一”假期预计运送旅客102.3万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:51 - [美国库恩基金会主席人民日报撰文：制度优势成就中国发展的“接力跑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:51 - [北京银行去年净利润同比降逾23%，一季度净利润同比增逾5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:00 - [越来越多中国茶饮等品牌开启新一轮出海热潮 外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:03 - [葛优调侃“与三元合作已过二十年”：我一直在想怎么不找我了，是不是等我长头发呢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:50 - [《公开募捐平台服务管理办法》解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:50 - [强脑科技为什么做假肢？韩璧丞：因为遇到一位残障大学生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:05 - [邦达亚洲:多重利空因素打压 美元指数小幅收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:43 - [新教育完美教室班本课程研发专题研讨会在沪举办 聚焦卓越课程与幸福教育](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:51 - [“剪映”“猫箱”“即梦AI”因合成内容标识违法问题被依法查处](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:43 - [迎来24项“国家红利”，综保区加速扩能提质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:49 - [中国再保险：中再寿险一季度净亏损2.51亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:04 - [商务部：如中国企业因欧盟修订《网络安全法》遭歧视性待遇将采取措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:52 - [特朗普称正考虑由美国政府收购Spirit Airlines](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:04 - [路威酩轩CEO警告：中东冲突若不解决，将引发“全球性灾难”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:06 - [古井贡酒：截至4月20日股东人数为59907户](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:53 - [库克时代落幕，苹果新帅面临AI关键战役](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:52 - [美中嘉和与妙佑医疗国际正式签署新合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:44 - [飙涨11倍！紫金矿业悄然炼成“锂”想版图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:10 - [连续15日回购、四年累计耗资超千亿港元，友邦保险为何如此坚定？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:46 - [英国行业组织称银行业已做好准备应对Mythos风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:45 - [特斯拉靠边站：日本车企凭借混合动力车巩固在印度汽车市场的主导地位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:50 - [SK海力士业绩超预期 营业利润和销售额呈数倍增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 12:08 - [亿腾嘉和早盘涨超3% 于2026年AACR年会公布四特异性抗体EDP001临床前研究数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:53 - [青海省现有鸟类22目75科541种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:05 - [南京银行：2025年净利润为218.07亿元，同比增长8.08%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:49 - [（寻味中华｜书香）全民阅读续文脉 解缙故事咏流传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:38 - [收评：国内期货主力合约涨多跌少 多晶硅跌近7%](http://www.blog.minike.top/Article/details/3438924.shtml)
-- 2026-06-29 12:03 - [王兆星同志逝世](http://www.share.kurohicncr.top/Article/details/6715914.shtml)
-- 2026-06-29 11:56 - [江西省人大常委会原副主任洪礼和一审被判20年](http://www.share.kurohicncr.top/Article/details/044705435569.shtml)
-- 2026-06-29 11:46 - [高盛：紫金矿业维持“买入”评级 目标价微降至51港元](http://www.share.kurohicncr.top/Article/details/7883878827.shtml)
-- 2026-06-29 11:41 - [2026年度大理海关部门预算公开](http://www.share.kurohicncr.top/Article/details/514843134585.shtml)
-- 2026-06-29 12:05 - [辽宁岫岩：翠绿山林间 夺目映山红](http://www.share.minike.top/Article/details/026470511565.shtml)
-- 2026-06-29 12:01 - [春节档爆冷了？一季度全国电影票房下降51%！万达电影更名后首场大考：扣非净利大降92.5%](http://www.blog.kurohicncr.top/Article/details/16037657.shtml)
-- 2026-06-29 11:58 - [天天学习｜书友习近平](http://www.share.kurohicncr.top/Article/details/7728780984.shtml)
-- 2026-06-29 11:48 - [“国产GPU第一股”摩尔线程，开盘666！](http://www.blog.kurohicncr.top/Article/details/54851140.shtml)
-- 2026-06-29 11:43 - [2026年3月广东省进口重点商品总值表（人民币值）](http://www.share.kurohicncr.top/Article/details/902395492235.shtml)
-- 2026-06-29 11:56 - [辽宁省贸促会经贸代表团在科特迪瓦开展经贸交流活动](http://www.blog.minike.top/Article/details/077437.shtml)
-- 2026-06-29 11:48 - [拉卡拉：“炒股”大赚，主业承压](http://www.share.kurohicncr.top/Article/details/170530.shtml)
-- 2026-06-29 11:44 - [航旅纵横：五一叠加春假长线出游升温 上海居国内热门目的地首位](http://www.blog.kurohicncr.top/Article/details/085046335.shtml)
-- 2026-06-29 11:45 - [时政微周刊丨总书记的一周（4月20日—4月26日）](http://www.blog.kurohicncr.top/Article/details/199217.shtml)
-- 2026-06-29 11:45 - [从课堂到云端 自媒体重构海外华文教育生态](http://www.share.kurohicncr.top/Article/details/75111.shtml)
+- 2026-06-29 12:08 - [新西兰财长称经济复苏延缓 但并未脱离轨道](http://www.share.kurohicncr.top/Article/details/64538709905.shtml)
+- 2026-06-29 11:46 - [舰艇留言板上贴满“望台湾早日回归” 吕礼诗：这个愿望定要成真](http://www.blog.minike.top/Article/details/823403387985.shtml)
+- 2026-06-29 11:51 - [1-3月中国销售彩票1439.59亿元](http://www.share.kurohicncr.top/Article/details/03346425.shtml)
+- 2026-06-29 12:00 - [杭州银行：2025年末不良贷款率0.76%，与上年末持平](http://www.share.kurohicncr.top/Article/details/111622.shtml)
+- 2026-06-29 12:11 - [世界地球日山西自然博物馆开启系列展览探寻地球血脉](http://www.blog.minike.top/Article/details/86730434.shtml)
+- 2026-06-29 11:46 - [京雄快线预计2026年下半年开通运营](http://www.share.kurohicncr.top/Article/details/320883.shtml)
+- 2026-06-29 11:54 - [北京多措并举推进扬尘治理 提高城市清洁度](http://www.share.minike.top/Article/details/952810712.shtml)
+- 2026-06-29 11:44 - [公用手机卡频繁被盗 窃贼为什么不偷手机只偷卡](http://www.share.minike.top/Article/details/691449.shtml)
+- 2026-06-29 11:44 - [2025年贵州法院受理知识产权案件8608件审结7699件](http://www.blog.kurohicncr.top/Article/details/3461696.shtml)
+- 2026-06-29 12:00 - [抖音整治AI不当内容，重点处置利用AI技术换脸、盗声](http://www.blog.kurohicncr.top/Article/details/651365436213.shtml)
+- 2026-06-29 11:42 - [第六届亚洲沙滩运动会在海南省三亚市开幕](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [美国贸易代表格里尔周五将与欧盟贸易专员讨论数字税问题](http://www.blog.minike.top/Article/details/841318106.shtml)
+- 2026-06-29 11:42 - [2026一季度新发ETF：83只募资335亿，平均发行规模同比降5.09亿，电力、港股科技等主题成布局重点](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [涨价拉动快递公司业绩，燃油成本仍成隐忧](http://www.share.minike.top/Article/details/904370.shtml)
+- 2026-06-29 11:49 - [中海油服：一季度归母净利润8.56亿元，同比下滑3.60%](http://www.blog.minike.top/Article/details/696026784987.shtml)

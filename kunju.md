@@ -1,56 +1,57 @@
-# 春到桑干河
+# 国际刑事法院声称要对杜特尔特进行审判
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-塞上的春，来得晚，但总算迈着自己独有的步伐姗姗而来。 日前，我们从山西省忻州市宁武县，沿着桑干河一路溯行，在一川春水里，阅览感知晋北大地最细微的春潮与萌动。 桑干河，发源于宁武管涔山，流经山西朔州、大同，进入河北，最终汇入永定河，奔向渤海，全长400多公里。 千百年来，它为这片神奇的土地育养着生生不息的烟火人间，见证了一个又一个民族交往交流交融的历史风云，但在祖国大好河山中，曾
+新华社海牙4月23日电(记者邵海军)位于荷兰海牙的国际刑事法院23日声称，将以3项所谓“反人类罪”罪名对菲律宾前总统杜特尔特进行审判。 该法院在一份声明中称，预审一庭研究了控辩双方在今年2月23日至27日听证会上提交的材料等，认定杜特尔特3项所谓“反人类罪”罪名成立，并将案件移交审判庭。后续审判时间和程序将由审判庭决定。 此前，杜特尔特之女、菲律宾副总统莎拉·杜特尔特曾就国际刑
 
 ## 正文
 
-塞上的春，来得晚，但总算迈着自己独有的步伐姗姗而来。
+新华社海牙4月23日电(记者邵海军)位于荷兰海牙的国际刑事法院23日声称，将以3项所谓“反人类罪”罪名对菲律宾前总统杜特尔特进行审判。
 
-日前，我们从山西省忻州市宁武县，沿着桑干河一路溯行，在一川春水里，阅览感知晋北大地最细微的春潮与萌动。
+该法院在一份声明中称，预审一庭研究了控辩双方在今年2月23日至27日听证会上提交的材料等，认定杜特尔特3项所谓“反人类罪”罪名成立，并将案件移交审判庭。
 
-桑干河，发源于宁武管涔山，流经山西朔州、大同，进入河北，最终汇入永定河，奔向渤海，全长400多公里。
+后续审判时间和程序将由审判庭决定。
 
-千百年来，它为这片神奇的土地育养着生生不息的烟火人间，见证了一个又一个民族交往交流交融的历史风云，但在祖国大好河山中，曾一直默默无闻。
+此前，杜特尔特之女、菲律宾副总统莎拉·杜特尔特曾就国际刑事法院审理杜特尔特案表示，“必须对法律武器化和试图绕过菲律宾法院的外国势力违宪干预保持警惕”。
 
-是小说《太阳照在桑干河上》，让人们对这条北方的河耳熟能详，作者丁玲尽情地展现了20世纪40年代中国农村在土地改革浪潮中的波澜壮阔。
+国际刑事法院22日判决，该院对杜特尔特案具有管辖权，拒绝辩方律师关于立即释放杜特尔特的申请。
 
-她笔下的桑干河代表着希望、变革与新生。
+菲参议员、现任总统费迪南德·马科斯的姐姐伊梅·马科斯随后表示，这一裁决无视菲律宾已退出《国际刑事法院罗马规约》的事实，违背了菲律宾本国司法机构应享有优先处置权的基本原则。
 
-今天的桑干河，又何尝不是呢？
+杜特尔特在担任菲律宾达沃市市长和菲总统期间发起反毒行动。
 
-一脉涓流的文明解码 春日的管涔山，残寒未褪，山间的冰雪已悄悄融作细流，汇成恢河，不过尺许宽的一脉涓流，在青石与草芽间静静穿行，倔强地流向北方……这便是桑干河之源。
+2018年2月，国际刑事法院通知菲律宾政府，将对杜特尔特领导的打击毒品犯罪行动是否有违反人权的情况展开“初步调查”。
 
 ## 相关推荐
 
-- 2026-06-29 11:42 - [中国黄河流域137处国家级自然保护区优良率达99.27％](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:00 - [豆粕：周期无声，趋势有痕 —— 豆粕多空拉锯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:55 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:55 - [伪满皇宫博物院举办吉林省首个海事文化科普展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:54 - [科创综指，历史新高！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:52 - [2026北京国际花展开幕 荷兰景观设计师：中国花卉产业发展速度非常快](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:48 - [CIPS资金托管行扩容至14家 中信银行、中银香港等四家入列](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:05 - [真香！这枚刚出炉“果仁列巴”能刷300余城市公交地铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:04 - [韩国总统府：谷歌将在韩国新建人工智能园区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:46 - [2026年芒市海关综合技术服务中心预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:07 - [一季度市场监管部门查处商标侵权、假冒专利案件0.7万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:57 - [八达岭夜长城将于4月底在京亮相 升级沉浸式互动体验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:06 - [军号再次吹响，这次是接他们回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:44 - [煤炭股午后逆势上扬 兖煤澳大利亚及兖矿能源均涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:03 - [文件显示SpaceX获200亿美元过桥贷款，对其债务进行再融资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:00 - [浙江行刑联动破题商业秘密保护“三难”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:59 - [社保基金重仓+机构高关注股来了（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:47 - [广州黄埔：“AI+高端智造”抢占生物医药产业新高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:43 - [中新健康｜日常做好这些事，可有效降低肿瘤发生风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:54 - [英特尔股价盘后飙升 强劲业绩展望显示人工智能支出开始奏效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:57 - [目标落空、渠道收缩、大额分红，迎驾贡酒如何挽救颓势？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:56 - [韩国上市公司总市值首次突破6000万亿韩元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:51 - [兆易创新将于5月29日派发末期股息每股0.8555198港元](http://www.share.minike.top/Article/details/59440886.shtml)
-- 2026-06-29 11:39 - [交通银行：400亿元二级资本债券（债券通）发行完毕](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [华泰期货：美伊分歧难以弥合，原油市场维持较高的波动率](http://www.share.minike.top/Article/details/454600108.shtml)
-- 2026-06-29 12:02 - [中肯政商界人士认为零关税举措将为两国合作带来新机遇](http://www.share.minike.top/Article/details/190956.shtml)
-- 2026-06-29 11:53 - [2026广东时装周（春季）以时尚之力赋能产业升级](http://www.blog.kurohicncr.top/Article/details/5504664.shtml)
-- 2026-06-29 12:03 - [如何防控蚊媒传染病？专家：清积水、灭成蚊、防叮咬](http://www.share.minike.top/Article/details/449496.shtml)
-- 2026-06-29 11:48 - [中国心连心化肥将于7月28日派发末期股息每股0.32元](http://www.blog.kurohicncr.top/Article/details/7981231.shtml)
-- 2026-06-29 11:43 - [澳大利亚拟对科技巨头征收约2%税费 除非达成本地新闻付费协议](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [美国政府：白宫晚宴枪手意图刺杀特朗普](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [秦农银行国有持股占比首超50%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [“十五五”中国将发射风云四号D星 为共建“一带一路”国家提供服务](http://www.blog.kurohicncr.top/Article/details/68524900.shtml)
-- 2026-06-29 12:01 - [华宝基金红利风向标：高股息“倒车接人”？关注低波策略配置价值](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [2026年“汉语桥”比利时赛区决赛举行](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:00 - [张雪发视频回应力挺余承东，称“拒绝了半个亿的商务合作”](http://www.share.kurohicncr.top/Article/details/33504514754.shtml)
+- 2026-06-29 11:46 - [一间中国礼物商店，如何让在地非遗老技艺“活”在当下？](http://www.blog.kurohicncr.top/Article/details/56921083585.shtml)
+- 2026-06-29 11:45 - [美以失算！伊朗强硬派全面掌权，温和派靠边站，美伊谈判又熄火](http://www.share.minike.top/Article/details/83589506.shtml)
+- 2026-06-29 11:51 - [“不只是司机的苦日子”——美高油价压力从运输业向消费端蔓延](http://www.blog.kurohicncr.top/Article/details/738399895986.shtml)
+- 2026-06-29 11:57 - [专访IMF世界经济研究部主管：全球增长或受2%“衰退线”挑战，美联储需防通胀预期脱锚](http://www.share.minike.top/Article/details/58606817.shtml)
+- 2026-06-29 12:08 - [伊朗最高领袖、总统、议长、外长同日喊话](http://www.share.kurohicncr.top/Article/details/73089893.shtml)
+- 2026-06-29 11:56 - [【香港故事】方寸之间 书中蝴蝶——世界读书日走近藏书票](http://www.share.minike.top/Article/details/960490.shtml)
+- 2026-06-29 11:55 - [三亚亚沙会沙排比赛首日：传统强队集体“速胜”](http://www.share.kurohicncr.top/Article/details/2433574.shtml)
+- 2026-06-29 11:46 - [放量大跌！A股多空博弈升级，投资者该怎么办？](http://www.blog.kurohicncr.top/Article/details/394932879.shtml)
+- 2026-06-29 12:06 - [建发物业获FIDELITY FUNDS增持23.9万股 每股作价约2.89港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:06 - [华裔留学生昆明共读书：在文字中“寻根” 在交流中传承](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [新疆：升级版“新东方快车”启程 海内外游客共赴丝路之旅](http://www.share.minike.top/Article/details/032992923.shtml)
+- 2026-06-29 12:11 - [南宁加快打造面向东盟的“新茶饮之都”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [特斯拉第三代人形机器人预计年中发布，三季度启动正式投产](http://www.blog.kurohicncr.top/Article/details/803581255.shtml)
+- 2026-06-29 12:11 - [小城游火了！这些“小而美”的城市性价比高、体验感强](http://www.share.kurohicncr.top/Article/details/746710795.shtml)
+- 2026-06-29 11:52 - [抗美援朝老战士后代带糖迎接志愿军英烈回家：我想让他们尝一下 我们今天的甜滋滋](http://www.share.minike.top/Article/details/787910622.shtml)

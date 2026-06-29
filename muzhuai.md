@@ -1,58 +1,58 @@
-# 丰田3月全球销量同比下降7.3%，中国销量下降8%
+# 牛弹琴：伊朗反击了
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-丰田汽车周一表示，由于中东地区销量大幅下滑以及旗下热门RAV4运动型多功能车的车型换代，3月份全球汽车销量连续第二个月下降。 丰田3月份全球销量同比下降7.3%，至897871辆，其中海外销量下降7.2%，日本市场销量下降7.8%。丰田的销量数据包含其豪华品牌雷克萨斯。 按地区划分，3月份中东地区的销量暴跌近三分之一，美国和中国市场的销量分别下降8.5%和8.0%。 中东市场对
+（一） 美国封锁了霍尔木兹海峡，美国还袭击伊朗货船，伊朗怎么办？ 伊朗反击了。 两艘货轮成了倒霉蛋。 按照伊朗革命卫队的说法，4月22日，伊朗攻击了多艘货船，其中一艘与以色列有关联，另一艘因未持有必要许可，“涉嫌未经授权操作，多次违反规定，并操纵导航系统”，最终被伊朗革命卫队扣押，并引导到伊朗海岸。 什么意思？ 这些船想蒙混过关，强闯霍尔木兹海峡，遭到革命卫队海军的拦截。 还有
 
 ## 正文
 
-丰田汽车周一表示，由于中东地区销量大幅下滑以及旗下热门RAV4运动型多功能车的车型换代，3月份全球汽车销量连续第二个月下降。
+（一） 美国封锁了霍尔木兹海峡，美国还袭击伊朗货船，伊朗怎么办？
 
-丰田3月份全球销量同比下降7.3%，至897871辆，其中海外销量下降7.2%，日本市场销量下降7.8%。
+伊朗反击了。
 
-丰田的销量数据包含其豪华品牌雷克萨斯。
+两艘货轮成了倒霉蛋。
 
-按地区划分，3月份中东地区的销量暴跌近三分之一，美国和中国市场的销量分别下降8.5%和8.0%。
+按照伊朗革命卫队的说法，4月22日，伊朗攻击了多艘货船，其中一艘与以色列有关联，另一艘因未持有必要许可，“涉嫌未经授权操作，多次违反规定，并操纵导航系统”，最终被伊朗革命卫队扣押，并引导到伊朗海岸。
 
-中东市场对丰田而言规模相对较小，3月份在该地区销量接近3.4万辆。
+什么意思？
 
-丰田并未解释该地区销量大幅下滑的原因。
+这些船想蒙混过关，强闯霍尔木兹海峡，遭到革命卫队海军的拦截。
 
-其他汽车制造商表示，由于伊朗冲突扰乱了霍尔木兹海峡的运输，以及更广泛的经济活动，中东地区的汽车需求有所减弱。
+还有一艘希腊货船，也已被革命卫队锁定，“目前已在伊朗海岸附近失去动力”。
 
-丰田表示，总体而言，潜在需求保持稳定，但由于将生产线从老款RAV4转移到新款RAV4（RAV4是丰田全球最畅销的车型之一），销量受到了影响。
+革命卫队海军并且重申，破坏霍尔木兹海峡的秩序与安全，事关“我们的红线”。
 
 ## 相关推荐
 
-- 2026-06-29 11:38 - [逐绿而行暖万家——推动能源消费绿色化低碳化的丰台探索](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:52 - [稳面积 提单产 夯实粮食稳产丰产基础](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:58 - [直播海报：国务院政策例行吹风会：介绍《关于推进服务业扩能提质的意见》有关情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:48 - [非法募资314亿余元 刘必安等十六人非法集资案一审宣判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:53 - [中共中央政治局召开会议 分析研究当前经济形势和经济工作 中共中央总书记习近平主持会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:54 - [华裔Z视界｜在行走间读懂中国文化 华裔青年爱上中式养生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:37 - [日元回吐部分涨幅 此前日本央行行长未发出明确的加息信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:59 - [今年“五一”假期小客车上高速继续免收通行费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:59 - [《爱情没有神话》开播 唐嫣出演亦舒笔下“独身女人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:59 - [姚高员辞去杭州市市长职务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:54 - [法学大先生·张晋藩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:43 - [美国加州亿万富豪税已集齐请愿签名，获准纳入公投议程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:59 - [快讯：美股股指期货、现货金银跳水，国际原油快速拉升，WTI原油涨幅扩大至4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:53 - [中国首次记录高魔芋开花 西双版纳植物园上演“巨花”奇观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:59 - [Swift数据显示 美元3月份在国际交易中占比升至51.1%的新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:44 - [海尔智家获Pzena Investment Management, LLC增持180.92万股 每股作价约20.99港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:08 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:11 - [华勤技术首挂上市 早盘高开13.13%公司为全栈智能产品ODM平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:02 - [ABB上调业绩指引、股价一度涨超5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:43 - [突发！香港证监会与普华永道就恒大财务造假达成赔偿协议，10亿港元赔付受损股东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:09 - [大美边疆看我家丨云南漾濞：来“二月十九街”买扫帚啦！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:56 - [A股收评：超4000只个股飘绿，三大指数集体收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:00 - [隔夜逼近1.2%、资金利率持续倒挂，超宽松还能持续多久？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:52 - [华贵人寿董事长刘刚将任新职，第一大股东茅台集团持股已超49%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [上海傅利叶董事长顾捷荣获全国五一劳动奖章](http://www.share.kurohicncr.top/Article/details/95009852647.shtml)
-- 2026-06-29 12:02 - [一季度石家庄海关签发RCEP原产地证书2532份](http://www.blog.kurohicncr.top/Article/details/407592689.shtml)
-- 2026-06-29 11:43 - [2粒药错写成21粒，失误何以“一路绿灯”](http://www.share.kurohicncr.top/Article/details/46114092188.shtml)
-- 2026-06-29 11:36 - [氧化铝：惊弓之鸟还是风雨欲来？](http://www.blog.minike.top/Article/details/8814199.shtml)
-- 2026-06-29 11:51 - [数智赋能民间文艺传承 2026“世界艺术和科技对话”上海活动举办](http://www.blog.kurohicncr.top/Article/details/397801833353.shtml)
-- 2026-06-29 11:55 - [喀什至吉尔吉斯斯坦奥什国际客运航线成功首航](http://www.share.kurohicncr.top/Article/details/059943012611.shtml)
-- 2026-06-29 12:04 - [欧洲股市小幅攀升，传伊朗提出和平提议](http://www.share.minike.top/Article/details/51179.shtml)
-- 2026-06-29 12:03 - [央行上海总部：一季度上海社会融资规模增加4743亿元 同比多增138亿元](http://www.share.kurohicncr.top/Article/details/84080480054.shtml)
-- 2026-06-29 11:59 - [白宫晚宴枪击最新调查进展：被捕枪手为一名家教，曾留下字条](http://www.share.minike.top/Article/details/90767704.shtml)
-- 2026-06-29 11:48 - [OEXN:黄金震荡观望央行信号](http://www.share.minike.top/Article/details/9584940262.shtml)
-- 2026-06-29 11:51 - [“五一”假日期间海南省天气总体较好 适宜出游](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [绿城的"体外"生意，撑不住了](http://www.share.minike.top/Article/details/67572524.shtml)
-- 2026-06-29 11:38 - [油价冲击波袭来，全球消费品巨头面临定价压力测试](http://www.share.kurohicncr.top/Article/details/282171.shtml)
-- 2026-06-29 12:05 - [全国首批米粉“批次检验（检疫）”改革试点落地江西抚州](http://www.blog.kurohicncr.top/Article/details/84422.shtml)
-- 2026-06-29 11:52 - [五一假期注意出行安全 南方多地有大范围降雨](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [市值单日蒸发超百亿，千亿液冷龙头一季报“踩急刹”](http://www.share.minike.top/Article/details/917456.shtml)
+- 2026-06-29 12:02 - [原万家基金董事长方一天，今日被提名华安基金总经理](http://www.share.minike.top/Article/details/580772.shtml)
+- 2026-06-29 12:08 - [成都银行：2025年末不良贷款率0.68%，较上年末上升0.02个百分点](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [美国航空因燃油价格上涨下调展望](http://www.blog.kurohicncr.top/Article/details/14775.shtml)
+- 2026-06-29 11:50 - [以军称黎巴嫩真主党“违反停火协议”](http://www.share.kurohicncr.top/Article/details/68851285381.shtml)
+- 2026-06-29 11:55 - [欧元区消费者信心下滑 凸显消费风险](http://www.share.kurohicncr.top/Article/details/0011138.shtml)
+- 2026-06-29 11:44 - [科尔沁沙地核心区：人工铺设草方格固沙](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:03 - [中方回应美方退税举措：是在纠正错误道路上的有益一步](http://www.blog.minike.top/Article/details/8048021.shtml)
+- 2026-06-29 12:06 - [传习录丨读书，总书记倡导的生活方式](http://www.share.kurohicncr.top/Article/details/616856478766.shtml)
+- 2026-06-29 11:58 - [在第57个世界地球日，“最美自然守护者”讲述绿色发展故事](http://www.blog.minike.top/Article/details/226932.shtml)
+- 2026-06-29 11:48 - [胃不适、腰背酸、血糖高？警惕“癌王”发出的预警信号](http://www.share.kurohicncr.top/Article/details/5435960667.shtml)
+- 2026-06-29 12:03 - [“6.0%”的浙江看点](http://www.share.minike.top/Article/details/65593.shtml)
+- 2026-06-29 12:06 - [特朗普称美国“已完全控制了霍尔木兹海峡”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [中际旭创市值破万亿 老实业家如何逆袭硅谷](http://www.blog.minike.top/Article/details/87515.shtml)
+- 2026-06-29 11:49 - [俄总统新闻秘书：普京愿随时与泽连斯基会面但须“富有成效”](http://www.blog.kurohicncr.top/Article/details/66208056433.shtml)

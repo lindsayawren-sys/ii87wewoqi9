@@ -1,56 +1,57 @@
-# 美国加州亿万富豪税已集齐请愿签名，获准纳入公投议程
+# 华贵人寿董事长刘刚将任新职，第一大股东茅台集团持股已超49%
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-据活动知情人士透露，美国加州这项拟推行的富豪税提案支持者表示，已经集齐足够签名，能把这项法案纳入今年11月的全民投票，一场激烈的法案拉锯战大概率就此打响。 知情人士称，目前已有超过150万人联名请愿，希望这项一次性5%富人资产税，能在11月登上加州全州投票表决名单。 按规定，各县选举工作人员需要先统计、审核所有签名，再上报加州州务卿，提案才能正式进入投票流程。活动方透露，就算剔
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 华贵人寿董事长有新职。 4月21日，贵州省人民政府发布通知称，省人民政府同意：推荐刘刚为贵州省黔晟国有资产经营有限责任公司（下称黔晟国资）董事、副董事长、总经理人选，建议不再担任中国贵州茅台酒厂（集团）有限责任公司（下称茅台集团）总会计师职务。 出生于1970年4月的刘刚，目前为茅台集团党委委员、总会计师、董事会秘书，同
 
 ## 正文
 
-据活动知情人士透露，美国加州这项拟推行的富豪税提案支持者表示，已经集齐足够签名，能把这项法案纳入今年11月的全民投票，一场激烈的法案拉锯战大概率就此打响。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 华贵人寿董事长有新职。
 
-知情人士称，目前已有超过150万人联名请愿，希望这项一次性5%富人资产税，能在11月登上加州全州投票表决名单。
+4月21日，贵州省人民政府发布通知称，省人民政府同意：推荐刘刚为贵州省黔晟国有资产经营有限责任公司（下称黔晟国资）董事、副董事长、总经理人选，建议不再担任中国贵州茅台酒厂（集团）有限责任公司（下称茅台集团）总会计师职务。
 
-按规定，各县选举工作人员需要先统计、审核所有签名，再上报加州州务卿，提案才能正式进入投票流程。
+出生于1970年4月的刘刚，目前为茅台集团党委委员、总会计师、董事会秘书，同时兼任华贵人寿保险股份有限公司（下称华贵人寿）党委书记、董事长。
 
-活动方透露，就算剔除字迹不清、无效的签名，有效票数也会远超87.5万的法定达标门槛。
+此前，他曾历任中国建设银行黔南州分行副行长，建行贵州省分行国际业务部副总经理，建行贵阳河滨支行党总支书记、行长，建行安顺市分行党委书记、行长，贵州银行计划财务部总经理、财务管理部总经理、资金计划部总经理、行长助理，贵州茅台酒股份有限公司（贵州茅台，600519.SH）副总经理、财务总监、董事会秘书等职务。
 
-这项征税提案，由西部服务业员工联合医疗工会发起。
+刘刚此番即将任职的黔晟国资早在2016年便被贵州省国资委纳入国有资本运营试点企业并报国务院国资委备案，2019年被贵州省国资委核定主业为“国有资本运营管理”。
 
-该工会下辖12万多名医护人员，推出法案的目的，是填补特朗普去年签署的财税法案里，被砍掉的医疗财政预算缺口。
+值得一提的是，黔晟国资还是华贵人寿的第二大股东，持股比例为14.66%。
 
-“我们联盟提交足量签名的这一刻，就是小人物战胜资本巨头的第一回合胜利。
+2025年12月，贵州金融监管局批复同意华贵人寿增加注册资本，注册资本由20亿元增至26.15亿元。
 
-”富豪税推动联盟发言人周日发表声明说道。
+此次增资，仅华贵人寿第一大股东茅台集团参与。
 
 ## 相关推荐
 
-- 2026-06-29 11:45 - [2026年3月广东省外贸进出口总值表（人民币值）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:48 - [跨境电商架桥梁 让互利之花在中越边境绽放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:55 - [韩国上市公司总市值首次突破6000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:58 - [兆易创新将于5月29日派发末期股息每股0.8555198港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:39 - [交通银行：400亿元二级资本债券（债券通）发行完毕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:44 - [华泰期货：美伊分歧难以弥合，原油市场维持较高的波动率](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:47 - [中肯政商界人士认为零关税举措将为两国合作带来新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:52 - [2026广东时装周（春季）以时尚之力赋能产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:59 - [如何防控蚊媒传染病？专家：清积水、灭成蚊、防叮咬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:37 - [中国心连心化肥将于7月28日派发末期股息每股0.32元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:57 - [志愿军老战士连续多年吹号迎接战友：我要告诉他们 我们赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:50 - [山东省泰安市委常委、副市长刘峰梅接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:03 - [一间中国礼物商店，如何让在地非遗老技艺“活”在当下？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:47 - [美以失算！伊朗强硬派全面掌权，温和派靠边站，美伊谈判又熄火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:47 - [“不只是司机的苦日子”——美高油价压力从运输业向消费端蔓延](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 12:05 - [专访IMF世界经济研究部主管：全球增长或受2%“衰退线”挑战，美联储需防通胀预期脱锚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:52 - [伊朗最高领袖、总统、议长、外长同日喊话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:45 - [【香港故事】方寸之间 书中蝴蝶——世界读书日走近藏书票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:56 - [三亚亚沙会沙排比赛首日：传统强队集体“速胜”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:51 - [放量大跌！A股多空博弈升级，投资者该怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:05 - [建发物业获FIDELITY FUNDS增持23.9万股 每股作价约2.89港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:39 - [有的亏超2亿元，有的净利翻2倍！2025年支付公司业绩分化严重](http://www.share.kurohicncr.top/Article/details/98783369.shtml)
-- 2026-06-29 11:57 - [外交部回应白宫记者晚宴枪击事件：中方一贯反对和谴责非法暴力行为](http://www.share.minike.top/Article/details/976389654932.shtml)
-- 2026-06-29 11:50 - [粤港澳大湾区自行车骑行嘉年华（惠州博罗站）举行](http://www.share.kurohicncr.top/Article/details/118959386.shtml)
-- 2026-06-29 11:40 - [高市称为长期战争做好准备，外交部：日本是不是要重蹈历史覆辙？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [南华早报出版人谭卫儿：应营造良好舆论环境，为各领域合作创造有利条件](http://www.blog.minike.top/Article/details/451654.shtml)
-- 2026-06-29 12:05 - [“机器人大牛股”中坚科技突遭证监会立案，近2万股民或可索赔](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:40 - [受气象不佳影响 “两马”航线将双向停航](http://www.share.kurohicncr.top/Article/details/8107142541.shtml)
-- 2026-06-29 11:51 - [探访武汉都市圈花展：近千种花卉盛放 12城共绘春韵](http://www.blog.minike.top/Article/details/436946.shtml)
-- 2026-06-29 11:39 - [壁仞科技午前涨超5% 壁砺™166系列产品完成DeepSeek-V4适配验证与优化](http://www.blog.minike.top/Article/details/2538654983.shtml)
-- 2026-06-29 11:43 - [北京平谷打造农业中关村人才综合改革试验区 多举措激励创新创业](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:48 - [【百万庄小课堂】真会被气出结节吗？专家解答女性怎么爱护乳腺](http://www.blog.minike.top/Article/details/7246894497.shtml)
-- 2026-06-29 11:51 - [壳牌164亿美元收购加拿大ARC Resources，押注蒙特尼页岩气扩张](http://www.blog.kurohicncr.top/Article/details/777133721961.shtml)
-- 2026-06-29 11:48 - [浙江安吉：跨区域公共法律服务协作站让民族同胞安心就业](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [“鸟中大熊猫”彩鹮首次现身云南云县](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [东珠生态业绩预告更正不及时，受损股民可索赔](http://www.share.minike.top/Article/details/11655.shtml)
+- 2026-06-29 11:54 - [美伊和平谈判陷入僵局，霍尔木兹海峡局势加剧](http://www.share.minike.top/Article/details/48244488.shtml)
+- 2026-06-29 12:04 - [午评：国内期货主力合约涨跌互现 低硫燃油涨超6%](http://www.share.minike.top/Article/details/441670.shtml)
+- 2026-06-29 12:11 - [百思买任命资深人士为CEO](http://www.share.minike.top/Article/details/9012843742.shtml)
+- 2026-06-29 11:58 - [达能销售额增长，美国市场重拾增长动力](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [中办、国办：支持发展绿色低碳、集约循环的算力设施](http://www.share.minike.top/Article/details/4296835729.shtml)
+- 2026-06-29 11:45 - [ASMPT盘中涨超7% 首季盈利及第二季展望均超预期](http://www.share.minike.top/Article/details/54686045647.shtml)
+- 2026-06-29 11:52 - [西安检察探索知识产权保护“立体解题”新路径](http://www.blog.kurohicncr.top/Article/details/5205051283.shtml)
+- 2026-06-29 11:44 - [事关节能降碳工作 中办、国办重磅文件对外发布](http://www.blog.minike.top/Article/details/56093688703.shtml)
+- 2026-06-29 12:04 - [福建宁德启动“一句话见民生”机制 专解民众身边“小而急”难题](http://www.share.minike.top/Article/details/099584634.shtml)
+- 2026-06-29 11:56 - [多地学子齐聚沈阳 共同迎接第十三批志愿军英烈归国](http://www.blog.kurohicncr.top/Article/details/19995562301.shtml)
+- 2026-06-29 11:47 - [贵州印江：半世纪人鸟相依 共绘生态宜居新家园](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:04 - [在民进党高压下 为何一直坚持说“我是中国人” 吕礼诗霸气回应](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [外交部：中方敦促美方停止助台巩固所谓“邦交”](http://www.share.kurohicncr.top/Article/details/67661712.shtml)
+- 2026-06-29 11:42 - [英伟达参投AI公司Vast Data，估值达300亿美元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:11 - [富瑞：紫金矿业给予“买入”评级 目标价49.10港元](http://www.share.minike.top/Article/details/302539.shtml)

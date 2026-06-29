@@ -1,57 +1,53 @@
-# 深圳莲塘口岸单日出入境人次再攀新高
+# 常熟银行：2025年实现营业收入116.19亿元，同比增长6.51%
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-中新网深圳4月27日电 (记者 索有为)深圳莲塘边检站27日发布的统计数据显示，深圳莲塘口岸26日查验出入境人员达12.3万人次，再次刷新口岸开通以来单日客流新纪录。这是继今年3月14日以12.2万人次首次突破12万大关后，时隔43天又一次刷新历史纪录。 针对客流持续增长态势，莲塘边检站提前加强监测研判，优化通关组织。在入境方向，该站启用新型临时查验通道，于现有空间条件下增设1
+4月23日金融一线消息，常熟银行发布2025年年度报告。报告期内，集团实现营业收入116.19亿元，同比增长6.51%；实现归属于上市公司股东的净利 润42.19亿元，同比增长10.65%；总资产收益率（ROA）1.16%，加权平均净资产收益率（ROE）14.05%；成本收入 比35.66%，同比下降0.96个百分点。净息差2.53%，保持行业较好水平。 报告期末，集团贷款不良
 
 ## 正文
 
-中新网深圳4月27日电 (记者 索有为)深圳莲塘边检站27日发布的统计数据显示，深圳莲塘口岸26日查验出入境人员达12.3万人次，再次刷新口岸开通以来单日客流新纪录。
+4月23日金融一线消息，常熟银行发布2025年年度报告。
 
-这是继今年3月14日以12.2万人次首次突破12万大关后，时隔43天又一次刷新历史纪录。
+报告期内，集团实现营业收入116.19亿元，同比增长6.51%；实现归属于上市公司股东的净利 润42.19亿元，同比增长10.65%；总资产收益率（ROA）1.16%，加权平均净资产收益率（ROE）14.05%；成本收入 比35.66%，同比下降0.96个百分点。
 
-针对客流持续增长态势，莲塘边检站提前加强监测研判，优化通关组织。
+净息差2.53%，保持行业较好水平。
 
-在入境方向，该站启用新型临时查验通道，于现有空间条件下增设10个人工查验通道，单向查验效率提升近30%，实现高峰时段通道快速扩容；在出境方向，投入使用4台新型移动人工查验台，提升查验灵活性和效率。
+报告期末，集团贷款不良率0.76%，其中企业贷款不良率0.55%；集团拨备覆盖率451.25%。
 
-同时，通过动态增派警力、加强现场引导等措施，有效提升整体通行效率。
-
-此次客流高峰中，智能通关方式有效缩短了符合条件旅客的通关时间。
-
-当日使用快捷通道的旅客中，超五成旅客使用了智能通关，符合条件的旅客凭指纹和面相识别即可快速通关，有效减少了排队等候时间。
-
-在保障通关效率的同时，边检部门对不同类型旅客实施精准分流，对特殊团队及外国入境旅客强化引导，确保其有序前往相应查验区域；对老年人、儿童等需要特殊照顾的群体及时提供必要协助，进一步提升通关体验。
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-29 12:04 - [多部门协同发力 上海出台14项举措助力民营经济高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:58 - [德国据悉尝试为德国商业银行寻找白衣骑士 以应对裕信银行的收购](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:37 - [上海家化一季度扣非净利润同比增长38.2%，四个聚焦战略加速兑现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:42 - [台湾导演林家亿：AI短片“雪山救狐狸”在岛内爆火，源于两岸共同记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:39 - [GTC泽汇:尼日利亚炼化驱动转型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:05 - [我国拟修改水法提升水安全保障能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:36 - [APEC中国年，中美互动预期几何？中方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 12:03 - [“探店”网红白冰偷税被查 追缴并罚款共计超1891万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:50 - [大美边疆看我家丨内蒙古锡林浩特：百鸟翔集绘春图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:44 - [陈旭：日方应恪守中日四个政治文件 勿因错误言论干扰APEC合作环境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:46 - [湖北：“五一”假期文旅融合主题产品焕新登场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:47 - [育碧官宣：《刺客信条：黑旗》重制版7月9日发售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:44 - [受权发布｜中共中央办公厅 国务院办公厅印发《碳达峰碳中和综合评价考核办法》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:52 - [海外公司诉蔚来换电专利侵权索赔2.5亿美元 蔚来回应技术自主研发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:54 - [摩根大通上调日经指数年底目标至70000点，因人工智能热潮及日元走软](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:02 - [邦达亚洲:经济数据表现疲软 欧元小幅收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:57 - [杭州一季度GDP6109亿元 同比增长5.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:08 - [人民领袖｜黄土地上的生态守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:06 - [海港人寿首度调将：乔宁到龄辞任，“精算背景”齐美祝拟任总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:46 - [中办 国办发布关于更高水平更高质量做好节能降碳工作的意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:49 - [万里同心 共护山河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 12:04 - [中播数据公布于4月23日上午起复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:05 - [理财公司渐成网下“打新”新势力，在深交所打新报价量激增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:11 - [新西兰财长称经济复苏延缓 但并未脱离轨道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:05 - [“五一”假期预计全国日均租车量将超70万辆](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:49 - [2026粤超首轮东莞主场获胜 科学家+企业家携手开球](http://www.share.minike.top/Article/details/905816.shtml)
-- 2026-06-29 12:05 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:51 - [西藏社科院举办专题研讨：以法治力量夯实民族团结进步根基](http://www.blog.minike.top/Article/details/110121948743.shtml)
-- 2026-06-29 12:01 - [伊朗战事推高油价，英国石油利润翻倍、大幅超出预期](http://www.share.minike.top/Article/details/1293860.shtml)
-- 2026-06-29 11:44 - [长江“微笑天使”又添丁，见证江苏生态之变](http://www.share.kurohicncr.top/Article/details/403071940037.shtml)
-- 2026-06-29 12:03 - [春到桑干河](http://www.share.minike.top/Article/details/0412196562.shtml)
-- 2026-06-29 12:01 - [一季度浙江算力中心用电规模和增速创新高](http://www.blog.minike.top/Article/details/73261403.shtml)
-- 2026-06-29 11:51 - [墨西哥比索走稳，股市受美伊僵局影响小幅回落](http://www.blog.kurohicncr.top/Article/details/630552422.shtml)
-- 2026-06-29 11:49 - [甘肃银行空前分红17.78亿为归母净利三倍 营收两连降零售贷款不良率4.16%压力增大](http://www.blog.minike.top/Article/details/932181968.shtml)
-- 2026-06-29 12:02 - [互联网广告要跳出“流量至上”误区](http://www.blog.kurohicncr.top/Article/details/193848715.shtml)
-- 2026-06-29 11:47 - [2026第二届飞剑“大使杯”国际板球邀请赛在京举办](http://www.blog.kurohicncr.top/Article/details/75467.shtml)
-- 2026-06-29 11:37 - [上海定制何以走红？外籍人士为何偏爱这份“专属质感”](http://www.blog.kurohicncr.top/Article/details/455720.shtml)
-- 2026-06-29 12:02 - [中国黄河流域137处国家级自然保护区优良率达99.27％](http://www.blog.minike.top/Article/details/87937.shtml)
-- 2026-06-29 11:37 - [豆粕：周期无声，趋势有痕 —— 豆粕多空拉锯](http://www.share.minike.top/Article/details/79836531.shtml)
+- 2026-06-29 11:58 - [涨幅超A股，四大行H股盘中集体创新高，谁在买？](http://www.share.minike.top/Article/details/020235854796.shtml)
+- 2026-06-29 12:00 - [4月23日美股成交额前20：美光创历史新高，此前获高盛唱好](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [液冷牛股英维克，火热后急冻，现场探访](http://www.blog.minike.top/Article/details/7611524.shtml)
+- 2026-06-29 11:58 - [减肥药意外带火豌豆扁豆，美国农民弃麦种豆](http://www.blog.minike.top/Article/details/40888779003.shtml)
+- 2026-06-29 12:02 - [80.3%受访者看好相关政策提升大众阅读兴趣](http://www.blog.kurohicncr.top/Article/details/490073.shtml)
+- 2026-06-29 11:58 - [南航否认在飞机上闹事女乘客为“南航空姐”](http://www.share.kurohicncr.top/Article/details/963674.shtml)
+- 2026-06-29 11:50 - [国际刑事法院声称要对杜特尔特进行审判](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [上交所举办东南亚专题国际路演活动](http://www.share.kurohicncr.top/Article/details/48161953.shtml)
+- 2026-06-29 11:53 - [ISS建议ConocoPhillips股东支持独立董事主席提案](http://www.share.kurohicncr.top/Article/details/07206.shtml)
+- 2026-06-29 11:48 - [浙商银行金华分行被罚169.3万元：违反金融统计相关规定等](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:10 - [国家国际发展合作署、中国气象局与世界气象组织签署关于推动落实全球发展倡议的谅解备忘录](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [上海银行：2025年净息差1.16%，同比微降0.01个百分点](http://www.share.kurohicncr.top/Article/details/4450347.shtml)
+- 2026-06-29 11:52 - [（乡村行·看振兴）茶旅融合叠加整村运营 大别山茶村焕新生](http://www.blog.minike.top/Article/details/7299403021.shtml)
+- 2026-06-29 11:42 - [一季度市场监管部门查处商标侵权、假冒专利案件0.7万件](http://www.blog.minike.top/Article/details/68766589.shtml)
+- 2026-06-29 11:44 - [八达岭夜长城将于4月底在京亮相 升级沉浸式互动体验](http://www.blog.kurohicncr.top/Article/details/306051874.shtml)

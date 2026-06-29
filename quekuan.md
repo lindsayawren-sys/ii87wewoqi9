@@ -1,59 +1,51 @@
-# 非法募资314亿余元 刘必安等十六人非法集资案一审宣判
+# 海尔智家获Pzena Investment Management, LLC增持180.92万股 每股作价约20.99港元
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-4月27日，长沙市中级人民法院依法公开宣判被告人刘必安等十六人集资诈骗、非法吸收公众存款罪一案，对被告人刘必安以集资诈骗罪判处无期徒刑，剥夺政治权利终身，并处没收个人全部财产；对其余十五名被告人分别以集资诈骗罪、非法吸收公众存款罪判处五年至十五年不等有期徒刑，并处罚金。 经审理查明，2014年8月起，被告人刘必安等人在不具备吸收公众存款资格的情况下，以中战华信集团有限公司及多家
+香港联交所最新资料显示，4月17日，Pzena Investment Management， LLC增持海尔智家（06690）180.92万股，每股作价20.9874港元，总金额约为3797.04万港元。增持后最新持股数目约为1.72亿股，最新持股比例为6.02%。责任编辑：卢昱君
 
 ## 正文
 
-4月27日，长沙市中级人民法院依法公开宣判被告人刘必安等十六人集资诈骗、非法吸收公众存款罪一案，对被告人刘必安以集资诈骗罪判处无期徒刑，剥夺政治权利终身，并处没收个人全部财产；对其余十五名被告人分别以集资诈骗罪、非法吸收公众存款罪判处五年至十五年不等有期徒刑，并处罚金。
+香港联交所最新资料显示，4月17日，Pzena Investment Management， LLC增持海尔智家（06690）180.92万股，每股作价20.9874港元，总金额约为3797.04万港元。
 
-经审理查明，2014年8月起，被告人刘必安等人在不具备吸收公众存款资格的情况下，以中战华信集团有限公司及多家关联公司名义，通过虚构投资项目、公开虚假宣传等方式，以还本付息、许诺高额回报为诱饵，向社会公众募集资金314亿余元。
+增持后最新持股数目约为1.72亿股，最新持股比例为6.02%。
 
-大部分集资款用于兑付到期本息、发放员工工资及提成、个人使用和挥霍等，造成集资参与人经济损失61亿余元。
-
-案发后，办案机关追缴部分资金、不动产、机动车、购买的公司股权等资产。
-
-现追赃挽损工作仍在进行中。
-
-追缴到案的资产将在判决生效后依法执行，按集资额比例返还集资参与人。
-
-法院认为，被告人刘必安等人以非法占有为目的，使用诈骗方法非法集资，数额巨大，造成集资参与人财产损失，严重扰乱国家金融管理秩序，应依法严惩。
-
-根据各被告人的犯罪事实、性质、情节和社会危害程度，依法作出上述判决。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:51 - [法学大先生·张晋藩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:41 - [美国加州亿万富豪税已集齐请愿签名，获准纳入公投议程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:50 - [绍兴越城：以“三抓实”落实统战工作责任制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:50 - [知情人士：美官员将讨论上周停火延期后 是否恢复对伊朗的轰炸行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:43 - [青春，就应该这样！——写在2026年五四青年节到来之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:47 - [人社部：一季度全国城镇新增就业299万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:41 - [江西鄱阳湖南矶湿地首次发现蓝喉太阳鸟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:00 - [青海西宁：文体商旅融合点燃五月高原消费热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:52 - [2026年3月广东省外贸进出口总值表（人民币值）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:36 - [跨境电商架桥梁 让互利之花在中越边境绽放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:56 - [韩国上市公司总市值首次突破6000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:38 - [兆易创新将于5月29日派发末期股息每股0.8555198港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:45 - [交通银行：400亿元二级资本债券（债券通）发行完毕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:56 - [隔夜逼近1.2%、资金利率持续倒挂，超宽松还能持续多久？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:53 - [华贵人寿董事长刘刚将任新职，第一大股东茅台集团持股已超49%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:52 - [班诺特银行加速阿兹特克球场无现金化改造，备战世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:04 - [西南航空：受燃油价格上涨影响，第二季度盈利将低于预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:09 - [花旗：中国联通给予“买入”评级 目标价11.2港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:00 - [规范升级！32万亿银行理财信息披露迎重大调整](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:59 - [2026上海·静安现代戏剧谷链接全球戏剧资源](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:59 - [光大期货：4月23日矿钢煤焦日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:42 - [志愿军老战士连续多年吹号迎接战友：我要告诉他们 我们赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:03 - [山东省泰安市委常委、副市长刘峰梅接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:09 - [一间中国礼物商店，如何让在地非遗老技艺“活”在当下？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:53 - [美以失算！伊朗强硬派全面掌权，温和派靠边站，美伊谈判又熄火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:01 - [“不只是司机的苦日子”——美高油价压力从运输业向消费端蔓延](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:05 - [专访IMF世界经济研究部主管：全球增长或受2%“衰退线”挑战，美联储需防通胀预期脱锚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:44 - [伊朗最高领袖、总统、议长、外长同日喊话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:45 - [“五一”假日期间海南省天气总体较好 适宜出游](http://www.share.minike.top/Article/details/21118.shtml)
-- 2026-06-29 12:04 - [绿城的"体外"生意，撑不住了](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [油价冲击波袭来，全球消费品巨头面临定价压力测试](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:51 - [全国首批米粉“批次检验（检疫）”改革试点落地江西抚州](http://www.blog.kurohicncr.top/Article/details/985051.shtml)
-- 2026-06-29 12:01 - [五一假期注意出行安全 南方多地有大范围降雨](http://www.blog.minike.top/Article/details/6681622.shtml)
-- 2026-06-29 11:53 - [江河与共丨九三学社中央主席武维华：“既找病灶又开药方” 九三学社助力长江生态保护](http://www.blog.kurohicncr.top/Article/details/005446.shtml)
-- 2026-06-29 11:37 - [解决新旧海商法衔接适用问题 最高法出台司法解释](http://www.share.kurohicncr.top/Article/details/52508465482.shtml)
-- 2026-06-29 11:43 - [中非银联体召开第二届高官会暨中非金融合作研讨会](http://www.blog.minike.top/Article/details/7661243316.shtml)
-- 2026-06-29 11:51 - [有的亏超2亿元，有的净利翻2倍！2025年支付公司业绩分化严重](http://www.share.kurohicncr.top/Article/details/5239957.shtml)
-- 2026-06-29 11:52 - [外交部回应白宫记者晚宴枪击事件：中方一贯反对和谴责非法暴力行为](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [粤港澳大湾区自行车骑行嘉年华（惠州博罗站）举行](http://www.blog.minike.top/Article/details/93003995532.shtml)
-- 2026-06-29 12:05 - [高市称为长期战争做好准备，外交部：日本是不是要重蹈历史覆辙？](http://www.blog.minike.top/Article/details/93170.shtml)
-- 2026-06-29 11:42 - [南华早报出版人谭卫儿：应营造良好舆论环境，为各领域合作创造有利条件](http://www.blog.kurohicncr.top/Article/details/21591.shtml)
-- 2026-06-29 12:01 - [“机器人大牛股”中坚科技突遭证监会立案，近2万股民或可索赔](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [受气象不佳影响 “两马”航线将双向停航](http://www.blog.kurohicncr.top/Article/details/3529464.shtml)
+- 2026-06-29 11:59 - [胃不适、腰背酸、血糖高？警惕“癌王”发出的预警信号](http://www.share.minike.top/Article/details/373827256204.shtml)
+- 2026-06-29 11:53 - [“6.0%”的浙江看点](http://www.blog.minike.top/Article/details/468216301895.shtml)
+- 2026-06-29 11:54 - [特朗普称美国“已完全控制了霍尔木兹海峡”](http://www.share.kurohicncr.top/Article/details/548776061567.shtml)
+- 2026-06-29 11:44 - [中际旭创市值破万亿 老实业家如何逆袭硅谷](http://www.share.kurohicncr.top/Article/details/75059.shtml)
+- 2026-06-29 12:10 - [俄总统新闻秘书：普京愿随时与泽连斯基会面但须“富有成效”](http://www.blog.kurohicncr.top/Article/details/5744177.shtml)
+- 2026-06-29 11:47 - [“四季新韵·感知重庆”境外媒体重庆行交流活动启动](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [连亏5年，越亏越多！知名超市学胖东来效果不佳，去年关店414家，巨亏9.57亿元，最新市值仅35亿元](http://www.blog.minike.top/Article/details/973150657.shtml)
+- 2026-06-29 12:10 - [第六届亚洲沙滩运动会在三亚开幕 谌贻琴出席并宣布开幕](http://www.share.kurohicncr.top/Article/details/631250874746.shtml)
+- 2026-06-29 12:06 - [美伊和平谈判陷入僵局，霍尔木兹海峡局势加剧](http://www.share.minike.top/Article/details/88584727.shtml)
+- 2026-06-29 12:07 - [午评：国内期货主力合约涨跌互现 低硫燃油涨超6%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [百思买任命资深人士为CEO](http://www.share.kurohicncr.top/Article/details/97473444574.shtml)
+- 2026-06-29 12:08 - [达能销售额增长，美国市场重拾增长动力](http://www.blog.minike.top/Article/details/18819487896.shtml)
+- 2026-06-29 11:42 - [中办、国办：支持发展绿色低碳、集约循环的算力设施](http://www.blog.kurohicncr.top/Article/details/15741.shtml)
+- 2026-06-29 11:59 - [ASMPT盘中涨超7% 首季盈利及第二季展望均超预期](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [西安检察探索知识产权保护“立体解题”新路径](http://www.share.kurohicncr.top/Article/details/176531202.shtml)

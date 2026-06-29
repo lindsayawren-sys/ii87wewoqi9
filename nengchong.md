@@ -1,54 +1,61 @@
-# 珠江流域进一步强化节约用水管理工作
+# 一季度ETF市场回顾：四只沪深300ETF缩水6300亿，黄金ETF、短融ETF成“避风港”，新发产品扎堆电池港股
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-中新网广州4月28日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)28日消息，该委27日举行会议，研究部署进一步强化流域节约用水管理工作。 会议强调，要将学习贯彻《水利部办公厅关于进一步强化流域管理机构节约用水管理工作的通知》与强化流域治理管理贯通起来，切实履行好流域管理机构节约用水管理职责。要充分发挥珠江委在流域节约用水管理工作中的统筹协调与指导督促作用，将节水贯
+专题：2026基金一季报：电力、AI应用成共识，资金大进大出“网红基”遇冷！张坤、葛兰等最新布局出炉 2026年一季度，ETF市场冷热不均。一面是宽基ETF遭遇资金大撤退，一面是黄金、短融、电网设备等赛道被抢筹。与此同时，新发ETF市场同步降温，与去年同期相比更是“断崖式”下滑，“冰火两重天”贯穿了存量与发行两端。 一、存量端：宽基失血，黄金与主题产品成避风港 宽基ETF是一季
 
 ## 正文
 
-中新网广州4月28日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)28日消息，该委27日举行会议，研究部署进一步强化流域节约用水管理工作。
+专题：2026基金一季报：电力、AI应用成共识，资金大进大出“网红基”遇冷！
 
-会议强调，要将学习贯彻《水利部办公厅关于进一步强化流域管理机构节约用水管理工作的通知》与强化流域治理管理贯通起来，切实履行好流域管理机构节约用水管理职责。
+张坤、葛兰等最新布局出炉 2026年一季度，ETF市场冷热不均。
 
-要充分发挥珠江委在流域节约用水管理工作中的统筹协调与指导督促作用，将节水贯穿于流域治理管理全过程，全面提高流域水资源集约安全利用水平，促进经济社会发展全面绿色转型。
+一面是宽基ETF遭遇资金大撤退，一面是黄金、短融、电网设备等赛道被抢筹。
 
-会议指出，强化流域节约用水管理是强化流域治理管理的重要内容、是履行法定职责的根本要求、是建立健全节水制度政策体系的重要举措。
+与此同时，新发ETF市场同步降温，与去年同期相比更是“断崖式”下滑，“冰火两重天”贯穿了存量与发行两端。
 
-“十四五”期间，珠江委在粤港澳大湾区、海南自由贸易港等国家重大战略水安全保障工作中，认真落实水资源刚性约束制度，积极建立流域统一协调的用水定额标准体系，探索打造粤港澳大湾区智慧节水模式、珠江流域节水联动宣传品牌等，取得了良好成效，为进一步强化流域节约用水管理积累了宝贵经验。
+一、存量端：宽基失血，黄金与主题产品成避风港 宽基ETF是一季度资金流出的“重灾区”。
 
-会议强调，要深入贯彻落实全面深化改革有关工作部署，全面推进江河保护治理，深入实施国家节水行动，坚持流域“一盘棋”、树牢全委“一盘棋”，强化流域节水规范化、精细化、专业化管理，围绕全面落实节水制度政策体系、提高水资源集约安全利用水平、推动节水产业创新发展、推进高质量建设节水型社会四方面14项工作任务，凝聚全流域、全委工作合力推动各项任务目标落地落实，有力有序推进“十五五”时期珠江流域节水工作发展再上新台阶。
+华泰柏瑞、易方达、华夏、嘉实旗下的四只沪深300ETF合计缩水近6300亿元，其中华泰柏瑞沪深300ETF单只就缩水2223亿元，易方达沪深300ETF缩水1631亿元，华夏沪深300ETF缩水1384亿元。
 
-(完)
+此外，华泰柏瑞中证A500ETF、南方中证500ETF、华夏中证1000ETF等同样遭遇数百亿元的赎回。
+
+与宽基形成鲜明对比的是黄金ETF。
 
 ## 相关推荐
 
-- 2026-06-29 11:55 - [春到桑干河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:37 - [一季度浙江算力中心用电规模和增速创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:49 - [墨西哥比索走稳，股市受美伊僵局影响小幅回落](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:05 - [甘肃银行空前分红17.78亿为归母净利三倍 营收两连降零售贷款不良率4.16%压力增大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:49 - [互联网广告要跳出“流量至上”误区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:56 - [2026第二届飞剑“大使杯”国际板球邀请赛在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:43 - [上海定制何以走红？外籍人士为何偏爱这份“专属质感”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:06 - [中国黄河流域137处国家级自然保护区优良率达99.27％](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:59 - [豆粕：周期无声，趋势有痕 —— 豆粕多空拉锯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:39 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:11 - [国际刑事法院声称要对杜特尔特进行审判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:06 - [上交所举办东南亚专题国际路演活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:01 - [ISS建议ConocoPhillips股东支持独立董事主席提案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:05 - [浙商银行金华分行被罚169.3万元：违反金融统计相关规定等](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:46 - [国家国际发展合作署、中国气象局与世界气象组织签署关于推动落实全球发展倡议的谅解备忘录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:45 - [上海银行：2025年净息差1.16%，同比微降0.01个百分点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:10 - [（乡村行·看振兴）茶旅融合叠加整村运营 大别山茶村焕新生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:44 - [一季度市场监管部门查处商标侵权、假冒专利案件0.7万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:44 - [八达岭夜长城将于4月底在京亮相 升级沉浸式互动体验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:05 - [军号再次吹响，这次是接他们回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:43 - [煤炭股午后逆势上扬 兖煤澳大利亚及兖矿能源均涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:43 - [文件显示SpaceX获200亿美元过桥贷款，对其债务进行再融资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:08 - [浙江行刑联动破题商业秘密保护“三难”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:09 - [社保基金重仓+机构高关注股来了（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:04 - [广州黄埔：“AI+高端智造”抢占生物医药产业新高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:54 - [知情人士：美官员将讨论上周停火延期后 是否恢复对伊朗的轰炸行动](http://www.share.minike.top/Article/details/00191426775.shtml)
-- 2026-06-29 11:59 - [青春，就应该这样！——写在2026年五四青年节到来之际](http://www.share.minike.top/Article/details/4518507222.shtml)
-- 2026-06-29 11:51 - [人社部：一季度全国城镇新增就业299万人](http://www.blog.minike.top/Article/details/64510576.shtml)
-- 2026-06-29 11:50 - [江西鄱阳湖南矶湿地首次发现蓝喉太阳鸟](http://www.share.minike.top/Article/details/2419604609.shtml)
-- 2026-06-29 11:39 - [青海西宁：文体商旅融合点燃五月高原消费热潮](http://www.share.kurohicncr.top/Article/details/625395826239.shtml)
-- 2026-06-29 12:00 - [2026年3月广东省外贸进出口总值表（人民币值）](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:56 - [跨境电商架桥梁 让互利之花在中越边境绽放](http://www.share.minike.top/Article/details/54099.shtml)
-- 2026-06-29 11:41 - [韩国上市公司总市值首次突破6000万亿韩元](http://www.blog.minike.top/Article/details/0024237.shtml)
-- 2026-06-29 11:41 - [兆易创新将于5月29日派发末期股息每股0.8555198港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [交通银行：400亿元二级资本债券（债券通）发行完毕](http://www.blog.kurohicncr.top/Article/details/829757.shtml)
-- 2026-06-29 11:44 - [华泰期货：美伊分歧难以弥合，原油市场维持较高的波动率](http://www.share.minike.top/Article/details/8375338.shtml)
-- 2026-06-29 11:49 - [中肯政商界人士认为零关税举措将为两国合作带来新机遇](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:58 - [2026广东时装周（春季）以时尚之力赋能产业升级](http://www.share.kurohicncr.top/Article/details/339452329348.shtml)
-- 2026-06-29 11:54 - [如何防控蚊媒传染病？专家：清积水、灭成蚊、防叮咬](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:55 - [中国心连心化肥将于7月28日派发末期股息每股0.32元](http://www.blog.minike.top/Article/details/4979836943.shtml)
+- 2026-06-29 12:08 - [西南航空：受燃油价格上涨影响，第二季度盈利将低于预期](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [花旗：中国联通给予“买入”评级 目标价11.2港元](http://www.blog.kurohicncr.top/Article/details/75228997452.shtml)
+- 2026-06-29 11:51 - [规范升级！32万亿银行理财信息披露迎重大调整](http://www.blog.kurohicncr.top/Article/details/34722626133.shtml)
+- 2026-06-29 12:06 - [2026上海·静安现代戏剧谷链接全球戏剧资源](http://www.blog.kurohicncr.top/Article/details/78991051.shtml)
+- 2026-06-29 11:58 - [光大期货：4月23日矿钢煤焦日报](http://www.share.minike.top/Article/details/8765012.shtml)
+- 2026-06-29 12:04 - [志愿军老战士连续多年吹号迎接战友：我要告诉他们 我们赢了](http://www.blog.kurohicncr.top/Article/details/372121304841.shtml)
+- 2026-06-29 11:45 - [山东省泰安市委常委、副市长刘峰梅接受审查调查](http://www.blog.minike.top/Article/details/869670388.shtml)
+- 2026-06-29 12:06 - [一间中国礼物商店，如何让在地非遗老技艺“活”在当下？](http://www.share.minike.top/Article/details/080791834.shtml)
+- 2026-06-29 12:04 - [美以失算！伊朗强硬派全面掌权，温和派靠边站，美伊谈判又熄火](http://www.blog.kurohicncr.top/Article/details/6640883652.shtml)
+- 2026-06-29 12:05 - [“不只是司机的苦日子”——美高油价压力从运输业向消费端蔓延](http://www.blog.minike.top/Article/details/06436.shtml)
+- 2026-06-29 12:05 - [专访IMF世界经济研究部主管：全球增长或受2%“衰退线”挑战，美联储需防通胀预期脱锚](http://www.share.minike.top/Article/details/3916779.shtml)
+- 2026-06-29 11:50 - [伊朗最高领袖、总统、议长、外长同日喊话](http://www.blog.kurohicncr.top/Article/details/30208566.shtml)
+- 2026-06-29 12:11 - [【香港故事】方寸之间 书中蝴蝶——世界读书日走近藏书票](http://www.blog.kurohicncr.top/Article/details/6824839967.shtml)
+- 2026-06-29 12:10 - [三亚亚沙会沙排比赛首日：传统强队集体“速胜”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [放量大跌！A股多空博弈升级，投资者该怎么办？](http://www.share.kurohicncr.top/Article/details/85583.shtml)

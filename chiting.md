@@ -1,56 +1,60 @@
-# 摩根士丹利认为沃什将带来长期机制变革风险 加剧美债市场波动
+# 一季度存款“搬家”搬去哪了？ 保险成重要吸金方向
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-摩根士丹利分析师表示，凯文·沃什出任美联储主席的提名有望获得确认，这将带来长期的机制变革风险，可能加剧美国国债市场波动。 以Matthew Hornbach为首的团队指出，在沃什领导下，美联储可能采用新的通胀指标、减少前瞻指引，推动缩小资产负债表规模，这些变化“可能会提高每次议息会议之间的波动性”。沃什本人上周在国会作证时预示央行“政策操作方式将发生机制变革”。 摩根士丹利团队
+证券时报记者 杨庆婉 近日，一季度金融统计数据出炉，其中非银行业金融机构存款增加了2.03万亿元，同比多增1.72万亿元，处于历史高位；居民存款则增加7.68万亿元，同比少增1.54万亿元。 证券时报记者通过对多项数据交叉验证发现，市场热议的天量存款“搬家”，似乎并没有流向银行理财，毕竟一季度银行理财规模回落超过万亿元；偏股型公募基金规模也大幅缩水，倒是FOF（基金中的基金）份
 
 ## 正文
 
-摩根士丹利分析师表示，凯文·沃什出任美联储主席的提名有望获得确认，这将带来长期的机制变革风险，可能加剧美国国债市场波动。
+证券时报记者 杨庆婉 近日，一季度金融统计数据出炉，其中非银行业金融机构存款增加了2.03万亿元，同比多增1.72万亿元，处于历史高位；居民存款则增加7.68万亿元，同比少增1.54万亿元。
 
-以Matthew Hornbach为首的团队指出，在沃什领导下，美联储可能采用新的通胀指标、减少前瞻指引，推动缩小资产负债表规模，这些变化“可能会提高每次议息会议之间的波动性”。
+证券时报记者通过对多项数据交叉验证发现，市场热议的天量存款“搬家”，似乎并没有流向银行理财，毕竟一季度银行理财规模回落超过万亿元；偏股型公募基金规模也大幅缩水，倒是FOF（基金中的基金）份额和规模均实现增长；保险方面，银保渠道发力分红险等产品销售，保费收入增长明显。
 
-沃什本人上周在国会作证时预示央行“政策操作方式将发生机制变革”。
+由此可见，居民存款少增、金融投资多增，资金从银行表内向非银体系转移，不过未必进入股票权益市场，这仍需看收益率和赚钱效应。
 
-摩根士丹利团队强调，这属于长期变化，因此未因沃什的听证会提出新的交易建议。
+非银金融存款多增1.72万亿元 上述统计数据显示，一季度人民币存款增加13.73万亿元。
 
-这与当前市场状况一致：美国国债本月波动区间料创2020年末以来最窄，凸显市场处于相对平静期，促使投资者正在寻找新的催化因素。
+其中，住户存款增加7.68万亿元，非金融企业存款增加2.68万亿元，财政性存款增加4606亿元，非银行业金融机构存款增加2.03万亿元。
 
-“美联储主席提名人凯文·沃什的听证会显示联邦公开市场委员会（FOMC）决策将采取新机制，但尚不足以引发当下的仓位调整，”该团队在周一的报告中写道，“沃什明确表示，FOMC会议可能会出现更多辩论和分歧。
+而去年同期，人民币存款增加12.99万亿元，其中住户存款增加9.22万亿元，非金融企业存款增加1.74万亿元，财政性存款增加8190亿元，非银行业金融机构存款增加3090亿元。
 
-” 其他银行也赞同摩根士丹利的观点，即沃什领导下的美联储可能放大市场波动。
+相比之下，居民存款同比少增了1.54万亿元，非银行业金融机构存款同比多增了1.72万亿元。
 
-“Warsh并不看重前瞻性指引、FOMC官员的沟通程度，以及FOMC倾向一致决议的做法，”富国以Michael Schumacher为首的团队表示，“我们认为，总体而言，这意味着美联储对市场和利率波动的压制作用将减弱。
+国信证券银行团队研究认为，居民存款正从银行表内大规模转向非银体系。
 
 ## 相关推荐
 
-- 2026-06-29 11:52 - [中国美术馆新展启幕：“文艺复兴三杰”珍贵原作亮相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:59 - [人身险预定利率研究值环比上行4BP升至1.93%，业内预判年内触发再次调降概率较低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:50 - [2025银行年报观察室｜江苏两大农商行的冷暖答卷：常熟“县域称王”，紫金“夹缝求生”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:41 - [星动纪元获2亿美元新融资，顺丰集团领投](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:00 - [国际龙舟联合会主席：推动龙舟运动加速“划向”奥运殿堂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:59 - [英伟达收高4%，创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:43 - [业绩大变脸触发退市红线！冀凯股份索赔正式开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:03 - [中国能源建设第一季度新签合同额2761.96亿元 同比减少28.98%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:37 - [安井食品将于7月2日派发末期股息每股1.44元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:58 - [跌停！近7倍机器人大牛股遭立案，故事讲完谁在买单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:59 - [“小城游”热度持续攀升、出入境旅游双向升温 “五一”文旅市场蓄势待发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:49 - [确定！方一天出任华安基金党委副书记，获提名总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:03 - [《静夜思》还能这样翻译？看译界泰斗如何让世界“读”懂中国诗词](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:02 - [天津生物多样性保护水平提升 已记录野生鸟类增至475种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:06 - [从法国名家手稿展到MBTI荐书 浙大这样让阅读“破圈”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:03 - [美方称拦截一艘从伊朗运输石油的油轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:42 - [总书记的人民情怀 |“中国式现代化关键在科技现代化”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:03 - [作家王蒙：“越是在信息爆炸的时代，越不能丢掉深度阅读的能力”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:55 - [券商并购提速，板块或迎中长期关注契机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:04 - [特朗普政府即将达成救助精神航空的协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:47 - [西安银行：2025年实现营业收入99.66亿元，同比增长21.68%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:43 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:42 - [受人工智能需求推动，ASM国际销售额超预期 股价上涨8.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:43 - [Palantir与美国农业部签署3亿美元协议，保障粮食供应链安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:03 - [新任CEO首个完整季度：威瑞森实现无线用户正增长](http://www.share.minike.top/Article/details/068316618.shtml)
-- 2026-06-29 11:43 - [强对流、暴雨预警齐发 这些地方需注意防范](http://www.share.kurohicncr.top/Article/details/73414506769.shtml)
-- 2026-06-29 11:44 - [“锂王”，一季度业绩大增近17倍！](http://www.blog.minike.top/Article/details/65111.shtml)
-- 2026-06-29 11:53 - [“中国重载第一路”大秦铁路春季集中修提前3天完成](http://www.share.minike.top/Article/details/232922.shtml)
-- 2026-06-29 11:39 - [北京农商银行：2025年实现净利润81.49亿元，同比增长2.21%](http://www.share.minike.top/Article/details/92449760.shtml)
-- 2026-06-29 11:57 - [重庆：高铁乘务员开展服务礼仪培训 备战“五一”假期](http://www.share.kurohicncr.top/Article/details/530416921.shtml)
-- 2026-06-29 11:50 - [中国三三传媒股份拆细将于4月28日生效](http://www.blog.kurohicncr.top/Article/details/298121530815.shtml)
-- 2026-06-29 12:01 - [TD Cowen首次覆盖DoorDash给予买入评级](http://www.share.kurohicncr.top/Article/details/87233004777.shtml)
-- 2026-06-29 12:01 - [原料供应收紧，4月下半月猪肉鲜品分割品价格止跌反弹](http://www.blog.kurohicncr.top/Article/details/3582377861.shtml)
-- 2026-06-29 11:45 - [平陆运河主题影像作品巡展在广西桂林开展](http://www.share.kurohicncr.top/Article/details/1313789.shtml)
-- 2026-06-29 11:54 - [法治蓝皮书：中国体育反腐法治建设正处于转型关键时期](http://www.blog.minike.top/Article/details/38433203820.shtml)
-- 2026-06-29 12:05 - [江河与共丨从卫星遥感到基因解码！致公党中央给皖江做了五年“全面体检”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [亚市早盘金价小幅走高，因投资者评估伊朗向美国提出的提议](http://www.blog.minike.top/Article/details/3172558626.shtml)
-- 2026-06-29 11:49 - [北京银行：聘任魏昱为首席合规官](http://www.blog.kurohicncr.top/Article/details/8300043.shtml)
-- 2026-06-29 11:56 - [酒价内参4月28日价格发布：飞天茅台小幅上涨3元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [民企“常敲门” 精准服务“一老一小”](http://www.blog.minike.top/Article/details/077477082125.shtml)
+- 2026-06-29 11:52 - [工地也有“金钟罩”？揭秘罩住扬尘噪音的“最强辅助”](http://www.share.minike.top/Article/details/466653593534.shtml)
+- 2026-06-29 11:56 - [特朗普：何时结束同伊朗冲突目前“没有时间表”](http://www.share.kurohicncr.top/Article/details/0405511.shtml)
+- 2026-06-29 12:08 - [国民技术早盘涨超10% 发布N32H493主控芯片适配800G/1.6T光模块](http://www.blog.kurohicncr.top/Article/details/589164.shtml)
+- 2026-06-29 11:52 - [《2025现场音乐演出市场报告》：大型演唱会票房超295亿元](http://www.blog.minike.top/Article/details/224072460683.shtml)
+- 2026-06-29 11:56 - [沙海“织”网 青海格尔木“三北”工程日均治沙2300亩](http://www.blog.minike.top/Article/details/909043930409.shtml)
+- 2026-06-29 11:49 - [菲莫国际营收上涨，受益于国际市场增长](http://www.blog.kurohicncr.top/Article/details/001456.shtml)
+- 2026-06-29 12:05 - [小食堂托起晚年大幸福](http://www.blog.minike.top/Article/details/8773190588.shtml)
+- 2026-06-29 11:57 - [斯诺克世锦赛：奥沙利文淘汰中国球手晋级16强](http://www.share.kurohicncr.top/Article/details/26911226577.shtml)
+- 2026-06-29 11:44 - [伊朗总统称封锁和威胁是谈判的主要障碍](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [华安基金胡宜斌|洞见互联生态：掘金产业投资新范式](http://www.share.kurohicncr.top/Article/details/6801555.shtml)
+- 2026-06-29 11:45 - [联合国发展系统驻华协调员：中国为全球数字化转型提供宝贵经验](http://www.blog.minike.top/Article/details/9323869.shtml)
+- 2026-06-29 12:07 - [中老各界友人云南共庆两国建交65周年 展望合作新方向](http://www.share.kurohicncr.top/Article/details/810341.shtml)
+- 2026-06-29 12:08 - [大美边疆看我家丨黑龙江哈尔滨：江畔夜景醉人心](http://www.blog.minike.top/Article/details/977117234.shtml)
+- 2026-06-29 12:05 - [私募巨头克林斯基：当前是配置私募股权和信贷的“绝佳时机”](http://www.blog.minike.top/Article/details/6367437513.shtml)

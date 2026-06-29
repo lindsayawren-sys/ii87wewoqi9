@@ -1,54 +1,47 @@
-# 5100藏冰川午前涨超5% 近期针对“5100”产品开展系统性健康功能研究
+# 美国称“布什号”航母已经在中央司令部责任区航行
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-5100藏冰川（01115）午前股价上涨5.43%，现报0.485港元，成交额838.73万港元。 4月28日，5100藏冰川发布公告，于2026年3月27日，嘉富利投资有限公司（公司的全资附属公司）及香港大学中医药学院冯奕斌教授团队订立一份合作备忘录，内容有关就“5100”西藏冰川矿泉水对高尿酸血症患者进行临床疗效评估展开教研合作及矿泉水矿物成分对尿酸代谢与肾臟排泄机制的潜在
+美国中央司令部在X平台上发帖称，“乔治·H·W·布什号”航空母舰正在印度洋的“美国中央司令部责任区”内航行。 注：特朗普看好与伊朗达成协议的前景 称以黎同意停火10天 。责任编辑：陈钰嘉
 
 ## 正文
 
-5100藏冰川（01115）午前股价上涨5.43%，现报0.485港元，成交额838.73万港元。
+美国中央司令部在X平台上发帖称，“乔治·H·W·布什号”航空母舰正在印度洋的“美国中央司令部责任区”内航行。
 
-4月28日，5100藏冰川发布公告，于2026年3月27日，嘉富利投资有限公司（公司的全资附属公司）及香港大学中医药学院冯奕斌教授团队订立一份合作备忘录，内容有关就“5100”西藏冰川矿泉水对高尿酸血症患者进行临床疗效评估展开教研合作及矿泉水矿物成分对尿酸代谢与肾臟排泄机制的潜在作用机制进行延伸研究与机制探索。
+注：特朗普看好与伊朗达成协议的前景 称以黎同意停火10天 。
 
-集团作为西藏本土天然饮用水领域的代表企业，致力于探索优质天然矿泉水在健康保健领域的功能性研究。
-
-本次合作旨在结合传统中医“药食同源”理念与现代循证医学研究方法，针对“5100”产品开展系统性的健康功能研究，为中医临床治疗与日常健康管理的融合提供新的科研视角。
-
-董事会认为，本次合作有助提升集团产品的科学研究基础，并为未来在大健康领域的产品开发与技术创新积累经验。
-
-责任编辑：卢昱君
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-29 11:37 - [伊朗暂停出口部分钢铁产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:36 - [摩根士丹利认为沃什将带来长期机制变革风险 加剧美债市场波动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:52 - [涨得越猛越危险，AI行情已现"上涨式崩盘"信号！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:40 - [外交部：坚决遏制日本“新型军国主义”的妄动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:04 - [富瑞：鹰普精密给予“买入”评级 目标价10.34港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:40 - [中国国家能源局：可保障各种情形下的油气安全保供能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:44 - [富瑞：洛阳钼业维持“买入”评级 目标价25港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:36 - [东睦股份：Q1增长势头放缓、回款承压，加码MIM商誉风险悬顶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:42 - [中国美术馆新展启幕：“文艺复兴三杰”珍贵原作亮相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:54 - [人身险预定利率研究值环比上行4BP升至1.93%，业内预判年内触发再次调降概率较低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:36 - [2025银行年报观察室｜江苏两大农商行的冷暖答卷：常熟“县域称王”，紫金“夹缝求生”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:00 - [星动纪元获2亿美元新融资，顺丰集团领投](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:46 - [中国驻菲律宾大使馆举办“舟楫千年 丝路新章”人文交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:02 - [一季度存款“搬家”搬去哪了？ 保险成重要吸金方向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 12:07 - [（乡村行·看振兴）浙江观察：乡村振兴何以“片区组团发展”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:50 - [猪价下跌的背后：本轮猪周期的变与不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:46 - [长江有色：美伊和谈生变及AI 半导体狂欢提振 23日锡价或上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:43 - [德政府据悉正与波兰就石油替代供应展开磋商](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:55 - [2026“文化中国·水立方杯”中文歌曲大赛柏林赛区结果揭晓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:06 - [6家城商行年报业绩分化：净利全增长、5家营收飘红，贵阳银行营收3连降](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:10 - [“小城游”热度持续攀升、出入境旅游双向升温 “五一”文旅市场蓄势待发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:51 - [确定！方一天出任华安基金党委副书记，获提名总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:10 - [《静夜思》还能这样翻译？看译界泰斗如何让世界“读”懂中国诗词](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:52 - [中东硝烟起，巴西“粮仓”承压：化肥暴涨或致下季作物减产](http://www.blog.minike.top/Article/details/02318344211.shtml)
-- 2026-06-29 11:59 - [中东冲突下的地缘局势、能源格局与宏观影响](http://www.share.kurohicncr.top/Article/details/74332.shtml)
-- 2026-06-29 11:58 - [中美科学家联手验证新型抗衰老药物，实现哺乳动物寿命延长三分之一](http://www.blog.minike.top/Article/details/74977.shtml)
-- 2026-06-29 11:50 - [巴基斯坦总统来华访问 在湖南沉浸式体验中国茶文化](http://www.share.minike.top/Article/details/8015676.shtml)
-- 2026-06-29 11:59 - [中共中央政治局：抓好农业生产 稳定生猪等农产品价格](http://www.share.minike.top/Article/details/8181840011.shtml)
-- 2026-06-29 12:03 - [静守景气，慢越周期，详解华夏行业景气混合业绩长青密码](http://www.share.kurohicncr.top/Article/details/5261185352.shtml)
-- 2026-06-29 11:38 - [朱鹤新局长会见香港金管局总裁余伟文](http://www.share.minike.top/Article/details/57187.shtml)
-- 2026-06-29 11:50 - [欧盟延长对缅甸制裁](http://www.share.kurohicncr.top/Article/details/588284239.shtml)
-- 2026-06-29 12:04 - [新任CEO首个完整季度：威瑞森实现无线用户正增长](http://www.share.kurohicncr.top/Article/details/69485.shtml)
-- 2026-06-29 11:46 - [强对流、暴雨预警齐发 这些地方需注意防范](http://www.blog.minike.top/Article/details/62665001.shtml)
-- 2026-06-29 11:45 - [“锂王”，一季度业绩大增近17倍！](http://www.blog.minike.top/Article/details/12696.shtml)
-- 2026-06-29 11:52 - [“中国重载第一路”大秦铁路春季集中修提前3天完成](http://www.blog.minike.top/Article/details/08980798227.shtml)
-- 2026-06-29 11:49 - [北京农商银行：2025年实现净利润81.49亿元，同比增长2.21%](http://www.blog.kurohicncr.top/Article/details/238685.shtml)
-- 2026-06-29 11:50 - [重庆：高铁乘务员开展服务礼仪培训 备战“五一”假期](http://www.share.minike.top/Article/details/88306248071.shtml)
-- 2026-06-29 11:55 - [中国三三传媒股份拆细将于4月28日生效](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [量化投资先驱马丁·卢克警告勿将交易决策全盘交予人工智能](http://www.blog.minike.top/Article/details/2597267786.shtml)
+- 2026-06-29 12:08 - [起势有力 量稳质升 长沙市外贸一季度同比增长17.6%](http://www.share.minike.top/Article/details/42280.shtml)
+- 2026-06-29 11:57 - [酒钢宏兴：2025年净亏损19.98亿元](http://www.share.minike.top/Article/details/82230488.shtml)
+- 2026-06-29 12:07 - [“创客北京2026”创新创业大赛启动报名 单个获奖项目最高可获100万元奖励](http://www.share.kurohicncr.top/Article/details/694920.shtml)
+- 2026-06-29 12:08 - [一季度中国经济领域改革热度继续维持高位](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [学习新语｜共同构建地球生命共同体](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [欧元区私营部门商业活动意外萎缩 服务业大幅下滑](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [特朗普：美伊第二轮谈判最快或于周五举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [民企“常敲门” 精准服务“一老一小”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [工地也有“金钟罩”？揭秘罩住扬尘噪音的“最强辅助”](http://www.share.kurohicncr.top/Article/details/5546886072.shtml)
+- 2026-06-29 11:48 - [特朗普：何时结束同伊朗冲突目前“没有时间表”](http://www.blog.minike.top/Article/details/8422989.shtml)
+- 2026-06-29 11:50 - [国民技术早盘涨超10% 发布N32H493主控芯片适配800G/1.6T光模块](http://www.share.kurohicncr.top/Article/details/8212605137.shtml)
+- 2026-06-29 11:47 - [《2025现场音乐演出市场报告》：大型演唱会票房超295亿元](http://www.share.minike.top/Article/details/1934910266.shtml)
+- 2026-06-29 11:58 - [沙海“织”网 青海格尔木“三北”工程日均治沙2300亩](http://www.blog.minike.top/Article/details/4018748227.shtml)
+- 2026-06-29 12:05 - [菲莫国际营收上涨，受益于国际市场增长](https://github.com/lisacumin64-arch)

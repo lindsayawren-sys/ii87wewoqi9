@@ -1,59 +1,46 @@
-# 首都机场“五一”假期预计运送旅客102.3万人次
+# 古井贡酒：截至4月20日股东人数为59907户
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月28日 17:44 来源：中国新闻网 随着“五一”假期的临近，首都机场旅客出行热度不断上升，预计今年假期(5月1日至5日)将运送旅客102.3万人次，日均20.45万人次；保障航班6160架次，日均1232架次。数据显示，客流高峰预计出现在5月1日，全天运送旅客约22.45万人次，起降航班1296架次。5月5日，首都机场预计迎来返程高峰，全天进出港旅客
+证券日报网讯4月23日，古井贡酒在互动平台回答投资者提问时表示，截至2026年4月20日公司股东人数为59907户。
 
 ## 正文
 
-发布时间：2026年04月28日 17:44 来源：中国新闻网 随着“五一”假期的临近，首都机场旅客出行热度不断上升，预计今年假期(5月1日至5日)将运送旅客102.3万人次，日均20.45万人次；保障航班6160架次，日均1232架次。
-
-数据显示，客流高峰预计出现在5月1日，全天运送旅客约22.45万人次，起降航班1296架次。
-
-5月5日，首都机场预计迎来返程高峰，全天进出港旅客约为22.35万人次，起降航班1285架次。
-
-“五一”假期期间，旅客出行以旅游、探亲为主，出行目的地主要集中在上海、成都、深圳、杭州、广州，以及香港、首尔、新加坡、曼谷等城市。
-
-2026年以来，伴随国家便利人员往来等利好政策，叠加假期影响，首都机场国际及地区客流量呈现良好增长态势。
-
-当前，首都机场国际及地区电子登机牌全流程通关服务已覆盖16家航空公司执飞的21条航线，无托运行李的旅客，可使用电子登机牌省去在值机柜台的排队时间。
-
-首都机场提醒广大旅客，在出行前密切关注往来目的地天气情况以及所乘航班动态，务必仔细确认航班所在的机场和航站楼信息，尽早出门抵达机场，为值机手续和安检环节预留充足的时间。
-
-(记者 刘超） 责任编辑：【周驰】
+证券日报网讯4月23日，古井贡酒在互动平台回答投资者提问时表示，截至2026年4月20日公司股东人数为59907户。
 
 ## 相关推荐
 
-- 2026-06-29 12:04 - [邦达亚洲:多重利空因素打压 美元指数小幅收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:47 - [新教育完美教室班本课程研发专题研讨会在沪举办 聚焦卓越课程与幸福教育](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:41 - [“剪映”“猫箱”“即梦AI”因合成内容标识违法问题被依法查处](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:42 - [迎来24项“国家红利”，综保区加速扩能提质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:03 - [中国再保险：中再寿险一季度净亏损2.51亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:57 - [小新带你看亚沙：这个展馆为何吸引老外扎堆打卡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:00 - [软银携手科技巨头，打造5000亿美元AI数据中心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:56 - [我国拟修订农业法 增加建立粮食安全监测预警制度等内容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:37 - [“全球AI光算力第一股”诞生 上海“芯片先锋队”再添新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:50 - [中国人民银行茂名市分行：普惠金改品牌影响力持续扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:40 - [深圳莲塘口岸单日出入境人次再攀新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:52 - [原青海省地方金融监督管理局一级巡视员吴春庆被开除党籍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:54 - [视频 | 理财亏716万元，金融街证券被判赔偿10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:57 - [SK海力士业绩超预期 营业利润和销售额呈数倍增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 12:08 - [亿腾嘉和早盘涨超3% 于2026年AACR年会公布四特异性抗体EDP001临床前研究数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:59 - [青海省现有鸟类22目75科541种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:03 - [南京银行：2025年净利润为218.07亿元，同比增长8.08%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:56 - [（寻味中华｜书香）全民阅读续文脉 解缙故事咏流传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:45 - [从《黑神话：悟空》到“佛小伴”：山西织密新兴领域知识产权保护网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:52 - [Adobe公布250亿美元回购计划 旨在向投资者传递信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:54 - [成都双流“国字号”立法联系点运行一周年：民意搭上国家立法“直通车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:47 - [美国司法部将医用大麻重新归类为低危险性毒品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:59 - [广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:47 - [常熟银行：2025年实现营业收入116.19亿元，同比增长6.51%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:02 - [国际能源署署长：世界正面临史上最严重的能源安全威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:45 - [台湾作家新作《往日食光》书写家常风味 蕴藏两岸记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:05 - [特斯拉将对HW3车辆进行改造](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:37 - [辽宁省贸促会经贸代表团在科特迪瓦开展经贸交流活动](http://www.share.kurohicncr.top/Article/details/3091412.shtml)
-- 2026-06-29 11:55 - [拉卡拉：“炒股”大赚，主业承压](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [航旅纵横：五一叠加春假长线出游升温 上海居国内热门目的地首位](http://www.blog.kurohicncr.top/Article/details/85113662047.shtml)
-- 2026-06-29 11:58 - [时政微周刊丨总书记的一周（4月20日—4月26日）](http://www.share.kurohicncr.top/Article/details/417825.shtml)
-- 2026-06-29 11:36 - [从课堂到云端 自媒体重构海外华文教育生态](http://www.blog.minike.top/Article/details/6497836057.shtml)
-- 2026-06-29 11:40 - [巴克莱：美联储本周料将按兵不动，2026年晚些时候可能降息](http://www.share.kurohicncr.top/Article/details/1521952602.shtml)
-- 2026-06-29 11:40 - [一季度高技术产业实际使用外资同比增长30.7%](http://www.blog.minike.top/Article/details/0918655515.shtml)
-- 2026-06-29 11:37 - [四川大巴山“爱心帮帮团”：用“微力量”汇聚“大温暖”](http://www.blog.kurohicncr.top/Article/details/7234160.shtml)
-- 2026-06-29 11:48 - [亚洲芯片股走高 市场对地缘政治风险的担忧降温](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:40 - [现场下单！中国机器人“圈粉”爱尔兰老球员](http://www.blog.kurohicncr.top/Article/details/371839.shtml)
-- 2026-06-29 11:54 - [新兴市场“越涨越便宜”：亚洲芯片三雄引领的估值悖论](http://www.share.kurohicncr.top/Article/details/392098728.shtml)
-- 2026-06-29 11:56 - [关于白宫记者晚宴枪击案嫌疑人科尔・艾伦的全部已知信息](http://www.share.minike.top/Article/details/59384207.shtml)
-- 2026-06-29 11:45 - [002779、603360，被证监会立案！](http://www.share.minike.top/Article/details/743688221.shtml)
-- 2026-06-29 11:41 - [台湾新北市长民调结果出炉，蓝白共推李四川参选](http://www.share.minike.top/Article/details/723818402777.shtml)
-- 2026-06-29 11:54 - [患恶性肿瘤理赔遭拒 和谐健康被指竟多次“恶意”拒赔](http://www.share.kurohicncr.top/Article/details/44161066.shtml)
+- 2026-06-29 11:42 - [第六届亚洲沙滩运动会在海南省三亚市开幕](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [美国贸易代表格里尔周五将与欧盟贸易专员讨论数字税问题](http://www.blog.minike.top/Article/details/9757646.shtml)
+- 2026-06-29 11:56 - [2026一季度新发ETF：83只募资335亿，平均发行规模同比降5.09亿，电力、港股科技等主题成布局重点](http://www.blog.kurohicncr.top/Article/details/681616490398.shtml)
+- 2026-06-29 12:06 - [涨价拉动快递公司业绩，燃油成本仍成隐忧](http://www.share.kurohicncr.top/Article/details/0389605658.shtml)
+- 2026-06-29 12:10 - [中海油服：一季度归母净利润8.56亿元，同比下滑3.60%](http://www.share.minike.top/Article/details/952408.shtml)
+- 2026-06-29 12:02 - [湘图古籍数字化成果显著 珍贵典籍“活”化出新](http://www.blog.minike.top/Article/details/105280719.shtml)
+- 2026-06-29 12:11 - [群山为“岸” 商贸成“海”：重庆秀山于武陵山腹地开“世界超市”](http://www.share.kurohicncr.top/Article/details/72512166.shtml)
+- 2026-06-29 11:50 - [燃油成本飙升，美国航空腰斩2026年盈利预期](http://www.blog.kurohicncr.top/Article/details/4026055.shtml)
+- 2026-06-29 11:52 - [操盘必读：影响股市利好或利空消息_2026年4月24日_财经新闻](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [伊朗总统府官员：与美达成协议“需要时间”](http://www.blog.minike.top/Article/details/39843407.shtml)
+- 2026-06-29 12:04 - [宏润建设：2025年归母净利润2.8亿元，同比下降1.14%](http://www.share.kurohicncr.top/Article/details/856814712450.shtml)
+- 2026-06-29 11:56 - [中国选手范俊杰夺得三亚亚沙会首金](http://www.share.minike.top/Article/details/54074.shtml)
+- 2026-06-29 11:44 - [美国西弗吉尼亚州一工厂发生化学品泄漏 造成两人死亡](http://www.blog.minike.top/Article/details/905790635.shtml)
+- 2026-06-29 12:05 - [日韩股市集体高开 日股升至纪录新高](http://www.share.minike.top/Article/details/99638023637.shtml)
+- 2026-06-29 11:58 - [世界地球日｜用我们的力量守护高原生态](http://www.blog.kurohicncr.top/Article/details/923059.shtml)

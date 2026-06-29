@@ -1,57 +1,61 @@
-# 高市称为长期战争做好准备，外交部：日本是不是要重蹈历史覆辙？
+# 达能销售额增长，美国市场重拾增长动力
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-4月28日，外交部发言人林剑主持例行记者会。 有记者提问，据报道，4月27日，日本政府就推进启动“安保三文件”修订工作召开首次专家会议。首相高市早苗在会议上称，要以俄乌及中东局势为教训，推进应对“新型作战方式”以及为长期战争做好准备，推进海上安保能力、网络安全和经济安全保障。请问中方对此有何评论？ 林剑指出，近期高市政权大力发展军工产业，现在又公然宣称为长期战争做准备。历史上日
+专题：聚焦美股2026年第一季度财报 美洲地区可比销售额增长 3.4% 法国食品集团达能公布第一季度可比销售额实现增长，并表示公司正开始在美国市场重获增长动力。 这家旗下拥有 Activia 酸奶与依云矿泉水的法国食品企业公布，季度可比销售额增长 2.7%；销量同比增长 1.5%，价格上涨 1.2%。公司汇总的分析师预期中值为可比销售额增长 2.6%。 达能表示，其在美国的 S
 
 ## 正文
 
-4月28日，外交部发言人林剑主持例行记者会。
+专题：聚焦美股2026年第一季度财报 美洲地区可比销售额增长 3.4% 法国食品集团达能公布第一季度可比销售额实现增长，并表示公司正开始在美国市场重获增长动力。
 
-有记者提问，据报道，4月27日，日本政府就推进启动“安保三文件”修订工作召开首次专家会议。
+这家旗下拥有 Activia 酸奶与依云矿泉水的法国食品企业公布，季度可比销售额增长 2.7%；销量同比增长 1.5%，价格上涨 1.2%。
 
-首相高市早苗在会议上称，要以俄乌及中东局势为教训，推进应对“新型作战方式”以及为长期战争做好准备，推进海上安保能力、网络安全和经济安全保障。
+公司汇总的分析师预期中值为可比销售额增长 2.6%。
 
-请问中方对此有何评论？
+达能表示，其在美国的 Stok 系列产品表现强劲，咖啡奶精品类业务也在改善。
 
-林剑指出，近期高市政权大力发展军工产业，现在又公然宣称为长期战争做准备。
+美洲地区可比销售额增长 3.4%。
 
-历史上日本曾挑起战争、侵略他国，现在又在渲染所谓的“紧张局势”，是不是要重蹈历史覆辙，在“再军事化”的道路上狂飙突进，再次成为东亚的祸源。
+达能预计，2026 年全年可比销售额增速将在 3% 至 5% 之间。
 
-当年日本军国主义大肆侵略扩张，对中国及亚洲邻国犯下了滔天罪行，日本人民也深受其害。
+按报表口径计算，第一季度销售额降至 66.7 亿欧元（78.3 亿美元），去年同期为 68.4 亿欧元。
 
-正是基于日本的侵略历史，为防范日本军国主义死灰复燃，《开罗宣言》《波茨坦公告》和《日本投降书》等一系列具有充分国际法效力的文件明确规定，日本应完全解除武装，不得维持能使其重新武装的产业。
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 11:40 - [【百万庄小课堂】真会被气出结节吗？专家解答女性怎么爱护乳腺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:59 - [壳牌164亿美元收购加拿大ARC Resources，押注蒙特尼页岩气扩张](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:36 - [浙江安吉：跨区域公共法律服务协作站让民族同胞安心就业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:46 - [“鸟中大熊猫”彩鹮首次现身云南云县](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:47 - [东珠生态业绩预告更正不及时，受损股民可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:03 - [“安徽酒王”倪永培迎“交班”考题：儿子神秘“隐退” ，澳籍儿媳悄然走到台前](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:46 - [三亚亚沙会男子沙滩卡巴迪：伊朗队夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:39 - [爱尔兰都柏林大学足球队时隔50年重访韶山：中国一如既往热情友好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:57 - [5100藏冰川午前涨超5% 近期针对“5100”产品开展系统性健康功能研究](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:43 - [OpenAI放宽合作限制，微软独占云时代终结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:59 - [韩国要求七大电商平台修改不公平条款以加强消费者保护](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:08 - [贵州印江：半世纪人鸟相依 共绘生态宜居新家园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:00 - [在民进党高压下 为何一直坚持说“我是中国人” 吕礼诗霸气回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:59 - [外交部：中方敦促美方停止助台巩固所谓“邦交”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:07 - [英伟达参投AI公司Vast Data，估值达300亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:09 - [富瑞：紫金矿业给予“买入”评级 目标价49.10港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:48 - [笔墨承文脉 上海市文史研究馆推出《王劼音卷》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:00 - [买理财险说好随用随取，到期才发现要105岁才能取本金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:08 - [“瑞士制造”不等于瑞士制造？瑞士联邦知识产权局答一财](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 12:00 - [美国称“布什号”航母已经在中央司令部责任区航行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:07 - [好客山东：每次相遇，都是久别重逢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:54 - [商业航天“超级发射月”继续发力！华宝基金通用航空ETF（159231）逆市冲高逾1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:03 - [“中国高质量发展和中欧经贸合作”专题讲座在布鲁塞尔举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:54 - [亚马逊进军GLP-1医疗领域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:04 - [什么样的遗嘱才具备法律效力？丨法律顾问在身边](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:01 - [港股平安好医生一季度高质量开局：净利润增138%，长期主义兑现增长动能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:44 - [“广货行天下 文旅邀您来”相关活动推出](http://www.share.minike.top/Article/details/89328699131.shtml)
-- 2026-06-29 11:53 - [中方禁止外资收购Manus项目，外交部回应](http://www.share.minike.top/Article/details/093547378.shtml)
-- 2026-06-29 11:39 - [伊朗恢复飞往重要国际目的地航班](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [印尼列车相撞事故已致14死84伤 总统要求彻查](http://www.blog.minike.top/Article/details/569950649882.shtml)
-- 2026-06-29 11:40 - [京津冀三地人民银行组织开展2026年党委理论学习中心组联组学习](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [国证国际：滨海投资维持“买入”评级 目标价1.43港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [火箭超级工厂竣工投产 力箭二号运载火箭迈入批量化生产阶段](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:03 - [参与OpenAI手机项目？002475市值一日爆增400亿元！](http://www.blog.kurohicncr.top/Article/details/2183756.shtml)
-- 2026-06-29 12:05 - [北京银行：一季度实现归母净利润80.98亿元，同比增长5.55%](http://www.share.minike.top/Article/details/611821454.shtml)
-- 2026-06-29 11:38 - [快讯：恒指微跌 科指涨0.56% 芯片股活跃 AI应用股高开](http://www.blog.minike.top/Article/details/1627324047.shtml)
-- 2026-06-29 11:48 - [酒价内参4月27日价格发布：青花汾20下跌4元跌幅居前](http://www.blog.kurohicncr.top/Article/details/339702227.shtml)
-- 2026-06-29 12:04 - [《中国新时代文学蓝皮书（2025）》在京发布](http://www.share.kurohicncr.top/Article/details/46899.shtml)
-- 2026-06-29 11:55 - [国家开放大学将推出劳模工匠主题直播](http://www.blog.kurohicncr.top/Article/details/99544036102.shtml)
-- 2026-06-29 11:47 - [我国拟修订农业法加快建设农业强国](http://www.share.minike.top/Article/details/5051490589.shtml)
-- 2026-06-29 11:48 - [当广州“烟火气”遇见展会“国际范” “商旅+文化体验”点燃入境消费新热潮](http://www.blog.minike.top/Article/details/7866993.shtml)
+- 2026-06-29 11:45 - [Rivian：已开始生产全新纯电动车型R2](http://www.blog.minike.top/Article/details/309983821.shtml)
+- 2026-06-29 11:54 - [香港创新科技及工业局局长：相信会有更多优秀企业落户港深创科园](http://www.share.minike.top/Article/details/3303597102.shtml)
+- 2026-06-29 11:56 - [“手工经济”兴起：换一种方式“感受生活”](http://www.share.kurohicncr.top/Article/details/431898796.shtml)
+- 2026-06-29 12:01 - [威高股份获Wellington Management Group LLP增持约811.35万股 每股作价约3.69港元](http://www.share.minike.top/Article/details/48839764389.shtml)
+- 2026-06-29 12:06 - [原油市场遭遇“双重压力测试”！交易者如何应对？](http://www.blog.kurohicncr.top/Article/details/576703057.shtml)
+- 2026-06-29 12:05 - [接到这类电话，请立即挂断！](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:02 - [宁德时代与河南省五家重点国企达成战略合作](http://www.blog.minike.top/Article/details/125619710612.shtml)
+- 2026-06-29 12:11 - [日本反对韩国 MBK Partners 收购牧野铣床制作所](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [英国石油年度股东大会气氛紧张，股东就气候信息透明度发起抗议](http://www.blog.kurohicncr.top/Article/details/8677895.shtml)
+- 2026-06-29 12:09 - [书页间的文明对话：埃及籍教师在长春读懂中埃共鸣](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:06 - [红利主题“双引擎”：华夏基金这两只ETF，正在重新定义2026年的超额收益](http://www.blog.kurohicncr.top/Article/details/072027.shtml)
+- 2026-06-29 11:44 - [徽商银行2025年报：资产突破2.3万亿，存贷双增、资产向优](http://www.blog.kurohicncr.top/Article/details/2263627678.shtml)
+- 2026-06-29 12:01 - [辽宁持续优化营商环境 2025年审结知识产权案件超1.1万件](http://www.share.kurohicncr.top/Article/details/60312122205.shtml)
+- 2026-06-29 11:48 - [运-20B接英烈回家，为何呼号“荣归50”？](http://www.share.minike.top/Article/details/959771.shtml)
+- 2026-06-29 12:02 - [国台办：两岸空中直航是沟通桥梁，非政治筹码](http://www.blog.kurohicncr.top/Article/details/50529.shtml)

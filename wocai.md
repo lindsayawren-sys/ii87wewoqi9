@@ -1,55 +1,54 @@
-# 南华早报出版人谭卫儿：应营造良好舆论环境，为各领域合作创造有利条件
+# 中办、国办：支持发展绿色低碳、集约循环的算力设施
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-专题：第十二届中国与全球化研讨会 4月26日，第十二届中国与全球化研讨会在北京举办，主题为“创新全球化：新动力与新挑战”。南华早报出版人 / 社长谭卫儿强调，媒体应秉持客观公正的原则，传递中美双方合作的积极信号。同时，她表示，中美两国的媒体应加强交流与合作，搭建沟通的桥梁，让双方民众更好地了解彼此的发展，增进相互理解和信任。 针对论坛核心议题，谭卫儿表示，科技、贸易、气候、健康
+人民财讯4月22日电，4月22日，中共中央办公厅、国务院办公厅《关于更高水平更高质量做好节能降碳工作的意见》对外发布。《意见》提出，加快数字基础设施节能降碳。推进算力、通信基站和机房等基础设施节能降碳改造，推动设备选型、制冷架构、机柜功率密度、系统智能运行策略等优化升级，持续提高单位算力能效和单位信息流量能效。加强算力基础设施项目评估论证和源头把关，严格电能利用效率等能效指标准
 
 ## 正文
 
-专题：第十二届中国与全球化研讨会 4月26日，第十二届中国与全球化研讨会在北京举办，主题为“创新全球化：新动力与新挑战”。
+人民财讯4月22日电，4月22日，中共中央办公厅、国务院办公厅《关于更高水平更高质量做好节能降碳工作的意见》对外发布。
 
-南华早报出版人 / 社长谭卫儿强调，媒体应秉持客观公正的原则，传递中美双方合作的积极信号。
+《意见》提出，加快数字基础设施节能降碳。
 
-同时，她表示，中美两国的媒体应加强交流与合作，搭建沟通的桥梁，让双方民众更好地了解彼此的发展，增进相互理解和信任。
+推进算力、通信基站和机房等基础设施节能降碳改造，推动设备选型、制冷架构、机柜功率密度、系统智能运行策略等优化升级，持续提高单位算力能效和单位信息流量能效。
 
-针对论坛核心议题，谭卫儿表示，科技、贸易、气候、健康等领域的合作，是中美关系中的“亮色”，也是双方共同利益的体现，媒体应加大对这些领域合作成果的报道，引导公众看到中美合作的可能性和必要性。
+加强算力基础设施项目评估论证和源头把关，严格电能利用效率等能效指标准入管理，提高可再生能源消费和余热资源回收利用水平，支持发展绿色低碳、集约循环的算力设施。
 
-她呼吁，中美双方应重视媒体的作用，营造良好的舆论环境，为各领域合作创造有利条件。
-
-新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
-
-责任编辑：李昂
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 11:40 - [壳牌164亿美元收购加拿大ARC Resources，押注蒙特尼页岩气扩张](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:44 - [浙江安吉：跨区域公共法律服务协作站让民族同胞安心就业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:38 - [“鸟中大熊猫”彩鹮首次现身云南云县](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:39 - [东珠生态业绩预告更正不及时，受损股民可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:44 - [“安徽酒王”倪永培迎“交班”考题：儿子神秘“隐退” ，澳籍儿媳悄然走到台前](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:05 - [三亚亚沙会男子沙滩卡巴迪：伊朗队夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:42 - [爱尔兰都柏林大学足球队时隔50年重访韶山：中国一如既往热情友好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:39 - [5100藏冰川午前涨超5% 近期针对“5100”产品开展系统性健康功能研究](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:04 - [OpenAI放宽合作限制，微软独占云时代终结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:39 - [韩国要求七大电商平台修改不公平条款以加强消费者保护](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:01 - [阿联酋宣布自5月1日起退出欧佩克 退出后逐步上调石油产量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:05 - [在民进党高压下 为何一直坚持说“我是中国人” 吕礼诗霸气回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:09 - [外交部：中方敦促美方停止助台巩固所谓“邦交”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:48 - [英伟达参投AI公司Vast Data，估值达300亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:10 - [富瑞：紫金矿业给予“买入”评级 目标价49.10港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:57 - [笔墨承文脉 上海市文史研究馆推出《王劼音卷》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:52 - [买理财险说好随用随取，到期才发现要105岁才能取本金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:44 - [“瑞士制造”不等于瑞士制造？瑞士联邦知识产权局答一财](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:43 - [美国称“布什号”航母已经在中央司令部责任区航行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:01 - [好客山东：每次相遇，都是久别重逢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:08 - [商业航天“超级发射月”继续发力！华宝基金通用航空ETF（159231）逆市冲高逾1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:57 - [“中国高质量发展和中欧经贸合作”专题讲座在布鲁塞尔举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:46 - [亚马逊进军GLP-1医疗领域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 12:06 - [什么样的遗嘱才具备法律效力？丨法律顾问在身边](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:53 - [港股平安好医生一季度高质量开局：净利润增138%，长期主义兑现增长动能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:47 - [中方禁止外资收购Manus项目，外交部回应](http://www.share.kurohicncr.top/Article/details/570286131828.shtml)
-- 2026-06-29 11:53 - [伊朗恢复飞往重要国际目的地航班](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:00 - [印尼列车相撞事故已致14死84伤 总统要求彻查](http://www.share.minike.top/Article/details/760287845680.shtml)
-- 2026-06-29 11:49 - [京津冀三地人民银行组织开展2026年党委理论学习中心组联组学习](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:51 - [国证国际：滨海投资维持“买入”评级 目标价1.43港元](http://www.blog.minike.top/Article/details/554920979268.shtml)
-- 2026-06-29 12:02 - [火箭超级工厂竣工投产 力箭二号运载火箭迈入批量化生产阶段](http://www.blog.minike.top/Article/details/1174815.shtml)
-- 2026-06-29 12:01 - [参与OpenAI手机项目？002475市值一日爆增400亿元！](http://www.share.kurohicncr.top/Article/details/51561478.shtml)
-- 2026-06-29 11:42 - [北京银行：一季度实现归母净利润80.98亿元，同比增长5.55%](http://www.share.minike.top/Article/details/060243625726.shtml)
-- 2026-06-29 11:36 - [快讯：恒指微跌 科指涨0.56% 芯片股活跃 AI应用股高开](http://www.share.kurohicncr.top/Article/details/050007316858.shtml)
-- 2026-06-29 12:05 - [酒价内参4月27日价格发布：青花汾20下跌4元跌幅居前](http://www.blog.minike.top/Article/details/400902257704.shtml)
-- 2026-06-29 11:53 - [《中国新时代文学蓝皮书（2025）》在京发布](http://www.blog.kurohicncr.top/Article/details/771285.shtml)
-- 2026-06-29 12:03 - [国家开放大学将推出劳模工匠主题直播](http://www.share.kurohicncr.top/Article/details/3408280.shtml)
-- 2026-06-29 11:51 - [我国拟修订农业法加快建设农业强国](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:46 - [当广州“烟火气”遇见展会“国际范” “商旅+文化体验”点燃入境消费新热潮](http://www.share.minike.top/Article/details/70044924808.shtml)
-- 2026-06-29 11:39 - [中东硝烟起，巴西“粮仓”承压：化肥暴涨或致下季作物减产](http://www.share.minike.top/Article/details/57886421931.shtml)
+- 2026-06-29 11:47 - [香港创新科技及工业局局长：相信会有更多优秀企业落户港深创科园](http://www.blog.kurohicncr.top/Article/details/5288891.shtml)
+- 2026-06-29 12:00 - [“手工经济”兴起：换一种方式“感受生活”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [威高股份获Wellington Management Group LLP增持约811.35万股 每股作价约3.69港元](http://www.blog.minike.top/Article/details/3461049444.shtml)
+- 2026-06-29 11:43 - [原油市场遭遇“双重压力测试”！交易者如何应对？](http://www.share.kurohicncr.top/Article/details/59251898.shtml)
+- 2026-06-29 11:43 - [接到这类电话，请立即挂断！](http://www.blog.minike.top/Article/details/183175.shtml)
+- 2026-06-29 11:56 - [宁德时代与河南省五家重点国企达成战略合作](http://www.share.minike.top/Article/details/46135.shtml)
+- 2026-06-29 11:54 - [日本反对韩国 MBK Partners 收购牧野铣床制作所](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [英国石油年度股东大会气氛紧张，股东就气候信息透明度发起抗议](http://www.share.kurohicncr.top/Article/details/144373202372.shtml)
+- 2026-06-29 11:44 - [书页间的文明对话：埃及籍教师在长春读懂中埃共鸣](http://www.share.kurohicncr.top/Article/details/913386139.shtml)
+- 2026-06-29 12:10 - [红利主题“双引擎”：华夏基金这两只ETF，正在重新定义2026年的超额收益](http://www.blog.kurohicncr.top/Article/details/19690650817.shtml)
+- 2026-06-29 11:59 - [徽商银行2025年报：资产突破2.3万亿，存贷双增、资产向优](http://www.blog.kurohicncr.top/Article/details/25809324.shtml)
+- 2026-06-29 12:04 - [辽宁持续优化营商环境 2025年审结知识产权案件超1.1万件](http://www.share.minike.top/Article/details/312006.shtml)
+- 2026-06-29 12:01 - [运-20B接英烈回家，为何呼号“荣归50”？](http://www.blog.minike.top/Article/details/2598520.shtml)
+- 2026-06-29 12:08 - [国台办：两岸空中直航是沟通桥梁，非政治筹码](http://www.blog.kurohicncr.top/Article/details/10283058.shtml)
+- 2026-06-29 12:03 - [量化投资先驱马丁·卢克警告勿将交易决策全盘交予人工智能](http://www.share.kurohicncr.top/Article/details/830036097.shtml)

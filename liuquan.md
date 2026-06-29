@@ -1,59 +1,56 @@
-# 我国拟修改水法提升水安全保障能力
+# 杭州一季度GDP6109亿元 同比增长5.6%
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-人大常委会丨我国拟修改水法提升水安全保障能力 新华社北京4月27日电(记者魏弘毅)水法修订草案4月27日提请十四届全国人大常委会第二十二次会议审议。修订草案共9章91条，全面落实提升水安全保障能力的要求。 据悉，水法修改列入十四届全国人大常委会立法规划和2026年度立法工作计划。修订草案主要围绕明确水利事业发展总体要求，加强水资源开发、利用管理，加强水资源配置管理和节约集约利用
+中新网杭州4月22日电(记者 王逸飞)22日，杭州市统计局发布一季度杭州经济运行情况。该市一季度实现生产总值6109亿元，按不变价格计算，同比增长5.6%，比上年全年加快0.4个百分点。 分产业看，杭州第一产业增加值57亿元，增长4.7%；第二产业增加值1346亿元，增长5.3%；第三产业增加值4705亿元，增长5.7%。 一季度，该市规模以上工业增加值达1126亿元，同比增长
 
 ## 正文
 
-人大常委会丨我国拟修改水法提升水安全保障能力 新华社北京4月27日电(记者魏弘毅)水法修订草案4月27日提请十四届全国人大常委会第二十二次会议审议。
+中新网杭州4月22日电(记者 王逸飞)22日，杭州市统计局发布一季度杭州经济运行情况。
 
-修订草案共9章91条，全面落实提升水安全保障能力的要求。
+该市一季度实现生产总值6109亿元，按不变价格计算，同比增长5.6%，比上年全年加快0.4个百分点。
 
-据悉，水法修改列入十四届全国人大常委会立法规划和2026年度立法工作计划。
+分产业看，杭州第一产业增加值57亿元，增长4.7%；第二产业增加值1346亿元，增长5.3%；第三产业增加值4705亿元，增长5.7%。
 
-修订草案主要围绕明确水利事业发展总体要求，加强水资源开发、利用管理，加强水资源配置管理和节约集约利用，加强江河、湖泊管理与保护，规范水工程建设与运行，完善法律责任等方面作出相关修改。
+一季度，该市规模以上工业增加值达1126亿元，同比增长6.3%，比上年全年加快0.3个百分点。
 
-水利部部长李国英在常委会会议上对水法修订草案作说明时介绍，现行水法制定于1988年，2002年作过较大修改，2009年、2016年修改过个别条款。
+分行业看，计算机通信和其他电子设备制造业、汽车制造业、专用设备制造业增加值分别增长9.8%、16.0%和13.6%。
 
-当前水利事业发展面临新的形势，经济社会发展和人民群众生活品质提高对保障水安全提出了更高要求，解决水资源短缺等问题需要更加有力有效的制度举措，有必要在总结水法实施经验的基础上进行修改完善。
+分产业看，数字经济核心产业制造业增加值增长11.7%，高技术制造业增加值增长9.5%。
 
-李国英表示，修订草案在总体思路上主要把握以下三点：一是把党中央、国务院关于保护、节约和合理开发、利用水资源的新的决策部署转化为制度规范，落实和体现新时代治水思路要求。
+同期，杭州服务业增加值为4705亿元，同比增长5.7%，比上年全年加快0.4个百分点，对经济增长的贡献率达77.7%。
 
-二是坚持问题导向，聚焦新形势下保障国家水安全的关键环节和突出问题完善制度设计，增强修改的针对性和实效性。
+其中，营利性服务业增加值增长9.0%，交通运输、仓储和邮政业增加值增长4.8%，住宿餐饮业增加值增长4.1%。
 
 ## 相关推荐
 
-- 2026-06-29 11:38 - [收评：国内期货主力合约涨多跌少 多晶硅跌近7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:38 - [王兆星同志逝世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:02 - [江西省人大常委会原副主任洪礼和一审被判20年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:47 - [高盛：紫金矿业维持“买入”评级 目标价微降至51港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:53 - [2026年度大理海关部门预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:40 - [辽宁岫岩：翠绿山林间 夺目映山红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:00 - [春节档爆冷了？一季度全国电影票房下降51%！万达电影更名后首场大考：扣非净利大降92.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:56 - [天天学习｜书友习近平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:58 - [“国产GPU第一股”摩尔线程，开盘666！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:55 - [2026年3月广东省进口重点商品总值表（人民币值）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:44 - [辽宁省贸促会经贸代表团在科特迪瓦开展经贸交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:39 - [拉卡拉：“炒股”大赚，主业承压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:54 - [航旅纵横：五一叠加春假长线出游升温 上海居国内热门目的地首位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:42 - [新西兰财长称经济复苏延缓 但并未脱离轨道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:47 - [舰艇留言板上贴满“望台湾早日回归” 吕礼诗：这个愿望定要成真](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:02 - [1-3月中国销售彩票1439.59亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:07 - [杭州银行：2025年末不良贷款率0.76%，与上年末持平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:03 - [世界地球日山西自然博物馆开启系列展览探寻地球血脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:11 - [京雄快线预计2026年下半年开通运营](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:00 - [北京多措并举推进扬尘治理 提高城市清洁度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:53 - [公用手机卡频繁被盗 窃贼为什么不偷手机只偷卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:52 - [2025年贵州法院受理知识产权案件8608件审结7699件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:48 - [抖音整治AI不当内容，重点处置利用AI技术换脸、盗声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:54 - [上海定制何以走红？外籍人士为何偏爱这份“专属质感”](http://www.blog.minike.top/Article/details/685995835319.shtml)
-- 2026-06-29 12:03 - [中国黄河流域137处国家级自然保护区优良率达99.27％](http://www.share.kurohicncr.top/Article/details/466318246392.shtml)
-- 2026-06-29 11:37 - [豆粕：周期无声，趋势有痕 —— 豆粕多空拉锯](http://www.share.minike.top/Article/details/82809391738.shtml)
-- 2026-06-29 11:47 - [“茶和天下·雅集”中韩茶文化交流会在韩国举办](http://www.blog.kurohicncr.top/Article/details/436816921.shtml)
-- 2026-06-29 11:50 - [伪满皇宫博物院举办吉林省首个海事文化科普展](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:03 - [科创综指，历史新高！](http://www.share.kurohicncr.top/Article/details/69784.shtml)
-- 2026-06-29 12:04 - [2026北京国际花展开幕 荷兰景观设计师：中国花卉产业发展速度非常快](http://www.blog.kurohicncr.top/Article/details/045296.shtml)
-- 2026-06-29 11:42 - [CIPS资金托管行扩容至14家 中信银行、中银香港等四家入列](http://www.share.kurohicncr.top/Article/details/796542771.shtml)
-- 2026-06-29 11:43 - [真香！这枚刚出炉“果仁列巴”能刷300余城市公交地铁](http://www.blog.minike.top/Article/details/92743002.shtml)
-- 2026-06-29 11:44 - [韩国总统府：谷歌将在韩国新建人工智能园区](http://www.blog.minike.top/Article/details/31500930276.shtml)
-- 2026-06-29 11:44 - [2026年芒市海关综合技术服务中心预算公开](http://www.share.kurohicncr.top/Article/details/622301.shtml)
-- 2026-06-29 11:46 - [ARR季度环比飙升300%，迅策科技迎戴维斯双击](http://www.share.kurohicncr.top/Article/details/85121687711.shtml)
-- 2026-06-29 11:50 - [一季度新疆外送电量同比增长23.42% 创历史同期新高](http://www.blog.kurohicncr.top/Article/details/12985171753.shtml)
-- 2026-06-29 12:05 - [丰田3月全球销量同比下降7.3%，中国销量下降8%](http://www.blog.kurohicncr.top/Article/details/524077.shtml)
-- 2026-06-29 12:05 - [珠光控股：进一步延迟刊发2025年全年业绩](http://www.share.kurohicncr.top/Article/details/93377286776.shtml)
+- 2026-06-29 11:45 - [（乡村行·看振兴）茶旅融合叠加整村运营 大别山茶村焕新生](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [一季度市场监管部门查处商标侵权、假冒专利案件0.7万件](http://www.share.minike.top/Article/details/143473268.shtml)
+- 2026-06-29 11:42 - [八达岭夜长城将于4月底在京亮相 升级沉浸式互动体验](http://www.share.kurohicncr.top/Article/details/5022258070.shtml)
+- 2026-06-29 12:03 - [军号再次吹响，这次是接他们回家](http://www.share.minike.top/Article/details/70989269.shtml)
+- 2026-06-29 12:10 - [煤炭股午后逆势上扬 兖煤澳大利亚及兖矿能源均涨超4%](http://www.blog.minike.top/Article/details/74014499.shtml)
+- 2026-06-29 12:11 - [文件显示SpaceX获200亿美元过桥贷款，对其债务进行再融资](http://www.blog.kurohicncr.top/Article/details/37679025.shtml)
+- 2026-06-29 12:07 - [浙江行刑联动破题商业秘密保护“三难”](http://www.blog.minike.top/Article/details/74311921027.shtml)
+- 2026-06-29 11:56 - [社保基金重仓+机构高关注股来了（附名单）](http://www.share.minike.top/Article/details/857232997480.shtml)
+- 2026-06-29 11:44 - [广州黄埔：“AI+高端智造”抢占生物医药产业新高地](http://www.share.kurohicncr.top/Article/details/343955065.shtml)
+- 2026-06-29 11:58 - [中新健康｜日常做好这些事，可有效降低肿瘤发生风险](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [英特尔股价盘后飙升 强劲业绩展望显示人工智能支出开始奏效](http://www.share.kurohicncr.top/Article/details/537517069.shtml)
+- 2026-06-29 11:54 - [目标落空、渠道收缩、大额分红，迎驾贡酒如何挽救颓势？](http://www.share.minike.top/Article/details/252672202.shtml)
+- 2026-06-29 11:53 - [述评：数字时代 浙江书香何处寻？](http://www.share.minike.top/Article/details/88967.shtml)
+- 2026-06-29 12:05 - [牛弹琴：伊朗反击了](http://www.share.minike.top/Article/details/446464.shtml)
+- 2026-06-29 12:09 - [美媒：特朗普称未来36至72小时内“可能”与伊朗谈判](http://www.blog.kurohicncr.top/Article/details/717000135.shtml)

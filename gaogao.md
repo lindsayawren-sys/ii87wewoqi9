@@ -1,61 +1,59 @@
-# 互联网广告要跳出“流量至上”误区
+# 国家国际发展合作署、中国气象局与世界气象组织签署关于推动落实全球发展倡议的谅解备忘录
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-广州日报评论员 付迎红 近期，市场监管总局印发《关于深化互联网广告生态治理工作的通知》(以下简称《通知》)和《互联网广告市场秩序整治重点任务》(以下简称《重点任务》)，对深化互联网广告生态治理工作作出全面部署，同时决定开展为期半年的互联网广告市场秩序整治行动。 众所周知，广告投放是当前互联网平台实现流量变现的主要方式之一。作为互联网经济的重要一环，广告存在有其必要性，但当下部分
+中新网北京4月22日电(陈溯 刘梦青)22日，在全球共享发展行动论坛第三届高级别会议气象分论坛上，国家国际发展合作署、中国气象局与世界气象组织共同签署关于推动落实全球发展倡议的谅解备忘录。 三方愿在全球发展倡议框架下，促进团结、平等、均衡、普惠的全球发展伙伴关系，加速落实联合国2030年可持续发展议程，支持推动构建人类命运共同体。 气候变化和绿色发展是全球发展倡议八大重点合作领
 
 ## 正文
 
-广州日报评论员 付迎红 近期，市场监管总局印发《关于深化互联网广告生态治理工作的通知》(以下简称《通知》)和《互联网广告市场秩序整治重点任务》(以下简称《重点任务》)，对深化互联网广告生态治理工作作出全面部署，同时决定开展为期半年的互联网广告市场秩序整治行动。
+中新网北京4月22日电(陈溯 刘梦青)22日，在全球共享发展行动论坛第三届高级别会议气象分论坛上，国家国际发展合作署、中国气象局与世界气象组织共同签署关于推动落实全球发展倡议的谅解备忘录。
 
-众所周知，广告投放是当前互联网平台实现流量变现的主要方式之一。
+三方愿在全球发展倡议框架下，促进团结、平等、均衡、普惠的全球发展伙伴关系，加速落实联合国2030年可持续发展议程，支持推动构建人类命运共同体。
 
-作为互联网经济的重要一环，广告存在有其必要性，但当下部分平台却陷入“利字当头”误区，滥用广告发布权。
+气候变化和绿色发展是全球发展倡议八大重点合作领域之一。
 
-打开一些手机App，时不时会刷到弹窗广告，想关闭却找不到按钮；一些广告营销逐渐走偏，靠低俗炒作抖机灵、博眼球，“翻车”事件屡见不鲜；还有的滥用人工智能生成广告却不进行标注，给人以强烈的“欺诈”观感……这些无孔不入的互联网广告好比网络世界的“牛皮癣”，干扰信息秩序、影响用户体验，令广大网友不堪其扰。
+三方将加强战略协作，开展政策对话，分享最佳实践，通过联合开展能力建设、专业知识技术和经验分享、人员交流培训等形式，共同探索在加强早期预警系统、水文气象灾害风险减缓、气候变化适应和绿色发展等方面务实合作，进一步落实联合国全民早期预警倡议，助力提升发展中国家水文气象能力，为推动全球可持续发展贡献力量。
 
-一些低质甚至违法违规互联网广告存在已久，难以彻底清除，核心症结在于成本低、收益高。
+全球发展倡议提出5年来，中方始终践行构建人类命运共同体理念，凝聚发展共识，开展务实合作，目前倡议的落实机制已有130多个国家和国际组织参加，成为广受欢迎的国际公共产品。
 
-相较于广告投放带来的巨额利益，其违法成本明显偏低，这让部分品牌和平台有恃无恐，宁愿支付低额罚单，也要在法律边缘反复试探，不肯放弃嘴边这块唾手可得的利益蛋糕。
+中方已开展应对气候变化和绿色发展研修班等300余期；向有关国家分享防灾减灾技术、经验和成果，支持搭建救灾应急指挥和研判支持系统，帮助加强相关能力建设。
 
-除此之外，技术发展日新月异、广告场景日渐多元，客观上增加了监管、取证难度，以致不良广告“野火烧不尽，春风吹又生”。
+中国气象局持续推动落实全球发展倡议，发布全民早期预警中国方案“妈祖(MAZU)”，依托28个世界气象组织国际或区域中心向全球提供气象公共产品，分享早期预警和防灾减灾经验，共建气象早期预警业务平台，累计为超过1.7万名国际学员提供培训。
 
-治理互联网广告乱象绝非“一招鲜”就能见效，而是一项需要长期攻坚、久久为功的系统工程。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 11:49 - [科创综指，历史新高！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 12:04 - [2026北京国际花展开幕 荷兰景观设计师：中国花卉产业发展速度非常快](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:00 - [CIPS资金托管行扩容至14家 中信银行、中银香港等四家入列](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:42 - [真香！这枚刚出炉“果仁列巴”能刷300余城市公交地铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:51 - [韩国总统府：谷歌将在韩国新建人工智能园区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:36 - [2026年芒市海关综合技术服务中心预算公开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:57 - [ARR季度环比飙升300%，迅策科技迎戴维斯双击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:56 - [一季度新疆外送电量同比增长23.42% 创历史同期新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:52 - [丰田3月全球销量同比下降7.3%，中国销量下降8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:54 - [珠光控股：进一步延迟刊发2025年全年业绩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:47 - [宁夏闽宁镇：短袖订单迎旺季 服装企业赶工忙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:58 - [启境GT7亮相北京国际车展，首发搭载华为乾崑全新一代智能技术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:41 - [能源高价推升通胀风险，英债收益率走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:52 - [文旅部：将督促属地集中整治龙虎山、长白山、稻城亚丁等景区摆渡车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:51 - [谷歌DeepMind首席执行官访韩，会见现代汽车和LG集团负责人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:58 - [文件显示SpaceX获200亿美元过桥贷款，对其债务进行再融资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:10 - [浙江行刑联动破题商业秘密保护“三难”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:58 - [社保基金重仓+机构高关注股来了（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 12:01 - [广州黄埔：“AI+高端智造”抢占生物医药产业新高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:54 - [中新健康｜日常做好这些事，可有效降低肿瘤发生风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:58 - [英特尔股价盘后飙升 强劲业绩展望显示人工智能支出开始奏效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:03 - [目标落空、渠道收缩、大额分红，迎驾贡酒如何挽救颓势？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:56 - [述评：数字时代 浙江书香何处寻？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:02 - [牛弹琴：伊朗反击了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:02 - [美媒：特朗普称未来36至72小时内“可能”与伊朗谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 12:00 - [能定位会判断 AI乒乓机器人击败人类高手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:02 - [第十三批在韩中国人民志愿军烈士遗骸在沈阳安葬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:57 - [证监会出手！4只A股被立案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:54 - [中肯政商界人士认为零关税举措将为两国合作带来新机遇](http://www.share.minike.top/Article/details/469335.shtml)
-- 2026-06-29 11:58 - [2026广东时装周（春季）以时尚之力赋能产业升级](http://www.blog.minike.top/Article/details/80029220.shtml)
-- 2026-06-29 11:42 - [如何防控蚊媒传染病？专家：清积水、灭成蚊、防叮咬](http://www.share.minike.top/Article/details/09201716.shtml)
-- 2026-06-29 12:04 - [中国心连心化肥将于7月28日派发末期股息每股0.32元](http://www.share.kurohicncr.top/Article/details/39733095.shtml)
-- 2026-06-29 11:42 - [澳大利亚拟对科技巨头征收约2%税费 除非达成本地新闻付费协议](http://www.share.minike.top/Article/details/425948.shtml)
-- 2026-06-29 11:53 - [美国政府：白宫晚宴枪手意图刺杀特朗普](http://www.share.kurohicncr.top/Article/details/81228.shtml)
-- 2026-06-29 11:56 - [秦农银行国有持股占比首超50%](http://www.share.kurohicncr.top/Article/details/072543118.shtml)
-- 2026-06-29 11:59 - [“十五五”中国将发射风云四号D星 为共建“一带一路”国家提供服务](http://www.share.kurohicncr.top/Article/details/492531.shtml)
-- 2026-06-29 11:36 - [华宝基金红利风向标：高股息“倒车接人”？关注低波策略配置价值](http://www.blog.kurohicncr.top/Article/details/405254.shtml)
-- 2026-06-29 11:57 - [2026年“汉语桥”比利时赛区决赛举行](http://www.blog.minike.top/Article/details/173833.shtml)
-- 2026-06-29 11:40 - [张雪发视频回应力挺余承东，称“拒绝了半个亿的商务合作”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [国产芯片强势逼空，华宝基金科创芯片ETF（589190）猛攻5%，量价双高！国产替代主线重燃，成份股批量新高](http://www.blog.minike.top/Article/details/45797.shtml)
-- 2026-06-29 11:59 - [OpenAI进军手机！“牵手”立讯精密！电子板块领涨两市，华宝基金电子ETF（515260）猛拉4.14%，续创历史新高](http://www.share.minike.top/Article/details/328033728523.shtml)
-- 2026-06-29 11:39 - [上海家化发布2026年一季报：营业收入17.95亿同比增长5.4% 归母净利润2.22亿同比增长2.3%](http://www.share.kurohicncr.top/Article/details/854885.shtml)
-- 2026-06-29 11:38 - [德银：迅策目标价上调至351港元 维持“买入”评级](http://www.blog.minike.top/Article/details/58111.shtml)
+- 2026-06-29 12:09 - [伊朗最高领袖、总统、议长、外长同日喊话](http://www.blog.kurohicncr.top/Article/details/17688918524.shtml)
+- 2026-06-29 11:48 - [【香港故事】方寸之间 书中蝴蝶——世界读书日走近藏书票](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [三亚亚沙会沙排比赛首日：传统强队集体“速胜”](http://www.blog.minike.top/Article/details/767161.shtml)
+- 2026-06-29 12:06 - [放量大跌！A股多空博弈升级，投资者该怎么办？](http://www.blog.minike.top/Article/details/92178041.shtml)
+- 2026-06-29 11:52 - [建发物业获FIDELITY FUNDS增持23.9万股 每股作价约2.89港元](http://www.blog.minike.top/Article/details/00277722858.shtml)
+- 2026-06-29 11:59 - [华裔留学生昆明共读书：在文字中“寻根” 在交流中传承](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:10 - [新疆：升级版“新东方快车”启程 海内外游客共赴丝路之旅](http://www.blog.kurohicncr.top/Article/details/3834424.shtml)
+- 2026-06-29 12:04 - [南宁加快打造面向东盟的“新茶饮之都”](http://www.blog.kurohicncr.top/Article/details/526987973.shtml)
+- 2026-06-29 11:47 - [特斯拉第三代人形机器人预计年中发布，三季度启动正式投产](http://www.blog.minike.top/Article/details/38316.shtml)
+- 2026-06-29 11:44 - [小城游火了！这些“小而美”的城市性价比高、体验感强](http://www.blog.minike.top/Article/details/04191683271.shtml)
+- 2026-06-29 12:03 - [抗美援朝老战士后代带糖迎接志愿军英烈回家：我想让他们尝一下 我们今天的甜滋滋](http://www.blog.minike.top/Article/details/00966.shtml)
+- 2026-06-29 12:04 - [一习话丨“要提倡多读书 建设书香社会”](http://www.share.kurohicncr.top/Article/details/17383.shtml)
+- 2026-06-29 11:58 - [黑龙江“换心人”健康存活32年 刷新亚洲纪录](http://www.share.minike.top/Article/details/8563974.shtml)
+- 2026-06-29 11:49 - [中新控股拟折让约19.81%配售最多3612.2万股 净筹约1427.7万港元](http://www.blog.kurohicncr.top/Article/details/46261.shtml)
+- 2026-06-29 12:11 - [一季度江西外贸进出口增长16% 汽车出口大增](http://www.share.minike.top/Article/details/266489941659.shtml)

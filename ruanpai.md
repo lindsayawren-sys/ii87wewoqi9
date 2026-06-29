@@ -1,53 +1,46 @@
-# 珠光控股：进一步延迟刊发2025年全年业绩
+# 美媒：特朗普称未来36至72小时内“可能”与伊朗谈判
 
-> 更新时间：2026-06-29 12:06:05 UTC+8
+> 更新时间：2026-06-29 12:12:04 UTC+8
 
 ## 摘要
 
-珠光控股（01176）发布公告，于本公告日期，公司独立估值师及核数师未能完成彼等各自于2025财政年度的估值及审计工作，包括但不限于以下方面：（1）投资物业、发展中物业及完成待售物业；（2）贸易应收款项及其他应收款项的预期信贷亏损评估；（3）集团综合财务报表所载若干重大项目的审计确认书。因此，年末财务报表结算过程及审计程序将须进一步延迟，而核数师可能无法于2026年四月底前完成
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社华盛顿4月22日电 据《纽约邮报》22日报道，美国总统特朗普称未来36至72小时内“可能”与伊朗举行和平谈判。（完）责任编辑：宋雅芳
 
 ## 正文
 
-珠光控股（01176）发布公告，于本公告日期，公司独立估值师及核数师未能完成彼等各自于2025财政年度的估值及审计工作，包括但不限于以下方面：（1）投资物业、发展中物业及完成待售物业；（2）贸易应收款项及其他应收款项的预期信贷亏损评估；（3）集团综合财务报表所载若干重大项目的审计确认书。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-因此，年末财务报表结算过程及审计程序将须进一步延迟，而核数师可能无法于2026年四月底前完成审核2025年全年业绩，而2025年全年业绩的刊发将须进一步延迟。
+新华社华盛顿4月22日电 据《纽约邮报》22日报道，美国总统特朗普称未来36至72小时内“可能”与伊朗举行和平谈判。
 
-公司正与核数师紧密合作，务求尽快解决未决事宜及完成2025年全年业绩的审核。
-
-于本公告日期及考虑到目前状况，预期2025年全年业绩将于2026年5月15日前刊发，但须待与核数师协定的所有审核工作完成后，方可作实。
-
-责任编辑：卢昱君
+（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 11:59 - [稳面积 提单产 夯实粮食稳产丰产基础](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:57 - [直播海报：国务院政策例行吹风会：介绍《关于推进服务业扩能提质的意见》有关情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:39 - [非法募资314亿余元 刘必安等十六人非法集资案一审宣判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:51 - [中共中央政治局召开会议 分析研究当前经济形势和经济工作 中共中央总书记习近平主持会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:03 - [华裔Z视界｜在行走间读懂中国文化 华裔青年爱上中式养生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:37 - [日元回吐部分涨幅 此前日本央行行长未发出明确的加息信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:43 - [今年“五一”假期小客车上高速继续免收通行费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:36 - [《爱情没有神话》开播 唐嫣出演亦舒笔下“独身女人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:58 - [姚高员辞去杭州市市长职务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:39 - [法学大先生·张晋藩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:55 - [美国加州亿万富豪税已集齐请愿签名，获准纳入公投议程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:54 - [绍兴越城：以“三抓实”落实统战工作责任制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:52 - [知情人士：美官员将讨论上周停火延期后 是否恢复对伊朗的轰炸行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 12:04 - [中国首次记录高魔芋开花 西双版纳植物园上演“巨花”奇观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:05 - [Swift数据显示 美元3月份在国际交易中占比升至51.1%的新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:43 - [海尔智家获Pzena Investment Management, LLC增持180.92万股 每股作价约20.99港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:10 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:01 - [华勤技术首挂上市 早盘高开13.13%公司为全栈智能产品ODM平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:04 - [ABB上调业绩指引、股价一度涨超5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 12:00 - [突发！香港证监会与普华永道就恒大财务造假达成赔偿协议，10亿港元赔付受损股东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 12:01 - [大美边疆看我家丨云南漾濞：来“二月十九街”买扫帚啦！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:44 - [A股收评：超4000只个股飘绿，三大指数集体收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:50 - [隔夜逼近1.2%、资金利率持续倒挂，超宽松还能持续多久？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:53 - [一季度石家庄海关签发RCEP原产地证书2532份](http://www.share.kurohicncr.top/Article/details/968887787708.shtml)
-- 2026-06-29 12:03 - [2粒药错写成21粒，失误何以“一路绿灯”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [氧化铝：惊弓之鸟还是风雨欲来？](http://www.share.minike.top/Article/details/8379603977.shtml)
-- 2026-06-29 12:02 - [数智赋能民间文艺传承 2026“世界艺术和科技对话”上海活动举办](http://www.share.minike.top/Article/details/289272364739.shtml)
-- 2026-06-29 11:50 - [喀什至吉尔吉斯斯坦奥什国际客运航线成功首航](http://www.share.kurohicncr.top/Article/details/841214936.shtml)
-- 2026-06-29 12:00 - [欧洲股市小幅攀升，传伊朗提出和平提议](http://www.share.minike.top/Article/details/3169763356.shtml)
-- 2026-06-29 11:49 - [央行上海总部：一季度上海社会融资规模增加4743亿元 同比多增138亿元](http://www.blog.kurohicncr.top/Article/details/195822210589.shtml)
-- 2026-06-29 11:50 - [白宫晚宴枪击最新调查进展：被捕枪手为一名家教，曾留下字条](http://www.blog.minike.top/Article/details/83890.shtml)
-- 2026-06-29 11:57 - [OEXN:黄金震荡观望央行信号](http://www.share.kurohicncr.top/Article/details/550959.shtml)
-- 2026-06-29 12:00 - [“五一”假日期间海南省天气总体较好 适宜出游](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [绿城的"体外"生意，撑不住了](http://www.blog.minike.top/Article/details/4002019.shtml)
-- 2026-06-29 12:05 - [油价冲击波袭来，全球消费品巨头面临定价压力测试](http://www.blog.kurohicncr.top/Article/details/16895934.shtml)
-- 2026-06-29 11:46 - [全国首批米粉“批次检验（检疫）”改革试点落地江西抚州](http://www.blog.kurohicncr.top/Article/details/6830197372.shtml)
-- 2026-06-29 11:54 - [五一假期注意出行安全 南方多地有大范围降雨](http://www.share.minike.top/Article/details/28990906.shtml)
-- 2026-06-29 11:55 - [江河与共丨九三学社中央主席武维华：“既找病灶又开药方” 九三学社助力长江生态保护](http://www.share.kurohicncr.top/Article/details/852623409.shtml)
+- 2026-06-29 12:10 - [原万家基金董事长方一天，今日被提名华安基金总经理](http://www.share.minike.top/Article/details/28086.shtml)
+- 2026-06-29 11:44 - [成都银行：2025年末不良贷款率0.68%，较上年末上升0.02个百分点](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [美国航空因燃油价格上涨下调展望](http://www.blog.kurohicncr.top/Article/details/547753081.shtml)
+- 2026-06-29 11:55 - [以军称黎巴嫩真主党“违反停火协议”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [欧元区消费者信心下滑 凸显消费风险](http://www.share.minike.top/Article/details/357625.shtml)
+- 2026-06-29 11:56 - [科尔沁沙地核心区：人工铺设草方格固沙](http://www.blog.minike.top/Article/details/010782095.shtml)
+- 2026-06-29 11:51 - [中方回应美方退税举措：是在纠正错误道路上的有益一步](http://www.blog.minike.top/Article/details/16468181124.shtml)
+- 2026-06-29 12:08 - [传习录丨读书，总书记倡导的生活方式](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [在第57个世界地球日，“最美自然守护者”讲述绿色发展故事](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [胃不适、腰背酸、血糖高？警惕“癌王”发出的预警信号](http://www.share.minike.top/Article/details/6144920313.shtml)
+- 2026-06-29 11:43 - [“6.0%”的浙江看点](http://www.blog.kurohicncr.top/Article/details/0624606.shtml)
+- 2026-06-29 11:54 - [特朗普称美国“已完全控制了霍尔木兹海峡”](http://www.share.kurohicncr.top/Article/details/02479718.shtml)
+- 2026-06-29 12:09 - [中际旭创市值破万亿 老实业家如何逆袭硅谷](http://www.share.kurohicncr.top/Article/details/67793736.shtml)
+- 2026-06-29 11:42 - [俄总统新闻秘书：普京愿随时与泽连斯基会面但须“富有成效”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:53 - [“四季新韵·感知重庆”境外媒体重庆行交流活动启动](http://www.blog.minike.top/Article/details/308201.shtml)
