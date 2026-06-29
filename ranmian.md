@@ -1,60 +1,59 @@
-# “券业一哥”中信证券绩后高调领涨，华宝基金券商ETF（512000）狂飙5.48%！创业板人工智能ETF再创历史新高
+# 河南两项目入选2025年度全国十大考古新发现
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-周五（4月10日）A股主要指数携手上涨，沪指一度重回4000点上方，创业板指放量大涨3.78%，刷新2021年底以来收盘新高。沪深京三市成交额23378亿元，较昨日放量1903亿元。 盘面上，电力设备板块领涨两市，宁德时代登顶A股吸金榜，覆盖创业板+科创板高成长龙头的硬科技宽基——双创50ETF华宝（588330）场内涨幅盘中飙涨超4.1%，创历史新高！光模块双雄中际旭创、新易
+中新网郑州4月29日电 (记者 韩章云)2025年度全国十大考古新发现29日在北京揭晓，河南新郑裴李岗遗址、河南郑州商城遗址成功入选。 裴李岗遗址 裴李岗遗址位于郑州新郑市，包含旧石器时代晚期和裴李岗文化时期的文化遗存，是探索旧新石器时代过渡的重要区域。 2018年至2025年，中国社会科学院考古研究所联合郑州市文物考古研究院在裴李岗遗址开展联合考古工作。本轮发掘工作取得了一系
 
 ## 正文
 
-周五（4月10日）A股主要指数携手上涨，沪指一度重回4000点上方，创业板指放量大涨3.78%，刷新2021年底以来收盘新高。
+中新网郑州4月29日电 (记者 韩章云)2025年度全国十大考古新发现29日在北京揭晓，河南新郑裴李岗遗址、河南郑州商城遗址成功入选。
 
-沪深京三市成交额23378亿元，较昨日放量1903亿元。
+裴李岗遗址 裴李岗遗址位于郑州新郑市，包含旧石器时代晚期和裴李岗文化时期的文化遗存，是探索旧新石器时代过渡的重要区域。
 
-盘面上，电力设备板块领涨两市，宁德时代登顶A股吸金榜，覆盖创业板+科创板高成长龙头的硬科技宽基——双创50ETF华宝（588330）场内涨幅盘中飙涨超4.1%，创历史新高！
+2018年至2025年，中国社会科学院考古研究所联合郑州市文物考古研究院在裴李岗遗址开展联合考古工作。
 
-光模块双雄中际旭创、新易盛股价继续向上突破，双创AI赛道规模、流动性第一*的创业板人工智能ETF华宝（159363）场内涨幅最高上探3.31%，再创上市新高！
+本轮发掘工作取得了一系列突破性成果，系统揭示了中原先民在距今3.6万年至1.4万年、8000年至7600年间的技术演进、生计变革与社会复杂化进程。
 
-券商板块久违发力，“券业一哥”中信证券绩后高调领涨，涨幅一度超9%，规模近350亿元的顶流券商ETF（512000）场内涨幅摸高5.48%，全天成交额超20亿元，量价齐升。
+考古人员在遗址西部发现面积超过5万平方米的旧石器时代晚期遗存，年代跨度从距今约3.6万年延续至1.4万年前。
 
-港股国泰君安国际一度涨40%，A股数字货币概念爆发，同类规模最大*的金融科技ETF华宝（159851）场内上扬3.23%，资金前一日大买超1亿份后，周五继续涌入超5800万份。
+裴李岗遗址旧石器时代晚期连续文化层，建立中原地区旧石器时代晚期遗存年代标尺。
 
-港股三大指数集体收红，港股硬科技表现抢眼，直指港股芯片超级周期——同类规模最大、全市场首只聚焦“港股芯片”产业链的港股通信息技术ETF华宝（159131）场内价格盘中拉升2.5%，收涨近1%，日k线自本轮低点3月31日以来，或已走出震荡上行台阶。
+裴李岗文化阶段遗存，揭示8000年前先民生动丰富的定居生活图景。
 
-中信证券认为，港股有望在4-5月迎来估值扩张行情*。
+发现红烧土柱和木骨泥墙墙面，是最早的红烧土房屋建筑遗迹，为研究仰韶时期红烧土建筑的起源提供了重要线索。
 
 ## 相关推荐
 
-- 2026-06-30 05:34 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-30 05:27 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-30 05:26 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-30 05:27 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-30 05:31 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-30 05:17 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-30 05:28 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-30 05:36 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-30 05:23 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-30 05:29 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-30 05:14 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 05:30 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-30 05:32 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-30 05:28 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-30 05:24 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-30 05:24 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 05:26 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-30 05:33 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-30 05:29 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-30 05:31 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-30 05:34 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-30 05:33 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-30 05:44 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-30 05:33 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-30 05:38 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-30 05:20 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 05:18 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:14 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/16231523810.shtml)
-- 2026-06-30 05:16 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/7341407.shtml)
-- 2026-06-30 05:15 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/73069484.shtml)
-- 2026-06-30 05:21 - [流金岁月](http://www.share.kurohicncr.top/Article/details/4640420.shtml)
-- 2026-06-30 05:26 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/2226711.shtml)
-- 2026-06-30 05:21 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/12252277190.shtml)
-- 2026-06-30 05:38 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/32045411.shtml)
-- 2026-06-30 05:20 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/720681.shtml)
-- 2026-06-30 05:21 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/80914675371.shtml)
-- 2026-06-30 05:18 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/568403.shtml)
-- 2026-06-30 05:30 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/640682634.shtml)
-- 2026-06-30 05:39 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/525609.shtml)
-- 2026-06-30 05:24 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/838281070.shtml)
-- 2026-06-30 05:23 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/0334628.shtml)
-- 2026-06-30 05:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/6658893.shtml)
+- 2026-06-30 05:40 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/466851508.shtml)
+- 2026-06-30 05:21 - [扫黑风暴](https://www.blog.minike.top/Article/details/765816.shtml)
+- 2026-06-30 05:37 - [巴拉圭先进球了](https://www.share.minike.top/Article/details/66770826389.shtml)
+- 2026-06-30 05:36 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/540192.shtml)
+- 2026-06-30 05:43 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/025349487027.shtml)
+- 2026-06-30 05:33 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/818603.shtml)
+- 2026-06-30 05:18 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/39993601543.shtml)
+- 2026-06-30 05:41 - [赵今麦电影开端客串路透](http://www.blog.kurohicncr.top/Article/details/24997.shtml)
+- 2026-06-30 05:43 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/538351841285.shtml)
+- 2026-06-30 05:19 - [为什么会有「念旧」的心理？](http://www.share.minike.top/Article/details/82737.shtml)
+- 2026-06-30 05:21 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/00466.shtml)
+- 2026-06-30 05:24 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/0447154546.shtml)
+- 2026-06-30 05:41 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/10985788400.shtml)
+- 2026-06-30 05:38 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/615632.shtml)
+- 2026-06-30 05:45 - [这一刀 会很帅](https://www.share.minike.top/Article/details/1996384.shtml)

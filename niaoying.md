@@ -1,61 +1,60 @@
-# 甘肃陇西：“太空育种+智能管护”赋能中药材种子
+# 锂电池板块业绩炸裂，多家公司净利涨超1000%，最高涨超2297%
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新网兰州4月12日电 (记者 闫姣 高莹)从搭乘卫星遨游太空，到在自动化车间经历千挑万选，再到住进恒温恒湿的“智能家居”、乐享“机器人保姆”，在“千年药乡”甘肃定西市陇西县，作为道地药材“芯片”的种子正被赋予科技力量。 从太空归来，静待“开盲盒” 在陇西县农业技术推广中心的试验田里，药农忙着移栽中药材幼苗。“这些是2024年从太空返回的中药材种子，去年育成幼苗，今年移栽到地里
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨董鹏 编辑丨张星 上游锂电材料环节，很可能会成为一季度盈利弹性最好的行业。 4月27日晚间，天齐锂业、融捷股份、天赐材料与湖南裕能发布一季报，当期这四家公司营收均出现不同幅度的提升，当期归母净利润增幅更是全部超过1000%。 “受益于新能源产业发展与下游需求增长等多重利好因素驱动，今年一季度公司主要锂
 
 ## 正文
 
-中新网兰州4月12日电 (记者 闫姣 高莹)从搭乘卫星遨游太空，到在自动化车间经历千挑万选，再到住进恒温恒湿的“智能家居”、乐享“机器人保姆”，在“千年药乡”甘肃定西市陇西县，作为道地药材“芯片”的种子正被赋予科技力量。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-从太空归来，静待“开盲盒” 在陇西县农业技术推广中心的试验田里，药农忙着移栽中药材幼苗。
+记者丨董鹏 编辑丨张星 上游锂电材料环节，很可能会成为一季度盈利弹性最好的行业。
 
-“这些是2024年从太空返回的中药材种子，去年育成幼苗，今年移栽到地里。
+4月27日晚间，天齐锂业、融捷股份、天赐材料与湖南裕能发布一季报，当期这四家公司营收均出现不同幅度的提升，当期归母净利润增幅更是全部超过1000%。
 
-”该中心高级农艺师张金文12日在田垄间接受中新网记者采访时说。
+“受益于新能源产业发展与下游需求增长等多重利好因素驱动，今年一季度公司主要锂产品的销售均价较上年同期均明显增长，使得营业收入及毛利额较上年同期大幅增长。
 
-张金文表示，太空特殊环境下的宇宙射线、微重力等条件，可能诱导种子基因发生变异。
+”天齐锂业指出。
 
-“结果可能向好，提升抗病性、提高药效成分，也可能变差。
+进一步统计更多样本，还可以看出在2025年同期低基数，以及碳酸锂、六氟磷酸锂等锂电材料涨价的共同推动下，相关上市公司集体迎来“困境反转”。
 
-”她期待，从中选育出产量高、药效好、抗逆性强的新品种，而这一过程或许需要多年时间。
+仅以Wind划分的锂电池板块为例，已经披露一季报的60家上市公司，当期归母净利润平均增速便达到209.4%，并且在锂矿、锂盐、正极材料、电解液和铜箔等细分领域，均出现了盈利增长超过10倍的企业，其中中一科技以超2297%的增幅暂时领先。
 
-这片约300平方米的试验田，植株行距远大于常规大田，只为让每一株种苗的性状都能充分展现，便于科研人员精准观察和记录。
+低基数+涨价=高增速 位于产业链最上游的锂矿和锂盐，是今年一季度盈利增幅最突出的行业之一。
 
 ## 相关推荐
 
-- 2026-06-30 05:25 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-30 05:39 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-30 05:24 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 05:30 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-30 05:39 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-30 05:39 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-30 05:20 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-30 05:24 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-30 05:21 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-30 05:18 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-30 05:24 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-30 05:26 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-30 05:27 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-30 05:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-30 05:21 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-30 05:47 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-30 05:27 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-30 05:26 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-30 05:21 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-30 05:43 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-30 05:25 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 05:31 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-30 05:34 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-30 05:26 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 05:45 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-30 05:45 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-30 05:26 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-30 05:41 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-30 05:32 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:25 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/88260.shtml)
-- 2026-06-30 05:30 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/31362.shtml)
-- 2026-06-30 05:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/297132685.shtml)
-- 2026-06-30 05:23 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/344821378.shtml)
-- 2026-06-30 05:38 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/03511251098.shtml)
-- 2026-06-30 05:24 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/857846.shtml)
-- 2026-06-30 05:23 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/839774958.shtml)
-- 2026-06-30 05:41 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/8459538808.shtml)
-- 2026-06-30 05:38 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/273145218.shtml)
-- 2026-06-30 05:22 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/54940047556.shtml)
-- 2026-06-30 05:30 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/227559608.shtml)
-- 2026-06-30 05:29 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/9391432.shtml)
-- 2026-06-30 05:23 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/402483.shtml)
-- 2026-06-30 05:27 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/7749159.shtml)
-- 2026-06-30 05:24 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/79438587538.shtml)
+- 2026-06-30 05:40 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/094197050.shtml)
+- 2026-06-30 05:33 - [二次元提前预演明日巴西对日本](https://www.share.kurohicncr.top/Article/details/944741840141.shtml)
+- 2026-06-30 05:24 - [TOP Prada](https://www.share.minike.top/Article/details/152793297286.shtml)
+- 2026-06-30 05:18 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/827309.shtml)
+- 2026-06-30 05:22 - [巴西半场0比1日本](https://www.blog.kurohicncr.top/Article/details/88624532.shtml)
+- 2026-06-30 05:26 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/76837139.shtml)
+- 2026-06-30 05:24 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/255657.shtml)
+- 2026-06-30 05:33 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/8527014.shtml)
+- 2026-06-30 05:24 - [金牌调解](https://www.share.minike.top/Article/details/61040382648.shtml)
+- 2026-06-30 05:31 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/13483.shtml)
+- 2026-06-30 05:45 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/53137235.shtml)
+- 2026-06-30 05:41 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/8960567690.shtml)
+- 2026-06-30 05:35 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/083583.shtml)
+- 2026-06-30 05:25 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/6573671.shtml)
+- 2026-06-30 05:34 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/0890490191.shtml)

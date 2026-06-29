@@ -1,56 +1,56 @@
-# 三一重卡梁林河：目前35岁以下的卡车司机仅占10%，下一个风口将是无人化电动重卡
+# 聚焦琼港澳人才交流 海南将举行两场品牌活动
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。三一集团董事，三一重卡董事长梁林河表示，新能源重卡从双碳目标和能源安全的角度上来看，重卡是核心的抓手。 他用四组关键的数据来解读：第一个数据就是60%，即便所有的乘用车全部电动化，也仅仅只能解
+中新网海口4月28日电 (记者 符宇群)海南自贸港封关运作政策红利持续释放，为港澳青年提供广阔的发展机遇。海南省委统战部二级巡视员张建伟28日称，首届“聚四方之才·海南自贸港人才周”活动期间，海南省委统战部将重点承办两场品牌活动，为“百万英才兴海南”注入港澳力量。首届“聚四方之才·海南自贸港人才周”活动新闻发布会28日在海口举行。张建伟在发布会上表示，海南将港澳青年工作作为自贸
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+中新网海口4月28日电 (记者 符宇群)海南自贸港封关运作政策红利持续释放，为港澳青年提供广阔的发展机遇。
 
-三一集团董事，三一重卡董事长梁林河表示，新能源重卡从双碳目标和能源安全的角度上来看，重卡是核心的抓手。
+海南省委统战部二级巡视员张建伟28日称，首届“聚四方之才·海南自贸港人才周”活动期间，海南省委统战部将重点承办两场品牌活动，为“百万英才兴海南”注入港澳力量。
 
-他用四组关键的数据来解读：第一个数据就是60%，即便所有的乘用车全部电动化，也仅仅只能解决公路交通碳排放的40%，因为卡车占公路交通碳排放的60%； 第二个数据是1=100，一台燃油重卡的年碳排放量相当于100台燃油乘用车； 第三个数据是3%等于80%，燃油重卡只占中国汽车保有量的3%，但是它所产生的氮氧化物排放占总排放量的80%； 第四个是50%，假如中国的重卡全部新能源化，中国道路的能源安全问题几乎就解决了一半，因为燃油重卡占中国道路燃油总需求量的50%。
+首届“聚四方之才·海南自贸港人才周”活动新闻发布会28日在海口举行。
 
-他表示，新能源是一场不止于乘用车的革命，重型卡车成了这场能源革命中的关键少数。
+张建伟在发布会上表示，海南将港澳青年工作作为自贸港人才建设的重要组成部分，目前海南省委统战部构建了以《支持港澳青年来琼就业创业实施细则》为核心政策、以海南港澳青年创新创业服务中心为重要平台、以港澳人才特色品牌活动为重要载体的港澳青年人才服务体系，引导港澳青年自觉把个人理想追求与海南自贸港建设相链接，更好融入国家发展大局。
 
-当乘用车行业的渗透率徘徊在50%的时候，新能源行业迎来了一个新的浪潮，那就是新能源重卡。
+由海南省委统战部指导成立的海南港澳青年创新创业服务中心，是海南对接港澳、链接全球青年人才的重要平台。
 
-他谈到，2017年，三一重卡凭借互联网的销售、产业链共享，造出了行业最低成本的卡车，三年内我们销售额就接近了60个亿，成为了行业发展最快的重卡企业，网红重卡成了三一重卡的标签。
+张建伟说，海南自贸港人才周活动期间，海南省委统战部将聚焦港澳青年就业、创业、成长、赋能全维度需求，重点承办两场品牌活动，助力自贸港构建开放包容、高效便捷的人才发展生态。
 
-“正当我们满怀信心准备冲击100亿的时候，有一位伟大的企业家问过我一个振聋发聩的问题：这样下去，10年内你能赶上奔驰、沃尔沃、斯堪尼亚吗？
+其中，5月12日举行的“港澳创享汇”系列活动之“聚才筑梦·创享未来——港澳及国际人才政策交流分享活动”，聚焦海南自贸港政策优势与产业发展机遇，围绕人才落户、创新创业扶持、生活服务配套、就业发展辅导等核心内容进行解读宣讲，吸引更多港澳及国际优秀人才扎根海南、创新创业，共筑自贸港人才高地。
 
-他还给了我两个忠告，第一个忠告是，低价永远无法成就经典，夏利现在还在吗？
+5月14日举行的第四届“逐浪计划”港澳大学生暑期实习活动的岗位对接推荐会，依托海南省优质企业资源，重点联动博鳌乐城等重点产业园区，为港澳大学生匹配高质量、多元化、贴合自贸港产业布局的实习岗位，为接收单位搭建实习管理、人才培养、用工服务的交流平台，持续完善港澳大学生来琼实习、实训、就业、成长的全链条培育体系，同时邀请往届实习接收单位和实习生代表交流分享。
 
 ## 相关推荐
 
-- 2026-06-30 05:38 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-30 05:27 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-30 05:39 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-30 05:12 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 05:35 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-30 05:12 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-30 05:39 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-30 05:23 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-30 05:15 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-30 05:29 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-30 05:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-30 05:27 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-30 05:40 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-30 05:40 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-30 05:27 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-30 05:19 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 05:45 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 05:24 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-30 05:42 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-30 05:33 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:13 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/78543405605.shtml)
-- 2026-06-30 05:28 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/2155200.shtml)
-- 2026-06-30 05:14 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/92464895.shtml)
-- 2026-06-30 05:39 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/38859712.shtml)
-- 2026-06-30 05:15 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/28391828996.shtml)
-- 2026-06-30 05:15 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/7789791.shtml)
-- 2026-06-30 05:19 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/019924705516.shtml)
-- 2026-06-30 05:40 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/71930.shtml)
-- 2026-06-30 05:22 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/608266471.shtml)
-- 2026-06-30 05:31 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/84972761.shtml)
-- 2026-06-30 05:38 - [沙丘](https://www.blog.minike.top/Article/details/67834627295.shtml)
-- 2026-06-30 05:20 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/513208.shtml)
-- 2026-06-30 05:31 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/523977500912.shtml)
-- 2026-06-30 05:36 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/8081872.shtml)
-- 2026-06-30 05:19 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/85557807.shtml)
+- 2026-06-30 05:34 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/17431.shtml)
+- 2026-06-30 05:31 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/379502658106.shtml)
+- 2026-06-30 05:25 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/2185657.shtml)
+- 2026-06-30 05:40 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/4078637.shtml)
+- 2026-06-30 05:20 - [小娘惹](https://www.share.minike.top/Article/details/30720.shtml)
+- 2026-06-30 05:42 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/154392970.shtml)
+- 2026-06-30 05:37 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/04349988740.shtml)
+- 2026-06-30 05:18 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/96220.shtml)
+- 2026-06-30 05:33 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/28882827440.shtml)
+- 2026-06-30 05:41 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/09356951.shtml)
+- 2026-06-30 05:30 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.kurohicncr.top/Article/details/46934763.shtml)
+- 2026-06-30 05:20 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/86248.shtml)
+- 2026-06-30 05:37 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/844221.shtml)
+- 2026-06-30 05:23 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/64246741678.shtml)
+- 2026-06-30 05:30 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/7020008.shtml)

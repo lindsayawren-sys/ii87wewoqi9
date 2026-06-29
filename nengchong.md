@@ -1,59 +1,57 @@
-# 时政微观察丨服务业如何高质量发展？总书记提出新要求
+# “保定冰柿”全球发布会在保定易县举行 两大产业中心揭牌
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-服务业是国民经济的重要组成部分，服务业发展水平是衡量一个国家经济发展程度的重要标志。 党的十八大以来，我国服务业规模稳步扩大，质效持续提升，在支撑产业升级、满足民生需要、带动就业扩容等方面发挥了重要作用。 新征程上，如何更好促进服务业优质高效发展？ “要坚持以新时代中国特色社会主义思想为指导，完整准确全面贯彻新发展理念，突出需求牵引、改革攻坚、科技赋能、开放合作，深入实施服务业
+中新网保定4月28日电 (李玉素 万旭)4月28日，“保定冰柿”全球发布会在河北易县经济开发区举行。会上，中国冰柿产业中心、中国磨盘柿产业中心正式揭牌成立。 此次活动以“保定冰柿·闪亮全球”为主题，旨在探索磨盘柿产业发展新路径，融合资源优势，优化产业布局，开拓国内国际新市场，让保定冰柿畅销世界。 中国果品流通协会秘书长陈磊在致辞中表示，本次发布会是保定冰柿立足全国、迈向全球的重
 
 ## 正文
 
-服务业是国民经济的重要组成部分，服务业发展水平是衡量一个国家经济发展程度的重要标志。
+中新网保定4月28日电 (李玉素 万旭)4月28日，“保定冰柿”全球发布会在河北易县经济开发区举行。
 
-党的十八大以来，我国服务业规模稳步扩大，质效持续提升，在支撑产业升级、满足民生需要、带动就业扩容等方面发挥了重要作用。
+会上，中国冰柿产业中心、中国磨盘柿产业中心正式揭牌成立。
 
-新征程上，如何更好促进服务业优质高效发展？
+此次活动以“保定冰柿·闪亮全球”为主题，旨在探索磨盘柿产业发展新路径，融合资源优势，优化产业布局，开拓国内国际新市场，让保定冰柿畅销世界。
 
-“要坚持以新时代中国特色社会主义思想为指导，完整准确全面贯彻新发展理念，突出需求牵引、改革攻坚、科技赋能、开放合作，深入实施服务业扩能提质行动，推进生产性服务业向专业化和价值链高端延伸，促进生活性服务业高品质多样化便利化发展，培育更多‘中国服务’品牌，努力开创服务业高质量发展新局面。
+中国果品流通协会秘书长陈磊在致辞中表示，本次发布会是保定冰柿立足全国、迈向全球的重要起点，更是果品产业三产融合、科技创新与品牌出海的生动实践，协会将全力支持保定冰柿品牌推广，推动其与国际市场深度对接。
 
-” 近日，习近平总书记就服务业发展作出重要指示，深刻阐明了发展服务业的重大意义、重要原则、重点任务，为更好促进服务业优质高效发展指明了方向、提供了重要遵循。
+活动现场，保定冰柿全球发布仪式举行，中国冰柿产业中心、中国磨盘柿产业中心正式揭牌成立。
 
-推进生产性服务业向专业化和价值链高端延伸 生产性服务业具有专业性强、创新活跃、产业融合度高、带动作用显著等特点。
+同时，保定冰柿生产企业与全国重点采购商、经销商签约仪式举行，中国柿子新品类“柿业新柿力”进行专题推介。
 
-随着我国产业结构转型升级步伐持续加快，“为生产服务”的生产性服务业已成为拉动经济增长的重要极、培育新质生产力的重要方向和制造业转型升级的重要延伸领域。
+易县是享誉全国的“中国磨盘柿之乡”，其出产的磨盘柿果形端正、皮薄肉厚、味甜多汁，全县种植面积11.3万亩，年产鲜柿约25万吨(约8.3亿枚)。
 
-今年3月，习近平总书记在深入推进雄安新区高质量建设和发展座谈会上指出，推动新兴产业和未来产业集群式发展，积极发展生产性服务业，支持传统产业改造升级。
+近年来，易县立足资源禀赋，以传统鲜柿为原料，匠心研制“保定冰柿”，并持续发力打造冰柿共享标准化工厂，持续扩大优质冰柿产能供给。
 
 ## 相关推荐
 
-- 2026-06-30 05:36 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-30 05:28 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-30 05:17 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-30 05:12 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-30 05:15 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-30 05:24 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-30 05:26 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-30 05:41 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-30 05:34 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-30 05:37 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 05:41 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-30 05:21 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-30 05:17 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-30 05:29 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-30 05:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-30 05:38 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-30 05:23 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 05:38 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-30 05:40 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-30 05:37 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-30 05:24 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-30 05:21 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-30 05:43 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 05:39 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:24 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/98718748042.shtml)
-- 2026-06-30 05:25 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/71678609.shtml)
-- 2026-06-30 05:18 - [起风了](https://www.share.kurohicncr.top/Article/details/08635213.shtml)
-- 2026-06-30 05:17 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/68849.shtml)
-- 2026-06-30 05:28 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/5598842.shtml)
-- 2026-06-30 05:40 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/34879.shtml)
-- 2026-06-30 05:30 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/89864018662.shtml)
-- 2026-06-30 05:40 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/060904103455.shtml)
-- 2026-06-30 05:26 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/75663763253.shtml)
-- 2026-06-30 05:32 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/9065841.shtml)
-- 2026-06-30 05:38 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/3730053501.shtml)
-- 2026-06-30 05:39 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/96379527.shtml)
-- 2026-06-30 05:18 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.kurohicncr.top/Article/details/210679173377.shtml)
-- 2026-06-30 05:29 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/429295692.shtml)
-- 2026-06-30 05:32 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/50625176787.shtml)
+- 2026-06-30 05:36 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/28969.shtml)
+- 2026-06-30 05:35 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/29108207374.shtml)
+- 2026-06-30 05:45 - [女心理师](http://www.blog.minike.top/Article/details/21029.shtml)
+- 2026-06-30 05:39 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/2038681.shtml)
+- 2026-06-30 05:41 - [一生一世](https://www.blog.minike.top/Article/details/920727236320.shtml)
+- 2026-06-30 05:30 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/8400645.shtml)
+- 2026-06-30 05:40 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/290178072688.shtml)
+- 2026-06-30 05:19 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/84891734.shtml)
+- 2026-06-30 05:42 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/204322.shtml)
+- 2026-06-30 05:39 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/7441422.shtml)
+- 2026-06-30 05:31 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/1216421485.shtml)
+- 2026-06-30 05:31 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.minike.top/Article/details/43170606.shtml)
+- 2026-06-30 05:26 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.minike.top/Article/details/2581685858.shtml)
+- 2026-06-30 05:45 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/625192.shtml)
+- 2026-06-30 05:27 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/43697.shtml)

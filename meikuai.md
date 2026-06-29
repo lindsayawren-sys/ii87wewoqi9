@@ -1,59 +1,57 @@
-# 第六期环境新闻茶座举办 共话AI+引领环境监测
+# 《习近平谈治国理政》第五卷英文版中印尼推介会在雅加达举行
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新网北京4月10日电(记者 左宇坤)“生态环境监测是生态环境保护的基础，是生态文明建设的重要支撑。”4月9日，“AI+引领环境监测”第六期环境新闻茶座在北京举办，中国环境新闻工作者协会主席刘友宾在致辞中这样表示。近年来，生态环境部深入贯彻党中央、国务院关于数字中国建设和全面推进美丽中国建设的部署，积极把人工智能、大数据、云计算等数字技术作为提升生态环境治理体系和治理能力现代化
+中新社雅加达4月28日电 《习近平谈治国理政》第五卷英文版中印尼推介会28日在印度尼西亚雅加达举行。 与会嘉宾认为，《习近平谈治国理政》第五卷全面系统反映了习近平新时代中国特色社会主义思想的最新发展成果，是国际社会认识和理解当代中国的权威著作。当前，中国已开启“十五五”规划新征程，印尼也在朝着“黄金印尼2045”愿景稳步迈进，两国携手推进战略对接、深化发展合作，不仅能为两国人民
 
 ## 正文
 
-中新网北京4月10日电(记者 左宇坤)“生态环境监测是生态环境保护的基础，是生态文明建设的重要支撑。
+中新社雅加达4月28日电 《习近平谈治国理政》第五卷英文版中印尼推介会28日在印度尼西亚雅加达举行。
 
-”4月9日，“AI+引领环境监测”第六期环境新闻茶座在北京举办，中国环境新闻工作者协会主席刘友宾在致辞中这样表示。
+与会嘉宾认为，《习近平谈治国理政》第五卷全面系统反映了习近平新时代中国特色社会主义思想的最新发展成果，是国际社会认识和理解当代中国的权威著作。
 
-近年来，生态环境部深入贯彻党中央、国务院关于数字中国建设和全面推进美丽中国建设的部署，积极把人工智能、大数据、云计算等数字技术作为提升生态环境治理体系和治理能力现代化水平的重要抓手。
+当前，中国已开启“十五五”规划新征程，印尼也在朝着“黄金印尼2045”愿景稳步迈进，两国携手推进战略对接、深化发展合作，不仅能为两国人民带来实实在在的福祉，更将为壮大全球南方力量、完善全球治理体系注入强劲动力。
 
-在生态环境监测方面，人工智能技术正逐步深度嵌入并实现了业务化应用。
+印度尼西亚人民协商会议主席阿赫玛德·穆扎尼在致辞中表示，《习近平谈治国理政》为印尼外交界、学术界及政策制定者提供宝贵借鉴，本次新书推介活动为中国和印尼两国深化思想交流提供了重要平台。
 
-以“AI+引领土壤环境监测创新变革”为例，中国物资再生协会土壤修复专业委员会会长、生态环境部土壤生态环境司原一级巡视员陈永清表示，我国土壤环境监测已经初步构建起体系，正在实现从摸清家底到智慧监管的跨越，为土壤污染风险管控与治理修复提供数据支撑。
+他希望，更多印尼政府官员、学者和青年群体能够阅读这部重要著作，加深对中国发展道路和治理理念的理解，拓展对世界和人类未来发展的认知。
 
-未来，土壤的环境监测将会逐步从数据采集到知识发展；从人工判断到AI自主决策，全面提升效率、精准、覆盖度，支撑耕地保护、地块的污染管控、生态修复、低碳农业高质量发展。
+印度尼西亚人口流动部部长穆罕默德·伊夫提塔赫·苏莱曼表示，访问中国期间，我见证了中国通过以人民为中心的发展思想推进消除贫困。
 
-再看中国在加强气候变化履约和碳数据方面的工作进展，中国国土经济学会精品农业品牌建设专委会主任委员、生态环境部应对气候变化司原一级巡视员孙桢介绍：第一，气候变化领域的数据，是公约对各国的要求，这方面我们国家经历了从能力不足到现在比较自信的过程。
+中国在减贫治理、乡村建设、区域协同发展等领域的重大理念和创新实践，为印尼有序推进人口迁移安置、加快东部地区开发建设，提供了可借鉴的系统性方案。
 
-第二，碳市场带来的数据资产，是先将碳排放权变成资产，再进一步利用，已做了很好的打通。
+印度尼西亚全球发展研究中心主任维罗妮卡·萨拉斯瓦蒂表示，当今世界正经历深刻变革与动荡调整，各国比以往任何时期都更加需要通过开放合作实现共同发展。
 
 ## 相关推荐
 
-- 2026-06-30 05:17 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-30 05:28 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-30 05:16 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 05:41 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-30 05:36 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-30 05:21 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 05:22 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-30 05:12 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-30 05:25 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-30 05:21 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-30 05:27 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-30 05:24 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-30 05:22 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-30 05:27 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-30 05:23 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-30 05:48 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-30 05:21 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 05:45 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-30 05:46 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 05:37 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-30 05:36 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-30 05:38 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 05:44 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-30 05:46 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:24 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/499573.shtml)
-- 2026-06-30 05:40 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/56786995.shtml)
-- 2026-06-30 05:13 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/2006848.shtml)
-- 2026-06-30 05:31 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/780536.shtml)
-- 2026-06-30 05:38 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/25205.shtml)
-- 2026-06-30 05:28 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/23843.shtml)
-- 2026-06-30 05:13 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/1594636130.shtml)
-- 2026-06-30 05:35 - [恋与深空制作组回应近期争议](http://www.share.kurohicncr.top/Article/details/7143627.shtml)
-- 2026-06-30 05:39 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/07442373.shtml)
-- 2026-06-30 05:25 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/6403033.shtml)
-- 2026-06-30 05:25 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/633385004143.shtml)
-- 2026-06-30 05:14 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/9286260990.shtml)
-- 2026-06-30 05:16 - [急先锋](http://www.blog.kurohicncr.top/Article/details/0295642977.shtml)
-- 2026-06-30 05:26 - [王欣瑜2-1击败科恰雷托](https://www.share.minike.top/Article/details/071070278842.shtml)
-- 2026-06-30 05:23 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/9667567348.shtml)
+- 2026-06-30 05:43 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/9078805245.shtml)
+- 2026-06-30 05:47 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/352813.shtml)
+- 2026-06-30 05:23 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/62992250.shtml)
+- 2026-06-30 05:32 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/9203639709.shtml)
+- 2026-06-30 05:40 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/88221.shtml)
+- 2026-06-30 05:43 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/47442860423.shtml)
+- 2026-06-30 05:21 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/81942.shtml)
+- 2026-06-30 05:25 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/203872960.shtml)
+- 2026-06-30 05:26 - [毒液2](https://www.share.kurohicncr.top/Article/details/17075.shtml)
+- 2026-06-30 05:18 - [王欣瑜2-1击败科恰雷托](https://www.share.kurohicncr.top/Article/details/39345.shtml)
+- 2026-06-30 05:35 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/39531596.shtml)
+- 2026-06-30 05:21 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/76658444950.shtml)
+- 2026-06-30 05:32 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/7769005131.shtml)
+- 2026-06-30 05:46 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.kurohicncr.top/Article/details/86383.shtml)
+- 2026-06-30 05:40 - [流金岁月](http://www.blog.minike.top/Article/details/67759700208.shtml)

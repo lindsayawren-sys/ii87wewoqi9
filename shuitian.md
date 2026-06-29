@@ -1,51 +1,57 @@
-# A股午评：超4400只个股飘红，三大指数集体收涨，沪指盘中重回4000点
+# “促进交往交流交融”专章立法有深意
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-A股午评：超4400只个股飘红，三大指数集体收涨，沪指盘中重回4000点，券商板块大涨，海运、黄金股下跌 10日，A股三大指数高开，沪指盘中重回4000点，此后有所回落。截至午间收盘，沪指涨0.63%，深证成指涨1.74%，创业板指涨2.62%。全市半日成交额1.51万亿，超4400只个股上涨。 板块方面，动力电池产业链、券商股爆发，电工电网、能源设备、电脑电子硬件、半导体板块
+民族团结进步促进法在第三章对“促进交往交流交融”予以专章着墨。多位专家在接受《中国新闻》报采访时分析，这是对新时代民族工作实践的法治凝练，回应了当前我国各民族群众大流动、大融居的新特点，将进一步巩固中华民族共同体建设的社会基础。 回应历史规律与现实趋势 中国人民大学铸牢中华民族共同体意识研究院院长段成荣表示，改革开放以来，我国完成了从低流动性的乡土中国向高流动性的迁徙中国的转变
 
 ## 正文
 
-A股午评：超4400只个股飘红，三大指数集体收涨，沪指盘中重回4000点，券商板块大涨，海运、黄金股下跌 10日，A股三大指数高开，沪指盘中重回4000点，此后有所回落。
+民族团结进步促进法在第三章对“促进交往交流交融”予以专章着墨。
 
-截至午间收盘，沪指涨0.63%，深证成指涨1.74%，创业板指涨2.62%。
+多位专家在接受《中国新闻》报采访时分析，这是对新时代民族工作实践的法治凝练，回应了当前我国各民族群众大流动、大融居的新特点，将进一步巩固中华民族共同体建设的社会基础。
 
-全市半日成交额1.51万亿，超4400只个股上涨。
+回应历史规律与现实趋势 中国人民大学铸牢中华民族共同体意识研究院院长段成荣表示，改革开放以来，我国完成了从低流动性的乡土中国向高流动性的迁徙中国的转变，各民族交往交流交融的程度得到显著提升，进入几千年历史上民族人口迁徙和融合的第五次高潮。
 
-板块方面，动力电池产业链、券商股爆发，电工电网、能源设备、电脑电子硬件、半导体板块涨幅居前；航运、贵金属、光通信、高送转概念低迷。
+在这一过程中，各民族群众之间的交往方式也发生了明显变化。
+
+民族团结进步促进法专章设置“促进交往交流交融”，体现了国家在各民族人口大流动、大融居时代推动社会互嵌、促进共同团结进步的制度自觉，回应了我国人口流动、社会分工和区域联通不断深化的现实趋势，并通过制度安排引导这种流动更好地转化为社会交往与共同发展。
+
+中南民族大学四部委铸牢中华民族共同体意识研究基地教授、法学院院长潘红祥指出，各民族交往交流交融始终是中华民族演进发展的重要特点，促使中华民族从分散走向凝聚、从多元走向一体、从过去走到现在、从历史走向未来。
+
+将促进各民族交往交流交融写入法律，既高度契合中华民族演进规律，也是对新时代民族工作实践的法治凝练，为铸牢中华民族共同体意识、推进中华民族共同体建设筑牢了制度根基。
+
+夯实互嵌共融社会基础 以“促进交往交流交融”为题的第三章共十条内容，涉及社区建设、人口流动、教育交流、文化活动等多个领域。
 
 ## 相关推荐
 
-- 2026-06-30 05:26 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 05:21 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-30 05:24 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-30 05:29 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-30 05:31 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-30 05:35 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-30 05:21 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-30 05:25 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-30 05:24 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-30 05:14 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-30 05:18 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-30 05:27 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-30 05:28 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-30 05:19 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-30 05:20 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-30 05:40 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-30 05:18 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-30 05:32 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-30 05:42 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-30 05:29 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 05:20 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-30 05:34 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-30 05:47 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-30 05:47 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:23 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/93640133.shtml)
-- 2026-06-30 05:33 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/4383500932.shtml)
-- 2026-06-30 05:16 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/792184586.shtml)
-- 2026-06-30 05:14 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/789228.shtml)
-- 2026-06-30 05:22 - [日本淘汰](http://www.blog.kurohicncr.top/Article/details/617067992.shtml)
-- 2026-06-30 05:28 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/50216.shtml)
-- 2026-06-30 05:14 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/51301607.shtml)
-- 2026-06-30 05:18 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/79779.shtml)
-- 2026-06-30 05:19 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/2762789.shtml)
-- 2026-06-30 05:41 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/2983540495.shtml)
-- 2026-06-30 05:34 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/25710246.shtml)
-- 2026-06-30 05:18 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/970655.shtml)
-- 2026-06-30 05:21 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/14764247062.shtml)
-- 2026-06-30 05:34 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/169960963.shtml)
-- 2026-06-30 05:19 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/227528199065.shtml)
+- 2026-06-30 05:32 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/481558.shtml)
+- 2026-06-30 05:29 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/1280842805.shtml)
+- 2026-06-30 05:37 - [蔚来车主罚站](http://www.share.minike.top/Article/details/963035.shtml)
+- 2026-06-30 05:40 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/9506554595.shtml)
+- 2026-06-30 05:27 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/311835382451.shtml)
+- 2026-06-30 05:41 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/46288.shtml)
+- 2026-06-30 05:27 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/1718067273.shtml)
+- 2026-06-30 05:33 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.minike.top/Article/details/504822.shtml)
+- 2026-06-30 05:36 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/863237.shtml)
+- 2026-06-30 05:31 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/4633946.shtml)
+- 2026-06-30 05:27 - [老外对中国cosplay竟这样评价…](http://www.share.minike.top/Article/details/135147222.shtml)
+- 2026-06-30 05:48 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/593332542753.shtml)
+- 2026-06-30 05:19 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/01208.shtml)
+- 2026-06-30 05:30 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/75905786.shtml)
+- 2026-06-30 05:40 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/3255547.shtml)

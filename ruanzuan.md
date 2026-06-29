@@ -1,57 +1,51 @@
-# 第四届全国轻型飞机锦标赛在清远开赛
+# 伊朗东南部发生袭警事件 致1死3伤
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新网清远4月10日电 (记者 张璐)2026年第四届全国轻型飞机锦标赛9日在清远开赛。本届锦标赛汇聚全国25支顶尖机组、52名资深飞行员、17架飞机同场竞技，在领航飞行、精确着陆两大科目中展开高水平角逐。 2026年第四届全国轻型飞机锦标赛暨航空游牧季·飞行嘉年华6日至12日在清远市清城区石角镇翔鹏户外飞行度假区举行。 本届活动创新打造“专业竞技+文旅盛宴”双IP，将国家级航
+当地时间4月29日，伊朗东南部锡斯坦-俾路支斯坦省警方发布公告称，该省首府扎黑丹市当天发生一起武装分子向警察巡逻队开火事件，造成1名警察死亡、3名警察受伤。 公告表示，警方正在全力追捕袭击者。公告未透露更多信息。(总台记者 李健南 赵远方)
 
 ## 正文
 
-中新网清远4月10日电 (记者 张璐)2026年第四届全国轻型飞机锦标赛9日在清远开赛。
+当地时间4月29日，伊朗东南部锡斯坦-俾路支斯坦省警方发布公告称，该省首府扎黑丹市当天发生一起武装分子向警察巡逻队开火事件，造成1名警察死亡、3名警察受伤。
 
-本届锦标赛汇聚全国25支顶尖机组、52名资深飞行员、17架飞机同场竞技，在领航飞行、精确着陆两大科目中展开高水平角逐。
+公告表示，警方正在全力追捕袭击者。
 
-2026年第四届全国轻型飞机锦标赛暨航空游牧季·飞行嘉年华6日至12日在清远市清城区石角镇翔鹏户外飞行度假区举行。
+公告未透露更多信息。
 
-本届活动创新打造“专业竞技+文旅盛宴”双IP，将国家级航空赛事与潮流休闲体验深度融合，献上一场科技感、观赏性、参与感兼备的蓝天盛会。
-
-航空游牧季·飞行嘉年华首创“航空科技+户外游牧”深度融合的“两核四区”模式。
-
-两大核心为天空牧场营地和游牧漫游区，配备专业模拟飞行设备，融合航空体验、科技互动、潮流演艺、房车露营等多元业态。
-
-四大板块分别是航空科普、飞行表演、游牧休闲、亲子互动，实现“逛、吃、玩、学、购”一站式沉浸体验。
-
-据了解，相比上届，本届活动飞行表演全面升级：场次由两场增至三场，内容涵盖六机花样编队、小半径盘旋、四机对冲、彩烟拉烟等高难度动作。
+(总台记者 李健南 赵远方)
 
 ## 相关推荐
 
-- 2026-06-30 05:37 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-30 05:25 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-30 05:25 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 05:24 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 05:12 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-30 05:31 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-30 05:15 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-30 05:28 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-30 05:20 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-30 05:34 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-30 05:27 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-30 05:38 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 05:44 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-30 05:22 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-30 05:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 05:29 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 05:18 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-30 05:43 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-30 05:23 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-30 05:18 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-30 05:45 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-30 05:32 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 05:36 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-30 05:39 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:30 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/47460213901.shtml)
-- 2026-06-30 05:22 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/5745983.shtml)
-- 2026-06-30 05:17 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/27902.shtml)
-- 2026-06-30 05:41 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/87905614861.shtml)
-- 2026-06-30 05:27 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/7714747662.shtml)
-- 2026-06-30 05:40 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/55180608.shtml)
-- 2026-06-30 05:29 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/53078153.shtml)
-- 2026-06-30 05:13 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/376381742.shtml)
-- 2026-06-30 05:40 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/038467.shtml)
-- 2026-06-30 05:23 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/17324595115.shtml)
-- 2026-06-30 05:12 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/006956497996.shtml)
-- 2026-06-30 05:19 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/0791558.shtml)
-- 2026-06-30 05:35 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/45389823.shtml)
-- 2026-06-30 05:16 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/5396498.shtml)
-- 2026-06-30 05:15 - [请回答王牌2019](http://www.blog.minike.top/Article/details/75132748443.shtml)
+- 2026-06-30 05:20 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.minike.top/Article/details/9028844998.shtml)
+- 2026-06-30 05:38 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/917466188.shtml)
+- 2026-06-30 05:33 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/064396.shtml)
+- 2026-06-30 05:21 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/3118897216.shtml)
+- 2026-06-30 05:27 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/449461188081.shtml)
+- 2026-06-30 05:34 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/6915764434.shtml)
+- 2026-06-30 05:29 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/76664.shtml)
+- 2026-06-30 05:43 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/81645985.shtml)
+- 2026-06-30 05:26 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/72867411.shtml)
+- 2026-06-30 05:31 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/411697.shtml)
+- 2026-06-30 05:27 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/34937830681.shtml)
+- 2026-06-30 05:29 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/569285128742.shtml)
+- 2026-06-30 05:43 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/0671475.shtml)
+- 2026-06-30 05:18 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/64502.shtml)
+- 2026-06-30 05:37 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/632645.shtml)

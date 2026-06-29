@@ -1,57 +1,58 @@
-# 第一观察｜习近平主席寄望中美青年
+# 印度政府声称大选后不会上调燃油零售价
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-4月10日，国家主席习近平向中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式致贺信，对两国青年一代寄予厚望—— “希望两国各界人士特别是青年一代从历史中汲取智慧和力量，在交流合作中相知相亲，在互学互鉴中携手前行，共同拉紧友谊纽带，为推动中美关系稳定、健康、可持续发展作出新贡献。” 1971年4月，美国乒乓球队应中方邀请，历史性地访问中国，中美“乒乓外交”打开
+在中东冲突持续推高国际油价的背景下，印度国内一度出现“大选结束后政府将大幅上调油价”的恐慌性猜忌，甚至引发部分地区的民众抢购。对此，印度政府于周二正式辟谣，明确表示没有上调汽油和柴油零售价的提案。 石油和天然气部官员在新闻发布会上表示：“目前没有上调汽油和柴油价格的提案”，并敦促公众不要相信谣言，避免恐慌性购买。这是自中东危机爆发以来，印度政府为稳定民心做出的最直接表态。 巨大
 
 ## 正文
 
-4月10日，国家主席习近平向中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式致贺信，对两国青年一代寄予厚望—— “希望两国各界人士特别是青年一代从历史中汲取智慧和力量，在交流合作中相知相亲，在互学互鉴中携手前行，共同拉紧友谊纽带，为推动中美关系稳定、健康、可持续发展作出新贡献。
+在中东冲突持续推高国际油价的背景下，印度国内一度出现“大选结束后政府将大幅上调油价”的恐慌性猜忌，甚至引发部分地区的民众抢购。
 
-” 1971年4月，美国乒乓球队应中方邀请，历史性地访问中国，中美“乒乓外交”打开了两国人民友好往来的大门。
+对此，印度政府于周二正式辟谣，明确表示没有上调汽油和柴油零售价的提案。
 
-“小球转动大球”的创举超越了意识形态分歧，不仅开启了中美两国关系的新篇章，甚至对当时的世界格局产生了深远影响。
+石油和天然气部官员在新闻发布会上表示：“目前没有上调汽油和柴油价格的提案”，并敦促公众不要相信谣言，避免恐慌性购买。
 
-“中美关系的大门是由人民打开的。
+这是自中东危机爆发以来，印度政府为稳定民心做出的最直接表态。
 
-”习近平主席对这段历史佳话有着深刻的论断，“是时代潮流让我们走向彼此，是共同利益让中美超越分歧，是人民愿望让两国打破坚冰。
+巨大的财政压力 此次官方辟谣正值国营炼油商承受巨额损失之际。
 
-” 历史长河大浪淘沙，最终沉淀下来的总是最有价值的东西。
+由于政府在过去四年维持价格稳定，而近期国际油价因地缘冲突持续飙升，导致国有燃油零售商承受了约1600亿卢比的日亏损。
 
-“乒乓外交”的历史证明，中美友好的事业必须从人民中找到根基，从人民中集聚力量，由人民来共同完成。
+尽管如此，政府仍选择“硬扛”成本，暂不向消费者转嫁压力。
 
-而青年则是人民友好的未来和希望。
+恐慌性购买 由于担心油价上涨，印度南部如安得拉邦等地近日出现了恐慌性抢购，部分加油站被迫实施限额供应，甚至出现断油现象。
 
 ## 相关推荐
 
-- 2026-06-30 05:40 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-30 05:38 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-30 05:23 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 05:13 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-30 05:41 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-30 05:22 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-30 05:20 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-30 05:19 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-30 05:34 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-30 05:27 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-30 05:34 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-30 05:35 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 05:36 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-30 05:34 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-30 05:40 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-30 05:40 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-30 05:21 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 05:25 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-30 05:29 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 05:35 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-30 05:27 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-30 05:41 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-30 05:30 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:27 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/9926947.shtml)
-- 2026-06-30 05:19 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/56633650742.shtml)
-- 2026-06-30 05:18 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/869819.shtml)
-- 2026-06-30 05:29 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/1577548597.shtml)
-- 2026-06-30 05:13 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/194324.shtml)
-- 2026-06-30 05:14 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/65635188.shtml)
-- 2026-06-30 05:14 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/966102642.shtml)
-- 2026-06-30 05:32 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/578218260.shtml)
-- 2026-06-30 05:15 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/83819.shtml)
-- 2026-06-30 05:38 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/295044.shtml)
-- 2026-06-30 05:25 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/5157989.shtml)
-- 2026-06-30 05:33 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/6683822.shtml)
-- 2026-06-30 05:37 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/1651051.shtml)
-- 2026-06-30 05:18 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/859055.shtml)
-- 2026-06-30 05:34 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/1147552.shtml)
+- 2026-06-30 05:32 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/61574980.shtml)
+- 2026-06-30 05:43 - [明星大侦探第四季](https://www.share.minike.top/Article/details/13436064.shtml)
+- 2026-06-30 05:31 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/72231.shtml)
+- 2026-06-30 05:43 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/768274.shtml)
+- 2026-06-30 05:33 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/4733677.shtml)
+- 2026-06-30 05:21 - [周生如故](http://www.blog.kurohicncr.top/Article/details/81208700.shtml)
+- 2026-06-30 05:28 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/58628963.shtml)
+- 2026-06-30 05:37 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/98938.shtml)
+- 2026-06-30 05:18 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/3515201255.shtml)
+- 2026-06-30 05:46 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/363814.shtml)
+- 2026-06-30 05:31 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/86055.shtml)
+- 2026-06-30 05:23 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/87270129680.shtml)
+- 2026-06-30 05:30 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/55762478.shtml)
+- 2026-06-30 05:31 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/30841240538.shtml)
+- 2026-06-30 05:18 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.minike.top/Article/details/065121848004.shtml)

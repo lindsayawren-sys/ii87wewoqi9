@@ -1,50 +1,56 @@
-# 中国国民党主席郑丽文：全世界最聪明的大脑聚集在北京中关村科技园
+# 人民之心｜既重政绩又重政德
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月11日 18:57 来源：中国新闻网 4月11日上午，郑丽文率中国国民党访问团参访北京中关村科技园。郑丽文与灵心巧手、剂泰科技公司展台互动，参观后发表参观感言。(记者 路梅 刘子衿 制作 王雪尔) 责任编辑：【罗攀】
+编者按：政绩观，是世界观、人生观、价值观在为政实践中的集中体现。在全党开展树立和践行正确政绩观学习教育之际，央视网《习语品读》特别推出系列报道，围绕习近平总书记关于树立和践行正确政绩观的重要论述，与您一起学习正确政绩观的丰富内涵与实践要求。 政绩与政德，犹如一架天平的两端，唯有平衡统一，方能称量出干部从政的初心与分量。 2016年1月12日，在中国共产党第十八届中央纪律检查委员
 
 ## 正文
 
-发布时间：2026年04月11日 18:57 来源：中国新闻网 4月11日上午，郑丽文率中国国民党访问团参访北京中关村科技园。
+编者按：政绩观，是世界观、人生观、价值观在为政实践中的集中体现。
 
-郑丽文与灵心巧手、剂泰科技公司展台互动，参观后发表参观感言。
+在全党开展树立和践行正确政绩观学习教育之际，央视网《习语品读》特别推出系列报道，围绕习近平总书记关于树立和践行正确政绩观的重要论述，与您一起学习正确政绩观的丰富内涵与实践要求。
 
-(记者 路梅 刘子衿 制作 王雪尔) 责任编辑：【罗攀】
+政绩与政德，犹如一架天平的两端，唯有平衡统一，方能称量出干部从政的初心与分量。
+
+2016年1月12日，在中国共产党第十八届中央纪律检查委员会第六次全体会议上，习近平总书记强调，“要完善干部考核评价和选任办法，既重能力又重品行，既重政绩又重政德，使品德端正的干部受到褒奖和重用、品行低劣的干部受到警醒和惩戒”。
+
+政绩折射出干部干事的能力与担当；政德决定着干部做事的立场与操守。
+
+树立正确政绩观，之所以要既重政绩又重政德，是因为政绩与政德从来不是两个孤立的概念，而是干部从政必须统一的两个维度。
+
+2018年全国两会期间，习近平总书记在参加重庆代表团审议时强调，“领导干部要讲政德。
+
+政德是整个社会道德建设的风向标。
 
 ## 相关推荐
 
-- 2026-06-30 05:13 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-30 05:20 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-30 05:31 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-30 05:24 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-30 05:26 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 05:34 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-30 05:33 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-30 05:14 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-30 05:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 05:38 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-30 05:21 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-30 05:41 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-30 05:33 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 05:27 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 05:23 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-30 05:37 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-30 05:35 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-30 05:36 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 05:46 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-30 05:39 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-30 05:22 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-30 05:29 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-30 05:26 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-30 05:22 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:39 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/3606997206.shtml)
-- 2026-06-30 05:29 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/1538982232.shtml)
-- 2026-06-30 05:19 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/3127090762.shtml)
-- 2026-06-30 05:25 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/03672691715.shtml)
-- 2026-06-30 05:26 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/7091310.shtml)
-- 2026-06-30 05:19 - [我们的少年时代2](http://www.blog.minike.top/Article/details/9952964.shtml)
-- 2026-06-30 05:16 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/98464974463.shtml)
-- 2026-06-30 05:26 - [官方：建立健全学龄人口预测预警机制](http://www.blog.minike.top/Article/details/83328801503.shtml)
-- 2026-06-30 05:15 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/877864.shtml)
-- 2026-06-30 05:16 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/6987378.shtml)
-- 2026-06-30 05:40 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/007496210415.shtml)
-- 2026-06-30 05:20 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/972094.shtml)
-- 2026-06-30 05:13 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.minike.top/Article/details/2993065.shtml)
-- 2026-06-30 05:20 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/318613895194.shtml)
-- 2026-06-30 05:23 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/25174564949.shtml)
+- 2026-06-30 05:31 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/5780243.shtml)
+- 2026-06-30 05:33 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/8958700625.shtml)
+- 2026-06-30 05:26 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/18541464031.shtml)
+- 2026-06-30 05:23 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/44840638645.shtml)
+- 2026-06-30 05:39 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/6927233113.shtml)
+- 2026-06-30 05:21 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/2574513588.shtml)
+- 2026-06-30 05:19 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/04093802483.shtml)
+- 2026-06-30 05:22 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/148107814.shtml)
+- 2026-06-30 05:42 - [巴西补时绝杀日本](https://www.share.minike.top/Article/details/7284021.shtml)
+- 2026-06-30 05:30 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/96396486.shtml)
+- 2026-06-30 05:42 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/157732151.shtml)
+- 2026-06-30 05:43 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/85974.shtml)
+- 2026-06-30 05:43 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/363099034.shtml)
+- 2026-06-30 05:23 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/88572004908.shtml)
+- 2026-06-30 05:21 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/418876044.shtml)

@@ -1,46 +1,58 @@
-# 大美边疆看我家丨“中国最冷小镇”迎四月飞雪天气
+# 涉财务造假案 中天国富两位前保代被暂停业务列入D类名单
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月12日 18:35 来源：中国新闻网 素有“中国最冷小镇” 之称的黑龙江省大兴安岭呼中，4月11日再度迎来飞雪。整个小镇被洁白的春雪覆盖，呈现出“春雪映红柳”的独特生态美景，在雪落雪融阳光间，绽放出最动人的春色。作者：孙富国 责任编辑：【魏聪聪】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！深圳商报·读创客户端记者 陈燕青 近期，证券业协会保代列表新增两名D类（暂停业务类）保代，分别为陈东阳、张瑾。违规事项虽然未公开列出，但均显示来自河北证监局。从目前看，两位保代因涉及东旭系财务造假案被暂停业务。 近日，河北证监局对涉东旭系财务造假案的两家中介机构作出行政处罚。 其中，中兴财光华会计师事务所被
 
 ## 正文
 
-发布时间：2026年04月12日 18:35 来源：中国新闻网 素有“中国最冷小镇” 之称的黑龙江省大兴安岭呼中，4月11日再度迎来飞雪。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-整个小镇被洁白的春雪覆盖，呈现出“春雪映红柳”的独特生态美景，在雪落雪融阳光间，绽放出最动人的春色。
+深圳商报·读创客户端记者 陈燕青 近期，证券业协会保代列表新增两名D类（暂停业务类）保代，分别为陈东阳、张瑾。
 
-作者：孙富国 责任编辑：【魏聪聪】
+违规事项虽然未公开列出，但均显示来自河北证监局。
+
+从目前看，两位保代因涉及东旭系财务造假案被暂停业务。
+
+近日，河北证监局对涉东旭系财务造假案的两家中介机构作出行政处罚。
+
+其中，中兴财光华会计师事务所被罚没2.43亿元；6名责任人被罚款924万元，其中2人被采取10年、5年证券市场禁入措施。
+
+此外，鉴于财政部已对中兴财光华作出暂停经营业务的行政处罚，河北证监局不另行作出暂停从事证券服务业务的行政处罚。
+
+中天国富证券被罚没4305.28万元，暂停财务顾问业务许可6个月；陈东阳、张瑾等2名责任人分别被罚款40万元。
 
 ## 相关推荐
 
-- 2026-06-30 05:28 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-30 05:31 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-30 05:12 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-30 05:19 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-30 05:32 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-30 05:15 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-30 05:14 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-30 05:17 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-30 05:15 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-30 05:15 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 05:37 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-30 05:42 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-30 05:30 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-30 05:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-30 05:44 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-30 05:41 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-30 05:36 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-30 05:33 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-30 05:35 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-30 05:30 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-30 05:31 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-30 05:35 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:25 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/77557720125.shtml)
-- 2026-06-30 05:13 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/57067797456.shtml)
-- 2026-06-30 05:26 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/7576328991.shtml)
-- 2026-06-30 05:22 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/8156737.shtml)
-- 2026-06-30 05:20 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/61415.shtml)
-- 2026-06-30 05:23 - [刘念回应](https://www.blog.minike.top/Article/details/087581869953.shtml)
-- 2026-06-30 05:41 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/092438713258.shtml)
-- 2026-06-30 05:14 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/45115749.shtml)
-- 2026-06-30 05:34 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/36307000.shtml)
-- 2026-06-30 05:15 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/94658885.shtml)
-- 2026-06-30 05:25 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/022243576240.shtml)
-- 2026-06-30 05:39 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/5511843782.shtml)
-- 2026-06-30 05:16 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/96566594445.shtml)
-- 2026-06-30 05:36 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/786553.shtml)
-- 2026-06-30 05:41 - [巴西2比1日本](http://www.share.minike.top/Article/details/270631.shtml)
+- 2026-06-30 05:29 - [巴西2比1日本](https://www.share.minike.top/Article/details/97538213.shtml)
+- 2026-06-30 05:40 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/1774427.shtml)
+- 2026-06-30 05:47 - [美股](http://www.blog.minike.top/Article/details/20020696.shtml)
+- 2026-06-30 05:33 - [日本反击率先破门](https://www.share.minike.top/Article/details/036488.shtml)
+- 2026-06-30 05:28 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/008339.shtml)
+- 2026-06-30 05:38 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/304155459697.shtml)
+- 2026-06-30 05:34 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/886893428107.shtml)
+- 2026-06-30 05:21 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/92776.shtml)
+- 2026-06-30 05:20 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/079772.shtml)
+- 2026-06-30 05:40 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/260266372.shtml)
+- 2026-06-30 05:30 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/084892.shtml)
+- 2026-06-30 05:30 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/003215107552.shtml)
+- 2026-06-30 05:24 - [天道](https://www.blog.minike.top/Article/details/9356026814.shtml)
+- 2026-06-30 05:35 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.kurohicncr.top/Article/details/160537.shtml)
+- 2026-06-30 05:25 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/497645941.shtml)

@@ -1,57 +1,59 @@
-# 康菲石油评估委内瑞拉石油业务机会
+# 《全国数据资源调查报告（2025年）》发布 数据赋能千行百业成效凸显
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-康菲石油周四表示，将于本周向委内瑞拉派遣一个小型评估团队，以评估该国的石油和天然气业务机会。 这家美国石油生产商于2007年离开这个南美国家，当时其在那里的资产被收归国有。根据征收仲裁裁决，该公司被拖欠约120亿美元（含利息）。 康菲石油表示，在努力收回被拖欠款项的同时，将评估在委内瑞拉进行新投资的可能性。 美国总统唐纳德·特朗普在美军于1月强行抓走委内瑞拉总统尼古拉斯·马杜罗
+中新网福州4月29日电 (叶艺琳)《全国数据资源调查报告(2025年)》29日在第九届数字中国建设峰会主论坛上正式发布。报告显示，中国数据要素市场化、价值化进程显著提速，数据资源供给体系、数据流通体系和数据开发利用体系协同演进，正从数据资源规模扩张向数据要素价值释放加快跃升。2025年，中国数据生产总量达52.26ZB(泽字节)，同比增长27.28%，约占全球生产总量的27.4
 
 ## 正文
 
-康菲石油周四表示，将于本周向委内瑞拉派遣一个小型评估团队，以评估该国的石油和天然气业务机会。
+中新网福州4月29日电 (叶艺琳)《全国数据资源调查报告(2025年)》29日在第九届数字中国建设峰会主论坛上正式发布。
 
-这家美国石油生产商于2007年离开这个南美国家，当时其在那里的资产被收归国有。
+报告显示，中国数据要素市场化、价值化进程显著提速，数据资源供给体系、数据流通体系和数据开发利用体系协同演进，正从数据资源规模扩张向数据要素价值释放加快跃升。
 
-根据征收仲裁裁决，该公司被拖欠约120亿美元（含利息）。
+2025年，中国数据生产总量达52.26ZB(泽字节)，同比增长27.28%，约占全球生产总量的27.44%。
 
-康菲石油表示，在努力收回被拖欠款项的同时，将评估在委内瑞拉进行新投资的可能性。
+中国数据存储总量达2.53ZB(泽字节)，活跃数据总量1.67ZB(泽字节)。
 
-美国总统唐纳德·特朗普在美军于1月强行抓走委内瑞拉总统尼古拉斯·马杜罗后，已敦促石油公司投入数十亿美元并重建委内瑞拉的能源行业。
+中国智算总规模达到159万PFlops(每秒执行千万亿次浮点运算)，八大国家算力枢纽(含十大集群)智算规模占全国比重超过80%，通用算力向智能算力的代际更替加速。
 
-美国石油巨头埃克森美孚（同样于2007年退出该国）已于上月派遣了一个技术团队，评估基础设施和投资机会。
+中国日均词元调用量从年初的超万亿增长到年末的100万亿，呈现指数级增长；全年词元累计调用量达到约21100万亿。
 
-康菲石油首席执行官瑞安·兰斯上月表示，委内瑞拉需要“完全重新调整”其财政体系以吸引新投资，并称最近的改革“严重不足”。
+数据赋能千行百业成效凸显。
 
-责任编辑：张俊 SF065
+报告显示，农业领域，用于人工智能的数据量同比增长近15%，智慧农业加速发展；工业领域，工业数据生产量约占企业数据生产总量的1/4，数字化转型赋能效应持续提升。
 
 ## 相关推荐
 
-- 2026-06-30 05:33 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-30 05:39 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-30 05:17 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-30 05:39 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-30 05:36 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-30 05:39 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-30 05:17 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-30 05:29 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-30 05:33 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-30 05:17 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-30 05:27 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-30 05:27 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-30 05:29 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 05:23 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-30 05:20 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 05:26 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-30 05:43 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 05:38 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-30 05:34 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-30 05:19 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-30 05:21 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 05:21 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-30 05:41 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-30 05:26 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:15 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/462690.shtml)
-- 2026-06-30 05:40 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/57679.shtml)
-- 2026-06-30 05:19 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/72848.shtml)
-- 2026-06-30 05:17 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/239616549.shtml)
-- 2026-06-30 05:35 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/267108.shtml)
-- 2026-06-30 05:13 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/70122345182.shtml)
-- 2026-06-30 05:12 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.minike.top/Article/details/3429305506.shtml)
-- 2026-06-30 05:28 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/710919075825.shtml)
-- 2026-06-30 05:17 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/01601696.shtml)
-- 2026-06-30 05:26 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/73516.shtml)
-- 2026-06-30 05:19 - [小娘惹](http://www.share.kurohicncr.top/Article/details/2598769.shtml)
-- 2026-06-30 05:40 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/90598590.shtml)
-- 2026-06-30 05:26 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/66289.shtml)
-- 2026-06-30 05:27 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/8989653.shtml)
-- 2026-06-30 05:33 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/160811.shtml)
+- 2026-06-30 05:41 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/10840280325.shtml)
+- 2026-06-30 05:37 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/01849271936.shtml)
+- 2026-06-30 05:47 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/773086648949.shtml)
+- 2026-06-30 05:27 - [巴拉圭先进球了](http://www.share.kurohicncr.top/Article/details/079190204753.shtml)
+- 2026-06-30 05:19 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/70793861.shtml)
+- 2026-06-30 05:30 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/76671543750.shtml)
+- 2026-06-30 05:26 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/507135158111.shtml)
+- 2026-06-30 05:23 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/871273699948.shtml)
+- 2026-06-30 05:37 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/67482566.shtml)
+- 2026-06-30 05:18 - [金刚川](http://www.blog.kurohicncr.top/Article/details/4480325312.shtml)
+- 2026-06-30 05:30 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/13353201.shtml)
+- 2026-06-30 05:47 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/14714147.shtml)
+- 2026-06-30 05:35 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/8645787627.shtml)
+- 2026-06-30 05:27 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/8091605921.shtml)
+- 2026-06-30 05:42 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/697447155.shtml)

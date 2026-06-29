@@ -1,53 +1,55 @@
-# 亲历者白莉娟回忆：“乒乓外交”的精髓 是让人们真正读懂彼此
+# 中远海能早盘涨逾5% 第一季度运价同比显著提升
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月10日 23:10 来源：中国新闻网 正值“乒乓外交”55周年。应中国人民对外友好协会邀请，当年参与“乒乓外交”的美国运动员和相关人士近日抵达北京。白莉娟作为接待中国乒乓球代表团访美的美方亲历者与参与者，回忆当年场景，她一度哽咽泪目。 记者 郎佳慧 王世博 曾玥 北京报道 责任编辑：【张令旗】
+中远海能（01138）早盘涨近6%，截至发稿，股价上涨4.99%，现报18.11港元，成交额8238.32万港元。 中远海能发布一季度业绩，期内收入73.03 亿元，同比增长26.95%，环比增长7.65%；归母净利润21.73 亿元，同比增长207.09%，环比增长65.34%。公司一季度盈利及收入大幅上涨主要因运价同比显著提升。 高盛发布研报称，由于大量LR2型油轮转向运载
 
 ## 正文
 
-发布时间：2026年04月10日 23:10 来源：中国新闻网 正值“乒乓外交”55周年。
+中远海能（01138）早盘涨近6%，截至发稿，股价上涨4.99%，现报18.11港元，成交额8238.32万港元。
 
-应中国人民对外友好协会邀请，当年参与“乒乓外交”的美国运动员和相关人士近日抵达北京。
+中远海能发布一季度业绩，期内收入73.03 亿元，同比增长26.95%，环比增长7.65%；归母净利润21.73 亿元，同比增长207.09%，环比增长65.34%。
 
-白莉娟作为接待中国乒乓球代表团访美的美方亲历者与参与者，回忆当年场景，她一度哽咽泪目。
+公司一季度盈利及收入大幅上涨主要因运价同比显著提升。
 
-记者 郎佳慧 王世博 曾玥 北京报道 责任编辑：【张令旗】
+高盛发布研报称，由于大量LR2型油轮转向运载脏油，降低有效运力并推高成品油轮运费，因此上调2026至2028年盈利预测3%至4%。
+
+对于原油油轮，该行大致维持2026及2027年VLCC日均期租租金15万及13万美元预测。
+
+该行相信，VLCC超级周期正由运力紧张推动，并受行业整合强化，中远海能为主要受惠者。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:19 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-30 05:40 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-30 05:17 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-30 05:25 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-30 05:35 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-30 05:25 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-30 05:30 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-30 05:19 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-30 05:35 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-30 05:24 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-30 05:35 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-30 05:23 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 05:13 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-30 05:21 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-30 05:30 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-30 05:24 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-30 05:29 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-30 05:47 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-30 05:20 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 05:40 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-30 05:40 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-30 05:22 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-30 05:48 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-30 05:38 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-30 05:46 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-30 05:18 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:34 - [绘画区你赢了](http://www.share.minike.top/Article/details/36210.shtml)
-- 2026-06-30 05:36 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/307731259.shtml)
-- 2026-06-30 05:31 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/663042393.shtml)
-- 2026-06-30 05:27 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/2917980821.shtml)
-- 2026-06-30 05:39 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/91492327.shtml)
-- 2026-06-30 05:29 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/76764.shtml)
-- 2026-06-30 05:25 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/726931604.shtml)
-- 2026-06-30 05:29 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/5793085.shtml)
-- 2026-06-30 05:26 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/1576488.shtml)
-- 2026-06-30 05:16 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/66477.shtml)
-- 2026-06-30 05:18 - [乔家的儿女](http://www.share.minike.top/Article/details/1429855.shtml)
-- 2026-06-30 05:24 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/8495095577.shtml)
-- 2026-06-30 05:20 - [巴西替补奇兵读秒绝杀](http://www.share.kurohicncr.top/Article/details/0857793.shtml)
-- 2026-06-30 05:30 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/858677.shtml)
-- 2026-06-30 05:17 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/0383477205.shtml)
+- 2026-06-30 05:47 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/79967891.shtml)
+- 2026-06-30 05:19 - [日本反击率先破门](https://www.blog.minike.top/Article/details/680868.shtml)
+- 2026-06-30 05:46 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/778174923.shtml)
+- 2026-06-30 05:36 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/657310.shtml)
+- 2026-06-30 05:28 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/626497782375.shtml)
+- 2026-06-30 05:43 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/05061157963.shtml)
+- 2026-06-30 05:32 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/13173288.shtml)
+- 2026-06-30 05:41 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/61642483541.shtml)
+- 2026-06-30 05:21 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/57006727.shtml)
+- 2026-06-30 05:21 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/058454855.shtml)
+- 2026-06-30 05:26 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/1305989512.shtml)
+- 2026-06-30 05:22 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/33758595160.shtml)
+- 2026-06-30 05:46 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/56179487345.shtml)
+- 2026-06-30 05:24 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/8569950.shtml)
+- 2026-06-30 05:31 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/622668.shtml)

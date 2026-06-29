@@ -1,57 +1,50 @@
-# 广西高校首家辅导员学院揭牌成立
+# 科笛-B获FIDELITY CHINA SPECIAL SITUATIONS PLC增持3.06万股
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新网南宁4月10日电(黄艳梅 刘海文)广西民族大学辅导员学院10日揭牌成立，这是广西高校首个辅导员学院。 辅导员是高校思想政治工作的骨干力量。广西民族大学党委书记唐平秋称，成立辅导员学院，是面向辅导员职业发展的制度性供给，是破解队伍建设结构性矛盾、推动育人工作提质增效的关键举措，标志着学校辅导员队伍建设正式迈入系统化、规范化、高质量发展的新阶段。 近年来，广西民族大学辅导员队
+香港联交所最新数据显示，4月23日，FIDELITY CHINA SPECIAL SITUATIONS PLC增持科笛-B（02487）3.06万股，每股作价4.6041港元，总金额约为14.09万港元。增持后最新持股数目约为1826.09万股，最新持股比例为5.01%。责任编辑：卢昱君
 
 ## 正文
 
-中新网南宁4月10日电(黄艳梅 刘海文)广西民族大学辅导员学院10日揭牌成立，这是广西高校首个辅导员学院。
+香港联交所最新数据显示，4月23日，FIDELITY CHINA SPECIAL SITUATIONS PLC增持科笛-B（02487）3.06万股，每股作价4.6041港元，总金额约为14.09万港元。
 
-辅导员是高校思想政治工作的骨干力量。
+增持后最新持股数目约为1826.09万股，最新持股比例为5.01%。
 
-广西民族大学党委书记唐平秋称，成立辅导员学院，是面向辅导员职业发展的制度性供给，是破解队伍建设结构性矛盾、推动育人工作提质增效的关键举措，标志着学校辅导员队伍建设正式迈入系统化、规范化、高质量发展的新阶段。
-
-近年来，广西民族大学辅导员队伍建设成效显著：4人入选广西高校辅导员年度人物和最美高校辅导员推选展示，4人入选广西高校思想政治教育杰出人才支持计划；在广西高校辅导员素质能力大赛中，共获得特等奖2名、一等奖6名、二等奖2名、三等奖1名；获评4个广西壮族自治区级辅导员名师工作室。
-
-“学校辅导员学院的成立，为我们深耕育人一线、实现成长突破搭建了坚实的制度平台与发展阶梯。
-
-”广西民族大学人工智能学院辅导员常聪说，她将坚守政治初心，主动锤炼育人技能，提升综合素养，努力从“经验型”向“专家型”辅导员转变，做协同育人的“推动者”和学生可信赖的良师益友。
-
-唐平秋表示，站在新的起点上，广西民族大学将以辅导员学院成立为契机，聚焦主责主业、强化内涵建设，努力把辅导员学院建设成为政治引领的高地、专业成长的平台、育人创新的阵地、民族团结的纽带。
-
-(完)
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:16 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-30 05:19 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 05:38 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-30 05:25 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-30 05:35 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-30 05:37 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 05:32 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-30 05:37 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-30 05:33 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-30 05:31 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-30 05:25 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-30 05:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-30 05:45 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-30 05:34 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-30 05:39 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 05:45 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-30 05:42 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 05:27 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-30 05:41 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-30 05:25 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-30 05:44 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-30 05:28 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-30 05:39 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 05:39 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-30 05:41 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:34 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/9960248.shtml)
-- 2026-06-30 05:15 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/801827.shtml)
-- 2026-06-30 05:16 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/944454720007.shtml)
-- 2026-06-30 05:17 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/84774.shtml)
-- 2026-06-30 05:30 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/5570546.shtml)
-- 2026-06-30 05:19 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/971485344.shtml)
-- 2026-06-30 05:13 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/860602.shtml)
-- 2026-06-30 05:18 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/468842567836.shtml)
-- 2026-06-30 05:13 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/064407.shtml)
-- 2026-06-30 05:26 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/089040570021.shtml)
-- 2026-06-30 05:18 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/9468311734.shtml)
-- 2026-06-30 05:33 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/597462.shtml)
-- 2026-06-30 05:32 - [巴西替补奇兵读秒绝杀](http://www.share.kurohicncr.top/Article/details/98689.shtml)
-- 2026-06-30 05:36 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/307167.shtml)
-- 2026-06-30 05:20 - [巴西半场0比1日本](https://www.blog.kurohicncr.top/Article/details/316115.shtml)
+- 2026-06-30 05:36 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/5136012.shtml)
+- 2026-06-30 05:45 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/9460062742.shtml)
+- 2026-06-30 05:44 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/147333.shtml)
+- 2026-06-30 05:33 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/930423.shtml)
+- 2026-06-30 05:30 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/4230135.shtml)
+- 2026-06-30 05:35 - [房价什么时候能涨](http://www.share.minike.top/Article/details/34603.shtml)
+- 2026-06-30 05:45 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/70061872.shtml)
+- 2026-06-30 05:45 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/92378356.shtml)
+- 2026-06-30 05:45 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/225700366.shtml)
+- 2026-06-30 05:41 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/25859.shtml)
+- 2026-06-30 05:29 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/359981.shtml)
+- 2026-06-30 05:33 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/69190718223.shtml)
+- 2026-06-30 05:23 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/569063.shtml)
+- 2026-06-30 05:29 - [日本领先巴西](https://www.share.minike.top/Article/details/77712.shtml)
+- 2026-06-30 05:39 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/60695.shtml)

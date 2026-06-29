@@ -1,56 +1,57 @@
-# 专业调整、竞赛通道收紧 一文读懂2026年“强基计划”新变化
+# 2026年度贵州法院“贵在执行”系列专项执行行动启动
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-本周，39所试点高校“强基计划”招生简章密集发布，报名通道陆续开启。2026年是强基计划实施的第七年，这一计划的目的是选拔有志于服务国家重大战略需求，且综合素质或基础学科拔尖的学生。今年，不少高校新增了招生专业。多所试点高校新增招生专业 目前，强基计划试点高校共39所，在数学、物理、化学、生物、力学、历史、哲学、古文字学、基础医学等基础学科以及国家重大战略领域相关专业招生。 今
+中新网贵阳4月28日电 (记者 张伟)2026年度贵州法院“贵在执行”系列专项执行行动28日正式启动。行动启动首日，贵州全省法院共执结案件2427件，冻结被执行人银行存款3.95亿元，扣划存款1.08亿元，查封房产9.14万平方米，拘传251人，采取司法拘留或预拘留措施142人，发放执行案款及以物抵债金额达1.81亿元。 行动由贵州省高级人民法院部署开展，旨在深入贯彻落实最高人
 
 ## 正文
 
-本周，39所试点高校“强基计划”招生简章密集发布，报名通道陆续开启。
+中新网贵阳4月28日电 (记者 张伟)2026年度贵州法院“贵在执行”系列专项执行行动28日正式启动。
 
-2026年是强基计划实施的第七年，这一计划的目的是选拔有志于服务国家重大战略需求，且综合素质或基础学科拔尖的学生。
+行动启动首日，贵州全省法院共执结案件2427件，冻结被执行人银行存款3.95亿元，扣划存款1.08亿元，查封房产9.14万平方米，拘传251人，采取司法拘留或预拘留措施142人，发放执行案款及以物抵债金额达1.81亿元。
 
-今年，不少高校新增了招生专业。
+行动由贵州省高级人民法院部署开展，旨在深入贯彻落实最高人民法院关于有效解决执行难的工作部署，进一步提升执行工作质效和司法公信力。
 
-多所试点高校新增招生专业 目前，强基计划试点高校共39所，在数学、物理、化学、生物、力学、历史、哲学、古文字学、基础医学等基础学科以及国家重大战略领域相关专业招生。
+行动坚持依法规范执行与善意文明执行并重，聚焦民众急难愁盼，注重护航企业发展和维护市场秩序。
 
-今年，共有13所高校新增了招生专业。
+行动将持续至2026年12月31日，涵盖“贵在执行——小标的·大民生”专项行动、“贵在执行——优化营商环境”专项行动、“贵在执行——刑事涉财案件”专项行动、“贵在执行——打击拒执犯罪行为”专项行动，将着力破解执行难题，努力将胜诉当事人的“纸上权益”兑现为“真金白银”。
 
-其中，山东大学新增“密码科学与技术”专业，中国科学技术大学新增“能源与动力工程”专业，西安交通大学新增“储能科学与工程”专业，北京航空航天大学新增“飞行器适航技术”专业，天津大学新增“船舶与海洋工程”专业。
+在涉民生领域，贵州法院将开展“贵在执行——小标的·大民生”专项行动，重点聚焦5万元以下案件，尤其是劳动报酬、赡养费、抚养费、交通事故赔偿等与群众切身利益密切相关案件，实行优先立案、优先查控、优先兑付，推动“小案快执、民生必护”。
 
-北京航空航天大学招生办公室主任 刘睿：飞行器适航技术专业主要是面向我们的大飞机、面向我们的低空经济，开展飞行器设计适航与验证的相关技术研究。
+对事实清楚、财产线索明确的小标的案件，力争30天内执结。
 
-现在“强基计划”一方面面向基础学科，同时也要面向国家战略需求。
+同时，依托综治中心、基层网格员和人民法庭力量，强化查人找物、督促履行等联动机制，加大欠薪案件攻坚力度。
 
 ## 相关推荐
 
-- 2026-06-30 05:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-30 05:35 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-30 05:31 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 05:25 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-30 05:12 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-30 05:15 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-30 05:39 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-30 05:27 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 05:24 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-30 05:22 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-30 05:41 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 05:28 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-30 05:27 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-30 05:23 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-30 05:28 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-30 05:30 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 05:28 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-30 05:20 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 05:21 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-30 05:39 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-30 05:36 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:24 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/73141589.shtml)
-- 2026-06-30 05:21 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/7122318.shtml)
-- 2026-06-30 05:42 - [德约科维奇向温网对手放狠话](https://www.blog.minike.top/Article/details/3069878532.shtml)
-- 2026-06-30 05:24 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/587302771.shtml)
-- 2026-06-30 05:22 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/20320.shtml)
-- 2026-06-30 05:12 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/121839373791.shtml)
-- 2026-06-30 05:13 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/33348571715.shtml)
-- 2026-06-30 05:25 - [巴西醒醒 这是淘汰赛](http://www.share.minike.top/Article/details/105281.shtml)
-- 2026-06-30 05:28 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/893258184295.shtml)
-- 2026-06-30 05:32 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/341900154973.shtml)
-- 2026-06-30 05:23 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/663999693006.shtml)
-- 2026-06-30 05:32 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/28411.shtml)
-- 2026-06-30 05:40 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/120449.shtml)
-- 2026-06-30 05:39 - [女心理师](https://www.share.minike.top/Article/details/89137605275.shtml)
-- 2026-06-30 05:18 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/4727616.shtml)
+- 2026-06-30 05:19 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/54055021.shtml)
+- 2026-06-30 05:19 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/7028451.shtml)
+- 2026-06-30 05:35 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/926752413.shtml)
+- 2026-06-30 05:47 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/825773.shtml)
+- 2026-06-30 05:29 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/177125.shtml)
+- 2026-06-30 05:38 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/218835283240.shtml)
+- 2026-06-30 05:28 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/237839376276.shtml)
+- 2026-06-30 05:35 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/91779377.shtml)
+- 2026-06-30 05:47 - [巴西2比1日本](http://www.share.minike.top/Article/details/328997041.shtml)
+- 2026-06-30 05:29 - [世界杯：德国vs巴拉圭](https://www.share.minike.top/Article/details/695621615758.shtml)
+- 2026-06-30 05:30 - [送你一朵小红花](https://www.blog.minike.top/Article/details/176171902624.shtml)
+- 2026-06-30 05:40 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/218396.shtml)
+- 2026-06-30 05:25 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/411351050905.shtml)
+- 2026-06-30 05:44 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/1878894741.shtml)
+- 2026-06-30 05:42 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/23610.shtml)

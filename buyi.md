@@ -1,58 +1,50 @@
-# （八闽千姿）闽南盐鸡鲜香美味飘四海
+# 群众反映被冒名注册5家公司 成都武侯区成立联合调查组
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新社漳州4月11日电 题：闽南盐鸡鲜香美味飘四海 中新社记者 张金川 “清明假期3天，店里盐鸡销量近2700只，这份闽南传统小吃，是海内外中华儿女寻根路上的乡愁印记。”年逾六旬的闽南盐鸡传统制作技艺代表性传承人蔡建民11日接受中新社记者采访时说。 位于福建省漳州市龙文区蓝田街道蔡坂社区的云洞岩景区，被誉为“闽南第一碑林”，盐鸡正是景区的传统美食。20世纪初，蔡坂就有制作盐鸡的
+新华社成都4月28日电(记者董小红)成都市武侯区行政审批局4月28日发布情况通报称，近日，有群众反映其在不知情的情况下被冒名注册了5家公司。该局高度重视，已联动区公安分局、区市场监管局等部门组成联合调查组开展核查工作。该局将坚决维护人民群众合法权益，根据调查结果依法依规处理。 据了解，今年3月，陕西宝鸡的杨女士在给新公司报税时，意外发现自己名下竟然挂着5家注册在成都市武侯区的公
 
 ## 正文
 
-中新社漳州4月11日电 题：闽南盐鸡鲜香美味飘四海 中新社记者 张金川 “清明假期3天，店里盐鸡销量近2700只，这份闽南传统小吃，是海内外中华儿女寻根路上的乡愁印记。
+新华社成都4月28日电(记者董小红)成都市武侯区行政审批局4月28日发布情况通报称，近日，有群众反映其在不知情的情况下被冒名注册了5家公司。
 
-”年逾六旬的闽南盐鸡传统制作技艺代表性传承人蔡建民11日接受中新社记者采访时说。
+该局高度重视，已联动区公安分局、区市场监管局等部门组成联合调查组开展核查工作。
 
-位于福建省漳州市龙文区蓝田街道蔡坂社区的云洞岩景区，被誉为“闽南第一碑林”，盐鸡正是景区的传统美食。
+该局将坚决维护人民群众合法权益，根据调查结果依法依规处理。
 
-20世纪初，蔡坂就有制作盐鸡的传统，制作技艺历经四代人传承，当地凡婚丧、乔迁、庆生、祭祀等大事都少不了盐鸡。
-
-记者在云洞岩景区道路两旁看到，“盐鸡”招牌随处可见，堪称“盐鸡一条街”。
-
-蔡坂民众凭借云洞岩美景和传统风味小吃闽南盐鸡吃上了“旅游饭”，日子越过越红火。
-
-传承自父辈的手艺，蔡建民夫妇的怣北盐鸡饭店，在此营业已40年，拥有众多粉丝。
-
-“清明节前后，众多海外华侨华人及台胞返乡祭祖，纷纷选购盐鸡供奉先祖、慰藉味蕾。
+据了解，今年3月，陕西宝鸡的杨女士在给新公司报税时，意外发现自己名下竟然挂着5家注册在成都市武侯区的公司，其中两家她还成了法定代表人。
 
 ## 相关推荐
 
-- 2026-06-30 05:15 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-30 05:28 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-30 05:39 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-30 05:18 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-30 05:26 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-30 05:18 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-30 05:37 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-30 05:35 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 05:28 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-30 05:30 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 05:34 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-30 05:17 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 05:42 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-30 05:39 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-30 05:38 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-30 05:33 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 05:43 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-30 05:42 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-30 05:21 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-30 05:26 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-30 05:25 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-30 05:20 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 05:24 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-30 05:36 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:29 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/416293754.shtml)
-- 2026-06-30 05:33 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/2870469.shtml)
-- 2026-06-30 05:18 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/61225882.shtml)
-- 2026-06-30 05:13 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/955446531.shtml)
-- 2026-06-30 05:22 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/924694.shtml)
-- 2026-06-30 05:15 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/99034906403.shtml)
-- 2026-06-30 05:26 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/7470184159.shtml)
-- 2026-06-30 05:30 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/020484682526.shtml)
-- 2026-06-30 05:12 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/9547426384.shtml)
-- 2026-06-30 05:23 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/95231329.shtml)
-- 2026-06-30 05:16 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/654101244161.shtml)
-- 2026-06-30 05:36 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/69607.shtml)
-- 2026-06-30 05:18 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/16648630778.shtml)
-- 2026-06-30 05:30 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/0641999.shtml)
-- 2026-06-30 05:15 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/99799191122.shtml)
+- 2026-06-30 05:29 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/7671445007.shtml)
+- 2026-06-30 05:31 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/825886511.shtml)
+- 2026-06-30 05:19 - [恋与深空制作组回应近期争议](https://www.share.minike.top/Article/details/9663873.shtml)
+- 2026-06-30 05:26 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/638029425.shtml)
+- 2026-06-30 05:19 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/580598163.shtml)
+- 2026-06-30 05:39 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/18250.shtml)
+- 2026-06-30 05:25 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/93694078.shtml)
+- 2026-06-30 05:23 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/098422231.shtml)
+- 2026-06-30 05:29 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/83708673236.shtml)
+- 2026-06-30 05:27 - [《共患难》](https://www.share.kurohicncr.top/Article/details/24570906.shtml)
+- 2026-06-30 05:45 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/7563470.shtml)
+- 2026-06-30 05:45 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/10800956965.shtml)
+- 2026-06-30 05:42 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/492576.shtml)
+- 2026-06-30 05:35 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/05570855.shtml)
+- 2026-06-30 05:40 - [极限挑战第一季](http://www.blog.minike.top/Article/details/76306160.shtml)

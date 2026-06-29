@@ -1,59 +1,61 @@
-# 2026江西德兴铁人三项亚洲杯赛鸣枪开赛
+# 受贿9220万余元 江西省人大常委会原副主任洪礼和一审获刑20年
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新网江西德兴4月11日电 (王成前 胡坤明)4月11日，2026江西德兴铁人三项亚洲杯赛在德兴市凤凰湖景区鸣枪开赛。来自中国、澳大利亚、奥地利、加拿大、希腊、日本、韩国等11个国家和地区的90名男女优秀组运动员参赛，在秀美山水间展开速度与耐力的激烈角逐。赛段包括游泳1.5公里、自行车44公里、跑步10公里。 当日上午8时30分，男子优秀组赛事率先开赛，此时天空已下起了小雨。代
+2026年4月28日，福建省福州市中级人民法院一审公开宣判江西省人大常委会原党组副书记、副主任洪礼和受贿、滥用职权、洗钱案，对被告人洪礼和以受贿罪判处有期徒刑十五年，并处罚金人民币七百万元，以滥用职权罪判处有期徒刑九年六个月，以洗钱罪判处有期徒刑三年六个月，并处罚金人民币五十万元，决定执行有期徒刑二十年，并处罚金人民币七百五十万元；对其犯罪所得财物及孳息依法予以追缴，上缴国库。
 
 ## 正文
 
-中新网江西德兴4月11日电 (王成前 胡坤明)4月11日，2026江西德兴铁人三项亚洲杯赛在德兴市凤凰湖景区鸣枪开赛。
+2026年4月28日，福建省福州市中级人民法院一审公开宣判江西省人大常委会原党组副书记、副主任洪礼和受贿、滥用职权、洗钱案，对被告人洪礼和以受贿罪判处有期徒刑十五年，并处罚金人民币七百万元，以滥用职权罪判处有期徒刑九年六个月，以洗钱罪判处有期徒刑三年六个月，并处罚金人民币五十万元，决定执行有期徒刑二十年，并处罚金人民币七百五十万元；对其犯罪所得财物及孳息依法予以追缴，上缴国库。
 
-来自中国、澳大利亚、奥地利、加拿大、希腊、日本、韩国等11个国家和地区的90名男女优秀组运动员参赛，在秀美山水间展开速度与耐力的激烈角逐。
+经审理查明：2000年至2024年，被告人洪礼和利用担任江西省新余市市长、市委书记，江西省发改委党组书记、主任，江西省政府党组成员、副省长，江西省人大常委会党组副书记、副主任，江西老年大学校长等职务上的便利，为有关单位和个人在企业经营、股权收购、项目承接、职务晋升等方面提供帮助，直接或者通过他人非法收受财物共计折合人民币9220万余元。
 
-赛段包括游泳1.5公里、自行车44公里、跑步10公里。
+2010年至2013年，洪礼和担任江西省政府党组成员、副省长期间，徇私舞弊，滥用职权，违规帮助他人获取省级预留新增建设用地计划指标，造成特别恶劣社会影响，致使国家和人民利益遭受特别重大损失。
 
-当日上午8时30分，男子优秀组赛事率先开赛，此时天空已下起了小雨。
+2020年至2023年，洪礼和通过办理大额存单、购买房产等方式掩饰、隐瞒受贿所得。
 
-代表世界铁人三项联合会参赛的James Corbett，一入水便展现出强劲实力，雨水并未影响他的节奏，在游泳赛段就跻身第一梯队。
+福州市中级人民法院认为，被告人洪礼和的行为构成受贿罪、滥用职权罪、洗钱罪，应依法惩处。
 
-切换至自行车赛段，湿滑的路面增加了骑行难度，但James Corbett通过精准的控车技术，逐渐拉开与其他选手的差距。
+鉴于洪礼和归案后如实供述自己的罪行，主动交代监察机关尚未掌握的绝大部分受贿犯罪事实和洗钱犯罪事实，洗钱罪构成自首；认罪悔罪，积极退赃，受贿犯罪赃款赃物及孳息绝大部分已追缴到案；检举揭发他人重大犯罪经查属实，有重大立功表现，具有法定、酌定从轻处罚情节，依法可对其从轻处罚。
 
-进入跑步赛段，James Corbett进一步扩大了领先优势，最终以1小时46分43秒的优异成绩夺得男子优秀组冠军。
+法庭遂作出上述判决。
 
-随后进行的女子优秀组比赛中，雨势陡然增大，给选手们带来了更大挑战。
+福州市中级人民法院于2026年1月30日公开开庭审理了该案。
 
 ## 相关推荐
 
-- 2026-06-30 05:36 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-30 05:33 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 05:40 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-30 05:14 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-30 05:20 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-30 05:15 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-30 05:17 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-30 05:30 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-30 05:32 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-30 05:21 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 05:39 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-30 05:34 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-30 05:29 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-30 05:24 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 05:19 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-30 05:40 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-30 05:33 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 05:31 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-30 05:26 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-30 05:43 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-30 05:34 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 05:27 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-30 05:25 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 05:43 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-30 05:31 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-30 05:30 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-30 05:30 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 05:21 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:13 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/085844.shtml)
-- 2026-06-30 05:31 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.kurohicncr.top/Article/details/4777831558.shtml)
-- 2026-06-30 05:40 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/1978780.shtml)
-- 2026-06-30 05:17 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/7262345.shtml)
-- 2026-06-30 05:27 - [明星大侦探第一季](https://www.share.minike.top/Article/details/81328.shtml)
-- 2026-06-30 05:26 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/76229659820.shtml)
-- 2026-06-30 05:28 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/49904154.shtml)
-- 2026-06-30 05:14 - [警犬“多多”助民警寻回失联老人](http://www.share.kurohicncr.top/Article/details/0748984.shtml)
-- 2026-06-30 05:14 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/62693336330.shtml)
-- 2026-06-30 05:24 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/6216763.shtml)
-- 2026-06-30 05:28 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/0303943.shtml)
-- 2026-06-30 05:23 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/631278689471.shtml)
-- 2026-06-30 05:23 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/072739623.shtml)
-- 2026-06-30 05:41 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/9963821.shtml)
-- 2026-06-30 05:28 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/46575740.shtml)
+- 2026-06-30 05:38 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/404221991366.shtml)
+- 2026-06-30 05:31 - [金牌调解](http://www.share.minike.top/Article/details/36605173469.shtml)
+- 2026-06-30 05:39 - [王欣瑜2-1击败科恰雷托](http://www.blog.kurohicncr.top/Article/details/651157475.shtml)
+- 2026-06-30 05:38 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/576149.shtml)
+- 2026-06-30 05:38 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/977644979.shtml)
+- 2026-06-30 05:18 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/22625762.shtml)
+- 2026-06-30 05:34 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/426421.shtml)
+- 2026-06-30 05:34 - [安切洛蒂 换人](http://www.share.minike.top/Article/details/044726613.shtml)
+- 2026-06-30 05:38 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/856882881.shtml)
+- 2026-06-30 05:42 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/8151793612.shtml)
+- 2026-06-30 05:37 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/01758.shtml)
+- 2026-06-30 05:42 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/33294567.shtml)
+- 2026-06-30 05:20 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.kurohicncr.top/Article/details/11721.shtml)
+- 2026-06-30 05:22 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/30191229.shtml)
+- 2026-06-30 05:44 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/560790876.shtml)

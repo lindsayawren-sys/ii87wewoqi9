@@ -1,54 +1,57 @@
-# 中国香港体操总会一行在广西训练交流
+# 英国4月零售销售量创40余年最大跌幅
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新网南宁4月12日电 (黄令妍)为深化桂港两地体育交流合作，提升蹦床项目竞技水平，4月5日至11日，中国香港体操总会蹦床教练员、运动员一行9人来南宁训练，与广西蹦床队开展为期一周的训练交流。 训练期间，运动员们以技会友，围绕基础动作规范、难度动作分解、成套动作衔接等环节进行深入交流，通过动作互纠、分组合练、趣味展演等形式，切磋技艺、取长补短。双方教练也紧扣训练实战需求，就技术
+中新网伦敦4月28日电 (欧阳开宇 卢映荷)英国工业联合会(CBI)28日发布调查显示，受中东局势推升通胀担忧影响，英国4月零售销售量同比跌幅创1983年有记录以来最大，行业前景进一步黯淡。 数据显示，CBI月度零售销售量指数从3月的-52骤降至4月的-68，为该系列1983年启动以来最低水平。其中77%零售商报告销售额同比下滑，仅9%实现增长，消费者信心疲软成为主要拖累。 从
 
 ## 正文
 
-中新网南宁4月12日电 (黄令妍)为深化桂港两地体育交流合作，提升蹦床项目竞技水平，4月5日至11日，中国香港体操总会蹦床教练员、运动员一行9人来南宁训练，与广西蹦床队开展为期一周的训练交流。
+中新网伦敦4月28日电 (欧阳开宇 卢映荷)英国工业联合会(CBI)28日发布调查显示，受中东局势推升通胀担忧影响，英国4月零售销售量同比跌幅创1983年有记录以来最大，行业前景进一步黯淡。
 
-训练期间，运动员们以技会友，围绕基础动作规范、难度动作分解、成套动作衔接等环节进行深入交流，通过动作互纠、分组合练、趣味展演等形式，切磋技艺、取长补短。
+数据显示，CBI月度零售销售量指数从3月的-52骤降至4月的-68，为该系列1983年启动以来最低水平。
 
-双方教练也紧扣训练实战需求，就技术动作打磨、科学训练方法开展深度研讨，积极分享执教经验。
+其中77%零售商报告销售额同比下滑，仅9%实现增长，消费者信心疲软成为主要拖累。
 
-紧张的训练之余，两地运动员和教练还开展联谊互动、文化交流体验活动。
+从季节性表现看，4月零售销售远逊于常年水平，指数为-32，较3月的-23进一步走弱，为2025年6月以来最差。
 
-近年来，广西壮族自治区体育局以与国家体育总局体操运动管理中心签订战略合作协议为契机，并依托亚洲体操联合会支持建设的亚洲体操训练基地，积极开展国际国内交流活动并协助举办各类体操赛事、训练营，接待了中国国家青年体操队、国家蹦床队及俄罗斯蹦床队、马来西亚国家体操队等多支国内外队伍转训和外训，不仅充分展现广西大体操项目的深厚底蕴、影响力与知名度，更进一步深化广西与国内外体操类项目的友好合作。
+展望5月，零售商预期更为悲观，销售预期指数从-49降至-60，为2021年3月新冠疫情以来最低。
 
-(完)
+CBI首席经济学家马丁·萨托里乌斯指出，中东局势的经济影响逐步显现，企业期待政府通过降低经营成本缓解生活压力，呼吁暂缓新增雇员权利立法以避免增加雇主负担，并推动房产税下调与电费减免。
+
+本次调查覆盖3月26日至4月14日61家零售连锁企业。
+
+数据显示，线上零售销售同比降幅扩大至-51，为2024年1月以来最快；批发销售同比下滑至-32，整体分销销售同比收缩至-39，行业普遍承压。
 
 ## 相关推荐
 
-- 2026-06-30 05:37 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-30 05:30 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-30 05:40 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-30 05:35 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-30 05:39 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-30 05:36 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-30 05:29 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-30 05:41 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-30 05:13 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-30 05:36 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-30 05:16 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-30 05:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-30 05:45 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 05:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-30 05:37 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-30 05:23 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-30 05:33 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-30 05:23 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-30 05:28 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-30 05:30 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-30 05:34 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 05:23 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-30 05:25 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:22 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/5741741764.shtml)
-- 2026-06-30 05:13 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/3635373649.shtml)
-- 2026-06-30 05:15 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/62815336.shtml)
-- 2026-06-30 05:15 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/5676740.shtml)
-- 2026-06-30 05:24 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/6672324.shtml)
-- 2026-06-30 05:22 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/9568708.shtml)
-- 2026-06-30 05:40 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/59582687804.shtml)
-- 2026-06-30 05:13 - [金牌调解](https://www.share.kurohicncr.top/Article/details/3787049276.shtml)
-- 2026-06-30 05:19 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/836453434.shtml)
-- 2026-06-30 05:29 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/148849.shtml)
-- 2026-06-30 05:39 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/27571.shtml)
-- 2026-06-30 05:28 - [天道](https://www.share.minike.top/Article/details/014678103.shtml)
-- 2026-06-30 05:25 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/48593649079.shtml)
-- 2026-06-30 05:36 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/5001221.shtml)
-- 2026-06-30 05:41 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/838012110.shtml)
+- 2026-06-30 05:19 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/45817.shtml)
+- 2026-06-30 05:39 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/47037706854.shtml)
+- 2026-06-30 05:23 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/25162224.shtml)
+- 2026-06-30 05:42 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/392163.shtml)
+- 2026-06-30 05:44 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/5217283897.shtml)
+- 2026-06-30 05:28 - [月亮](https://www.share.kurohicncr.top/Article/details/56514.shtml)
+- 2026-06-30 05:26 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/6590442.shtml)
+- 2026-06-30 05:38 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.kurohicncr.top/Article/details/34224.shtml)
+- 2026-06-30 05:45 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/717400806.shtml)
+- 2026-06-30 05:44 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/6965789244.shtml)
+- 2026-06-30 05:34 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/806917722126.shtml)
+- 2026-06-30 05:26 - [女心理师](https://www.blog.minike.top/Article/details/267729916792.shtml)
+- 2026-06-30 05:28 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/14681.shtml)
+- 2026-06-30 05:39 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/903166988580.shtml)
+- 2026-06-30 05:23 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/9844510366.shtml)

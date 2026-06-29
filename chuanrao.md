@@ -1,58 +1,56 @@
-# 从“卖风景”到“它经济” 浙江安吉打造县域宠物友好之城
+# 科技向善赋民生 产业向新启新程
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新网湖州4月11日电(林波 徐然)春雨淅淅沥沥，浸润着浙江省湖州市安吉县溪龙乡白茶原小镇的万亩茶园，竹影婆娑间，几声萌宠的轻吠与茶香交织，打破了山野的静谧。 4月11日，第五届乡村文旅运营招商相亲会便在这片绿水青山间启幕。现场，安吉发布了“宠爱之城”计划，将目光精准锁定在“它经济”这一千亿级蓝海市场，系统性地推出打造宠物友好型县域旅游目的地的系列举措。 作为“绿水青山就是金山
+原标题：【开局之年看中国·遇见不一样的江苏】科技向善赋民生 产业向新启新程 央广网南京4月28日消息(记者王锡斐)“机器人大厨”给您炒菜、做面条，煎饼机娴熟做饼，自动咖啡机给您定制手机图案拉花……近日，“开局之年看中国·遇见不一样的江苏”网络主题宣传活动走进南京，在位于中国(南京)软件谷的南京人工智能生态街区AI餐厅里，记者和未来撞了个满怀！AI主理的餐厅高效、健康，情绪价值拉
 
 ## 正文
 
-中新网湖州4月11日电(林波 徐然)春雨淅淅沥沥，浸润着浙江省湖州市安吉县溪龙乡白茶原小镇的万亩茶园，竹影婆娑间，几声萌宠的轻吠与茶香交织，打破了山野的静谧。
+原标题：【开局之年看中国·遇见不一样的江苏】科技向善赋民生 产业向新启新程 央广网南京4月28日消息(记者王锡斐)“机器人大厨”给您炒菜、做面条，煎饼机娴熟做饼，自动咖啡机给您定制手机图案拉花……近日，“开局之年看中国·遇见不一样的江苏”网络主题宣传活动走进南京，在位于中国(南京)软件谷的南京人工智能生态街区AI餐厅里，记者和未来撞了个满怀！
 
-4月11日，第五届乡村文旅运营招商相亲会便在这片绿水青山间启幕。
+AI主理的餐厅高效、健康，情绪价值拉满。
 
-现场，安吉发布了“宠爱之城”计划，将目光精准锁定在“它经济”这一千亿级蓝海市场，系统性地推出打造宠物友好型县域旅游目的地的系列举措。
+不止于此，就餐前，AI通过面部识别，给您先做个体检，并根据当日餐前体检情况，给出个性化饮食建议…… 这是南京发展“人工智能+”的一隅，也是国家人工智能创新应用先导区先行先试的生动图景。
 
-作为“绿水青山就是金山银山”理念诞生地的安吉，连续七年成为“全国县域旅游综合实力百强县”之首。
+随着新一轮科技革命和产业变革加速演进，人工智能已成为引领这一轮科技革命和产业变革的战略性技术，全球竞速AI的当下，南京依托人才“软实力”，铸就创新“硬支撑”，积极抢占人工智能产业应用制高点，破解“创新链”与“产业链”的衔接难题，助力科技创新与产业创新深度融合。
 
-安吉县委书记宁云表示，从五年前首创“相亲会”模式为乡村招揽运营人才，到如今聚焦“宠物友好”的垂直生态，安吉用五年时间，通过一场场相亲会，完成了从“资源招商”到“情绪价值招商”的深刻跃迁。
+一条生态街区照见万亿软件产业的“烟火气” “帮我点一杯咖啡，热的，加奶不加糖。
 
-此次相亲会以“茶韵东方”萌宠走秀启幕，发出了安吉文旅向“宠物友好”转型的明确信号。
+”话音刚落，手机程序自动打开外卖软件，一步一步自行有序操作着，不到1分钟，下单完成。
 
-“我们不仅仅是在招一个宠物项目，而是在构建一种新的生活方式。
+以往需要人手动一步接着一步点击屏幕按流程操作的点外卖，在南京人工智能生态街区只需要一句话就能完成。
 
-”安吉县人民政府党组成员、副县长沈斌表示，当下宠物已成为许多年轻家庭的“家人”，带着“毛孩子”去旅行已成为刚需。
+工作人员告诉记者：“这句话的背后，是荣耀的AI技术自动在后台识别需求、关联外卖软件、发出需求、敲定目标。
 
 ## 相关推荐
 
-- 2026-06-30 05:30 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-30 05:28 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-30 05:31 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 05:27 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-30 05:23 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-30 05:23 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-30 05:28 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-30 05:13 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-30 05:41 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-30 05:41 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-30 05:16 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-30 05:14 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-30 05:44 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-30 05:46 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-30 05:40 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-30 05:46 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 05:43 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-30 05:42 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-30 05:24 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 05:43 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 05:41 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-30 05:47 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:12 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/098367062767.shtml)
-- 2026-06-30 05:17 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/47781867.shtml)
-- 2026-06-30 05:20 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/95489.shtml)
-- 2026-06-30 05:31 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/410036192667.shtml)
-- 2026-06-30 05:18 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/5917041973.shtml)
-- 2026-06-30 05:18 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/92843.shtml)
-- 2026-06-30 05:27 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/295611.shtml)
-- 2026-06-30 05:34 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/225087.shtml)
-- 2026-06-30 05:39 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/435644279.shtml)
-- 2026-06-30 05:30 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/58084397816.shtml)
-- 2026-06-30 05:13 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/39812.shtml)
-- 2026-06-30 05:28 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/73010582.shtml)
-- 2026-06-30 05:26 - [为什么会有「念旧」的心理？](http://www.share.minike.top/Article/details/023313675516.shtml)
-- 2026-06-30 05:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/305247915941.shtml)
-- 2026-06-30 05:17 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/693931161077.shtml)
+- 2026-06-30 05:19 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/157715470.shtml)
+- 2026-06-30 05:34 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.minike.top/Article/details/821787.shtml)
+- 2026-06-30 05:31 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/353678146831.shtml)
+- 2026-06-30 05:37 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/866103594402.shtml)
+- 2026-06-30 05:22 - [一生一世](http://www.blog.minike.top/Article/details/87247273458.shtml)
+- 2026-06-30 05:40 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/92246185.shtml)
+- 2026-06-30 05:26 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/550820345.shtml)
+- 2026-06-30 05:41 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/32200048500.shtml)
+- 2026-06-30 05:27 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/8819511057.shtml)
+- 2026-06-30 05:44 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/494454686.shtml)
+- 2026-06-30 05:28 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/55625.shtml)
+- 2026-06-30 05:23 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/09073324.shtml)
+- 2026-06-30 05:26 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/52872.shtml)
+- 2026-06-30 05:35 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/96058721.shtml)
+- 2026-06-30 05:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/661947.shtml)

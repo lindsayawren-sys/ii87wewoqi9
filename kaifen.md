@@ -1,61 +1,59 @@
-# 别因养生焦虑落入消费陷阱
+# 孙杨工作室：“妈妈致电节目组删除嘉宾言论”为恶意捏造
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-把产品功效吹上天、以免费噱头引人上钩、雇伪专家骗取信任……随着我国人口老龄化进程加快，老年群体健康需求日益攀升，各类养生保健“坑老”骗局花样翻新、层出不穷。一些不法分子瞄准老年群体的健康焦虑与情感需求，在线上线下布设各式养生陷阱，将黑手伸向老年人的“钱袋子”。复盘此类骗局，不法分子的套路虽不断翻新，核心却始终围绕老年人的健康焦虑和认知盲区做文章。线下，部分健康馆、养生馆等打着“
+中新网北京4月29日电 近日，孙杨、张豆豆在综艺《妻子的浪漫旅行》中的相处模式引发许多网友热议。有网友发文称，节目中马頔曾应老婆团要求开启夸夸模式，夸张豆豆时他开玩笑说“他(孙杨)配不上你”，但现在相关片段已被删除。 4月29日，话题“网传孙杨妈妈要求删除马頔发言”登上热搜榜高位，多个孙杨、张豆豆相关词条登上热搜。 当天下午，孙杨工作室发布声明，否认相关不实言论： 一、关于“孙
 
 ## 正文
 
-把产品功效吹上天、以免费噱头引人上钩、雇伪专家骗取信任……随着我国人口老龄化进程加快，老年群体健康需求日益攀升，各类养生保健“坑老”骗局花样翻新、层出不穷。
+中新网北京4月29日电 近日，孙杨、张豆豆在综艺《妻子的浪漫旅行》中的相处模式引发许多网友热议。
 
-一些不法分子瞄准老年群体的健康焦虑与情感需求，在线上线下布设各式养生陷阱，将黑手伸向老年人的“钱袋子”。
+有网友发文称，节目中马頔曾应老婆团要求开启夸夸模式，夸张豆豆时他开玩笑说“他(孙杨)配不上你”，但现在相关片段已被删除。
 
-复盘此类骗局，不法分子的套路虽不断翻新，核心却始终围绕老年人的健康焦虑和认知盲区做文章。
+4月29日，话题“网传孙杨妈妈要求删除马頔发言”登上热搜榜高位，多个孙杨、张豆豆相关词条登上热搜。
 
-线下，部分健康馆、养生馆等打着“中医养生”“健康理疗”的旗号，以低价体验、免费按摩为诱饵，诱导老年顾客大额充值。
+当天下午，孙杨工作室发布声明，否认相关不实言论： 一、关于“孙杨妈妈致电节目组删除嘉宾言论”“半夜打电话教育女PD”等说法均为恶意捏造，毫无事实依据。
 
-更有不法商家刻意营造“权威感”，搬出“瘫痪”“癌症”等老年人忌惮的健康担忧实施恐吓，一步步诱导老年人购买高价疗程卡，使其深陷骗局难以自拔；线上随着老年群体“触网”率提升，私域直播间、养生微信群已成为“坑老”新“阵地”。
+二、孙杨与张豆豆及家人自始至终积极配合节目组工作与需求，遵从专业安排。
 
-国家市场监督管理总局近期公布的典型案例显示，一批不法商家以“免费健康讲座”等为幌子围猎老年群体，涉案范围广泛。
+从未干涉过节目组的最终剪辑权与播出决定。
 
-这类打着“养生”的幌子侵害老年群体合法权益的乱象危害深远，不仅导致老年群体财产权益持续受损，更严重侵蚀社会诚信体系，挫伤老年群体对正规健康服务的信任度，阻碍养老服务行业健康发展。
+三、孙杨与张豆豆参与节目的初衷，是希望在遵守职业规范的前提下，真实展现运动员家庭的生活日常与积极风貌，二人始终保持开放心态，虚心接受公众的理性评价。
 
-破解此类乱象，需监管、家庭、社会等多方协同发力、形成合力，构建全方位、多层次的防护体系。
+四、相关不实言论已对孙杨、张豆豆及相关运动员亲属造成严重的精神困扰与名誉损害。
 
 ## 相关推荐
 
-- 2026-06-30 05:30 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-30 05:27 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-30 05:13 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-30 05:27 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-30 05:25 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-30 05:13 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-30 05:29 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-30 05:26 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-30 05:16 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-30 05:33 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-30 05:24 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-30 05:28 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 05:40 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-30 05:27 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-30 05:34 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-30 05:41 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-30 05:42 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-30 05:30 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-30 05:37 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-30 05:24 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-30 05:19 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-30 05:19 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 05:42 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-30 05:46 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-30 05:19 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-30 05:40 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-30 05:27 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-30 05:33 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:37 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/1582365.shtml)
-- 2026-06-30 05:34 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/473076.shtml)
-- 2026-06-30 05:23 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/900930287.shtml)
-- 2026-06-30 05:15 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/10101556.shtml)
-- 2026-06-30 05:35 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/97918440.shtml)
-- 2026-06-30 05:19 - [刘宇宁东方风云榜人气](http://www.share.kurohicncr.top/Article/details/3082107042.shtml)
-- 2026-06-30 05:23 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/05405.shtml)
-- 2026-06-30 05:39 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.kurohicncr.top/Article/details/96256319.shtml)
-- 2026-06-30 05:25 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/2113888.shtml)
-- 2026-06-30 05:35 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/15540526.shtml)
-- 2026-06-30 05:37 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/571416284741.shtml)
-- 2026-06-30 05:12 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/0287749312.shtml)
-- 2026-06-30 05:23 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/45702.shtml)
-- 2026-06-30 05:24 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/62113154.shtml)
-- 2026-06-30 05:28 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/417119.shtml)
+- 2026-06-30 05:35 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/02990856.shtml)
+- 2026-06-30 05:37 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/188405.shtml)
+- 2026-06-30 05:30 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/9021459.shtml)
+- 2026-06-30 05:33 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/969028519594.shtml)
+- 2026-06-30 05:27 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/762170369833.shtml)
+- 2026-06-30 05:41 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.minike.top/Article/details/1421404.shtml)
+- 2026-06-30 05:28 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/99488079872.shtml)
+- 2026-06-30 05:20 - [巴西绝杀](https://www.share.minike.top/Article/details/386753669428.shtml)
+- 2026-06-30 05:41 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/79017527.shtml)
+- 2026-06-30 05:41 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/65154351.shtml)
+- 2026-06-30 05:44 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.kurohicncr.top/Article/details/0157213.shtml)
+- 2026-06-30 05:46 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/278932856089.shtml)
+- 2026-06-30 05:34 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/8695526410.shtml)
+- 2026-06-30 05:38 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/3219045192.shtml)
+- 2026-06-30 05:39 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/758188842.shtml)

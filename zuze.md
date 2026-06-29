@@ -1,58 +1,57 @@
-# 券商龙头一季度利润破百亿？高业绩凸显券商板块关注价值
+# 英国议会投票否决对首相斯塔默启动相关调查动议
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-4月9日盘后，某头部券商披露一季度业绩快报，2026年一季度实现净利润102.16亿元。券商单季度净利破百亿元，在券业史上较为罕见，从2025年全年业绩来看，目前公布的也仅7家券商净利超过百亿元。对于今年一季度券商业绩，多家券商分析师均表达了乐观预期，这也让券商板块再次成为关注焦点。（资料参考：证券时报，《券业罕见！这家券商单季度净利，破百亿》，20260409） 一季度券商板
+中新社伦敦4月28日电 (记者 欧阳开宇)当地时间4月28日，英国议会下院举行投票，否决了因任命曼德尔森出任英国驻美大使相关问题而对首相斯塔默展开调查的动议。 此次投票围绕调查斯塔默在曼德尔森任命一事上是否误导下院展开。若特权委员会最终认定斯塔默故意误导议会，按照英国政坛惯例，其将面临辞职压力。投票结果显示，335票反对、223票赞成，调查动议未获通过。 事件起因于2024年1
 
 ## 正文
 
-4月9日盘后，某头部券商披露一季度业绩快报，2026年一季度实现净利润102.16亿元。
+中新社伦敦4月28日电 (记者 欧阳开宇)当地时间4月28日，英国议会下院举行投票，否决了因任命曼德尔森出任英国驻美大使相关问题而对首相斯塔默展开调查的动议。
 
-券商单季度净利破百亿元，在券业史上较为罕见，从2025年全年业绩来看，目前公布的也仅7家券商净利超过百亿元。
+此次投票围绕调查斯塔默在曼德尔森任命一事上是否误导下院展开。
 
-对于今年一季度券商业绩，多家券商分析师均表达了乐观预期，这也让券商板块再次成为关注焦点。
+若特权委员会最终认定斯塔默故意误导议会，按照英国政坛惯例，其将面临辞职压力。
 
-（资料参考：证券时报，《券业罕见！
+投票结果显示，335票反对、223票赞成，调查动议未获通过。
 
-这家券商单季度净利，破百亿》，20260409） 一季度券商板块高增长可期 在券商业绩超预期背后，是一季度沪深两市股票基金单边交易额较上年同期大幅上升。
+事件起因于2024年12月，斯塔默任命工党资深人士曼德尔森担任英国驻美大使这一关键外交职务。
 
-据统计，一季度市场成交额同比显著增长，一季度股基成交额累计176.24万亿元，同比增长74.2%；日均股基成交额3.15万亿元，同比增长77.3%。
+2025年9月，曼德尔森被曝出与已故美国性犯罪者爱泼斯坦的关联远超此前外界所知，随即被斯塔默解职。
 
-一季度末两融余额为2.61万亿元，同比增长36%。
+此后，反对党保守党向斯塔默发难，要求启动调查。
 
-（资料参考：证券时报，《券业罕见！
+保守党领袖巴德诺赫牵头推动此次调查动议，指责斯塔默在任命过程中声称已履行“全部法定程序”的表述，涉嫌误导议会。
 
 ## 相关推荐
 
-- 2026-06-30 05:22 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-30 05:26 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-30 05:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-30 05:21 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-30 05:17 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-30 05:18 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-30 05:32 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-30 05:32 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-30 05:22 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-30 05:39 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-30 05:41 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-30 05:16 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-30 05:47 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 05:23 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-30 05:38 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-30 05:37 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-30 05:34 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-30 05:33 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 05:42 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-30 05:31 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-30 05:29 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-30 05:47 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-30 05:45 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:27 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/30386403288.shtml)
-- 2026-06-30 05:36 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/409420455163.shtml)
-- 2026-06-30 05:28 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/295686.shtml)
-- 2026-06-30 05:39 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/170587791207.shtml)
-- 2026-06-30 05:35 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/451449.shtml)
-- 2026-06-30 05:20 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/323936.shtml)
-- 2026-06-30 05:13 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/272842723.shtml)
-- 2026-06-30 05:24 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/5577097.shtml)
-- 2026-06-30 05:15 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/3394241336.shtml)
-- 2026-06-30 05:15 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/17797.shtml)
-- 2026-06-30 05:26 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/220970.shtml)
-- 2026-06-30 05:18 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/63213721772.shtml)
-- 2026-06-30 05:27 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/117753126413.shtml)
-- 2026-06-30 05:29 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/56064.shtml)
-- 2026-06-30 05:40 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/771800.shtml)
+- 2026-06-30 05:21 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/42101276931.shtml)
+- 2026-06-30 05:31 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/134746352.shtml)
+- 2026-06-30 05:22 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/59444388.shtml)
+- 2026-06-30 05:34 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/94110.shtml)
+- 2026-06-30 05:40 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/12695.shtml)
+- 2026-06-30 05:29 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/2145551718.shtml)
+- 2026-06-30 05:28 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/1247092.shtml)
+- 2026-06-30 05:43 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/0325395392.shtml)
+- 2026-06-30 05:41 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/332446541640.shtml)
+- 2026-06-30 05:45 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/9722732.shtml)
+- 2026-06-30 05:46 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/5527234.shtml)
+- 2026-06-30 05:40 - [金刚川](https://www.blog.kurohicncr.top/Article/details/675180605.shtml)
+- 2026-06-30 05:20 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/70259.shtml)
+- 2026-06-30 05:42 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/7256593.shtml)
+- 2026-06-30 05:19 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/759175331178.shtml)

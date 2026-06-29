@@ -1,49 +1,57 @@
-# 京东方精电：受托人根据股份奖励计划购买20.4万股
+# FCC下令提前审查迪士尼旗下八家ABC电视台执照，特朗普与媒体战火重燃
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-京东方精电（00710）发布公告，由2026年4月8日至2026年4月10日期间，受托人根据股份奖励计划及信托契约的条款和条件从市场购买合共20.4万股股份以备以上及未来股份奖励计划所需。责任编辑：卢昱君
+在特朗普夫妇公开呼吁解雇ABC深夜脱口秀主持人吉米·金梅尔后，美国联邦通信委员会已下令对迪士尼旗下八家ABC自有电视台的广播执照启动提前审查。这标志着特朗普政府与这家媒体巨头之间的紧张关系出现了戏剧性的升级。 这些电视台的执照原本要到2028年才到期续签。而如今，FCC已指示迪士尼必须在30天内（即5月28日前）提交这些电视台的续期申请。 此举被视为特朗普政府对ABC播出金梅尔
 
 ## 正文
 
-京东方精电（00710）发布公告，由2026年4月8日至2026年4月10日期间，受托人根据股份奖励计划及信托契约的条款和条件从市场购买合共20.4万股股份以备以上及未来股份奖励计划所需。
+在特朗普夫妇公开呼吁解雇ABC深夜脱口秀主持人吉米·金梅尔后，美国联邦通信委员会已下令对迪士尼旗下八家ABC自有电视台的广播执照启动提前审查。
 
-责任编辑：卢昱君
+这标志着特朗普政府与这家媒体巨头之间的紧张关系出现了戏剧性的升级。
+
+这些电视台的执照原本要到2028年才到期续签。
+
+而如今，FCC已指示迪士尼必须在30天内（即5月28日前）提交这些电视台的续期申请。
+
+此举被视为特朗普政府对ABC播出金梅尔节目并抗拒总统施压的一种报复形式。
+
+争议的导火索是金梅尔在上周四模仿白宫记者晚宴的一档节目中，调侃第一夫人梅拉尼娅·特朗普“散发着待嫁寡妇般的光芒”。
+
+两天后的周六，白宫记者晚宴现场发生枪击事件，总统夫妇紧急撤离。
+
+随后，特朗普夫妇公开要求迪士尼和ABC立即解雇金梅尔。
 
 ## 相关推荐
 
-- 2026-06-30 05:35 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-30 05:36 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-30 05:27 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-30 05:26 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 05:33 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 05:20 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-30 05:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-30 05:24 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-30 05:14 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-30 05:24 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-30 05:26 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-30 05:29 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-30 05:13 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-30 05:25 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-30 05:35 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-30 05:24 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 05:29 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 05:31 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-30 05:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-30 05:47 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 05:29 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-30 05:42 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-30 05:42 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-30 05:20 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-30 05:45 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-30 05:47 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:19 - [巴西2-1绝杀日本](https://www.blog.kurohicncr.top/Article/details/7694383.shtml)
-- 2026-06-30 05:32 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/91580.shtml)
-- 2026-06-30 05:22 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/45474.shtml)
-- 2026-06-30 05:22 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/4686965947.shtml)
-- 2026-06-30 05:15 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/88673120747.shtml)
-- 2026-06-30 05:19 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/25086.shtml)
-- 2026-06-30 05:24 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/354099856175.shtml)
-- 2026-06-30 05:15 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/43432917.shtml)
-- 2026-06-30 05:28 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/889067087839.shtml)
-- 2026-06-30 05:32 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/626319431.shtml)
-- 2026-06-30 05:19 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.kurohicncr.top/Article/details/4771959.shtml)
-- 2026-06-30 05:37 - [二次元提前预演明日巴西对日本](https://www.share.minike.top/Article/details/86720042.shtml)
-- 2026-06-30 05:28 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/367813483.shtml)
-- 2026-06-30 05:27 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/9140722.shtml)
-- 2026-06-30 05:14 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/76960.shtml)
+- 2026-06-30 05:37 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/52452.shtml)
+- 2026-06-30 05:46 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/229775577.shtml)
+- 2026-06-30 05:23 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/378939.shtml)
+- 2026-06-30 05:35 - [日本领先巴西](https://www.share.minike.top/Article/details/2381919892.shtml)
+- 2026-06-30 05:19 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/8908699314.shtml)
+- 2026-06-30 05:44 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/70682.shtml)
+- 2026-06-30 05:41 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/64926548652.shtml)
+- 2026-06-30 05:43 - [锐评T1零封KC](https://www.share.minike.top/Article/details/3696482.shtml)
+- 2026-06-30 05:45 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/3611226.shtml)
+- 2026-06-30 05:18 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/811049575219.shtml)
+- 2026-06-30 05:46 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/14192375.shtml)
+- 2026-06-30 05:46 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/10337.shtml)
+- 2026-06-30 05:33 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/99175524582.shtml)
+- 2026-06-30 05:41 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/0655316.shtml)
+- 2026-06-30 05:30 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/6640528.shtml)

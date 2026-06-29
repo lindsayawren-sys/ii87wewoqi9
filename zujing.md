@@ -1,57 +1,60 @@
-# 巴西圣保罗伊塔佩维成立市议会中国阵线
+# 转让底价6573万元，华泰保险集团880万股股份再度挂牌
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新网圣保罗4月10日电 (记者 林春茵)当地时间4月8日晚，巴西圣保罗州伊塔佩维(Itapevi)市议会中国阵线成立仪式在伊塔佩维举行。中国驻圣保罗副总领事张希、伊塔佩维市议长拉斐尔、伊塔佩维市长马科斯、中巴社会文化研究中心主席罗士豪等与会，伊市各界代表百余人出席活动。 张希在致辞中热烈祝贺阵线成立，积极肯定市议会深化对华合作良好意愿，强调今年是中国“十五五”规划开局之年，中
+登录新浪财经APP 搜索【信披】查看更多考评等级 每经记者|袁园 每经编辑|廖丹 近日，北京产权交易所信息显示，中国船舶工业集团有限公司（以下简称中船工业集团）、江南造船（集团）有限责任公司（以下简称江南造船）联合挂牌转让华泰保险集团股份有限公司（以下简称华泰保险集团）880万股股份（占总股本的0.2188%），转让底价6572.84万元。 《每日经济新闻》记者注意到，该笔股权
 
 ## 正文
 
-中新网圣保罗4月10日电 (记者 林春茵)当地时间4月8日晚，巴西圣保罗州伊塔佩维(Itapevi)市议会中国阵线成立仪式在伊塔佩维举行。
+登录新浪财经APP 搜索【信披】查看更多考评等级 每经记者|袁园 每经编辑|廖丹 近日，北京产权交易所信息显示，中国船舶工业集团有限公司（以下简称中船工业集团）、江南造船（集团）有限责任公司（以下简称江南造船）联合挂牌转让华泰保险集团股份有限公司（以下简称华泰保险集团）880万股股份（占总股本的0.2188%），转让底价6572.84万元。
 
-中国驻圣保罗副总领事张希、伊塔佩维市议长拉斐尔、伊塔佩维市长马科斯、中巴社会文化研究中心主席罗士豪等与会，伊市各界代表百余人出席活动。
+《每日经济新闻》记者注意到，该笔股权转让为捆绑转让，若项目产生溢价，溢价部分按转让方持有股份比例分配。
 
-张希在致辞中热烈祝贺阵线成立，积极肯定市议会深化对华合作良好意愿，强调今年是中国“十五五”规划开局之年，中国正以高质量发展推动中国式现代化，相信发展对华合作将为伊市经济发展注入新动能，期待阵线成为促进双边政治交往、经贸合作和人文交流新平台。
+中船工业集团和江南造船想要退出华泰保险集团的时间线始于2023年。
 
-“今天，中国为我们带来了更多生态发展进步、对话与尊重。
+2023年12月，其在北京产权交易所挂牌转让华泰保险集团880万股股权，转让底价约人民币1.02亿元。
 
-”拉斐尔致辞说，中国在经济发展和科技创新方面取得瞩目成就，是值得学习的典范。
+虽然经历多次挂牌，但上述股权转让一直没有找到受让方。
 
-伊市是圣保罗州经济发展最快的城市之一，双方合作潜力巨大，市议会中国阵线将全力促进伊市对华各领域务实合作不断深化。
+4月24日，中船工业集团和江南造船再次挂牌该项目，但是转让底价下调至6572.84万元。
 
-罗士豪表示，阵线成立对推动两国友好深入发展具有重要意义，有利于进一步促进两国在文化、教育、科技、卫生等各领域的交流合作。
+公开信息显示，中船工业集团和江南造船分别持有华泰保险集团660万股股份（占总股本的0.1641%）和220万股股份（占总股本0.0547%），对应转让底价分别为4929.63万元和1643.21万元，二者合计6572.84万元。
 
-当天活动上，还播放了《中国式现代化》宣传片、进行了龙狮表演。
+据悉，中船工业集团和江南造船均隶属于中国船舶集团有限公司。
 
 ## 相关推荐
 
-- 2026-06-30 05:33 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-30 05:15 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-30 05:16 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-30 05:22 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-30 05:16 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-30 05:25 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-30 05:25 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-30 05:12 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-30 05:23 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-30 05:32 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-30 05:31 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-30 05:30 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 05:37 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-30 05:30 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-30 05:37 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-30 05:27 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 05:22 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-30 05:36 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-30 05:26 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-30 05:24 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-30 05:32 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-30 05:46 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-30 05:20 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-30 05:23 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-30 05:27 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:15 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/69886544.shtml)
-- 2026-06-30 05:36 - [上市央企地产商 两年换了三任董事长](https://www.share.kurohicncr.top/Article/details/8820884472.shtml)
-- 2026-06-30 05:13 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/576925479718.shtml)
-- 2026-06-30 05:28 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/36671.shtml)
-- 2026-06-30 05:40 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/921185.shtml)
-- 2026-06-30 05:30 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/12429.shtml)
-- 2026-06-30 05:14 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/3239177445.shtml)
-- 2026-06-30 05:38 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/37124.shtml)
-- 2026-06-30 05:16 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/94341874.shtml)
-- 2026-06-30 05:33 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/162425715.shtml)
-- 2026-06-30 05:35 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/6151841507.shtml)
-- 2026-06-30 05:38 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/937646622624.shtml)
-- 2026-06-30 05:40 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/152337.shtml)
-- 2026-06-30 05:30 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/507965470790.shtml)
-- 2026-06-30 05:34 - [金刚川](https://www.blog.minike.top/Article/details/54516334563.shtml)
+- 2026-06-30 05:21 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/844576858238.shtml)
+- 2026-06-30 05:23 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/9746487.shtml)
+- 2026-06-30 05:38 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/792743799556.shtml)
+- 2026-06-30 05:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/63605811.shtml)
+- 2026-06-30 05:28 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/65880719729.shtml)
+- 2026-06-30 05:35 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/7849760004.shtml)
+- 2026-06-30 05:33 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/0887072592.shtml)
+- 2026-06-30 05:46 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/914647008881.shtml)
+- 2026-06-30 05:44 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/22565013884.shtml)
+- 2026-06-30 05:24 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/4518943.shtml)
+- 2026-06-30 05:20 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/918620.shtml)
+- 2026-06-30 05:30 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/52348087956.shtml)
+- 2026-06-30 05:21 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/10240.shtml)
+- 2026-06-30 05:37 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/9246658586.shtml)
+- 2026-06-30 05:45 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/46546.shtml)

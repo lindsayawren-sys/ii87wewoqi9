@@ -1,58 +1,57 @@
-# （乡村行·看振兴）山西万荣：小葫芦“雕”出致富路
+# 2026中国与周边国家高级别智库论坛在京举行
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新网运城4月10日电 题：山西万荣：小葫芦“雕”出致富路 作者 高雨晴 郭夏楠 烙画、浮雕等传统工艺尽显匠心，山水花鸟、民俗纹样活灵活现。在山西万荣县解店镇王通葫芦种植专业合作社，一件件精美的葫芦工艺品，既承载着传统手工艺的深厚底蕴，也撑起当地民众的致富梦，成为解店镇特色产业发展的亮眼名片。 2025年6月，万荣县解店镇太贾村以“盘活闲置资源、壮大村集体经济”为目标，主动对接
+中新网北京4月28日电 (记者 官逸伦 马德林)2026中国与周边国家高级别智库论坛28日在北京召开。 本次论坛由中国社会科学院亚太与全球战略研究院、中国社会科学院国家高端智库理事会秘书处共同主办，来自中国周边国家的智库以及中国相关研究机构、高校的100余名专家学者参加。 中国社会科学院院长高翔在开幕式致辞时说，几千年的文明交往史反复证明，唯有与邻为善、以邻为伴，方能铺就各国和
 
 ## 正文
 
-中新网运城4月10日电 题：山西万荣：小葫芦“雕”出致富路 作者 高雨晴 郭夏楠 烙画、浮雕等传统工艺尽显匠心，山水花鸟、民俗纹样活灵活现。
+中新网北京4月28日电 (记者 官逸伦 马德林)2026中国与周边国家高级别智库论坛28日在北京召开。
 
-在山西万荣县解店镇王通葫芦种植专业合作社，一件件精美的葫芦工艺品，既承载着传统手工艺的深厚底蕴，也撑起当地民众的致富梦，成为解店镇特色产业发展的亮眼名片。
+本次论坛由中国社会科学院亚太与全球战略研究院、中国社会科学院国家高端智库理事会秘书处共同主办，来自中国周边国家的智库以及中国相关研究机构、高校的100余名专家学者参加。
 
-2025年6月，万荣县解店镇太贾村以“盘活闲置资源、壮大村集体经济”为目标，主动对接王通葫芦种植专业合作社，将闲置老校园改造升级为创业沃土，助力合作社深耕葫芦全产业链，把小葫芦打造成富民产业。
+中国社会科学院院长高翔在开幕式致辞时说，几千年的文明交往史反复证明，唯有与邻为善、以邻为伴，方能铺就各国和谐共处的基石。
 
-合作社立足本地种植优势，优选优质葫芦品种开展规模化种植，从源头严把原料品质关；同时深挖传统葫芦工艺精髓，汇聚当地民间手工艺人，构建起集葫芦种植、工艺创作、文创研发、生产加工、线上线下销售于一体的完整产业体系，实现葫芦产业闭环发展。
+围绕“共谋发展·共享未来”这一会议主题，高翔从“睦邻”“安邻”“富邻”三个方面阐述了自己的看法。
 
-合作社负责人李国勤介绍，合作社的葫芦工艺品品类丰富、工艺精湛，摒弃单一制作模式，深度融合多种非遗技艺，产品涵盖工艺摆件、文创礼品、家居饰品等品类，既保留传统民俗韵味，又贴合现代市场审美，深受消费者青睐。
+他强调要夯实周边命运共同体建设的理念共识，筑牢周边命运共同体建设的安全屏障，汇聚周边命运共同体建设的发展动能。
 
-依托蓬勃发展的葫芦产业，合作社积极带动当地民众就业增收，重点吸纳有绘画、手工功底的村民参与工艺制作、产品打磨、订单整理等工作，量身定制灵活就业岗位，让村民凭借传统手艺实现家门口就业。
+高翔说，智库交流是人文交流与政策沟通的重要桥梁，在增进理解、凝聚共识、深化合作方面发挥着不可替代的独特作用。
 
-目前，合作社已带动40余名村民稳定就业。
+中国社科院近年来积极推动同周边国家智库高校开展多层次、宽领域交流合作，为增进相互理解、促进思想交流发挥了重要作用。
 
-与此同时，合作社开设抖音直播，拓宽销售渠道，依托网络平台将葫芦产品销往全国各地。
+“好邻居之间就要常走动。
 
 ## 相关推荐
 
-- 2026-06-30 05:22 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 05:23 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-30 05:17 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-30 05:15 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-30 05:35 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-30 05:34 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-30 05:21 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-30 05:38 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-30 05:16 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-30 05:12 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-30 05:20 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-30 05:35 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-30 05:25 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-30 05:42 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-30 05:28 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-30 05:47 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-30 05:26 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-30 05:41 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-30 05:43 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 05:41 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-30 05:35 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 05:34 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 05:40 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:32 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/49193.shtml)
-- 2026-06-30 05:30 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/449972783.shtml)
-- 2026-06-30 05:41 - [千与千寻](http://www.share.kurohicncr.top/Article/details/629324011577.shtml)
-- 2026-06-30 05:15 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/28641.shtml)
-- 2026-06-30 05:36 - [女心理师](http://www.share.minike.top/Article/details/11586.shtml)
-- 2026-06-30 05:29 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/68605584090.shtml)
-- 2026-06-30 05:39 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/99892945449.shtml)
-- 2026-06-30 05:13 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/9185884.shtml)
-- 2026-06-30 05:37 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/561392.shtml)
-- 2026-06-30 05:31 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/681220266583.shtml)
-- 2026-06-30 05:19 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/6952569483.shtml)
-- 2026-06-30 05:12 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/04166168.shtml)
-- 2026-06-30 05:18 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/667349.shtml)
-- 2026-06-30 05:18 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/650032576193.shtml)
-- 2026-06-30 05:28 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/251165169725.shtml)
+- 2026-06-30 05:35 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/804281.shtml)
+- 2026-06-30 05:34 - [卡塞米罗头球破门](https://www.share.kurohicncr.top/Article/details/264369568480.shtml)
+- 2026-06-30 05:18 - [DeepSeek V4正式版要来了](https://www.blog.minike.top/Article/details/34075054.shtml)
+- 2026-06-30 05:43 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/590908155.shtml)
+- 2026-06-30 05:20 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/198809315416.shtml)
+- 2026-06-30 05:20 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/358591.shtml)
+- 2026-06-30 05:40 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/11120113793.shtml)
+- 2026-06-30 05:45 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/146307.shtml)
+- 2026-06-30 05:25 - [千与千寻](https://www.share.kurohicncr.top/Article/details/4299625.shtml)
+- 2026-06-30 05:19 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/0562376.shtml)
+- 2026-06-30 05:45 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/90861557.shtml)
+- 2026-06-30 05:43 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/941832878621.shtml)
+- 2026-06-30 05:33 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/286139.shtml)
+- 2026-06-30 05:45 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/784661307.shtml)
+- 2026-06-30 05:45 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/02596411.shtml)

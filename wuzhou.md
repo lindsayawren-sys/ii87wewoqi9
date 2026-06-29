@@ -1,45 +1,57 @@
-# 视频｜原泽熙旗下高级研究员 陷入内斗风波……发生抢银行密钥、抢账本等系列闹剧
+# 600696，提前锁定退市！
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：A观潮财经 责任编辑：张乔松
+登录新浪财经APP 搜索【信披】查看更多考评等级 又一家A股公司提前锁定退市，这家公司是*ST岩石（600696），公司最新全称为上海君道酒企业发展股份有限公司。 除了“*ST岩石”外，“600696”这一证券代码历史上还曾对应包括“匹凸匹”在内的多个证券简称。 另外，数据显示，年内已有多家A股公司退市。 又一家公司提前锁定退市 证券简称曾名“匹凸匹” 4月29日，*ST岩石（
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+登录新浪财经APP 搜索【信披】查看更多考评等级 又一家A股公司提前锁定退市，这家公司是*ST岩石（600696），公司最新全称为上海君道酒企业发展股份有限公司。
 
-来源：A观潮财经 责任编辑：张乔松
+除了“*ST岩石”外，“600696”这一证券代码历史上还曾对应包括“匹凸匹”在内的多个证券简称。
+
+另外，数据显示，年内已有多家A股公司退市。
+
+又一家公司提前锁定退市 证券简称曾名“匹凸匹” 4月29日，*ST岩石（600696）收盘股价再度跌停，总市值约4.38亿元，这是公司收盘总市值连续第18个交易日低于5亿元。
+
+据记者测算，即便后续2个交易日连续涨停，公司收盘总市值也无法回到5亿元以上。
+
+这意味着，单从主板A股公司市值退市规定的角度，*ST岩石已提前锁定退市。
+
+根据《上海证券交易所股票上市规则》相关规定，上市公司出现连续 20 个交易日在上交所的每日股票收盘总市值均低于 5 亿元情形的，上交所将决定终止公司股票上市。
+
+值得注意的是，*ST岩石还有可能触及财务类强制退市标准。
 
 ## 相关推荐
 
-- 2026-06-30 05:36 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-30 05:30 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-30 05:37 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-30 05:35 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-30 05:18 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-30 05:12 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-30 05:34 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-30 05:16 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-30 05:17 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-30 05:28 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-30 05:13 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 05:27 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-30 05:28 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-30 05:28 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-30 05:23 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 05:35 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-30 05:43 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-30 05:43 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-30 05:27 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-30 05:36 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-30 05:36 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-30 05:30 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:33 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/623946.shtml)
-- 2026-06-30 05:28 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/6723216.shtml)
-- 2026-06-30 05:35 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/6102103.shtml)
-- 2026-06-30 05:23 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/444903061.shtml)
-- 2026-06-30 05:21 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/8629335371.shtml)
-- 2026-06-30 05:12 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/341520.shtml)
-- 2026-06-30 05:29 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/833818019.shtml)
-- 2026-06-30 05:37 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/57238200822.shtml)
-- 2026-06-30 05:25 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/2640765084.shtml)
-- 2026-06-30 05:28 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/4497920.shtml)
-- 2026-06-30 05:26 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/783929.shtml)
-- 2026-06-30 05:18 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/074800899554.shtml)
-- 2026-06-30 05:26 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/5502922147.shtml)
-- 2026-06-30 05:12 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/887061112.shtml)
-- 2026-06-30 05:22 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/1579148.shtml)
+- 2026-06-30 05:38 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/0264523.shtml)
+- 2026-06-30 05:18 - [王楚钦谈表演球](http://www.share.kurohicncr.top/Article/details/793332720981.shtml)
+- 2026-06-30 05:33 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/44055.shtml)
+- 2026-06-30 05:40 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.minike.top/Article/details/76145432.shtml)
+- 2026-06-30 05:46 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/97503.shtml)
+- 2026-06-30 05:46 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/995587468963.shtml)
+- 2026-06-30 05:29 - [斗破苍穹](http://www.blog.minike.top/Article/details/1911767.shtml)
+- 2026-06-30 05:34 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/831443724287.shtml)
+- 2026-06-30 05:38 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/60202067.shtml)
+- 2026-06-30 05:33 - [巴拉圭先进球了](http://www.blog.minike.top/Article/details/08914.shtml)
+- 2026-06-30 05:31 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/254980421.shtml)
+- 2026-06-30 05:31 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/684776597754.shtml)
+- 2026-06-30 05:35 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/201771.shtml)
+- 2026-06-30 05:45 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/1196444.shtml)
+- 2026-06-30 05:37 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/51687.shtml)

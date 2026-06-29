@@ -1,58 +1,61 @@
-# 香港青少年“行走”丝路 品文化魅力探航空奥秘
+# 一季度北京地区进出口值同比增长6.4%
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新网西安4月12日电(记者 阿琳娜)“从千年前的‘飞天梦’到今天的‘中国造’，我深刻地感受到中华民族一脉相承的探索精神。”结束为期一周的丝路研学之旅，香港青少年陈致之表示，会将此行的感悟铭记在心，融入今后的学习与生活，也希望未来能为国家航空事业贡献一份力量。 以“青年逐风·驭鉴丝路”为主题的第二届“国泰青年探索家”项目于4月5日至11日举行，延续“丝路文化+航空教育”双主线。
+中新网北京4月29日电 北京海关29日发布的数据显示，今年一季度北京地区(含中央在京单位，下同)货物贸易进出口总值7660.3亿元(人民币，下同)，同比(下同)增长6.4%。 一季度，北京地区民营企业进出口值1304.3亿元、增长35.1%，占地区进出口总值的(下同)17.0%。其中，出口448.9亿元、增长26.0%，进口855.4亿元、增长40.5%。北京地区民营企业进出口
 
 ## 正文
 
-中新网西安4月12日电(记者 阿琳娜)“从千年前的‘飞天梦’到今天的‘中国造’，我深刻地感受到中华民族一脉相承的探索精神。
+中新网北京4月29日电 北京海关29日发布的数据显示，今年一季度北京地区(含中央在京单位，下同)货物贸易进出口总值7660.3亿元(人民币，下同)，同比(下同)增长6.4%。
 
-”结束为期一周的丝路研学之旅，香港青少年陈致之表示，会将此行的感悟铭记在心，融入今后的学习与生活，也希望未来能为国家航空事业贡献一份力量。
+一季度，北京地区民营企业进出口值1304.3亿元、增长35.1%，占地区进出口总值的(下同)17.0%。
 
-以“青年逐风·驭鉴丝路”为主题的第二届“国泰青年探索家”项目于4月5日至11日举行，延续“丝路文化+航空教育”双主线。
+其中，出口448.9亿元、增长26.0%，进口855.4亿元、增长40.5%。
 
-30名香港青少年沿着“新疆—陕西”轴线，循着丝绸之路的历史脉络，深入了解国家现代航空发展与文化传承。
+北京地区民营企业进出口值连续4个季度增幅在两位数以上，并呈加快态势。
 
-在新疆，学员们深入了解“空中丝绸之路”枢纽的战略意义与运作模式；前往赛里木湖、库尔德宁等地，在壮美的自然风光与浓郁的民族风情中，感受丝路多元文化的交融与传承。
+同期，北京地区国有企业进出口值5156.5亿元、增长2.8%。
 
-抵达陕西后，学员们参观了秦始皇兵马俑博物馆、陕西历史博物馆秦汉馆、西部机场博物馆，并走进西北工业大学航空实验室，在历史与科技的碰撞中拓展视野。
+一季度，北京地区对共建“一带一路”国家进出口值4250.0亿元，占55.5%。
 
-“我对兵马俑和陕西历史博物馆格外感兴趣。
+对其他金砖国家成员国进出口值1604.3亿元、增长2.5%；对拉美国家进出口值862.1亿元、增长27.4%。
 
-这次旅程让我深受震撼——兵马俑的发掘过程、真实比例与工艺，很多都是课本上没有触及的知识，为我补充了丰富的历史养分。
+同期，北京地区对瑞士、东盟、巴西、中国香港地区进出口值分别增长205.2%、13.3%、62.1%、87.9%。
 
 ## 相关推荐
 
-- 2026-06-30 05:22 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 05:26 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-30 05:23 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-30 05:20 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-30 05:17 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-30 05:15 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-30 05:20 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-30 05:26 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-30 05:31 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-30 05:40 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-30 05:18 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-30 05:22 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-30 05:42 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 05:43 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 05:38 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-30 05:40 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-30 05:23 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-30 05:18 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-30 05:34 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 05:39 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-30 05:28 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-30 05:34 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-30 05:31 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-30 05:36 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-30 05:39 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-30 05:22 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-30 05:30 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:33 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/133214565644.shtml)
-- 2026-06-30 05:29 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.minike.top/Article/details/76379.shtml)
-- 2026-06-30 05:33 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/62721.shtml)
-- 2026-06-30 05:19 - [明星大侦探第一季](https://www.share.minike.top/Article/details/90771259.shtml)
-- 2026-06-30 05:15 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/21848250762.shtml)
-- 2026-06-30 05:39 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/68741.shtml)
-- 2026-06-30 05:33 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/72071411.shtml)
-- 2026-06-30 05:27 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/69094531.shtml)
-- 2026-06-30 05:18 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/266420155.shtml)
-- 2026-06-30 05:17 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/60667225093.shtml)
-- 2026-06-30 05:28 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/011866349984.shtml)
-- 2026-06-30 05:31 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/76705942.shtml)
-- 2026-06-30 05:41 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/139409.shtml)
-- 2026-06-30 05:21 - [审核了不止十年的低创鬼畜](https://www.blog.minike.top/Article/details/3194093101.shtml)
-- 2026-06-30 05:17 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/282684839342.shtml)
+- 2026-06-30 05:45 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/02980899036.shtml)
+- 2026-06-30 05:24 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/892106.shtml)
+- 2026-06-30 05:23 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/9682327308.shtml)
+- 2026-06-30 05:31 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/1695361.shtml)
+- 2026-06-30 05:44 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/88213342.shtml)
+- 2026-06-30 05:31 - [千香](http://www.blog.minike.top/Article/details/78878.shtml)
+- 2026-06-30 05:23 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/154170.shtml)
+- 2026-06-30 05:43 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/09683938.shtml)
+- 2026-06-30 05:22 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/02831938636.shtml)
+- 2026-06-30 05:42 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/750734.shtml)
+- 2026-06-30 05:35 - [极限挑战第一季](https://www.blog.minike.top/Article/details/377240.shtml)
+- 2026-06-30 05:35 - [巴西绝杀](https://www.share.minike.top/Article/details/43634960.shtml)
+- 2026-06-30 05:19 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/042184184.shtml)
+- 2026-06-30 05:20 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/984547406362.shtml)
+- 2026-06-30 05:36 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/61937579.shtml)

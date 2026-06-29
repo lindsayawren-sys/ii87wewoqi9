@@ -1,52 +1,58 @@
-# 伊媒：伊美谈判延长一天 12日继续
+# 莱茵集团与Breedon签署15年英国海上风电长期购电协议
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-新华社德黑兰4月12日电 伊朗媒体12日凌晨报道，伊朗与美国在巴基斯坦首都伊斯兰堡的谈判延长一天，12日将继续。 据伊朗塔斯尼姆通讯社、法尔斯通讯社报道，由于美方提出“不合理的过分要求”而伊方坚持维护国家利益，经过巴基斯坦方面提议并得到双方接受，谈判将于12日上午继续进行。 当天凌晨，双方完成又一轮“面对面”谈判，双方专家进行文本交换。法尔斯通讯社12日以一名知情人士为消息源报
+德国电力公用事业公司莱茵集团已与建筑材料公司Breedon Group签署了一份为期15年的长期购电协议，将从其风电资产组合中向Breedon在英国的运营提供可再生电力。 根据协议，莱茵集团将每年提供约7000万千瓦时的电力。初期电力将来自北威尔士近海的576兆瓦Gwynt y Môr海上风电场，从2033年起，将转为来自Brechfa Forest West陆上风电场。 这些
 
 ## 正文
 
-新华社德黑兰4月12日电 伊朗媒体12日凌晨报道，伊朗与美国在巴基斯坦首都伊斯兰堡的谈判延长一天，12日将继续。
+德国电力公用事业公司莱茵集团已与建筑材料公司Breedon Group签署了一份为期15年的长期购电协议，将从其风电资产组合中向Breedon在英国的运营提供可再生电力。
 
-据伊朗塔斯尼姆通讯社、法尔斯通讯社报道，由于美方提出“不合理的过分要求”而伊方坚持维护国家利益，经过巴基斯坦方面提议并得到双方接受，谈判将于12日上午继续进行。
+根据协议，莱茵集团将每年提供约7000万千瓦时的电力。
 
-当天凌晨，双方完成又一轮“面对面”谈判，双方专家进行文本交换。
+初期电力将来自北威尔士近海的576兆瓦Gwynt y Môr海上风电场，从2033年起，将转为来自Brechfa Forest West陆上风电场。
 
-法尔斯通讯社12日以一名知情人士为消息源报道，双方未能就分歧达成谅解，正在努力起草另一份文本，但美方“过分要求”仍是谈判取得进展的严重障碍。
+这些电力将用于Breedon的运营，包括骨料、沥青、预拌混凝土和水泥的生产，以支持其减少能源密集型过程中的碳排放。
 
-根据伊朗政府在社交媒体发布的消息，从11日下午到12日凌晨，伊美谈了14个小时。
+莱茵集团大宗商品解决方案负责人表示：“我们很高兴与Breedon达成这项长期购电协议。
 
-尽管仍然存在一些分歧，谈判将继续进行。
+该协议突显了我们致力于支持建筑材料行业迈向更可持续未来的承诺。
+
+通过从我们的风电组合中供应可靠的可再生电力，我们正在帮助减少Breedon运营的碳足迹，同时支持其建设更可持续建筑材料业务的雄心。
+
+” Breedon集团可持续发展总监补充道：“与莱茵集团签订这项购电协议是我们可持续发展进程中迈出的重要一步。
 
 ## 相关推荐
 
-- 2026-06-30 05:38 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-30 05:27 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-30 05:15 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-30 05:30 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-30 05:15 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-30 05:36 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-30 05:27 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 05:35 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-30 05:13 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-30 05:38 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-30 05:31 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-30 05:19 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-30 05:38 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-30 05:47 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 05:26 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-30 05:47 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-30 05:38 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-30 05:28 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-30 05:36 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-30 05:32 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-30 05:41 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-30 05:29 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:14 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/87132842896.shtml)
-- 2026-06-30 05:12 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/29766245695.shtml)
-- 2026-06-30 05:39 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/006825614.shtml)
-- 2026-06-30 05:17 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/01210210326.shtml)
-- 2026-06-30 05:27 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/69966863683.shtml)
-- 2026-06-30 05:35 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/2268533397.shtml)
-- 2026-06-30 05:37 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/25686611556.shtml)
-- 2026-06-30 05:21 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/251396668.shtml)
-- 2026-06-30 05:27 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/559432995.shtml)
-- 2026-06-30 05:29 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/80657927.shtml)
-- 2026-06-30 05:30 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/245906984111.shtml)
-- 2026-06-30 05:26 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/585051311.shtml)
-- 2026-06-30 05:36 - [日本 高位逼抢](https://www.share.minike.top/Article/details/217622484.shtml)
-- 2026-06-30 05:13 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/7869254.shtml)
-- 2026-06-30 05:20 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/22895.shtml)
+- 2026-06-30 05:43 - [亚洲球队全部告别世界杯](http://www.share.minike.top/Article/details/251652861398.shtml)
+- 2026-06-30 05:26 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/124692344222.shtml)
+- 2026-06-30 05:34 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/699831621.shtml)
+- 2026-06-30 05:27 - [创新药板块能否“苦尽甘来”](https://www.blog.minike.top/Article/details/3387398.shtml)
+- 2026-06-30 05:36 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/47267847.shtml)
+- 2026-06-30 05:20 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/697257141296.shtml)
+- 2026-06-30 05:19 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/7679937.shtml)
+- 2026-06-30 05:21 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/277045197.shtml)
+- 2026-06-30 05:34 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/385102180.shtml)
+- 2026-06-30 05:30 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/425378112798.shtml)
+- 2026-06-30 05:21 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/709173293324.shtml)
+- 2026-06-30 05:22 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/76397277278.shtml)
+- 2026-06-30 05:37 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/36887712.shtml)
+- 2026-06-30 05:34 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/64359.shtml)
+- 2026-06-30 05:38 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/7505880.shtml)

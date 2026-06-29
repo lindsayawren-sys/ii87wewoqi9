@@ -1,57 +1,58 @@
-# 德赛西威高大鹏：摒弃门户之见，是中国汽车产业链共同繁荣的关键
+# 南京银行董事长谢宁：“好银行”至少应具备经营发展好等三大特征
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。德赛西威董事长兼总裁高大鹏出席并演讲。 高大鹏表示，出海不单单是中国品牌的出海，而是中国汽车产业链的整体出海，包括自主品牌、合资品牌、外资品牌。“中国市场本就是多元参与、协同共生，才有了现在的
+上证报中国证券网讯（记者 黄坤）4月29日，南京银行董事长谢宁在2025年度暨2026年一季度业绩说明会上回答上证报记者提问表示，“好银行”至少具备三个共同特征，即公司治理好、经营发展好、评价口碑好。 据了解，在成立三十周年之际，南京银行资产规模站上三万亿台阶，主要经营指标“双U型曲线”趋势进一步巩固拓展。在2025年度报告中，谢宁表示，该行将奋力点亮“好银行”的鲜明标识，朝着
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+上证报中国证券网讯（记者 黄坤）4月29日，南京银行董事长谢宁在2025年度暨2026年一季度业绩说明会上回答上证报记者提问表示，“好银行”至少具备三个共同特征，即公司治理好、经营发展好、评价口碑好。
 
-德赛西威董事长兼总裁高大鹏出席并演讲。
+据了解，在成立三十周年之际，南京银行资产规模站上三万亿台阶，主要经营指标“双U型曲线”趋势进一步巩固拓展。
 
-高大鹏表示，出海不单单是中国品牌的出海，而是中国汽车产业链的整体出海，包括自主品牌、合资品牌、外资品牌。
+在2025年度报告中，谢宁表示，该行将奋力点亮“好银行”的鲜明标识，朝着“打造国内一流的区域综合金融服务商”战略愿景加速迈进。
 
-“中国市场本就是多元参与、协同共生，才有了现在的成就。
+谈及银行如何实现经营发展好，谢宁向记者表示，银行属于长周期经营机构，需要立足跨周期发展思维，致力打造百年老店，推动经营持续稳健向好。
 
-所以，我们应该摒弃门户之见，这是中国产业链共同繁荣的关键。
+首先，银行要坚持量质并举，落实高质量发展要求，实现发展质效提升与规模合理增长有机统一，摒弃粗放式扩张与盲目规模竞争，避免经营大起大落。
 
-” 他认为，中国新能源智能网联车走在世界前列有三个驱动力。
+其次，银行要坚持远近兼顾，当期发展体现经营成色，长期积蓄筑牢发展底气，战略性投入是长期发展的关键支撑。
 
-一是开放市场酝酿的企业产业生命力，即政策定力。
+“我行坚持降本增效原则，但明确严控成本不减战略性投入、不弱化客户资源培育，持续夯实发展根基。
 
-他提到，过去20年，中国汽车产业政策相对其他市场非常稳定，这让所有市场参与方有了更大的确定性，敢于投入，从而获得更多创新基础。
+”谢宁说。
 
 ## 相关推荐
 
-- 2026-06-30 05:14 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-30 05:13 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-30 05:20 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-30 05:39 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-30 05:37 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-30 05:32 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 05:34 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 05:40 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-30 05:41 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-30 05:23 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-30 05:27 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-30 05:33 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-30 05:36 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-30 05:21 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 05:19 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 05:43 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-30 05:41 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-30 05:21 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-30 05:31 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-30 05:38 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 05:42 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-30 05:41 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-30 05:34 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:25 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/2276373.shtml)
-- 2026-06-30 05:23 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/1201888.shtml)
-- 2026-06-30 05:15 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/93222.shtml)
-- 2026-06-30 05:39 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/90244014792.shtml)
-- 2026-06-30 05:17 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/756936138728.shtml)
-- 2026-06-30 05:35 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/002302.shtml)
-- 2026-06-30 05:41 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/00537.shtml)
-- 2026-06-30 05:15 - [我觉得你是在无中生友](http://www.blog.kurohicncr.top/Article/details/369480287707.shtml)
-- 2026-06-30 05:24 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/7137579.shtml)
-- 2026-06-30 05:28 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/9731320.shtml)
-- 2026-06-30 05:20 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/93333609.shtml)
-- 2026-06-30 05:33 - [巴西补时绝杀日本](http://www.share.minike.top/Article/details/13675098.shtml)
-- 2026-06-30 05:24 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/63492753.shtml)
-- 2026-06-30 05:13 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/614243.shtml)
-- 2026-06-30 05:21 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/55548292888.shtml)
+- 2026-06-30 05:39 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/175287.shtml)
+- 2026-06-30 05:47 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/58054094043.shtml)
+- 2026-06-30 05:33 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/5278258745.shtml)
+- 2026-06-30 05:20 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/21714496.shtml)
+- 2026-06-30 05:42 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/72453.shtml)
+- 2026-06-30 05:22 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/8448699.shtml)
+- 2026-06-30 05:40 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/99594.shtml)
+- 2026-06-30 05:42 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/089079.shtml)
+- 2026-06-30 05:19 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/02001.shtml)
+- 2026-06-30 05:34 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/9142451699.shtml)
+- 2026-06-30 05:21 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/4985765063.shtml)
+- 2026-06-30 05:48 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/239756.shtml)
+- 2026-06-30 05:35 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/1237027948.shtml)
+- 2026-06-30 05:22 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/220648602223.shtml)
+- 2026-06-30 05:23 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/03678776.shtml)

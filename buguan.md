@@ -1,57 +1,61 @@
-# 石油危机：美联储会介入吗？
+# 南京银行陈晓江：主动布局 提前应对阶段性零售业务行业性风险
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-来源：汇通网 汇通财经APP讯——全球能源市场剧烈动荡、地缘冲突持续升级的背景下，市场上充斥着大量极端悲观的预测声音。许多悲观主义者坚定地认为，一旦全球经济遭遇突发性的石油供应冲击，各国政府与中央银行将陷入被动观望、束手无策的状态，只能任由危机自由发展。然而，这一核心隐含假设在现实逻辑与历史规律面前，完全站不住脚。 石油危机之所以被视为最棘手、最具破坏力的经济冲击，正是因为它具
+4月29日金融一线消息，南京银行今日召开2025年度暨2026年一季度业绩说明会。副行长陈晓江表示，过去两年，在复杂多变的市场环境下，南京银行核心风险指标始终保持稳健运行。稳健指标的背后，源于全行对风险始终保持敬畏之心、坚守审慎经营原则，依托成熟有效的风险治理体系，为应对行业挑战、穿越经济周期筑牢坚实基础。 当前市场环境仍存在不确定性，陈晓江认为，阶段性零售业务行业性风险，是2
 
 ## 正文
 
-来源：汇通网 汇通财经APP讯——全球能源市场剧烈动荡、地缘冲突持续升级的背景下，市场上充斥着大量极端悲观的预测声音。
+4月29日金融一线消息，南京银行今日召开2025年度暨2026年一季度业绩说明会。
 
-许多悲观主义者坚定地认为，一旦全球经济遭遇突发性的石油供应冲击，各国政府与中央银行将陷入被动观望、束手无策的状态，只能任由危机自由发展。
+副行长陈晓江表示，过去两年，在复杂多变的市场环境下，南京银行核心风险指标始终保持稳健运行。
 
-然而，这一核心隐含假设在现实逻辑与历史规律面前，完全站不住脚。
+稳健指标的背后，源于全行对风险始终保持敬畏之心、坚守审慎经营原则，依托成熟有效的风险治理体系，为应对行业挑战、穿越经济周期筑牢坚实基础。
 
-石油危机之所以被视为最棘手、最具破坏力的经济冲击，正是因为它具有滞胀双重属性——在快速推高全社会通胀水平的同时，严重拖累经济增长动能，让政策制定者陷入“抗通胀”与“稳增长”的两难困境。
+当前市场环境仍存在不确定性，陈晓江认为，阶段性零售业务行业性风险，是2026年全行风险管控的重点领域。
 
-纵观近现代经济史，无数次危机经验反复证明，面对这种复合型供给冲击，主动采取防御性应对策略、提前做好风险对冲，才是最理性、最明智的选择。
+面对潜在压力，该行坚持主动布局、提前应对，自去年起确立精准管控增量、统筹化解存量的风控策略，全面落实精准为王的客户经营理念。
 
-历史教训：供应冲击下的系统反应 此前我们分析了石油危机可能引发的经济衰退传导路径，并明确指出，全球投资者往往存在一个致命误区：总是从最近一次危机的表面现象中吸取错误教训，而忽略了背后的核心规律。
+在增量管控方面，全行升级全生命周期风险管理工具，对客户策略、产品策略、额度策略实施更加精细化调整，新增零售业务资产质量已呈现积极向好态势。
 
-1973年阿拉伯石油禁运爆发时，市场普遍认为地缘政治冲击只是短期现象，低估了其长期破坏力；1979年伊朗革命引发的第二次石油危机，则让低估风险的市场付出了惨痛代价；2003年伊拉克战争虽短暂推高油价，却未引发全面衰退，又让交易者迅速恢复盲目信心；直到2008年油价冲高与金融危机叠加，危机剧本再次残酷重演。
+在存量管控方面，建立敏捷化风险监测体系与分层处置机制，综合运用多元处置手段，加快存量风险化解出清，推动零售业务风险走势持续改善。
 
-如今，历史似有重演之势。
+“2026年全行不良贷款生成水平将延续稳中有降态势，风险成本整体可控。
 
 ## 相关推荐
 
-- 2026-06-30 05:16 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-30 05:32 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-30 05:34 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-30 05:35 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-30 05:21 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-30 05:18 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-30 05:12 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-30 05:19 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-30 05:27 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-30 05:29 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-30 05:25 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-30 05:20 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-30 05:43 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-30 05:35 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-30 05:20 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 05:23 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-30 05:45 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-30 05:23 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-30 05:26 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 05:31 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 05:46 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-30 05:46 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-30 05:18 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-30 05:29 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-30 05:30 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-30 05:40 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:32 - [明星大侦探第一季](http://www.share.minike.top/Article/details/34534362052.shtml)
-- 2026-06-30 05:13 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/102476037616.shtml)
-- 2026-06-30 05:35 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/5561855.shtml)
-- 2026-06-30 05:23 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/15965723403.shtml)
-- 2026-06-30 05:25 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/014545208.shtml)
-- 2026-06-30 05:12 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/3379896880.shtml)
-- 2026-06-30 05:34 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/22316733480.shtml)
-- 2026-06-30 05:29 - [乔家的儿女](https://www.blog.minike.top/Article/details/484835782062.shtml)
-- 2026-06-30 05:35 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/281145008591.shtml)
-- 2026-06-30 05:28 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/350821526.shtml)
-- 2026-06-30 05:15 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/31672165.shtml)
-- 2026-06-30 05:30 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/246502.shtml)
-- 2026-06-30 05:37 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/08291.shtml)
-- 2026-06-30 05:29 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/840189961.shtml)
-- 2026-06-30 05:23 - [日本领先巴西](https://www.blog.minike.top/Article/details/017760195.shtml)
+- 2026-06-30 05:18 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/772642629395.shtml)
+- 2026-06-30 05:36 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/698387.shtml)
+- 2026-06-30 05:27 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/01344843.shtml)
+- 2026-06-30 05:39 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/27588265617.shtml)
+- 2026-06-30 05:27 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/038847506244.shtml)
+- 2026-06-30 05:46 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/21249249191.shtml)
+- 2026-06-30 05:37 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.kurohicncr.top/Article/details/1835944070.shtml)
+- 2026-06-30 05:30 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/412983178.shtml)
+- 2026-06-30 05:32 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/76337681603.shtml)
+- 2026-06-30 05:27 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/5901803974.shtml)
+- 2026-06-30 05:39 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/1750551819.shtml)
+- 2026-06-30 05:27 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/001696036.shtml)
+- 2026-06-30 05:31 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/29265579276.shtml)
+- 2026-06-30 05:18 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/26228077619.shtml)
+- 2026-06-30 05:26 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/822976.shtml)

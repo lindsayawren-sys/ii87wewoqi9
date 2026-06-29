@@ -1,58 +1,56 @@
-# 习近平总书记会见中国国民党主席郑丽文
+# 川渝联动举行2026年涪江流域水旱灾害联防联控水文应急测报演练
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-原标题：习近平总书记会见中国国民党主席郑丽文 王沪宁蔡奇等参加会见 新华社北京4月10日电 中共中央总书记习近平10日上午在北京会见了郑丽文主席率领的中国国民党访问团。 习近平对郑丽文率团来访表示欢迎。他指出，国共两党领导人时隔10年再次会面，对两党关系、两岸关系发展具有重要意义。两岸同胞同属中华民族，包括台湾同胞在内的各族人民共同缔造了统一的多民族国家，共同书写了辉煌的中国历
+发布时间：2026年04月29日 15:05 来源：中国新闻网 4月28日，四川省水文中心、重庆市水文总站联合组织开展2026年涪江流域水旱灾害联防联控水文应急测报演练，全力备战防大汛、抗大旱。 演练设置川渝双主会场及多个分会场，8个应急监测队伍现场参演。模拟了2020年涪江流域“8·17”洪水场景，分设内业演练和外业演练两个大项。现场开展了无人船、无人机、测扫雷达测流；河道地
 
 ## 正文
 
-原标题：习近平总书记会见中国国民党主席郑丽文 王沪宁蔡奇等参加会见 新华社北京4月10日电 中共中央总书记习近平10日上午在北京会见了郑丽文主席率领的中国国民党访问团。
+发布时间：2026年04月29日 15:05 来源：中国新闻网 4月28日，四川省水文中心、重庆市水文总站联合组织开展2026年涪江流域水旱灾害联防联控水文应急测报演练，全力备战防大汛、抗大旱。
 
-习近平对郑丽文率团来访表示欢迎。
+演练设置川渝双主会场及多个分会场，8个应急监测队伍现场参演。
 
-他指出，国共两党领导人时隔10年再次会面，对两党关系、两岸关系发展具有重要意义。
+模拟了2020年涪江流域“8·17”洪水场景，分设内业演练和外业演练两个大项。
 
-两岸同胞同属中华民族，包括台湾同胞在内的各族人民共同缔造了统一的多民族国家，共同书写了辉煌的中国历史，共同创造了灿烂的中华文明，共同培育了伟大的民族精神，也铸就了国土不可分、国家不可乱、民族不可散、文明不可断的共同信念，引领中华民族自强不息、中华文明绵延不断。
+现场开展了无人船、无人机、测扫雷达测流；河道地形测绘等多个科目演练，全面检验应急预案和应急队伍的实战能力，提升应对多灾种叠加的水文测报能力。
 
-习近平强调，无论国际形势、台海局势如何变化，中华民族伟大复兴的大趋势不会改变，两岸同胞走亲走近、走到一起的大潮流不会改变。
+本次演练中先进设备和技术的应用投入，标志着川渝水文测报正加速从“传统人工”向“智慧感知”转型。
 
-两岸同胞都期盼台海和平安宁，期盼两岸关系改善发展，期盼生活更加美好，这是国共两党不可推卸的责任，也是携手合作的动力。
-
-我们愿在坚持“九二共识”、反对“台独”的共同政治基础上，同包括中国国民党在内的台湾各政党、团体和社会各界人士一道，加强交流对话，为两岸谋和平、为同胞谋福祉、为民族谋复兴，把两岸关系的未来牢牢掌握在中国人自己手中。
-
-习近平就两岸关系发展提出4点意见。
+(何浠 杨予頔） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 05:30 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-30 05:14 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-30 05:26 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-30 05:36 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-30 05:38 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-30 05:15 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-30 05:29 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 05:41 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-30 05:37 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-30 05:13 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 05:22 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-30 05:38 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 05:46 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-30 05:45 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-30 05:28 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-30 05:45 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-30 05:29 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-30 05:37 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-30 05:41 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-30 05:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 05:26 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-30 05:40 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-30 05:41 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-30 05:38 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 05:30 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-30 05:36 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:25 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/7377465372.shtml)
-- 2026-06-30 05:31 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/16385.shtml)
-- 2026-06-30 05:25 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/485548.shtml)
-- 2026-06-30 05:33 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/78161.shtml)
-- 2026-06-30 05:13 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/17720629507.shtml)
-- 2026-06-30 05:25 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/0100925.shtml)
-- 2026-06-30 05:40 - [毒液2](https://www.blog.minike.top/Article/details/886837696.shtml)
-- 2026-06-30 05:30 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/1786731659.shtml)
-- 2026-06-30 05:30 - [青春环游记第三季](http://www.share.minike.top/Article/details/0244980462.shtml)
-- 2026-06-30 05:38 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/76533.shtml)
-- 2026-06-30 05:20 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/8104019876.shtml)
-- 2026-06-30 05:13 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/6319746.shtml)
-- 2026-06-30 05:29 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/70844816605.shtml)
-- 2026-06-30 05:31 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/983237689454.shtml)
-- 2026-06-30 05:24 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/8582864.shtml)
+- 2026-06-30 05:46 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/49508472.shtml)
+- 2026-06-30 05:20 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/00512650219.shtml)
+- 2026-06-30 05:23 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/20451.shtml)
+- 2026-06-30 05:18 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/803413595.shtml)
+- 2026-06-30 05:45 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/41541741257.shtml)
+- 2026-06-30 05:29 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/50991929294.shtml)
+- 2026-06-30 05:40 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/37538928.shtml)
+- 2026-06-30 05:41 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/09872462655.shtml)
+- 2026-06-30 05:31 - [日本淘汰](http://www.share.minike.top/Article/details/928214.shtml)
+- 2026-06-30 05:24 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/63258459393.shtml)
+- 2026-06-30 05:47 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/901593594.shtml)
+- 2026-06-30 05:47 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/99750483136.shtml)
+- 2026-06-30 05:28 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/8008486451.shtml)
+- 2026-06-30 05:33 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/09842407371.shtml)
+- 2026-06-30 05:44 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/770389002560.shtml)

@@ -1,50 +1,57 @@
-# 伊朗：霍尔木兹海峡在严密监控与完全掌控之下
+# AI 世纪对决开庭，马斯克在OpenAI审判中出庭作证
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-当地时间12日，伊朗伊斯兰革命卫队海军发布无人机监控画面，强调目前霍尔木兹海峡内所有的船只活动都在其武装部队的严密监控与完全掌控之下。 伊朗革命卫队海军发出警告称，“任何错误的举动，都将使敌人陷入海峡中致命的漩涡”。（总台记者 李健南 李霜溪） 责任编辑：李桐
+本周二，埃隆・马斯克出庭作证表示，他起诉 OpenAI 及其高管的诉讼，早已超越单一企业纠纷，直指人工智能这项足以毁灭全人类的技术未来。 马斯克指控，OpenAI 首席执行官山姆・奥尔特曼、总裁格雷格・布罗克曼联手欺骗自己，背弃了 OpenAI 最初的非营利使命。目前，马斯克向美国加州北区联邦地区法院提起诉讼，要求 OpenAI 赔偿1300 亿美元损失，强制公司恢复非营利架构
 
 ## 正文
 
-当地时间12日，伊朗伊斯兰革命卫队海军发布无人机监控画面，强调目前霍尔木兹海峡内所有的船只活动都在其武装部队的严密监控与完全掌控之下。
+本周二，埃隆・马斯克出庭作证表示，他起诉 OpenAI 及其高管的诉讼，早已超越单一企业纠纷，直指人工智能这项足以毁灭全人类的技术未来。
 
-伊朗革命卫队海军发出警告称，“任何错误的举动，都将使敌人陷入海峡中致命的漩涡”。
+马斯克指控，OpenAI 首席执行官山姆・奥尔特曼、总裁格雷格・布罗克曼联手欺骗自己，背弃了 OpenAI 最初的非营利使命。
 
-（总台记者 李健南 李霜溪） 责任编辑：李桐
+目前，马斯克向美国加州北区联邦地区法院提起诉讼，要求 OpenAI 赔偿1300 亿美元损失，强制公司恢复非营利架构，并罢免奥尔特曼与布罗克曼的董事职务。
+
+自身拥有人工智能企业的马斯克在奥克兰法庭的证人席上坦言：“我对人工智能抱有极度担忧。
+
+” 他表示，人工智能既能让全人类走向繁荣，也可能给人类带来毁灭性后果。
+
+“我们绝不希望迎来《终结者》式的悲剧结局。
+
+” 马斯克说道。
+
+OpenAI 计划最早于今年上市，而本次诉讼或将重创这家全球顶尖 AI 企业，同时也是马斯克旗下 AI 业务最大的竞争对手。
 
 ## 相关推荐
 
-- 2026-06-30 05:41 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-30 05:23 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-30 05:13 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-30 05:34 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-30 05:37 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-30 05:31 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-30 05:41 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-30 05:39 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-30 05:29 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-30 05:20 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-30 05:27 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-30 05:16 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-30 05:23 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-30 05:28 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-30 05:29 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-30 05:33 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-30 05:40 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-30 05:47 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-30 05:27 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-30 05:19 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-30 05:39 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-30 05:37 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 05:28 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-30 05:35 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-30 05:42 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:34 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/132797735.shtml)
-- 2026-06-30 05:35 - [起风了](https://www.share.kurohicncr.top/Article/details/0528276.shtml)
-- 2026-06-30 05:36 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/60685.shtml)
-- 2026-06-30 05:35 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/764052327.shtml)
-- 2026-06-30 05:22 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/29583940754.shtml)
-- 2026-06-30 05:35 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/40835.shtml)
-- 2026-06-30 05:30 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/97618480.shtml)
-- 2026-06-30 05:15 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.minike.top/Article/details/18195579361.shtml)
-- 2026-06-30 05:16 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/52284718.shtml)
-- 2026-06-30 05:15 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/36553.shtml)
-- 2026-06-30 05:41 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/09744912.shtml)
-- 2026-06-30 05:24 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/9650395051.shtml)
-- 2026-06-30 05:27 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/130842370045.shtml)
-- 2026-06-30 05:23 - [天道](https://www.share.minike.top/Article/details/9000068.shtml)
-- 2026-06-30 05:12 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/677967297.shtml)
+- 2026-06-30 05:46 - [安切洛蒂 换人](https://www.share.kurohicncr.top/Article/details/479606729162.shtml)
+- 2026-06-30 05:32 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/91397.shtml)
+- 2026-06-30 05:31 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/9329246100.shtml)
+- 2026-06-30 05:39 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/6078014.shtml)
+- 2026-06-30 05:29 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/72822.shtml)
+- 2026-06-30 05:24 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/73508097414.shtml)
+- 2026-06-30 05:27 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/9752755470.shtml)
+- 2026-06-30 05:46 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/76992030.shtml)
+- 2026-06-30 05:45 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/89187.shtml)
+- 2026-06-30 05:40 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/01539229.shtml)
+- 2026-06-30 05:40 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/8314249198.shtml)
+- 2026-06-30 05:34 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/283783711796.shtml)
+- 2026-06-30 05:42 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/71769112653.shtml)
+- 2026-06-30 05:31 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/56159.shtml)
+- 2026-06-30 05:39 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/458754456018.shtml)

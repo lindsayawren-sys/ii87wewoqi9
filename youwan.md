@@ -1,59 +1,58 @@
-# 证监会依法处罚东旭系审计机构中兴财光华
+# 中新报道有反馈丨国家医保局就连锁药店骗保问题共检查定点机构1536家
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新网4月10日电 据“证监会发布”微信公众号消息，近日，河北证监局依法对中兴财光华执审东旭集团、东旭光电、东旭蓝天年报及股票发行、债券发行工作未勤勉尽责案作出行政处罚，依据《中华人民共和国证券法》规定，没收中兴财光华案涉期间全部业务收入3,258.49万元，并处以罚款21,018.74万元，合计罚没24,277.23万元，并对6名责任人员处以10万元至430万元不等罚款，对其
+中新网北京4月29日电(赵方园 佟奕萱) 记者28日从国家医保局获悉，针对中国新闻网《暗访连锁药店骗保手段：串药、改方、平账一条龙》报道中反映的定点医药机构串换药品违规使用个人账户问题，国家医保局派出专项检查组对涉事机构开展深入检查，并指导湖南、河南省市医保部门举一反三、扩面检查。共检查定点机构1536家，其中湖南省怀化、衡阳、邵阳、株洲4市共检查1352家机构，河南郑州检查定
 
 ## 正文
 
-中新网4月10日电 据“证监会发布”微信公众号消息，近日，河北证监局依法对中兴财光华执审东旭集团、东旭光电、东旭蓝天年报及股票发行、债券发行工作未勤勉尽责案作出行政处罚，依据《中华人民共和国证券法》规定，没收中兴财光华案涉期间全部业务收入3,258.49万元，并处以罚款21,018.74万元，合计罚没24,277.23万元，并对6名责任人员处以10万元至430万元不等罚款，对其中2名责任人员分别采取10年、5年证券市场禁入措施。
+中新网北京4月29日电(赵方园 佟奕萱) 记者28日从国家医保局获悉，针对中国新闻网《暗访连锁药店骗保手段：串药、改方、平账一条龙》报道中反映的定点医药机构串换药品违规使用个人账户问题，国家医保局派出专项检查组对涉事机构开展深入检查，并指导湖南、河南省市医保部门举一反三、扩面检查。
 
-2025年6月，河北、深圳证监局对公司债券发行人东旭集团、上市公司东旭光电及东旭蓝天财务造假、欺诈发行、资金占用等违法行为作出行政处罚。
+共检查定点机构1536家，其中湖南省怀化、衡阳、邵阳、株洲4市共检查1352家机构，河南郑州检查定点药店184家。
 
-中兴财光华连续多年为东旭集团、东旭光电、东旭蓝天提供审计服务，河北证监局牵头对中兴财光华为东旭集团、东旭光电、东旭蓝天提供审计服务过程中相关违法违规问题开展调查。
+此次检查中发现，涉事药店违法违规问题主要集中在个人账户资金使用方面，存在通过串换药品的方式将非医保支付的药品、化妆品、日用品、保健品等使用医保个账结算。
 
-调查发现，中兴财光华在为东旭集团、东旭光电、东旭蓝天提供审计服务过程中未勤勉尽责，风险评估程序流于形式，在货币资金、销售和收款循环、采购和付款循环等多个关键审计程序中存在重大缺陷，对异常大额预付款、向供应商付款使用内部审批单等多项重大异常线索未保持职业怀疑并执行进一步审计程序。
+这些机构为躲避监管，套用上传的追溯码为该店已通过自费渠道销售过的医保药品追溯码。
 
-中兴财光华为东旭集团、东旭光电2015年至2018年年报、东旭蓝天2018年年报均出具了标准无保留意见审计报告，为东旭集团2019年年报、东旭光电2019年至2020年年报出具了保留意见的审计报告，为东旭蓝天2019年年报和2020年年报分别出具了带强调事项段的无保留意见的审计报告、带强调事项段的保留意见的审计报告，为东旭集团“18东旭01”“18东旭02”债券发行、东旭光电2017年非公开发行股票出具保证财务数据真实、准确、完整的声明，中兴财光华制作、出具的文件存在虚假记载。
+店员提前留存自费购买药品的追溯码图片，当其他参保人想用个人账户支付化妆品、日用品、保健品等非医疗支出时，店员就违规使用提前储存的自费药品追溯码，扫码上传至医保系统。
 
-中兴财光华上述行为，违反2005年《证券法》第一百七十三条、《证券法》第一百六十三条的规定，构成2005年《证券法》第二百二十三条、《证券法》第二百一十三条第三款所述“未勤勉尽责，所制作、出具的文件有虚假记载”的情形，河北证监局认定中兴财光华上述审计业务收入3,258.49万元为违法业务收入，依法全部予以没收，并处以21,018.74万元罚款。
+通过自费药品追溯码替换套用的方式完成串换。
 
-在案件查处过程中，中国证监会与财政部加强沟通、密切协作，共享信息、强化合力。
+同时，通过增补药品项目、篡改消费总价的方式，合并成参保人使用个人支付的购药小票，将实际选购的商品串换成药品或医疗器械，并使用个账支付；支付完成后，再对小票内额外添加的药品做退费处理，以此平抵账目。
 
-在处罚裁量上，河北证监局依法对中兴财光华相关全部业务收入予以没收，并处以罚款；在“资格罚”上，鉴于财政部已对中兴财光华作出暂停经营业务的行政处罚，暂停业务范围涵盖证券领域，河北证监局不另行作出暂停从事证券服务业务的行政处罚。
+既实现进销存的平账，医保系统里也仅显示一次追溯码记录，手段十分隐蔽。
 
 ## 相关推荐
 
-- 2026-06-30 05:25 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-30 05:32 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-30 05:13 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-30 05:23 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-30 05:37 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-30 05:36 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-30 05:39 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-30 05:15 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-30 05:22 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-30 05:21 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-30 05:34 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-30 05:16 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-30 05:18 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 05:21 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-30 05:47 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-30 05:42 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-30 05:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-30 05:29 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 05:46 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-30 05:20 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-30 05:46 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-30 05:18 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 05:44 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-30 05:29 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 05:28 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:29 - [刘念回应](https://www.blog.minike.top/Article/details/02687.shtml)
-- 2026-06-30 05:37 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/5866499385.shtml)
-- 2026-06-30 05:13 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/22957681435.shtml)
-- 2026-06-30 05:20 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/692697533.shtml)
-- 2026-06-30 05:13 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/880862327.shtml)
-- 2026-06-30 05:18 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/58202.shtml)
-- 2026-06-30 05:16 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/44093446.shtml)
-- 2026-06-30 05:31 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/46435610.shtml)
-- 2026-06-30 05:33 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/852384693739.shtml)
-- 2026-06-30 05:29 - [日本进球](http://www.share.kurohicncr.top/Article/details/7897556.shtml)
-- 2026-06-30 05:23 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/523690467.shtml)
-- 2026-06-30 05:15 - [请回答王牌2019](https://www.blog.minike.top/Article/details/37566678.shtml)
-- 2026-06-30 05:40 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/718167.shtml)
-- 2026-06-30 05:23 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/96706.shtml)
-- 2026-06-30 05:18 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/951733668528.shtml)
+- 2026-06-30 05:26 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/95296948.shtml)
+- 2026-06-30 05:46 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/961609061995.shtml)
+- 2026-06-30 05:18 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/2834777.shtml)
+- 2026-06-30 05:41 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/5596531.shtml)
+- 2026-06-30 05:26 - [巴西扳平比分](https://www.blog.minike.top/Article/details/04335.shtml)
+- 2026-06-30 05:46 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/023065820.shtml)
+- 2026-06-30 05:29 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/69528.shtml)
+- 2026-06-30 05:43 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.minike.top/Article/details/721875462.shtml)
+- 2026-06-30 05:19 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/52575389.shtml)
+- 2026-06-30 05:20 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/811283.shtml)
+- 2026-06-30 05:20 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/24127.shtml)
+- 2026-06-30 05:40 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/326819363.shtml)
+- 2026-06-30 05:40 - [明星大侦探第四季](http://www.share.minike.top/Article/details/719222.shtml)
+- 2026-06-30 05:24 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/1013980.shtml)
+- 2026-06-30 05:33 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/7848761227.shtml)

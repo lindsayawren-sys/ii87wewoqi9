@@ -1,59 +1,52 @@
-# 蔚来李斌：花无百样红，“哪款新车能热销一年，太难了”
+# 五一假期，这些方向火车票仍有余票
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。 蔚来创始人李斌表示，汽车行业面临很多压力，首先来自于盈利的压力，增量不增收。 此外，汽车行业也面临技术变化带来的一些压力。比如整个行业智能电动产品迭代太快。以前机械油车啊，五年七年一迭代，投
+中新网北京4月29日电(记者 李京统)记者从中国国家铁路集团有限公司客运中心获悉，铁路五一假期运输今日启动，自4月29日至5月6日，为期8天。自4月15日发售五一假期车票以来，截至29日8时，铁路12306已累计发售五一假期运输期间火车票8302万张，部分线路和时段火车票仍有余票。 国铁集团客运中心相关负责人介绍，从目前铁路12306售票情况看，部分线路和时段火车票仍有余票可发
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+中新网北京4月29日电(记者 李京统)记者从中国国家铁路集团有限公司客运中心获悉，铁路五一假期运输今日启动，自4月29日至5月6日，为期8天。
 
-蔚来创始人李斌表示，汽车行业面临很多压力，首先来自于盈利的压力，增量不增收。
+自4月15日发售五一假期车票以来，截至29日8时，铁路12306已累计发售五一假期运输期间火车票8302万张，部分线路和时段火车票仍有余票。
 
-此外，汽车行业也面临技术变化带来的一些压力。
+国铁集团客运中心相关负责人介绍，从目前铁路12306售票情况看，部分线路和时段火车票仍有余票可发售。
 
-比如整个行业智能电动产品迭代太快。
+如，4月30日，北京至大同、呼和浩特、上海，上海至福州、昆明、南昌，广州至香港、昆明，成都至西安、广州、北京；5月1日，北京至大同，广州至香港、南宁、南昌，成都至西安、上海、北京；5月5日，香港、南宁至广州，西安、南宁、上海至成都。
 
-以前机械油车啊，五年七年一迭代，投资周期比较长分摊周期也比较长，压力还好。
+此外，铁路部门在确保安全前提下，于4月29日夜间至5月2日凌晨、5月4日夜间至6日凌晨在京沪、京广、京哈、沪昆等高铁干线安排开行直通夜间高铁，目前夜间高铁部分车次仍有余票，如4月30日太原、大同、安阳、沈阳、长春至北京；5月1日北京至郑州、沈阳，武汉至广州、上海，南京至上海；5月5日沈阳至北京，太原至北京，南昌至上海，上海至武汉等。
 
-他表示，比如现在智能化芯片迭代一颗，车就得迭代，电池技术进步了也得迭代，所以现在汽车迭代快多了。
-
-迭代快带来问题是供需平衡非常难把握，所以新车有死亡谷效应，花无百日红，现在哪款新车说能热销一年，太难了。
-
-一直能热销一直能保持不太可能。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:14 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-30 05:16 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-30 05:17 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-30 05:22 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-30 05:27 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-30 05:22 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-30 05:19 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-30 05:17 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-30 05:22 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-30 05:40 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-30 05:15 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-30 05:40 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-30 05:38 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-30 05:27 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-30 05:31 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 05:22 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-30 05:42 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 05:38 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-30 05:39 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-30 05:28 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-30 05:18 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-30 05:36 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-30 05:37 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:20 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/36056.shtml)
-- 2026-06-30 05:37 - [张帅时隔四年再取温网正赛胜利](https://www.share.kurohicncr.top/Article/details/12014.shtml)
-- 2026-06-30 05:12 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/096434.shtml)
-- 2026-06-30 05:30 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.minike.top/Article/details/15268639.shtml)
-- 2026-06-30 05:22 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/730121503543.shtml)
-- 2026-06-30 05:32 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/565677.shtml)
-- 2026-06-30 05:25 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/113292.shtml)
-- 2026-06-30 05:27 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/703839.shtml)
-- 2026-06-30 05:25 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/9438255.shtml)
-- 2026-06-30 05:37 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/205925323518.shtml)
-- 2026-06-30 05:36 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/275585.shtml)
-- 2026-06-30 05:41 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/99695114382.shtml)
-- 2026-06-30 05:22 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/62249176773.shtml)
-- 2026-06-30 05:22 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/65461140.shtml)
-- 2026-06-30 05:42 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/8019443903.shtml)
+- 2026-06-30 05:35 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/8230754.shtml)
+- 2026-06-30 05:33 - [为什么会有「念旧」的心理？](http://www.share.minike.top/Article/details/8341524.shtml)
+- 2026-06-30 05:18 - [扫黑风暴](http://www.share.minike.top/Article/details/123592920.shtml)
+- 2026-06-30 05:18 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/728167341.shtml)
+- 2026-06-30 05:47 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/640172.shtml)
+- 2026-06-30 05:39 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/76570.shtml)
+- 2026-06-30 05:28 - [流金岁月](https://www.share.minike.top/Article/details/714077.shtml)
+- 2026-06-30 05:21 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/445838018829.shtml)
+- 2026-06-30 05:42 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/997214786.shtml)
+- 2026-06-30 05:25 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/10358965204.shtml)
+- 2026-06-30 05:26 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.minike.top/Article/details/61283168.shtml)
+- 2026-06-30 05:45 - [月亮](https://www.share.kurohicncr.top/Article/details/933222308664.shtml)
+- 2026-06-30 05:25 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/67970675049.shtml)
+- 2026-06-30 05:44 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/582128200111.shtml)
+- 2026-06-30 05:31 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/742565728.shtml)

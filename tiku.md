@@ -1,56 +1,61 @@
-# 飞虎队后代在渝观史料追寻抗战岁月
+# 世界银行：中东冲突推高大宗商品价格，拖累全球经济增长
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新社重庆4月10日电 (记者 钟旖)“这是关于友谊与合作的伟大故事，值得被更多人铭记。”10日在重庆举行的中国空军美国志愿援华航空队(飞虎队)成立85周年历史回顾交流分享会上，陈纳德将军的后代凯特琳·克莱尔·马林斯(Kaitlin Claire Mullins)如是说。 当天，作为“青年同行·渝见未来”2026美国青年重庆行科技人文交流活动的重要环节，飞虎队后代、美国高校青年
+世界银行于周二表示，中东冲突引发大宗商品价格暴涨，或将推高发展中经济体通胀、压低经济增速。 自2月末美国与以色列对伊朗发动首轮袭击以来，霍尔木兹海峡航运基本陷入停滞，全球石油、天然气、尿素及各类原材料供应大幅缩减。 受供给短缺影响，大宗商品价格大幅飙升。世界银行在大宗商品展望报告中指出，即便霍尔木兹海峡从下月起逐步恢复通航，今年布伦特原油均价仍将达到每桶86美元，远高于2025
 
 ## 正文
 
-中新社重庆4月10日电 (记者 钟旖)“这是关于友谊与合作的伟大故事，值得被更多人铭记。
+世界银行于周二表示，中东冲突引发大宗商品价格暴涨，或将推高发展中经济体通胀、压低经济增速。
 
-”10日在重庆举行的中国空军美国志愿援华航空队(飞虎队)成立85周年历史回顾交流分享会上，陈纳德将军的后代凯特琳·克莱尔·马林斯(Kaitlin Claire Mullins)如是说。
+自2月末美国与以色列对伊朗发动首轮袭击以来，霍尔木兹海峡航运基本陷入停滞，全球石油、天然气、尿素及各类原材料供应大幅缩减。
 
-当天，作为“青年同行·渝见未来”2026美国青年重庆行科技人文交流活动的重要环节，飞虎队后代、美国高校青年代表等百余人，共同观看了抗战题材纪录片《〈苦干〉归来》，追寻抗战岁月里中美守望相助的历史。
+受供给短缺影响，大宗商品价格大幅飙升。
 
-影片穿插大量珍贵史料镜头，以真实视角记录下中国抗战大后方的艰难岁月。
+世界银行在大宗商品展望报告中指出，即便霍尔木兹海峡从下月起逐步恢复通航，今年布伦特原油均价仍将达到每桶86美元，远高于2025年的65美元。
 
-凯特琳在观影后几度哽咽：“家族长辈对援华经历总是轻描淡写。
+由于其他原材料供应同样受阻，世行预计今年大宗商品价格整体上涨16%，为2022年俄乌冲突以来首次年度上涨，较该行1月预测值高出25%。
 
-重庆之行让我深刻理解先辈的坚守，以及美中友谊的分量。
+倘若航运中断局面长期持续，布伦特原油全年均价或将升至每桶95至115美元区间，其他大宗商品价格也将出现更大涨幅。
 
-”她表示，期待在美举办同类分享会，让更多人了解这段跨洋情谊。
+世行经济学家测算，在基准温和情景下，发展中经济体今年经济增速仅为3.6%，低于1月预测的4%；平均通胀率预计达5.1%，较冲突爆发前的预期高出1个百分点。
 
-“苦干，也寓意‘在残酷逆境中的巨大勇气’，我深受触动。
+民众在生活必需品上的支出被迫增加，可用于其他商品与服务的消费缩减，经济增长随之走弱；同时，通胀上行或将倒逼各国加息。
 
 ## 相关推荐
 
-- 2026-06-30 05:20 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-30 05:22 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-30 05:24 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-30 05:41 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-30 05:41 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-30 05:14 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-30 05:26 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-30 05:19 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-30 05:37 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-30 05:18 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-30 05:30 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-30 05:28 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 05:34 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-30 05:28 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-30 05:40 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-30 05:21 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-30 05:19 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-30 05:25 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-30 05:28 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-30 05:36 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-30 05:28 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-30 05:27 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-30 05:28 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-30 05:29 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-30 05:40 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:38 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/330657368007.shtml)
-- 2026-06-30 05:19 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/4905377496.shtml)
-- 2026-06-30 05:30 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/60168966.shtml)
-- 2026-06-30 05:17 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/52783066.shtml)
-- 2026-06-30 05:14 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/856257943074.shtml)
-- 2026-06-30 05:26 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/576581915427.shtml)
-- 2026-06-30 05:25 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/0680326628.shtml)
-- 2026-06-30 05:12 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/503902426202.shtml)
-- 2026-06-30 05:15 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/149548288386.shtml)
-- 2026-06-30 05:33 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/0907811695.shtml)
-- 2026-06-30 05:31 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/29431443608.shtml)
-- 2026-06-30 05:28 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/619398365879.shtml)
-- 2026-06-30 05:39 - [金刚川](https://www.blog.minike.top/Article/details/661791088.shtml)
-- 2026-06-30 05:23 - [TOP Prada](http://www.share.minike.top/Article/details/16070.shtml)
-- 2026-06-30 05:22 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/05336829638.shtml)
+- 2026-06-30 05:25 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/54637660.shtml)
+- 2026-06-30 05:36 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/220287727054.shtml)
+- 2026-06-30 05:25 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/15041096.shtml)
+- 2026-06-30 05:41 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/96264407035.shtml)
+- 2026-06-30 05:44 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/391925857434.shtml)
+- 2026-06-30 05:34 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/60729573600.shtml)
+- 2026-06-30 05:36 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/37788.shtml)
+- 2026-06-30 05:22 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/0884857154.shtml)
+- 2026-06-30 05:44 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/74595062.shtml)
+- 2026-06-30 05:47 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/7318780700.shtml)
+- 2026-06-30 05:37 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/72794954205.shtml)
+- 2026-06-30 05:32 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/581280709379.shtml)
+- 2026-06-30 05:39 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/59705480.shtml)
+- 2026-06-30 05:39 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/66069.shtml)
+- 2026-06-30 05:41 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/70561458890.shtml)

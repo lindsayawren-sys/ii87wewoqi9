@@ -1,57 +1,57 @@
-# 开局起步“十五五”：海南拓展国际“朋友圈”、织密省际“协同网”
+# 新开局，杭州展现创新力
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新网海口4月10日电 (记者 王子谦)“开局起步‘十五五’——高标准建设海南自由贸易港”专场新闻发布会10日在海口举行。海南省发展和改革委员会主任綦树利表示，“十五五”期间，海南自贸港将持续深化区域合作与联动发展，“总的思路是，拓展国际‘朋友圈’、织密省际‘协同网’、下好全省‘一盘棋’。” 《海南省国民经济和社会发展第十五个五年规划纲要》提出，海南“十五五”将深化区域合作与联
+中新网杭州4月28日电(记者 王逸飞)打造更高水平创新活力之城——杭州正将发展目标具象化为一系列可见变化。 近期，该市一季度经济成绩单发布——GDP6109亿元，同比增长5.6%，比上年全年加快0.4个百分点。其中，数字经济核心产业制造业增加值增长11.7%，产业投资同比增长18.5%等数字，让杭州经济的创新底色进一步凸显。 在今年的开局阶段，创新力持续提升成为杭州尤为明显的特
 
 ## 正文
 
-中新网海口4月10日电 (记者 王子谦)“开局起步‘十五五’——高标准建设海南自由贸易港”专场新闻发布会10日在海口举行。
+中新网杭州4月28日电(记者 王逸飞)打造更高水平创新活力之城——杭州正将发展目标具象化为一系列可见变化。
 
-海南省发展和改革委员会主任綦树利表示，“十五五”期间，海南自贸港将持续深化区域合作与联动发展，“总的思路是，拓展国际‘朋友圈’、织密省际‘协同网’、下好全省‘一盘棋’。
+近期，该市一季度经济成绩单发布——GDP6109亿元，同比增长5.6%，比上年全年加快0.4个百分点。
 
-” 《海南省国民经济和社会发展第十五个五年规划纲要》提出，海南“十五五”将深化区域合作与联动发展，突出“全省一盘棋、全岛同城化”，更加注重区域协调发展，努力缩小地区差距，加快构建优势互补、高质量发展的区域经济布局。
+其中，数字经济核心产业制造业增加值增长11.7%，产业投资同比增长18.5%等数字，让杭州经济的创新底色进一步凸显。
 
-綦树利在会上说，为拓展国际“朋友圈”，“十五五”海南将与东南亚、共建“一带一路”国家及欧洲重点地区，围绕国际航运物流、高端医疗、新能源、数字贸易等深化合作。
+在今年的开局阶段，创新力持续提升成为杭州尤为明显的特征。
 
-例如，密切与新加坡等东南亚国家的经贸人文交流，高标准建设海南自贸港绿色低碳国际合作示范区。
+除上述数据外，这一特征在当地还有着多重体现。
 
-正在推进洋浦港和阿布扎比港等“一带一路”姊妹港建设，建设中国-阿联酋椰枣种质资源保护与利用中心。
+首先，是未来产业的“爆发力”。
 
-同时，深化与德国等欧洲国家在高端装备制造、节能降碳、医疗健康等领域的交流合作。
+前瞻布局产业一直是杭州的“拿手戏”。
 
-为织密省际“协同网”，海南将主动对接粤港澳、长三角、京津冀、长江经济带等国家重大区域战略，重点聚焦种业、深海、高端装备制造、航空航天、生物医药、金融服务、环境保护、文体消费等领域，以建设粤琼、湘琼、琼港、浙琼、深儋等合作产业园为载体，发挥区域战略叠加效应。
+如今，这种不断塑造先发优势的能力正为其带来可观的增长动能。
 
 ## 相关推荐
 
-- 2026-06-30 05:23 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 05:24 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-30 05:28 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-30 05:35 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-30 05:34 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-30 05:32 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-30 05:29 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-30 05:19 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-30 05:18 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-30 05:30 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-30 05:35 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-30 05:20 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-30 05:35 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-30 05:46 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-30 05:31 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-30 05:44 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-30 05:30 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-30 05:22 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-30 05:32 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 05:45 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-30 05:24 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-30 05:29 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:15 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.kurohicncr.top/Article/details/7249267762.shtml)
-- 2026-06-30 05:28 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/479807385707.shtml)
-- 2026-06-30 05:35 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/0827307619.shtml)
-- 2026-06-30 05:25 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/7593002.shtml)
-- 2026-06-30 05:13 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/3778027890.shtml)
-- 2026-06-30 05:28 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/256024730349.shtml)
-- 2026-06-30 05:17 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/122791130.shtml)
-- 2026-06-30 05:26 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/619508.shtml)
-- 2026-06-30 05:38 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/14865140553.shtml)
-- 2026-06-30 05:17 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/179315454.shtml)
-- 2026-06-30 05:26 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/831498634.shtml)
-- 2026-06-30 05:21 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/81325.shtml)
-- 2026-06-30 05:18 - [巴西vs日本](http://www.share.minike.top/Article/details/81530652.shtml)
-- 2026-06-30 05:17 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/6752148.shtml)
-- 2026-06-30 05:36 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/089549.shtml)
+- 2026-06-30 05:43 - [一生一世](http://www.blog.minike.top/Article/details/6041815.shtml)
+- 2026-06-30 05:23 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/71405517.shtml)
+- 2026-06-30 05:46 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/88920062113.shtml)
+- 2026-06-30 05:25 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/5311685.shtml)
+- 2026-06-30 05:38 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/659118.shtml)
+- 2026-06-30 05:30 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/27836554689.shtml)
+- 2026-06-30 05:21 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/7250217824.shtml)
+- 2026-06-30 05:44 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/25262041848.shtml)
+- 2026-06-30 05:45 - [巴西绝杀日本](http://www.share.minike.top/Article/details/7666166038.shtml)
+- 2026-06-30 05:38 - [老外对中国cosplay竟这样评价…](https://www.blog.kurohicncr.top/Article/details/60656.shtml)
+- 2026-06-30 05:20 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/4212181.shtml)
+- 2026-06-30 05:26 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/31458.shtml)
+- 2026-06-30 05:26 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/4367111.shtml)
+- 2026-06-30 05:39 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/41445034.shtml)
+- 2026-06-30 05:20 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/223708835.shtml)

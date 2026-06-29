@@ -1,55 +1,61 @@
-# 报道：软银、日本电气、本田、索尼联合成立新人工智能公司
+# 4月30日美股成交额前20：英特尔大涨逾12%创历史新高
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-据媒体周日报道，软银、日本电气、本田、索尼四家企业将在新公司中各持有约10%的股份，新公司预计聘用约100名人工智能开发人员。报道未透露消息来源。 软银与日本电气将负责基础人工智能大模型的研发，本田和索尼则计划将人工智能应用于汽车、机器人、游戏及半导体等领域。 新日铁以及三菱UFJ、三井住友、瑞穗等大型银行将以少数股东身份参与投资。 该人工智能模型将向日本企业开放使用，即便非投
+周三美股成交额第1名英伟达收跌1.83%，成交251.59亿美元。该股周一创历史新高之后已连续两日走低，不过市值仍维持在5万亿美元之上。 第2名英特尔收高12.10%，股价创历史新高，成交208.73亿美元。这家半导体巨头强调了其数据中心芯片需求快速上升。 分析师指出，英特尔正受益于人工智能趋势的转变。在错过了人工智能热潮的早期阶段之后，英特尔发现自己现在处于有利位置，能够从近
 
 ## 正文
 
-据媒体周日报道，软银、日本电气、本田、索尼四家企业将在新公司中各持有约10%的股份，新公司预计聘用约100名人工智能开发人员。
+周三美股成交额第1名英伟达收跌1.83%，成交251.59亿美元。
 
-报道未透露消息来源。
+该股周一创历史新高之后已连续两日走低，不过市值仍维持在5万亿美元之上。
 
-软银与日本电气将负责基础人工智能大模型的研发，本田和索尼则计划将人工智能应用于汽车、机器人、游戏及半导体等领域。
+第2名英特尔收高12.10%，股价创历史新高，成交208.73亿美元。
 
-新日铁以及三菱UFJ、三井住友、瑞穗等大型银行将以少数股东身份参与投资。
+这家半导体巨头强调了其数据中心芯片需求快速上升。
 
-该人工智能模型将向日本企业开放使用，即便非投资方也可对其进行定制化部署。
+分析师指出，英特尔正受益于人工智能趋势的转变。
 
-责任编辑：何云
+在错过了人工智能热潮的早期阶段之后，英特尔发现自己现在处于有利位置，能够从近期的技术进步中获利。
+
+虽然人工智能模型训练在很大程度上依赖于英伟达和AMD等公司设计的图形处理器，但代理型人工智能的崛起正在提振对英特尔生产的那类中央处理器的需求。
+
+在经历数年的销售下滑之后，英特尔第一季度营收同比增长7%，达到136亿美元。
 
 ## 相关推荐
 
-- 2026-06-30 05:34 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-30 05:35 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-30 05:25 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-30 05:13 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 05:23 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-30 05:21 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-30 05:21 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-30 05:28 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-30 05:28 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-30 05:15 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-30 05:37 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-30 05:38 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-30 05:39 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-30 05:23 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-30 05:24 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 05:43 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 05:26 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-30 05:45 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 05:42 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 05:47 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-30 05:45 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-30 05:32 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-30 05:35 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-30 05:31 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-30 05:31 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-30 05:46 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 05:41 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 05:20 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:36 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/640401509478.shtml)
-- 2026-06-30 05:21 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/08364.shtml)
-- 2026-06-30 05:35 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/760876051242.shtml)
-- 2026-06-30 05:38 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/8781739.shtml)
-- 2026-06-30 05:24 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/43018437.shtml)
-- 2026-06-30 05:13 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/71327066155.shtml)
-- 2026-06-30 05:41 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/48753532.shtml)
-- 2026-06-30 05:35 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/05740171438.shtml)
-- 2026-06-30 05:27 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/500387.shtml)
-- 2026-06-30 05:30 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/109614.shtml)
-- 2026-06-30 05:29 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/652298.shtml)
-- 2026-06-30 05:22 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/5286381.shtml)
-- 2026-06-30 05:41 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/2738908.shtml)
-- 2026-06-30 05:30 - [日本淘汰](https://www.blog.kurohicncr.top/Article/details/77818422303.shtml)
-- 2026-06-30 05:21 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/584852.shtml)
+- 2026-06-30 05:46 - [为什么会有「念旧」的心理？](https://www.blog.minike.top/Article/details/24581773195.shtml)
+- 2026-06-30 05:35 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/7526895741.shtml)
+- 2026-06-30 05:26 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/716825.shtml)
+- 2026-06-30 05:23 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/74062599091.shtml)
+- 2026-06-30 05:36 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/351068518.shtml)
+- 2026-06-30 05:23 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/6204867524.shtml)
+- 2026-06-30 05:23 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/3343898.shtml)
+- 2026-06-30 05:40 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/212607.shtml)
+- 2026-06-30 05:47 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/18743.shtml)
+- 2026-06-30 05:42 - [王欣瑜温网开门红](http://www.blog.kurohicncr.top/Article/details/829291.shtml)
+- 2026-06-30 05:39 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.kurohicncr.top/Article/details/7250841.shtml)
+- 2026-06-30 05:30 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/0807995.shtml)
+- 2026-06-30 05:39 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/94870.shtml)
+- 2026-06-30 05:22 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/610327.shtml)
+- 2026-06-30 05:26 - [王欣瑜2-1击败科恰雷托](http://www.blog.kurohicncr.top/Article/details/959673430.shtml)

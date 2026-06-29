@@ -1,61 +1,56 @@
-# 千年彝村迎“星客” 川南天文台点亮“暗夜经济”
+# 致敬劳动者！建行这些个人和集体获全国五一劳动奖
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新网攀枝花4月11日电 (王利文)日珥在太阳表面跃动，星系于望远镜中清晰呈现。11日，参与“2026海外华文媒体攀枝花行”的全球17个国家和地区媒体代表，走进位于四川攀枝花迤沙拉村的迤沙拉星空观测基地·川南天文台，探访中国西南地区唯一一座集科普、科研、文旅、食宿于一体的综合性天文台，感受彝家古村与浩瀚星空碰撞出的独特魅力。 迤沙拉是有着600多年历史的彝族古村落，地处海拔16
+4月28日，中华全国总工会召开庆祝“五一”国际劳动节暨全国五一劳动奖表彰大会，发布关于表彰2026年全国五一劳动奖的决定，共表彰全国五一劳动奖3024个。其中，全国五一劳动奖状379个、全国五一劳动奖章1462名、全国工人先锋号1183个。 建设银行共有2名个人和2个集体喜获全国五一劳动奖。其中，湖南省岳阳县支行行长方石奎、云南省玉溪市红塔支行客户经理王俊颖被授予全国五一劳动奖
 
 ## 正文
 
-中新网攀枝花4月11日电 (王利文)日珥在太阳表面跃动，星系于望远镜中清晰呈现。
+4月28日，中华全国总工会召开庆祝“五一”国际劳动节暨全国五一劳动奖表彰大会，发布关于表彰2026年全国五一劳动奖的决定，共表彰全国五一劳动奖3024个。
 
-11日，参与“2026海外华文媒体攀枝花行”的全球17个国家和地区媒体代表，走进位于四川攀枝花迤沙拉村的迤沙拉星空观测基地·川南天文台，探访中国西南地区唯一一座集科普、科研、文旅、食宿于一体的综合性天文台，感受彝家古村与浩瀚星空碰撞出的独特魅力。
+其中，全国五一劳动奖状379个、全国五一劳动奖章1462名、全国工人先锋号1183个。
 
-迤沙拉是有着600多年历史的彝族古村落，地处海拔1650米的金沙江干热河谷，远离城市光污染，年均晴夜超200天，空气通透、视宁度佳，是全国少有的优质暗夜观星区域，且交通便利、气候宜人，为天文观测提供了天然优势。
+建设银行共有2名个人和2个集体喜获全国五一劳动奖。
 
-“这里光污染少、晴夜多、视宁度好，是开展天文观测与科普的理想之地。
+其中，湖南省岳阳县支行行长方石奎、云南省玉溪市红塔支行客户经理王俊颖被授予全国五一劳动奖章，内蒙古满洲里分行国际业务部、重庆市杨家坪支行营业室被授予全国工人先锋号。
 
-”四川省天文科普学会川南天文台天文导师张文婷介绍，这座占地1800平方米的天文台，以天外红色陨石坠落的碎片为创意原型，以迤沙拉彝家红为主色调，融合古朴民族风情与现代简约美学。
+为大力弘扬劳模精神、劳动精神、工匠精神，表彰激励先进典型，凝聚起团结奋进的强大力量，本期刊发受表彰的个人和集体事迹简介。
 
-基地内设多功能厅、天文观测区、天象厅、主题展厅、星幕餐厅、太阳系主题民宿六大功能区，可同时接待300余人次。
+全国五一劳动奖章获得者方石奎任建设银行岳阳县支行行长，助理会计师 作为建设银行一名基层行长，方石奎打造的县域“党费云”平台实现全县单位全覆盖；推广的裕农信贷产品被广大农户亲切称为“王鸽贷”“水稻贷”，帮助数百农户增收增效，助力“岳阳王鸽”品牌走出湖南；他带领团队扎实做好金融“五篇大文章”，为“十四五”电力发展规划国家级重大项目和多个省市级重点项目提供优质的金融服务。
 
-张文婷表示，该天文台配备了14台不同类型天文望远镜、27个观测机位。
+全国五一劳动奖章获得者王俊颖任建设银行玉溪市分行红塔支行客户经理 深耕基层十余载，王俊颖用行动诠释党员担当，以暖心服务书写金融人的温情答卷。
 
-其中，科研级600mm口径双曲面反射镜已正式投用，参与中国科学院国家天文台相关项目，后续还将与中国科学院上海天文台、紫金山天文台及西南大学等合作，开展亮变源监测、恒星测光、广域巡天等科研工作。
+她走出网点，把金融课堂搬进车间厂房，用心倾听一线职工心声，将专业复杂的金融方案化作家常话语，暖心化解群众困惑；在棚改民生服务关键时期，她创新便民服务模式，携移动设备走街串巷，用心用情办好民生实事；面对行动不便的独居老人，她主动上门答疑解惑，用脚步缩短服务距离。
 
 ## 相关推荐
 
-- 2026-06-30 05:33 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-30 05:29 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-30 05:19 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-30 05:23 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-30 05:12 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-30 05:37 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-30 05:15 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-30 05:39 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-30 05:40 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-30 05:25 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-30 05:39 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-30 05:26 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-30 05:12 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-30 05:27 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-30 05:35 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-30 05:40 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-30 05:30 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-30 05:21 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-30 05:46 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-30 05:21 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-30 05:31 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-30 05:32 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 05:23 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-30 05:46 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-30 05:37 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:19 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/66645417.shtml)
-- 2026-06-30 05:18 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.kurohicncr.top/Article/details/13481.shtml)
-- 2026-06-30 05:13 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/96856188.shtml)
-- 2026-06-30 05:39 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/93868308276.shtml)
-- 2026-06-30 05:19 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/061520983.shtml)
-- 2026-06-30 05:26 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/294446.shtml)
-- 2026-06-30 05:39 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/675493.shtml)
-- 2026-06-30 05:30 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/16664531801.shtml)
-- 2026-06-30 05:32 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/49047535431.shtml)
-- 2026-06-30 05:34 - [巴西扳平比分](https://www.share.minike.top/Article/details/87490.shtml)
-- 2026-06-30 05:39 - [TOP Prada](https://www.blog.minike.top/Article/details/3188389361.shtml)
-- 2026-06-30 05:17 - [内马尔中场休息积极鼓励队友](https://www.share.kurohicncr.top/Article/details/472785954795.shtml)
-- 2026-06-30 05:36 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/1164920.shtml)
-- 2026-06-30 05:26 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/62436198108.shtml)
-- 2026-06-30 05:41 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/96500463448.shtml)
+- 2026-06-30 05:28 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/4245463.shtml)
+- 2026-06-30 05:23 - [月亮](http://www.share.minike.top/Article/details/89082.shtml)
+- 2026-06-30 05:30 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/012498528.shtml)
+- 2026-06-30 05:39 - [日本领先巴西](http://www.share.minike.top/Article/details/066390885.shtml)
+- 2026-06-30 05:41 - [为什么会有「念旧」的心理？](https://www.blog.minike.top/Article/details/406605393349.shtml)
+- 2026-06-30 05:33 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/038525542.shtml)
+- 2026-06-30 05:33 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/03519991.shtml)
+- 2026-06-30 05:47 - [亚洲球队全部告别世界杯](http://www.blog.kurohicncr.top/Article/details/55816029.shtml)
+- 2026-06-30 05:45 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/552768.shtml)
+- 2026-06-30 05:36 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/040454989.shtml)
+- 2026-06-30 05:27 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/49533553.shtml)
+- 2026-06-30 05:41 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/88235292415.shtml)
+- 2026-06-30 05:37 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/129554976.shtml)
+- 2026-06-30 05:21 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/09966460.shtml)
+- 2026-06-30 05:20 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/68721594.shtml)

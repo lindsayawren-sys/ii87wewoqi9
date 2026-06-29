@@ -1,60 +1,58 @@
-# （八闽千姿）探访“中国刀剪之乡”柘荣：百年铁火淬新智
+# 外媒：伊朗储油能力即将耗尽，石油生产或遭不可逆损害
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新社福建宁德4月11日电 题：探访“中国刀剪之乡”柘荣：百年铁火淬新智 中新社记者 吕巧琴 叶茂 “叮当，叮当。”还未踏入位于福建省宁德市柘荣县城区溪坪上街的传统剪刀制造技艺工坊，清脆而有力的铁锤锻打声已穿门而出。坊内，柘荣剪刀制造技艺福建省级非遗代表性传承人林龙醒手中铁锤起落之间，一把剪刀的雏形在火花与汗水中显现。 他11日接受中新社记者采访时说，从下钢到成品，一把剪刀要经
+中新网4月28日电 综合《华尔街日报》、彭博社等外媒报道，美国封锁霍尔木兹海峡后，伊朗石油出口陷入停滞。分析师警告，随着储油空间迅速耗尽，伊朗的石油生产可能面临不可逆转的损害。 美国企业研究所(AEI)的关键威胁项目预估，伊朗陆上储油设施可能在4月29日达到存储极限。英国燃料分析公司Energy Aspects也支持这一判断。 报道称，卫星图像显示，伊朗石油枢纽哈尔克岛附近停泊
 
 ## 正文
 
-中新社福建宁德4月11日电 题：探访“中国刀剪之乡”柘荣：百年铁火淬新智 中新社记者 吕巧琴 叶茂 “叮当，叮当。
+中新网4月28日电 综合《华尔街日报》、彭博社等外媒报道，美国封锁霍尔木兹海峡后，伊朗石油出口陷入停滞。
 
-”还未踏入位于福建省宁德市柘荣县城区溪坪上街的传统剪刀制造技艺工坊，清脆而有力的铁锤锻打声已穿门而出。
+分析师警告，随着储油空间迅速耗尽，伊朗的石油生产可能面临不可逆转的损害。
 
-坊内，柘荣剪刀制造技艺福建省级非遗代表性传承人林龙醒手中铁锤起落之间，一把剪刀的雏形在火花与汗水中显现。
+美国企业研究所(AEI)的关键威胁项目预估，伊朗陆上储油设施可能在4月29日达到存储极限。
 
-他11日接受中新社记者采访时说，从下钢到成品，一把剪刀要经过20多道工序，每一步都不能省略，差一点火候，剪刀的韧性就会不足。
+英国燃料分析公司Energy Aspects也支持这一判断。
 
-据《柘荣县志》记载，雍正年间，柘荣就有能工巧匠用生铁加钢刃锻打剪刀，特别是在下钢、淬火、水磨三道传统技艺方面形成了独特的柘荣剪刀制造技艺，至今已约三百年。
+报道称，卫星图像显示，伊朗石油枢纽哈尔克岛附近停泊着巨型超级油轮，专家指出，伊朗正将这些油轮用作海上浮动储油设施。
 
-溪坪街是柘荣剪刀的发源与传承之地，这里流传着一句民谣：“上街打剪刀，中街生意仔，下街读书郎”。
+能源与化工咨询公司FGE NextantECA指出，伊朗拥有约1.22亿桶储油空间，距离石油停产仅剩不到七周。
 
-今年57岁的林龙醒自小跟随爷爷和父亲学习打剪刀。
+研究公司Kpler警告称，伊朗剩余可用存储空间仅能支撑12至22天的正常生产活动。
 
-他介绍，柘荣刀剪延续传统手工艺，始终讲究精工细雕，镶嵌钢刃要均匀，磨工精细，雕刻精巧。
+此后，哈尔克岛油田将被迫减产，到5月下旬，日产量可能减少多达150万桶。
 
 ## 相关推荐
 
-- 2026-06-30 05:34 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 05:14 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-30 05:38 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-30 05:24 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-30 05:28 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-30 05:34 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-30 05:41 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 05:36 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-30 05:15 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-30 05:33 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-30 05:17 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-30 05:38 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-30 05:13 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-30 05:31 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 05:31 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-30 05:29 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-30 05:41 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-30 05:21 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-30 05:35 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-30 05:20 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-30 05:34 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-30 05:42 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-30 05:46 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-30 05:33 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-30 05:33 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-30 05:22 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:18 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/7987096.shtml)
-- 2026-06-30 05:19 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/295390363281.shtml)
-- 2026-06-30 05:40 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.kurohicncr.top/Article/details/86457.shtml)
-- 2026-06-30 05:30 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/565194525.shtml)
-- 2026-06-30 05:12 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/2463455231.shtml)
-- 2026-06-30 05:33 - [金刚川](https://www.share.minike.top/Article/details/457349356.shtml)
-- 2026-06-30 05:35 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/4600205248.shtml)
-- 2026-06-30 05:36 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/890019273.shtml)
-- 2026-06-30 05:31 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/420200.shtml)
-- 2026-06-30 05:35 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/886740871.shtml)
-- 2026-06-30 05:14 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/656706.shtml)
-- 2026-06-30 05:32 - [送你一朵小红花](http://www.share.minike.top/Article/details/9571272704.shtml)
-- 2026-06-30 05:39 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/7884476.shtml)
-- 2026-06-30 05:29 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/200651969.shtml)
-- 2026-06-30 05:26 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/403978.shtml)
+- 2026-06-30 05:21 - [苗族银饰](https://www.blog.minike.top/Article/details/356871327.shtml)
+- 2026-06-30 05:23 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/623782.shtml)
+- 2026-06-30 05:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/235099.shtml)
+- 2026-06-30 05:44 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/036565.shtml)
+- 2026-06-30 05:29 - [千与千寻](http://www.blog.minike.top/Article/details/087217067126.shtml)
+- 2026-06-30 05:27 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.kurohicncr.top/Article/details/75690.shtml)
+- 2026-06-30 05:19 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/33692332069.shtml)
+- 2026-06-30 05:38 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/51886385294.shtml)
+- 2026-06-30 05:25 - [德国vs巴拉圭](https://www.share.minike.top/Article/details/5839877.shtml)
+- 2026-06-30 05:46 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/83008.shtml)
+- 2026-06-30 05:37 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/3927735.shtml)
+- 2026-06-30 05:19 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/654866700461.shtml)
+- 2026-06-30 05:27 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/8814163429.shtml)
+- 2026-06-30 05:45 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/61678.shtml)
+- 2026-06-30 05:32 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/4890195.shtml)

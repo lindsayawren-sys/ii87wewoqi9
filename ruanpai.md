@@ -1,60 +1,59 @@
-# 美国白宫警告联邦雇员严禁利用非公开信息牟利
+# 第48届世界技能大赛精细木工项目广州邀请赛闭幕
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-美国白宫上月已警告工作人员，不得利用非公开信息进行金融市场交易。此前，一系列精准踩点的原油交易及与伊朗战争相关的预测市场押注，已引发外界对内幕交易的担忧。 一名白宫官员证实，白宫已向员工发送相关邮件。该官员同时强调，联邦法规禁止政府雇员利用非公开信息谋取私利，也禁止在政府设备上进行赌博活动。 白宫发言人戴维斯・英格尔在声明中表示：“特朗普总统态度非常明确：他致力于让股市保持强劲
+中新网广州4月28日电 (记者 程景伟)第48届世界技能大赛精细木工项目广州邀请赛闭幕式28日在广州市轻工技师学院北校区举行。 此次邀请赛4月25日至27日在该学院举行，来自中国、匈牙利、爱尔兰等国家和地区的专家、教练及选手共12人(其中境外人员10人)参与了赛事及相关交流活动。 精细木工项目是指通过手工和机器，使用各种形式的木接头连接两个或以上的木块，形成结构用于门、窗、楼梯
 
 ## 正文
 
-美国白宫上月已警告工作人员，不得利用非公开信息进行金融市场交易。
+中新网广州4月28日电 (记者 程景伟)第48届世界技能大赛精细木工项目广州邀请赛闭幕式28日在广州市轻工技师学院北校区举行。
 
-此前，一系列精准踩点的原油交易及与伊朗战争相关的预测市场押注，已引发外界对内幕交易的担忧。
+此次邀请赛4月25日至27日在该学院举行，来自中国、匈牙利、爱尔兰等国家和地区的专家、教练及选手共12人(其中境外人员10人)参与了赛事及相关交流活动。
 
-一名白宫官员证实，白宫已向员工发送相关邮件。
+精细木工项目是指通过手工和机器，使用各种形式的木接头连接两个或以上的木块，形成结构用于门、窗、楼梯和其他建筑物体构建的竞赛项目。
 
-该官员同时强调，联邦法规禁止政府雇员利用非公开信息谋取私利，也禁止在政府设备上进行赌博活动。
+比赛对选手的技能要求，涵盖燕尾榫接头、榫卯接头、花键连接等多种技术。
 
-白宫发言人戴维斯・英格尔在声明中表示：“特朗普总统态度非常明确：他致力于让股市保持强劲并为所有人创造收益，但国会议员及其他政府官员应被禁止利用非公开信息谋取经济利益。
+此次邀请赛严格参照世界技能大赛技术要求和规则标准，比赛总时长15小时。
 
-唯一能指引特朗普总统的特殊利益，就是美国人民的最高利益。
+选手需依次完成工作组织与管理、图版测量、榫接制作、内部榫接、表面处理、安装等8个竞赛模块。
 
-” 他补充道：“所有联邦雇员均须遵守政府道德准则，严禁利用非公开信息牟利。
+赛场上，选手们以木为媒、以技会友，每一处榫卯、每一道线条都体现了对“精细”二字的极致追求。
 
-然而，在没有证据的情况下暗示政府官员从事此类行为，是毫无根据且不负责任的报道。
+来自中国香港的参赛选手代表黄梓豪表示，这次比赛不仅是技艺的比拼，更是一次从“木”到“艺”的深刻锤炼。
 
 ## 相关推荐
 
-- 2026-06-30 05:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-30 05:20 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-30 05:12 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-30 05:31 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-30 05:32 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-30 05:20 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-30 05:33 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-30 05:21 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-30 05:36 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-30 05:32 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-30 05:30 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-30 05:26 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-30 05:24 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-30 05:25 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-30 05:34 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-30 05:42 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 05:18 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-30 05:32 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 05:26 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-30 05:46 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-30 05:36 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-30 05:31 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-30 05:30 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-30 05:38 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-30 05:41 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-30 05:31 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-30 05:46 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:20 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/42017889.shtml)
-- 2026-06-30 05:33 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/39127472.shtml)
-- 2026-06-30 05:39 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/8677413.shtml)
-- 2026-06-30 05:35 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/3074810.shtml)
-- 2026-06-30 05:20 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/90031.shtml)
-- 2026-06-30 05:41 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/4384964154.shtml)
-- 2026-06-30 05:16 - [《共患难》](https://www.blog.kurohicncr.top/Article/details/52830.shtml)
-- 2026-06-30 05:27 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/8397715276.shtml)
-- 2026-06-30 05:30 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/8746149.shtml)
-- 2026-06-30 05:29 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/9011063.shtml)
-- 2026-06-30 05:37 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/387214346.shtml)
-- 2026-06-30 05:35 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/80295.shtml)
-- 2026-06-30 05:35 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/761555190026.shtml)
-- 2026-06-30 05:21 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/80412039.shtml)
-- 2026-06-30 05:36 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/81151742862.shtml)
+- 2026-06-30 05:33 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/91780653.shtml)
+- 2026-06-30 05:24 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/81516246.shtml)
+- 2026-06-30 05:21 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/3646701049.shtml)
+- 2026-06-30 05:28 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/586663654.shtml)
+- 2026-06-30 05:41 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/659620036170.shtml)
+- 2026-06-30 05:27 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/52567845.shtml)
+- 2026-06-30 05:28 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/529013.shtml)
+- 2026-06-30 05:30 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/02809687134.shtml)
+- 2026-06-30 05:45 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/976313.shtml)
+- 2026-06-30 05:39 - [第一炉香](http://www.blog.minike.top/Article/details/083262.shtml)
+- 2026-06-30 05:36 - [沉睡花园](http://www.blog.minike.top/Article/details/59140062.shtml)
+- 2026-06-30 05:38 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/159150842.shtml)
+- 2026-06-30 05:21 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/3818249.shtml)
+- 2026-06-30 05:24 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/10528.shtml)
+- 2026-06-30 05:39 - [老外对中国cosplay竟这样评价…](http://www.blog.minike.top/Article/details/48494748866.shtml)

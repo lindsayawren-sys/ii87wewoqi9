@@ -1,43 +1,60 @@
-# 我国将对现有载人登月和无人探月领域资源力量进行深度统合
+# 2026年中国网络文明大会聚焦“文明网络空间 昂扬奋进力量”
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-新华社快讯：为充分发挥新型举国体制优势，利用载人航天工程、嫦娥工程几十年积累的技术能力和实践经验，提升中国月球探测综合效益，我国将对现有载人登月和无人探月领域资源力量进行深度统合。
+新华社北京4月29日电(记者 王思北)记者从国务院新闻办公室29日举行的新闻发布会上获悉，2026年中国网络文明大会将于5月19日至20日在广西壮族自治区南宁市举办。本届大会主题为“文明网络空间 昂扬奋进力量”，将举办开幕式及主论坛、14场分论坛，以及“铸魂领航 清朗八桂”主题活动。本届大会由中央网信办、中央精神文明建设办公室、中共广西壮族自治区委员会、广西壮族自治区人民政府共
 
 ## 正文
 
-新华社快讯：为充分发挥新型举国体制优势，利用载人航天工程、嫦娥工程几十年积累的技术能力和实践经验，提升中国月球探测综合效益，我国将对现有载人登月和无人探月领域资源力量进行深度统合。
+新华社北京4月29日电(记者 王思北)记者从国务院新闻办公室29日举行的新闻发布会上获悉，2026年中国网络文明大会将于5月19日至20日在广西壮族自治区南宁市举办。
+
+本届大会主题为“文明网络空间 昂扬奋进力量”，将举办开幕式及主论坛、14场分论坛，以及“铸魂领航 清朗八桂”主题活动。
+
+本届大会由中央网信办、中央精神文明建设办公室、中共广西壮族自治区委员会、广西壮族自治区人民政府共同主办。
+
+大会期间将发布2026年全国网络文明建设优秀案例，启动2026年全民数字素养与技能提升月活动，并发布一系列网络文明建设的成果。
+
+人工智能等新技术快速发展，给网络文明建设带来了新的机遇和挑战。
+
+对此，中央网信办副主任、国家网信办副主任牛一兵在会上表示，需要在推动发展的同时，加强规范引导和有效应对。
+
+“今年以来，中央网信办聚焦人工智能的新技术新应用，持续加强制度供给。
+
+”牛一兵说，本届大会专门设置人工智能赋能网络文明建设分论坛，聚焦人工智能技术演进、创新发展和安全治理，深入开展交流研讨，推动人工智能创新成果更好转化为网络文明建设的实际成效。
 
 ## 相关推荐
 
-- 2026-06-30 05:18 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-30 05:19 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-30 05:12 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-30 05:39 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-30 05:23 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-30 05:37 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-30 05:13 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-30 05:39 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-30 05:40 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 05:14 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-30 05:28 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 05:21 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-30 05:33 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-30 05:38 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-30 05:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-30 05:31 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-30 05:30 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-30 05:33 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-30 05:44 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-30 05:27 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-30 05:31 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-30 05:24 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-30 05:21 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-30 05:25 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-30 05:47 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:22 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/5006183302.shtml)
-- 2026-06-30 05:33 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/47908.shtml)
-- 2026-06-30 05:13 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/658532.shtml)
-- 2026-06-30 05:27 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/1167615543.shtml)
-- 2026-06-30 05:18 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/295542377477.shtml)
-- 2026-06-30 05:40 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/64826.shtml)
-- 2026-06-30 05:39 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/209992126244.shtml)
-- 2026-06-30 05:13 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/438025754253.shtml)
-- 2026-06-30 05:21 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/47881.shtml)
-- 2026-06-30 05:35 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/9018324102.shtml)
-- 2026-06-30 05:33 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/420753.shtml)
-- 2026-06-30 05:39 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/58874444885.shtml)
-- 2026-06-30 05:18 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/343829193.shtml)
-- 2026-06-30 05:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/479926.shtml)
-- 2026-06-30 05:20 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/60955.shtml)
+- 2026-06-30 05:19 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/8930785.shtml)
+- 2026-06-30 05:24 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/132921.shtml)
+- 2026-06-30 05:47 - [时光音乐会](https://www.blog.minike.top/Article/details/150500131.shtml)
+- 2026-06-30 05:43 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/5450303561.shtml)
+- 2026-06-30 05:38 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/0383345.shtml)
+- 2026-06-30 05:18 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/280464224878.shtml)
+- 2026-06-30 05:41 - [周生如故](https://www.share.minike.top/Article/details/643434196219.shtml)
+- 2026-06-30 05:35 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/622232.shtml)
+- 2026-06-30 05:39 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/430169.shtml)
+- 2026-06-30 05:42 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/502538.shtml)
+- 2026-06-30 05:44 - [为什么会有「念旧」的心理？](http://www.share.minike.top/Article/details/53655.shtml)
+- 2026-06-30 05:35 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/4457378606.shtml)
+- 2026-06-30 05:46 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/51281513200.shtml)
+- 2026-06-30 05:22 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/777159283475.shtml)
+- 2026-06-30 05:20 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/500012.shtml)

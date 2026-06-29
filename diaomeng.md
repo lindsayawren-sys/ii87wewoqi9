@@ -1,58 +1,47 @@
-# 2026菏泽牡丹国际传播论坛举行 中外专家共议牡丹文化全球传播
+# 3333架！福州无人机集群编队演绎点亮夜空
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新网菏泽4月11日电 (记者 祁建月 孙婷婷)2026菏泽牡丹国际传播论坛11日在“中国牡丹之都”山东菏泽举行。来自俄罗斯、意大利等国的专家学者齐聚一堂，共议牡丹的国际传播之道。 “中国牡丹装饰着俄罗斯的千家万户。我的花园里就种着28个品种的牡丹，每年春天，都会给我带来惊喜。”受邀参加论坛的俄罗斯奥廖尔国立第一中学校长塔季扬娜·巴库罗娃在分享中流露出对牡丹的深厚感情。她介绍，
+发布时间：2026年04月29日 08:22 来源：中国新闻网 第九届数字中国建设峰会登场，4月28日晚，在福州旗山湖畔，3333架无人机以夜空为幕、光影为笔、用一场集群光影秀点亮福州夜空。 记者看到，光影秀聚焦数字中国、低空经济、人工智能等关键词，融入闽都文化、“福”文化及数智成果画面，传递福州的深厚底蕴与浓郁的人文温情，展示了数智技术与城市文化有机融合的成果。(记者 吴晟炜
 
 ## 正文
 
-中新网菏泽4月11日电 (记者 祁建月 孙婷婷)2026菏泽牡丹国际传播论坛11日在“中国牡丹之都”山东菏泽举行。
+发布时间：2026年04月29日 08:22 来源：中国新闻网 第九届数字中国建设峰会登场，4月28日晚，在福州旗山湖畔，3333架无人机以夜空为幕、光影为笔、用一场集群光影秀点亮福州夜空。
 
-来自俄罗斯、意大利等国的专家学者齐聚一堂，共议牡丹的国际传播之道。
+记者看到，光影秀聚焦数字中国、低空经济、人工智能等关键词，融入闽都文化、“福”文化及数智成果画面，传递福州的深厚底蕴与浓郁的人文温情，展示了数智技术与城市文化有机融合的成果。
 
-“中国牡丹装饰着俄罗斯的千家万户。
-
-我的花园里就种着28个品种的牡丹，每年春天，都会给我带来惊喜。
-
-”受邀参加论坛的俄罗斯奥廖尔国立第一中学校长塔季扬娜·巴库罗娃在分享中流露出对牡丹的深厚感情。
-
-她介绍，在俄罗斯文化中，牡丹象征着财富、繁荣与华贵，是深受人们喜爱的花卉之一。
-
-“牡丹与初夏的到来、大自然的蓬勃和土地的慷慨紧密相连。
-
-”巴库罗娃说，正是以牡丹花为媒，其所在的学校与菏泽开启了文化与教育领域的合作，共同举办交流活动，为校园生活增添了色彩。
+(记者 吴晟炜） 责任编辑：【黄钰涵】
 
 ## 相关推荐
 
-- 2026-06-30 05:27 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-30 05:31 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 05:36 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-30 05:34 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-30 05:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 05:41 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-30 05:24 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 05:20 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-30 05:15 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-30 05:28 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-30 05:40 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-30 05:35 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-30 05:31 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-30 05:20 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-30 05:46 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-30 05:46 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-30 05:37 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 05:46 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-30 05:22 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-30 05:18 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-30 05:20 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-30 05:29 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-30 05:46 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:28 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/36834.shtml)
-- 2026-06-30 05:38 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/94352.shtml)
-- 2026-06-30 05:36 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/96627374.shtml)
-- 2026-06-30 05:13 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/45563927031.shtml)
-- 2026-06-30 05:20 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/28847.shtml)
-- 2026-06-30 05:39 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/593391.shtml)
-- 2026-06-30 05:26 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/871223250.shtml)
-- 2026-06-30 05:31 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.minike.top/Article/details/9249962045.shtml)
-- 2026-06-30 05:40 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/690329009720.shtml)
-- 2026-06-30 05:38 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/51203958.shtml)
-- 2026-06-30 05:38 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/82742681.shtml)
-- 2026-06-30 05:41 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/2554944838.shtml)
-- 2026-06-30 05:40 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/613321901013.shtml)
-- 2026-06-30 05:14 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/581332837224.shtml)
-- 2026-06-30 05:35 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/5464985060.shtml)
+- 2026-06-30 05:44 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/51523114660.shtml)
+- 2026-06-30 05:45 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/57017103.shtml)
+- 2026-06-30 05:37 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/9823997013.shtml)
+- 2026-06-30 05:21 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/809322.shtml)
+- 2026-06-30 05:45 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/3797684602.shtml)
+- 2026-06-30 05:39 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/584270.shtml)
+- 2026-06-30 05:40 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/37029.shtml)
+- 2026-06-30 05:18 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/58286476385.shtml)
+- 2026-06-30 05:46 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.kurohicncr.top/Article/details/15891987.shtml)
+- 2026-06-30 05:34 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/49246562331.shtml)
+- 2026-06-30 05:27 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/99476110.shtml)
+- 2026-06-30 05:29 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/707237423.shtml)
+- 2026-06-30 05:21 - [为什么会有「念旧」的心理？](http://www.share.minike.top/Article/details/72340105.shtml)
+- 2026-06-30 05:21 - [普京间接喊话特朗普有何考量](http://www.share.minike.top/Article/details/71572.shtml)
+- 2026-06-30 05:24 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/781980.shtml)

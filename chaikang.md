@@ -1,56 +1,48 @@
-# 植入“科技芯” 雄安毛绒玩具产业迈向智能化与IP化
+# 中石油(00857)2026年第一季度归母净利润同比增长1.9%
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新社雄安4月10日电 题：植入“科技芯” 雄安毛绒玩具产业迈向智能化与IP化 作者 赵丹媚 李玉素 韩冰 毛绒玩具开口说话，原本童话里的情节，如今在位于河北雄安新区容城县的中国(雄安新区)玩具总部基地正变得稀松平常。得益于“科技芯”，这片占据全国八成市场的“毛绒江湖”，有了新的“灵魂”。 数据显示，容城县毛绒玩具带动周边超13万人就业，年销售产值近120亿元(人民币，下同)。
+金吾财讯|中石油(00857)发布一季度财报，按照国际财务报告会计准则，二零二六年第一季度归属母公司股东的净利润483.33亿元(人民币，下同)同比增长1.9%，主要由于天然气销量增加、成品油及化工产品销量及毛利增加；每股基本收益0.264元。期内，公司实现营业收入7363.83亿元，同比减少2.2%。2026年第一季度，本集团原油平均实现价格64.08美元/桶，比上年同期的7
 
 ## 正文
 
-中新社雄安4月10日电 题：植入“科技芯” 雄安毛绒玩具产业迈向智能化与IP化 作者 赵丹媚 李玉素 韩冰 毛绒玩具开口说话，原本童话里的情节，如今在位于河北雄安新区容城县的中国(雄安新区)玩具总部基地正变得稀松平常。
+金吾财讯|中石油(00857)发布一季度财报，按照国际财务报告会计准则，二零二六年第一季度归属母公司股东的净利润483.33亿元(人民币，下同)同比增长1.9%，主要由于天然气销量增加、成品油及化工产品销量及毛利增加；每股基本收益0.264元。
 
-得益于“科技芯”，这片占据全国八成市场的“毛绒江湖”，有了新的“灵魂”。
+期内，公司实现营业收入7363.83亿元，同比减少2.2%。
 
-数据显示，容城县毛绒玩具带动周边超13万人就业，年销售产值近120亿元(人民币，下同)。
-
-河北海发玩具有限公司商务部负责人薛荧是“90后”，在她的记忆里，当地毛绒玩具产业从家庭作坊起步，最早以代加工、贴牌为主。
-
-雄安新区设立后，为这一传统产业带来新机遇。
-
-薛荧说，更多年轻人回流创业，短视频、直播等新玩法被广泛运用，跨境电商也助力产品走向海外。
-
-2022年，雄安新区印发《传统产业转移升级工作的实施方案》，支持传统产业数字化、智能化、绿色化发展，加快推动传统产业改造提升和转移升级。
-
-薛荧所在企业率先将目光瞄准AI。
+2026年第一季度，本集团原油平均实现价格64.08美元/桶，比上年同期的70.00美元/桶下降8.5%；国内天然气平均销售价格8.96美元/千立方英尺，比上年同期的9.03美元/千立方英尺下降0.8%。
 
 ## 相关推荐
 
-- 2026-06-30 05:22 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-30 05:26 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-30 05:13 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-30 05:17 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-30 05:36 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-30 05:14 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-30 05:21 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-30 05:30 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-30 05:20 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 05:12 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 05:19 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 05:19 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-30 05:37 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 05:29 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-30 05:44 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 05:30 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 05:20 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-30 05:42 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-30 05:42 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-30 05:18 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-30 05:40 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-30 05:24 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:16 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/3715931.shtml)
-- 2026-06-30 05:26 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/98817867206.shtml)
-- 2026-06-30 05:36 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/73988073977.shtml)
-- 2026-06-30 05:26 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/3352017642.shtml)
-- 2026-06-30 05:14 - [送你一朵小红花](https://www.blog.minike.top/Article/details/428959958.shtml)
-- 2026-06-30 05:19 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/979759111.shtml)
-- 2026-06-30 05:32 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/5831279.shtml)
-- 2026-06-30 05:19 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/67830089.shtml)
-- 2026-06-30 05:39 - [安切洛蒂 换人](https://www.share.minike.top/Article/details/600954.shtml)
-- 2026-06-30 05:18 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/5925202.shtml)
-- 2026-06-30 05:19 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/07874990.shtml)
-- 2026-06-30 05:21 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/915945988030.shtml)
-- 2026-06-30 05:19 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/83445.shtml)
-- 2026-06-30 05:26 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/65345490.shtml)
-- 2026-06-30 05:25 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/958296882.shtml)
+- 2026-06-30 05:41 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/28091764092.shtml)
+- 2026-06-30 05:21 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/200400.shtml)
+- 2026-06-30 05:43 - [巴西2-1绝杀日本](https://www.blog.kurohicncr.top/Article/details/86696514.shtml)
+- 2026-06-30 05:25 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/89933454166.shtml)
+- 2026-06-30 05:32 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/695436.shtml)
+- 2026-06-30 05:36 - [流金岁月](http://www.blog.minike.top/Article/details/293698.shtml)
+- 2026-06-30 05:33 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/507205.shtml)
+- 2026-06-30 05:41 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/671457012154.shtml)
+- 2026-06-30 05:26 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/00535287.shtml)
+- 2026-06-30 05:21 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/815133109.shtml)
+- 2026-06-30 05:33 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/824812.shtml)
+- 2026-06-30 05:18 - [亚洲球队全部告别世界杯](http://www.blog.kurohicncr.top/Article/details/772501.shtml)
+- 2026-06-30 05:26 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/30340.shtml)
+- 2026-06-30 05:20 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/2073153.shtml)
+- 2026-06-30 05:41 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/2164657021.shtml)

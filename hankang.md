@@ -1,58 +1,55 @@
-# 苹果正为即将推出的智能眼镜测试四种设计方案
+# 中国人寿绩后涨超5% 第一季度新业务价值同比增长75.5%
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-据科技新闻记者马克·古尔曼消息，苹果计划在2027年发售首款智能眼镜，有可能在今年年底正式亮相。 古尔曼一直持续跟进该公司智能眼镜项目的战略进展，而如今他披露了更多有关产品外观的细节——他表示苹果正在测试四种设计款式，最终上市时可能会推出其中部分款式，也可能全部推出。 据透露，这些设计包括：大号矩形镜框、纤薄矩形镜框（与CEO蒂姆·库克佩戴的眼镜款式相近）、偏大的椭圆形或圆形镜
+中国人寿（02628）绩后涨超5%，截至发稿，股价上涨5.18%，现报28.82港元，成交额6.27亿港元。 中国人寿发布一季度业绩，营业收入为932.91亿元，同比减少15.3%；归属于母公司股东的净利润为195.05亿元，同比减少32.3%。 中金指出，公司一季度业绩好于预期，主要由于投资端表现好于预期；新业务价值（NBV）同比增长75.5%，大幅好于该行和市场预期；归母净
 
 ## 正文
 
-据科技新闻记者马克·古尔曼消息，苹果计划在2027年发售首款智能眼镜，有可能在今年年底正式亮相。
+中国人寿（02628）绩后涨超5%，截至发稿，股价上涨5.18%，现报28.82港元，成交额6.27亿港元。
 
-古尔曼一直持续跟进该公司智能眼镜项目的战略进展，而如今他披露了更多有关产品外观的细节——他表示苹果正在测试四种设计款式，最终上市时可能会推出其中部分款式，也可能全部推出。
+中国人寿发布一季度业绩，营业收入为932.91亿元，同比减少15.3%；归属于母公司股东的净利润为195.05亿元，同比减少32.3%。
 
-据透露，这些设计包括：大号矩形镜框、纤薄矩形镜框（与CEO蒂姆·库克佩戴的眼镜款式相近）、偏大的椭圆形或圆形镜框，以及偏小的椭圆形或圆形镜框。
+中金指出，公司一季度业绩好于预期，主要由于投资端表现好于预期；新业务价值（NBV）同比增长75.5%，大幅好于该行和市场预期；归母净资产较年初+0.5%。
 
-苹果同时也在考虑多种配色，包含黑色、海蓝色与浅棕色。
+该行指出，投资端承压拖累净利润，实际表现好于预期。
 
-在某些方面，这款眼镜相比苹果此前的宏大计划有所收敛——苹果曾计划推出多款混合现实与增强现实设备，而这一规划已因产品多次延期、以及Vision Pro市场反响平淡而遭遇挫折。
+受一季度资本市场波动及去年同期基数较高影响，第一季度国寿总投资收益率同比下降0.5ppt至2.21%，导致净利润同比承压，但公司实际投资表现好于我们和市场预期，支撑净利润水平好于预期。
 
-与此同时，这款眼镜听起来与Meta旗下的雷朋智能眼镜更为接近。
-
-它不会配备显示屏，但支持用户拍摄照片和视频（苹果或将采用椭圆形摄像头镜片）、接听电话、播放音乐，并与备受期待的升级版Siri进行交互。
-
-责任编辑：李桐
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:14 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-30 05:22 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-30 05:13 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-30 05:17 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-30 05:12 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 05:12 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-30 05:25 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-30 05:26 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-30 05:33 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-30 05:15 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-30 05:16 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 05:32 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-30 05:43 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-30 05:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 05:26 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 05:34 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-30 05:19 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-30 05:39 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-30 05:42 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-30 05:22 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-30 05:35 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-30 05:35 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-30 05:24 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-30 05:43 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-30 05:29 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:15 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/871467961.shtml)
-- 2026-06-30 05:14 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/47318032234.shtml)
-- 2026-06-30 05:20 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/334741.shtml)
-- 2026-06-30 05:30 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/7693637546.shtml)
-- 2026-06-30 05:17 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/98326541007.shtml)
-- 2026-06-30 05:26 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/49388195.shtml)
-- 2026-06-30 05:28 - [月亮](http://www.share.minike.top/Article/details/7179930794.shtml)
-- 2026-06-30 05:18 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/73044291537.shtml)
-- 2026-06-30 05:40 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/563387528.shtml)
-- 2026-06-30 05:38 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/394685.shtml)
-- 2026-06-30 05:15 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/8903842169.shtml)
-- 2026-06-30 05:16 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/287181151938.shtml)
-- 2026-06-30 05:39 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/918954833.shtml)
-- 2026-06-30 05:25 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/42616045.shtml)
-- 2026-06-30 05:28 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/95304.shtml)
+- 2026-06-30 05:43 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/82866858091.shtml)
+- 2026-06-30 05:27 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/283590618.shtml)
+- 2026-06-30 05:38 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/12012.shtml)
+- 2026-06-30 05:34 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.minike.top/Article/details/87596.shtml)
+- 2026-06-30 05:33 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/75459907256.shtml)
+- 2026-06-30 05:19 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/539820579694.shtml)
+- 2026-06-30 05:33 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/78285.shtml)
+- 2026-06-30 05:26 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/104352408.shtml)
+- 2026-06-30 05:22 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/50091052344.shtml)
+- 2026-06-30 05:27 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/443319.shtml)
+- 2026-06-30 05:25 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/5863380.shtml)
+- 2026-06-30 05:25 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/4455363748.shtml)
+- 2026-06-30 05:43 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/209119051270.shtml)
+- 2026-06-30 05:41 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/897363.shtml)
+- 2026-06-30 05:34 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/7604035.shtml)

@@ -1,58 +1,51 @@
-# 从铁火传承到智造跃升 外籍主持人探访“中国刀剪之乡”
+# 市场监管总局：对明星带货虚假宣传依法追究责任
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新网宁德4月11日电 (记者 吕巧琴 叶茂)从手艺人的传统剪刀制造技艺工坊到数字化生产线，一把剪刀如何完成从“铁火相传”到“智造跃升”的蜕变？ 中新社海外中心和中阿卫视联合打造的2026年《文化中国》系列开篇之作《文化中国·宁德》在福建省宁德市柘荣县启动。11日，中阿卫视主持人阿思玛(Asmaa)实地探访“中国刀剪之乡”柘荣县，感受当地刀剪产业新活力。 走进位于柘荣县城区的传
+发布时间：2026年04月29日 18:12 来源：中国新闻网 4月29日，记者在市场监管总局食品安全专题新闻发布会上获悉，市场监管总局近日正式印发《关于开展网络食品销售虚假宣传专项整治行动的通知》，从现在起在全国范围内开展为期半年的专项整治行动。市场监管总局食品安全总监孙会川表示，此次专项整治将彰显最严监管，坚决处罚到人：对违法行为负有直接责任的企业法定代表人、主要负责人、直
 
 ## 正文
 
-中新网宁德4月11日电 (记者 吕巧琴 叶茂)从手艺人的传统剪刀制造技艺工坊到数字化生产线，一把剪刀如何完成从“铁火相传”到“智造跃升”的蜕变？
+发布时间：2026年04月29日 18:12 来源：中国新闻网 4月29日，记者在市场监管总局食品安全专题新闻发布会上获悉，市场监管总局近日正式印发《关于开展网络食品销售虚假宣传专项整治行动的通知》，从现在起在全国范围内开展为期半年的专项整治行动。
 
-中新社海外中心和中阿卫视联合打造的2026年《文化中国》系列开篇之作《文化中国·宁德》在福建省宁德市柘荣县启动。
+市场监管总局食品安全总监孙会川表示，此次专项整治将彰显最严监管，坚决处罚到人：对违法行为负有直接责任的企业法定代表人、主要负责人、直接责任人，依法实施个人罚款和从业禁止；对明星带货、网络主播、运营团队等实施虚假宣传的，坚持一案多查，依法追究法律责任。
 
-11日，中阿卫视主持人阿思玛(Asmaa)实地探访“中国刀剪之乡”柘荣县，感受当地刀剪产业新活力。
-
-走进位于柘荣县城区的传统剪刀制造技艺工坊，下钢、淬火、水磨……柘荣剪刀制造技艺省级非遗代表性传承人林龙醒正按照传统制造技艺锻造剪刀。
-
-“优质碳钢是做好刀剪的基础，这样打造出来的刀剪才能硬度足、韧性好。
-
-”林龙醒介绍道，从下钢到成品，一把剪刀要经过20多道工序，每一步都不能省略，差一点火候，剪刀的韧性就不够，“最考验手艺的是淬火和水磨，差一秒都不行。
-
-” “真的太惊艳了。
-
-”阿思玛执铁锤体验捶打后感叹，这是她第一次看到剪刀的传统制造技艺。
+责任编辑：【岳川】
 
 ## 相关推荐
 
-- 2026-06-30 05:21 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-30 05:32 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-30 05:38 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-30 05:27 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-30 05:20 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-30 05:30 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-30 05:14 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-30 05:28 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-30 05:16 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-30 05:41 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-30 05:37 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-30 05:20 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 05:28 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-30 05:41 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-30 05:23 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 05:28 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-30 05:38 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-30 05:34 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-30 05:21 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-30 05:45 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-30 05:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-30 05:41 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-30 05:25 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-30 05:26 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-30 05:22 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 05:46 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-30 05:47 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:38 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/34642171024.shtml)
-- 2026-06-30 05:37 - [日本淘汰](http://www.blog.minike.top/Article/details/6378092413.shtml)
-- 2026-06-30 05:19 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/9978498326.shtml)
-- 2026-06-30 05:26 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/38516136.shtml)
-- 2026-06-30 05:40 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/9376617312.shtml)
-- 2026-06-30 05:26 - [日本16强魔咒](http://www.blog.minike.top/Article/details/109986417.shtml)
-- 2026-06-30 05:27 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.minike.top/Article/details/65926.shtml)
-- 2026-06-30 05:24 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/940380771104.shtml)
-- 2026-06-30 05:33 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/1166374.shtml)
-- 2026-06-30 05:14 - [小娘惹](https://www.blog.minike.top/Article/details/8940789918.shtml)
-- 2026-06-30 05:25 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/70852900473.shtml)
-- 2026-06-30 05:17 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/844194781.shtml)
-- 2026-06-30 05:22 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/9366099.shtml)
-- 2026-06-30 05:28 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/746013040.shtml)
-- 2026-06-30 05:17 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/104022224328.shtml)
+- 2026-06-30 05:38 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/48915366559.shtml)
+- 2026-06-30 05:27 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/5335908597.shtml)
+- 2026-06-30 05:32 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/346915518594.shtml)
+- 2026-06-30 05:41 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/3893409575.shtml)
+- 2026-06-30 05:43 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/9797674.shtml)
+- 2026-06-30 05:47 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/5662314.shtml)
+- 2026-06-30 05:37 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/775033327644.shtml)
+- 2026-06-30 05:41 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/81007987.shtml)
+- 2026-06-30 05:46 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/53261560.shtml)
+- 2026-06-30 05:26 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/2107500152.shtml)
+- 2026-06-30 05:46 - [日本进球](https://www.share.kurohicncr.top/Article/details/750820.shtml)
+- 2026-06-30 05:47 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/7607876848.shtml)
+- 2026-06-30 05:19 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/19576241.shtml)
+- 2026-06-30 05:43 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/038493.shtml)
+- 2026-06-30 05:32 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/7685859614.shtml)

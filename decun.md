@@ -1,60 +1,61 @@
-# 清华大学教授李克强：智能汽车领域盈利模式并不理想，主要因为安全性不足
+# 卖方研究人事震荡！“债市一姐”刘郁告别华西证券，将加盟兴业证券牵头固收研究
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。 清华大学车辆与运载学院教授、智能绿色车辆与交通全国重点实验室主任、国家智能网联汽车创新中心首席科学家李克强表示，当前中国汽车智能化产业已经发展到了一个关键的节点、一个临界点。他认为，在这个发
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者|李娜 编辑|赵云 《每日经济新闻》记者从业内获悉，原华西证券首席经济学家兼研究所副所长刘郁已正式离职，兴业证券拟聘任其为经济与金融研究院副院长，分管固定收益研究中心。 截至4月29日晚间，中国证券业协会官网的证券从业系统中，已查询不到刘郁的执业信息。 公开资料显示，刘郁为复旦大学经济学博士，2016年
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-清华大学车辆与运载学院教授、智能绿色车辆与交通全国重点实验室主任、国家智能网联汽车创新中心首席科学家李克强表示，当前中国汽车智能化产业已经发展到了一个关键的节点、一个临界点。
+记者|李娜 编辑|赵云 《每日经济新闻》记者从业内获悉，原华西证券首席经济学家兼研究所副所长刘郁已正式离职，兴业证券拟聘任其为经济与金融研究院副院长，分管固定收益研究中心。
 
-他认为，在这个发展过程中，要真正实现高质量、可持续发展，应当尽快解决所面临的一系列挑战性问题。
+截至4月29日晚间，中国证券业协会官网的证券从业系统中，已查询不到刘郁的执业信息。
 
-首先，李克强表示，目前为止，尽管行业投入巨大，但在汽车智能化领域，商业闭环及盈利模式并不理想，这一点从各家公司的报表中就能看出。
+公开资料显示，刘郁为复旦大学经济学博士，2016年博士毕业后入职国泰君安研究所主攻宏观经济，2017年加盟招商证券研究所将重心转向固收研究，2018年6月加入国盛证券研究所组建固收团队，后转战广发证券担任固收首席，2024年3月加盟华西证券出任首席经济学家兼研究所副所长。
 
-从原因上分析，首先是安全可靠性不足。
+从业以来，她凭借在固收领域的深耕获得了多项重量级奖项。
 
-“大家试想一下，自动驾驶的首要属性是保证交通的安全，如果安全可靠性无法保障，用户自然不会买单，也就难以形成盈利闭环。
+刘郁以“城投走遍中国”系列研报在固收投资圈极具辨识度，于业内享有债市一姐的美誉。
 
-”他说。
+今年以来，刘郁先后通过公开渠道表达了较为清晰的观点。
 
-另外，他认为目前在产品定义上存在诸多问题，尚未形成自主闭环，也没有建立起统一的技术规范，这就导致开发成本居高不下；同时，系统的兼容性、架构设计不合理，进一步推高了开发成本。
+1月出席2026年中国首席经济学家论坛年会时她表示，从过去一年及年初股市表现来看，“慢牛”格局正在逐步形成，向下低点的保障机制更为关键，若上证指数低点能从3800点、3900点逐步抬升至4000点，将显著增强股市吸引力。
 
 ## 相关推荐
 
-- 2026-06-30 05:25 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-30 05:16 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-30 05:25 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-30 05:16 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-30 05:33 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-30 05:19 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-30 05:32 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-30 05:18 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-30 05:18 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-30 05:17 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-30 05:38 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 05:34 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 05:15 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-30 05:29 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-30 05:25 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-30 05:45 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-30 05:19 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-30 05:35 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-30 05:32 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-30 05:44 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-30 05:19 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 05:20 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-30 05:26 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-30 05:23 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-30 05:32 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-30 05:40 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-30 05:30 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-30 05:29 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-30 05:24 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:32 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/7649573.shtml)
-- 2026-06-30 05:40 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/78102.shtml)
-- 2026-06-30 05:36 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/04411923.shtml)
-- 2026-06-30 05:42 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/203734760677.shtml)
-- 2026-06-30 05:14 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/0699125.shtml)
-- 2026-06-30 05:41 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/833567364005.shtml)
-- 2026-06-30 05:37 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/04857.shtml)
-- 2026-06-30 05:36 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/8739117.shtml)
-- 2026-06-30 05:15 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/001193.shtml)
-- 2026-06-30 05:36 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/91920.shtml)
-- 2026-06-30 05:18 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/47814.shtml)
-- 2026-06-30 05:28 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/25206.shtml)
-- 2026-06-30 05:23 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/95040260.shtml)
-- 2026-06-30 05:17 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/393149505.shtml)
-- 2026-06-30 05:31 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/121933985.shtml)
+- 2026-06-30 05:28 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/913750636.shtml)
+- 2026-06-30 05:42 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/684290714184.shtml)
+- 2026-06-30 05:42 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/6912699121.shtml)
+- 2026-06-30 05:39 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/97654319.shtml)
+- 2026-06-30 05:29 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/5319629299.shtml)
+- 2026-06-30 05:38 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/977148383.shtml)
+- 2026-06-30 05:39 - [急先锋](https://www.share.kurohicncr.top/Article/details/99716365.shtml)
+- 2026-06-30 05:46 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/35371388172.shtml)
+- 2026-06-30 05:25 - [巴西vs日本](https://www.share.minike.top/Article/details/02696401519.shtml)
+- 2026-06-30 05:21 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/36922436165.shtml)
+- 2026-06-30 05:19 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/2100322918.shtml)
+- 2026-06-30 05:21 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/83838.shtml)
+- 2026-06-30 05:23 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/43819608288.shtml)
+- 2026-06-30 05:45 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/72022.shtml)
+- 2026-06-30 05:34 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/218092106746.shtml)

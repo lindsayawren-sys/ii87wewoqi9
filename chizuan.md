@@ -1,52 +1,60 @@
-# 中国景洪至老挝班相果国际客运班线正式运行
+# 收获世界纪录与亚沙会金牌，16岁攀岩小将赵一程攀向新一程
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-【东盟专线】中国景洪至老挝班相果国际客运班线正式运行 中新社昆明4月11日电 (记者 缪超)记者11日从云南省交通运输厅获悉，中国景洪至老挝班相果国际客运班线正式运行发车仪式当天在西双版纳州举行。在中老双方代表的共同见证下，中老跨境国际客运班线再添新通道。 中国景洪至老挝班相果国际客运班线全长约280公里，以西双版纳州景洪市为起点，由西双版纳东盟国际综合交通服务中心始发，经勐满
+中新网三亚4月29日电 题：收获世界纪录与亚沙会金牌，16岁攀岩小将赵一程攀向新一程 作者 周昕 低头看向地面，深呼一口气，16岁的中国小将赵一程站在三亚亚沙会男子速度攀岩决赛的岩壁下，静待比赛开始。 一场大雨过后，三亚空气湿度增加，为28日晚间进行的第六届亚洲沙滩运动会男子速度攀岩决赛增添了一定挑战。 速度攀岩项目男子顶尖选手用时在5秒左右，15米的岩壁上几乎瞬息万变。发令声
 
 ## 正文
 
-【东盟专线】中国景洪至老挝班相果国际客运班线正式运行 中新社昆明4月11日电 (记者 缪超)记者11日从云南省交通运输厅获悉，中国景洪至老挝班相果国际客运班线正式运行发车仪式当天在西双版纳州举行。
+中新网三亚4月29日电 题：收获世界纪录与亚沙会金牌，16岁攀岩小将赵一程攀向新一程 作者 周昕 低头看向地面，深呼一口气，16岁的中国小将赵一程站在三亚亚沙会男子速度攀岩决赛的岩壁下，静待比赛开始。
 
-在中老双方代表的共同见证下，中老跨境国际客运班线再添新通道。
+一场大雨过后，三亚空气湿度增加，为28日晚间进行的第六届亚洲沙滩运动会男子速度攀岩决赛增添了一定挑战。
 
-中国景洪至老挝班相果国际客运班线全长约280公里，以西双版纳州景洪市为起点，由西双版纳东盟国际综合交通服务中心始发，经勐满岔河口岸出境，双方每天对开1个班次，提供“点对点、门到门”的直达服务。
+速度攀岩项目男子顶尖选手用时在5秒左右，15米的岩壁上几乎瞬息万变。
 
-此举是进一步推动中老国际道路运输规则标准“软联通”、提升口岸通关效率、优化跨境运输服务的有益探索和实践。
+发令声响，还没等观众反应过来，印度尼西亚选手希尔米就因起步犯规落败，赵一程不战而胜，摘得金牌。
 
-不仅将极大提升中老两国边境地区的交通便利性，还将进一步吸引更多投资和游客，带动沿线商贸、旅游、物流等产业发展，为中老经贸务实合作注入新动能。
+这已经不是赵一程在当日收获的第一个“惊喜”。
 
-(完)
+在当日早些时候进行的男子速度攀岩预赛中，赵一程以4秒58的成绩打破了由美国选手沃森在2025年攀岩世界杯巴厘岛站中创造的世界纪录4秒64，预赛后的赵一程也说“很惊喜自己的发挥”。
+
+但在打破世界纪录的惊喜过后，赵一程很快恢复平静。
+
+“我反复提醒自己，要压住自己的情绪，屏蔽了一切外界声音，尽量将专注度做到极致。
 
 ## 相关推荐
 
-- 2026-06-30 05:25 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-30 05:19 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-30 05:16 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-30 05:18 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-30 05:18 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-30 05:41 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-30 05:20 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-30 05:13 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-30 05:21 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-30 05:25 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-30 05:45 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-30 05:39 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-30 05:23 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-30 05:40 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-30 05:33 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-30 05:35 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 05:31 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-30 05:46 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-30 05:23 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-30 05:19 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 05:37 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-30 05:31 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-30 05:25 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-30 05:36 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:41 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/179008.shtml)
-- 2026-06-30 05:27 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/958033.shtml)
-- 2026-06-30 05:17 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/289164513.shtml)
-- 2026-06-30 05:16 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/8518001029.shtml)
-- 2026-06-30 05:20 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/962937000.shtml)
-- 2026-06-30 05:25 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/1528040.shtml)
-- 2026-06-30 05:34 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/83440695990.shtml)
-- 2026-06-30 05:23 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/8993452200.shtml)
-- 2026-06-30 05:17 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/72250175.shtml)
-- 2026-06-30 05:41 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.kurohicncr.top/Article/details/35442.shtml)
-- 2026-06-30 05:41 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/281957133.shtml)
-- 2026-06-30 05:29 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/5253691275.shtml)
-- 2026-06-30 05:38 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/826104541.shtml)
-- 2026-06-30 05:31 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/62096.shtml)
-- 2026-06-30 05:30 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/301538.shtml)
+- 2026-06-30 05:47 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/7487518.shtml)
+- 2026-06-30 05:41 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/96340318727.shtml)
+- 2026-06-30 05:42 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/708460.shtml)
+- 2026-06-30 05:41 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.kurohicncr.top/Article/details/07790.shtml)
+- 2026-06-30 05:41 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/770844391803.shtml)
+- 2026-06-30 05:32 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/869767118.shtml)
+- 2026-06-30 05:41 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/67495.shtml)
+- 2026-06-30 05:31 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/52087.shtml)
+- 2026-06-30 05:24 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/76598.shtml)
+- 2026-06-30 05:27 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/49964.shtml)
+- 2026-06-30 05:46 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/32818.shtml)
+- 2026-06-30 05:29 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/104440.shtml)
+- 2026-06-30 05:47 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/5573723805.shtml)
+- 2026-06-30 05:40 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/464024.shtml)
+- 2026-06-30 05:45 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/3472424.shtml)

@@ -1,59 +1,56 @@
-# 黄炎培职业教育思想研究会学术年会在佛山举行
+# 青岛银行：一季度实现归母净利润15.24亿元，同比增长21.16%
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新网佛山4月10日电 (记者 郭军)由中华职业教育社主办的黄炎培职业教育思想研究会2025—2026学术年会9日在佛山开幕。本次年会主题为：“十五五”职业教育高质量发展与教育强国建设。 中华职业教育社第十一届理事会理事长陈昌智出席并作主旨讲话。他表示，黄炎培职业教育思想是我国职业教育的宝贵思想财富。站在“十五五”新起点上，要与时俱进传承弘扬黄炎培职业教育思想，推动职业教育高质
+4月29日金融一线消息，青岛银行发布2026年一季度报。数据显示，截至2026年3月末，公司资产总额8，342.03亿元，比上年末增加192.42亿元，增长2.36%；负债总额7，821.24亿元，比上年末增加174.19亿元，增长2.28%。 2026年第一季度，公司实现归属于母公司股东的净利润15.24亿元，同比增加2.66亿元，增长21.16%；营业收入43.42亿元，同
 
 ## 正文
 
-中新网佛山4月10日电 (记者 郭军)由中华职业教育社主办的黄炎培职业教育思想研究会2025—2026学术年会9日在佛山开幕。
+4月29日金融一线消息，青岛银行发布2026年一季度报。
 
-本次年会主题为：“十五五”职业教育高质量发展与教育强国建设。
+数据显示，截至2026年3月末，公司资产总额8，342.03亿元，比上年末增加192.42亿元，增长2.36%；负债总额7，821.24亿元，比上年末增加174.19亿元，增长2.28%。
 
-中华职业教育社第十一届理事会理事长陈昌智出席并作主旨讲话。
+2026年第一季度，公司实现归属于母公司股东的净利润15.24亿元，同比增加2.66亿元，增长21.16%；营业收入43.42亿元，同比增加2.95亿元，增长7.30%。
 
-他表示，黄炎培职业教育思想是我国职业教育的宝贵思想财富。
+截至2026年3月末，本公司不良贷款率0.96%，比上年末下降0.01个百分点；拨备覆盖率305.61%，比上年末提高13.31个百分点。
 
-站在“十五五”新起点上，要与时俱进传承弘扬黄炎培职业教育思想，推动职业教育高质量发展，助力教育强国建设。
+核心一级资本充足率8.70%，比上年末提高0.03个百分点；资本充足率12.43%，比上年末下降0.94个百分点。
 
-要始终把立德树人作为职业教育的根本任务，把劳模精神、劳动精神、工匠精神融入教育教学各环节，加快现代职业教育体系建设，推动职业教育主动拥抱技术变革，全面提升服务产业升级与技能型社会建设的能力。
-
-广东省人民政府副省长、佛山市委书记唐屹峰在致辞中提到，广东是经济大省、制造业大省，拥有全部31个制造业大类，制造业规模约占全国1/8，形成了10个万亿级战略性产业集群。
-
-庞大的产业基础，不仅对高素质技能技术人才提出了迫切需求，也为职业教育发展提供了广阔舞台。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 05:35 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-30 05:26 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-30 05:22 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-30 05:32 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-30 05:20 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-30 05:24 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-30 05:17 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-30 05:18 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-30 05:24 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 05:12 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-30 05:29 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-30 05:41 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-30 05:24 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-30 05:45 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-30 05:37 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-30 05:20 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-30 05:42 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-30 05:18 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-30 05:39 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-30 05:44 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-30 05:20 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-30 05:27 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-30 05:28 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-30 05:38 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-30 05:20 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-30 05:42 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-30 05:32 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:19 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/892005.shtml)
-- 2026-06-30 05:29 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/20319.shtml)
-- 2026-06-30 05:20 - [周生如故](http://www.blog.minike.top/Article/details/7996791.shtml)
-- 2026-06-30 05:28 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/896358106.shtml)
-- 2026-06-30 05:37 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/766490045846.shtml)
-- 2026-06-30 05:12 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.kurohicncr.top/Article/details/543939942.shtml)
-- 2026-06-30 05:37 - [为什么会有「念旧」的心理？](http://www.share.minike.top/Article/details/911251627.shtml)
-- 2026-06-30 05:19 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/5789929689.shtml)
-- 2026-06-30 05:18 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/46628168408.shtml)
-- 2026-06-30 05:17 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/976726.shtml)
-- 2026-06-30 05:19 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/7163843.shtml)
-- 2026-06-30 05:24 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/63559503.shtml)
-- 2026-06-30 05:20 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/8396586873.shtml)
-- 2026-06-30 05:27 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/314915741.shtml)
-- 2026-06-30 05:26 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/31559140.shtml)
+- 2026-06-30 05:18 - [巴西绝杀日本](http://www.blog.kurohicncr.top/Article/details/2217854.shtml)
+- 2026-06-30 05:41 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/436103015403.shtml)
+- 2026-06-30 05:32 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/14230791637.shtml)
+- 2026-06-30 05:28 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/74908060767.shtml)
+- 2026-06-30 05:19 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/77602.shtml)
+- 2026-06-30 05:37 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/36930419.shtml)
+- 2026-06-30 05:30 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/25015517.shtml)
+- 2026-06-30 05:41 - [我觉得你是在无中生友](http://www.blog.minike.top/Article/details/69301793027.shtml)
+- 2026-06-30 05:47 - [我和我的家乡](https://www.share.minike.top/Article/details/694577542.shtml)
+- 2026-06-30 05:38 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/557299545561.shtml)
+- 2026-06-30 05:46 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/3045686.shtml)
+- 2026-06-30 05:39 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/571080403206.shtml)
+- 2026-06-30 05:34 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/532295736.shtml)
+- 2026-06-30 05:34 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/2707047477.shtml)
+- 2026-06-30 05:26 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.minike.top/Article/details/008315358.shtml)

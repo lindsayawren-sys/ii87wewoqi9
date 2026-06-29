@@ -1,61 +1,50 @@
-# 业绩增长超300倍！股价创三年新高！这些公司今年一季度业绩暴增！
+# 我国自2026年5月1日起对所有非洲建交国实施零关税
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券市场周刊市场号 文 | 尚扬 近日，A股上市公司2026年一季报及业绩预告披露工作稳步推进，市场“业绩为王”的特征愈发凸显。观察发现，科技、有色等多板块景气度持续上行，多只绩优股在业绩披露后股价应声上涨，一季报行情持续升温。 绩优股引领市场 4月8日、9日，高能环境股价持续刷新阶段新高，连续上涨或
+中新网4月28日电 据财政部网站消息，国务院关税税则委员会发布公告，自2026年5月1日至2028年4月30日，对同中国建交的20个不属于最不发达国家的非洲国家以特惠税率形式实施零关税；其中关税配额产品仅将配额内关税税率降为零，配额外关税税率不变。2年实施期内，中方将继续推动与相关非洲国家商签共同发展经济伙伴关系协定。 对于同中国建交的33个非洲最不发达国家，中方已自2024年
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网4月28日电 据财政部网站消息，国务院关税税则委员会发布公告，自2026年5月1日至2028年4月30日，对同中国建交的20个不属于最不发达国家的非洲国家以特惠税率形式实施零关税；其中关税配额产品仅将配额内关税税率降为零，配额外关税税率不变。
 
-来源：证券市场周刊市场号 文 | 尚扬 近日，A股上市公司2026年一季报及业绩预告披露工作稳步推进，市场“业绩为王”的特征愈发凸显。
+2年实施期内，中方将继续推动与相关非洲国家商签共同发展经济伙伴关系协定。
 
-观察发现，科技、有色等多板块景气度持续上行，多只绩优股在业绩披露后股价应声上涨，一季报行情持续升温。
+对于同中国建交的33个非洲最不发达国家，中方已自2024年12月1日起对其100%税目产品实施零关税。
 
-绩优股引领市场 4月8日、9日，高能环境股价持续刷新阶段新高，连续上涨或与公司优异的一季报业绩有直接关系。
-
-4月9日晚间，高能环境发布2026年一季报，报告期内实现营业收入49.92亿元，实现归母净利润6.03亿元，分别较2025年同期增长50.91%、168.4%。
-
-归母净利润的翻倍增长，主要是公司抓住了2026年一季度金属价格持续上行的市场机遇，进一步增强了相关产品的盈利能力。
-
-而此前，广发证券也在报告中表示，高能环境的稀贵金属提纯能力保证了盈利性，未来通过提高产能利用率、新增金属品类业绩有望继续提升，预计2026年度归母净利润为12.5亿元，2027年、2028年则分别将增至14.6亿元、17.3亿元。
-
-表现更为抢眼的东山精密4月8日、9日股价连续涨停，4月10日股价也再度刷新了历史新高（见图1），除了AI算力赛道高景气驱动，今年首季业绩超预期增长也是催化因素之一。
+此次进一步对其余20个非洲建交国实施零关税，体现了中国扩大高水平对外开放的积极姿态，对加强中非经贸合作纽带、推动共筑新时代全天候中非命运共同体将发挥重要作用。
 
 ## 相关推荐
 
-- 2026-06-30 05:12 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-30 05:31 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-30 05:31 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-30 05:24 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-30 05:32 - [《共患难》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-30 05:41 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 05:39 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-30 05:33 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-30 05:13 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-30 05:19 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-30 05:28 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-30 05:30 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-30 05:38 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 05:29 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-30 05:19 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-30 05:23 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 05:29 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 05:39 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-30 05:23 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-30 05:30 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 05:42 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-30 05:21 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 05:20 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 05:47 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-30 05:29 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-30 05:28 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-30 05:31 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:14 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/95400821638.shtml)
-- 2026-06-30 05:37 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.kurohicncr.top/Article/details/264668698831.shtml)
-- 2026-06-30 05:39 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/85820403.shtml)
-- 2026-06-30 05:36 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/4999902012.shtml)
-- 2026-06-30 05:26 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/49934565230.shtml)
-- 2026-06-30 05:25 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/68384.shtml)
-- 2026-06-30 05:34 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/24561706.shtml)
-- 2026-06-30 05:15 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/622852288007.shtml)
-- 2026-06-30 05:24 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/6058985482.shtml)
-- 2026-06-30 05:28 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/3135322454.shtml)
-- 2026-06-30 05:17 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/214318.shtml)
-- 2026-06-30 05:18 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/090931505.shtml)
-- 2026-06-30 05:13 - [扫黑风暴](https://www.share.minike.top/Article/details/240469826.shtml)
-- 2026-06-30 05:26 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/846566163672.shtml)
-- 2026-06-30 05:20 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/52228.shtml)
+- 2026-06-30 05:23 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.kurohicncr.top/Article/details/476889.shtml)
+- 2026-06-30 05:36 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/4032234520.shtml)
+- 2026-06-30 05:23 - [点菜也要教吗](http://www.blog.minike.top/Article/details/563712.shtml)
+- 2026-06-30 05:34 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/98858975608.shtml)
+- 2026-06-30 05:27 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/4611800.shtml)
+- 2026-06-30 05:38 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/029462275822.shtml)
+- 2026-06-30 05:25 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/90169960.shtml)
+- 2026-06-30 05:27 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/54555838488.shtml)
+- 2026-06-30 05:26 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/22481019.shtml)
+- 2026-06-30 05:39 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/0873547520.shtml)
+- 2026-06-30 05:29 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/59040986.shtml)
+- 2026-06-30 05:48 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/463642538953.shtml)
+- 2026-06-30 05:25 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/0036536355.shtml)
+- 2026-06-30 05:22 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/558444386974.shtml)
+- 2026-06-30 05:43 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/2293145838.shtml)

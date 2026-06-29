@@ -1,60 +1,48 @@
-# 姚明：亚洲大学生篮球联赛为球员提供了交流平台
+# 港澳会客厅丨陈茂波：对香港今年GDP增长前景审慎乐观，力争超额增长
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新网北京4月10日电 “当年申请一所NCAA联盟的学校被拒是我青少年时期的遗憾之一。所以很高兴亚洲大学生篮球联赛(AUBL联赛)可以为亚洲大学生球员们提供一个宝贵的国际交流平台。我也将为我的母校加油，上海交大是冠军！”中国男篮名宿、姚基金理事长姚明这样说道。 据了解，作为被亚洲大学生体育联合会官方认证的赛事，AUBL面向亚洲高校球队，致力于为大学生球员提供高水平的竞技平台并促
+发布时间：2026年04月29日 15:08 来源：中国新闻网 香港特区政府财政司司长陈茂波在接受中新网“港澳会客厅”专访时表示，考虑到复杂多变的外部环境与地缘政治风险，今年香港GDP增长目标审慎设定在2.5%至3.5%区间，特区政府将全力推动发展，力争触及区间上限甚至实现超额增长。(记者 戴小橦 温孟馨 孙悦 陈香玉） 责任编辑：【吉翔】
 
 ## 正文
 
-中新网北京4月10日电 “当年申请一所NCAA联盟的学校被拒是我青少年时期的遗憾之一。
+发布时间：2026年04月29日 15:08 来源：中国新闻网 香港特区政府财政司司长陈茂波在接受中新网“港澳会客厅”专访时表示，考虑到复杂多变的外部环境与地缘政治风险，今年香港GDP增长目标审慎设定在2.5%至3.5%区间，特区政府将全力推动发展，力争触及区间上限甚至实现超额增长。
 
-所以很高兴亚洲大学生篮球联赛(AUBL联赛)可以为亚洲大学生球员们提供一个宝贵的国际交流平台。
-
-我也将为我的母校加油，上海交大是冠军！
-
-”中国男篮名宿、姚基金理事长姚明这样说道。
-
-据了解，作为被亚洲大学生体育联合会官方认证的赛事，AUBL面向亚洲高校球队，致力于为大学生球员提供高水平的竞技平台并促进高校间的体育文化交流。
-
-2025年首届AUBL赛事以锦标赛的形式在杭州举办，12支来自亚洲多个国家和地区的顶尖大学球队参加了为期一周的赛事，共吸引超过2.9万名球迷现场观赛。
-
-4月10日，AUBL赛事运营方亚洲校园篮球有限公司宣布完成A轮融资，本轮融资由阿里巴巴集团主席蔡崇信家族办公室蓝池资本领投。
-
-与此同时，AUBL也公布了2026-2027周期的赛事规划。
+(记者 戴小橦 温孟馨 孙悦 陈香玉） 责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-30 05:29 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-30 05:28 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-30 05:27 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-30 05:40 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-30 05:30 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-30 05:14 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-30 05:40 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-30 05:39 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-30 05:41 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-30 05:13 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-30 05:17 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 05:29 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-30 05:24 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-30 05:29 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-30 05:35 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-30 05:36 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-30 05:19 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-30 05:44 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-30 05:44 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-30 05:30 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-30 05:19 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-30 05:22 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 05:32 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-30 05:37 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-30 05:38 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-30 05:41 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 05:35 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 05:37 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:18 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/32793833.shtml)
-- 2026-06-30 05:33 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/70534976890.shtml)
-- 2026-06-30 05:38 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/32316.shtml)
-- 2026-06-30 05:40 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/878727210073.shtml)
-- 2026-06-30 05:16 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/2170591.shtml)
-- 2026-06-30 05:12 - [毒液2](http://www.share.kurohicncr.top/Article/details/8531477443.shtml)
-- 2026-06-30 05:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/7247989599.shtml)
-- 2026-06-30 05:37 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/54750086.shtml)
-- 2026-06-30 05:22 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/412135049559.shtml)
-- 2026-06-30 05:28 - [安切洛蒂 换人](http://www.blog.kurohicncr.top/Article/details/9894956.shtml)
-- 2026-06-30 05:28 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/13259604572.shtml)
-- 2026-06-30 05:37 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/46923956878.shtml)
-- 2026-06-30 05:41 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/85014100890.shtml)
-- 2026-06-30 05:12 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/47495981.shtml)
-- 2026-06-30 05:13 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/379369043.shtml)
+- 2026-06-30 05:38 - [《共患难》](https://www.share.minike.top/Article/details/736332605.shtml)
+- 2026-06-30 05:20 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/9608961.shtml)
+- 2026-06-30 05:37 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/08734.shtml)
+- 2026-06-30 05:47 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/592160732.shtml)
+- 2026-06-30 05:18 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/31576.shtml)
+- 2026-06-30 05:39 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/78561.shtml)
+- 2026-06-30 05:18 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/366629518431.shtml)
+- 2026-06-30 05:30 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/067705225265.shtml)
+- 2026-06-30 05:37 - [巴西绝杀](http://www.share.minike.top/Article/details/8621768914.shtml)
+- 2026-06-30 05:43 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/473889483.shtml)
+- 2026-06-30 05:46 - [巴西绝杀日本](http://www.blog.kurohicncr.top/Article/details/3868449.shtml)
+- 2026-06-30 05:37 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/106090097680.shtml)
+- 2026-06-30 05:41 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/6987479.shtml)
+- 2026-06-30 05:36 - [明星大侦探第一季](http://www.share.minike.top/Article/details/94566276878.shtml)
+- 2026-06-30 05:32 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/94091680306.shtml)

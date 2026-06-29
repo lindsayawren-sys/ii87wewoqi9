@@ -1,59 +1,58 @@
-# 中国作协网络文学中心召开深化价值引领座谈会
+# 看好服务业巨大容量和开放机遇 投资中国成为外资企业“必选项”
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新网北京4月10日电 (记者 高凯)4月10日，中国作家协会网络文学中心召开网络文学座谈会。中国作协党组成员、书记处书记毛广程出席会议并讲话，中国作协网络文学中心主任何弘主持会议，通报2025年网络文学工作情况及2026年重点工作安排，50余家全国重点网络文学网站平台负责人及网络作家和专家代表参加会议。毛广程在讲话中指出，网络文学界要牢记“国之大者”，锚定2035年建成文化强
+央视网消息：商务部发布的数据显示，今年一季度，服务业实际使用外资1746亿元人民币，占全国实际使用外资总额超七成，增量还在持续扩大。对于外资企业来说，中国不仅在制造业领域具备优势，也正成为服务业投资的新“蓝海”。 今年以来，看好中国服务业的巨大容量和开放机遇，不少外资企业在商贸、文旅、医疗等多领域加快投资。沃尔玛、开市客、泰佩思琦等外资零售企业稳步拓店；新加坡医疗企业在中国设立
 
 ## 正文
 
-中新网北京4月10日电 (记者 高凯)4月10日，中国作家协会网络文学中心召开网络文学座谈会。
+央视网消息：商务部发布的数据显示，今年一季度，服务业实际使用外资1746亿元人民币，占全国实际使用外资总额超七成，增量还在持续扩大。
 
-中国作协党组成员、书记处书记毛广程出席会议并讲话，中国作协网络文学中心主任何弘主持会议，通报2025年网络文学工作情况及2026年重点工作安排，50余家全国重点网络文学网站平台负责人及网络作家和专家代表参加会议。
+对于外资企业来说，中国不仅在制造业领域具备优势，也正成为服务业投资的新“蓝海”。
 
-毛广程在讲话中指出，网络文学界要牢记“国之大者”，锚定2035年建成文化强国战略目标，在新的历史方位中找准定位，正确认识网络文学的使命、地位和作用。
+今年以来，看好中国服务业的巨大容量和开放机遇，不少外资企业在商贸、文旅、医疗等多领域加快投资。
 
-要提升创作质量，激发网络文学创新创造活力，不断推出内容新颖、思想精深、艺术精湛的精品力作。
+沃尔玛、开市客、泰佩思琦等外资零售企业稳步拓店；新加坡医疗企业在中国设立外商独资医院；外资券商瑞银证券继续加大投入，近期又增资1亿美元，用于投资银行、资产管理等业务扩展。
 
-要树立新风正气，引导正确审美，鼓励多元、健康的创作生态，倡导理性、包容的评论氛围，杜绝标签化、极端化、二元对立的文学认知。
+中国社科院世界经济与政治研究所国际投资室副主任潘圆圆表示，外资持续加码投资，在满足民生需要、带动就业扩容等方面发挥了重要作用，为我国服务业高质量发展提供支撑。
 
-要深化网文出海，坚守中华文化主体性，探索建立中国叙事体系，提升中华文化的海外影响力。
+同时，中国的市场规模、经济活力和新业态、新模式也在吸引外资持续投资，许多外资企业主动把握机遇，纷纷在住宿、出行、金融服务等领域开展业务创新。
 
-会议研讨行业发展新形势、新挑战，分析研判近期一些极端创作倾向引发争议情况，凝聚共识，明确方向，部署下一阶段重点工作。
+“十五五”规划纲要指出，促进生活性服务业高品质多样化便利化发展。
 
-会议认为，网络文学是新大众文艺的重要载体和鲜活实践，拥有庞大的读者群体和广泛的社会影响力，在引领阅读风尚、传承中华优秀传统文化、讲好中国故事等方面发挥了重要作用。
+今年，我国也将实施服务业扩能提质行动，扩大服务业市场准入和开放领域，将为包括外资企业在内的各类企业提供源源不断的新商机。
 
 ## 相关推荐
 
-- 2026-06-30 05:40 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-30 05:26 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-30 05:21 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-30 05:16 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-30 05:38 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-30 05:38 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-30 05:26 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-30 05:34 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-30 05:27 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-30 05:25 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-30 05:31 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-30 05:24 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-30 05:18 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-30 05:35 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-30 05:22 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-30 05:22 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-30 05:47 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-30 05:28 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-30 05:47 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-30 05:23 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-30 05:18 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-30 05:19 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-30 05:23 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-30 05:37 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-30 05:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:35 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/1421985635.shtml)
-- 2026-06-30 05:41 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/976274557663.shtml)
-- 2026-06-30 05:36 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/771094.shtml)
-- 2026-06-30 05:17 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/06210.shtml)
-- 2026-06-30 05:22 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/6319898.shtml)
-- 2026-06-30 05:18 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/676277.shtml)
-- 2026-06-30 05:12 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/88163.shtml)
-- 2026-06-30 05:19 - [内马尔替补](https://www.share.minike.top/Article/details/358114.shtml)
-- 2026-06-30 05:40 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/52356471.shtml)
-- 2026-06-30 05:41 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/81958867115.shtml)
-- 2026-06-30 05:30 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/927531745062.shtml)
-- 2026-06-30 05:30 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/28051.shtml)
-- 2026-06-30 05:17 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/19748.shtml)
-- 2026-06-30 05:41 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/99810534.shtml)
-- 2026-06-30 05:31 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/08239.shtml)
+- 2026-06-30 05:20 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/3226641.shtml)
+- 2026-06-30 05:39 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.minike.top/Article/details/4734685.shtml)
+- 2026-06-30 05:35 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/99881165.shtml)
+- 2026-06-30 05:43 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/23122302766.shtml)
+- 2026-06-30 05:31 - [美人鱼](https://www.blog.minike.top/Article/details/861392.shtml)
+- 2026-06-30 05:32 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/35393691787.shtml)
+- 2026-06-30 05:41 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/09158.shtml)
+- 2026-06-30 05:44 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/9399438.shtml)
+- 2026-06-30 05:29 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/2265342101.shtml)
+- 2026-06-30 05:22 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/21099886.shtml)
+- 2026-06-30 05:18 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/136296.shtml)
+- 2026-06-30 05:21 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/74559321.shtml)
+- 2026-06-30 05:40 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/89453414.shtml)
+- 2026-06-30 05:29 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/5521488.shtml)
+- 2026-06-30 05:31 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/908739.shtml)

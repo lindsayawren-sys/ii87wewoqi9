@@ -1,57 +1,51 @@
-# 报道：特朗普承诺将在卸任前为政府高级官员颁发特赦令
+# 特朗普：伊朗希望美国尽快“开放霍尔木兹海峡”
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-据报道，据听取相关言论的人士透露，特朗普已多次向政府高级官员承诺，将在卸任前为他们颁发特赦令。 知情人士称，特朗普在近期一次会议上笑着表示：“我会赦免所有踏入椭圆办公室200英尺范围内的每一个人。” 随着总统反复提及此话，这一“半径范围”似乎在不断扩大。今年早些时候与特朗普会面的另一位人士称，总统曾打趣说要赦免所有踏入10英尺范围内的人。 部分知情人士表示，去年在椭圆办公室旁的
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社华盛顿4月28日电美国总统特朗普28日在社交媒体发文称，伊朗希望美国“尽快开放霍尔木兹海峡”。（完）责任编辑：宋雅芳
 
 ## 正文
 
-据报道，据听取相关言论的人士透露，特朗普已多次向政府高级官员承诺，将在卸任前为他们颁发特赦令。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-知情人士称，特朗普在近期一次会议上笑着表示：“我会赦免所有踏入椭圆办公室200英尺范围内的每一个人。
+新华社华盛顿4月28日电美国总统特朗普28日在社交媒体发文称，伊朗希望美国“尽快开放霍尔木兹海峡”。
 
-” 随着总统反复提及此话，这一“半径范围”似乎在不断扩大。
-
-今年早些时候与特朗普会面的另一位人士称，总统曾打趣说要赦免所有踏入10英尺范围内的人。
-
-部分知情人士表示，去年在椭圆办公室旁的餐厅与顾问交谈时，特朗普称将在卸任前举办新闻发布会，宣布大规模特赦。
-
-这些人士称，目前尚不清楚他是否会针对特定人员的特定行为提供具体特赦。
-
-责任编辑：陈钰嘉
+（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-30 05:41 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-30 05:32 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-30 05:36 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-30 05:35 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-30 05:30 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-30 05:34 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-30 05:12 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-30 05:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 05:16 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-30 05:36 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-30 05:19 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-30 05:34 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-30 05:23 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-30 05:27 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 05:43 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 05:40 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-30 05:20 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-30 05:35 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-30 05:35 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-30 05:33 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-30 05:27 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-30 05:29 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-30 05:41 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-30 05:46 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-30 05:46 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-30 05:32 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-30 05:29 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-30 05:28 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:37 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/71178270567.shtml)
-- 2026-06-30 05:14 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/160381759.shtml)
-- 2026-06-30 05:13 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/0428805443.shtml)
-- 2026-06-30 05:28 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/49639.shtml)
-- 2026-06-30 05:13 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/89949249822.shtml)
-- 2026-06-30 05:25 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/319978407.shtml)
-- 2026-06-30 05:16 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/806125429757.shtml)
-- 2026-06-30 05:13 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.kurohicncr.top/Article/details/5321468459.shtml)
-- 2026-06-30 05:19 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/54285815.shtml)
-- 2026-06-30 05:39 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/4055820949.shtml)
-- 2026-06-30 05:33 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/24505142396.shtml)
-- 2026-06-30 05:21 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/851510855503.shtml)
-- 2026-06-30 05:39 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/3936698.shtml)
-- 2026-06-30 05:39 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/1268411.shtml)
-- 2026-06-30 05:38 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/732167245670.shtml)
+- 2026-06-30 05:18 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/23201223.shtml)
+- 2026-06-30 05:22 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/5602199166.shtml)
+- 2026-06-30 05:41 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/59985.shtml)
+- 2026-06-30 05:25 - [请回答王牌2019](http://www.blog.minike.top/Article/details/301621829.shtml)
+- 2026-06-30 05:22 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.minike.top/Article/details/67977.shtml)
+- 2026-06-30 05:21 - [庆祝中国共产党成立105周年音乐会](https://www.blog.minike.top/Article/details/607613384262.shtml)
+- 2026-06-30 05:47 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/694238228626.shtml)
+- 2026-06-30 05:22 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/397423731.shtml)
+- 2026-06-30 05:19 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/11330037848.shtml)
+- 2026-06-30 05:29 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/11729.shtml)
+- 2026-06-30 05:22 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/8382787224.shtml)
+- 2026-06-30 05:21 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/768726.shtml)
+- 2026-06-30 05:35 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/59049671.shtml)
+- 2026-06-30 05:24 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/8270776.shtml)
+- 2026-06-30 05:23 - [亚洲球队全部告别世界杯](http://www.share.kurohicncr.top/Article/details/79995710390.shtml)

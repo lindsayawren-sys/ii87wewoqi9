@@ -1,58 +1,56 @@
-# “双管齐下”保安全 浙江推进“三小”治理守护医药消费环境
+# 今年链博会美企参展规模将进一步扩大
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新网杭州4月10日电 (潘沁文)“一手抓源头治理，一手抓协同治理，‘双管齐下’守牢安全底线，让群众用药更放心。”4月10日，在浙江深化药品监管改革促进医药产业高水平安全高质量发展新闻发布会上，浙江省药品监督管理局(以下简称“浙江省药监局”)党组书记、局长王状武介绍了该省药品监管部门如何保障药品质量高水平安全。 “药品监管工作一头连着经济社会发展，一头连着千家万户健康。”王状武
+中新社北京4月29日电 (记者 尹倩芸)中国贸促会新闻发言人王冠男29日在北京表示，今年链博会，美国企业参展规模将进一步扩大，特别是在人工智能、半导体、医疗科技、高端制造等中美双方均具优势的领域，两国企业将通过链博会平台深化合作、共谋发展。第四届中国国际供应链促进博览会(简称链博会)将于6月22日至26日在北京举办。 根据中国美国商会最新发布的《美国企业在中国》白皮书显示，20
 
 ## 正文
 
-中新网杭州4月10日电 (潘沁文)“一手抓源头治理，一手抓协同治理，‘双管齐下’守牢安全底线，让群众用药更放心。
+中新社北京4月29日电 (记者 尹倩芸)中国贸促会新闻发言人王冠男29日在北京表示，今年链博会，美国企业参展规模将进一步扩大，特别是在人工智能、半导体、医疗科技、高端制造等中美双方均具优势的领域，两国企业将通过链博会平台深化合作、共谋发展。
 
-”4月10日，在浙江深化药品监管改革促进医药产业高水平安全高质量发展新闻发布会上，浙江省药品监督管理局(以下简称“浙江省药监局”)党组书记、局长王状武介绍了该省药品监管部门如何保障药品质量高水平安全。
+第四届中国国际供应链促进博览会(简称链博会)将于6月22日至26日在北京举办。
 
-“药品监管工作一头连着经济社会发展，一头连着千家万户健康。
+根据中国美国商会最新发布的《美国企业在中国》白皮书显示，2025年多数受访企业财务表现向好，52%的受访企业预计实现盈利，较上年提升6个百分点，超过半数受访企业仍将中国列为全球前三大优先投资目的地，74%的企业认为本行业内外资企业享受同等或更优待遇。
 
-”王状武表示，该局坚持统筹发展和安全，通过高效能的监管，推动浙江药品安全态势稳定向好、医药产业发展稳中有进。
+“中美两国工商界加强合作意愿浓厚，合作成效也十分明显。
 
-线下监管方面，值得关注的是，针对小药店、小诊所、小美容店(“三小”)经营者药品安全意识和合规能力相对薄弱等问题，去年，该省多部门联合开展“三小”经营使用药品安全问题专项治理，重点整治从非法渠道购买药械、不按规定销售处方药、销售和使用过期药械等行为。
+”王冠男介绍，截至4月15日，中国贸促会已审批2026年各有关组展单位赴美举办或参加展览会项目138个，涉及新能源、汽配、自动化及机器人、家庭用品、服装面料等多个行业。
 
-从具体举措来看，采用集中培训、网络自学、上门服务、自查自纠等方式开展合规指导，共合规指导“三小”主体62418家，推动114家小药店依法调整经营范围；坚持有投诉举报的必查、有违法违规主观故意的必查、有风险隐患的必查、有危害后果的必查，共查办“三小”违法案件14431件；推动“三小”治理常态长效，发布典型案例423个，制定主体合规、协同治理、能力提升等方面的长效机制215个。
+目前已实施项目65个，展出面积达2.46万平方米，1600多家中国企业参展。
 
-线上监管方面，针对网络消费建立“药械化网络消费纠纷调解服务站”，“十四五”期间，浙江省药监局共收到并办结投诉举报、意见建议等8574件，有力维护了医药消费环境良好秩序。
+王冠男称，贸促会将按照两国元首重要共识，积极推动前期经贸磋商成果惠及两国工商企业。
 
-(完)
+包括持续办好中美企业合作对接项目(CMP)。
 
 ## 相关推荐
 
-- 2026-06-30 05:26 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-30 05:28 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-30 05:40 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-30 05:32 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-30 05:25 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-30 05:19 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-30 05:26 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-30 05:14 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-30 05:34 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-30 05:28 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-30 05:22 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-30 05:32 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 05:26 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-30 05:37 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 05:47 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 05:20 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-30 05:46 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-30 05:45 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-30 05:44 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-30 05:34 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 05:22 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 05:36 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:27 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/67126425.shtml)
-- 2026-06-30 05:26 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/30205.shtml)
-- 2026-06-30 05:37 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/3350097563.shtml)
-- 2026-06-30 05:14 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/87699.shtml)
-- 2026-06-30 05:12 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/4588009388.shtml)
-- 2026-06-30 05:30 - [周生如故](https://www.share.minike.top/Article/details/517593084000.shtml)
-- 2026-06-30 05:21 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/10798212178.shtml)
-- 2026-06-30 05:25 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/547081576785.shtml)
-- 2026-06-30 05:29 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/439393053.shtml)
-- 2026-06-30 05:38 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/558589677.shtml)
-- 2026-06-30 05:23 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/45019263326.shtml)
-- 2026-06-30 05:26 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/55689561.shtml)
-- 2026-06-30 05:38 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/39701769045.shtml)
-- 2026-06-30 05:27 - [电影后室值得看吗](http://www.blog.kurohicncr.top/Article/details/6992000022.shtml)
-- 2026-06-30 05:23 - [佐野海舟远射破门](http://www.share.kurohicncr.top/Article/details/9329376296.shtml)
+- 2026-06-30 05:39 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/8101584.shtml)
+- 2026-06-30 05:18 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/62531.shtml)
+- 2026-06-30 05:41 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/2585367.shtml)
+- 2026-06-30 05:27 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/03729281.shtml)
+- 2026-06-30 05:28 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/657036170531.shtml)
+- 2026-06-30 05:33 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/2170152760.shtml)
+- 2026-06-30 05:45 - [明星大侦探第四季](http://www.share.minike.top/Article/details/7084254337.shtml)
+- 2026-06-30 05:23 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/522919501738.shtml)
+- 2026-06-30 05:43 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/411031436132.shtml)
+- 2026-06-30 05:28 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/308261.shtml)
+- 2026-06-30 05:25 - [第一炉香](http://www.share.minike.top/Article/details/33919158255.shtml)
+- 2026-06-30 05:25 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/51501.shtml)
+- 2026-06-30 05:41 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/39786.shtml)
+- 2026-06-30 05:19 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/237677998712.shtml)
+- 2026-06-30 05:41 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/4263919.shtml)

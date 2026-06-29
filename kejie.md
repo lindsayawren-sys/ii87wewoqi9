@@ -1,55 +1,53 @@
-# 伊朗应急组织：美以对伊朗军事行动已致超2000名儿童受伤
+# 一季度石家庄海关签发RCEP原产地证书2532份
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新网4月12日电 据卡塔尔半岛电视台最新报道，伊朗应急组织负责人贾法尔·米亚德法尔表示，美国和以色列对伊朗发动的军事行动中，约有2115名18岁以下儿童受伤。 据报道，米亚德法尔对伊朗迈赫尔通讯社称，上述伤者中，124人为5岁以下儿童，2岁以下的有24人。 此外，还有约5000名女性受伤，相关袭击主要集中在德黑兰、胡齐斯坦、洛雷斯坦、伊斯法罕等地。 米亚德法尔还表示，美以的袭
+中新网石家庄4月28日电 (赵丹媚 谌诗雨 张诚)石家庄海关28日消息，今年一季度，石家庄海关为河北省出口企业签发《区域全面经济伙伴关系协定》(RCEP)原产地证书2532份，签证金额11.8亿元，享受进口国关税减免约1776万元，同比分别增长18.4%、64.2%和64.2%。“今年以来，我们公司在海关办理了93份RCEP原产地证书，凭借这些证书，可以享受到140多万元的关税
 
 ## 正文
 
-中新网4月12日电 据卡塔尔半岛电视台最新报道，伊朗应急组织负责人贾法尔·米亚德法尔表示，美国和以色列对伊朗发动的军事行动中，约有2115名18岁以下儿童受伤。
+中新网石家庄4月28日电 (赵丹媚 谌诗雨 张诚)石家庄海关28日消息，今年一季度，石家庄海关为河北省出口企业签发《区域全面经济伙伴关系协定》(RCEP)原产地证书2532份，签证金额11.8亿元，享受进口国关税减免约1776万元，同比分别增长18.4%、64.2%和64.2%。
 
-据报道，米亚德法尔对伊朗迈赫尔通讯社称，上述伤者中，124人为5岁以下儿童，2岁以下的有24人。
+“今年以来，我们公司在海关办理了93份RCEP原产地证书，凭借这些证书，可以享受到140多万元的关税减免。
 
-此外，还有约5000名女性受伤，相关袭击主要集中在德黑兰、胡齐斯坦、洛雷斯坦、伊斯法罕等地。
+”河北沧州某塑料薄膜出口企业经理刘明说，海关动态跟踪企业出口情况，建立专属服务机制，匹配最优关税减让方案，为他们进一步开拓海外市场提供了保障。
 
-米亚德法尔还表示，美以的袭击对伊朗医疗系统造成严重破坏，已致118名医务人员死亡，另有26人受伤。
+据悉，为让原产地政策加快转化为企业出海红利，石家庄海关还持续推行“线上申请+智能审签+自助打印”签证模式，指导企业规范填报，压缩审核时限，实现原产地证书即报即审即领。
 
-据此前报道，2月28日，美国与以色列联手对伊朗发动军事打击，时任伊朗最高领袖阿里·哈梅内伊及多名军方高层在空袭中身亡。
+石家庄海关关税处副处长薛茜表示，下一步，将特别加强对中小微企业和新兴业态的辅导，通过大数据分析报关数据，建立政策适配企业清单，助力更多外贸企业用好原产地优惠政策拓展国际市场。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:41 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-30 05:29 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-30 05:40 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-30 05:39 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-30 05:40 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-30 05:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-30 05:37 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-30 05:34 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-30 05:41 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-30 05:21 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-30 05:21 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-30 05:30 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-30 05:26 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-30 05:19 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-30 05:17 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-30 05:32 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-30 05:38 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-30 05:46 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-30 05:29 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-30 05:35 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 05:35 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-30 05:19 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-30 05:25 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-30 05:36 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-30 05:38 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-30 05:46 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:27 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/6289277.shtml)
-- 2026-06-30 05:36 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/262438.shtml)
-- 2026-06-30 05:20 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/992697.shtml)
-- 2026-06-30 05:32 - [王欣瑜：今年经历了一些起伏](https://www.share.minike.top/Article/details/58507644.shtml)
-- 2026-06-30 05:13 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.kurohicncr.top/Article/details/42779.shtml)
-- 2026-06-30 05:24 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/540033731.shtml)
-- 2026-06-30 05:27 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/248442906135.shtml)
-- 2026-06-30 05:13 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/324588112.shtml)
-- 2026-06-30 05:33 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/8929555.shtml)
-- 2026-06-30 05:33 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/4401769.shtml)
-- 2026-06-30 05:37 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/57274442994.shtml)
-- 2026-06-30 05:15 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/633410948752.shtml)
-- 2026-06-30 05:32 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/60211.shtml)
-- 2026-06-30 05:41 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/12618351733.shtml)
-- 2026-06-30 05:24 - [急先锋](http://www.blog.minike.top/Article/details/54257398.shtml)
+- 2026-06-30 05:43 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/1366291562.shtml)
+- 2026-06-30 05:43 - [日本进球](https://www.blog.minike.top/Article/details/8360461258.shtml)
+- 2026-06-30 05:43 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/92073800.shtml)
+- 2026-06-30 05:18 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/0303734995.shtml)
+- 2026-06-30 05:38 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/928877507.shtml)
+- 2026-06-30 05:40 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/70422061416.shtml)
+- 2026-06-30 05:23 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/6375637927.shtml)
+- 2026-06-30 05:36 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/97249067096.shtml)
+- 2026-06-30 05:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/354961355304.shtml)
+- 2026-06-30 05:38 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/787434466.shtml)
+- 2026-06-30 05:43 - [起风了](https://www.share.kurohicncr.top/Article/details/248857875071.shtml)
+- 2026-06-30 05:21 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/455053547197.shtml)
+- 2026-06-30 05:26 - [上半年全国特种设备安全形势总体平稳](http://www.blog.kurohicncr.top/Article/details/03832.shtml)
+- 2026-06-30 05:27 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/185970194.shtml)
+- 2026-06-30 05:23 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/37378002.shtml)

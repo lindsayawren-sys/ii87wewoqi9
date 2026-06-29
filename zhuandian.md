@@ -1,54 +1,57 @@
-# 中国大型水陆两栖飞机AG600“鲲龙”开展双机编队森林灭火驻防
+# 雪佛龙与利比亚国家石油公司签署协议，评估页岩油气资源
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月10日 18:14 来源：中国新闻网 记者从中国航空工业集团获悉，为应对南方春季复杂地形下火灾高发风险，中国自主研制的AG600“鲲龙”大型水陆两栖飞机(以下简称AG600)1102、1103两架日前赴广东开展森林灭火靠前驻防，顺利完成阶段性任务，有力提升广东省航空应急救援能力。 为提升实战灭火能力，AG600“鲲龙”1102架机于4月1日转场梅州，与
+利比亚国家石油公司（NOC）周二宣布，已与美国能源巨头雪佛龙签署谅解备忘录，将对该国多个沉积盆地的页岩油气资源进行联合评估。 根据NOC负责人发布的声明，初步预估显示，利比亚盆地蕴藏着约123万亿立方英尺天然气和约180亿桶石油资源。此次协议旨在通过技术合作，评估非常规资源的开发潜力。 利比亚正积极推动油气行业复兴，以扭转因多年政局不稳导致的生产下滑。在2025年2月启动的近二
 
 ## 正文
 
-发布时间：2026年04月10日 18:14 来源：中国新闻网 记者从中国航空工业集团获悉，为应对南方春季复杂地形下火灾高发风险，中国自主研制的AG600“鲲龙”大型水陆两栖飞机(以下简称AG600)1102、1103两架日前赴广东开展森林灭火靠前驻防，顺利完成阶段性任务，有力提升广东省航空应急救援能力。
+利比亚国家石油公司（NOC）周二宣布，已与美国能源巨头雪佛龙签署谅解备忘录，将对该国多个沉积盆地的页岩油气资源进行联合评估。
 
-为提升实战灭火能力，AG600“鲲龙”1102架机于4月1日转场梅州，与1103架机正式开展双机编队驻防任务。
+根据NOC负责人发布的声明，初步预估显示，利比亚盆地蕴藏着约123万亿立方英尺天然气和约180亿桶石油资源。
 
-此举标志着AG600从单机作业模式向编队协同灭火能力迈出关键一步，拓展了航空灭火任务的响应范围与投水密度。
+此次协议旨在通过技术合作，评估非常规资源的开发潜力。
 
-驻防期间，双机协同配合，共完成飞行34架次，累计飞行76小时46分钟，实施投水训练52次，投水量达624吨。
+利比亚正积极推动油气行业复兴，以扭转因多年政局不稳导致的生产下滑。
 
-(记者 阮煜琳 制作 王佳琪 视频来源 中国航空工业集团） 责任编辑：【于晓】
+在2025年2月启动的近二十年来首次勘探招标中，雪佛龙已获得了Sirte盆地陆上区块的勘探权。
+
+NOC计划到2026年底将产量从目前的约140万桶/日提升至约160万桶/日。
+
+此次谅解备忘录的签署标志着利比亚在吸引国际能源投资方面取得新进展，也反映了主要石油公司对该国安全环境改善的逐步认可。
+
+NOC表示，这项合作旨在利用雪佛龙的技术专长，推动国家油气储量增长。
 
 ## 相关推荐
 
-- 2026-06-30 05:14 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-30 05:31 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-30 05:29 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 05:33 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-30 05:24 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-30 05:35 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 05:35 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 05:35 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-30 05:35 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 05:37 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-30 05:32 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-30 05:17 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-30 05:25 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-30 05:26 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-30 05:22 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-30 05:18 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-30 05:21 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-30 05:37 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-30 05:25 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-30 05:20 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-30 05:28 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-30 05:47 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-30 05:47 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-30 05:37 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-30 05:18 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:39 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/954009.shtml)
-- 2026-06-30 05:29 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/21071103.shtml)
-- 2026-06-30 05:30 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/83589380009.shtml)
-- 2026-06-30 05:37 - [日本淘汰](https://www.blog.minike.top/Article/details/506132251922.shtml)
-- 2026-06-30 05:39 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/6637263629.shtml)
-- 2026-06-30 05:15 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/82225305.shtml)
-- 2026-06-30 05:26 - [巴西绝杀日本](https://www.blog.minike.top/Article/details/115169901694.shtml)
-- 2026-06-30 05:33 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/9968824.shtml)
-- 2026-06-30 05:18 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/06633109162.shtml)
-- 2026-06-30 05:21 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/6320457138.shtml)
-- 2026-06-30 05:25 - [流金岁月](https://www.share.minike.top/Article/details/4848434.shtml)
-- 2026-06-30 05:28 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/96279.shtml)
-- 2026-06-30 05:14 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/82133.shtml)
-- 2026-06-30 05:36 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/54882.shtml)
-- 2026-06-30 05:28 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/7202639743.shtml)
+- 2026-06-30 05:21 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/24148327.shtml)
+- 2026-06-30 05:18 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/596308593.shtml)
+- 2026-06-30 05:20 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/1227681.shtml)
+- 2026-06-30 05:25 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/595294.shtml)
+- 2026-06-30 05:34 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/135891760.shtml)
+- 2026-06-30 05:45 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/00183.shtml)
+- 2026-06-30 05:31 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/16223583.shtml)
+- 2026-06-30 05:26 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/35906258456.shtml)
+- 2026-06-30 05:47 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/01955442.shtml)
+- 2026-06-30 05:18 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/606699771.shtml)
+- 2026-06-30 05:24 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/978608041.shtml)
+- 2026-06-30 05:29 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/732412986.shtml)
+- 2026-06-30 05:32 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/659571.shtml)
+- 2026-06-30 05:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/587233979658.shtml)
+- 2026-06-30 05:27 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/02040912890.shtml)

@@ -1,57 +1,51 @@
-# 福建旅游业者热议赴台个人游试点将恢复：赴台游有望迎来爆发期
+# 今年一季度西藏出口“新三样”产品同比增长23.92%
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新网福州4月12日电 (叶秋云)“福建居民赴台旅游需求长期存在，相信福建省居民赴台(本岛)个人游试点恢复后，赴台游有望迎来爆发期。”福建中旅旅行社有限公司总经理杨铭12日接受采访时表示，福建旅游从业者又增添了一个核心目的地产品。当天，为推动两岸关系和平发展、增进同胞亲情福祉，经商有关部门，中共中央台办受权发布十项促进两岸交流合作的政策措施，明确推动恢复上海市及福建省居民赴台(
+记者从拉萨海关了解到，2026年一季度，西藏“新三样”产品(新能源汽车、光伏产品、锂电池)出口累计7273.42万元，同比增长23.92%。“新三样”产品加速出海，是西藏面向南亚开放重要通道提质升级、口岸营商环境持续优化的直接体现。为助力“新三样”产品高效出海，拉萨海关围绕产品特点和企业需求，在申报、物流、现场监管等多个环节量身定制便利化措施。此外，针对锂电池等危险货物，拉萨海
 
 ## 正文
 
-中新网福州4月12日电 (叶秋云)“福建居民赴台旅游需求长期存在，相信福建省居民赴台(本岛)个人游试点恢复后，赴台游有望迎来爆发期。
+记者从拉萨海关了解到，2026年一季度，西藏“新三样”产品(新能源汽车、光伏产品、锂电池)出口累计7273.42万元，同比增长23.92%。
 
-”福建中旅旅行社有限公司总经理杨铭12日接受采访时表示，福建旅游从业者又增添了一个核心目的地产品。
+“新三样”产品加速出海，是西藏面向南亚开放重要通道提质升级、口岸营商环境持续优化的直接体现。
 
-当天，为推动两岸关系和平发展、增进同胞亲情福祉，经商有关部门，中共中央台办受权发布十项促进两岸交流合作的政策措施，明确推动恢复上海市及福建省居民赴台(本岛)个人游试点。
+为助力“新三样”产品高效出海，拉萨海关围绕产品特点和企业需求，在申报、物流、现场监管等多个环节量身定制便利化措施。
 
-消息传来，福建旅游界反响热烈，多位从业者表示，这是期盼已久的利好消息。
+此外，针对锂电池等危险货物，拉萨海关深化危险品“云鉴定”项目应用，大幅压缩鉴定时长。
 
-福建省居民赴台(本岛)个人游试点恢复后，将有力激活赴台旅游市场。
-
-据杨铭介绍，作为2009年获批的第二批赴台旅游组团社，福建中旅已储备涵盖台北故宫博物院、台北101大楼、阿里山、日月潭、垦丁等热门景点的多元线路。
-
-“待文化和旅游部相关通知发布后，旅行社将尽快赴台踩线、举办推介会、联合开发产品，加速推出适配个人游的精品线路。
-
-” “这对两岸旅游业都是重大利好，台湾旅游业界同样期盼大陆游客到访。
+监制：陈琴 编辑：白宇坤 记者：扎旺 柯夏泉 来源：总台西藏总站
 
 ## 相关推荐
 
-- 2026-06-30 05:26 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-30 05:17 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-30 05:28 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-30 05:28 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-30 05:14 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 05:12 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 05:23 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 05:20 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 05:34 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-30 05:18 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-30 05:15 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-30 05:39 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-30 05:43 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-30 05:47 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-30 05:29 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-30 05:43 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 05:40 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-30 05:46 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 05:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-30 05:43 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 05:22 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-30 05:40 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:22 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/7429152763.shtml)
-- 2026-06-30 05:18 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/010102564562.shtml)
-- 2026-06-30 05:21 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/609655341616.shtml)
-- 2026-06-30 05:19 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/3183759875.shtml)
-- 2026-06-30 05:14 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/515457988.shtml)
-- 2026-06-30 05:37 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/3093786317.shtml)
-- 2026-06-30 05:12 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/8558260.shtml)
-- 2026-06-30 05:26 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/91697.shtml)
-- 2026-06-30 05:20 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/663082013043.shtml)
-- 2026-06-30 05:21 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/85069012811.shtml)
-- 2026-06-30 05:33 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/8796850984.shtml)
-- 2026-06-30 05:14 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/85765236388.shtml)
-- 2026-06-30 05:34 - [《共患难》](https://www.share.kurohicncr.top/Article/details/657916290956.shtml)
-- 2026-06-30 05:38 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/13666.shtml)
-- 2026-06-30 05:38 - [湖南祁东原文化馆被指贱卖](http://www.blog.minike.top/Article/details/9881084222.shtml)
+- 2026-06-30 05:37 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/62955.shtml)
+- 2026-06-30 05:29 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/94758936.shtml)
+- 2026-06-30 05:22 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/78902.shtml)
+- 2026-06-30 05:23 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/775518.shtml)
+- 2026-06-30 05:39 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/59063.shtml)
+- 2026-06-30 05:35 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/6873297728.shtml)
+- 2026-06-30 05:40 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/564203266.shtml)
+- 2026-06-30 05:43 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/183888.shtml)
+- 2026-06-30 05:23 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/75962641.shtml)
+- 2026-06-30 05:43 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/42192069.shtml)
+- 2026-06-30 05:42 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/7159085.shtml)
+- 2026-06-30 05:37 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/249027415801.shtml)
+- 2026-06-30 05:22 - [青春环游记第三季](http://www.blog.minike.top/Article/details/04568612.shtml)
+- 2026-06-30 05:33 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/47691739040.shtml)
+- 2026-06-30 05:30 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/447700572.shtml)

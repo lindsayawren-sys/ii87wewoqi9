@@ -1,60 +1,57 @@
-# 徐云谈极氪9X海外受追捧：客户主动加价提车，包括劳斯莱斯、宾利用户
+# 香港交易所第一季度利润创历史新高 受IPO和股市交易活跃提振
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。极氪整车研究院院长徐云出席并演讲。 徐云介绍到，极氪9X已经连续5个月蝉联50万级大型SUV的销量冠军，单车成交均价已经超过了53万元。她特别提到，超过80%的用户都来自BBA、保时捷、路虎等
+香港交易所第一季度利润创历史新高，受IPO和股市交易活跃提振。 香港交易所公布第一季度净利润增长27%，至52亿港元。预估中值为46亿港元。核心收入增长22%，至77亿港元。 香港交易所行政总裁陈翊庭表示，香港IPO市场维持强劲动能，IPO规模继续保持全球领先，一批高质量企业排队上市，继续凸显香港作为创新及成长型企业重要融资平台的角色。 香港股市今年1月IPO融资额创下历史同期
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+香港交易所第一季度利润创历史新高，受IPO和股市交易活跃提振。
 
-极氪整车研究院院长徐云出席并演讲。
+香港交易所公布第一季度净利润增长27%，至52亿港元。
 
-徐云介绍到，极氪9X已经连续5个月蝉联50万级大型SUV的销量冠军，单车成交均价已经超过了53万元。
+预估中值为46亿港元。
 
-她特别提到，超过80%的用户都来自BBA、保时捷、路虎等传统豪华品牌。
+核心收入增长22%，至77亿港元。
 
-“用户用真金白银认可了极氪的技术实力。
+香港交易所行政总裁陈翊庭表示，香港IPO市场维持强劲动能，IPO规模继续保持全球领先，一批高质量企业排队上市，继续凸显香港作为创新及成长型企业重要融资平台的角色。
 
-” 同时，她提到，极氪9X在海外市场也很受欢迎，甚至出现了客户主动加价提车的现象。
+香港股市今年1月IPO融资额创下历史同期新高。
 
-这些用户也同样来自于BBA等奢牌，还有劳斯莱斯、宾利的一些用户。
+港交所第一季度股票日均成交额增长约14%。
 
-“他们本来就是对汽车领先技术的爱好者或者追逐者，9X可以给他们带来全新的产品体验和动力体验。
+香港交易所表示，目前有逾500家公司在排队上市。
 
 ## 相关推荐
 
-- 2026-06-30 05:27 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-30 05:23 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 05:23 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 05:30 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-30 05:30 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-30 05:28 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-30 05:23 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 05:15 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-30 05:15 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-30 05:29 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-30 05:18 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-30 05:29 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-30 05:19 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-30 05:12 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-30 05:25 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-30 05:22 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-30 05:24 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-30 05:33 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-30 05:41 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-30 05:34 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-30 05:42 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-30 05:28 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 05:44 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-30 05:31 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-30 05:19 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:13 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/5390785488.shtml)
-- 2026-06-30 05:33 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/622159904170.shtml)
-- 2026-06-30 05:22 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/6376763045.shtml)
-- 2026-06-30 05:12 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/634169672.shtml)
-- 2026-06-30 05:32 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/7321411388.shtml)
-- 2026-06-30 05:14 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/27644.shtml)
-- 2026-06-30 05:30 - [小娘惹](http://www.share.kurohicncr.top/Article/details/67655044242.shtml)
-- 2026-06-30 05:17 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/74451854.shtml)
-- 2026-06-30 05:34 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/5824545109.shtml)
-- 2026-06-30 05:39 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/6778665065.shtml)
-- 2026-06-30 05:42 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/013472.shtml)
-- 2026-06-30 05:20 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/92747714046.shtml)
-- 2026-06-30 05:29 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/78624.shtml)
-- 2026-06-30 05:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/97329.shtml)
-- 2026-06-30 05:28 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/56393800.shtml)
+- 2026-06-30 05:30 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/3810050828.shtml)
+- 2026-06-30 05:39 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/47509232.shtml)
+- 2026-06-30 05:44 - [内马尔中场休息积极鼓励队友](http://www.blog.kurohicncr.top/Article/details/849755326323.shtml)
+- 2026-06-30 05:30 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/95425.shtml)
+- 2026-06-30 05:36 - [刘念回应](http://www.share.kurohicncr.top/Article/details/2604117161.shtml)
+- 2026-06-30 05:46 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/94924124.shtml)
+- 2026-06-30 05:40 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/5354036834.shtml)
+- 2026-06-30 05:31 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/7312449484.shtml)
+- 2026-06-30 05:22 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/9937242.shtml)
+- 2026-06-30 05:18 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/47801.shtml)
+- 2026-06-30 05:41 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/91381.shtml)
+- 2026-06-30 05:33 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/0780680.shtml)
+- 2026-06-30 05:43 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/0908826140.shtml)
+- 2026-06-30 05:34 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/9298383.shtml)
+- 2026-06-30 05:19 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/647329973.shtml)

@@ -1,58 +1,59 @@
-# 江淮汽车李明：企业应聚焦自己的核心特长，有所为有所不为
+# 美国石油及天然气开采设备研发商FET推出新型LARS系统
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。安徽江淮汽车集团股份有限公司党委副书记、董事、总经理李明出席并演讲。 李明表示，汽车行业当前形势变化迅猛，特别是新技术革命带来的变化。全球汽车格局正在发生深刻变化。一方面，技术变革成为核心驱动
+美国石油及天然气开采设备研发商Forum Energy Technologies（FET）推出了其水下处理设备系列的最新解决方案——Model 6000（M6000）布放与回收系统（LARS）。 作为FET旗下Dynacon产品线的一部分，M6000为检测和轻型工作级ROV作业提供了一套紧凑的一体化解决方案。它集A型架、绞车和液压动力单元于一个撬装组件中，实现单点吊装，无需额外
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+美国石油及天然气开采设备研发商Forum Energy Technologies（FET）推出了其水下处理设备系列的最新解决方案——Model 6000（M6000）布放与回收系统（LARS）。
 
-安徽江淮汽车集团股份有限公司党委副书记、董事、总经理李明出席并演讲。
+作为FET旗下Dynacon产品线的一部分，M6000为检测和轻型工作级ROV作业提供了一套紧凑的一体化解决方案。
 
-李明表示，汽车行业当前形势变化迅猛，特别是新技术革命带来的变化。
+它集A型架、绞车和液压动力单元于一个撬装组件中，实现单点吊装，无需额外的电缆或软管连接，简化了动员和复员过程，减少了船舶界面时间和占用空间。
 
-全球汽车格局正在发生深刻变化。
+首套M6000系统已配备Perry Super Mohawk ROV，并于今年交付给一家美国客户，现已投入运营。
 
-一方面，技术变革成为核心驱动力，智能新能源汽车作为新一轮科技革命的重要载体，是变革进程中的主要体现，也是未来汽车产业的发展方向。
+该系统在FET位于德克萨斯州布莱恩的美国制造工厂制造并完成测试，客户可在制造过程中进行对接和见证。
 
-第二，国际汽车市场格局正在发生巨变，传统跨国车企面临中国品牌的挑战，他认为，在智能新能源领域，中国供应链的韧性和竞争力会更强。
+该系统专为与检测及小型工作级ROV（如FET的Comanche和Super Mohawk）配合部署而开发，在检验、维护和修理、电缆铺设以及管道或结构检测等方面提供卓越性能。
 
-第三，从国际区域市场表现来看，东南亚、南美等新兴市场将成为下一步新的增长点，且企业国际化更加依赖于区域布局的深度及本地化的适配能力。
+其应用领域广泛，涵盖风电场、大坝调查、预调查及轻型施工任务。
 
-第四，价值链和供应链的重心在转移，以前主要关注整车，现在整车的盈利能力受到很大挑战，产业价值链向上游的电池、芯片等核心技术平台，以及向下游的体验服务生态延伸，这一趋势正在进行中。
+主要特点包括具备摆动和摇晃功能的万向节对接头、紧凑的占地面积以及预接线、即插即用的电气集成。
 
 ## 相关推荐
 
-- 2026-06-30 05:22 - [日本 高位逼抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-30 05:16 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-30 05:36 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 05:25 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-30 05:20 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 05:17 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-30 05:33 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-30 05:12 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-30 05:27 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-30 05:25 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-30 05:36 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-30 05:36 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-30 05:19 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 05:37 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-30 05:22 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-30 05:39 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-30 05:35 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 05:39 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-30 05:46 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-30 05:36 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-30 05:47 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-30 05:26 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-30 05:46 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-30 05:32 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-30 05:23 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:35 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/98086165278.shtml)
-- 2026-06-30 05:21 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/361013.shtml)
-- 2026-06-30 05:40 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/5495892127.shtml)
-- 2026-06-30 05:20 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.minike.top/Article/details/542680.shtml)
-- 2026-06-30 05:16 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/3515392.shtml)
-- 2026-06-30 05:21 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/52035557.shtml)
-- 2026-06-30 05:12 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/390481.shtml)
-- 2026-06-30 05:41 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/4829831007.shtml)
-- 2026-06-30 05:23 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/4664641181.shtml)
-- 2026-06-30 05:15 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/75179.shtml)
-- 2026-06-30 05:16 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/685667158.shtml)
-- 2026-06-30 05:39 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/9413941.shtml)
-- 2026-06-30 05:15 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/7385747.shtml)
-- 2026-06-30 05:24 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/556743.shtml)
-- 2026-06-30 05:13 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/5501689.shtml)
+- 2026-06-30 05:41 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/6178131881.shtml)
+- 2026-06-30 05:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/30616576.shtml)
+- 2026-06-30 05:26 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/02770.shtml)
+- 2026-06-30 05:25 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/81058284.shtml)
+- 2026-06-30 05:33 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/51549.shtml)
+- 2026-06-30 05:26 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/5655265700.shtml)
+- 2026-06-30 05:29 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/65954756971.shtml)
+- 2026-06-30 05:38 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/430794.shtml)
+- 2026-06-30 05:21 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/46182492.shtml)
+- 2026-06-30 05:28 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/017294811.shtml)
+- 2026-06-30 05:25 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/54238.shtml)
+- 2026-06-30 05:25 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/8331110989.shtml)
+- 2026-06-30 05:47 - [《共患难》](http://www.share.kurohicncr.top/Article/details/6492128960.shtml)
+- 2026-06-30 05:34 - [恋与深空制作组回应近期争议](https://www.blog.minike.top/Article/details/008909359589.shtml)
+- 2026-06-30 05:28 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/794353329440.shtml)

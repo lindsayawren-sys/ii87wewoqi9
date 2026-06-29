@@ -1,56 +1,56 @@
-# CBA常规赛第37轮：广东队主场大胜吉林队
+# 小摩：招商银行维持“增持”评级 目标价62港元
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新社东莞4月10日电 (记者 张璐)2025-2026赛季中国男子篮球职业联赛(CBA)常规赛第37轮10日晚在东莞进行。广东东阳光队(简称“广东队”)坐镇主场以117:84大胜吉林长白山恩都里队(简称“吉林队”)。其中，广东队外援奎因狂砍29分。从历史交锋来看，两队此前共交手66次，广东队56胜10负。此前，两队在本赛季交手2次，广东队两战皆胜。本场比赛，两队均排出强阵对决
+摩根大通发布研报称，招商银行（03968）净利息收入复苏及财富管理强劲动能未能转化为强劲利润增长，且已较同业估值存在溢价。在管理层未有就增长前景或总回报作出明确承诺下，预计短期股价动能将保持乏力，可能跑输同业。该行维持“增持”评级，目标价62港元。 招商银行首季收入同比增长4%，纯利同比增长2%，收入较该行预期高出2%，纯利则低1%。收入增长受净利息收入增速加快至2023年首季
 
 ## 正文
 
-中新社东莞4月10日电 (记者 张璐)2025-2026赛季中国男子篮球职业联赛(CBA)常规赛第37轮10日晚在东莞进行。
+摩根大通发布研报称，招商银行（03968）净利息收入复苏及财富管理强劲动能未能转化为强劲利润增长，且已较同业估值存在溢价。
 
-广东东阳光队(简称“广东队”)坐镇主场以117:84大胜吉林长白山恩都里队(简称“吉林队”)。
+在管理层未有就增长前景或总回报作出明确承诺下，预计短期股价动能将保持乏力，可能跑输同业。
 
-其中，广东队外援奎因狂砍29分。
+该行维持“增持”评级，目标价62港元。
 
-从历史交锋来看，两队此前共交手66次，广东队56胜10负。
+招商银行首季收入同比增长4%，纯利同比增长2%，收入较该行预期高出2%，纯利则低1%。
 
-此前，两队在本赛季交手2次，广东队两战皆胜。
+收入增长受净利息收入增速加快至2023年首季以来最快水平，以及财富管理手续费强劲所带动。
 
-本场比赛，两队均排出强阵对决，展开激烈的攻防大战。
+零售客户资产管理规模（AUM）按季增长4.5%，其中非存款AUM按季增长5.4%，增速高于零售存款。
 
-比赛开始，广东队全场逼抢，杜润旺命中三分，奎因、麦考尔接连上篮得分，开局以10:2领先。
+惟非财富手续费同比收缩3%，拨备开支高于预期13%，抵销了收入增长。
 
-此后，吉林队加强进攻，威尔逊跳投得分，摩尔命中三分，一度将分差缩小至5分。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:14 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-30 05:21 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 05:14 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-30 05:32 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-30 05:21 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-30 05:22 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-30 05:12 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 05:14 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-30 05:38 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-30 05:14 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-30 05:21 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-30 05:31 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-30 05:47 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 05:35 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-30 05:24 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-30 05:44 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-30 05:38 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-30 05:37 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 05:35 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-30 05:40 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:16 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/336182142039.shtml)
-- 2026-06-30 05:24 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/810708525.shtml)
-- 2026-06-30 05:36 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/493812.shtml)
-- 2026-06-30 05:13 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/53531547057.shtml)
-- 2026-06-30 05:27 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/4153201.shtml)
-- 2026-06-30 05:29 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/5712535.shtml)
-- 2026-06-30 05:27 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/70955.shtml)
-- 2026-06-30 05:33 - [第一炉香](https://www.share.kurohicncr.top/Article/details/0838572.shtml)
-- 2026-06-30 05:12 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/76488064.shtml)
-- 2026-06-30 05:37 - [日本16强魔咒](http://www.blog.minike.top/Article/details/0020915534.shtml)
-- 2026-06-30 05:16 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/002240916.shtml)
-- 2026-06-30 05:37 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/35360.shtml)
-- 2026-06-30 05:35 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/65049116.shtml)
-- 2026-06-30 05:38 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/62814.shtml)
-- 2026-06-30 05:41 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/829053974.shtml)
+- 2026-06-30 05:20 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/454082838.shtml)
+- 2026-06-30 05:27 - [美股](http://www.blog.kurohicncr.top/Article/details/23811825755.shtml)
+- 2026-06-30 05:24 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/923939935.shtml)
+- 2026-06-30 05:33 - [点菜也要教吗](http://www.share.minike.top/Article/details/487406.shtml)
+- 2026-06-30 05:21 - [美股](https://www.blog.minike.top/Article/details/00008845007.shtml)
+- 2026-06-30 05:35 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/4630680.shtml)
+- 2026-06-30 05:29 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/008004162212.shtml)
+- 2026-06-30 05:31 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/8587952.shtml)
+- 2026-06-30 05:41 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/40257268158.shtml)
+- 2026-06-30 05:40 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/3840964.shtml)
+- 2026-06-30 05:28 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/8680821483.shtml)
+- 2026-06-30 05:46 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/10695520.shtml)
+- 2026-06-30 05:28 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.minike.top/Article/details/5844045.shtml)
+- 2026-06-30 05:34 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/9393172769.shtml)
+- 2026-06-30 05:40 - [刘念回应](https://www.share.minike.top/Article/details/300196914872.shtml)

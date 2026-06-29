@@ -1,57 +1,58 @@
-# 第一届光学与光子学前沿论坛在西安开幕
+# 叮咚买菜发布五一消费趋势：HPP食品热销，休闲卤味消费增长超40%
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新网西安4月12日电 (记者 阿琳娜)第一届光学与光子学前沿论坛11日在中国科学院西安光机所开幕，与会人员围绕光电探测与成像、超快光学与光子学、新型光电子材料与器件、智能光学应用等前沿领域，深入探讨最新研究成果，共话行业未来发展方向。 论坛以“聚焦前沿、交叉融合”为主题，设有“光电探测与成像”“超快光学与光子学”“新型光电子材料与器件”“智能光学与应用”四个专题分论坛以及“博
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新浪科技讯 4月29日下午消息，叮咚买菜发布五一生鲜消费趋势观察。数据显示，今年五一期间，出游消费与宅家消费“双场景”特征进一步强化，围绕露营、踏青的即食健康肉制品、休闲卤味，以及宅家一人食场景下的品类均呈现明显增长。 叮咚买菜表示，伴随气温渐升，HPP果汁健康消费趋势进一步凸显。五一期间，鲜榨西瓜汁、红富
 
 ## 正文
 
-中新网西安4月12日电 (记者 阿琳娜)第一届光学与光子学前沿论坛11日在中国科学院西安光机所开幕，与会人员围绕光电探测与成像、超快光学与光子学、新型光电子材料与器件、智能光学应用等前沿领域，深入探讨最新研究成果，共话行业未来发展方向。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-论坛以“聚焦前沿、交叉融合”为主题，设有“光电探测与成像”“超快光学与光子学”“新型光电子材料与器件”“智能光学与应用”四个专题分论坛以及“博硕专场”，汇聚了来自全国高校、科研院所及企业的200余位专家学者、产业界代表和青年学子。
+新浪科技讯 4月29日下午消息，叮咚买菜发布五一生鲜消费趋势观察。
 
-开幕式上举行了“中国科学院西安光机所前沿交叉中心”揭牌仪式。
+数据显示，今年五一期间，出游消费与宅家消费“双场景”特征进一步强化，围绕露营、踏青的即食健康肉制品、休闲卤味，以及宅家一人食场景下的品类均呈现明显增长。
 
-大会报告环节，多位行业领军专家分享了前沿研究成果。
+叮咚买菜表示，伴随气温渐升，HPP果汁健康消费趋势进一步凸显。
 
-西安光机所副所长(法定代表人)、陕西省光学学会理事长邵晓鹏表示，光学与光子学正推动信息、能源等多领域革命性突破，西安光机所扎根西部六十余年，始终立足国家战略需求，在瞬态光学等领域形成鲜明优势。
+五一期间，鲜榨西瓜汁、红富士苹果汁为代表的清爽无添加HPP饮品预计环比增长超20%。
 
-西安光机所前沿交叉中心的成立是响应国家交叉创新战略、助力高水平科技自立自强的重要举措，将聚焦人工智能与光学技术双向赋能，秉持“智能引领光学，交叉驱动创新”理念，打造从原理探索到工程应用的全链条创新高地，破解行业核心技术瓶颈。
+4月18日，绝味系列卤味上线叮咚买菜，这也是绝味产品首次在即时零售平台上架销售。
 
-超快光科学与技术全国重点实验室学术委员会会议、Ultrafast Science编委会会议、《光子学报》编委会会议及张贴报告交流等活动将同步举行。
+目前，绝味、周黑鸭、煌上煌、紫燕四大卤味品牌已全部在叮咚买菜上线。
 
-据悉，本届论坛由中国科学院西安光机所、西北工业大学、陕西省光学学会共同主办，西安光机所期刊与学术服务中心、超快光科学与技术全国重点实验室承办。
+叮咚买菜预计，五一假期期间卤味产品的整体销售环比节前一周将有超40%的增长。
 
 ## 相关推荐
 
-- 2026-06-30 05:15 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-30 05:26 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-30 05:35 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-30 05:31 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-30 05:26 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-30 05:41 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 05:19 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-30 05:30 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-30 05:39 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-30 05:17 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-30 05:40 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 05:27 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 05:19 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-30 05:42 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 05:45 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-30 05:20 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-30 05:42 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-30 05:41 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-30 05:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-30 05:43 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-30 05:18 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-30 05:46 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 05:44 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:16 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/252335.shtml)
-- 2026-06-30 05:32 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/39893978.shtml)
-- 2026-06-30 05:41 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/00730240.shtml)
-- 2026-06-30 05:41 - [人类...完蛋了...](http://www.share.kurohicncr.top/Article/details/15034.shtml)
-- 2026-06-30 05:30 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/87210739747.shtml)
-- 2026-06-30 05:15 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/421544.shtml)
-- 2026-06-30 05:12 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/3278420651.shtml)
-- 2026-06-30 05:25 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/100747.shtml)
-- 2026-06-30 05:34 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/839408962.shtml)
-- 2026-06-30 05:16 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/02689830.shtml)
-- 2026-06-30 05:19 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/3413944.shtml)
-- 2026-06-30 05:19 - [世界杯](https://www.blog.minike.top/Article/details/2972595136.shtml)
-- 2026-06-30 05:20 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/02185.shtml)
-- 2026-06-30 05:40 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/578835319586.shtml)
-- 2026-06-30 05:16 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/7407886606.shtml)
+- 2026-06-30 05:23 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/948728189519.shtml)
+- 2026-06-30 05:38 - [时光音乐会](https://www.blog.minike.top/Article/details/8908204689.shtml)
+- 2026-06-30 05:42 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/53276.shtml)
+- 2026-06-30 05:36 - [巴西2-1绝杀日本](http://www.share.minike.top/Article/details/75758469.shtml)
+- 2026-06-30 05:19 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/77057.shtml)
+- 2026-06-30 05:30 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/4224964649.shtml)
+- 2026-06-30 05:21 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/9984714.shtml)
+- 2026-06-30 05:47 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/600282039.shtml)
+- 2026-06-30 05:36 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/719184434.shtml)
+- 2026-06-30 05:27 - [巴西补时绝杀日本](https://www.share.minike.top/Article/details/46279712368.shtml)
+- 2026-06-30 05:33 - [起风了](http://www.blog.kurohicncr.top/Article/details/018046.shtml)
+- 2026-06-30 05:24 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/8658637222.shtml)
+- 2026-06-30 05:24 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/71579.shtml)
+- 2026-06-30 05:23 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/304485.shtml)
+- 2026-06-30 05:25 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/019125.shtml)

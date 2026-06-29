@@ -1,61 +1,60 @@
-# 走向制度化的春秋假，你期待吗？
+# 民生直通车丨一季度新增就业299万人 下一步稳就业有实招
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-【记者观察】 去年，国内多地大中小学施行春秋假制度，引发广泛关注。今年3月，春秋假因首次写入《政府工作报告》，再次引发公众热议。 今年的《政府工作报告》提出，支持有条件的地方推广中小学春秋假，落实职工带薪错峰休假制度。 目前，浙江已在全省推行中小学春秋假制度，安徽、湖北、湖南、江苏等多个省份也陆续布局试行中小学春秋假。春秋假并非中小学专属。北京信息科技大学今年继续放春假，校长郭
+新华社北京4月28日电 题：一季度新增就业299万人 下一步稳就业有实招 新华社记者张晓洁 就业是最基本的民生。今年一季度就业形势如何？下一步稳就业有哪些政策举措？4月28日举行的人力资源社会保障部例行新闻发布会上，有关负责人介绍就业情况。 人力资源社会保障部政策研究司司长崔鹏程介绍，1至3月，全国城镇新增就业299万人，城镇调查失业率平均值为5.3%，就业形势保持总体稳定。有
 
 ## 正文
 
-【记者观察】 去年，国内多地大中小学施行春秋假制度，引发广泛关注。
+新华社北京4月28日电 题：一季度新增就业299万人 下一步稳就业有实招 新华社记者张晓洁 就业是最基本的民生。
 
-今年3月，春秋假因首次写入《政府工作报告》，再次引发公众热议。
+今年一季度就业形势如何？
 
-今年的《政府工作报告》提出，支持有条件的地方推广中小学春秋假，落实职工带薪错峰休假制度。
+下一步稳就业有哪些政策举措？
 
-目前，浙江已在全省推行中小学春秋假制度，安徽、湖北、湖南、江苏等多个省份也陆续布局试行中小学春秋假。
+4月28日举行的人力资源社会保障部例行新闻发布会上，有关负责人介绍就业情况。
 
-春秋假并非中小学专属。
+人力资源社会保障部政策研究司司长崔鹏程介绍，1至3月，全国城镇新增就业299万人，城镇调查失业率平均值为5.3%，就业形势保持总体稳定。
 
-北京信息科技大学今年继续放春假，校长郭福在接受媒体采访时表示：“学生不管是参加研学，还是实习实践，或是看电影、读书，学校都支持。
+有关部门加大惠企利民政策落实力度，发放失业保险稳岗返还资金31亿元、一次性扩岗补助5亿元、技能提升补贴8亿元。
 
-” 此外，中国人民大学、北京联合大学、厦门大学嘉庚学院、四川西南航空职业学院等多所高校，近年来也以不同形式为学生设置春假，鼓励他们走出教室、亲近自然、丰富社会实践。
+开展春风行动暨就业援助季活动，累计举办招聘会5.9万场、发布岗位3600万个。
 
-从目前的趋势看，继暑假和寒假之后，春秋假正逐渐成为大中小学的又一假期安排。
+全力促进高质量充分就业，更多实招硬招即将推出。
 
 ## 相关推荐
 
-- 2026-06-30 05:24 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-30 05:41 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-30 05:34 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-30 05:25 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-30 05:18 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 05:34 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-30 05:24 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-30 05:30 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-30 05:15 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-30 05:26 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-30 05:22 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-30 05:30 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-30 05:34 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-30 05:16 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-30 05:31 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-30 05:47 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-30 05:38 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-30 05:42 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-30 05:30 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 05:34 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-30 05:34 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 05:22 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-30 05:18 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-30 05:27 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-30 05:29 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-30 05:38 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-30 05:31 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 05:35 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 05:30 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:19 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/391872.shtml)
-- 2026-06-30 05:37 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/652672790.shtml)
-- 2026-06-30 05:37 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/35792.shtml)
-- 2026-06-30 05:15 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.kurohicncr.top/Article/details/42550158.shtml)
-- 2026-06-30 05:22 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/77145321.shtml)
-- 2026-06-30 05:30 - [金牌调解](https://www.blog.minike.top/Article/details/710569493575.shtml)
-- 2026-06-30 05:21 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/01107710483.shtml)
-- 2026-06-30 05:30 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/47108.shtml)
-- 2026-06-30 05:16 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/6486042305.shtml)
-- 2026-06-30 05:19 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/7764596488.shtml)
-- 2026-06-30 05:28 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/480440.shtml)
-- 2026-06-30 05:18 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/25805.shtml)
-- 2026-06-30 05:24 - [周生如故](http://www.share.kurohicncr.top/Article/details/808370.shtml)
-- 2026-06-30 05:13 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/321275726.shtml)
-- 2026-06-30 05:23 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/9697876.shtml)
+- 2026-06-30 05:44 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/275959837544.shtml)
+- 2026-06-30 05:21 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/4430211.shtml)
+- 2026-06-30 05:47 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/6940742.shtml)
+- 2026-06-30 05:44 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/723193882.shtml)
+- 2026-06-30 05:21 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/847783.shtml)
+- 2026-06-30 05:44 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/79839042.shtml)
+- 2026-06-30 05:28 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/03029.shtml)
+- 2026-06-30 05:45 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/073533417231.shtml)
+- 2026-06-30 05:31 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/11715768.shtml)
+- 2026-06-30 05:39 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/5880030689.shtml)
+- 2026-06-30 05:42 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/31090555.shtml)
+- 2026-06-30 05:20 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/29574023.shtml)
+- 2026-06-30 05:19 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/637330.shtml)
+- 2026-06-30 05:41 - [巴西2-1绝杀日本](https://www.blog.kurohicncr.top/Article/details/54557310961.shtml)
+- 2026-06-30 05:39 - [张帅时隔四年再取温网正赛胜利](https://www.share.kurohicncr.top/Article/details/7548636772.shtml)

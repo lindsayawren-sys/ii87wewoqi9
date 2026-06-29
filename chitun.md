@@ -1,61 +1,59 @@
-# 透过“阿耳忒弥斯2号”看美国重返月球之变
+# 绍兴越国都城和汉六朝会稽郡遗址：揭开都城“CBD”面纱
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新社北京4月11日电(记者 马帅莎)美国东部时间10日晚，执行“阿耳忒弥斯2号”载人绕月飞行任务的“猎户座”飞船返回地球。这项计划与半个多世纪前的“阿波罗计划”相比，从目标制定到具体实施，都呈现显著不同。1961年至1972年，“阿波罗计划”共完成6次登月任务，12名宇航员踏上月球。 全国空间探测技术首席科学传播专家庞之浩受访时表示，“阿波罗计划”诞生于冷战时期，为了政治目的
+中新网绍兴4月29日电(林波)“国之大事，在祀与戎。”这句出自《左传》的古训，在浙江绍兴的考古成果中找到了鲜活佐证。 4月29日，“2025年度全国十大考古新发现”揭晓，绍兴越国都城和汉六朝会稽郡遗址入选。该系列发掘首次揭开了越国都城核心区的神秘面纱——包括高等级祭祀场所、王宫建筑基址以及越国城墙遗迹。 该遗址位于绍兴古城南部，由稽中遗址与塔山和畅坊遗址构成。2024年至202
 
 ## 正文
 
-中新社北京4月11日电(记者 马帅莎)美国东部时间10日晚，执行“阿耳忒弥斯2号”载人绕月飞行任务的“猎户座”飞船返回地球。
+中新网绍兴4月29日电(林波)“国之大事，在祀与戎。
 
-这项计划与半个多世纪前的“阿波罗计划”相比，从目标制定到具体实施，都呈现显著不同。
+”这句出自《左传》的古训，在浙江绍兴的考古成果中找到了鲜活佐证。
 
-1961年至1972年，“阿波罗计划”共完成6次登月任务，12名宇航员踏上月球。
+4月29日，“2025年度全国十大考古新发现”揭晓，绍兴越国都城和汉六朝会稽郡遗址入选。
 
-全国空间探测技术首席科学传播专家庞之浩受访时表示，“阿波罗计划”诞生于冷战时期，为了政治目的，旨在通过“插旗式”登月竞赛，展示美国的科技实力和制度优势。
+该系列发掘首次揭开了越国都城核心区的神秘面纱——包括高等级祭祀场所、王宫建筑基址以及越国城墙遗迹。
 
-“阿耳忒弥斯”计划的目标则更为长远和务实。
+该遗址位于绍兴古城南部，由稽中遗址与塔山和畅坊遗址构成。
 
-它并非简单的重复登月，而是以月球为“跳板”和“训练营”，致力于建立可持续的月球基地，为未来登陆火星乃至更远的深空探索做准备。
+2024年至2025年，经国家文物局批准，绍兴市文物考古研究所对两处遗址进行了系统发掘，取得重大突破。
 
-当前，月球探索的主体正从过去由美国主导的格局，演变为多国并行推进的态势，探索目标也在向月球驻留、开发迈进。
+“两处遗址的发掘使我们首次触摸到越国都城核心区和汉六朝会稽郡的文化面貌。
 
-庞之浩表示，新一轮探月热潮呈现出“多国协作、外包商业”的新格局，探月已不再是单一国家的“独角戏”。
+”绍兴市文物考古研究所所长李龙彬如是介绍。
 
 ## 相关推荐
 
-- 2026-06-30 05:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 05:25 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-30 05:28 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-30 05:31 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-30 05:15 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-30 05:31 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-30 05:34 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-30 05:33 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-30 05:12 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-30 05:36 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-30 05:14 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-30 05:40 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-30 05:31 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-30 05:35 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-30 05:12 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-30 05:37 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-30 05:47 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-30 05:18 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-30 05:40 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-30 05:42 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-30 05:20 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 05:26 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-30 05:38 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 05:35 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 05:41 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 05:27 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-30 05:41 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-30 05:24 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:36 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/38764707904.shtml)
-- 2026-06-30 05:34 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/12857.shtml)
-- 2026-06-30 05:25 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/4451519505.shtml)
-- 2026-06-30 05:17 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/6775729.shtml)
-- 2026-06-30 05:35 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/568188271.shtml)
-- 2026-06-30 05:21 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/1935565.shtml)
-- 2026-06-30 05:24 - [《共患难》](https://www.share.minike.top/Article/details/02124.shtml)
-- 2026-06-30 05:15 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.minike.top/Article/details/914904007.shtml)
-- 2026-06-30 05:31 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/437026.shtml)
-- 2026-06-30 05:23 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/17389800.shtml)
-- 2026-06-30 05:39 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/23989.shtml)
-- 2026-06-30 05:14 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/7288206161.shtml)
-- 2026-06-30 05:27 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/17967841949.shtml)
-- 2026-06-30 05:39 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/85278.shtml)
-- 2026-06-30 05:39 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/70978.shtml)
+- 2026-06-30 05:33 - [亚洲球队全部告别世界杯](http://www.share.kurohicncr.top/Article/details/08375.shtml)
+- 2026-06-30 05:21 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/0094434205.shtml)
+- 2026-06-30 05:35 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/947604.shtml)
+- 2026-06-30 05:45 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/73237721669.shtml)
+- 2026-06-30 05:32 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/17072992221.shtml)
+- 2026-06-30 05:35 - [金牌调解](https://www.blog.minike.top/Article/details/79761750216.shtml)
+- 2026-06-30 05:42 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/316658327534.shtml)
+- 2026-06-30 05:40 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/488650674.shtml)
+- 2026-06-30 05:19 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/997019042.shtml)
+- 2026-06-30 05:43 - [我们的少年时代2](https://www.blog.minike.top/Article/details/6001977.shtml)
+- 2026-06-30 05:18 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/94418014.shtml)
+- 2026-06-30 05:23 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/89311.shtml)
+- 2026-06-30 05:35 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/3157483.shtml)
+- 2026-06-30 05:27 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/58583.shtml)
+- 2026-06-30 05:22 - [刘念回应](https://www.share.minike.top/Article/details/048810786.shtml)

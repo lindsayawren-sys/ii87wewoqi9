@@ -1,59 +1,56 @@
-# 48小时，200颗大脑，一场跨越国界的“脑力马拉松”
+# 为全球气候治理写下中国时尚答案 《可持续时尚系统研究》丛书在沪首发
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新网上海4月10日电 题：48小时，200颗大脑，一场跨越国界的“脑力马拉松” 作者 李姝徵 狄权 没有熬夜后的萎靡，没有趴在桌上补觉的人，甚至看不到一杯冷掉的咖啡。4月10日，在上海张江科学会堂，200名刚刚经历48小时极限开发的科创者，此刻正精神抖擞地站在各自的展位前。 “来这边看一下！我们做了一个更懂你且不会失忆的学习搭子。”“你拍张照片，我们能模拟你剪完头发的样子。”
+中新网上海4月28日电 (王宇 许婧)4月28日，在上海气候周“以终为始，可持续时尚答未来”主题论坛现场，由东华大学出版社出版的《可持续时尚系统研究》丛书正式亮相。 这套凝聚十余年行业积淀与跨学科智慧的丛书，旨在破解全球可持续时尚领域的理论困境，为中国乃至世界纺织服装行业低碳转型提供系统知识支撑与行动指南。 作为全球最大纺织服装生产国与消费市场，中国一直面临可持续时尚领域“定义
 
 ## 正文
 
-中新网上海4月10日电 题：48小时，200颗大脑，一场跨越国界的“脑力马拉松” 作者 李姝徵 狄权 没有熬夜后的萎靡，没有趴在桌上补觉的人，甚至看不到一杯冷掉的咖啡。
+中新网上海4月28日电 (王宇 许婧)4月28日，在上海气候周“以终为始，可持续时尚答未来”主题论坛现场，由东华大学出版社出版的《可持续时尚系统研究》丛书正式亮相。
 
-4月10日，在上海张江科学会堂，200名刚刚经历48小时极限开发的科创者，此刻正精神抖擞地站在各自的展位前。
+这套凝聚十余年行业积淀与跨学科智慧的丛书，旨在破解全球可持续时尚领域的理论困境，为中国乃至世界纺织服装行业低碳转型提供系统知识支撑与行动指南。
 
-“来这边看一下！
+作为全球最大纺织服装生产国与消费市场，中国一直面临可持续时尚领域“定义模糊、理论碎片化、框架不统一”的行业痛点。
 
-我们做了一个更懂你且不会失忆的学习搭子。
+概念繁杂、实践零散等问题，让不少企业在绿色转型路上步履维艰，迫切需要一套立足本土、贯通全产业链的知识体系。
 
-”“你拍张照片，我们能模拟你剪完头发的样子。
+“这套丛书以四卷内容构筑起严密完整的理论闭环，沿着时尚产业全生命周期逻辑展开系统建构，将可持续理念深度融入品牌战略、设计思维、供应链管理与材料创新四大核心维度。
 
-”“要不要试试给人形机器人设计一个超萌面容？
+”该书主编、东华大学上海国际时尚创意学院院长李峻介绍。
 
-”他们眼睛发亮，语速飞快，争先恐后地招呼着每一个路过的评委和观众。
+该丛书为“十四五”国家重点出版物出版规划项目，立足环境、社会、经济三重价值底线，构建了兼具理论高度与产业实操性的完整知识框架。
 
-一个展位挨着一个展位，像极了创意集市。
+与海外单一视角研究不同，这套丛书深度扎根中国产业实践，收录了鄂尔多斯可持续草原管理、安踏跑鞋全生命周期碳评价、素然“羊毛再织计划”等多个鲜活案例，将实践经验转化为可复制、可推广的路径方法，用真实场景清晰解读可持续时尚的实施路径与价值所在。
 
 ## 相关推荐
 
-- 2026-06-30 05:40 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-30 05:29 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-30 05:14 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-30 05:31 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-30 05:33 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-30 05:13 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-30 05:15 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-30 05:24 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-30 05:36 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-30 05:40 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-30 05:22 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-30 05:17 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-30 05:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 05:47 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-30 05:35 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 05:23 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-30 05:47 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-30 05:31 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 05:21 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-30 05:27 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-30 05:18 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-30 05:30 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-30 05:32 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:22 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/04875630067.shtml)
-- 2026-06-30 05:23 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/784764592650.shtml)
-- 2026-06-30 05:35 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/219782377.shtml)
-- 2026-06-30 05:26 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/01081.shtml)
-- 2026-06-30 05:38 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/88503187027.shtml)
-- 2026-06-30 05:27 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/0804063099.shtml)
-- 2026-06-30 05:26 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/122292536980.shtml)
-- 2026-06-30 05:15 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/0313018.shtml)
-- 2026-06-30 05:20 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/183407.shtml)
-- 2026-06-30 05:14 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/941246.shtml)
-- 2026-06-30 05:13 - [第一炉香](https://www.blog.minike.top/Article/details/1670555.shtml)
-- 2026-06-30 05:21 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/0552095.shtml)
-- 2026-06-30 05:38 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/26595633040.shtml)
-- 2026-06-30 05:40 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/63930439.shtml)
-- 2026-06-30 05:18 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/10810952.shtml)
+- 2026-06-30 05:44 - [千香](https://www.blog.minike.top/Article/details/032301777803.shtml)
+- 2026-06-30 05:31 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/237483434704.shtml)
+- 2026-06-30 05:25 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/98965963.shtml)
+- 2026-06-30 05:47 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/59665417.shtml)
+- 2026-06-30 05:34 - [世界杯](https://www.share.kurohicncr.top/Article/details/246472320.shtml)
+- 2026-06-30 05:22 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/75521088.shtml)
+- 2026-06-30 05:45 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/458348136.shtml)
+- 2026-06-30 05:40 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/699355424.shtml)
+- 2026-06-30 05:27 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/06087107.shtml)
+- 2026-06-30 05:36 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/145601808407.shtml)
+- 2026-06-30 05:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/8641937.shtml)
+- 2026-06-30 05:38 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.kurohicncr.top/Article/details/808033034.shtml)
+- 2026-06-30 05:42 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/5478145568.shtml)
+- 2026-06-30 05:19 - [恋与深空制作组回应近期争议](https://www.blog.minike.top/Article/details/956994005196.shtml)
+- 2026-06-30 05:38 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/440687.shtml)

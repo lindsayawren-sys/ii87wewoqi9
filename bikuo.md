@@ -1,61 +1,57 @@
-# 新疆焉耆垦区22万亩辣椒机械化移栽全面展开
+# 马斯克谈AI双重性：既可能带来繁荣，也可能毁灭人类
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-专家解析中国“保持制造业合理比重”背后深意从一场高规格座谈会看中国经济工作新动向手抖=衰老？这些信号，早发现能救命！美伊今日开始谈判：谁来谈？谈什么？谈崩了怎么办？中美“乒乓外交”在当下有何特殊意义？“脆弱的停火”增添变数 多国政要谴责以色列袭击黎巴嫩打造“智能经济新形态” 中国物流驶入智慧“快车道”美伊“临时停火”的现实困境与未来前景花粉过敏为何越来越普遍？致敏树种能否一砍了
+特斯拉和SpaceX首席执行官埃隆·马斯克周三在一次广泛的采访中警告称，人工智能是一把双刃剑，既有潜力带来前所未有的繁荣，也存在着可能导致人类毁灭的严重威胁。 AI的双重未来：乌托邦或终结者 马斯克在采访中再次引用了他偏爱的科幻比喻：“我们不想要‘终结者’式的结局。我们想要一个像《星际迷航》中吉恩·罗登贝里构想的那样未来。”他将《终结者》描绘的AI失控、机器人毁灭人类的末日景象
 
 ## 正文
 
-专家解析中国“保持制造业合理比重”背后深意从一场高规格座谈会看中国经济工作新动向手抖=衰老？
+特斯拉和SpaceX首席执行官埃隆·马斯克周三在一次广泛的采访中警告称，人工智能是一把双刃剑，既有潜力带来前所未有的繁荣，也存在着可能导致人类毁灭的严重威胁。
 
-这些信号，早发现能救命！
+AI的双重未来：乌托邦或终结者 马斯克在采访中再次引用了他偏爱的科幻比喻：“我们不想要‘终结者’式的结局。
 
-美伊今日开始谈判：谁来谈？
+我们想要一个像《星际迷航》中吉恩·罗登贝里构想的那样未来。
 
-谈什么？
+”他将《终结者》描绘的AI失控、机器人毁灭人类的末日景象，与《星际迷航》中科技服务人类、探索宇宙的乌托邦对立起来。
 
-谈崩了怎么办？
+就在上周，马斯克在针对OpenAI的诉讼案中出庭作证时，也发出了同样的警告。
 
-中美“乒乓外交”在当下有何特殊意义？
+他在法庭上表示，他对AI“极度担忧”，这项技术可以让人人都变得繁荣，但也可能导致“终结者”式的结局，这促使他当初投身于致力于开发“安全”和“开放”AI系统的非营利组织。
 
-“脆弱的停火”增添变数 多国政要谴责以色列袭击黎巴嫩打造“智能经济新形态” 中国物流驶入智慧“快车道”美伊“临时停火”的现实困境与未来前景花粉过敏为何越来越普遍？
+从“无限财富漏洞”到社会动荡 尽管长期前景乐观，马斯克对过渡期却持清醒态度。
 
-致敏树种能否一砍了之？
+他预测过渡期会非常动荡，人类将同时经历剧烈的变革、社会动荡和巨大的繁荣。
 
 ## 相关推荐
 
-- 2026-06-30 05:17 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-30 05:14 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-30 05:39 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-30 05:32 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-30 05:26 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-30 05:32 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-30 05:18 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-30 05:19 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-30 05:33 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-30 05:38 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-30 05:12 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-30 05:21 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-30 05:22 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-30 05:18 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-30 05:18 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 05:41 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 05:26 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 05:32 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-30 05:45 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-30 05:29 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-30 05:25 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 05:33 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-30 05:38 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-30 05:42 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 05:41 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-30 05:20 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:15 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/6225129436.shtml)
-- 2026-06-30 05:22 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.kurohicncr.top/Article/details/09356002.shtml)
-- 2026-06-30 05:31 - [天道](http://www.share.minike.top/Article/details/58730988111.shtml)
-- 2026-06-30 05:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/874488590657.shtml)
-- 2026-06-30 05:18 - [我们的少年时代2](https://www.share.minike.top/Article/details/805090708989.shtml)
-- 2026-06-30 05:36 - [巴拉圭先进球了](http://www.blog.minike.top/Article/details/282872780407.shtml)
-- 2026-06-30 05:17 - [世界杯](https://www.share.kurohicncr.top/Article/details/023859.shtml)
-- 2026-06-30 05:15 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/610282020261.shtml)
-- 2026-06-30 05:35 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/97804997.shtml)
-- 2026-06-30 05:37 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/545050533782.shtml)
-- 2026-06-30 05:14 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/3516469727.shtml)
-- 2026-06-30 05:34 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/6863382647.shtml)
-- 2026-06-30 05:17 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/34357772919.shtml)
-- 2026-06-30 05:34 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/2071396060.shtml)
-- 2026-06-30 05:41 - [日本16强魔咒](http://www.share.minike.top/Article/details/0043475.shtml)
+- 2026-06-30 05:44 - [天道](http://www.share.kurohicncr.top/Article/details/897959093510.shtml)
+- 2026-06-30 05:40 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/76832094117.shtml)
+- 2026-06-30 05:27 - [千香](http://www.blog.minike.top/Article/details/825794245.shtml)
+- 2026-06-30 05:33 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/0572893426.shtml)
+- 2026-06-30 05:32 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/229595676576.shtml)
+- 2026-06-30 05:23 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/46150.shtml)
+- 2026-06-30 05:40 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/3895837030.shtml)
+- 2026-06-30 05:28 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/92345308.shtml)
+- 2026-06-30 05:47 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/5808716.shtml)
+- 2026-06-30 05:18 - [时光音乐会](https://www.share.minike.top/Article/details/118631.shtml)
+- 2026-06-30 05:31 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/94650.shtml)
+- 2026-06-30 05:38 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.minike.top/Article/details/4467696615.shtml)
+- 2026-06-30 05:23 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/040146.shtml)
+- 2026-06-30 05:47 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/503127533596.shtml)
+- 2026-06-30 05:40 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/2182579.shtml)

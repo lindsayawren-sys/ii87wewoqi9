@@ -1,56 +1,60 @@
-# 新疆博物馆：让文物讲好中华民族共同体故事
+# 浙江通报5起违反中央八项规定精神问题
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月12日 15:26 来源：中国新闻网 近日，走进位于乌鲁木齐市的新疆维吾尔自治区博物馆，游客们在各类文创前挑选文创产品。2022年起，新疆博物馆启动“文创代替文物走出去”计划，到目前为止，已经研发了12个系列，1500多个品类的文创产品，包括帆布袋、围巾、瓷器等。 为讲好铸牢中华民族共同体意识故事，新疆博物馆还在展厅设计上不断创新，让文物“开口说话”。
+中新网4月29日电 据中央纪委国家监委网站消息，“五一”、端午将至，为进一步严明纪律规矩、强化警示教育，持续加固中央八项规定堤坝，坚决防止“四风”问题反弹回潮，浙江省纪委监委现将近期查处的5起违反中央八项规定精神典型问题通报如下。1.杭州市滨江区档案馆原负责人张烨接受可能影响公正执行公务的旅游和娱乐活动安排问题。2017年至2025年，张烨多次接受管理服务对象某公司法定代表人董
 
 ## 正文
 
-发布时间：2026年04月12日 15:26 来源：中国新闻网 近日，走进位于乌鲁木齐市的新疆维吾尔自治区博物馆，游客们在各类文创前挑选文创产品。
+中新网4月29日电 据中央纪委国家监委网站消息，“五一”、端午将至，为进一步严明纪律规矩、强化警示教育，持续加固中央八项规定堤坝，坚决防止“四风”问题反弹回潮，浙江省纪委监委现将近期查处的5起违反中央八项规定精神典型问题通报如下。
 
-2022年起，新疆博物馆启动“文创代替文物走出去”计划，到目前为止，已经研发了12个系列，1500多个品类的文创产品，包括帆布袋、围巾、瓷器等。
+1.杭州市滨江区档案馆原负责人张烨接受可能影响公正执行公务的旅游和娱乐活动安排问题。
 
-为讲好铸牢中华民族共同体意识故事，新疆博物馆还在展厅设计上不断创新，让文物“开口说话”。
+2017年至2025年，张烨多次接受管理服务对象某公司法定代表人董某等人安排的旅游和娱乐活动，相关费用由对方支付。
 
-2025年9月，新疆博物馆推出“国家治理新疆地区历史文物展”，以政治、经济、文化方面的文物，展现历代中央政权对新疆治理的史实。
+张烨还存在其他严重违纪违法问题，2025年12月被开除党籍、取消退休待遇，涉嫌犯罪问题被移送检察机关依法审查起诉。
 
-新疆博物馆还给馆藏文物“五星出东方利中国”锦护臂设置了单独展厅。
+2.宁海县西店镇原党委委员邬静东接受可能影响公正执行公务的宴请、违规收受礼品问题。
 
-此外，新疆博物馆在多年前就推出了“流动博物馆”项目，常年让新疆各地的学生、民众近距离接触展厅中的文物，从最初的流动车载大型展板进校园、进社区，到后来的PPT课件，再到去年引入的全息MR和3D文物建模技术，直接将展厅与学校内部的一些网络平台连线直播，让全疆各地学生“走进”展厅。
+2018年至2025年，邬静东违规接受管理服务对象叶某某安排的宴请，相关费用由对方支付；多次收受管理服务对象某公司法定代表人孙某某等人所送高档香烟。
 
-(左丹丹 新疆乌鲁木齐市报道） 责任编辑：【卢岩】
+邬静东还存在其他严重违纪违法问题，2026年2月被开除党籍、开除公职，涉嫌犯罪问题被移送检察机关依法审查起诉。
+
+3.苍南县城市建设中心原党组书记、主任王岳东违规收受礼品、违规借用车辆问题。
 
 ## 相关推荐
 
-- 2026-06-30 05:14 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-30 05:16 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-30 05:23 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-30 05:37 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-30 05:30 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-30 05:35 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-30 05:27 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-30 05:35 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 05:33 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 05:25 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 05:37 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-30 05:20 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-30 05:37 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-30 05:38 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-30 05:44 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 05:34 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 05:43 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-30 05:39 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-30 05:44 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-30 05:25 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-30 05:45 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-30 05:47 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-30 05:18 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 05:24 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-30 05:29 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-30 05:29 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:32 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/636785.shtml)
-- 2026-06-30 05:35 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/39191.shtml)
-- 2026-06-30 05:18 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/061796200097.shtml)
-- 2026-06-30 05:34 - [巴西醒醒 这是淘汰赛](http://www.share.minike.top/Article/details/86051050561.shtml)
-- 2026-06-30 05:13 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/763835.shtml)
-- 2026-06-30 05:14 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/32824431399.shtml)
-- 2026-06-30 05:25 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/949187.shtml)
-- 2026-06-30 05:26 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/3991219653.shtml)
-- 2026-06-30 05:38 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/925845975150.shtml)
-- 2026-06-30 05:26 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/7840142723.shtml)
-- 2026-06-30 05:32 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/42559070956.shtml)
-- 2026-06-30 05:31 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/724662792.shtml)
-- 2026-06-30 05:12 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/185372.shtml)
-- 2026-06-30 05:41 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.minike.top/Article/details/88852052742.shtml)
-- 2026-06-30 05:38 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/341447045612.shtml)
+- 2026-06-30 05:30 - [人类...完蛋了...](http://www.blog.kurohicncr.top/Article/details/43596911329.shtml)
+- 2026-06-30 05:23 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/44882369.shtml)
+- 2026-06-30 05:36 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/0847096.shtml)
+- 2026-06-30 05:19 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/445012.shtml)
+- 2026-06-30 05:44 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/3407402648.shtml)
+- 2026-06-30 05:33 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/17086118922.shtml)
+- 2026-06-30 05:21 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/0695422.shtml)
+- 2026-06-30 05:29 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/76443.shtml)
+- 2026-06-30 05:43 - [刘必安等16人非法集资案二审宣判](https://www.share.minike.top/Article/details/158660330.shtml)
+- 2026-06-30 05:45 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/26797014091.shtml)
+- 2026-06-30 05:34 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/38652.shtml)
+- 2026-06-30 05:34 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/4172305802.shtml)
+- 2026-06-30 05:18 - [模仿老妈打牌赢了和输了的区别！](https://www.share.kurohicncr.top/Article/details/19397.shtml)
+- 2026-06-30 05:35 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/08802.shtml)
+- 2026-06-30 05:21 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/053504205.shtml)

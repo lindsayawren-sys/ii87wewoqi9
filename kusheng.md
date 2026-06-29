@@ -1,53 +1,59 @@
-# 美国副总统万斯启程前去谈判之际警告伊朗不要“耍我们”
+# 万商齐聚三峡库区 重庆万州发布近千亿机会清单
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-美国副总统万斯周五表示，他期待与伊朗进行积极谈判，在启程前往巴基斯坦举行会谈之际，他警告德黑兰方面不要“耍我们”。 万斯在离开华盛顿前对记者表示：“我们期待此次谈判，我认为会谈将取得积极成果。” 万斯称：“正如美国总统所言，如果伊朗方面愿意本着诚意进行谈判，我们当然愿意伸出友好之手。如果他们试图耍弄我们，那么他们会发现谈判团队并不会对此买账。”责任编辑：李肇孚
+中新网重庆4月29日电 (马佳欣)28日至29日，2026年万商大会在重庆万州举行。大会期间，万州面向全国客商集中发布重点产业与场景资源机会清单，推出87个产业项目、总投资额958.2亿元，21个房地产项目及70项应用场景，广邀各界客商投资兴业，共享合作发展新机遇。 万州地处三峡库区腹心，是长江经济带与西部陆海新通道重要交汇节点城市。当地已建成渝万高铁、郑万高铁，未来3年将有5
 
 ## 正文
 
-美国副总统万斯周五表示，他期待与伊朗进行积极谈判，在启程前往巴基斯坦举行会谈之际，他警告德黑兰方面不要“耍我们”。
+中新网重庆4月29日电 (马佳欣)28日至29日，2026年万商大会在重庆万州举行。
 
-万斯在离开华盛顿前对记者表示：“我们期待此次谈判，我认为会谈将取得积极成果。
+大会期间，万州面向全国客商集中发布重点产业与场景资源机会清单，推出87个产业项目、总投资额958.2亿元，21个房地产项目及70项应用场景，广邀各界客商投资兴业，共享合作发展新机遇。
 
-” 万斯称：“正如美国总统所言，如果伊朗方面愿意本着诚意进行谈判，我们当然愿意伸出友好之手。
+万州地处三峡库区腹心，是长江经济带与西部陆海新通道重要交汇节点城市。
 
-如果他们试图耍弄我们，那么他们会发现谈判团队并不会对此买账。
+当地已建成渝万高铁、郑万高铁，未来3年将有5条高铁汇聚，形成“一环五射”高速路网，是重庆市唯一同时拥有航空、水运“双口岸”的区县，水路货运量、港口吞吐量均居全市第一。
 
-”责任编辑：李肇孚
+万州经开区党工委副书记、管委会主任封波表示，万州常住人口157万人，辐射周边2500万人口，拥有8所高等院校、19所科研机构，各类中高级人才近4万人，人才与用工支撑有力。
+
+当地以国家级万州经开区为主战场，重点发展先进材料、医药化工、智能装备及智能制造三大主导产业，先进材料产业规模达400亿级，智能装备及智能制造、新型能源产业均突破100亿级。
+
+2025年，万州区规上工业产值完成788.7亿元，增速位列全市第2。
+
+封波称，万州资源要素配套完善，可开发风光资源近1500兆瓦，常年可供蒸汽1000余万吨，新田临港经济区已形成粮油仓储与加工一体化产业链。
 
 ## 相关推荐
 
-- 2026-06-30 05:23 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-30 05:16 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-30 05:17 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-30 05:32 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-30 05:20 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-30 05:33 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-30 05:29 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-30 05:20 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-30 05:36 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 05:39 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-30 05:41 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-30 05:13 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-30 05:22 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-30 05:41 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-30 05:36 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-30 05:35 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-30 05:28 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 05:44 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-30 05:44 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 05:28 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-30 05:41 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-30 05:18 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-30 05:32 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 05:44 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-30 05:36 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-30 05:31 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:24 - [卡塞米罗头球破门](https://www.blog.kurohicncr.top/Article/details/48224841675.shtml)
-- 2026-06-30 05:33 - [一见倾心](https://www.share.kurohicncr.top/Article/details/57658421473.shtml)
-- 2026-06-30 05:17 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/402812996650.shtml)
-- 2026-06-30 05:35 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/2621702456.shtml)
-- 2026-06-30 05:22 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/7133901.shtml)
-- 2026-06-30 05:35 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/530458887867.shtml)
-- 2026-06-30 05:21 - [日本淘汰](http://www.share.kurohicncr.top/Article/details/817135880447.shtml)
-- 2026-06-30 05:40 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/018118184.shtml)
-- 2026-06-30 05:14 - [王楚钦谈表演球](http://www.share.kurohicncr.top/Article/details/37699.shtml)
-- 2026-06-30 05:12 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/87319579307.shtml)
-- 2026-06-30 05:28 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/41446648623.shtml)
-- 2026-06-30 05:13 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/016980897976.shtml)
-- 2026-06-30 05:17 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/701309071.shtml)
-- 2026-06-30 05:19 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/87357.shtml)
-- 2026-06-30 05:34 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/80177397016.shtml)
+- 2026-06-30 05:43 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/085180.shtml)
+- 2026-06-30 05:35 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/178451470394.shtml)
+- 2026-06-30 05:21 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/529579288089.shtml)
+- 2026-06-30 05:18 - [世界杯：德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/9638038.shtml)
+- 2026-06-30 05:26 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/3607282.shtml)
+- 2026-06-30 05:47 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/9215263.shtml)
+- 2026-06-30 05:20 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/2596645881.shtml)
+- 2026-06-30 05:38 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/2861227263.shtml)
+- 2026-06-30 05:41 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.kurohicncr.top/Article/details/63204910.shtml)
+- 2026-06-30 05:40 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/27382.shtml)
+- 2026-06-30 05:46 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/96848134.shtml)
+- 2026-06-30 05:25 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/889187208248.shtml)
+- 2026-06-30 05:19 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/8570071.shtml)
+- 2026-06-30 05:23 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/476305817.shtml)
+- 2026-06-30 05:20 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/322116.shtml)

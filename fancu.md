@@ -1,57 +1,59 @@
-# 股海导航_2026年4月13日_沪深股市公告与交易提示
+# 吴征铠院士铜像在复旦大学揭幕
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-专题：交易提示 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！【停牌】 600082 海泰发展（维权） 300385 雪浪环境 002647 *ST仁东 【复牌】 000959 首钢股份 601020 华钰矿业 【品大事】 二连板中恒电气：控股股东与宁德时代战略合作尚存在不确定性 二连板中恒电气披露股票交易异常波动公告称，公司近日收到控股股东中恒科技投
+中新网上海4月28日电 在复旦大学化学系创建百年之际，吴征铠院士铜像揭幕仪式日前在复旦大学江湾校区举行。 吴征铠(1913年8月—2007年6月)，江苏扬州人。中国科学院院士，著名物理化学家、放射化学家、化学教育家，我国铀扩散浓缩事业、放射化学、分子光谱学的奠基者之一。1952年任复旦大学化学系主任，此后负责筹建复旦大学原子能系。 复旦大学党委书记裘新在揭幕仪式上表示，吴征铠先
 
 ## 正文
 
-专题：交易提示 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网上海4月28日电 在复旦大学化学系创建百年之际，吴征铠院士铜像揭幕仪式日前在复旦大学江湾校区举行。
 
-【停牌】 600082 海泰发展（维权） 300385 雪浪环境 002647 *ST仁东 【复牌】 000959 首钢股份 601020 华钰矿业 【品大事】 二连板中恒电气：控股股东与宁德时代战略合作尚存在不确定性 二连板中恒电气披露股票交易异常波动公告称，公司近日收到控股股东中恒科技投资通知，中恒科技投资及其股东朱国锭、包晓茹与宁德时代于4月8日签署《战略投资合作框架协议》，就宁德时代拟与公司开展战略业务合作并以增资方式向中恒科技投资进行投资等事宜达成框架性约定。
+吴征铠(1913年8月—2007年6月)，江苏扬州人。
 
-本次交易系控股股东中恒科技投资的股权结构发生变动，不会导致公司的控股股东及实际控制人发生变化。
+中国科学院院士，著名物理化学家、放射化学家、化学教育家，我国铀扩散浓缩事业、放射化学、分子光谱学的奠基者之一。
 
-中恒科技投资与宁德时代达成的《战略投资合作框架协议》属于框架性协议安排，正式的交易协议尚待签署。
+1952年任复旦大学化学系主任，此后负责筹建复旦大学原子能系。
 
-本次战略合作的具体安排及实施尚存在不确定性。
+复旦大学党委书记裘新在揭幕仪式上表示，吴征铠先生治学严谨、求索不息，勇攀高峰、为国铸盾，立德树人、甘为人梯，其为人、为学、为师所体现出的品格、襟怀与风范，正是120多年来复旦光荣爱国传统与优良校风的生动写照。
 
-长药退：公司股票将在4月13日被摘牌 长药退公告，公司股票已被深交所决定终止上市，公司股票于3月20日进入退市整理期，在退市整理期交易15个交易日，最后交易日期为4月10日，将在4月13日被摘牌。
+我们要以吴征铠先生为榜样，继续做强化学等优势基础学科，促进不同学科之间的交叉融合与创新突破，以更多首创引领成果支撑高水平科技自立自强，努力创造出无愧于时代、无愧于祖国、无愧于先贤的崭新业绩。
 
-海思科：与AbbVie签署Nav1.8抑制剂授权许可协议 海思科公告，公司与美国AbbVie Group Holdings Ltd．（简称“AbbVie”）签署Nav1.8抑制剂授权许可协议。
+南京雕塑研究会秘书长田云龙介绍，这尊铜像以半身像形制、写实手法，精准还原了吴征铠先生温润儒雅的学者风范。
 
-作为对外许可交易对价一部分，公司将从AbbVie获得Nav1.8项目授权许可费（3000万美元的首付款及最高7.15亿美元的额外里程碑付款）。
+创作过程中，他精雕细琢面部肌理、眉骨与眼角的每一道皱纹，既镌刻着先生主持复旦化学系、筹建原子能系的呕心沥血，也凝聚着他隐姓埋名、攻坚铀同位素分离技术的执着坚守与坚毅担当。
 
 ## 相关推荐
 
-- 2026-06-30 05:16 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-30 05:17 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-30 05:39 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-30 05:14 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-30 05:22 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-30 05:29 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-30 05:41 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-30 05:33 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-30 05:18 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-30 05:31 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-30 05:36 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-30 05:28 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-30 05:40 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-30 05:30 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-30 05:36 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-30 05:19 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 05:27 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-30 05:20 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-30 05:34 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-30 05:38 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-30 05:35 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-30 05:42 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-30 05:18 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-30 05:45 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:33 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/5234088.shtml)
-- 2026-06-30 05:40 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/1349040.shtml)
-- 2026-06-30 05:22 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/43862631669.shtml)
-- 2026-06-30 05:22 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/273994244394.shtml)
-- 2026-06-30 05:40 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/47068.shtml)
-- 2026-06-30 05:29 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/138144425.shtml)
-- 2026-06-30 05:35 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/05090.shtml)
-- 2026-06-30 05:31 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/072491102934.shtml)
-- 2026-06-30 05:25 - [DeepSeek V4正式版要来了](https://www.blog.minike.top/Article/details/358866.shtml)
-- 2026-06-30 05:30 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/46131339813.shtml)
-- 2026-06-30 05:30 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/3185702862.shtml)
-- 2026-06-30 05:19 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/567515024.shtml)
-- 2026-06-30 05:32 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/545724413556.shtml)
-- 2026-06-30 05:34 - [张帅时隔四年再取温网正赛胜利](https://www.share.kurohicncr.top/Article/details/8982926791.shtml)
-- 2026-06-30 05:24 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/62638733.shtml)
+- 2026-06-30 05:20 - [急先锋](http://www.blog.kurohicncr.top/Article/details/9837222593.shtml)
+- 2026-06-30 05:39 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/83217.shtml)
+- 2026-06-30 05:43 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/3719809.shtml)
+- 2026-06-30 05:35 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/071684416.shtml)
+- 2026-06-30 05:47 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/44812.shtml)
+- 2026-06-30 05:34 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/003252959.shtml)
+- 2026-06-30 05:21 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/1208630.shtml)
+- 2026-06-30 05:32 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/32390854.shtml)
+- 2026-06-30 05:29 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/798868.shtml)
+- 2026-06-30 05:24 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/7442478804.shtml)
+- 2026-06-30 05:39 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/06003450.shtml)
+- 2026-06-30 05:24 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/8203014307.shtml)
+- 2026-06-30 05:39 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/694083055.shtml)
+- 2026-06-30 05:42 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/43482149780.shtml)
+- 2026-06-30 05:34 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/981767656.shtml)

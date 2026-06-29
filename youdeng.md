@@ -1,57 +1,56 @@
-# BOSS直聘公布打击招聘黑灰产进展：3月封禁虚假引流账号1.3万个
+# 60米级钢轨经防城港口岸出口南非
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-以“高薪兼职”为饵，实则诱导刷单；打着招聘“代理客服”的旗号，暗中却把求职者变成电信诈骗的“传话筒”……近年来，求职招聘领域的黑灰产套路不断翻新，隐蔽性日益增强。 种种骗局的源头，往往指向同一个动作——虚假引流。所谓虚假引流，即在网络招聘平台上注册虚假账号、发布虚假职位信息，将求职者诱导至站外(如第三方通信软件或陌生App)的行为。这种行为往往关联着刷单诈骗、倒卖简历等违法违规
+中新网防城港4月29日电(张茵茵 邓和权 刘知益)在广西防城海关的高效监管与精准服务下，7687.61吨的60米级钢轨4月28日经广西防城港口岸顺利出口，发往南非。 据了解，此次为广西域内口岸首次出口60米级钢轨，防城海关对此提前了解出口船期计划，量身定制随到随查、视频监装等监管方案，为60米级钢轨顺利出口提供了保障。 面对60米级超长钢轨出口各类疑难问题，防城海关建立关企“点
 
 ## 正文
 
-以“高薪兼职”为饵，实则诱导刷单；打着招聘“代理客服”的旗号，暗中却把求职者变成电信诈骗的“传话筒”……近年来，求职招聘领域的黑灰产套路不断翻新，隐蔽性日益增强。
+中新网防城港4月29日电(张茵茵 邓和权 刘知益)在广西防城海关的高效监管与精准服务下，7687.61吨的60米级钢轨4月28日经广西防城港口岸顺利出口，发往南非。
 
-种种骗局的源头，往往指向同一个动作——虚假引流。
+据了解，此次为广西域内口岸首次出口60米级钢轨，防城海关对此提前了解出口船期计划，量身定制随到随查、视频监装等监管方案，为60米级钢轨顺利出口提供了保障。
 
-所谓虚假引流，即在网络招聘平台上注册虚假账号、发布虚假职位信息，将求职者诱导至站外(如第三方通信软件或陌生App)的行为。
+面对60米级超长钢轨出口各类疑难问题，防城海关建立关企“点对点”联络处置机制，立足企业实际需求靠前服务，推行“7×24小时”预约通关服务。
 
-这种行为往往关联着刷单诈骗、倒卖简历等违法违规行为。
+同时，该关密切联系码头公司，协调港区对部分超高超宽货物实施吊装作业，并指导码头扩建堆场，缓解长定尺钢轨储存场地压力，疏通物流环节衔接堵点，提升码头疏运效率。
 
-为了躲避平台的监控，不法分子的作恶手法不断变异。
+防城海关综合业务科科长刘艺群介绍，防城海关靠前对接企业，规范各项业务单证，指导企业申领出口许可证、解决超长钢轨的堆场选址等通关疑难问题，并叠加预约通关服务，实现货物到港后快速验放装船。
 
-他们不仅演化出专门批量注册招聘账号的“做号党”，甚至会以兼职的名义，招募求职者充当“简历工具人”，在平台上代为发布职位、收集信息。
+据悉，2025年，防城港口岸对共建“一带一路”国家出口的钢轨约22万吨，同比增长50.8%。
 
-针对黑灰产组织化、隐蔽化的运作趋势，近日，BOSS直聘在日常治理的基础上，进一步加强了源头打击能力，并发布了打击招聘黑灰产的专项治理公告。
-
-公告显示，今年3月，通过溯源黑灰产上游、升级风控策略等措施，BOSS直聘封禁了1.3万个虚假引流相关账号。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:35 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-30 05:19 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-30 05:15 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-30 05:27 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-30 05:22 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-30 05:38 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-30 05:25 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 05:25 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-30 05:32 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-30 05:41 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-30 05:33 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-30 05:36 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-30 05:39 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-30 05:47 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-30 05:32 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-30 05:18 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-30 05:42 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-30 05:20 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-30 05:44 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 05:37 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 05:42 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 05:30 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-30 05:37 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:18 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.minike.top/Article/details/962671099159.shtml)
-- 2026-06-30 05:37 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/9270090.shtml)
-- 2026-06-30 05:15 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.kurohicncr.top/Article/details/41205265.shtml)
-- 2026-06-30 05:27 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/450648276066.shtml)
-- 2026-06-30 05:36 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/1167926933.shtml)
-- 2026-06-30 05:24 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/45921444.shtml)
-- 2026-06-30 05:14 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/965447.shtml)
-- 2026-06-30 05:14 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/04039595.shtml)
-- 2026-06-30 05:18 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/8901691695.shtml)
-- 2026-06-30 05:18 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/372958191.shtml)
-- 2026-06-30 05:24 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/16659925.shtml)
-- 2026-06-30 05:38 - [苗族银饰](https://www.share.minike.top/Article/details/913635772.shtml)
-- 2026-06-30 05:15 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/984461.shtml)
-- 2026-06-30 05:33 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/7539097.shtml)
-- 2026-06-30 05:30 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/9776159.shtml)
+- 2026-06-30 05:19 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/07039.shtml)
+- 2026-06-30 05:27 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/99667710510.shtml)
+- 2026-06-30 05:47 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/041531527972.shtml)
+- 2026-06-30 05:38 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/363534324109.shtml)
+- 2026-06-30 05:43 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.kurohicncr.top/Article/details/26119.shtml)
+- 2026-06-30 05:42 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/887458239.shtml)
+- 2026-06-30 05:45 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/510367.shtml)
+- 2026-06-30 05:30 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/90194377329.shtml)
+- 2026-06-30 05:38 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/42154729.shtml)
+- 2026-06-30 05:45 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/638811047.shtml)
+- 2026-06-30 05:34 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/5673282569.shtml)
+- 2026-06-30 05:26 - [刘念回应](http://www.blog.minike.top/Article/details/756050.shtml)
+- 2026-06-30 05:45 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/16823.shtml)
+- 2026-06-30 05:37 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/51882.shtml)
+- 2026-06-30 05:27 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/161032.shtml)

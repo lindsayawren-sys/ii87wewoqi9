@@ -1,59 +1,61 @@
-# 首都餐饮二十四节气菜品中青年厨师大赛举办 饮食文化创新传承
+# 最新！“突破停火边界”，以军打击黎真主党多个军事设施！伊朗军方：当前局势仍定性为战争状态！油价上涨
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新网北京4月10日电 (记者 吕少威)为进一步促进餐饮业高质量发展，弘扬中华饮食文化，提升首都餐饮业中青年厨师技艺水平，激发北京餐饮市场消费活力，2026首都餐饮二十四节气菜品中青年厨师大赛10日在中国国际展览中心(顺义馆)举办。 大赛汇聚了来自全聚德、大董、东来顺、便宜坊、玉泉晴雪、萃华楼、京能服务集团、朝阳职业学校、丰台职业学校、肆月河豚、山西大厦、花家怡园、金隅集团、丰
+来源：期货日报 早上好，先来关注下最新消息。 以军称打击黎真主党多个军事设施 据央视新闻消息，以色列国防军当地时间4月28日发表声明称，27日，以军士兵在黎巴嫩南部发现并打击黎巴嫩真主党的一处武器储存设施和多个反坦克阵地、观察哨等军事设施。 在过去一天，以军还拆除了真主党的一条地下隧道。此外，以军还发现了一个地下竖井、一枚导弹、一处反坦克阵地以及大量爆炸装置。 声明表示，27日
 
 ## 正文
 
-中新网北京4月10日电 (记者 吕少威)为进一步促进餐饮业高质量发展，弘扬中华饮食文化，提升首都餐饮业中青年厨师技艺水平，激发北京餐饮市场消费活力，2026首都餐饮二十四节气菜品中青年厨师大赛10日在中国国际展览中心(顺义馆)举办。
+来源：期货日报 早上好，先来关注下最新消息。
 
-大赛汇聚了来自全聚德、大董、东来顺、便宜坊、玉泉晴雪、萃华楼、京能服务集团、朝阳职业学校、丰台职业学校、肆月河豚、山西大厦、花家怡园、金隅集团、丰泽园、仿膳、紫光园、四川饭店、金城汇美、新东方等百余位个人赛精英选手，以及30多家团体展示赛精英团队同台竞技。
+以军称打击黎真主党多个军事设施 据央视新闻消息，以色列国防军当地时间4月28日发表声明称，27日，以军士兵在黎巴嫩南部发现并打击黎巴嫩真主党的一处武器储存设施和多个反坦克阵地、观察哨等军事设施。
 
-现场，身着洁白工装的个人赛选手技能娴熟，热菜、冷菜作品贴合二十四节气各有特色。
+在过去一天，以军还拆除了真主党的一条地下隧道。
 
-团体宴席展示赛主题鲜明，注重文化体验与消费场景，讲究健康营养膳食搭配，宴席主题与高质量服务推介相结合，共同呈现一场精彩纷呈的二十四节气美食盛宴。
+此外，以军还发现了一个地下竖井、一枚导弹、一处反坦克阵地以及大量爆炸装置。
 
-本次大赛聚焦二十四节气传统饮食智慧，以“顺时养生、应季而食”为创作核心，推动时令食材与传统技法、现代口味深度融合，让古老饮食文化在当代餐饮场景中创新传承。
+声明表示，27日，黎真主党向黎巴嫩南部的以军士兵发射了数架装载爆炸物的无人机。
 
-据介绍，个人赛和团体展示赛两大板块中，个人赛设置风味冷菜组和热菜组，参赛选手需在60分钟内制作一款风味冷菜或一道热菜，以节气为主题，展现个人技艺与创意；团体展示赛则由各参赛团队在60分钟内完成团体宴席展示，通过多道菜品组合呈现完整的节气宴席文化。
+这些无人机在以军士兵附近被引爆，未造成人员伤亡。
 
-大赛面向中青年厨师举办，旨在以赛促学、以赛促练、以赛育才，为行业中坚力量搭建技艺切磋、风采展示的专业平台，强化基本功与创新能力，完善餐饮人才梯队，夯实首都餐饮高质量发展的人才根基。
+当地时间28日，黎巴嫩卫生部表示，以军当天空袭黎巴嫩南部提尔地区，造成1人死亡、15人受伤。
 
-同时，大赛将节气文化、厨艺竞技与消费场景相结合，打造美食＋文化＋体验的消费新场景，引导健康时令饮食消费，带动食材供应、餐饮服务、会展经济协同发展，为首都餐饮市场复苏注入新动能。
+据总台记者观察，与停火初期相比，当前以黎局势呈现三个新的变化：以军突破停火边界，向黎巴嫩纵深升级局势；黎巴嫩真主党频用光纤制导无人机，造成以军伤亡；以色列北部多地自行停课、设“安全区”，显示对局势的担忧以及对内塔尼亚胡政府的不信任。
 
 ## 相关推荐
 
-- 2026-06-30 05:33 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-30 05:29 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-30 05:14 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-30 05:18 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 05:36 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-30 05:27 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-30 05:16 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-30 05:41 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-30 05:38 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 05:21 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-30 05:40 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-30 05:33 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-30 05:34 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-30 05:34 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-30 05:25 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-30 05:36 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-30 05:38 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 05:35 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-30 05:30 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 05:29 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-30 05:28 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-30 05:40 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-30 05:45 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 05:47 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-30 05:28 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-30 05:42 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-30 05:23 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 05:28 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:31 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/855321682.shtml)
-- 2026-06-30 05:34 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/7591172.shtml)
-- 2026-06-30 05:32 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/93288344.shtml)
-- 2026-06-30 05:29 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/24415294.shtml)
-- 2026-06-30 05:29 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/2454759.shtml)
-- 2026-06-30 05:22 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/521252.shtml)
-- 2026-06-30 05:30 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/9455296.shtml)
-- 2026-06-30 05:33 - [内马尔中场休息积极鼓励队友](https://www.blog.kurohicncr.top/Article/details/98027142.shtml)
-- 2026-06-30 05:15 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/7520663.shtml)
-- 2026-06-30 05:24 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/892163314.shtml)
-- 2026-06-30 05:36 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/76799.shtml)
-- 2026-06-30 05:40 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/99537722681.shtml)
-- 2026-06-30 05:17 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/680132.shtml)
-- 2026-06-30 05:14 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/64403935.shtml)
-- 2026-06-30 05:36 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/1405518548.shtml)
+- 2026-06-30 05:39 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/82075557.shtml)
+- 2026-06-30 05:31 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/58209.shtml)
+- 2026-06-30 05:19 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/117075.shtml)
+- 2026-06-30 05:25 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/74122.shtml)
+- 2026-06-30 05:21 - [毒液2](https://www.share.minike.top/Article/details/5544020.shtml)
+- 2026-06-30 05:20 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/808800672394.shtml)
+- 2026-06-30 05:34 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/897008.shtml)
+- 2026-06-30 05:46 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/6144582.shtml)
+- 2026-06-30 05:43 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/5964210.shtml)
+- 2026-06-30 05:31 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/60979559.shtml)
+- 2026-06-30 05:47 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/157539143.shtml)
+- 2026-06-30 05:46 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/3654005.shtml)
+- 2026-06-30 05:37 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/30906503.shtml)
+- 2026-06-30 05:24 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/5554702125.shtml)
+- 2026-06-30 05:27 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/037633.shtml)

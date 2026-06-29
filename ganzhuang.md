@@ -1,60 +1,59 @@
-# 开盘：美股周五小幅高开 市场关注脆弱的伊朗停火协议
+# 报告：2026年中国太阳能发电装机规模预计将首次超过煤电
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-北京时间4月10日晚，美股周五小幅高开。主要股指本周均有望实现稳健的周度涨幅，交易员们正密切关注美伊之间脆弱的两周停火协议。美国3月CPI上涨3.3%，显示美以对伊战争加剧了美国的通胀压力。 道指涨49.26点，涨幅为0.10%，报48235.06点；纳指涨93.314点，涨幅为0.41%，报22915.731点；标普500指数涨16.67点，涨幅为0.24%，报6841.33
+中新网北京4月28日电 (记者 阮煜琳)中国电力企业联合会28日发布报告认为，2026年，全国太阳能发电装机规模预计将首次超过煤电装机规模，年底风电和太阳能发电合计装机规模将达到总发电装机的一半。 当日发布的《2026年一季度全国电力供需形势分析预测报告》指出，作为“十五五”开局之年的首个季度，一季度电力行业运行呈现“消费向好、结构向优、投资向新、保障有力”四大特征，电力系统安
 
 ## 正文
 
-北京时间4月10日晚，美股周五小幅高开。
+中新网北京4月28日电 (记者 阮煜琳)中国电力企业联合会28日发布报告认为，2026年，全国太阳能发电装机规模预计将首次超过煤电装机规模，年底风电和太阳能发电合计装机规模将达到总发电装机的一半。
 
-主要股指本周均有望实现稳健的周度涨幅，交易员们正密切关注美伊之间脆弱的两周停火协议。
+当日发布的《2026年一季度全国电力供需形势分析预测报告》指出，作为“十五五”开局之年的首个季度，一季度电力行业运行呈现“消费向好、结构向优、投资向新、保障有力”四大特征，电力系统安全稳定运行，电力消费稳中向好，电力供应持续绿色低碳转型，电力供需总体平衡。
 
-美国3月CPI上涨3.3%，显示美以对伊战争加剧了美国的通胀压力。
+报告显示，一季度全国全社会用电量2.51万亿千瓦时，同比增长5.2%。
 
-道指涨49.26点，涨幅为0.10%，报48235.06点；纳指涨93.314点，涨幅为0.41%，报22915.731点；标普500指数涨16.67点，涨幅为0.24%，报6841.33点。
+截至3月底，全国全口径发电装机容量39.6亿千瓦，其中非化石能源发电装机容量24.6亿千瓦，同比增长21.3%，占总装机容量比重为62.0%。
 
-主要平均指数均有望实现稳健的周度涨幅。
+一季度，风电和太阳能发电合计新增装机5716万千瓦，占新增发电装机总容量比重68.2%，电力行业绿色低碳转型持续推进。
 
-截至周四收盘，标普500指数已上涨超过3%，有望创下自11月以来最佳单周表现。
+报告预测，2026年我国宏观经济将继续保持平稳增长，拉动电力消费需求平稳较快增长，新型基础设施建设驱动相关行业用电快速增长。
 
-道琼斯指数本周迄今也上涨超过3%，纳斯达克指数则有望上涨超过4%。
+预计2026年全国全社会用电量10.9万亿-11万亿千瓦时，同比增长5%-6%，其中二季度全国全社会用电量增速5%左右。
 
-美国总统特朗普周四警告伊朗，不应向通过霍尔木兹海峡的油轮收费。
+预计全年统调最大负荷在15.7亿-16.3亿千瓦左右。
 
 ## 相关推荐
 
-- 2026-06-30 05:24 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-30 05:32 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-30 05:34 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-30 05:31 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-30 05:34 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 05:37 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-30 05:39 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-30 05:41 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-30 05:28 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-30 05:29 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-30 05:28 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-30 05:30 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-30 05:34 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-30 05:12 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-30 05:23 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-30 05:39 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-30 05:29 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 05:47 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-30 05:35 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-30 05:26 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-30 05:28 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-30 05:37 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-30 05:22 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 05:44 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 05:38 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-30 05:36 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-30 05:41 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:13 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/4485220310.shtml)
-- 2026-06-30 05:30 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/09632422.shtml)
-- 2026-06-30 05:22 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/62621752.shtml)
-- 2026-06-30 05:14 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/633641.shtml)
-- 2026-06-30 05:31 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.kurohicncr.top/Article/details/112006.shtml)
-- 2026-06-30 05:27 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/74056793048.shtml)
-- 2026-06-30 05:15 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/146296.shtml)
-- 2026-06-30 05:35 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/788246638874.shtml)
-- 2026-06-30 05:18 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/626590216436.shtml)
-- 2026-06-30 05:12 - [一见倾心](http://www.share.minike.top/Article/details/7806244.shtml)
-- 2026-06-30 05:33 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/20076.shtml)
-- 2026-06-30 05:40 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/9884384.shtml)
-- 2026-06-30 05:26 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/24551.shtml)
-- 2026-06-30 05:16 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/9983545738.shtml)
-- 2026-06-30 05:32 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/846584.shtml)
+- 2026-06-30 05:22 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/49992319964.shtml)
+- 2026-06-30 05:30 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/829649988640.shtml)
+- 2026-06-30 05:27 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/45679.shtml)
+- 2026-06-30 05:44 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/76973.shtml)
+- 2026-06-30 05:39 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/07072.shtml)
+- 2026-06-30 05:23 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/8800141692.shtml)
+- 2026-06-30 05:38 - [《男人至死是傻得儿》](https://www.blog.kurohicncr.top/Article/details/7884675273.shtml)
+- 2026-06-30 05:35 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/08705837.shtml)
+- 2026-06-30 05:32 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/7590715907.shtml)
+- 2026-06-30 05:37 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/401437993.shtml)
+- 2026-06-30 05:24 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/1485384372.shtml)
+- 2026-06-30 05:43 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/1896947.shtml)
+- 2026-06-30 05:33 - [日本进球](http://www.blog.kurohicncr.top/Article/details/43394137883.shtml)
+- 2026-06-30 05:31 - [周生如故](https://www.share.kurohicncr.top/Article/details/9849679719.shtml)
+- 2026-06-30 05:31 - [这一刀 会很帅](https://www.share.minike.top/Article/details/471782718540.shtml)

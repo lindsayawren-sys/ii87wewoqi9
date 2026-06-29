@@ -1,57 +1,57 @@
-# 淡水河谷与山东海运签包运合同：将启用全球首批乙醇/甲醇三燃料远洋船
+# “我的铁路风景”主题宣传“文化季”活动启动
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-中新网圣保罗4月10日电 (记者 林春茵)总部位于巴西里约热内卢的矿业巨头淡水河谷10日披露，淡水河谷与山东海运股份有限公司(“山东海运”)已就新一批乙醇/甲醇三燃料Guaibamax型船签署包运合同，新船将由中国船舶集团青岛北海造船有限公司建造，并由中船动力(集团)有限公司负责主机研发，计划自2029年起陆续交付。与海运业普遍使用的船用燃油相比，乙醇的使用有望将温室气体排放减
+4月28日，由中宣部文明创建局、中央网信办网络传播局、广电总局宣传司、文化和旅游部资源开发司、中国文联国内联络部、中国作协创作联络部、中国国家铁路集团有限公司党组宣传部联合举办的“我的铁路风景”主题宣传“文化季”活动以线上直播方式启动。新华网、中国青年报、好少年客户端，“学习强国”学习平台，中国日报网、中国文明网、未来网，“中国铁路”全媒体矩阵等平台同步进行线上直播。依次呈现西
 
 ## 正文
 
-中新网圣保罗4月10日电 (记者 林春茵)总部位于巴西里约热内卢的矿业巨头淡水河谷10日披露，淡水河谷与山东海运股份有限公司(“山东海运”)已就新一批乙醇/甲醇三燃料Guaibamax型船签署包运合同，新船将由中国船舶集团青岛北海造船有限公司建造，并由中船动力(集团)有限公司负责主机研发，计划自2029年起陆续交付。
+4月28日，由中宣部文明创建局、中央网信办网络传播局、广电总局宣传司、文化和旅游部资源开发司、中国文联国内联络部、中国作协创作联络部、中国国家铁路集团有限公司党组宣传部联合举办的“我的铁路风景”主题宣传“文化季”活动以线上直播方式启动。
 
-与海运业普遍使用的船用燃油相比，乙醇的使用有望将温室气体排放减少约90%。
+新华网、中国青年报、好少年客户端，“学习强国”学习平台，中国日报网、中国文明网、未来网，“中国铁路”全媒体矩阵等平台同步进行线上直播。
 
-这也是海运业首次在远洋船上将乙醇作为主要燃料使用。
+依次呈现西安站文化主题候车室、广州铁路博物馆、南昌西站海昏侯国文物特展、“好客山东・齐鲁1号”研学主题列车、喀什古城开城仪式、苏州站文旅融合发展成果、柳州站高铁读书驿站等多个点位的精彩内容，集中展示铁路优秀文化和路地文旅融合发展最新成效，大力弘扬中华优秀传统文化独特魅力。
 
-淡水河谷与山东海运此次签署的25年期包运合同涉及新建2艘第二代Guaibamax型船，并保留新建更多船舶的选择权。
+据悉，“文化季”活动将持续至6月底，面向社会公众征集展示图片、文字、绘画、短视频等原创作品。
 
-第二代Guaibamax型船长340米，载重能力32.5万吨。
+活动通过央视新闻、新华网、中国青年报、“好少年”客户端、“学习强国”学习平台、中国日报网、中国文明网、未来网、微博、抖音、“视听中国”全媒体、“中国铁路”和“人民铁道”全媒体矩阵等平台开展。
 
-新船可使用乙醇、甲醇或船用燃油作为燃料，并可改造以使用液化天然气或氨作为燃料。
+广大网友、旅客可采取扫码或搜索“我的铁路风景”、登录网站专题页面等方式投稿。
 
-“在运输我们矿石的船舶上使用乙醇作为燃料，并采用旋翼帆以利用风能，将使淡水河谷在未来数十年全球航运业的能源转型中占据独特位置，同时也将促进行业内其他类似举措的实施。
+活动主办方将精选优秀作品向中央主流媒体推荐，并在高铁站车、铁路文博场馆等场所进行展示传播。
 
-”淡水河谷航运总监罗德里戈·贝梅里奥(Rodrigo Bermelho)表示。
+活动期间，全国18个铁路局集团公司还将充分挖掘管内文化资源，策划开展特色主题活动；各承办平台将及时评选和发布优秀原创作品，持续扩大活动影响力和传播力。
 
 ## 相关推荐
 
-- 2026-06-30 05:14 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-30 05:24 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-30 05:35 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-30 05:35 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-30 05:30 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-30 05:36 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-30 05:27 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-30 05:15 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-30 05:22 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-30 05:41 - [房价什么时候能涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-30 05:41 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 05:18 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 05:37 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-30 05:29 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-30 05:20 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-30 05:40 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-30 05:33 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-30 05:42 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 05:47 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-30 05:33 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-30 05:46 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 05:40 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:31 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/940238827515.shtml)
-- 2026-06-30 05:19 - [世界杯](https://www.blog.minike.top/Article/details/63837.shtml)
-- 2026-06-30 05:29 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/794642429967.shtml)
-- 2026-06-30 05:40 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/41472484.shtml)
-- 2026-06-30 05:27 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/42127594.shtml)
-- 2026-06-30 05:18 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/024813906152.shtml)
-- 2026-06-30 05:13 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/55753.shtml)
-- 2026-06-30 05:13 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/577864271094.shtml)
-- 2026-06-30 05:21 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/710803918.shtml)
-- 2026-06-30 05:30 - [日本淘汰](https://www.share.minike.top/Article/details/98329.shtml)
-- 2026-06-30 05:30 - [巴西替补奇兵读秒绝杀](https://www.share.kurohicncr.top/Article/details/03965.shtml)
-- 2026-06-30 05:17 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/983009421.shtml)
-- 2026-06-30 05:34 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/1545744.shtml)
-- 2026-06-30 05:27 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/1465063.shtml)
-- 2026-06-30 05:35 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/99614.shtml)
+- 2026-06-30 05:42 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/13037943133.shtml)
+- 2026-06-30 05:47 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/2125131669.shtml)
+- 2026-06-30 05:23 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/061311.shtml)
+- 2026-06-30 05:46 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/94374428950.shtml)
+- 2026-06-30 05:37 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/08810.shtml)
+- 2026-06-30 05:30 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/4485093.shtml)
+- 2026-06-30 05:24 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/613969610.shtml)
+- 2026-06-30 05:44 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.kurohicncr.top/Article/details/64934.shtml)
+- 2026-06-30 05:34 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/87729377.shtml)
+- 2026-06-30 05:27 - [刘念回应](http://www.share.minike.top/Article/details/513092178588.shtml)
+- 2026-06-30 05:32 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/89374699.shtml)
+- 2026-06-30 05:39 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/51251195528.shtml)
+- 2026-06-30 05:19 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/09602477706.shtml)
+- 2026-06-30 05:37 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/8258281.shtml)
+- 2026-06-30 05:35 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/789126290.shtml)

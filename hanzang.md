@@ -1,56 +1,59 @@
-# “低价永远无法成就经典，夏利现在还在吗？”
+# 600111，章建平出手，一季度新进持股超34亿元！最新业绩超预期公司曝光（附名单）
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。三一集团董事，三一重卡董事长梁林河表示，新能源重卡从双碳目标和能源安全的角度上来看，重卡是核心的抓手。 他用四组关键的数据来解读：第一个数据就是60%，即便所有的乘用车全部电动化，也仅仅只能解
+多只大牛股业绩超预期。4月28日晚间，北方稀土（600111）发布2026年一季报，公司第一季度营收为118.59亿元，同比增长27.69%；净利润为9.18亿元，同比增长113.12%。值得注意的是，公司一季报前十大流通股东显示，章建平新进公司前十大流通股东，持股7225.44万股，占总股本比例为2%。以季末股价计算，持股市值达到34.45亿元。目前，章建平一季度持有4只个股
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+多只大牛股业绩超预期。
 
-三一集团董事，三一重卡董事长梁林河表示，新能源重卡从双碳目标和能源安全的角度上来看，重卡是核心的抓手。
+4月28日晚间，北方稀土（600111）发布2026年一季报，公司第一季度营收为118.59亿元，同比增长27.69%；净利润为9.18亿元，同比增长113.12%。
 
-他用四组关键的数据来解读：第一个数据就是60%，即便所有的乘用车全部电动化，也仅仅只能解决公路交通碳排放的40%，因为卡车占公路交通碳排放的60%； 第二个数据是1=100，一台燃油重卡的年碳排放量相当于100台燃油乘用车； 第三个数据是3%等于80%，燃油重卡只占中国汽车保有量的3%，但是它所产生的氮氧化物排放占总排放量的80%； 第四个是50%，假如中国的重卡全部新能源化，中国道路的能源安全问题几乎就解决了一半，因为燃油重卡占中国道路燃油总需求量的50%。
+值得注意的是，公司一季报前十大流通股东显示，章建平新进公司前十大流通股东，持股7225.44万股，占总股本比例为2%。
 
-他表示，新能源是一场不止于乘用车的革命，重型卡车成了这场能源革命中的关键少数。
+以季末股价计算，持股市值达到34.45亿元。
 
-当乘用车行业的渗透率徘徊在50%的时候，新能源行业迎来了一个新的浪潮，那就是新能源重卡。
+目前，章建平一季度持有4只个股，分别为北方稀土、东材科技、西部材料和四川黄金，除东材科技为加仓股，其他三只均为一季度新进。
 
-他谈到，2017年，三一重卡凭借互联网的销售、产业链共享，造出了行业最低成本的卡车，三年内我们销售额就接近了60个亿，成为了行业发展最快的重卡企业，网红重卡成了三一重卡的标签。
+最新业绩超预期公司曝光据证券时报·数据宝统计，截至4月28日，已公布2026年一季报的上市公司中，券商研报明确给予“季报超预期”评价的公司有89家。
 
-“正当我们满怀信心准备冲击100亿的时候，有一位伟大的企业家问过我一个振聋发聩的问题：这样下去，10年内你能赶上奔驰、沃尔沃、斯堪尼亚吗？
+数据显示，这些业绩超预期的公司中，接近八成总市值超过100亿元，其中更是不乏宁德时代、贵州茅台、中国移动等21家千亿市值巨头。
 
-他还给了我两个忠告，第一个忠告是，低价永远无法成就经典，夏利现在还在吗？
+这些行业领军企业正凭借其强劲的成长动能，重塑产业估值逻辑，并引导资本向高质量发展的核心赛道加速集聚。
 
 ## 相关推荐
 
-- 2026-06-30 05:27 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-30 05:30 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-30 05:21 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-30 05:18 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-30 05:24 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-30 05:24 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-30 05:18 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-30 05:37 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-30 05:36 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-30 05:22 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 05:29 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-30 05:44 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-30 05:39 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-30 05:23 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-30 05:23 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-30 05:46 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-30 05:28 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 05:43 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-30 05:47 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-30 05:28 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-30 05:18 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-30 05:20 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-30 05:31 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:38 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/49970142.shtml)
-- 2026-06-30 05:36 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/8940209901.shtml)
-- 2026-06-30 05:38 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/756139.shtml)
-- 2026-06-30 05:28 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/05997.shtml)
-- 2026-06-30 05:28 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/658456831.shtml)
-- 2026-06-30 05:41 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/8219990238.shtml)
-- 2026-06-30 05:38 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/080302951.shtml)
-- 2026-06-30 05:30 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/093167.shtml)
-- 2026-06-30 05:27 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/49748.shtml)
-- 2026-06-30 05:30 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/2675536816.shtml)
-- 2026-06-30 05:30 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/021796811.shtml)
-- 2026-06-30 05:37 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/2617273647.shtml)
-- 2026-06-30 05:21 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/351838.shtml)
-- 2026-06-30 05:21 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/63476248.shtml)
-- 2026-06-30 05:17 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/81860.shtml)
+- 2026-06-30 05:34 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/192683873.shtml)
+- 2026-06-30 05:35 - [巴西半场0比1日本](http://www.share.kurohicncr.top/Article/details/945545288.shtml)
+- 2026-06-30 05:44 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/7368481721.shtml)
+- 2026-06-30 05:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/65785199.shtml)
+- 2026-06-30 05:46 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/913508.shtml)
+- 2026-06-30 05:43 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/586055869667.shtml)
+- 2026-06-30 05:33 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/53601602.shtml)
+- 2026-06-30 05:33 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/039514.shtml)
+- 2026-06-30 05:21 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/590685805.shtml)
+- 2026-06-30 05:41 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/047460484.shtml)
+- 2026-06-30 05:34 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/7917329.shtml)
+- 2026-06-30 05:40 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/8607020.shtml)
+- 2026-06-30 05:19 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/9272344757.shtml)
+- 2026-06-30 05:18 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/901926.shtml)
+- 2026-06-30 05:20 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/693538430647.shtml)

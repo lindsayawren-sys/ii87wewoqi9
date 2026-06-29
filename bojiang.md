@@ -1,61 +1,59 @@
-# 超500家企业候场 港股IPO市场何以持续火热
+# 你给商家的差评，正在被明码标价删除，删一条差评60-1500元
 
-> 更新时间：2026-06-30 05:42:02 UTC+8
+> 更新时间：2026-06-30 05:48:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！■ 毛艺融 香港IPO市场延续去年强势表现。香港特区政府财政司司长陈茂波近日表示，来港上市企业愈来愈多属于新兴产业，包括人工智能、半导体、机器人、自动驾驶、生物科技等。目前轮候来港上市的申请个案已超过500宗。 赴港上市何如此火爆？在笔者看来，这背后有着政策红利、企业“出海”需求、全球资金战略性重新配置等多
+夏宇岩（化名）在一家川菜馆用餐后，因吃出菜品异味还出现了腹泻，他给这家餐厅打了一星差评。但近日他想找出这条评价时，却发现差评已经消失了。中国新闻网《民生调查局》调查发现，消费者反映多个平台存在差评“消失”的情况。消费者留下的真实评价究竟去了哪里？记者就此展开调查。 某社交媒体平台，存在不少指导商家处理差评的话题帖，评论区里多位用户留言表示“可以删，私信我”。 真实差评不翼而飞
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+夏宇岩（化名）在一家川菜馆用餐后，因吃出菜品异味还出现了腹泻，他给这家餐厅打了一星差评。
 
-■ 毛艺融 香港IPO市场延续去年强势表现。
+但近日他想找出这条评价时，却发现差评已经消失了。
 
-香港特区政府财政司司长陈茂波近日表示，来港上市企业愈来愈多属于新兴产业，包括人工智能、半导体、机器人、自动驾驶、生物科技等。
+中国新闻网《民生调查局》调查发现，消费者反映多个平台存在差评“消失”的情况。
 
-目前轮候来港上市的申请个案已超过500宗。
+消费者留下的真实评价究竟去了哪里？
 
-赴港上市何如此火爆？
+记者就此展开调查。
 
-在笔者看来，这背后有着政策红利、企业“出海”需求、全球资金战略性重新配置等多重因素的作用。
+某社交媒体平台，存在不少指导商家处理差评的话题帖，评论区里多位用户留言表示“可以删，私信我”。
 
-首先，港交所系列改革拓宽IPO入口，吸引更多优质企业蜂拥而至。
+真实差评不翼而飞 “到店消费半年后，我那条真实差评不见了。
 
-港交所近年持续推行上市机制改革，大幅降低上市门槛。
+”夏宇岩回忆，“朋友说想去吃那家川菜，我就跟他讲了当时糟糕的用餐经历，结果想去翻出原来的评论，才发现已经找不到了。
 
 ## 相关推荐
 
-- 2026-06-30 05:12 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-30 05:26 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-30 05:15 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-30 05:22 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-30 05:20 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-30 05:27 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-30 05:40 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-30 05:16 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-30 05:22 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-30 05:41 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-30 05:20 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-30 05:22 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-30 05:12 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-30 05:40 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-30 05:21 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-30 05:26 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 05:33 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-30 05:27 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 05:45 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 05:21 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 05:43 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-30 05:24 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-30 05:29 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-30 05:44 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-30 05:46 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-30 05:44 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-30 05:21 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-30 05:20 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/1047880764.shtml)
-- 2026-06-30 05:35 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.minike.top/Article/details/95633.shtml)
-- 2026-06-30 05:16 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/401838.shtml)
-- 2026-06-30 05:27 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/8910074666.shtml)
-- 2026-06-30 05:28 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/189666128292.shtml)
-- 2026-06-30 05:40 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/0158987.shtml)
-- 2026-06-30 05:36 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/942737258.shtml)
-- 2026-06-30 05:33 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/489193525721.shtml)
-- 2026-06-30 05:30 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/9468944.shtml)
-- 2026-06-30 05:38 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/1509191376.shtml)
-- 2026-06-30 05:38 - [巴西醒醒 这是淘汰赛](https://www.share.minike.top/Article/details/94649196093.shtml)
-- 2026-06-30 05:22 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/66392328.shtml)
-- 2026-06-30 05:17 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/17253190.shtml)
-- 2026-06-30 05:23 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/737359664.shtml)
-- 2026-06-30 05:31 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/83927.shtml)
+- 2026-06-30 05:37 - [小娘惹](http://www.share.kurohicncr.top/Article/details/56087130451.shtml)
+- 2026-06-30 05:39 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/59447993.shtml)
+- 2026-06-30 05:40 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/67374370143.shtml)
+- 2026-06-30 05:19 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/195792881721.shtml)
+- 2026-06-30 05:38 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/1158380.shtml)
+- 2026-06-30 05:41 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/898649.shtml)
+- 2026-06-30 05:24 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/730490493760.shtml)
+- 2026-06-30 05:36 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/797125423107.shtml)
+- 2026-06-30 05:37 - [爱很美味](http://www.blog.minike.top/Article/details/171576074654.shtml)
+- 2026-06-30 05:42 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/84157761840.shtml)
+- 2026-06-30 05:45 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/711010489221.shtml)
+- 2026-06-30 05:22 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/55768400287.shtml)
+- 2026-06-30 05:39 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/41494.shtml)
+- 2026-06-30 05:44 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.minike.top/Article/details/1796244112.shtml)
+- 2026-06-30 05:42 - [巴西替补奇兵读秒绝杀](http://www.share.kurohicncr.top/Article/details/429191.shtml)
