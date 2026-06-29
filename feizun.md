@@ -1,58 +1,49 @@
-# 年度总票房破129亿！五一档新片预售火热
+# 300200，实际控制人已被解除留置
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-据网络平台数据，截至4月29日，2026年度电影总票房(含预售)突破129亿元！ 五一档新片票房预售已破5000万元！ 《给阿嬷的情书》《寒战1994》 《10间敢死队》位列新片预售票房榜前三位 题材丰富 五一档多元影片齐亮相 2026五一档档期电影题材多元丰富，涵盖革命历史、动作、悬疑、喜剧、动画等多种类型影片，为观众呈现丰富多彩的银幕盛宴。 现实题材影片《给阿嬷的情书》从一
+4月24日，高盟新材（300200）公告称，公司收到控股股东高金技术产业集团有限公司（简称“高金集团”）转发的由四川省监察委员会签发的《解除留置通知书》，四川省监察委员会已解除对熊海涛女士的留置措施。目前，熊海涛女士已能正常履行公司董事的职责，公司生产经营情况正常。公司于2026年1月27日收到控高金集团的通知，公司实际控制人、副董事长熊海涛女士被四川省监察委员会立案调查并实施
 
 ## 正文
 
-据网络平台数据，截至4月29日，2026年度电影总票房(含预售)突破129亿元！
+4月24日，高盟新材（300200）公告称，公司收到控股股东高金技术产业集团有限公司（简称“高金集团”）转发的由四川省监察委员会签发的《解除留置通知书》，四川省监察委员会已解除对熊海涛女士的留置措施。
 
-五一档新片票房预售已破5000万元！
+目前，熊海涛女士已能正常履行公司董事的职责，公司生产经营情况正常。
 
-《给阿嬷的情书》《寒战1994》 《10间敢死队》位列新片预售票房榜前三位 题材丰富 五一档多元影片齐亮相 2026五一档档期电影题材多元丰富，涵盖革命历史、动作、悬疑、喜剧、动画等多种类型影片，为观众呈现丰富多彩的银幕盛宴。
-
-现实题材影片《给阿嬷的情书》从一封写着江海万里，心中念你，便觉得不再遥远的“特殊家书”开始，剧中人晓伟拿着阿嬷珍藏的这封家书远赴泰国，寻找失联四十年的阿公，一路磕磕绊绊笑点满满。
-
-动作片《寒战1994》以1994年和2017年双时间线展开，描写香港警察与绑匪斗争的故事。
-
-情感片《10间敢死队》讲述失去生活信心的青年以护工身份进入10号病房，与癌症病人朝夕相处，双方相互救赎、重拾信心的故事。
-
-红色题材影片《浴血困牛山》以红六军团长征为背景，讲述了红十八师五十二团指战员转战湘桂黔边，面对数倍敌人，浴血奋战，最终100多名红军战士“宁死不伤百姓，宁死不当俘虏”，全部跳崖牺牲。
-
-悬疑片《消失的人》围绕一桩牵动多方的离奇案件展开，以环环相扣的案件，将悬疑张力与惊悚氛围拉满。
+公司于2026年1月27日收到控高金集团的通知，公司实际控制人、副董事长熊海涛女士被四川省监察委员会立案调查并实施留置。
 
 ## 相关推荐
 
-- 2026-06-29 14:32 - [人民日报评“AI脸看腻了”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-29 14:15 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-29 14:35 - [20年前的周杰伦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 14:20 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 14:16 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-29 14:12 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-29 14:12 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 14:33 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-29 14:14 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 14:17 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 14:35 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-29 14:07 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 14:14 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 14:22 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 14:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 14:32 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-29 14:30 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 14:35 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-29 14:39 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 14:31 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-29 14:36 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-29 14:18 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 14:28 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 14:37 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 14:13 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:24 - [媒体人：警惕日本再次成战争加害国](https://www.share.kurohicncr.top/Article/details/314034704324.shtml)
-- 2026-06-29 14:23 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/45569.shtml)
-- 2026-06-29 14:32 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.blog.kurohicncr.top/Article/details/22169.shtml)
-- 2026-06-29 14:22 - [外网预言中国举办世界杯时间](http://www.blog.minike.top/Article/details/18748.shtml)
-- 2026-06-29 14:34 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/94456596711.shtml)
-- 2026-06-29 14:10 - [李在明称韩国足协任命了无能之人](https://www.share.minike.top/Article/details/080585.shtml)
-- 2026-06-29 14:14 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/4998034.shtml)
-- 2026-06-29 14:29 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.minike.top/Article/details/592522.shtml)
-- 2026-06-29 14:30 - [世界杯超牛补水广告出现了](https://www.share.minike.top/Article/details/669108.shtml)
-- 2026-06-29 14:25 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/4878640862.shtml)
-- 2026-06-29 14:17 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/26502.shtml)
-- 2026-06-29 14:06 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.blog.minike.top/Article/details/75606555.shtml)
-- 2026-06-29 14:27 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/879377446323.shtml)
-- 2026-06-29 14:13 - [105年初心滚烫](http://www.blog.kurohicncr.top/Article/details/58170742887.shtml)
-- 2026-06-29 14:24 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/0626722.shtml)
+- 2026-06-29 14:27 - [42岁郭碧婷纯素颜状态](https://www.blog.minike.top/Article/details/60010627.shtml)
+- 2026-06-29 14:34 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/25794251.shtml)
+- 2026-06-29 14:34 - [佛得角到底在哪个“角”](https://www.blog.minike.top/Article/details/50196.shtml)
+- 2026-06-29 14:38 - [高考公平需要延伸到志愿填报这一环](https://www.blog.minike.top/Article/details/239120.shtml)
+- 2026-06-29 14:31 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/43442711965.shtml)
+- 2026-06-29 14:31 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/117515.shtml)
+- 2026-06-29 14:30 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/60279649180.shtml)
+- 2026-06-29 14:21 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/70555483.shtml)
+- 2026-06-29 14:36 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/67883.shtml)
+- 2026-06-29 14:29 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/66975133100.shtml)
+- 2026-06-29 14:38 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/2778162624.shtml)
+- 2026-06-29 14:35 - [20年前的周杰伦](http://www.blog.minike.top/Article/details/98029157461.shtml)
+- 2026-06-29 14:26 - [C罗关心罗德里戈伤情](https://www.blog.minike.top/Article/details/15320405.shtml)
+- 2026-06-29 14:25 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/879636.shtml)
+- 2026-06-29 14:28 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/338704146.shtml)

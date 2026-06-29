@@ -1,57 +1,56 @@
-# 小龙虾“撬动”湖南洞庭湖区乡村振兴百亿元产业
+# 香港廉政公署举办专题讲座解码“十五五”规划
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-中新网益阳4月29日电 (付敬懿 宋梅)临近初夏，小龙虾又跃上民众餐桌成为“时令主角”。凌晨四时许，在洞庭湖区腹地的湖南南县茅草街镇庆丰村，种养大户郭新已穿上防水裤，收提起一个个地笼。色泽鲜亮、体态饱满的小龙虾破水而出，即将发往各地商超和市场。 “眼下小龙虾天天供不应求，根本不够卖。”郭新说，五一假期市场需求大幅增长，南县又迎来第四届小龙虾节，各地游客将涌入这座“洞庭明珠”。
+中新社香港4月27日电 (记者 刘玥晴)香港廉政公署(简称“廉署”)近日举办“解码‘十五五’规划——对香港和廉署的启示”专题讲座，邀请复旦大学中国研究院院长张维为和清华大学公共管理学院教授鄢一龙主讲，让廉署上下深入了解国家“十五五”规划内容，并思考如何将反贪工作与国家发展大局紧密结合。 “十五五”规划纲要提出，支持港澳深度参与高质量共建“一带一路”。张维为认为，共建“一带一路”
 
 ## 正文
 
-中新网益阳4月29日电 (付敬懿 宋梅)临近初夏，小龙虾又跃上民众餐桌成为“时令主角”。
+中新社香港4月27日电 (记者 刘玥晴)香港廉政公署(简称“廉署”)近日举办“解码‘十五五’规划——对香港和廉署的启示”专题讲座，邀请复旦大学中国研究院院长张维为和清华大学公共管理学院教授鄢一龙主讲，让廉署上下深入了解国家“十五五”规划内容，并思考如何将反贪工作与国家发展大局紧密结合。
 
-凌晨四时许，在洞庭湖区腹地的湖南南县茅草街镇庆丰村，种养大户郭新已穿上防水裤，收提起一个个地笼。
+“十五五”规划纲要提出，支持港澳深度参与高质量共建“一带一路”。
 
-色泽鲜亮、体态饱满的小龙虾破水而出，即将发往各地商超和市场。
+张维为认为，共建“一带一路”正朝着数字化、绿色化方向发展，海量项目与资金加速流转，新型、跨境腐败风险防控的重要性愈发凸显。
 
-“眼下小龙虾天天供不应求，根本不够卖。
+廉署辖下香港国际廉政学院曾为共建“一带一路”国家和地区举办反贪培训，未来可继续参与“一带一路”廉洁建设，分享香港经验。
 
-”郭新说，五一假期市场需求大幅增长，南县又迎来第四届小龙虾节，各地游客将涌入这座“洞庭明珠”。
+鄢一龙结合廉署“一九七四”咖啡厅的文化设计阐释廉洁内涵：咖啡提神醒脑，时刻警示公职人员和市场主体保持清醒，摒弃侥幸心理，杜绝隐性贪腐、利益输送等行为。
 
-作为“中国虾稻米之乡”“中国生态小龙虾之乡”和“全国稻虾全产业链典型县”，南县稻虾综合种养面积达63万亩，区域公用品牌价值突破500亿元。
+他说，名为“清廉”“保密”“‘诚’果”的咖啡也让香港市民和各地游客更加了解廉署的工作、清廉的观念。
 
-当前，南县日均售出小龙虾活虾65.6万斤，日交易额近700万元，开发出的20多种“南县小龙虾”加工产品，远销至欧美、东南亚等地的40多个国家。
+“香港将反贪倡廉与优化营商环境紧密结合的成熟经验十分宝贵，可为国家扩大高水平对外开放、完善社会主义市场经济体制提供务实参考与支撑。
 
-“我们从2016年开始推广稻虾共作，那时候面积才5.7万亩。
+”鄢一龙指出，香港应不断发挥软实力，宣传清廉文化，讲好国家与香港的反腐败故事，提升全球廉洁治理水平。
 
 ## 相关推荐
 
-- 2026-06-29 14:34 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-29 14:09 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 14:25 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 14:13 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 14:32 - [韩体育部长回应李在明痛批](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-29 14:17 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-29 14:26 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 14:26 - [新一代影后杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-29 14:15 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-29 14:33 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 14:11 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 14:19 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-29 14:12 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-29 14:33 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-29 14:38 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-29 14:34 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-29 14:35 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 14:34 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 14:28 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 14:17 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-29 14:21 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:08 - [高考志愿今起开始填报](https://www.share.kurohicncr.top/Article/details/54983011692.shtml)
-- 2026-06-29 14:35 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/05052.shtml)
-- 2026-06-29 14:17 - [四川宜宾地震](http://www.blog.minike.top/Article/details/7237913937.shtml)
-- 2026-06-29 14:18 - [以前不让妆女二可以艳压女主](https://www.blog.minike.top/Article/details/4900497.shtml)
-- 2026-06-29 14:30 - [豆包收费了，你还会用吗？](http://www.share.minike.top/Article/details/016578090889.shtml)
-- 2026-06-29 14:23 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/801946917.shtml)
-- 2026-06-29 14:12 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/921930349808.shtml)
-- 2026-06-29 14:18 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/43370529.shtml)
-- 2026-06-29 14:12 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/99417033205.shtml)
-- 2026-06-29 14:27 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/5283108147.shtml)
-- 2026-06-29 14:12 - [去了一趟潮汕。](https://www.blog.kurohicncr.top/Article/details/27153026.shtml)
-- 2026-06-29 14:24 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/3579637345.shtml)
-- 2026-06-29 14:21 - [发反科学内容为何会有200万粉丝](https://www.blog.minike.top/Article/details/70438.shtml)
-- 2026-06-29 14:22 - [教育部发布高考志愿填报预警](https://www.blog.minike.top/Article/details/3377185.shtml)
-- 2026-06-29 14:24 - [世界杯用球成部分门将噩梦](http://www.blog.minike.top/Article/details/62720575543.shtml)
+- 2026-06-29 14:39 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/2596212.shtml)
+- 2026-06-29 14:13 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/84755706.shtml)
+- 2026-06-29 14:23 - [普京称考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/589634583555.shtml)
+- 2026-06-29 14:37 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/172671445945.shtml)
+- 2026-06-29 14:34 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/61026.shtml)
+- 2026-06-29 14:23 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/429008000.shtml)
+- 2026-06-29 14:12 - [F1奥地利正赛战报](https://www.blog.minike.top/Article/details/403703.shtml)
+- 2026-06-29 14:28 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/044433110884.shtml)
+- 2026-06-29 14:34 - [papi酱回应毕业4年零收入](http://www.share.minike.top/Article/details/837173905676.shtml)
+- 2026-06-29 14:35 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/08275258.shtml)
+- 2026-06-29 14:16 - [papi酱回应毕业4年零收入](http://www.share.kurohicncr.top/Article/details/403776004.shtml)
+- 2026-06-29 14:21 - [如何“亲菌子”又“远小人儿”](https://www.blog.minike.top/Article/details/092394425.shtml)
+- 2026-06-29 14:16 - [吴磊爱上回收了](http://www.share.minike.top/Article/details/46668022727.shtml)
+- 2026-06-29 14:16 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.minike.top/Article/details/32252.shtml)
+- 2026-06-29 14:18 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/72576.shtml)

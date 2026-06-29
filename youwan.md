@@ -1,56 +1,53 @@
-# 广西：服务好现有企业就是最好的招商
+# 视频细节曝光！枪响瞬间，特朗普坐在台上，特工拔枪戒备
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-中新网南宁4月29日电(林洁琪)“服务好现有企业就是最好的招商，把企业服务好了，营商环境自然就好了。”4月28日，2026年二季度全区经济发展调度会在南宁召开，广西壮族自治区党委书记、自治区人大常委会主任陈刚在会上如是说。 据介绍，今年以来，广西扎实做好各项工作，一季度全区经济运行总体平稳，经济大市挑大梁作用显现，三次产业总体稳中向好，人工智能聚势发力，向海发展势头强劲，民生保
+据美国媒体25日报道，美国总统特朗普当晚参加白宫记者协会晚宴时，现场传出枪声，特朗普随后在安保人员护送下离开。 特朗普随后在社交媒体上说，一名涉事枪手已被拘捕，他“已建议‘活动照常进行’，但最终将完全遵从执法部门的安排……无论最终决定如何，今晚的活动安排都将和原定计划有很大不同。我们后续需要重新举办这场活动”。 另据美媒报道说，白宫记者协会晚宴“安全事件”发生后，特朗普“安全无
 
 ## 正文
 
-中新网南宁4月29日电(林洁琪)“服务好现有企业就是最好的招商，把企业服务好了，营商环境自然就好了。
+据美国媒体25日报道，美国总统特朗普当晚参加白宫记者协会晚宴时，现场传出枪声，特朗普随后在安保人员护送下离开。
 
-”4月28日，2026年二季度全区经济发展调度会在南宁召开，广西壮族自治区党委书记、自治区人大常委会主任陈刚在会上如是说。
+特朗普随后在社交媒体上说，一名涉事枪手已被拘捕，他“已建议‘活动照常进行’，但最终将完全遵从执法部门的安排……无论最终决定如何，今晚的活动安排都将和原定计划有很大不同。
 
-据介绍，今年以来，广西扎实做好各项工作，一季度全区经济运行总体平稳，经济大市挑大梁作用显现，三次产业总体稳中向好，人工智能聚势发力，向海发展势头强劲，民生保障有力有效。
+我们后续需要重新举办这场活动”。
 
-“招商引资归根到底是为了推动发展，壮大产业，惠及民生，不是为了上报签约数字，完成考核目标。
+另据美媒报道说，白宫记者协会晚宴“安全事件”发生后，特朗普“安全无恙”，晚宴将继续举行。
 
-”陈刚强调，要坚持招商引资和服务企业的辩证统一，聚焦深化与东盟合作、发展向海经济、打造制造业十大现代化支柱产业、培育新质生产力等重点领域，在招大引强、招新引优上精准发力；坚持服务好现有企业就是最好的招商，把企业感受和发展利益放在重要位置，持续开展实体经济调研服务，加快打造一流营商环境。
-
-广西壮族自治区主席韦韬在主持会议时强调，广西各级各部门要加力打造制造业十大现代化支柱产业，推动工业提质增效；加力推进重大项目建设，促进投资止跌回稳；加力激发消费潜能，推进服务业扩能提质；加力扩大对外开放，稳住外贸外资基本盘；加力发展现代特色农业，稳定重要农产品供给；加力惠民生防风险，保持社会大局和谐稳定，努力实现上半年“双过半”目标。
-
-(完)
+来源：新华社微信公众号 记者：冯亚松；视频：王玉珏 责任编辑：杨赐
 
 ## 相关推荐
 
-- 2026-06-29 14:18 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-29 14:08 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-29 14:20 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-29 14:24 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 14:33 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-29 14:16 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-29 14:28 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 14:20 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-29 14:22 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-29 14:30 - [宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-29 14:25 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-29 14:22 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-29 14:23 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 14:37 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 14:41 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 14:41 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 14:19 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 14:35 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-29 14:26 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-29 14:13 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-29 14:20 - [3D打印不是工业革命，它是……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 14:36 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 14:26 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-29 14:32 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-29 14:36 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:30 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/015050945358.shtml)
-- 2026-06-29 14:21 - [中国战机大片上新](https://www.share.kurohicncr.top/Article/details/88509278.shtml)
-- 2026-06-29 14:22 - [多只A股发布股价异动公告](https://www.share.minike.top/Article/details/97467.shtml)
-- 2026-06-29 14:24 - [韩国拟将部分刑责年龄降至13岁](https://www.share.kurohicncr.top/Article/details/319307017.shtml)
-- 2026-06-29 14:06 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/64419.shtml)
-- 2026-06-29 14:14 - [退休化学教授帮医药研发人员制毒](https://www.share.kurohicncr.top/Article/details/545527.shtml)
-- 2026-06-29 14:11 - [女生雨天开车发现雨刮条被掰走](https://www.blog.kurohicncr.top/Article/details/91525.shtml)
-- 2026-06-29 14:31 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/5616773200.shtml)
-- 2026-06-29 14:15 - [Canna纳尔8-0对位单杀Doran](https://www.blog.minike.top/Article/details/572008128751.shtml)
-- 2026-06-29 14:16 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/4703194.shtml)
-- 2026-06-29 14:23 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/920361103676.shtml)
-- 2026-06-29 14:35 - [李连杰回应网传不管前妻俩女儿](https://www.blog.kurohicncr.top/Article/details/694603890144.shtml)
-- 2026-06-29 14:31 - [T1 vs KC MSI](https://www.share.minike.top/Article/details/29711563.shtml)
-- 2026-06-29 14:17 - [民进党为什么拼命抹黑统战](https://www.blog.minike.top/Article/details/169587182987.shtml)
-- 2026-06-29 14:15 - [广东一地发现极危植物新物种](https://www.share.minike.top/Article/details/005615628696.shtml)
+- 2026-06-29 14:15 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/087402058.shtml)
+- 2026-06-29 14:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/0341938273.shtml)
+- 2026-06-29 14:14 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/44738810921.shtml)
+- 2026-06-29 14:26 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/7438454459.shtml)
+- 2026-06-29 14:31 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/218241349555.shtml)
+- 2026-06-29 14:36 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/6760199.shtml)
+- 2026-06-29 14:14 - [沉睡花园](http://www.blog.minike.top/Article/details/239926027295.shtml)
+- 2026-06-29 14:39 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/524264963026.shtml)
+- 2026-06-29 14:26 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/84644487277.shtml)
+- 2026-06-29 14:31 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/750894276568.shtml)
+- 2026-06-29 14:36 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/61695881.shtml)
+- 2026-06-29 14:16 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/715831115.shtml)
+- 2026-06-29 14:12 - [恋与深空评分暴跌至1.8](http://www.share.minike.top/Article/details/7726887463.shtml)
+- 2026-06-29 14:16 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/568085148092.shtml)
+- 2026-06-29 14:20 - [杨紫下沉市场口碑](https://www.blog.minike.top/Article/details/329797.shtml)

@@ -1,56 +1,46 @@
-# 泰国榴莲在磨憨铁路口岸实现8分钟入境
+# 美联储预计将维持利率不变
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-中新网云南西双版纳4月29日电 (黄远飞 雷雨)4月29日9时44分，一辆满载泰国榴莲的“澜湄快线”列车驶入中老边境磨憨铁路口岸。磨憨出入境边防检查站两名民警立即前往列车停靠点，快步登上列车驾驶室，认真核查列车员证件、开展列车车体检查。9时52分，列车启动前往海关查验货场。 磨憨铁路口岸位于云南省西双版纳傣族自治州勐腊县中老边境。作为中老铁路重要枢纽，该口岸已成为中国对东盟的第
+由于战争导致的能源成本持续存在，市场普遍预计美联储将把利率维持在3.50%至3.75%的水平；长期国债在周三利率决议前保持稳定。责任编辑：张俊 SF065
 
 ## 正文
 
-中新网云南西双版纳4月29日电 (黄远飞 雷雨)4月29日9时44分，一辆满载泰国榴莲的“澜湄快线”列车驶入中老边境磨憨铁路口岸。
+由于战争导致的能源成本持续存在，市场普遍预计美联储将把利率维持在3.50%至3.75%的水平；长期国债在周三利率决议前保持稳定。
 
-磨憨出入境边防检查站两名民警立即前往列车停靠点，快步登上列车驾驶室，认真核查列车员证件、开展列车车体检查。
-
-9时52分，列车启动前往海关查验货场。
-
-磨憨铁路口岸位于云南省西双版纳傣族自治州勐腊县中老边境。
-
-作为中老铁路重要枢纽，该口岸已成为中国对东盟的第一大铁路口岸。
-
-4月中旬以来，泰国、马来西亚等东南亚国家榴莲迎来集中上市期，中国市场也迎来榴莲消费旺季。
-
-今年以来，中老铁路跨境水果运输成绩亮眼，累计运输进口东南亚榴莲超5万吨，同比增长超94%。
-
-针对榴莲、山竹等生鲜货物“快通关、高保鲜、低损耗”的通关需求，磨憨出入境边防检查站同步优化货运查验流程，上线运行5T车体检查视频监控系统，推行登车办理、简化铁路员工验证程序、“7×24小时”全时通关等措施，货物通关边检查验时间大幅压缩至8分钟以内，有力保障中老铁路这条东南亚热带水果进入中国的“黄金通道”高效畅通。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 14:15 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 14:14 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-29 14:16 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 14:22 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-29 14:16 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 14:25 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-29 14:27 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-29 14:17 - [NBA交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 14:35 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-29 14:25 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 14:24 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 14:13 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 14:14 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 14:28 - [梅朗雄主张法国退出北约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-29 14:31 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 14:38 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-29 14:38 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-29 14:29 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 14:28 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 14:25 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 14:26 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-29 14:35 - [强⁶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:14 - [papi酱回应毕业4年零收入](http://www.blog.minike.top/Article/details/457086434602.shtml)
-- 2026-06-29 14:14 - [布里奇斯被交易至太阳](https://www.blog.kurohicncr.top/Article/details/1346177080.shtml)
-- 2026-06-29 14:16 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/7329557629.shtml)
-- 2026-06-29 14:08 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/40320087017.shtml)
-- 2026-06-29 14:10 - [实习期把公司领导开除了](http://www.blog.kurohicncr.top/Article/details/47696.shtml)
-- 2026-06-29 14:28 - [手游300亿数据或被军事化运用](https://www.share.kurohicncr.top/Article/details/83169748.shtml)
-- 2026-06-29 14:14 - [崔韩率还以为韩娱来新人了](http://www.share.minike.top/Article/details/24931636660.shtml)
-- 2026-06-29 14:33 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/89456262558.shtml)
-- 2026-06-29 14:17 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/06249538.shtml)
-- 2026-06-29 14:28 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/8380742740.shtml)
-- 2026-06-29 14:11 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.minike.top/Article/details/2575995.shtml)
-- 2026-06-29 14:28 - [智界V9成为高端圈层共同选择](https://www.blog.kurohicncr.top/Article/details/145462717239.shtml)
-- 2026-06-29 14:31 - [王楚钦3-0周启豪 晋级32强](http://www.share.minike.top/Article/details/93964557.shtml)
-- 2026-06-29 14:16 - [巴西德国15次闯进世界杯淘汰赛](http://www.share.kurohicncr.top/Article/details/13972491037.shtml)
-- 2026-06-29 14:13 - [刘仲华院士愿当贺永辉导师](http://www.share.minike.top/Article/details/90075375106.shtml)
+- 2026-06-29 14:32 - [强⁶](https://www.share.kurohicncr.top/Article/details/528350.shtml)
+- 2026-06-29 14:15 - [日媒称韩国史诗级上上签终成噩梦](https://www.share.minike.top/Article/details/05440749413.shtml)
+- 2026-06-29 14:37 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/7933922037.shtml)
+- 2026-06-29 14:38 - [孙怡告别浪姐千字文](https://www.share.minike.top/Article/details/3452803969.shtml)
+- 2026-06-29 14:17 - [医药股集体爆发](http://www.blog.kurohicncr.top/Article/details/68647964288.shtml)
+- 2026-06-29 14:25 - [游戏数据被用于军事目的 国安部提醒](https://www.blog.kurohicncr.top/Article/details/422470345.shtml)
+- 2026-06-29 14:17 - [实习期把公司领导开除了](http://www.share.minike.top/Article/details/861366061.shtml)
+- 2026-06-29 14:14 - [恋与深空评分暴跌至1.8](https://www.blog.minike.top/Article/details/75950535.shtml)
+- 2026-06-29 14:21 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/52396.shtml)
+- 2026-06-29 14:24 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/23311.shtml)
+- 2026-06-29 14:23 - [日本主帅：目标是冠军](http://www.share.kurohicncr.top/Article/details/573223292.shtml)
+- 2026-06-29 14:36 - [韩国记者：解码“合肥模式”](http://www.share.minike.top/Article/details/427796542453.shtml)
+- 2026-06-29 14:35 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/084548189546.shtml)
+- 2026-06-29 14:33 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.kurohicncr.top/Article/details/532330961880.shtml)
+- 2026-06-29 14:26 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/212212.shtml)

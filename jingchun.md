@@ -1,58 +1,56 @@
-# 北京朝阳国际茶香文化周百年王府启幕 首次开启沉浸式游园会
+# 全球知名数字装置艺术家带来数字艺术展“浮流：无尽漫行”
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-中新网北京4月29日电 茶香承千年，戏韵润东方。第四届北京朝阳国际茶香文化周活动4月29日在亮马河畔的北京郡王府启幕，将持续至5月2日。本次活动以“中国茶·中国戏·中国潮”为恒定主题，以“王府茶香戏韵悠长”为年度特色主题，打造集品茶、看戏、游园、体验、消费于一体的沉浸式茶文化盛宴。市民游客可在一步一景的雅致园林中细品茶香，观看昆曲、京剧、评弹等演出，在后花园参与射礼、捶丸、蹴鞠
+中新网北京4月26日电 (记者 应妮)全球知名数字装置艺术家马克西姆·热斯科夫个展25日在京亮相，这个名为“浮流：无尽漫行”的数字艺术展以艺术家全新交互系列作品为观众构建一场沉浸式感官漫游。 作为当代数字艺术和动态图形领域的标杆人物，近20年来，马克西姆始终以数字探索世界生成背后的底层规律。他在作品中以构筑者的身份设定物理规则(如重力、磁场、碰撞、流体动力学等)，将建筑、雕塑与
 
 ## 正文
 
-中新网北京4月29日电 茶香承千年，戏韵润东方。
+中新网北京4月26日电 (记者 应妮)全球知名数字装置艺术家马克西姆·热斯科夫个展25日在京亮相，这个名为“浮流：无尽漫行”的数字艺术展以艺术家全新交互系列作品为观众构建一场沉浸式感官漫游。
 
-第四届北京朝阳国际茶香文化周活动4月29日在亮马河畔的北京郡王府启幕，将持续至5月2日。
+作为当代数字艺术和动态图形领域的标杆人物，近20年来，马克西姆始终以数字探索世界生成背后的底层规律。
 
-本次活动以“中国茶·中国戏·中国潮”为恒定主题，以“王府茶香戏韵悠长”为年度特色主题，打造集品茶、看戏、游园、体验、消费于一体的沉浸式茶文化盛宴。
+他在作品中以构筑者的身份设定物理规则(如重力、磁场、碰撞、流体动力学等)，将建筑、雕塑与自然算法融合并赋予其生命力，让数亿个数字微粒在模拟空间中化为无限变幻的自由浮流，形成极具个人代表性的“粒子动力学美学”。
 
-市民游客可在一步一景的雅致园林中细品茶香，观看昆曲、京剧、评弹等演出，在后花园参与射礼、捶丸、蹴鞠等古风体验，与“NPC”互动赢取“交子”，度过充满雅趣的休闲时光。
+展览如同一个由粒子构成的平行宇宙，而宇宙的意义诞生于观者的好奇。
 
-活动期间，整座郡王府化身沉浸式茶文化体验空间，银安殿、后寝宫、四宜书屋等各处空间，皆成为品茗赏艺、茶香萦绕的体验场景。
+从橱窗到展厅深处，从物理现实到AI智能，观众在无尽数字浮流中层层漫行。
 
-知名茶品牌齐聚，带来白茶、岩茶、红茶等多品类优质茗茶，游客可现场品鉴、选购。
+核心展厅7米x7米的巨型LED屏幕呈现的交互装置《游境》，如同开启横跨微观神经与宏观星系的生成式旅程，在光色转化中观者化身为宇宙的探索者；《元素》将一切纷繁归于黑白粒子的基本单元，艺术家试图探索一种能够描述世界所有存在的视觉语言。
 
-西翼楼打造高端茶美学空间，内设雅间与雅致外摆区，兼顾商务洽谈与休闲品茗需求，同步呈现经典茶事体验。
+在技术浪潮奔涌而来的时代下，马克西姆为“代码生成的运动图像”注入流动的生命意志，为冰冷的物理模拟融入诗意的感官，展览力图在算法之上呈现人类动人的力量。
 
-其中，银安殿内特别设置国家级非遗潮州工夫茶体验区，非遗代表性传承人现场呈现“二十一式”等传统技艺，展现中式茶道的深厚底蕴，让游客近距离感受传统茶艺的仪式感与匠心。
+该展学术主持费俊表示，在这里，“行”不再意味着从起点到终点的线性移动，而是一种在涌现结构中的持续参与：方向不断被改写，路径不断被生成。
 
 ## 相关推荐
 
-- 2026-06-29 14:25 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-29 14:24 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 14:08 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-29 14:23 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-29 14:18 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-29 14:21 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-29 14:30 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 14:29 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 14:35 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 14:14 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 14:09 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-29 14:08 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-29 14:37 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-29 14:39 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 14:25 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 14:25 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-29 14:33 - [光与夜之恋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-29 14:26 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 14:32 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 14:23 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 14:18 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 14:41 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:17 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/57761429.shtml)
-- 2026-06-29 14:23 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.kurohicncr.top/Article/details/26910445.shtml)
-- 2026-06-29 14:13 - [世界杯超牛补水广告出现了](https://www.share.kurohicncr.top/Article/details/89624.shtml)
-- 2026-06-29 14:23 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/312499.shtml)
-- 2026-06-29 14:12 - [异世界一点都不好玩！](https://www.blog.minike.top/Article/details/93865.shtml)
-- 2026-06-29 14:11 - [42岁郭碧婷纯素颜状态](https://www.share.kurohicncr.top/Article/details/8860656238.shtml)
-- 2026-06-29 14:14 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/538044956163.shtml)
-- 2026-06-29 14:31 - [父亲患病母亲残疾女儿接到清华电话](http://www.blog.minike.top/Article/details/405055576136.shtml)
-- 2026-06-29 14:31 - [沙丘](https://www.blog.minike.top/Article/details/51492.shtml)
-- 2026-06-29 14:35 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/8446003.shtml)
-- 2026-06-29 14:35 - [李连杰回应网传不管前妻俩女儿](http://www.blog.kurohicncr.top/Article/details/947794758.shtml)
-- 2026-06-29 14:34 - [沉睡花园](http://www.blog.minike.top/Article/details/8535377183.shtml)
-- 2026-06-29 14:35 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/588004654660.shtml)
-- 2026-06-29 14:12 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/0051108300.shtml)
-- 2026-06-29 14:26 - [唐艺昕女儿接唐艺昕回家](http://www.share.kurohicncr.top/Article/details/52414308.shtml)
+- 2026-06-29 14:31 - [逆天祖国人](https://www.share.minike.top/Article/details/389403115479.shtml)
+- 2026-06-29 14:37 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/3847824.shtml)
+- 2026-06-29 14:16 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/928329.shtml)
+- 2026-06-29 14:26 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/18338.shtml)
+- 2026-06-29 14:28 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/865771031243.shtml)
+- 2026-06-29 14:18 - [女孩遭霸凌网上认文身大哥求庇护](https://www.blog.minike.top/Article/details/31613970.shtml)
+- 2026-06-29 14:40 - [辽宁葫芦岛一居民楼突发爆炸](http://www.share.minike.top/Article/details/071574138.shtml)
+- 2026-06-29 14:40 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/468313722.shtml)
+- 2026-06-29 14:18 - [永远保持对人民的赤子之心](https://www.share.kurohicncr.top/Article/details/9519418268.shtml)
+- 2026-06-29 14:40 - [《贺子珍》](https://www.share.minike.top/Article/details/2114820676.shtml)
+- 2026-06-29 14:22 - [Canna纳尔8-0对位单杀Doran](https://www.blog.minike.top/Article/details/41563.shtml)
+- 2026-06-29 14:14 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/241438819147.shtml)
+- 2026-06-29 14:19 - [巴西德国15次闯进世界杯淘汰赛](http://www.share.minike.top/Article/details/346354799079.shtml)
+- 2026-06-29 14:38 - [医药股集体爆发](http://www.share.minike.top/Article/details/7472173926.shtml)
+- 2026-06-29 14:34 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/535365938998.shtml)

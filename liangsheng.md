@@ -1,46 +1,61 @@
-# 海南省公安厅原党委委员、副厅长董长青接受审查调查
+# 湖南在渝举办专场招聘 以硬核举措揽才纳贤
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-中新网4月29日电 据海南省纪委监委消息：海南省公安厅原党委委员、副厅长董长青涉嫌严重违纪违法，目前正接受海南省纪委监委纪律审查和监察调查。
+中新网重庆4月26日电 (记者 钟旖)“好的平台，能让青春更有方向、更有奔头。只要你有能力、肯奋斗，就能被看见。”26日，在“智汇潇湘 才聚湖南”重庆站专场招聘活动上，湖南科技企业拓维信息品牌与市场营销专家周奕欣谈及职业选择，向求职学子分享道。 当天，湖南省147家用人单位走进重庆大学揽才纳贤，为求职者带来5395个岗位。 湖南省人力资源和社会保障厅相关负责人介绍，赴渝引才，湖
 
 ## 正文
 
-中新网4月29日电 据海南省纪委监委消息：海南省公安厅原党委委员、副厅长董长青涉嫌严重违纪违法，目前正接受海南省纪委监委纪律审查和监察调查。
+中新网重庆4月26日电 (记者 钟旖)“好的平台，能让青春更有方向、更有奔头。
+
+只要你有能力、肯奋斗，就能被看见。
+
+”26日，在“智汇潇湘 才聚湖南”重庆站专场招聘活动上，湖南科技企业拓维信息品牌与市场营销专家周奕欣谈及职业选择，向求职学子分享道。
+
+当天，湖南省147家用人单位走进重庆大学揽才纳贤，为求职者带来5395个岗位。
+
+湖南省人力资源和社会保障厅相关负责人介绍，赴渝引才，湖南具有就业岗位好、政策服务好、创业环境好等优势。
+
+比如，本轮线下招聘，湖南26家事业单位提供岗位1370个，9家博士后站点提供岗位213个，49家央国企提供岗位1295个，63家民营企业提供岗位2517个，覆盖湖南工程机械、轨道交通等优势产业，涉及人工智能、量子科技等新兴和未来产业。
+
+政策方面，湖南省委、省政府出台了高质量充分就业27条措施，提出了支持高校毕业生等青年在湖南发展的“五有”硬核举措，为到湖南求职的大学生提供住宿、租房、购房等一系列服务，并开通情侣就业绿色服务通道。
+
+线上服务方面，该省特别打造“留湘来湘高校毕业生就业服务平台”，集政策发布、岗位匹配、预约面试、信息推送、补贴兑现于一体，求职者可实现查政策、找岗位、领补贴、办业务“一网通办”。
 
 ## 相关推荐
 
-- 2026-06-29 14:25 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-29 14:07 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-29 14:14 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-29 14:14 - [退休化学教授帮医药研发人员制毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-29 14:17 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-29 14:25 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-29 14:33 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 14:18 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-29 14:19 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-29 14:22 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-29 14:32 - [双高胎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 14:08 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-29 14:29 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 14:32 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-29 14:18 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-29 14:25 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 14:30 - [梅朗雄主张法国退出北约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-29 14:21 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-29 14:24 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 14:12 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-29 14:23 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-29 14:34 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 14:31 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-29 14:36 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 14:40 - [民进党为什么拼命抹黑统战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 14:35 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 14:20 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-29 14:21 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-29 14:21 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:26 - [为什么6月以来北方频繁降雨](http://www.share.minike.top/Article/details/6582166.shtml)
-- 2026-06-29 14:24 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/98056.shtml)
-- 2026-06-29 14:23 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/596198480532.shtml)
-- 2026-06-29 14:17 - [美国近12万名科技员工被解雇](https://www.share.kurohicncr.top/Article/details/8794704856.shtml)
-- 2026-06-29 14:21 - [吴昕要助理买的药6年前已停产](https://www.share.minike.top/Article/details/505803.shtml)
-- 2026-06-29 14:25 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.kurohicncr.top/Article/details/078523839.shtml)
-- 2026-06-29 14:25 - [市民骑哈啰单车79分钟被收费30元](http://www.blog.kurohicncr.top/Article/details/72174.shtml)
-- 2026-06-29 14:35 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/516437.shtml)
-- 2026-06-29 14:16 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.blog.kurohicncr.top/Article/details/6676436277.shtml)
-- 2026-06-29 14:30 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/4468577.shtml)
-- 2026-06-29 14:19 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/1615189399.shtml)
-- 2026-06-29 14:27 - [杨紫下沉市场口碑](http://www.share.minike.top/Article/details/846013996.shtml)
-- 2026-06-29 14:26 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/6348823721.shtml)
-- 2026-06-29 14:14 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.minike.top/Article/details/44302671365.shtml)
-- 2026-06-29 14:11 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.minike.top/Article/details/87606922.shtml)
+- 2026-06-29 14:34 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/048218776711.shtml)
+- 2026-06-29 14:31 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/85385840163.shtml)
+- 2026-06-29 14:31 - [每代父母都困在自己的时代里](http://www.share.kurohicncr.top/Article/details/863101010.shtml)
+- 2026-06-29 14:27 - [男孩复读一年减重20斤涨分111分](http://www.share.kurohicncr.top/Article/details/055164.shtml)
+- 2026-06-29 14:29 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/394103.shtml)
+- 2026-06-29 14:17 - [毒液2](https://www.blog.kurohicncr.top/Article/details/02514867.shtml)
+- 2026-06-29 14:15 - [恋与深空失控领地](http://www.share.minike.top/Article/details/196330.shtml)
+- 2026-06-29 14:15 - [恋与深空评分暴跌至1.8](https://www.blog.kurohicncr.top/Article/details/91533281785.shtml)
+- 2026-06-29 14:26 - [严浩翔FIY断层第一](https://www.share.kurohicncr.top/Article/details/34526.shtml)
+- 2026-06-29 14:30 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/45509054660.shtml)
+- 2026-06-29 14:16 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/944957905300.shtml)
+- 2026-06-29 14:24 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.minike.top/Article/details/995944.shtml)
+- 2026-06-29 14:25 - [每代父母都困在自己的时代里](http://www.blog.kurohicncr.top/Article/details/27391.shtml)
+- 2026-06-29 14:18 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/7470563.shtml)
+- 2026-06-29 14:36 - [评论员：高温撕开欧洲“遮羞布”](https://www.blog.kurohicncr.top/Article/details/06527.shtml)

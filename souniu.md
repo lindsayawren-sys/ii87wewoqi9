@@ -1,61 +1,56 @@
-# 北方稀土利润翻倍引爆行情！有色金属领涨两市，华宝基金有色ETF（159876）猛拉4%，近5日吸金1342万元！
+# 广西钦州遭遇特大暴雨 大面积“水浸街”
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-王者归来！今日（4月29日）有色金属板块领涨两市，截至发稿，获主力资金净流入超180亿元，板块吸金额高居31个申万一级行业首位，北方稀土获主力资金净流入近40亿元，高居A股吸金榜第二位。 热门ETF方面，同标的指数规模最大、流动性最佳*的有色ETF华宝（159876）场内价格盘中猛拉4.05%，现涨3.86%，深交所数据显示，该ETF近5日累计吸金1342万元，反映资金看好有色
+中新网钦州4月27日电 (翟李强 李凯)4月27日，广西钦州遭遇特大暴雨袭击，迅猛的雨势导致钦州市严重内涝，城区大面积积水，城市交通、市民出行、供水等均受影响，部分学校停课。 这场暴雨从27日凌晨开始，至27日上午雨势不停，钦州市城区大面积“水浸街”，部分路段水深齐腰，沿街商铺被水倒灌，大量汽车、电动车及部分居民房屋一楼被浸泡在水中，平陆运河钦州城区段水位明显上升。 钦州市防汛
 
 ## 正文
 
-王者归来！
+中新网钦州4月27日电 (翟李强 李凯)4月27日，广西钦州遭遇特大暴雨袭击，迅猛的雨势导致钦州市严重内涝，城区大面积积水，城市交通、市民出行、供水等均受影响，部分学校停课。
 
-今日（4月29日）有色金属板块领涨两市，截至发稿，获主力资金净流入超180亿元，板块吸金额高居31个申万一级行业首位，北方稀土获主力资金净流入近40亿元，高居A股吸金榜第二位。
+这场暴雨从27日凌晨开始，至27日上午雨势不停，钦州市城区大面积“水浸街”，部分路段水深齐腰，沿街商铺被水倒灌，大量汽车、电动车及部分居民房屋一楼被浸泡在水中，平陆运河钦州城区段水位明显上升。
 
-热门ETF方面，同标的指数规模最大、流动性最佳*的有色ETF华宝（159876）场内价格盘中猛拉4.05%，现涨3.86%，深交所数据显示，该ETF近5日累计吸金1342万元，反映资金看好有色金属板块后市表现，积极进场布局！
+钦州市防汛抗旱指挥部9时启动钦州市防汛三级应急响应，要求切实做好各级各行业防汛工作。
 
-成份股方面，稀土龙头显著领涨，中国稀土、北方稀土涨停，盛和资源涨超9%，中稀有色涨逾7%；锂业龙头永兴材料亦涨停，黄金龙头恒邦股份涨近8%。
+钦州市开投水务有限公司发布通知称，受突发暴雨影响，为确保安全供水，该公司第一供水厂、第二供水厂调整机组生产，城区部分地方出现低压供水。
 
-消息面上，北方稀土披露2026年第一季度报告，公司业绩实现强劲增长。
+钦州市消防救援支队介绍，自当天6时起至11时，该支队共接到因强降雨造成内涝救援警情23起，出动消防车25辆次、消防救援人员150人次，紧急转移疏散被困人员30人。
 
-报告期内，公司实现营业收入118.59亿元，同比增长27.69%；归属于上市公司股东的净利润达到9.18亿元，同比大幅增长113.12%。
+紧邻的北海市合浦县10时起启动防汛四级应急响应。
 
-对于业绩增长的原因，公司表示主要得益于以镨钕产品为代表的主要稀土产品一季度均价同比升高，带动毛利同比增加。
+合浦县防汛抗旱指挥部发布信息称，强降雨云团强度维持并向偏东方向移动，预计未来3小时，多个乡镇仍有40-60毫米、局地70毫米以上强降雨。
 
-近期多家稀土企业密集披露一季报，稀土公司业绩集体翻倍。
+当天，北海市城区局地亦出现短时强降雨，时断时续。
 
 ## 相关推荐
 
-- 2026-06-29 14:34 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 14:26 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-29 14:16 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 14:24 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-29 14:19 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-29 14:13 - [6月我国降水为何偏多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 14:35 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-29 14:32 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-29 14:12 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-29 14:17 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-29 14:07 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-29 14:19 - [TOP 无畏契约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-29 14:20 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 14:13 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-29 14:10 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 14:12 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-29 14:35 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 14:18 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 14:26 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 14:25 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 14:33 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-29 14:26 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-29 14:29 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-29 14:26 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-29 14:12 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:11 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.kurohicncr.top/Article/details/937269560576.shtml)
-- 2026-06-29 14:32 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/236701.shtml)
-- 2026-06-29 14:22 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.kurohicncr.top/Article/details/7609282.shtml)
-- 2026-06-29 14:35 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/915592606674.shtml)
-- 2026-06-29 14:17 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.minike.top/Article/details/952274.shtml)
-- 2026-06-29 14:10 - [周杰伦演唱会真的好多人啊](http://www.share.kurohicncr.top/Article/details/054277.shtml)
-- 2026-06-29 14:12 - [金牌调解](https://www.share.minike.top/Article/details/63360967.shtml)
-- 2026-06-29 14:32 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/924858855.shtml)
-- 2026-06-29 14:33 - [明星大侦探第一季](https://www.share.minike.top/Article/details/00191.shtml)
-- 2026-06-29 14:28 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/92342.shtml)
-- 2026-06-29 14:18 - [曝歌手第七期帮唱阵容](https://www.blog.kurohicncr.top/Article/details/724328.shtml)
-- 2026-06-29 14:25 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/4890755571.shtml)
-- 2026-06-29 14:29 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/79525962.shtml)
-- 2026-06-29 14:19 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.kurohicncr.top/Article/details/901869582.shtml)
-- 2026-06-29 14:10 - [如果你一直单身，你准备怎么养老？](http://www.share.minike.top/Article/details/358463941.shtml)
+- 2026-06-29 14:36 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/479122137310.shtml)
+- 2026-06-29 14:21 - [小娘惹](http://www.blog.minike.top/Article/details/88059.shtml)
+- 2026-06-29 14:15 - [三星与SK集团或将投资2000万亿韩元](https://www.share.minike.top/Article/details/209882489.shtml)
+- 2026-06-29 14:20 - [男孩复读一年减重20斤涨分111分](http://www.blog.minike.top/Article/details/14944.shtml)
+- 2026-06-29 14:23 - [比亚迪为什么卖得越多市值越低](https://www.blog.kurohicncr.top/Article/details/71097335.shtml)
+- 2026-06-29 14:29 - [教育部发布预警 事关高招录取](https://www.blog.kurohicncr.top/Article/details/842585280.shtml)
+- 2026-06-29 14:38 - [媒体人：警惕日本再次成战争加害国](https://www.share.minike.top/Article/details/457535254.shtml)
+- 2026-06-29 14:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/684829.shtml)
+- 2026-06-29 14:14 - [德国队前往比赛场地遭遇囧途](http://www.share.minike.top/Article/details/96011203394.shtml)
+- 2026-06-29 14:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/933159.shtml)
+- 2026-06-29 14:38 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/549110.shtml)
+- 2026-06-29 14:35 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/0250386701.shtml)
+- 2026-06-29 14:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/196440033.shtml)
+- 2026-06-29 14:41 - [恋与深空失控领地](http://www.blog.kurohicncr.top/Article/details/85857910405.shtml)
+- 2026-06-29 14:27 - [我国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/4529763952.shtml)

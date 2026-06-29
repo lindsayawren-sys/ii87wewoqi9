@@ -1,48 +1,57 @@
-# 工商银行大同分行被罚49.6万元：违反金融统计管理规定
+# 监管立规，终结支付信贷捆绑！花呗、白条、月付等面临重大调整
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-4月30日金融一线消息，据中国人民银行大同市分行行政处罚决定信息公示表显示，中国工商银行股份有限公司大同分行因违反金融统计管理规定，被处罚款人民币49.6万元。 责任编辑：秦艺
+4月24日，中国人民银行等八部门联合印发《金融产品网络营销管理办法》（下称《办法》），自2026年9月30日起正式施行。 其中，针对非银行支付机构的支付嵌入信贷乱象，《办法》第十二条划出明确红线：非银行支付机构不得将贷款、资产管理产品等金融产品列入支付工具选项，不得为贷款、资产管理产品等金融产品提供营销服务。 第一财经记者多方采访了解，这一规定直击长期存在的支付与信贷深度捆绑的
 
 ## 正文
 
-4月30日金融一线消息，据中国人民银行大同市分行行政处罚决定信息公示表显示，中国工商银行股份有限公司大同分行因违反金融统计管理规定，被处罚款人民币49.6万元。
+4月24日，中国人民银行等八部门联合印发《金融产品网络营销管理办法》（下称《办法》），自2026年9月30日起正式施行。
 
-责任编辑：秦艺
+其中，针对非银行支付机构的支付嵌入信贷乱象，《办法》第十二条划出明确红线：非银行支付机构不得将贷款、资产管理产品等金融产品列入支付工具选项，不得为贷款、资产管理产品等金融产品提供营销服务。
+
+第一财经记者多方采访了解，这一规定直击长期存在的支付与信贷深度捆绑的行业顽疾，不仅规范支付场景展示逻辑，同时也切断了金融营销变现路径，共同构成对支付机构金融业务模式的系统性约束。
+
+支付信贷严格区隔，整治捆绑营销乱象 长期以来，在电商、外卖、出行、生活缴费等日常消费场景中，“**白条”“**月付”等信贷分期类产品常常与银行卡、账户余额等常规支付工具并列展示，部分平台还存在默认勾选、弹窗推送、前置推荐等操作，用户稍不留意便会被动开通或使用信贷服务。
+
+第一财经记者在某消费投诉 【下载黑猫投诉客户端】平台上看到，大量消费者投诉反映，在未充分知情、未明确了解信贷属性的前提下，被动开通或使用分期服务，甚至出现逾期后才知晓借贷事实的情况，消费者权益受损问题频发。
+
+针对上述乱象，《办法》特别对金融网络产品营销内容和行为进行了规定。
+
+按照《办法》要求，支付机构的收银台页面中支付工具必须与贷款等金融产品区隔展示、优先展示，不得用“优惠支付”“分期支付”等类似表述的选项混淆支付工具与贷款产品。
+
+同时全面收紧信贷营销话术，贷款产品将不得使用“低门槛”“秒到账”“低利率”等营销话术；涉及分期付款的，不得通过片面宣传首期费用优惠等方式诱导消费。
 
 ## 相关推荐
 
-- 2026-06-29 14:17 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 14:10 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-29 14:27 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 14:08 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-29 14:23 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-29 14:21 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-29 14:14 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 14:34 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-29 14:16 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 14:21 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-29 14:30 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 14:20 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 14:31 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 14:25 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-29 14:15 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-29 14:15 - [久坐小心“死臀综合征”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-29 14:21 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 14:38 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-29 14:13 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-29 14:31 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-29 14:35 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 14:41 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-29 14:34 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 14:24 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 14:16 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:30 - [绘画区你赢了](http://www.blog.minike.top/Article/details/331051.shtml)
-- 2026-06-29 14:19 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/9931331.shtml)
-- 2026-06-29 14:30 - [极限挑战第一季](https://www.blog.minike.top/Article/details/8252831.shtml)
-- 2026-06-29 14:34 - [崔韩率还以为韩娱来新人了](https://www.share.minike.top/Article/details/26468960705.shtml)
-- 2026-06-29 14:06 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/189015.shtml)
-- 2026-06-29 14:19 - [加拿大女球迷玩人浪把手机甩飞](https://www.blog.kurohicncr.top/Article/details/90973834.shtml)
-- 2026-06-29 14:27 - [我国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/209494064.shtml)
-- 2026-06-29 14:12 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/402682250884.shtml)
-- 2026-06-29 14:23 - [韩国主帅洪明甫辞职](https://www.blog.minike.top/Article/details/336487.shtml)
-- 2026-06-29 14:12 - [专家建议城乡居民养老金增至每月千元](https://www.blog.minike.top/Article/details/1426615022.shtml)
-- 2026-06-29 14:31 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/87767.shtml)
-- 2026-06-29 14:07 - [青春环游记第三季](http://www.blog.minike.top/Article/details/5688850598.shtml)
-- 2026-06-29 14:06 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/180158225.shtml)
-- 2026-06-29 14:31 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.share.minike.top/Article/details/755728741.shtml)
-- 2026-06-29 14:29 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.minike.top/Article/details/661368514.shtml)
+- 2026-06-29 14:28 - [美人鱼](http://www.share.kurohicncr.top/Article/details/58937458682.shtml)
+- 2026-06-29 14:39 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/823733586.shtml)
+- 2026-06-29 14:33 - [papi酱回应毕业4年零收入](http://www.blog.kurohicncr.top/Article/details/905710104.shtml)
+- 2026-06-29 14:13 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/00328.shtml)
+- 2026-06-29 14:22 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/317597274006.shtml)
+- 2026-06-29 14:12 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.blog.minike.top/Article/details/87708.shtml)
+- 2026-06-29 14:34 - [北极荒岛生存挑战](http://www.blog.kurohicncr.top/Article/details/09572798868.shtml)
+- 2026-06-29 14:36 - [欧洲多国激辩“装不装空调”](https://www.blog.minike.top/Article/details/6653423.shtml)
+- 2026-06-29 14:19 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/8432219837.shtml)
+- 2026-06-29 14:38 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/589497356186.shtml)
+- 2026-06-29 14:35 - [爱情有烟火你是知道我爱看什么的](https://www.blog.kurohicncr.top/Article/details/871758853669.shtml)
+- 2026-06-29 14:41 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/111953116004.shtml)
+- 2026-06-29 14:21 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/002451615438.shtml)
+- 2026-06-29 14:20 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.minike.top/Article/details/79186356.shtml)
+- 2026-06-29 14:17 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/69500.shtml)

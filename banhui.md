@@ -1,58 +1,60 @@
-# 杨德龙：美联储继续维持利率不变 鲍威尔呼吁保持货币政策独立性
+# “理响中国”，用网络温度传递理论深度
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-北京时间4月30日凌晨2点，美联储宣布将基准利率维持在3.5%-3.75%不变，连续三次会议按兵不动，符合市场预期。这也是美联储主席鲍威尔在任期结束前的最后一次新闻发布会。5月15日鲍威尔任期结束，他可能继续担任美联储理事。特朗普新提名的继任者为沃什，沃什上任后可能采取“缩表+降息”的组合拳。鲍威尔首先祝贺沃什获得参议院银行委员会表决通过，他评价沃什拥有驱动共识的能力，并表示相
+【理响中国】“理响中国”，用网络温度传递理论深度 作者：李群 思想如炬，可照万里征途；理论似灯，能暖亿万民心。数字化浪潮奔涌向前，网络空间已成为人们精神栖息的家园、思想交流的沃土。4月27日上午，2026“理响中国”党的创新理论网络传播精品分享会在江苏南京举办。这场汇聚思想智慧、共话传播创新的盛会，既是对新时代理论传播路径的深度探索，更是让党的创新理论“飞入寻常百姓家”的生动实
 
 ## 正文
 
-北京时间4月30日凌晨2点，美联储宣布将基准利率维持在3.5%-3.75%不变，连续三次会议按兵不动，符合市场预期。
+【理响中国】“理响中国”，用网络温度传递理论深度 作者：李群 思想如炬，可照万里征途；理论似灯，能暖亿万民心。
 
-这也是美联储主席鲍威尔在任期结束前的最后一次新闻发布会。
+数字化浪潮奔涌向前，网络空间已成为人们精神栖息的家园、思想交流的沃土。
 
-5月15日鲍威尔任期结束，他可能继续担任美联储理事。
+4月27日上午，2026“理响中国”党的创新理论网络传播精品分享会在江苏南京举办。
 
-特朗普新提名的继任者为沃什，沃什上任后可能采取“缩表+降息”的组合拳。
+这场汇聚思想智慧、共话传播创新的盛会，既是对新时代理论传播路径的深度探索，更是让党的创新理论“飞入寻常百姓家”的生动实践，为网络空间注入磅礴的力量与奋进动能。
 
-鲍威尔首先祝贺沃什获得参议院银行委员会表决通过，他评价沃什拥有驱动共识的能力，并表示相信这将是一次标准、正常的人事更迭。
+理论的生命力，在于扎根时代、回应实践；理论的传播力，在于贴近群众、直抵人心。
 
-他特别提到，相信沃什会勇敢面对来自白宫的降息压力，维护美联储与财政部之间的边界，即保持美联储货币政策的独立性。
+党的创新理论从来不是束之高阁的“阳春白雪”，而是源自实践、指导实践的“金钥匙”，是回应人民期盼、解答时代课题的“定盘星”。
 
-鲍威尔发出严厉警告，称美联储的独立性正受到威胁。
+当下，互联网成为亿万群众生产生活的主空间，信息传播格局、舆论生态环境、群众接受习惯都发生了深刻变革。
 
-他强调，如果货币政策受到政治干预，市场将丧失对通胀目标的信心，这对美国经济将是灾难性的。
+若理论传播仍固守“我说你听”的单向灌输方式，难免会与群众产生距离。
 
 ## 相关推荐
 
-- 2026-06-29 14:14 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-29 14:22 - [A股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 14:12 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 14:25 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-29 14:19 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-29 14:23 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-29 14:21 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-29 14:25 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-29 14:12 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-29 14:14 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-29 14:25 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 14:09 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-29 14:40 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 14:36 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 14:14 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-29 14:40 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 14:31 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 14:36 - [医药股集体爆发](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 14:26 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-29 14:23 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 14:30 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-29 14:37 - [以前不让妆女二可以艳压女主](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 14:14 - [锐评浪姐7总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 14:15 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-29 14:33 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 14:27 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:25 - [世界杯欧美八大豪强悉数出线](https://www.share.kurohicncr.top/Article/details/957333108.shtml)
-- 2026-06-29 14:10 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/510581.shtml)
-- 2026-06-29 14:32 - [撒旦的腋窝是什么比喻](http://www.share.minike.top/Article/details/849499316.shtml)
-- 2026-06-29 14:24 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/867903.shtml)
-- 2026-06-29 14:18 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/727723972.shtml)
-- 2026-06-29 14:19 - [天道](http://www.share.minike.top/Article/details/32903885012.shtml)
-- 2026-06-29 14:31 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/2673552.shtml)
-- 2026-06-29 14:12 - [布里奇斯被交易至太阳](https://www.blog.kurohicncr.top/Article/details/6953384423.shtml)
-- 2026-06-29 14:21 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/3694683.shtml)
-- 2026-06-29 14:30 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.kurohicncr.top/Article/details/4460491.shtml)
-- 2026-06-29 14:21 - [俄军新型无人机战力如何](http://www.blog.minike.top/Article/details/899172256441.shtml)
-- 2026-06-29 14:28 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/12237.shtml)
-- 2026-06-29 14:11 - [逆天祖国人](https://www.blog.minike.top/Article/details/63567307.shtml)
-- 2026-06-29 14:18 - [Mrbeast的30天不吃饭挑战](http://www.blog.minike.top/Article/details/1010218.shtml)
-- 2026-06-29 14:07 - [在自己家不穿衣服犯法吗](http://www.share.kurohicncr.top/Article/details/10279983953.shtml)
+- 2026-06-29 14:41 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/5673910.shtml)
+- 2026-06-29 14:35 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/91076.shtml)
+- 2026-06-29 14:38 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.minike.top/Article/details/6684495.shtml)
+- 2026-06-29 14:31 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/002012481581.shtml)
+- 2026-06-29 14:40 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/8657483.shtml)
+- 2026-06-29 14:31 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.minike.top/Article/details/844237.shtml)
+- 2026-06-29 14:32 - [世界杯超牛补水广告出现了](http://www.share.kurohicncr.top/Article/details/22035583.shtml)
+- 2026-06-29 14:32 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/58279731357.shtml)
+- 2026-06-29 14:33 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.kurohicncr.top/Article/details/2538692584.shtml)
+- 2026-06-29 14:31 - [新一代影后杨紫](http://www.share.minike.top/Article/details/7370505804.shtml)
+- 2026-06-29 14:40 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.blog.kurohicncr.top/Article/details/44787120355.shtml)
+- 2026-06-29 14:35 - [欧委会总部只给高层开空调](https://www.share.kurohicncr.top/Article/details/791644.shtml)
+- 2026-06-29 14:29 - [巴基斯坦军方打死29名武装分子](http://www.blog.kurohicncr.top/Article/details/21148785405.shtml)
+- 2026-06-29 14:37 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/1100865043.shtml)
+- 2026-06-29 14:25 - [上周末 多领域成果密集“上新”](http://www.share.minike.top/Article/details/95452893.shtml)

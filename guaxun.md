@@ -1,61 +1,61 @@
-# 中国自动化学会举办2026科普百人团首场活动 传承弘扬钱学森精神
+# 港股收评：恒指跌0.2% 科指涨0.77% 有色金属板块走弱 苹果概念走强 半导体板块大涨
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-中新网北京4月29日电 (记者 孙自法)由“两弹一星”元勋钱学森院士担纲第一任理事长的中国自动化学会(CAA)2026年迎来成立65周年。该学会科普百人团——科学家进校园今年首场活动，日前在其成立地天津市举办，旨在将科学家精神宣讲与历史寻根相结合，以科普领航，传承、弘扬钱学森精神。 1961年11月，中国自动化学会在天津召开第一次全国代表大会正式宣告成立，钱学森当选第一届理事会
+4月27日消息，港股三大指数涨跌不一。截至收盘，恒生指数跌0.2%，报25925.55点，恒生科技指数涨0.77%，国企指数跌0.22%。盘面上，科网股涨跌不一，百度涨超3%，网易涨超1%，腾讯跌3%，阿里巴巴、哔哩哔哩、京东跌超1%；苹果概念走强，高伟电子涨超13%；半导体板块大涨，澜起科技涨超13%；有色金属板块走弱，灵宝黄金跌超3%。 苹果概念走强，高伟电子涨超13%。苹
 
 ## 正文
 
-中新网北京4月29日电 (记者 孙自法)由“两弹一星”元勋钱学森院士担纲第一任理事长的中国自动化学会(CAA)2026年迎来成立65周年。
+4月27日消息，港股三大指数涨跌不一。
 
-该学会科普百人团——科学家进校园今年首场活动，日前在其成立地天津市举办，旨在将科学家精神宣讲与历史寻根相结合，以科普领航，传承、弘扬钱学森精神。
+截至收盘，恒生指数跌0.2%，报25925.55点，恒生科技指数涨0.77%，国企指数跌0.22%。
 
-1961年11月，中国自动化学会在天津召开第一次全国代表大会正式宣告成立，钱学森当选第一届理事会理事长。
+盘面上，科网股涨跌不一，百度涨超3%，网易涨超1%，腾讯跌3%，阿里巴巴、哔哩哔哩、京东跌超1%；苹果概念走强，高伟电子涨超13%；半导体板块大涨，澜起科技涨超13%；有色金属板块走弱，灵宝黄金跌超3%。
 
-该学会在近65年后，这次又带着科普的使命前往天津，在多所中学(其中两校设有“钱学森班”)面向青少年开展科学教育，既是对历史的致敬，更是对未来的播种。
+苹果概念走强，高伟电子涨超13%。
 
-活动过程中，中国自动化学会副秘书长孙长生结合学会在天津的成立历程，重温钱学森的科学精神时表示，中国自动化学会自成立以来，致力于推动自动化科技进步和科学普及工作，科普百人团2024年启动至今，已走进29个地区、97所中小学，开展180场科普报告，成为践行科普使命、纪念钱老的最好行动。
+苹果将于美东时间4月30日盘后公布财报，值得重点关注。
 
-在科普报告环节，北京理工大学自动化学院教授、中国科学院老科协科普讲师团成员马宏宾带来“数奠根基，智取未来”主题报告，围绕数学、智能、控制、自主四大核心问题展开，系统阐述了数学作为科学与技术根基的重要性，智能作为感知、学习、决策与自适应综合能力的融合，控制在工程实践中的核心作用，以及自主作为智能系统与个体发展的高阶价值。
+另外，苹果折叠屏iPhone引爆创新预期：多方消息称，苹果首款折叠屏手机计划于2026年9月正式发布。
 
-北京师范大学智慧学习研究院副院长李艳燕教授作“走进人工智能：从图灵之问到智能体时代”主题报告，围绕人工智能(AI)展开系统阐述，从核心定义、发展历程、技术演进与能力边界出发，解析AI从计算智能、感知智能走向认知智能与智能体时代的变革，明确其本质为基于数据与概率的高效工具，而非具备意识与价值判断的主体。
+这被视为苹果近十年来最重大的设计革新，有望重塑高端手机市场格局。
 
-聆听报告的青少年学生们表示，深刻认识到数学是人工智能与自动化的重中之重，也更加明确了学习数学的重要性。
+半导体板块大涨，澜起科技涨超13%。
 
 ## 相关推荐
 
-- 2026-06-29 14:34 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-29 14:13 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 14:20 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-29 14:21 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 14:24 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-29 14:35 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 14:07 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 14:15 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 14:17 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 14:13 - [Mrbeast的30天不吃饭挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-29 14:22 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 14:23 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-29 14:33 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 14:34 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-29 14:06 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-29 14:12 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 14:38 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 14:34 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-29 14:33 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-29 14:17 - [血糖高的人能吃西瓜吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-29 14:28 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 14:36 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-29 14:15 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-29 14:35 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 14:41 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-29 14:21 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 14:12 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-29 14:14 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-29 14:23 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 14:31 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:14 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/09859872440.shtml)
-- 2026-06-29 14:24 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/69369966432.shtml)
-- 2026-06-29 14:33 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/444250890.shtml)
-- 2026-06-29 14:26 - [古力娜扎美出新高度](http://www.share.kurohicncr.top/Article/details/8855480209.shtml)
-- 2026-06-29 14:27 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.kurohicncr.top/Article/details/58330044816.shtml)
-- 2026-06-29 14:33 - [四川宜宾地震](https://www.blog.kurohicncr.top/Article/details/7559129752.shtml)
-- 2026-06-29 14:13 - [俄军新型无人机战力如何](http://www.share.minike.top/Article/details/16167874.shtml)
-- 2026-06-29 14:14 - [游戏数据被用于军事目的 国安部提醒](https://www.blog.minike.top/Article/details/795572767.shtml)
-- 2026-06-29 14:17 - [金刚川](https://www.blog.minike.top/Article/details/186982443.shtml)
-- 2026-06-29 14:13 - [普京称考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/42089817355.shtml)
-- 2026-06-29 14:30 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/0662073.shtml)
-- 2026-06-29 14:11 - [陈靖可虞书欣领衔主演](http://www.share.kurohicncr.top/Article/details/287277793.shtml)
-- 2026-06-29 14:11 - [韩体育部长回应李在明痛批](http://www.blog.minike.top/Article/details/60413293.shtml)
-- 2026-06-29 14:28 - [尹恩惠自曝14年没谈过恋爱](http://www.share.minike.top/Article/details/68354.shtml)
-- 2026-06-29 14:15 - [金价银价下跌 油价上涨](https://www.share.kurohicncr.top/Article/details/20077035160.shtml)
+- 2026-06-29 14:16 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/6986314.shtml)
+- 2026-06-29 14:33 - [恋与深空底线不该被娱乐化](http://www.blog.kurohicncr.top/Article/details/1307502064.shtml)
+- 2026-06-29 14:17 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/0735912.shtml)
+- 2026-06-29 14:22 - [一见倾心](https://www.share.minike.top/Article/details/8347552.shtml)
+- 2026-06-29 14:21 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/36512258963.shtml)
+- 2026-06-29 14:39 - [崔韩率还以为韩娱来新人了](http://www.blog.kurohicncr.top/Article/details/11407458.shtml)
+- 2026-06-29 14:36 - [媒体人：警惕日本再次成战争加害国](http://www.blog.minike.top/Article/details/2669383.shtml)
+- 2026-06-29 14:29 - [世界杯超牛补水广告出现了](http://www.share.kurohicncr.top/Article/details/340938574.shtml)
+- 2026-06-29 14:26 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/37369185150.shtml)
+- 2026-06-29 14:17 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.blog.kurohicncr.top/Article/details/78954807.shtml)
+- 2026-06-29 14:15 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/3275992.shtml)
+- 2026-06-29 14:32 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/3740293.shtml)
+- 2026-06-29 14:13 - [媒体：这一次合肥芜湖在伯仲之间](http://www.blog.minike.top/Article/details/58331707.shtml)
+- 2026-06-29 14:30 - [新一代影后杨紫](https://www.blog.minike.top/Article/details/240622392929.shtml)
+- 2026-06-29 14:31 - [吴昕要助理买的药6年前已停产](http://www.share.minike.top/Article/details/013390301.shtml)

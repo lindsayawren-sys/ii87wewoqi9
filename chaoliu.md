@@ -1,61 +1,57 @@
-# 沪科普活动：研制专家揭秘“天舟”之后为何有“轻舟”？
+# 大和证券将斥资23亿美元收购欧力士银行 拓展贷款业务
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-中新网上海4月29日电 (记者 郑莹莹)“与天舟(货运飞船)相比，轻舟(货运飞船)的发射频次比较高，可以给航天员带去更多诸如水果之类的新鲜物资。”中国科学院微小卫星创新研究院轻舟货运飞船副总设计师陈蕞28日在上海称。 当天，以“遇见宇宙，发现更美”为主题的科普活动在沪举办。陈蕞在现场带来有关轻舟货运飞船的科普讲座。 “既然有‘天舟’可以送货，我们为何还需要‘轻舟’？”陈蕞在现场
+大和证券表示将以3700亿日元（23亿美元）收购欧力士的银行子公司，这家日本第二大券商正进一步深化在商业贷款领域的布局。 该公司周一在一份声明中表示，将用自有资金为收购欧力士银行（Orix Bank Corp．）融资。交易预计将于10月底前完成。 大和证券还公布，截至3月31日的三个月，净利润较上年同期增长约66%，达到499亿日元。这一数字超过五位分析师平均预期的420亿日元
 
 ## 正文
 
-中新网上海4月29日电 (记者 郑莹莹)“与天舟(货运飞船)相比，轻舟(货运飞船)的发射频次比较高，可以给航天员带去更多诸如水果之类的新鲜物资。
+大和证券表示将以3700亿日元（23亿美元）收购欧力士的银行子公司，这家日本第二大券商正进一步深化在商业贷款领域的布局。
 
-”中国科学院微小卫星创新研究院轻舟货运飞船副总设计师陈蕞28日在上海称。
+该公司周一在一份声明中表示，将用自有资金为收购欧力士银行（Orix Bank Corp．）融资。
 
-当天，以“遇见宇宙，发现更美”为主题的科普活动在沪举办。
+交易预计将于10月底前完成。
 
-陈蕞在现场带来有关轻舟货运飞船的科普讲座。
+大和证券还公布，截至3月31日的三个月，净利润较上年同期增长约66%，达到499亿日元。
 
-“既然有‘天舟’可以送货，我们为何还需要‘轻舟’？
+这一数字超过五位分析师平均预期的420亿日元。
 
-”陈蕞在现场问。
-
-他接着解释，这是为了给中国空间站提供更灵活、更优成本的送货服务。
-
-“轻舟”致力于开辟航天降本增效新路径。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 14:29 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-29 14:28 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-29 14:28 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 14:11 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-29 14:15 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-29 14:06 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-29 14:11 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-29 14:25 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-29 14:16 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-29 14:28 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-29 14:33 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 14:07 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 14:30 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 14:15 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-29 14:33 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-29 14:13 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-29 14:13 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 14:12 - [金价银价下跌 油价上涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 14:12 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 14:33 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 14:28 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-29 14:36 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 14:32 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 14:21 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-29 14:27 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 14:24 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 14:13 - [南非老帅布罗斯的梦没能做完](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 14:22 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 14:36 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-29 14:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:30 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.blog.kurohicncr.top/Article/details/9762699845.shtml)
-- 2026-06-29 14:14 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/861186253050.shtml)
-- 2026-06-29 14:35 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/885041532619.shtml)
-- 2026-06-29 14:35 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.kurohicncr.top/Article/details/09910780.shtml)
-- 2026-06-29 14:09 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/583183348266.shtml)
-- 2026-06-29 14:27 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/56586408784.shtml)
-- 2026-06-29 14:24 - [iPhone18系列预计将大幅涨价](https://www.blog.kurohicncr.top/Article/details/20847.shtml)
-- 2026-06-29 14:12 - [王楚钦周启豪爆分](https://www.blog.minike.top/Article/details/0066486.shtml)
-- 2026-06-29 14:27 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/53817148534.shtml)
-- 2026-06-29 14:16 - [欧委会总部只给高层开空调](http://www.blog.kurohicncr.top/Article/details/66368332134.shtml)
-- 2026-06-29 14:16 - [网约车司机转账15000元后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/85870471864.shtml)
-- 2026-06-29 14:34 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/80055035.shtml)
-- 2026-06-29 14:29 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/83861764.shtml)
-- 2026-06-29 14:33 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/1985014.shtml)
-- 2026-06-29 14:16 - [周杰伦演唱会真的好多人啊](http://www.share.minike.top/Article/details/808218268367.shtml)
+- 2026-06-29 14:12 - [毒液2](https://www.blog.kurohicncr.top/Article/details/52542524.shtml)
+- 2026-06-29 14:14 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/38594582.shtml)
+- 2026-06-29 14:29 - [去了一趟潮汕。](http://www.share.minike.top/Article/details/987303818.shtml)
+- 2026-06-29 14:36 - [比亚迪市值为何蒸发8000亿](https://www.share.kurohicncr.top/Article/details/9049307.shtml)
+- 2026-06-29 14:34 - [辽宁葫芦岛一居民楼突发爆炸](https://www.blog.kurohicncr.top/Article/details/005068.shtml)
+- 2026-06-29 14:22 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/0964698.shtml)
+- 2026-06-29 14:40 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.share.kurohicncr.top/Article/details/527573270.shtml)
+- 2026-06-29 14:28 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/751248882110.shtml)
+- 2026-06-29 14:39 - [南非老帅布罗斯的梦没能做完](http://www.blog.kurohicncr.top/Article/details/224191.shtml)
+- 2026-06-29 14:37 - [高考公平需要延伸到志愿填报这一环](https://www.blog.kurohicncr.top/Article/details/657055.shtml)
+- 2026-06-29 14:15 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/5336302086.shtml)
+- 2026-06-29 14:41 - [日本主帅：对战胜巴西很有信心](https://www.share.minike.top/Article/details/53452.shtml)
+- 2026-06-29 14:21 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.kurohicncr.top/Article/details/87079.shtml)
+- 2026-06-29 14:39 - [中俄联合巡航阵容强大 日本慌了？](https://www.share.minike.top/Article/details/89203480.shtml)
+- 2026-06-29 14:18 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/51405158035.shtml)

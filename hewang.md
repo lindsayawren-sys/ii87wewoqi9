@@ -1,46 +1,46 @@
-# 伊朗最高领袖：伊朗与海湾邻国命运相连
+# 国家发展改革委：禁止外资收购Manus项目 要求撤销交易
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰4月30日电据伊朗媒体4月30日报道，伊朗最高领袖穆杰塔巴·哈梅内伊表示，伊朗与海湾邻国命运相连，“作恶的外国人”无处容身，只配沉入“水深之处”。（完）责任编辑：宋雅芳
+国家发展改革委依法依规对外资收购Manus项目作出禁止投资决定，要求当事人撤销该收购交易。 责任编辑：刘万里 SF014
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+国家发展改革委依法依规对外资收购Manus项目作出禁止投资决定，要求当事人撤销该收购交易。
 
-新华社德黑兰4月30日电据伊朗媒体4月30日报道，伊朗最高领袖穆杰塔巴·哈梅内伊表示，伊朗与海湾邻国命运相连，“作恶的外国人”无处容身，只配沉入“水深之处”。
-
-（完）责任编辑：宋雅芳
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 14:32 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 14:21 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-29 14:26 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 14:30 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-29 14:26 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-29 14:14 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-29 14:23 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 14:15 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-29 14:13 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 14:11 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 14:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 14:37 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 14:23 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 14:35 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-29 14:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 14:12 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 14:36 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 14:20 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-29 14:27 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-29 14:35 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 14:24 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-29 14:19 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:08 - [日本前锋言论激怒巴西](http://www.share.minike.top/Article/details/8764316.shtml)
-- 2026-06-29 14:29 - [F1奥地利正赛战报](http://www.share.minike.top/Article/details/990156148.shtml)
-- 2026-06-29 14:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/74606.shtml)
-- 2026-06-29 14:10 - [以前不让妆女二可以艳压女主](https://www.share.minike.top/Article/details/06959431.shtml)
-- 2026-06-29 14:07 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/2996720.shtml)
-- 2026-06-29 14:22 - [105年初心滚烫](http://www.share.minike.top/Article/details/38105.shtml)
-- 2026-06-29 14:11 - [复盘曾沛慈浪姐夺冠之路](https://www.share.minike.top/Article/details/790391.shtml)
-- 2026-06-29 14:27 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/58886.shtml)
-- 2026-06-29 14:28 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.kurohicncr.top/Article/details/5384946535.shtml)
-- 2026-06-29 14:23 - [薛之谦演唱会](http://www.blog.kurohicncr.top/Article/details/545639354349.shtml)
-- 2026-06-29 14:09 - [吴海燕兰西雅漫步复兴岛](http://www.share.minike.top/Article/details/112855399471.shtml)
-- 2026-06-29 14:19 - [大范围炎热天气将至](http://www.share.kurohicncr.top/Article/details/948279.shtml)
-- 2026-06-29 14:17 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/538016047524.shtml)
-- 2026-06-29 14:17 - [一见倾心](http://www.share.minike.top/Article/details/3463841859.shtml)
-- 2026-06-29 14:33 - [退休化学教授帮医药研发人员制毒](http://www.blog.kurohicncr.top/Article/details/6842858.shtml)
+- 2026-06-29 14:22 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/36285.shtml)
+- 2026-06-29 14:18 - [链博会上的机器人太全能了](https://www.share.minike.top/Article/details/582606.shtml)
+- 2026-06-29 14:26 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.share.minike.top/Article/details/087189004.shtml)
+- 2026-06-29 14:35 - [去了一趟潮汕。](https://www.blog.kurohicncr.top/Article/details/26658.shtml)
+- 2026-06-29 14:22 - [TOP 无畏契约](http://www.blog.minike.top/Article/details/0600584.shtml)
+- 2026-06-29 14:38 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.minike.top/Article/details/55813.shtml)
+- 2026-06-29 14:39 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.minike.top/Article/details/408220783272.shtml)
+- 2026-06-29 14:34 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/39453.shtml)
+- 2026-06-29 14:27 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/0727651930.shtml)
+- 2026-06-29 14:24 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/471628.shtml)
+- 2026-06-29 14:30 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/984939.shtml)
+- 2026-06-29 14:39 - [这一刀 会很帅](http://www.share.minike.top/Article/details/56688195.shtml)
+- 2026-06-29 14:15 - [河南考699分女生已接到清华大学电话](https://www.blog.minike.top/Article/details/454285567229.shtml)
+- 2026-06-29 14:12 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/13612470.shtml)
+- 2026-06-29 14:24 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/845672229.shtml)

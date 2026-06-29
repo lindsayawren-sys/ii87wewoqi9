@@ -1,56 +1,60 @@
-# 美国牵头部分拉美国家就巴拿马运河问题发布声明，外交部：无中生有，颠倒黑白
+# DeepSeek V4引爆，港股芯片大反攻！规模最大港股通信息技术ETF（159131）续涨2.33%获资金爆买5900万份！
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-4月29日，外交部发言人林剑主持例行记者会。法新社记者提问，周二（28日），美国牵头部分拉美国家就巴拿马运河问题发布联合声明，声称中方相关举措对所有相关国家构成威胁。美国牵头玻利维亚、哥斯达黎加等国发布的这份声明还宣称“中国行为是公然将海上贸易政治化”。请问中方对此有何评论？ 林剑表示，有关言论完全是无中生有，颠倒黑白。谁长期霸占巴拿马运河、武装入侵巴拿马、肆意践踏巴拿马的主权
+4月27日，港股硬科技延续上周五涨势继续反攻，鸿腾精密、澜起科技、高伟电子涨超10%，中芯国际、华虹半导体涨超5%，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）早盘跳空高开后维持高位震荡，场内收涨2.33%强势连阳！全天宽幅溢价，显示资金持续涌入，单日资金申购5900万份，净申购2800万份。 自3月31日触底反弹以来，港股通信息技术ETF华宝（1591
 
 ## 正文
 
-4月29日，外交部发言人林剑主持例行记者会。
+4月27日，港股硬科技延续上周五涨势继续反攻，鸿腾精密、澜起科技、高伟电子涨超10%，中芯国际、华虹半导体涨超5%，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）早盘跳空高开后维持高位震荡，场内收涨2.33%强势连阳！
 
-法新社记者提问，周二（28日），美国牵头部分拉美国家就巴拿马运河问题发布联合声明，声称中方相关举措对所有相关国家构成威胁。
+全天宽幅溢价，显示资金持续涌入，单日资金申购5900万份，净申购2800万份。
 
-美国牵头玻利维亚、哥斯达黎加等国发布的这份声明还宣称“中国行为是公然将海上贸易政治化”。
+自3月31日触底反弹以来，港股通信息技术ETF华宝（159131）标的指数——中证港股通信息技术综合指数（简称港股通信息C）累计涨幅超20%，同期恒生科技、港股通科技的涨幅分别为5.52%、7.64%，港股通信息C指数的锐度和弹性遥遥领先。
 
-请问中方对此有何评论？
+统计区间：2026.3.31-2026.4.27。
 
-林剑表示，有关言论完全是无中生有，颠倒黑白。
+港股通信息C指数2021-2025年年度历史收益分别为：-9.54%、-34.47%、-0.25%、21.58%、39.30%。
 
-谁长期霸占巴拿马运河、武装入侵巴拿马、肆意践踏巴拿马的主权和尊严、谁在觊觎巴拿马运河，妄图将本应永久中立的国际航道变成自家的水渠，蔑视地区国家的主权，答案不言自明。
+指数过往业绩不预示未来表现。
 
-“将港口问题泛政治化、泛安全化的是美国；惺惺作态，四处造谣抹黑的还是美国。
+DeepSeek-V4 推进技术创新，在超长上下文、Agent 能力等方面实现领先，算力芯片、超节点等国产算力相关产业链有望深度受益。
 
-”林剑说。
+东方证券直言，部分投资者低估了本次DeepSeek-V4发布对于国产算力产业链的带动。
 
 ## 相关推荐
 
-- 2026-06-29 14:14 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 14:25 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 14:21 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 14:29 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-29 14:19 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-29 14:28 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-29 14:23 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-29 14:30 - [A股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-29 14:27 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 14:32 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-29 14:35 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 14:35 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-29 14:25 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 14:24 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 14:14 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 14:13 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 14:26 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-29 14:26 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-29 14:18 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-29 14:31 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 14:33 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-29 14:23 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-29 14:25 - [高考志愿今起开始填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-29 14:37 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:11 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/6100504063.shtml)
-- 2026-06-29 14:33 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/48643142.shtml)
-- 2026-06-29 14:11 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/05503040645.shtml)
-- 2026-06-29 14:29 - [实习期把公司领导开除了](https://www.blog.kurohicncr.top/Article/details/301306412625.shtml)
-- 2026-06-29 14:34 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.minike.top/Article/details/90448.shtml)
-- 2026-06-29 14:35 - [森保一：日本队要亲手改写历史](http://www.blog.minike.top/Article/details/62170.shtml)
-- 2026-06-29 14:27 - [实习期把公司领导开除了](http://www.share.kurohicncr.top/Article/details/4831622.shtml)
-- 2026-06-29 14:09 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/55927.shtml)
-- 2026-06-29 14:17 - [记者暗访贵州和云南多个养老机构](https://www.share.minike.top/Article/details/4610434970.shtml)
-- 2026-06-29 14:19 - [拄拐少年高考663分：用行动回报社会](http://www.blog.kurohicncr.top/Article/details/523924498680.shtml)
-- 2026-06-29 14:19 - [严浩翔FIY断层第一](https://www.share.minike.top/Article/details/75793.shtml)
-- 2026-06-29 14:09 - [金牌调解](https://www.share.kurohicncr.top/Article/details/4401869171.shtml)
-- 2026-06-29 14:31 - [欧洲超1300例超额死亡与高温有关](http://www.share.kurohicncr.top/Article/details/222576662.shtml)
-- 2026-06-29 14:12 - [薛之谦演唱会](https://www.blog.minike.top/Article/details/105010474.shtml)
-- 2026-06-29 14:11 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/94645.shtml)
+- 2026-06-29 14:27 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/4104969036.shtml)
+- 2026-06-29 14:25 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/6681980.shtml)
+- 2026-06-29 14:19 - [佛得角到底在哪个“角”](https://www.share.minike.top/Article/details/83522.shtml)
+- 2026-06-29 14:29 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.minike.top/Article/details/33489.shtml)
+- 2026-06-29 14:28 - [女生雨天开车发现雨刮条被掰走](https://www.blog.kurohicncr.top/Article/details/16912779519.shtml)
+- 2026-06-29 14:40 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/141789020334.shtml)
+- 2026-06-29 14:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/373510.shtml)
+- 2026-06-29 14:14 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.minike.top/Article/details/30067.shtml)
+- 2026-06-29 14:40 - [papi酱回应毕业4年零收入](https://www.share.minike.top/Article/details/3649005989.shtml)
+- 2026-06-29 14:31 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/914296.shtml)
+- 2026-06-29 14:30 - [马斯克也站到了光里](http://www.share.kurohicncr.top/Article/details/737524.shtml)
+- 2026-06-29 14:25 - [普京：俄面临命运攸关时刻](http://www.blog.minike.top/Article/details/517327658.shtml)
+- 2026-06-29 14:40 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.minike.top/Article/details/582852959961.shtml)
+- 2026-06-29 14:16 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/59812.shtml)
+- 2026-06-29 14:25 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/1835997078.shtml)

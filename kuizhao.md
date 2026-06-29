@@ -1,59 +1,61 @@
-# 纽约汇市：美元延续涨势 美联储维持利率不变
+# 太空算力怎么算？未来如何影响你我生活？专家详解
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-专题：美联储维持利率不变 4人投反对票 美元进一步走强，此前美联储决策者周三维持利率不变，但显示出对政策前景的分歧加深。鲍威尔表示，将在美联储主席任期结束后继续担任理事。 美元指数上涨0.4%，升至4月13日以来最高。 “鲍威尔的理事任期将于2028年结束，因此，他的留任降低了再次进行美联储人事提名的可能性，”富国策略师Aroop Chatterjee表示，“加之出现多位鹰派反
+一问到底丨太空算力怎么算？未来如何影响你我生活？专家详解 “太空算力”近期频繁进入人们的视野。近日，国务院新闻办公室举行发布会，工业和信息化部相关负责人表示，将支持开展太空算力技术前瞻性研究，有序推动太空算力产业发展。此前，人类已经把“眼睛”——遥感卫星，“耳朵”——通信卫星送上太空。如今，我们又要把“大脑”送上太空，这就是太空算力。为什么要舍近求远，到太空去搞大数据计算？当太
 
 ## 正文
 
-专题：美联储维持利率不变 4人投反对票 美元进一步走强，此前美联储决策者周三维持利率不变，但显示出对政策前景的分歧加深。
+一问到底丨太空算力怎么算？
 
-鲍威尔表示，将在美联储主席任期结束后继续担任理事。
+未来如何影响你我生活？
 
-美元指数上涨0.4%，升至4月13日以来最高。
+专家详解 “太空算力”近期频繁进入人们的视野。
 
-“鲍威尔的理事任期将于2028年结束，因此，他的留任降低了再次进行美联储人事提名的可能性，”富国策略师Aroop Chatterjee表示，“加之出现多位鹰派反对票，显然下次会议将对政策前景展开更激烈的讨论”。
+近日，国务院新闻办公室举行发布会，工业和信息化部相关负责人表示，将支持开展太空算力技术前瞻性研究，有序推动太空算力产业发展。
 
-“总体而言，这支持市场预期更少的降息，因为通胀面临的风险明显上升，”他表示。
+此前，人类已经把“眼睛”——遥感卫星，“耳朵”——通信卫星送上太空。
 
-周三早些时候，特朗普提名的下一任美联储主席人选凯文·沃什获得参议院银行委员会支持。
+如今，我们又要把“大脑”送上太空，这就是太空算力。
 
-美元/加元基本持平，报1.3681；此前该货币对一度上涨0.2%，报1.3711。
+为什么要舍近求远，到太空去搞大数据计算？
 
-加拿大央行决定维持利率不变，符合预期。
+当太空有了算力，又将为产业发展和我们的生活带来什么？
 
 ## 相关推荐
 
-- 2026-06-29 14:10 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-29 14:24 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-29 14:07 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-29 14:12 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-29 14:10 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 14:19 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-29 14:20 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-29 14:17 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 14:35 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-29 14:22 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-29 14:25 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-29 14:19 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 14:30 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-29 14:20 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-29 14:41 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 14:18 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-29 14:41 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 14:37 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 14:30 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 14:35 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 14:29 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 14:19 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-29 14:40 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-29 14:15 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 14:27 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-29 14:14 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-29 14:14 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 14:19 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:09 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.kurohicncr.top/Article/details/664002903.shtml)
-- 2026-06-29 14:06 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.kurohicncr.top/Article/details/54108.shtml)
-- 2026-06-29 14:28 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/412860781.shtml)
-- 2026-06-29 14:30 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/28221249.shtml)
-- 2026-06-29 14:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/9045633402.shtml)
-- 2026-06-29 14:16 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/18569240.shtml)
-- 2026-06-29 14:14 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/869338807.shtml)
-- 2026-06-29 14:12 - [高考志愿今起开始填报](https://www.blog.minike.top/Article/details/812055959.shtml)
-- 2026-06-29 14:20 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/7419363.shtml)
-- 2026-06-29 14:31 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/048872461386.shtml)
-- 2026-06-29 14:13 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.minike.top/Article/details/9902998.shtml)
-- 2026-06-29 14:11 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/3728329.shtml)
-- 2026-06-29 14:09 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/702650828.shtml)
-- 2026-06-29 14:23 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/017924720.shtml)
-- 2026-06-29 14:09 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/917374629.shtml)
+- 2026-06-29 14:28 - [王楚钦 表演球擦网](http://www.share.minike.top/Article/details/536976.shtml)
+- 2026-06-29 14:21 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/330252.shtml)
+- 2026-06-29 14:21 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/633842.shtml)
+- 2026-06-29 14:30 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/048600.shtml)
+- 2026-06-29 14:41 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/3464321.shtml)
+- 2026-06-29 14:22 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/80740.shtml)
+- 2026-06-29 14:13 - [ENC瓦中国香港负印度数据图](http://www.share.minike.top/Article/details/8225483.shtml)
+- 2026-06-29 14:39 - [日本主帅：对战胜巴西很有信心](https://www.blog.minike.top/Article/details/07735082.shtml)
+- 2026-06-29 14:38 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/170380672569.shtml)
+- 2026-06-29 14:36 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/4235133044.shtml)
+- 2026-06-29 14:18 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/22910527050.shtml)
+- 2026-06-29 14:23 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/52738.shtml)
+- 2026-06-29 14:40 - [教育部发布高考志愿填报预警](http://www.share.kurohicncr.top/Article/details/570875890065.shtml)
+- 2026-06-29 14:27 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/696558076677.shtml)
+- 2026-06-29 14:24 - [一见倾心](https://www.blog.minike.top/Article/details/563955931.shtml)

@@ -1,60 +1,47 @@
-# 多只理财产品提前“退场”，啥情况？
+# 升辉清洁有意收购华立数字广东70%股权
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-来源：金融时报 “前几天我突然收到通知，持有的一款理财产品即将提前终止。”近日，来自北京的投资者王凌（化名）向《金融时报》记者反馈，原本持有期限尚未到期的银行理财，被通知提前终止运作，打乱了自身的资金配置计划。 记者梳理近期理财市场公告发现，年内有多家银行理财子公司密集宣布旗下理财产品提前终止。尤其自今年4月以来，银行理财提前终止案例集中涌现。 4月23日，交银理财连发两则产品
+升辉清洁（02521）发布公告，该集团与华立数字科技（郑州）有限公司（华立数字郑州）正在就集团可能收购华立数字郑州所持有的华立数字科技（广东）有限公司（华立数字广东）70%股权进行磋商。 华立数字广东主要从事物联网、大数据及人工智能等新技术的应用，提供包括软件系统开发及相关服务以及营运与维护服务在内的一站式解决方案，服务智慧城市发展及企业数字化转型。责任编辑：卢昱君
 
 ## 正文
 
-来源：金融时报 “前几天我突然收到通知，持有的一款理财产品即将提前终止。
+升辉清洁（02521）发布公告，该集团与华立数字科技（郑州）有限公司（华立数字郑州）正在就集团可能收购华立数字郑州所持有的华立数字科技（广东）有限公司（华立数字广东）70%股权进行磋商。
 
-”近日，来自北京的投资者王凌（化名）向《金融时报》记者反馈，原本持有期限尚未到期的银行理财，被通知提前终止运作，打乱了自身的资金配置计划。
+华立数字广东主要从事物联网、大数据及人工智能等新技术的应用，提供包括软件系统开发及相关服务以及营运与维护服务在内的一站式解决方案，服务智慧城市发展及企业数字化转型。
 
-记者梳理近期理财市场公告发现，年内有多家银行理财子公司密集宣布旗下理财产品提前终止。
-
-尤其自今年4月以来，银行理财提前终止案例集中涌现。
-
-4月23日，交银理财连发两则产品提前终止公告，交银理财稳享灵动慧利半年鑫3号、稳享灵动慧利季季开6号私银尊享两款理财产品分别于今年5月11日、4月28日提前终止。
-
-除交银理财外，工银理财亦发布公告称，旗下鑫得利目标止盈策略ESG优选固收增强封闭式理财产品于今年4月22日提前终止。
-
-公告显示，根据产品说明书的提前终止条款约定，在止盈观察期内，该产品份额成立以来的年化收益率在观察日不低于止盈目标收益率，已达到提前终止条件。
-
-理财产品提前终止是指理财产品管理人对一些有固定期限的理财产品在合同约定期限还没到时就提前终止，或者是一些无固定期限的理财产品不再继续运作。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:14 - [媒体：高考后消费应量力而行适度有度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-29 14:14 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-29 14:32 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-29 14:25 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-29 14:09 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 14:10 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-29 14:17 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 14:35 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-29 14:35 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-29 14:18 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-29 14:35 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-29 14:25 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 14:33 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-29 14:08 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-29 14:35 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-29 14:13 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 14:17 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-29 14:34 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 14:20 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-29 14:30 - [A股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-29 14:23 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 14:28 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 14:37 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 14:28 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 14:37 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:31 - [第一批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/55552.shtml)
-- 2026-06-29 14:09 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/6543349.shtml)
-- 2026-06-29 14:07 - [国家体育总局政策法规司原副司长获刑](https://www.share.minike.top/Article/details/0431277.shtml)
-- 2026-06-29 14:27 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/89000127.shtml)
-- 2026-06-29 14:26 - [恋与深空评分暴跌至1.8](http://www.share.kurohicncr.top/Article/details/50234864251.shtml)
-- 2026-06-29 14:28 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/1861981650.shtml)
-- 2026-06-29 14:26 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/2870539635.shtml)
-- 2026-06-29 14:27 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/3705456.shtml)
-- 2026-06-29 14:33 - [四川宜宾地震已致13人受轻微伤](https://www.share.minike.top/Article/details/5741668141.shtml)
-- 2026-06-29 14:27 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/87294307.shtml)
-- 2026-06-29 14:19 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/536438088.shtml)
-- 2026-06-29 14:25 - [德国连续三天刷新本国最高气温纪录](http://www.share.minike.top/Article/details/05859.shtml)
-- 2026-06-29 14:06 - [媒体人：警惕日本再次成战争加害国](https://www.blog.minike.top/Article/details/6576655.shtml)
-- 2026-06-29 14:08 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.minike.top/Article/details/73968360201.shtml)
-- 2026-06-29 14:26 - [中国邮政上海分公司总经理李柏平被查](http://www.share.kurohicncr.top/Article/details/175102.shtml)
+- 2026-06-29 14:30 - [双高胎](https://www.blog.kurohicncr.top/Article/details/728681637997.shtml)
+- 2026-06-29 14:17 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.share.minike.top/Article/details/52220176357.shtml)
+- 2026-06-29 14:23 - [韩国队差旅费亏麻了](http://www.share.minike.top/Article/details/3015704.shtml)
+- 2026-06-29 14:13 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.minike.top/Article/details/25051313.shtml)
+- 2026-06-29 14:39 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/6125773.shtml)
+- 2026-06-29 14:34 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/199037436228.shtml)
+- 2026-06-29 14:18 - [Agent带来token消耗爆炸](http://www.blog.kurohicncr.top/Article/details/194136.shtml)
+- 2026-06-29 14:24 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/1555850855.shtml)
+- 2026-06-29 14:29 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.share.minike.top/Article/details/894860.shtml)
+- 2026-06-29 14:19 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.share.minike.top/Article/details/86472413.shtml)
+- 2026-06-29 14:14 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/523335.shtml)
+- 2026-06-29 14:40 - [中国避暑神器在欧洲卖爆了](https://www.blog.minike.top/Article/details/6079262971.shtml)
+- 2026-06-29 14:39 - [高考志愿今起开始填报](http://www.blog.minike.top/Article/details/4705976.shtml)
+- 2026-06-29 14:29 - [马斯克也站到了光里](http://www.blog.minike.top/Article/details/0697232.shtml)
+- 2026-06-29 14:16 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/581297.shtml)

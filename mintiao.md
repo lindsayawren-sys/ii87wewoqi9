@@ -1,57 +1,47 @@
-# 港股4月收官！恒生科技指数本月涨超4%
+# 时报数说：北京口岸本年度出入境 突破700万人次
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-4月30日消息，港股4月收官，本月三大指数均收涨，恒生科技指数涨超4%，恒生指数涨超3%，国企指数涨超3%。 今日，港股三大指数集体下跌。截至收盘，恒生指数跌1.28%，报25776.53，恒生科技指数跌0.79%，国企指数跌1.41%。盘面上，科网股跌多涨少，小米、阿里巴巴跌超3%，哔哩哔哩、腾讯跌超2%，网易涨超2%；芯片股大涨，天数智芯涨超21%；乳制品板块部分上涨，蒙牛
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！责任编辑：石秀珍 SF183
 
 ## 正文
 
-4月30日消息，港股4月收官，本月三大指数均收涨，恒生科技指数涨超4%，恒生指数涨超3%，国企指数涨超3%。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-今日，港股三大指数集体下跌。
-
-截至收盘，恒生指数跌1.28%，报25776.53，恒生科技指数跌0.79%，国企指数跌1.41%。
-
-盘面上，科网股跌多涨少，小米、阿里巴巴跌超3%，哔哩哔哩、腾讯跌超2%，网易涨超2%；芯片股大涨，天数智芯涨超21%；乳制品板块部分上涨，蒙牛乳业涨超3%；有色金属板块集体下跌，赤峰黄金跌超5%。
-
-芯片股大涨，天数智芯涨超21%。
-
-消息面上，于美东时间4月29日盘后，谷歌母公司Alphabet递交了一份极具震撼力的2026财年第一季度成绩单。
-
-其中，作为财报中最耀眼的增长极，谷歌云（Google Cloud）业务的表现正式宣告其迈入成熟盈利期，季度营收首次触及200亿美元大关，同比增速高达63.4%，远超上年同期的122.6亿美元。
-
-市场分析指出，谷歌云的爆发主要受益于企业级客户对生成式AI基础设施及定制化TPU芯片的强劲需求。
+责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-29 14:14 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 14:13 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-29 14:14 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-29 14:20 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 14:21 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-29 14:24 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 14:26 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 14:19 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-29 14:07 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 14:07 - [拄拐少年高考663分：用行动回报社会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 14:06 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-29 14:25 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-29 14:33 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 14:37 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-29 14:35 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-29 14:30 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 14:31 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 14:40 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-29 14:30 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 14:22 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 14:33 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-29 14:30 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-29 14:31 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-29 14:39 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:23 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/231328451.shtml)
-- 2026-06-29 14:35 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/3584378989.shtml)
-- 2026-06-29 14:06 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/511634507.shtml)
-- 2026-06-29 14:25 - [T1 vs KC MSI](https://www.blog.minike.top/Article/details/0659055676.shtml)
-- 2026-06-29 14:09 - [每代父母都困在自己的时代里](https://www.blog.minike.top/Article/details/967035753599.shtml)
-- 2026-06-29 14:17 - [成都至北京将新增动卧](https://www.blog.kurohicncr.top/Article/details/902326.shtml)
-- 2026-06-29 14:15 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/2081624.shtml)
-- 2026-06-29 14:11 - [42岁郭碧婷纯素颜状态](https://www.blog.minike.top/Article/details/400678.shtml)
-- 2026-06-29 14:18 - [异世界一点都不好玩！](http://www.blog.minike.top/Article/details/30224.shtml)
-- 2026-06-29 14:09 - [papi酱自曝曾因尝试21天减肥法患病](http://www.blog.kurohicncr.top/Article/details/894895630.shtml)
-- 2026-06-29 14:13 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/67024010051.shtml)
-- 2026-06-29 14:22 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.share.minike.top/Article/details/9362069061.shtml)
-- 2026-06-29 14:08 - [张一山回应与杨紫友情](http://www.blog.kurohicncr.top/Article/details/2788434478.shtml)
-- 2026-06-29 14:17 - [内马尔能上场15分钟](http://www.share.kurohicncr.top/Article/details/1299189.shtml)
-- 2026-06-29 14:24 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/78055183306.shtml)
+- 2026-06-29 14:29 - [在自己家不穿衣服犯法吗](https://www.blog.kurohicncr.top/Article/details/214464832102.shtml)
+- 2026-06-29 14:24 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.minike.top/Article/details/3320543.shtml)
+- 2026-06-29 14:18 - [逃狱兄弟](https://www.share.minike.top/Article/details/27834532.shtml)
+- 2026-06-29 14:38 - [美媒：空警-3000服役即成全球最强](http://www.blog.kurohicncr.top/Article/details/56774513.shtml)
+- 2026-06-29 14:16 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/595495463366.shtml)
+- 2026-06-29 14:27 - [龟梨和也田中美奈实结婚](https://www.share.minike.top/Article/details/43788731.shtml)
+- 2026-06-29 14:14 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/06143.shtml)
+- 2026-06-29 14:40 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/4018410461.shtml)
+- 2026-06-29 14:32 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/914545.shtml)
+- 2026-06-29 14:18 - [女心理师](http://www.blog.minike.top/Article/details/28770843.shtml)
+- 2026-06-29 14:22 - [沙丘](https://www.blog.kurohicncr.top/Article/details/5862787411.shtml)
+- 2026-06-29 14:28 - [北极荒岛生存挑战](http://www.blog.kurohicncr.top/Article/details/000548.shtml)
+- 2026-06-29 14:28 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/28695497073.shtml)
+- 2026-06-29 14:34 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/617686353202.shtml)
+- 2026-06-29 14:31 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.minike.top/Article/details/73650064742.shtml)

@@ -1,46 +1,56 @@
-# 云南红河：边境坚守诠释劳动光荣
+# 激进对冲基金Starboard Value入股 AI 软件厂商Dynatrace
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月30日 14:25 来源：中国新闻网 用镜头捕捉边境一线移民管理警察坚守与奉献的瞬间。(作者：张航） 责任编辑：【魏聪聪】
+据媒体获取的一封信函草案显示，激进投资机构斯塔博德资本（Starboard Value）已大举增持人工智能软件企业Dynatrace股份，并推动公司推行改革，以期提振股价。这封致Dynatrace公司的信函草案指出，斯塔博德目前已跻身该公司前五大股东之列，近数月来一直在私下与公司管理层展开沟通。该信函由斯塔博德执行董事彼得・费尔德撰写，预计于周二正式送达。信函称，该激进机构认为
 
 ## 正文
 
-发布时间：2026年04月30日 14:25 来源：中国新闻网 用镜头捕捉边境一线移民管理警察坚守与奉献的瞬间。
+据媒体获取的一封信函草案显示，激进投资机构斯塔博德资本（Starboard Value）已大举增持人工智能软件企业Dynatrace股份，并推动公司推行改革，以期提振股价。
 
-(作者：张航） 责任编辑：【魏聪聪】
+这封致Dynatrace公司的信函草案指出，斯塔博德目前已跻身该公司前五大股东之列，近数月来一直在私下与公司管理层展开沟通。
+
+该信函由斯塔博德执行董事彼得・费尔德撰写，预计于周二正式送达。
+
+信函称，该激进机构认为，随着越来越多企业将人工智能融入日常运营，Dynatrace本应成为最大受益方之一。
+
+但公司股价表现持续疲软，相较软件基础设施及网络安全行业同行，其估值存在明显折价。
+
+截至周一，Dynatrace市值接近 110 亿美元。
+
+该股年内跌幅超 15%，近十二个月累计下跌超 20%。
+
+今年全球软件板块普遍遭遇抛售，投资者担忧传统软件企业或将被人工智能技术替代。
 
 ## 相关推荐
 
-- 2026-06-29 14:15 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-29 14:25 - [多只A股发布股价异动公告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 14:21 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-29 14:22 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 14:18 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-29 14:18 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-29 14:28 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 14:22 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 14:32 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-29 14:31 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 14:28 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-29 14:34 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 14:30 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-29 14:13 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 14:14 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 14:20 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-29 14:40 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 14:12 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-29 14:25 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 14:19 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 14:31 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 14:23 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:11 - [复盘曾沛慈浪姐夺冠之路](http://www.share.kurohicncr.top/Article/details/791322952348.shtml)
-- 2026-06-29 14:28 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/13386.shtml)
-- 2026-06-29 14:30 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/921104338.shtml)
-- 2026-06-29 14:09 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/68660976.shtml)
-- 2026-06-29 14:30 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/83127655921.shtml)
-- 2026-06-29 14:17 - [T1对战KC](https://www.share.kurohicncr.top/Article/details/052108406381.shtml)
-- 2026-06-29 14:20 - [中国邮政上海分公司总经理李柏平被查](https://www.blog.minike.top/Article/details/65179994.shtml)
-- 2026-06-29 14:08 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/73487810045.shtml)
-- 2026-06-29 14:34 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.blog.kurohicncr.top/Article/details/050345211808.shtml)
-- 2026-06-29 14:11 - [为什么6月以来北方频繁降雨](http://www.blog.kurohicncr.top/Article/details/440477.shtml)
-- 2026-06-29 14:24 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.kurohicncr.top/Article/details/0260595.shtml)
-- 2026-06-29 14:20 - [世界杯看到肖战了](http://www.blog.kurohicncr.top/Article/details/2164787517.shtml)
-- 2026-06-29 14:27 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/615497930912.shtml)
-- 2026-06-29 14:29 - [实习期把公司领导开除了](http://www.blog.minike.top/Article/details/23726.shtml)
-- 2026-06-29 14:08 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/8911861465.shtml)
+- 2026-06-29 14:18 - [媒体人：警惕日本再次成战争加害国](http://www.blog.kurohicncr.top/Article/details/97059681.shtml)
+- 2026-06-29 14:24 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/648312.shtml)
+- 2026-06-29 14:21 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/7532026787.shtml)
+- 2026-06-29 14:26 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.kurohicncr.top/Article/details/2908840.shtml)
+- 2026-06-29 14:30 - [5万块的威力](https://www.share.minike.top/Article/details/5589965343.shtml)
+- 2026-06-29 14:33 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/610392753.shtml)
+- 2026-06-29 14:23 - [毒液2](http://www.share.kurohicncr.top/Article/details/55096898920.shtml)
+- 2026-06-29 14:26 - [李连杰回应网传不管前妻俩女儿](http://www.blog.minike.top/Article/details/13485004465.shtml)
+- 2026-06-29 14:26 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/158599157750.shtml)
+- 2026-06-29 14:29 - [乔家的儿女](https://www.share.minike.top/Article/details/2159095598.shtml)
+- 2026-06-29 14:37 - [中方回应对日本相关出口管制措施](http://www.share.kurohicncr.top/Article/details/392127.shtml)
+- 2026-06-29 14:28 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/451635.shtml)
+- 2026-06-29 14:28 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.kurohicncr.top/Article/details/833077993.shtml)
+- 2026-06-29 14:19 - [全国第三艘万车级汽车运输船交付](https://www.share.minike.top/Article/details/152664.shtml)
+- 2026-06-29 14:40 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/9712918.shtml)

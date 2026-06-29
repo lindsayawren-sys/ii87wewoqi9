@@ -1,51 +1,57 @@
-# 伊朗东南部发生袭警事件 致1死3伤
+# 2026“泉来爱宠”海峡两岸（济南）宠物护理美容青年人才技能竞赛启动
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-当地时间4月29日，伊朗东南部锡斯坦-俾路支斯坦省警方发布公告称，该省首府扎黑丹市当天发生一起武装分子向警察巡逻队开火事件，造成1名警察死亡、3名警察受伤。 公告表示，警方正在全力追捕袭击者。公告未透露更多信息。(总台记者 李健南 赵远方)
+中新网济南4月25日电(吕妍 仝晗)2026“泉来爱宠”海峡两岸(济南)宠物护理美容青年人才技能竞赛4月25日在济南护理职业学院正式启动。来自海峡两岸的宠物行业专家、青年创业者和参赛选手等400余人齐聚泉城，以匠心诠释对生命的尊重与热爱，用技艺谱写两岸融合发展的新篇章。 济南市台办主任赵博表示，本届比赛既是青年才俊切磋技艺、展示风采的实战擂台，也是行业前沿理念与创新成果交汇碰撞
 
 ## 正文
 
-当地时间4月29日，伊朗东南部锡斯坦-俾路支斯坦省警方发布公告称，该省首府扎黑丹市当天发生一起武装分子向警察巡逻队开火事件，造成1名警察死亡、3名警察受伤。
+中新网济南4月25日电(吕妍 仝晗)2026“泉来爱宠”海峡两岸(济南)宠物护理美容青年人才技能竞赛4月25日在济南护理职业学院正式启动。
 
-公告表示，警方正在全力追捕袭击者。
+来自海峡两岸的宠物行业专家、青年创业者和参赛选手等400余人齐聚泉城，以匠心诠释对生命的尊重与热爱，用技艺谱写两岸融合发展的新篇章。
 
-公告未透露更多信息。
+济南市台办主任赵博表示，本届比赛既是青年才俊切磋技艺、展示风采的实战擂台，也是行业前沿理念与创新成果交汇碰撞的智慧盛宴，期待通过这一平台进一步推动两岸宠物护理美容技术的标准化、专业化发展，为济台宠物产业全链条深度合作注入新的活力。
 
-(总台记者 李健南 赵远方)
+济南护理职业学院党委书记周敬在致辞中表示，该学院将积极发挥职业教育优势，搭建两岸青年互学互鉴、携手共进的桥梁。
+
+名将宠美教育科技(北京)有限公司总经理李朝顺在致辞中表达了对深化两岸宠物行业交流合作的期待，希望青年朋友在竞赛中相互学习、共同成长。
+
+启动仪式后，与会嘉宾观摩了“泉来爱宠”嘉年华市集展和技能竞赛现场。
+
+在济南护理职业学院体育馆内，两岸宠物行业参赛选手分区展开比拼，通过宠物护理与美容项目的实操较量，切磋技艺、互学互鉴。
+
+据悉，本次活动为期5天，将举办两岸学子手拉手联欢会、颁奖大会及“泉来爱宠”文明养犬进社区等一系列交流参访活动，持续深化济台青年情感交融与产业对接。
 
 ## 相关推荐
 
-- 2026-06-29 14:10 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 14:13 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-29 14:13 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-29 14:16 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 14:34 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 14:28 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 14:22 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-29 14:31 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-29 14:30 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-29 14:23 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 14:31 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-29 14:29 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-29 14:11 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-29 14:29 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-29 14:33 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 14:17 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-29 14:34 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-29 14:30 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 14:41 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-29 14:35 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 14:30 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 14:31 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 14:25 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 14:37 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:20 - [TI2026参赛战队出炉](https://www.share.kurohicncr.top/Article/details/681721.shtml)
-- 2026-06-29 14:12 - [在委侨团负责人：家乡的帮助很及时](https://www.share.minike.top/Article/details/51650785301.shtml)
-- 2026-06-29 14:29 - [TOP 无畏契约](http://www.share.kurohicncr.top/Article/details/31915139553.shtml)
-- 2026-06-29 14:25 - [为什么6月以来北方频繁降雨](https://www.blog.kurohicncr.top/Article/details/3505442.shtml)
-- 2026-06-29 14:13 - [绘画区你赢了](https://www.share.minike.top/Article/details/47486631425.shtml)
-- 2026-06-29 14:29 - [东部机场集团新增釜山航线](https://www.blog.kurohicncr.top/Article/details/451987615.shtml)
-- 2026-06-29 14:27 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.kurohicncr.top/Article/details/07996529473.shtml)
-- 2026-06-29 14:20 - [3D打印不是工业革命，它是……](http://www.blog.minike.top/Article/details/20901.shtml)
-- 2026-06-29 14:31 - [男子月薪五千卖房借贷给女友转账百万](https://www.share.minike.top/Article/details/450602.shtml)
-- 2026-06-29 14:11 - [女孩遭霸凌网上认文身大哥求庇护](https://www.blog.minike.top/Article/details/608607095815.shtml)
-- 2026-06-29 14:28 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/68618314628.shtml)
-- 2026-06-29 14:31 - [日本主教练回应迎战巴西](http://www.blog.kurohicncr.top/Article/details/8673549.shtml)
-- 2026-06-29 14:09 - [江苏财政厅原一级调研员谢功成被查](http://www.share.minike.top/Article/details/100066.shtml)
-- 2026-06-29 14:31 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/53131.shtml)
-- 2026-06-29 14:06 - [和阿根廷球员家属一起看球](http://www.blog.minike.top/Article/details/74329943.shtml)
+- 2026-06-29 14:23 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.minike.top/Article/details/670987103.shtml)
+- 2026-06-29 14:36 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.minike.top/Article/details/07173.shtml)
+- 2026-06-29 14:13 - [森保一：日本队要亲手改写历史](https://www.blog.minike.top/Article/details/990544.shtml)
+- 2026-06-29 14:18 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/1886345.shtml)
+- 2026-06-29 14:40 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/885017.shtml)
+- 2026-06-29 14:32 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/377861306.shtml)
+- 2026-06-29 14:15 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/296236.shtml)
+- 2026-06-29 14:34 - [白宇摘下白玉兰送给杨幂](http://www.blog.kurohicncr.top/Article/details/757860593556.shtml)
+- 2026-06-29 14:26 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/38182155.shtml)
+- 2026-06-29 14:26 - [周杰伦演唱会真的好多人啊](http://www.blog.kurohicncr.top/Article/details/763110724.shtml)
+- 2026-06-29 14:18 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/5100605.shtml)
+- 2026-06-29 14:20 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/553144.shtml)
+- 2026-06-29 14:23 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/498864.shtml)
+- 2026-06-29 14:26 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/76203112.shtml)
+- 2026-06-29 14:22 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/591722370.shtml)

@@ -1,59 +1,57 @@
-# 中方：对非零关税彰显中非以稳定性为全球和平发展作贡献的决心
+# 中国学者在西方文明中心参与主持的第一个考古项目正式启动
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-中新网北京4月29日电 (记者 张蔚然 黄钰钦)中国外交部发言人林剑29日主持例行记者会。 有记者提问：中国将于2026年5月1日起对53个非洲建交国全面实施零关税举措。我们注意到，非洲各界对此高度关注，非方领导人及媒体给予高度评价，认为这是中非合作的又一里程碑。请问发言人对此有何回应？ 林剑：中方注意到非方对零关税举措的热切期待和积极反馈。零关税是中国主动扩大单边开放的重要举
+中新网北京4月26日电 (记者 孙自法)记者4月26日从建于希腊雅典的中国古典文明研究院获悉，该院成立以来的首个考古合作项目——安杰洛卡斯特洛考古项目近日正式启动，这也是中国学者及非西方国家在西方文明中心参与主持的第一个考古项目。 作为希腊文化部文物与文化遗产总局、希腊埃托利亚-阿卡纳尼亚及莱夫卡达文物考古管理局与中国古典文明研究院紧密合作的成果，安杰洛卡斯特洛考古项目由希腊文
 
 ## 正文
 
-中新网北京4月29日电 (记者 张蔚然 黄钰钦)中国外交部发言人林剑29日主持例行记者会。
+中新网北京4月26日电 (记者 孙自法)记者4月26日从建于希腊雅典的中国古典文明研究院获悉，该院成立以来的首个考古合作项目——安杰洛卡斯特洛考古项目近日正式启动，这也是中国学者及非西方国家在西方文明中心参与主持的第一个考古项目。
 
-有记者提问：中国将于2026年5月1日起对53个非洲建交国全面实施零关税举措。
+作为希腊文化部文物与文化遗产总局、希腊埃托利亚-阿卡纳尼亚及莱夫卡达文物考古管理局与中国古典文明研究院紧密合作的成果，安杰洛卡斯特洛考古项目由希腊文化部文物与文化遗产总局局长奥林匹娅·维卡图、中国古典文明研究院院长李新伟共同主持。
 
-我们注意到，非洲各界对此高度关注，非方领导人及媒体给予高度评价，认为这是中非合作的又一里程碑。
+李新伟表示，中方将以学习、合作、分享的态度参与项目，推动东西方文明比较研究。
 
-请问发言人对此有何回应？
+当地时间4月24日，“寻找丰饶之角：安杰洛卡斯特洛考古项目启动仪式暨中希对话会”在希腊雅典中国古典文明研究院举行。
 
-林剑：中方注意到非方对零关税举措的热切期待和积极反馈。
+中国社会科学院、中国驻希腊大使馆、希腊文化部等机构代表和来自雅典科学院与各希腊高校的学者出席活动。
 
-零关税是中国主动扩大单边开放的重要举措，展现了中国愿意承担更多的国际义务，坚定扩大高水平对外开放。
+李新伟介绍安杰洛卡斯特洛考古项目启动相关情况说，过去一年，中国古典文明研究院走访希腊多地文物管理局，考察50余处遗址，最终在希腊文化部和希方学者支持下，选择安杰洛卡斯特洛作为首个田野考古项目。
 
-此举是中方践行真实亲诚对非政策理念和正确义利观的具象化体现，是中非携手共筑新时代全天候中非命运共同体的生动实践，在中非关系和国际关系史上具有划时代意义。
+该项目已获希腊文化部批准，并完成地球物理探测和发掘准备。
 
-当前，全球保护主义、单边主义抬头，中东局势外溢效应波及至毗邻大陆，中国以零关税同非洲分享机遇、共同发展，彰显了中非以稳定性为全球和平发展作贡献的决心。
+希腊文化部希腊及外国科研机构监督与国际合作及组织协调处处长康斯坦丁娜·贝尼西受奥林匹娅·维卡图委托致辞表示，安杰洛卡斯特洛考古项目是希腊文化部与中国古典文明研究院开展系统性研究合作的重要组成部分，也是已获批五年期项目的一部分。
 
 ## 相关推荐
 
-- 2026-06-29 14:06 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 14:19 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-29 14:32 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-29 14:33 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-29 14:08 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-29 14:06 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 14:15 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-29 14:21 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-29 14:31 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 14:14 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-29 14:26 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 14:19 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 14:10 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-29 14:24 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 14:33 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 14:31 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-29 14:15 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 14:18 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-29 14:39 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-29 14:41 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 14:15 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-29 14:35 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 14:35 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 14:25 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:14 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.minike.top/Article/details/52462682.shtml)
-- 2026-06-29 14:35 - [Mrbeast的30天不吃饭挑战](http://www.share.kurohicncr.top/Article/details/837379897.shtml)
-- 2026-06-29 14:16 - [AG冠军五人组轮换](https://www.share.minike.top/Article/details/3866619.shtml)
-- 2026-06-29 14:11 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/46321592.shtml)
-- 2026-06-29 14:06 - [广东一地发现极危植物新物种](https://www.share.kurohicncr.top/Article/details/908389097.shtml)
-- 2026-06-29 14:19 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/164099381363.shtml)
-- 2026-06-29 14:20 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/7232422.shtml)
-- 2026-06-29 14:16 - [A股](https://www.share.kurohicncr.top/Article/details/510400126399.shtml)
-- 2026-06-29 14:18 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.blog.kurohicncr.top/Article/details/7021270991.shtml)
-- 2026-06-29 14:26 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/226506319415.shtml)
-- 2026-06-29 14:25 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/24381675934.shtml)
-- 2026-06-29 14:07 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/180775.shtml)
-- 2026-06-29 14:35 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/4961035005.shtml)
-- 2026-06-29 14:18 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/22287690997.shtml)
-- 2026-06-29 14:26 - [宜宾5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/291557134039.shtml)
+- 2026-06-29 14:20 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/56791.shtml)
+- 2026-06-29 14:15 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/314026.shtml)
+- 2026-06-29 14:33 - [市民骑哈啰单车79分钟付30元](https://www.share.kurohicncr.top/Article/details/67043.shtml)
+- 2026-06-29 14:27 - [扬名立万](https://www.share.minike.top/Article/details/37537257.shtml)
+- 2026-06-29 14:26 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.kurohicncr.top/Article/details/60636774348.shtml)
+- 2026-06-29 14:35 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/353449826619.shtml)
+- 2026-06-29 14:39 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/4264019511.shtml)
+- 2026-06-29 14:17 - [直击宜宾地震：监控剧烈摇晃](https://www.blog.minike.top/Article/details/18672000.shtml)
+- 2026-06-29 14:37 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.kurohicncr.top/Article/details/945317765841.shtml)
+- 2026-06-29 14:17 - [专家建议城乡居民养老金增至每月千元](http://www.blog.minike.top/Article/details/0270154.shtml)
+- 2026-06-29 14:38 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/455266707.shtml)
+- 2026-06-29 14:30 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.blog.minike.top/Article/details/20914.shtml)
+- 2026-06-29 14:23 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/32894.shtml)
+- 2026-06-29 14:17 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.kurohicncr.top/Article/details/15154.shtml)
+- 2026-06-29 14:14 - [强⁶](https://www.share.minike.top/Article/details/9690950668.shtml)

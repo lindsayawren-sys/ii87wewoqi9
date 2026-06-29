@@ -1,58 +1,60 @@
-# 不亮证、零履职，嘉实财富合规失守
+# 第三届世界音乐人工智能大会在京举行 聚焦行业前沿与产业热点
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：行家券业 不亮证、零履职，嘉实财富合规失守 在各家平台严打 “幽灵外卖” 之际，证监会处罚了一家 “幽灵机构”：营业场所未公开“亮证”；跨多城兼任的负责人，查不到履职记录…… 监管直击两大合规硬伤 一张不同寻常的监管罚单，剑指嘉实基金旗下基金销售机构嘉实财富管理有限公司（简称：嘉实财富） 山西证监局〔
+中新网北京4月27日电 (记者 应妮)第三届世界音乐人工智能大会26日在中央音乐学院开幕。来自音乐人工智能、音乐脑科学、数字艺术、音乐教育及产业应用等领域的专家学者、行业代表和师生代表参加活动。 开幕式上，中国人工智能学会理事长、中国工程院院士戴琼海通过视频致辞表示，音乐人工智能作为艺术与科技交叉融合的重要方向，正在展现出广阔的发展前景。希望大会进一步汇聚学术界、艺术界与产业界
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京4月27日电 (记者 应妮)第三届世界音乐人工智能大会26日在中央音乐学院开幕。
 
-来源：行家券业 不亮证、零履职，嘉实财富合规失守 在各家平台严打 “幽灵外卖” 之际，证监会处罚了一家 “幽灵机构”：营业场所未公开“亮证”；跨多城兼任的负责人，查不到履职记录…… 监管直击两大合规硬伤 一张不同寻常的监管罚单，剑指嘉实基金旗下基金销售机构嘉实财富管理有限公司（简称：嘉实财富） 山西证监局〔2026〕22号监管函显示，嘉实财富太原分公司存在两大违规。
+来自音乐人工智能、音乐脑科学、数字艺术、音乐教育及产业应用等领域的专家学者、行业代表和师生代表参加活动。
 
-一是“无证裸奔”，未在营业场所置备业务许可证。
+开幕式上，中国人工智能学会理事长、中国工程院院士戴琼海通过视频致辞表示，音乐人工智能作为艺术与科技交叉融合的重要方向，正在展现出广阔的发展前景。
 
-要知道，基金销售机构必须在营业场所公示业务许可证，这是最基础的展业前提，也是保护投资者知情权的底线要求。
+希望大会进一步汇聚学术界、艺术界与产业界力量，推动音乐人工智能领域原创研究、关键技术突破与应用场景拓展。
 
-而这家机构，连“亮证”都做不到，直接触碰红线。
+现场的四场主旨报告围绕音乐智能量化、数据声化、当代音乐的技术再语境化以及人工智能时代音乐学院未来形态等重大议题展开，集中呈现大会的学术高度、国际视野与思想深度。
 
-二是“老总悬空”。
+中央音乐学院教授、音乐人工智能系主任李小兵在其主旨报告中，基于中央音乐学院在音乐人工智能领域的系统探索，提出“机文主义”这一面向未来的理论设想，强调人工智能的深度介入正在改变艺术创作主体、意义生成机制和音乐教育结构。
 
-2022年10月到2025年11月，在超过三年的时间里，太原分公司负责人“分身有术”，同时兼任多地分支机构负责人，却偏偏没有在太原分公司履职。
+在报告中，他进一步从哲学与制度层面讨论人工智能对音乐学院六个二级学科及七个专业方向可能带来的结构性重构，引发与会专家对未来音乐学院形态的深入思考。
 
-监管指出，太原分公司未见相关制度对分公司负责人兼职的规定要求，未采取有效措施保障负责人履职。
+当天下午的学术论坛上，多位专家围绕音乐人工智能基础研究与跨学科前沿方向，以及表演科学与人工智能治理等议题展开交流。
 
 ## 相关推荐
 
-- 2026-06-29 14:33 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-29 14:20 - [TOP 无畏契约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 14:06 - [薛之谦演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-29 14:31 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-29 14:20 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-29 14:17 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-29 14:18 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 14:17 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 14:09 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 14:20 - [AG 钟意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-29 14:13 - [金价银价下跌 油价上涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 14:16 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 14:23 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-29 14:29 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-29 14:35 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 14:26 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 14:40 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-29 14:13 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 14:32 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 14:15 - [新一代影后杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 14:13 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-29 14:31 - [【独家】牧神记 第89集 明心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 14:33 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-29 14:27 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 14:36 - [媒体：高考后消费应量力而行适度有度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 14:30 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:09 - [久坐小心“死臀综合征”](https://www.blog.minike.top/Article/details/72487.shtml)
-- 2026-06-29 14:22 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.kurohicncr.top/Article/details/724136.shtml)
-- 2026-06-29 14:26 - [市民骑哈啰单车79分钟被收费30元](https://www.blog.kurohicncr.top/Article/details/42119.shtml)
-- 2026-06-29 14:20 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.kurohicncr.top/Article/details/8725374.shtml)
-- 2026-06-29 14:15 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.minike.top/Article/details/478824.shtml)
-- 2026-06-29 14:06 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/06668611.shtml)
-- 2026-06-29 14:07 - [欧洲人驾车200公里抢购中国空调](https://www.share.minike.top/Article/details/428177.shtml)
-- 2026-06-29 14:33 - [俄军新型无人机战力如何](https://www.blog.minike.top/Article/details/632198709683.shtml)
-- 2026-06-29 14:32 - [汪东城回应45岁婚约](https://www.share.minike.top/Article/details/44060773.shtml)
-- 2026-06-29 14:08 - [海军舰艇编队将赴香港](http://www.blog.minike.top/Article/details/20815911.shtml)
-- 2026-06-29 14:17 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/411073593527.shtml)
-- 2026-06-29 14:17 - [当我回母校教书](https://www.share.minike.top/Article/details/1063230182.shtml)
-- 2026-06-29 14:33 - [刘仲华院士愿当贺永辉导师](https://www.blog.minike.top/Article/details/4776291674.shtml)
-- 2026-06-29 14:30 - [比亚迪市值为何蒸发8000亿](https://www.share.minike.top/Article/details/485290160076.shtml)
-- 2026-06-29 14:20 - [Canna纳尔8-0对位单杀Doran](http://www.share.kurohicncr.top/Article/details/491990035.shtml)
+- 2026-06-29 14:23 - [papi酱回应毕业4年零收入](https://www.share.minike.top/Article/details/969012975979.shtml)
+- 2026-06-29 14:21 - [沙丘](https://www.share.kurohicncr.top/Article/details/53378.shtml)
+- 2026-06-29 14:21 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/59101.shtml)
+- 2026-06-29 14:35 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/28712425.shtml)
+- 2026-06-29 14:16 - [Mrbeast的30天不吃饭挑战](https://www.share.kurohicncr.top/Article/details/34546184.shtml)
+- 2026-06-29 14:30 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.blog.kurohicncr.top/Article/details/38358406.shtml)
+- 2026-06-29 14:12 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/06726935.shtml)
+- 2026-06-29 14:34 - [中餐厅南北饮食差异](https://www.blog.kurohicncr.top/Article/details/8199711.shtml)
+- 2026-06-29 14:35 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/255557792532.shtml)
+- 2026-06-29 14:23 - [韩国队如何把94%出线概率打到0%](https://www.share.kurohicncr.top/Article/details/9024351437.shtml)
+- 2026-06-29 14:27 - [papi酱回应毕业4年零收入](http://www.blog.minike.top/Article/details/58829.shtml)
+- 2026-06-29 14:27 - [《昨夜将至》为何是悬疑黑马](http://www.share.kurohicncr.top/Article/details/421058991.shtml)
+- 2026-06-29 14:35 - [一见倾心](https://www.share.kurohicncr.top/Article/details/15528226902.shtml)
+- 2026-06-29 14:20 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/2400382.shtml)
+- 2026-06-29 14:41 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.kurohicncr.top/Article/details/27061.shtml)

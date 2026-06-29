@@ -1,58 +1,54 @@
-# 渝昆高铁全线四电工程施工进入冲刺阶段
+# 施行近17年的企业国有资产法迎来首次修订
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-中新网昆明4月29日电 (记者 缪超)28日，由中铁电气化局承建的渝昆高铁云南段首条接触网导线成功架设、首座220kV牵引变电所一次受电成功，标志着渝昆高铁全线四电工程施工进入冲刺阶段，为全线开通运营奠定坚实基础。 “接触网导线作为高铁列车供电线路，直接影响列车供电与行车安全。渝昆高铁云南段接触网导线架设总任务量达1059条公里，需将导线平直度误差控制在0.1毫米以内。”中铁电
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！企业国有资产法修订草案4月27日提请十四届全国人大常委会第二十二次会议首次审议。企业国有资产法修改坚持党的领导，坚持问题导向，坚持统筹发展和安全，坚持稳中求进。 草案修改71条、新增32条，共九章109条，对现行法作了全面修改，主要修改内容包括完善中国特色现代企业制度、完善企业国有资产管理监督体制、明确坚持
 
 ## 正文
 
-中新网昆明4月29日电 (记者 缪超)28日，由中铁电气化局承建的渝昆高铁云南段首条接触网导线成功架设、首座220kV牵引变电所一次受电成功，标志着渝昆高铁全线四电工程施工进入冲刺阶段，为全线开通运营奠定坚实基础。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-“接触网导线作为高铁列车供电线路，直接影响列车供电与行车安全。
+企业国有资产法修订草案4月27日提请十四届全国人大常委会第二十二次会议首次审议。
 
-渝昆高铁云南段接触网导线架设总任务量达1059条公里，需将导线平直度误差控制在0.1毫米以内。
+企业国有资产法修改坚持党的领导，坚持问题导向，坚持统筹发展和安全，坚持稳中求进。
 
-”中铁电气化局渝昆高铁四电项目部总工程师袁红旗说，首条接触线的成功架设不仅验证了放线工艺在云贵高原复杂地形条件下的适应性，更为后续大规模导线架设作业提供了标准化施工范本。
+草案修改71条、新增32条，共九章109条，对现行法作了全面修改，主要修改内容包括完善中国特色现代企业制度、完善企业国有资产管理监督体制、明确坚持分类管理原则、健全国有资本收益管理制度等。
 
-当天，在云南省昭通市八仙营牵引变电所内，经过五次冲击试验后，各项电气参数运行正常、状态稳定，顺利实现一次受电，标志着渝昆高铁云南段首座220kV牵引变电所受电成功，为后续接触网全线送电及联调联试提供了供电保障。
+企业国有资产法规定了我国企业国有资产管理监督的基础制度，自2009年5月1日施行以来，为国资国企改革发展提供了有力法治保障。
 
-据悉，渝昆高铁云南段新建牵引所、分区所等共计42座，具有供电布局密集、安全冗余要求高、施工难度大等特点。
+“十五五”时期我国发展环境面临深刻复杂变化，修改完善企业国有资产法，以立法引领和保障国资国企改革发展，加强国有资产管理监督法治建设，对于保障国有经济持续健康发展意义重大。
 
-目前，渝昆高铁建设全面进入攻坚阶段，路基、桥梁工程已基本完成，全线最复杂控制性工程昭通隧道即将实现全隧贯通，新建站房已进入装修阶段。
-
-渝昆高铁开通运营后，重庆到昆明的行车时间将压缩至两个半小时左右，对促进成渝地区双城经济圈与滇中城市群之间互联互通，推动沿线地区经济社会高质量发展具有重要意义。
+记者：王希 海报制作：王希 新华社国内部出品责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 14:13 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-29 14:24 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-29 14:28 - [宜宾5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 14:31 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 14:30 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 14:13 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 14:13 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 14:19 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-29 14:32 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-29 14:20 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 14:23 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-29 14:21 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 14:17 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 14:28 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-29 14:17 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-29 14:28 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-29 14:14 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-29 14:38 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-29 14:33 - [沙特足协主席发布声明主动请辞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 14:21 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 14:20 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 14:22 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:10 - [日本主帅：目标是冠军](http://www.blog.minike.top/Article/details/1971290823.shtml)
-- 2026-06-29 14:19 - [俄称继续推进 乌称打击俄军设施](http://www.blog.kurohicncr.top/Article/details/3864082.shtml)
-- 2026-06-29 14:13 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.kurohicncr.top/Article/details/37722.shtml)
-- 2026-06-29 14:34 - [ENC瓦中国香港负印度数据图](http://www.share.minike.top/Article/details/945766.shtml)
-- 2026-06-29 14:20 - [3D打印不是工业革命，它是……](http://www.share.kurohicncr.top/Article/details/8686385044.shtml)
-- 2026-06-29 14:14 - [起风了](https://www.blog.kurohicncr.top/Article/details/61609895.shtml)
-- 2026-06-29 14:17 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/10341.shtml)
-- 2026-06-29 14:13 - [恋与深空失控领地](https://www.blog.kurohicncr.top/Article/details/70520.shtml)
-- 2026-06-29 14:15 - [逃狱兄弟](https://www.blog.minike.top/Article/details/887484.shtml)
-- 2026-06-29 14:16 - [张真源解读相思锁](https://www.share.minike.top/Article/details/003593724828.shtml)
-- 2026-06-29 14:30 - [T1零封KC MSI](https://www.share.minike.top/Article/details/155529.shtml)
-- 2026-06-29 14:21 - [T1对战KC](https://www.blog.kurohicncr.top/Article/details/246161422.shtml)
-- 2026-06-29 14:35 - [市民骑哈啰单车79分钟付30元](https://www.blog.minike.top/Article/details/315008005.shtml)
-- 2026-06-29 14:35 - [王楚钦欢迎晚宴上打台球](http://www.share.kurohicncr.top/Article/details/3832176.shtml)
-- 2026-06-29 14:14 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.minike.top/Article/details/143679359043.shtml)
+- 2026-06-29 14:29 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/20247544071.shtml)
+- 2026-06-29 14:38 - [周生如故](http://www.share.minike.top/Article/details/931931.shtml)
+- 2026-06-29 14:14 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/350730377.shtml)
+- 2026-06-29 14:28 - [起风了](http://www.share.kurohicncr.top/Article/details/136429163.shtml)
+- 2026-06-29 14:18 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.kurohicncr.top/Article/details/59061174908.shtml)
+- 2026-06-29 14:34 - [刘仲华院士愿当贺永辉导师](http://www.blog.kurohicncr.top/Article/details/76125956.shtml)
+- 2026-06-29 14:21 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.blog.minike.top/Article/details/011819.shtml)
+- 2026-06-29 14:41 - [吴磊爱上回收了](https://www.share.minike.top/Article/details/42203503.shtml)
+- 2026-06-29 14:18 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.kurohicncr.top/Article/details/435596.shtml)
+- 2026-06-29 14:33 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/1038144752.shtml)
+- 2026-06-29 14:41 - [三星与SK集团或将投资2000万亿韩元](http://www.share.kurohicncr.top/Article/details/1299596.shtml)
+- 2026-06-29 14:26 - [105年初心滚烫](https://www.share.kurohicncr.top/Article/details/858842511320.shtml)
+- 2026-06-29 14:30 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/38690124.shtml)
+- 2026-06-29 14:36 - [强⁶](http://www.share.minike.top/Article/details/893525964224.shtml)
+- 2026-06-29 14:39 - [每代父母都困在自己的时代里](https://www.share.kurohicncr.top/Article/details/977236119012.shtml)

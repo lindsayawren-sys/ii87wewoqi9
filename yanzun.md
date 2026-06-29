@@ -1,59 +1,57 @@
-# F1迈阿密站重启，规则调整成焦点
+# 百亿基金创新高，公募老将重仓了谁？
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-因中东冲突中断五周后，世界一级方程式锦标赛（F1）本周末在迈阿密重燃战火，一系列规则调整将重塑比赛格局。 赛历重设与技术洗牌 由于伊朗战争导致巴林站和沙特站被迫取消，F1迎来了长达五周的非正常间歇期。各车队利用这段意外时间在后方工厂埋头研发，准备在迈阿密带来大规模升级套件。迈凯伦领队证实，车队已弥补了赛季初对梅赛德斯动力单元理解的“赤字”，将在迈阿密带来一部“完全崭新”的赛车。
+4月22日，基金经理杜猛管理的摩根新兴动力A、傅鹏博管理的睿远成长价值A，这两只百亿级公募基金的复权单位净值均创下历史新高；时隔两日，谢治宇管理的兴全合润A复权单位净值亦突破历史纪录。截至4月24日，4月以来，三位公募老将管理的基金收益率分别为26.34%、22.40%和12.91%，均跑赢各自的业绩比较基准。 在一季度报告中，三只基金的前十大重仓股出现了相同的面孔，即中际旭创
 
 ## 正文
 
-因中东冲突中断五周后，世界一级方程式锦标赛（F1）本周末在迈阿密重燃战火，一系列规则调整将重塑比赛格局。
+4月22日，基金经理杜猛管理的摩根新兴动力A、傅鹏博管理的睿远成长价值A，这两只百亿级公募基金的复权单位净值均创下历史新高；时隔两日，谢治宇管理的兴全合润A复权单位净值亦突破历史纪录。
 
-赛历重设与技术洗牌 由于伊朗战争导致巴林站和沙特站被迫取消，F1迎来了长达五周的非正常间歇期。
+截至4月24日，4月以来，三位公募老将管理的基金收益率分别为26.34%、22.40%和12.91%，均跑赢各自的业绩比较基准。
 
-各车队利用这段意外时间在后方工厂埋头研发，准备在迈阿密带来大规模升级套件。
+在一季度报告中，三只基金的前十大重仓股出现了相同的面孔，即中际旭创和新易盛等。
 
-迈凯伦领队证实，车队已弥补了赛季初对梅赛德斯动力单元理解的“赤字”，将在迈阿密带来一部“完全崭新”的赛车。
+站在光中业绩爆发 截至4月24日最新数据显示，杜猛的基金经理年限已近15年。
 
-新规细则：向“过度工程化”开刀 自墨尔本开赛以来，2026款新规下复杂的能量管理机制遭到车手强烈批评，尤其是排位赛中的“松油滑行”充电现象和巨大的直道速度差带来安全隐患。
+他管理的摩根新兴动力规模为107.66亿元，其A份额4月以来收益率达26.34%，远超同期16.45%的业绩比较基准收益率。
 
-对此，国际汽联在迈阿密站紧急推行了一系列规则调整： 在排位赛性能方面，将每圈最大能量回收上限降低，并将超级充电峰值功率提升，旨在减少车手“保电”现象，鼓励全力驾驶。
+支撑这一收益的，是高仓位运作和对光模块的配置。
 
-在正赛安全方面，限制了“加速模式”的最大额外功率，并对动能电机的输出进行分区管理，以缩小车辆在直道末端因能量耗尽而产生的极端速度差。
+2026年一季报显示，该基金股票仓位为93.28%；新易盛为第四大重仓股，占股票市值比7.42%；中际旭创的持股占比为3.97%。
 
-在起步与湿地方面，引入了“低功率起步检测”系统，若检测到车辆起步过慢将自动介入补电，同时增加半雨胎暖胎毯温度以提升湿地抓地力。
+记者查阅定期报告发现，摩根新兴动力已连续四个季度重仓这两只光模块龙头股。
 
 ## 相关推荐
 
-- 2026-06-29 14:29 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-29 14:24 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-29 14:17 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-29 14:17 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-29 14:11 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-29 14:25 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 14:21 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-29 14:17 - [6月我国降水为何偏多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-29 14:19 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 14:22 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-29 14:07 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 14:09 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 14:21 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-29 14:39 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-29 14:22 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 14:33 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 14:39 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-29 14:32 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-29 14:16 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-29 14:29 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 14:30 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 14:18 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-29 14:36 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-29 14:26 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:12 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/162776023095.shtml)
-- 2026-06-29 14:15 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/1858308223.shtml)
-- 2026-06-29 14:11 - [美媒：空警-3000服役即成全球最强](http://www.blog.minike.top/Article/details/13932608607.shtml)
-- 2026-06-29 14:26 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.minike.top/Article/details/114410031.shtml)
-- 2026-06-29 14:10 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.minike.top/Article/details/7146265989.shtml)
-- 2026-06-29 14:32 - [巴西前锋说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/62385031.shtml)
-- 2026-06-29 14:20 - [日本主帅：目标是冠军](https://www.blog.minike.top/Article/details/20059212613.shtml)
-- 2026-06-29 14:16 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/9675985.shtml)
-- 2026-06-29 14:06 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/08485061601.shtml)
-- 2026-06-29 14:15 - [世界杯超牛补水广告出现了](https://www.blog.kurohicncr.top/Article/details/15785.shtml)
-- 2026-06-29 14:24 - [森保一：日本队要亲手改写历史](https://www.blog.minike.top/Article/details/6151924.shtml)
-- 2026-06-29 14:34 - [6月我国降水为何偏多](https://www.share.minike.top/Article/details/58148785.shtml)
-- 2026-06-29 14:24 - [欧委会总部只给高层开空调](https://www.blog.kurohicncr.top/Article/details/6272058.shtml)
-- 2026-06-29 14:20 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/30281.shtml)
-- 2026-06-29 14:22 - [速度与激情9](https://www.share.minike.top/Article/details/80676928055.shtml)
+- 2026-06-29 14:21 - [中方将20家日本实体列入关注名单](http://www.share.kurohicncr.top/Article/details/86714.shtml)
+- 2026-06-29 14:35 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/60760.shtml)
+- 2026-06-29 14:24 - [广东一地发现极危植物新物种](https://www.share.minike.top/Article/details/424830.shtml)
+- 2026-06-29 14:28 - [当我回母校教书](http://www.share.minike.top/Article/details/81479274975.shtml)
+- 2026-06-29 14:24 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/7014066656.shtml)
+- 2026-06-29 14:40 - [韩国队如何把94%出线概率打到0%](https://www.blog.minike.top/Article/details/7800404.shtml)
+- 2026-06-29 14:21 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/27486182595.shtml)
+- 2026-06-29 14:34 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/73189879540.shtml)
+- 2026-06-29 14:37 - [一生一世](https://www.share.kurohicncr.top/Article/details/4859003951.shtml)
+- 2026-06-29 14:34 - [撒旦的腋窝是什么比喻](http://www.share.kurohicncr.top/Article/details/94920.shtml)
+- 2026-06-29 14:37 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/164625368789.shtml)
+- 2026-06-29 14:13 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/448296.shtml)
+- 2026-06-29 14:31 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/1300308.shtml)
+- 2026-06-29 14:12 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/4421964318.shtml)
+- 2026-06-29 14:40 - [汪东城回应45岁婚约](http://www.share.minike.top/Article/details/238472.shtml)

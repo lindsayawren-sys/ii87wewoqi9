@@ -1,60 +1,60 @@
-# 李在明纪念抗倭名将李舜臣
+# 特朗普谈枪击事件：“我们活在一个疯狂的世界”
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-中新网4月29日电 据韩媒报道，韩国总统李在明28日参加在韩国忠清南道牙山市显忠祠举行的李舜臣将军诞辰481周年纪念活动并演讲。李在明表示：“其政府将以李舜臣将军的精神为指引，以强大的民族团结力量为动力，竭尽全力克服国家危机。” 报道称，李在明在演讲中说：“瞬息万变的国际秩序带来了难以预料的不确定性，中东战争导致能源价格上涨和物价波动，对我国经济和人民生活造成了重大影响。正如李
+上周六，白宫记者协会晚宴场外出现疑似枪手。美国总统特朗普表示，不知道自己是否是枪手的直接目标。事发时，他和多位政府官员均在晚宴现场。当地时间周日，哥伦比亚广播公司（CBS）主持人在采访中问道：“总统先生，您知道自己是否是枪手的目标吗？”“我不知道，”特朗普回答道。特朗普表示，他已经审阅了执法部门发现的与上周六宴会厅外开枪嫌疑人有关的文字材料。官员们称，这些文字显示，嫌疑枪手的目
 
 ## 正文
 
-中新网4月29日电 据韩媒报道，韩国总统李在明28日参加在韩国忠清南道牙山市显忠祠举行的李舜臣将军诞辰481周年纪念活动并演讲。
+上周六，白宫记者协会晚宴场外出现疑似枪手。
 
-李在明表示：“其政府将以李舜臣将军的精神为指引，以强大的民族团结力量为动力，竭尽全力克服国家危机。
+美国总统特朗普表示，不知道自己是否是枪手的直接目标。
 
-” 报道称，李在明在演讲中说：“瞬息万变的国际秩序带来了难以预料的不确定性，中东战争导致能源价格上涨和物价波动，对我国经济和人民生活造成了重大影响。
+事发时，他和多位政府官员均在晚宴现场。
 
-正如李舜臣将军当年力挽狂澜，带领国家走出危机一样，我们有责任携手共渡当前的难关。
+当地时间周日，哥伦比亚广播公司（CBS）主持人在采访中问道：“总统先生，您知道自己是否是枪手的目标吗？
 
-” 活动结束后，李在明前往显忠祠内的射箭场，观看第65届总统杯韩国射箭大赛。
+”“我不知道，”特朗普回答道。
 
-李在明观看了射箭表演，并鼓掌喝彩。
+特朗普表示，他已经审阅了执法部门发现的与上周六宴会厅外开枪嫌疑人有关的文字材料。
 
-随后，在一位现场参赛者的提议下，李在明也参与赛事，亲自射了一箭。
+官员们称，这些文字显示，嫌疑枪手的目标是特朗普政府官员，还写道面对本届政府的所作所为，他再也无法袖手旁观。
 
-李舜臣是朝鲜王朝中期武臣，朝鲜半岛历史上著名的军事家、民族英雄。
+被问及上周六当时有多担心会出现伤亡，特朗普停顿了一下。
 
 ## 相关推荐
 
-- 2026-06-29 14:22 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 14:32 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 14:19 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-29 14:32 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 14:22 - [周杰伦演唱会真的好多人啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-29 14:35 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-29 14:22 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-29 14:25 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-29 14:07 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-29 14:08 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 14:13 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 14:31 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-29 14:32 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 14:27 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 14:41 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 14:38 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-29 14:37 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-29 14:31 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 14:19 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-29 14:28 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-29 14:23 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-29 14:32 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 14:40 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 14:19 - [俄称继续推进 乌称打击俄军设施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-29 14:23 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-29 14:36 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 14:22 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-29 14:22 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:15 - [吴磊爱上回收了](http://www.blog.kurohicncr.top/Article/details/462504.shtml)
-- 2026-06-29 14:18 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/0716070137.shtml)
-- 2026-06-29 14:32 - [美媒：空警-3000服役即成全球最强](http://www.share.kurohicncr.top/Article/details/545926.shtml)
-- 2026-06-29 14:13 - [金刚川](http://www.blog.minike.top/Article/details/1515575310.shtml)
-- 2026-06-29 14:17 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.blog.kurohicncr.top/Article/details/186070864120.shtml)
-- 2026-06-29 14:34 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/013233764697.shtml)
-- 2026-06-29 14:26 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/5891182.shtml)
-- 2026-06-29 14:30 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.kurohicncr.top/Article/details/189356261.shtml)
-- 2026-06-29 14:23 - [6月我国降水为何偏多](https://www.blog.minike.top/Article/details/531556102364.shtml)
-- 2026-06-29 14:13 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/62247619232.shtml)
-- 2026-06-29 14:13 - [金牌调解](https://www.share.minike.top/Article/details/216309.shtml)
-- 2026-06-29 14:27 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/1867250.shtml)
-- 2026-06-29 14:06 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/553648.shtml)
-- 2026-06-29 14:32 - [布里奇斯被交易至太阳](https://www.blog.kurohicncr.top/Article/details/74755418830.shtml)
-- 2026-06-29 14:07 - [妹妹的正确用法！](https://www.blog.minike.top/Article/details/6113777.shtml)
+- 2026-06-29 14:37 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/447390.shtml)
+- 2026-06-29 14:24 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/27572357.shtml)
+- 2026-06-29 14:26 - [爸爸当家](http://www.share.kurohicncr.top/Article/details/715958437629.shtml)
+- 2026-06-29 14:35 - [世界杯用球成部分门将噩梦](http://www.blog.minike.top/Article/details/394753203802.shtml)
+- 2026-06-29 14:28 - [世界杯用球成部分门将噩梦](https://www.share.minike.top/Article/details/2092767.shtml)
+- 2026-06-29 14:24 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/373084077.shtml)
+- 2026-06-29 14:21 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/74551256.shtml)
+- 2026-06-29 14:31 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/9283448.shtml)
+- 2026-06-29 14:24 - [金刚川](http://www.blog.kurohicncr.top/Article/details/0908379595.shtml)
+- 2026-06-29 14:22 - [中餐厅南北饮食差异](http://www.blog.kurohicncr.top/Article/details/36577002.shtml)
+- 2026-06-29 14:16 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/9566386460.shtml)
+- 2026-06-29 14:41 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.minike.top/Article/details/03706463.shtml)
+- 2026-06-29 14:18 - [韩媒破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/92584373.shtml)
+- 2026-06-29 14:30 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/55727.shtml)
+- 2026-06-29 14:41 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/223357627481.shtml)

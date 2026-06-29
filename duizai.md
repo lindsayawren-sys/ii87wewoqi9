@@ -1,51 +1,54 @@
-# 光大银行：一季度实现归母净利润114.59亿元，同比减少8.06%
+# 金融街嘉年华全聚德展位“热销”，工作人员：每天中午都排队！
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-4月29日金融一线消息，光大银行发布2026年一季度报告。数据显示，报告期末，本集团资产总额72，011.45亿元，比上年末增长0.50%，其中，贷款和垫款本金总额40，561.38亿元，比上年末增长1.91%；负债总额66，241.31亿元，比上年末增长1.01%。 报告期内，集团实现净利润115.21亿元，比上年同期下降8.05%；实现归属于本行股东的净利润114.59亿元
+专题：2026金融街智绘春光嘉年华 4月26日，2026金融街智绘春光嘉年华近日举办，全聚德展位的纯肉烤肠和烤鸭串吸引了大量消费者驻足。 谈及本次参展感受，全聚德展位工作人员向新浪财经表示：“感觉很好！东西卖的也很好，尤其烤鸭串，每次到中午都能吸引到很多消费者排队购买。” 新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞
 
 ## 正文
 
-4月29日金融一线消息，光大银行发布2026年一季度报告。
+专题：2026金融街智绘春光嘉年华 4月26日，2026金融街智绘春光嘉年华近日举办，全聚德展位的纯肉烤肠和烤鸭串吸引了大量消费者驻足。
 
-数据显示，报告期末，本集团资产总额72，011.45亿元，比上年末增长0.50%，其中，贷款和垫款本金总额40，561.38亿元，比上年末增长1.91%；负债总额66，241.31亿元，比上年末增长1.01%。
+谈及本次参展感受，全聚德展位工作人员向新浪财经表示：“感觉很好！
 
-报告期内，集团实现净利润115.21亿元，比上年同期下降8.05%；实现归属于本行股东的净利润114.59亿元，比上年同期下降8.06%；实现营业收入318.11亿元，比上年同期下降3.85%。
+东西卖的也很好，尤其烤鸭串，每次到中午都能吸引到很多消费者排队购买。
 
-报告期末，集团不良贷款余额534.49亿元，比上年末增加27.07亿元；不良贷款率1.32%，比上年末上升0.05个百分点；拨备覆盖率162.22%，比上年末下降11.92个百分点。
+” 新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
 
-责任编辑：王馨茹
+责任编辑：李思阳
 
 ## 相关推荐
 
-- 2026-06-29 14:27 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-29 14:10 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 14:16 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-29 14:30 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 14:11 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 14:28 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-29 14:19 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 14:25 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-29 14:08 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-29 14:24 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 14:16 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-29 14:31 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 14:27 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 14:20 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 14:24 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 14:41 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-29 14:15 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-29 14:32 - [和阿根廷球员家属一起看球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 14:12 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-29 14:33 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-29 14:23 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-29 14:40 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 14:34 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-29 14:36 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 14:39 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:06 - [这开放世界游戏，竟然允许玩家屠城？](https://www.blog.minike.top/Article/details/34867197514.shtml)
-- 2026-06-29 14:34 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/80418.shtml)
-- 2026-06-29 14:35 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/15973954.shtml)
-- 2026-06-29 14:26 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/2237884913.shtml)
-- 2026-06-29 14:25 - [中国避暑神器在欧洲卖爆了](http://www.blog.minike.top/Article/details/596437176193.shtml)
-- 2026-06-29 14:24 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/5646704629.shtml)
-- 2026-06-29 14:35 - [【独家】牧神记 第89集 明心](http://www.blog.minike.top/Article/details/25681766278.shtml)
-- 2026-06-29 14:34 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/63682049837.shtml)
-- 2026-06-29 14:31 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/38947985419.shtml)
-- 2026-06-29 14:21 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/12786308.shtml)
-- 2026-06-29 14:21 - [俄军新型无人机战力如何](http://www.share.kurohicncr.top/Article/details/6438827287.shtml)
-- 2026-06-29 14:06 - [复盘曾沛慈浪姐夺冠之路](https://www.blog.kurohicncr.top/Article/details/711645.shtml)
-- 2026-06-29 14:21 - [第一炉香](http://www.blog.minike.top/Article/details/37443819688.shtml)
-- 2026-06-29 14:08 - [AG 钟意](http://www.blog.minike.top/Article/details/272485.shtml)
-- 2026-06-29 14:32 - [严浩翔FIY断层第一](https://www.share.minike.top/Article/details/75799.shtml)
+- 2026-06-29 14:29 - [女心理师](http://www.share.minike.top/Article/details/686652.shtml)
+- 2026-06-29 14:19 - [光与夜之恋](https://www.share.minike.top/Article/details/661008619998.shtml)
+- 2026-06-29 14:26 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/62489513.shtml)
+- 2026-06-29 14:22 - [内马尔能上场15分钟](https://www.blog.kurohicncr.top/Article/details/85487305086.shtml)
+- 2026-06-29 14:12 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/8637458.shtml)
+- 2026-06-29 14:28 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/187073739943.shtml)
+- 2026-06-29 14:32 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/89408788853.shtml)
+- 2026-06-29 14:35 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/1751709094.shtml)
+- 2026-06-29 14:25 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/87049.shtml)
+- 2026-06-29 14:41 - [王祖蓝现场观看美加墨世界杯](http://www.share.kurohicncr.top/Article/details/701512805637.shtml)
+- 2026-06-29 14:39 - [第一炉香](http://www.share.kurohicncr.top/Article/details/621081382.shtml)
+- 2026-06-29 14:27 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/237499501013.shtml)
+- 2026-06-29 14:40 - [极限挑战第一季](https://www.share.minike.top/Article/details/29415464.shtml)
+- 2026-06-29 14:39 - [汪东城回应45岁婚约](https://www.share.kurohicncr.top/Article/details/873461552.shtml)
+- 2026-06-29 14:40 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/67251503348.shtml)

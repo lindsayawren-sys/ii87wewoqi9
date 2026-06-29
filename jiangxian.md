@@ -1,60 +1,58 @@
-# 新疆海拔最高超高压变电站进入设备安装阶段
+# 20支队伍角逐国科大第三届弘扬“两弹一星”精神话剧大赛决赛
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-中新网乌鲁木齐4月30日电 (张杨 滚艳 高奕飞)4月30日，在新疆巴音郭楞蒙古自治州若羌县以西207公里的高原戈壁施工现场，祁曼750千伏变电站工程建设有序推进，施工人员正抢抓工期，开展66千伏电容器、电抗器等电气设备安装作业，新疆海拔最高的超高压变电站工程已全面进入设备安装阶段。 祁曼750千伏变电站是疆电外送第三交流通道——若羌—羚羊750千伏输变电工程的重要中转站，也是
+中新网北京4月26日电 (记者 孙自法)中国科学院大学(国科大)第三届弘扬“两弹一星”精神话剧大赛决赛4月25日晚在雁栖湖校区举办，共有来自20个培养单位及院系的20支队伍参赛。 决赛现场还特别展演AI短片《跨越时空的薪火》，通过跨时空对话形式，让“两弹一星”元勋与当代国科大青年相遇，生动传承科技报国的薪火。 本次决赛邀请北京人民艺术剧院、中国国家话剧院、中央戏剧学院、中国科学
 
 ## 正文
 
-中新网乌鲁木齐4月30日电 (张杨 滚艳 高奕飞)4月30日，在新疆巴音郭楞蒙古自治州若羌县以西207公里的高原戈壁施工现场，祁曼750千伏变电站工程建设有序推进，施工人员正抢抓工期，开展66千伏电容器、电抗器等电气设备安装作业，新疆海拔最高的超高压变电站工程已全面进入设备安装阶段。
+中新网北京4月26日电 (记者 孙自法)中国科学院大学(国科大)第三届弘扬“两弹一星”精神话剧大赛决赛4月25日晚在雁栖湖校区举办，共有来自20个培养单位及院系的20支队伍参赛。
 
-祁曼750千伏变电站是疆电外送第三交流通道——若羌—羚羊750千伏输变电工程的重要中转站，也是区域新能源项目并网接入的核心枢纽。
+决赛现场还特别展演AI短片《跨越时空的薪火》，通过跨时空对话形式，让“两弹一星”元勋与当代国科大青年相遇，生动传承科技报国的薪火。
 
-工程规划新建150万千伏安主变压器2组，建成投运后，将进一步强化新疆巴州南部电网网架结构，显著提升格库电气化铁路供电可靠性，同时推动当地丰富的风能、太阳能资源高效转化为经济发展动能，有效缓解青海电网季节性电力短缺问题，成为保障青海地区电力稳定供应的重要支撑。
+本次决赛邀请北京人民艺术剧院、中国国家话剧院、中央戏剧学院、中国科学院科学家精神宣讲团等单位专家担任评委。
 
-该工程站址坐落于素有“生命禁区”之称的高原戈壁地带，周边被罗布泊、阿尔金山等四大无人区环绕，海拔超过3000米，是新疆首座海拔突破3000米的750千伏变电站，也被称作“最孤独的变电站”。
+通过激烈角逐，大赛一二三等奖及最佳剧本、最佳导演等单项奖评选揭晓。
 
-施工现场自然环境极为恶劣，年均五级以上大风和沙暴天气超过200天，加之高海拔地区空气稀薄、氧气含量低，不仅对施工人员的身体耐受度提出极高挑战，也对电力设备耐候性能、施工工艺精准度设定了严苛标准。
+其中，中国科学院西安光学精密机械研究所《光与希望》、国科大玉泉书院《昆仑山上的一棵草》获一等奖；国科大集成电路学院《无声的坚守》、马克思主义学院《我与我同行》、国际学院《半页图纸》获二等奖；中国科学院空天信息创新研究院《追梦863》、大连化学物理研究所《重水十年》、上海微系统与信息技术研究所《自助者天助》获三等奖。
 
-“当前工程已全面转入电气设备安装阶段，针对高原持续性大风天气，我们科学优化施工方案，动态调整高空作业时间，全程开展风速实时监测，每个吊装作业点均安排专人值守，全程监护施工安全与吊车操作人员身体状态。
+《光与希望》获最佳剧本奖；《昆仑山上的一棵草》摘得最佳舞台美术奖、最佳导演奖，剧中陈能宽院士饰演者王翊帆获最佳男演员奖；《我与我同行》青年王承书和中年王承书饰演者拥忠初、解筱冰获最佳女演员奖。
 
-”工程业主项目经理张俊表示，为切实保障施工人员健康安全，项目部针对高原缺氧、恶劣气候等难题，在办公区和生活区配备专业吸氧设备，设立常驻医疗室，建立健全应急保障机制，每周定期为施工人员进行血压、血氧监测，为人员健康与施工安全筑牢双重防线。
+此外，优秀组织奖也同步揭晓并颁奖。
 
-截至目前，祁曼750千伏变电站工程已顺利完成全部土建施工和构架安装作业，整体工程预计2027年建成投运。
+决赛现场，国科大校长周琪，“两弹一星”元勋陈芳允院士、“两弹一星”攻关科学家张存浩院士、国科大外语系教授李佩等人的亲属代表，以及中国科学院、怀柔区、培养单位、国科大师生代表等参加活动。
 
 ## 相关推荐
 
-- 2026-06-29 14:25 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-29 14:28 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-29 14:09 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-29 14:09 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-29 14:25 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 14:27 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 14:11 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-29 14:31 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 14:25 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 14:33 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-29 14:28 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 14:32 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 14:21 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 14:12 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 14:23 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-29 14:20 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 14:20 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-29 14:38 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 14:34 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 14:39 - [航空运输旅客服务质量国标将实施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 14:41 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-29 14:16 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-29 14:17 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 14:14 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 14:40 - [吴海燕兰西雅漫步复兴岛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-29 14:19 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:21 - [给阿嬷的情书海外口碑](http://www.blog.kurohicncr.top/Article/details/330662231.shtml)
-- 2026-06-29 14:24 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/957743927371.shtml)
-- 2026-06-29 14:14 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/46224.shtml)
-- 2026-06-29 14:18 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/1801941.shtml)
-- 2026-06-29 14:31 - [急先锋](http://www.blog.kurohicncr.top/Article/details/291421.shtml)
-- 2026-06-29 14:17 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/680829.shtml)
-- 2026-06-29 14:26 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/669141121.shtml)
-- 2026-06-29 14:16 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/5317615159.shtml)
-- 2026-06-29 14:31 - [血糖高的人能吃西瓜吗](https://www.share.minike.top/Article/details/319768841855.shtml)
-- 2026-06-29 14:30 - [《贺子珍》](http://www.blog.minike.top/Article/details/51334538101.shtml)
-- 2026-06-29 14:23 - [久坐小心“死臀综合征”](http://www.share.kurohicncr.top/Article/details/45170715.shtml)
-- 2026-06-29 14:09 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/48798640.shtml)
-- 2026-06-29 14:32 - [宜宾5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/209704260088.shtml)
-- 2026-06-29 14:16 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/0626430.shtml)
-- 2026-06-29 14:18 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/4980966.shtml)
+- 2026-06-29 14:38 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/74044.shtml)
+- 2026-06-29 14:31 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.kurohicncr.top/Article/details/6451036860.shtml)
+- 2026-06-29 14:19 - [美国近12万名科技员工被解雇](https://www.share.kurohicncr.top/Article/details/38748594.shtml)
+- 2026-06-29 14:27 - [王楚钦3比0周启豪](http://www.blog.kurohicncr.top/Article/details/12130771655.shtml)
+- 2026-06-29 14:31 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/74476455044.shtml)
+- 2026-06-29 14:15 - [海军舰艇编队将赴香港](https://www.blog.minike.top/Article/details/9738095248.shtml)
+- 2026-06-29 14:33 - [王楚钦3比0周启豪](http://www.share.kurohicncr.top/Article/details/555100803675.shtml)
+- 2026-06-29 14:18 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/2169329929.shtml)
+- 2026-06-29 14:34 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/72035.shtml)
+- 2026-06-29 14:31 - [张一山回应与杨紫友情](https://www.share.minike.top/Article/details/493221.shtml)
+- 2026-06-29 14:32 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/107535413657.shtml)
+- 2026-06-29 14:21 - [中国战机大片上新](http://www.blog.kurohicncr.top/Article/details/62845822.shtml)
+- 2026-06-29 14:16 - [马斯克也站到了光里](http://www.share.minike.top/Article/details/964908914.shtml)
+- 2026-06-29 14:19 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/32775477208.shtml)
+- 2026-06-29 14:34 - [世界杯用球成部分门将噩梦](https://www.share.kurohicncr.top/Article/details/756178138343.shtml)

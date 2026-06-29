@@ -1,61 +1,56 @@
-# 税收数据显示：青海算电协同加速产业融合
+# CIPS资金托管行扩容至14家 中信银行、中银香港等四家入列
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-中新网西宁4月29日电 (李隽 林浩)国家税务总局青海省税务局4月29日发布的税收数据显示：一季度，该省科技创新赋能产业发展成效突出，绿电与绿算产业互促共进，数字经济与绿色能源融合发展加速。 一季度，青海省节能环保技术、生物技术、新材料技术推广服务业开票销售收入同比分别增长16.9%、37.1%、42.5%，绿色技术创新应用步伐持续加快；工程技术与设计服务、工业与专业设计及其他
+21世纪经济报道记者 唐婧 近日，人民币跨境支付系统（CIPS）官网更新了资金托管行名单，参与机构数量由2024年8月末的10家增至14家，首次将境外法人银行纳入托管行行列，同时新增2家股份制银行与1家外资法人银行，进一步织密了人民币跨境清算的安全网与服务网络。 官网显示，截至2026年4月，CIPS系统资金托管行共计14家。与此前截至2024年8月末的名单相比，此次新增的4家
 
 ## 正文
 
-中新网西宁4月29日电 (李隽 林浩)国家税务总局青海省税务局4月29日发布的税收数据显示：一季度，该省科技创新赋能产业发展成效突出，绿电与绿算产业互促共进，数字经济与绿色能源融合发展加速。
+21世纪经济报道记者 唐婧 近日，人民币跨境支付系统（CIPS）官网更新了资金托管行名单，参与机构数量由2024年8月末的10家增至14家，首次将境外法人银行纳入托管行行列，同时新增2家股份制银行与1家外资法人银行，进一步织密了人民币跨境清算的安全网与服务网络。
 
-一季度，青海省节能环保技术、生物技术、新材料技术推广服务业开票销售收入同比分别增长16.9%、37.1%、42.5%，绿色技术创新应用步伐持续加快；工程技术与设计服务、工业与专业设计及其他专业技术服务业开票销售收入同比分别增长7.5%、10.1%，专业技术服务能力稳步提升。
+官网显示，截至2026年4月，CIPS系统资金托管行共计14家。
 
-随着绿色算力产业加快培育，信息传输、软件和信息技术服务应用发展步伐持续加快。
+与此前截至2024年8月末的名单相比，此次新增的4家银行分别为中银香港、中信银行、光大银行和星展（中国）。
 
-一季度该省电信业、软件和信息技术服务业、互联网和相关服务业开票销售收入同比分别增长15.8%、17.7%、2.4倍。
+原有的工商银行、建设银行、中国银行、农业银行、交通银行、渣打（中国）、兴业银行、民生银行、汇丰（中国）和江苏银行均继续保留在名单中。
 
-工业企业购进科技服务取得发票金额同比增长28.2%，企业创新投入持续加大，科技创新对产业发展的支撑作用不断增强。
+资金托管行在CIPS体系中承担着为直接参与者进行流动性管理的重要职能，是系统安全、高效运行的基础设施节点。
 
-发票数据显示，一季度青海省绿电产业、绿算产业相关经营主体开票销售收入同比分别增长12.4%、41%。
+更丰富、更多元的托管行架构，有利于增强直参机构流动性调配的灵活性、提升资金运用效率，更好满足不同区域、不同类型机构参与跨境人民币业务的需求。
 
-绿电产业稳中有进，截至3月底该省绿电产业相关经营主体达到1973户，同比增长17%，上游设备生产制造、中游清洁能源发电、下游供应及服务协同增长。
+此次扩容呈现出多点突破的特征。
 
-算力产业相关经营主体达到7949户，同比增长27%。
+中银香港入选，标志着CIPS首次将资金托管行延伸至境外金融机构。
 
 ## 相关推荐
 
-- 2026-06-29 14:17 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 14:08 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-29 14:24 - [俄称继续推进 乌称打击俄军设施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-29 14:25 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-29 14:09 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 14:23 - [媒体：高考后消费应量力而行适度有度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-29 14:22 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-29 14:23 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 14:32 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-29 14:14 - [光与夜之恋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 14:35 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 14:29 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-29 14:08 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 14:31 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-29 14:23 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 14:24 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 14:26 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 14:17 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 14:18 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 14:41 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 14:29 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 14:12 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-29 14:18 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 14:12 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-29 14:21 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:26 - [杨紫 你幸福的话我会比你先流泪](https://www.blog.kurohicncr.top/Article/details/43446036.shtml)
-- 2026-06-29 14:33 - [天道](http://www.blog.kurohicncr.top/Article/details/324039811.shtml)
-- 2026-06-29 14:24 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.kurohicncr.top/Article/details/19131060046.shtml)
-- 2026-06-29 14:35 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/837385521.shtml)
-- 2026-06-29 14:33 - [NBA交易](http://www.blog.minike.top/Article/details/9507313.shtml)
-- 2026-06-29 14:31 - [美伊同意停止互袭 30日在多哈谈判](https://www.share.kurohicncr.top/Article/details/39563.shtml)
-- 2026-06-29 14:14 - [20年前的周杰伦](https://www.blog.kurohicncr.top/Article/details/1362957.shtml)
-- 2026-06-29 14:23 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/53254.shtml)
-- 2026-06-29 14:29 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/447735515753.shtml)
-- 2026-06-29 14:27 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/042273345953.shtml)
-- 2026-06-29 14:27 - [詹俊预测德国大胜巴拉圭](http://www.blog.minike.top/Article/details/8363707.shtml)
-- 2026-06-29 14:07 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/647433.shtml)
-- 2026-06-29 14:23 - [多只A股发布股价异动公告](https://www.share.kurohicncr.top/Article/details/19014234.shtml)
-- 2026-06-29 14:18 - [中俄联合巡航阵容强大 日本慌了？](http://www.blog.minike.top/Article/details/706254065.shtml)
-- 2026-06-29 14:14 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/465592607706.shtml)
+- 2026-06-29 14:19 - [多只A股发布股价异动公告](http://www.share.kurohicncr.top/Article/details/88111510469.shtml)
+- 2026-06-29 14:23 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/73280295131.shtml)
+- 2026-06-29 14:18 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.minike.top/Article/details/543917476.shtml)
+- 2026-06-29 14:14 - [下飞机后，我做了个很蠢的决定......](https://www.share.minike.top/Article/details/33309467.shtml)
+- 2026-06-29 14:34 - [志愿选择倒计时！浙大学生送祝福](https://www.share.minike.top/Article/details/305694.shtml)
+- 2026-06-29 14:39 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.blog.minike.top/Article/details/72739599337.shtml)
+- 2026-06-29 14:29 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/8213364478.shtml)
+- 2026-06-29 14:17 - [记者暗访贵州和云南多个养老机构](http://www.share.minike.top/Article/details/0330232.shtml)
+- 2026-06-29 14:35 - [当我回母校教书](https://www.share.minike.top/Article/details/86959636554.shtml)
+- 2026-06-29 14:30 - [四川宜宾地震](http://www.blog.minike.top/Article/details/1745260549.shtml)
+- 2026-06-29 14:21 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/21477710.shtml)
+- 2026-06-29 14:32 - [比亚迪市值为何蒸发8000亿](http://www.blog.kurohicncr.top/Article/details/8662943.shtml)
+- 2026-06-29 14:12 - [评论员：高温撕开欧洲“遮羞布”](http://www.blog.minike.top/Article/details/268757.shtml)
+- 2026-06-29 14:28 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/4519357.shtml)
+- 2026-06-29 14:38 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/306215543730.shtml)

@@ -1,55 +1,59 @@
-# 巨人网络：收到重庆证监局行政监管措施决定书 对董事长史玉柱出具警示函
+# 监狱法修订草案三审 拟完善罪犯与亲属通话会见规定
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：财联社 巨人网络（002558.SZ）公告称，公司于4月29日收到中国证券监督管理委员会重庆监管局下发的《行政监管措施决定书》。经查，公司存在违规行为，2020年9月，公司全资子公司向上海卓闲互动网络技术有限公司转让合肥灵犀互动网络科技有限公司100%
+中新网北京4月27日电 (记者 黄钰钦 郭超凯)监狱法修订草案27日提请十四届全国人大常委会审议。在完善罪犯与亲属等通话会见方面，草案三审稿增加规定，监狱合理安排次数与时间以及视频会见方式。 在进一步规范和保障监狱管理活动方面，草案三审稿对监狱人民警察使用警械、武器的规定作修改完善，处理好与人民警察法、人民警察使用警械和武器条例等的衔接。 同时，草案三审稿完善罪犯与亲属等通话会
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京4月27日电 (记者 黄钰钦 郭超凯)监狱法修订草案27日提请十四届全国人大常委会审议。
 
-来源：财联社 巨人网络（002558.SZ）公告称，公司于4月29日收到中国证券监督管理委员会重庆监管局下发的《行政监管措施决定书》。
+在完善罪犯与亲属等通话会见方面，草案三审稿增加规定，监狱合理安排次数与时间以及视频会见方式。
 
-经查，公司存在违规行为，2020年9月，公司全资子公司向上海卓闲互动网络技术有限公司转让合肥灵犀互动网络科技有限公司100%股权，上海卓闲支付的股权转让款资金穿透来源于公司关联方。
+在进一步规范和保障监狱管理活动方面，草案三审稿对监狱人民警察使用警械、武器的规定作修改完善，处理好与人民警察法、人民警察使用警械和武器条例等的衔接。
 
-关联方提供资金借款促成本次交易完成，系本次交易的共同参与方。
+同时，草案三审稿完善罪犯与亲属等通话会见的规定，增加监狱合理安排次数与时间以及视频会见方式。
 
-公司未按规定就上述交易履行关联交易审议程序及信息披露义务。
+草案规定，罪犯在监狱服刑期间，按照规定，可以与亲属、监护人通话、会见；与其他人员通话、会见有利于罪犯改造的，经监狱批准页可以通话、会见。
 
-中国证券监督管理委员会重庆监管局决定对公司、史玉柱、刘伟、孟玮采取出具警示函的行政监管措施，并将相关情况记入证券期货市场诚信档案。
+草案还规定，监狱应当根据罪犯的改造需要、处遇分级等合理安排罪犯通话、会见的次数与时间。
 
-责任编辑：宋雅芳
+监狱还可以按照规定增加安排罪犯进行视频会见。
+
+此外，草案三审稿还与刑事诉讼法、律师法相衔接，增加规定罪犯与其辩护律师会见时不被监听。
 
 ## 相关推荐
 
-- 2026-06-29 14:35 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-29 14:24 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 14:07 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 14:12 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 14:31 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 14:35 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 14:16 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 14:21 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-29 14:09 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 14:22 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 14:29 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 14:15 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 14:40 - [A股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 14:35 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 14:19 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 14:26 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 14:18 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-29 14:28 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-29 14:38 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-29 14:22 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-29 14:15 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 14:16 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-29 14:13 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-29 14:19 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:12 - [韩国拟将部分刑责年龄降至13岁](http://www.share.minike.top/Article/details/5721878.shtml)
-- 2026-06-29 14:20 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.kurohicncr.top/Article/details/000366673.shtml)
-- 2026-06-29 14:09 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.kurohicncr.top/Article/details/466323.shtml)
-- 2026-06-29 14:34 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/520909.shtml)
-- 2026-06-29 14:28 - [普京称考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/1986185.shtml)
-- 2026-06-29 14:06 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.kurohicncr.top/Article/details/11571.shtml)
-- 2026-06-29 14:25 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.kurohicncr.top/Article/details/92211997.shtml)
-- 2026-06-29 14:12 - [拄拐少年高考663分：用行动回报社会](http://www.blog.minike.top/Article/details/37652532465.shtml)
-- 2026-06-29 14:08 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/89813.shtml)
-- 2026-06-29 14:10 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/464694792.shtml)
-- 2026-06-29 14:25 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/928563937.shtml)
-- 2026-06-29 14:09 - [宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/372479855133.shtml)
-- 2026-06-29 14:26 - [第一批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/6722680.shtml)
-- 2026-06-29 14:16 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/858548.shtml)
-- 2026-06-29 14:23 - [农发行总行专家委员会委员杜晓力被查](https://www.share.kurohicncr.top/Article/details/912063068.shtml)
+- 2026-06-29 14:12 - [加拿大绝杀南非晋级](http://www.blog.kurohicncr.top/Article/details/4072132264.shtml)
+- 2026-06-29 14:40 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/09261.shtml)
+- 2026-06-29 14:34 - [记者暗访贵州和云南多个养老机构](http://www.blog.minike.top/Article/details/85505.shtml)
+- 2026-06-29 14:31 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/0057751.shtml)
+- 2026-06-29 14:27 - [巴西德国15次闯进世界杯淘汰赛](http://www.share.minike.top/Article/details/438643435360.shtml)
+- 2026-06-29 14:17 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/0708722027.shtml)
+- 2026-06-29 14:29 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/688219.shtml)
+- 2026-06-29 14:28 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.minike.top/Article/details/19867.shtml)
+- 2026-06-29 14:13 - [恋与深空失控领地](http://www.blog.minike.top/Article/details/41066.shtml)
+- 2026-06-29 14:24 - [四川宜宾地震致13人受轻微伤](https://www.share.minike.top/Article/details/47687815870.shtml)
+- 2026-06-29 14:32 - [胡光宇一审获刑13年](http://www.share.minike.top/Article/details/6312146914.shtml)
+- 2026-06-29 14:27 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/08727612381.shtml)
+- 2026-06-29 14:30 - [【独家】牧神记 第89集 明心](https://www.blog.minike.top/Article/details/66782.shtml)
+- 2026-06-29 14:30 - [双高胎](http://www.blog.minike.top/Article/details/361694805890.shtml)
+- 2026-06-29 14:12 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.kurohicncr.top/Article/details/13893381498.shtml)

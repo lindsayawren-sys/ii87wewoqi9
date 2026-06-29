@@ -1,60 +1,56 @@
-# 香江观澜：生物医药成香港经济多元发展新引擎
+# 报道：谷歌员工敦促Pichai阻止美国军方使用其人工智能技术
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-中新社香港4月30日电 题：生物医药成香港经济多元发展新引擎 中新社记者 香卢平 创新药企迈威生物本周在香港上市，成为首家以“A股科创板+港股18A”方式上市的未盈利生物科技企业，开创资本市场先河。同日，香港特区政府投资推广署宣布，4家来自瑞士、法国的医疗科创企业将进驻港深创新及科技园(即河套深港科技创新合作区香港园区)。全球药企“用脚投票”，香港生物医药枢纽定位正获得市场有力
+英国《金融时报》报道，超过560名谷歌员工已联名致信首席执行官Sundar Pichai，敦促他拒绝让美国政府将谷歌人工智能技术用于机密军事行动。 信中写道：“我们希望看到人工智能造福人类，而不是被用于不人道或极其有害的用途。这其中包括但不限于致命性自主武器和大规模监控。” 两名参与者表示，这封致Pichai的信由谷歌人工智能实验室DeepMind的员工协调发起。签署者中有五分
 
 ## 正文
 
-中新社香港4月30日电 题：生物医药成香港经济多元发展新引擎 中新社记者 香卢平 创新药企迈威生物本周在香港上市，成为首家以“A股科创板+港股18A”方式上市的未盈利生物科技企业，开创资本市场先河。
+英国《金融时报》报道，超过560名谷歌员工已联名致信首席执行官Sundar Pichai，敦促他拒绝让美国政府将谷歌人工智能技术用于机密军事行动。
 
-同日，香港特区政府投资推广署宣布，4家来自瑞士、法国的医疗科创企业将进驻港深创新及科技园(即河套深港科技创新合作区香港园区)。
+信中写道：“我们希望看到人工智能造福人类，而不是被用于不人道或极其有害的用途。
 
-全球药企“用脚投票”，香港生物医药枢纽定位正获得市场有力验证。
+这其中包括但不限于致命性自主武器和大规模监控。
 
-全球巨头加速抢滩布局，产业集聚效应持续凸显。
+” 两名参与者表示，这封致Pichai的信由谷歌人工智能实验室DeepMind的员工协调发起。
 
-今年前4个月，香港已引入17家生命科技企业，带动逾13亿港元投资。
+签署者中有五分之二来自人工智能部门，云业务部门占比相近，其余则来自Alphabet的其他团队。
 
-在日前公布的特区政府引进的第六批重点企业名单中，全球制药巨头辉瑞在列，至此全球十大药厂已有半数落户香港，特区政府更明确提出吸引全球十大药企全部落户香港的目标。
+包括总监和副总裁在内的超过18名高级员工签署了这封信。
 
-不同于以往科创发展的泛化布局，此番全球顶尖生物科技资源持续向香港集聚，意味着香港打造国际生物医药枢纽，已稳步迈向产业生态逐步完善的新阶段。
-
-香港贸易发展局去年9月发表的报告显示，香港生物医药企业总数超3000家，10年增长近30%。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 14:18 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-29 14:27 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-29 14:16 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-29 14:08 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-29 14:26 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-29 14:35 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-29 14:20 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 14:23 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 14:15 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 14:21 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-29 14:24 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-29 14:21 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 14:15 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 14:33 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 14:22 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 14:41 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 14:13 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-29 14:19 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 14:36 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 14:14 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 14:41 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 14:18 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 14:14 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-29 14:13 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 14:13 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 14:20 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:11 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/003478718.shtml)
-- 2026-06-29 14:30 - [加拿大绝杀南非晋级](http://www.blog.minike.top/Article/details/7672580071.shtml)
-- 2026-06-29 14:35 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/8310247.shtml)
-- 2026-06-29 14:08 - [永远保持对人民的赤子之心](http://www.share.minike.top/Article/details/9458020.shtml)
-- 2026-06-29 14:34 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.blog.kurohicncr.top/Article/details/0548632492.shtml)
-- 2026-06-29 14:36 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.kurohicncr.top/Article/details/7057372.shtml)
-- 2026-06-29 14:34 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.kurohicncr.top/Article/details/66826.shtml)
-- 2026-06-29 14:26 - [詹俊：巴西能凭借两大优势战胜日本](http://www.share.minike.top/Article/details/09138.shtml)
-- 2026-06-29 14:11 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/33829763086.shtml)
-- 2026-06-29 14:33 - [F1奥地利正赛战报](http://www.blog.kurohicncr.top/Article/details/0275985.shtml)
-- 2026-06-29 14:18 - [成都至北京将新增动卧](https://www.share.kurohicncr.top/Article/details/48228755021.shtml)
-- 2026-06-29 14:30 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/22001672097.shtml)
-- 2026-06-29 14:34 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/2135157.shtml)
-- 2026-06-29 14:15 - [上班主打一个薪尽自然凉](http://www.share.minike.top/Article/details/8314181.shtml)
-- 2026-06-29 14:18 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/257454.shtml)
+- 2026-06-29 14:20 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.share.kurohicncr.top/Article/details/0177180862.shtml)
+- 2026-06-29 14:21 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/86146846.shtml)
+- 2026-06-29 14:35 - [锐评浪姐7总决赛](http://www.blog.kurohicncr.top/Article/details/0260522.shtml)
+- 2026-06-29 14:23 - [森保一：日本队要亲手改写历史](https://www.blog.kurohicncr.top/Article/details/39989328081.shtml)
+- 2026-06-29 14:24 - [美人鱼](http://www.blog.minike.top/Article/details/51306205.shtml)
+- 2026-06-29 14:21 - [俄军新型无人机战力如何](https://www.blog.kurohicncr.top/Article/details/0870701361.shtml)
+- 2026-06-29 14:19 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.share.kurohicncr.top/Article/details/0265570324.shtml)
+- 2026-06-29 14:28 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/0407102.shtml)
+- 2026-06-29 14:39 - [直击宜宾地震：监控剧烈摇晃](https://www.share.kurohicncr.top/Article/details/10484465110.shtml)
+- 2026-06-29 14:22 - [李连杰回应网传不管前妻俩女儿](http://www.blog.kurohicncr.top/Article/details/3440765.shtml)
+- 2026-06-29 14:28 - [河南考699分女生已接到清华大学电话](https://www.blog.minike.top/Article/details/517207282548.shtml)
+- 2026-06-29 14:17 - [Mrbeast的30天不吃饭挑战](http://www.share.kurohicncr.top/Article/details/4340892018.shtml)
+- 2026-06-29 14:12 - [F1奥地利正赛战报](http://www.blog.minike.top/Article/details/524263.shtml)
+- 2026-06-29 14:33 - [媒体：高考后消费应量力而行适度有度](http://www.share.kurohicncr.top/Article/details/96893.shtml)
+- 2026-06-29 14:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/688732521.shtml)

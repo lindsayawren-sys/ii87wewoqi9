@@ -1,57 +1,52 @@
-# 地毯地板强制性国家标准发布
+# 上海银行董事长顾建忠：努力实现超越利润之上的更高价值追求
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-中新网4月29日电 据市场监管总局网站消息，近日，市场监管总局发布了新修订的《室内装饰装修材料 地毯、地毯衬垫和聚氯乙烯地板中有害物质限量》(GB 18586—2026)强制性国家标准，该标准由工业和信息化部归口。新版标准在旧版标准的基础上，从严规定了地毯和聚氯乙烯地板两类室内装饰装修铺地材料的有害物质限量要求，为规范并提高相关产品质量安全水平、推动行业绿色转型升级提供了有力支
+4月27日金融一线消息，上海银行召开2025年度暨2026年第一季度业绩说明会，党委书记、董事长顾建忠在会上表示，2025年是上海银行三十而立的周年，也是国家“十五五”规划编制之年，在这个承上启下的重要阶段，上海银行完成了新一轮战略规划的编制，并以此为主线，同步推进了组织架构调整、战略性人力资源重塑、资源配置和绩效考核优化、企业文化焕新等各方面改革工作，着力提升银行的竞争力、敏
 
 ## 正文
 
-中新网4月29日电 据市场监管总局网站消息，近日，市场监管总局发布了新修订的《室内装饰装修材料 地毯、地毯衬垫和聚氯乙烯地板中有害物质限量》(GB 18586—2026)强制性国家标准，该标准由工业和信息化部归口。
+4月27日金融一线消息，上海银行召开2025年度暨2026年第一季度业绩说明会，党委书记、董事长顾建忠在会上表示，2025年是上海银行三十而立的周年，也是国家“十五五”规划编制之年，在这个承上启下的重要阶段，上海银行完成了新一轮战略规划的编制，并以此为主线，同步推进了组织架构调整、战略性人力资源重塑、资源配置和绩效考核优化、企业文化焕新等各方面改革工作，着力提升银行的竞争力、敏捷力、源动力和向心力。
 
-新版标准在旧版标准的基础上，从严规定了地毯和聚氯乙烯地板两类室内装饰装修铺地材料的有害物质限量要求，为规范并提高相关产品质量安全水平、推动行业绿色转型升级提供了有力支撑。
+顾建忠指出，提升核心竞争力是改革的重要方向，为此上海银行确立了六大战略布局体系。
 
-筑牢呼吸健康防线。
+该行于2025年6月正式启动“十五五”战略规划工作，通过“走出去，请进来”的方式，拜访了十多家规模、发展阶段等具有可比性的银行，学习其先进经验和好的做法；同时邀请四家咨询机构及分析师共同交流研讨下一步发展态势和预判，分析总结并征求意见，明确未来发展路径，最终于2026年初完成规划编制。
 
-针对地毯及地毯衬垫产品，新标准严格设定甲醛、总挥发性有机化合物(TVOC)等指标限值。
+在战略定位上，顾建忠强调，上海银行秉持金融工作的政治性、人民性，确立了“金融让生活更美好”的使命。
 
-其中，TVOC释放限量统一收紧至不高于500 μg/(m²·h)，取消环保型、普通型产品分级划分，确立健康唯一核心准入准则。
+他特别提到，“努力实现超越利润之上的更高价值追求”是自己常说的一句话，上海银行确立了成为有情怀、有价值、人才辈出、受人尊敬的金融伙伴的愿景，并将长期主义、专业主义、利他主义融入企业文化。
 
-该调整简化消费选购判定规则，所有符合国家标准的产品均需满足健康安全要求，切实保障消费者室内呼吸环境安全。
-
-从严管控化学添加剂。
-
-针对家庭、公共场所广泛使用的聚氯乙烯地板，新标准全面扩容有害物质管控清单，除了严控氯乙烯单体，还对铅、镉、汞等重金属，邻苯二甲酸酯类增塑剂、甲醛、甲酰胺等高危有害物质明确限量要求。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 14:34 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-29 14:06 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 14:29 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-29 14:34 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-29 14:26 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-29 14:27 - [张真源解读相思锁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 14:25 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 14:25 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-29 14:28 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-29 14:29 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-29 14:07 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 14:40 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-29 14:35 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 14:18 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 14:14 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 14:21 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-29 14:33 - [薛之谦演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-29 14:13 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-29 14:16 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 14:39 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 14:39 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:35 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/228033.shtml)
-- 2026-06-29 14:28 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/451358576.shtml)
-- 2026-06-29 14:08 - [在委侨团负责人：家乡的帮助很及时](http://www.blog.minike.top/Article/details/8055468582.shtml)
-- 2026-06-29 14:13 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/81378.shtml)
-- 2026-06-29 14:34 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/030389116661.shtml)
-- 2026-06-29 14:35 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.minike.top/Article/details/861708076104.shtml)
-- 2026-06-29 14:31 - [医药股集体爆发](https://www.share.minike.top/Article/details/95316.shtml)
-- 2026-06-29 14:23 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/3986021.shtml)
-- 2026-06-29 14:13 - [高市早苗口齿不清被质疑醉酒](https://www.blog.kurohicncr.top/Article/details/4352623.shtml)
-- 2026-06-29 14:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/58282.shtml)
-- 2026-06-29 14:34 - [美的空调 卡bug](http://www.blog.kurohicncr.top/Article/details/7063589518.shtml)
-- 2026-06-29 14:09 - [A股](https://www.blog.minike.top/Article/details/12947.shtml)
-- 2026-06-29 14:20 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/574553819023.shtml)
-- 2026-06-29 14:08 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.share.minike.top/Article/details/3913353586.shtml)
-- 2026-06-29 14:12 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.minike.top/Article/details/87613213.shtml)
+- 2026-06-29 14:22 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/8267894.shtml)
+- 2026-06-29 14:35 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/510510725208.shtml)
+- 2026-06-29 14:38 - [韩国队如何把94%出线概率打到0%](https://www.blog.kurohicncr.top/Article/details/975997.shtml)
+- 2026-06-29 14:24 - [如果你一直单身，你准备怎么养老？](http://www.share.kurohicncr.top/Article/details/642224.shtml)
+- 2026-06-29 14:33 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/245559208503.shtml)
+- 2026-06-29 14:12 - [媒体人：警惕日本再次成战争加害国](https://www.share.kurohicncr.top/Article/details/71441331539.shtml)
+- 2026-06-29 14:19 - [天道](https://www.share.minike.top/Article/details/3717120027.shtml)
+- 2026-06-29 14:36 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/33306070.shtml)
+- 2026-06-29 14:12 - [中餐厅南北饮食差异](https://www.share.kurohicncr.top/Article/details/695155.shtml)
+- 2026-06-29 14:16 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/1964138953.shtml)
+- 2026-06-29 14:27 - [李连杰回应网传不管前妻俩女儿](http://www.blog.kurohicncr.top/Article/details/32909926.shtml)
+- 2026-06-29 14:33 - [普京称考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/073606066308.shtml)
+- 2026-06-29 14:24 - [高考志愿今起开始填报](http://www.blog.kurohicncr.top/Article/details/75386117739.shtml)
+- 2026-06-29 14:16 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/364470.shtml)
+- 2026-06-29 14:31 - [撒旦的腋窝是什么比喻](https://www.blog.kurohicncr.top/Article/details/25569229720.shtml)

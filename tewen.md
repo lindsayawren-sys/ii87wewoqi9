@@ -1,56 +1,55 @@
-# 14家A股银行年度分红率下滑，部分银行“急刹车”，分红大户缘何变保守？资本补充压力太大
+# 美军在东太平洋打击所谓“贩毒船” 致3人死亡
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-财联社4月29日讯（记者 邹俊涛） 4月29日，Wind数据显示，截止今日上午，已披露2025年度分红预案的40家A股银行中有14家年度分红率下滑，也即三成A股银行2025年度分红率未能稳住。 其中，部分银行分红出现急踩“刹车”情况。郑州银行2025年度中止分红，兰州银行2025年度分红率降至24.43%，上市以来首度降至30%以下，较上年一次性下调了6.04个百分点。年度分红
+中新网4月27日电 当地时间26日，美军南方司令部在社交媒体上发表声明称，美军当天在东太平洋对一艘“贩毒船”发动打击，打死船上3人。 声明表示，根据美军南方司令部司令弗朗西斯·多诺万的命令，美军“南方之矛”联合特遣部队26日对一艘由“被认定的恐怖组织”运营的船只实施打击，打死船上3名男性“毒品恐怖分子”。美军无人受伤。 据此前报道，自2025年9月初以来，美军在加勒比海和东太平
 
 ## 正文
 
-财联社4月29日讯（记者 邹俊涛） 4月29日，Wind数据显示，截止今日上午，已披露2025年度分红预案的40家A股银行中有14家年度分红率下滑，也即三成A股银行2025年度分红率未能稳住。
+中新网4月27日电 当地时间26日，美军南方司令部在社交媒体上发表声明称，美军当天在东太平洋对一艘“贩毒船”发动打击，打死船上3人。
 
-其中，部分银行分红出现急踩“刹车”情况。
+声明表示，根据美军南方司令部司令弗朗西斯·多诺万的命令，美军“南方之矛”联合特遣部队26日对一艘由“被认定的恐怖组织”运营的船只实施打击，打死船上3名男性“毒品恐怖分子”。
 
-郑州银行2025年度中止分红，兰州银行2025年度分红率降至24.43%，上市以来首度降至30%以下，较上年一次性下调了6.04个百分点。
+美军无人受伤。
 
-年度分红率下滑多数为区域性银行。
+据此前报道，自2025年9月初以来，美军在加勒比海和东太平洋对美方指称的所谓“贩毒船”进行多次打击，并于当年11月13日宣布发起“南方之矛”军事行动。
 
-博通咨询首席分析师王蓬博接受财联社记者采访表示，当前区域性银行分红趋于保守，受制于资本补充能力有限、不良贷款压力较大、盈利结构单一且高度依赖息差收入等情况，更倾向于优先保资本。
-
-Wind数据显示，截止2025年末，前述40家A股银行中有26家核心一级资本充足率出现下滑，2024年同期则仅为8家。
-
-部分银行分红急踩“刹车” 行业分红规模增速放缓 据了解，2025年度A股银行分红继续保持大行稳定、中小行“分化”趋势。
-
-但部分银行分红出现急踩“刹车”。
+然而，美国政府并未公布任何可以证明其攻击目标涉毒的证据。
 
 ## 相关推荐
 
-- 2026-06-29 14:30 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-29 14:19 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-29 14:26 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-29 14:21 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-29 14:10 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-29 14:24 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-29 14:27 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-29 14:16 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 14:15 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 14:30 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-29 14:38 - [河南考699分女生已接到清华大学电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 14:33 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-29 14:31 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-29 14:40 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 14:32 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 14:17 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-29 14:41 - [TOP 无畏契约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-29 14:28 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-29 14:18 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 14:13 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 14:28 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-29 14:15 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-29 14:21 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-29 14:24 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-29 14:22 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:11 - [日媒称韩国史诗级上上签终成噩梦](https://www.share.minike.top/Article/details/25094.shtml)
-- 2026-06-29 14:27 - [欧洲多国激辩“装不装空调”](https://www.share.kurohicncr.top/Article/details/3816746039.shtml)
-- 2026-06-29 14:31 - [这开放世界游戏，竟然允许玩家屠城？](https://www.share.kurohicncr.top/Article/details/50336244.shtml)
-- 2026-06-29 14:08 - [古力娜扎美出新高度](https://www.blog.minike.top/Article/details/7057972304.shtml)
-- 2026-06-29 14:19 - [韩国队启程回国众将回避镜头](https://www.share.minike.top/Article/details/937838.shtml)
-- 2026-06-29 14:35 - [这开放世界游戏，竟然允许玩家屠城？](http://www.share.minike.top/Article/details/265544959777.shtml)
-- 2026-06-29 14:25 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.blog.minike.top/Article/details/98335.shtml)
-- 2026-06-29 14:18 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.minike.top/Article/details/004323316499.shtml)
-- 2026-06-29 14:26 - [沙丘](https://www.blog.kurohicncr.top/Article/details/84596744.shtml)
-- 2026-06-29 14:24 - [F1奥地利正赛战报](https://www.blog.kurohicncr.top/Article/details/23244974.shtml)
-- 2026-06-29 14:27 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/7263964.shtml)
-- 2026-06-29 14:15 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.blog.minike.top/Article/details/272842464334.shtml)
-- 2026-06-29 14:26 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/5372616.shtml)
-- 2026-06-29 14:31 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/117909751697.shtml)
-- 2026-06-29 14:32 - [中国邮政上海分公司总经理李柏平被查](http://www.blog.kurohicncr.top/Article/details/31304861665.shtml)
+- 2026-06-29 14:36 - [记者暗访贵州和云南多个养老机构](https://www.blog.minike.top/Article/details/21982906689.shtml)
+- 2026-06-29 14:31 - [布里奇斯被交易至太阳](http://www.blog.kurohicncr.top/Article/details/173928.shtml)
+- 2026-06-29 14:34 - [前国足主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/07604533037.shtml)
+- 2026-06-29 14:16 - [教育部发布预警 事关高招录取](https://www.blog.kurohicncr.top/Article/details/217194750.shtml)
+- 2026-06-29 14:29 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.share.kurohicncr.top/Article/details/96070058894.shtml)
+- 2026-06-29 14:30 - [恋与深空失控领地](https://www.share.minike.top/Article/details/8711808311.shtml)
+- 2026-06-29 14:30 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/31086261198.shtml)
+- 2026-06-29 14:34 - [大疆7月15日起涨价？公司回应](https://www.share.minike.top/Article/details/663343937.shtml)
+- 2026-06-29 14:16 - [急先锋](http://www.blog.kurohicncr.top/Article/details/533300737.shtml)
+- 2026-06-29 14:13 - [每代父母都困在自己的时代里](http://www.share.kurohicncr.top/Article/details/12229855149.shtml)
+- 2026-06-29 14:19 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/32581.shtml)
+- 2026-06-29 14:41 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/530720149.shtml)
+- 2026-06-29 14:15 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/92161814.shtml)
+- 2026-06-29 14:38 - [美国近12万名科技员工被解雇](https://www.share.minike.top/Article/details/093143274.shtml)
+- 2026-06-29 14:14 - [严浩翔FIY断层第一](http://www.blog.kurohicncr.top/Article/details/00026071.shtml)

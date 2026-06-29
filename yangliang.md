@@ -1,53 +1,51 @@
-# 太极股份（002368）：中标农业农村部信息中心采购项目，中标金额为208.00万元
+# 泰国演员徐志贤现身昆明泰国节 分享多次到访云南见闻
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-同壁财经讯，企查查数据显示，根据《农业农村部信息中心2026年农业农村部政务服务（部行政审批）综合办公等系统运维及优化完善项目中标公告》，太极计算机股份有限公司于2026年4月30日公告中标农业农村部信息中心采购项目，中标金额为208.00万元。相关上市公司：太极股份(002368.SZ)同壁财经小贴士：太极股份（002368.SZ）2024年营业收入为78.36亿元，营业收入
+发布时间：2026年04月27日 20:05 来源：中国新闻网 4月26日，泰国知名演员、歌手徐志贤(BIE Thassapak)现身2026昆明·泰国节“泰国之夜”活动，与数百名中外粉丝互动，进行中泰文化交流。 徐志贤曾因参演《萌妻食神》《外星女生柴小七》等影视剧被不少中国观众熟知。活动现场，徐志贤带来劲歌热舞，分享多次到访云南的见闻，畅谈昆明的城市氛围和观众的热情，并与粉丝
 
 ## 正文
 
-同壁财经讯，企查查数据显示，根据《农业农村部信息中心2026年农业农村部政务服务（部行政审批）综合办公等系统运维及优化完善项目中标公告》，太极计算机股份有限公司于2026年4月30日公告中标农业农村部信息中心采购项目，中标金额为208.00万元。
+发布时间：2026年04月27日 20:05 来源：中国新闻网 4月26日，泰国知名演员、歌手徐志贤(BIE Thassapak)现身2026昆明·泰国节“泰国之夜”活动，与数百名中外粉丝互动，进行中泰文化交流。
 
-相关上市公司：太极股份(002368.SZ)同壁财经小贴士：太极股份（002368.SZ）2024年营业收入为78.36亿元，营业收入增长率为-14.77%，归属母公司净利润为1.91亿元，归属母公司净利润增长率为-49.08%，净资产收益率为3.66%。
+徐志贤曾因参演《萌妻食神》《外星女生柴小七》等影视剧被不少中国观众熟知。
 
-2025年上半年公司营业收入为37.82亿元，营业收入增长率为44.69%，归属母公司净利润为0.10亿元，归属母公司净利润增长率为106.07%。
+活动现场，徐志贤带来劲歌热舞，分享多次到访云南的见闻，畅谈昆明的城市氛围和观众的热情，并与粉丝合影。
 
-目前公司属于信息技术行业，主要产品类型为行业专用软件、专业咨询服务，2024年报主营构成为行业解决方案与服务:43.87%;自主软件产品:24.65%;云服务:14.97%;数字基础设施:14.68%;其他收入-产品:1.84%。
+(王临梓） 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-29 14:15 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 14:11 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-29 14:26 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 14:24 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 14:15 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 14:15 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 14:29 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-29 14:30 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-29 14:12 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-29 14:27 - [比亚迪为什么卖得越多市值越低](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 14:27 - [A股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 14:19 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-29 14:07 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-29 14:26 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 14:16 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 14:37 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 14:30 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 14:27 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 14:26 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-29 14:16 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-29 14:16 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 14:41 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-29 14:19 - [周深双眼皮贴又掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-29 14:14 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-29 14:22 - [薛之谦演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 14:19 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 14:31 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 14:18 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:19 - [森保一：日本队要亲手改写历史](https://www.blog.minike.top/Article/details/732085363698.shtml)
-- 2026-06-29 14:35 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/413993.shtml)
-- 2026-06-29 14:13 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/079439615060.shtml)
-- 2026-06-29 14:34 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/6542140918.shtml)
-- 2026-06-29 14:18 - [在自己家不穿衣服犯法吗](https://www.blog.kurohicncr.top/Article/details/189547112504.shtml)
-- 2026-06-29 14:18 - [王楚钦 表演球擦网](https://www.blog.minike.top/Article/details/7295346767.shtml)
-- 2026-06-29 14:32 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/237456284.shtml)
-- 2026-06-29 14:07 - [吴磊爱上回收了](http://www.share.minike.top/Article/details/374822.shtml)
-- 2026-06-29 14:23 - [俄军新型无人机战力如何](http://www.blog.kurohicncr.top/Article/details/47897670751.shtml)
-- 2026-06-29 14:08 - [TI2026参赛战队出炉](http://www.share.kurohicncr.top/Article/details/271979800459.shtml)
-- 2026-06-29 14:27 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/9047246.shtml)
-- 2026-06-29 14:22 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/072113273.shtml)
-- 2026-06-29 14:31 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/05984.shtml)
-- 2026-06-29 14:32 - [T1 vs KC MSI](https://www.share.kurohicncr.top/Article/details/010215019845.shtml)
-- 2026-06-29 14:06 - [比亚迪为什么卖得越多市值越低](http://www.share.minike.top/Article/details/01385410.shtml)
+- 2026-06-29 14:21 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/91769688709.shtml)
+- 2026-06-29 14:21 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/2344889025.shtml)
+- 2026-06-29 14:36 - [复盘曾沛慈浪姐夺冠之路](https://www.blog.minike.top/Article/details/382206913.shtml)
+- 2026-06-29 14:38 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.kurohicncr.top/Article/details/55994416.shtml)
+- 2026-06-29 14:19 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/93375006.shtml)
+- 2026-06-29 14:21 - [TLAW vs DCG MSI](https://www.share.minike.top/Article/details/98876108063.shtml)
+- 2026-06-29 14:38 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/29932.shtml)
+- 2026-06-29 14:30 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/003414188.shtml)
+- 2026-06-29 14:29 - [唐国强打卡贵阳孔学堂](http://www.share.minike.top/Article/details/331468277.shtml)
+- 2026-06-29 14:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/404584.shtml)
+- 2026-06-29 14:36 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/214778808.shtml)
+- 2026-06-29 14:37 - [T1对战KC](https://www.share.minike.top/Article/details/96270.shtml)
+- 2026-06-29 14:13 - [Canna纳尔8-0对位单杀Doran](http://www.share.minike.top/Article/details/609330782746.shtml)
+- 2026-06-29 14:24 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/7412228.shtml)
+- 2026-06-29 14:40 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/48585.shtml)

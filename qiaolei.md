@@ -1,52 +1,61 @@
-# 全国人大常委会举行宪法宣誓仪式
+# 山东发布2025年知识产权白皮书 全面展示知识产权强省建设成效
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-新华社北京4月30日电 十四届全国人大常委会30日上午在北京人民大会堂举行宪法宣誓仪式。全国人大常委会副委员长李鸿忠主持并监誓。 刚刚闭幕的十四届全国人大常委会第二十二次会议决定任命张成中为应急管理部部长。根据宪法和全国人大常委会关于实行宪法宣誓制度的决定，依法进行宪法宣誓。 全国人大机关、应急管理部有关负责同志参加了宣誓活动。
+中新网济南4月25日电(孙倩)记者25日从山东省市场监督管理局了解到，山东省质量强省建设协调推进领导小组办公室发布《2025年山东省知识产权发展与保护状况》白皮书，这是该省连续24年发布知识产权发展状况白皮书。白皮书全面展示2025年山东在知识产权制度体系、保护效能、转化运用、服务能力、对外合作等方面取得的显著成效。截至2025年底，山东省专利授权量20.61万件，其中发明专利
 
 ## 正文
 
-新华社北京4月30日电 十四届全国人大常委会30日上午在北京人民大会堂举行宪法宣誓仪式。
+中新网济南4月25日电(孙倩)记者25日从山东省市场监督管理局了解到，山东省质量强省建设协调推进领导小组办公室发布《2025年山东省知识产权发展与保护状况》白皮书，这是该省连续24年发布知识产权发展状况白皮书。
 
-全国人大常委会副委员长李鸿忠主持并监誓。
+白皮书全面展示2025年山东在知识产权制度体系、保护效能、转化运用、服务能力、对外合作等方面取得的显著成效。
 
-刚刚闭幕的十四届全国人大常委会第二十二次会议决定任命张成中为应急管理部部长。
+截至2025年底，山东省专利授权量20.61万件，其中发明专利授权量5.75万件；发明专利拥有量32.76万件，同比增长14.4%；高价值发明专利拥有量12.38万件，每万人口高价值发明专利拥有量达到12.28件，超额实现“十四五”规划确定的人均10件的目标。
 
-根据宪法和全国人大常委会关于实行宪法宣誓制度的决定，依法进行宪法宣誓。
+2025年末有效注册商标311.6万件，著作权作品年登记64.8万件，农业、林业植物新品种授权量与累计量持续增长，知识产权创造基础持续夯实。
 
-全国人大机关、应急管理部有关负责同志参加了宣誓活动。
+知识产权保护格局全面构建。
+
+在司法保护方面，山东省新收、审结知识产权案件量稳中有升，具备一审知识产权民事、行政案件管辖权的基层法院数量增至43个。
+
+知识产权转化运用效益也日益凸显，山东发布《数据知识产权确权指南》地方标准，在中国率先完成数据知识产权登记审查央地对接，累计发放数据知识产权登记证书663张。
+
+专利导航助力国产GPU、芯片设计制造等关键核心领域技术突破，地理标志与商标品牌指导站赋能乡村振兴提档升级。
 
 ## 相关推荐
 
-- 2026-06-29 14:06 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 14:20 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 14:21 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 14:27 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-29 14:22 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-29 14:10 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 14:19 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 14:32 - [Canna纳尔8-0对位单杀Doran](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 14:13 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-29 14:29 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 14:31 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-29 14:26 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-29 14:33 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 14:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-29 14:16 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-29 14:26 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-29 14:20 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 14:32 - [唐艺昕女儿接唐艺昕回家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-29 14:20 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-29 14:23 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 14:20 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 14:15 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-29 14:26 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 14:19 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-29 14:33 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 14:17 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 14:32 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:30 - [发反科学内容为何会有200万粉丝](http://www.share.kurohicncr.top/Article/details/03360677258.shtml)
-- 2026-06-29 14:35 - [爸爸当家](https://www.blog.minike.top/Article/details/5373043.shtml)
-- 2026-06-29 14:06 - [利率一再降 “存款搬家”搬去哪](https://www.blog.minike.top/Article/details/870588498.shtml)
-- 2026-06-29 14:28 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/40819.shtml)
-- 2026-06-29 14:12 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.blog.kurohicncr.top/Article/details/919191775452.shtml)
-- 2026-06-29 14:20 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.minike.top/Article/details/5356476517.shtml)
-- 2026-06-29 14:26 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/2994683664.shtml)
-- 2026-06-29 14:07 - [杨紫 你幸福的话我会比你先流泪](https://www.blog.minike.top/Article/details/9854194580.shtml)
-- 2026-06-29 14:17 - [辽宁葫芦岛一居民楼突发爆炸](http://www.share.minike.top/Article/details/6228206.shtml)
-- 2026-06-29 14:15 - [中国战机大片上新](https://www.share.minike.top/Article/details/9528530516.shtml)
-- 2026-06-29 14:20 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/454308036.shtml)
-- 2026-06-29 14:14 - [比亚迪市值为何蒸发8000亿](https://www.share.minike.top/Article/details/070643964481.shtml)
-- 2026-06-29 14:25 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.kurohicncr.top/Article/details/82011395.shtml)
-- 2026-06-29 14:10 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/20520352.shtml)
-- 2026-06-29 14:35 - [起风了](http://www.share.minike.top/Article/details/371553071500.shtml)
+- 2026-06-29 14:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/368006944.shtml)
+- 2026-06-29 14:16 - [韩国记者：解码“合肥模式”](https://www.blog.minike.top/Article/details/66390.shtml)
+- 2026-06-29 14:18 - [AG 钟意](http://www.blog.kurohicncr.top/Article/details/9978608.shtml)
+- 2026-06-29 14:25 - [世界杯欧美八大豪强悉数出线](http://www.share.kurohicncr.top/Article/details/0564144.shtml)
+- 2026-06-29 14:22 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/4850962581.shtml)
+- 2026-06-29 14:27 - [曾沛慈夺冠后人气](https://www.blog.minike.top/Article/details/3255514.shtml)
+- 2026-06-29 14:36 - [韩国队启程回国 全员羞愧低头](http://www.blog.minike.top/Article/details/313567696.shtml)
+- 2026-06-29 14:33 - [人民日报评“AI脸看腻了”](http://www.blog.minike.top/Article/details/372292491290.shtml)
+- 2026-06-29 14:30 - [大疆7月15日起涨价？公司回应](http://www.blog.kurohicncr.top/Article/details/69134961.shtml)
+- 2026-06-29 14:23 - [海军舰艇编队将赴香港](https://www.share.minike.top/Article/details/710340084044.shtml)
+- 2026-06-29 14:31 - [四川宜宾地震](http://www.blog.kurohicncr.top/Article/details/9537499627.shtml)
+- 2026-06-29 14:19 - [中国避暑神器在欧洲卖爆了](https://www.share.minike.top/Article/details/49251318847.shtml)
+- 2026-06-29 14:15 - [T1 vs KC MSI](http://www.blog.minike.top/Article/details/995221842627.shtml)
+- 2026-06-29 14:24 - [人民日报评“AI脸看腻了”](https://www.share.minike.top/Article/details/27273141456.shtml)
+- 2026-06-29 14:36 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/30078635.shtml)

@@ -1,59 +1,52 @@
-# Alphabet营收同比增长22% 净利润同比增长81% 云业务加速增长
+# 原青海省地方金融监督管理局一级巡视员吴春庆被开除党籍
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 Alphabet今日公布了截至2026年3月31日的第一季度财务业绩。 合并营收为1099亿美元，同比增长22%（按固定汇率计算增长19%），为连续第11个季度实现双位数增长。 谷歌服务营收为896亿美元，同比增长16%，其中： 谷歌搜索及其他营收同比增长19% 谷歌订阅、平台和设备营收同比增长19% YouTube广告营收同比增长11%
+中央纪委国家监委网站讯 据青海省纪委监委消息：经中共青海省委批准，青海省纪委监委对原省地方金融监督管理局一级巡视员吴春庆严重违纪违法问题进行了立案审查调查。 经查，吴春庆丧失理想信念，背弃初心使命，搞投机钻营，结交政治骗子，“买官”被骗；无视中央八项规定精神，违规收受礼品礼金，无偿接受管理和服务对象提供的“管家式”服务；把公权力当作谋取私利的工具，利用职务便利或职权地位形成的便
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 Alphabet今日公布了截至2026年3月31日的第一季度财务业绩。
+中央纪委国家监委网站讯 据青海省纪委监委消息：经中共青海省委批准，青海省纪委监委对原省地方金融监督管理局一级巡视员吴春庆严重违纪违法问题进行了立案审查调查。
 
-合并营收为1099亿美元，同比增长22%（按固定汇率计算增长19%），为连续第11个季度实现双位数增长。
+经查，吴春庆丧失理想信念，背弃初心使命，搞投机钻营，结交政治骗子，“买官”被骗；无视中央八项规定精神，违规收受礼品礼金，无偿接受管理和服务对象提供的“管家式”服务；把公权力当作谋取私利的工具，利用职务便利或职权地位形成的便利条件为他人在工程项目承揽等方面谋利，并非法收受巨额财物。
 
-谷歌服务营收为896亿美元，同比增长16%，其中： 谷歌搜索及其他营收同比增长19% 谷歌订阅、平台和设备营收同比增长19% YouTube广告营收同比增长11% 谷歌云营收为200亿美元，同比增长63%，主要受Google Cloud Platform（GCP）在企业AI解决方案、企业AI基础设施以及核心GCP服务方面的增长推动。
+吴春庆严重违反党的政治纪律和廉洁纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
 
-合并营业利润为397亿美元，同比增长30%；营业利润率扩大2个百分点至36.1%。
+依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经中共青海省纪委常委会会议研究并报中共青海省委批准，决定给予吴春庆开除党籍处分；按规定取消其享受的待遇；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
 
-其他损益净额为377亿美元，主要来自非流通股本证券的未实现收益。
-
-净利润为626亿美元，同比增长81%。
-
-稀释每股收益为5.11美元，同比增长82%。
-
-公司宣布将股息提高5%，季度现金股息为每股0.22美元。
+（青海省纪委监委）责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-29 14:21 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-29 14:17 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-29 14:11 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-29 14:34 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 14:13 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 14:13 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 14:32 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-29 14:24 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 14:09 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-29 14:34 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 14:17 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-29 14:10 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-29 14:13 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-29 14:13 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 14:40 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 14:14 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-29 14:25 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 14:40 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 14:26 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 14:27 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 14:19 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 14:40 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-29 14:15 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 14:13 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 14:34 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:08 - [TOP 无畏契约](http://www.blog.minike.top/Article/details/0052104031.shtml)
-- 2026-06-29 14:10 - [行程万里不忘初心](https://www.blog.kurohicncr.top/Article/details/60467584101.shtml)
-- 2026-06-29 14:16 - [日本主帅：目标是冠军](https://www.blog.minike.top/Article/details/1429607796.shtml)
-- 2026-06-29 14:15 - [每代父母都困在自己的时代里](http://www.blog.kurohicncr.top/Article/details/0676572.shtml)
-- 2026-06-29 14:15 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/087872085011.shtml)
-- 2026-06-29 14:23 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/461254.shtml)
-- 2026-06-29 14:06 - [布里奇斯被交易至太阳](https://www.blog.minike.top/Article/details/780448925.shtml)
-- 2026-06-29 14:18 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/881009.shtml)
-- 2026-06-29 14:32 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/93600802.shtml)
-- 2026-06-29 14:08 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/913781217.shtml)
-- 2026-06-29 14:20 - [世界杯看到肖战了](https://www.blog.minike.top/Article/details/45051.shtml)
-- 2026-06-29 14:12 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/7849790.shtml)
-- 2026-06-29 14:08 - [起风了](http://www.blog.minike.top/Article/details/8162965642.shtml)
-- 2026-06-29 14:21 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.kurohicncr.top/Article/details/6894172479.shtml)
-- 2026-06-29 14:32 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/57482140795.shtml)
+- 2026-06-29 14:12 - [双高胎](https://www.share.kurohicncr.top/Article/details/342351.shtml)
+- 2026-06-29 14:26 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/678582.shtml)
+- 2026-06-29 14:27 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/657175844.shtml)
+- 2026-06-29 14:29 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.kurohicncr.top/Article/details/731803.shtml)
+- 2026-06-29 14:16 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/75631480.shtml)
+- 2026-06-29 14:25 - [恋与深空底线不该被娱乐化](http://www.share.kurohicncr.top/Article/details/899237363.shtml)
+- 2026-06-29 14:31 - [王楚钦首轮赢下国乒德比](https://www.blog.kurohicncr.top/Article/details/23028771.shtml)
+- 2026-06-29 14:19 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/8249191431.shtml)
+- 2026-06-29 14:19 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/550216171.shtml)
+- 2026-06-29 14:21 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/049993.shtml)
+- 2026-06-29 14:15 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.minike.top/Article/details/42813.shtml)
+- 2026-06-29 14:36 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/944787485984.shtml)
+- 2026-06-29 14:14 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/9879161.shtml)
+- 2026-06-29 14:29 - [如何“亲菌子”又“远小人儿”](http://www.blog.kurohicncr.top/Article/details/86271200.shtml)
+- 2026-06-29 14:34 - [美的空调 卡bug](https://www.share.minike.top/Article/details/71311.shtml)

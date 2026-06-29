@@ -1,59 +1,57 @@
-# 【学习小组】“甘于做铺垫性的工作，甘于抓未成之事”｜总书记深“话”政绩观③
+# 可孚医疗于4月27日至30日招股 拟全球发售2700万股H股
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-《之江新语》中有一篇题为《要甘于做铺垫之事》的文章。习近平在开篇写道：“领导干部要以正确的政绩观为指导，抓好各项工作。‘功成不必在我’，要甘于做铺垫性的工作，甘于抓未成之事。” 甘做铺垫工作、甘抓未成之事，意味着既要干好当下的工作，又要锚定未来、默默奉献，做好长期有利于发展之事。 在厦门工作期间，习近平曾领导制定《1985年—2000年厦门经济社会发展战略》。这是全国经济特区中
+可孚医疗（01187）于2026年4月27日-4月30日招股，拟全球发售2700万股H股，香港公开发售占10%，国际发售占90%。每股发售价将不超过39.33港元，每手100股，预期H股将于2026年5月6日（星期三）开始在联交所买卖。 该公司是中国的家用医疗器械企业。根据弗若斯特沙利文的资料，按2024年的国内收入计，该公司在中国所有家用医疗器械企业中排名第二，市场份额达2.
 
 ## 正文
 
-《之江新语》中有一篇题为《要甘于做铺垫之事》的文章。
+可孚医疗（01187）于2026年4月27日-4月30日招股，拟全球发售2700万股H股，香港公开发售占10%，国际发售占90%。
 
-习近平在开篇写道：“领导干部要以正确的政绩观为指导，抓好各项工作。
+每股发售价将不超过39.33港元，每手100股，预期H股将于2026年5月6日（星期三）开始在联交所买卖。
 
-‘功成不必在我’，要甘于做铺垫性的工作，甘于抓未成之事。
+该公司是中国的家用医疗器械企业。
 
-” 甘做铺垫工作、甘抓未成之事，意味着既要干好当下的工作，又要锚定未来、默默奉献，做好长期有利于发展之事。
+根据弗若斯特沙利文的资料，按2024年的国内收入计，该公司在中国所有家用医疗器械企业中排名第二，市场份额达2.1%。
 
-在厦门工作期间，习近平曾领导制定《1985年—2000年厦门经济社会发展战略》。
+全球家用医疗器械行业竞争激烈，尤其是家用康复辅具、家用呼吸支持类产品及家用医疗护理耗材行业。
 
-这是全国经济特区中最早编制的一部经济社会发展规划，也是中国地方政府最早编制、纵跨15年的经济社会发展战略规划。
+根据弗若斯特沙利文的资料，该公司经营所在的家用康复辅具行业及家用医疗护理类产品行业竞争激烈，中国这两个行业均有超过300名市场参与者。
 
-在不少人眼里，研究发展战略费时耗力、见效慢，是份吃力不讨好的事。
+截至2023年、2024年及2025年12月31日止年度，该公司的收入分别为人民币28.537亿元、人民币29.829亿元及人民币33.875亿元。
 
-习近平却说，作为领导者，既要立足于当前，更要着眼于长远，甘做铺垫工作，甘抓未成之事。
+假设发售价为每股H股39.33港元（即招股章程所述的最高发售价），该公司估计将获得的全球发售所得款项净额约为10.072亿港元。
 
 ## 相关推荐
 
-- 2026-06-29 14:29 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-29 14:30 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-29 14:34 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 14:17 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-29 14:28 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 14:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-29 14:09 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 14:17 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 14:10 - [6月我国降水为何偏多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 14:18 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 14:24 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 14:30 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-29 14:35 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 14:19 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 14:39 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-29 14:26 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-29 14:38 - [央视起底直播诈骗连环套](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 14:33 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-29 14:15 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 14:37 - [恋与深空底线不该被娱乐化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 14:24 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 14:12 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-29 14:15 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 14:13 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:17 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.minike.top/Article/details/608581456.shtml)
-- 2026-06-29 14:28 - [巴基斯坦军方打死29名武装分子](https://www.share.kurohicncr.top/Article/details/63770150.shtml)
-- 2026-06-29 14:19 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/3244818526.shtml)
-- 2026-06-29 14:30 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.kurohicncr.top/Article/details/4925878.shtml)
-- 2026-06-29 14:30 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.minike.top/Article/details/36871716251.shtml)
-- 2026-06-29 14:06 - [恋与深空失控领地](http://www.blog.minike.top/Article/details/70835984394.shtml)
-- 2026-06-29 14:13 - [金牌调解](http://www.share.minike.top/Article/details/65116761053.shtml)
-- 2026-06-29 14:07 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/2590829.shtml)
-- 2026-06-29 14:33 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.minike.top/Article/details/2158727.shtml)
-- 2026-06-29 14:06 - [以前不让妆女二可以艳压女主](http://www.share.minike.top/Article/details/985741413005.shtml)
-- 2026-06-29 14:13 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.kurohicncr.top/Article/details/191367.shtml)
-- 2026-06-29 14:09 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.minike.top/Article/details/1036436.shtml)
-- 2026-06-29 14:10 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/2140539632.shtml)
-- 2026-06-29 14:24 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/61569376634.shtml)
-- 2026-06-29 14:34 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/551768480272.shtml)
+- 2026-06-29 14:16 - [东部机场集团新增釜山航线](http://www.share.kurohicncr.top/Article/details/978433520025.shtml)
+- 2026-06-29 14:27 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/225388554.shtml)
+- 2026-06-29 14:37 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/325111907.shtml)
+- 2026-06-29 14:38 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/939389.shtml)
+- 2026-06-29 14:33 - [广州一高校通报网传禁止小米汽车入校](http://www.share.kurohicncr.top/Article/details/40534505.shtml)
+- 2026-06-29 14:35 - [金牌调解](http://www.share.kurohicncr.top/Article/details/621470.shtml)
+- 2026-06-29 14:37 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/630702900.shtml)
+- 2026-06-29 14:15 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.share.kurohicncr.top/Article/details/247194225.shtml)
+- 2026-06-29 14:27 - [市民骑哈啰单车79分钟付30元](https://www.blog.kurohicncr.top/Article/details/46714052.shtml)
+- 2026-06-29 14:16 - [欧委会总部只给高层开空调](https://www.share.minike.top/Article/details/953519.shtml)
+- 2026-06-29 14:36 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/07542.shtml)
+- 2026-06-29 14:27 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/060084.shtml)
+- 2026-06-29 14:13 - [事关个税 明日截止请抓紧办理](http://www.blog.kurohicncr.top/Article/details/40009.shtml)
+- 2026-06-29 14:15 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/67474735.shtml)
+- 2026-06-29 14:39 - [医药股集体爆发](http://www.blog.kurohicncr.top/Article/details/843003516301.shtml)

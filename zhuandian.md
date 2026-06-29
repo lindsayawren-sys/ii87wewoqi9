@@ -1,57 +1,59 @@
-# “五一”文旅市场升温 广东推出百余项文旅惠民举措
+# 企业国有资产法迎来首次修订 明确建立国有股权董事制度
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-中新网广州4月30日电 (记者 程景伟)“五一”假期将至，文旅市场持续升温。广东将倾力打造一场全民共享的文旅消费盛宴，全省21个地市同步推出百余项文旅惠民举措，覆盖景区游览、住宿餐饮、文化体验等多元消费场景。 “五一”假期，广州正佳极地海洋世界全新开放25米水母长廊展区，营造深海漫游体验；同步推出《水下花仙子》《水之翼》等新剧目，升级后的非遗水下秀《敦煌飞天》融合东方美学，经典
+中新社北京4月27日电 (记者 黄钰钦 李京泽)企业国有资产法修订草案27日提请十四届全国人大常委会首次审议。草案明确建立国有股权董事制度，保障国有股权董事依法独立行使职权，规定国有股权董事应当将履职情况和结果及时报告委派或者提名机构。现行企业国有资产法自2009年5月1日施行，规定了中国企业国有资产管理监督的基础制度。草案修改71条、新增32条，共九章109条，对现行法作了全
 
 ## 正文
 
-中新网广州4月30日电 (记者 程景伟)“五一”假期将至，文旅市场持续升温。
+中新社北京4月27日电 (记者 黄钰钦 李京泽)企业国有资产法修订草案27日提请十四届全国人大常委会首次审议。
 
-广东将倾力打造一场全民共享的文旅消费盛宴，全省21个地市同步推出百余项文旅惠民举措，覆盖景区游览、住宿餐饮、文化体验等多元消费场景。
+草案明确建立国有股权董事制度，保障国有股权董事依法独立行使职权，规定国有股权董事应当将履职情况和结果及时报告委派或者提名机构。
 
-“五一”假期，广州正佳极地海洋世界全新开放25米水母长廊展区，营造深海漫游体验；同步推出《水下花仙子》《水之翼》等新剧目，升级后的非遗水下秀《敦煌飞天》融合东方美学，经典美人鱼表演全天轮番上演。
+现行企业国有资产法自2009年5月1日施行，规定了中国企业国有资产管理监督的基础制度。
 
-场馆内设有白鲸科普秀、海洋明星运动会等科普互动活动，游客可近距离观赏南极企鹅、海狮、海象等动物。
+草案修改71条、新增32条，共九章109条，对现行法作了全面修改。
 
-广州正佳雨林生态植物园将上新推出《森林萌宠运动会》活动，儿童剧则与树懒、山羊等动物结合起来，打造参与式演出。
+草案以专节规定国家出资企业的公司治理，在衔接公司法共性规定的基础上，明确鼓励国有独资公司、国有资本控股公司调整优化股权结构，形成股权结构多元、股东行为规范、内部约束有效、运行高效灵活的经营机制，对股东会、董事会履职作出专门规定。
 
-新增的“小羊肖恩”瓦莱黑鼻羊展区，也将为游客带来软萌治愈的互动体验。
+针对国有企业采购领域腐败多发问题，草案规定，国有独资公司、国有资本控股公司采购货物、服务和工程应当坚持公平竞争、合规透明、降本增效、绿色发展原则，建立健全采购和供应链管理制度，加强对采购活动的全流程管理，保障采购活动规范有序，提升采购质量和效益。
 
-而随着气温渐升，正佳企鹅冰雪世界和正佳冰河湾真冰滑冰场打造冰雪奇境，企鹅萌动巡游、驯鹿春日派对等活动让游客感受冰天雪地的独特乐趣。
+针对国家预算内投资项目形成的增量国有资本不及时划转登记、缺乏有效跟踪监督等问题，草案明确，国家出资企业承接经营性政府投资项目，应当加强经营风险防控，按照国家有关规定，及时确认增加的权益，进行产权变动登记。
 
-这个“五一”假期，清远森波拉度假区打造“森林探险节”，以三大冒险项目引领假日体验升级——全新沉浸式探险“杉谷飞跃”惊艳开放、童话冒险舞台剧《奥兹国奇幻之旅》精彩上演、冰川水谷3米高海啸冲浪焕新回归，邀请游客共赴一场集冒险、童趣与清凉于一体的森林奇幻之旅。
+为加强对违规经营投资的管理，草案赋予履行出资人职责的机构开展违规经营投资责任追究的权利，明确履行出资人职责的机构在核查违规经营投资有关线索、事实、损失情况时，可以商请监察机关、公安机关、金融监管部门等有关单位予以协助。
 
 ## 相关推荐
 
-- 2026-06-29 14:30 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-29 14:16 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 14:14 - [吴海燕兰西雅漫步复兴岛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-29 14:11 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 14:22 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 14:21 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-29 14:26 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-29 14:13 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 14:31 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 14:31 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 14:16 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 14:34 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 14:23 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-29 14:27 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 14:33 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 14:19 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 14:38 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-29 14:32 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 14:15 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-29 14:21 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 14:19 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 14:23 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 14:19 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 14:22 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:34 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/98119.shtml)
-- 2026-06-29 14:21 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/827204853743.shtml)
-- 2026-06-29 14:15 - [事关个税 明日截止请抓紧办理](http://www.share.minike.top/Article/details/6749444.shtml)
-- 2026-06-29 14:21 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/195935917105.shtml)
-- 2026-06-29 14:19 - [我国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/42781606656.shtml)
-- 2026-06-29 14:16 - [事关个税 明日截止请抓紧办理](http://www.blog.kurohicncr.top/Article/details/57564744.shtml)
-- 2026-06-29 14:19 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/851233.shtml)
-- 2026-06-29 14:12 - [美的空调 卡bug](https://www.blog.minike.top/Article/details/5047131915.shtml)
-- 2026-06-29 14:07 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/47522.shtml)
-- 2026-06-29 14:24 - [逆天祖国人](http://www.share.minike.top/Article/details/90174.shtml)
-- 2026-06-29 14:27 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/708622.shtml)
-- 2026-06-29 14:29 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/3838222793.shtml)
-- 2026-06-29 14:32 - [北极荒岛生存挑战](https://www.blog.kurohicncr.top/Article/details/022862307.shtml)
-- 2026-06-29 14:19 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/00558.shtml)
-- 2026-06-29 14:22 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/35864.shtml)
+- 2026-06-29 14:18 - [多家银行收紧个人贵金属业务](https://www.share.minike.top/Article/details/161595674.shtml)
+- 2026-06-29 14:21 - [哈兰德这该死的胜负欲](http://www.blog.kurohicncr.top/Article/details/299126262.shtml)
+- 2026-06-29 14:13 - [啊啊啊](http://www.blog.minike.top/Article/details/3093098999.shtml)
+- 2026-06-29 14:39 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/40208111884.shtml)
+- 2026-06-29 14:24 - [江苏财政厅原一级调研员谢功成被查](https://www.share.minike.top/Article/details/992927800.shtml)
+- 2026-06-29 14:14 - [韩剧编剧又升级了](http://www.blog.kurohicncr.top/Article/details/08870627.shtml)
+- 2026-06-29 14:35 - [退休化学教授帮医药研发人员制毒](https://www.blog.kurohicncr.top/Article/details/316830.shtml)
+- 2026-06-29 14:18 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.kurohicncr.top/Article/details/89191410827.shtml)
+- 2026-06-29 14:29 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/35274360.shtml)
+- 2026-06-29 14:19 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.blog.minike.top/Article/details/4913095262.shtml)
+- 2026-06-29 14:18 - [和阿根廷球员家属一起看球](https://www.share.minike.top/Article/details/946490748583.shtml)
+- 2026-06-29 14:34 - [民进党为什么拼命抹黑统战](http://www.share.minike.top/Article/details/8763513.shtml)
+- 2026-06-29 14:13 - [韩国拟将部分刑责年龄降至13岁](http://www.share.minike.top/Article/details/598373.shtml)
+- 2026-06-29 14:26 - [杨紫 你幸福的话我会比你先流泪](http://www.share.kurohicncr.top/Article/details/460358304.shtml)
+- 2026-06-29 14:40 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/78567545.shtml)

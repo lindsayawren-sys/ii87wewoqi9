@@ -1,56 +1,59 @@
-# 资本开支大幅上调！云巨头押注AI！光模块ETF哪里找？关注含“光”量超50%的创业板人工智能ETF（159363）
+# （友城故事）美国檀香山市市长：愿进一步拓宽与成都的合作维度
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-美东时间4月29日盘后，谷歌母公司Alphabet发布2026年Q1财报：营收1099亿美元，净利大增81%，云业务首破200亿美元。AI战略进入业绩兑现期，算力、订单、订阅、广告全线爆发。为应对AI算力需求，Alphabet将2026年资本开支上调至1800-1900亿美元，并预计2027年继续大幅增长，全力巩固AI全栈与算力壁垒。 AI算力资本开支驱动，光模块龙头有望维持超
+中新社成都4月27日电 (记者 岳依桐)今年正值四川省成都市和美国夏威夷州檀香山市建立友好城市关系15周年，檀香山市市长瑞克·布拉吉亚迪于27日至28日率团访蓉，代表团成员包括熊猫快餐创始人程正昌等知名美国企业家。 27日上午，代表团一行首先参加了“成都遇见檀香山”商务对话会。对话会上，瑞克·布拉吉亚迪对檀香山与成都结好十五年来的交流合作成果给予积极评价，认为友城关系为两地深化
 
 ## 正文
 
-美东时间4月29日盘后，谷歌母公司Alphabet发布2026年Q1财报：营收1099亿美元，净利大增81%，云业务首破200亿美元。
+中新社成都4月27日电 (记者 岳依桐)今年正值四川省成都市和美国夏威夷州檀香山市建立友好城市关系15周年，檀香山市市长瑞克·布拉吉亚迪于27日至28日率团访蓉，代表团成员包括熊猫快餐创始人程正昌等知名美国企业家。
 
-AI战略进入业绩兑现期，算力、订单、订阅、广告全线爆发。
+27日上午，代表团一行首先参加了“成都遇见檀香山”商务对话会。
 
-为应对AI算力需求，Alphabet将2026年资本开支上调至1800-1900亿美元，并预计2027年继续大幅增长，全力巩固AI全栈与算力壁垒。
+对话会上，瑞克·布拉吉亚迪对檀香山与成都结好十五年来的交流合作成果给予积极评价，认为友城关系为两地深化各领域合作奠定了坚实基础。
 
-AI算力资本开支驱动，光模块龙头有望维持超级景气！
+他表示，此行希望能进一步推进双方经贸合作，成都在文创、数字经济、先进制造等领域的优势突出，与檀香山在旅游消费、特色农业、跨境服务等领域的资源高度互补，双方在多领域存在广阔合作空间。
 
-国盛证券表示，光通信行业处于AI算力驱动的超级景气周期，在全球化交付能力、技术平台化布局、供应链前瞻锁定、资金实力上建立优势的头部企业，有望持续受益于AI带来的长期增长红利，强者恒强的格局仍将延续。
+瑞克·布拉吉亚迪尤其看好两市在农业、餐饮、文旅、科技等领域的合作潜力。
 
-一键布局光模块CPO龙头机会，建议重点关注含“光”量超50%的创业板人工智能ETF华宝（159363）及场外联接（A类023407、C类023408），标的指数最新光模块含量约50%，“易中天”一网打尽，约三成仓位布局AI应用，不止是算力核心，也是AI应用代表。
+他举例道，夏威夷每年接待数百万人次国际游客，本地常住人口约150万，消费市场潜力可观，成都的优质农产品、特色餐饮品牌可借助檀香山的旅游平台走向国际。
 
-值得注意的是，截至2026.4.28，创业板人工智能ETF华宝（159363）最新规模突破70亿元创新高，规模居全市场双创AI赛道首位！
+瑞克·布拉吉亚迪在接受记者采访时表示，檀香山市希望以与成都结好十五周年为契机，进一步拓宽双方合作维度，搭建更便捷的经贸对接平台。
 
-最近6个月日均成交约8亿元，交投居全市场AI赛道首位。
+他认为，两地经济合作需从深度对话沟通入手，充分了解彼此产业需求与发展优势，并逐步推进务实合作落地见效。
 
 ## 相关推荐
 
-- 2026-06-29 14:24 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 14:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-29 14:35 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 14:20 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-29 14:26 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 14:35 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 14:23 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 14:23 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-29 14:26 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 14:06 - [给阿嬷的情书海外口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-29 14:14 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 14:38 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-29 14:25 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 14:27 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-29 14:25 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-29 14:23 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-29 14:32 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 14:37 - [TOP 无畏契约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 14:38 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 14:17 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-29 14:37 - [南非老帅布罗斯的梦没能做完](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 14:23 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 14:29 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:34 - [韩国极端网友对主教练发出死亡威胁](https://www.share.kurohicncr.top/Article/details/60721.shtml)
-- 2026-06-29 14:26 - [巴西德国15次闯进世界杯淘汰赛](http://www.share.minike.top/Article/details/09121170150.shtml)
-- 2026-06-29 14:17 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/772033272264.shtml)
-- 2026-06-29 14:21 - [法拉利被4个孩子当滑梯玩](https://www.blog.kurohicncr.top/Article/details/8396736081.shtml)
-- 2026-06-29 14:29 - [医药股集体爆发](https://www.share.kurohicncr.top/Article/details/4017236731.shtml)
-- 2026-06-29 14:26 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/65922750.shtml)
-- 2026-06-29 14:17 - [中国邮政上海分公司总经理李柏平被查](http://www.blog.kurohicncr.top/Article/details/554502428656.shtml)
-- 2026-06-29 14:23 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/3307342127.shtml)
-- 2026-06-29 14:14 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.minike.top/Article/details/29159457.shtml)
-- 2026-06-29 14:18 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/047462679.shtml)
-- 2026-06-29 14:35 - [手游300亿数据或被军事化运用](https://www.share.minike.top/Article/details/100534.shtml)
-- 2026-06-29 14:33 - [金刚川](http://www.blog.minike.top/Article/details/51326720313.shtml)
-- 2026-06-29 14:24 - [李连杰回应网传不管前妻俩女儿](https://www.blog.kurohicncr.top/Article/details/1938347899.shtml)
-- 2026-06-29 14:20 - [AG 钟意](https://www.share.kurohicncr.top/Article/details/99838102109.shtml)
-- 2026-06-29 14:20 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/53600936.shtml)
+- 2026-06-29 14:26 - [宜宾发生5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/614384431690.shtml)
+- 2026-06-29 14:20 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/384915.shtml)
+- 2026-06-29 14:14 - [多只A股发布股价异动公告](http://www.blog.kurohicncr.top/Article/details/579002.shtml)
+- 2026-06-29 14:22 - [刘仲华院士愿当贺永辉导师](http://www.blog.minike.top/Article/details/21641954.shtml)
+- 2026-06-29 14:16 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/27072588.shtml)
+- 2026-06-29 14:17 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/326708204.shtml)
+- 2026-06-29 14:27 - [起风了](http://www.blog.kurohicncr.top/Article/details/5978827.shtml)
+- 2026-06-29 14:23 - [日本主帅：对战胜巴西很有信心](http://www.blog.kurohicncr.top/Article/details/898679524795.shtml)
+- 2026-06-29 14:20 - [记者暗访贵州和云南多个养老机构](http://www.blog.kurohicncr.top/Article/details/7929047004.shtml)
+- 2026-06-29 14:12 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/9840720.shtml)
+- 2026-06-29 14:13 - [请回答王牌2019](https://www.share.minike.top/Article/details/66454.shtml)
+- 2026-06-29 14:19 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/80071341213.shtml)
+- 2026-06-29 14:28 - [世界杯看到肖战了](https://www.share.minike.top/Article/details/691649504.shtml)
+- 2026-06-29 14:39 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.kurohicncr.top/Article/details/7154597.shtml)
+- 2026-06-29 14:37 - [爱情有烟火你是知道我爱看什么的](http://www.blog.minike.top/Article/details/201780125532.shtml)

@@ -1,44 +1,56 @@
-# 江苏宁沪高速公路拟续聘毕马威华振会计师事务所
+# 河南省破产管理人协会正式揭牌
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-江苏宁沪高速公路（00177）发布公告，江苏宁沪高速公路股份有限公司（以下简称“本公司”）于2026年4月29 日召开本公司第十一届董事会第二十一次会议审议通过了《关于聘任会计师事务所的议案》，拟继续聘任毕马威华振会计师事务所（特殊普通合伙）为本公司 2026 年度财务报告及内部控制等事项审计师。责任编辑：卢昱君
+中新网郑州4月25日电 (记者 李贵刚)法治是最好的营商环境，破产制度是市场经济有序运行的重要保障。4月25日，河南省破产管理人协会成立大会暨揭牌仪式在郑州举行，这标志着该省破产法治建设迈上新台阶。 当日，河南全省法院系统、律所、资产管理公司及破产管理人领域的代表齐聚一堂，共同见证河南破产管理行业这一重要时刻。 河南省高级人民法院副院长李志增在致辞中表示，河南省破产管理人协会的
 
 ## 正文
 
-江苏宁沪高速公路（00177）发布公告，江苏宁沪高速公路股份有限公司（以下简称“本公司”）于2026年4月29 日召开本公司第十一届董事会第二十一次会议审议通过了《关于聘任会计师事务所的议案》，拟继续聘任毕马威华振会计师事务所（特殊普通合伙）为本公司 2026 年度财务报告及内部控制等事项审计师。
+中新网郑州4月25日电 (记者 李贵刚)法治是最好的营商环境，破产制度是市场经济有序运行的重要保障。
 
-责任编辑：卢昱君
+4月25日，河南省破产管理人协会成立大会暨揭牌仪式在郑州举行，这标志着该省破产法治建设迈上新台阶。
+
+当日，河南全省法院系统、律所、资产管理公司及破产管理人领域的代表齐聚一堂，共同见证河南破产管理行业这一重要时刻。
+
+河南省高级人民法院副院长李志增在致辞中表示，河南省破产管理人协会的成立标志着河南省破产管理人行业正式进入自律管理、职业化发展的新阶段。
+
+2023年以来，全省法院新收破产案件4437件、审结4425件，超过此前10年总和。
+
+破产管理人作为破产程序的核心推动者，其专业素养直接关系审判质效和营商环境优化。
+
+他希望协会坚持政治引领、健全行业规范、深化协同联动，推动破产法治意识普及，为全省经济高质量发展提供有力保障。
+
+河南资产管理有限公司总经理崔凯在致辞中表示，破产手段的核心是通过法治化、市场化方式化解风险、盘活资产。
 
 ## 相关推荐
 
-- 2026-06-29 14:27 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 14:13 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-29 14:15 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-29 14:16 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 14:27 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 14:07 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-29 14:13 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-29 14:18 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-29 14:17 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-29 14:32 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 14:33 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-29 14:40 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 14:19 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 14:24 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-29 14:32 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-29 14:14 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-29 14:15 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 14:20 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-29 14:31 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 14:21 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:35 - [王楚钦欢迎晚宴上打台球](https://www.blog.kurohicncr.top/Article/details/9015972.shtml)
-- 2026-06-29 14:30 - [每代父母都困在自己的时代里](https://www.blog.kurohicncr.top/Article/details/0380848.shtml)
-- 2026-06-29 14:06 - [曝歌手第七期帮唱阵容](http://www.blog.kurohicncr.top/Article/details/615911.shtml)
-- 2026-06-29 14:12 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/0570142771.shtml)
-- 2026-06-29 14:31 - [105年初心滚烫](http://www.share.minike.top/Article/details/39413514648.shtml)
-- 2026-06-29 14:12 - [爸爸当家](https://www.blog.minike.top/Article/details/734302873.shtml)
-- 2026-06-29 14:11 - [光与夜之恋](http://www.share.kurohicncr.top/Article/details/30676529.shtml)
-- 2026-06-29 14:09 - [沉睡花园](http://www.blog.minike.top/Article/details/534969825602.shtml)
-- 2026-06-29 14:19 - [中国战机大片上新](https://www.share.kurohicncr.top/Article/details/2179064237.shtml)
-- 2026-06-29 14:15 - [在自己家不穿衣服犯法吗](http://www.blog.minike.top/Article/details/947956.shtml)
-- 2026-06-29 14:08 - [宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/6426315.shtml)
-- 2026-06-29 14:07 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/4326417.shtml)
-- 2026-06-29 14:17 - [北极荒岛生存挑战](https://www.blog.kurohicncr.top/Article/details/267298.shtml)
-- 2026-06-29 14:26 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/7803766.shtml)
-- 2026-06-29 14:15 - [王楚钦首轮赢下国乒德比](https://www.share.minike.top/Article/details/096121736980.shtml)
+- 2026-06-29 14:36 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/9324300321.shtml)
+- 2026-06-29 14:37 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/26372.shtml)
+- 2026-06-29 14:18 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/0261180.shtml)
+- 2026-06-29 14:17 - [强⁶](http://www.share.minike.top/Article/details/790836796.shtml)
+- 2026-06-29 14:38 - [周锡玮：做堂堂正正的中国人](https://www.blog.minike.top/Article/details/301238371.shtml)
+- 2026-06-29 14:14 - [手游300亿数据或被军事化运用](http://www.blog.minike.top/Article/details/47993272.shtml)
+- 2026-06-29 14:15 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/61752.shtml)
+- 2026-06-29 14:36 - [AG 钟意](https://www.share.kurohicncr.top/Article/details/689604934934.shtml)
+- 2026-06-29 14:12 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/272173121.shtml)
+- 2026-06-29 14:25 - [灿如繁星定档](https://www.share.kurohicncr.top/Article/details/21313285.shtml)
+- 2026-06-29 14:30 - [papi酱回应毕业4年零收入](https://www.blog.kurohicncr.top/Article/details/245872.shtml)
+- 2026-06-29 14:26 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/70586556335.shtml)
+- 2026-06-29 14:20 - [金刚川](http://www.blog.kurohicncr.top/Article/details/926655.shtml)
+- 2026-06-29 14:36 - [退休化学教授帮医药研发人员制毒](https://www.share.kurohicncr.top/Article/details/1448290.shtml)
+- 2026-06-29 14:18 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/5599832950.shtml)

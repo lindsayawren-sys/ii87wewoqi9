@@ -1,54 +1,56 @@
-# 印度卢比跌至纪录新低 油价高企推高进口成本
+# 莫言呼吁关爱“星星的孩子”：行慈善者必受慈善之惠
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-印度卢比兑美元汇率跌至纪录新低，油价高企加重印度进口负担。 美元兑卢比一度涨0.3%至95.1263，突破3月底创下的前高点95.1250。 在印度央行此前采取措施遏制过度投机后，卢比汇率曾一度升至92.66。 印度10年期国债收益率涨7个基点至7.06%，为逾三周高位。责任编辑：王永生
+中新网郑州4月27日电 (王佳宁)“行慈善者必受慈善之惠。”诺贝尔文学奖得主、中国著名作家莫言27日现身河南郑州“与星同行——中国著名作家手稿展首展”现场，呼吁社会各界关注并帮助“星星的孩子”(又称孤独症儿童)。 此次展览于25日在郑州开幕，莫言、冯骥才、梁晓声、刘慈欣等86位当代中国作家联合捐出200余件珍贵创作手稿，旨在为孤独症儿童筹集善款。 该展览由莫言与“两块砖公益基金
 
 ## 正文
 
-印度卢比兑美元汇率跌至纪录新低，油价高企加重印度进口负担。
+中新网郑州4月27日电 (王佳宁)“行慈善者必受慈善之惠。
 
-美元兑卢比一度涨0.3%至95.1263，突破3月底创下的前高点95.1250。
+”诺贝尔文学奖得主、中国著名作家莫言27日现身河南郑州“与星同行——中国著名作家手稿展首展”现场，呼吁社会各界关注并帮助“星星的孩子”(又称孤独症儿童)。
 
-在印度央行此前采取措施遏制过度投机后，卢比汇率曾一度升至92.66。
+此次展览于25日在郑州开幕，莫言、冯骥才、梁晓声、刘慈欣等86位当代中国作家联合捐出200余件珍贵创作手稿，旨在为孤独症儿童筹集善款。
 
-印度10年期国债收益率涨7个基点至7.06%，为逾三周高位。
+该展览由莫言与“两块砖公益基金”共同发起，“两块砖公益基金”策展，人民文学出版社、河南日报社协办。
 
-责任编辑：王永生
+展品涵盖莫言的小说手稿、冯骥才与梁晓声的散文手迹，以及苏童《妻妾成群》、刘慈欣《三体》等创作原稿摘录。
+
+该展览完成全国巡展后，所有手稿将进行拍卖，所得款项将全部用于孤独症照护者技能培训等公益项目。
+
+谈及为何选择拍卖作家创作手稿这一方式发起慈善，莫言表示，这些手稿表现了中国作家对社会弱势群体的关注、对慈善事业的热忱。
+
+近年来，莫言积极投身于各类慈善活动。
 
 ## 相关推荐
 
-- 2026-06-29 14:12 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-29 14:18 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-29 14:10 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-29 14:20 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-29 14:11 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-29 14:16 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-29 14:24 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 14:21 - [实习期把公司领导开除了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-29 14:11 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 14:25 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-29 14:31 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-29 14:08 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-29 14:06 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-29 14:18 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-29 14:38 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 14:23 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 14:41 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-29 14:12 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 14:40 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-29 14:37 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 14:32 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 14:15 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 14:29 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 14:12 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:34 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/041176961.shtml)
-- 2026-06-29 14:14 - [农发行总行专家委员会委员杜晓力被查](http://www.blog.kurohicncr.top/Article/details/5874978.shtml)
-- 2026-06-29 14:16 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/57023197.shtml)
-- 2026-06-29 14:22 - [千与千寻](https://www.share.minike.top/Article/details/63587.shtml)
-- 2026-06-29 14:29 - [韩体育部长回应李在明痛批](https://www.share.kurohicncr.top/Article/details/4228429751.shtml)
-- 2026-06-29 14:24 - [南非老帅布罗斯的梦没能做完](https://www.share.minike.top/Article/details/113141.shtml)
-- 2026-06-29 14:35 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/866195066116.shtml)
-- 2026-06-29 14:11 - [东部机场集团新增釜山航线](https://www.blog.kurohicncr.top/Article/details/0445047381.shtml)
-- 2026-06-29 14:18 - [起风了](http://www.share.kurohicncr.top/Article/details/7468664754.shtml)
-- 2026-06-29 14:22 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.share.minike.top/Article/details/22254906.shtml)
-- 2026-06-29 14:13 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/77713088.shtml)
-- 2026-06-29 14:34 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/8302600.shtml)
-- 2026-06-29 14:32 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/9118119737.shtml)
-- 2026-06-29 14:12 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/3577060483.shtml)
-- 2026-06-29 14:22 - [20年前的周杰伦](http://www.share.kurohicncr.top/Article/details/52989.shtml)
+- 2026-06-29 14:39 - [复盘曾沛慈浪姐夺冠之路](https://www.blog.minike.top/Article/details/38020848975.shtml)
+- 2026-06-29 14:13 - [前国足主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/48302535.shtml)
+- 2026-06-29 14:25 - [媒体评恋与深空争议](https://www.blog.minike.top/Article/details/76214952.shtml)
+- 2026-06-29 14:24 - [84岁英国教授成中国网红](https://www.blog.minike.top/Article/details/2144651039.shtml)
+- 2026-06-29 14:29 - [多只A股发布股价异动公告](http://www.blog.kurohicncr.top/Article/details/90977430.shtml)
+- 2026-06-29 14:39 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/8419520.shtml)
+- 2026-06-29 14:27 - [曾沛慈夺冠后人气](https://www.blog.kurohicncr.top/Article/details/91816283.shtml)
+- 2026-06-29 14:38 - [美国近12万名科技员工被解雇](https://www.share.kurohicncr.top/Article/details/755892080.shtml)
+- 2026-06-29 14:31 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/22472324280.shtml)
+- 2026-06-29 14:39 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.minike.top/Article/details/769992371306.shtml)
+- 2026-06-29 14:20 - [森保一：日本队要亲手改写历史](https://www.share.kurohicncr.top/Article/details/2758982.shtml)
+- 2026-06-29 14:41 - [森保一：日本队要亲手改写历史](http://www.blog.minike.top/Article/details/8935363.shtml)
+- 2026-06-29 14:26 - [去了一趟潮汕。](http://www.share.kurohicncr.top/Article/details/99261281.shtml)
+- 2026-06-29 14:24 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/4374597.shtml)
+- 2026-06-29 14:38 - [王楚钦 表演球擦网](http://www.share.kurohicncr.top/Article/details/0628475124.shtml)

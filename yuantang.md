@@ -1,56 +1,53 @@
-# 法国监管机构：75%电商平台送检产品违反欧盟标准
+# 海通国际：金沙中国维持“优于大市”评级 目标价21.6港元
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-法国竞争、消费和反欺诈总局周三公布的一项大规模抽检结果显示，从主要电商平台购买的送检产品中，高达75%不符合欧盟标准，其中近半数被判定为“危险”。这一发现正值欧盟收紧对跨境电商平台监管之际。 违规比例触目惊心，46%产品存在安全隐患 法国DGCCRF在2025年从七家境外电商平台购买了600多件产品进行检测，检测数量是往年的三倍。结果显示，仅25%产品完全符合欧盟标准。在所有检
+海通国际发布研报称，金沙中国（01928）发布今年首季业绩，其中实现净收益21.14亿美元，同比提升23.7%；经调整物业EBITDA达6.33亿美元，同比提升18.3%，对应经调整物业EBITDA利润率为29.9%。整体来看，首季公司净收益及经调整物业EBITDA均符合市场预期。目标价21.6港元；维持“优于大市”评级。 该行预计，公司2026至2028年的净收益分别为81.
 
 ## 正文
 
-法国竞争、消费和反欺诈总局周三公布的一项大规模抽检结果显示，从主要电商平台购买的送检产品中，高达75%不符合欧盟标准，其中近半数被判定为“危险”。
+海通国际发布研报称，金沙中国（01928）发布今年首季业绩，其中实现净收益21.14亿美元，同比提升23.7%；经调整物业EBITDA达6.33亿美元，同比提升18.3%，对应经调整物业EBITDA利润率为29.9%。
 
-这一发现正值欧盟收紧对跨境电商平台监管之际。
+整体来看，首季公司净收益及经调整物业EBITDA均符合市场预期。
 
-违规比例触目惊心，46%产品存在安全隐患 法国DGCCRF在2025年从七家境外电商平台购买了600多件产品进行检测，检测数量是往年的三倍。
+目标价21.6港元；维持“优于大市”评级。
 
-结果显示，仅25%产品完全符合欧盟标准。
+该行预计，公司2026至2028年的净收益分别为81.45亿、85.58亿、90.79亿美元，经调整物业EBITDA分别为24.41亿、25.64亿、27.33亿美元，经调整物业EBITDA利润率分别为30%、30%、30.1%。
 
-在所有检测产品中，46%不仅违规，而且存在电击、火灾、窒息或含有过量有害化学物质等安全隐患。
-
-检测结果呈现系统性违规特征。
-
-所有接受检测的电器产品均不合格，其中近四分之三存在触电或火灾风险。
-
-儿童产品、珠宝和服装普遍存在窒息风险及化学品超标问题。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:22 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 14:15 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-29 14:29 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 14:11 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-29 14:08 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-29 14:13 - [市民骑哈啰单车79分钟付30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 14:33 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-29 14:10 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 14:22 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-29 14:29 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 14:28 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 14:37 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 14:17 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 14:32 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 14:39 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-29 14:35 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 14:41 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 14:36 - [俄称继续推进 乌称打击俄军设施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-29 14:32 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-29 14:41 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 14:21 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-29 14:36 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 14:34 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:09 - [刘仲华院士愿当贺永辉导师](https://www.blog.kurohicncr.top/Article/details/883827120.shtml)
-- 2026-06-29 14:08 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/95121.shtml)
-- 2026-06-29 14:29 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/080986535.shtml)
-- 2026-06-29 14:11 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/03602.shtml)
-- 2026-06-29 14:18 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.minike.top/Article/details/33609.shtml)
-- 2026-06-29 14:21 - [辽宁葫芦岛一居民楼突发爆炸](http://www.share.minike.top/Article/details/375206779.shtml)
-- 2026-06-29 14:30 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/735689.shtml)
-- 2026-06-29 14:31 - [当我回母校教书](https://www.share.kurohicncr.top/Article/details/2406702745.shtml)
-- 2026-06-29 14:23 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/714305.shtml)
-- 2026-06-29 14:18 - [84岁英国教授成中国网红](http://www.blog.kurohicncr.top/Article/details/919884.shtml)
-- 2026-06-29 14:26 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.share.kurohicncr.top/Article/details/5343058.shtml)
-- 2026-06-29 14:21 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/82302825884.shtml)
-- 2026-06-29 14:13 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/68749.shtml)
-- 2026-06-29 14:16 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/9931646.shtml)
-- 2026-06-29 14:29 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/063111.shtml)
+- 2026-06-29 14:38 - [中国邮政上海分公司总经理李柏平被查](https://www.blog.minike.top/Article/details/74742515539.shtml)
+- 2026-06-29 14:35 - [中餐厅南北饮食差异](https://www.blog.kurohicncr.top/Article/details/669029577478.shtml)
+- 2026-06-29 14:25 - [迈巴赫提车第二天发现大灯起雾](https://www.share.kurohicncr.top/Article/details/303231595.shtml)
+- 2026-06-29 14:25 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/085328705499.shtml)
+- 2026-06-29 14:42 - [异世界一点都不好玩！](http://www.share.minike.top/Article/details/205500.shtml)
+- 2026-06-29 14:12 - [给阿嬷的情书海外口碑](http://www.blog.kurohicncr.top/Article/details/905039.shtml)
+- 2026-06-29 14:20 - [教育部发布高考志愿填报预警](https://www.blog.kurohicncr.top/Article/details/642833275143.shtml)
+- 2026-06-29 14:36 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/96732840206.shtml)
+- 2026-06-29 14:41 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/70516866.shtml)
+- 2026-06-29 14:18 - [Mrbeast的30天不吃饭挑战](http://www.share.kurohicncr.top/Article/details/86431.shtml)
+- 2026-06-29 14:18 - [辽宁葫芦岛一居民楼突发爆炸](https://www.blog.kurohicncr.top/Article/details/081344867924.shtml)
+- 2026-06-29 14:32 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/710964380.shtml)
+- 2026-06-29 14:34 - [白宇摘下白玉兰送给杨幂](http://www.share.minike.top/Article/details/186730344478.shtml)
+- 2026-06-29 14:22 - [美国近12万名科技员工被解雇](https://www.blog.minike.top/Article/details/031416.shtml)
+- 2026-06-29 14:36 - [李连杰否认不管前妻两女儿](https://www.share.minike.top/Article/details/82790000.shtml)

@@ -1,58 +1,60 @@
-# 增收不增利隐忧浮现，华宝新能交出一份“失衡”的年报
+# 山东省政协聚焦“推动服务业扩能提质 建设现代服务经济新高地”协商议政
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-作为全球消费级光储领域的龙头企业，华宝新能近日披露了2025年年报及2026年一季度报告。从报表数据来看，公司营收持续增长，全年延续了两位数的扩张势头，一季度增速进一步加快。然而，盈利端的表现却令人担忧——2025年全年归母净利润同比大幅缩水，扣除非经常性损益后更是由盈转亏。尽管2026年一季度毛利率有所回暖，但归母净利润仍然在营收高增的背景下出现明显下滑。 表面上看，华宝新能
+中新网济南4月27日电 (吕妍)政协第十三届山东省委员会常务委员会第十五次会议4月27日在山东济南召开，围绕“推动服务业扩能提质 建设现代服务经济新高地”协商议政。 山东省政协主席葛慧君主持第一次全体会议。山东省委常委、常务副省长张海波围绕议政主题作专题报告。会议举行了大会发言。 “宠物作为‘它经济’角色，激发了服务消费市场的潜力。”山东省政协常委、青岛市政协副主席崔作在会上发
 
 ## 正文
 
-作为全球消费级光储领域的龙头企业，华宝新能近日披露了2025年年报及2026年一季度报告。
+中新网济南4月27日电 (吕妍)政协第十三届山东省委员会常务委员会第十五次会议4月27日在山东济南召开，围绕“推动服务业扩能提质 建设现代服务经济新高地”协商议政。
 
-从报表数据来看，公司营收持续增长，全年延续了两位数的扩张势头，一季度增速进一步加快。
+山东省政协主席葛慧君主持第一次全体会议。
 
-然而，盈利端的表现却令人担忧——2025年全年归母净利润同比大幅缩水，扣除非经常性损益后更是由盈转亏。
+山东省委常委、常务副省长张海波围绕议政主题作专题报告。
 
-尽管2026年一季度毛利率有所回暖，但归母净利润仍然在营收高增的背景下出现明显下滑。
+会议举行了大会发言。
 
-表面上看，华宝新能交出了一份“营收增长”的成绩单；但细察盈利端的持续收窄，可以发现这家“便携储能第一股”正面临着多重隐忧。
+“宠物作为‘它经济’角色，激发了服务消费市场的潜力。
 
-增收不增利，规模扩张难掩盈利失血。
+”山东省政协常委、青岛市政协副主席崔作在会上发言表示，宠物服务与OPC“轻资产、高灵活、强创意、AI赋能”的特性高度契合。
 
-营收稳步增长、却未能转化为相应的利润，这一根本性的失衡构成了财报中最核心的悖论。
+他建议依托山东省首批OPC园区布局，将宠物服务业纳入生活性服务业重点培育，培育一批宠物领域AI超级个体，为宠物OPC提供专用空间，支持开发宠物服务专用智能体；建立“链主企业+OPC+供应链”对接机制，鼓励规模企业向OPC开放原料采购、代工、品牌授权、分销渠道。
 
-有分析指出，公司利润被“吃掉”的原因主要集中在两大方向：一是销售费用持续高企，品牌推广、渠道建设与旺季促销的投入力度较大，导致销售费用增幅明显高于营收增幅；二是第四季度的大规模让利促销虽然保住了市场份额，但代价是当季利润承受了较大压力。
+围绕推动现代服务业与现代农业深度融合，山东省政协常委、滨州市人民政府副市长杜玉杰建议，提升专业化服务能力，健全农业社会化服务标准、应用推广和质量监督等体系，以标准化建设提升企业农业服务的专业化、规范化水平。
 
 ## 相关推荐
 
-- 2026-06-29 14:10 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 14:25 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-29 14:16 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-29 14:24 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-29 14:26 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 14:08 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 14:35 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-29 14:14 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 14:23 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 14:23 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-29 14:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 14:10 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 14:13 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 14:19 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 14:41 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-29 14:28 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 14:28 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-29 14:29 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-29 14:32 - [南非老帅布罗斯的梦没能做完](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 14:20 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 14:32 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 14:20 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-29 14:16 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-29 14:15 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-29 14:16 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 14:15 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:20 - [小娘惹](http://www.share.minike.top/Article/details/4418202089.shtml)
-- 2026-06-29 14:06 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.kurohicncr.top/Article/details/207304150026.shtml)
-- 2026-06-29 14:07 - [金价银价下跌 油价上涨](http://www.share.kurohicncr.top/Article/details/315153759.shtml)
-- 2026-06-29 14:10 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/841940369.shtml)
-- 2026-06-29 14:17 - [一见倾心](https://www.share.kurohicncr.top/Article/details/6128566.shtml)
-- 2026-06-29 14:26 - [世界杯看到肖战了](https://www.share.kurohicncr.top/Article/details/327370.shtml)
-- 2026-06-29 14:33 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/67671745642.shtml)
-- 2026-06-29 14:08 - [Mrbeast的30天不吃饭挑战](http://www.blog.kurohicncr.top/Article/details/4027483302.shtml)
-- 2026-06-29 14:29 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.minike.top/Article/details/557653.shtml)
-- 2026-06-29 14:35 - [拄拐少年高考663分：用行动回报社会](https://www.share.kurohicncr.top/Article/details/2072547.shtml)
-- 2026-06-29 14:29 - [曾沛慈夺冠后人气](http://www.blog.kurohicncr.top/Article/details/31792253186.shtml)
-- 2026-06-29 14:35 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.minike.top/Article/details/418260300275.shtml)
-- 2026-06-29 14:34 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/06632073.shtml)
-- 2026-06-29 14:20 - [教育部发布预警 事关高招录取](https://www.blog.kurohicncr.top/Article/details/53975265.shtml)
-- 2026-06-29 14:15 - [下飞机后，我做了个很蠢的决定......](https://www.blog.kurohicncr.top/Article/details/40937750.shtml)
+- 2026-06-29 14:41 - [女心理师](http://www.blog.minike.top/Article/details/470588.shtml)
+- 2026-06-29 14:17 - [金牌调解](http://www.blog.minike.top/Article/details/144475586563.shtml)
+- 2026-06-29 14:21 - [韩国队如何把94%出线概率打到0%](http://www.share.minike.top/Article/details/95513.shtml)
+- 2026-06-29 14:13 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/821423.shtml)
+- 2026-06-29 14:20 - [AG 钟意](http://www.share.minike.top/Article/details/4237525352.shtml)
+- 2026-06-29 14:38 - [哈兰德之歌火到国外](http://www.share.minike.top/Article/details/62622437747.shtml)
+- 2026-06-29 14:41 - [成都至北京将新增动卧](https://www.blog.kurohicncr.top/Article/details/50062812.shtml)
+- 2026-06-29 14:40 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/91400.shtml)
+- 2026-06-29 14:27 - [上班主打一个薪尽自然凉](http://www.share.minike.top/Article/details/64144179588.shtml)
+- 2026-06-29 14:30 - [中国战机大片上新](https://www.share.kurohicncr.top/Article/details/6763495432.shtml)
+- 2026-06-29 14:42 - [金牌调解](https://www.share.minike.top/Article/details/958248.shtml)
+- 2026-06-29 14:23 - [陈靖可虞书欣领衔主演](http://www.share.kurohicncr.top/Article/details/07222344621.shtml)
+- 2026-06-29 14:19 - [布里奇斯被交易至太阳](http://www.share.minike.top/Article/details/15609993.shtml)
+- 2026-06-29 14:24 - [上班主打一个薪尽自然凉](http://www.share.minike.top/Article/details/480254662.shtml)
+- 2026-06-29 14:28 - [肖战深夜到达青岛赴十日终焉片场](http://www.share.minike.top/Article/details/04167026.shtml)

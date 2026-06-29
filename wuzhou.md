@@ -1,57 +1,61 @@
-# 2026第三届重庆低空飞行消费周启动
+# 86位中国作家捐手稿为“星星的孩子”筹款
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-中新网重庆4月30日电 (张旭)4月30日，2026第三届重庆低空飞行消费周在当地启动。本届消费周以“飞享山城·乐享云端”为主题，以沉浸式体验、场景化展示、普惠化服务为核心，为市民打造一场可看、可玩、可消费的低空嘉年华。 从中国航天科技集团分体式飞行汽车，重庆造航空动力固定翼飞机、彩虹无人机等低空航空器集中亮相，到核心零部件、智能管控系统、航空文创等产品集中呈现，本届消费周将企
+中新社郑州4月25日电 (张楠)“与星同行——中国著名作家手稿展首展”25日在河南郑州启幕，莫言、冯骥才、梁晓声、刘慈欣等86位当代中国作家联合捐出200余件珍贵创作手稿，为“星星的孩子”(又称孤独症儿童)筹款。 中国人民大学舒同研究中心主任、两块砖公益基金管委会主任王振介绍，此次展览由莫言与“两块砖公益基金”共同发起，展品包括莫言的小说手稿、冯骥才与梁晓声的散文手迹，以及摘自
 
 ## 正文
 
-中新网重庆4月30日电 (张旭)4月30日，2026第三届重庆低空飞行消费周在当地启动。
+中新社郑州4月25日电 (张楠)“与星同行——中国著名作家手稿展首展”25日在河南郑州启幕，莫言、冯骥才、梁晓声、刘慈欣等86位当代中国作家联合捐出200余件珍贵创作手稿，为“星星的孩子”(又称孤独症儿童)筹款。
 
-本届消费周以“飞享山城·乐享云端”为主题，以沉浸式体验、场景化展示、普惠化服务为核心，为市民打造一场可看、可玩、可消费的低空嘉年华。
+中国人民大学舒同研究中心主任、两块砖公益基金管委会主任王振介绍，此次展览由莫言与“两块砖公益基金”共同发起，展品包括莫言的小说手稿、冯骥才与梁晓声的散文手迹，以及摘自苏童《妻妾成群》、刘慈欣《三体》、陈彦《主角》、刘震云作品等创作原稿。
 
-从中国航天科技集团分体式飞行汽车，重庆造航空动力固定翼飞机、彩虹无人机等低空航空器集中亮相，到核心零部件、智能管控系统、航空文创等产品集中呈现，本届消费周将企业创新成果直面大众市场，有效打通“研发—展示—消费”的转化通道。
+“手稿是文学创作最鲜活的生命印记，是写作者心性与才情最本真的流露。
 
-据介绍，借助消费周的高人气与高关注度，低空产业链上下游企业实现集聚互动，发挥该活动对产业的牵引带动作用，形成“以消费促产业、以产业强消费”的良性循环。
+”中国作家协会副主席何向阳受访时说，这些手稿所承载的不仅是文学价值，更是正在落地的公益链条。
 
-活动现场，重庆2026版低空飞行消费地图正式发布，为市民提供清晰便捷的低空消费指引。
+中国作家协会副主席、茅盾文学奖得主陈彦介绍，如今作家大多用电脑写作，手稿已经不多，因此格外珍贵。
 
-升级后的“渝小飞×飞常行”低空消费小程序集成预约、查询、核销等功能，让低空消费更高效。
+茅盾文学奖得主苏童称，此次誊抄手稿参展，每个字都是给“星星的孩子”的祝福。
 
-3000万元低空飞行消费券面向公众发放，进一步降低市民参与门槛。
+此次郑州首展结束后将在全国巡展。
 
-此外，“新韵重庆”无人机灯光秀摄影展、首届低空摄影大赛优秀作品展等板块同步开放，模拟驾驶舱、无人机足球等互动项目，让前沿航空科技转化为可触摸、可参与的大众体验。
+巡展完成后所有手稿进行拍卖，善款全部用于孤独症照护者技能培训等公益项目。
 
 ## 相关推荐
 
-- 2026-06-29 14:32 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-29 14:31 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-29 14:21 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-29 14:22 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 14:06 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-29 14:18 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-29 14:08 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 14:34 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-29 14:23 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 14:17 - [宜宾5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-29 14:23 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-29 14:20 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 14:36 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 14:37 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 14:38 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 14:35 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 14:21 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 14:35 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 14:19 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-29 14:32 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 14:36 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 14:20 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-29 14:18 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 14:34 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-29 14:19 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 14:31 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:31 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/011028068.shtml)
-- 2026-06-29 14:33 - [吴昕要助理买的药6年前已停产](http://www.blog.minike.top/Article/details/3961250.shtml)
-- 2026-06-29 14:18 - [急先锋](http://www.share.minike.top/Article/details/328322273.shtml)
-- 2026-06-29 14:24 - [吴海燕兰西雅漫步复兴岛](https://www.blog.kurohicncr.top/Article/details/763516.shtml)
-- 2026-06-29 14:17 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/8880106.shtml)
-- 2026-06-29 14:28 - [农发行总行专家委员会委员杜晓力被查](http://www.share.kurohicncr.top/Article/details/889602134157.shtml)
-- 2026-06-29 14:18 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/80813704.shtml)
-- 2026-06-29 14:23 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/3382716.shtml)
-- 2026-06-29 14:13 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/62203.shtml)
-- 2026-06-29 14:28 - [加拿大女球迷玩人浪把手机甩飞](http://www.share.kurohicncr.top/Article/details/974414779.shtml)
-- 2026-06-29 14:18 - [T1 vs KC MSI](http://www.share.kurohicncr.top/Article/details/46972.shtml)
-- 2026-06-29 14:18 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/7251647.shtml)
-- 2026-06-29 14:21 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.kurohicncr.top/Article/details/959003.shtml)
-- 2026-06-29 14:10 - [T1对战KC](http://www.blog.kurohicncr.top/Article/details/383035595610.shtml)
-- 2026-06-29 14:08 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.share.minike.top/Article/details/008857139.shtml)
+- 2026-06-29 14:23 - [以前不让妆女二可以艳压女主](https://www.blog.kurohicncr.top/Article/details/9133266512.shtml)
+- 2026-06-29 14:30 - [上班主打一个薪尽自然凉](https://www.share.kurohicncr.top/Article/details/908227.shtml)
+- 2026-06-29 14:41 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/90868091.shtml)
+- 2026-06-29 14:38 - [内马尔能上场15分钟](https://www.share.minike.top/Article/details/044583703817.shtml)
+- 2026-06-29 14:38 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.minike.top/Article/details/866314994951.shtml)
+- 2026-06-29 14:15 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/4747981167.shtml)
+- 2026-06-29 14:19 - [美伊同意停止互袭 30日在多哈谈判](http://www.share.minike.top/Article/details/501759.shtml)
+- 2026-06-29 14:18 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/8641852.shtml)
+- 2026-06-29 14:38 - [周深双眼皮贴又掉了](https://www.blog.minike.top/Article/details/50690615220.shtml)
+- 2026-06-29 14:40 - [张真源解读相思锁](https://www.blog.minike.top/Article/details/4932698266.shtml)
+- 2026-06-29 14:13 - [A股](http://www.share.minike.top/Article/details/65787.shtml)
+- 2026-06-29 14:27 - [四川宜宾地震致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/65734.shtml)
+- 2026-06-29 14:39 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/445832258.shtml)
+- 2026-06-29 14:37 - [中方回应对日本相关出口管制措施](http://www.share.kurohicncr.top/Article/details/242410793359.shtml)
+- 2026-06-29 14:31 - [发反科学内容为何会有200万粉丝](https://www.share.minike.top/Article/details/8644452086.shtml)

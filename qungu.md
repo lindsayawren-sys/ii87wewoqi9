@@ -1,52 +1,57 @@
-# 涉案资金超5亿 一名重大跨境网赌案主要犯罪嫌疑人被引渡回国
+# 被美国登临检查后 两艘与伊朗有关联的油轮向西航行
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-4月29日，按照公安部部署，在泰国有关部门大力支持下，天津公安机关成功将一名重大跨境网络赌博案件主要犯罪嫌疑人黄某铠从泰国引渡回国。 经查，2022年9月至2023年6月，黄某铠伙同他人在柬埔寨组建犯罪团伙，通过互联网设立“万合足球”赌博平台，以高额利润为诱饵，网罗招募人员从事网络赌博犯罪活动，采用代理形式发展下线、赌客会员，在国内招揽各层级代理及赌客，涉案资金5亿余元。202
+两艘与伊朗有关联、上周在斯里兰卡附近被美军拦截的油轮目前正向西航行。 五角大楼上周表示，美军于4月21日和23日分别对两艘超大型油轮“Tifani”和“Phonix”实施了“海上拦截及登临检查”，但未说明这些船只接下来将如何处理。 根据两艘油轮的数字信号显示，它们目前似乎正以相当接近的距离向西穿越印度洋。 美国国防部4月21日发布的一张照片显示，美军对“Tifani”号油轮实施
 
 ## 正文
 
-4月29日，按照公安部部署，在泰国有关部门大力支持下，天津公安机关成功将一名重大跨境网络赌博案件主要犯罪嫌疑人黄某铠从泰国引渡回国。
+两艘与伊朗有关联、上周在斯里兰卡附近被美军拦截的油轮目前正向西航行。
 
-经查，2022年9月至2023年6月，黄某铠伙同他人在柬埔寨组建犯罪团伙，通过互联网设立“万合足球”赌博平台，以高额利润为诱饵，网罗招募人员从事网络赌博犯罪活动，采用代理形式发展下线、赌客会员，在国内招揽各层级代理及赌客，涉案资金5亿余元。
+五角大楼上周表示，美军于4月21日和23日分别对两艘超大型油轮“Tifani”和“Phonix”实施了“海上拦截及登临检查”，但未说明这些船只接下来将如何处理。
 
-2026年2月，泰国有关部门裁定向中方引渡黄某铠。
+根据两艘油轮的数字信号显示，它们目前似乎正以相当接近的距离向西穿越印度洋。
 
-下一步，天津公安机关将全力开展案件侦办工作。
+美国国防部4月21日发布的一张照片显示，美军对“Tifani”号油轮实施了“海上拦截和登船检查”。
 
-(总台记者 朱辛未 陈昱)
+美国尚未正式说明打算如何处置这两艘油轮。
+
+它们目前仍显示与被拦截时相同的亚洲目的地，这也让外界对其实际航向更加困惑。
+
+位于非洲南端的开普敦，通常是驶往美国船只的一个常规经停点。
+
+同样地，这两艘船目前的航向也指向英国控制的查戈斯群岛，该地的迪戈加西亚岛上设有一个美军基地。
 
 ## 相关推荐
 
-- 2026-06-29 14:23 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 14:12 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-29 14:29 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-29 14:15 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 14:28 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-29 14:28 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-29 14:16 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 14:34 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-29 14:14 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 14:25 - [巴基斯坦军方打死29名武装分子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-29 14:24 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 14:18 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-29 14:21 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 14:21 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 14:25 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 14:30 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-29 14:35 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-29 14:16 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 14:13 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 14:26 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-29 14:24 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 14:38 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-29 14:33 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:31 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.blog.minike.top/Article/details/3914164541.shtml)
-- 2026-06-29 14:23 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/481123937.shtml)
-- 2026-06-29 14:32 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/635975.shtml)
-- 2026-06-29 14:32 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/49214.shtml)
-- 2026-06-29 14:30 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/6210197.shtml)
-- 2026-06-29 14:17 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/8097520.shtml)
-- 2026-06-29 14:30 - [在自己家不穿衣服犯法吗](http://www.blog.minike.top/Article/details/65033.shtml)
-- 2026-06-29 14:12 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/77162861607.shtml)
-- 2026-06-29 14:34 - [王楚钦3-0周启豪 晋级32强](https://www.blog.kurohicncr.top/Article/details/03559980.shtml)
-- 2026-06-29 14:09 - [教育部发布高考志愿填报预警](https://www.share.minike.top/Article/details/22178722.shtml)
-- 2026-06-29 14:20 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/108131209760.shtml)
-- 2026-06-29 14:08 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/165111.shtml)
-- 2026-06-29 14:26 - [中国邮政上海分公司总经理李柏平被查](https://www.share.kurohicncr.top/Article/details/1278823.shtml)
-- 2026-06-29 14:30 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/952776115.shtml)
-- 2026-06-29 14:28 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/95323213.shtml)
+- 2026-06-29 14:27 - [教育部发布预警 事关高招录取](https://www.share.minike.top/Article/details/523167063100.shtml)
+- 2026-06-29 14:13 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/104302664.shtml)
+- 2026-06-29 14:31 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/105942495.shtml)
+- 2026-06-29 14:36 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.kurohicncr.top/Article/details/474952859.shtml)
+- 2026-06-29 14:31 - [王楚钦3比0周启豪](http://www.share.minike.top/Article/details/9723369481.shtml)
+- 2026-06-29 14:38 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.blog.minike.top/Article/details/74770.shtml)
+- 2026-06-29 14:14 - [国家体育总局政策法规司原副司长获刑](https://www.blog.kurohicncr.top/Article/details/43142.shtml)
+- 2026-06-29 14:29 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.minike.top/Article/details/0887524678.shtml)
+- 2026-06-29 14:23 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.blog.minike.top/Article/details/84384.shtml)
+- 2026-06-29 14:41 - [王楚钦欢迎晚宴上打台球](https://www.share.minike.top/Article/details/8678941988.shtml)
+- 2026-06-29 14:35 - [日本主帅：对战胜巴西很有信心](https://www.blog.minike.top/Article/details/0828283.shtml)
+- 2026-06-29 14:14 - [世界杯看到肖战了](https://www.share.minike.top/Article/details/5482446.shtml)
+- 2026-06-29 14:28 - [papi酱回应毕业4年零收入](https://www.share.minike.top/Article/details/1204006051.shtml)
+- 2026-06-29 14:12 - [iPhone18系列预计将大幅涨价](https://www.share.kurohicncr.top/Article/details/44329526555.shtml)
+- 2026-06-29 14:36 - [李连杰回应网传不管前妻俩女儿](https://www.share.minike.top/Article/details/597826060560.shtml)

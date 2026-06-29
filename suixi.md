@@ -1,59 +1,60 @@
-# 沈阳市台联有力释放动能：调研座谈赋能统战信息员专业成长
+# 第48届世界技能大赛部分参赛项目广州邀请赛开幕
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-市台联充分发挥桥梁纽带作用，精心组织协调各民主党派、市侨联、市台联、市工商联信息员代表，赴沈阳市台商投资企业协会开展专题调研座谈活动。本次调研座谈作为2026年第一期全市统战系统信息员培训“实地调研”模块的关键环节，旨在通过沉浸式体验与互动式交流，全方位提升信息员的专业素养与履职能力。活动中，信息员们与多位在沈台商代表进行了面对面、心贴心的深入交流。他们严格遵循工作手册要求，认
+中新网广州4月27日电 (记者 程景伟)第48届世界技能大赛部分参赛项目广州邀请赛27日在广州市工贸技师学院科教城校区开幕。赛事涵盖CAD机械设计、制冷与空调、移动应用开发、软件测试、网络系统管理5个项目。 据悉，世界技能大赛(以下简称：世赛)被誉为“世界技能奥林匹克”。此次邀请赛，来自20个国家和地区的青年技能选手、专家、教练近170人相聚羊城，共襄盛会、切磋技能，为第48届
 
 ## 正文
 
-市台联充分发挥桥梁纽带作用，精心组织协调各民主党派、市侨联、市台联、市工商联信息员代表，赴沈阳市台商投资企业协会开展专题调研座谈活动。
+中新网广州4月27日电 (记者 程景伟)第48届世界技能大赛部分参赛项目广州邀请赛27日在广州市工贸技师学院科教城校区开幕。
 
-本次调研座谈作为2026年第一期全市统战系统信息员培训“实地调研”模块的关键环节，旨在通过沉浸式体验与互动式交流，全方位提升信息员的专业素养与履职能力。
+赛事涵盖CAD机械设计、制冷与空调、移动应用开发、软件测试、网络系统管理5个项目。
 
-活动中，信息员们与多位在沈台商代表进行了面对面、心贴心的深入交流。
+据悉，世界技能大赛(以下简称：世赛)被誉为“世界技能奥林匹克”。
 
-他们严格遵循工作手册要求，认真履行走访调研职责，仔细倾听并详细记录台商在生产经营、生活融入、政策落实等方面遇到的实际困难与具体诉求。
+此次邀请赛，来自20个国家和地区的青年技能选手、专家、教练近170人相聚羊城，共襄盛会、切磋技能，为第48届世赛预热蓄力。
 
-针对台商提出的问题，信息员们现场开展热烈讨论与深入研究，力求原汁原味地掌握第一手资料，为后续撰写有案例、有数据、有温度的资政信息积累鲜活素材。
+据悉，第48届世赛将于今年9月在上海举办。
 
-此次活动是市台联积极落实培训任务分工的具体实践，不仅增强了信息员对台企台商群体的了解，提升了其信息搜集、研判和撰写的能力，更为精准反映台胞思想动态、利益诉求，服务我市对台工作高质量发展奠定了坚实的信息基础。
+广州市工贸技师学院(以下简称：广工贸)是第48届世赛CAD机械设计、制冷与空调、移动应用开发、软件测试、网络系统管理、网站技术6个项目中国集训基地。
 
-未来，市台联将继续创新工作方式方法，持续深化与台企台商的交流合作，为推动沈阳对台工作再上新台阶贡献台联智慧和力量。
+在当天的邀请赛开幕式中，广工贸与韩国全球技能转移研究所签订“共建世界技能大赛国际联合集训基地框架合作协议”。
 
-(沈阳台联微信公众号)
+这是双方自2024年首次签约合作后再度携手，将共建世赛国际联合集训基地，在共议集训体系、共商集训计划、共搭技能平台、共评选手水平、共组专家教练队伍等方面开展深度合作。
 
 ## 相关推荐
 
-- 2026-06-29 14:06 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-29 14:22 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 14:11 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-29 14:18 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 14:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 14:18 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 14:20 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-29 14:27 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 14:20 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-29 14:06 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 14:18 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 14:30 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-29 14:12 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 14:30 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 14:29 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 14:41 - [王祖蓝现场观看美加墨世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-29 14:12 - [严浩翔FIY断层第一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 14:39 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 14:16 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 14:18 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 14:39 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 14:19 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 14:30 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-29 14:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 14:23 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-29 14:34 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-29 14:36 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:32 - [韩体育部长回应李在明痛批](http://www.share.minike.top/Article/details/29683.shtml)
-- 2026-06-29 14:28 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/3076817.shtml)
-- 2026-06-29 14:21 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.minike.top/Article/details/339387.shtml)
-- 2026-06-29 14:10 - [每代父母都困在自己的时代里](http://www.share.minike.top/Article/details/640065263.shtml)
-- 2026-06-29 14:24 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/9213178.shtml)
-- 2026-06-29 14:14 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/49645310434.shtml)
-- 2026-06-29 14:16 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/878937187499.shtml)
-- 2026-06-29 14:30 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/38286891.shtml)
-- 2026-06-29 14:12 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/5509627237.shtml)
-- 2026-06-29 14:11 - [中国战机大片上新](http://www.share.kurohicncr.top/Article/details/7294306.shtml)
-- 2026-06-29 14:30 - [詹俊：巴西能凭借两大优势战胜日本](https://www.blog.minike.top/Article/details/17128.shtml)
-- 2026-06-29 14:14 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.minike.top/Article/details/422136046.shtml)
-- 2026-06-29 14:11 - [恋与深空失控领地](https://www.share.kurohicncr.top/Article/details/242692309105.shtml)
-- 2026-06-29 14:33 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/06781840691.shtml)
-- 2026-06-29 14:06 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/804744404241.shtml)
+- 2026-06-29 14:26 - [锐评浪姐7总决赛](http://www.share.kurohicncr.top/Article/details/494108.shtml)
+- 2026-06-29 14:29 - [链博会上的机器人太全能了](https://www.blog.minike.top/Article/details/09792606935.shtml)
+- 2026-06-29 14:22 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/224419090986.shtml)
+- 2026-06-29 14:18 - [梅朗雄主张法国退出北约](https://www.share.minike.top/Article/details/46604456.shtml)
+- 2026-06-29 14:33 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/584373831.shtml)
+- 2026-06-29 14:41 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.blog.minike.top/Article/details/345270.shtml)
+- 2026-06-29 14:16 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/75494878816.shtml)
+- 2026-06-29 14:36 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/4951358311.shtml)
+- 2026-06-29 14:36 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/4409218889.shtml)
+- 2026-06-29 14:27 - [世界杯用球成部分门将噩梦](https://www.blog.minike.top/Article/details/274361267398.shtml)
+- 2026-06-29 14:15 - [德云色预测世界杯16强](http://www.blog.kurohicncr.top/Article/details/02591057.shtml)
+- 2026-06-29 14:27 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/936583432440.shtml)
+- 2026-06-29 14:40 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/828426853.shtml)
+- 2026-06-29 14:20 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.minike.top/Article/details/17146229522.shtml)
+- 2026-06-29 14:37 - [市民骑哈啰单车79分钟被收费30元](https://www.share.kurohicncr.top/Article/details/16846.shtml)

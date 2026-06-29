@@ -1,55 +1,57 @@
-# 新华保险：一季度实现归母净利润65.01亿元，同比增长10.5%
+# 吉姆·克莱默周一十大关注：科技巨头财报周来袭，AI成绝对焦点
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-4月29日金融一线消息，新华保险发布2026年一季度报告。数据显示，2026年第一季度营业收入221.33亿元，同比下降33.7%。归属于母公司股东的净利润65.01亿元，同比增长10.5%。实现原保险保费收入834.96亿元，同比增长14.0%。 责任编辑：王馨茹
+随着超级财报周拉开帷幕，CNBC名嘴吉姆·克莱默列出了周一投资者应密切关注的十大市场焦点。本周将有五家科技“七巨头”发布财报，美联储也将公布利率决议，市场波动性预计将显著上升。 1． 超级财报周来袭，AI支出成核心看点 克莱默指出，本周是近年来最重要的财报周之一。Alphabet、微软、Meta和亚马逊将于周三盘后集中发布业绩，苹果则于周四登场。投资者将高度关注这些科技巨头高达
 
 ## 正文
 
-4月29日金融一线消息，新华保险发布2026年一季度报告。
+随着超级财报周拉开帷幕，CNBC名嘴吉姆·克莱默列出了周一投资者应密切关注的十大市场焦点。
 
-数据显示，2026年第一季度营业收入221.33亿元，同比下降33.7%。
+本周将有五家科技“七巨头”发布财报，美联储也将公布利率决议，市场波动性预计将显著上升。
 
-归属于母公司股东的净利润65.01亿元，同比增长10.5%。
+1． 超级财报周来袭，AI支出成核心看点 克莱默指出，本周是近年来最重要的财报周之一。
 
-实现原保险保费收入834.96亿元，同比增长14.0%。
+Alphabet、微软、Meta和亚马逊将于周三盘后集中发布业绩，苹果则于周四登场。
 
-责任编辑：王馨茹
+投资者将高度关注这些科技巨头高达数千亿美元的AI资本支出能否有效转化为收入增长。
+
+克莱默强调，市场的耐心正在收窄，这些公司需要同时做到三点：交出AI驱动的营收超预期、维持资本开支指引、展示成本管控能力。
+
+2． 英特尔“多头狂欢”还能持续多久？
+
+上周英特尔股价飙升近25%，此前公司公布的Q1业绩远超预期，并给出了强劲的Q2指引。
 
 ## 相关推荐
 
-- 2026-06-29 14:14 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-29 14:14 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 14:07 - [韩国队启程回国众将回避镜头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 14:26 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 14:07 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 14:20 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-29 14:09 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-29 14:29 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-29 14:30 - [东部机场集团新增釜山航线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-29 14:10 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-29 14:29 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 14:11 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-29 14:31 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-29 14:17 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-29 14:15 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 14:32 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 14:16 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-29 14:12 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 14:24 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-29 14:30 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 14:31 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 14:33 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-29 14:36 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 14:34 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 14:23 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 14:28 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:21 - [教育部发布高考志愿填报预警](http://www.blog.minike.top/Article/details/76710.shtml)
-- 2026-06-29 14:31 - [中方将20家日本实体列入关注名单](http://www.share.kurohicncr.top/Article/details/031500526.shtml)
-- 2026-06-29 14:25 - [周生如故](https://www.share.minike.top/Article/details/8348453210.shtml)
-- 2026-06-29 14:25 - [安切洛蒂称像对待决赛一样备战日本](https://www.share.kurohicncr.top/Article/details/77229.shtml)
-- 2026-06-29 14:13 - [复盘曾沛慈浪姐夺冠之路](https://www.blog.minike.top/Article/details/67232237.shtml)
-- 2026-06-29 14:23 - [永远保持对人民的赤子之心](https://www.blog.minike.top/Article/details/19737696.shtml)
-- 2026-06-29 14:30 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.minike.top/Article/details/72206454329.shtml)
-- 2026-06-29 14:22 - [吴海燕兰西雅漫步复兴岛](http://www.share.minike.top/Article/details/93513269.shtml)
-- 2026-06-29 14:29 - [上周末 多领域成果密集“上新”](https://www.blog.minike.top/Article/details/726246.shtml)
-- 2026-06-29 14:11 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/20011839.shtml)
-- 2026-06-29 14:26 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/275120117.shtml)
-- 2026-06-29 14:28 - [ENC瓦中国香港负印度数据图](http://www.share.minike.top/Article/details/02728.shtml)
-- 2026-06-29 14:33 - [周生如故](http://www.blog.minike.top/Article/details/67353.shtml)
-- 2026-06-29 14:31 - [未来5年全国能源体系将呈现这些特征](https://www.share.minike.top/Article/details/50343989.shtml)
-- 2026-06-29 14:06 - [游戏数据被用于军事目的 国安部提醒](https://www.share.kurohicncr.top/Article/details/5180564266.shtml)
+- 2026-06-29 14:42 - [绘画区你赢了](http://www.share.minike.top/Article/details/54421.shtml)
+- 2026-06-29 14:28 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/75958383.shtml)
+- 2026-06-29 14:40 - [日本主帅：目标是冠军](https://www.blog.kurohicncr.top/Article/details/949765020407.shtml)
+- 2026-06-29 14:28 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/03858475.shtml)
+- 2026-06-29 14:37 - [父亲患病母亲残疾女儿接到清华电话](https://www.blog.minike.top/Article/details/346526459594.shtml)
+- 2026-06-29 14:32 - [王楚钦 表演球擦网](https://www.blog.minike.top/Article/details/34793565395.shtml)
+- 2026-06-29 14:28 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.share.minike.top/Article/details/618389713252.shtml)
+- 2026-06-29 14:41 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/1359699.shtml)
+- 2026-06-29 14:36 - [陈靖可虞书欣领衔主演](https://www.share.minike.top/Article/details/2675992.shtml)
+- 2026-06-29 14:24 - [自然资源部派专家赴宜宾地震影响区](https://www.share.kurohicncr.top/Article/details/0531327.shtml)
+- 2026-06-29 14:19 - [6月我国降水为何偏多](http://www.blog.minike.top/Article/details/567016.shtml)
+- 2026-06-29 14:25 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.minike.top/Article/details/63166939367.shtml)
+- 2026-06-29 14:25 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.blog.minike.top/Article/details/940962.shtml)
+- 2026-06-29 14:32 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/132528035608.shtml)
+- 2026-06-29 14:31 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.minike.top/Article/details/3970693.shtml)

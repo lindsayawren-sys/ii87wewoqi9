@@ -1,59 +1,56 @@
-# 上海将建世界最高无轴摩天轮
+# 文化和旅游部点名整治一批问题多发景区和一批景区摆渡车问题
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-5个近期签约落地的大型文旅项目总投资近40亿元“4+16”文旅重点产业向全球招商 上海将建世界最高无轴摩天轮 本报讯(记者 李宝花)昨天，第五届上海旅游投资促进大会在佘山国家旅游度假区举行。现场集中发布一批招商指南、签约项目与服务举措，为上海文旅高质量发展注入新动能。 当天，长三角G60文化旅游联盟正式启动，市文旅局和松江区联合发布《2026上海旅游招商投资指南》《2026松江
+记者从文化和旅游部4月27日举行的新闻发布会上获悉，文化和旅游部梳理近年来5A级旅游景区负面舆情、游客投诉和网络评价，将重点整治一批问题多发景区和一批景区摆渡车问题。 根据游客反映集中的景区价格纠纷、拥堵滞留、服务态度、安全应急、环境卫生等问题，近年来综合问题多发的景区包括湖南张家界天门山—武陵源、云南丽江古城和玉龙雪山、黄河壶口瀑布、广西桂林漓江、河南嵩山少林寺、贵州黄果树瀑
 
 ## 正文
 
-5个近期签约落地的大型文旅项目总投资近40亿元“4+16”文旅重点产业向全球招商 上海将建世界最高无轴摩天轮 本报讯(记者 李宝花)昨天，第五届上海旅游投资促进大会在佘山国家旅游度假区举行。
+记者从文化和旅游部4月27日举行的新闻发布会上获悉，文化和旅游部梳理近年来5A级旅游景区负面舆情、游客投诉和网络评价，将重点整治一批问题多发景区和一批景区摆渡车问题。
 
-现场集中发布一批招商指南、签约项目与服务举措，为上海文旅高质量发展注入新动能。
+根据游客反映集中的景区价格纠纷、拥堵滞留、服务态度、安全应急、环境卫生等问题，近年来综合问题多发的景区包括湖南张家界天门山—武陵源、云南丽江古城和玉龙雪山、黄河壶口瀑布、广西桂林漓江、河南嵩山少林寺、贵州黄果树瀑布、湖北武当山等。
 
-当天，长三角G60文化旅游联盟正式启动，市文旅局和松江区联合发布《2026上海旅游招商投资指南》《2026松江文旅影视招商投资指南》，并集中推出外滩第二立面文旅综合体、徐汇西岸漫游线、徐汇西岸星穹、“上海之门”摩天轮、AI沉浸式互动剧场《新世界·黄金时代》5个近期签约落地的大型文旅项目，总投资近40亿元。
+摆渡车线路不科学、价格不合理、排队时间长、服务态度差等问题比较多的景区包括江西龙虎山、吉林长白山、安徽天柱山、四川稻城亚丁、山东崂山等。
 
-“上海之门”摩天轮选址宝山滨江区域，将建成世界最高无轴摩天轮，拥有228米回转型太空舱，总投资约20亿元，打造上海海上门户新地标；AI沉浸式互动剧场《新世界·黄金时代》，将以松江区上海影视乐园《繁花》拍摄地黄河路街区实景为载体，首创“线上AI短剧+线下沉浸式演艺和游戏剧场”模式，打造“体验+消费”双驱动的文旅新品。
+文化和旅游部资源开发司司长满宏卫表示，针对上述问题，将采取三方面治理措施：一是提级督促整改，要求属地和景区对照问题清单，坚持游客为本，逐一制定整改方案，限期开展整改工作。
 
-大会现场还发布“4+16”文旅重点产业招商地图，明确文化、旅游、广电、文物四大板块，聚焦艺术品交易、演艺、电竞等16个细分赛道，为全球资本提供清晰精准、可落地的投资指引。
+二是加强暗访检查，组织经常性“体检式”暗访检查，开展全时段网络信息收集，拓宽问题发现渠道，加强舆情收集分析，带着问题清单现场调研检查，完善问题督促整改机制。
 
-同时，文旅部门系统梳理135项支持政策，涉及资金13亿元，以“一图读懂”等方式服务招商引资和重点企业。
+三是挂钩等级复核，将对问题多发、整改不力的，加强质量等级动态管理，该降低等级的降低等级，该取消等级的取消等级。
 
-通过持续办好旅游投资促进大会、旅博会、专场对接会，形成常态化精准招商机制。
+“我们还将持续加大对其它5A级旅游景区的问题核查，并要求各地对照质量等级的要求，对属地4A级及以下景区加强问题排查，列出重点，实施集中整治和限期整改，切实做到整治一批、提升一批。
 
-一批高能级文旅项目加快落地，将进一步丰富都市旅游产品供给，助力上海加快跻身全球旅游“第一方阵”。
+”满宏卫说。
 
 ## 相关推荐
 
-- 2026-06-29 14:23 - [俄称继续推进 乌称打击俄军设施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-29 14:25 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-29 14:09 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 14:33 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-29 14:33 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-29 14:22 - [曾沛慈夺冠后人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 14:07 - [以前不让妆女二可以艳压女主](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-29 14:23 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 14:06 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-29 14:19 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-29 14:07 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 14:24 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-29 14:12 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-29 14:19 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 14:35 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 14:15 - [巴基斯坦军方打死29名武装分子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-29 14:17 - [Agent带来token消耗爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-29 14:25 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 14:31 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 14:35 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 14:18 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-29 14:29 - [T1对战KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 14:16 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:19 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/2835662.shtml)
-- 2026-06-29 14:06 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/75880342.shtml)
-- 2026-06-29 14:21 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/9469241658.shtml)
-- 2026-06-29 14:13 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/09649622984.shtml)
-- 2026-06-29 14:07 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/22949.shtml)
-- 2026-06-29 14:22 - [河南考699分女生已接到清华大学电话](http://www.blog.minike.top/Article/details/1914719.shtml)
-- 2026-06-29 14:29 - [世界杯超牛补水广告出现了](http://www.blog.minike.top/Article/details/4354836.shtml)
-- 2026-06-29 14:18 - [周杰伦演唱会真的好多人啊](https://www.share.minike.top/Article/details/19527.shtml)
-- 2026-06-29 14:16 - [T1 vs KC MSI](https://www.share.kurohicncr.top/Article/details/0919143360.shtml)
-- 2026-06-29 14:10 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/825485623.shtml)
-- 2026-06-29 14:09 - [异世界一点都不好玩！](https://www.share.minike.top/Article/details/3275300.shtml)
-- 2026-06-29 14:14 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/4758875554.shtml)
-- 2026-06-29 14:15 - [青春环游记第三季](https://www.share.minike.top/Article/details/186569494129.shtml)
-- 2026-06-29 14:18 - [安切洛蒂称像对待决赛一样备战日本](https://www.blog.minike.top/Article/details/83452.shtml)
-- 2026-06-29 14:19 - [下飞机后，我做了个很蠢的决定......](https://www.share.kurohicncr.top/Article/details/8166218.shtml)
+- 2026-06-29 14:39 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.share.kurohicncr.top/Article/details/88783.shtml)
+- 2026-06-29 14:15 - [媒体人：警惕日本再次成战争加害国](https://www.share.kurohicncr.top/Article/details/13880.shtml)
+- 2026-06-29 14:36 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.minike.top/Article/details/70742975.shtml)
+- 2026-06-29 14:34 - [俄称继续推进 乌称打击俄军设施](http://www.share.kurohicncr.top/Article/details/45866448305.shtml)
+- 2026-06-29 14:41 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/51796.shtml)
+- 2026-06-29 14:41 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/80240146333.shtml)
+- 2026-06-29 14:23 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/61311184616.shtml)
+- 2026-06-29 14:29 - [媒体：网络测评不能只剩“生意”](https://www.blog.kurohicncr.top/Article/details/77315556036.shtml)
+- 2026-06-29 14:26 - [每代父母都困在自己的时代里](https://www.share.minike.top/Article/details/21511904.shtml)
+- 2026-06-29 14:23 - [吴磊爱上回收了](https://www.share.minike.top/Article/details/4876912.shtml)
+- 2026-06-29 14:21 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/88947021.shtml)
+- 2026-06-29 14:20 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.minike.top/Article/details/461093.shtml)
+- 2026-06-29 14:16 - [评论员：高温撕开欧洲“遮羞布”](https://www.blog.minike.top/Article/details/864038.shtml)
+- 2026-06-29 14:26 - [双高胎](http://www.blog.kurohicncr.top/Article/details/1784413128.shtml)
+- 2026-06-29 14:20 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/399468.shtml)

@@ -1,56 +1,58 @@
-# A股航空覆盖碳排超9千万吨，SAF燃料采购有限
+# “漂亮酒”里藏着健康风险
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 编者按：2026年是我国“十五五”开局之年，A股ESG信披首次大考启幕。21世纪经济报道选取A股发电、钢铁、建材、有色、石化、化工、造纸、航空这八大重点控排上市公司作为观察样本。这八大重点控排行业既受到我国“双碳”目标的碳减排硬约束，其龙头企业又多属A股上市公司，同时面临碳排放双控与ESG信披要求的“双重监管”。《工业领域碳达峰
+清吧里，一杯杯“漂亮酒”被端上桌。粉白渐变的果味调酒缀着新鲜薄荷叶，琥珀色精酿装在复古玻璃杯里，随手一拍就是朋友圈“大片”。味道清淡偏甜、五颜六色适合拍照分享，这类低度酒精饮品被许多年轻人称为“漂亮酒”，正成为他们情绪消费的新宠——为氛围，为社交，也为暂时逃离压力的“微醺自由”。然而，被低度数、高颜值“软化”后，酒精对人体的伤害并不会因为“漂亮”而打折，过量饮用也潜藏着健康风险
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 编者按：2026年是我国“十五五”开局之年，A股ESG信披首次大考启幕。
+清吧里，一杯杯“漂亮酒”被端上桌。
 
-21世纪经济报道选取A股发电、钢铁、建材、有色、石化、化工、造纸、航空这八大重点控排上市公司作为观察样本。
+粉白渐变的果味调酒缀着新鲜薄荷叶，琥珀色精酿装在复古玻璃杯里，随手一拍就是朋友圈“大片”。
 
-这八大重点控排行业既受到我国“双碳”目标的碳减排硬约束，其龙头企业又多属A股上市公司，同时面临碳排放双控与ESG信披要求的“双重监管”。
+味道清淡偏甜、五颜六色适合拍照分享，这类低度酒精饮品被许多年轻人称为“漂亮酒”，正成为他们情绪消费的新宠——为氛围，为社交，也为暂时逃离压力的“微醺自由”。
 
-《工业领域碳达峰实施方案》明确提出，“确保工业领域二氧化碳排放在2030年前达峰”，这八大行业的碳排放量合计约占全国总排放量的75%，能否在2030年前如期达峰将影响国家整体工业碳达峰进程。
+然而，被低度数、高颜值“软化”后，酒精对人体的伤害并不会因为“漂亮”而打折，过量饮用也潜藏着健康风险。
 
-如今距离2030年前碳达峰的目标仅有四年左右时间，这八大重点控排行业的碳排放不容留白。
+为何举杯 “一杯酒，既能拍好看的照片，又能和朋友聊开，何乐而不为？
 
-21世纪经济报道推出“ESG信披季之八大重点控排行业”系列报道，对发电、钢铁、建材、有色、石化、化工、造纸、航空等行业的碳排放披露情况进行穿透式扫描。
+”22岁的曲溪，是大四学生。
 
-航空业是全球温室气体排放的重要来源之一。
+接受中青报·中青网记者采访时，她点了一杯缀有薄荷叶的低度调酒，搭配着杯口装饰和彩色的杯垫，格外“出片”，“虽然对金酒、朗姆酒这些不太懂，但看到有苹果，感觉很清新，就选了它”。
 
-近些年来,减少温室气体排放,尤其是二氧化碳排放(碳减排),已经成为行业发展的核心议题。
+在曲溪眼里，“漂亮酒”不仅仅是一杯饮品，更是关系的“破冰神器”。
 
 ## 相关推荐
 
-- 2026-06-29 14:11 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 14:06 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-29 14:15 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 14:20 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-29 14:17 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-29 14:33 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-29 14:21 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-29 14:19 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-29 14:32 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 14:15 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 14:30 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 14:40 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 14:22 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 14:41 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 14:22 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 14:12 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 14:29 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 14:18 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 14:25 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 14:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 14:18 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 14:29 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:21 - [实习期把公司领导开除了](https://www.blog.minike.top/Article/details/4290857740.shtml)
-- 2026-06-29 14:13 - [实习期把公司领导开除了](https://www.share.kurohicncr.top/Article/details/30485991131.shtml)
-- 2026-06-29 14:27 - [爱情有烟火你是知道我爱看什么的](https://www.share.minike.top/Article/details/140368088.shtml)
-- 2026-06-29 14:20 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/9216535262.shtml)
-- 2026-06-29 14:24 - [105年初心滚烫](http://www.blog.kurohicncr.top/Article/details/501235133.shtml)
-- 2026-06-29 14:13 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/718475.shtml)
-- 2026-06-29 14:32 - [多只A股发布股价异动公告](https://www.blog.minike.top/Article/details/64297119.shtml)
-- 2026-06-29 14:14 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/65189796.shtml)
-- 2026-06-29 14:10 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/54857.shtml)
-- 2026-06-29 14:26 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/90270214236.shtml)
-- 2026-06-29 14:07 - [乔家的儿女](http://www.share.minike.top/Article/details/8744749766.shtml)
-- 2026-06-29 14:12 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/537672477.shtml)
-- 2026-06-29 14:22 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.minike.top/Article/details/172488.shtml)
-- 2026-06-29 14:31 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/892396830.shtml)
-- 2026-06-29 14:35 - [广州一高校通报网传禁止小米汽车入校](http://www.share.kurohicncr.top/Article/details/87936.shtml)
+- 2026-06-29 14:13 - [实习期把公司领导开除了](https://www.blog.minike.top/Article/details/314461096593.shtml)
+- 2026-06-29 14:40 - [中国战机大片上新](https://www.blog.minike.top/Article/details/21235178.shtml)
+- 2026-06-29 14:23 - [人民日报评“AI脸看腻了”](http://www.blog.kurohicncr.top/Article/details/358251466452.shtml)
+- 2026-06-29 14:40 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/986486192.shtml)
+- 2026-06-29 14:13 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/144292101.shtml)
+- 2026-06-29 14:19 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.minike.top/Article/details/094394334.shtml)
+- 2026-06-29 14:17 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/235901727.shtml)
+- 2026-06-29 14:13 - [广州一高校通报网传禁止小米汽车入校](http://www.share.minike.top/Article/details/7585246759.shtml)
+- 2026-06-29 14:35 - [王楚钦首轮赢下国乒德比](https://www.share.minike.top/Article/details/376072803221.shtml)
+- 2026-06-29 14:17 - [曾沛慈夺冠后人气](https://www.blog.kurohicncr.top/Article/details/758650.shtml)
+- 2026-06-29 14:17 - [美伊同意停止互袭](https://www.share.kurohicncr.top/Article/details/2880677.shtml)
+- 2026-06-29 14:32 - [高考志愿今起开始填报](https://www.blog.minike.top/Article/details/5537210532.shtml)
+- 2026-06-29 14:13 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.blog.minike.top/Article/details/60884312130.shtml)
+- 2026-06-29 14:25 - [古力娜扎美出新高度](http://www.share.minike.top/Article/details/491354.shtml)
+- 2026-06-29 14:18 - [美人鱼](http://www.share.kurohicncr.top/Article/details/88955.shtml)

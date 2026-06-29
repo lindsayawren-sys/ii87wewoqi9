@@ -1,56 +1,58 @@
-# 六大行一季度合计净赚3569.36亿元，营收、归母净利均实现“双增”
+# 车百会张永伟：中国自动驾驶成本两年降40%-60%，行业逐渐回归理性发展
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-来源：北京商报 北京商报讯（记者 孟凡霞 周义力）4月29日，工商银行、农业银行、中国银行、建设银行、交通银行、邮储银行六家国有大行发布2026年一季度报告。数据显示，一季度，六家国有大行合计实现营业收入9925.07亿元，同比增长9.04%；归母净利润合计3569.36亿元，同比增长3.63%；总资产合计约229.31万亿元，较上年末增长4%。 从一季度营业收入及归母净利润指
+专题：第二届自动驾驶产业发展论坛 4月25日，第二届自动驾驶产业发展论坛在北京召开，主题为“加速自动驾驶产业发展 凝聚自动驾驶安全共识”。 车百会研究院理事长张永伟在演讲中首先谈到了中国自动驾驶三大进展： 一、技术日趋成熟。张永伟指出，中国自动驾驶成本在全世界处在领先的地位，系统成本大幅下降。特别是中国走了一条有中国特色的自动驾驶技术发展路径，多传感器融合，大模型应用，每一次技
 
 ## 正文
 
-来源：北京商报 北京商报讯（记者 孟凡霞 周义力）4月29日，工商银行、农业银行、中国银行、建设银行、交通银行、邮储银行六家国有大行发布2026年一季度报告。
+专题：第二届自动驾驶产业发展论坛 4月25日，第二届自动驾驶产业发展论坛在北京召开，主题为“加速自动驾驶产业发展 凝聚自动驾驶安全共识”。
 
-数据显示，一季度，六家国有大行合计实现营业收入9925.07亿元，同比增长9.04%；归母净利润合计3569.36亿元，同比增长3.63%；总资产合计约229.31万亿元，较上年末增长4%。
+车百会研究院理事长张永伟在演讲中首先谈到了中国自动驾驶三大进展： 一、技术日趋成熟。
 
-从一季度营业收入及归母净利润指标来看，国有六大银行均实现“双增”。
+张永伟指出，中国自动驾驶成本在全世界处在领先的地位，系统成本大幅下降。
 
-其中，工商银行实现营业收入2303.70亿元，同比增长8.27%；实现归母净利润869.41亿元，同比增长3.31%；总资产55.77万亿元，比上年末增加2.29万亿元，增长4.29%。
+特别是中国走了一条有中国特色的自动驾驶技术发展路径，多传感器融合，大模型应用，每一次技术进步都伴随着产业链的快速跟进，确保了高技术能够不断进行低成本的匹配。
 
-建设银行实现营业收入2112.56亿元，同比增长11.15%；归母净利润862.91亿元，同比增长3.53%。
+“过去两年高阶自驾整体成本下降了40%—60%，4月份很多专家提出，今年是国自动驾驶的元年，我想这点是有很好支撑的。
 
-资产总额47.13万亿元，较上年末增加1.50万亿元，增长3.29%。
+” 二、融合发展成为主流。
 
-农业银行实现营业收入2063亿元，同比增长10.5%；拨备前利润1524亿元，同比增长13.1%；归母净利润751.85亿元，同比增长4.52%。
+他提到，过去汽车行业和半导体、通讯行业彼此联系不是很紧密，到了自动驾驶时代，AI、半导体、通讯与汽车行业深度融合，打破了过去的行业边界。
 
-总资产突破50万亿元，达51.0万亿元，新增2.24万亿元，较上年增速4.60%。
+在他看来，无论是车企还是科技企业、科研机构，大家共同发力，探索出了多元发展的中国自驾的发展模式，尤其是车企与科技公司深度合作模式实现了优势互补，推动了技术落地。
 
 ## 相关推荐
 
-- 2026-06-29 14:20 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-29 14:10 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-29 14:25 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-29 14:28 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 14:27 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 14:29 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-29 14:26 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-29 14:11 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-29 14:30 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-29 14:12 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-29 14:26 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-29 14:32 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 14:35 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 14:18 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-29 14:20 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 14:15 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 14:39 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 14:18 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 14:13 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 14:25 - [薛之谦演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-29 14:32 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 14:12 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:18 - [湖北钟祥市委书记张勇拟任新职](http://www.share.kurohicncr.top/Article/details/466787.shtml)
-- 2026-06-29 14:16 - [灿如繁星定档](https://www.blog.kurohicncr.top/Article/details/595801240.shtml)
-- 2026-06-29 14:28 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.minike.top/Article/details/555245138.shtml)
-- 2026-06-29 14:17 - [女心理师](https://www.share.kurohicncr.top/Article/details/994023.shtml)
-- 2026-06-29 14:19 - [韩国拟将部分刑责年龄降至13岁](http://www.blog.minike.top/Article/details/152118739.shtml)
-- 2026-06-29 14:15 - [中餐厅南北饮食差异](http://www.share.kurohicncr.top/Article/details/870448.shtml)
-- 2026-06-29 14:29 - [民进党为什么拼命抹黑统战](https://www.share.minike.top/Article/details/92771033945.shtml)
-- 2026-06-29 14:20 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/304095.shtml)
-- 2026-06-29 14:32 - [陈靖可虞书欣领衔主演](https://www.blog.minike.top/Article/details/2694067227.shtml)
-- 2026-06-29 14:19 - [韩国队启程回国众将回避镜头](https://www.blog.minike.top/Article/details/182272537273.shtml)
-- 2026-06-29 14:19 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/66378.shtml)
-- 2026-06-29 14:30 - [退休化学教授帮医药研发人员制毒](https://www.share.minike.top/Article/details/44313.shtml)
-- 2026-06-29 14:14 - [以前不让妆女二可以艳压女主](http://www.share.minike.top/Article/details/92629541703.shtml)
-- 2026-06-29 14:16 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/2508464.shtml)
-- 2026-06-29 14:07 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.minike.top/Article/details/616943845574.shtml)
+- 2026-06-29 14:31 - [日媒称韩国史诗级上上签终成噩梦](http://www.share.minike.top/Article/details/59634.shtml)
+- 2026-06-29 14:33 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/944146668.shtml)
+- 2026-06-29 14:35 - [给阿嬷的情书海外口碑](https://www.blog.minike.top/Article/details/61652326.shtml)
+- 2026-06-29 14:37 - [共享单车“价格刺客”79分钟30元](https://www.blog.minike.top/Article/details/25614839929.shtml)
+- 2026-06-29 14:36 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.kurohicncr.top/Article/details/9618506.shtml)
+- 2026-06-29 14:26 - [周锡玮：做堂堂正正的中国人](https://www.blog.minike.top/Article/details/38540.shtml)
+- 2026-06-29 14:24 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.share.minike.top/Article/details/15549441.shtml)
+- 2026-06-29 14:18 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/435843381.shtml)
+- 2026-06-29 14:14 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/285173781970.shtml)
+- 2026-06-29 14:34 - [这一刀 会很帅](http://www.share.minike.top/Article/details/655435653417.shtml)
+- 2026-06-29 14:33 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.minike.top/Article/details/6201031347.shtml)
+- 2026-06-29 14:29 - [巴基斯坦军方打死29名武装分子](http://www.blog.kurohicncr.top/Article/details/48693811.shtml)
+- 2026-06-29 14:41 - [迈巴赫提车第二天发现大灯起雾](https://www.share.kurohicncr.top/Article/details/19321016.shtml)
+- 2026-06-29 14:39 - [马斯克也站到了光里](https://www.blog.minike.top/Article/details/4308016.shtml)
+- 2026-06-29 14:19 - [《昨夜将至》为何是悬疑黑马](http://www.share.kurohicncr.top/Article/details/55029707.shtml)

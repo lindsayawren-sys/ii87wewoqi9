@@ -1,61 +1,61 @@
-# 海南省新的社会阶层人士统战工作联席会议全体会议召开
+# （机遇香港）香港发展游艇经济为全球投资者打开新机遇
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-4月28日，海南省新的社会阶层人士统战工作联席会议2026年全体会议在海口召开。会议集中学习传达中央统战部相关文件精神，总结2025年工作情况，审议通过《“新力”赋能2026年工作计划》和《海南省“新阶层·建设力”行动方案》，进一步凝聚共识、汇聚合力，推动我省新的社会阶层人士统战工作更好融入高标准建设自贸港的大局。省委常委、统战部部长、联席会议召集人尹丽波主持会议并讲话。 会议
+中新社香港4月26日电 (记者 魏华都)近日，香港机场管理局正式启动SKYTOPIA游艇港湾发展项目，向全球游艇、酒店及水上活动业界发出意向邀请，意味着香港游艇经济进一步进入全球投资者的视野。分析认为，投资者可通过提供高端海事服务、投资粤港澳大湾区及家族办公室资产配置等方式获益。 香港拥有1180公里海岸线、约4000个游艇泊位和超过1.2万艘注册游艇，且背靠大湾区内地城市，具
 
 ## 正文
 
-4月28日，海南省新的社会阶层人士统战工作联席会议2026年全体会议在海口召开。
+中新社香港4月26日电 (记者 魏华都)近日，香港机场管理局正式启动SKYTOPIA游艇港湾发展项目，向全球游艇、酒店及水上活动业界发出意向邀请，意味着香港游艇经济进一步进入全球投资者的视野。
 
-会议集中学习传达中央统战部相关文件精神，总结2025年工作情况，审议通过《“新力”赋能2026年工作计划》和《海南省“新阶层·建设力”行动方案》，进一步凝聚共识、汇聚合力，推动我省新的社会阶层人士统战工作更好融入高标准建设自贸港的大局。
+分析认为，投资者可通过提供高端海事服务、投资粤港澳大湾区及家族办公室资产配置等方式获益。
 
-省委常委、统战部部长、联席会议召集人尹丽波主持会议并讲话。
+香港拥有1180公里海岸线、约4000个游艇泊位和超过1.2万艘注册游艇，且背靠大湾区内地城市，具备发展成为亚洲游艇枢纽的先天优势。
 
-会议指出，各成员单位要深入学习领会习近平总书记关于新的社会阶层人士统战工作的重要论述，认真贯彻落实中央和省委部署要求，以组织起来为切入点、以加强引导为关键点、以发挥作用为着力点，广泛汇聚新的社会阶层人士力量助力海南自贸港建设。
+香港特区行政长官李家超在2025年施政报告中明确提出发展游艇经济，优化游艇产业配套，推广高端游艇旅游。
 
-会议强调，2026年是海南自贸港封关运作开局之年，做好新的社会阶层人士统战工作意义重大。
+提供高端海事服务 SKYTOPIA游艇港湾位于大湾区核心位置，规划提供超500个泊位，最大可容纳120米长的超级游艇，设有游艇港湾、海湾度假酒店及水上游乐活动区三大主题项目，将是亚洲顶级滨海地标，首期预计2028年建成。
 
-要提高政治站位，充分认识做好新的社会阶层人士统战工作的重要意义，创新教育引领模式，在筑牢思想根基上凝心聚力。
+项目将直接拉动高端海事服务需求，涵盖游艇管理、船员招聘、保险经纪及维修保养等。
 
-要聚焦重点工作，在打造“新力”赋能计划等特色品牌上精准发力，推动新的社会阶层人士统战工作提质增效。
+目前已有来自中国内地、印尼、中东及新加坡的企业表达投资意向。
 
-要强化协同联动，在信息共享、资源整合、活动开展等方面加强合作，形成横向到边、纵向到底的统战工作格局。
+亚太超级游艇协会执行董事Suzy Rayment(苏茜·雷蒙特)指出，游艇产业能为香港带来完整服务生态系统，香港业界将整体受益。
 
 ## 相关推荐
 
-- 2026-06-29 14:32 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 14:32 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-29 14:17 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 14:07 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 14:27 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-29 14:31 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-29 14:21 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 14:19 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 14:19 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-29 14:25 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 14:31 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 14:28 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-29 14:08 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 14:18 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 14:23 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-29 14:35 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-29 14:39 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 14:28 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-29 14:32 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 14:34 - [TOP 无畏契约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-29 14:33 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-29 14:14 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-29 14:22 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-29 14:19 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 14:40 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 14:19 - [巴基斯坦军方打死29名武装分子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 14:17 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-29 14:28 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 14:29 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 14:36 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:26 - [中俄联合巡航阵容强大 日本慌了？](http://www.blog.kurohicncr.top/Article/details/92380.shtml)
-- 2026-06-29 14:10 - [比亚迪市值为何蒸发8000亿](https://www.blog.kurohicncr.top/Article/details/61543515.shtml)
-- 2026-06-29 14:23 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/746615.shtml)
-- 2026-06-29 14:35 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/44631917.shtml)
-- 2026-06-29 14:15 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/709872999.shtml)
-- 2026-06-29 14:08 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/512803486.shtml)
-- 2026-06-29 14:07 - [唐艺昕女儿接唐艺昕回家](http://www.blog.minike.top/Article/details/19449716.shtml)
-- 2026-06-29 14:28 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/8409181065.shtml)
-- 2026-06-29 14:12 - [扬名立万](https://www.share.minike.top/Article/details/959334398067.shtml)
-- 2026-06-29 14:22 - [去了一趟潮汕。](https://www.blog.kurohicncr.top/Article/details/86300525.shtml)
-- 2026-06-29 14:13 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/257281687.shtml)
-- 2026-06-29 14:18 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/3152697.shtml)
-- 2026-06-29 14:27 - [安切洛蒂称像对待决赛一样备战日本](https://www.blog.minike.top/Article/details/8541847746.shtml)
-- 2026-06-29 14:32 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/59304288159.shtml)
-- 2026-06-29 14:06 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/7905508387.shtml)
+- 2026-06-29 14:12 - [逆天祖国人](https://www.share.minike.top/Article/details/8793275368.shtml)
+- 2026-06-29 14:17 - [艾莎唱出了多少牛马的心声🥹](http://www.share.kurohicncr.top/Article/details/70874.shtml)
+- 2026-06-29 14:35 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/6769338.shtml)
+- 2026-06-29 14:34 - [新一代影后杨紫](https://www.blog.minike.top/Article/details/69297.shtml)
+- 2026-06-29 14:24 - [爱情有烟火你是知道我爱看什么的](http://www.blog.minike.top/Article/details/945327.shtml)
+- 2026-06-29 14:15 - [爸爸当家](http://www.share.minike.top/Article/details/5491465732.shtml)
+- 2026-06-29 14:15 - [恋与深空评分暴跌至1.8](http://www.blog.minike.top/Article/details/26616017550.shtml)
+- 2026-06-29 14:27 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/92054.shtml)
+- 2026-06-29 14:15 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/92389276.shtml)
+- 2026-06-29 14:31 - [杨紫下沉市场口碑](https://www.share.minike.top/Article/details/05796.shtml)
+- 2026-06-29 14:36 - [绘画区你赢了](http://www.share.minike.top/Article/details/3022734.shtml)
+- 2026-06-29 14:27 - [四川宜宾地震致13人受轻微伤](https://www.share.minike.top/Article/details/450733.shtml)
+- 2026-06-29 14:24 - [美媒：空警-3000服役即成全球最强](http://www.share.minike.top/Article/details/297322002.shtml)
+- 2026-06-29 14:41 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/34681430.shtml)
+- 2026-06-29 14:21 - [时光音乐会](http://www.blog.minike.top/Article/details/76745025542.shtml)

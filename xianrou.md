@@ -1,60 +1,49 @@
-# ETF日报：近期新能源产业链密集披露一季度业绩，多个环节的多家企业业绩表现超预期，提振了板块情绪
+# 伊朗外长前往伊斯兰堡
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-4月29日，A股三大指数集体上涨，沪指重返4100点，收涨0.71%，深证成指涨1.96%，创业板指涨2.51%，创业板指涨2.51%，中证A500涨1.41%。A股全天成交2.61万亿元，较上日略有放量。板块题材上，能源金属、稀有金属、电池等板块表现居前；银行，公用事业，军工等相对落后。风险偏好来看，今日风险偏好偏强，市场近4000股上涨。 数据来源：财联社 /// 电池产业
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰4月26日电据伊朗塔斯尼姆通讯社26日报道，伊朗外长阿拉格齐已离开阿曼首都马斯喀特前往巴基斯坦首都伊斯兰堡。（完）责任编辑：宋雅芳
 
 ## 正文
 
-4月29日，A股三大指数集体上涨，沪指重返4100点，收涨0.71%，深证成指涨1.96%，创业板指涨2.51%，创业板指涨2.51%，中证A500涨1.41%。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-A股全天成交2.61万亿元，较上日略有放量。
+新华社德黑兰4月26日电据伊朗塔斯尼姆通讯社26日报道，伊朗外长阿拉格齐已离开阿曼首都马斯喀特前往巴基斯坦首都伊斯兰堡。
 
-板块题材上，能源金属、稀有金属、电池等板块表现居前；银行，公用事业，军工等相对落后。
-
-风险偏好来看，今日风险偏好偏强，市场近4000股上涨。
-
-数据来源：财联社 /// 电池产业链上下游集体爆发，锂矿板块大涨。
-
-创业板新能源ETF（159387）大涨6.04%，新能源车ETF（159806）大涨5.06%，矿业ETF（561330）大涨4.77%。
-
-近期新能源产业链密集披露一季度业绩，多个环节的多家企业业绩表现超预期，提振了板块情绪。
-
-下游储能需求持续向好，具备顺价能力的环节，比如锂电材料、动力电池、储能电芯、户储等，基本都呈现出不错的业绩表现。
+（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 14:06 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 14:30 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-29 14:20 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-29 14:20 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 14:31 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 14:16 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 14:35 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-29 14:25 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-29 14:10 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-29 14:17 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 14:18 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 14:20 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-29 14:08 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-29 14:20 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 14:40 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 14:13 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-29 14:13 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-29 14:31 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-29 14:14 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-29 14:19 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-29 14:28 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 14:27 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 14:26 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 14:18 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 14:33 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-29 14:24 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 14:12 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:31 - [如何“亲菌子”又“远小人儿”](http://www.blog.minike.top/Article/details/4222506515.shtml)
-- 2026-06-29 14:30 - [小S在香港被偶遇](https://www.share.kurohicncr.top/Article/details/251089329.shtml)
-- 2026-06-29 14:24 - [和阿根廷球员家属一起看球](https://www.blog.kurohicncr.top/Article/details/3251109787.shtml)
-- 2026-06-29 14:24 - [锐评浪姐7总决赛](http://www.share.kurohicncr.top/Article/details/837998.shtml)
-- 2026-06-29 14:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/448595.shtml)
-- 2026-06-29 14:17 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.kurohicncr.top/Article/details/8027786.shtml)
-- 2026-06-29 14:23 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/878448035217.shtml)
-- 2026-06-29 14:17 - [比亚迪为什么卖得越多市值越低](http://www.blog.kurohicncr.top/Article/details/33019.shtml)
-- 2026-06-29 14:31 - [志愿选择倒计时！浙大学生送祝福](http://www.share.minike.top/Article/details/280162651056.shtml)
-- 2026-06-29 14:34 - [第一炉香](http://www.share.minike.top/Article/details/36911320.shtml)
-- 2026-06-29 14:34 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/2498295.shtml)
-- 2026-06-29 14:09 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/57513493.shtml)
-- 2026-06-29 14:34 - [中央气象台发布强对流天气蓝色预警](http://www.share.minike.top/Article/details/4203638.shtml)
-- 2026-06-29 14:29 - [每代父母都困在自己的时代里](https://www.blog.minike.top/Article/details/96367708.shtml)
-- 2026-06-29 14:22 - [中俄联合巡航阵容强大 日本慌了？](http://www.share.minike.top/Article/details/079868409599.shtml)
+- 2026-06-29 14:38 - [内马尔能上场15分钟](https://www.share.kurohicncr.top/Article/details/574565.shtml)
+- 2026-06-29 14:25 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/076395481.shtml)
+- 2026-06-29 14:36 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/698097.shtml)
+- 2026-06-29 14:20 - [父亲患病母亲残疾女儿接到清华电话](http://www.blog.minike.top/Article/details/3230554.shtml)
+- 2026-06-29 14:16 - [美国近12万名科技员工被解雇](http://www.share.kurohicncr.top/Article/details/71572079846.shtml)
+- 2026-06-29 14:36 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/76833544935.shtml)
+- 2026-06-29 14:32 - [巴西德国15次闯进世界杯淘汰赛](https://www.blog.minike.top/Article/details/4044119.shtml)
+- 2026-06-29 14:18 - [严浩翔FIY断层第一](http://www.blog.kurohicncr.top/Article/details/495965416.shtml)
+- 2026-06-29 14:29 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/282436982268.shtml)
+- 2026-06-29 14:13 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/62542.shtml)
+- 2026-06-29 14:25 - [T1 vs KC MSI](https://www.blog.kurohicncr.top/Article/details/10443499379.shtml)
+- 2026-06-29 14:20 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.share.minike.top/Article/details/803920797.shtml)
+- 2026-06-29 14:15 - [央视曝光高价回收老物件骗局](http://www.blog.kurohicncr.top/Article/details/083928.shtml)
+- 2026-06-29 14:29 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/90828597.shtml)
+- 2026-06-29 14:21 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/61389619931.shtml)

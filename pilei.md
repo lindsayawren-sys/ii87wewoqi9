@@ -1,56 +1,57 @@
-# 决策日指南：欧洲央行料将维持利率不变 继续耐心评估伊朗局势的影响
+# 中国国际法学会发表声明：美以对伊朗使用武力没有国际法依据
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-欧洲央行周四料将维持利率不变，继续评估对伊朗战争所产生经济影响的应对。 尽管能源成本飙升导致欧元区通胀率远高于目标水平，但经济学家调查预计欧洲央行将存款利率维持在2%不变，自2025年6月以来一直保持在该水平。 决策者关注的重点并非石油和天然气价格的短期波动，而是目前尚不明朗的中期后果。行长克里斯蒂娜·拉加德上周表示，“双重不确定性”冲击的持续时间和传导范围表明需要更多数据。这
+中新网上海4月27日电 (记者 谢雁冰)中国国际法学会25日公开发表《关于呼吁世界各国遵守国际法、反对非法使用武力的声明》。声明称，美以对伊朗使用武力没有国际法依据，是严重的不法行为，应当立刻停止。 声明指出，在过去几个月，在拉美和中东地区发生了严重的非法使用武力情势。我们严厉谴责美国、以色列的不法行为，认为有必要重申遵守《联合国宪章》和国际法，切实维护国际和平与安全。 声明称
 
 ## 正文
 
-欧洲央行周四料将维持利率不变，继续评估对伊朗战争所产生经济影响的应对。
+中新网上海4月27日电 (记者 谢雁冰)中国国际法学会25日公开发表《关于呼吁世界各国遵守国际法、反对非法使用武力的声明》。
 
-尽管能源成本飙升导致欧元区通胀率远高于目标水平，但经济学家调查预计欧洲央行将存款利率维持在2%不变，自2025年6月以来一直保持在该水平。
+声明称，美以对伊朗使用武力没有国际法依据，是严重的不法行为，应当立刻停止。
 
-决策者关注的重点并非石油和天然气价格的短期波动，而是目前尚不明朗的中期后果。
+声明指出，在过去几个月，在拉美和中东地区发生了严重的非法使用武力情势。
 
-行长克里斯蒂娜·拉加德上周表示，“双重不确定性”冲击的持续时间和传导范围表明需要更多数据。
+我们严厉谴责美国、以色列的不法行为，认为有必要重申遵守《联合国宪章》和国际法，切实维护国际和平与安全。
 
-这一表态暗示欧洲央行并不急于采取行动。
+声明称，《联合国宪章》是战后国际秩序的法律基石。
 
-预测6月将加息25个基点的经济学家和交易员认为，欧洲央行的这种耐心不会持续。
+《宪章》第2条第4款规定了关于禁止使用武力的国际法基本原则：“各会员国在其国际关系上不得使用威胁或武力，或以与联合国宗旨不符之任何其他方法，侵害任何会员国或国家之领土完整或政治独立。
 
-拉加德将会在政策决定公布半小时后举行新闻发布会，届时势必将会被问及货币政策走向。
+”“领土完整”就是“领土的不可侵犯”。
 
-责任编辑：江学思
+《宪章》明文规定的禁止使用武力原则的例外只有两种情况：联合国安理会根据《宪章》第七章授权的行动和行使《宪章》第51条提及的国家固有自卫权。
 
 ## 相关推荐
 
-- 2026-06-29 14:07 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 14:17 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 14:34 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 14:12 - [韩体育部长回应李在明痛批](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 14:11 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-29 14:16 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 14:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-29 14:29 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 14:16 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 14:31 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-29 14:31 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 14:19 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-29 14:27 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-29 14:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 14:37 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-29 14:25 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 14:25 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 14:12 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-29 14:32 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-29 14:19 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-29 14:36 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:15 - [Mrbeast的30天不吃饭挑战](http://www.blog.kurohicncr.top/Article/details/093911.shtml)
-- 2026-06-29 14:32 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/5012629.shtml)
-- 2026-06-29 14:15 - [欧洲人驾车200公里抢购中国空调](http://www.share.kurohicncr.top/Article/details/53659302470.shtml)
-- 2026-06-29 14:15 - [韩体育部长回应李在明痛批](https://www.share.minike.top/Article/details/655670.shtml)
-- 2026-06-29 14:35 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/999464025.shtml)
-- 2026-06-29 14:16 - [在委侨团负责人：家乡的帮助很及时](http://www.blog.minike.top/Article/details/44125090624.shtml)
-- 2026-06-29 14:08 - [肖战深夜到达青岛赴十日终焉片场](https://www.share.kurohicncr.top/Article/details/5895664.shtml)
-- 2026-06-29 14:25 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.kurohicncr.top/Article/details/047466.shtml)
-- 2026-06-29 14:25 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/66390.shtml)
-- 2026-06-29 14:22 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/599346040.shtml)
-- 2026-06-29 14:12 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/442645916313.shtml)
-- 2026-06-29 14:13 - [游戏数据被用于军事目的 国安部提醒](http://www.share.kurohicncr.top/Article/details/14005647.shtml)
-- 2026-06-29 14:06 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/4809844609.shtml)
-- 2026-06-29 14:22 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.minike.top/Article/details/658610221.shtml)
-- 2026-06-29 14:22 - [四川宜宾地震](https://www.share.kurohicncr.top/Article/details/936361.shtml)
+- 2026-06-29 14:15 - [女孩遭霸凌网上认文身大哥求庇护](http://www.share.kurohicncr.top/Article/details/3513796.shtml)
+- 2026-06-29 14:21 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/6546933.shtml)
+- 2026-06-29 14:20 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.blog.minike.top/Article/details/6822900.shtml)
+- 2026-06-29 14:27 - [韩国极端网友对主教练发出死亡威胁](http://www.share.kurohicncr.top/Article/details/036899.shtml)
+- 2026-06-29 14:13 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/4225080.shtml)
+- 2026-06-29 14:18 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/191223.shtml)
+- 2026-06-29 14:38 - [请回答王牌2019](http://www.blog.minike.top/Article/details/92790150.shtml)
+- 2026-06-29 14:39 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/932150.shtml)
+- 2026-06-29 14:38 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.minike.top/Article/details/87762.shtml)
+- 2026-06-29 14:26 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/54289323.shtml)
+- 2026-06-29 14:18 - [撒旦的腋窝是什么比喻](https://www.blog.minike.top/Article/details/593370.shtml)
+- 2026-06-29 14:14 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/8263847178.shtml)
+- 2026-06-29 14:20 - [李在明称韩国足协任命了无能之人](https://www.share.kurohicncr.top/Article/details/946666.shtml)
+- 2026-06-29 14:33 - [中俄联合巡航阵容强大 日本慌了？](https://www.share.kurohicncr.top/Article/details/833481380331.shtml)
+- 2026-06-29 14:23 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.kurohicncr.top/Article/details/743353.shtml)

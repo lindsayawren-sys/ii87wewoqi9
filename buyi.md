@@ -1,53 +1,46 @@
-# 中国有数｜“买全球卖全球”，义乌不断有新纪录
+# 习言道｜政绩观问题是一个根本性问题
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月30日 08:47 来源：三里河 2026年是“十五五”开局之年，也是学习推广“义乌发展经验”20年。2026年一季度，义乌进出口总值达2093.7亿元，创历史同期新高。相比去年，提前一个月突破2000亿元大关；同比增长25%，高于全国进出口增速10个百分点。没有港口，不靠省会辐射，人均耕地不到半亩，义乌硬是在群山之间凿出了一条通往世界的黄金走廊。(查
+政绩观问题是一个根本性问题，关乎立党为公、执政为民。对于政绩观，习近平总书记始终有着深邃思考与明确指引，强调“树立和践行正确政绩观，起决定性作用的是党性”。
 
 ## 正文
 
-发布时间：2026年04月30日 08:47 来源：三里河 2026年是“十五五”开局之年，也是学习推广“义乌发展经验”20年。
+政绩观问题是一个根本性问题，关乎立党为公、执政为民。
 
-2026年一季度，义乌进出口总值达2093.7亿元，创历史同期新高。
-
-相比去年，提前一个月突破2000亿元大关；同比增长25%，高于全国进出口增速10个百分点。
-
-没有港口，不靠省会辐射，人均耕地不到半亩，义乌硬是在群山之间凿出了一条通往世界的黄金走廊。
-
-(查志远 黄蕾） 责任编辑：【程春雨】
+对于政绩观，习近平总书记始终有着深邃思考与明确指引，强调“树立和践行正确政绩观，起决定性作用的是党性”。
 
 ## 相关推荐
 
-- 2026-06-29 14:08 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-29 14:07 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 14:07 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-29 14:21 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 14:29 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 14:30 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 14:21 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-29 14:12 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-29 14:24 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-29 14:14 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-29 14:18 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 14:28 - [手游300亿数据或被军事化运用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-29 14:21 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 14:40 - [血糖高的人能吃西瓜吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-29 14:32 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 14:26 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-29 14:23 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 14:18 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 14:25 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-29 14:28 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-29 14:13 - [张真源解读相思锁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 14:31 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 14:27 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-29 14:14 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-29 14:26 - [强⁶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:11 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/855185361283.shtml)
-- 2026-06-29 14:06 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/679458.shtml)
-- 2026-06-29 14:20 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.kurohicncr.top/Article/details/93181378.shtml)
-- 2026-06-29 14:29 - [世界杯超牛补水广告出现了](https://www.blog.minike.top/Article/details/67762.shtml)
-- 2026-06-29 14:20 - [韩国记者：解码“合肥模式”](https://www.blog.minike.top/Article/details/560241739.shtml)
-- 2026-06-29 14:16 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.share.minike.top/Article/details/767578024.shtml)
-- 2026-06-29 14:15 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/90552.shtml)
-- 2026-06-29 14:31 - [金刚川](http://www.share.kurohicncr.top/Article/details/41662.shtml)
-- 2026-06-29 14:06 - [世界杯欧美八大豪强悉数出线](https://www.blog.kurohicncr.top/Article/details/19756465.shtml)
-- 2026-06-29 14:27 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/202871585481.shtml)
-- 2026-06-29 14:30 - [詹俊预测德国大胜巴拉圭](https://www.share.kurohicncr.top/Article/details/517138497356.shtml)
-- 2026-06-29 14:35 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.minike.top/Article/details/14664903189.shtml)
-- 2026-06-29 14:29 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/77419109829.shtml)
-- 2026-06-29 14:25 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/2507964.shtml)
-- 2026-06-29 14:28 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/13035107.shtml)
+- 2026-06-29 14:33 - [四川宜宾地震](https://www.blog.kurohicncr.top/Article/details/45429564.shtml)
+- 2026-06-29 14:21 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/17728.shtml)
+- 2026-06-29 14:22 - [C罗关心罗德里戈伤情](https://www.share.kurohicncr.top/Article/details/44249754019.shtml)
+- 2026-06-29 14:38 - [事关个税 明日截止请抓紧办理](https://www.share.kurohicncr.top/Article/details/1003466.shtml)
+- 2026-06-29 14:19 - [第一批缉毒警已全体退休](https://www.blog.minike.top/Article/details/041570728.shtml)
+- 2026-06-29 14:27 - [7月1日起一批新规即将落地](https://www.share.minike.top/Article/details/27914518867.shtml)
+- 2026-06-29 14:40 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/831953336.shtml)
+- 2026-06-29 14:40 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/35273.shtml)
+- 2026-06-29 14:26 - [千与千寻](https://www.blog.minike.top/Article/details/415648.shtml)
+- 2026-06-29 14:38 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/6271573358.shtml)
+- 2026-06-29 14:14 - [强⁶](http://www.share.minike.top/Article/details/46311704.shtml)
+- 2026-06-29 14:39 - [李连杰回应网传不管前妻俩女儿](https://www.blog.kurohicncr.top/Article/details/6469126.shtml)
+- 2026-06-29 14:38 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/09391514439.shtml)
+- 2026-06-29 14:38 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.minike.top/Article/details/896462.shtml)
+- 2026-06-29 14:37 - [绘画区你赢了](http://www.share.minike.top/Article/details/8613813897.shtml)

@@ -1,48 +1,56 @@
-# 湖北竹山农村商业银行被罚30万元：漏报案件风险信息
+# 中银国际：五矿资源重申“买入”评级 目标价升至10.71港元
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-4月30日金融一线消息，据国家金融监督管理总局十堰监管分局行政处罚信息公示列表显示，湖北竹山农村商业银行股份有限公司因漏报案件风险信息，被罚款30万元。同时，贺东巅被警告。 责任编辑：秦艺
+中银国际发布研报称，上调五矿资源（01208）目标价至10.71港元，重申“买入”评级。 该行表示，五矿资源2026年第一季铜产量同比增9%，主要得益于金塞维尔矿区的强劲增长和拉斯班巴斯矿区的稳健增长。更重要的是，其黄金和白银产量分别同比增长24%和27%，拉斯班巴斯矿区和罗斯伯里矿区均实现了强劲增长。贵金属产量的大幅增长也使得相关矿山的C1成本降低。 该行表示，尽管贵金属产量
 
 ## 正文
 
-4月30日金融一线消息，据国家金融监督管理总局十堰监管分局行政处罚信息公示列表显示，湖北竹山农村商业银行股份有限公司因漏报案件风险信息，被罚款30万元。
+中银国际发布研报称，上调五矿资源（01208）目标价至10.71港元，重申“买入”评级。
 
-同时，贺东巅被警告。
+该行表示，五矿资源2026年第一季铜产量同比增9%，主要得益于金塞维尔矿区的强劲增长和拉斯班巴斯矿区的稳健增长。
 
-责任编辑：秦艺
+更重要的是，其黄金和白银产量分别同比增长24%和27%，拉斯班巴斯矿区和罗斯伯里矿区均实现了强劲增长。
+
+贵金属产量的大幅增长也使得相关矿山的C1成本降低。
+
+该行表示，尽管贵金属产量的强劲增长势头可能无法持续全年，但仍将2026-2028年的盈利预测上调1%-2%。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:23 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-29 14:29 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-29 14:17 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-29 14:25 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-29 14:25 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-29 14:13 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-29 14:25 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 14:21 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-29 14:11 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-29 14:09 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-29 14:33 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 14:29 - [上班主打一个薪尽自然凉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-29 14:36 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-29 14:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 14:17 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 14:12 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 14:28 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 14:35 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 14:15 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 14:21 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-29 14:21 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 14:34 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 14:31 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 14:32 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 14:34 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-29 14:32 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:21 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/6525945.shtml)
-- 2026-06-29 14:13 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/60108129710.shtml)
-- 2026-06-29 14:22 - [王楚钦 表演球擦网](http://www.share.kurohicncr.top/Article/details/7517421.shtml)
-- 2026-06-29 14:29 - [欧委会总部只给高层开空调](http://www.share.minike.top/Article/details/35502166.shtml)
-- 2026-06-29 14:18 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/9695528.shtml)
-- 2026-06-29 14:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/570512557.shtml)
-- 2026-06-29 14:24 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.minike.top/Article/details/81324099.shtml)
-- 2026-06-29 14:07 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/336698.shtml)
-- 2026-06-29 14:29 - [金刚川](https://www.blog.kurohicncr.top/Article/details/1905762.shtml)
-- 2026-06-29 14:28 - [佛得角到底在哪个“角”](https://www.share.kurohicncr.top/Article/details/70964852725.shtml)
-- 2026-06-29 14:31 - [叶一茜森碟一起回北京了](https://www.blog.minike.top/Article/details/476947127.shtml)
-- 2026-06-29 14:33 - [乔家的儿女](http://www.blog.minike.top/Article/details/8267007445.shtml)
-- 2026-06-29 14:16 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/3208742.shtml)
-- 2026-06-29 14:29 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/305123.shtml)
-- 2026-06-29 14:35 - [尹恩惠自曝14年没谈过恋爱](http://www.share.minike.top/Article/details/30582669.shtml)
+- 2026-06-29 14:12 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/88729399.shtml)
+- 2026-06-29 14:37 - [链博会上的机器人太全能了](https://www.share.minike.top/Article/details/3068759.shtml)
+- 2026-06-29 14:20 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.blog.minike.top/Article/details/6931038.shtml)
+- 2026-06-29 14:29 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/3508726512.shtml)
+- 2026-06-29 14:34 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.share.minike.top/Article/details/31826331661.shtml)
+- 2026-06-29 14:19 - [葫芦岛居民楼爆炸致3失联8伤](http://www.blog.minike.top/Article/details/50861296604.shtml)
+- 2026-06-29 14:40 - [古力娜扎美出新高度](https://www.share.kurohicncr.top/Article/details/5088686591.shtml)
+- 2026-06-29 14:19 - [美媒：空警-3000服役即成全球最强](http://www.share.kurohicncr.top/Article/details/677183019.shtml)
+- 2026-06-29 14:22 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/76645.shtml)
+- 2026-06-29 14:16 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/4594078071.shtml)
+- 2026-06-29 14:23 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/8483810528.shtml)
+- 2026-06-29 14:41 - [俄军新型无人机战力如何](https://www.blog.minike.top/Article/details/26244813.shtml)
+- 2026-06-29 14:12 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/74342.shtml)
+- 2026-06-29 14:28 - [恋与深空失控领地](https://www.share.kurohicncr.top/Article/details/0771495769.shtml)
+- 2026-06-29 14:20 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/78741331456.shtml)

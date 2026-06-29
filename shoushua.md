@@ -1,55 +1,59 @@
-# 鲍威尔称因遭“法律攻击”而决定留任美联储理事会
+# 专家：肺癌胃癌的早期症状有迹可循 科学防癌牢记“三个三分之一”
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-专题：美联储议息会 鲍威尔绝唱 料仍按兵不动 美联储主席鲍威尔在开场发言中解释了自己决定在下月主席任期结束后继续留任美联储理事会的原因。 鲍威尔表示，近期针对美联储前所未有的法律攻击正在重创该机构，并使其在不受政治影响情况下执行货币政策的能力面临风险。 他特别指出，自己决定留任“与民选官员的口头批评毫无任何关系”，而是直接源于当前持续的法律威胁。 鲍威尔承诺，他将在理事会中保持
+中新网北京4月27日电(记者 赵方园)“如果出现不明原因地干性、刺激性咳嗽，偶尔痰中带血丝，并且出现连续两周，要高度警惕早期肺癌风险。”近期，“助力健康中国行动——中国健康知识传播激励计划全国肿瘤防治宣传周健康科普活动”在京举办，会上，天津医科大学肿瘤医院肺部肿瘤科主任医师王长利表示，晚期肺癌可能会出现胸部疼痛、呼吸困难，甚至乏力、消瘦等症状。王长利指出，许多肺癌早期是没有症状
 
 ## 正文
 
-专题：美联储议息会 鲍威尔绝唱 料仍按兵不动 美联储主席鲍威尔在开场发言中解释了自己决定在下月主席任期结束后继续留任美联储理事会的原因。
+中新网北京4月27日电(记者 赵方园)“如果出现不明原因地干性、刺激性咳嗽，偶尔痰中带血丝，并且出现连续两周，要高度警惕早期肺癌风险。
 
-鲍威尔表示，近期针对美联储前所未有的法律攻击正在重创该机构，并使其在不受政治影响情况下执行货币政策的能力面临风险。
+”近期，“助力健康中国行动——中国健康知识传播激励计划全国肿瘤防治宣传周健康科普活动”在京举办，会上，天津医科大学肿瘤医院肺部肿瘤科主任医师王长利表示，晚期肺癌可能会出现胸部疼痛、呼吸困难，甚至乏力、消瘦等症状。
 
-他特别指出，自己决定留任“与民选官员的口头批评毫无任何关系”，而是直接源于当前持续的法律威胁。
+王长利指出，许多肺癌早期是没有症状的，而低剂量螺旋CT是目前国际公认安全有效的肺癌筛查手段。
 
-鲍威尔承诺，他将在理事会中保持低调，但会继续任职一段时间，任期“待定”。
+其辐射剂量低、检测精度高，能够发现毫米级早期病灶。
 
-责任编辑：李桐
+有数据显示通过低剂量螺旋CT筛查可降低20%的肺癌死亡率。
+
+王长利建议50岁以上有吸烟史、肿瘤家族史、长期接触环境污染物或厨房油烟的高危人群，应当每年进行筛查，尽早发现风险并开展干预。
+
+北京大学肿瘤医院消化肿瘤内科主任、中国临床肿瘤学会胃癌专委会主任委员沈琳指出，胃癌的发生与多种因素密切相关，包括喜欢吃腌制食物、长期吃霉变食物、长期抽烟饮酒、幽门螺杆菌感染以及肿瘤家族病史等。
+
+部分胃癌患者在早期就会出现一些值得警惕的症状，例如进食时的梗阻感、胃痛原有的节律发生改变(比如进食时感到不适，或者原本因溃疡引起的饥饿性疼痛变得毫无规律)。
 
 ## 相关推荐
 
-- 2026-06-29 14:15 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-29 14:14 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-29 14:25 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-29 14:17 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-29 14:08 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 14:13 - [汪东城回应45岁婚约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-29 14:20 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-29 14:12 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 14:06 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 14:31 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-29 14:10 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 14:08 - [王祖蓝现场观看美加墨世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 14:09 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-29 14:15 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 14:32 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-29 14:31 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 14:31 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 14:13 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 14:13 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-29 14:35 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-29 14:12 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-29 14:29 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-29 14:36 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 14:18 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 14:25 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 14:30 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 14:16 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 14:15 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:09 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.kurohicncr.top/Article/details/13074980567.shtml)
-- 2026-06-29 14:21 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/7943466.shtml)
-- 2026-06-29 14:15 - [每代父母都困在自己的时代里](https://www.blog.kurohicncr.top/Article/details/51298885687.shtml)
-- 2026-06-29 14:12 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.kurohicncr.top/Article/details/941877.shtml)
-- 2026-06-29 14:12 - [俄称继续推进 乌称打击俄军设施](http://www.blog.kurohicncr.top/Article/details/0173353.shtml)
-- 2026-06-29 14:10 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/20768.shtml)
-- 2026-06-29 14:20 - [恋与深空评分暴跌至1.8](https://www.share.kurohicncr.top/Article/details/54458.shtml)
-- 2026-06-29 14:21 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/999948.shtml)
-- 2026-06-29 14:14 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/7621356245.shtml)
-- 2026-06-29 14:31 - [Mrbeast的30天不吃饭挑战](http://www.share.kurohicncr.top/Article/details/196155530039.shtml)
-- 2026-06-29 14:11 - [法拉利被4个孩子当滑梯玩](https://www.blog.kurohicncr.top/Article/details/202851596.shtml)
-- 2026-06-29 14:08 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.minike.top/Article/details/28068.shtml)
-- 2026-06-29 14:10 - [每代父母都困在自己的时代里](https://www.share.kurohicncr.top/Article/details/88190.shtml)
-- 2026-06-29 14:19 - [久坐小心“死臀综合征”](http://www.blog.kurohicncr.top/Article/details/57106842.shtml)
-- 2026-06-29 14:24 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.kurohicncr.top/Article/details/90346924251.shtml)
+- 2026-06-29 14:26 - [加拿大女球迷玩人浪把手机甩飞](https://www.share.kurohicncr.top/Article/details/63998.shtml)
+- 2026-06-29 14:33 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/5605221.shtml)
+- 2026-06-29 14:25 - [退休化学教授帮医药研发人员制毒](http://www.blog.minike.top/Article/details/897686.shtml)
+- 2026-06-29 14:37 - [6月我国降水为何偏多](https://www.share.kurohicncr.top/Article/details/62359268892.shtml)
+- 2026-06-29 14:23 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.minike.top/Article/details/933068403054.shtml)
+- 2026-06-29 14:25 - [女心理师](https://www.blog.minike.top/Article/details/225166.shtml)
+- 2026-06-29 14:37 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.minike.top/Article/details/91796.shtml)
+- 2026-06-29 14:15 - [智界V9成为高端圈层共同选择](http://www.share.kurohicncr.top/Article/details/2495859967.shtml)
+- 2026-06-29 14:39 - [四川宜宾地震](https://www.blog.minike.top/Article/details/689682.shtml)
+- 2026-06-29 14:39 - [光与夜之恋](http://www.blog.kurohicncr.top/Article/details/048349466.shtml)
+- 2026-06-29 14:17 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/37214.shtml)
+- 2026-06-29 14:25 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/63873631681.shtml)
+- 2026-06-29 14:23 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/26162.shtml)
+- 2026-06-29 14:24 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.blog.kurohicncr.top/Article/details/649237.shtml)
+- 2026-06-29 14:16 - [王祖蓝现场观看美加墨世界杯](http://www.share.kurohicncr.top/Article/details/814780747063.shtml)

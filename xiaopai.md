@@ -1,56 +1,58 @@
-# 易华录遭证监会立案！符合条件投资者可登记索赔
+# 龙永图：只有全球力量平衡、经济共同发展，才能产生相对健康公平的全球化
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-根据最新消息，北京易华录（维权）信息技术股份有限公司（以下简称“易华录”）因涉嫌信披违法违规，被中国证监会立案调查。上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2026年4月29日之前买入且有持仓，无论在2026年4月29日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿登记索赔。（赵敬国律师专栏） 回顾本案， 2026年4月29
+专题：第十二届中国与全球化研讨会 4月26日，第十二届中国与全球化研讨会在北京举办，主题为“创新全球化：新动力与新挑战”。中国外经贸部前副部长、博鳌亚洲论坛前秘书长龙永图表示，对全球化的前景是乐观的，这个观察主要基于对新的现代科学技术发展的前景感到乐观。 他提到，过去大家认为推动全球化的力量主要有三种——政府的力量、市场的力量、科学技术的力量近年来，一些国家对全球化的看法发生了
 
 ## 正文
 
-根据最新消息，北京易华录（维权）信息技术股份有限公司（以下简称“易华录”）因涉嫌信披违法违规，被中国证监会立案调查。
+专题：第十二届中国与全球化研讨会 4月26日，第十二届中国与全球化研讨会在北京举办，主题为“创新全球化：新动力与新挑战”。
 
-上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2026年4月29日之前买入且有持仓，无论在2026年4月29日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿登记索赔。
+中国外经贸部前副部长、博鳌亚洲论坛前秘书长龙永图表示，对全球化的前景是乐观的，这个观察主要基于对新的现代科学技术发展的前景感到乐观。
 
-（赵敬国律师专栏） 回顾本案， 2026年4月29日易华录发布《关于收到中国证券监督管理委员会立案告知书的公告》，公告显示易华录因涉嫌信披违法违规被中国证监会立案调查。
+他提到，过去大家认为推动全球化的力量主要有三种——政府的力量、市场的力量、科学技术的力量近年来，一些国家对全球化的看法发生了重大改变，而全球经济又起伏不定。
 
-信本股民索赔团队提醒，易华录因涉嫌信披违法违规被中国证监会立案，受损投资者可通过“新浪股民维权平台”自愿登记索赔。
+所以大家觉得政府的力量、市场的力量靠不住，最重要的力量还是来自科学技术的力量。
 
-索赔条件： 易华录：于2026年4月29日之前买入且有持仓，无论在2026年4月29日及之后是否卖出（具体赔付范围由法院确定）（易华录维权入口） （本文由上海市信本律师事务所合伙人赵敬国律师供稿，不代表新浪财经的观点。
+龙永图指出，这些年来，以人工智能为代表的新的科学技术迅猛发展，科学技术的发展是没有国界的，把全世界越来越多的国家联系在一起。
 
-赵敬国律师，于1999年取得律师资格，法学理论知识扎实，曾在高校任教。
+同时，科学技术的发展也有其自身的规律，不以人的意志而改变，受国际经济关系政治化的影响较小。
 
-2004年起开始律师执业，承办过千余起各类诉讼案件，积累了十分丰富的争议处理经验，尤其擅长处理证券纠纷、金融、不良资产等方面的业务。
+在现代科学技术的推动之下，许多国家特别是新兴发展中国家迅速崛起，使得全球力量的对比更加平衡。
 
-执业至今，赵敬国律师代理投资者诉多家上市公司索赔案件，已经胜诉或已经获赔的案件包括中安科索赔、中兵红箭索赔、步森服饰索赔、中潜股份索赔、奥瑞德索赔、獐子岛索赔、天神娱乐索赔、抚顺特钢索赔、飞乐音响索赔、香溢融通索赔、延安必康索赔、欢瑞世纪（维权）索赔、紫晶存储索赔、泽达易盛索赔、安妮股份索赔等。
+“只有全球力量平衡、经济共同发展才可能产生一个相对健康、公平的全球化。
 
 ## 相关推荐
 
-- 2026-06-29 14:18 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 14:33 - [实习期把公司领导开除了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-29 14:11 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-29 14:19 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-29 14:31 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-29 14:07 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-29 14:29 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-29 14:29 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-29 14:06 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 14:07 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-29 14:41 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-29 14:27 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-29 14:35 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-29 14:38 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-29 14:31 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 14:26 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 14:14 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 14:36 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-29 14:31 - [6月我国降水为何偏多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-29 14:23 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 14:36 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-29 14:16 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:35 - [叶一茜森碟一起回北京了](http://www.blog.kurohicncr.top/Article/details/21826675231.shtml)
-- 2026-06-29 14:09 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.share.minike.top/Article/details/42216622767.shtml)
-- 2026-06-29 14:22 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/78013845.shtml)
-- 2026-06-29 14:29 - [如何“亲菌子”又“远小人儿”](https://www.share.minike.top/Article/details/8461012.shtml)
-- 2026-06-29 14:07 - [肖战深夜到达青岛赴十日终焉片场](http://www.share.minike.top/Article/details/29800.shtml)
-- 2026-06-29 14:20 - [105年初心滚烫](http://www.blog.minike.top/Article/details/311903432.shtml)
-- 2026-06-29 14:11 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.kurohicncr.top/Article/details/21535894828.shtml)
-- 2026-06-29 14:14 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/18766171735.shtml)
-- 2026-06-29 14:27 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/726208.shtml)
-- 2026-06-29 14:19 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/115757.shtml)
-- 2026-06-29 14:21 - [我国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/78895929661.shtml)
-- 2026-06-29 14:26 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/2039430.shtml)
-- 2026-06-29 14:32 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/334387143362.shtml)
-- 2026-06-29 14:20 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/658413071.shtml)
-- 2026-06-29 14:07 - [美伊同意停止互袭](https://www.share.kurohicncr.top/Article/details/153692968323.shtml)
+- 2026-06-29 14:19 - [俄称继续推进 乌称打击俄军设施](http://www.blog.kurohicncr.top/Article/details/7923791.shtml)
+- 2026-06-29 14:23 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/1487372.shtml)
+- 2026-06-29 14:23 - [严浩翔FIY断层第一](http://www.blog.kurohicncr.top/Article/details/01776273.shtml)
+- 2026-06-29 14:14 - [教育部发布预警 事关高招录取](https://www.blog.kurohicncr.top/Article/details/872200.shtml)
+- 2026-06-29 14:35 - [发反科学内容为何会有200万粉丝](https://www.share.minike.top/Article/details/99874.shtml)
+- 2026-06-29 14:24 - [唐艺昕女儿接唐艺昕回家](http://www.share.kurohicncr.top/Article/details/410709.shtml)
+- 2026-06-29 14:24 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/35628.shtml)
+- 2026-06-29 14:40 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/4467826.shtml)
+- 2026-06-29 14:39 - [沉睡花园](http://www.blog.minike.top/Article/details/912303352.shtml)
+- 2026-06-29 14:34 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/2885152.shtml)
+- 2026-06-29 14:36 - [孙怡告别浪姐千字文](http://www.share.kurohicncr.top/Article/details/53668200.shtml)
+- 2026-06-29 14:23 - [多家银行收紧个人贵金属业务](http://www.share.kurohicncr.top/Article/details/114290.shtml)
+- 2026-06-29 14:33 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.share.kurohicncr.top/Article/details/003713366.shtml)
+- 2026-06-29 14:16 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.kurohicncr.top/Article/details/83540813175.shtml)
+- 2026-06-29 14:16 - [双高胎](http://www.blog.minike.top/Article/details/625306.shtml)

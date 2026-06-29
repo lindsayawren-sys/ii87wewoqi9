@@ -1,55 +1,54 @@
-# 港澳会客厅｜陈茂波：从经济到民生，香港如何破局谋远？
+# “中文360°”国际中文日庆祝活动在曼谷举办
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月29日 15:07 来源：中国新闻网 2026年4月，香港进入新财政年度。最新出台的香港2026/2027年度财政预算案将今年GDP增长目标设定在2.5%至3.5%，这一设定有何考量？新财年特区政府将如何加大支持持续拉动内需，让市民共享发展成果？“北部都会区”这个香港未来发展的引擎，又有哪些新增长点？ 近日，香港特区政府财政司司长陈茂波接受中新网“港澳
+中新网曼谷4月27日电 (记者 李映民)为庆祝“国际中文日”，深化中泰语言文化交流与民间友好合作，在中国驻泰国大使馆和中国教育部中外语言交流合作中心的指导和支持下，由汉语桥俱乐部曼谷站主办、泰国留学中国大学校友总会承办的“中文360°”国际中文日庆祝活动24日在曼谷成功举办。 中国驻泰国大使馆教育参赞许兰、泰国教育部国际合作司司长吉拉达·占炎、泰中文化促进委员会主席披尼·扎禄颂
 
 ## 正文
 
-发布时间：2026年04月29日 15:07 来源：中国新闻网 2026年4月，香港进入新财政年度。
+中新网曼谷4月27日电 (记者 李映民)为庆祝“国际中文日”，深化中泰语言文化交流与民间友好合作，在中国驻泰国大使馆和中国教育部中外语言交流合作中心的指导和支持下，由汉语桥俱乐部曼谷站主办、泰国留学中国大学校友总会承办的“中文360°”国际中文日庆祝活动24日在曼谷成功举办。
 
-最新出台的香港2026/2027年度财政预算案将今年GDP增长目标设定在2.5%至3.5%，这一设定有何考量？
+中国驻泰国大使馆教育参赞许兰、泰国教育部国际合作司司长吉拉达·占炎、泰中文化促进委员会主席披尼·扎禄颂巴、泰国中华总商会主席林楚钦、泰国留学中国大学校友总会主席苏提空·杰尔帕吞，以及中外语言交流合作中心-曼谷中心副主任王晓艳女士等嘉宾出席活动并致辞。
 
-新财年特区政府将如何加大支持持续拉动内需，让市民共享发展成果？
+中文已成为连接中泰教育、文化与经济的重要纽带，是推动双边关系持续深化的关键力量。
 
-“北部都会区”这个香港未来发展的引擎，又有哪些新增长点？
+本次活动创新打造“360度”全景视角，设置“The Root”“The Bridge”“The Living Language”“Digital Frontier”四大主题展区，将传统文化体验、语言交流、现代生活方式与数字技能展示融为一体，立体呈现了中文在当代社会的广泛应用。
 
-近日，香港特区政府财政司司长陈茂波接受中新网“港澳会客厅”专访时，围绕最新出台的香港2026/2027年度财政预算案，结合香港经济发展现状与未来规划，解读香港经济稳增长、惠民生、谋长远的发展路径。
+活动以机器人太极表演惊艳开幕，随后古筝演奏、中华文化表演、商业论坛及“人类VS AI”口译技能展示轮番上演，生动展现了中文在文化传承、商业应用及科技融合中的强大生命力，为到场观众提供了一场沉浸式的语言文化盛宴。
 
-(记者 戴小橦 温孟馨 孙悦 陈香玉) 责任编辑：【吉翔】
+“中文360°”国际中文日庆祝活动全面体现了中文在文化传播、商业应用与科技融合中的现实价值，进一步推动了中泰两国在语言、文化与社会层面的深度连接。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 14:28 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-29 14:16 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-29 14:24 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-29 14:29 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-29 14:32 - [医药股集体爆发](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-29 14:30 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 14:10 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-29 14:07 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-29 14:18 - [欧委会总部只给高层开空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-29 14:16 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-29 14:12 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 14:28 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 14:15 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 14:19 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-29 14:21 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 14:39 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-29 14:30 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-29 14:33 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 14:36 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-29 14:17 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 14:36 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-29 14:32 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 14:16 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:14 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/652584.shtml)
-- 2026-06-29 14:35 - [国家体育总局政策法规司原副司长获刑](http://www.blog.kurohicncr.top/Article/details/802284.shtml)
-- 2026-06-29 14:23 - [爸爸当家](http://www.share.minike.top/Article/details/4631770.shtml)
-- 2026-06-29 14:33 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/99628.shtml)
-- 2026-06-29 14:18 - [国家体育总局政策法规司原副司长获刑](https://www.blog.minike.top/Article/details/25743441.shtml)
-- 2026-06-29 14:18 - [宜宾发生5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/24384.shtml)
-- 2026-06-29 14:19 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/554173901.shtml)
-- 2026-06-29 14:32 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.kurohicncr.top/Article/details/54489894.shtml)
-- 2026-06-29 14:32 - [比亚迪为什么卖得越多市值越低](http://www.blog.minike.top/Article/details/1521051.shtml)
-- 2026-06-29 14:06 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/25504.shtml)
-- 2026-06-29 14:08 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.minike.top/Article/details/98751171426.shtml)
-- 2026-06-29 14:20 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.share.minike.top/Article/details/02112.shtml)
-- 2026-06-29 14:09 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/62824.shtml)
-- 2026-06-29 14:12 - [教育部发布高考志愿填报预警](http://www.share.minike.top/Article/details/162869432.shtml)
-- 2026-06-29 14:29 - [多只A股发布股价异动公告](http://www.blog.kurohicncr.top/Article/details/0435653.shtml)
+- 2026-06-29 14:35 - [爸爸当家](http://www.blog.kurohicncr.top/Article/details/51808206.shtml)
+- 2026-06-29 14:15 - [爱很美味](http://www.blog.minike.top/Article/details/063316.shtml)
+- 2026-06-29 14:25 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/94087634.shtml)
+- 2026-06-29 14:22 - [巴西国脚说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/617444.shtml)
+- 2026-06-29 14:17 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.share.kurohicncr.top/Article/details/7983364.shtml)
+- 2026-06-29 14:33 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.minike.top/Article/details/015906803.shtml)
+- 2026-06-29 14:18 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.minike.top/Article/details/511964277.shtml)
+- 2026-06-29 14:32 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/54561637.shtml)
+- 2026-06-29 14:40 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.kurohicncr.top/Article/details/360815487062.shtml)
+- 2026-06-29 14:12 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/9958064375.shtml)
+- 2026-06-29 14:14 - [20年前的周杰伦](http://www.share.minike.top/Article/details/40237209.shtml)
+- 2026-06-29 14:33 - [美伊同意停止互袭 30日在多哈谈判](http://www.share.kurohicncr.top/Article/details/089873.shtml)
+- 2026-06-29 14:37 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/766539620.shtml)
+- 2026-06-29 14:26 - [和阿根廷球员家属一起看球](https://www.share.minike.top/Article/details/00672466.shtml)
+- 2026-06-29 14:26 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/523597806.shtml)

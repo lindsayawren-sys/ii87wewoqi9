@@ -1,45 +1,56 @@
-# 五一假期来临，国家应急管理部发布安全提示
+# 学习总书记就服务业发展作出重要指示精神述评之一
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-2026年“五一”假期安全提示 制图：尹彦博
+原标题：聚焦服务业扩能提质｜需求牵引 推动服务业扩能提质——学习贯彻习近平总书记就服务业发展作出重要指示精神系列述评之一 新华社北京4月23日电 题：需求牵引 推动服务业扩能提质——学习贯彻习近平总书记就服务业发展作出重要指示精神系列述评之一 新华社记者魏弘毅 近日，全国服务业大会在北京召开，会上传达了习近平总书记就服务业发展作出的重要指示。习近平总书记强调“突出需求牵引、改革
 
 ## 正文
 
-2026年“五一”假期安全提示 制图：尹彦博
+原标题：聚焦服务业扩能提质｜需求牵引 推动服务业扩能提质——学习贯彻习近平总书记就服务业发展作出重要指示精神系列述评之一 新华社北京4月23日电 题：需求牵引 推动服务业扩能提质——学习贯彻习近平总书记就服务业发展作出重要指示精神系列述评之一 新华社记者魏弘毅 近日，全国服务业大会在北京召开，会上传达了习近平总书记就服务业发展作出的重要指示。
+
+习近平总书记强调“突出需求牵引、改革攻坚、科技赋能、开放合作”，“需求牵引”列首位。
+
+服务业的本质是用服务来满足需求、创造价值，为企业生产和居民生活提供支撑保障。
+
+需求的扩张与升级，是服务业扩能提质的重要驱动力。
+
+突出需求牵引，是释放服务业潜能的必然要求。
+
+习近平总书记指出：“党的十八大以来，我国服务业规模稳步扩大，质效持续提升，在支撑产业升级、满足民生需要、带动就业扩容等方面发挥了重要作用。
+
+”2025年，我国服务业对国民经济增长的贡献率高达61.4%，服务业规模已连续10余年占据国民经济半壁江山。
+
+同时也要看到，“十五五”开局起步，我国经济正处于转型升级关键阶段，增长模式、发展动能、产业结构等面临深刻调整。
 
 ## 相关推荐
 
-- 2026-06-29 14:21 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 14:27 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-29 14:22 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-29 14:32 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-29 14:18 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 14:07 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 14:21 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-29 14:20 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 14:17 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-29 14:19 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 14:11 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 14:07 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-29 14:14 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 14:22 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 14:12 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 14:23 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-29 14:15 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 14:39 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-29 14:35 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 14:34 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 14:12 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-29 14:20 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-29 14:20 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:28 - [灿如繁星定档](http://www.blog.minike.top/Article/details/28317.shtml)
-- 2026-06-29 14:09 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/9756755.shtml)
-- 2026-06-29 14:23 - [恋与深空评分暴跌至1.8](http://www.blog.minike.top/Article/details/68047.shtml)
-- 2026-06-29 14:17 - [送你一朵小红花](https://www.share.minike.top/Article/details/462029662.shtml)
-- 2026-06-29 14:12 - [高市早苗口齿不清被质疑醉酒](http://www.blog.minike.top/Article/details/621889873.shtml)
-- 2026-06-29 14:21 - [斗破苍穹](http://www.blog.minike.top/Article/details/4185963544.shtml)
-- 2026-06-29 14:30 - [这开放世界游戏，竟然允许玩家屠城？](https://www.share.kurohicncr.top/Article/details/402606.shtml)
-- 2026-06-29 14:16 - [小S在香港被偶遇](https://www.share.minike.top/Article/details/3343870.shtml)
-- 2026-06-29 14:34 - [未来5年全国能源体系将呈现这些特征](http://www.share.kurohicncr.top/Article/details/05183992.shtml)
-- 2026-06-29 14:10 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/161612976977.shtml)
-- 2026-06-29 14:14 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.minike.top/Article/details/57751.shtml)
-- 2026-06-29 14:24 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.minike.top/Article/details/9145913.shtml)
-- 2026-06-29 14:28 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/62964.shtml)
-- 2026-06-29 14:06 - [如果你一直单身，你准备怎么养老？](https://www.blog.minike.top/Article/details/2341381.shtml)
-- 2026-06-29 14:07 - [F1奥地利正赛战报](http://www.share.kurohicncr.top/Article/details/71817590.shtml)
+- 2026-06-29 14:25 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/896263511.shtml)
+- 2026-06-29 14:14 - [曝歌手第七期帮唱阵容](https://www.share.minike.top/Article/details/98994.shtml)
+- 2026-06-29 14:21 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.minike.top/Article/details/41598.shtml)
+- 2026-06-29 14:23 - [巴西德国15次闯进世界杯淘汰赛](http://www.blog.minike.top/Article/details/345750.shtml)
+- 2026-06-29 14:18 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.kurohicncr.top/Article/details/5628772.shtml)
+- 2026-06-29 14:21 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.share.minike.top/Article/details/46278909738.shtml)
+- 2026-06-29 14:27 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/66689.shtml)
+- 2026-06-29 14:17 - [王楚钦 表演球擦网](http://www.share.kurohicncr.top/Article/details/0986128075.shtml)
+- 2026-06-29 14:41 - [Mrbeast的30天不吃饭挑战](https://www.share.kurohicncr.top/Article/details/5572374.shtml)
+- 2026-06-29 14:16 - [AG 钟意](http://www.share.minike.top/Article/details/9766814.shtml)
+- 2026-06-29 14:19 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/3222781546.shtml)
+- 2026-06-29 14:16 - [日本主帅：目标是冠军](https://www.blog.kurohicncr.top/Article/details/500452728.shtml)
+- 2026-06-29 14:21 - [日本主教练回应迎战巴西](https://www.share.kurohicncr.top/Article/details/25772021616.shtml)
+- 2026-06-29 14:27 - [吴海燕兰西雅漫步复兴岛](http://www.share.minike.top/Article/details/481387.shtml)
+- 2026-06-29 14:37 - [第一批缉毒警已全体退休](https://www.share.minike.top/Article/details/246868447013.shtml)

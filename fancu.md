@@ -1,58 +1,56 @@
-# 外媒：土耳其拒绝以色列总统专机飞越其领空
+# 火山引擎北京车展发布新一代汽车AI方案，豆包大模型搭载超700万辆车
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-中新网4月29日电 综合外媒28日报道，土耳其拒绝以色列总统赫尔佐格的专机飞越其领空前往阿斯塔纳。 土耳其《今日报》援引以色列媒体报道称，当地时间27日，应哈萨克斯坦总统托卡耶夫的邀请，以色列总统赫尔佐格启程前往哈萨克斯坦首都阿斯塔纳，进行为期两天的正式外交访问。途中，其专机采取了替代航线，以避开土耳其领空。 以色列媒体称，这次绕行是出于“安全、外交和操作方面”的考虑，赫尔佐格
+4月24日，北京车展开幕首日，火山引擎发布基于Agentic AI架构的新一代汽车AI解决方案，包含AI座舱套件方案、豆包座舱助手方案两大解决方案。 基于行业首个全链路端到端AI座舱架构，本次发布的全新解决方案彻底颠覆了上一代智能座舱“意图分域+多 Agent协同”的语音助手架构，通过一个AI大脑深度联动整车，打通车控、导航、智驾等关键功能域，实现"感知-推理-执行-记忆-学习
 
 ## 正文
 
-中新网4月29日电 综合外媒28日报道，土耳其拒绝以色列总统赫尔佐格的专机飞越其领空前往阿斯塔纳。
+4月24日，北京车展开幕首日，火山引擎发布基于Agentic AI架构的新一代汽车AI解决方案，包含AI座舱套件方案、豆包座舱助手方案两大解决方案。
 
-土耳其《今日报》援引以色列媒体报道称，当地时间27日，应哈萨克斯坦总统托卡耶夫的邀请，以色列总统赫尔佐格启程前往哈萨克斯坦首都阿斯塔纳，进行为期两天的正式外交访问。
+基于行业首个全链路端到端AI座舱架构，本次发布的全新解决方案彻底颠覆了上一代智能座舱“意图分域+多 Agent协同”的语音助手架构，通过一个AI大脑深度联动整车，打通车控、导航、智驾等关键功能域，实现"感知-推理-执行-记忆-学习"一体化闭环。
 
-途中，其专机采取了替代航线，以避开土耳其领空。
+新技术架构下，火山引擎面向汽车行业提供两套不同方式的合作方案。
 
-以色列媒体称，这次绕行是出于“安全、外交和操作方面”的考虑，赫尔佐格的专机会避开包括土耳其在内的某些空域。
+其中，AI座舱套件方案基于已经广泛量产落地的豆包大模型智能座舱方案，进一步做了Agentic化的架构升级，车企可以按需灵活配置上车。
 
-黎巴嫩“广场电视台”援引土耳其民航新闻网站报道称，赫尔佐格的专机前往阿斯塔纳时，被土耳其拒绝飞越其领空。
+豆包座舱助手方案是完整的产品级交付，并与豆包APP互联互通、能力同步进化，将在今年年内量产上车。
 
-据报道，原定航线计划途经土耳其、亚美尼亚和阿塞拜疆。
+发布会上，火山引擎总裁谭待公布了汽车行业最新成绩单。
 
-在土耳其拒绝开放领空后，专机改道飞越欧洲和俄罗斯，导致从特拉维夫到阿斯塔纳的航程延长至约8小时。
+目前，火山引擎已经与100%主流车企合作推动AI创新。
 
-俄罗斯卫星通讯社援引土耳其外交消息人士的话称，土耳其领空禁止所有载有武器的飞机和以色列官方代表团通行，但对来自第三国的定期民用航班开放，以色列航空公司可以使用土耳其领空进行过境飞行。
+搭载豆包大模型的智能汽车已超过700万辆，覆盖超50个汽车品牌、145个车型，搭载量稳居行业第一。
 
 ## 相关推荐
 
-- 2026-06-29 14:14 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-29 14:19 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 14:33 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 14:29 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 14:34 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 14:29 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 14:30 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-29 14:18 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 14:35 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 14:28 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-29 14:16 - [手游300亿数据或被军事化运用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-29 14:18 - [宜宾5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 14:13 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 14:29 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-29 14:20 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-29 14:19 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 14:35 - [强⁶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 14:20 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 14:24 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 14:19 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 14:24 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-29 14:14 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:14 - [下飞机后，我做了个很蠢的决定......](http://www.blog.minike.top/Article/details/97268825.shtml)
-- 2026-06-29 14:22 - [千与千寻](https://www.share.minike.top/Article/details/9269839.shtml)
-- 2026-06-29 14:31 - [曾沛慈夺冠后人气](http://www.share.kurohicncr.top/Article/details/2715815.shtml)
-- 2026-06-29 14:28 - [当我回母校教书](http://www.share.minike.top/Article/details/727591616037.shtml)
-- 2026-06-29 14:17 - [韩国队启程回国众将回避镜头](https://www.share.minike.top/Article/details/101802906.shtml)
-- 2026-06-29 14:11 - [加拿大绝杀南非晋级](http://www.share.minike.top/Article/details/32672354.shtml)
-- 2026-06-29 14:29 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/57084873.shtml)
-- 2026-06-29 14:34 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/880133280.shtml)
-- 2026-06-29 14:31 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/003218514.shtml)
-- 2026-06-29 14:10 - [市民骑哈啰单车79分钟被收费30元](http://www.share.minike.top/Article/details/994856.shtml)
-- 2026-06-29 14:08 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.kurohicncr.top/Article/details/98684154.shtml)
-- 2026-06-29 14:10 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/351916193.shtml)
-- 2026-06-29 14:25 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.share.kurohicncr.top/Article/details/74038.shtml)
-- 2026-06-29 14:24 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/02721178525.shtml)
-- 2026-06-29 14:23 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/630286797188.shtml)
+- 2026-06-29 14:32 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/47627325762.shtml)
+- 2026-06-29 14:25 - [日本主教练回应迎战巴西](https://www.blog.kurohicncr.top/Article/details/8269903.shtml)
+- 2026-06-29 14:25 - [佛得角到底在哪个“角”](https://www.blog.kurohicncr.top/Article/details/4391422.shtml)
+- 2026-06-29 14:12 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/439539.shtml)
+- 2026-06-29 14:24 - [四川宜宾地震](http://www.blog.minike.top/Article/details/122080223.shtml)
+- 2026-06-29 14:31 - [刘仲华院士愿当贺永辉导师](https://www.share.minike.top/Article/details/01905241.shtml)
+- 2026-06-29 14:17 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/7148387420.shtml)
+- 2026-06-29 14:33 - [Agent带来token消耗爆炸](http://www.share.kurohicncr.top/Article/details/03947529.shtml)
+- 2026-06-29 14:29 - [宜宾5.5级地震 成都震感明显](http://www.blog.kurohicncr.top/Article/details/74597958913.shtml)
+- 2026-06-29 14:24 - [智界V9成为高端圈层共同选择](http://www.share.minike.top/Article/details/66029271868.shtml)
+- 2026-06-29 14:21 - [3D打印不是工业革命，它是……](https://www.share.kurohicncr.top/Article/details/15520803.shtml)
+- 2026-06-29 14:23 - [周锡玮：做堂堂正正的中国人](http://www.share.minike.top/Article/details/983077423734.shtml)
+- 2026-06-29 14:31 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/29495655219.shtml)
+- 2026-06-29 14:37 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/5888162660.shtml)
+- 2026-06-29 14:31 - [宜宾5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/011322738.shtml)

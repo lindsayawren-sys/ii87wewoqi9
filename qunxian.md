@@ -1,58 +1,44 @@
-# “长寿维生素”利好来了，拟进入新食品原料！这些公司已布局
+# Intellia公布里程碑式三期临床成功
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-“长寿维生素”——麦角硫因拟被列入新食品原料。 日前，国家食品安全风险评估中心发布关于《葡糖基橙皮苷等4种新食品原料公开征求意见》，包括L-麦角硫因在内的4种原料通过专家评审委员会技术审查，拟列入新食品原料。 这标志着麦角硫因作为食品原料的合法化进程步入冲刺阶段——在上述征求意见完成后，经国家卫生健康委批准，最终进入食品原料目录。 图片来源：国家食品安全风险评估中心 抗衰界“黑
+Intellia Therapeutics表示，其针对遗传性血管性水肿的体内CRISPR候选药物相比安慰剂将发作率降低了87%，并已开始向FDA滚动提交申请，目标是在2027年于美国上市。责任编辑：张俊 SF065
 
 ## 正文
 
-“长寿维生素”——麦角硫因拟被列入新食品原料。
+Intellia Therapeutics表示，其针对遗传性血管性水肿的体内CRISPR候选药物相比安慰剂将发作率降低了87%，并已开始向FDA滚动提交申请，目标是在2027年于美国上市。
 
-日前，国家食品安全风险评估中心发布关于《葡糖基橙皮苷等4种新食品原料公开征求意见》，包括L-麦角硫因在内的4种原料通过专家评审委员会技术审查，拟列入新食品原料。
-
-这标志着麦角硫因作为食品原料的合法化进程步入冲刺阶段——在上述征求意见完成后，经国家卫生健康委批准，最终进入食品原料目录。
-
-图片来源：国家食品安全风险评估中心 抗衰界“黑马”，曾引发争论 麦角硫因是一种抗氧化氨基酸类物质，被誉为“长寿维生素”，是抗衰界的“黑马”，因具有抗氧化、抗炎、线粒体修复、神经保护等多重机制延缓衰老，被广泛应用于化妆品、功能食品和药品等领域。
-
-它最早由法国药剂师于1909年在研究破坏黑麦谷物的麦角真菌时发现，人自身不能直接合成该物质，只能通过膳食获取。
-
-作为近年来抗衰界的明星产品，麦角硫因持续获得学术界关注。
-
-根据华睿生物信息，麦角硫因作为第五代抗氧化剂，其清除自由基的效率是辅酶Q10的40倍，是谷胱甘肽的14倍，是维生素E的6000倍。
-
-2025年5月，科伦药业董事长刘革新赤膊上阵，高调代言旗下抗衰老产品“麦角硫因胶囊”，被媒体广泛关注，同时引发争议。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 14:31 - [6月我国降水为何偏多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-29 14:22 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 14:06 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 14:25 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-29 14:10 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 14:27 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 14:19 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-29 14:28 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-29 14:32 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-29 14:27 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-29 14:22 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-29 14:31 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 14:19 - [强⁶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 14:16 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 14:23 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 14:15 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 14:40 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-29 14:32 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 14:32 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 14:14 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-29 14:26 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-29 14:19 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:06 - [媒体评恋与深空争议](https://www.share.kurohicncr.top/Article/details/818995303.shtml)
-- 2026-06-29 14:28 - [周杰伦演唱会真的好多人啊](https://www.share.kurohicncr.top/Article/details/85079097.shtml)
-- 2026-06-29 14:24 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/11466315.shtml)
-- 2026-06-29 14:13 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.minike.top/Article/details/501451097.shtml)
-- 2026-06-29 14:29 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/2986878540.shtml)
-- 2026-06-29 14:18 - [宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/22261.shtml)
-- 2026-06-29 14:21 - [南部战区位南海海域进行例行巡航](http://www.blog.minike.top/Article/details/500818397311.shtml)
-- 2026-06-29 14:32 - [李连杰回应网传不管前妻俩女儿](https://www.blog.kurohicncr.top/Article/details/28678352546.shtml)
-- 2026-06-29 14:16 - [灿如繁星定档](https://www.blog.minike.top/Article/details/149597.shtml)
-- 2026-06-29 14:09 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/02107378275.shtml)
-- 2026-06-29 14:23 - [84岁英国教授成中国网红](http://www.blog.kurohicncr.top/Article/details/64856296.shtml)
-- 2026-06-29 14:33 - [媒体：高考后消费应量力而行适度有度](http://www.share.kurohicncr.top/Article/details/86830.shtml)
-- 2026-06-29 14:22 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/86813175.shtml)
-- 2026-06-29 14:13 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/40539083.shtml)
-- 2026-06-29 14:25 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/216146.shtml)
+- 2026-06-29 14:32 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/608652238810.shtml)
+- 2026-06-29 14:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/57533180167.shtml)
+- 2026-06-29 14:36 - [女生雨天开车发现雨刮条被掰走](https://www.share.kurohicncr.top/Article/details/81182315139.shtml)
+- 2026-06-29 14:33 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.minike.top/Article/details/79112664797.shtml)
+- 2026-06-29 14:40 - [周锡玮：做堂堂正正的中国人](http://www.blog.kurohicncr.top/Article/details/0689634.shtml)
+- 2026-06-29 14:15 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/10719287684.shtml)
+- 2026-06-29 14:13 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.minike.top/Article/details/153883.shtml)
+- 2026-06-29 14:37 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/0437045.shtml)
+- 2026-06-29 14:30 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/771680.shtml)
+- 2026-06-29 14:26 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/683406.shtml)
+- 2026-06-29 14:21 - [薛之谦演唱会](http://www.blog.minike.top/Article/details/12029.shtml)
+- 2026-06-29 14:22 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/1382349199.shtml)
+- 2026-06-29 14:38 - [时光音乐会](http://www.blog.minike.top/Article/details/338897186675.shtml)
+- 2026-06-29 14:15 - [退休化学教授帮医药研发人员制毒](https://www.share.kurohicncr.top/Article/details/00447952618.shtml)
+- 2026-06-29 14:12 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/52997675635.shtml)

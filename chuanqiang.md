@@ -1,60 +1,56 @@
-# 台湾演员张震：带着笃定与投入完成每一场表演
+# 广西三江：杜鹃花开引客来
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-中新网广州4月30日电 (记者 程景伟)作为《暗恋桃花源》的精神续篇，话剧《江／云·之／间》将于5月2日至3日首次登陆广州大剧院。“演话剧有一气呵成的感觉。”在该剧中演绎经典角色“江滨柳”的台湾演员张震近日在广州接受记者采访时称，他带着笃定与投入，好好完成每一场表演。 2026年适逢赖声川执导的华语剧场传奇作品《暗恋桃花源》首演40周年。《江／云·之／间》脱胎于《暗恋桃花源》暗
+推动海洋经济高质量发展 加快建设海洋强国1.65亿实时人口筑牢广东发展根基从“中国游”到“中式生活”：外国人眼中的中国魅力与巨变餐桌上的泾源风物诗：一块黄牛肉的乡野与醇厚被忽视的“口腔杀手”，正悄悄盯上年轻人生猪价格创7年多新低 零售市场和居民消费体验有啥变化巴基斯坦记者：新疆“强迫劳动”何在？义乌“因地制宜”发展的启示演员陈丽君晋升副主任 戏剧青年人才如何蓄力成长？太阳今日爆
 
 ## 正文
 
-中新网广州4月30日电 (记者 程景伟)作为《暗恋桃花源》的精神续篇，话剧《江／云·之／间》将于5月2日至3日首次登陆广州大剧院。
+推动海洋经济高质量发展 加快建设海洋强国1.65亿实时人口筑牢广东发展根基从“中国游”到“中式生活”：外国人眼中的中国魅力与巨变餐桌上的泾源风物诗：一块黄牛肉的乡野与醇厚被忽视的“口腔杀手”，正悄悄盯上年轻人生猪价格创7年多新低 零售市场和居民消费体验有啥变化巴基斯坦记者：新疆“强迫劳动”何在？
 
-“演话剧有一气呵成的感觉。
+义乌“因地制宜”发展的启示演员陈丽君晋升副主任 戏剧青年人才如何蓄力成长？
 
-”在该剧中演绎经典角色“江滨柳”的台湾演员张震近日在广州接受记者采访时称，他带着笃定与投入，好好完成每一场表演。
+太阳今日爆发X2.4级耀斑，有何影响？
 
-2026年适逢赖声川执导的华语剧场传奇作品《暗恋桃花源》首演40周年。
+为何说中国全面推广普及国家通用语言文字和保护少数民族语言文化并行不悖？
 
-《江／云·之／间》脱胎于《暗恋桃花源》暗恋篇，聚焦两个主角“江滨柳”与“云之凡”的爱情故事，由赖声川编剧并执导，张震与萧艾携手出演，胡德夫参与特别演出。
+企业玩“心机商标”，但口碑不会陪你演作家蒋胜男：真正的“大女主”不是玛丽苏式“等人来救”孙悟空是“男主人设天花板”？
 
-张震坦言，接演此戏是因为一种“特别的缘分”：“我的姥爷是长春人，江滨柳也是长春人，这让我有机会通过角色去贴近那一代人的乡愁与生命轨迹。
+六小龄童回应台湾退役舰长“打卡”人民海军舰艇 挥笔留言“两岸一家亲”大熊猫“平平”和“福双”将赴美开启10年旅居生活华谊兄弟沉浮录：曾是“中国影视第一股”罪恶神社的“招魂”闹剧12位志愿军烈士在沈阳安葬 鸣枪12响致敬志愿军烈士寻根黄帝故里！
 
-”为了呈现角色数十载的沉浮，张震在舞台上的每一次转身与停顿，都努力呈现充满电影质感的细腻张力。
+台胞小可的拜祖初体验沈阳塔台迎接志愿军忠烈回家西藏樟木口岸全面复通后出入境人员突破100万人次中国海军以最高礼仪迎接烈士遗骸回国深圳市非血缘造血干细胞捐献达1000例宿迁：在“项王故里”邂逅水韵柔情沈阳全城披红 迎第十三批志愿军烈士遗骸归国实拍西汉王后的“硬核”文具惊险！
 
-《牯岭街少年杀人事件》《卧虎藏龙》《绣春刀》……张震因为这些影视剧而被观众所熟知。
+买馕忘拉手刹，爱车溜坡撞上绿化带5.2米高！
 
 ## 相关推荐
 
-- 2026-06-29 14:18 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 14:11 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-29 14:25 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 14:26 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 14:30 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-29 14:26 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 14:17 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-29 14:22 - [张真源解读相思锁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-29 14:18 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-29 14:25 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 14:33 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-29 14:34 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-29 14:13 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-29 14:35 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 14:16 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 14:38 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 14:14 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-29 14:28 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-29 14:40 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 14:28 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-29 14:41 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 14:16 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-29 14:12 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 14:15 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:29 - [AG 钟意](http://www.share.minike.top/Article/details/1225677573.shtml)
-- 2026-06-29 14:06 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/8222869.shtml)
-- 2026-06-29 14:16 - [欧洲多国激辩“装不装空调”](https://www.share.kurohicncr.top/Article/details/983487.shtml)
-- 2026-06-29 14:17 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/86056331092.shtml)
-- 2026-06-29 14:16 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/915189192186.shtml)
-- 2026-06-29 14:28 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/529155725572.shtml)
-- 2026-06-29 14:31 - [一生一世](http://www.blog.kurohicncr.top/Article/details/6834867.shtml)
-- 2026-06-29 14:11 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/49777553248.shtml)
-- 2026-06-29 14:28 - [共享单车“价格刺客”79分钟30元](https://www.blog.minike.top/Article/details/73259130859.shtml)
-- 2026-06-29 14:24 - [赵露思爸爸拍vlog翻车了](https://www.blog.minike.top/Article/details/65202534.shtml)
-- 2026-06-29 14:26 - [退休化学教授帮医药研发人员制毒](http://www.share.kurohicncr.top/Article/details/44953986.shtml)
-- 2026-06-29 14:10 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/7844910.shtml)
-- 2026-06-29 14:26 - [扬名立万](https://www.blog.minike.top/Article/details/774438386.shtml)
-- 2026-06-29 14:33 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/717114.shtml)
-- 2026-06-29 14:06 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/864023379.shtml)
+- 2026-06-29 14:16 - [志愿选择倒计时！浙大学生送祝福](http://www.share.kurohicncr.top/Article/details/96359.shtml)
+- 2026-06-29 14:27 - [法拉利被4个孩子当滑梯玩](https://www.share.kurohicncr.top/Article/details/01235.shtml)
+- 2026-06-29 14:38 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.kurohicncr.top/Article/details/679008316493.shtml)
+- 2026-06-29 14:26 - [高考志愿今起开始填报](http://www.share.minike.top/Article/details/848502.shtml)
+- 2026-06-29 14:31 - [下飞机后，我做了个很蠢的决定......](https://www.blog.minike.top/Article/details/057896830.shtml)
+- 2026-06-29 14:22 - [女心理师](http://www.blog.minike.top/Article/details/08488812669.shtml)
+- 2026-06-29 14:34 - [高市早苗口齿不清被质疑醉酒](https://www.blog.kurohicncr.top/Article/details/240161989.shtml)
+- 2026-06-29 14:40 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/71708093.shtml)
+- 2026-06-29 14:38 - [世界杯欧美八大豪强悉数出线](http://www.share.minike.top/Article/details/059288.shtml)
+- 2026-06-29 14:36 - [宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/896346784.shtml)
+- 2026-06-29 14:33 - [宜宾5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/6990697610.shtml)
+- 2026-06-29 14:39 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/765397559.shtml)
+- 2026-06-29 14:38 - [血糖高的人能吃西瓜吗](http://www.share.kurohicncr.top/Article/details/0680877986.shtml)
+- 2026-06-29 14:20 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.kurohicncr.top/Article/details/458029081224.shtml)
+- 2026-06-29 14:39 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/859014.shtml)

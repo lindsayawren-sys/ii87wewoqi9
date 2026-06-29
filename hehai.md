@@ -1,58 +1,51 @@
-# 柯新平：一个时代的科学攀登
+# 营养精细化、用品智能化 从宠物展看“它经济”新动向
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-柯新平 北京怀柔科学城的实验站里，一束比太阳亮万亿倍的高能X射线穿透物质微观世界——3月20日，亚洲首个第四代高能量同步辐射光源HEPS启动首轮课题征集，迈入正式开放运行准备阶段。 从合肥到上海再到北京，我国同步辐射装置接连实现历史性跨越，走出了一条自主创新的“追光之路”。 这束光，折射出我国基础研究取得的重大突破，映照出一个时代科学攀登的坚实足迹。 加强基础研究，建设科技强国
+发布时间：2026年04月26日 14:29 来源：中国新闻网 4月24日—26日，“2026万宠汇·华北（石家庄）宠物及水族产业博览会”在石家庄国际会展中心举行。这场为期三天的展会，汇集了全国上百家宠物行业上下游企业，展品覆盖宠物“衣食住行”全品类，从食品、营养品到出行装备、智能硬件一应俱全。走访中了解到，消费者需求正从基础喂养向健康养护、智能便捷升级，推动产品向功能细分、健
 
 ## 正文
 
-柯新平 北京怀柔科学城的实验站里，一束比太阳亮万亿倍的高能X射线穿透物质微观世界——3月20日，亚洲首个第四代高能量同步辐射光源HEPS启动首轮课题征集，迈入正式开放运行准备阶段。
+发布时间：2026年04月26日 14:29 来源：中国新闻网 4月24日—26日，“2026万宠汇·华北（石家庄）宠物及水族产业博览会”在石家庄国际会展中心举行。
 
-从合肥到上海再到北京，我国同步辐射装置接连实现历史性跨越，走出了一条自主创新的“追光之路”。
+这场为期三天的展会，汇集了全国上百家宠物行业上下游企业，展品覆盖宠物“衣食住行”全品类，从食品、营养品到出行装备、智能硬件一应俱全。
 
-这束光，折射出我国基础研究取得的重大突破，映照出一个时代科学攀登的坚实足迹。
+走访中了解到，消费者需求正从基础喂养向健康养护、智能便捷升级，推动产品向功能细分、健康化、智能化方向迭代。
 
-加强基础研究，建设科技强国的必由之路。
-
-当新一轮科技革命与产业变革深度重塑全球竞争格局，基础研究成为大国博弈的前沿阵地，成为决胜未来的时代大考。
-
-党的十八大以来，以习近平同志为核心的党中央高瞻远瞩、系统谋划，坚持以“四个面向”为战略方向，以新型举国体制为关键支撑，以体制机制改革为重要抓手，坚持目标导向和自由探索“两条腿走路”，积极构建基础研究发展的“中国模式”，引领新时代基础研究驶入高质量发展快车道，部分领域实现了从“跟跑”“并跑”向“领跑”的历史性跨越。
-
-战略引领：擘画基础研究高质量发展蓝图 “科技创新的源头”——这是以习近平同志为核心的党中央对新时代基础研究的定位，亦是作答时代考卷的战略起点。
-
-面对奔涌向前的全球科技浪潮，面对产业变革迭代提速的迫切需求和关键核心技术受制于人的严峻挑战，习近平总书记洞察历史规律，把握时代大势，深刻阐明“基础研究”这一创新“源头”的重大意义。
+（邢璐 胡浩楠 河北石家庄报道） 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-29 14:31 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 14:25 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-29 14:18 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-29 14:15 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 14:34 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-29 14:17 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-29 14:26 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-29 14:28 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 14:22 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-29 14:24 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-29 14:26 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 14:16 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 14:15 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-29 14:37 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-29 14:22 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 14:19 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-29 14:25 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-29 14:30 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 14:41 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 14:32 - [医药股集体爆发](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-29 14:31 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 14:36 - [新一代影后杨紫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 14:25 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-29 14:31 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 14:31 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:11 - [湖北钟祥市委书记张勇拟任新职](http://www.share.minike.top/Article/details/592687.shtml)
-- 2026-06-29 14:16 - [王楚钦3比0周启豪](http://www.share.minike.top/Article/details/61143.shtml)
-- 2026-06-29 14:27 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/5225633801.shtml)
-- 2026-06-29 14:14 - [医药股集体爆发](http://www.blog.minike.top/Article/details/90480896844.shtml)
-- 2026-06-29 14:20 - [媒体：这一次合肥芜湖在伯仲之间](http://www.share.minike.top/Article/details/15855217127.shtml)
-- 2026-06-29 14:07 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/24535044069.shtml)
-- 2026-06-29 14:08 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/140660227.shtml)
-- 2026-06-29 14:16 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.share.kurohicncr.top/Article/details/7951760245.shtml)
-- 2026-06-29 14:32 - [医药股集体爆发](https://www.blog.minike.top/Article/details/5103312.shtml)
-- 2026-06-29 14:32 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/985519958031.shtml)
-- 2026-06-29 14:16 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.kurohicncr.top/Article/details/09280173.shtml)
-- 2026-06-29 14:26 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.minike.top/Article/details/5766137.shtml)
-- 2026-06-29 14:22 - [日媒称韩国史诗级上上签终成噩梦](http://www.share.minike.top/Article/details/330908449622.shtml)
-- 2026-06-29 14:08 - [千与千寻](https://www.blog.minike.top/Article/details/013001.shtml)
-- 2026-06-29 14:28 - [急先锋](http://www.share.kurohicncr.top/Article/details/62150630129.shtml)
+- 2026-06-29 14:12 - [世界杯超牛补水广告出现了](https://www.blog.kurohicncr.top/Article/details/30374.shtml)
+- 2026-06-29 14:13 - [宜宾5.5级地震 成都震感明显](http://www.share.kurohicncr.top/Article/details/275442175242.shtml)
+- 2026-06-29 14:15 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/873023.shtml)
+- 2026-06-29 14:20 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/79276860986.shtml)
+- 2026-06-29 14:37 - [肖战深夜到达青岛赴十日终焉片场](http://www.share.minike.top/Article/details/6616591.shtml)
+- 2026-06-29 14:26 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/51884289292.shtml)
+- 2026-06-29 14:37 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/367179477.shtml)
+- 2026-06-29 14:13 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/22983396971.shtml)
+- 2026-06-29 14:21 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/162247134.shtml)
+- 2026-06-29 14:41 - [papi酱回应毕业4年零收入](http://www.share.kurohicncr.top/Article/details/07464929983.shtml)
+- 2026-06-29 14:28 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.minike.top/Article/details/7703949.shtml)
+- 2026-06-29 14:39 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.blog.minike.top/Article/details/3480479.shtml)
+- 2026-06-29 14:13 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/331645628.shtml)
+- 2026-06-29 14:15 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/656907.shtml)
+- 2026-06-29 14:15 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/512195220391.shtml)

@@ -1,59 +1,56 @@
-# 道达尔能源盈利大幅飙升 重启15亿美元股票回购计划
+# 大宗商品综述：原油上涨 黄金下跌 供应前景趋紧推高镍价
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-道达尔能源表示，中东冲突带来额外收益，公司将向股东返还更多现金。 这家法国能源巨头于周三宣布，受地缘冲突推高能源价格带动盈利及现金流增长，公司将在截至6月的第二季度重启股票回购，回购规模最高达15亿美元。今年2月，受油价下行冲击业绩影响，该公司曾将股票回购规模缩减至7.5亿美元。 在加大股东回报的同时，公司本财年一季度净利润环比翻倍，达到58.1亿美元。据数据分析机构Visib
+由于美伊和谈仍陷入僵局，霍尔木兹海峡短期内恢复通行依然无望，原油价格周一上涨。黄金则承压走低，跌破了每盎司4700美元。供应前景趋紧推动镍价升至接近两年高位。 原油：WTI上涨 美伊和谈僵局导致霍尔木兹海峡仍几近封闭 油价上涨，此前重启伊朗战争和谈的努力陷入僵局，霍尔木兹海峡通行仍几近停滞，扰乱全球市场的供应扰动持续。 WTI原油期货上涨2.1%，收于每桶96美元上方，布伦特收
 
 ## 正文
 
-道达尔能源表示，中东冲突带来额外收益，公司将向股东返还更多现金。
+由于美伊和谈仍陷入僵局，霍尔木兹海峡短期内恢复通行依然无望，原油价格周一上涨。
 
-这家法国能源巨头于周三宣布，受地缘冲突推高能源价格带动盈利及现金流增长，公司将在截至6月的第二季度重启股票回购，回购规模最高达15亿美元。
+黄金则承压走低，跌破了每盎司4700美元。
 
-今年2月，受油价下行冲击业绩影响，该公司曾将股票回购规模缩减至7.5亿美元。
+供应前景趋紧推动镍价升至接近两年高位。
 
-在加大股东回报的同时，公司本财年一季度净利润环比翻倍，达到58.1亿美元。
+原油：WTI上涨 美伊和谈僵局导致霍尔木兹海峡仍几近封闭 油价上涨，此前重启伊朗战争和谈的努力陷入僵局，霍尔木兹海峡通行仍几近停滞，扰乱全球市场的供应扰动持续。
 
-据数据分析机构Visible Alpha的市场一致预期数据，该业绩超出分析师预期的52.1亿美元。
+WTI原油期货上涨2.1%，收于每桶96美元上方，布伦特收于每桶108美元附近。
 
-周二，其英国竞争对手英国石油（BP）同样表示，受中东冲突引发的市场波动提振，公司季度盈利同比翻倍有余。
+白宫新闻秘书卡罗琳·莱维特表示，特朗普召集国家安全团队讨论伊朗的提案，但未具体说明提案细节和美国的反应。
 
-责任编辑：何云
+6月交割的WTI原油上涨2.1%，结算价报每桶96.37美元。
+
+6月交割的布伦特原油上涨2.8%，结算价报每桶108.23美元。
 
 ## 相关推荐
 
-- 2026-06-29 14:28 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 14:28 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-29 14:28 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 14:13 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-29 14:24 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 14:25 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-29 14:31 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-29 14:28 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-29 14:28 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-29 14:11 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-29 14:18 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-29 14:34 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-29 14:29 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-29 14:19 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 14:28 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-29 14:36 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 14:32 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 14:13 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-29 14:20 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 14:36 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 14:38 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 14:31 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-29 14:12 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-29 14:18 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-29 14:21 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:26 - [美人鱼](https://www.share.kurohicncr.top/Article/details/221690741.shtml)
-- 2026-06-29 14:20 - [如果你一直单身，你准备怎么养老？](http://www.blog.minike.top/Article/details/256126137.shtml)
-- 2026-06-29 14:14 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/37398.shtml)
-- 2026-06-29 14:22 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/72384938350.shtml)
-- 2026-06-29 14:19 - [媒体：高考后消费应量力而行适度有度](http://www.blog.kurohicncr.top/Article/details/3763185907.shtml)
-- 2026-06-29 14:19 - [詹俊预测德国大胜巴拉圭](http://www.blog.kurohicncr.top/Article/details/87680068.shtml)
-- 2026-06-29 14:33 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/236056253909.shtml)
-- 2026-06-29 14:19 - [和阿根廷球员家属一起看球](http://www.blog.kurohicncr.top/Article/details/92347661.shtml)
-- 2026-06-29 14:12 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/655899481.shtml)
-- 2026-06-29 14:15 - [上周末 多领域成果密集“上新”](https://www.blog.kurohicncr.top/Article/details/16919549.shtml)
-- 2026-06-29 14:21 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/867962.shtml)
-- 2026-06-29 14:32 - [第一批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/41455569.shtml)
-- 2026-06-29 14:15 - [日媒称韩国史诗级上上签终成噩梦](https://www.share.minike.top/Article/details/3281432.shtml)
-- 2026-06-29 14:31 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/67829514238.shtml)
-- 2026-06-29 14:35 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/305261.shtml)
+- 2026-06-29 14:40 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/24949001.shtml)
+- 2026-06-29 14:17 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/48237348366.shtml)
+- 2026-06-29 14:14 - [TOP 无畏契约](https://www.share.minike.top/Article/details/845224146547.shtml)
+- 2026-06-29 14:34 - [周锡玮：做堂堂正正的中国人](https://www.share.minike.top/Article/details/26449494298.shtml)
+- 2026-06-29 14:36 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.share.minike.top/Article/details/27782956.shtml)
+- 2026-06-29 14:16 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.kurohicncr.top/Article/details/172849375.shtml)
+- 2026-06-29 14:20 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/92562.shtml)
+- 2026-06-29 14:28 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/273959911147.shtml)
+- 2026-06-29 14:15 - [航空运输旅客服务质量国标将实施](https://www.blog.minike.top/Article/details/107074844691.shtml)
+- 2026-06-29 14:23 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/31878329.shtml)
+- 2026-06-29 14:39 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/912185104.shtml)
+- 2026-06-29 14:37 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/3971796827.shtml)
+- 2026-06-29 14:33 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.minike.top/Article/details/472881176647.shtml)
+- 2026-06-29 14:27 - [袁隆平院士 不容诋毁！](http://www.share.kurohicncr.top/Article/details/072348784337.shtml)
+- 2026-06-29 14:21 - [锐评浪姐7总决赛](https://www.blog.kurohicncr.top/Article/details/726855214.shtml)

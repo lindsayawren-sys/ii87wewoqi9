@@ -1,45 +1,42 @@
-# 华勤技术拟派发末期股息每10股12元
+# 肯尼亚选手萨维破马拉松世界纪录 成为正式比赛“破2”第一人
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-华勤技术（03296）发布公告，该公司拟派发末期股息每10股12元。责任编辑：卢昱君
+新华社快讯：肯尼亚选手萨维破马拉松世界纪录，成为正式比赛“破2”第一人。
 
 ## 正文
 
-华勤技术（03296）发布公告，该公司拟派发末期股息每10股12元。
-
-责任编辑：卢昱君
+新华社快讯：肯尼亚选手萨维破马拉松世界纪录，成为正式比赛“破2”第一人。
 
 ## 相关推荐
 
-- 2026-06-29 14:30 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-29 14:18 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-29 14:33 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-29 14:15 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-29 14:15 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 14:29 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 14:29 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 14:09 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 14:13 - [市民骑哈啰单车79分钟付30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 14:17 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 14:16 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-29 14:41 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 14:36 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 14:24 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-29 14:22 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 14:30 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 14:22 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 14:19 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 14:34 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-29 14:25 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-29 14:27 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:24 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/380611.shtml)
-- 2026-06-29 14:30 - [美媒：空警-3000服役即成全球最强](http://www.share.kurohicncr.top/Article/details/8085702.shtml)
-- 2026-06-29 14:14 - [媒体评恋与深空争议](https://www.share.kurohicncr.top/Article/details/81302331661.shtml)
-- 2026-06-29 14:20 - [扬名立万](https://www.share.minike.top/Article/details/61379183.shtml)
-- 2026-06-29 14:23 - [链博会上的机器人太全能了](https://www.share.minike.top/Article/details/74959.shtml)
-- 2026-06-29 14:28 - [高市早苗口齿不清被质疑醉酒](https://www.blog.minike.top/Article/details/65691817342.shtml)
-- 2026-06-29 14:18 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/25716866153.shtml)
-- 2026-06-29 14:15 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/99979641270.shtml)
-- 2026-06-29 14:34 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/089500.shtml)
-- 2026-06-29 14:18 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/362806.shtml)
-- 2026-06-29 14:30 - [沙特足协主席发布声明主动请辞](https://www.blog.minike.top/Article/details/563192171146.shtml)
-- 2026-06-29 14:09 - [赵露思爸爸拍vlog翻车了](https://www.blog.kurohicncr.top/Article/details/073234727140.shtml)
-- 2026-06-29 14:17 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.share.kurohicncr.top/Article/details/4712404404.shtml)
-- 2026-06-29 14:34 - [我国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/58814.shtml)
-- 2026-06-29 14:24 - [退休化学教授帮医药研发人员制毒](http://www.share.kurohicncr.top/Article/details/63258081673.shtml)
+- 2026-06-29 14:16 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.minike.top/Article/details/91661171.shtml)
+- 2026-06-29 14:33 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/6326023965.shtml)
+- 2026-06-29 14:37 - [中国邮政上海分公司总经理李柏平被查](https://www.share.kurohicncr.top/Article/details/9908961.shtml)
+- 2026-06-29 14:36 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/0481983.shtml)
+- 2026-06-29 14:31 - [世界杯超牛补水广告出现了](http://www.blog.kurohicncr.top/Article/details/51708883155.shtml)
+- 2026-06-29 14:20 - [唐艺昕女儿接唐艺昕回家](https://www.blog.minike.top/Article/details/627747786913.shtml)
+- 2026-06-29 14:17 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/11736683.shtml)
+- 2026-06-29 14:31 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/46182310.shtml)
+- 2026-06-29 14:36 - [教育部发布预警 事关高招录取](http://www.share.minike.top/Article/details/230206196.shtml)
+- 2026-06-29 14:29 - [强⁶](http://www.blog.kurohicncr.top/Article/details/78996240.shtml)
+- 2026-06-29 14:37 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/784055.shtml)
+- 2026-06-29 14:36 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.minike.top/Article/details/2040020.shtml)
+- 2026-06-29 14:13 - [欧洲多国激辩“装不装空调”](http://www.blog.minike.top/Article/details/957356809428.shtml)
+- 2026-06-29 14:39 - [毕业群都在出什么东西](https://www.blog.minike.top/Article/details/3303629980.shtml)
+- 2026-06-29 14:17 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/4929722231.shtml)

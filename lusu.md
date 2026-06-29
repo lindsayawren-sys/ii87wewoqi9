@@ -1,57 +1,57 @@
-# Walmex首席执行官：一季度增速放缓，全年销售复苏可期
+# 突发！白宫记者晚宴传出“枪声”，特朗普被紧急疏散
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-墨西哥零售巨头Walmex首席执行官克里斯蒂安·巴里恩托斯·波佐周三表示，尽管第一季度业绩表现温和，但公司对恢复销售增长步伐充满信心，预计全年业绩将逐步改善。 一季度业绩：营收增长，利润承压 Walmex公布的第一季度财报显示，截至3月31日的三个月内，公司营收同比增长1.7%至2450.2亿墨西哥比索。净利润为125亿墨西哥比索，同比增长1.5%，略高于分析师预期。 然而，盈
+突发！ 据新华社援引美国媒体25日报道，美国总统特朗普当晚参加白宫晚宴，宴会上发生“安全事件”。特朗普已离开现场。 另据央视新闻报道，有消息称美国华盛顿希尔顿酒店内传出“枪声”后，特朗普紧急撤离了白宫记者晚宴现场。 据最新报道，美国白宫记者晚宴大厅发生枪击事件，枪手现已身亡。 综合自：央视新闻、新华社 责编：万健祎 校对：高源责任编辑：杨赐
 
 ## 正文
 
-墨西哥零售巨头Walmex首席执行官克里斯蒂安·巴里恩托斯·波佐周三表示，尽管第一季度业绩表现温和，但公司对恢复销售增长步伐充满信心，预计全年业绩将逐步改善。
+突发！
 
-一季度业绩：营收增长，利润承压 Walmex公布的第一季度财报显示，截至3月31日的三个月内，公司营收同比增长1.7%至2450.2亿墨西哥比索。
+据新华社援引美国媒体25日报道，美国总统特朗普当晚参加白宫晚宴，宴会上发生“安全事件”。
 
-净利润为125亿墨西哥比索，同比增长1.5%，略高于分析师预期。
+特朗普已离开现场。
 
-然而，盈利能力指标出现隐忧。
+另据央视新闻报道，有消息称美国华盛顿希尔顿酒店内传出“枪声”后，特朗普紧急撤离了白宫记者晚宴现场。
 
-公司运营收入同比下降2.2%至184.7亿比索，运营利润率从7.8%收窄至7.5%。
+据最新报道，美国白宫记者晚宴大厅发生枪击事件，枪手现已身亡。
 
-息税折旧摊销前利润下滑0.4%至249.8亿比索。
-
-按地区看，墨西哥本土市场表现稳健，营收增长4.4%至2043.5亿比索，同店销售额增长3.1%。
-
-中美洲地区业务则相对疲软，营收按固定汇率计算增长2.5%，但按比索计价大幅下滑。
+综合自：央视新闻、新华社 责编：万健祎 校对：高源责任编辑：杨赐
 
 ## 相关推荐
 
-- 2026-06-29 14:27 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 14:25 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-29 14:21 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 14:33 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 14:17 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 14:17 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-29 14:22 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-29 14:13 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-29 14:22 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 14:14 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-29 14:11 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 14:25 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 14:36 - [去了一趟潮汕。](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-29 14:14 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-29 14:38 - [T1对战KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 14:35 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 14:12 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 14:23 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 14:30 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 14:38 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 14:22 - [105年初心滚烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 14:32 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 14:38 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-29 14:30 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 14:30 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 14:22 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:10 - [第一批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/911257553920.shtml)
-- 2026-06-29 14:27 - [AG冠军五人组轮换](http://www.share.minike.top/Article/details/82510469139.shtml)
-- 2026-06-29 14:19 - [退休化学教授帮医药研发人员制毒](https://www.share.minike.top/Article/details/5167943.shtml)
-- 2026-06-29 14:07 - [T1 vs KC MSI](http://www.blog.minike.top/Article/details/012113124.shtml)
-- 2026-06-29 14:34 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.share.minike.top/Article/details/684253195839.shtml)
-- 2026-06-29 14:18 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.kurohicncr.top/Article/details/323903005437.shtml)
-- 2026-06-29 14:22 - [大范围炎热天气将至](https://www.blog.minike.top/Article/details/8370550615.shtml)
-- 2026-06-29 14:11 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.minike.top/Article/details/4803251.shtml)
-- 2026-06-29 14:08 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/40491747551.shtml)
-- 2026-06-29 14:25 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/0801638.shtml)
-- 2026-06-29 14:34 - [沙丘](https://www.blog.minike.top/Article/details/748687.shtml)
-- 2026-06-29 14:15 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/948883.shtml)
-- 2026-06-29 14:27 - [84岁英国教授成中国网红](https://www.blog.minike.top/Article/details/914758710.shtml)
-- 2026-06-29 14:08 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/323291.shtml)
-- 2026-06-29 14:10 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/24684179405.shtml)
+- 2026-06-29 14:35 - [爸爸当家](https://www.blog.minike.top/Article/details/593918148.shtml)
+- 2026-06-29 14:37 - [世界杯欧美八大豪强悉数出线](https://www.blog.kurohicncr.top/Article/details/249175.shtml)
+- 2026-06-29 14:32 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/861212013813.shtml)
+- 2026-06-29 14:29 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.share.kurohicncr.top/Article/details/60862.shtml)
+- 2026-06-29 14:41 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/562836961.shtml)
+- 2026-06-29 14:13 - [加拿大绝杀南非晋级](http://www.blog.kurohicncr.top/Article/details/4138872114.shtml)
+- 2026-06-29 14:25 - [佛得角到底在哪个“角”](https://www.share.minike.top/Article/details/45361.shtml)
+- 2026-06-29 14:21 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/82490206.shtml)
+- 2026-06-29 14:41 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/444764.shtml)
+- 2026-06-29 14:26 - [F1奥地利正赛战报](https://www.blog.kurohicncr.top/Article/details/80545637197.shtml)
+- 2026-06-29 14:24 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/49478.shtml)
+- 2026-06-29 14:20 - [前国足主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/28252463.shtml)
+- 2026-06-29 14:13 - [女心理师](http://www.blog.minike.top/Article/details/69037430.shtml)
+- 2026-06-29 14:29 - [美国近12万名科技员工被解雇](http://www.share.minike.top/Article/details/874638.shtml)
+- 2026-06-29 14:33 - [千与千寻](https://www.share.minike.top/Article/details/665369301673.shtml)

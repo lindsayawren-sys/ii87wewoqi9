@@ -1,59 +1,57 @@
-# 浙江通报5起违反中央八项规定精神问题
+# 节能降碳工作，如何做到高水平高质量？
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-中新网4月29日电 据中央纪委国家监委网站消息，“五一”、端午将至，为进一步严明纪律规矩、强化警示教育，持续加固中央八项规定堤坝，坚决防止“四风”问题反弹回潮，浙江省纪委监委现将近期查处的5起违反中央八项规定精神典型问题通报如下。1.杭州市滨江区档案馆原负责人张烨接受可能影响公正执行公务的旅游和娱乐活动安排问题。2017年至2025年，张烨多次接受管理服务对象某公司法定代表人董
+嘉哲 近日，中共中央办公厅、国务院办公厅印发《关于更高水平更高质量做好节能降碳工作的意见》(以下简称《意见》)，系统部署推进新形势下的节能降碳工作，将为实现碳达峰碳中和、经济社会发展全面绿色转型提供重要支撑。 “十四五”以来，我国认真落实全面节约战略，扎实推进全社会节能降碳，全国能耗强度和碳排放强度降低目标均顺利完成。2012年以来，我国以年均3.3%的能耗增速支撑了年均6.1
 
 ## 正文
 
-中新网4月29日电 据中央纪委国家监委网站消息，“五一”、端午将至，为进一步严明纪律规矩、强化警示教育，持续加固中央八项规定堤坝，坚决防止“四风”问题反弹回潮，浙江省纪委监委现将近期查处的5起违反中央八项规定精神典型问题通报如下。
+嘉哲 近日，中共中央办公厅、国务院办公厅印发《关于更高水平更高质量做好节能降碳工作的意见》(以下简称《意见》)，系统部署推进新形势下的节能降碳工作，将为实现碳达峰碳中和、经济社会发展全面绿色转型提供重要支撑。
 
-1.杭州市滨江区档案馆原负责人张烨接受可能影响公正执行公务的旅游和娱乐活动安排问题。
+“十四五”以来，我国认真落实全面节约战略，扎实推进全社会节能降碳，全国能耗强度和碳排放强度降低目标均顺利完成。
 
-2017年至2025年，张烨多次接受管理服务对象某公司法定代表人董某等人安排的旅游和娱乐活动，相关费用由对方支付。
+2012年以来，我国以年均3.3%的能耗增速支撑了年均6.1%的经济增长，经济发展的质量和效益持续提升。
 
-张烨还存在其他严重违纪违法问题，2025年12月被开除党籍、取消退休待遇，涉嫌犯罪问题被移送检察机关依法审查起诉。
+与此同时，当前我国节能降碳形势依然较为严峻，能源结构偏煤、产业结构偏重、环境约束偏紧的国情没有改变，化石能源和传统产业占比仍然较高，经济社会发展全面绿色转型仍面临不少困难挑战。
 
-2.宁海县西店镇原党委委员邬静东接受可能影响公正执行公务的宴请、违规收受礼品问题。
+“十五五”时期是实现碳达峰的决胜阶段，我国全面实施以强度控制为主、总量控制为辅的碳排放双控制度，对产业优化升级、能源绿色转型等提出新的更高要求。
 
-2018年至2025年，邬静东违规接受管理服务对象叶某某安排的宴请，相关费用由对方支付；多次收受管理服务对象某公司法定代表人孙某某等人所送高档香烟。
+要坚持以碳达峰碳中和为牵引，大力推进重点领域节能降碳，协同推进节能降碳与绿色转型，把节能降碳贯穿经济社会发展全过程各方面。
 
-邬静东还存在其他严重违纪违法问题，2026年2月被开除党籍、开除公职，涉嫌犯罪问题被移送检察机关依法审查起诉。
+《意见》的出台正逢其时，为未来一段时期高质量推进节能降碳工作指明了方向、明确了路径。
 
-3.苍南县城市建设中心原党组书记、主任王岳东违规收受礼品、违规借用车辆问题。
+抓好主战场。
 
 ## 相关推荐
 
-- 2026-06-29 14:07 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 14:25 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 14:19 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-29 14:12 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 14:14 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-29 14:29 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 14:19 - [多只A股发布股价异动公告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 14:11 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-29 14:12 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 14:13 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 14:30 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-29 14:32 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-29 14:30 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 14:20 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 14:32 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 14:38 - [去了一趟潮汕。](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 14:39 - [锐评浪姐7总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-29 14:17 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-29 14:14 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-29 14:31 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-29 14:15 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 14:30 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 14:17 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-29 14:15 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:16 - [papi酱自曝曾因尝试21天减肥法患病](https://www.share.minike.top/Article/details/85219781.shtml)
-- 2026-06-29 14:10 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/466922612658.shtml)
-- 2026-06-29 14:18 - [发反科学内容为何会有200万粉丝](http://www.blog.kurohicncr.top/Article/details/04005957.shtml)
-- 2026-06-29 14:25 - [异世界一点都不好玩！](http://www.blog.minike.top/Article/details/88786252255.shtml)
-- 2026-06-29 14:20 - [高考公平需要延伸到志愿填报这一环](https://www.blog.kurohicncr.top/Article/details/75619958.shtml)
-- 2026-06-29 14:09 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/829674424746.shtml)
-- 2026-06-29 14:16 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/719732851.shtml)
-- 2026-06-29 14:28 - [刘仲华院士愿当贺永辉导师](https://www.share.minike.top/Article/details/41227.shtml)
-- 2026-06-29 14:27 - [爱很美味](https://www.share.minike.top/Article/details/18177571.shtml)
-- 2026-06-29 14:34 - [沉睡花园](https://www.share.minike.top/Article/details/90137483599.shtml)
-- 2026-06-29 14:19 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/32338608.shtml)
-- 2026-06-29 14:18 - [河南考699分女生已接到清华大学电话](https://www.share.kurohicncr.top/Article/details/1303403801.shtml)
-- 2026-06-29 14:24 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/7755464629.shtml)
-- 2026-06-29 14:21 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/09929448.shtml)
-- 2026-06-29 14:20 - [送你一朵小红花](https://www.share.minike.top/Article/details/56228212899.shtml)
+- 2026-06-29 14:32 - [绘画区你赢了](http://www.share.minike.top/Article/details/24599220.shtml)
+- 2026-06-29 14:14 - [世界杯用球成部分门将噩梦](http://www.share.kurohicncr.top/Article/details/105054.shtml)
+- 2026-06-29 14:27 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/0222025504.shtml)
+- 2026-06-29 14:30 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/678038764.shtml)
+- 2026-06-29 14:14 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.kurohicncr.top/Article/details/4081668269.shtml)
+- 2026-06-29 14:41 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/15444330695.shtml)
+- 2026-06-29 14:37 - [世界杯欧美八大豪强悉数出线](http://www.blog.minike.top/Article/details/067845.shtml)
+- 2026-06-29 14:24 - [四川宜宾地震](https://www.blog.minike.top/Article/details/2829415.shtml)
+- 2026-06-29 14:24 - [市民骑哈啰单车79分钟被收费30元](https://www.share.minike.top/Article/details/33897489.shtml)
+- 2026-06-29 14:29 - [爸爸当家](https://www.blog.minike.top/Article/details/65740008812.shtml)
+- 2026-06-29 14:24 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/488129.shtml)
+- 2026-06-29 14:26 - [105年初心滚烫](http://www.blog.kurohicncr.top/Article/details/51679.shtml)
+- 2026-06-29 14:39 - [前国足主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/118269.shtml)
+- 2026-06-29 14:33 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.share.kurohicncr.top/Article/details/051423050.shtml)
+- 2026-06-29 14:19 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/768852.shtml)

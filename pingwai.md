@@ -1,56 +1,58 @@
-# “大美上饶”主题观光列车发车 系华东地区首趟主题观光列车
+# 一种被严重忽视的粗粮产品！冲泡就能吃，营养丰富还升糖慢
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-记者手记：亚沙会，让世界从三亚看见开放中国AI末日论：真实风险还是叙事陷阱？伊朗战事已烧250亿美元？美国国会听证会大打“口水仗”电子烟携带不吸也违法！香港控烟新规生效人这一辈子，一定要去一趟东方！AI短剧疑融脸肖战王一博？律师分析如何认定AI角色构成肖像权侵权孙杨工作室：“妈妈致电节目组删除嘉宾言论”为恶意捏造“长期封锁”伊朗，美国的财政扛得住吗？不抄硅谷、不仿德国，中国金融
+燕麦是全谷物里面的大明星，很多人吃全谷物都是从早餐冲泡一碗燕麦片粥开始的。 即食燕麦的确有很大的优势，它一冲泡就能吃，节省时间和精力的同时，还能获得全谷物的丰富营养。但容易被肠胃消化吸收，也意味着升糖指数(GI)高，甚至直追大米。 什么是高升糖指数(GI)？即人在食用完燕麦以后，血糖会迅速升高，容易犯困，并且随着血糖快速降低后，饥饿感也更容易到来。 那么，有没有什么既能保留燕麦
 
 ## 正文
 
-记者手记：亚沙会，让世界从三亚看见开放中国AI末日论：真实风险还是叙事陷阱？
+燕麦是全谷物里面的大明星，很多人吃全谷物都是从早餐冲泡一碗燕麦片粥开始的。
 
-伊朗战事已烧250亿美元？
+即食燕麦的确有很大的优势，它一冲泡就能吃，节省时间和精力的同时，还能获得全谷物的丰富营养。
 
-美国国会听证会大打“口水仗”电子烟携带不吸也违法！
+但容易被肠胃消化吸收，也意味着升糖指数(GI)高，甚至直追大米。
 
-香港控烟新规生效人这一辈子，一定要去一趟东方！
+什么是高升糖指数(GI)？
 
-AI短剧疑融脸肖战王一博？
+即人在食用完燕麦以后，血糖会迅速升高，容易犯困，并且随着血糖快速降低后，饥饿感也更容易到来。
 
-律师分析如何认定AI角色构成肖像权侵权孙杨工作室：“妈妈致电节目组删除嘉宾言论”为恶意捏造“长期封锁”伊朗，美国的财政扛得住吗？
+那么，有没有什么既能保留燕麦的优点(方便冲泡、全谷物营养)，又能改善其缺点(升糖指数低)的选择呢？
 
-不抄硅谷、不仿德国，中国金融支持创新如何走出“第三条路”？
+当然有！
 
-蒸汽眼罩 “烫伤” 引关注 如何安全使用眼部热敷产品？
+燕麦麸皮，就是符合要求的不二之选，但却被严重忽视了。
 
 ## 相关推荐
 
-- 2026-06-29 14:22 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-29 14:32 - [以前不让妆女二可以艳压女主](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-29 14:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-29 14:32 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-29 14:12 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-29 14:27 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-29 14:17 - [中餐厅南北饮食差异](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 14:13 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 14:32 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 14:27 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-29 14:26 - [韩国队启程回国众将回避镜头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 14:18 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-29 14:32 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 14:31 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 14:22 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-29 14:18 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 14:25 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-29 14:38 - [周杰伦演唱会真的好多人啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 14:40 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-29 14:19 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 14:16 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 14:27 - [84岁英国教授成中国网红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:14 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/891338.shtml)
-- 2026-06-29 14:32 - [日媒称韩国史诗级上上签终成噩梦](http://www.share.kurohicncr.top/Article/details/12499782149.shtml)
-- 2026-06-29 14:29 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/8709036.shtml)
-- 2026-06-29 14:30 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.blog.kurohicncr.top/Article/details/42883.shtml)
-- 2026-06-29 14:14 - [撒旦的腋窝是什么比喻](https://www.share.kurohicncr.top/Article/details/4768304.shtml)
-- 2026-06-29 14:26 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/13444.shtml)
-- 2026-06-29 14:23 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/67642063501.shtml)
-- 2026-06-29 14:16 - [欧洲超1300例超额死亡与高温有关](http://www.share.minike.top/Article/details/658663857536.shtml)
-- 2026-06-29 14:26 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/12600634204.shtml)
-- 2026-06-29 14:25 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/6246675.shtml)
-- 2026-06-29 14:18 - [全国第三艘万车级汽车运输船交付](http://www.blog.kurohicncr.top/Article/details/8107398.shtml)
-- 2026-06-29 14:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/25085982201.shtml)
-- 2026-06-29 14:23 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/040124683588.shtml)
-- 2026-06-29 14:17 - [105年初心滚烫](https://www.share.minike.top/Article/details/35225612578.shtml)
-- 2026-06-29 14:24 - [广东一地发现极危植物新物种](http://www.blog.kurohicncr.top/Article/details/497207108657.shtml)
+- 2026-06-29 14:39 - [加拿大女球迷玩人浪把手机甩飞](https://www.blog.minike.top/Article/details/9041794.shtml)
+- 2026-06-29 14:37 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/4328845.shtml)
+- 2026-06-29 14:14 - [民进党为什么拼命抹黑统战](https://www.share.minike.top/Article/details/41420732357.shtml)
+- 2026-06-29 14:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/222249.shtml)
+- 2026-06-29 14:22 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/660155570076.shtml)
+- 2026-06-29 14:28 - [实习期把公司领导开除了](https://www.blog.minike.top/Article/details/153951.shtml)
+- 2026-06-29 14:22 - [当我回母校教书](https://www.share.minike.top/Article/details/4409212789.shtml)
+- 2026-06-29 14:16 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/35792.shtml)
+- 2026-06-29 14:20 - [异世界一点都不好玩！](http://www.blog.minike.top/Article/details/64164901.shtml)
+- 2026-06-29 14:28 - [宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/394542.shtml)
+- 2026-06-29 14:12 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/49636260.shtml)
+- 2026-06-29 14:36 - [张一山回应与杨紫友情](http://www.share.kurohicncr.top/Article/details/90349589.shtml)
+- 2026-06-29 14:22 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/29959448023.shtml)
+- 2026-06-29 14:21 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/4527019274.shtml)
+- 2026-06-29 14:40 - [市民骑哈啰单车79分钟付30元](http://www.blog.minike.top/Article/details/9895257574.shtml)

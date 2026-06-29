@@ -1,53 +1,58 @@
-# 习近平向上海合作组织绿色和可持续发展论坛致贺信
+# 当数据成为“被告”
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-新华社北京4月29日电 4月29日，国家主席习近平向上海合作组织绿色和可持续发展论坛致贺信。 习近平指出，中国秉持绿水青山就是金山银山理念，坚定不移走生态优先、绿色发展之路，是全球生态文明建设的参与者、贡献者、引领者。 习近平强调，今年是上海合作组织成立25周年，也是中国“十五五”开局之年。中国愿同各方一道，弘扬“上海精神”，展现“上合担当”，加强政策对接、经验交流和项目合作，
+中新网温州4月25日电(周健)从备受追捧的数字藏品，到层出不穷的AI大模型，数据已成为驱动经济发展的“新石油”。但“石油”的开采与交易并非一帆风顺——权属不清、侵权隐蔽、估值困难，涉数据纠纷成为数字经济前行的“拦路虎”。为此，身为数字经济大省的浙江，正试图走出一条司法保护的“先行路”。 该省温州市近年来数字产业蓬勃发展。“敢为天下先”的温州基因，不仅滋养着数字产业的创新活力，更
 
 ## 正文
 
-新华社北京4月29日电 4月29日，国家主席习近平向上海合作组织绿色和可持续发展论坛致贺信。
+中新网温州4月25日电(周健)从备受追捧的数字藏品，到层出不穷的AI大模型，数据已成为驱动经济发展的“新石油”。
 
-习近平指出，中国秉持绿水青山就是金山银山理念，坚定不移走生态优先、绿色发展之路，是全球生态文明建设的参与者、贡献者、引领者。
+但“石油”的开采与交易并非一帆风顺——权属不清、侵权隐蔽、估值困难，涉数据纠纷成为数字经济前行的“拦路虎”。
 
-习近平强调，今年是上海合作组织成立25周年，也是中国“十五五”开局之年。
+为此，身为数字经济大省的浙江，正试图走出一条司法保护的“先行路”。
 
-中国愿同各方一道，弘扬“上海精神”，展现“上合担当”，加强政策对接、经验交流和项目合作，推动完善全球环境治理体系，携手共建清洁、美丽、可持续的世界。
+该省温州市近年来数字产业蓬勃发展。
 
-本次论坛当日在浙江宁波开幕，主题为“践行全球治理倡议，共促上合组织绿色和可持续发展”，由上合组织睦邻友好合作委员会、生态环境部和浙江省人民政府共同主办。
+“敢为天下先”的温州基因，不仅滋养着数字产业的创新活力，更推动法律服务与保障主动跟进、精准赋能。
+
+2022年5月18日，全国首家数据资源法庭在温州成立，为浙江乃至全国的数据要素市场发展迈出司法保障的“第一步”。
+
+走进温州数据资源法庭，智能场景无处不在，浓郁的科技感扑面而来。
+
+一楼的“智慧舱”内，当事人可一站式办理诉讼自助服务，全程便捷高效；三楼办公区域的“未来法官办公室”，融合图形识别、语音智能等前沿技术，助力法官高效推进线上审判流程。
 
 ## 相关推荐
 
-- 2026-06-29 14:16 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-29 14:28 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 14:08 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 14:26 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-29 14:12 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 14:32 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-29 14:33 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 14:20 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-29 14:08 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 14:10 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-29 14:35 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 14:21 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-29 14:35 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-29 14:41 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 14:20 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-29 14:38 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 14:17 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 14:35 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-29 14:15 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 14:25 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-29 14:18 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 14:17 - [宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-29 14:32 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 14:18 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 14:24 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:07 - [马斯克也站到了光里](http://www.share.minike.top/Article/details/285221.shtml)
-- 2026-06-29 14:13 - [韩国队差旅费亏麻了](http://www.share.kurohicncr.top/Article/details/687183989.shtml)
-- 2026-06-29 14:33 - [美媒：空警-3000服役即成全球最强](http://www.share.kurohicncr.top/Article/details/46138.shtml)
-- 2026-06-29 14:08 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/38134.shtml)
-- 2026-06-29 14:34 - [女生雨天开车发现雨刮条被掰走](https://www.share.minike.top/Article/details/137739088498.shtml)
-- 2026-06-29 14:07 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/448747637.shtml)
-- 2026-06-29 14:31 - [宜宾5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/0785020421.shtml)
-- 2026-06-29 14:26 - [日本主教练回应迎战巴西](https://www.share.minike.top/Article/details/5020156.shtml)
-- 2026-06-29 14:35 - [双高胎](http://www.blog.minike.top/Article/details/846869.shtml)
-- 2026-06-29 14:22 - [王祖蓝现场观看美加墨世界杯](https://www.blog.kurohicncr.top/Article/details/4635775.shtml)
-- 2026-06-29 14:11 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.kurohicncr.top/Article/details/06603422259.shtml)
-- 2026-06-29 14:33 - [6月我国降水为何偏多](https://www.share.kurohicncr.top/Article/details/066988409.shtml)
-- 2026-06-29 14:21 - [退休化学教授帮医药研发人员制毒](https://www.blog.minike.top/Article/details/656002.shtml)
-- 2026-06-29 14:14 - [我国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/378308.shtml)
-- 2026-06-29 14:18 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/6265215.shtml)
+- 2026-06-29 14:21 - [5万块的威力](http://www.blog.minike.top/Article/details/42488392978.shtml)
+- 2026-06-29 14:33 - [第一批缉毒警已全体退休](https://www.blog.minike.top/Article/details/108789.shtml)
+- 2026-06-29 14:17 - [周生如故](http://www.share.minike.top/Article/details/0095316010.shtml)
+- 2026-06-29 14:34 - [央视起底直播诈骗连环套](http://www.share.kurohicncr.top/Article/details/06052398.shtml)
+- 2026-06-29 14:31 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/19989.shtml)
+- 2026-06-29 14:37 - [北极荒岛生存挑战](http://www.blog.minike.top/Article/details/947309254137.shtml)
+- 2026-06-29 14:18 - [多家银行收紧个人贵金属业务](http://www.share.kurohicncr.top/Article/details/6733755761.shtml)
+- 2026-06-29 14:23 - [去了一趟潮汕。](http://www.share.minike.top/Article/details/4859218.shtml)
+- 2026-06-29 14:41 - [撒旦的腋窝是什么比喻](https://www.blog.kurohicncr.top/Article/details/816872843.shtml)
+- 2026-06-29 14:39 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/33889908523.shtml)
+- 2026-06-29 14:37 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/094321518730.shtml)
+- 2026-06-29 14:16 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/1019138.shtml)
+- 2026-06-29 14:38 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/06840463.shtml)
+- 2026-06-29 14:28 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/56826537154.shtml)
+- 2026-06-29 14:37 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/024215818789.shtml)

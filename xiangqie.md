@@ -1,60 +1,46 @@
-# 韩国考虑将原油互换机制延长至7月
+# 日本电装称考虑撤回对罗姆公司收购要约
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-韩国产业通商资源部副长官Yang Ghi-wuk周四表示，鉴于企业方面持续的需求，政府正在考虑将为稳定国内燃料供应而推出的与私营企业之间的原油互换机制延长至7月。 Yang Ghi-wuk在例行的能源供应简报会上发表了上述言论，此次简报会旨在探讨中东危机下的韩国能源供应状况。 Yang Ghi-wuk表示：“我们已决定将战略石油储备互换机制延长至6月，并正在考虑是否将该机制延长
+专题：外部风险可控 聚焦三条景气主线 日本汽车零部件制造商电装公司（Denso）周一表示，其收购提议尚未获得芯片制造商罗姆公司（Rohm）的同意，公司正在考虑撤回收购要约。 上个月，作为丰田汽车主要供应商之一的电装公司提出了这项收购要约，旨在扩大其在电动汽车和数据中心电源管理芯片领域的控制权。责任编辑：于健 SF069
 
 ## 正文
 
-韩国产业通商资源部副长官Yang Ghi-wuk周四表示，鉴于企业方面持续的需求，政府正在考虑将为稳定国内燃料供应而推出的与私营企业之间的原油互换机制延长至7月。
+专题：外部风险可控 聚焦三条景气主线 日本汽车零部件制造商电装公司（Denso）周一表示，其收购提议尚未获得芯片制造商罗姆公司（Rohm）的同意，公司正在考虑撤回收购要约。
 
-Yang Ghi-wuk在例行的能源供应简报会上发表了上述言论，此次简报会旨在探讨中东危机下的韩国能源供应状况。
+上个月，作为丰田汽车主要供应商之一的电装公司提出了这项收购要约，旨在扩大其在电动汽车和数据中心电源管理芯片领域的控制权。
 
-Yang Ghi-wuk表示：“我们已决定将战略石油储备互换机制延长至6月，并正在考虑是否将该机制延长至7月。
-
-”他还指出，如果企业需求持续存在，政府可能会进一步延长该机制的运行时间。
-
-根据本月推出的该机制，韩国政府将部分原油储备（主要来自中东）借给炼油厂，之后再由炼油厂通过其获得的替代供应来恢复库存。
-
-该机制最初计划运行两个月，至五月底结束。
-
-关于韩国承诺根据国际能源署（IEA）成员国之间的协议释放2246万桶原油储备，Yang Ghi-wuk表示，政府将首先在互换机制实施的情况下，评估炼油厂是否真的需要释放这些原油。
-
-上个月，韩国同意在国际能源署成员国的集体行动下，于6月9日前释放原油库存，以期在中东持续冲突的背景下稳定全球石油市场。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 14:23 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 14:14 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-29 14:27 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-29 14:08 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 14:20 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 14:07 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-29 14:31 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-29 14:15 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-29 14:35 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-29 14:17 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-29 14:08 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-29 14:09 - [南非老帅布罗斯的梦没能做完](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-29 14:24 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-29 14:19 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-29 14:16 - [张真源解读相思锁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-29 14:24 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 14:34 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 14:20 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 14:15 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-29 14:16 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 14:31 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 14:22 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-29 14:26 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-29 14:39 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:18 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/640608516916.shtml)
-- 2026-06-29 14:25 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/181694906.shtml)
-- 2026-06-29 14:34 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/99792.shtml)
-- 2026-06-29 14:22 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/54661.shtml)
-- 2026-06-29 14:15 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.share.kurohicncr.top/Article/details/392275271883.shtml)
-- 2026-06-29 14:27 - [王楚钦 表演球擦网](https://www.share.kurohicncr.top/Article/details/825407.shtml)
-- 2026-06-29 14:10 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/752532.shtml)
-- 2026-06-29 14:14 - [法拉利被4个孩子当滑梯玩](http://www.share.kurohicncr.top/Article/details/62112788546.shtml)
-- 2026-06-29 14:28 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/74201349.shtml)
-- 2026-06-29 14:21 - [TOP 无畏契约](https://www.share.minike.top/Article/details/3285622.shtml)
-- 2026-06-29 14:18 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/2578223.shtml)
-- 2026-06-29 14:06 - [王楚钦 表演球擦网](http://www.share.kurohicncr.top/Article/details/87825.shtml)
-- 2026-06-29 14:16 - [记者率先试乘西十高铁](http://www.blog.kurohicncr.top/Article/details/287467968067.shtml)
-- 2026-06-29 14:14 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/3940293912.shtml)
-- 2026-06-29 14:21 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/6482626462.shtml)
+- 2026-06-29 14:28 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/895090581.shtml)
+- 2026-06-29 14:12 - [千与千寻](http://www.blog.minike.top/Article/details/57145.shtml)
+- 2026-06-29 14:28 - [哈兰德之歌火到国外](http://www.share.kurohicncr.top/Article/details/00135.shtml)
+- 2026-06-29 14:27 - [逆天祖国人](http://www.blog.minike.top/Article/details/3189962459.shtml)
+- 2026-06-29 14:36 - [灿如繁星定档](http://www.share.kurohicncr.top/Article/details/3485703368.shtml)
+- 2026-06-29 14:37 - [TOP 无畏契约](http://www.share.kurohicncr.top/Article/details/5249645444.shtml)
+- 2026-06-29 14:41 - [锐评浪姐7总决赛](http://www.blog.minike.top/Article/details/958963232.shtml)
+- 2026-06-29 14:20 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/56280029.shtml)
+- 2026-06-29 14:27 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/651480031.shtml)
+- 2026-06-29 14:40 - [C罗关心罗德里戈伤情](http://www.blog.kurohicncr.top/Article/details/5074030.shtml)
+- 2026-06-29 14:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/99061539855.shtml)
+- 2026-06-29 14:28 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/588105676.shtml)
+- 2026-06-29 14:38 - [李连杰回应网传不管前妻俩女儿](https://www.blog.minike.top/Article/details/5422661.shtml)
+- 2026-06-29 14:31 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/34866034030.shtml)
+- 2026-06-29 14:15 - [高市早苗口齿不清被质疑醉酒](https://www.share.minike.top/Article/details/177987821088.shtml)

@@ -1,55 +1,61 @@
-# 王毅同澳大利亚外长举行中澳外交与战略对话
+# 从“体力型”到“技能型” 山西石楼劳务经济谋“质的飞跃”
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-中共中央政治局委员、外交部长王毅29日在北京同澳大利亚外长黄英贤举行第八轮中澳外交与战略对话。 王毅表示，中方愿同澳方一道落实好两国领导人重要共识，巩固两国关系向好势头，把全面战略伙伴关系真正落到实处，为地区和世界提供更多确定性。 王毅表示，习近平主席提出四大全球倡议和人类命运共同体理念，顺应世界各国呼声，符合人类整体利益，是人间正道。中澳应该共同推动构建更加公正合理的全球治理
+中新网太原4月25日电(记者 范丽芳)山西文化旅游职业大学与石楼县校地合作暨石楼县劳务品牌推介会25日在山西太原召开。双方将通过订单式培养、联合办学、实训共建等方式，让优质职业教育资源延伸到基层，助力石楼劳务经济实现“质的飞跃”。 石楼县位于吕梁山西麓、黄河东岸，是一个典型的山区农业县，总人口12万。其中，外出务工人员达3.2万，年创劳务收入近10亿元，农民人均纯收入9088元
 
 ## 正文
 
-中共中央政治局委员、外交部长王毅29日在北京同澳大利亚外长黄英贤举行第八轮中澳外交与战略对话。
+中新网太原4月25日电(记者 范丽芳)山西文化旅游职业大学与石楼县校地合作暨石楼县劳务品牌推介会25日在山西太原召开。
 
-王毅表示，中方愿同澳方一道落实好两国领导人重要共识，巩固两国关系向好势头，把全面战略伙伴关系真正落到实处，为地区和世界提供更多确定性。
+双方将通过订单式培养、联合办学、实训共建等方式，让优质职业教育资源延伸到基层，助力石楼劳务经济实现“质的飞跃”。
 
-王毅表示，习近平主席提出四大全球倡议和人类命运共同体理念，顺应世界各国呼声，符合人类整体利益，是人间正道。
+石楼县位于吕梁山西麓、黄河东岸，是一个典型的山区农业县，总人口12万。
 
-中澳应该共同推动构建更加公正合理的全球治理体系。
+其中，外出务工人员达3.2万，年创劳务收入近10亿元，农民人均纯收入9088元中，劳务收入占比达62%。
 
-王毅深入阐述了中方在台湾问题上的立场。
+目前，石楼已形成五大劳务品牌集群：“福海厨工”跻身全省知名劳务品牌，仅在青岛一地就稳定吸纳3000余人，承揽食堂窗口300余个，催生家庭作坊220余个；“石楼物业工”从业人员2000余人；“石楼造林工”面向晋陕冀，年造林管护面积20万亩；“石楼煤矿工”“石楼运输工”稳定就业1500人，五大集群齐头并进。
 
-黄英贤表示，澳方致力于发展对华关系，坚持一个中国政策，愿同中方共同维护国际规则、确保能源安全、促进世界和平稳定繁荣。
+石楼县委书记杜侯平表示，劳务收入占比虽高，但技能层次偏低，组织化输出刚刚起步。
 
-双方还就中东局势等问题交换了意见。
+“每提升一个技能等级，月均收入可增加千元；每年培训三千人次，三年可增收近亿元。
+
+只要把教育与就业衔接好、技能与市场对接好，这些走出大山的学子就是劳务品牌提质升级的生力军。
 
 ## 相关推荐
 
-- 2026-06-29 14:31 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-29 14:28 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-29 14:28 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-29 14:09 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-29 14:28 - [詹俊预测德国大胜巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-29 14:27 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-29 14:31 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 14:22 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 14:18 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-29 14:32 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-29 14:12 - [下飞机后，我做了个很蠢的决定......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 14:26 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-29 14:19 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-29 14:32 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-29 14:32 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 14:19 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 14:36 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-29 14:24 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 14:19 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 14:12 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-29 14:15 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-29 14:18 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-29 14:33 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 14:13 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 14:36 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-29 14:15 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:15 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.minike.top/Article/details/44385258.shtml)
-- 2026-06-29 14:29 - [韩国队出局引发意大利球迷全网狂欢](https://www.share.minike.top/Article/details/715338577085.shtml)
-- 2026-06-29 14:17 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/0139530199.shtml)
-- 2026-06-29 14:29 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/022955840134.shtml)
-- 2026-06-29 14:30 - [哈基米歌王争霸赛](http://www.blog.minike.top/Article/details/56603.shtml)
-- 2026-06-29 14:09 - [爱很美味](https://www.blog.minike.top/Article/details/972362533.shtml)
-- 2026-06-29 14:32 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/78828408577.shtml)
-- 2026-06-29 14:16 - [唐国强打卡贵阳孔学堂](https://www.blog.kurohicncr.top/Article/details/750912123158.shtml)
-- 2026-06-29 14:24 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/26621.shtml)
-- 2026-06-29 14:22 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.minike.top/Article/details/71767.shtml)
-- 2026-06-29 14:29 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/9817499959.shtml)
-- 2026-06-29 14:30 - [日本主帅：目标是冠军](https://www.share.kurohicncr.top/Article/details/203697982.shtml)
-- 2026-06-29 14:08 - [永远保持对人民的赤子之心](https://www.blog.minike.top/Article/details/331166966.shtml)
-- 2026-06-29 14:32 - [女孩遭霸凌网上认文身大哥求庇护](http://www.blog.kurohicncr.top/Article/details/42544813.shtml)
-- 2026-06-29 14:18 - [五粮液回应宜宾地震影响](https://www.blog.minike.top/Article/details/00050834695.shtml)
+- 2026-06-29 14:36 - [20年前的周杰伦](http://www.share.minike.top/Article/details/61108138281.shtml)
+- 2026-06-29 14:23 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.share.kurohicncr.top/Article/details/61918395.shtml)
+- 2026-06-29 14:34 - [中国邮政上海分公司总经理李柏平被查](https://www.blog.minike.top/Article/details/300129594.shtml)
+- 2026-06-29 14:29 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/485686772.shtml)
+- 2026-06-29 14:33 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/377897.shtml)
+- 2026-06-29 14:16 - [多只A股发布股价异动公告](http://www.blog.minike.top/Article/details/494250500537.shtml)
+- 2026-06-29 14:25 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/70088698623.shtml)
+- 2026-06-29 14:33 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/17237.shtml)
+- 2026-06-29 14:38 - [记者率先试乘西十高铁](http://www.share.minike.top/Article/details/231616038006.shtml)
+- 2026-06-29 14:38 - [王楚钦欢迎晚宴上打台球](http://www.share.minike.top/Article/details/8780268126.shtml)
+- 2026-06-29 14:37 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.kurohicncr.top/Article/details/16696689576.shtml)
+- 2026-06-29 14:25 - [葫芦岛居民楼爆炸致3失联8伤](http://www.blog.minike.top/Article/details/729110.shtml)
+- 2026-06-29 14:25 - [内马尔打日本前先买百万美元豪表](https://www.blog.minike.top/Article/details/405825.shtml)
+- 2026-06-29 14:13 - [如何“亲菌子”又“远小人儿”](http://www.blog.kurohicncr.top/Article/details/2640506155.shtml)
+- 2026-06-29 14:30 - [周深双眼皮贴又掉了](http://www.blog.minike.top/Article/details/3497055782.shtml)

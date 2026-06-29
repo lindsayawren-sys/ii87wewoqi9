@@ -1,61 +1,61 @@
-# 上海青年创业者徒步行 以脚步丈量科创热土
+# 下周影响市场重要资讯前瞻：4月PMI数据将公布，美联储将公布利率决议，年报季报披露即将截止
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-中新网上海4月30日电(范宇斌)近日，以“年轻的事业，年轻人的事业”为主题的青创上海·2026徐汇滨江徒步行在上海徐汇滨江举行。尽管风雨相伴，却丝毫未减青年创业者的参与热情，来自市、区两级工商联青创组织和徐汇区街镇青创组织、上海市工商联异地商会、新媒体代表组成的38支队伍、700余人齐聚黄浦江畔，以脚步丈量科创热土，以奋进姿态展现青春风采。 本次活动由上海市工商联青创联、徐汇区
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月PMI数据将公布；央行开展4000亿元MLF操作；美联储将公布利率决议；年报季报披露即将截止，美股巨头发布财报；长征十号乙文昌首飞...... 【重磅新闻】 4月PMI数据将公布 4月30日，4月PMI数据将公布。 3月份，制造业采购经理指数（PMI）为50.4%，比上月上升1.4个百分点，高于临界点，
 
 ## 正文
 
-中新网上海4月30日电(范宇斌)近日，以“年轻的事业，年轻人的事业”为主题的青创上海·2026徐汇滨江徒步行在上海徐汇滨江举行。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-尽管风雨相伴，却丝毫未减青年创业者的参与热情，来自市、区两级工商联青创组织和徐汇区街镇青创组织、上海市工商联异地商会、新媒体代表组成的38支队伍、700余人齐聚黄浦江畔，以脚步丈量科创热土，以奋进姿态展现青春风采。
+4月PMI数据将公布；央行开展4000亿元MLF操作；美联储将公布利率决议；年报季报披露即将截止，美股巨头发布财报；长征十号乙文昌首飞...... 【重磅新闻】 4月PMI数据将公布 4月30日，4月PMI数据将公布。
 
-本次活动由上海市工商联青创联、徐汇区工商联主办。
+3月份，制造业采购经理指数（PMI）为50.4%，比上月上升1.4个百分点，高于临界点，制造业景气水平回升。
 
-上海市工商联党组成员、副主席汪剑明，上海市工商联副主席闫爽，徐汇区委常委、统战部部长诸旖参加活动。
+3月份，非制造业商务活动指数为50.1%，比上月上升0.6个百分点，高于临界点，非制造业景气水平有所改善。
 
-汪剑明表示，上海正全力打造青年创业创新高地，希望广大青年企业家向阳而生，永葆昂扬斗志，坚守创业初心，以敢闯敢干的韧劲与闯劲直面挑战，在创新创业中书写青春传奇；向新而行，勇立潮头，紧盯人工智能、低空经济、生物医药、新材料等前沿产业赛道，善用青创联平台实现跨界协同、合作共赢；向善而进，心怀家国，始终铭记“国之大者”，在服务上海“五个中心”建设、践行共同富裕的实践中展现民企青年担当；乘势而上，抢抓机遇，主动融入“十五五”发展大局与上海现代化产业体系建设，把个人理想融入城市发展浪潮，在创新融合中成就更大作为。
+央行开展4000亿元1年期中期借贷便利（MLF）操作 中国人民银行宣布，为保持银行体系流动性充裕，4月27日（下周一）将以固定数量、利率招标、多重价位中标方式开展4000亿元1年期中期借贷便利（MLF）操作。
 
-徐汇区委统战部副部长、徐汇区工商联党组书记张敏表示，徐汇区将持续做好服务保障，为青年创业者搭建交流对接、合作共赢的平台，推动广大青年创业者把前沿想法转化为现实成果，携手在培育新质生产力、推动高质量发展的道路上并肩前行。
+美联储将公布利率决议 4月30日，美联储将公布利率决议。
 
-启动仪式上，无问芯穹负责人曾书霖分享了企业牢记嘱托、深耕技术创新、聚力人才培养、推动技术成果落地的实践经验。
+美联储主席下任主席提名人选凯文·沃什21日出席美国国会参议院银行委员会听证会。
 
-同时，作为徐汇区工商联青年创业商会模速空间分会会长，他号召广大青年创业者用好上海开放包容的创新生态与产业资源，加强协同联动，以青春力量成就“年轻人的事业”。
+沃什在听证会上多次强调将维护美联储“独立性”，不会任由摆布，且美国总统特朗普“从未要求他就任何具体利率决策作出承诺”。
 
 ## 相关推荐
 
-- 2026-06-29 14:13 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 14:33 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-29 14:09 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-29 14:33 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-29 14:29 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-29 14:28 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 14:17 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-29 14:23 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 14:10 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 14:06 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-29 14:35 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-29 14:08 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-29 14:23 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-29 14:35 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 14:23 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 14:29 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 14:39 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-29 14:26 - [韩媒破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-29 14:20 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 14:27 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 14:27 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 14:21 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 14:20 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-29 14:26 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 14:13 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-29 14:31 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 14:23 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 14:13 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 14:37 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 14:15 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:21 - [四川宜宾地震已致13人受轻微伤](https://www.blog.minike.top/Article/details/05119828253.shtml)
-- 2026-06-29 14:08 - [中方回应对日本相关出口管制措施](http://www.blog.kurohicncr.top/Article/details/234904020.shtml)
-- 2026-06-29 14:27 - [游戏数据被用于军事目的 国安部提醒](http://www.share.kurohicncr.top/Article/details/215729150.shtml)
-- 2026-06-29 14:22 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.kurohicncr.top/Article/details/39900580.shtml)
-- 2026-06-29 14:27 - [6月我国降水为何偏多](http://www.share.minike.top/Article/details/4576242.shtml)
-- 2026-06-29 14:12 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/020477.shtml)
-- 2026-06-29 14:35 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/541307927.shtml)
-- 2026-06-29 14:15 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/220028.shtml)
-- 2026-06-29 14:20 - [锐评浪姐7总决赛](http://www.share.minike.top/Article/details/40880377.shtml)
-- 2026-06-29 14:35 - [海军舰艇编队将赴香港](https://www.share.minike.top/Article/details/86924.shtml)
-- 2026-06-29 14:15 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/04730.shtml)
-- 2026-06-29 14:27 - [一见倾心](https://www.share.kurohicncr.top/Article/details/39766079.shtml)
-- 2026-06-29 14:23 - [韩国记者：解码“合肥模式”](https://www.blog.minike.top/Article/details/63372472.shtml)
-- 2026-06-29 14:34 - [iPhone18系列预计将大幅涨价](http://www.blog.minike.top/Article/details/0887514723.shtml)
-- 2026-06-29 14:20 - [拄拐少年高考663分：用行动回报社会](http://www.share.kurohicncr.top/Article/details/75499.shtml)
+- 2026-06-29 14:29 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/579119372.shtml)
+- 2026-06-29 14:30 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/8602044005.shtml)
+- 2026-06-29 14:18 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/241235053.shtml)
+- 2026-06-29 14:36 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/15900870673.shtml)
+- 2026-06-29 14:21 - [宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/571799615803.shtml)
+- 2026-06-29 14:35 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/4902452.shtml)
+- 2026-06-29 14:38 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.kurohicncr.top/Article/details/42712.shtml)
+- 2026-06-29 14:25 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/5048075001.shtml)
+- 2026-06-29 14:21 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/242648764760.shtml)
+- 2026-06-29 14:30 - [宜宾发生5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/099692061393.shtml)
+- 2026-06-29 14:31 - [吴建豪老婆](https://www.blog.minike.top/Article/details/1895111834.shtml)
+- 2026-06-29 14:17 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.minike.top/Article/details/618199.shtml)
+- 2026-06-29 14:25 - [下飞机后，我做了个很蠢的决定......](https://www.blog.kurohicncr.top/Article/details/653823350404.shtml)
+- 2026-06-29 14:19 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.share.kurohicncr.top/Article/details/80082558.shtml)
+- 2026-06-29 14:41 - [林昀儒不敌17岁小将止步首轮](https://www.share.minike.top/Article/details/0627385.shtml)

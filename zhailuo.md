@@ -1,50 +1,58 @@
-# 特朗普：美国正在研究削减驻德国美军的可能性
+# 一季度广东纪检监察机关处分厅级干部32人
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-中新网4月30日电 据外媒报道，美国总统特朗普29日在社交媒体发文说，美国正在研究削减驻德国美军的可能性，相关决定将在近期内作出。 据报道，特朗普还另一条贴文中，对德国总理默茨涉伊朗的言论表达不满。特朗普称，“默茨认为伊朗拥有核武器没问题，他根本不知道自己在说什么”，德国现在“无论是在经济还是其他方面都表现得如此糟糕”。 据此前报道，默茨27日在德国北莱茵-威斯特法伦州一所中学
+中新网广州4月25日电 (记者 程景伟)广东省纪委监委“南粤清风网”24日晚通报2026年第一季度全省纪检监察机关监督检查审查调查情况。一季度全省纪检监察机关处分厅级干部32人，处级干部518人，科级干部1314人，一般干部943人，农村、企业等其他人员5266人。2026年第一季度，全省纪检监察机关共接收信访举报39389件次，其中检举控告类信访举报11288件次。处置问题线
 
 ## 正文
 
-中新网4月30日电 据外媒报道，美国总统特朗普29日在社交媒体发文说，美国正在研究削减驻德国美军的可能性，相关决定将在近期内作出。
+中新网广州4月25日电 (记者 程景伟)广东省纪委监委“南粤清风网”24日晚通报2026年第一季度全省纪检监察机关监督检查审查调查情况。
 
-据报道，特朗普还另一条贴文中，对德国总理默茨涉伊朗的言论表达不满。
+一季度全省纪检监察机关处分厅级干部32人，处级干部518人，科级干部1314人，一般干部943人，农村、企业等其他人员5266人。
 
-特朗普称，“默茨认为伊朗拥有核武器没问题，他根本不知道自己在说什么”，德国现在“无论是在经济还是其他方面都表现得如此糟糕”。
+2026年第一季度，全省纪检监察机关共接收信访举报39389件次，其中检举控告类信访举报11288件次。
 
-据此前报道，默茨27日在德国北莱茵-威斯特法伦州一所中学出席活动时说，美国在没有制定任何战略的情况下对伊朗发起军事行动，导致目前进退两难，正遭到伊朗方面“羞辱”。
+处置问题线索28031件。
+
+立案9989件，其中立案厅级干部18人、处级干部521人、科级干部1436人。
+
+处分8073人，其中党纪处分6226人、政务处分2560人。
+
+2026年第一季度，全省纪检监察机关运用“四种形态”批评教育和处理17957人次。
+
+其中，运用第一种形态批评教育和处理9541人次，占总人次的53.1%；运用第二种形态处理6414人次，占35.7%；运用第三种形态处理1008人次，占5.6%；运用第四种形态处理994人次，占5.6%。
 
 ## 相关推荐
 
-- 2026-06-29 14:06 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-29 14:24 - [TOP 无畏契约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-29 14:33 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 14:26 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 14:28 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-29 14:18 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-29 14:08 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-29 14:15 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 14:14 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 14:21 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-29 14:09 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-29 14:12 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-29 14:18 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-29 14:25 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-29 14:41 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 14:26 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 14:18 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 14:12 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-29 14:31 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-29 14:23 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 14:16 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 14:24 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 14:19 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-29 14:20 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:20 - [海军舰艇编队将赴香港](https://www.share.kurohicncr.top/Article/details/85390.shtml)
-- 2026-06-29 14:13 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.minike.top/Article/details/596292.shtml)
-- 2026-06-29 14:34 - [多家银行收紧个人贵金属业务](http://www.share.kurohicncr.top/Article/details/044980196865.shtml)
-- 2026-06-29 14:21 - [A股](http://www.share.kurohicncr.top/Article/details/934942932.shtml)
-- 2026-06-29 14:07 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.share.kurohicncr.top/Article/details/72737701.shtml)
-- 2026-06-29 14:06 - [女心理师](https://www.share.kurohicncr.top/Article/details/308143317.shtml)
-- 2026-06-29 14:13 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/56285.shtml)
-- 2026-06-29 14:31 - [大疆7月15日起涨价？公司回应](https://www.share.kurohicncr.top/Article/details/910013304916.shtml)
-- 2026-06-29 14:11 - [加拿大92分钟绝杀成世界杯首个16强](http://www.share.kurohicncr.top/Article/details/99969601212.shtml)
-- 2026-06-29 14:12 - [事关个税 明日截止请抓紧办理](http://www.share.minike.top/Article/details/088189431313.shtml)
-- 2026-06-29 14:21 - [给阿嬷的情书海外口碑](http://www.share.minike.top/Article/details/377875681104.shtml)
-- 2026-06-29 14:15 - [王楚钦周启豪爆分](https://www.blog.minike.top/Article/details/497331.shtml)
-- 2026-06-29 14:07 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/717906.shtml)
-- 2026-06-29 14:19 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.blog.kurohicncr.top/Article/details/788486.shtml)
-- 2026-06-29 14:16 - [河南考699分女生已接到清华大学电话](https://www.blog.kurohicncr.top/Article/details/554066707.shtml)
+- 2026-06-29 14:36 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/545166.shtml)
+- 2026-06-29 14:39 - [男子月薪五千卖房借贷给女友转账百万](https://www.share.kurohicncr.top/Article/details/967440842825.shtml)
+- 2026-06-29 14:25 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.share.minike.top/Article/details/466658.shtml)
+- 2026-06-29 14:12 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.blog.minike.top/Article/details/2122359.shtml)
+- 2026-06-29 14:23 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/13642877.shtml)
+- 2026-06-29 14:19 - [A股](http://www.blog.kurohicncr.top/Article/details/22372424.shtml)
+- 2026-06-29 14:40 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/197426359843.shtml)
+- 2026-06-29 14:36 - [上周末 多领域成果密集“上新”](https://www.share.minike.top/Article/details/937832040219.shtml)
+- 2026-06-29 14:41 - [一见倾心](https://www.share.minike.top/Article/details/60016826503.shtml)
+- 2026-06-29 14:19 - [欧洲超1300例超额死亡与高温有关](https://www.share.kurohicncr.top/Article/details/92606265.shtml)
+- 2026-06-29 14:14 - [第一批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/70094.shtml)
+- 2026-06-29 14:20 - [C罗关心罗德里戈伤情](https://www.blog.minike.top/Article/details/865503.shtml)
+- 2026-06-29 14:17 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.blog.kurohicncr.top/Article/details/364343628.shtml)
+- 2026-06-29 14:17 - [爱情有烟火你是知道我爱看什么的](http://www.share.kurohicncr.top/Article/details/0516570363.shtml)
+- 2026-06-29 14:40 - [3D打印不是工业革命，它是……](https://www.blog.minike.top/Article/details/03870.shtml)

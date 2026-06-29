@@ -1,58 +1,58 @@
-# 阿联酋能源供需分析
+# 心相近｜路联通心相通，中老友好续写动人故事
 
-> 更新时间：2026-06-29 14:36:02 UTC+8
+> 更新时间：2026-06-29 14:42:02 UTC+8
 
 ## 摘要
 
-专题：突发！阿联酋宣布退出OPEC 来源：OilSage捷诚能源 阿联酋国家虽小，但是油气资源非常丰富。富查伊拉（Fujairah）是全球主要的船用燃料油中心。1950年，阿布扎比开始生产并出口石油。1958年，阿布扎比发现乌姆谢夫海上油气田。1963年，发现上扎库姆油田。 1977年，阿联酋及波斯湾第一座LNG液化厂投运，LNG第一次出口，供应日本。1982年，鲁韦斯（Ruw
+4月25日是中老建交65周年纪念日。日前，中共中央总书记、国家主席习近平会见老挝人民革命党中央总书记、国家主席通伦特使沙伦赛时强调，站在新的历史起点，要“推动中老命运共同体建设朝着高标准、高质量、高水平目标稳步迈进”。 中老铁路“黄金大通道”效应日益显现，一批批“小而美”的民生项目落地见效，“中老友好年”系列庆祝活动正蓬勃开展，越来越多合作交流成果为两国民众带来获得感和幸福感，
 
 ## 正文
 
-专题：突发！
+4月25日是中老建交65周年纪念日。
 
-阿联酋宣布退出OPEC 来源：OilSage捷诚能源 阿联酋国家虽小，但是油气资源非常丰富。
+日前，中共中央总书记、国家主席习近平会见老挝人民革命党中央总书记、国家主席通伦特使沙伦赛时强调，站在新的历史起点，要“推动中老命运共同体建设朝着高标准、高质量、高水平目标稳步迈进”。
 
-富查伊拉（Fujairah）是全球主要的船用燃料油中心。
+中老铁路“黄金大通道”效应日益显现，一批批“小而美”的民生项目落地见效，“中老友好年”系列庆祝活动正蓬勃开展，越来越多合作交流成果为两国民众带来获得感和幸福感，让两国民众越走越近，为推动中老命运共同体建设持续注入动力。
 
-1950年，阿布扎比开始生产并出口石油。
+做中老友好接班人 老挝万象市郊，中老友好农冰村小学里书声琅琅。
 
-1958年，阿布扎比发现乌姆谢夫海上油气田。
+每年新生入学后，老师都会在课堂上讲起习近平主席同学校师生书信往来的动人故事。
 
-1963年，发现上扎库姆油田。
+“‘一带一路’建设给你们的学校和家乡、学习和生活带来了许多积极变化”。
 
-1977年，阿联酋及波斯湾第一座LNG液化厂投运，LNG第一次出口，供应日本。
+习近平主席2019年在给学校师生的复信中写道，亲切鼓励同学们“好好学习，早日成长为国家栋梁，成为中老友好接班人！
 
-1982年，鲁韦斯（Ruwais）炼油厂投产。
+” 校长潘通对新华社记者说，习近平主席的温暖关怀和鼓励一直激励着全体师生，“我们要培养更多有理想、有本领、有担当的学生，为赓续老中传统友谊贡献更多力量”。
 
 ## 相关推荐
 
-- 2026-06-29 14:15 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 14:09 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-29 14:10 - [如何“亲菌子”又“远小人儿”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-29 14:26 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 14:07 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 14:35 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-29 14:28 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-29 14:16 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 14:27 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-29 14:22 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 14:29 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 14:33 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 14:28 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-29 14:34 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 14:40 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-29 14:24 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-29 14:20 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 14:30 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 14:31 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-29 14:37 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-29 14:29 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-29 14:18 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-29 14:12 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-29 14:25 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:07 - [papi酱自曝曾因尝试21天减肥法患病](http://www.blog.kurohicncr.top/Article/details/0745847.shtml)
-- 2026-06-29 14:31 - [三都主：淘汰赛我会支持日本](http://www.blog.kurohicncr.top/Article/details/275551.shtml)
-- 2026-06-29 14:25 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/1917877458.shtml)
-- 2026-06-29 14:32 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/2226898083.shtml)
-- 2026-06-29 14:15 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/79075.shtml)
-- 2026-06-29 14:13 - [大范围炎热天气将至](https://www.blog.minike.top/Article/details/660350047.shtml)
-- 2026-06-29 14:13 - [日本主帅：目标是冠军](http://www.share.minike.top/Article/details/32954.shtml)
-- 2026-06-29 14:29 - [AG 钟意](http://www.share.kurohicncr.top/Article/details/1901832584.shtml)
-- 2026-06-29 14:17 - [吴昕要助理买的药6年前已停产](http://www.blog.minike.top/Article/details/43097732349.shtml)
-- 2026-06-29 14:24 - [扬名立万](http://www.blog.minike.top/Article/details/4918553.shtml)
-- 2026-06-29 14:18 - [多家银行收紧个人贵金属业务](http://www.share.kurohicncr.top/Article/details/58004433904.shtml)
-- 2026-06-29 14:31 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/1579972295.shtml)
-- 2026-06-29 14:07 - [职业选手禁止参赛！](https://www.blog.kurohicncr.top/Article/details/279175143.shtml)
-- 2026-06-29 14:24 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/5984308613.shtml)
-- 2026-06-29 14:19 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/206702717.shtml)
+- 2026-06-29 14:15 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/973808659.shtml)
+- 2026-06-29 14:23 - [C罗关心罗德里戈伤情](https://www.blog.minike.top/Article/details/44955521947.shtml)
+- 2026-06-29 14:29 - [给阿嬷的情书海外口碑](https://www.share.minike.top/Article/details/8773964316.shtml)
+- 2026-06-29 14:32 - [迈巴赫提车第二天发现大灯起雾](https://www.blog.minike.top/Article/details/83445961.shtml)
+- 2026-06-29 14:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/108756845585.shtml)
+- 2026-06-29 14:13 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.kurohicncr.top/Article/details/203982467693.shtml)
+- 2026-06-29 14:31 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/6556535.shtml)
+- 2026-06-29 14:39 - [韩国队启程回国众将回避镜头](https://www.share.kurohicncr.top/Article/details/776664.shtml)
+- 2026-06-29 14:33 - [中国战机大片上新](https://www.blog.minike.top/Article/details/887696255975.shtml)
+- 2026-06-29 14:39 - [周杰伦演唱会真的好多人啊](http://www.blog.kurohicncr.top/Article/details/527105718.shtml)
+- 2026-06-29 14:18 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/356079.shtml)
+- 2026-06-29 14:13 - [内马尔能上场15分钟](http://www.share.minike.top/Article/details/780982902323.shtml)
+- 2026-06-29 14:40 - [智界V9成为高端圈层共同选择](http://www.share.minike.top/Article/details/52056505292.shtml)
+- 2026-06-29 14:41 - [葫芦岛居民楼爆炸致3失联8伤](http://www.blog.kurohicncr.top/Article/details/589631112.shtml)
+- 2026-06-29 14:28 - [全国第三艘万车级汽车运输船交付](http://www.share.kurohicncr.top/Article/details/19637.shtml)
