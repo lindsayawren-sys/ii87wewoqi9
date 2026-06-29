@@ -1,61 +1,57 @@
-# 黑龙江宝清：从“跑一场马”到“游一座城”
+# 002384，拟投资81亿元“追光”
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-中新网双鸭山6月2日电 题：黑龙江宝清：从“跑一场马”到“游一座城” 作者 姜辉 杨启坤 近日，2026宝清马拉松激情开跑，作为黑龙江省本年度首场马拉松赛事，这场盛会迎来举办第三个年头。三年深耕、蝶变跃升，赛事从中国田协C类认证进阶为B类认证，参赛规模三年翻三倍，赛事综合带动消费从最初300万元攀升至4500万元。一场马拉松赛事的成长轨迹，映照出宝清聚力奋进、逐梦前行的发展步伐
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！东山精密（002384）拟大手笔加码光芯片及光模块赛道。 6月16日晚，东山精密公告显示，公司董事会同意公司子公司索尔思光电及其子公司在常州等地实施光芯片及光模块扩建项目，项目总投资额为12亿美元（约合人民币81亿元），以提升索尔思光电整体产能规模，项目投资资金来源为公司自筹资金。 东山精密表示，此次投资扩
 
 ## 正文
 
-中新网双鸭山6月2日电 题：黑龙江宝清：从“跑一场马”到“游一座城” 作者 姜辉 杨启坤 近日，2026宝清马拉松激情开跑，作为黑龙江省本年度首场马拉松赛事，这场盛会迎来举办第三个年头。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-三年深耕、蝶变跃升，赛事从中国田协C类认证进阶为B类认证，参赛规模三年翻三倍，赛事综合带动消费从最初300万元攀升至4500万元。
+东山精密（002384）拟大手笔加码光芯片及光模块赛道。
 
-一场马拉松赛事的成长轨迹，映照出宝清聚力奋进、逐梦前行的发展步伐，更书写出全县上下同心携手、借赛兴城的生动答卷。
+6月16日晚，东山精密公告显示，公司董事会同意公司子公司索尔思光电及其子公司在常州等地实施光芯片及光模块扩建项目，项目总投资额为12亿美元（约合人民币81亿元），以提升索尔思光电整体产能规模，项目投资资金来源为公司自筹资金。
 
-清晨的赛道上，发令枪响，全程、半程项目同步启程，近6000名海内外跑者竞相出发，迎着清风向前奔跑。
+东山精密表示，此次投资扩建可以提升公司高端光芯片、光模块产能，充分满足客户在AI算力服务器相关核心产品上的中长期采购需求，进一步增强公司核心竞争力。
 
-整条赛道依山傍景、串联城乡，一路繁花相伴、步步皆是美景。
+12亿美元再扩产 锚定高端光芯片、光模块 当前，光芯片及光模块已成为AI算力产业的核心基础元器件，行业整体处于历史性高景气阶段，全球AI大模型研发及智算中心建设持续提速，光模块与AI PCB作为算力基础设施核心环节，市场需求持续旺盛。
 
-赛道沿线布设79个氛围路演点位，近3000名本地群众登台表演、呐喊助威，向八方来客展现着独有的人文魅力与城市活力。
+作为国内PCB与精密制造领先企业，东山精密光芯片技术量产工艺及应用技术稳定可靠，下游光模块产品已实现多家行业头部客户产品落地及批量供货。
 
-“我走遍多国参加马拉松，宝清的赛道风光和现场氛围，都是独一无二的。
+2025年，公司收购索尔思光电，后者是全球范围内可自主完成光芯片与光模块的设计、制造和封装的三家公司之一，也是国内少数具备100G及200G光芯片量产能力的企业。
 
-”瑞典选手马丁说。
+记者注意到，此次12亿美元扩建项目是东山精密收购索尔思光电后最大规模的单笔产能投入。
 
 ## 相关推荐
 
-- 2026-06-29 21:22 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-29 21:28 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 21:24 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 21:37 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-29 21:45 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 21:24 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-29 21:28 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 21:22 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 21:28 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-29 21:21 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-29 21:32 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 21:26 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-29 21:47 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-29 21:32 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-29 21:22 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-29 21:42 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-29 21:51 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 21:29 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 21:34 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-29 21:41 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-29 21:43 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-29 21:47 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-29 21:35 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-29 21:34 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-29 21:52 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 21:30 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:29 - [绘画区你赢了](http://www.share.minike.top/Article/details/23115856.shtml)
-- 2026-06-29 21:38 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/026861.shtml)
-- 2026-06-29 21:45 - [林逸向方筱然求婚了](https://www.share.kurohicncr.top/Article/details/942092.shtml)
-- 2026-06-29 21:24 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/259351255.shtml)
-- 2026-06-29 21:38 - [华工科技龙虎榜数据](https://www.blog.kurohicncr.top/Article/details/952933841372.shtml)
-- 2026-06-29 21:35 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/9785316771.shtml)
-- 2026-06-29 21:46 - [宜宾地震已转移安置225人](https://www.share.minike.top/Article/details/558049767135.shtml)
-- 2026-06-29 21:46 - [林逸向方筱然求婚了](https://www.share.kurohicncr.top/Article/details/3713444011.shtml)
-- 2026-06-29 21:41 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/966179004.shtml)
-- 2026-06-29 21:42 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/931615786749.shtml)
-- 2026-06-29 21:35 - [厨房装空调还是装冷烟机](http://www.share.minike.top/Article/details/16229963997.shtml)
-- 2026-06-29 21:33 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/41786517.shtml)
-- 2026-06-29 21:47 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/434845780.shtml)
-- 2026-06-29 21:26 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.kurohicncr.top/Article/details/38476.shtml)
-- 2026-06-29 21:32 - [王楚钦开门红](https://www.share.minike.top/Article/details/47267.shtml)
+- 2026-06-29 21:29 - [逃狱兄弟](http://www.share.minike.top/Article/details/27044764314.shtml)
+- 2026-06-29 21:28 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.kurohicncr.top/Article/details/4204312.shtml)
+- 2026-06-29 21:37 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/02364362703.shtml)
+- 2026-06-29 21:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/3381572560.shtml)
+- 2026-06-29 21:32 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/15957755757.shtml)
+- 2026-06-29 21:48 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/93648.shtml)
+- 2026-06-29 21:41 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/29810.shtml)
+- 2026-06-29 21:28 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.kurohicncr.top/Article/details/642022320384.shtml)
+- 2026-06-29 21:51 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/836728956.shtml)
+- 2026-06-29 21:26 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/1875952587.shtml)
+- 2026-06-29 21:39 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/177531743.shtml)
+- 2026-06-29 21:37 - [中方绝不允许日菲侵害我海洋权益](https://www.share.minike.top/Article/details/578163.shtml)
+- 2026-06-29 21:47 - [斗破苍穹](https://www.blog.minike.top/Article/details/3708008.shtml)
+- 2026-06-29 21:47 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/056171.shtml)
+- 2026-06-29 21:33 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/32289081.shtml)

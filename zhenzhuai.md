@@ -1,44 +1,59 @@
-# 上海：计划到2030年 服务业增加值达6万亿元
+# 美国股市：美伊临时协议提振风险偏好 纳斯达克100指数大涨3.1%
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 10:20 来源：央视新闻 责任编辑：【王祎】
+美国主要股指上涨，此前美国和伊朗同意达成临时协议以重开霍尔木兹海峡，此举推动油价下跌，并在美联储主席凯文·沃什本周首次主持货币政策会议前缓解了市场对通胀的担忧。SpaceX股价上涨20%，进一步提振市场风险偏好。 以科技股为主的纳斯达克100指数上涨3.1%，标普500指数上涨1.7%。 费城半导体指数上涨5.4%，触及纪录高点。 芯片股和人工智能概念股普遍走高，美光科技上涨1
 
 ## 正文
 
-发布时间：2026年06月02日 10:20 来源：央视新闻 责任编辑：【王祎】
+美国主要股指上涨，此前美国和伊朗同意达成临时协议以重开霍尔木兹海峡，此举推动油价下跌，并在美联储主席凯文·沃什本周首次主持货币政策会议前缓解了市场对通胀的担忧。
+
+SpaceX股价上涨20%，进一步提振市场风险偏好。
+
+以科技股为主的纳斯达克100指数上涨3.1%，标普500指数上涨1.7%。
+
+费城半导体指数上涨5.4%，触及纪录高点。
+
+芯片股和人工智能概念股普遍走高，美光科技上涨11%，闪迪上涨6.5%。
+
+美国和伊朗官员定于6月19日在瑞士正式签署协议。
+
+双方尚未公布协议文本，预计最棘手的问题将留待后续阶段处理。
+
+RBC美国股票策略研究主管Lori Calvasina周一在报告中写道，“在接下来的几周里，我们将密切关注外界对美联储、利率和通胀预期的调整情况”，因为股市估值泡沫有所消退，但谈不上特别有吸引力。
 
 ## 相关推荐
 
-- 2026-06-29 21:24 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-29 21:37 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 21:31 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-29 21:36 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-29 21:35 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-29 21:35 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-29 21:28 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-29 21:18 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-29 21:39 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-29 21:19 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-29 21:20 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-29 21:43 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-29 21:44 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-29 21:34 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 21:33 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-29 21:33 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 21:40 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 21:25 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-29 21:53 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 21:52 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-29 21:50 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-29 21:39 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-29 21:52 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-29 21:44 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 21:51 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:26 - [C罗10球7球对垫底队](http://www.share.kurohicncr.top/Article/details/73947504.shtml)
-- 2026-06-29 21:34 - [孙俪开QQ的蛮好生活](https://www.blog.kurohicncr.top/Article/details/476829506.shtml)
-- 2026-06-29 21:33 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/81960709107.shtml)
-- 2026-06-29 21:32 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/066599136.shtml)
-- 2026-06-29 21:18 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/460935861.shtml)
-- 2026-06-29 21:31 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/34850507593.shtml)
-- 2026-06-29 21:35 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/24554619.shtml)
-- 2026-06-29 21:42 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/045961256.shtml)
-- 2026-06-29 21:22 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/17486.shtml)
-- 2026-06-29 21:45 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/009571.shtml)
-- 2026-06-29 21:35 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/9951990925.shtml)
-- 2026-06-29 21:24 - [上世纪90年代玩具成新宠](https://www.blog.kurohicncr.top/Article/details/757791.shtml)
-- 2026-06-29 21:42 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/960980145.shtml)
-- 2026-06-29 21:30 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/4589079.shtml)
-- 2026-06-29 21:20 - [恋与深空各大应用商店评分](http://www.blog.kurohicncr.top/Article/details/661901068.shtml)
+- 2026-06-29 21:53 - [我和我的家乡](http://www.blog.minike.top/Article/details/2758188796.shtml)
+- 2026-06-29 21:47 - [世界杯高票价为何没劝退球迷](http://www.blog.kurohicncr.top/Article/details/20744.shtml)
+- 2026-06-29 21:45 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/4245898.shtml)
+- 2026-06-29 21:43 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/2670027.shtml)
+- 2026-06-29 21:44 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.minike.top/Article/details/7913772870.shtml)
+- 2026-06-29 21:42 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/26650577.shtml)
+- 2026-06-29 21:41 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/447123.shtml)
+- 2026-06-29 21:53 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/127970846.shtml)
+- 2026-06-29 21:52 - [欧洲安装一台空调要花近8000元](http://www.blog.kurohicncr.top/Article/details/73101.shtml)
+- 2026-06-29 21:36 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/494275.shtml)
+- 2026-06-29 21:36 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/2464650105.shtml)
+- 2026-06-29 21:54 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/00087.shtml)
+- 2026-06-29 21:33 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/778575105.shtml)
+- 2026-06-29 21:38 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/80108.shtml)
+- 2026-06-29 21:25 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/58204.shtml)

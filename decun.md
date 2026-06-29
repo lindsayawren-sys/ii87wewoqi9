@@ -1,48 +1,50 @@
-# 贵州省2名县处级干部接受纪律审查和监察调查
+# 日经指数下跌0.3% 受科技和电子股拖累
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-中新网6月2日电 据贵州省纪委监委网站消息，贵州省2名县处级干部接受纪律审查和监察调查。 据贵州省纪委监委派驻贵州能源集团纪检监察组、白云区纪委监委消息，贵州能源集团电力投资有限公司副总工程师、贵州盘江电投发电有限公司副总工程师陈明彦涉嫌严重违纪违法，目前正接受贵州省纪委监委派驻贵州能源集团纪检监察组纪律审查和白云区监委监察调查。 据贵阳市纪委监委消息，贵阳市国防动员办公室(市
+日本日经指数下跌0.3%，至69197.00点，科技和电子股的疲软抵消了重工业和银行股上涨的影响。软银集团下跌4.5%，基恩士下跌1.9%，而川崎重工业上涨3.5%，瑞穗金融集团上涨2.9%。更广泛的市场指数东证指数上涨0.1%，至3996.40点。投资者正密切关注美伊协议的细节以及原油价格。责任编辑：王永生
 
 ## 正文
 
-中新网6月2日电 据贵州省纪委监委网站消息，贵州省2名县处级干部接受纪律审查和监察调查。
+日本日经指数下跌0.3%，至69197.00点，科技和电子股的疲软抵消了重工业和银行股上涨的影响。
 
-据贵州省纪委监委派驻贵州能源集团纪检监察组、白云区纪委监委消息，贵州能源集团电力投资有限公司副总工程师、贵州盘江电投发电有限公司副总工程师陈明彦涉嫌严重违纪违法，目前正接受贵州省纪委监委派驻贵州能源集团纪检监察组纪律审查和白云区监委监察调查。
+软银集团下跌4.5%，基恩士下跌1.9%，而川崎重工业上涨3.5%，瑞穗金融集团上涨2.9%。
 
-据贵阳市纪委监委消息，贵阳市国防动员办公室(市人民防空办公室)党组成员、副主任林虹虹涉嫌严重违纪违法，目前正接受贵阳市纪委监委纪律审查和监察调查。
+更广泛的市场指数东证指数上涨0.1%，至3996.40点。
+
+投资者正密切关注美伊协议的细节以及原油价格。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 21:19 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-29 21:47 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 21:26 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-29 21:45 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-29 21:24 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-29 21:47 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 21:36 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-29 21:25 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 21:19 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-29 21:32 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 21:26 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 21:29 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-29 21:30 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-29 21:51 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-29 21:42 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-29 21:39 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 21:29 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-29 21:51 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 21:24 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 21:44 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 21:33 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-29 21:52 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:21 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/4810719.shtml)
-- 2026-06-29 21:44 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/22102565125.shtml)
-- 2026-06-29 21:19 - [起风了](https://www.blog.kurohicncr.top/Article/details/127053702556.shtml)
-- 2026-06-29 21:41 - [黄金也扛不住了](https://www.share.minike.top/Article/details/07088329.shtml)
-- 2026-06-29 21:43 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/15461049.shtml)
-- 2026-06-29 21:36 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/43970300017.shtml)
-- 2026-06-29 21:30 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/11047754942.shtml)
-- 2026-06-29 21:20 - [韩国800万亿韩元押注半导体](http://www.blog.kurohicncr.top/Article/details/333427259.shtml)
-- 2026-06-29 21:43 - [王楚钦开门红](http://www.blog.minike.top/Article/details/645941648847.shtml)
-- 2026-06-29 21:45 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/40973683.shtml)
-- 2026-06-29 21:45 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/35322731307.shtml)
-- 2026-06-29 21:26 - [千与千寻](http://www.share.kurohicncr.top/Article/details/073510.shtml)
-- 2026-06-29 21:32 - [杨德龙：创新药迎来新的发展机遇](https://www.share.minike.top/Article/details/435188.shtml)
-- 2026-06-29 21:41 - [欧洲多国高温突破40摄氏度](http://www.share.kurohicncr.top/Article/details/21713338856.shtml)
-- 2026-06-29 21:24 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/262059.shtml)
+- 2026-06-29 21:46 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/6002642910.shtml)
+- 2026-06-29 21:36 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/5545446.shtml)
+- 2026-06-29 21:33 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/4809591874.shtml)
+- 2026-06-29 21:49 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/65771.shtml)
+- 2026-06-29 21:27 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/84057801959.shtml)
+- 2026-06-29 21:44 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/4318125890.shtml)
+- 2026-06-29 21:39 - [金刚川](http://www.blog.minike.top/Article/details/72978973.shtml)
+- 2026-06-29 21:26 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/42148972152.shtml)
+- 2026-06-29 21:49 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/20648891.shtml)
+- 2026-06-29 21:25 - [LPL第三赛段赛制公布](http://www.share.minike.top/Article/details/88273.shtml)
+- 2026-06-29 21:52 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/6743417463.shtml)
+- 2026-06-29 21:50 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/137011538.shtml)
+- 2026-06-29 21:42 - [法拉利车主已自行承担修理费近3万](http://www.share.minike.top/Article/details/57544657.shtml)
+- 2026-06-29 21:24 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/8994838672.shtml)
+- 2026-06-29 21:47 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/4468542.shtml)

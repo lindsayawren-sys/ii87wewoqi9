@@ -1,58 +1,61 @@
-# 5月末短期利率逼近0！票据融资放量调查
+# 重磅白皮书发布，为破解全球治理赤字提供中国方案
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者 冯紫彤 张欣 原标题：21深度 | 5月末短期利率逼近0！票据融资放量调查 继4月底迫近零利率后，5月29日，1个月期票据利率年内再次触及0.01%。 这意味着，银行为把一张还有一个月到期的票据收入囊中，宁愿放弃全部的利息收益。 如此极端的定价，在历史上极为罕见。而近期央行发布的社融与信贷数据显示，2026年4月票据融资单月新增12429亿元，创下有统计数
+界面新闻记者 | 张倩楠 界面新闻编辑 | 刘海川 2026年是中国“十五五”开局之年，也是APEC中国年。6月17日，中国国务院新闻办公室发布《构建更加公正合理的全球治理体系：中国的理念、倡议与行动》白皮书，同时举行新闻发布会。中共中央政治局委员、外交部长王毅等出席并介绍白皮书主要内容。 王毅谈到，二战后建立起来的国际体系，当前受到了多重的冲击，全球治理面临逆水行舟、不进则退
 
 ## 正文
 
-21世纪经济报道记者 冯紫彤 张欣 原标题：21深度 | 5月末短期利率逼近0！
+界面新闻记者 | 张倩楠 界面新闻编辑 | 刘海川 2026年是中国“十五五”开局之年，也是APEC中国年。
 
-票据融资放量调查 继4月底迫近零利率后，5月29日，1个月期票据利率年内再次触及0.01%。
+6月17日，中国国务院新闻办公室发布《构建更加公正合理的全球治理体系：中国的理念、倡议与行动》白皮书，同时举行新闻发布会。
 
-这意味着，银行为把一张还有一个月到期的票据收入囊中，宁愿放弃全部的利息收益。
+中共中央政治局委员、外交部长王毅等出席并介绍白皮书主要内容。
 
-如此极端的定价，在历史上极为罕见。
+王毅谈到，二战后建立起来的国际体系，当前受到了多重的冲击，全球治理面临逆水行舟、不进则退。
 
-而近期央行发布的社融与信贷数据显示，2026年4月票据融资单月新增12429亿元，创下有统计数据以来的单月历史最高值，这一增量较此前市场最高纪录大幅高出近50%。
+在这个重要的关头，习近平主席郑重提出全球治理倡议，号召各国携手行动，构建更加公正合理的全球治理体系，为破解全球治理赤字、引领人类前进方向贡献了中国智慧，提供了中国方案。
 
-作为银行调节信贷规模的传统“缓冲垫”，票据融资经常会异化用于平滑信贷波动，但此次超历史峰值的大增，叠加后续短期票据逼近零利率的极致行情，早已超出常规季节性波动范畴。
+他指出，这一重大倡议致力于推动国际关系民主化法治化，要走出一条以共商共建共享为导向的全球治理新路径，从而超越传统国际关系理论“中心—外围”的陈旧秩序，摒弃“强权即公理”的“丛林法则”，进一步深化了对人类社会发展规律的认识，也创新了国际政治文明的理论和实践。
 
-票据规模为何连续冲高？
+“我们看到全球治理倡议一经提出，就得到国际社会的广泛和积极的响应，迄今已得到近160个国家和国际组织的欢迎和支持，还有60多个国家踊跃加入‘全球治理之友小组’。
 
-“零利率”行情如何形成？
+” 王毅表示，全球治理倡议已经从中国方案转化为国际实践，日益展现出强大的生命力。
 
 ## 相关推荐
 
-- 2026-06-29 21:37 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-29 21:26 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-29 21:24 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-29 21:32 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-29 21:44 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 21:46 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-29 21:18 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 21:35 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-29 21:19 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 21:44 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-29 21:35 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-29 21:20 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 21:32 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-29 21:35 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-29 21:30 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-29 21:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 21:53 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 21:40 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 21:25 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 21:34 - [委内瑞拉发生余震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 21:26 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-29 21:41 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-29 21:46 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 21:51 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-29 21:35 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 21:49 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 21:25 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:21 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/27374.shtml)
-- 2026-06-29 21:18 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/805938145801.shtml)
-- 2026-06-29 21:22 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/57430866.shtml)
-- 2026-06-29 21:25 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/76375349711.shtml)
-- 2026-06-29 21:41 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/12523740108.shtml)
-- 2026-06-29 21:32 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/5391773734.shtml)
-- 2026-06-29 21:29 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/5395157.shtml)
-- 2026-06-29 21:39 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/51344956856.shtml)
-- 2026-06-29 21:40 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/217759023.shtml)
-- 2026-06-29 21:21 - [巴西10号球衣是天才传承史](http://www.share.minike.top/Article/details/449821739.shtml)
-- 2026-06-29 21:46 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/856642978865.shtml)
-- 2026-06-29 21:33 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/27854.shtml)
-- 2026-06-29 21:43 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/530949936.shtml)
-- 2026-06-29 21:44 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/912479064.shtml)
-- 2026-06-29 21:29 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/79219939567.shtml)
+- 2026-06-29 21:54 - [王楚钦称抽签结果出来心情不好](http://www.blog.minike.top/Article/details/5650021.shtml)
+- 2026-06-29 21:28 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/250813454175.shtml)
+- 2026-06-29 21:42 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/221297381.shtml)
+- 2026-06-29 21:31 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/207089065.shtml)
+- 2026-06-29 21:48 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/9521983.shtml)
+- 2026-06-29 21:53 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/470986093053.shtml)
+- 2026-06-29 21:41 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/443603601.shtml)
+- 2026-06-29 21:51 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.kurohicncr.top/Article/details/667849316913.shtml)
+- 2026-06-29 21:40 - [欧洲多国高温突破40摄氏度](https://www.blog.kurohicncr.top/Article/details/82870162302.shtml)
+- 2026-06-29 21:34 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/1330617084.shtml)
+- 2026-06-29 21:32 - [东方风云榜](https://www.blog.minike.top/Article/details/1790191362.shtml)
+- 2026-06-29 21:46 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/30694995.shtml)
+- 2026-06-29 21:26 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/85928.shtml)
+- 2026-06-29 21:48 - [王楚钦称抽签结果出来心情不好](http://www.share.kurohicncr.top/Article/details/4880359641.shtml)
+- 2026-06-29 21:43 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/966175120.shtml)

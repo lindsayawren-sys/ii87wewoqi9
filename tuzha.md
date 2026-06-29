@@ -1,58 +1,48 @@
-# 市场监管总局：严厉打击“携密跳槽”“恶意挖角”等行为
+# 中教控股拟发行本金2亿美元的债券
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-中新网6月1日电 据“市说新语”微信公众号消息，6月1日，市场监管总局在北京举办第四届“企业商业秘密保护能力提升服务月”(以下简称“服务月”)启动仪式。 本次活动以“保护商业秘密，护航产业发展”为主题，聚焦规章宣贯、服务供给、监管执法、机制创新、协同共治五方面务实举措。一是通过专题宣讲、案例解读、线上微课等形式，面向不同规模和行业的企业开展分层分类培训，小微企业侧重意识培养和基
+中教控股（00839）公布，于2026年6月16日，公司与联席牵头经办人就债券发行订立认购协议，公司将发行本金总额为2亿美元的债券，该等债券将于2029年6月24日到期，发行价将为债券本金总额的98.963%，年利率5.625%。所得净额约1.98亿美元，拟用于再融资及一般企业用途，包括资本支出及营运资本。责任编辑：卢昱君
 
 ## 正文
 
-中新网6月1日电 据“市说新语”微信公众号消息，6月1日，市场监管总局在北京举办第四届“企业商业秘密保护能力提升服务月”(以下简称“服务月”)启动仪式。
+中教控股（00839）公布，于2026年6月16日，公司与联席牵头经办人就债券发行订立认购协议，公司将发行本金总额为2亿美元的债券，该等债券将于2029年6月24日到期，发行价将为债券本金总额的98.963%，年利率5.625%。
 
-本次活动以“保护商业秘密，护航产业发展”为主题，聚焦规章宣贯、服务供给、监管执法、机制创新、协同共治五方面务实举措。
+所得净额约1.98亿美元，拟用于再融资及一般企业用途，包括资本支出及营运资本。
 
-一是通过专题宣讲、案例解读、线上微课等形式，面向不同规模和行业的企业开展分层分类培训，小微企业侧重意识培养和基础制度建立，大中型企业侧重合规体检和风险排查。
-
-二是聚焦生物医药、集成电路、人工智能等重点领域，建立重点产业和企业清单，实行“一企一策”指导，建立维权快速响应机制，推动服务资源向基层延伸。
-
-三是加大案件查办力度，严厉打击“携密跳槽”“恶意挖角”等行为，集中曝光典型案例，以案释法。
-
-四是推进京津冀、长三角、大湾区、成渝等区域协同保护，鼓励外向型经济发达地区建设涉外保护平台，指导企业运用数字化存证、技术确权等手段。
-
-五是深化与司法、行业主管部门协作，发挥行业协会、专家智库作用，紧盯人才流动、投融资、技术交易等高风险环节，推动行业自律。
-
-“服务月”期间，总局将通过微信公众号、官方网站专栏等集中展示各地亮点举措，营造保护商业秘密、崇尚自主创新的良好氛围。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 21:33 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-29 21:42 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 21:41 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 21:29 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-29 21:37 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 21:33 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 21:31 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-29 21:36 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-29 21:40 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-29 21:37 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-29 21:45 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 21:33 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 21:39 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-29 21:30 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 21:33 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-29 21:38 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 21:45 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 21:39 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 21:39 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 21:50 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 21:31 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 21:49 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-29 21:25 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 21:29 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:20 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/386280014453.shtml)
-- 2026-06-29 21:42 - [《恋与深空》回应争议](https://www.blog.kurohicncr.top/Article/details/89269864832.shtml)
-- 2026-06-29 21:45 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/344110948.shtml)
-- 2026-06-29 21:31 - [爱奇艺抬高国剧新标尺](http://www.blog.kurohicncr.top/Article/details/82209.shtml)
-- 2026-06-29 21:28 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/4785209.shtml)
-- 2026-06-29 21:46 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/57074155.shtml)
-- 2026-06-29 21:28 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/77748750791.shtml)
-- 2026-06-29 21:38 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/40997416.shtml)
-- 2026-06-29 21:19 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/8188663.shtml)
-- 2026-06-29 21:39 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/70530516642.shtml)
-- 2026-06-29 21:18 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/7427357.shtml)
-- 2026-06-29 21:27 - [日本在最东端离岛部署导弹发射装置](https://www.blog.minike.top/Article/details/838959157736.shtml)
-- 2026-06-29 21:45 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/70615338.shtml)
-- 2026-06-29 21:19 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/6736220.shtml)
-- 2026-06-29 21:26 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/13851.shtml)
+- 2026-06-29 21:41 - [小娘惹](https://www.blog.minike.top/Article/details/69111415.shtml)
+- 2026-06-29 21:50 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/123732.shtml)
+- 2026-06-29 21:27 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/785399.shtml)
+- 2026-06-29 21:40 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/570755.shtml)
+- 2026-06-29 21:48 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/779583010.shtml)
+- 2026-06-29 21:27 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/5402819172.shtml)
+- 2026-06-29 21:45 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/616110.shtml)
+- 2026-06-29 21:30 - [朱雀三号完成静态点火试验](http://www.blog.minike.top/Article/details/4368915.shtml)
+- 2026-06-29 21:39 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.share.minike.top/Article/details/202587459725.shtml)
+- 2026-06-29 21:42 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/35646361195.shtml)
+- 2026-06-29 21:49 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/312250.shtml)
+- 2026-06-29 21:29 - [急先锋](https://www.blog.minike.top/Article/details/82239933.shtml)
+- 2026-06-29 21:40 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/043622054678.shtml)
+- 2026-06-29 21:25 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/905775.shtml)
+- 2026-06-29 21:35 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/51592.shtml)

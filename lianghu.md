@@ -1,52 +1,60 @@
-# 中国海警位台岛以东海域执法巡查 发言人指明针对日菲侵权
+# 二次育肥减少或支撑肥标价差扩大
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-中新社北京6月1日电 中国海警局新闻发言人姜略表示，6月1日，中国海警岱山舰编队位中国台湾岛以东海域依法开展执法巡查。这是针对日本和菲律宾单方面宣布启动中国台湾岛以东海域划界谈判、严重侵犯中国领土主权和海洋权益采取的必要行动。 姜略表示，我们敦促日菲立即停止一切侵害中国主权权益的非法行动。中国海警将持续加强有关海域管控，以实际行动坚决维护国家领土主权和海洋权益。(完)
+卓创资讯生猪市场分析师邹莹吉 【导语】6月上半月国内瘦肉型猪价整体震荡微降。现阶段生猪出栏量有所回落，但终端消费持续低迷，屠宰企业收猪偏谨慎，压制猪价上涨，而养殖端挺价情绪支撑猪价跌幅有限。二次育肥意愿走低，叠加多地出台管控政策，未来大猪供给或收缩，给后市猪价带来潜在支撑。 6月上旬微降 卓创资讯数据显示，6月份全国瘦肉型生猪均价呈现出震荡微降态势，截至15日均价为9.50元/
 
 ## 正文
 
-中新社北京6月1日电 中国海警局新闻发言人姜略表示，6月1日，中国海警岱山舰编队位中国台湾岛以东海域依法开展执法巡查。
+卓创资讯生猪市场分析师邹莹吉 【导语】6月上半月国内瘦肉型猪价整体震荡微降。
 
-这是针对日本和菲律宾单方面宣布启动中国台湾岛以东海域划界谈判、严重侵犯中国领土主权和海洋权益采取的必要行动。
+现阶段生猪出栏量有所回落，但终端消费持续低迷，屠宰企业收猪偏谨慎，压制猪价上涨，而养殖端挺价情绪支撑猪价跌幅有限。
 
-姜略表示，我们敦促日菲立即停止一切侵害中国主权权益的非法行动。
+二次育肥意愿走低，叠加多地出台管控政策，未来大猪供给或收缩，给后市猪价带来潜在支撑。
 
-中国海警将持续加强有关海域管控，以实际行动坚决维护国家领土主权和海洋权益。
+6月上旬微降 卓创资讯数据显示，6月份全国瘦肉型生猪均价呈现出震荡微降态势，截至15日均价为9.50元/公斤，环比下跌0.69%。
 
-(完)
+其中，上半月最高点为6月2日的9.58元/公斤，最低点为6月12日的9.44元/公斤。
+
+虽然多种因素影响6月份生猪出栏量减少，但6月份需求下滑，终端市场走货欠佳，屠宰企业收购不积极，猪价难涨；近期养殖端交易均重下滑，且猪价降至低位，多数养殖端降价意愿不高，猪价跌幅较小。
+
+图1 卓创资讯监测生猪均价走势图 数据来源：卓创资讯 二次育肥热度下滑、部分地区严控二次育肥 2026年猪价下跌，养殖亏损，导致二次育肥养殖户补栏积极性下滑。
+
+卓创资讯监测6月12日当周，样本企业出栏量中流入二次育肥渠道的占比为3.12%，已处在2026年最低水平。
 
 ## 相关推荐
 
-- 2026-06-29 21:25 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-29 21:43 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-29 21:22 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-29 21:27 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 21:20 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-29 21:32 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-29 21:33 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-29 21:41 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-29 21:26 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 21:31 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-29 21:38 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-29 21:20 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 21:35 - [东宫女主是不是顶级恋爱脑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 21:26 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 21:30 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 21:27 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 21:44 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-29 21:46 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 21:25 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-29 21:34 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-29 21:47 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-29 21:27 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-29 21:45 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 21:52 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-29 21:38 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-29 21:41 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:39 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/28414724844.shtml)
-- 2026-06-29 21:29 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/840847280210.shtml)
-- 2026-06-29 21:18 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/1508556447.shtml)
-- 2026-06-29 21:23 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/27492296.shtml)
-- 2026-06-29 21:45 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/128603925293.shtml)
-- 2026-06-29 21:30 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/049615.shtml)
-- 2026-06-29 21:31 - [欧洲缘何成为变暖最快的大洲](https://www.blog.kurohicncr.top/Article/details/59162.shtml)
-- 2026-06-29 21:23 - [《贺子珍》](http://www.blog.minike.top/Article/details/1201947.shtml)
-- 2026-06-29 21:29 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/0066432486.shtml)
-- 2026-06-29 21:37 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/99610442630.shtml)
-- 2026-06-29 21:44 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/929814.shtml)
-- 2026-06-29 21:44 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/259431944.shtml)
-- 2026-06-29 21:44 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/9670348.shtml)
-- 2026-06-29 21:29 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/03265460.shtml)
-- 2026-06-29 21:40 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.minike.top/Article/details/679457746.shtml)
+- 2026-06-29 21:47 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/653979161138.shtml)
+- 2026-06-29 21:43 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/193238323.shtml)
+- 2026-06-29 21:37 - [宜宾地震已转移安置225人](http://www.blog.minike.top/Article/details/042928537776.shtml)
+- 2026-06-29 21:38 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/655803438.shtml)
+- 2026-06-29 21:28 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/2721964.shtml)
+- 2026-06-29 21:49 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/729359.shtml)
+- 2026-06-29 21:29 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/96593802.shtml)
+- 2026-06-29 21:47 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/309087724761.shtml)
+- 2026-06-29 21:28 - [王楚钦称抽签结果出来心情不好](https://www.blog.kurohicncr.top/Article/details/5805239.shtml)
+- 2026-06-29 21:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/52314.shtml)
+- 2026-06-29 21:40 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/031695729.shtml)
+- 2026-06-29 21:40 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/698923196936.shtml)
+- 2026-06-29 21:41 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/579916.shtml)
+- 2026-06-29 21:25 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/347936150.shtml)
+- 2026-06-29 21:24 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/55444754493.shtml)

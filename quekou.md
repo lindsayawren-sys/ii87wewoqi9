@@ -1,61 +1,57 @@
-# 深夜中概股逆势上涨，蔚来涨超6%，哔哩哔哩涨超5%，拼多多涨超3%
+# （经济观察）海南封关半年 外资加速入琼
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-6月1日，美股三大指数集体低开，截至北京时间22：30，道琼斯指数跌0.27%，纳斯达克综合指数跌0.03%，标普500指数跌0.06%。 受英伟达新款超级芯片消息影响，相关个股开盘大涨，ARM涨近15%，IBM涨超6%、英伟达涨超4%，微软涨超2%；英特尔、AMD和高通分别下挫3%、2%、6%。 此外，存储芯片概念延续涨势，美光科技涨近6%，股价突破1000美元，闪迪涨超4%
+中新社海口6月16日电 (记者 王子谦)新加坡甜品品牌Co+Nut+Ink(椰壳饮冰淇淋)中国首店近日在海口骑楼老街开业，凭借椰子口味的冰淇淋“圈粉”。椰壳饮品牌创始人邓国荣告诉中新社记者，海南是其走向全球市场的“第一站”。海南自贸港全岛封关已近半年，随着“零关税、低税率”“加工增值30%免关税”等开放优势不断凸显，外资企业纷纷登陆海南。官方披露，自封关至今年4月底，海南新增外
 
 ## 正文
 
-6月1日，美股三大指数集体低开，截至北京时间22：30，道琼斯指数跌0.27%，纳斯达克综合指数跌0.03%，标普500指数跌0.06%。
+中新社海口6月16日电 (记者 王子谦)新加坡甜品品牌Co+Nut+Ink(椰壳饮冰淇淋)中国首店近日在海口骑楼老街开业，凭借椰子口味的冰淇淋“圈粉”。
 
-受英伟达新款超级芯片消息影响，相关个股开盘大涨，ARM涨近15%，IBM涨超6%、英伟达涨超4%，微软涨超2%；英特尔、AMD和高通分别下挫3%、2%、6%。
+椰壳饮品牌创始人邓国荣告诉中新社记者，海南是其走向全球市场的“第一站”。
 
-此外，存储芯片概念延续涨势，美光科技涨近6%，股价突破1000美元，闪迪涨超4%，西部数据涨超3%，希捷科技涨超2%。
+海南自贸港全岛封关已近半年，随着“零关税、低税率”“加工增值30%免关税”等开放优势不断凸显，外资企业纷纷登陆海南。
 
-中概股方面，纳斯达克中国金龙指数涨1.31%，蔚来、小鹏汽车、小马智行、金山云涨超6%，哔哩哔哩涨超5%，拼多多涨超3%。
+官方披露，自封关至今年4月底，海南新增外资企业1016户，同比增长35.5%。
 
-跌幅方面，阿特斯太阳能跌超3%，百度集团跌超2%。
+看好海南自贸港的国际消费集聚优势，椰壳饮在海口注册企业并开设首店。
 
-大宗商品方面，国际油价持续拉升，美油涨超7%报94.25美元/桶，布油涨超近7%报97.39美元/桶。
+邓国荣说，海南企业所得税等税负低且拥有免税政策，有利于外资企业降低成本。
 
-现货黄金跌幅扩大，最新报4454.77美元/盎司，现货白银跌超1%，最新报74.26美元/盎司。
+他希望在培育消费人群的同时，未来两年内开设冰淇淋工厂，进一步扩展中国及海外市场。
 
-加密货币主要币种跌多涨少，比特币日内跌超2%报71514美元/枚。
+普华永道中国南部税务市场主管合伙人王舜宜认为，封关以来外资企业“加速进场”，本质上是高水平制度型开放与独特战略枢纽价值叠加的可持续增长逻辑，海南从早期的“政策预期”真正兑现为全球生产要素的“降本增效高地”。
 
 ## 相关推荐
 
-- 2026-06-29 21:32 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-29 21:38 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-29 21:34 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-29 21:20 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-29 21:33 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 21:21 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-29 21:19 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-29 21:34 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-29 21:40 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-29 21:21 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-29 21:27 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 21:22 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-29 21:41 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 21:35 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-29 21:43 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 21:39 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-29 21:53 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 21:32 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 21:45 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 21:49 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 21:36 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 21:25 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-29 21:30 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-29 21:37 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 21:50 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 21:34 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:43 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/290293367402.shtml)
-- 2026-06-29 21:36 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/13716879.shtml)
-- 2026-06-29 21:23 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/604973684.shtml)
-- 2026-06-29 21:18 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/136710.shtml)
-- 2026-06-29 21:20 - [绘画区你赢了](http://www.share.minike.top/Article/details/929541680.shtml)
-- 2026-06-29 21:34 - [急先锋](https://www.blog.kurohicncr.top/Article/details/328306.shtml)
-- 2026-06-29 21:44 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/88911090930.shtml)
-- 2026-06-29 21:45 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/55440231043.shtml)
-- 2026-06-29 21:42 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/253645477.shtml)
-- 2026-06-29 21:45 - [小娘惹](https://www.share.kurohicncr.top/Article/details/9217647.shtml)
-- 2026-06-29 21:28 - [任泽平：AI浪潮刚刚开始](https://www.blog.kurohicncr.top/Article/details/6850955608.shtml)
-- 2026-06-29 21:41 - [无畏为自己的猫正名了](https://www.blog.minike.top/Article/details/211208.shtml)
-- 2026-06-29 21:30 - [东方风云榜直播](http://www.blog.minike.top/Article/details/1407844.shtml)
-- 2026-06-29 21:35 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.kurohicncr.top/Article/details/96202.shtml)
-- 2026-06-29 21:35 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.kurohicncr.top/Article/details/608955.shtml)
+- 2026-06-29 21:38 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/934720419.shtml)
+- 2026-06-29 21:42 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/312391.shtml)
+- 2026-06-29 21:27 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.minike.top/Article/details/63894990.shtml)
+- 2026-06-29 21:31 - [无畏为自己的猫正名了](http://www.share.kurohicncr.top/Article/details/9099360.shtml)
+- 2026-06-29 21:45 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/9612005468.shtml)
+- 2026-06-29 21:27 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/61216103.shtml)
+- 2026-06-29 21:38 - [本届世界杯已有5人涉性侵风波](http://www.share.kurohicncr.top/Article/details/4035146.shtml)
+- 2026-06-29 21:45 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/892815.shtml)
+- 2026-06-29 21:52 - [蔚来车主罚站](http://www.share.minike.top/Article/details/673804025994.shtml)
+- 2026-06-29 21:29 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/6082569987.shtml)
+- 2026-06-29 21:42 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/266699337.shtml)
+- 2026-06-29 21:50 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/6985489588.shtml)
+- 2026-06-29 21:46 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/561131450278.shtml)
+- 2026-06-29 21:35 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/27473534858.shtml)
+- 2026-06-29 21:46 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.blog.kurohicncr.top/Article/details/274523782356.shtml)

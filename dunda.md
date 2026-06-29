@@ -1,55 +1,51 @@
-# 土耳其一艘载148人游船起火沉没 乘客被迫跳船
+# FPG财盛国际:LNG供应扰动暂告缓和
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-中新网6月1日电 据外媒报道，当地时间5月29日，土耳其一艘载有148人的游船起火后沉入大海，突如其来的危急情况迫使乘客跳船自救。 据报道，涉事船只是一艘海盗主题游船，事发地点位于土耳其海岸附近的地中海海域。 该船从度假城市马尔马里斯出发，但启航后不久，在天堂岛附近开始进水。 附近船只上游客拍摄的惊险画面显示，这艘船在岩石海岸附近起火并剧烈侧倾，随后消失在水下。到最后，只有船桅
+6月16日，澳洲液化天然气项目的劳资扰动风险有所缓解后，FPG财盛国际表示市场对短线供应再受冲击的担忧出现降温，天然气价格预期也随之趋稳。 从供应端角度看，FPG财盛国际认为大型出口项目一旦避免停工，亚太市场的现货紧张情绪就会缓和，这对买方安排后续采购节奏较为关键。 虽然全球天然气市场仍受天气与库存影响，但单一项目的不确定性下降，有助于降低短期报价的大幅波动概率。 综合来看，F
 
 ## 正文
 
-中新网6月1日电 据外媒报道，当地时间5月29日，土耳其一艘载有148人的游船起火后沉入大海，突如其来的危急情况迫使乘客跳船自救。
+6月16日，澳洲液化天然气项目的劳资扰动风险有所缓解后，FPG财盛国际表示市场对短线供应再受冲击的担忧出现降温，天然气价格预期也随之趋稳。
 
-据报道，涉事船只是一艘海盗主题游船，事发地点位于土耳其海岸附近的地中海海域。
+从供应端角度看，FPG财盛国际认为大型出口项目一旦避免停工，亚太市场的现货紧张情绪就会缓和，这对买方安排后续采购节奏较为关键。
 
-该船从度假城市马尔马里斯出发，但启航后不久，在天堂岛附近开始进水。
+虽然全球天然气市场仍受天气与库存影响，但单一项目的不确定性下降，有助于降低短期报价的大幅波动概率。
 
-附近船只上游客拍摄的惊险画面显示，这艘船在岩石海岸附近起火并剧烈侧倾，随后消失在水下。
+综合来看，FPG财盛国际分析称后续仍要关注供应恢复后的实际装运表现，若发运节奏平稳，市场风险溢价还有进一步回落空间。
 
-到最后，只有船桅的顶端还露出水面。
-
-乘客被迫跳入周围的水中，所有乘客和船员都被救援队安全送上岸，游船在约一小时内完全沉没。
+责任编辑：陈平
 
 ## 相关推荐
 
-- 2026-06-29 21:33 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 21:41 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-29 21:30 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 21:29 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 21:46 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-29 21:35 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 21:25 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 21:32 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 21:23 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-29 21:42 - [任泽平：AI浪潮刚刚开始](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-29 21:36 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-29 21:18 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 21:18 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 21:38 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 21:34 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 21:44 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 21:51 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-29 21:53 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 21:43 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 21:47 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 21:53 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 21:35 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-29 21:48 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 21:49 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:27 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/27260677.shtml)
-- 2026-06-29 21:43 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/952624580036.shtml)
-- 2026-06-29 21:42 - [吴建豪和老婆差20岁](http://www.share.minike.top/Article/details/311591541.shtml)
-- 2026-06-29 21:45 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/21543335.shtml)
-- 2026-06-29 21:29 - [世界杯高票价为何没劝退球迷](https://www.blog.kurohicncr.top/Article/details/012762647.shtml)
-- 2026-06-29 21:40 - [笔记本电脑一年涨价近一倍](https://www.blog.minike.top/Article/details/585272.shtml)
-- 2026-06-29 21:27 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.blog.minike.top/Article/details/48273371658.shtml)
-- 2026-06-29 21:41 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/0497933183.shtml)
-- 2026-06-29 21:29 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/936388478152.shtml)
-- 2026-06-29 21:42 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/938607.shtml)
-- 2026-06-29 21:29 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/72780.shtml)
-- 2026-06-29 21:45 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/11031.shtml)
-- 2026-06-29 21:25 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/14670989.shtml)
-- 2026-06-29 21:21 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/432083061.shtml)
-- 2026-06-29 21:37 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/581268393633.shtml)
+- 2026-06-29 21:42 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/4571677.shtml)
+- 2026-06-29 21:43 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/81986.shtml)
+- 2026-06-29 21:24 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/897012.shtml)
+- 2026-06-29 21:31 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/40580069.shtml)
+- 2026-06-29 21:42 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/147357.shtml)
+- 2026-06-29 21:35 - [让AI做一个账号，它会做成什么样？](https://www.blog.kurohicncr.top/Article/details/01989878102.shtml)
+- 2026-06-29 21:51 - [蔚来车主罚站](http://www.share.minike.top/Article/details/671097326727.shtml)
+- 2026-06-29 21:35 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/08777909897.shtml)
+- 2026-06-29 21:43 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/645809884418.shtml)
+- 2026-06-29 21:50 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/14133799605.shtml)
+- 2026-06-29 21:43 - [广东水利防汛Ⅳ级应急响应结束](http://www.share.kurohicncr.top/Article/details/90643.shtml)
+- 2026-06-29 21:52 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/793508668442.shtml)
+- 2026-06-29 21:48 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/1267427773.shtml)
+- 2026-06-29 21:51 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/734147.shtml)
+- 2026-06-29 21:35 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/9360638.shtml)

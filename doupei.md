@@ -1,52 +1,60 @@
-# 全球资产管理公司增持加拿大政府债券
+# 爬土路、挖水晶……流量争夺下研学市场亟待规范
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-加鼎华阜合作银行（Desjardins Group）经济学家Tiago Figueiredo表示，在美债市场面临有关美国债务可持续性问题之际，活跃的全球资产管理公司正在其投资组合中增加更多加拿大公共部门债务（包括联邦和省级债务）。 Figueiredo说，投资者“似乎将加拿大公共部门久期视为美债的可靠高质量替代选择，尽管其市场规模要小得多“。 他补充说，较长期加拿大政府债券中包
+无证经营、安全失防、生态破坏，亲子研学勿被流量裹挟 沙漠徒步、海岛生存、探洞冒险……近年来，我国未成年人研学游市场呈现爆发式增长，部分研学机构“野蛮生长”，各类刺激惊险的户外研学项目屡见不鲜，不仅存在安全隐患，还对当地生态环境造成了破坏。无证经营、安全失防、生态破坏，亲子研学市场乱象丛生，亟待规范。 研学机构爆发式增长带来安全风险 近期，个别研学机构以“自然教育”“研学团”等名
 
 ## 正文
 
-加鼎华阜合作银行（Desjardins Group）经济学家Tiago Figueiredo表示，在美债市场面临有关美国债务可持续性问题之际，活跃的全球资产管理公司正在其投资组合中增加更多加拿大公共部门债务（包括联邦和省级债务）。
+无证经营、安全失防、生态破坏，亲子研学勿被流量裹挟 沙漠徒步、海岛生存、探洞冒险……近年来，我国未成年人研学游市场呈现爆发式增长，部分研学机构“野蛮生长”，各类刺激惊险的户外研学项目屡见不鲜，不仅存在安全隐患，还对当地生态环境造成了破坏。
 
-Figueiredo说，投资者“似乎将加拿大公共部门久期视为美债的可靠高质量替代选择，尽管其市场规模要小得多“。
+无证经营、安全失防、生态破坏，亲子研学市场乱象丛生，亟待规范。
 
-他补充说，较长期加拿大政府债券中包含的期限溢价在发达世界市场中处于最低水平之列。
+研学机构爆发式增长带来安全风险 近期，个别研学机构以“自然教育”“研学团”等名义组团前往广东省广州市黄埔区暹岗大山“采石挖矿”，导致山体多处点位零星林地被破坏，树根裸露，地表出现孔洞。
 
-他指出，加拿大公司债券的配置仍远低于被动基准权重。
+社交媒体上有大量关于“暹岗大山挖水晶”的攻略信息，如“广州亲子自然教育，广州1小时直达的山野矿坑”“广州免费亲子徒步团，冲暹岗大山，挖水晶、爬土路”等，均以野路进山为主。
 
-责任编辑：李桐
+社交媒体上发布的图片显示，参加该徒步团的孩子，有的拿着工具敲打、挖泥土，有的全身趴在泥坑里。
+
+地质专家提醒，这类无序开挖不仅直接破坏山林原生植被，还会改变山体原有结构，大幅增加滑坡、塌方等地质灾害风险。
+
+一旦发生意外，参与活动人员的自身安全也难以得到保障。
+
+“我们都是在微信群里报名的，这种一日团，参加的大多是小学生，且需要家人陪伴。
 
 ## 相关推荐
 
-- 2026-06-29 21:44 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 21:42 - [济南航空航天全面起势](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-29 21:28 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-29 21:38 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 21:30 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 21:24 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-29 21:30 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-29 21:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-29 21:21 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 21:33 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 21:21 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-29 21:18 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 21:44 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 21:30 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-29 21:33 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 21:35 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 21:45 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 21:29 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-29 21:52 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 21:28 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-29 21:40 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-29 21:33 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 21:46 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-29 21:41 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 21:34 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 21:46 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:41 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/2924000873.shtml)
-- 2026-06-29 21:38 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/9249052712.shtml)
-- 2026-06-29 21:22 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/9657201536.shtml)
-- 2026-06-29 21:32 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/93001725019.shtml)
-- 2026-06-29 21:31 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/24610233250.shtml)
-- 2026-06-29 21:18 - [记者：预计热火将追求小哈达威和康利](http://www.blog.minike.top/Article/details/6823565719.shtml)
-- 2026-06-29 21:45 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/466392397298.shtml)
-- 2026-06-29 21:44 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/9905215127.shtml)
-- 2026-06-29 21:38 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/283167269.shtml)
-- 2026-06-29 21:35 - [C罗10球7球对垫底队](https://www.share.kurohicncr.top/Article/details/3287479330.shtml)
-- 2026-06-29 21:36 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/82764956.shtml)
-- 2026-06-29 21:26 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/0609265061.shtml)
-- 2026-06-29 21:22 - [哈兰德玩游戏连女友都不让着](https://www.share.kurohicncr.top/Article/details/51042723.shtml)
-- 2026-06-29 21:22 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/045563694581.shtml)
-- 2026-06-29 21:42 - [记者：预计热火将追求小哈达威和康利](http://www.share.minike.top/Article/details/659373.shtml)
+- 2026-06-29 21:25 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/512545213.shtml)
+- 2026-06-29 21:38 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/134019241152.shtml)
+- 2026-06-29 21:26 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/52069522.shtml)
+- 2026-06-29 21:42 - [C罗10球7球对垫底队](https://www.share.kurohicncr.top/Article/details/896684130119.shtml)
+- 2026-06-29 21:38 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/39679550.shtml)
+- 2026-06-29 21:43 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/825364.shtml)
+- 2026-06-29 21:51 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/566213215.shtml)
+- 2026-06-29 21:52 - [北京发布地质灾害气象风险蓝色预警](http://www.blog.kurohicncr.top/Article/details/44329.shtml)
+- 2026-06-29 21:46 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/3160673005.shtml)
+- 2026-06-29 21:40 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/1492135246.shtml)
+- 2026-06-29 21:32 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/900011.shtml)
+- 2026-06-29 21:49 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/87797868044.shtml)
+- 2026-06-29 21:28 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/4615199.shtml)
+- 2026-06-29 21:40 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/5976035251.shtml)
+- 2026-06-29 21:34 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/14855.shtml)

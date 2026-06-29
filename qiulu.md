@@ -1,60 +1,57 @@
-# 中国起诉性侵害未成年人犯罪近五年首次下降
+# 长江有色：市场屏息静候议息决议观望浓厚 16日铅价或涨跌不大
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-中新社北京6月1日电 (记者 张素)中国最高人民检察院6月1日发布《未成年人检察工作白皮书(2025)》(下称“白皮书”)。其中显示，2025年全国检察机关起诉强奸、猥亵儿童等性侵害未成年人犯罪42873人，同比下降5.5%，系近五年首次下降。白皮书称，最高人民检察院密切关注犯罪态势变化，对2020年以来检察机关办理的性侵害未成年人犯罪案件情况进行专题调研，会同最高人民法院、教
+长江有色金属网 【ccmn.cn铅期货市场】隔周伦铅收涨，开盘报1965美元/吨，高点报1981美元，低点报1965美元，尾盘收于1968.5美元，上涨1.5美元，涨幅为0.08%，成交量8162手，持仓量报176115手。 长江铅业网（pb.ccmn.cn）今日现货铅价行情预估：宏观面：美伊和平谅解备忘录框架正式签署，成为近年中东地缘格局的重大转向。霍尔木兹海峡恢复通航预期升
 
 ## 正文
 
-中新社北京6月1日电 (记者 张素)中国最高人民检察院6月1日发布《未成年人检察工作白皮书(2025)》(下称“白皮书”)。
+长江有色金属网 【ccmn.cn铅期货市场】隔周伦铅收涨，开盘报1965美元/吨，高点报1981美元，低点报1965美元，尾盘收于1968.5美元，上涨1.5美元，涨幅为0.08%，成交量8162手，持仓量报176115手。
 
-其中显示，2025年全国检察机关起诉强奸、猥亵儿童等性侵害未成年人犯罪42873人，同比下降5.5%，系近五年首次下降。
+长江铅业网（pb.ccmn.cn）今日现货铅价行情预估：宏观面：美伊和平谅解备忘录框架正式签署，成为近年中东地缘格局的重大转向。
 
-白皮书称，最高人民检察院密切关注犯罪态势变化，对2020年以来检察机关办理的性侵害未成年人犯罪案件情况进行专题调研，会同最高人民法院、教育部、公安部等16部门出台《关于依法从严惩处和防范性侵害未成年人违法犯罪的意见》，指导各地一体推进线索发现、从严惩处、保护救助、综合治理和预防教育等工作。
+霍尔木兹海峡恢复通航预期升温，地缘避险溢价快速消退，美元指数走弱刷新阶段低点，美元计价工业金属普遍迎来估值修复。
 
-白皮书提到，对奸淫幼女、教师性侵未成年学生等案件，检察机关坚决依法严惩。
+美股全线收红带动风险情绪回暖，叠加欧洲铅冶炼厂因能源成本集中检修，海外精炼铅供给收缩预期持续发酵，推动伦铅独立走强。
 
-最高人民检察院调卷审查湖南刘某某强奸案，认为原生效判决量刑不当，依法督促监督纠正，法院启动再审，刘某某从有期徒刑六年被改判有期徒刑八年。
+当前美联储议息会议临近，市场观望情绪升温，交投趋于清淡，日内铅价以窄幅震荡运行为主。
 
-各地检察机关抗诉改判性侵害未成年人犯罪案件260余件。
+国内铅价跟涨乏力、走势谨慎偏空，供需季节性错配是核心掣肘。
 
-白皮书还称，对组织、强迫、引诱、容留、介绍未成年人卖淫，组织未成年人有偿陪侍犯罪，持续加大打击力度。
+供给端再生铅企业集中复产，原生铅炼厂开工维持高位，精铅整体供应宽松；需求端正值铅酸蓄电池传统消费淡季，下游订单偏弱、成品库存高企，原料采购以刚需补库为主，市场买涨情绪淡薄。
 
-6月1日发布的《北京未成年人检察工作实践与探索(2021—2025)》称，北京检察机关依法从严惩治侵害未成年人犯罪，特别是强奸、猥亵，组织、强迫、引诱、容留、介绍卖淫等性侵害未成年人犯罪，100%提前介入侦查引导取证，准确把握性侵害未成年人案件的证据审查判断和证明标准，严厉打击组织未成年人进行有偿陪侍等活动，依法提出从业禁止、禁止令等建议。
+原料端延续矿紧废松格局，矿端对铅价形成刚性成本支撑，再生原料高位运行挤压冶炼利润。
 
 ## 相关推荐
 
-- 2026-06-29 21:20 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 21:30 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 21:46 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-29 21:27 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 21:38 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-29 21:43 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-29 21:42 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-29 21:24 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-29 21:25 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 21:45 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-29 21:39 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-29 21:37 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 21:35 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-29 21:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 21:35 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-29 21:34 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 21:34 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-29 21:27 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 21:37 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-29 21:42 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-29 21:32 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-29 21:53 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 21:38 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-29 21:26 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 21:24 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:24 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/5912060505.shtml)
-- 2026-06-29 21:21 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/1658855525.shtml)
-- 2026-06-29 21:33 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/9147090.shtml)
-- 2026-06-29 21:41 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.share.kurohicncr.top/Article/details/259085165956.shtml)
-- 2026-06-29 21:43 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/27186309.shtml)
-- 2026-06-29 21:31 - [朱雀三号完成静态点火试验](http://www.share.minike.top/Article/details/9354485660.shtml)
-- 2026-06-29 21:29 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/08191806682.shtml)
-- 2026-06-29 21:44 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/535834.shtml)
-- 2026-06-29 21:40 - [流金岁月](http://www.blog.minike.top/Article/details/58763.shtml)
-- 2026-06-29 21:46 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/6198235296.shtml)
-- 2026-06-29 21:28 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/547090497164.shtml)
-- 2026-06-29 21:44 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/101536784436.shtml)
-- 2026-06-29 21:24 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/28552.shtml)
-- 2026-06-29 21:42 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/6460831963.shtml)
-- 2026-06-29 21:22 - [穆祉丞东方风云榜红毯](https://www.share.minike.top/Article/details/93007339442.shtml)
+- 2026-06-29 21:33 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/129121521.shtml)
+- 2026-06-29 21:51 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/86041628903.shtml)
+- 2026-06-29 21:38 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.kurohicncr.top/Article/details/44051721.shtml)
+- 2026-06-29 21:26 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/631380376138.shtml)
+- 2026-06-29 21:43 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/417177709.shtml)
+- 2026-06-29 21:28 - [铜价上涨 日本住宅水表失窃严重](http://www.share.minike.top/Article/details/95481520.shtml)
+- 2026-06-29 21:44 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/755026569413.shtml)
+- 2026-06-29 21:48 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/76006863805.shtml)
+- 2026-06-29 21:41 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/52177367.shtml)
+- 2026-06-29 21:29 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/29647.shtml)
+- 2026-06-29 21:30 - [济南航空航天全面起势](https://www.share.minike.top/Article/details/27672.shtml)
+- 2026-06-29 21:44 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/230703641670.shtml)
+- 2026-06-29 21:42 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/475327815778.shtml)
+- 2026-06-29 21:35 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/8820957.shtml)
+- 2026-06-29 21:34 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/21105144.shtml)

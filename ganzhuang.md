@@ -1,57 +1,61 @@
-# 黄金跌幅扩大 伊朗停止与美国交换信息
+# 黄金最坏时刻已经过去？巴克莱高喊“抄底”，花旗上调目标价
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-金价跌幅进一步扩大，有关伊朗将停止与美国交换信息的报道令中东停火前景蒙上阴影。 随着国债收益率和美元走高，现货黄金价格一度下跌2%。据伊朗半官方的塔斯尼姆通讯社报道，为回应以色列在黎巴嫩地面攻势的扩大化，伊朗谈判团队将暂停“通过中间人与美国进行的对话及文件交换工作”。 伊朗此前指责华盛顿发出相互矛盾的信号，并拖延谈判进程。尽管美国和伊朗在霍尔木兹海峡附近再次发生交火，但特朗普表
+文章来源：华尔街见闻 巴克莱与花旗同日喊多！黄金历经25%深度调整，美伊谅解备忘录签署在即，油价预期全面逆转，通胀逆风趋于消散。花旗将3个月目标价升至4500美元，6至12个月看涨5000美元；巴克莱断言：此轮是“价格重置”，不是牛市终结。 在经历长达2.5个月、幅度高达20%至25%的深度回调后，黄金正站在关键转折点上。 6月15日，巴克莱与花旗两大机构同日发声，前者明确喊出
 
 ## 正文
 
-金价跌幅进一步扩大，有关伊朗将停止与美国交换信息的报道令中东停火前景蒙上阴影。
+文章来源：华尔街见闻 巴克莱与花旗同日喊多！
 
-随着国债收益率和美元走高，现货黄金价格一度下跌2%。
+黄金历经25%深度调整，美伊谅解备忘录签署在即，油价预期全面逆转，通胀逆风趋于消散。
 
-据伊朗半官方的塔斯尼姆通讯社报道，为回应以色列在黎巴嫩地面攻势的扩大化，伊朗谈判团队将暂停“通过中间人与美国进行的对话及文件交换工作”。
+花旗将3个月目标价升至4500美元，6至12个月看涨5000美元；巴克莱断言：此轮是“价格重置”，不是牛市终结。
 
-伊朗此前指责华盛顿发出相互矛盾的信号，并拖延谈判进程。
+在经历长达2.5个月、幅度高达20%至25%的深度回调后，黄金正站在关键转折点上。
 
-尽管美国和伊朗在霍尔木兹海峡附近再次发生交火，但特朗普表示，与伊朗就达成临时和平协议进行的谈判将“水到渠成”。
+6月15日，巴克莱与花旗两大机构同日发声，前者明确喊出“是时候增加黄金敞口”，后者则将3个月金价目标价从4000美元/盎司上调至4500美元/盎司。
 
-交易员们正试图评估停火协议达成的可能性，美国和伊朗释放出的相互矛盾的信号令市场剧烈波动。
+两家机构的共同判断：此轮调整更像是一次价格重置，而非牛市终结。
 
-和平谈判的中断恐将导致能源价格长期维持高位，这增加了各国央行为了抑制通胀而维持利率不变甚至加息的可能性。
+触发这一轮乐观预判的核心催化剂，是美伊两国宣布将于本周五正式签署谅解备忘录（MoU）。
 
-这种情况对不产生利息的黄金构成利空，黄金通常在高利率环境下表现疲软。
+据花旗研究，这一事件有望推动霍尔木兹海峡贸易流于7月中下旬基本恢复正常，油市将重新聚焦疲软的供需基本面——花旗将2026年三季度至2027年布伦特原油预测分别下调至75美元、70美元和65美元/桶（此前预测为110美元、90美元和80美元/桶）。
 
 ## 相关推荐
 
-- 2026-06-29 21:42 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-29 21:44 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-29 21:23 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-29 21:30 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 21:18 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 21:45 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-29 21:24 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 21:30 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 21:44 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-29 21:28 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 21:33 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 21:31 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 21:49 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 21:24 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-29 21:33 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 21:40 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 21:47 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 21:44 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 21:39 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 21:38 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-29 21:25 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-29 21:38 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-29 21:31 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-29 21:51 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 21:33 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 21:36 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:39 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/106432196.shtml)
-- 2026-06-29 21:37 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/06706.shtml)
-- 2026-06-29 21:36 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/779927.shtml)
-- 2026-06-29 21:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/8599422028.shtml)
-- 2026-06-29 21:38 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/742770.shtml)
-- 2026-06-29 21:43 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/26681187096.shtml)
-- 2026-06-29 21:21 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/22263848900.shtml)
-- 2026-06-29 21:34 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/04071073458.shtml)
-- 2026-06-29 21:32 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/676182279.shtml)
-- 2026-06-29 21:26 - [韩国800万亿韩元押注半导体](http://www.blog.kurohicncr.top/Article/details/7891395453.shtml)
-- 2026-06-29 21:23 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/22217374339.shtml)
-- 2026-06-29 21:25 - [本届世界杯已有5人涉性侵风波](http://www.blog.kurohicncr.top/Article/details/6664737.shtml)
-- 2026-06-29 21:29 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/485447.shtml)
-- 2026-06-29 21:44 - [C罗10球7球对垫底队](https://www.share.kurohicncr.top/Article/details/69147761748.shtml)
-- 2026-06-29 21:38 - [我国多领域成果密集上新](https://www.share.kurohicncr.top/Article/details/104308487.shtml)
+- 2026-06-29 21:50 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.kurohicncr.top/Article/details/6671816.shtml)
+- 2026-06-29 21:26 - [肝不好身体这几处会“说话”](https://www.blog.minike.top/Article/details/739276.shtml)
+- 2026-06-29 21:28 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/8662429881.shtml)
+- 2026-06-29 21:42 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/58845.shtml)
+- 2026-06-29 21:38 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/34058.shtml)
+- 2026-06-29 21:41 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/616422956667.shtml)
+- 2026-06-29 21:39 - [急先锋](https://www.blog.minike.top/Article/details/110481448.shtml)
+- 2026-06-29 21:25 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/6371903.shtml)
+- 2026-06-29 21:50 - [李思潼：不会介意大家夸我运气好](https://www.share.kurohicncr.top/Article/details/95656504.shtml)
+- 2026-06-29 21:43 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/611749.shtml)
+- 2026-06-29 21:31 - [济南航空航天全面起势](http://www.share.kurohicncr.top/Article/details/229077040.shtml)
+- 2026-06-29 21:28 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/15516786.shtml)
+- 2026-06-29 21:32 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/88485.shtml)
+- 2026-06-29 21:38 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/580581172.shtml)
+- 2026-06-29 21:34 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/60920.shtml)

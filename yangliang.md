@@ -1,57 +1,59 @@
-# 外资一致看好A股，沪深300ETF华泰柏瑞（510300） 低费率布局A股核心资产
+# 中国存储十年磨双剑 合肥、武汉双城并立
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-在全球资金重新寻找确定性资产的背景下，高盛、瑞银、摩根士丹利、摩根大通等多家外资机构近期同步上调对中国资产的预期，认为A股仍具备进一步上行空间。中国经济展现韧性、企业盈利持续修复、人民币资产吸引力提升，共同推动全球资金回流中国。 作为A股市场规模居首的ETF产品，沪深300ETF华泰柏瑞（510300） 交投尤为活跃。Wind与交易所最新数据显示，截至2026年5月28日，该产
+6月12日，证监会同意长鑫科技集团股份有限公司（以下简称“长鑫科技”）首次公开发行股票并在科创板上市的注册申请。 当晚，上交所官网显示，长鑫科技的科创板IPO审核状态变更为注册生效。 作为中国第一、全球第四的DRAM厂商，长鑫科技科创板闯关成功，宣告国产存储替代正进入资本加速阶段。 几乎同一时期，长江存储控股股份有限公司完成IPO辅导备案，旗下全资子公司长江存储科技有限责任公司
 
 ## 正文
 
-在全球资金重新寻找确定性资产的背景下，高盛、瑞银、摩根士丹利、摩根大通等多家外资机构近期同步上调对中国资产的预期，认为A股仍具备进一步上行空间。
+6月12日，证监会同意长鑫科技集团股份有限公司（以下简称“长鑫科技”）首次公开发行股票并在科创板上市的注册申请。
 
-中国经济展现韧性、企业盈利持续修复、人民币资产吸引力提升，共同推动全球资金回流中国。
+当晚，上交所官网显示，长鑫科技的科创板IPO审核状态变更为注册生效。
 
-作为A股市场规模居首的ETF产品，沪深300ETF华泰柏瑞（510300） 交投尤为活跃。
+作为中国第一、全球第四的DRAM厂商，长鑫科技科创板闯关成功，宣告国产存储替代正进入资本加速阶段。
 
-Wind与交易所最新数据显示，截至2026年5月28日，该产品基金规模达1380.49亿元，单日资金净流入3.53亿元，5月以来日均成交额高达58.90亿元，流动性优势突出。
+几乎同一时期，长江存储控股股份有限公司完成IPO辅导备案，旗下全资子公司长江存储科技有限责任公司（以下简称“长江存储”）是中国第一、全球第六的NAND厂商。
 
-外资机构明确看多，沪深300指数目标空间可观。
+站在资本市场大门前回望来路，从2016年至今，中国存储产业用十年时间完成了一场逆战，于荒芜中铸就了“合肥—武汉”双城并立的格局。
 
-在5月策略报告中，高盛继续维持对中国股市的“超配”评级，并将沪深300指数未来12个月目标位上调至5300点，同时将A股2026年盈利增速预测上调至20%。
+十年磨双剑 2016年，长江存储、合肥长鑫、福建晋华三个存储器项目相继启动。
 
-沪深300指数是A股市场的核心风向标之一。
+这一年，也被称为中国大陆存储器产业发展的元年。
 
-其成分股构建了“科技+金融+能源+消费”的均衡框架，兼具多条景气主线，既是海内外机构长期持有的底仓配置工具，也是震荡行情中攻守兼备的优质资产。
+三个存储器项目分工明确：长江存储重点发展NAND Flash；合肥国资与兆易创新合作设立长鑫，自主研发DRAM；福建晋华原计划通过与联华电子（UMC）合作开发DRAM，但因陷入法律纠纷，发展停滞。
 
 ## 相关推荐
 
-- 2026-06-29 21:33 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 21:27 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-29 21:30 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 21:26 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-29 21:28 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-29 21:32 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 21:41 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-29 21:42 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 21:19 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 21:43 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-29 21:41 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 21:38 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 21:31 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 21:26 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 21:39 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-29 21:49 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 21:29 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 21:47 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-29 21:37 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-29 21:45 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 21:35 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 21:48 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-29 21:45 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-29 21:34 - [新官上任三把火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:46 - [网友晒14年前支教影像等来学生评论](https://www.blog.kurohicncr.top/Article/details/053929625510.shtml)
-- 2026-06-29 21:40 - [Ella回应SHE何时合体](https://www.share.minike.top/Article/details/761525985224.shtml)
-- 2026-06-29 21:35 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.blog.kurohicncr.top/Article/details/172130908963.shtml)
-- 2026-06-29 21:47 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/017072.shtml)
-- 2026-06-29 21:33 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/686612506.shtml)
-- 2026-06-29 21:35 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/87197495.shtml)
-- 2026-06-29 21:26 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/27527.shtml)
-- 2026-06-29 21:27 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/75851045.shtml)
-- 2026-06-29 21:40 - [网红小徐直播时突遇地震](http://www.share.kurohicncr.top/Article/details/31995015.shtml)
-- 2026-06-29 21:22 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/0887549457.shtml)
-- 2026-06-29 21:25 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/044843.shtml)
-- 2026-06-29 21:34 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/05254083686.shtml)
-- 2026-06-29 21:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/967444114.shtml)
-- 2026-06-29 21:30 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/31984257.shtml)
-- 2026-06-29 21:33 - [杨德龙：创新药迎来新的发展机遇](https://www.share.kurohicncr.top/Article/details/8277651001.shtml)
+- 2026-06-29 21:44 - [乌是否掌握了扭转战局的钥匙](http://www.share.kurohicncr.top/Article/details/07763.shtml)
+- 2026-06-29 21:30 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/850878.shtml)
+- 2026-06-29 21:51 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/3350025.shtml)
+- 2026-06-29 21:42 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/08941349920.shtml)
+- 2026-06-29 21:38 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/215546063.shtml)
+- 2026-06-29 21:44 - [英法德葡存在什么隐患](http://www.blog.kurohicncr.top/Article/details/1931860.shtml)
+- 2026-06-29 21:30 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/290388291741.shtml)
+- 2026-06-29 21:48 - [山东发布山洪灾害气象预警](http://www.blog.kurohicncr.top/Article/details/7606596309.shtml)
+- 2026-06-29 21:24 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/11243.shtml)
+- 2026-06-29 21:41 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/078199.shtml)
+- 2026-06-29 21:33 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/602133462123.shtml)
+- 2026-06-29 21:32 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/5338987698.shtml)
+- 2026-06-29 21:50 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/55627700.shtml)
+- 2026-06-29 21:49 - [美国一牛仔表演发生事故](https://www.share.kurohicncr.top/Article/details/6960279953.shtml)
+- 2026-06-29 21:52 - [记者：预计热火将追求小哈达威和康利](https://www.blog.kurohicncr.top/Article/details/2914116.shtml)

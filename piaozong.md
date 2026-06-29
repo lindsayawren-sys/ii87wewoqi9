@@ -1,59 +1,51 @@
-# “小生意”贴上“金名片” 个体工商户如何“创”出特色品牌
+# 潘功胜：将授权工行、农行等6家银行利用中国外汇交易中心平台在上海自贸区开展离岸人民币外汇交易
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-中新网北京5月31日电(记者 左雨晴) 5月30日，全国先进个体工商户表彰大会在北京召开。市场监管总局党组书记、局长罗文出席会议并讲话。总局党组成员、副局长束为出席会议并宣读表彰决定，总局党组成员、副局长柳军主持会议。会议强调，当前，个体工商户发展迎来前所未有的政策红利和时代机遇，各项扶持举措密集出台，发展环境持续优化。与此同时，市场格局、经营业态、民生需求也在发生深刻变化，对
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 中国人民银行行长潘功胜17日上午在2026陆家嘴论坛上表示，将授权工行、农行、中行、建行、交行、中信等6家银行，利用中国外汇交易中心平台在上海自贸区开展离岸人民币外汇交易。将根据试点情况，进一步推动离岸人民币外汇交易市场发展。 责任编辑：郭建
 
 ## 正文
 
-中新网北京5月31日电(记者 左雨晴) 5月30日，全国先进个体工商户表彰大会在北京召开。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 中国人民银行行长潘功胜17日上午在2026陆家嘴论坛上表示，将授权工行、农行、中行、建行、交行、中信等6家银行，利用中国外汇交易中心平台在上海自贸区开展离岸人民币外汇交易。
 
-市场监管总局党组书记、局长罗文出席会议并讲话。
+将根据试点情况，进一步推动离岸人民币外汇交易市场发展。
 
-总局党组成员、副局长束为出席会议并宣读表彰决定，总局党组成员、副局长柳军主持会议。
-
-会议强调，当前，个体工商户发展迎来前所未有的政策红利和时代机遇，各项扶持举措密集出台，发展环境持续优化。
-
-与此同时，市场格局、经营业态、民生需求也在发生深刻变化，对服务保障、监管规范、党建引领等工作提出新的更高要求。
-
-要主动识变、应变、求变，精准研判形势、明确发力方向，促进个体工商户稳步发展、提质增效。
-
-个体工商户是国民经济的“毛细血管”。
-
-数据显示，2026年第一季度，全国新设经营主体509.8万户，其中新设个体工商户301.4万户，经营主体发展稳中向好，为第一季度国民经济良好开局提供有力支撑。
+责任编辑：郭建
 
 ## 相关推荐
 
-- 2026-06-29 21:31 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-29 21:21 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-29 21:44 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-29 21:21 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-29 21:35 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 21:24 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 21:31 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 21:22 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-29 21:41 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-29 21:31 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-29 21:24 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-29 21:33 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-29 21:22 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 21:45 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-29 21:47 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 21:50 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 21:27 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-29 21:30 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 21:53 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-29 21:35 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-29 21:26 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 21:33 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 21:29 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 21:53 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 21:51 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 21:25 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-29 21:52 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 21:28 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:35 - [孙俪开QQ的蛮好生活](https://www.blog.minike.top/Article/details/533412822.shtml)
-- 2026-06-29 21:42 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/25850794714.shtml)
-- 2026-06-29 21:30 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/91605564.shtml)
-- 2026-06-29 21:39 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/55117118.shtml)
-- 2026-06-29 21:37 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/94491.shtml)
-- 2026-06-29 21:21 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/3136487.shtml)
-- 2026-06-29 21:27 - [李思潼：不会介意大家夸我运气好](http://www.share.minike.top/Article/details/730386606.shtml)
-- 2026-06-29 21:20 - [卢卡申科发布解放军仪仗队视频](https://www.blog.minike.top/Article/details/5799768.shtml)
-- 2026-06-29 21:26 - [爱很美味](http://www.share.minike.top/Article/details/326812734077.shtml)
-- 2026-06-29 21:33 - [王鸿薇要求删陆委会百余万特别费](http://www.blog.minike.top/Article/details/57379.shtml)
-- 2026-06-29 21:20 - [巴黎区长紧急采购50台中国空调](https://www.share.minike.top/Article/details/46052.shtml)
-- 2026-06-29 21:24 - [韩国800万亿韩元押注半导体](http://www.share.minike.top/Article/details/2696816158.shtml)
-- 2026-06-29 21:34 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/06545208999.shtml)
-- 2026-06-29 21:37 - [流金岁月](https://www.blog.minike.top/Article/details/03235.shtml)
-- 2026-06-29 21:24 - [巴黎区长紧急采购50台中国空调](https://www.share.kurohicncr.top/Article/details/741870.shtml)
+- 2026-06-29 21:30 - [媒体评恋与深空用“引狼入室”台词](http://www.share.minike.top/Article/details/022989456605.shtml)
+- 2026-06-29 21:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/9968658.shtml)
+- 2026-06-29 21:46 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/0296048.shtml)
+- 2026-06-29 21:41 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/943778050938.shtml)
+- 2026-06-29 21:49 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/920237233935.shtml)
+- 2026-06-29 21:34 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/51769.shtml)
+- 2026-06-29 21:28 - [半导体和股市为何没让韩国人起飞](http://www.blog.minike.top/Article/details/863297881726.shtml)
+- 2026-06-29 21:36 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/838427665731.shtml)
+- 2026-06-29 21:33 - [网约车出事故平台拒赔称只是中介](http://www.share.kurohicncr.top/Article/details/922868.shtml)
+- 2026-06-29 21:48 - [王安宇聪明到导演组炸了](http://www.share.kurohicncr.top/Article/details/76727.shtml)
+- 2026-06-29 21:24 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.blog.kurohicncr.top/Article/details/058552202.shtml)
+- 2026-06-29 21:34 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/2166812.shtml)
+- 2026-06-29 21:24 - [Ella回应SHE何时合体](https://www.share.minike.top/Article/details/7937739919.shtml)
+- 2026-06-29 21:39 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/7944237.shtml)
+- 2026-06-29 21:28 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/7836999.shtml)

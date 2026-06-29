@@ -1,56 +1,61 @@
-# QXO启动30亿美元贷款发售，为170亿美元收购TopBuild融资
+# 美媒：再现“标志性握手” 特朗普与马克龙夫妇握手聊天
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-QXO公司已启动30亿美元杠杆贷款的发售程序，为其对竞争对手TopBuild Corp．的约170亿美元收购计划筹措资金。这标志着该笔交易正式从战略宣告进入实质性的资产负债表操作阶段。 由富国银行牵头的银团正在向投资者推销一笔金额为30亿美元的优先担保定期贷款，其利差定价为基准利率加约225个基点，折扣价为面值的99至99.5美分。 此次收购是在QXO收购Kodiak Buil
+中新网6月16日电 据美国《新闻周刊》报道，当地时间15日，美国总统特朗普在法国出席七国集团峰会期间与法国总统马克龙夫妇会面，并用上了他的“标志性握手”。其中，特朗普在与法国第一夫人布丽吉特·马克龙握手时，时长超过10秒。 报道指出，特朗普和法国总统马克龙两人之间早已有过多次“拉锯战式”的握手。但这是特朗普首次以这种标志性握手方式，与法国第一夫人握手。 据此前报道，2025年1
 
 ## 正文
 
-QXO公司已启动30亿美元杠杆贷款的发售程序，为其对竞争对手TopBuild Corp．的约170亿美元收购计划筹措资金。
+中新网6月16日电 据美国《新闻周刊》报道，当地时间15日，美国总统特朗普在法国出席七国集团峰会期间与法国总统马克龙夫妇会面，并用上了他的“标志性握手”。
 
-这标志着该笔交易正式从战略宣告进入实质性的资产负债表操作阶段。
+其中，特朗普在与法国第一夫人布丽吉特·马克龙握手时，时长超过10秒。
 
-由富国银行牵头的银团正在向投资者推销一笔金额为30亿美元的优先担保定期贷款，其利差定价为基准利率加约225个基点，折扣价为面值的99至99.5美分。
+报道指出，特朗普和法国总统马克龙两人之间早已有过多次“拉锯战式”的握手。
 
-此次收购是在QXO收购Kodiak Building Partners仅两个月后发起的，旨在打造一个年营收超过180亿美元、调整后EBITDA超过20亿美元的北美第二大上市建材分销巨头。
+但这是特朗普首次以这种标志性握手方式，与法国第一夫人握手。
 
-根据协议，TopBuild股东将有权选择每股获得505美元现金或20.2股QXO普通股。
+据此前报道，2025年10月13日，特朗普在埃及与马克龙会面期间，曾用力握住马克龙的手，期间互相拉扯手臂，还换了几次握法，整个握手过程长达26秒。
 
-整个交易的总对价结构锁定为45%的现金和55%的股票。
+另据美国《国会山报》报道，特朗普在2026年6月15日发表的美媒采访中，谈到马克龙，他说，“我要求他不要向美国公司征税，如果他们这样做，我别无选择，只能对所有来自法国的葡萄酒征收100%的关税。
 
-为了支撑这笔巨额交易，QXO已获得了由摩根士丹利、富国银行和巴克莱银行提供的60亿美元债务融资承诺，其中包括此次发行的30亿美元定期贷款和一笔30亿美元的过桥贷款。
+” 对于特朗普的威胁，马克龙随后回应说，法国不会屈从美方威胁而取消针对美国科技巨头的数字税。
 
-QXO后续可能发行垃圾债券来替换过桥贷款。
+他还表示，加征关税对美国没有好处，因为这无法解决美国的贸易问题，反而推高了某些商品的价格。
 
 ## 相关推荐
 
-- 2026-06-29 21:20 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-29 21:45 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-29 21:32 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 21:21 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-29 21:36 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 21:44 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 21:25 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 21:46 - [林逸向方筱然求婚了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-29 21:38 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-29 21:22 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-29 21:48 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-29 21:52 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-29 21:42 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-29 21:24 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-29 21:52 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 21:39 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-29 21:41 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-29 21:25 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-29 21:38 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 21:53 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-29 21:40 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 21:49 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-29 21:52 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 21:49 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 21:38 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:42 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.minike.top/Article/details/2876048379.shtml)
-- 2026-06-29 21:31 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/140662909890.shtml)
-- 2026-06-29 21:47 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/252400.shtml)
-- 2026-06-29 21:37 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/040109.shtml)
-- 2026-06-29 21:22 - [韩国队回国欢迎仪式取消](http://www.blog.minike.top/Article/details/892078423.shtml)
-- 2026-06-29 21:25 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.kurohicncr.top/Article/details/9993624221.shtml)
-- 2026-06-29 21:32 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/7197610548.shtml)
-- 2026-06-29 21:21 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.kurohicncr.top/Article/details/55642.shtml)
-- 2026-06-29 21:22 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/32093782384.shtml)
-- 2026-06-29 21:35 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/86395811483.shtml)
-- 2026-06-29 21:42 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/9645438171.shtml)
-- 2026-06-29 21:31 - [《新闻联播》正在直播](https://www.blog.minike.top/Article/details/847291624997.shtml)
-- 2026-06-29 21:24 - [欧洲高温会成下个印度吗](https://www.blog.kurohicncr.top/Article/details/4107788868.shtml)
-- 2026-06-29 21:40 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/86429.shtml)
-- 2026-06-29 21:33 - [金刚川](https://www.share.minike.top/Article/details/603483690.shtml)
+- 2026-06-29 21:53 - [中方绝不允许日菲侵害我海洋权益](http://www.share.kurohicncr.top/Article/details/7398648036.shtml)
+- 2026-06-29 21:49 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/6866043.shtml)
+- 2026-06-29 21:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/35008.shtml)
+- 2026-06-29 21:27 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/39517498928.shtml)
+- 2026-06-29 21:42 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/125606457014.shtml)
+- 2026-06-29 21:53 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/616124391.shtml)
+- 2026-06-29 21:28 - [锐评白玉兰提名片段](https://www.blog.kurohicncr.top/Article/details/332368567584.shtml)
+- 2026-06-29 21:53 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/7059293.shtml)
+- 2026-06-29 21:39 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/2162073597.shtml)
+- 2026-06-29 21:46 - [日防卫省正考虑引进美企人工智能系统](http://www.share.kurohicncr.top/Article/details/1299621.shtml)
+- 2026-06-29 21:39 - [高考1357分的同学如何报志愿？](https://www.share.minike.top/Article/details/487472.shtml)
+- 2026-06-29 21:37 - [LPL第三赛段赛制公布](https://www.blog.kurohicncr.top/Article/details/75862536.shtml)
+- 2026-06-29 21:51 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/5712275.shtml)
+- 2026-06-29 21:43 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/24266078.shtml)
+- 2026-06-29 21:43 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/334906201519.shtml)

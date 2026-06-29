@@ -1,58 +1,60 @@
-# “香会”中的国际风云：有人笃定有人忧
+# 英伟达拟发行债券筹集至多250亿美元资金
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-为期3天的香格里拉对话会5月31日在新加坡闭幕。观察此次“香会”，在地区战略格局变化的背景下，亚太国家正在寻找正确的选择，以更好维护地区安全稳定。 聚焦 在“中美建设性战略稳定关系”的新定位下，本届“香会”对于中美关系议题的讨论，更加聚焦于中美两军关系的发展。 在第一场全体大会上，中国人民解放军专家学者代表团成员赵蔚彬向美国防长赫格塞思提问时，就问及中美关系的新定位将如何影响两
+据知情人士透露，英伟达计划通过发行债券筹集至少200亿美元的资金，这将是这家芯片制造商自人工智能热潮兴起以来首次发行债券。 英伟达周一向美国证券交易委员会（SEC）提交的文件披露了此次融资计划，但并未透露具体金额。今年早些时候，该公司曾表示，可能通过发行无担保商业票据筹集至多250亿美元的资金。知情人士称，此次债券发行的最终规模可能接近250亿美元。由于具体数字尚未公开，这些知
 
 ## 正文
 
-为期3天的香格里拉对话会5月31日在新加坡闭幕。
+据知情人士透露，英伟达计划通过发行债券筹集至少200亿美元的资金，这将是这家芯片制造商自人工智能热潮兴起以来首次发行债券。
 
-观察此次“香会”，在地区战略格局变化的背景下，亚太国家正在寻找正确的选择，以更好维护地区安全稳定。
+英伟达周一向美国证券交易委员会（SEC）提交的文件披露了此次融资计划，但并未透露具体金额。
 
-聚焦 在“中美建设性战略稳定关系”的新定位下，本届“香会”对于中美关系议题的讨论，更加聚焦于中美两军关系的发展。
+今年早些时候，该公司曾表示，可能通过发行无担保商业票据筹集至多250亿美元的资金。
 
-在第一场全体大会上，中国人民解放军专家学者代表团成员赵蔚彬向美国防长赫格塞思提问时，就问及中美关系的新定位将如何影响两军关系发展。
+知情人士称，此次债券发行的最终规模可能接近250亿美元。
 
-赫格塞思表示，希望与中国防务部门加强对话。
+由于具体数字尚未公开，这些知情人士要求匿名。
 
-马来西亚太平洋研究中心首席顾问胡逸山在“香会”期间接受媒体采访时指出，大家希望看到中美之间这种有建设性的气氛能够延续下去。
+英伟达股价周一上涨3.5%，今年以来累计上涨约14%。
 
-中方代表团团长孟祥青指出，从大会现场提问和反应中可以看出，中美关系议题在“香会”上引起高度关注，进一步说明中美关系的稳定不仅有利于两国人民，更有利于地区稳定与世界和平。
+这家芯片制造商是最新一家进军资本市场的人工智能相关科技公司。
 
-应变 本届“香会”也打开了一扇观察地区战略格局变化的窗口。
+Alphabet本月早些时候宣布计划通过股权融资筹集850亿美元，此前该公司自去年11月以来已获得超过550亿美元的新债务融资。
 
 ## 相关推荐
 
-- 2026-06-29 21:29 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-29 21:45 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 21:47 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 21:43 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-29 21:21 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 21:43 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-29 21:44 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-29 21:32 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 21:26 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 21:42 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-29 21:20 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 21:32 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 21:29 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 21:33 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-29 21:30 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 21:49 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 21:40 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 21:48 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-29 21:47 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 21:42 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 21:50 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 21:28 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-29 21:52 - [东宫女主是不是顶级恋爱脑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-29 21:28 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 21:50 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 21:25 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:32 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/339963.shtml)
-- 2026-06-29 21:42 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/0778722.shtml)
-- 2026-06-29 21:38 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/69688.shtml)
-- 2026-06-29 21:41 - [欧洲高温会成下个印度吗](http://www.share.minike.top/Article/details/56822396.shtml)
-- 2026-06-29 21:45 - [东方风云榜](https://www.share.minike.top/Article/details/641591280.shtml)
-- 2026-06-29 21:41 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/3263731702.shtml)
-- 2026-06-29 21:36 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/3873441978.shtml)
-- 2026-06-29 21:41 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/634484.shtml)
-- 2026-06-29 21:21 - [山东发布山洪灾害气象预警](http://www.share.kurohicncr.top/Article/details/21979.shtml)
-- 2026-06-29 21:37 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/19959.shtml)
-- 2026-06-29 21:23 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/46104611.shtml)
-- 2026-06-29 21:20 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.minike.top/Article/details/901825.shtml)
-- 2026-06-29 21:24 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/72050.shtml)
-- 2026-06-29 21:25 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/7004559.shtml)
-- 2026-06-29 21:35 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/1154336.shtml)
+- 2026-06-29 21:27 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/58480.shtml)
+- 2026-06-29 21:33 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/469392842095.shtml)
+- 2026-06-29 21:48 - [急先锋](https://www.share.minike.top/Article/details/529673976.shtml)
+- 2026-06-29 21:36 - [回顾世界杯争议事件](http://www.blog.minike.top/Article/details/21192933587.shtml)
+- 2026-06-29 21:27 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/57521901752.shtml)
+- 2026-06-29 21:49 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/55822.shtml)
+- 2026-06-29 21:40 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.kurohicncr.top/Article/details/73416327.shtml)
+- 2026-06-29 21:33 - [直击委内瑞拉加拉加斯救援现场](https://www.share.minike.top/Article/details/7012577491.shtml)
+- 2026-06-29 21:53 - [返利科技盘中上演“天地板”](http://www.share.kurohicncr.top/Article/details/325589.shtml)
+- 2026-06-29 21:44 - [王楚钦称抽签结果出来心情不好](https://www.blog.kurohicncr.top/Article/details/612887212.shtml)
+- 2026-06-29 21:47 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/7789275.shtml)
+- 2026-06-29 21:36 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/0101377.shtml)
+- 2026-06-29 21:28 - [媒体评恋与深空用“引狼入室”台词](https://www.share.kurohicncr.top/Article/details/05212830437.shtml)
+- 2026-06-29 21:49 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/4612558.shtml)
+- 2026-06-29 21:47 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/316600659635.shtml)

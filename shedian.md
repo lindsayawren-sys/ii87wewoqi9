@@ -1,56 +1,58 @@
-# 伊朗战事推高能源成本 巴基斯坦通胀升温
+# 台幼儿园把大陆歌选为毕业歌被霸凌，国台办回应
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-受中东局势推高能源进口成本影响，巴基斯坦通胀率升至两年新高。 巴基斯坦统计局周一公布数据显示，5月居民消费价格指数（CPI）同比上涨11.7%，低于经济学家调查得出的12.2%预期中值；4月通胀同比涨幅为10.9%。 中东冲突加剧了亚洲各燃油进口国的风险，能源价格走高进一步推升通胀、加剧国际收支压力，迫使各国政策制定者出台应急举措，以稳定本币汇率、缓解经济冲击。 巴基斯坦央行在
+中新网6月17日电 6月17日，国台办举行例行新闻发布会。有记者问：台媒报道，有许多岛内幼儿园把《雪龙吟》、《把未来点亮》等大陆歌曲选为毕业歌或日常唱跳活动的歌曲，遭绿营侧翼抹黑，许多幼教老师发声，恳求陌生网友不要再霸凌。请问对此有何评论？ 国台办发言人陈斌华表示，这两首歌曲旋律优美，内容积极正向，一首颂扬拼搏奋进精神，一首期许孩童心怀光明、向阳成长。对于这两首传唱度很高、广受
 
 ## 正文
 
-受中东局势推高能源进口成本影响，巴基斯坦通胀率升至两年新高。
+中新网6月17日电 6月17日，国台办举行例行新闻发布会。
 
-巴基斯坦统计局周一公布数据显示，5月居民消费价格指数（CPI）同比上涨11.7%，低于经济学家调查得出的12.2%预期中值；4月通胀同比涨幅为10.9%。
+有记者问：台媒报道，有许多岛内幼儿园把《雪龙吟》、《把未来点亮》等大陆歌曲选为毕业歌或日常唱跳活动的歌曲，遭绿营侧翼抹黑，许多幼教老师发声，恳求陌生网友不要再霸凌。
 
-中东冲突加剧了亚洲各燃油进口国的风险，能源价格走高进一步推升通胀、加剧国际收支压力，迫使各国政策制定者出台应急举措，以稳定本币汇率、缓解经济冲击。
+请问对此有何评论？
 
-巴基斯坦央行在今年4月上调基准利率，为近三年来首次加息。
+国台办发言人陈斌华表示，这两首歌曲旋律优美，内容积极正向，一首颂扬拼搏奋进精神，一首期许孩童心怀光明、向阳成长。
 
-该行将于6月15日召开下一次利率决议会议。
+对于这两首传唱度很高、广受欢迎的流行歌曲，岛内绿营网军、侧翼却无端抹黑，将黑手伸进纯净的幼儿园，霸凌攻击传唱歌曲的幼教老师，令人不齿。
 
-自战事爆发以来，巴基斯坦已多次上调燃油价格。
+民进党当局、“台独”势力“逢中必反、遇美必软”。
 
-官方数据显示，目前汽油、柴油价格较战前分别上涨48%、38%。
+他们视大陆流行文化为洪水猛兽，看到简体字就抓狂，听到有人说大陆好就网暴，只要是两岸交流活动就宣称在“统战”。
 
-责任编辑：刘明亮
+咄咄怪事，层出不穷，充分暴露他们内心的脆弱和阴暗。
 
 ## 相关推荐
 
-- 2026-06-29 21:43 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-29 21:28 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-29 21:38 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 21:28 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 21:26 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-29 21:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 21:31 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 21:18 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-29 21:26 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 21:46 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-29 21:26 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-29 21:33 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-29 21:49 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-29 21:28 - [委内瑞拉发生余震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-29 21:45 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 21:41 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 21:44 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-29 21:44 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 21:30 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-29 21:31 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-29 21:37 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-29 21:47 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:34 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/74489461809.shtml)
-- 2026-06-29 21:37 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/116301866.shtml)
-- 2026-06-29 21:20 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/42237932853.shtml)
-- 2026-06-29 21:35 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/38922.shtml)
-- 2026-06-29 21:24 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/195950903.shtml)
-- 2026-06-29 21:27 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/8740518.shtml)
-- 2026-06-29 21:40 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/04582757.shtml)
-- 2026-06-29 21:22 - [任泽平：AI浪潮刚刚开始](https://www.blog.minike.top/Article/details/0687048.shtml)
-- 2026-06-29 21:30 - [媒体评恋与深空用“引狼入室”台词](http://www.share.kurohicncr.top/Article/details/821376690.shtml)
-- 2026-06-29 21:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/23894.shtml)
-- 2026-06-29 21:29 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/943539777950.shtml)
-- 2026-06-29 21:36 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/278825376.shtml)
-- 2026-06-29 21:44 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/462815573808.shtml)
-- 2026-06-29 21:18 - [记者暗访养老机构消防安全](http://www.share.kurohicncr.top/Article/details/866624.shtml)
-- 2026-06-29 21:19 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/52045.shtml)
+- 2026-06-29 21:41 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/4682136.shtml)
+- 2026-06-29 21:27 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/22889662.shtml)
+- 2026-06-29 21:51 - [一诺变着花样秀新驾照](http://www.share.minike.top/Article/details/07082.shtml)
+- 2026-06-29 21:25 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/2118840461.shtml)
+- 2026-06-29 21:53 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/734848542.shtml)
+- 2026-06-29 21:31 - [杨紫有3部作品入围金鹰奖](http://www.blog.kurohicncr.top/Article/details/131979300311.shtml)
+- 2026-06-29 21:51 - [送你一朵小红花](http://www.share.minike.top/Article/details/32049.shtml)
+- 2026-06-29 21:53 - [厨房装空调还是装冷烟机](https://www.blog.kurohicncr.top/Article/details/06533.shtml)
+- 2026-06-29 21:25 - [法拉利车主已自行承担修理费近3万](https://www.blog.minike.top/Article/details/356262544.shtml)
+- 2026-06-29 21:32 - [福建海警位金门附近海域常态执法巡查](http://www.blog.minike.top/Article/details/62047.shtml)
+- 2026-06-29 21:37 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/78491.shtml)
+- 2026-06-29 21:29 - [爱很美味](http://www.share.kurohicncr.top/Article/details/0345996470.shtml)
+- 2026-06-29 21:34 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/547140.shtml)
+- 2026-06-29 21:28 - [毒液2](http://www.share.minike.top/Article/details/23139.shtml)
+- 2026-06-29 21:29 - [无畏为自己的猫正名了](https://www.blog.minike.top/Article/details/814941503.shtml)

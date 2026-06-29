@@ -1,59 +1,59 @@
-# 国联民生证券孔蓉：万亿级IPO重塑全球科技股定价，AI投资正从硬件向软件“切换”
+# 探访北京高考评卷现场——一张高考试卷的分数如何出炉
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-2026年注定成为全球科技资本市场的分水岭。SpaceX、OpenAI、Anthropic三大万亿级科技巨头接连启动上市，引发市场对“资金虹吸”与“估值重构”的广泛讨论。 6月2日，国联民生证券研究所副总经理、海外研究首席分析师孔蓉做客新浪证券直播间，就上述热点问题展开深度解读。她认为，巨头上市带来的不仅是资金的重新配置，更将推动全球科技股定价逻辑的根本性改变——从“硬件一边倒
+6月16日，北京市2026年高考评卷工作媒体开放日举行。 北京教育考试院党委委员、副院长周玉玲介绍，评卷工作已于6月11日正式开始，遴选1714名评卷员，在北京大学、清华大学、北京师范大学、首都师范大学、北京第二外国语学院、北京工业大学6个评卷点进行评阅。预计6月24日评卷工作全部结束。 当天，记者在清华大学评卷点现场看到，评卷场所实行封闭管理，设有智能安检门、金属探测器、信号
 
 ## 正文
 
-2026年注定成为全球科技资本市场的分水岭。
+6月16日，北京市2026年高考评卷工作媒体开放日举行。
 
-SpaceX、OpenAI、Anthropic三大万亿级科技巨头接连启动上市，引发市场对“资金虹吸”与“估值重构”的广泛讨论。
+北京教育考试院党委委员、副院长周玉玲介绍，评卷工作已于6月11日正式开始，遴选1714名评卷员，在北京大学、清华大学、北京师范大学、首都师范大学、北京第二外国语学院、北京工业大学6个评卷点进行评阅。
 
-6月2日，国联民生证券研究所副总经理、海外研究首席分析师孔蓉做客新浪证券直播间，就上述热点问题展开深度解读。
+预计6月24日评卷工作全部结束。
 
-她认为，巨头上市带来的不仅是资金的重新配置，更将推动全球科技股定价逻辑的根本性改变——从“硬件一边倒”走向“硬件分化+软件淘金”，而在此过程中，具备数据壁垒的软件公司有望成为下一阶段的“AI赢家”。
+当天，记者在清华大学评卷点现场看到，评卷场所实行封闭管理，设有智能安检门、金属探测器、信号屏蔽仪等设备，所有人员凭有效证件入场，进出阅卷场地均需接受安检。
 
-视频直播>> SpaceX即将以约1.8万亿美元估值登陆纳斯达克，OpenAI、Anthropic紧随其后。
+公安人员在评卷场所全程值守，昼夜值班。
 
-孔蓉指出，市场对这批巨头的追捧，本质上是在不确定性中寻找确定性。
+据了解，评卷场所的系统设备、网络环境全部与外网物理隔离。
 
-“AI这波机会已经持续了3到4年，市场买的是龙头公司的确定性。
+答卷数据服务器部署在专用保密机房，实行24小时无死角视频监控。
 
-”孔蓉表示，“未来会有更多资金，包括带杠杆属性的钱，涌向最确定的方向和最确定的标的。
+评卷数据库每天进行双备份，实施全过程数据审计，确保评卷数据绝对安全。
 
 ## 相关推荐
 
-- 2026-06-29 21:46 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 21:45 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-29 21:35 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 21:42 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 21:43 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-29 21:40 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 21:26 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-29 21:18 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-29 21:34 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-29 21:34 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 21:30 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 21:30 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-29 21:45 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 21:49 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-29 21:24 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 21:39 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 21:42 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 21:24 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 21:27 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-29 21:52 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 21:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-29 21:42 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 21:48 - [华工科技龙虎榜数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 21:50 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-29 21:38 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-29 21:52 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:21 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/30576443.shtml)
-- 2026-06-29 21:27 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/9883696.shtml)
-- 2026-06-29 21:28 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/150792.shtml)
-- 2026-06-29 21:45 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/232044150.shtml)
-- 2026-06-29 21:34 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/85398.shtml)
-- 2026-06-29 21:26 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/94591.shtml)
-- 2026-06-29 21:47 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/1312242.shtml)
-- 2026-06-29 21:43 - [王鸿薇要求删陆委会百余万特别费](https://www.share.minike.top/Article/details/585466.shtml)
-- 2026-06-29 21:41 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/75813882055.shtml)
-- 2026-06-29 21:47 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/4715413.shtml)
-- 2026-06-29 21:34 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/27285.shtml)
-- 2026-06-29 21:25 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/180966931042.shtml)
-- 2026-06-29 21:35 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/2058216135.shtml)
-- 2026-06-29 21:21 - [TLAW零封DCG MSI](http://www.share.kurohicncr.top/Article/details/3745576234.shtml)
-- 2026-06-29 21:19 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/321569262.shtml)
+- 2026-06-29 21:29 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/008230990995.shtml)
+- 2026-06-29 21:28 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/71062905.shtml)
+- 2026-06-29 21:28 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/48192562.shtml)
+- 2026-06-29 21:50 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.minike.top/Article/details/0982295734.shtml)
+- 2026-06-29 21:24 - [不烧钱的低成本爱好](http://www.share.kurohicncr.top/Article/details/3133453160.shtml)
+- 2026-06-29 21:45 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/8506876528.shtml)
+- 2026-06-29 21:39 - [白玉兰答谢宴合影](https://www.blog.minike.top/Article/details/42609.shtml)
+- 2026-06-29 21:47 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/43506900204.shtml)
+- 2026-06-29 21:27 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/802014531.shtml)
+- 2026-06-29 21:31 - [哈兰德玩游戏连女友都不让着](http://www.share.kurohicncr.top/Article/details/260990.shtml)
+- 2026-06-29 21:24 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/68556225.shtml)
+- 2026-06-29 21:25 - [任泽平：AI浪潮刚刚开始](https://www.blog.minike.top/Article/details/86564669.shtml)
+- 2026-06-29 21:49 - [毒液2](https://www.blog.kurohicncr.top/Article/details/51478.shtml)
+- 2026-06-29 21:50 - [一见倾心](http://www.blog.minike.top/Article/details/731614551.shtml)
+- 2026-06-29 21:27 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/90380502.shtml)

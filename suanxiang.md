@@ -1,48 +1,61 @@
-# 香港漫游记：1251个金环装饰的假发 见证古埃及王室时尚
+# SpaceX上市交易次日飙升20% 市值增加4120亿美元
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月01日 12:46 来源：中国新闻网 近日，香港故宫文化博物馆举办“琳琅——纽约大都会艺术博物馆世界珠宝珍藏”特别展览，展出约200件来自亚洲、欧洲、非洲、北美洲和南美洲的展品，呈现近4000年首饰发展史。其中，一顶假发由1251个金环装饰而成，见证了古埃及王室的奢华时尚与信仰。(记者 孙悦 刘玥晴 温孟馨） 责任编辑：【张燕玲】
+SpaceX股价在上市第二个交易日继续大涨，延续该公司在上周五上市首日便跻身全球市值最高的上市公司行列的耀眼表现。 SpaceX周一上涨20%，市值增加4120亿美元。SpaceX收报每股192.46美元，较135美元的IPO发行价高出逾42%。此次上涨推动SpaceX市值突破2.5万亿美元，跻身全球市值前六高的上市公司之列。 按照当前市值计算，SpaceX距离超越市值接近2.
 
 ## 正文
 
-发布时间：2026年06月01日 12:46 来源：中国新闻网 近日，香港故宫文化博物馆举办“琳琅——纽约大都会艺术博物馆世界珠宝珍藏”特别展览，展出约200件来自亚洲、欧洲、非洲、北美洲和南美洲的展品，呈现近4000年首饰发展史。
+SpaceX股价在上市第二个交易日继续大涨，延续该公司在上周五上市首日便跻身全球市值最高的上市公司行列的耀眼表现。
 
-其中，一顶假发由1251个金环装饰而成，见证了古埃及王室的奢华时尚与信仰。
+SpaceX周一上涨20%，市值增加4120亿美元。
 
-(记者 孙悦 刘玥晴 温孟馨） 责任编辑：【张燕玲】
+SpaceX收报每股192.46美元，较135美元的IPO发行价高出逾42%。
+
+此次上涨推动SpaceX市值突破2.5万亿美元，跻身全球市值前六高的上市公司之列。
+
+按照当前市值计算，SpaceX距离超越市值接近2.7万亿美元的亚马逊相差不到1350亿美元。
+
+SpaceX周一在声明中表示，公司已行使IPO的超额配售权，允许承销商额外发售8330万股股票。
+
+这一俗称“绿鞋”机制的操作使融资总额增至862亿美元。
+
+扣除招股说明书中列示的5亿美元承销费用后，募资额为857亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 21:43 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 21:40 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 21:38 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 21:23 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-29 21:24 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-29 21:18 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-29 21:47 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 21:25 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 21:29 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-29 21:46 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 21:31 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-29 21:23 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 21:27 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-29 21:31 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 21:31 - [半导体和股市为何没让韩国人起飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-29 21:36 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 21:37 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 21:26 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 21:24 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-29 21:50 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 21:51 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 21:43 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-29 21:32 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 21:46 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-29 21:49 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 21:41 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 21:30 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:18 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/93876572362.shtml)
-- 2026-06-29 21:37 - [追觅称质量不行终身包修也没意义](http://www.share.kurohicncr.top/Article/details/56959252480.shtml)
-- 2026-06-29 21:25 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/649067.shtml)
-- 2026-06-29 21:32 - [流金岁月](https://www.blog.minike.top/Article/details/6547778.shtml)
-- 2026-06-29 21:40 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/87029.shtml)
-- 2026-06-29 21:22 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/691935861.shtml)
-- 2026-06-29 21:31 - [佛得角队长门德斯被控强奸](https://www.share.kurohicncr.top/Article/details/041751.shtml)
-- 2026-06-29 21:47 - [小龙女配音去世 李若彤发文悼念](https://www.blog.minike.top/Article/details/9389288.shtml)
-- 2026-06-29 21:40 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/1157474871.shtml)
-- 2026-06-29 21:23 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/6433692750.shtml)
-- 2026-06-29 21:39 - [王楚钦称抽签结果出来心情不好](http://www.blog.kurohicncr.top/Article/details/40803578.shtml)
-- 2026-06-29 21:33 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/39539.shtml)
-- 2026-06-29 21:21 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/3172188.shtml)
-- 2026-06-29 21:32 - [欧洲高温会成下个印度吗](http://www.share.kurohicncr.top/Article/details/6349053358.shtml)
-- 2026-06-29 21:30 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.kurohicncr.top/Article/details/666277.shtml)
+- 2026-06-29 21:27 - [一诺变着花样秀新驾照](http://www.share.minike.top/Article/details/22446.shtml)
+- 2026-06-29 21:52 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/1648410355.shtml)
+- 2026-06-29 21:39 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/29514420310.shtml)
+- 2026-06-29 21:31 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/492471.shtml)
+- 2026-06-29 21:38 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.kurohicncr.top/Article/details/9942385.shtml)
+- 2026-06-29 21:49 - [哈兰德玩游戏连女友都不让着](http://www.blog.minike.top/Article/details/6521535.shtml)
+- 2026-06-29 21:32 - [一汽大众黄金超混技术来袭](https://www.share.minike.top/Article/details/8582041.shtml)
+- 2026-06-29 21:37 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/070342423.shtml)
+- 2026-06-29 21:39 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/48043430.shtml)
+- 2026-06-29 21:31 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/6398643.shtml)
+- 2026-06-29 21:36 - [哈兰德玩游戏连女友都不让着](https://www.blog.kurohicncr.top/Article/details/6483268181.shtml)
+- 2026-06-29 21:53 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/160942341.shtml)
+- 2026-06-29 21:45 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/1053618.shtml)
+- 2026-06-29 21:52 - [返利科技盘中上演“天地板”](http://www.share.minike.top/Article/details/58502.shtml)
+- 2026-06-29 21:39 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/59497912.shtml)

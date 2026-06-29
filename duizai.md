@@ -1,58 +1,61 @@
-# 火炬传情山海相依 全民健身激活闽宁乡村新活力
+# 酒价内参6月16日价格发布：五粮液普五八代下跌4元/瓶
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-中新网银川5月31日电 (记者 李佩珊)5月31日，2026中国辉煌足迹火炬传承跑(宁夏永宁站)暨第二届“闽宁薪火·山海情长”全民健身跑在银川市永宁县闽宁镇收官，活动以奔跑为媒传递山海协作温情，以体育力量赋能乡村振兴。 本次赛事紧扣闽宁对口协作发展主题，结合当地特色资源，推动体育与文化、旅游、农业深度融合。赛事主赛道设置9.5公里火炬传承跑路线，赛道串联闽宁镇新镇区，背靠贺兰山
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月16日整体温和回落。如果主要单品各取一瓶整体打包售卖，今日总售价为9927元，较昨日下跌18元，结束此前连续两日回升走势，自昨日创下的23天以来最高位回落。今日总价仍处于进入六月以来的次高位，终端交投情绪环比有所修复，但核心单品的涨跌
 
 ## 正文
 
-中新网银川5月31日电 (记者 李佩珊)5月31日，2026中国辉煌足迹火炬传承跑(宁夏永宁站)暨第二届“闽宁薪火·山海情长”全民健身跑在银川市永宁县闽宁镇收官，活动以奔跑为媒传递山海协作温情，以体育力量赋能乡村振兴。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月16日整体温和回落。
 
-本次赛事紧扣闽宁对口协作发展主题，结合当地特色资源，推动体育与文化、旅游、农业深度融合。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9927元，较昨日下跌18元，结束此前连续两日回升走势，自昨日创下的23天以来最高位回落。
 
-赛事主赛道设置9.5公里火炬传承跑路线，赛道串联闽宁镇新镇区，背靠贺兰山东麓自然风光。
+今日总价仍处于进入六月以来的次高位，终端交投情绪环比有所修复，但核心单品的涨跌分化依然显著。
 
-参赛选手一路奔跑前行，既能欣赏戈壁绿洲的秀美景致，也能直观见证闽宁镇从“干沙滩”到“金沙滩”的沧桑巨变。
+今日11大白酒单品三涨八跌，输家数量占据明显优势。
 
-为推动全民健身全民共享，赛事现场同步搭建特色展示专区，集中推介贺兰山东麓葡萄酒、本地优质农特产品、非遗民俗技艺以及闽宁红色文化，同时设置大众趣味运动互动项目，打破专业赛事的参与壁垒，让体育运动走出专业赛场，融入百姓日常生活，让全民健身理念深入基层群众。
+上涨方面，习酒君品涨幅居前，上涨5元/瓶，收获三连阳，价格快速升至5月20日以来最高位；洋河梦之蓝M6+上涨3元/瓶，重返600元大关；飞天茅台小幅上涨1元/瓶。
 
-作为电视剧《山海情》实景原型地、全国脱贫攻坚楷模，闽宁镇借本次赛事传承红色基因、赓续山海协作情谊，集中展现闽宁协作三十载深耕实干的丰硕成果，也为商、文、旅、农、体、酒多业态融合发展注入了全新动能。
+下跌方面，青花郎跌幅居前，下跌6元/瓶，再度回落至700元关口下方；青花汾20与古井贡古20均下跌5元/瓶，其中前者价格已落至月内次低位；五粮液普五八代下跌4元/瓶，回吐昨日全部涨幅，结束此前连续三日反弹，重回810元一线；国窖1573下跌3元/瓶；水晶剑南春下跌2元/瓶，平进入六月份以来最低价纪录；精品茅台与五粮液1618均小幅下跌1元/瓶，其中后者创下近一月最低点。
 
-(完)
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+
+随着元旦官方i茅台平台开售1499元/瓶的飞天茅台(3月31日上调至1539元/瓶)，1月9日开售2299元/瓶的精品茅台(5月16日上调至2359元/瓶)，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
 
 ## 相关推荐
 
-- 2026-06-29 21:24 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 21:38 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-29 21:29 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-29 21:33 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-29 21:32 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 21:44 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-29 21:45 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-29 21:45 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-29 21:35 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-29 21:20 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 21:20 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-29 21:32 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-29 21:24 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 21:28 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-29 21:30 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 21:43 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 21:53 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 21:30 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-29 21:37 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 21:29 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 21:45 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-29 21:52 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-29 21:41 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-29 21:43 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 21:24 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-29 21:34 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 21:34 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 21:33 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 21:34 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:42 - [委内瑞拉发生余震](http://www.share.minike.top/Article/details/7320621555.shtml)
-- 2026-06-29 21:32 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/9622840042.shtml)
-- 2026-06-29 21:23 - [王冰冰向全网安利哈兰德](http://www.share.kurohicncr.top/Article/details/4981774.shtml)
-- 2026-06-29 21:37 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/09553717063.shtml)
-- 2026-06-29 21:30 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/95651.shtml)
-- 2026-06-29 21:25 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/2809319.shtml)
-- 2026-06-29 21:48 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/684928.shtml)
-- 2026-06-29 21:38 - [东方风云榜直播](https://www.blog.minike.top/Article/details/36722503783.shtml)
-- 2026-06-29 21:32 - [一诺变着花样秀新驾照](https://www.share.minike.top/Article/details/96922.shtml)
-- 2026-06-29 21:20 - [记者暗访养老机构消防安全](http://www.blog.minike.top/Article/details/030922.shtml)
-- 2026-06-29 21:45 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/1768076308.shtml)
-- 2026-06-29 21:26 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/598818382.shtml)
-- 2026-06-29 21:39 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/497637254.shtml)
-- 2026-06-29 21:47 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/40663314.shtml)
-- 2026-06-29 21:30 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/2796174138.shtml)
+- 2026-06-29 21:49 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/08484613.shtml)
+- 2026-06-29 21:24 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/272126521714.shtml)
+- 2026-06-29 21:39 - [铜价上涨 日本住宅水表失窃严重](https://www.share.minike.top/Article/details/24902069.shtml)
+- 2026-06-29 21:40 - [黄金也扛不住了](http://www.share.minike.top/Article/details/60884422682.shtml)
+- 2026-06-29 21:40 - [本届世界杯已有5人涉性侵风波](https://www.blog.minike.top/Article/details/849134235781.shtml)
+- 2026-06-29 21:28 - [王楚钦称抽签结果出来心情不好](http://www.blog.minike.top/Article/details/0096311678.shtml)
+- 2026-06-29 21:48 - [吴建豪和老婆差20岁](http://www.share.kurohicncr.top/Article/details/67761441.shtml)
+- 2026-06-29 21:35 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/2391263119.shtml)
+- 2026-06-29 21:28 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/96324401.shtml)
+- 2026-06-29 21:42 - [急先锋](https://www.share.kurohicncr.top/Article/details/34298333119.shtml)
+- 2026-06-29 21:24 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/608067.shtml)
+- 2026-06-29 21:29 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/709945705967.shtml)
+- 2026-06-29 21:49 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/836603181.shtml)
+- 2026-06-29 21:45 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/556326768.shtml)
+- 2026-06-29 21:34 - [夫妻生活太无聊，所以我……](https://www.blog.minike.top/Article/details/15284003133.shtml)

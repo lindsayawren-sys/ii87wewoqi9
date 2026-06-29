@@ -1,60 +1,55 @@
-# 近3日连续吸金8500万元！双创50ETF华宝（588330）年内20次创新高！Computex2026来袭，AI超级周期或仍在半途
+# 吴清：加快培育壮大耐心资本，积极拓宽资金来源，引导养老金、保险资金等加大股权投资力度
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-周五（5月29日）覆盖创业板+科创板50只高成长龙头的硬科技宽基——双创50ETF华宝（588330）盘中续创历史新高，自2026年4月10日该ETF刷新2021年7月13日高点以来，累计第20次刷新历史高点。 伴随火热的行情，资金积极进场布局，双创50ETF华宝（588330）近3个交易日连续吸金，合计狂揽8503万元！ 拉长时间来看，双创50ETF华宝（588330）标的指
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月17日，2026陆家嘴论坛开幕。中国证监会主席吴清就《进一步健全投融资相协调的资本市场功能更好服务新质生产力和经济高质量发展》发表主题演讲。他表示，加快培育壮大耐心资本，积极拓宽资金来源，支持国资基金与社会资本优势互补，引导养老金、保险资金等
 
 ## 正文
 
-周五（5月29日）覆盖创业板+科创板50只高成长龙头的硬科技宽基——双创50ETF华宝（588330）盘中续创历史新高，自2026年4月10日该ETF刷新2021年7月13日高点以来，累计第20次刷新历史高点。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-伴随火热的行情，资金积极进场布局，双创50ETF华宝（588330）近3个交易日连续吸金，合计狂揽8503万元！
+6月17日，2026陆家嘴论坛开幕。
 
-拉长时间来看，双创50ETF华宝（588330）标的指数（科创创业50指数）自“9.24”行情以来，累计上涨216.27%，大幅跑赢创业板50（191.77%）、科创50（172.35%）等主要指数，领跑一众硬科技宽基！
+中国证监会主席吴清就《进一步健全投融资相协调的资本市场功能更好服务新质生产力和经济高质量发展》发表主题演讲。
 
-消息面上，Computex2026（国际电脑展）将于6月2日至5日举行，英伟达、AMD、英特尔、高通、Arm、Marvell等多家芯片巨头将齐聚一堂，英伟达或进军AI PC。
+他表示，加快培育壮大耐心资本，积极拓宽资金来源，支持国资基金与社会资本优势互补，引导养老金、保险资金等加大股权投资力度，促进进一步畅通“募投管退”循环。
 
-临近ComputeX大会开幕，英伟达官方账号发出三字预告“A new era of PC”。
-
-微软Windows和Arm当日也发布同一内容，三方罕见联动。
-
-据悉英伟达计划在6月初发布面向PC的系统级芯片，进军WindowsPC处理器市场。
-
-知情人士透露，首批搭载英伟达芯片的Windows电脑，将同时现身ComputeX与微软Build开发者大会。
+责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-29 21:34 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-29 21:22 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 21:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-29 21:33 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-29 21:29 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 21:34 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-29 21:35 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 21:20 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-29 21:25 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 21:40 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 21:38 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 21:25 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 21:33 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-29 21:31 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 21:42 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 21:28 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-29 21:41 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 21:47 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-29 21:41 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-29 21:43 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 21:37 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-29 21:41 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 21:38 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 21:35 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-29 21:49 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 21:38 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-29 21:51 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 21:40 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 21:26 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:45 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/499708044.shtml)
-- 2026-06-29 21:26 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/15793879.shtml)
-- 2026-06-29 21:19 - [欧洲多国高温突破40摄氏度](https://www.blog.kurohicncr.top/Article/details/3247399695.shtml)
-- 2026-06-29 21:33 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/929569638971.shtml)
-- 2026-06-29 21:36 - [肝不好身体这几处会“说话”](https://www.blog.minike.top/Article/details/26380.shtml)
-- 2026-06-29 21:44 - [中方绝不允许日菲侵害我海洋权益](https://www.share.minike.top/Article/details/17032357.shtml)
-- 2026-06-29 21:45 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/6595378145.shtml)
-- 2026-06-29 21:30 - [佛得角队长门德斯被控强奸](http://www.blog.kurohicncr.top/Article/details/24573841.shtml)
-- 2026-06-29 21:21 - [王鸿薇要求删陆委会百余万特别费](http://www.blog.kurohicncr.top/Article/details/7104025475.shtml)
-- 2026-06-29 21:36 - [王鸿薇要求删陆委会百余万特别费](https://www.blog.kurohicncr.top/Article/details/06347791.shtml)
-- 2026-06-29 21:42 - [炽夏](https://www.share.kurohicncr.top/Article/details/943124650602.shtml)
-- 2026-06-29 21:31 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/68629212.shtml)
-- 2026-06-29 21:42 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/02312.shtml)
-- 2026-06-29 21:18 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/4966120.shtml)
-- 2026-06-29 21:47 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/149311561.shtml)
+- 2026-06-29 21:53 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/16305.shtml)
+- 2026-06-29 21:49 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/795213802.shtml)
+- 2026-06-29 21:32 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/48948.shtml)
+- 2026-06-29 21:47 - [被中方管控的20家日本实体什么来头](http://www.share.minike.top/Article/details/2849500522.shtml)
+- 2026-06-29 21:45 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/810553625.shtml)
+- 2026-06-29 21:25 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/654704214094.shtml)
+- 2026-06-29 21:50 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/116416882356.shtml)
+- 2026-06-29 21:29 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/721470057192.shtml)
+- 2026-06-29 21:45 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/3992639895.shtml)
+- 2026-06-29 21:37 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/537383.shtml)
+- 2026-06-29 21:43 - [中方在台湾岛以东海域活动合理合法](https://www.blog.kurohicncr.top/Article/details/642313.shtml)
+- 2026-06-29 21:47 - [李思潼：不会介意大家夸我运气好](http://www.share.kurohicncr.top/Article/details/4659716.shtml)
+- 2026-06-29 21:49 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/434265929.shtml)
+- 2026-06-29 21:33 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/2194303321.shtml)
+- 2026-06-29 21:51 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/419477473.shtml)

@@ -1,57 +1,61 @@
-# MiniMax：拟于科创板上市
+# “全球大模型第一股”智谱再度大涨超10%，市值突破7000亿港元！ A股如何借道布局？
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！MiniMax公告，董事会宣布已决议探究拟发行人民币股份的初步建议，可能涉及与专业顾问订立协议及与相关证券或其他监管机构进行咨询及磋商。公司已聘请专业顾问就符合在科创板上市条件提供咨询，并签订辅导协议。拟发行人民币股份事宜将取决于市场状况及必要的监管批准。 MiniMax为国内头部大模型厂商，于2026年1
+今日（6月16日），港股硬科技板块在昨日大涨后迎来小幅盘整，崛起中的大模型巨头智谱继昨日单日飙涨32%后今日再度发力，逆市涨超10%，市值突破7000亿港元！同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）窄幅震荡，场内价格现跌0.46%，盘中溢价明显，实时成交额7.5亿元。 业内人士认为港股通制度调整是本轮AI板块走强的一大支撑。6月8日，壁仞科技、天数智
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+今日（6月16日），港股硬科技板块在昨日大涨后迎来小幅盘整，崛起中的大模型巨头智谱继昨日单日飙涨32%后今日再度发力，逆市涨超10%，市值突破7000亿港元！
 
-MiniMax公告，董事会宣布已决议探究拟发行人民币股份的初步建议，可能涉及与专业顾问订立协议及与相关证券或其他监管机构进行咨询及磋商。
+同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）窄幅震荡，场内价格现跌0.46%，盘中溢价明显，实时成交额7.5亿元。
 
-公司已聘请专业顾问就符合在科创板上市条件提供咨询，并签订辅导协议。
+业内人士认为港股通制度调整是本轮AI板块走强的一大支撑。
 
-拟发行人民币股份事宜将取决于市场状况及必要的监管批准。
+6月8日，壁仞科技、天数智芯、智谱、海致科技四家企业集中调入港股通，覆盖了国产AI产业完整闭环：壁仞科技、天数智芯解决算力供给；智谱提供通用大模型能力；海致科技聚焦产业落地。
 
-MiniMax为国内头部大模型厂商，于2026年1月在港交所上市后，现市值为2636亿港元。
+四家企业同步纳入南向资金池，内地资金可直接配置国产AI核心资产。
 
-另一大模型厂商智谱同期在港交所上市，当下亦在推进科创板IPO事宜。
+6月15日，智谱发布公告，公司已推出最新一代旗舰模型GLM-5.2，模型提供达到1M的长上下文，并在长程任务中继续保持领先，将遵循MIT协议开源。
 
-港股上市以来，MiniMax的年化经常性收入（ARR）实现了快速增长。
+就在当天，智谱正式纳入港股通信息技术ETF华宝（159131）标的指数成份股，该指数成为全市场率先纳入智谱的港股科技类指数之一。
 
-5月28日，MiniMax披露最新业务数据。
+同步纳入的新晋成份股还有壁仞科技、胜宏科技、天数智芯、海致科技等硬件翘楚。
 
 ## 相关推荐
 
-- 2026-06-29 21:23 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 21:45 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 21:34 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-29 21:19 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-29 21:46 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 21:45 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-29 21:23 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-29 21:43 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 21:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 21:42 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 21:27 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-29 21:39 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-29 21:31 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 21:40 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 21:37 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 21:33 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-29 21:36 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-29 21:37 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-29 21:25 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-29 21:34 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 21:34 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-29 21:33 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 21:24 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-29 21:33 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 21:45 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 21:32 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:32 - [天道](http://www.blog.minike.top/Article/details/803498.shtml)
-- 2026-06-29 21:32 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.kurohicncr.top/Article/details/0052222450.shtml)
-- 2026-06-29 21:30 - [任泽平：AI浪潮刚刚开始](https://www.blog.kurohicncr.top/Article/details/8052569981.shtml)
-- 2026-06-29 21:47 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/0135508.shtml)
-- 2026-06-29 21:34 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/1174791342.shtml)
-- 2026-06-29 21:41 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/255179.shtml)
-- 2026-06-29 21:34 - [2026全国田径冠军赛江苏队4金收官](https://www.share.minike.top/Article/details/924073.shtml)
-- 2026-06-29 21:36 - [电动车主等红灯遭三轮车上横杆砸头](http://www.share.kurohicncr.top/Article/details/933248381253.shtml)
-- 2026-06-29 21:36 - [Ella回应SHE何时合体](https://www.blog.minike.top/Article/details/162534194.shtml)
-- 2026-06-29 21:32 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/1988460.shtml)
-- 2026-06-29 21:22 - [斛珠夫人](http://www.share.minike.top/Article/details/287386565934.shtml)
-- 2026-06-29 21:25 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/604647510709.shtml)
-- 2026-06-29 21:36 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/760077199980.shtml)
-- 2026-06-29 21:24 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/7640616402.shtml)
-- 2026-06-29 21:39 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/36045.shtml)
+- 2026-06-29 21:53 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/46740.shtml)
+- 2026-06-29 21:45 - [记者暗访养老机构消防安全](http://www.blog.minike.top/Article/details/610307946.shtml)
+- 2026-06-29 21:53 - [TLAW零封DCG MSI](https://www.share.minike.top/Article/details/9404095343.shtml)
+- 2026-06-29 21:47 - [东方风云榜直播](https://www.share.minike.top/Article/details/2107500.shtml)
+- 2026-06-29 21:41 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/13997240220.shtml)
+- 2026-06-29 21:53 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.kurohicncr.top/Article/details/617639.shtml)
+- 2026-06-29 21:27 - [普京建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/8014747827.shtml)
+- 2026-06-29 21:35 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/22592351.shtml)
+- 2026-06-29 21:24 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/254968.shtml)
+- 2026-06-29 21:48 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/979306183.shtml)
+- 2026-06-29 21:45 - [巴西10号球衣是天才传承史](https://www.blog.kurohicncr.top/Article/details/86346787347.shtml)
+- 2026-06-29 21:25 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/6692658.shtml)
+- 2026-06-29 21:29 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/628424699.shtml)
+- 2026-06-29 21:41 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/1237995912.shtml)
+- 2026-06-29 21:40 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/9583386087.shtml)

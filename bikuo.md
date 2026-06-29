@@ -1,57 +1,61 @@
-# 多方共育，抖音未成年人短视频素养培育专项正式启动
+# 布油跌超5%，三个月来首破80美元！美伊协议冲击，高盛、大摩双双下调目标价
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-六一儿童节之际，中国教育学会青少年媒介素养分会、清华大学新闻与传播学院联合抖音在清华大学启动“未成年人短视频素养培育专项调研”行动。该行动旨在围绕未成年人短视频使用现状与素养培育需求，开展深入研究，探索科学、系统的短视频素养培育路径，推动形成多方协同的未成年人网络素养培育支持体系，助力青少年在数字时代健康成长。 中国教育学会常务副会长李天顺、清华大学新闻与传播学院院长周庆安、中
+来源：华尔街见闻 美伊就重开霍尔木兹海峡达成临时协议，引发全球油市剧烈震荡，华尔街主要银行下调油价预测，布伦特原油价格跌至三个月低点。 周二，布伦特8月原油期货收跌4.21美元，跌幅5.06%，报78.96美元/桶。布油自6月11日起，连续4个交易日下跌，创今年以来最长连跌日。特朗普表示霍尔木兹海峡将于本周五重新开放，美伊双方预计届时在瑞士签署临时协议备忘录，但协议全文尚未公布
 
 ## 正文
 
-六一儿童节之际，中国教育学会青少年媒介素养分会、清华大学新闻与传播学院联合抖音在清华大学启动“未成年人短视频素养培育专项调研”行动。
+来源：华尔街见闻 美伊就重开霍尔木兹海峡达成临时协议，引发全球油市剧烈震荡，华尔街主要银行下调油价预测，布伦特原油价格跌至三个月低点。
 
-该行动旨在围绕未成年人短视频使用现状与素养培育需求，开展深入研究，探索科学、系统的短视频素养培育路径，推动形成多方协同的未成年人网络素养培育支持体系，助力青少年在数字时代健康成长。
+周二，布伦特8月原油期货收跌4.21美元，跌幅5.06%，报78.96美元/桶。
 
-中国教育学会常务副会长李天顺、清华大学新闻与传播学院院长周庆安、中国教育学会青少年媒介素养分会秘书长杨晓红、清华大学新闻与传播学院党委副书记陈梁，以及来自学会、高校和抖音的多位嘉宾参加了启动仪式，并围绕未成年人短视频素养的培育开展专题研讨。
+布油自6月11日起，连续4个交易日下跌，创今年以来最长连跌日。
 
-当今，短视频已深度融入未成年人的学习、生活与社交场景，成为其获取信息、表达自我和参与公共文化的重要媒介形态。
+特朗普表示霍尔木兹海峡将于本周五重新开放，美伊双方预计届时在瑞士签署临时协议备忘录，但协议全文尚未公布。
 
-与此同时，未成年人在短视频使用过程中也面临一系列新挑战，亟需学校、家庭、平台和社会各界形成合力，提升未成年人短视频素养。
+高盛和摩根士丹利均已下调未来数季度油价预测，中东迪拜原油和穆尔班原油基准价格同步转入看跌的期货升水结构，显示市场预期供应过剩。
 
-中国教育学会常务副会长李天顺表示，短视频已深度融入青少年日常生活，是他们获取知识、认知世界、表达自我的重要渠道，优质的短视频内容已成为学校教育、家庭教育有益的补充。
+此轮油价下跌将布伦特原油拉回至3月初以来的最低水平，基本抹去冲突期间的全部涨幅，在美联储本周评估利率走向之际，也有助于缓解通胀压力。
 
-但同时，网络信息鱼龙混杂，也带来诸如低俗内容、虚假信息和价值观渗透等诸多挑战。
+不过，协议实施细节仍存在大量不确定性，包括航运安全、通行规则，以及这一战前承担全球约五分之一石油供应的咽喉要道能否维持免费通行等问题，均悬而未决。
 
-因此，加强青少年短视频素养的教育，引导青少年科学、理性、健康使用短视频，不再是一个可选的课题，而是立德树人的必答题和必修课。
+高盛、大摩同步下调油价预测 高盛和摩根士丹利在协议消息公布后迅速修订油价展望。
 
 ## 相关推荐
 
-- 2026-06-29 21:28 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 21:18 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 21:25 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 21:25 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-29 21:28 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-29 21:43 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 21:26 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-29 21:21 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-29 21:42 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 21:20 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 21:23 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 21:48 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-29 21:40 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 21:49 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 21:47 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-29 21:45 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-29 21:29 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 21:26 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-29 21:38 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-29 21:24 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-29 21:31 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 21:49 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 21:31 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 21:52 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 21:53 - [本届世界杯已有5人涉性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-29 21:50 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:29 - [恋与深空客服的回应](https://www.share.minike.top/Article/details/212657261388.shtml)
-- 2026-06-29 21:43 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/4828052.shtml)
-- 2026-06-29 21:18 - [东宫女主是不是顶级恋爱脑](https://www.share.kurohicncr.top/Article/details/355065.shtml)
-- 2026-06-29 21:44 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/3189513301.shtml)
-- 2026-06-29 21:41 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/91310120841.shtml)
-- 2026-06-29 21:43 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/00044509.shtml)
-- 2026-06-29 21:42 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.kurohicncr.top/Article/details/04859358471.shtml)
-- 2026-06-29 21:43 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/6368198.shtml)
-- 2026-06-29 21:31 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/01149.shtml)
-- 2026-06-29 21:36 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/7751089.shtml)
-- 2026-06-29 21:40 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/6078649691.shtml)
-- 2026-06-29 21:18 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/39222891374.shtml)
-- 2026-06-29 21:43 - [恋与深空各大应用商店评分](https://www.share.minike.top/Article/details/526984646.shtml)
-- 2026-06-29 21:18 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/93686.shtml)
-- 2026-06-29 21:35 - [绿营污蔑大陆“海上袭扰”被批](https://www.blog.minike.top/Article/details/64224884697.shtml)
+- 2026-06-29 21:33 - [白玉兰答谢宴合影](https://www.blog.minike.top/Article/details/84103519071.shtml)
+- 2026-06-29 21:51 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/6067680.shtml)
+- 2026-06-29 21:34 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/079802426.shtml)
+- 2026-06-29 21:32 - [店员光脚踩入盆中清洗土豆](http://www.share.minike.top/Article/details/77311340210.shtml)
+- 2026-06-29 21:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/23724044041.shtml)
+- 2026-06-29 21:30 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.minike.top/Article/details/2725572.shtml)
+- 2026-06-29 21:24 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/930754858.shtml)
+- 2026-06-29 21:38 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.kurohicncr.top/Article/details/048215170.shtml)
+- 2026-06-29 21:43 - [扬名立万](http://www.share.minike.top/Article/details/14832264233.shtml)
+- 2026-06-29 21:34 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/15413073.shtml)
+- 2026-06-29 21:44 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/2877720895.shtml)
+- 2026-06-29 21:35 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/920924030.shtml)
+- 2026-06-29 21:36 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/26904.shtml)
+- 2026-06-29 21:49 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/751958.shtml)
+- 2026-06-29 21:48 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/141077373544.shtml)

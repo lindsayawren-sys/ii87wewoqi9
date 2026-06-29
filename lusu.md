@@ -1,58 +1,60 @@
-# A股更香？南向资金罕见单月净卖出，AI叙事正发生变化
+# 华泰期货：美伊协议签订条款仍存疑，海峡油运出现新模式
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-近期，A股和港股市场表现出不同的资金变化。外资流入A股，南向资金则出现近年来少见的单月净流出，5月净卖出35.54亿港元。相对港股，A股近期呈现更强的韧性。不过，机构人士认为，中长期看，南向资金增配趋势还将延续。 从行业配置来看，半导体、计算机等板块受到资金追捧，然而，应当警惕的是，AI叙事整体发生变化。 南向资金再现单月净流出 Wind数据显示，5月南向资金成交净卖出35.5
+来源：华泰期货 作者： 康远宁 市场要闻与重要数据 1、 截至当天收盘，纽约商品交易所7月交货的轻质原油期货价格下跌4.13美元，收于每桶80.75美元，跌幅为4.87%；8月交货的伦敦布伦特原油期货价格下跌4.16美元，收于每桶83.17美元，跌幅为4.76%。截至今日2：30收盘，SC原油主力合约收跌1.96%，报531元/桶。（来源：Bloomberg） 2、 万斯宣布美
 
 ## 正文
 
-近期，A股和港股市场表现出不同的资金变化。
+来源：华泰期货 作者： 康远宁 市场要闻与重要数据 1、 截至当天收盘，纽约商品交易所7月交货的轻质原油期货价格下跌4.13美元，收于每桶80.75美元，跌幅为4.87%；8月交货的伦敦布伦特原油期货价格下跌4.16美元，收于每桶83.17美元，跌幅为4.76%。
 
-外资流入A股，南向资金则出现近年来少见的单月净流出，5月净卖出35.54亿港元。
+截至今日2：30收盘，SC原油主力合约收跌1.96%，报531元/桶。
 
-相对港股，A股近期呈现更强的韧性。
+（来源：Bloomberg） 2、 万斯宣布美伊协议已于周日完成电子签署。
 
-不过，机构人士认为，中长期看，南向资金增配趋势还将延续。
+6月15日讯，据报道，美国副总统万斯表示，美国与伊朗达成的协议已于周末通过电子方式完成签署，表明协议条款现已生效，同时伊朗不会获得任何新的资金解冻。
 
-从行业配置来看，半导体、计算机等板块受到资金追捧，然而，应当警惕的是，AI叙事整体发生变化。
+万斯在ABC电视台节目中表示：“我们昨天已经通过电子方式签署了协议，而且目前没有任何资金被释放。
 
-南向资金再现单月净流出 Wind数据显示，5月南向资金成交净卖出35.54亿港元，折合人民币29.83亿元。
+这一点也不会改变。
 
-南向资金单月净卖出的情况较为少见，2022年以后，仅2023年6月出现过单月净卖出，当时的净卖出金额为58.48亿港元。
+”尽管在协议达成前，外界曾提出通过电子签署方式完成协议，但直至此刻才得到证实。
 
-个股方面，阿里巴巴、腾讯控股等大型互联网公司5月南向资金净卖出量居前，以阿里巴巴为例，5月14日单日南向资金净卖出37.96亿港元，5月最后7个交易日更是连续呈现净卖出。
+特朗普于周日宣布，双方将在周五在瑞士举行正式签署仪式。
 
 ## 相关推荐
 
-- 2026-06-29 21:28 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-29 21:43 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 21:36 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-29 21:34 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 21:36 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-29 21:39 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 21:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 21:21 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-29 21:42 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 21:24 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 21:44 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 21:35 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 21:27 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-29 21:32 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-29 21:44 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 21:51 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 21:34 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 21:36 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 21:32 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 21:33 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-29 21:53 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-29 21:43 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-29 21:49 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 21:45 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-29 21:27 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-29 21:44 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:44 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/961679131306.shtml)
-- 2026-06-29 21:24 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/063603329.shtml)
-- 2026-06-29 21:33 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.minike.top/Article/details/878091472030.shtml)
-- 2026-06-29 21:21 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/3666613.shtml)
-- 2026-06-29 21:36 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/233687.shtml)
-- 2026-06-29 21:34 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/71278221.shtml)
-- 2026-06-29 21:27 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/367333647.shtml)
-- 2026-06-29 21:18 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/46529353838.shtml)
-- 2026-06-29 21:26 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/08572.shtml)
-- 2026-06-29 21:22 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/48044547007.shtml)
-- 2026-06-29 21:32 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/134678072355.shtml)
-- 2026-06-29 21:25 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/5793779536.shtml)
-- 2026-06-29 21:33 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/00472417398.shtml)
-- 2026-06-29 21:37 - [广东水利防汛Ⅳ级应急响应结束](http://www.share.minike.top/Article/details/323824.shtml)
-- 2026-06-29 21:38 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/581866432834.shtml)
+- 2026-06-29 21:29 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/4400621674.shtml)
+- 2026-06-29 21:32 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.minike.top/Article/details/117612012.shtml)
+- 2026-06-29 21:38 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/6367768013.shtml)
+- 2026-06-29 21:27 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/924073.shtml)
+- 2026-06-29 21:43 - [把邻居裸体发群算维权还是侵权](https://www.share.kurohicncr.top/Article/details/01602300.shtml)
+- 2026-06-29 21:37 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/3957368722.shtml)
+- 2026-06-29 21:50 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/4969029.shtml)
+- 2026-06-29 21:40 - [爱很美味](http://www.blog.minike.top/Article/details/83787875.shtml)
+- 2026-06-29 21:53 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/244380569565.shtml)
+- 2026-06-29 21:49 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/472171.shtml)
+- 2026-06-29 21:26 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/3986232.shtml)
+- 2026-06-29 21:24 - [济南航空航天全面起势](https://www.blog.minike.top/Article/details/06991.shtml)
+- 2026-06-29 21:49 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/37027425109.shtml)
+- 2026-06-29 21:38 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/778043805.shtml)
+- 2026-06-29 21:30 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/127823590.shtml)

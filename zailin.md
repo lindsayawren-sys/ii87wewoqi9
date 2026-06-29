@@ -1,57 +1,58 @@
-# 上海：力争到2030年，上海资产管理规模达55万亿元，全国占比达1/3
+# 和平协议带来供应增加的希望 中东原油大幅走弱
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国际金融报 6月2日消息，上海市人民政府办公厅印发《关于深化上海全球资产管理中心建设的若干意见》的通知。意见提出，力争到2030年，上海资产管理规模达55万亿元，全国占比达1/3。 全文如下： 关于深化上海全球资产管理中心建设的若干意见 为进一步推动上海资产管理领域高质量发展，加强资产管理与财富管理双
+中东原油市场价格指标大幅走弱，原因是美伊就重开霍尔木兹海峡达成的协议激发了人们对这个石油资源丰富地区的出口量将增加的乐观情绪。 与波斯湾之内原油，以及该海湾之外的原油——例如阿曼原油和穆尔班原油，相挂钩的价格指标，都因和平前景而大幅走弱，而阿布扎比国家石油公司和科威特石油公司等供应商还招标出售产自该地区内部但在霍尔木兹海峡以外地点交付的原油。 迪拜原油和穆尔班原油等基准原油的远
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中东原油市场价格指标大幅走弱，原因是美伊就重开霍尔木兹海峡达成的协议激发了人们对这个石油资源丰富地区的出口量将增加的乐观情绪。
 
-来源：国际金融报 6月2日消息，上海市人民政府办公厅印发《关于深化上海全球资产管理中心建设的若干意见》的通知。
+与波斯湾之内原油，以及该海湾之外的原油——例如阿曼原油和穆尔班原油，相挂钩的价格指标，都因和平前景而大幅走弱，而阿布扎比国家石油公司和科威特石油公司等供应商还招标出售产自该地区内部但在霍尔木兹海峡以外地点交付的原油。
 
-意见提出，力争到2030年，上海资产管理规模达55万亿元，全国占比达1/3。
+迪拜原油和穆尔班原油等基准原油的远期曲线目前已转为期货升水结构，这是自战争开始以来首次出现这种情况。
 
-全文如下： 关于深化上海全球资产管理中心建设的若干意见 为进一步推动上海资产管理领域高质量发展，加强资产管理与财富管理双轮驱动，加快人民币国际化进程，畅通境内外资产多元配置，提升上海人民币资产全球配置和风险管理功能，切实增强上海国际金融中心竞争力和影响力。
+这种市场形态——即近月合约相对于远期合约折价交易——表明市场对供应不足的担忧减轻。
 
-力争到2030年，上海资产管理规模达55万亿元，全国占比达1/3。
+迪拜原油7月和8月合约之间的价差约为每桶54美分的远期升水，是自2020年疫情导致全球经济陷入停顿以来的最弱水平。
 
-现就深化上海全球资产管理中心建设提出如下意见。
+阿布扎比国家石油公司（Adnoc）最近几周已经售出至少3000万桶供应，这些原油产自波斯湾内部，可在6月份至8月份期间从霍尔木兹海峡以外地点提取。
 
-一、加强金融市场建设，夯实资产多元配置基础 （一）丰富金融市场基础产品供给。
+该公司此后又针对同样的原油发布了一项销售招标，装船时间为6月份或7月份，地点也在仍被封锁的海峡以外。
 
-支持科创属性突出的科技型企业上市、并购，提高权益资产科技含量与资产质量。
+从理论上讲，霍尔木兹海峡恢复通行将意味着帮助确定迪拜基准价格的原油供应量增加，从而压低价格。
 
 ## 相关推荐
 
-- 2026-06-29 21:29 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-29 21:44 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 21:18 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 21:31 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 21:40 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-29 21:25 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 21:42 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 21:29 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-29 21:20 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 21:46 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-29 21:40 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 21:46 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 21:40 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 21:52 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 21:38 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-29 21:50 - [记者：预计热火将追求小哈达威和康利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 21:24 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-29 21:31 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 21:41 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-29 21:49 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-29 21:50 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-29 21:27 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 21:29 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:18 - [一见倾心](http://www.blog.minike.top/Article/details/467813121.shtml)
-- 2026-06-29 21:29 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/500315.shtml)
-- 2026-06-29 21:22 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/6462050895.shtml)
-- 2026-06-29 21:39 - [网红小徐直播时突遇地震](http://www.blog.minike.top/Article/details/82343.shtml)
-- 2026-06-29 21:29 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/716057.shtml)
-- 2026-06-29 21:27 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/11620684.shtml)
-- 2026-06-29 21:42 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/836448.shtml)
-- 2026-06-29 21:43 - [白玉兰答谢宴合影](https://www.blog.kurohicncr.top/Article/details/24659290.shtml)
-- 2026-06-29 21:28 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/50059286719.shtml)
-- 2026-06-29 21:42 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/94624513794.shtml)
-- 2026-06-29 21:45 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/562244.shtml)
-- 2026-06-29 21:30 - [日防卫省正考虑引进美企人工智能系统](https://www.share.kurohicncr.top/Article/details/23352382.shtml)
-- 2026-06-29 21:18 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/723023317944.shtml)
-- 2026-06-29 21:39 - [高质量发展看新疆](http://www.share.minike.top/Article/details/7283039510.shtml)
-- 2026-06-29 21:42 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/12917896.shtml)
+- 2026-06-29 21:34 - [东方风云榜直播](http://www.share.kurohicncr.top/Article/details/215942.shtml)
+- 2026-06-29 21:44 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.kurohicncr.top/Article/details/085552230.shtml)
+- 2026-06-29 21:31 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/66949.shtml)
+- 2026-06-29 21:38 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/5604584.shtml)
+- 2026-06-29 21:39 - [不烧钱的低成本爱好](http://www.share.minike.top/Article/details/4034648656.shtml)
+- 2026-06-29 21:43 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.kurohicncr.top/Article/details/19826994.shtml)
+- 2026-06-29 21:25 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/54601497451.shtml)
+- 2026-06-29 21:37 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.blog.minike.top/Article/details/2008918203.shtml)
+- 2026-06-29 21:28 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/718784.shtml)
+- 2026-06-29 21:26 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/336244992071.shtml)
+- 2026-06-29 21:37 - [中外合作办学是“低分捷径”吗](http://www.blog.minike.top/Article/details/772091.shtml)
+- 2026-06-29 21:49 - [时光音乐会](https://www.blog.minike.top/Article/details/06235.shtml)
+- 2026-06-29 21:49 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.minike.top/Article/details/679027931.shtml)
+- 2026-06-29 21:47 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/394045.shtml)
+- 2026-06-29 21:30 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/496416067507.shtml)

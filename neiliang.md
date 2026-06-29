@@ -1,61 +1,56 @@
-# 文化观察：没有相机，古人如何为青铜器“留影”？
+# SpaceX市值超越亚马逊，马斯克万亿身家可抵140个国家GDP
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-中新网杭州6月1日电(林波)在照相技术与机器复制时代来临之前，中国人如何向世界传递青铜器的伟岸身躯与铭文奥秘？答案就藏在拓片上。 “拓本是中国人的智慧发明。”近日，由西泠印社主办的“绝学举孴——金石拓本精品题跋展”在中国印学博物馆举行。其间，西泠印社社员古菲受访时表示，拓本是把碑刻、铜器这些器物上的文字或图案，通过拓印技术复制到纸上的成品。它不仅是文字、书法的复制品，也是保存古
+太空探索技术公司SpaceX（股票代码：SPCX）上市三天连续大涨，市值超越亚马逊。 当地时间6月16日，SpaceX盘中涨幅一度接近17%，股价最高飙升至225.64美元/股，较上市首日开盘价上涨50%，市值一度超越亚马逊和微软。 截至当日收盘，SpaceX股价报201.80美元/股，涨幅为4.83%，市值为2.66万亿美元，超过亚马逊成为全球市值第五大公司。同日收盘，亚马逊
 
 ## 正文
 
-中新网杭州6月1日电(林波)在照相技术与机器复制时代来临之前，中国人如何向世界传递青铜器的伟岸身躯与铭文奥秘？
+太空探索技术公司SpaceX（股票代码：SPCX）上市三天连续大涨，市值超越亚马逊。
 
-答案就藏在拓片上。
+当地时间6月16日，SpaceX盘中涨幅一度接近17%，股价最高飙升至225.64美元/股，较上市首日开盘价上涨50%，市值一度超越亚马逊和微软。
 
-“拓本是中国人的智慧发明。
+截至当日收盘，SpaceX股价报201.80美元/股，涨幅为4.83%，市值为2.66万亿美元，超过亚马逊成为全球市值第五大公司。
 
-”近日，由西泠印社主办的“绝学举孴——金石拓本精品题跋展”在中国印学博物馆举行。
+同日收盘，亚马逊市值为2.65万亿美元，微软市值为2.93万亿美元。
 
-其间，西泠印社社员古菲受访时表示，拓本是把碑刻、铜器这些器物上的文字或图案，通过拓印技术复制到纸上的成品。
+随着市值走高，SpaceX创始人马斯克身家继续飙升。
 
-它不仅是文字、书法的复制品，也是保存古代文物信息的重要载体，有些原物已经损坏或消失，留下的拓本就变得非常珍贵。
+据《福布斯》最新发布的全球富豪榜，马斯克的个人财富一度升至1.4万亿美元，刷新历史纪录。
 
-从平面拓到全形拓，中国传拓技艺经历了一场漫长的进化。
+前一日，其身家约为1.3万亿美元。
 
-“中国人在隋唐时期就已经有了利用纸墨传拓的平面拓记载。
+财联社6月16日报道称，根据IMF2026年报告数据统计，马斯克身家已经超过全球140多个国家的国内生产总值（GDP），在全球GDP排行榜中大约可以排在第19名。
 
 ## 相关推荐
 
-- 2026-06-29 21:38 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-29 21:23 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 21:31 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-29 21:19 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-29 21:36 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-29 21:24 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 21:33 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 21:29 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 21:45 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 21:29 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 21:28 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-29 21:42 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 21:26 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 21:28 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-29 21:23 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 21:48 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 21:29 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 21:25 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-29 21:52 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-29 21:46 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-29 21:51 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-29 21:31 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 21:51 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 21:28 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 21:47 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:39 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/3094988152.shtml)
-- 2026-06-29 21:32 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/431679.shtml)
-- 2026-06-29 21:42 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.kurohicncr.top/Article/details/22339613989.shtml)
-- 2026-06-29 21:43 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/489795538190.shtml)
-- 2026-06-29 21:42 - [斛珠夫人](https://www.share.minike.top/Article/details/9807458883.shtml)
-- 2026-06-29 21:37 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/979877.shtml)
-- 2026-06-29 21:36 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/0721162048.shtml)
-- 2026-06-29 21:22 - [网约车出事故平台拒赔称只是中介](https://www.blog.minike.top/Article/details/832072123.shtml)
-- 2026-06-29 21:40 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/569390715.shtml)
-- 2026-06-29 21:30 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/353884.shtml)
-- 2026-06-29 21:41 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/743118188263.shtml)
-- 2026-06-29 21:29 - [格莱美唱作人锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/730978648.shtml)
-- 2026-06-29 21:33 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/5346096577.shtml)
-- 2026-06-29 21:47 - [一生一世](http://www.share.minike.top/Article/details/1964690654.shtml)
-- 2026-06-29 21:42 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/4594095.shtml)
+- 2026-06-29 21:25 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.blog.kurohicncr.top/Article/details/92428778122.shtml)
+- 2026-06-29 21:34 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/12141.shtml)
+- 2026-06-29 21:28 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/9083477304.shtml)
+- 2026-06-29 21:43 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.minike.top/Article/details/375203036.shtml)
+- 2026-06-29 21:29 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/337824.shtml)
+- 2026-06-29 21:36 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/554780.shtml)
+- 2026-06-29 21:52 - [记者暗访养老机构消防安全](https://www.blog.kurohicncr.top/Article/details/715746.shtml)
+- 2026-06-29 21:34 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/8779044.shtml)
+- 2026-06-29 21:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/42892.shtml)
+- 2026-06-29 21:24 - [半导体和股市为何没让韩国人起飞](https://www.share.kurohicncr.top/Article/details/417944.shtml)
+- 2026-06-29 21:45 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/82446.shtml)
+- 2026-06-29 21:52 - [小娘惹](http://www.share.kurohicncr.top/Article/details/4576107348.shtml)
+- 2026-06-29 21:42 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/62662427578.shtml)
+- 2026-06-29 21:44 - [Ella回应SHE何时合体](http://www.share.kurohicncr.top/Article/details/69919997.shtml)
+- 2026-06-29 21:41 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/996003671.shtml)

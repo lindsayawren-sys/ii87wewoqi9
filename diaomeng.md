@@ -1,58 +1,58 @@
-# 圣保罗华星艺术团成立十周年暨华声艺术团成立三十周年庆典举行
+# 全国铁路7月1日起实行新的列车运行图
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-中新网圣保罗6月1日电 (记者 林春茵)当地时间5月31日晚，巴西圣保罗华星艺术团成立十周年暨原华声艺术团成立三十周年庆典在巴西圣保罗举行。中国驻圣保罗总领事余鹏，巴西华人协会会长叶周永，圣保罗华星艺术团团长李青霞，巴西友华人士，侨团、华文学校代表齐聚一堂，共庆华章。 圣保罗华星艺术团前身华声艺术团，由温州籍华侨李青霞等侨胞于1996年一手创立。国务院侨办于2016年授牌“文化
+中新网6月17日电 据“中国铁路”微信公众号消息，自7月1日零时起，全国铁路将实行新的列车运行图。调图后，全国铁路安排图定旅客列车12174列，较现图增加106列；开行货物列车23975列，较现图增加111列。 此次调图是铁路部门全面贯彻党中央、国务院决策部署，坚持以人民为中心的发展思想，以市场需求为导向，持续深化运输供给侧结构性改革，统筹运用新线、新站等运输资源，聚焦客货运输
 
 ## 正文
 
-中新网圣保罗6月1日电 (记者 林春茵)当地时间5月31日晚，巴西圣保罗华星艺术团成立十周年暨原华声艺术团成立三十周年庆典在巴西圣保罗举行。
+中新网6月17日电 据“中国铁路”微信公众号消息，自7月1日零时起，全国铁路将实行新的列车运行图。
 
-中国驻圣保罗总领事余鹏，巴西华人协会会长叶周永，圣保罗华星艺术团团长李青霞，巴西友华人士，侨团、华文学校代表齐聚一堂，共庆华章。
+调图后，全国铁路安排图定旅客列车12174列，较现图增加106列；开行货物列车23975列，较现图增加111列。
 
-圣保罗华星艺术团前身华声艺术团，由温州籍华侨李青霞等侨胞于1996年一手创立。
+此次调图是铁路部门全面贯彻党中央、国务院决策部署，坚持以人民为中心的发展思想，以市场需求为导向，持续深化运输供给侧结构性改革，统筹运用新线、新站等运输资源，聚焦客货运输扩能提质增效，对全国铁路列车运行方案进行的一次优化调整。
 
-国务院侨办于2016年授牌“文化中国·华星艺术团”，此后连续8年举办华星闪耀新春快闪活动，每年赴巴西多地举办文化节、春节联欢活动，多次受邀赴智利、阿根廷、苏里南等拉美国家演出。
+调整后，铁路网整体功能进一步提升，铁路运输能力和效率进一步提升，客货运输产品持续优化，将为人民便捷高效出行、建设强大国内市场和区域经济社会高质量发展注入新动能。
 
-余鹏在致辞中指出，圣保罗华星艺术团“不负授牌使命，一步步成长为巴西侨界中华文化传承的标杆，用一场场精彩演出守护海外侨胞的精神家园，擦亮了中华文化的海外名片”。
+一是用好武汉至西安高铁西安东至十堰东段新线能力，优化中西部地区列车运行图，助力区域经济社会发展。
 
-搭建起中巴文明互鉴、民心相通的坚实桥梁，让中华文化在南美落地生根、熠熠生辉，为中巴全面战略伙伴关系持续发展，注入温暖持久的文化力量。
+利用即将开通的武汉至西安高铁西安东至十堰东段，优化中西部地区列车运行图，安排开行西安东(西安北)至南阳东、汉口、重庆北等方向动车组列车58列，进一步密切西北地区与华中、华南、西南地区的联系，缩短时空距离，西安东至汉口、广州南最短旅行时间分别为2小时41分钟、6小时53分钟，较现图西安北经徐兰、京广高铁至武汉、广州南分别压缩1小时1分钟、15分钟。
 
-期许圣保罗华星艺术团持续擦亮华星品牌，继续当好中巴文明交流纽带，也希望各界朋友继续支持华星艺术团的发展，“让这颗‘文化中国’的星星之火，在圣保罗越燃越旺。
+革命老区商洛迈入高铁时代，首次开行商洛西至北京西动车组列车2列；韶山南与延安间首次开行动车组列车，连接两大著名红色旅游目的地，为旅客红色旅游提供便利。
 
-” 叶周永致辞说，30年前，华声艺术团“在侨胞的期盼中应运而生”，成为旅巴侨胞传播中华优秀文化的先行者和播种者。
+西安东站开通后，将西安至成都、延安、银川方向的54列动车组列车由西安北站调整至西安东站始发终到，安排西安至安康铁路53列普速旅客列车停靠西安东站并办理客运业务。
 
 ## 相关推荐
 
-- 2026-06-29 21:31 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-29 21:46 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 21:42 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-29 21:46 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-29 21:36 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 21:36 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 21:21 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-29 21:44 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 21:41 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 21:37 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-29 21:40 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 21:45 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 21:43 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 21:47 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-29 21:36 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 21:36 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 21:31 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 21:28 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 21:43 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 21:31 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 21:35 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-29 21:50 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-29 21:35 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-29 21:52 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:36 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/48638467.shtml)
-- 2026-06-29 21:34 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/0597452.shtml)
-- 2026-06-29 21:28 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/8635483.shtml)
-- 2026-06-29 21:23 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/52586.shtml)
-- 2026-06-29 21:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/68014236.shtml)
-- 2026-06-29 21:33 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/44389877.shtml)
-- 2026-06-29 21:23 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/9382239351.shtml)
-- 2026-06-29 21:43 - [千与千寻](https://www.share.kurohicncr.top/Article/details/526494304631.shtml)
-- 2026-06-29 21:19 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/405666202.shtml)
-- 2026-06-29 21:20 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/0771264669.shtml)
-- 2026-06-29 21:32 - [欧洲缘何成为变暖最快的大洲](http://www.share.minike.top/Article/details/497446.shtml)
-- 2026-06-29 21:33 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/708119890.shtml)
-- 2026-06-29 21:22 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/9103271533.shtml)
-- 2026-06-29 21:22 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/132632479309.shtml)
-- 2026-06-29 21:46 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/71153.shtml)
+- 2026-06-29 21:43 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/9869552.shtml)
+- 2026-06-29 21:49 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/0692026878.shtml)
+- 2026-06-29 21:44 - [女生学医适合选什么专业](https://www.blog.kurohicncr.top/Article/details/41849016894.shtml)
+- 2026-06-29 21:49 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/9536104000.shtml)
+- 2026-06-29 21:53 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/6808011301.shtml)
+- 2026-06-29 21:50 - [男子称在京东买到“同仁堂”假药](http://www.share.kurohicncr.top/Article/details/154566571886.shtml)
+- 2026-06-29 21:33 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/9715529358.shtml)
+- 2026-06-29 21:52 - [谁在推动“成都造”影视持续出圈](http://www.blog.kurohicncr.top/Article/details/852618.shtml)
+- 2026-06-29 21:36 - [速度与激情9](http://www.blog.minike.top/Article/details/1805101.shtml)
+- 2026-06-29 21:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/33781949144.shtml)
+- 2026-06-29 21:26 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/159231584066.shtml)
+- 2026-06-29 21:33 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/7951103.shtml)
+- 2026-06-29 21:32 - [谁在推动“成都造”影视持续出圈](https://www.blog.minike.top/Article/details/38985.shtml)
+- 2026-06-29 21:47 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/20293.shtml)
+- 2026-06-29 21:31 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/902817363933.shtml)

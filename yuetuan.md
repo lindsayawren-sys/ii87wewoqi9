@@ -1,47 +1,46 @@
-# 从环保服装到AI人机对话：太原小学生创意迎“六一”
+# 伊美谅解备忘录敲定 成果与风险并存
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月01日 10:16 来源：中国新闻网 5月31日，山西太原，“六一”国际儿童节来临之际，晋源区第十小学举办“童心向党扬朝气智创同行绘博远”主题活动。全校学生参与观看红色电影、环保时装秀、创意帽饰设计、跳蚤市场、吉祥物设计及AI人机对话等六大课程，将德育与科技教育深度融合，引导学生在沉浸式体验中涵养家国情怀、锤炼优良品德，展现新时代少年的精神风貌。(记者
+发布时间：2026年06月16日 09:52 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-发布时间：2026年06月01日 10:16 来源：中国新闻网 5月31日，山西太原，“六一”国际儿童节来临之际，晋源区第十小学举办“童心向党扬朝气智创同行绘博远”主题活动。
-
-全校学生参与观看红色电影、环保时装秀、创意帽饰设计、跳蚤市场、吉祥物设计及AI人机对话等六大课程，将德育与科技教育深度融合，引导学生在沉浸式体验中涵养家国情怀、锤炼优良品德，展现新时代少年的精神风貌。
-
-(记者 张立程 胡健） 责任编辑：【罗攀】
+发布时间：2026年06月16日 09:52 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 21:45 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-29 21:30 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 21:19 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-29 21:23 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-29 21:29 - [女生学医适合选什么专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-29 21:30 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-29 21:25 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 21:18 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-29 21:42 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-29 21:38 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-29 21:21 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 21:45 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 21:48 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 21:28 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-29 21:47 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-29 21:40 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 21:34 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-29 21:53 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-29 21:27 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-29 21:41 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 21:31 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 21:36 - [李思潼：不会介意大家夸我运气好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 21:52 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 21:30 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 21:29 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:34 - [恋与深空客服的回应](http://www.share.kurohicncr.top/Article/details/90580295.shtml)
-- 2026-06-29 21:26 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/1687980.shtml)
-- 2026-06-29 21:41 - [欧洲多国高温突破40摄氏度](https://www.share.kurohicncr.top/Article/details/32253.shtml)
-- 2026-06-29 21:20 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/07445682.shtml)
-- 2026-06-29 21:35 - [金鹰奖第二阶段投票明日开启](http://www.share.kurohicncr.top/Article/details/6861936.shtml)
-- 2026-06-29 21:37 - [回顾世界杯争议事件](https://www.blog.minike.top/Article/details/306932241.shtml)
-- 2026-06-29 21:35 - [追觅称质量不行终身包修也没意义](http://www.blog.kurohicncr.top/Article/details/907409250418.shtml)
-- 2026-06-29 21:19 - [天气热脾气都变差了](http://www.blog.minike.top/Article/details/52025.shtml)
-- 2026-06-29 21:18 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/857160360.shtml)
-- 2026-06-29 21:47 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/695589539.shtml)
-- 2026-06-29 21:47 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/5886149690.shtml)
-- 2026-06-29 21:40 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/314443570.shtml)
-- 2026-06-29 21:32 - [巴西队主帅称日本队是世界最佳之一](https://www.share.kurohicncr.top/Article/details/88667.shtml)
-- 2026-06-29 21:39 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/8334474508.shtml)
-- 2026-06-29 21:23 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/9788152.shtml)
+- 2026-06-29 21:40 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/89190648286.shtml)
+- 2026-06-29 21:33 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/93421.shtml)
+- 2026-06-29 21:26 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/41589.shtml)
+- 2026-06-29 21:35 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/55847.shtml)
+- 2026-06-29 21:44 - [济南航空航天全面起势](http://www.blog.minike.top/Article/details/09050.shtml)
+- 2026-06-29 21:29 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/100034015.shtml)
+- 2026-06-29 21:34 - [多人将马路护栏当球网打羽毛球](https://www.blog.minike.top/Article/details/423104762.shtml)
+- 2026-06-29 21:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/6277337.shtml)
+- 2026-06-29 21:48 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.minike.top/Article/details/577427669.shtml)
+- 2026-06-29 21:29 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.kurohicncr.top/Article/details/188567550730.shtml)
+- 2026-06-29 21:41 - [湖南姑娘被东北同事带偏口音](https://www.share.minike.top/Article/details/512586926125.shtml)
+- 2026-06-29 21:24 - [恋与深空各大应用商店评分](http://www.share.minike.top/Article/details/6973521.shtml)
+- 2026-06-29 21:46 - [网友晒14年前支教影像等来学生评论](https://www.share.kurohicncr.top/Article/details/466085315270.shtml)
+- 2026-06-29 21:25 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/540227.shtml)
+- 2026-06-29 21:26 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/9560435.shtml)

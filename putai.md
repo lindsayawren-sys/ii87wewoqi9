@@ -1,49 +1,47 @@
-# 外交部：望菲方言行一致 严格约束官员言行
+# 建滔集团遭独立非执行董事庄坚琪减持1万股 每股作价100港元
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-新华社北京6月2日电(记者董雪、吴梦桐)据报道，菲律宾防长特奥多罗在香格里拉对话会上称菲律宾在领土和政治上均面临中方“严重威胁”。外交部发言人毛宁6月2日在例行记者会上表示，这位菲律宾防长多次发表涉华谬论，严重损害中菲关系和双方互信，也完全不符合菲国家和人民的利益。 毛宁说，菲方领导人多次表态，愿同中方妥处分歧，推动双边关系缓和。希望菲方言行一致，严格约束官员言行，不要任由个别
+香港联交所最新数据显示，6月15日，独立非执行董事庄坚琪减持建滔集团（00148）1万股，每股作价100港元，总金额为100万港元。减持后最新持股数目约为33.00万股，持股比例为0.02%。责任编辑：卢昱君
 
 ## 正文
 
-新华社北京6月2日电(记者董雪、吴梦桐)据报道，菲律宾防长特奥多罗在香格里拉对话会上称菲律宾在领土和政治上均面临中方“严重威胁”。
+香港联交所最新数据显示，6月15日，独立非执行董事庄坚琪减持建滔集团（00148）1万股，每股作价100港元，总金额为100万港元。
 
-外交部发言人毛宁6月2日在例行记者会上表示，这位菲律宾防长多次发表涉华谬论，严重损害中菲关系和双方互信，也完全不符合菲国家和人民的利益。
+减持后最新持股数目约为33.00万股，持股比例为0.02%。
 
-毛宁说，菲方领导人多次表态，愿同中方妥处分歧，推动双边关系缓和。
-
-希望菲方言行一致，严格约束官员言行，不要任由个别跳梁小丑一再破坏双方稳定关系的努力。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 21:38 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-29 21:20 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-29 21:44 - [华工科技龙虎榜数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-29 21:31 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 21:19 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-29 21:28 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-29 21:28 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-29 21:18 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-29 21:37 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 21:32 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 21:30 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-29 21:49 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 21:43 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-29 21:28 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-29 21:24 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 21:49 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 21:37 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 21:52 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-29 21:26 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-29 21:52 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-29 21:41 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 21:40 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:36 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/9772492629.shtml)
-- 2026-06-29 21:30 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/28490790321.shtml)
-- 2026-06-29 21:28 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/005762633573.shtml)
-- 2026-06-29 21:34 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/75292177094.shtml)
-- 2026-06-29 21:18 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/8796178740.shtml)
-- 2026-06-29 21:44 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/6872269.shtml)
-- 2026-06-29 21:23 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/9743715710.shtml)
-- 2026-06-29 21:31 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.kurohicncr.top/Article/details/482473179800.shtml)
-- 2026-06-29 21:37 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/791594304.shtml)
-- 2026-06-29 21:31 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.minike.top/Article/details/75543946828.shtml)
-- 2026-06-29 21:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/104580108651.shtml)
-- 2026-06-29 21:37 - [夫妻生活太无聊，所以我……](http://www.share.minike.top/Article/details/12698.shtml)
-- 2026-06-29 21:33 - [东宫女主是不是顶级恋爱脑](https://www.share.kurohicncr.top/Article/details/04067064.shtml)
-- 2026-06-29 21:18 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/501401431663.shtml)
-- 2026-06-29 21:27 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/241828444.shtml)
+- 2026-06-29 21:34 - [网约车出事故平台拒赔称只是中介](http://www.share.kurohicncr.top/Article/details/1165516088.shtml)
+- 2026-06-29 21:27 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/846713661.shtml)
+- 2026-06-29 21:45 - [TLAW零封DCG MSI](http://www.blog.minike.top/Article/details/5023673162.shtml)
+- 2026-06-29 21:24 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/28439331.shtml)
+- 2026-06-29 21:34 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/85740.shtml)
+- 2026-06-29 21:38 - [T1零封KC MSI](http://www.share.minike.top/Article/details/27947352865.shtml)
+- 2026-06-29 21:45 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/22212015471.shtml)
+- 2026-06-29 21:42 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/379470.shtml)
+- 2026-06-29 21:38 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/16952116904.shtml)
+- 2026-06-29 21:40 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.minike.top/Article/details/66403850.shtml)
+- 2026-06-29 21:42 - [店员光脚踩入盆中清洗土豆](http://www.blog.minike.top/Article/details/0982291.shtml)
+- 2026-06-29 21:44 - [直击委内瑞拉加拉加斯救援现场](https://www.share.kurohicncr.top/Article/details/66095.shtml)
+- 2026-06-29 21:49 - [绘画区你赢了](https://www.share.minike.top/Article/details/54016.shtml)
+- 2026-06-29 21:28 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/00387.shtml)
+- 2026-06-29 21:34 - [无畏为自己的猫正名了](http://www.blog.minike.top/Article/details/349500981854.shtml)

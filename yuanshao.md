@@ -1,59 +1,61 @@
-# 俄总统新闻秘书：法国扣押油轮近乎“国际海盗行径”
+# 伊协议重塑定价逻辑：金属市场迎“情绪退潮”与“结构分化”，铜铝携手大跌，锌价相对抗跌
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-中新网6月1日电 据俄罗斯卫星网1日报道，俄罗斯总统新闻秘书佩斯科夫表示，克里姆林宫认为法国扣押“泰戈尔”号油轮的行为“非法”，近乎“国际海盗行径”。 据此前报道，法国总统马克龙在社交媒体发文称，法国海军5月31日在大西洋海域拦截了一艘从俄罗斯驶出的油轮。他说，上述行动在国际海域进行，获得英国等多个伙伴国家配合，行动严格遵守海洋领域相关国际法。 对此，俄罗斯总统新闻秘书佩斯科夫
+长江有色金属网 期货早盘休市行情： ——6月16日长江现货价格动态： 1#铜价报104880元/吨，跌1070元；升水为130元/吨，跌20元；A00铝锭报23800元/吨，跌330元；贴水报80元；0#锌报24740元/吨，跌40元；1#锌报24640元/吨，跌40元；1#铅锭报16350元/吨，涨75元；1#镍报136350元/吨，跌200元；1#锡报422250元/吨，跌
 
 ## 正文
 
-中新网6月1日电 据俄罗斯卫星网1日报道，俄罗斯总统新闻秘书佩斯科夫表示，克里姆林宫认为法国扣押“泰戈尔”号油轮的行为“非法”，近乎“国际海盗行径”。
+长江有色金属网 期货早盘休市行情： ——6月16日长江现货价格动态： 1#铜价报104880元/吨，跌1070元；升水为130元/吨，跌20元；A00铝锭报23800元/吨，跌330元；贴水报80元；0#锌报24740元/吨，跌40元；1#锌报24640元/吨，跌40元；1#铅锭报16350元/吨，涨75元；1#镍报136350元/吨，跌200元；1#锡报422250元/吨，跌4250元； 随着美伊达成初步和平协议，霍尔木兹海峡恢复通航的预期如巨石入水，彻底搅动了全球有色金属市场的定价体系。
 
-据此前报道，法国总统马克龙在社交媒体发文称，法国海军5月31日在大西洋海域拦截了一艘从俄罗斯驶出的油轮。
+宏观叙事正从“地缘恐慌溢价”向“供需基本面回归”加速切换。
 
-他说，上述行动在国际海域进行，获得英国等多个伙伴国家配合，行动严格遵守海洋领域相关国际法。
+在这一历史性拐点下，铜、铝、锌三大品种并未走出齐涨共跌的平庸行情，而是基于自身产业逻辑呈现出极致的结构性分化。
 
-对此，俄罗斯总统新闻秘书佩斯科夫表示，“我们认为这种行为非法，近乎国际海盗行径。
+首当其冲的是电解铝，其遭遇了最为猛烈的估值重估。
 
-我们绝不同意所谓‘这些行动完全符合国际法’的说法。
+作为前期中东冲突的最大受益者，海湾地区产能停摆曾为铝价注入了巨大的风险溢价。
 
-” 据报道，俄罗斯驻巴黎大使馆还表示，法国并未就其针对该船的行动通知俄方。
+然而，随着海峡重开预期落地，多头资金集中平仓引发了踩踏式下跌，伦铝单日暴跌逾5%创下四年最大跌幅。
 
-俄罗斯大使馆指出，根据初步信息，该油轮的船长是俄罗斯公民。
+更为严峻的是，这不仅是情绪的退潮，更是供应端三重逆风的叠加：中国产量扩张推高国内库存至六年高点；印尼冶炼产能快速爬坡；以及中东潜在积压库存的释放预期。
+
+在下游传统淡季补库乏力的背景下，短期铝价的脆弱性已被充分暴露。
 
 ## 相关推荐
 
-- 2026-06-29 21:32 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-29 21:28 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 21:25 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-29 21:21 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 21:29 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 21:23 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 21:36 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-29 21:32 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-29 21:44 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-29 21:39 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-29 21:28 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-29 21:21 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 21:25 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 21:43 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 21:35 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 21:39 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-29 21:40 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-29 21:49 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-29 21:30 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 21:46 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-29 21:28 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 21:33 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 21:30 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 21:53 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-29 21:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-29 21:42 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-29 21:31 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 21:31 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 21:27 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 21:32 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:22 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.blog.minike.top/Article/details/35703514961.shtml)
-- 2026-06-29 21:33 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/665508867061.shtml)
-- 2026-06-29 21:25 - [天道](http://www.blog.kurohicncr.top/Article/details/62097.shtml)
-- 2026-06-29 21:32 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/05818408.shtml)
-- 2026-06-29 21:41 - [东方风云榜直播](http://www.share.kurohicncr.top/Article/details/22026904810.shtml)
-- 2026-06-29 21:38 - [2026全国田径冠军赛江苏队4金收官](https://www.share.kurohicncr.top/Article/details/450670692151.shtml)
-- 2026-06-29 21:46 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/65612074819.shtml)
-- 2026-06-29 21:29 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/26072.shtml)
-- 2026-06-29 21:24 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/7690925.shtml)
-- 2026-06-29 21:26 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/1439135.shtml)
-- 2026-06-29 21:24 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/387301.shtml)
-- 2026-06-29 21:44 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/24273727.shtml)
-- 2026-06-29 21:31 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/748550365.shtml)
-- 2026-06-29 21:20 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/685329.shtml)
-- 2026-06-29 21:25 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/22101221.shtml)
+- 2026-06-29 21:44 - [恋与深空制作组回应争议](http://www.blog.minike.top/Article/details/77915.shtml)
+- 2026-06-29 21:40 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/59792787.shtml)
+- 2026-06-29 21:49 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/5217784.shtml)
+- 2026-06-29 21:37 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/8250473152.shtml)
+- 2026-06-29 21:26 - [爱很美味](https://www.share.kurohicncr.top/Article/details/4090377.shtml)
+- 2026-06-29 21:30 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/1819249.shtml)
+- 2026-06-29 21:53 - [葫芦岛居民楼闪爆事故致3死](https://www.share.kurohicncr.top/Article/details/70090.shtml)
+- 2026-06-29 21:50 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/08840126792.shtml)
+- 2026-06-29 21:38 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/63061.shtml)
+- 2026-06-29 21:53 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/7284335.shtml)
+- 2026-06-29 21:51 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/187588.shtml)
+- 2026-06-29 21:49 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/3508163.shtml)
+- 2026-06-29 21:50 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/6345027927.shtml)
+- 2026-06-29 21:48 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.kurohicncr.top/Article/details/4156174.shtml)
+- 2026-06-29 21:25 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/8959137387.shtml)

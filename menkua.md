@@ -1,57 +1,50 @@
-# 棉花期货走高 受供应缺口扩大预期叠加油价上涨影响
+# 国家消防救援局：2026年以来共参与抗洪抢险1776起 营救和转移群众8179人
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-受全球棉花缺口预期加剧及油价反弹提振，纽约棉花期货连续第三个交易日上涨。 最活跃合约一度上涨2.5%，至每磅81.61美分，创5月20日以来新高。今年以来，受油价上涨提振棉花相对于石油基合成纤维的竞争力，加之市场预期供应紧张，棉花期货价格持续走高。 市场分析机构Cotlook上周将2026-27年度全球棉花缺口预测上调至65.7万吨，这是该机构第三次上调预测，理由是孟加拉国、印
+发布时间：2026年06月17日 13:24 来源：中国新闻网 6月17日，国家消防救援局在北京举行例行新闻发布会，介绍近期消防安全形势和消防救援重点工作。国家消防救援局特种灾害救援司副司长熊伟在会上介绍，2026年4月1日入汛以来，全国多地遭遇持续性强降雨天气，城市内涝、山体滑坡、泥石流等灾害多发频发。国家综合性消防救援队伍始终坚持人民至上、生命至上，闻令而动、响应在前，全力
 
 ## 正文
 
-受全球棉花缺口预期加剧及油价反弹提振，纽约棉花期货连续第三个交易日上涨。
+发布时间：2026年06月17日 13:24 来源：中国新闻网 6月17日，国家消防救援局在北京举行例行新闻发布会，介绍近期消防安全形势和消防救援重点工作。
 
-最活跃合约一度上涨2.5%，至每磅81.61美分，创5月20日以来新高。
+国家消防救援局特种灾害救援司副司长熊伟在会上介绍，2026年4月1日入汛以来，全国多地遭遇持续性强降雨天气，城市内涝、山体滑坡、泥石流等灾害多发频发。
 
-今年以来，受油价上涨提振棉花相对于石油基合成纤维的竞争力，加之市场预期供应紧张，棉花期货价格持续走高。
+国家综合性消防救援队伍始终坚持人民至上、生命至上，闻令而动、响应在前，全力以赴做好汛期的抢险救援工作。
 
-市场分析机构Cotlook上周将2026-27年度全球棉花缺口预测上调至65.7万吨，这是该机构第三次上调预测，理由是孟加拉国、印度和越南的需求增强。
+截至6月16日，共参与抗洪抢险1776起(与去年同期相比任务量增加61%)，出动指战员29772人次，营救和转移群众8179人。
 
-这使得看涨前景更加强劲。
-
-价格：纽约棉花期货上涨1.3%，至每磅80.65美分。
-
-纽约可可期货上涨4%。
-
-责任编辑：江学思
+(记者 刘世炯） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 21:19 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-29 21:29 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 21:41 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 21:26 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 21:43 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 21:43 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-29 21:34 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-29 21:21 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 21:45 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 21:41 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-29 21:20 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 21:41 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 21:47 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-29 21:35 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 21:44 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 21:43 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-29 21:29 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 21:25 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-29 21:31 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 21:52 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-29 21:35 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:29 - [女心理师](https://www.share.minike.top/Article/details/923934.shtml)
-- 2026-06-29 21:19 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/018762801.shtml)
-- 2026-06-29 21:47 - [北京发布地质灾害气象风险蓝色预警](http://www.blog.minike.top/Article/details/731619.shtml)
-- 2026-06-29 21:40 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/554413758.shtml)
-- 2026-06-29 21:44 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/7873600724.shtml)
-- 2026-06-29 21:31 - [哈兰德玩游戏连女友都不让着](https://www.share.kurohicncr.top/Article/details/644885720936.shtml)
-- 2026-06-29 21:23 - [炽夏](https://www.blog.kurohicncr.top/Article/details/826532950647.shtml)
-- 2026-06-29 21:28 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/4562761984.shtml)
-- 2026-06-29 21:22 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/34752.shtml)
-- 2026-06-29 21:20 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/357182322.shtml)
-- 2026-06-29 21:29 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/552030894108.shtml)
-- 2026-06-29 21:20 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/60433325.shtml)
-- 2026-06-29 21:29 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/197840.shtml)
-- 2026-06-29 21:36 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/226157457869.shtml)
-- 2026-06-29 21:44 - [高考1357分的同学如何报志愿？](https://www.blog.kurohicncr.top/Article/details/608246773.shtml)
+- 2026-06-29 21:30 - [王楚钦开门红](http://www.blog.minike.top/Article/details/356795.shtml)
+- 2026-06-29 21:40 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/07813123.shtml)
+- 2026-06-29 21:43 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/846213.shtml)
+- 2026-06-29 21:38 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/804287.shtml)
+- 2026-06-29 21:38 - [papi酱在救赎窦文涛](http://www.share.kurohicncr.top/Article/details/5830041212.shtml)
+- 2026-06-29 21:36 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/206070687669.shtml)
+- 2026-06-29 21:42 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/90280660400.shtml)
+- 2026-06-29 21:29 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/14078050.shtml)
+- 2026-06-29 21:51 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/71793.shtml)
+- 2026-06-29 21:40 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/28795.shtml)
+- 2026-06-29 21:36 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/43417597.shtml)
+- 2026-06-29 21:45 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.blog.kurohicncr.top/Article/details/9722203569.shtml)
+- 2026-06-29 21:46 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/5024974.shtml)
+- 2026-06-29 21:37 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/764652499.shtml)
+- 2026-06-29 21:43 - [多人将马路护栏当球网打羽毛球](https://www.blog.kurohicncr.top/Article/details/39540296940.shtml)

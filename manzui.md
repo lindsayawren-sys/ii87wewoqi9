@@ -1,57 +1,53 @@
-# 近7年主动固收冠军团队出品 华商鑫悦30天滚动持有债券基金重磅发售
+# 特朗普否认美将给伊朗巨资
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-2026年权益市场波动加大，债券配置吸引力回升。在兼顾流动性的同时获取稳健收益，成为投资者配置稳健资产的核心考量。华商基金于6月1日重磅推出华商鑫悦30天滚动持有债券基金（A：026401/C：026402）。该产品拟由华商基金现金管理探索家杜磊管理，聚焦纯债投资，力争为广大投资者打造一站式闲钱理财新选择。 专注纯债资产 严控底仓风险 据基金法律文件显示，华商鑫悦30天滚动持有
+当地时间6月16日凌晨，正在法国出席七国集团峰会的美国总统特朗普在社交平台发文称，“伊朗已经同意永远不会拥有核武器！有关‘美国将向伊朗支付3亿美元’的报道是假新闻，是民主党人散布出来的。” 目前尚不清楚特朗普所指的“3亿美元”具体是什么。而伊朗媒体昨天披露的伊美谅解备忘录14项条款中涉及具体金额的一项为：美国及其盟友有必要提出对伊朗的重建计划，金额至少3000亿美元。（CCTV
 
 ## 正文
 
-2026年权益市场波动加大，债券配置吸引力回升。
+当地时间6月16日凌晨，正在法国出席七国集团峰会的美国总统特朗普在社交平台发文称，“伊朗已经同意永远不会拥有核武器！
 
-在兼顾流动性的同时获取稳健收益，成为投资者配置稳健资产的核心考量。
+有关‘美国将向伊朗支付3亿美元’的报道是假新闻，是民主党人散布出来的。
 
-华商基金于6月1日重磅推出华商鑫悦30天滚动持有债券基金（A：026401/C：026402）。
+” 目前尚不清楚特朗普所指的“3亿美元”具体是什么。
 
-该产品拟由华商基金现金管理探索家杜磊管理，聚焦纯债投资，力争为广大投资者打造一站式闲钱理财新选择。
+而伊朗媒体昨天披露的伊美谅解备忘录14项条款中涉及具体金额的一项为：美国及其盟友有必要提出对伊朗的重建计划，金额至少3000亿美元。
 
-专注纯债资产 严控底仓风险 据基金法律文件显示，华商鑫悦30天滚动持有债券基金投资于债券资产的比例不低于基金资产的80%，不投资股票、转债等权益工具（可分离交易可转债的纯债部分除外，完整投资策略请见基金法律文件）。
-
-严控底仓风险的底色，能较好适配稳健配置需求的投资者。
-
-产品采用30天滚动持有机制，设计优势显著。
-
-一方面力争帮助投资者规避频繁申赎、追涨杀跌带来的收益损耗，提升投资体验。
+（CCTV国际时讯）责任编辑：郭建
 
 ## 相关推荐
 
-- 2026-06-29 21:25 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-29 21:22 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 21:37 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-29 21:46 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-29 21:33 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 21:32 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 21:19 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 21:20 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-29 21:45 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-29 21:33 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-29 21:30 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 21:43 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 21:38 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-29 21:30 - [宜宾地震已转移安置225人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 21:52 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 21:44 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 21:46 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-29 21:41 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-29 21:29 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 21:44 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 21:26 - [女生学医适合选什么专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-29 21:49 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-29 21:46 - [王楚钦开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 21:39 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:22 - [哈兰德玩游戏连女友都不让着](http://www.share.minike.top/Article/details/448526897420.shtml)
-- 2026-06-29 21:44 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/246689.shtml)
-- 2026-06-29 21:44 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/921259.shtml)
-- 2026-06-29 21:24 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/3692363591.shtml)
-- 2026-06-29 21:34 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/6651938.shtml)
-- 2026-06-29 21:40 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/7313298013.shtml)
-- 2026-06-29 21:34 - [巴西10号球衣是天才传承史](http://www.share.minike.top/Article/details/35690.shtml)
-- 2026-06-29 21:39 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/533087.shtml)
-- 2026-06-29 21:41 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/33511.shtml)
-- 2026-06-29 21:40 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.blog.kurohicncr.top/Article/details/6478617941.shtml)
-- 2026-06-29 21:25 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/74357875301.shtml)
-- 2026-06-29 21:29 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/296868145.shtml)
-- 2026-06-29 21:20 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/24276237421.shtml)
-- 2026-06-29 21:35 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/8676634.shtml)
-- 2026-06-29 21:41 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/88945597.shtml)
+- 2026-06-29 21:35 - [周杰伦千禧年就有小卡了](https://www.share.minike.top/Article/details/858367.shtml)
+- 2026-06-29 21:35 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/616069.shtml)
+- 2026-06-29 21:38 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/557303529780.shtml)
+- 2026-06-29 21:47 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/614002864.shtml)
+- 2026-06-29 21:31 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/8196177.shtml)
+- 2026-06-29 21:27 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/164596152986.shtml)
+- 2026-06-29 21:24 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/410267.shtml)
+- 2026-06-29 21:37 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/549912141005.shtml)
+- 2026-06-29 21:28 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/94361362925.shtml)
+- 2026-06-29 21:38 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/39569510425.shtml)
+- 2026-06-29 21:34 - [一汽大众黄金超混技术来袭](https://www.blog.kurohicncr.top/Article/details/919239.shtml)
+- 2026-06-29 21:38 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/34224424632.shtml)
+- 2026-06-29 21:33 - [极限挑战第一季](https://www.blog.minike.top/Article/details/14399766010.shtml)
+- 2026-06-29 21:39 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/437002997.shtml)
+- 2026-06-29 21:47 - [巴西10号球衣是天才传承史](https://www.blog.kurohicncr.top/Article/details/334175116588.shtml)

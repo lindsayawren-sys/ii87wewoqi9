@@ -1,61 +1,53 @@
-# “把童年放上天空” 江西首届“云端山野风筝嘉年华”启幕
+# 中国成功发射实践三十一号卫星
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-中新网南昌6月1日电 (熊锦阳)6月1日，南昌梅岭云端索道首届“云端山野风筝嘉年华”正式拉开帷幕，活动以“把童年放上天空”为主题，依托梅岭高山草坪、高空索道、湖畔营地等自然场景，为市民游客打造了一场集观赏体验、亲子互动、怀旧体验于一体的沉浸式户外文旅盛宴。 活动现场，50米长龙、巨型章鱼、梦幻鲸鱼以及各式卡通主题的超大型风筝在海拔760米的梅岭上空漫天飞舞，形成了震撼的视觉效果
+中新社北京6月16日电 (记者 马帅莎)据中国航天科技集团消息，北京时间6月16日17时45分，中国在西昌卫星发射中心使用长征三号乙运载火箭，将实践三十一号卫星发射升空。卫星顺利进入预定轨道，发射任务取得圆满成功。 实践三十一号卫星由中国航天科技集团八院抓总研制，主要用于空间环境探测。 此次任务是长征系列运载火箭的第651次飞行，也是长征三号乙运载火箭2026年第2次飞行。长征
 
 ## 正文
 
-中新网南昌6月1日电 (熊锦阳)6月1日，南昌梅岭云端索道首届“云端山野风筝嘉年华”正式拉开帷幕，活动以“把童年放上天空”为主题，依托梅岭高山草坪、高空索道、湖畔营地等自然场景，为市民游客打造了一场集观赏体验、亲子互动、怀旧体验于一体的沉浸式户外文旅盛宴。
+中新社北京6月16日电 (记者 马帅莎)据中国航天科技集团消息，北京时间6月16日17时45分，中国在西昌卫星发射中心使用长征三号乙运载火箭，将实践三十一号卫星发射升空。
 
-活动现场，50米长龙、巨型章鱼、梦幻鲸鱼以及各式卡通主题的超大型风筝在海拔760米的梅岭上空漫天飞舞，形成了震撼的视觉效果。
+卫星顺利进入预定轨道，发射任务取得圆满成功。
 
-游客乘坐全长5580米的云端索道，穿梭于山林云海之间，既能俯瞰梅岭层层叠叠的竹海风光，又能沉浸式欣赏这场独特的“空中风筝秀”。
+实践三十一号卫星由中国航天科技集团八院抓总研制，主要用于空间环境探测。
 
-据了解，活动现场还设置了多个互动体验区域。
+此次任务是长征系列运载火箭的第651次飞行，也是长征三号乙运载火箭2026年第2次飞行。
 
-索道下站草坪向市民开放自带风筝及DIY风筝放飞区域，亲子家庭可在索道下行途中手绘“南昌城市视角”“我的六一心愿”等主题风筝，并在草坪区域放飞。
+长征三号乙运载火箭由中国航天科技集团一院抓总研制，是长征三号甲系列运载火箭中的一员。
 
-揽胜广场、古韵游廊等地还复刻了跳房子、滚铁圈、拍洋画等经典怀旧游戏，市民参与集章即可兑换空白DIY风筝套装及特色限定礼品。
-
-“孩子早就盼着这个活动了，今天一早就拉着我们过来。
-
-”带着7岁女儿前来游玩的南昌市民林娟说，“既能坐索道看风景，又能亲手做风筝、放风筝，还能玩我们小时候的游戏，不仅孩子玩得开心，我们大人也找回了童年的感觉。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 21:19 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-29 21:40 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 21:39 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 21:38 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 21:35 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 21:34 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-29 21:42 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-29 21:38 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-29 21:39 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 21:24 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-29 21:24 - [王楚钦称抽签结果出来心情不好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-29 21:40 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 21:25 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 21:40 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-29 21:34 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 21:27 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 21:44 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 21:26 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-29 21:26 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-29 21:53 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-29 21:34 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-29 21:47 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-29 21:41 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-29 21:24 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 21:40 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 21:36 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:31 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/75214.shtml)
-- 2026-06-29 21:19 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/8591237.shtml)
-- 2026-06-29 21:27 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/4712421.shtml)
-- 2026-06-29 21:45 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/6747690.shtml)
-- 2026-06-29 21:27 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/018435.shtml)
-- 2026-06-29 21:24 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/37401.shtml)
-- 2026-06-29 21:40 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/356719405.shtml)
-- 2026-06-29 21:30 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.minike.top/Article/details/3894578.shtml)
-- 2026-06-29 21:34 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/07230.shtml)
-- 2026-06-29 21:39 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.minike.top/Article/details/51530.shtml)
-- 2026-06-29 21:42 - [电动车主等红灯遭三轮车上横杆砸头](http://www.blog.kurohicncr.top/Article/details/491627.shtml)
-- 2026-06-29 21:25 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/01567173.shtml)
-- 2026-06-29 21:40 - [白玉兰答谢宴合影](http://www.blog.minike.top/Article/details/474110104.shtml)
-- 2026-06-29 21:48 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/2940403.shtml)
-- 2026-06-29 21:37 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/67110.shtml)
+- 2026-06-29 21:32 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/3472105.shtml)
+- 2026-06-29 21:34 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/79874369402.shtml)
+- 2026-06-29 21:26 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/4159306146.shtml)
+- 2026-06-29 21:35 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/520400604.shtml)
+- 2026-06-29 21:45 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/36619221420.shtml)
+- 2026-06-29 21:30 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/233406858.shtml)
+- 2026-06-29 21:48 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/8884232.shtml)
+- 2026-06-29 21:38 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/73536250.shtml)
+- 2026-06-29 21:34 - [夫妻生活太无聊，所以我……](http://www.share.kurohicncr.top/Article/details/2401447611.shtml)
+- 2026-06-29 21:46 - [多人将马路护栏当球网打羽毛球](https://www.share.kurohicncr.top/Article/details/640391856.shtml)
+- 2026-06-29 21:36 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.blog.kurohicncr.top/Article/details/017695.shtml)
+- 2026-06-29 21:49 - [厨房装空调还是装冷烟机](http://www.blog.minike.top/Article/details/059224852.shtml)
+- 2026-06-29 21:48 - [把邻居裸体发群算维权还是侵权](https://www.share.kurohicncr.top/Article/details/584679.shtml)
+- 2026-06-29 21:40 - [世界杯高票价为何没劝退球迷](https://www.share.kurohicncr.top/Article/details/837083192.shtml)
+- 2026-06-29 21:33 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/9189856237.shtml)

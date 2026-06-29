@@ -1,61 +1,50 @@
-# 英伟达CEO黄仁勋称员工薪酬应该“尽可能高”
+# 《给阿嬷的情书》登陆马来西亚 每日排片将超500场
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-在全球围绕人工智能基建热潮产生的利润应如何分配的辩论越来越激烈之际，英伟达首席执行官黄仁勋表态称，他会给自己员工尽可能高的薪酬。 “我认为应该应该给人尽可能高的薪酬，”黄仁勋周二在台北电脑展间隙告诉记者。他当时被问到英伟达合作伙伴三星电子及其近期与员工达成的薪酬协议 —— 这份协议将给三星芯片工程师带来至多40万美元的奖金。 “我给员工发我能力范围内最高的工资，”黄仁勋说。“我
+发布时间：2026年06月16日 11:16 来源：中国新闻网 当地时间6月15日，《给阿嬷的情书》马来西亚特别展映活动在马来西亚首都吉隆坡TGVSuria KLCC影院举行。影片发行方表示，电影将于6月18日正式上市，将会在马来西亚超过100家院线影院上映，每天排片量会超过500场。(刘育英 制作 王嘉怡) 责任编辑：【罗攀】
 
 ## 正文
 
-在全球围绕人工智能基建热潮产生的利润应如何分配的辩论越来越激烈之际，英伟达首席执行官黄仁勋表态称，他会给自己员工尽可能高的薪酬。
+发布时间：2026年06月16日 11:16 来源：中国新闻网 当地时间6月15日，《给阿嬷的情书》马来西亚特别展映活动在马来西亚首都吉隆坡TGVSuria KLCC影院举行。
 
-“我认为应该应该给人尽可能高的薪酬，”黄仁勋周二在台北电脑展间隙告诉记者。
+影片发行方表示，电影将于6月18日正式上市，将会在马来西亚超过100家院线影院上映，每天排片量会超过500场。
 
-他当时被问到英伟达合作伙伴三星电子及其近期与员工达成的薪酬协议 —— 这份协议将给三星芯片工程师带来至多40万美元的奖金。
-
-“我给员工发我能力范围内最高的工资，”黄仁勋说。
-
-“我是这么做的，不是说这么做才是对的。
-
-” 全球AI模型迭出的主要受益者正面临越来越大的压力，被要求分享更多利润。
-
-三星电子与工会成员达成协议，避免了一场可能带来灾难性后果的罢工，英伟达合作伙伴台积电也在努力平息对利润分配的担忧。
-
-台积电总裁魏哲家上周主持员工大会，向员工保证今年他们的激励计划增幅将比去年更大。
+(刘育英 制作 王嘉怡) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 21:39 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 21:46 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-29 21:23 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 21:34 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 21:21 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-29 21:44 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 21:42 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-29 21:37 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-29 21:26 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 21:30 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 21:40 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-29 21:19 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-29 21:31 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 21:24 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-29 21:41 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 21:31 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 21:40 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-29 21:53 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-29 21:26 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 21:32 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-29 21:44 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 21:24 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-29 21:50 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 21:51 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 21:27 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-29 21:26 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-29 21:49 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-29 21:50 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 21:31 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:34 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/78735013.shtml)
-- 2026-06-29 21:28 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/697293777.shtml)
-- 2026-06-29 21:37 - [记者暗访养老机构消防安全](http://www.share.kurohicncr.top/Article/details/288253006.shtml)
-- 2026-06-29 21:37 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/7731902.shtml)
-- 2026-06-29 21:18 - [恋与深空7天掉粉超50万](http://www.share.kurohicncr.top/Article/details/9920003138.shtml)
-- 2026-06-29 21:31 - [爱很美味](http://www.blog.minike.top/Article/details/1032268332.shtml)
-- 2026-06-29 21:31 - [恋与深空制作组回应争议](https://www.blog.minike.top/Article/details/52024.shtml)
-- 2026-06-29 21:26 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/593338473.shtml)
-- 2026-06-29 21:47 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/30556.shtml)
-- 2026-06-29 21:18 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.kurohicncr.top/Article/details/72275841.shtml)
-- 2026-06-29 21:42 - [格莱美唱作人锐评歌手第6期](http://www.share.minike.top/Article/details/10398493.shtml)
-- 2026-06-29 21:20 - [青春环游记第三季](https://www.share.minike.top/Article/details/032446.shtml)
-- 2026-06-29 21:27 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/404448.shtml)
-- 2026-06-29 21:21 - [上世纪90年代玩具成新宠](https://www.blog.kurohicncr.top/Article/details/59849173.shtml)
-- 2026-06-29 21:18 - [美以这对亲密盟友要掰了吗](https://www.share.minike.top/Article/details/8796703725.shtml)
+- 2026-06-29 21:50 - [啊啊啊](https://www.share.minike.top/Article/details/140697883.shtml)
+- 2026-06-29 21:32 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/076049528746.shtml)
+- 2026-06-29 21:26 - [金鹰奖第二阶段投票明日开启](https://www.blog.minike.top/Article/details/5788051379.shtml)
+- 2026-06-29 21:50 - [孙俪开QQ的蛮好生活](https://www.blog.minike.top/Article/details/64783400.shtml)
+- 2026-06-29 21:37 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/71510925.shtml)
+- 2026-06-29 21:50 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/95437.shtml)
+- 2026-06-29 21:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/33957.shtml)
+- 2026-06-29 21:33 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.blog.minike.top/Article/details/195607040548.shtml)
+- 2026-06-29 21:36 - [女生学医适合选什么专业](http://www.share.minike.top/Article/details/355866625305.shtml)
+- 2026-06-29 21:41 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/79248953.shtml)
+- 2026-06-29 21:25 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/34316792.shtml)
+- 2026-06-29 21:40 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/636713508650.shtml)
+- 2026-06-29 21:53 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/7059612.shtml)
+- 2026-06-29 21:36 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.share.kurohicncr.top/Article/details/695822284.shtml)
+- 2026-06-29 21:43 - [英法德葡存在什么隐患](http://www.blog.minike.top/Article/details/75787.shtml)

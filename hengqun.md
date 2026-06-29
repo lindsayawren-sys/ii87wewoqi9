@@ -1,57 +1,53 @@
-# 安徽麦浪翻滚穗飘香 三夏抢收正当时
+# 卡尼称加拿大不会为3,000亿美元伊朗基金出资
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-外资加仓中国，对中国市场投下信任票灵隐寺，你变了！人这一辈子，一定要去一趟“华北明珠”白洋淀！非法从事试管婴儿手术背后：求子路上为何陷阱重重？6月新规来了！事关疲劳驾驶、“开门杀”赔偿等为啥外国人都爱来这里买买买？从五张面孔读懂中国民营经济的信心与底气中美关系、中东局势、日本动向、南海问题......一文速览“香会”四大看点韩军要收回战时指挥权，美国不再保护韩国了？厄尔尼诺将如
+加拿大总理马克·卡尼在法国Evian举行的七国集团（G7）峰会上对记者表示，加拿大不会向为伊朗计划实施的3，000亿美元经济发展计划提供任何财政援助。 卡尼表示，加拿大愿意协助落实这项协议。 “任何此类协议都需要有人协助执行，需要第三方协助落实，需要调解人监督执行”。 指出被冻结资产是加拿大可以提供帮助的一个方面。责任编辑：何云
 
 ## 正文
 
-外资加仓中国，对中国市场投下信任票灵隐寺，你变了！
+加拿大总理马克·卡尼在法国Evian举行的七国集团（G7）峰会上对记者表示，加拿大不会向为伊朗计划实施的3，000亿美元经济发展计划提供任何财政援助。
 
-人这一辈子，一定要去一趟“华北明珠”白洋淀！
+卡尼表示，加拿大愿意协助落实这项协议。
 
-非法从事试管婴儿手术背后：求子路上为何陷阱重重？
+“任何此类协议都需要有人协助执行，需要第三方协助落实，需要调解人监督执行”。
 
-6月新规来了！
+指出被冻结资产是加拿大可以提供帮助的一个方面。
 
-事关疲劳驾驶、“开门杀”赔偿等为啥外国人都爱来这里买买买？
-
-从五张面孔读懂中国民营经济的信心与底气中美关系、中东局势、日本动向、南海问题......一文速览“香会”四大看点韩军要收回战时指挥权，美国不再保护韩国了？
-
-厄尔尼诺将如何影响我国后续天气形势？
-
-中国气象局回应“抹黑门”丑闻发酵 “高市泡沫”或将破裂德国汉学家培高德：德国社会如何更好理解当代中国？
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 21:21 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 21:18 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 21:27 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 21:25 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-29 21:21 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-29 21:32 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-29 21:41 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-29 21:37 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-29 21:23 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 21:39 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-29 21:20 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-29 21:29 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 21:34 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 21:53 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 21:36 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-29 21:52 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 21:28 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-29 21:26 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-29 21:49 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-29 21:47 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 21:43 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-29 21:52 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-29 21:43 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-29 21:51 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:22 - [网约车出事故平台拒赔称只是中介](http://www.share.kurohicncr.top/Article/details/28544860.shtml)
-- 2026-06-29 21:18 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/036905197.shtml)
-- 2026-06-29 21:42 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/215536046.shtml)
-- 2026-06-29 21:21 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/571478.shtml)
-- 2026-06-29 21:19 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/759009501949.shtml)
-- 2026-06-29 21:41 - [新官上任三把火](http://www.blog.minike.top/Article/details/898291303351.shtml)
-- 2026-06-29 21:31 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/581681213.shtml)
-- 2026-06-29 21:46 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/686809.shtml)
-- 2026-06-29 21:24 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/4980003887.shtml)
-- 2026-06-29 21:47 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/005586.shtml)
-- 2026-06-29 21:21 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/1139764.shtml)
-- 2026-06-29 21:43 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.minike.top/Article/details/88800070573.shtml)
-- 2026-06-29 21:18 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/6361821.shtml)
-- 2026-06-29 21:19 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/10364.shtml)
-- 2026-06-29 21:45 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/222088563.shtml)
+- 2026-06-29 21:36 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/52673633.shtml)
+- 2026-06-29 21:36 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/989399195600.shtml)
+- 2026-06-29 21:46 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/696915231877.shtml)
+- 2026-06-29 21:45 - [金牌调解](https://www.share.minike.top/Article/details/98913.shtml)
+- 2026-06-29 21:39 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/157134.shtml)
+- 2026-06-29 21:29 - [恋与深空各大应用商店评分](http://www.blog.kurohicncr.top/Article/details/549655095.shtml)
+- 2026-06-29 21:24 - [扬名立万](https://www.blog.minike.top/Article/details/25019718465.shtml)
+- 2026-06-29 21:50 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/69887795.shtml)
+- 2026-06-29 21:25 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/40876324144.shtml)
+- 2026-06-29 21:45 - [记者：预计热火将追求小哈达威和康利](https://www.share.minike.top/Article/details/7752561.shtml)
+- 2026-06-29 21:33 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/225772431.shtml)
+- 2026-06-29 21:44 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/177203081.shtml)
+- 2026-06-29 21:25 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/43141193853.shtml)
+- 2026-06-29 21:47 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/81323654.shtml)
+- 2026-06-29 21:50 - [教育部高校学生资助热线7月1日开通](http://www.share.minike.top/Article/details/6482490644.shtml)

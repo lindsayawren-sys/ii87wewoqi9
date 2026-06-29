@@ -1,59 +1,61 @@
-# 中国抹茶花样玩法成“Z世代”新风尚
+# 算力硬件走强！创业板人工智能ETF（159363）再涨1%强势三连阳！第四大权重股发力，江波龙涨超7%
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-中新社杭州6月1日电 题：中国抹茶花样玩法成“Z世代”新风尚 作者 林波 拧开特制瓶盖，将抹茶倒入矿泉水，轻晃即成一杯自制抹茶饮品。这是不少年轻消费者解锁的“随身抹茶”新玩法。 “我们把抹茶设计成瓶盖，带着它去全球任何地方，买瓶水就能直接用。”杭州径百味抹茶品牌创始人王俊桦说，通过创新设计，他们不断提高抹茶携带的便捷性，并针对不同国家推出定制化设计。 随着新中式健康饮食风潮席卷
+6月17日盘中，存储芯片发力，光模块活跃，创业板人工智能低开高走。其中，协创数据领涨超11%，江波龙涨超7%，北京君正涨超5%。此外，新易盛、中际旭创、天孚通信等光模块龙头等均飘红。 热门ETF方面，同类规模、流动性第一的创业板人工智能ETF华宝（159363）场内再涨近1%，日线三连阳，资金近五日累计净申购2.5亿元。 算力硬件方面，摩根表示，AI领域仍可持续发掘具备确定性的
 
 ## 正文
 
-中新社杭州6月1日电 题：中国抹茶花样玩法成“Z世代”新风尚 作者 林波 拧开特制瓶盖，将抹茶倒入矿泉水，轻晃即成一杯自制抹茶饮品。
+6月17日盘中，存储芯片发力，光模块活跃，创业板人工智能低开高走。
 
-这是不少年轻消费者解锁的“随身抹茶”新玩法。
+其中，协创数据领涨超11%，江波龙涨超7%，北京君正涨超5%。
 
-“我们把抹茶设计成瓶盖，带着它去全球任何地方，买瓶水就能直接用。
+此外，新易盛、中际旭创、天孚通信等光模块龙头等均飘红。
 
-”杭州径百味抹茶品牌创始人王俊桦说，通过创新设计，他们不断提高抹茶携带的便捷性，并针对不同国家推出定制化设计。
+热门ETF方面，同类规模、流动性第一的创业板人工智能ETF华宝（159363）场内再涨近1%，日线三连阳，资金近五日累计净申购2.5亿元。
 
-随着新中式健康饮食风潮席卷全球，中式养生茶饮、功能性茶粉持续走红，为抹茶等产品带来全新机遇。
+算力硬件方面，摩根表示，AI领域仍可持续发掘具备确定性的成长机会，算力硬件景气度和业绩增速有望领先全市场，重点聚焦光模块、PCB、液冷和算力租赁等环节。
 
-小小抹茶，正在全球掀起一股绿色旋风。
+国金证券也认为，AI需求强劲，存储涨价趋势有望持续。
 
-中国是全球最大的抹茶生产国。
+AI短期、中期的需求都非常强劲，研判AI算力硬件核心公司二三季度业绩环比有望加速，建议关注业绩有望超预期方向。
 
-今年一季度，浙江抹茶出口1241.97吨，货值1.4亿元人民币，同比增长7.3倍。
+此外，6月15日起，创业板人工智能指数调仓信息显示，本次“纳新”直指高景气赛道：存储龙头江波龙强势入列，最新权重占比达6.73%，为指数第四大权重股。
 
 ## 相关推荐
 
-- 2026-06-29 21:28 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 21:19 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-29 21:28 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 21:42 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 21:43 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-29 21:24 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 21:37 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-29 21:21 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 21:27 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 21:38 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-29 21:43 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-29 21:19 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 21:46 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 21:52 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 21:47 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-29 21:38 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-29 21:38 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 21:48 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-29 21:42 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-29 21:46 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 21:38 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-29 21:36 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 21:52 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-29 21:33 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-29 21:38 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-29 21:27 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 21:35 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 21:42 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:38 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/482362.shtml)
-- 2026-06-29 21:43 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/44323523316.shtml)
-- 2026-06-29 21:34 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/94665.shtml)
-- 2026-06-29 21:46 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/3517075390.shtml)
-- 2026-06-29 21:46 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/640107310.shtml)
-- 2026-06-29 21:21 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/586470982323.shtml)
-- 2026-06-29 21:32 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/893437030.shtml)
-- 2026-06-29 21:29 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/98766440158.shtml)
-- 2026-06-29 21:20 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/6112052001.shtml)
-- 2026-06-29 21:27 - [我和我的家乡](http://www.blog.minike.top/Article/details/142812475.shtml)
-- 2026-06-29 21:32 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/139939760.shtml)
-- 2026-06-29 21:23 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/948845.shtml)
-- 2026-06-29 21:18 - [高质量发展看新疆](https://www.blog.kurohicncr.top/Article/details/6481573.shtml)
-- 2026-06-29 21:21 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/956652247.shtml)
-- 2026-06-29 21:28 - [C罗10球7球对垫底队](http://www.share.kurohicncr.top/Article/details/2149517.shtml)
+- 2026-06-29 21:43 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/6089093.shtml)
+- 2026-06-29 21:37 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.minike.top/Article/details/87845396740.shtml)
+- 2026-06-29 21:40 - [英法德葡存在什么隐患](http://www.blog.minike.top/Article/details/41684796448.shtml)
+- 2026-06-29 21:38 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/602606891.shtml)
+- 2026-06-29 21:52 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/7841328817.shtml)
+- 2026-06-29 21:31 - [小龙女配音去世 李若彤发文悼念](http://www.blog.kurohicncr.top/Article/details/906272.shtml)
+- 2026-06-29 21:35 - [朱雀三号完成静态点火试验](https://www.share.kurohicncr.top/Article/details/545889456101.shtml)
+- 2026-06-29 21:37 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/6493954.shtml)
+- 2026-06-29 21:46 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/1263066938.shtml)
+- 2026-06-29 21:36 - [曝iPhone涨价后不会再降](https://www.blog.minike.top/Article/details/25759350873.shtml)
+- 2026-06-29 21:46 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/9003900.shtml)
+- 2026-06-29 21:40 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/36681022092.shtml)
+- 2026-06-29 21:26 - [吴建豪和老婆差20岁](http://www.share.kurohicncr.top/Article/details/1670828.shtml)
+- 2026-06-29 21:52 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/7105608.shtml)
+- 2026-06-29 21:48 - [马光远谈马斯克最大的价值](https://www.share.kurohicncr.top/Article/details/829755.shtml)

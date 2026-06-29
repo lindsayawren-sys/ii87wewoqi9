@@ -1,58 +1,58 @@
-# 超跌反弹！华宝基金金融科技ETF（159851）低位大涨3.57%！AI赋能+交投活跃，板块有望持续修复
+# 逆势而动！部分银行上调理财业绩比较基准 警惕与实际收益的区别
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-6月1日早盘，金融科技板块超跌反弹，软件股大举走高，星环科技冲击20CM涨停，润和软件、博睿数据大涨超10%，税友股份、中科金财涨停。热门ETF方面，近期下探阶段新低后，同类规模最大的金融科技ETF华宝（159851）场内大涨3.57%。 当前金融科技板块或处强催化与低估值共振的布局窗口。一方面，市场交投持续活跃与AI技术深度融合，为互联网券商及金融IT提供坚实的基本面支撑；另
+登录新浪财经APP 搜索【信披】查看更多考评等级 21世纪经济报道记者 叶麦穗 流动性宽松背景下，银行理财市场收益“跌跌不休”，行业整体定价中枢持续下沉。国有大行、股份行旗下理财子公司下调理财产品业绩比较基准，已然成为行业常态化操作。 值得关注的是，近期多家地方农商行逆向而动，调整定价策略，上调旗下多款理财产品业绩比较基准，走出独立行情。 多位受访专家分析认为，此番地方城商行、
 
 ## 正文
 
-6月1日早盘，金融科技板块超跌反弹，软件股大举走高，星环科技冲击20CM涨停，润和软件、博睿数据大涨超10%，税友股份、中科金财涨停。
+登录新浪财经APP 搜索【信披】查看更多考评等级 21世纪经济报道记者 叶麦穗 流动性宽松背景下，银行理财市场收益“跌跌不休”，行业整体定价中枢持续下沉。
 
-热门ETF方面，近期下探阶段新低后，同类规模最大的金融科技ETF华宝（159851）场内大涨3.57%。
+国有大行、股份行旗下理财子公司下调理财产品业绩比较基准，已然成为行业常态化操作。
 
-当前金融科技板块或处强催化与低估值共振的布局窗口。
+值得关注的是，近期多家地方农商行逆向而动，调整定价策略，上调旗下多款理财产品业绩比较基准，走出独立行情。
 
-一方面，市场交投持续活跃与AI技术深度融合，为互联网券商及金融IT提供坚实的基本面支撑；另一方面，板块经历回调后估值回落至近三年历史低位，叠加政策暖风频吹，安全边际与弹性空间并存。
+多位受访专家分析认为，此番地方城商行、农商行逆市抬升理财产品业绩比较基准，核心是中小银行的差异化突围策略。
 
-交投方面，两市成交额连续突破2.5万亿元。
+具体而言，一方面意在拉高产品收益优势、强化资管产品市场竞争力；另一方面也意图抢抓储蓄与理财客群，实现存量客户留存、增量客户引流，最终破解银行存款负债端承压、负债成本高企的行业共性难题。
 
-金融科技强贝塔属性突出，高流动性下板块有望持续受益：互联网券商基本面预期有望持续改善，金融IT等作为顺周期高弹性品种，也持续受益于高流动性，C端炒股软件景气度向上，B端金融IT需求逐步释放。
+部分中小银行上调理财业绩比较基准 今年以来，包括农银理财、中邮理财、交银理财、招银理财、兴银理财、民生理财等在内的多家机构密集下调理财产品业绩比较基准，部分产品基准下限跌破2%，部分产品调整幅度超过100个基点。
 
-金融IT方面，AI成为金融机构核心驱动力。
+博通咨询金融行业资深分析师王蓬博此前分析认为，银行理财产品下调业绩比较基准，最主要是受整体利率的影响，尤其是像货基类这种占绝对比例的理财产品，其收益在下调，所以整体收益标准是一定会随市场“重心”而下降的。
 
-随着金融机构对科技投入的持续增加，以及AI大模型在金融场景的深度融合，具备产品化能力和技术壁垒的头部金融IT厂商有望持续领先，金融科技出海也将开辟更广阔增长空间。
+不过与大型银行理财子公司普遍下调理财产品业绩比较基准不同，部分地方农商行，城商行近期发布公告，宣布小幅上调旗下低风险固收类产品业绩比较基准。
 
 ## 相关推荐
 
-- 2026-06-29 21:27 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-29 21:38 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 21:47 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-29 21:32 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-29 21:33 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-29 21:30 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-29 21:45 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-29 21:46 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 21:27 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 21:39 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 21:19 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 21:40 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 21:28 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 21:40 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 21:51 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-29 21:25 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 21:31 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-29 21:34 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 21:48 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-29 21:31 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-29 21:29 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 21:30 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-29 21:46 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-29 21:32 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:38 - [一诺变着花样秀新驾照](http://www.blog.minike.top/Article/details/8719991478.shtml)
-- 2026-06-29 21:36 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/2081592956.shtml)
-- 2026-06-29 21:42 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/14880096753.shtml)
-- 2026-06-29 21:36 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/698362162452.shtml)
-- 2026-06-29 21:44 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/25807.shtml)
-- 2026-06-29 21:36 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/656777136.shtml)
-- 2026-06-29 21:34 - [律师解读滚石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/6617106297.shtml)
-- 2026-06-29 21:24 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/85378368998.shtml)
-- 2026-06-29 21:44 - [巴西10号球衣是天才传承史](https://www.blog.minike.top/Article/details/40801270527.shtml)
-- 2026-06-29 21:23 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/23622283.shtml)
-- 2026-06-29 21:36 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/42366340801.shtml)
-- 2026-06-29 21:33 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/20970.shtml)
-- 2026-06-29 21:18 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/061597546370.shtml)
-- 2026-06-29 21:44 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/82301106.shtml)
-- 2026-06-29 21:37 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/439662737319.shtml)
+- 2026-06-29 21:47 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/87751891.shtml)
+- 2026-06-29 21:25 - [时光音乐会](https://www.share.minike.top/Article/details/03109218652.shtml)
+- 2026-06-29 21:53 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/64235686055.shtml)
+- 2026-06-29 21:47 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/56562278678.shtml)
+- 2026-06-29 21:43 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/151032.shtml)
+- 2026-06-29 21:26 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/6697977.shtml)
+- 2026-06-29 21:38 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/26368376206.shtml)
+- 2026-06-29 21:41 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/2196750.shtml)
+- 2026-06-29 21:35 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/14129949453.shtml)
+- 2026-06-29 21:50 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/54059975.shtml)
+- 2026-06-29 21:41 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/84541.shtml)
+- 2026-06-29 21:27 - [恋与深空客服的回应](https://www.share.minike.top/Article/details/158161423.shtml)
+- 2026-06-29 21:39 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/675050.shtml)
+- 2026-06-29 21:28 - [北京发布地质灾害气象风险蓝色预警](https://www.blog.minike.top/Article/details/201577.shtml)
+- 2026-06-29 21:38 - [中方在台湾岛以东海域活动合理合法](https://www.share.minike.top/Article/details/2190431392.shtml)

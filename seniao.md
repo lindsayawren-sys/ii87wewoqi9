@@ -1,56 +1,61 @@
-# 摩根士丹利在戴尔股价飙升后上调评级
+# “茶和天下·雅集”仲夏端午系列活动暨嘉兴文化和旅游推介会在韩国举办
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-摩根士丹利分析师周一表示，在戴尔公司股价上周五飙升33%并创下其历史最佳单日表现后，他们承认之前的判断有误。 分析师Erik Woodring及其同事在周一的一份报告中写道：“我们的存储芯片供应判断是错误的。戴尔在供应链管理和执行方面比同行做得更好，这使得公司能够抓住关键需求、赢得市场份额并获得定价能力。” 他们将戴尔的评级从“减持”上调至“持股观望”，目标价从170美元上调至
+中新网首尔6月17日电 (记者 金旭)当地时间6月17日，“茶和天下·雅集”仲夏端午系列活动暨嘉兴文化和旅游推介会在韩国首尔中国文化中心举办。韩国旅游业界代表、知名旅游博主及网络达人等嘉宾出席活动，共同感受嘉兴的江南文化，体验中华传统节日，共话两国文旅交流合作新机遇。 在旅游推介环节，嘉兴市文化广电旅游局重点介绍了嘉兴文化旅游资源和特色旅游产品。嘉兴拥有南湖、乌镇、西塘古镇、濮
 
 ## 正文
 
-摩根士丹利分析师周一表示，在戴尔公司股价上周五飙升33%并创下其历史最佳单日表现后，他们承认之前的判断有误。
+中新网首尔6月17日电 (记者 金旭)当地时间6月17日，“茶和天下·雅集”仲夏端午系列活动暨嘉兴文化和旅游推介会在韩国首尔中国文化中心举办。
 
-分析师Erik Woodring及其同事在周一的一份报告中写道：“我们的存储芯片供应判断是错误的。
+韩国旅游业界代表、知名旅游博主及网络达人等嘉宾出席活动，共同感受嘉兴的江南文化，体验中华传统节日，共话两国文旅交流合作新机遇。
 
-戴尔在供应链管理和执行方面比同行做得更好，这使得公司能够抓住关键需求、赢得市场份额并获得定价能力。
+在旅游推介环节，嘉兴市文化广电旅游局重点介绍了嘉兴文化旅游资源和特色旅游产品。
 
-” 他们将戴尔的评级从“减持”上调至“持股观望”，目标价从170美元上调至448美元。
+嘉兴拥有南湖、乌镇、西塘古镇、濮院时尚古镇等优质旅游资源，兼具江南水乡韵味、历史文化底蕴与现代休闲体验。
 
-该股周一午后交易中约为460美元。
+近年来，嘉兴持续推进文化和旅游深度融合发展，不断丰富旅游产品供给，吸引越来越多海内外游客前往观光体验。
 
-Woodring写道：“戴尔在获取存储芯片供应及其定价方面，比许多企业级同行更具优势。
+活动现场还重点推介了面向国际游客推出的“嗨游浙江”旅游服务平台。
 
-”责任编辑：张俊 SF065
+该平台整合景区门票、酒店住宿、旅游线路及特色商品等资源，为境外游客提供便捷的一站式旅游服务。
+
+嘉兴市文化广电旅游局向与会嘉宾介绍了平台功能及相关优惠政策，重点展示了面向韩国游客推出的景区、酒店及旅游产品优惠措施，进一步提升韩国游客赴嘉兴、游浙江的便利度和吸引力。
 
 ## 相关推荐
 
-- 2026-06-29 21:25 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 21:27 - [委内瑞拉发生余震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 21:29 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 21:20 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-29 21:36 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 21:41 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-29 21:25 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 21:19 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 21:32 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-29 21:47 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-29 21:23 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-29 21:38 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-29 21:54 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-29 21:43 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-29 21:32 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 21:43 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-29 21:51 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 21:35 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-29 21:33 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-29 21:25 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 21:26 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 21:47 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 21:50 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-29 21:43 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 21:39 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 21:51 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 21:37 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:44 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/9131134526.shtml)
-- 2026-06-29 21:18 - [周杰伦千禧年就有小卡了](http://www.share.minike.top/Article/details/29389610.shtml)
-- 2026-06-29 21:35 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/8826749791.shtml)
-- 2026-06-29 21:25 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.kurohicncr.top/Article/details/11918.shtml)
-- 2026-06-29 21:22 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/114493655310.shtml)
-- 2026-06-29 21:44 - [C罗10球7球对垫底队](https://www.share.kurohicncr.top/Article/details/96839408.shtml)
-- 2026-06-29 21:44 - [锐评白玉兰提名片段](http://www.blog.kurohicncr.top/Article/details/86620611007.shtml)
-- 2026-06-29 21:19 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/746606.shtml)
-- 2026-06-29 21:20 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/95070.shtml)
-- 2026-06-29 21:23 - [如何看待乌空军3架米格-29被摧毁](https://www.share.kurohicncr.top/Article/details/90607.shtml)
-- 2026-06-29 21:33 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/062052.shtml)
-- 2026-06-29 21:24 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/676202.shtml)
-- 2026-06-29 21:36 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.kurohicncr.top/Article/details/28949474.shtml)
-- 2026-06-29 21:42 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/4156604177.shtml)
-- 2026-06-29 21:45 - [中方在台湾岛以东海域活动合理合法](http://www.share.minike.top/Article/details/224236.shtml)
+- 2026-06-29 21:47 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/2653644.shtml)
+- 2026-06-29 21:28 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/04740486644.shtml)
+- 2026-06-29 21:26 - [天气热脾气都变差了](https://www.share.minike.top/Article/details/9635107111.shtml)
+- 2026-06-29 21:51 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/155552662.shtml)
+- 2026-06-29 21:38 - [宜宾地震已转移安置225人](https://www.blog.minike.top/Article/details/89782338589.shtml)
+- 2026-06-29 21:50 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/534872166786.shtml)
+- 2026-06-29 21:24 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/063084840.shtml)
+- 2026-06-29 21:41 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/0261984970.shtml)
+- 2026-06-29 21:27 - [谁在推动“成都造”影视持续出圈](http://www.blog.minike.top/Article/details/535086028067.shtml)
+- 2026-06-29 21:31 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/33668338370.shtml)
+- 2026-06-29 21:25 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/70609801.shtml)
+- 2026-06-29 21:52 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/90989.shtml)
+- 2026-06-29 21:36 - [温网](https://www.share.kurohicncr.top/Article/details/94919.shtml)
+- 2026-06-29 21:28 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/9317770.shtml)
+- 2026-06-29 21:44 - [教育部高校学生资助热线7月1日开通](http://www.blog.kurohicncr.top/Article/details/47603478669.shtml)

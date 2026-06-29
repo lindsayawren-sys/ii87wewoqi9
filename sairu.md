@@ -1,58 +1,51 @@
-# 陈映玲：在“时光的残忍”里，守住一声“奴啊”
+# 美方暂缓将DeepSeek等列入出口管制“实体清单”？中方回应
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-中新网北京6月2日电 题：陈映玲：在“时光的残忍”里，守住一声“奴啊” 中新网记者 徐文欣 “很多人老了以后，那种对故乡的思念和对时光流逝的无力感，会变得特别强烈。看着他们，我很心疼，所以想把他们的故事记录下来。”短视频账号“泰国V姐”创作者陈映玲日前接受中国侨网“华人故事”栏目专访时说道。 无心插柳，做时光的记录者 陈映玲的父母早年定居泰国，她自幼在泰中两国间往返生活、读书，
+中新网北京6月17日电 (记者 谢雁冰)中国外交部发言人林剑17日主持例行记者会。 有记者提问：据报道，美国商务部已暂缓将包括DeepSeek在内的多家中国企业列入出口管制“实体清单”，请问中方对此有何评论？ 林剑：我们注意到了有关报道，中方一贯反对美方泛化国家安全概念，滥用“实体清单”等出口管制工具，遏制打压中方企业。美方应停止将经贸科技问题政治化、工具化、武器化。(完)
 
 ## 正文
 
-中新网北京6月2日电 题：陈映玲：在“时光的残忍”里，守住一声“奴啊” 中新网记者 徐文欣 “很多人老了以后，那种对故乡的思念和对时光流逝的无力感，会变得特别强烈。
+中新网北京6月17日电 (记者 谢雁冰)中国外交部发言人林剑17日主持例行记者会。
 
-看着他们，我很心疼，所以想把他们的故事记录下来。
+有记者提问：据报道，美国商务部已暂缓将包括DeepSeek在内的多家中国企业列入出口管制“实体清单”，请问中方对此有何评论？
 
-”短视频账号“泰国V姐”创作者陈映玲日前接受中国侨网“华人故事”栏目专访时说道。
+林剑：我们注意到了有关报道，中方一贯反对美方泛化国家安全概念，滥用“实体清单”等出口管制工具，遏制打压中方企业。
 
-无心插柳，做时光的记录者 陈映玲的父母早年定居泰国，她自幼在泰中两国间往返生活、读书，从小耳濡目染侨社事务。
+美方应停止将经贸科技问题政治化、工具化、武器化。
 
-如今她也担任泰国中华总商会会董、泰国华商中心执行主任等侨社职务。
-
-三年前，陈映玲开始拍摄短视频，记录身边的故事。
-
-谈及初心，她说，看到一些老前辈身体越来越差，心里很不是滋味。
-
-再不记录下来，他们的故事可能就再也听不到了。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 21:34 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 21:34 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 21:43 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 21:19 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 21:31 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 21:46 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-29 21:30 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-29 21:30 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 21:22 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 21:18 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-29 21:18 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-29 21:31 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 21:36 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 21:42 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 21:31 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 21:31 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 21:37 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 21:44 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-29 21:29 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 21:37 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 21:50 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-29 21:40 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 21:40 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:20 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/450433561043.shtml)
-- 2026-06-29 21:38 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/2916431245.shtml)
-- 2026-06-29 21:47 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/55099.shtml)
-- 2026-06-29 21:27 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/133750284342.shtml)
-- 2026-06-29 21:45 - [金刚川](https://www.share.minike.top/Article/details/54617901006.shtml)
-- 2026-06-29 21:41 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.kurohicncr.top/Article/details/207619.shtml)
-- 2026-06-29 21:30 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/802323301.shtml)
-- 2026-06-29 21:22 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/067605719.shtml)
-- 2026-06-29 21:20 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/8856066.shtml)
-- 2026-06-29 21:25 - [记者乘坐无人驾驶汽车去采访](https://www.share.kurohicncr.top/Article/details/990221.shtml)
-- 2026-06-29 21:37 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/486726546983.shtml)
-- 2026-06-29 21:30 - [回顾世界杯争议事件](https://www.share.minike.top/Article/details/0314930.shtml)
-- 2026-06-29 21:30 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/6808243.shtml)
-- 2026-06-29 21:38 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/782043090176.shtml)
-- 2026-06-29 21:39 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/776498311212.shtml)
+- 2026-06-29 21:42 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/09690199.shtml)
+- 2026-06-29 21:47 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/4842433562.shtml)
+- 2026-06-29 21:42 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/936279602499.shtml)
+- 2026-06-29 21:47 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/194644074422.shtml)
+- 2026-06-29 21:44 - [高质量发展看新疆](https://www.share.kurohicncr.top/Article/details/39392982.shtml)
+- 2026-06-29 21:28 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/25725005.shtml)
+- 2026-06-29 21:53 - [夫妻生活太无聊，所以我……](http://www.share.minike.top/Article/details/645846288.shtml)
+- 2026-06-29 21:51 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/60360.shtml)
+- 2026-06-29 21:45 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.minike.top/Article/details/1709444810.shtml)
+- 2026-06-29 21:36 - [小娘惹](http://www.share.kurohicncr.top/Article/details/6273825193.shtml)
+- 2026-06-29 21:34 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/87427202.shtml)
+- 2026-06-29 21:50 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/956431.shtml)
+- 2026-06-29 21:53 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/132323361.shtml)
+- 2026-06-29 21:35 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/70078.shtml)
+- 2026-06-29 21:39 - [地震来临时铁路工作人员果断拦停列车](https://www.share.minike.top/Article/details/52459.shtml)

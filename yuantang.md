@@ -1,46 +1,56 @@
-# 庆“六一” 七部门联合启动主题活动
+# 长江有色：多头静候议息会议指引镍价区间震荡 17日镍价或震荡反弹
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月01日 15:39 来源：央视新闻 责任编辑：【王祎】
+长江有色金属网 镍期货市场：美元走弱叠加供给预期催化资金借势回流镍市，隔夜伦镍收涨0.79%；伦镍最新收盘报17955美元/吨，上涨140美元，涨幅为0.79%，成交量6195手，国内市场，夜盘沪镍最新收报135850元/吨，上涨90元，涨幅为0.07%。 伦敦金属交易所（LME）6月16日伦镍库存报275874吨，较前一日增加942吨。 长江镍业网讯：今日沪镍期货全线高开为主
 
 ## 正文
 
-发布时间：2026年06月01日 15:39 来源：央视新闻 责任编辑：【王祎】
+长江有色金属网 镍期货市场：美元走弱叠加供给预期催化资金借势回流镍市，隔夜伦镍收涨0.79%；伦镍最新收盘报17955美元/吨，上涨140美元，涨幅为0.79%，成交量6195手，国内市场，夜盘沪镍最新收报135850元/吨，上涨90元，涨幅为0.07%。
+
+伦敦金属交易所（LME）6月16日伦镍库存报275874吨，较前一日增加942吨。
+
+长江镍业网讯：今日沪镍期货全线高开为主；主力月2607合约开盘报135870元/吨较此前收盘上涨110元/吨，9：15分沪镍主力2607合约报135840元/吨，上涨80元，沪期镍高开后窄幅震荡；宏观面：隔夜伦镍震荡走强，市场情绪由谨慎转向偏多。
+
+海外宏观层面，美联储 6 月按兵不动预期持续升温，美元阶段性走弱叠加美债收益率回落，美元计价的工业金属迎来估值修复窗口；中东地缘风险缓释，供应链扰动溢价收窄，大宗商品流动性支撑进一步强化。
+
+产业端印尼矿业合规整顿持续发酵，镍矿供给收缩担忧升温，带动资金回流镍市。
+
+国内稳增长与新能源产业布局持续加码，下游需求托底预期增强，叠加美股结构性风险偏好修复，共同筑牢镍价下方支撑。
+
+镍原料结构性紧平衡 产业链分化格局延续 原料端呈现显著结构性差异：印尼 2026 年镍矿开采配额大幅削减约 30%，红土镍矿高品位货源供给持续收紧；硫化镍矿全球优质资源稀缺，新建矿山投产周期漫长，一级镍原料维持紧平衡格局。
+
+中间品环节，高冰镍增量受设备改造限制释放缓慢，氢氧化镍钴受前期硫磺高价挤压，多厂降负荷运行导致现货流通偏紧；再生镍供应稳步提升但整体占比偏低，对原生镍替代效应有限。
 
 ## 相关推荐
 
-- 2026-06-29 21:34 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-29 21:43 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 21:19 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 21:45 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 21:18 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-29 21:20 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-29 21:26 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 21:43 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-29 21:23 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 21:21 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-29 21:20 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-29 21:22 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-29 21:42 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-29 21:30 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 21:46 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-29 21:37 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 21:51 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 21:51 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 21:41 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-29 21:32 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-29 21:42 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 21:48 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 21:40 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-29 21:41 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:42 - [乌克兰发广告全球征兵](https://www.share.minike.top/Article/details/822614.shtml)
-- 2026-06-29 21:42 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.kurohicncr.top/Article/details/93720056552.shtml)
-- 2026-06-29 21:43 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/020901115.shtml)
-- 2026-06-29 21:27 - [哈兰德玩游戏连女友都不让着](http://www.share.minike.top/Article/details/303404.shtml)
-- 2026-06-29 21:42 - [让AI做一个账号，它会做成什么样？](http://www.share.minike.top/Article/details/95054.shtml)
-- 2026-06-29 21:45 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/61571353.shtml)
-- 2026-06-29 21:22 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.blog.minike.top/Article/details/973226996399.shtml)
-- 2026-06-29 21:38 - [东方风云榜](https://www.blog.minike.top/Article/details/5520040708.shtml)
-- 2026-06-29 21:38 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/48484255416.shtml)
-- 2026-06-29 21:30 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/509160.shtml)
-- 2026-06-29 21:41 - [斛珠夫人](https://www.blog.minike.top/Article/details/96586.shtml)
-- 2026-06-29 21:32 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/88811806.shtml)
-- 2026-06-29 21:24 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/744874460109.shtml)
-- 2026-06-29 21:34 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/72912824.shtml)
-- 2026-06-29 21:25 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/371870256295.shtml)
+- 2026-06-29 21:26 - [LPL第三赛段赛制公布](https://www.share.kurohicncr.top/Article/details/5655140.shtml)
+- 2026-06-29 21:51 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/5656184.shtml)
+- 2026-06-29 21:25 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/71135787878.shtml)
+- 2026-06-29 21:30 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/96372.shtml)
+- 2026-06-29 21:49 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/8507993599.shtml)
+- 2026-06-29 21:38 - [Ella回应SHE何时合体](http://www.share.minike.top/Article/details/742907.shtml)
+- 2026-06-29 21:47 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/281987162435.shtml)
+- 2026-06-29 21:42 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/046453196.shtml)
+- 2026-06-29 21:50 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/41572562.shtml)
+- 2026-06-29 21:45 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/66648.shtml)
+- 2026-06-29 21:27 - [明星大侦探第四季](https://www.share.minike.top/Article/details/309076.shtml)
+- 2026-06-29 21:33 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/03124533260.shtml)
+- 2026-06-29 21:26 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/495883.shtml)
+- 2026-06-29 21:27 - [《贺子珍》](http://www.share.minike.top/Article/details/82326.shtml)
+- 2026-06-29 21:40 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/04584174.shtml)

@@ -1,48 +1,56 @@
-# 电力股午后普遍走高 华电国际涨超5%华能国际涨超3%
+# “土味”十足的土家族摆手舞，为何能跨越国界打动海外观众？
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-电力股午后普遍走高 ，截至发稿，华电国际（01071）上涨5.33%，报4.76港元；华能国际（00902）上涨3.30%，报7.51港元；中国电力（02380）上涨2.42%，报3.81港元；华润电力（00836）上涨1.88%，报21.66港元。责任编辑：卢昱君
+中新社记者 郭晓莹 摆手舞是土家族传统舞蹈，流传在鄂、湘、渝、黔交界的酉水河和乌江流域，以狩猎、农事、军事和社会生活为主要表现内容。该舞蹈动作粗犷豪迈，有类似迪斯科的独特风格，被列入中国国家级非物质文化遗产代表性项目名录。在漫长的历史进程中，摆手舞成为土家族鲜明的文化符号，至今仍是土家族人最喜爱的健身舞蹈。 摆手舞为何风靡土家族地区千余年并在海内外“圈粉”？如何让这一古老的舞蹈
 
 ## 正文
 
-电力股午后普遍走高 ，截至发稿，华电国际（01071）上涨5.33%，报4.76港元；华能国际（00902）上涨3.30%，报7.51港元；中国电力（02380）上涨2.42%，报3.81港元；华润电力（00836）上涨1.88%，报21.66港元。
+中新社记者 郭晓莹 摆手舞是土家族传统舞蹈，流传在鄂、湘、渝、黔交界的酉水河和乌江流域，以狩猎、农事、军事和社会生活为主要表现内容。
 
-责任编辑：卢昱君
+该舞蹈动作粗犷豪迈，有类似迪斯科的独特风格，被列入中国国家级非物质文化遗产代表性项目名录。
+
+在漫长的历史进程中，摆手舞成为土家族鲜明的文化符号，至今仍是土家族人最喜爱的健身舞蹈。
+
+摆手舞为何风靡土家族地区千余年并在海内外“圈粉”？
+
+如何让这一古老的舞蹈走向更广阔的舞台？
+
+湖北民族大学音乐舞蹈学院副院长王松接受中新社“东西问”专访，作出解读。
+
+现将访谈实录摘要如下： 中新社记者：作为土家族文化的独特表达，摆手舞是如何起源的？
+
+为何风靡土家族地区千余年？
 
 ## 相关推荐
 
-- 2026-06-29 21:39 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-29 21:24 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-29 21:46 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 21:31 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-29 21:24 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 21:20 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-29 21:34 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-29 21:37 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 21:36 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-29 21:42 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-29 21:18 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 21:30 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 21:43 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 21:19 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-29 21:26 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 21:52 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 21:35 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-29 21:46 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 21:46 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 21:30 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-29 21:51 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-29 21:41 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-29 21:44 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 21:30 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:20 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/00921159.shtml)
-- 2026-06-29 21:25 - [韩国队主帅遭极端网友死亡威胁](https://www.share.minike.top/Article/details/847989771657.shtml)
-- 2026-06-29 21:39 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/2204439772.shtml)
-- 2026-06-29 21:20 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/14165907.shtml)
-- 2026-06-29 21:38 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/95389575737.shtml)
-- 2026-06-29 21:18 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/319042544765.shtml)
-- 2026-06-29 21:21 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/323467244791.shtml)
-- 2026-06-29 21:38 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/59899956085.shtml)
-- 2026-06-29 21:23 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/7109083.shtml)
-- 2026-06-29 21:43 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/8926411503.shtml)
-- 2026-06-29 21:37 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/21046324813.shtml)
-- 2026-06-29 21:20 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/263704677.shtml)
-- 2026-06-29 21:22 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/2459981020.shtml)
-- 2026-06-29 21:42 - [世界杯高票价为何没劝退球迷](http://www.blog.minike.top/Article/details/6337998.shtml)
-- 2026-06-29 21:20 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/073703565.shtml)
+- 2026-06-29 21:28 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/38249.shtml)
+- 2026-06-29 21:37 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/00136505837.shtml)
+- 2026-06-29 21:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/908602.shtml)
+- 2026-06-29 21:44 - [斗破苍穹](https://www.share.minike.top/Article/details/330696.shtml)
+- 2026-06-29 21:42 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/0336864664.shtml)
+- 2026-06-29 21:44 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.minike.top/Article/details/232928591787.shtml)
+- 2026-06-29 21:31 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/21928804822.shtml)
+- 2026-06-29 21:40 - [谁在推动“成都造”影视持续出圈](http://www.blog.minike.top/Article/details/1406611941.shtml)
+- 2026-06-29 21:41 - [18岁高二体育生训练晕倒后离世](http://www.blog.kurohicncr.top/Article/details/98600818694.shtml)
+- 2026-06-29 21:33 - [金鹰奖第二阶段投票明日开启](http://www.share.minike.top/Article/details/920893075570.shtml)
+- 2026-06-29 21:46 - [天道](http://www.blog.minike.top/Article/details/25359164751.shtml)
+- 2026-06-29 21:48 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/542749.shtml)
+- 2026-06-29 21:25 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/2967955.shtml)
+- 2026-06-29 21:50 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/162965.shtml)
+- 2026-06-29 21:51 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/520602328791.shtml)

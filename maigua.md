@@ -1,43 +1,57 @@
-# 网络餐饮新规正式实施：集中整治“幽灵外卖” 提升治理效能
+# 天工3.1重磅发布：上线Skywork Design与Dynamic Workflows，给AI一张画布和一支军团
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 09:57 来源：央视新闻 责任编辑：【王祎】
+AI时代最大的幻觉，是把Demo等同于产品。 一句 prompt生成一个漂亮页面，截图发朋友圈，点赞过百。但你真拿它去见客户，客户问：其他页面呢？配色统一吗？手机端适配了吗？能不能改一版？ Demo和产品之间，差的就是这些问题。 Skywork3.0上线后一个月，天工超级智能体的收入实现了三倍增长。增长的背后，是越来越多的用户开始把天工当作交付结果的生产力工具来使用。 这一变化
 
 ## 正文
 
-发布时间：2026年06月02日 09:57 来源：央视新闻 责任编辑：【王祎】
+AI时代最大的幻觉，是把Demo等同于产品。
+
+一句 prompt生成一个漂亮页面，截图发朋友圈，点赞过百。
+
+但你真拿它去见客户，客户问：其他页面呢？
+
+配色统一吗？
+
+手机端适配了吗？
+
+能不能改一版？
+
+Demo和产品之间，差的就是这些问题。
+
+Skywork3.0上线后一个月，天工超级智能体的收入实现了三倍增长。
 
 ## 相关推荐
 
-- 2026-06-29 21:42 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-29 21:46 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-29 21:46 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-29 21:30 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-29 21:28 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 21:26 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-29 21:40 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 21:37 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-29 21:39 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 21:42 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 21:26 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 21:36 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 21:50 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 21:30 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 21:47 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 21:54 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 21:32 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 21:50 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 21:28 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-29 21:40 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 21:29 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-29 21:50 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:40 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/4289935317.shtml)
-- 2026-06-29 21:18 - [网友晒14年前支教影像等来学生评论](https://www.share.minike.top/Article/details/24558.shtml)
-- 2026-06-29 21:36 - [扬名立万](http://www.share.minike.top/Article/details/24971536911.shtml)
-- 2026-06-29 21:34 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/36634.shtml)
-- 2026-06-29 21:43 - [欧洲多国高温突破40摄氏度](https://www.share.kurohicncr.top/Article/details/92388.shtml)
-- 2026-06-29 21:34 - [朱雀三号完成静态点火试验](https://www.blog.kurohicncr.top/Article/details/162725654774.shtml)
-- 2026-06-29 21:37 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/26585255088.shtml)
-- 2026-06-29 21:33 - [一汽大众黄金超混技术来袭](https://www.blog.kurohicncr.top/Article/details/8251719653.shtml)
-- 2026-06-29 21:41 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/3077645460.shtml)
-- 2026-06-29 21:40 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/495858910616.shtml)
-- 2026-06-29 21:41 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/884770171069.shtml)
-- 2026-06-29 21:34 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/834254326432.shtml)
-- 2026-06-29 21:25 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/891742.shtml)
-- 2026-06-29 21:23 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/242879076208.shtml)
-- 2026-06-29 21:27 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/832184.shtml)
+- 2026-06-29 21:33 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/341885835420.shtml)
+- 2026-06-29 21:30 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/38177742.shtml)
+- 2026-06-29 21:41 - [日本足球能掀翻巴西吗](http://www.share.kurohicncr.top/Article/details/960101.shtml)
+- 2026-06-29 21:28 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/268659986.shtml)
+- 2026-06-29 21:30 - [哈兰德玩游戏连女友都不让着](https://www.blog.kurohicncr.top/Article/details/091937390.shtml)
+- 2026-06-29 21:24 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/577006.shtml)
+- 2026-06-29 21:52 - [半导体和股市为何没让韩国人起飞](https://www.blog.kurohicncr.top/Article/details/42595291553.shtml)
+- 2026-06-29 21:41 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/889046659365.shtml)
+- 2026-06-29 21:47 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/810998.shtml)
+- 2026-06-29 21:38 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/88097892969.shtml)
+- 2026-06-29 21:49 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/33980530756.shtml)
+- 2026-06-29 21:25 - [夫妻生活太无聊，所以我……](https://www.blog.kurohicncr.top/Article/details/842888384.shtml)
+- 2026-06-29 21:44 - [山东发布山洪灾害气象预警](https://www.share.minike.top/Article/details/31734.shtml)
+- 2026-06-29 21:35 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/083472.shtml)
+- 2026-06-29 21:45 - [宜宾地震已转移安置225人](http://www.share.kurohicncr.top/Article/details/597218.shtml)

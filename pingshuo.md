@@ -1,59 +1,61 @@
-# 中信建投期货：6月1日黑色系早报
+# 国台办：欢迎岛内同胞来大陆看球观赛
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-钢材早报：产业矛盾累积，期钢震荡运行 市场信息： 1、美伊谈判陷入新一轮拉锯战。美国总统特朗普在审阅谈判代表与伊朗敲定的协议草案后，要求对多项条款作出修改。伊朗议会议长卡利巴夫表示，在确保伊朗人民的合法权益得到完全保障之前，伊朗绝不会批准任何协议。 2、中国 5 月官方制造业 PMI 为 50%，环比下降 0.3 个百分点，位于临界点；非制造业 PMI 为 50.1%，上升 0
+6月17日，国务院台办举行例行新闻发布会。有记者问：近日，有台湾艺人发布视频称“搜索岛内电视频道没有世界杯足球赛相关话题”，引发两岸网友热议。大陆网友则纷纷喊话台湾同胞来大陆看世界杯。请问发言人有何评论？发言人陈斌华表示，足球世界杯是全球顶级赛事，也是球迷的体育盛宴。由中央广播电视总台与国际足联统一谈判签署转播合约，获得本届世界杯在大陆的独家全媒体权利，覆盖全渠道并免费下载、全
 
 ## 正文
 
-钢材早报：产业矛盾累积，期钢震荡运行 市场信息： 1、美伊谈判陷入新一轮拉锯战。
+6月17日，国务院台办举行例行新闻发布会。
 
-美国总统特朗普在审阅谈判代表与伊朗敲定的协议草案后，要求对多项条款作出修改。
+有记者问：近日，有台湾艺人发布视频称“搜索岛内电视频道没有世界杯足球赛相关话题”，引发两岸网友热议。
 
-伊朗议会议长卡利巴夫表示，在确保伊朗人民的合法权益得到完全保障之前，伊朗绝不会批准任何协议。
+大陆网友则纷纷喊话台湾同胞来大陆看世界杯。
 
-2、中国 5 月官方制造业 PMI 为 50%，环比下降 0.3 个百分点，位于临界点；非制造业 PMI 为 50.1%，上升 0.7 个百分点，非制造业景气水平回升。
+请问发言人有何评论？
 
-3、山西省安全生产暨煤矿安全风险隐患专项整治行动部署会议召开，决定动真碰硬开展全省煤矿安全风险隐患专项整治行动。
+发言人陈斌华表示，足球世界杯是全球顶级赛事，也是球迷的体育盛宴。
 
-4、据 5 月 29 日调研结果显示，5 月 23 日以来山西停产炼焦煤矿数量共计 130 座。
+由中央广播电视总台与国际足联统一谈判签署转播合约，获得本届世界杯在大陆的独家全媒体权利，覆盖全渠道并免费下载、全民提供。
 
-截至 5 月 29 日上午已复产 18 座，涉及产能 2530 万吨；仍处于停产状态煤矿共计 112 座，产能共计 1.22 亿吨。
+我们欢迎岛内同胞使用大陆的网络App等观看赛事直播，或者干脆来大陆看球观赛，与大陆同胞一同畅享绿荫激情。
 
-5、5 月 29 日，全国主港铁矿石成交 58.20 万吨，环比减 16.9%；237 家主流贸易商建筑钢材成交 9.37万吨，环比增 4.5%。
+(总台央视记者 赵超逸 张雪松)
 
 ## 相关推荐
 
-- 2026-06-29 21:36 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-29 21:18 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-29 21:29 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-29 21:42 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-29 21:42 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-29 21:39 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-29 21:26 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-29 21:23 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-29 21:21 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-29 21:40 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-29 21:41 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-29 21:35 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 21:30 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 21:36 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 21:42 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-29 21:40 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-29 21:30 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-29 21:39 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 21:51 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 21:46 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-29 21:33 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-29 21:49 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 21:26 - [周杰伦千禧年就有小卡了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 21:41 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 21:29 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 21:48 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-29 21:30 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 21:49 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:34 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/58557744.shtml)
-- 2026-06-29 21:36 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/712669962577.shtml)
-- 2026-06-29 21:32 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.minike.top/Article/details/626453507032.shtml)
-- 2026-06-29 21:36 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.kurohicncr.top/Article/details/637083676330.shtml)
-- 2026-06-29 21:20 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/77559.shtml)
-- 2026-06-29 21:43 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/11202.shtml)
-- 2026-06-29 21:45 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/767903.shtml)
-- 2026-06-29 21:47 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/35901976796.shtml)
-- 2026-06-29 21:34 - [回顾世界杯争议事件](http://www.share.minike.top/Article/details/9616353.shtml)
-- 2026-06-29 21:47 - [福建海警位金门附近海域常态执法巡查](https://www.share.minike.top/Article/details/97069683.shtml)
-- 2026-06-29 21:43 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/45439690.shtml)
-- 2026-06-29 21:20 - [勇敢的心第二部](http://www.share.minike.top/Article/details/478161171.shtml)
-- 2026-06-29 21:39 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/3676470556.shtml)
-- 2026-06-29 21:23 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/056244487.shtml)
-- 2026-06-29 21:31 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/80203.shtml)
+- 2026-06-29 21:36 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/96650043.shtml)
+- 2026-06-29 21:41 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/0347910639.shtml)
+- 2026-06-29 21:35 - [郑钦文谈再战西尼亚科娃](https://www.blog.minike.top/Article/details/978022969133.shtml)
+- 2026-06-29 21:40 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/9692583.shtml)
+- 2026-06-29 21:43 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/39711941.shtml)
+- 2026-06-29 21:40 - [任泽平：AI浪潮刚刚开始](http://www.blog.kurohicncr.top/Article/details/6649730.shtml)
+- 2026-06-29 21:25 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/44522384.shtml)
+- 2026-06-29 21:44 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/85095343.shtml)
+- 2026-06-29 21:49 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/658307841818.shtml)
+- 2026-06-29 21:43 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.kurohicncr.top/Article/details/241647.shtml)
+- 2026-06-29 21:32 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/02109384108.shtml)
+- 2026-06-29 21:49 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.minike.top/Article/details/67702.shtml)
+- 2026-06-29 21:53 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/580114.shtml)
+- 2026-06-29 21:31 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/30178.shtml)
+- 2026-06-29 21:29 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/11522.shtml)

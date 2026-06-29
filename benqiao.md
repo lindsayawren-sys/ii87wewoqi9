@@ -1,58 +1,54 @@
-# 平安人寿三次举牌国寿持仓超293亿 低估值高股息驱动头部险企互持热潮
+# 严打互联网广告违法行为 市场监管总局推出系统性治理方案
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-来源：长江商报 近一年内，头部险企掀起同业互持投资热潮。 日前，中国平安人寿保险股份有限公司（以下简称“平安人寿”）发布公告，平安资产管理有限责任公司（以下简称“平安资管”）受托平安人寿资金，投资于中国人寿（601628．SH、02628.HK）H股股票，于2026年5月20日达到中国人寿H股股本的15%，根据香港市场规则，触发平安人寿举牌。 长江商报记者注意到，自2025年8
+中新网6月16日电 据“市说新语”微信公众号消息，6月16日，市场监管总局召开例行新闻发布会。 会上，有记者问：总局近期出台了《关于深化互联网广告生态治理工作的通知》和《互联网广告市场秩序整治重点任务》，能否详细介绍一下背景和任务？ 对此，市场监管总局新闻发言人、新闻宣传司司长王秋苹表示，当前，我国互联网广告产业快速发展，已形成数据驱动、技术赋能的复杂生态，但互联网广告轻创意、
 
 ## 正文
 
-来源：长江商报 近一年内，头部险企掀起同业互持投资热潮。
+中新网6月16日电 据“市说新语”微信公众号消息，6月16日，市场监管总局召开例行新闻发布会。
 
-日前，中国平安人寿保险股份有限公司（以下简称“平安人寿”）发布公告，平安资产管理有限责任公司（以下简称“平安资管”）受托平安人寿资金，投资于中国人寿（601628．SH、02628.HK）H股股票，于2026年5月20日达到中国人寿H股股本的15%，根据香港市场规则，触发平安人寿举牌。
+会上，有记者问：总局近期出台了《关于深化互联网广告生态治理工作的通知》和《互联网广告市场秩序整治重点任务》，能否详细介绍一下背景和任务？
 
-长江商报记者注意到，自2025年8月首次举牌以来，平安人寿已三次举牌中国人寿H股。
+对此，市场监管总局新闻发言人、新闻宣传司司长王秋苹表示，当前，我国互联网广告产业快速发展，已形成数据驱动、技术赋能的复杂生态，但互联网广告轻创意、重炒作等旧问题仍然存在，滥用人工智能、过度追求流量等新问题不断凸显，亟须从深化互联网广告生态治理的高度系统施治、全面治理。
 
-截至5月20日，平安人寿持有中国人寿H股股票的账面余额为293.57亿元，占上季度末总资产的比例为0.51%。
+为此，市场监管总局印发《关于深化互联网广告生态治理工作的通知》，首次提出“互联网广告生态治理”这一创新理念，系统部署“健全监管制度体系、压实平台主体责任、强化重点领域监管、提升监测技术和执法能力、加强价值导向引领”等五方面治理任务，为推进互联网广告生态治理工作明确了方向。
 
-值得关注的是，当前，险资资产配置结构持续优化，叠加上市险企经营韧性强劲、高股息价值凸显，头部险企相互持股、深度资本绑定的态势愈发显著。
+王秋苹指出，互联网广告生态治理是一项系统性工程。
 
-头部险企扎堆双向持股 短短数月，平安人寿已三次举牌中国人寿。
+总局按照“管长远”和“立当下”相结合的工作思路，将加强互联网广告市场秩序整治作为突破口，依法从严打击群众反映强烈的互联网广告违法行为，切实维护互联网广告市场秩序，为推进互联网广告生态治理其他方面的工作打牢基础，营造良好氛围。
 
-5月28日，平安人寿在其官网发布公告称，平安资管受托平安人寿资金，投资于中国人寿H股股票，于2026年5月20日达到中国人寿H股股本的15%，根据香港市场规则，触发平安人寿举牌。
-
-长江商报记者注意到，2025年8月13日，平安资管受托平安人寿资金投资中国人寿H股，持股比例达到5%，首次触发举牌。
+总局制定的《互联网广告市场秩序整治重点任务》，围绕“强化广告导向监管、加强直播电商广告监管、规范人工智能生成式广告、整治弹窗广告顽疾、规范‘矩阵式’广告投放、压实平台主体责任”等六个方面，细化工作任务，聚焦突出问题精准发力，全力维护良好互联网广告市场秩序。
 
 ## 相关推荐
 
-- 2026-06-29 21:38 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-29 21:31 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-29 21:25 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-29 21:41 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 21:28 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 21:46 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-29 21:29 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 21:29 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 21:43 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-29 21:28 - [LPL第三赛段赛制公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 21:34 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-29 21:45 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 21:39 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 21:27 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 21:30 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 21:29 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-29 21:48 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-29 21:38 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 21:33 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 21:51 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 21:29 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 21:46 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:43 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/2299523762.shtml)
-- 2026-06-29 21:24 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/614767977036.shtml)
-- 2026-06-29 21:45 - [王安宇聪明到导演组炸了](http://www.blog.kurohicncr.top/Article/details/00543667.shtml)
-- 2026-06-29 21:20 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/97554861637.shtml)
-- 2026-06-29 21:27 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/4307849.shtml)
-- 2026-06-29 21:21 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/605543770845.shtml)
-- 2026-06-29 21:38 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/53830353680.shtml)
-- 2026-06-29 21:47 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/382527186.shtml)
-- 2026-06-29 21:36 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/985190.shtml)
-- 2026-06-29 21:24 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/3921178498.shtml)
-- 2026-06-29 21:24 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/05405928451.shtml)
-- 2026-06-29 21:28 - [王楚钦开门红](https://www.share.minike.top/Article/details/39551995505.shtml)
-- 2026-06-29 21:28 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/032903.shtml)
-- 2026-06-29 21:22 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/852436317833.shtml)
-- 2026-06-29 21:20 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/539206505.shtml)
+- 2026-06-29 21:46 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/63074281.shtml)
+- 2026-06-29 21:33 - [欧洲高温会成下个印度吗](http://www.share.minike.top/Article/details/323221897.shtml)
+- 2026-06-29 21:39 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/2503480714.shtml)
+- 2026-06-29 21:39 - [让AI做一个账号，它会做成什么样？](https://www.share.minike.top/Article/details/03770162.shtml)
+- 2026-06-29 21:24 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.minike.top/Article/details/339945263.shtml)
+- 2026-06-29 21:42 - [孙俪开QQ的蛮好生活](http://www.share.minike.top/Article/details/30899286929.shtml)
+- 2026-06-29 21:28 - [《恋与深空》回应争议](http://www.blog.kurohicncr.top/Article/details/6945296988.shtml)
+- 2026-06-29 21:25 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/90471.shtml)
+- 2026-06-29 21:25 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/82443698.shtml)
+- 2026-06-29 21:41 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/78855.shtml)
+- 2026-06-29 21:46 - [东方风云榜直播](http://www.blog.kurohicncr.top/Article/details/6437605.shtml)
+- 2026-06-29 21:27 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/94042880.shtml)
+- 2026-06-29 21:51 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/18741941.shtml)
+- 2026-06-29 21:49 - [斗破苍穹](http://www.share.minike.top/Article/details/82149488.shtml)
+- 2026-06-29 21:41 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/01760.shtml)

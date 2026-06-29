@@ -1,59 +1,56 @@
-# 盈透证券5月日均收入交易量达497万，同比增长47%
+# （活力中国调研行）从实验室到生产线，天津科研转化出妙招
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-盈透证券集团今日公布了2026年5月的电子经纪业务月度业绩数据。报告显示，当月多项核心指标均实现显著增长。 2026年5月，盈透证券的日均收入交易量达到496.9万笔，较去年同期增长47%，较上月增长17%。期末客户资产净值攀升至9373亿美元，同比增长49%，环比增长8%。期末客户保证金贷款余额达到1009亿美元，同比增长65%，环比增长11%。 期末客户信贷余额为1801亿
+中新网天津6月16日电 (记者 王恩博 王梦瑶)让实验室里的科研成果能走到工厂生产线，是从0到1的跨越，也是最关键的一步。 近日，2026年“活力中国调研行”天津主题采访活动走进天开高教科创园，园区目前累计注册企业超5000家，培育天开科创专板入板企业204家，培育高新技术企业122家。 园区内，南开大学应用化学与工程研究所副研究员、天津常兴新能源科技有限公司负责人严振华告诉记
 
 ## 正文
 
-盈透证券集团今日公布了2026年5月的电子经纪业务月度业绩数据。
+中新网天津6月16日电 (记者 王恩博 王梦瑶)让实验室里的科研成果能走到工厂生产线，是从0到1的跨越，也是最关键的一步。
 
-报告显示，当月多项核心指标均实现显著增长。
+近日，2026年“活力中国调研行”天津主题采访活动走进天开高教科创园，园区目前累计注册企业超5000家，培育天开科创专板入板企业204家，培育高新技术企业122家。
 
-2026年5月，盈透证券的日均收入交易量达到496.9万笔，较去年同期增长47%，较上月增长17%。
+园区内，南开大学应用化学与工程研究所副研究员、天津常兴新能源科技有限公司负责人严振华告诉记者：“南开大学新能源相关专利成果转化率已经达到15%以上，远超国内3%的平均水平。
 
-期末客户资产净值攀升至9373亿美元，同比增长49%，环比增长8%。
+” 交谈中，严振华频繁提及中试平台的作用。
 
-期末客户保证金贷款余额达到1009亿美元，同比增长65%，环比增长11%。
+中试是重大科技成果从实验室走向生产线的关键环节，常兴新能源依托南开大学陈军院士团队的核心专利技术，由天津市西青区政府投资支持，打造了新能源电池及关键材料中试转化平台。
 
-期末客户信贷余额为1801亿美元，其中包括64亿美元的银行存款转存余额，同比增长34%，环比增长3%。
+天津这样的平台还有很多。
 
-客户账户数量达到499.5万户，同比增长32%，环比增长3%。
+据市工信局介绍，为打通这一环节天津在今年5月出台了《天津市制造业中试平台创新发展实施方案》，提出制造业中试平台培育目标，致力于明晰培育路径，加速创新成果产业化。
 
-按年化计算，每客户账户日均清算交易笔数为216笔。
+在科研端，北洋海棠基金依托天津大学学科与校友资源优势，打造出专业化、市场化的硬科技创投机构。
 
 ## 相关推荐
 
-- 2026-06-29 21:33 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 21:33 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 21:26 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 21:20 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-29 21:26 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 21:29 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 21:46 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-29 21:21 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 21:27 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 21:34 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-29 21:27 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 21:47 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-29 21:29 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 21:30 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 21:29 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 21:44 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-29 21:39 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 21:24 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 21:52 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 21:34 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-29 21:51 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-29 21:31 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 21:30 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:45 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/08980569577.shtml)
-- 2026-06-29 21:31 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/505719302552.shtml)
-- 2026-06-29 21:30 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.kurohicncr.top/Article/details/1198527340.shtml)
-- 2026-06-29 21:41 - [《恋与深空》回应争议](http://www.share.kurohicncr.top/Article/details/00310.shtml)
-- 2026-06-29 21:31 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.kurohicncr.top/Article/details/79444.shtml)
-- 2026-06-29 21:36 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/9072175.shtml)
-- 2026-06-29 21:29 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/49798.shtml)
-- 2026-06-29 21:24 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/73534153193.shtml)
-- 2026-06-29 21:19 - [记者暗访养老机构消防安全](http://www.share.kurohicncr.top/Article/details/126383285.shtml)
-- 2026-06-29 21:23 - [媒体：日本边磨刀边要货是做梦](http://www.blog.kurohicncr.top/Article/details/49010.shtml)
-- 2026-06-29 21:36 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/18975.shtml)
-- 2026-06-29 21:40 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/46452635.shtml)
-- 2026-06-29 21:43 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/960437309485.shtml)
-- 2026-06-29 21:18 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/194870.shtml)
-- 2026-06-29 21:31 - [北京发布地质灾害气象风险蓝色预警](http://www.blog.kurohicncr.top/Article/details/930773605.shtml)
+- 2026-06-29 21:49 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/798610.shtml)
+- 2026-06-29 21:50 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/11811057655.shtml)
+- 2026-06-29 21:28 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/7576690412.shtml)
+- 2026-06-29 21:48 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/798319203.shtml)
+- 2026-06-29 21:49 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/3614723596.shtml)
+- 2026-06-29 21:36 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/117674287.shtml)
+- 2026-06-29 21:29 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/88861.shtml)
+- 2026-06-29 21:51 - [小娘惹](http://www.share.minike.top/Article/details/42875440626.shtml)
+- 2026-06-29 21:42 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/215366.shtml)
+- 2026-06-29 21:32 - [葫芦岛居民楼闪爆事故致3死](http://www.share.kurohicncr.top/Article/details/1246217.shtml)
+- 2026-06-29 21:44 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/2598253559.shtml)
+- 2026-06-29 21:52 - [恋与深空制作组回应争议](https://www.blog.kurohicncr.top/Article/details/61649.shtml)
+- 2026-06-29 21:26 - [夫妻生活太无聊，所以我……](https://www.blog.minike.top/Article/details/3060679.shtml)
+- 2026-06-29 21:42 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/4847445.shtml)
+- 2026-06-29 21:50 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/80237052.shtml)

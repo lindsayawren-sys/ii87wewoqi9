@@ -1,56 +1,58 @@
-# 安徽发布未成年人检察白皮书 去年涉未成年人犯罪“双下降”
+# 国台办：美台所谓“贸易协议”只会让台湾各界利益受损
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-中新网合肥6月1日电(记者 赵强)6月1日国际儿童节当天，《安徽省检察机关未成年人检察工作白皮书(2025)》(下称“白皮书”)发布。白皮书显示，2025年安徽涉未成年人犯罪与侵害未成年人犯罪案件数量同比“双下降”。 白皮书从“四大检察”履职、宽严相济政策、综合履职、“六大保护”协同及队伍建设五方面，全面呈现安徽未成年人检察工作成效。刑事检察方面，全年批准逮捕未成年犯罪嫌疑人1
+中新网6月17日电 6月17日，国台办举行例行新闻发布会。有记者提问：近期岛内最大花生产地云林县的花生采收价格疑受美国花生将零关税进口影响而下挫，尽管台农业部门负责人称“美台贸易协议尚未生效，美国花生还未进口”，依然引发当地花生种植农户的广泛担忧。请问对此有何评论？ 发言人陈斌华表示，云林县是台湾最重要的花生产区，其种植面积和产量均占全台七成以上。一旦美国花生以“零关税”输入台
 
 ## 正文
 
-中新网合肥6月1日电(记者 赵强)6月1日国际儿童节当天，《安徽省检察机关未成年人检察工作白皮书(2025)》(下称“白皮书”)发布。
+中新网6月17日电 6月17日，国台办举行例行新闻发布会。
 
-白皮书显示，2025年安徽涉未成年人犯罪与侵害未成年人犯罪案件数量同比“双下降”。
+有记者提问：近期岛内最大花生产地云林县的花生采收价格疑受美国花生将零关税进口影响而下挫，尽管台农业部门负责人称“美台贸易协议尚未生效，美国花生还未进口”，依然引发当地花生种植农户的广泛担忧。
 
-白皮书从“四大检察”履职、宽严相济政策、综合履职、“六大保护”协同及队伍建设五方面，全面呈现安徽未成年人检察工作成效。
+请问对此有何评论？
 
-刑事检察方面，全年批准逮捕未成年犯罪嫌疑人1160人、起诉2457人，适用附条件不起诉670人；批准逮捕侵害未成年人犯罪2107人、起诉3110人，从严惩治侵害未成年人权益行为。
+发言人陈斌华表示，云林县是台湾最重要的花生产区，其种植面积和产量均占全台七成以上。
 
-在保护与帮教环节，安徽检察机关坚持“教育、感化、挽救”方针，对低龄未成年人严重暴力犯罪依法报请最高检核准追诉。
+一旦美国花生以“零关税”输入台湾，云林花生将面临美国廉价花生的倾销，当地种植农户将深陷生存困境。
 
-联合公安部门完善“一站式”办案救助机制，对性侵案件提前介入，开展强制报告制度专项评查，推动从业禁止与入职查询落地，提出从业禁止建议62件。
+民进党当局漠视农户焦虑与产业难关，敷衍以对，无计可施。
 
-全年为587名未成年被害人发放司法救助金851万余元人民币。
-
-民事、行政、公益诉讼检察同步发力，办理涉未支持起诉案件110件、民事诉讼监督案件25件，对988名不起诉未成年人开展行刑反向衔接审查，办理公益诉讼案件283件，全方位守护未成年人公共利益。
+这充分暴露其施政无能，也再度证明“跪美必然卖台”，美台之间所谓“贸易协议”只会让台湾各界利益受损。
 
 ## 相关推荐
 
-- 2026-06-29 21:35 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-29 21:46 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-29 21:18 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-29 21:43 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 21:31 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 21:36 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 21:34 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-29 21:21 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 21:25 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-29 21:23 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-29 21:27 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-29 21:28 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-29 21:37 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-29 21:24 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-29 21:37 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-29 21:31 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-29 21:35 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-29 21:50 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 21:51 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 21:42 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-29 21:47 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 21:26 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 21:28 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 21:26 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:22 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/5423043.shtml)
-- 2026-06-29 21:19 - [2026全国田径冠军赛江苏队4金收官](https://www.blog.minike.top/Article/details/005358918.shtml)
-- 2026-06-29 21:25 - [追觅称质量不行终身包修也没意义](http://www.share.minike.top/Article/details/414475246805.shtml)
-- 2026-06-29 21:42 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/56989351.shtml)
-- 2026-06-29 21:34 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/0916629031.shtml)
-- 2026-06-29 21:33 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/26976505889.shtml)
-- 2026-06-29 21:21 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/415279800470.shtml)
-- 2026-06-29 21:19 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/561569082412.shtml)
-- 2026-06-29 21:41 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/1258656.shtml)
-- 2026-06-29 21:42 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/77815.shtml)
-- 2026-06-29 21:24 - [哈兰德吃饭被镜中自己吓到](http://www.share.kurohicncr.top/Article/details/297666786928.shtml)
-- 2026-06-29 21:47 - [欧洲安装一台空调要花近8000元](http://www.blog.kurohicncr.top/Article/details/9604415.shtml)
-- 2026-06-29 21:35 - [国际清算银行警告AI投资热潮](https://www.share.kurohicncr.top/Article/details/107983987.shtml)
-- 2026-06-29 21:23 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/227438155.shtml)
-- 2026-06-29 21:47 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/417140319225.shtml)
+- 2026-06-29 21:50 - [绘画区你赢了](https://www.blog.minike.top/Article/details/180118.shtml)
+- 2026-06-29 21:44 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/9607931.shtml)
+- 2026-06-29 21:37 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/1496936.shtml)
+- 2026-06-29 21:53 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/823502509191.shtml)
+- 2026-06-29 21:48 - [逃狱兄弟](https://www.blog.minike.top/Article/details/1726928.shtml)
+- 2026-06-29 21:52 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/28764930.shtml)
+- 2026-06-29 21:46 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/418114776.shtml)
+- 2026-06-29 21:43 - [乌是否掌握了扭转战局的钥匙](http://www.share.minike.top/Article/details/640512.shtml)
+- 2026-06-29 21:35 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/020210544617.shtml)
+- 2026-06-29 21:52 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/4305673.shtml)
+- 2026-06-29 21:51 - [英法德葡存在什么隐患](https://www.blog.minike.top/Article/details/22208877395.shtml)
+- 2026-06-29 21:43 - [扫黑风暴](https://www.blog.minike.top/Article/details/385916571126.shtml)
+- 2026-06-29 21:27 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/3814554758.shtml)
+- 2026-06-29 21:52 - [东方风云榜直播](http://www.share.minike.top/Article/details/936824670284.shtml)
+- 2026-06-29 21:48 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/456222607657.shtml)

@@ -1,50 +1,60 @@
-# 美中企业总商会主席林明华寄语年轻侨商：不忘根脉 把握中国机遇
+# 科学护眼联盟联合行动首站 专家示范“20-20-20”护眼法则
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 14:14 来源：中国新闻网 6月1日至5日，由中国侨联、四川省人民政府、重庆市人民政府主办的2026“一带一路”华侨华人合作发展大会在成都举行。 中国侨联海外顾问、美中企业总商会主席林明华在受访时寄语年轻侨商，要志存高远、放眼长远，积极向科技领域转型发展。他希望海外年轻一代不忘中国根，常回国交流考察，把握中国发展机遇，深化与中国经贸合作，实现
+中新网北京6月17日电 (记者 张素)北京大学第三医院眼科主任医师范翔近日在北京举行的一场公益活动上示范“20-20-20”护眼法则，即“每20分钟看20英尺外20秒”。 针对现代人长时间使用电子屏幕的现状，范翔讲解了视频显示终端综合征的发病机制，以及眼干涩、视疲劳、视力模糊等常见症状。 他还介绍了分屏幕亮度调节、背景颜色选择、读写姿势规范、合理使用人工泪液等实用技巧，并呼吁居
 
 ## 正文
 
-发布时间：2026年06月02日 14:14 来源：中国新闻网 6月1日至5日，由中国侨联、四川省人民政府、重庆市人民政府主办的2026“一带一路”华侨华人合作发展大会在成都举行。
+中新网北京6月17日电 (记者 张素)北京大学第三医院眼科主任医师范翔近日在北京举行的一场公益活动上示范“20-20-20”护眼法则，即“每20分钟看20英尺外20秒”。
 
-中国侨联海外顾问、美中企业总商会主席林明华在受访时寄语年轻侨商，要志存高远、放眼长远，积极向科技领域转型发展。
+针对现代人长时间使用电子屏幕的现状，范翔讲解了视频显示终端综合征的发病机制，以及眼干涩、视疲劳、视力模糊等常见症状。
 
-他希望海外年轻一代不忘中国根，常回国交流考察，把握中国发展机遇，深化与中国经贸合作，实现更大发展。
+他还介绍了分屏幕亮度调节、背景颜色选择、读写姿势规范、合理使用人工泪液等实用技巧，并呼吁居民养成科学用眼习惯，从源头减少屏幕伤害。
 
-(制作 陈选斌) 责任编辑：【罗攀】
+此次，北京白求恩公益基金会等在北京市西城区展览路街道扣钟社区党群服务中心举办“全国爱眼日·科学护眼联盟联合行动”首场社区公益活动。
+
+活动覆盖青少年近视防控、职场干眼评估、中老年眼底病及白内障筛查等需求。
+
+现场配备全自动免散瞳眼底相机、全自动屈光度筛查仪、手持裂隙灯及数码裂隙灯等专业设备。
+
+多位医学专家结合检查结果，为居民定制个性化诊疗与养护建议，并普及“早筛查、早预防、科学诊疗”的护眼理念。
+
+在完成眼底筛查后，不少居民感慨：“以前去医院排队很久，今天在家门口几分钟就拍好了片子，医生当场解读，太方便了。
 
 ## 相关推荐
 
-- 2026-06-29 21:46 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-29 21:32 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-29 21:27 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 21:46 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 21:22 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-29 21:19 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 21:37 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-29 21:40 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-29 21:19 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 21:28 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-29 21:38 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 21:47 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 21:35 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-29 21:41 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-29 21:33 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 21:26 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 21:51 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-29 21:50 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-29 21:46 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 21:42 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 21:51 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-29 21:31 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-29 21:36 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 21:45 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 21:30 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 21:34 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:31 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/5415694025.shtml)
-- 2026-06-29 21:30 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/955885241.shtml)
-- 2026-06-29 21:21 - [记者暗访养老机构消防安全](https://www.share.kurohicncr.top/Article/details/56625630921.shtml)
-- 2026-06-29 21:21 - [欧洲人买空调难点在哪](http://www.blog.minike.top/Article/details/056917.shtml)
-- 2026-06-29 21:33 - [恋与深空致歉](http://www.blog.minike.top/Article/details/9131637.shtml)
-- 2026-06-29 21:30 - [记者：预计热火将追求小哈达威和康利](http://www.blog.kurohicncr.top/Article/details/37821089057.shtml)
-- 2026-06-29 21:31 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/21957.shtml)
-- 2026-06-29 21:43 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/839368.shtml)
-- 2026-06-29 21:42 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/9610738.shtml)
-- 2026-06-29 21:33 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/14473.shtml)
-- 2026-06-29 21:29 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/727734475780.shtml)
-- 2026-06-29 21:39 - [《新闻联播》正在直播](https://www.share.minike.top/Article/details/238724.shtml)
-- 2026-06-29 21:43 - [巴黎区长紧急采购50台中国空调](https://www.share.minike.top/Article/details/224548695.shtml)
-- 2026-06-29 21:42 - [炽夏](http://www.share.minike.top/Article/details/927873377826.shtml)
-- 2026-06-29 21:36 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/263349.shtml)
+- 2026-06-29 21:25 - [欧洲安装一台空调要花近8000元](https://www.share.kurohicncr.top/Article/details/47469080583.shtml)
+- 2026-06-29 21:45 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/11067325.shtml)
+- 2026-06-29 21:51 - [网约车出事故平台拒赔称只是中介](http://www.share.minike.top/Article/details/81631252182.shtml)
+- 2026-06-29 21:42 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/8540519.shtml)
+- 2026-06-29 21:45 - [济南航空航天全面起势](http://www.share.kurohicncr.top/Article/details/66511.shtml)
+- 2026-06-29 21:28 - [回顾世界杯争议事件](http://www.blog.minike.top/Article/details/8343658263.shtml)
+- 2026-06-29 21:52 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/0392870335.shtml)
+- 2026-06-29 21:42 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/3639305055.shtml)
+- 2026-06-29 21:28 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/54175099.shtml)
+- 2026-06-29 21:29 - [法拉利车主已自行承担修理费近3万](https://www.blog.kurohicncr.top/Article/details/121747579.shtml)
+- 2026-06-29 21:29 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/62524.shtml)
+- 2026-06-29 21:26 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/29043028955.shtml)
+- 2026-06-29 21:34 - [一汽大众黄金超混技术来袭](http://www.blog.minike.top/Article/details/48199150942.shtml)
+- 2026-06-29 21:33 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/2080349.shtml)
+- 2026-06-29 21:42 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/867122280.shtml)

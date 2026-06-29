@@ -1,45 +1,58 @@
-# 国家能源集团广西电力有限公司原董事长刘宏荣被查
+# 广西发放超千万元消费券促东盟水果热销
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-中新网6月1日电 据中央纪委国家监委驻国家能源集团纪检监察组、广西壮族自治区纪委监委消息：国家能源集团广西电力有限公司原党委书记、董事长刘宏荣涉嫌严重违纪违法，目前正接受中央纪委国家监委驻国家能源集团纪检监察组纪律审查和广西壮族自治区监察委员会监察调查。
+中新社南宁6月16日电 (俞靖)6月16日，由广西壮族自治区商务厅牵头推出的“东盟水果汇聚广西”政府专享消费券上线京东平台，中国(港澳台地区除外)消费者搜索“东盟水果消费券”等关键词，均可参与领券，采购东盟以及广西优质水果等生鲜好物。此举旨在深化中国与东盟农产品贸易合作，拓宽东盟水果等优质农产品销路。此次消费券发布活动将投放超1000万元人民币东盟水果专属消费券，活动周期贯穿6
 
 ## 正文
 
-中新网6月1日电 据中央纪委国家监委驻国家能源集团纪检监察组、广西壮族自治区纪委监委消息：国家能源集团广西电力有限公司原党委书记、董事长刘宏荣涉嫌严重违纪违法，目前正接受中央纪委国家监委驻国家能源集团纪检监察组纪律审查和广西壮族自治区监察委员会监察调查。
+中新社南宁6月16日电 (俞靖)6月16日，由广西壮族自治区商务厅牵头推出的“东盟水果汇聚广西”政府专享消费券上线京东平台，中国(港澳台地区除外)消费者搜索“东盟水果消费券”等关键词，均可参与领券，采购东盟以及广西优质水果等生鲜好物。
+
+此举旨在深化中国与东盟农产品贸易合作，拓宽东盟水果等优质农产品销路。
+
+此次消费券发布活动将投放超1000万元人民币东盟水果专属消费券，活动周期贯穿6月至9月，结合618“东盟水果汇聚广西”活动、暑期消费、中秋国庆假期等节点分批次投放，形成长期连贯的促销节奏。
+
+广西商务厅介绍，广西作为中国唯一与东盟陆海相连的省份，是东盟水果进入中国的首站枢纽。
+
+广西通过“政府引导+平台赋能”的模式发放消费券，扩大东盟水果在中国的消费市场，助力广西本地生鲜产业拓宽销路。
+
+目前，广西依托东盟水果集散枢纽区位优势，持续完善跨境生鲜供应链体系，搭建起高效数字化通道，形成可复制、可推广的跨境农产品电商促消费样板，真正实现“东盟果品入华、桂品行销全国”的双向流通。
+
+据悉，前述专享消费券发布是2026年“共享大市场·出口中国”——“东盟水果汇聚广西”活动的重要组成部分。
+
+广西正借多项活动造势，增强“东盟出产+广西集散+中国畅销”的品牌效应。
 
 ## 相关推荐
 
-- 2026-06-29 21:45 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-29 21:26 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-29 21:27 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-29 21:40 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 21:23 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-29 21:35 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-29 21:44 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-29 21:37 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 21:40 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-29 21:24 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-29 21:39 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-29 21:46 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-29 21:39 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 21:36 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 21:31 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 21:34 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 21:42 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 21:34 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 21:38 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 21:47 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 21:25 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-29 21:29 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 21:27 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 21:35 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-29 21:51 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:18 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.kurohicncr.top/Article/details/240365.shtml)
-- 2026-06-29 21:45 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/070634292.shtml)
-- 2026-06-29 21:30 - [让AI做一个账号，它会做成什么样？](http://www.blog.minike.top/Article/details/4440108.shtml)
-- 2026-06-29 21:22 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/369253791961.shtml)
-- 2026-06-29 21:26 - [CORTIS登机迟到致航班延误](http://www.share.kurohicncr.top/Article/details/5599672489.shtml)
-- 2026-06-29 21:41 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/96740648629.shtml)
-- 2026-06-29 21:40 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/30315615.shtml)
-- 2026-06-29 21:24 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/206126.shtml)
-- 2026-06-29 21:36 - [新官上任三把火](http://www.share.minike.top/Article/details/7287006.shtml)
-- 2026-06-29 21:34 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/8663360.shtml)
-- 2026-06-29 21:23 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/6820988136.shtml)
-- 2026-06-29 21:39 - [回顾世界杯争议事件](http://www.share.kurohicncr.top/Article/details/38804.shtml)
-- 2026-06-29 21:47 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/602125984807.shtml)
-- 2026-06-29 21:31 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/8074481.shtml)
-- 2026-06-29 21:34 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/5199989.shtml)
+- 2026-06-29 21:36 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/361733.shtml)
+- 2026-06-29 21:31 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/54451160261.shtml)
+- 2026-06-29 21:51 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/404461410.shtml)
+- 2026-06-29 21:31 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/332630282.shtml)
+- 2026-06-29 21:40 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/832346394.shtml)
+- 2026-06-29 21:35 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/92742283525.shtml)
+- 2026-06-29 21:30 - [LPL第三赛段赛制公布](http://www.blog.minike.top/Article/details/51487438527.shtml)
+- 2026-06-29 21:44 - [记者暗访养老机构消防安全](https://www.share.kurohicncr.top/Article/details/285841565.shtml)
+- 2026-06-29 21:41 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/94776.shtml)
+- 2026-06-29 21:25 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/626874.shtml)
+- 2026-06-29 21:30 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/79685717491.shtml)
+- 2026-06-29 21:37 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/380696.shtml)
+- 2026-06-29 21:30 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/4453266390.shtml)
+- 2026-06-29 21:48 - [小龙女配音去世 李若彤发文悼念](http://www.share.kurohicncr.top/Article/details/01671610643.shtml)
+- 2026-06-29 21:26 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/4371036816.shtml)

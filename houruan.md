@@ -1,57 +1,53 @@
-# 重磅监管落地 港股通与境内券商或迎新机遇
+# 卡塔尔计划在霍尔木兹海峡开放后迅速重启LNG生产
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-5月22日，证监会联合八部门重拳整治非法跨境证券业务，对三家境外券商开出合计超22亿元罚没罚单，明确两年内全面清退境内非法业务。在此背景下，跨境投资需求将流向何方？港股通与境内券商或将迎来怎样的发展新机遇？（资料参考：证券时报《跨境投资强监管落地！三家头部券商遭重罚，跨境投资赛道重构开启》，2026.5.25） 监管重拳落地：终结境外券商灰色通道 据官方发布的《综合整治非法跨境
+据知情人士透露，卡塔尔计划在霍尔木兹海峡重新开放后迅速提高液化天然气（LNG）产量，目标是在两个月内恢复大部分出口能力。 知情人士说，运营着该国LNG设施的卡塔尔能源公司已告知买家，预计在恢复海峡安全通行一个月后，产量提高到产能的50%左右，并在两个月内提高到产能的80%左右。因未获授权接受媒体采访，知情人士要求匿名。 他们表示，剩余产能（相当于两条生产线）在3月伊朗导弹袭击中
 
 ## 正文
 
-5月22日，证监会联合八部门重拳整治非法跨境证券业务，对三家境外券商开出合计超22亿元罚没罚单，明确两年内全面清退境内非法业务。
+据知情人士透露，卡塔尔计划在霍尔木兹海峡重新开放后迅速提高液化天然气（LNG）产量，目标是在两个月内恢复大部分出口能力。
 
-在此背景下，跨境投资需求将流向何方？
+知情人士说，运营着该国LNG设施的卡塔尔能源公司已告知买家，预计在恢复海峡安全通行一个月后，产量提高到产能的50%左右，并在两个月内提高到产能的80%左右。
 
-港股通与境内券商或将迎来怎样的发展新机遇？
+因未获授权接受媒体采访，知情人士要求匿名。
 
-（资料参考：证券时报《跨境投资强监管落地！
+他们表示，剩余产能（相当于两条生产线）在3月伊朗导弹袭击中受损后，需要数年时间才能完全恢复。
 
-三家头部券商遭重罚，跨境投资赛道重构开启》，2026.5.25） 监管重拳落地：终结境外券商灰色通道 据官方发布的《综合整治非法跨境证券期货基金经营活动实施方案》，所有未持牌的境外机构在境内提供的开户、招揽、交易、结算等证券经纪服务，必须全部终止。
+卡塔尔能源未立即回应寻求评论的请求。
 
-方案设置了为期两年的过渡期，期间存量业务实行“只卖不买、只出不进”，期满后全面关停境内服务，以彻底终结境外券商在境内的“灰色通道”。
-
-（资料参考：上海证券报《境外机构“灰色通道”终结：设置两年过渡期 投资者资产安全不受影响》，2026.5.23） 有分析称，方案聚焦取缔非法跨境证券期货基金经营活动，建立综合施策、标本兼治的长效机制，有利于净化资本市场生态，保障资本市场健康发展，也有利于引导投资者通过合法渠道开展境外投资，保护投资者合法权益。
-
-（资料参考：金融时报《证监会等部门整治非法跨境证券期货基金经营活动》，2026.5.24） 承接跨境财富管理需求，国内头部券商或受益 随着非法跨境通道被全面封堵，原本沉淀在境外非法平台的资金与客户，或成为境内合规券商的重要增量，此外，跨境财富管理赛道有望迎来全新发展机遇。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 21:37 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 21:26 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 21:35 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 21:39 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-29 21:40 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 21:21 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-29 21:31 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 21:42 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 21:47 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-29 21:42 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-29 21:24 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 21:49 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-29 21:30 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-29 21:29 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 21:27 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-29 21:46 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 21:43 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-29 21:25 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-29 21:33 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 21:47 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-29 21:44 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 21:42 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:26 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/0072929.shtml)
-- 2026-06-29 21:33 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/271388.shtml)
-- 2026-06-29 21:43 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/89914522.shtml)
-- 2026-06-29 21:33 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/14353655.shtml)
-- 2026-06-29 21:31 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/53248503.shtml)
-- 2026-06-29 21:22 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/142971.shtml)
-- 2026-06-29 21:18 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.minike.top/Article/details/055337429.shtml)
-- 2026-06-29 21:31 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/92678477206.shtml)
-- 2026-06-29 21:32 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/9638885509.shtml)
-- 2026-06-29 21:45 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/8597842.shtml)
-- 2026-06-29 21:43 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/249732.shtml)
-- 2026-06-29 21:34 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/430353237.shtml)
-- 2026-06-29 21:19 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/597855.shtml)
-- 2026-06-29 21:44 - [王安宇聪明到导演组炸了](https://www.share.minike.top/Article/details/99060374.shtml)
-- 2026-06-29 21:45 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.minike.top/Article/details/3175788789.shtml)
+- 2026-06-29 21:47 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/139184.shtml)
+- 2026-06-29 21:49 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.blog.kurohicncr.top/Article/details/59192.shtml)
+- 2026-06-29 21:44 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/721168395913.shtml)
+- 2026-06-29 21:44 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/162991683.shtml)
+- 2026-06-29 21:46 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/95417432.shtml)
+- 2026-06-29 21:30 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/5974353018.shtml)
+- 2026-06-29 21:37 - [巴西vs日本前瞻](https://www.blog.minike.top/Article/details/704339820601.shtml)
+- 2026-06-29 21:51 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/870576985.shtml)
+- 2026-06-29 21:39 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/92735.shtml)
+- 2026-06-29 21:34 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/940342.shtml)
+- 2026-06-29 21:36 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/335273666.shtml)
+- 2026-06-29 21:53 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/572770848.shtml)
+- 2026-06-29 21:33 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/837221059165.shtml)
+- 2026-06-29 21:53 - [日本在最东端离岛部署导弹发射装置](http://www.share.minike.top/Article/details/068697801.shtml)
+- 2026-06-29 21:35 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/30254086.shtml)

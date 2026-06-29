@@ -1,59 +1,57 @@
-# 韩国军工企业工厂爆炸事故已致4人死亡
+# 十项措施对接签约会受两岸民众欢迎 国台办：让更多同胞共享其惠
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-总台记者获悉，当地时间6月1日，韩国消防部门接到报警称，位于韩国大田市的韩华航空航天的工厂发生爆炸事故，爆炸引发了火灾。韩国消防部门表示，当前事故死亡人数已升至4人。 （总台记者 张昀） 相关新闻 当地消防部门目前正在进行灭火作业，据现场初步情况推测，事故发生原因为推进剂发生爆炸。至少有一栋工厂建筑物被烧毁。 资料显示，韩华航空航天是韩国韩华集团旗下核心军工与航空航天企业，也是
+中新网6月17日电 6月17日，国台办举行例行新闻发布会。有记者问：在海峡论坛期间，举办了十项促进两岸交流合作的政策措施对接签约会，受到两岸民众欢迎和好评。请介绍有关情况。 发言人陈斌华表示，十项促进两岸交流合作的政策措施对接签约会13日在厦门举行。大陆企业与来自台湾多地的企业和商会协会进行签约，采购台湾台东、云林、南投等县市凤梨释迦、文旦柚、茶叶等农渔产品。来自两岸的120余
 
 ## 正文
 
-总台记者获悉，当地时间6月1日，韩国消防部门接到报警称，位于韩国大田市的韩华航空航天的工厂发生爆炸事故，爆炸引发了火灾。
+中新网6月17日电 6月17日，国台办举行例行新闻发布会。
 
-韩国消防部门表示，当前事故死亡人数已升至4人。
+有记者问：在海峡论坛期间，举办了十项促进两岸交流合作的政策措施对接签约会，受到两岸民众欢迎和好评。
 
-（总台记者 张昀） 相关新闻 当地消防部门目前正在进行灭火作业，据现场初步情况推测，事故发生原因为推进剂发生爆炸。
+请介绍有关情况。
 
-至少有一栋工厂建筑物被烧毁。
+发言人陈斌华表示，十项促进两岸交流合作的政策措施对接签约会13日在厦门举行。
 
-资料显示，韩华航空航天是韩国韩华集团旗下核心军工与航空航天企业，也是韩国唯一具备航空燃气涡轮发动机整机制造能力的企业。
+大陆企业与来自台湾多地的企业和商会协会进行签约，采购台湾台东、云林、南投等县市凤梨释迦、文旦柚、茶叶等农渔产品。
 
-韩国总统李在明就事故做出指示，要求“动员所有力量救助事故中受伤的人员”。
+来自两岸的120余名嘉宾参加对接会。
 
-责任编辑：江钰涵
+参加签约会的台湾业者表示，十项措施让岛内农渔民获得实实在在的两岸和平红利，希望两岸通过善意对话沟通，推动更多更好成果不断落地。
+
+陈斌华指出，今后，国台办将进一步推动十项措施落实落细，坚持以交流融合增进民生福祉，争取让两岸更多同胞同获其利、共享其惠。
 
 ## 相关推荐
 
-- 2026-06-29 21:31 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-29 21:43 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 21:21 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-29 21:27 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-29 21:33 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 21:34 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-29 21:30 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 21:31 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-29 21:23 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-29 21:31 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-29 21:34 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-29 21:27 - [乌克兰发广告全球征兵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-29 21:34 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-29 21:27 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-29 21:25 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-29 21:43 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 21:38 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 21:53 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 21:29 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-29 21:45 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 21:39 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-29 21:29 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-29 21:42 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 21:38 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 21:35 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 21:40 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:20 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/345835.shtml)
-- 2026-06-29 21:23 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/286189.shtml)
-- 2026-06-29 21:39 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/74732877432.shtml)
-- 2026-06-29 21:44 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/7841419513.shtml)
-- 2026-06-29 21:20 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/125791423016.shtml)
-- 2026-06-29 21:45 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/2866880570.shtml)
-- 2026-06-29 21:30 - [上世纪90年代玩具成新宠](http://www.share.minike.top/Article/details/48181739499.shtml)
-- 2026-06-29 21:34 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/07676.shtml)
-- 2026-06-29 21:23 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/1782217.shtml)
-- 2026-06-29 21:31 - [杨德龙：创新药迎来新的发展机遇](http://www.share.kurohicncr.top/Article/details/835530.shtml)
-- 2026-06-29 21:28 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/29677445.shtml)
-- 2026-06-29 21:20 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/97953851.shtml)
-- 2026-06-29 21:30 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/1224569.shtml)
-- 2026-06-29 21:30 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/77462208612.shtml)
-- 2026-06-29 21:24 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/2812798.shtml)
+- 2026-06-29 21:49 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/22374.shtml)
+- 2026-06-29 21:49 - [卢卡申科发布解放军仪仗队视频](http://www.blog.kurohicncr.top/Article/details/43203914649.shtml)
+- 2026-06-29 21:52 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/43666.shtml)
+- 2026-06-29 21:39 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/0584503450.shtml)
+- 2026-06-29 21:53 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/5353915892.shtml)
+- 2026-06-29 21:49 - [任泽平：AI浪潮刚刚开始](https://www.blog.kurohicncr.top/Article/details/1209435.shtml)
+- 2026-06-29 21:46 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/39351765.shtml)
+- 2026-06-29 21:24 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/6440183.shtml)
+- 2026-06-29 21:34 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/119833026.shtml)
+- 2026-06-29 21:47 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/88998148365.shtml)
+- 2026-06-29 21:34 - [恋与深空致歉](https://www.share.minike.top/Article/details/511699.shtml)
+- 2026-06-29 21:38 - [欧洲安装一台空调要花近8000元](https://www.blog.kurohicncr.top/Article/details/5908855.shtml)
+- 2026-06-29 21:27 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/85716478869.shtml)
+- 2026-06-29 21:26 - [律师解读滚石唱片要求万豪酒店道歉](http://www.share.minike.top/Article/details/755657159603.shtml)
+- 2026-06-29 21:37 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/992277.shtml)

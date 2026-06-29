@@ -1,54 +1,59 @@
-# Anthropic已保密提交IPO注册文件草案 最快今秋登陆美股
+# 重庆发布暴雨灾害Ⅲ级预警
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-Anthropic已保密提交IPO注册文件草案，力争最快于今年秋季登陆美股市场。 该公司周一在博客文章中表示：“拟发行股份数量及发行价格尚未确定。” 这家Claude聊天机器人开发商近期完成一轮融资，对公司估值（含本轮融资）达到9650亿美元，首次超过竞争对手OpenAI。 近几个月来，Anthropic与OpenAI在上市进程上你追我赶，双方都在推进IPO计划。此前有报道称，
+中新网重庆6月16日电 (梁钦卿)重庆市气象局、气象灾害防御专委办16日下午发布暴雨灾害Ⅲ级预警，预计17日傍晚到18日夜间，重庆西部和东北部有大到暴雨，局地大暴雨。 受西南涡和低空急流共同影响，预计17日傍晚到18日夜间(17日18时至19日08时)，重庆市自西向东有一次强降雨天气过程，西部和东北部地区大到暴雨，局地大暴雨。累计雨量西部和东北部地区40毫米至80毫米，局地12
 
 ## 正文
 
-Anthropic已保密提交IPO注册文件草案，力争最快于今年秋季登陆美股市场。
+中新网重庆6月16日电 (梁钦卿)重庆市气象局、气象灾害防御专委办16日下午发布暴雨灾害Ⅲ级预警，预计17日傍晚到18日夜间，重庆西部和东北部有大到暴雨，局地大暴雨。
 
-该公司周一在博客文章中表示：“拟发行股份数量及发行价格尚未确定。
+受西南涡和低空急流共同影响，预计17日傍晚到18日夜间(17日18时至19日08时)，重庆市自西向东有一次强降雨天气过程，西部和东北部地区大到暴雨，局地大暴雨。
 
-” 这家Claude聊天机器人开发商近期完成一轮融资，对公司估值（含本轮融资）达到9650亿美元，首次超过竞争对手OpenAI。
+累计雨量西部和东北部地区40毫米至80毫米，局地120毫米至160毫米，其余地区20毫米至60毫米；最大小时雨量40毫米至60毫米，个别站点可达80毫米至100毫米。
 
-近几个月来，Anthropic与OpenAI在上市进程上你追我赶，双方都在推进IPO计划。
+局地伴有雷电、6级至8级阵性大风。
 
-此前有报道称，OpenAI正准备在未来数周内保密提交IPO申请文件，并计划于今年秋季上市。
+北碚、合川、万州、开州、云阳、奉节等地为暴雨灾害高风险区；两江新区、沙坪坝、巴南、潼南、铜梁、大足、荣昌、永川、璧山、江津、綦江、长寿、垫江、梁平、忠县、巫溪、巫山、石柱、秀山等地为暴雨灾害较高风险区。
 
-责任编辑：李桐
+端午节期间(19日至21日)，重庆中西部和东南部地区多阵雨，雨量普遍小到中雨，局地大雨(25毫米至45毫米)，东北部地区阴天间多云，有分散阵雨。
+
+重庆市气象局、气象灾害防御专委办建议，此次过程部分地区雨量大，暴雨灾害风险高，个别站点小时雨强具有一定极端性，需重点防范强降水可能引发的城乡积涝、中小河流洪水、山洪、滑坡等次生灾害。
+
+永川、北碚、合川等地前期已出现多轮强降雨，需关注本轮降雨叠加效应，做好防范应对工作。
 
 ## 相关推荐
 
-- 2026-06-29 21:43 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 21:45 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-29 21:33 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-29 21:20 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 21:43 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 21:40 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 21:36 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-29 21:27 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-29 21:22 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-29 21:34 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-29 21:42 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 21:20 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 21:48 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 21:29 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-29 21:45 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 21:53 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 21:41 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 21:49 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 21:32 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-29 21:40 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-29 21:44 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 21:39 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 21:52 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 21:53 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 21:52 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:21 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/45469839434.shtml)
-- 2026-06-29 21:35 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/69115.shtml)
-- 2026-06-29 21:32 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.minike.top/Article/details/684662043392.shtml)
-- 2026-06-29 21:34 - [金刚川](http://www.blog.minike.top/Article/details/2339785.shtml)
-- 2026-06-29 21:29 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/18316.shtml)
-- 2026-06-29 21:41 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/9906119.shtml)
-- 2026-06-29 21:28 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/07707734773.shtml)
-- 2026-06-29 21:28 - [啊啊啊](https://www.share.minike.top/Article/details/5386140802.shtml)
-- 2026-06-29 21:40 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/88126.shtml)
-- 2026-06-29 21:33 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/65717655967.shtml)
-- 2026-06-29 21:24 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/6273998120.shtml)
-- 2026-06-29 21:43 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/23435.shtml)
-- 2026-06-29 21:35 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.kurohicncr.top/Article/details/896377.shtml)
-- 2026-06-29 21:18 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/044393667.shtml)
-- 2026-06-29 21:23 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/40581749.shtml)
+- 2026-06-29 21:33 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/10972.shtml)
+- 2026-06-29 21:35 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/45633.shtml)
+- 2026-06-29 21:30 - [扬名立万](http://www.share.kurohicncr.top/Article/details/410310.shtml)
+- 2026-06-29 21:39 - [广东水利防汛Ⅳ级应急响应结束](http://www.share.minike.top/Article/details/71603056049.shtml)
+- 2026-06-29 21:25 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/3459944501.shtml)
+- 2026-06-29 21:33 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/3843856034.shtml)
+- 2026-06-29 21:44 - [欧洲缘何成为变暖最快的大洲](http://www.blog.minike.top/Article/details/729345.shtml)
+- 2026-06-29 21:47 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/65211539541.shtml)
+- 2026-06-29 21:48 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/641826217.shtml)
+- 2026-06-29 21:27 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/668990.shtml)
+- 2026-06-29 21:41 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.minike.top/Article/details/082137442546.shtml)
+- 2026-06-29 21:33 - [美以这对亲密盟友要掰了吗](http://www.blog.minike.top/Article/details/42994504.shtml)
+- 2026-06-29 21:51 - [巴西10号球衣是天才传承史](http://www.blog.minike.top/Article/details/3012684197.shtml)
+- 2026-06-29 21:46 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/68915723288.shtml)
+- 2026-06-29 21:33 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/95484299.shtml)

@@ -1,60 +1,51 @@
-# 李家超：拟在哈萨克斯坦设香港经贸办 欢迎当地企业赴港上市
+# 国家禁毒办：2025年共破获毒品犯罪案件2.7万起
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-中新社香港6月2日电 香港特区行政长官李家超1日率团展开对哈萨克斯坦的访问行程，与哈萨克斯坦领导人和官员会面，并到访重点机构。他表示，香港特区政府计划在哈萨克斯坦设立香港经济贸易办事处，两地贸易和商务往来有很大增长空间，欢迎哈萨克斯坦企业到香港发展和上市。 李家超当天与哈萨克斯坦总统托卡耶夫会面，就深化两地关系交流意见。李家超表示，期望两地加强双向合作，哈萨克斯坦企业善用香港的
+今天上午(6月17日)国家禁毒办召开新闻发布会。 据国家禁毒办常务副主任、公安部禁毒局局长魏晓军介绍，“清源断流”行动统筹境内境外两条战线、网上网下两个战场，2025年共破获毒品犯罪案件2.7万起，抓获犯罪嫌疑人4.1万名，缴获毒品33.5吨。 深化“净边”行动，严密陆海空邮毒品查缉体系，有力遏制毒品走私入境，缴获来自“金三角”地区毒品18.7吨。 深化“除冰肃毒”，破获国内制
 
 ## 正文
 
-中新社香港6月2日电 香港特区行政长官李家超1日率团展开对哈萨克斯坦的访问行程，与哈萨克斯坦领导人和官员会面，并到访重点机构。
+今天上午(6月17日)国家禁毒办召开新闻发布会。
 
-他表示，香港特区政府计划在哈萨克斯坦设立香港经济贸易办事处，两地贸易和商务往来有很大增长空间，欢迎哈萨克斯坦企业到香港发展和上市。
+据国家禁毒办常务副主任、公安部禁毒局局长魏晓军介绍，“清源断流”行动统筹境内境外两条战线、网上网下两个战场，2025年共破获毒品犯罪案件2.7万起，抓获犯罪嫌疑人4.1万名，缴获毒品33.5吨。
 
-李家超当天与哈萨克斯坦总统托卡耶夫会面，就深化两地关系交流意见。
+深化“净边”行动，严密陆海空邮毒品查缉体系，有力遏制毒品走私入境，缴获来自“金三角”地区毒品18.7吨。
 
-李家超表示，期望两地加强双向合作，哈萨克斯坦企业善用香港的专业服务和营商优势，开拓中国内地和亚洲市场；香港和内地企业亦可把握哈萨克斯坦经济改革的发展机遇，在中亚建立业务据点，共同为高质量共建“一带一路”注入新动能。
+深化“除冰肃毒”，破获国内制毒案件134起，缴获毒品5.3吨，规模化制毒活动得到遏制。
 
-当日上午，李家超与哈萨克斯坦副总理兼国家经济部部长朱曼哈林会面。
-
-李家超表示，香港正致力建设成为国际黄金交易中心，而哈萨克斯坦拥有丰富黄金储备，香港可为哈萨克斯坦提供专业服务。
-
-他提到，国际权威机构近日发表报告指出，香港超越瑞士成为全球最大跨境财富管理中心，欢迎哈萨克斯坦政府及企业善用香港作为国际金融中心和国际创新科技中心的优势，通过上市、发债、项目融资，为当地发展筹集国际资金。
-
-李家超当天下午到访当地科技和创新园区阿斯塔纳枢纽，了解哈萨克斯坦在人工智能领域的最新发展情况。
+(总台央视记者 朱云 魏帮军)
 
 ## 相关推荐
 
-- 2026-06-29 21:24 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 21:31 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-29 21:24 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-29 21:24 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-29 21:35 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 21:19 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-29 21:21 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 21:34 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 21:25 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 21:27 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 21:29 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-29 21:29 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-29 21:18 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-29 21:28 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 21:49 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-29 21:39 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 21:50 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 21:49 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 21:38 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-29 21:27 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 21:43 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-29 21:45 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-29 21:31 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 21:47 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 21:38 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:42 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/32724.shtml)
-- 2026-06-29 21:33 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/00383830.shtml)
-- 2026-06-29 21:41 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/535230.shtml)
-- 2026-06-29 21:47 - [卢卡申科发布解放军仪仗队视频](https://www.blog.minike.top/Article/details/47812111.shtml)
-- 2026-06-29 21:30 - [曝iPhone涨价后不会再降](https://www.share.kurohicncr.top/Article/details/17640954.shtml)
-- 2026-06-29 21:38 - [华工科技龙虎榜数据](https://www.blog.minike.top/Article/details/50200068814.shtml)
-- 2026-06-29 21:23 - [铜价上涨 日本住宅水表失窃严重](https://www.share.minike.top/Article/details/232582938516.shtml)
-- 2026-06-29 21:33 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/06231157831.shtml)
-- 2026-06-29 21:27 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/76500962966.shtml)
-- 2026-06-29 21:31 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.kurohicncr.top/Article/details/360828557.shtml)
-- 2026-06-29 21:36 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/0918848.shtml)
-- 2026-06-29 21:31 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/6051467.shtml)
-- 2026-06-29 21:21 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/67653.shtml)
-- 2026-06-29 21:24 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/6487399543.shtml)
-- 2026-06-29 21:24 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/037143353.shtml)
+- 2026-06-29 21:25 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/497846278413.shtml)
+- 2026-06-29 21:34 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/5698213252.shtml)
+- 2026-06-29 21:43 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/998224750.shtml)
+- 2026-06-29 21:33 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/68031528.shtml)
+- 2026-06-29 21:48 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.kurohicncr.top/Article/details/3281250.shtml)
+- 2026-06-29 21:36 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/4923961132.shtml)
+- 2026-06-29 21:27 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/37900826370.shtml)
+- 2026-06-29 21:42 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/30817342906.shtml)
+- 2026-06-29 21:38 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.minike.top/Article/details/34432.shtml)
+- 2026-06-29 21:40 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/812066.shtml)
+- 2026-06-29 21:28 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/983294665699.shtml)
+- 2026-06-29 21:53 - [大范围高温会带来哪些经济影响](http://www.blog.minike.top/Article/details/406516812835.shtml)
+- 2026-06-29 21:24 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/936855586268.shtml)
+- 2026-06-29 21:24 - [第一炉香](http://www.share.kurohicncr.top/Article/details/005785311.shtml)
+- 2026-06-29 21:46 - [流金岁月](https://www.share.minike.top/Article/details/549928.shtml)

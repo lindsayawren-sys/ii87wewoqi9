@@ -1,59 +1,56 @@
-# 激进投资者施压Voya探索战略选项，股价年涨24%后压力加剧
+# 限产保价预期落空，多晶硅跌超7%
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-激进对冲基金Toms Capital Investment Management周一公开施压Voya Financial，要求这家保险与资产管理公司正式启动战略审查，包括考虑出售。尽管Voya股价过去一年已累计上涨24%，Toms Capital仍认为其价值被严重低估。 Toms Capital在致Voya董事会的信函中指出，Voya是一家“高品质的公司”，却在以“历史性的、自
+华闻期货 沪证监许可【2016】38号 今日期货市场跌多涨少 黑色板块中，不锈钢涨3.08%，锰硅跌2.01%。有色板块中，沪锡涨0.96%，多晶硅跌7.25%。能化板块中，20号胶涨2.87%，甲醇跌5.73%。农产品板块中，棕榈油涨1.27%，红枣跌1.80%。 01、多晶硅 行情回顾 受限产保价与反内卷政策预期情绪的回落，多晶硅2609主力合约大幅下行，收盘报35420元
 
 ## 正文
 
-激进对冲基金Toms Capital Investment Management周一公开施压Voya Financial，要求这家保险与资产管理公司正式启动战略审查，包括考虑出售。
+华闻期货 沪证监许可【2016】38号 今日期货市场跌多涨少 黑色板块中，不锈钢涨3.08%，锰硅跌2.01%。
 
-尽管Voya股价过去一年已累计上涨24%，Toms Capital仍认为其价值被严重低估。
+有色板块中，沪锡涨0.96%，多晶硅跌7.25%。
 
-Toms Capital在致Voya董事会的信函中指出，Voya是一家“高品质的公司”，却在以“历史性的、自我造成的折价”交易。
+能化板块中，20号胶涨2.87%，甲醇跌5.73%。
 
-该基金批评管理层存在“战略犹豫不决”和信誉受损问题，并指责董事会“持续不作为已成为问题的一部分”。
+农产品板块中，棕榈油涨1.27%，红枣跌1.80%。
 
-Toms Capital强调，Voya的退休和投资管理部门表现强劲，净资产业绩优于同行。
+01、多晶硅 行情回顾 受限产保价与反内卷政策预期情绪的回落，多晶硅2609主力合约大幅下行，收盘报35420元/吨，跌幅7.25%。
 
-该公司管理着约1.1万亿美元的客户资产，是排名前五的固定缴款计划记录保持者，服务着45000家雇主及近1000万个账户。
+波动逻辑 （1）此前多晶硅价格暂稳、期货合约盘中反弹，核心支撑是“限产保价”传闻与行业“反内卷”政策预期，市场博弈政策托底会缓解供给压力。
 
-然而，其前瞻市盈率却不到8倍，显著低于同行。
+而随着政策情绪预期回落，市场发现当下暂无实质性的强制限产、减产政策落地，“反内卷”更多停留在座谈引导层面，未改变企业自主复产、保现金流出货的行为；前期“限产保价”的传闻被证伪，头部企业反而借助丰水期成本优势加速复产，供给收缩的预期落空。
 
-Toms Capital认为，这主要归因于管理层在2022年以49%溢价收购福利管理公司Benefitfocus的失败决策。
+（2）供需严重失衡与高库存堰塞湖的情况持续无法改观，价格无上涨基础，产业基本面始终处于极端弱势。
 
 ## 相关推荐
 
-- 2026-06-29 21:25 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-29 21:40 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 21:29 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-29 21:24 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-29 21:23 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-29 21:29 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 21:21 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 21:43 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 21:39 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-29 21:20 - [C罗10球7球对垫底队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 21:22 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 21:33 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-29 21:28 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 21:26 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-29 21:51 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-29 21:49 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-29 21:43 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 21:37 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-29 21:49 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 21:34 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 21:46 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 21:46 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 21:28 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:30 - [腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/56014445.shtml)
-- 2026-06-29 21:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/058073671.shtml)
-- 2026-06-29 21:25 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/5832550.shtml)
-- 2026-06-29 21:34 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/88777753.shtml)
-- 2026-06-29 21:35 - [天气热脾气都变差了](https://www.blog.minike.top/Article/details/93706.shtml)
-- 2026-06-29 21:24 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/4726586296.shtml)
-- 2026-06-29 21:20 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/783171257.shtml)
-- 2026-06-29 21:43 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/7532036644.shtml)
-- 2026-06-29 21:22 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/721926604485.shtml)
-- 2026-06-29 21:39 - [委内瑞拉发生余震](http://www.blog.kurohicncr.top/Article/details/229299565.shtml)
-- 2026-06-29 21:23 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.kurohicncr.top/Article/details/034605527.shtml)
-- 2026-06-29 21:27 - [穆祉丞东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/706799565.shtml)
-- 2026-06-29 21:18 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/583398.shtml)
-- 2026-06-29 21:24 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/518726838215.shtml)
-- 2026-06-29 21:22 - [《恋与深空》回应争议](http://www.blog.kurohicncr.top/Article/details/462589.shtml)
+- 2026-06-29 21:42 - [让AI做一个账号，它会做成什么样？](http://www.blog.kurohicncr.top/Article/details/31919732289.shtml)
+- 2026-06-29 21:39 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/37111.shtml)
+- 2026-06-29 21:48 - [沉睡花园](http://www.share.minike.top/Article/details/4515645.shtml)
+- 2026-06-29 21:32 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/3837103583.shtml)
+- 2026-06-29 21:40 - [林逸向方筱然求婚了](https://www.blog.minike.top/Article/details/602557742.shtml)
+- 2026-06-29 21:52 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/683021.shtml)
+- 2026-06-29 21:49 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/64081097.shtml)
+- 2026-06-29 21:50 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/577347470991.shtml)
+- 2026-06-29 21:38 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/3082638980.shtml)
+- 2026-06-29 21:53 - [中方绝不允许日菲侵害我海洋权益](https://www.share.kurohicncr.top/Article/details/0602452804.shtml)
+- 2026-06-29 21:35 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/140097.shtml)
+- 2026-06-29 21:41 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/7394664011.shtml)
+- 2026-06-29 21:37 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/983483699.shtml)
+- 2026-06-29 21:31 - [哈兰德玩游戏连女友都不让着](https://www.share.kurohicncr.top/Article/details/63678529530.shtml)
+- 2026-06-29 21:47 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/2467882.shtml)

@@ -1,51 +1,59 @@
-# 津台萌娃一逗一捧：“咱说的都是中国话”
+# 必胜客27亿美元被出售！百胜中国12亿美元收购中国大陆品牌所有权
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 15:37 来源：中国新闻网 近日，在天津举办的“津台童声 文脉同根”庆“六一”展示展演活动上，一对津台小搭档的相声表演萌翻全场。 你一言我一语，童言无忌里藏着最朴素的文化认同——你问的我答的，都是中国话；你说的我笑的，都是普通话。两岸萌娃同讲一种语言，同抖一个“包袱”，这份天然的默契和可爱，就是“文脉同根”最生动的注脚。(冯宏杰） 责任编辑：
+Yum！ Brands将以27亿美元出售必胜客。 6月16日，美国的百胜环球公司（Yum！ Brands，NYSE：YUM）宣布，以总计27亿美元的价格分两笔交易出售必胜客业务。其中，私募股权公司LongRange Capital收购除中国大陆以外的必胜客业务，百胜中国控股有限公司（9987.HK，NYSE：YUMC）收购中国大陆的必胜客业务。预计两项交易将于2026年第三季度
 
 ## 正文
 
-发布时间：2026年06月02日 15:37 来源：中国新闻网 近日，在天津举办的“津台童声 文脉同根”庆“六一”展示展演活动上，一对津台小搭档的相声表演萌翻全场。
+Yum！
 
-你一言我一语，童言无忌里藏着最朴素的文化认同——你问的我答的，都是中国话；你说的我笑的，都是普通话。
+Brands将以27亿美元出售必胜客。
 
-两岸萌娃同讲一种语言，同抖一个“包袱”，这份天然的默契和可爱，就是“文脉同根”最生动的注脚。
+6月16日，美国的百胜环球公司（Yum！
 
-(冯宏杰） 责任编辑：【叶攀】
+Brands，NYSE：YUM）宣布，以总计27亿美元的价格分两笔交易出售必胜客业务。
+
+其中，私募股权公司LongRange Capital收购除中国大陆以外的必胜客业务，百胜中国控股有限公司（9987.HK，NYSE：YUMC）收购中国大陆的必胜客业务。
+
+预计两项交易将于2026年第三季度完成。
+
+在可比口径下，百胜中国维持此前公布的2026全年财务指引不变。
+
+根据协议条款，Yum！
 
 ## 相关推荐
 
-- 2026-06-29 21:28 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-29 21:46 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 21:36 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 21:43 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-29 21:44 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 21:42 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 21:18 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 21:29 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 21:24 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 21:27 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 21:21 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-29 21:28 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 21:23 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-29 21:34 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 21:44 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-29 21:27 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-29 21:26 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 21:40 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 21:24 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 21:27 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-29 21:31 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 21:25 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 21:47 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-29 21:29 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-29 21:52 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 21:37 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:19 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/316814033303.shtml)
-- 2026-06-29 21:21 - [夫妻生活太无聊，所以我……](https://www.blog.kurohicncr.top/Article/details/0038189.shtml)
-- 2026-06-29 21:39 - [爱奇艺抬高国剧新标尺](http://www.share.kurohicncr.top/Article/details/800804928715.shtml)
-- 2026-06-29 21:24 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/994281200.shtml)
-- 2026-06-29 21:35 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/33680.shtml)
-- 2026-06-29 21:45 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/71279.shtml)
-- 2026-06-29 21:46 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.kurohicncr.top/Article/details/72901362045.shtml)
-- 2026-06-29 21:41 - [锐评白玉兰提名片段](https://www.share.kurohicncr.top/Article/details/210675272979.shtml)
-- 2026-06-29 21:36 - [绿营污蔑大陆“海上袭扰”被批](http://www.share.kurohicncr.top/Article/details/270881.shtml)
-- 2026-06-29 21:32 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/231995532025.shtml)
-- 2026-06-29 21:46 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/1712521032.shtml)
-- 2026-06-29 21:30 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/81774026348.shtml)
-- 2026-06-29 21:32 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/050485879959.shtml)
-- 2026-06-29 21:35 - [东宫女主是不是顶级恋爱脑](https://www.blog.kurohicncr.top/Article/details/8155707885.shtml)
-- 2026-06-29 21:39 - [王楚钦称抽签结果出来心情不好](https://www.blog.minike.top/Article/details/031013349.shtml)
+- 2026-06-29 21:42 - [被裁员后30岁儿子被抓去戒网瘾](http://www.share.minike.top/Article/details/5264014141.shtml)
+- 2026-06-29 21:51 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/54501238.shtml)
+- 2026-06-29 21:37 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/521901555193.shtml)
+- 2026-06-29 21:50 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/223928916248.shtml)
+- 2026-06-29 21:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/7008991.shtml)
+- 2026-06-29 21:27 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/9223823.shtml)
+- 2026-06-29 21:36 - [山东发布山洪灾害气象预警](https://www.share.kurohicncr.top/Article/details/563366.shtml)
+- 2026-06-29 21:52 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/88682190156.shtml)
+- 2026-06-29 21:33 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/2309236.shtml)
+- 2026-06-29 21:52 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/96915548.shtml)
+- 2026-06-29 21:46 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/23622.shtml)
+- 2026-06-29 21:24 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/79344337969.shtml)
+- 2026-06-29 21:26 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/8710469.shtml)
+- 2026-06-29 21:36 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/00744011529.shtml)
+- 2026-06-29 21:50 - [湖南姑娘被东北同事带偏口音](http://www.share.minike.top/Article/details/4327579960.shtml)

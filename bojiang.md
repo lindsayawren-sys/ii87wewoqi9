@@ -1,57 +1,54 @@
-# 创新奇智盘中涨超8% 公司稳居中国视觉AI第一梯队
+# 巴西侨胞圆了“龙舟梦”
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-创新奇智（02121）盘中涨超8%，截至发稿，股价上涨5.28%，现报4.59港元，成交额250.82万港元。 近日，IDC公布中国AI软件市场—计算机视觉市场追踪报告。数据显示，2025年中国计算机视觉AI软件私有化市场规模达到92.5亿元，创新奇智凭借工业场景深耕能力蝉联TOP3，持续稳居中国视觉AI第一梯队。 国泰海通证券指出，2025年，公司确立了“一模一体两翼”核心战
+发布时间：2026年06月17日 11:02 来源：中国新闻网 粽子飘香，龙舟竞渡，当地时间6月14日，“中巴文化年·传承中华情”第三届巴西华侨华人龙舟联盟竞渡活动在巴西圣保罗瓜拉皮兰加水库举行，吸引两百余名旅巴侨胞和巴西友人参与。 圣保罗是巴西最大城市，旅巴30余万华侨华人有约26万聚集在当地。中华传统龙舟活动方兴未艾。去年仅两支队伍参赛，今年由巴西瑞安商会、巴西青田同乡总会
 
 ## 正文
 
-创新奇智（02121）盘中涨超8%，截至发稿，股价上涨5.28%，现报4.59港元，成交额250.82万港元。
+发布时间：2026年06月17日 11:02 来源：中国新闻网 粽子飘香，龙舟竞渡，当地时间6月14日，“中巴文化年·传承中华情”第三届巴西华侨华人龙舟联盟竞渡活动在巴西圣保罗瓜拉皮兰加水库举行，吸引两百余名旅巴侨胞和巴西友人参与。
 
-近日，IDC公布中国AI软件市场—计算机视觉市场追踪报告。
+圣保罗是巴西最大城市，旅巴30余万华侨华人有约26万聚集在当地。
 
-数据显示，2025年中国计算机视觉AI软件私有化市场规模达到92.5亿元，创新奇智凭借工业场景深耕能力蝉联TOP3，持续稳居中国视觉AI第一梯队。
+中华传统龙舟活动方兴未艾。
 
-国泰海通证券指出，2025年，公司确立了“一模一体两翼”核心战略，以AInnoGC工业大模型为基础，工业智能体为引擎，工业软件和工业机器人为应用两翼，全面推进AI在工业场景的深度应用。
+去年仅两支队伍参赛，今年由巴西瑞安商会、巴西青田同乡总会、巴西闽商联合会、巴西华人华侨青年联合会与巴西洪门南美总会联袂举办，各遣一支中华传统龙舟队参赛。
 
-AInnoGC工业大模型矩阵持续夯实，对工业领域多模态数据的分析、推理和生成能力显著增强，并在工业具身智能（ChatRobot）和工业设计生成（ChatCAD）等领域取得突破性进展。
-
-责任编辑：卢昱君
+(记者 林春茵 制作 徐妙巧） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 21:39 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 21:29 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 21:25 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-29 21:30 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-29 21:23 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 21:39 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-29 21:43 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 21:47 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 21:40 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-29 21:44 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-29 21:20 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-29 21:21 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-29 21:47 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-29 21:43 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-29 21:22 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 21:29 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 21:32 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-29 21:46 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-29 21:27 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-29 21:27 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 21:30 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 21:41 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-29 21:48 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 21:43 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 21:31 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-29 21:30 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-29 21:41 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 21:42 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 21:51 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:45 - [周生如故](https://www.blog.kurohicncr.top/Article/details/18463.shtml)
-- 2026-06-29 21:41 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/880539.shtml)
-- 2026-06-29 21:29 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/454735.shtml)
-- 2026-06-29 21:32 - [林逸向方筱然求婚了](https://www.share.minike.top/Article/details/7438672097.shtml)
-- 2026-06-29 21:35 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/0299528.shtml)
-- 2026-06-29 21:45 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/710918447.shtml)
-- 2026-06-29 21:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/48834108472.shtml)
-- 2026-06-29 21:31 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/79361229787.shtml)
-- 2026-06-29 21:18 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/39663.shtml)
-- 2026-06-29 21:38 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/136807259147.shtml)
-- 2026-06-29 21:24 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/9526458.shtml)
-- 2026-06-29 21:38 - [媒体评恋与深空用“引狼入室”台词](http://www.share.kurohicncr.top/Article/details/0915425.shtml)
-- 2026-06-29 21:32 - [MG总经理直播被冲](https://www.share.kurohicncr.top/Article/details/16238.shtml)
-- 2026-06-29 21:47 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/44873861.shtml)
-- 2026-06-29 21:41 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/071704494.shtml)
+- 2026-06-29 21:26 - [网约车出事故平台拒赔称只是中介](http://www.blog.kurohicncr.top/Article/details/0078634085.shtml)
+- 2026-06-29 21:51 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/814217.shtml)
+- 2026-06-29 21:31 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/807430160091.shtml)
+- 2026-06-29 21:25 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/3441103.shtml)
+- 2026-06-29 21:28 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/0779156691.shtml)
+- 2026-06-29 21:30 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/3104815480.shtml)
+- 2026-06-29 21:45 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/30773559561.shtml)
+- 2026-06-29 21:31 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/462304064.shtml)
+- 2026-06-29 21:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/302492015566.shtml)
+- 2026-06-29 21:41 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/76670.shtml)
+- 2026-06-29 21:27 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/989232396.shtml)
+- 2026-06-29 21:53 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/642224.shtml)
+- 2026-06-29 21:26 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/6635987.shtml)
+- 2026-06-29 21:40 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/362655.shtml)
+- 2026-06-29 21:43 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.share.kurohicncr.top/Article/details/16119.shtml)

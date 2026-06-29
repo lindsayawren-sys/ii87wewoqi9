@@ -1,57 +1,57 @@
-# 部分地区垃圾分类“撤桶并点”使居民产生困扰 如何实现长效平衡？
+# 印度整治升学考试舞弊：临时封禁通讯软件
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-部分地区垃圾分类“撤桶并点”使居民产生困扰 专家建议 严守流程规范倾听业主意见满足投放需求 法治日报记者 韩丹东 为持续提升城市精细化管理水平，优化人居环境，近年来，全国多地推行“撤桶并点(站)”，通过减少分散垃圾桶、合理设置集中投放点，引导居民定时定点分类投放，提升垃圾分类效率。比如，山西运城盐湖区要求各乡镇(街道)科学优化垃圾桶布局，根据居民使用情况“撤桶并点”、增设垃圾桶
+核心要点 在上月一场重要统考因舞弊风波遭取消、全国多地爆发抗议之后，印度有关部门对通讯软件 Telegrm 实施访问限制，以此遏制考试作弊乱象。 印度国家考试局于周二在社交平台 X 上发布声明：Telegrm 在印度的访问权限将封禁至 6 月 22 日，该平台的消息编辑功能则会关停至 6 月 30 日。 国家考试局表示，此次封禁举措，是为打击 “作弊团伙有组织地借助 Teleg
 
 ## 正文
 
-部分地区垃圾分类“撤桶并点”使居民产生困扰 专家建议 严守流程规范倾听业主意见满足投放需求 法治日报记者 韩丹东 为持续提升城市精细化管理水平，优化人居环境，近年来，全国多地推行“撤桶并点(站)”，通过减少分散垃圾桶、合理设置集中投放点，引导居民定时定点分类投放，提升垃圾分类效率。
+核心要点 在上月一场重要统考因舞弊风波遭取消、全国多地爆发抗议之后，印度有关部门对通讯软件 Telegrm 实施访问限制，以此遏制考试作弊乱象。
 
-比如，山西运城盐湖区要求各乡镇(街道)科学优化垃圾桶布局，根据居民使用情况“撤桶并点”、增设垃圾桶。
+印度国家考试局于周二在社交平台 X 上发布声明：Telegrm 在印度的访问权限将封禁至 6 月 22 日，该平台的消息编辑功能则会关停至 6 月 30 日。
 
-针对红白事这类易产生大量临时垃圾的情况，指导各村将相关管理纳入村规民约，要求提前向村红白理事会报备，并设置临时垃圾桶，由村里统一收集处置。
+国家考试局表示，此次封禁举措，是为打击 “作弊团伙有组织地借助 Telegrm 平台诈骗考生” 的违法行为，印度本次全国升学统考将于 6 月 21 日开考。
 
-但在政策实施过程中，也有居民感到了不便。
+印度全国医学本科入学考试（NEET-UG）是医学院入学的关键性选拔考试。
 
-江西吉安的刘女士所居住的小区垃圾桶“撤桶并点”后，每日清晨6点保洁清运垃圾桶的拖拽声、碰撞声准时响起；投放点紧邻居民楼，无密闭防护措施，夜间垃圾散落、杂物堆积，夏季容易滋生蚊虫，存在卫生与安全隐患。
+今年 5 月，这场考试因试卷泄露传闻被紧急取消，数百万考生的升学安排受到影响。
 
-“小区白天看着整洁有序，可这份干净却是用深夜的脏乱和清晨的噪声换来的。
+Telegrm 由俄罗斯裔科技亿万富翁帕维尔・杜罗夫创立，平台宣称全球月活跃用户超 10 亿。
 
-”刘女士向《法治日报》记者道出了满心无奈。
+过去数周，印度政府经调查发现，Telegrm 上存在大量群组频道，相关账号声称可以拿到泄露试卷，并向考生及家属收取数千至数十万卢比不等的费用。
 
-受访专家认为，“撤桶并点”本身是优化垃圾分类、提升小区环境的良策，但执行中少数地区出现程序缺失、权责失衡、服务缺位的情况，导致公共管理成本单向转嫁给居民，便民举措异化为扰民负担。
+印度国家考试局强调，试卷全程处于保密管控体系内，不存在外泄的可能，任何声称可以拿到考题的行为均属于诈骗。
 
 ## 相关推荐
 
-- 2026-06-29 21:34 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-29 21:38 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 21:42 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 21:19 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-29 21:23 - [女生学医适合选什么专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 21:23 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-29 21:44 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-29 21:39 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-29 21:23 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 21:38 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-29 21:32 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-29 21:41 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-29 21:24 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 21:27 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 21:45 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 21:27 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 21:43 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-29 21:35 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-29 21:37 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-29 21:41 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 21:38 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-29 21:47 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:20 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/968573.shtml)
-- 2026-06-29 21:28 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/61951.shtml)
-- 2026-06-29 21:27 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/70043173.shtml)
-- 2026-06-29 21:21 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/32102.shtml)
-- 2026-06-29 21:40 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/9644623.shtml)
-- 2026-06-29 21:40 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/7491267078.shtml)
-- 2026-06-29 21:47 - [广东水利防汛Ⅳ级应急响应结束](http://www.share.minike.top/Article/details/229229234316.shtml)
-- 2026-06-29 21:45 - [C罗10球7球对垫底队](http://www.blog.kurohicncr.top/Article/details/400085638.shtml)
-- 2026-06-29 21:37 - [让AI做一个账号，它会做成什么样？](http://www.share.kurohicncr.top/Article/details/94530558.shtml)
-- 2026-06-29 21:42 - [papi酱在救赎窦文涛](http://www.blog.minike.top/Article/details/09434647297.shtml)
-- 2026-06-29 21:39 - [周杰伦千禧年就有小卡了](https://www.share.minike.top/Article/details/37788.shtml)
-- 2026-06-29 21:29 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/5091630.shtml)
-- 2026-06-29 21:32 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/993355.shtml)
-- 2026-06-29 21:32 - [运20对中国空军的意义是什么](http://www.blog.minike.top/Article/details/79314595.shtml)
-- 2026-06-29 21:24 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.blog.minike.top/Article/details/830196185775.shtml)
+- 2026-06-29 21:37 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/960280165.shtml)
+- 2026-06-29 21:36 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/58965067036.shtml)
+- 2026-06-29 21:30 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/7452636046.shtml)
+- 2026-06-29 21:28 - [金刚川](https://www.blog.minike.top/Article/details/1364698.shtml)
+- 2026-06-29 21:44 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/31532051.shtml)
+- 2026-06-29 21:38 - [欧洲高温会成下个印度吗](https://www.share.kurohicncr.top/Article/details/471249609988.shtml)
+- 2026-06-29 21:40 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/40189582.shtml)
+- 2026-06-29 21:26 - [TI2026参赛战队出炉](http://www.share.kurohicncr.top/Article/details/9938479.shtml)
+- 2026-06-29 21:27 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/677758875982.shtml)
+- 2026-06-29 21:28 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/3821660146.shtml)
+- 2026-06-29 21:36 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/61155195.shtml)
+- 2026-06-29 21:46 - [一生一世](http://www.blog.kurohicncr.top/Article/details/238779.shtml)
+- 2026-06-29 21:26 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/223575.shtml)
+- 2026-06-29 21:44 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/211227687.shtml)
+- 2026-06-29 21:50 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/33978410940.shtml)

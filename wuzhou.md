@@ -1,58 +1,57 @@
-# 龙大美食更正会计差错，受损投资者可进行预索赔登记
+# 中方：对当前黎以局势深表关切，望相关各方谨言慎行
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-根据最新消息，山东龙大美食股份有限公司（以下简称“龙大美食”）进行了前期会计差错更正。上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2024年4月16日-2026年4月28日期间买入且有持仓，无论在2026年4月29日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿预登记索赔。 回顾本案，2026年4月29日龙大美食发布《关于前期会
+中新网北京6月16日电 (记者 李京泽)中国外交部发言人林剑16日主持例行记者会。 有记者提问：美国与伊朗谅解备忘录的第一条就是呼吁所有阵线停火，但是我们注意到以色列仍在持续袭击黎巴嫩。请问中方对此持何立场？ 林剑：中方对当前黎以局势深表关切。黎巴嫩的主权和安全不应受到侵犯，希望相关各方谨言慎行，坚持和平选择，切实落实停火安排，实现全面持久停火，为维护中东的和平安宁创造条件。(
 
 ## 正文
 
-根据最新消息，山东龙大美食股份有限公司（以下简称“龙大美食”）进行了前期会计差错更正。
+中新网北京6月16日电 (记者 李京泽)中国外交部发言人林剑16日主持例行记者会。
 
-上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2024年4月16日-2026年4月28日期间买入且有持仓，无论在2026年4月29日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿预登记索赔。
+有记者提问：美国与伊朗谅解备忘录的第一条就是呼吁所有阵线停火，但是我们注意到以色列仍在持续袭击黎巴嫩。
 
-回顾本案，2026年4月29日龙大美食发布《关于前期会计差错更正及追溯调整的公告》。
+请问中方对此持何立场？
 
-公告显示，本次会计差错更正及追溯调整涉及2024年度、2025年度一季度报告、半年度报告、三季度报告的合并财务报表及半年度母公司财务报表，且2025年度一季度报告和半年度报告归属于上市公司股东的净利润将由盈利变为亏损。
+林剑：中方对当前黎以局势深表关切。
 
-信本股民索赔团队提醒，龙大美食进行前期会计差错追溯调整，因此受损投资者可通过“新浪股民维权平台”自愿预登记索赔。
+黎巴嫩的主权和安全不应受到侵犯，希望相关各方谨言慎行，坚持和平选择，切实落实停火安排，实现全面持久停火，为维护中东的和平安宁创造条件。
 
-索赔条件： 龙大美食：于2024年4月16日-2026年4月28日期间买入且有持仓，无论在2026年4月29日及之后是否卖出（具体赔付范围由法院确定）（龙大美食维权入口） （本文由上海市信本律师事务所合伙人赵敬国律师供稿，不代表新浪财经的观点。
-
-赵敬国律师，于1999年取得律师资格，法学理论知识扎实，曾在高校任教。
-
-2004年起开始律师执业，承办过千余起各类诉讼案件，积累了十分丰富的争议处理经验，尤其擅长处理证券纠纷、金融、不良资产等方面的业务。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 21:21 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 21:25 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 21:41 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-29 21:34 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-29 21:20 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-29 21:18 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 21:46 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-29 21:38 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-29 21:39 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-29 21:29 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 21:47 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-29 21:47 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-29 21:27 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 21:31 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-29 21:32 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-29 21:50 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-29 21:44 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-29 21:51 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 21:24 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-29 21:46 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 21:36 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 21:41 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-29 21:25 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-29 21:40 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 21:39 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 21:27 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-29 21:25 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:37 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/8385027.shtml)
-- 2026-06-29 21:27 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/22065688750.shtml)
-- 2026-06-29 21:20 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/4382292712.shtml)
-- 2026-06-29 21:33 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/588350.shtml)
-- 2026-06-29 21:19 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/358486007.shtml)
-- 2026-06-29 21:29 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/29849.shtml)
-- 2026-06-29 21:22 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/1084704653.shtml)
-- 2026-06-29 21:42 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/2576516.shtml)
-- 2026-06-29 21:41 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/70207.shtml)
-- 2026-06-29 21:37 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/900622.shtml)
-- 2026-06-29 21:45 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/19259663.shtml)
-- 2026-06-29 21:27 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/766290625.shtml)
-- 2026-06-29 21:23 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/5909988421.shtml)
-- 2026-06-29 21:38 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/22597.shtml)
-- 2026-06-29 21:20 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/8207628.shtml)
+- 2026-06-29 21:36 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/6806972240.shtml)
+- 2026-06-29 21:34 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/5322361.shtml)
+- 2026-06-29 21:33 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/02159421.shtml)
+- 2026-06-29 21:39 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/828390315593.shtml)
+- 2026-06-29 21:36 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/883026.shtml)
+- 2026-06-29 21:25 - [日美楼市危机复盘：见底顺序曝光](https://www.blog.kurohicncr.top/Article/details/944310.shtml)
+- 2026-06-29 21:32 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/99523.shtml)
+- 2026-06-29 21:28 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/31646280.shtml)
+- 2026-06-29 21:39 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/7803452706.shtml)
+- 2026-06-29 21:40 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/9923814.shtml)
+- 2026-06-29 21:54 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/01376758695.shtml)
+- 2026-06-29 21:35 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/4207229.shtml)
+- 2026-06-29 21:41 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/82212071.shtml)
+- 2026-06-29 21:50 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/8410921.shtml)
+- 2026-06-29 21:43 - [黄金也扛不住了](https://www.share.minike.top/Article/details/60981.shtml)

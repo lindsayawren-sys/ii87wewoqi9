@@ -1,49 +1,61 @@
-# 人民币兑美元中间价报6.8187，下调20点
+# 斯诺克武汉公开赛资格赛：中国军团首日8人晋级
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-6月2日，人民币兑美元中间价报6.8187，下调20点。 美联储6月维持利率不变的概率为98.4% 据CME“美联储观察”：美联储到6月维持利率不变的概率为98.4%，累计降息25个基点的概率为1.6%。美联储到7月维持利率不变的概率为90.2%，累计加息25个基点的概率8.4%，累计降息25个基点的概率为1.4%。责任编辑：郭建
+中新社英国莱斯特6月16日电 当地时间6月15日，2026斯诺克武汉公开赛资格赛在英国莱斯特拉开战幕。首个比赛日，王信伯、江俊、巩晨智等8位中国球手顺利突围，晋级下一轮。 在当日128进96轮次的比赛中，中国新秀表现抢眼。2008年出生的小将王信伯迎来职业生涯首秀，面对苏格兰选手利亚姆·格雷姆，他凭借出色的防守和关键球处理，以5比1轻松取胜。 另一场焦点战中，江俊在与英格兰64
 
 ## 正文
 
-6月2日，人民币兑美元中间价报6.8187，下调20点。
+中新社英国莱斯特6月16日电 当地时间6月15日，2026斯诺克武汉公开赛资格赛在英国莱斯特拉开战幕。
 
-美联储6月维持利率不变的概率为98.4% 据CME“美联储观察”：美联储到6月维持利率不变的概率为98.4%，累计降息25个基点的概率为1.6%。
+首个比赛日，王信伯、江俊、巩晨智等8位中国球手顺利突围，晋级下一轮。
 
-美联储到7月维持利率不变的概率为90.2%，累计加息25个基点的概率8.4%，累计降息25个基点的概率为1.4%。
+在当日128进96轮次的比赛中，中国新秀表现抢眼。
 
-责任编辑：郭建
+2008年出生的小将王信伯迎来职业生涯首秀，面对苏格兰选手利亚姆·格雷姆，他凭借出色的防守和关键球处理，以5比1轻松取胜。
+
+另一场焦点战中，江俊在与英格兰64岁的传奇名将吉米·怀特的对决中上演逆转好戏，在2比3落后的情况下连下三城，终以5比3力克对手。
+
+巩晨智当日对阵英格兰选手利亚姆·海菲尔德，他在0比3落后的不利开局下展现出强大的心理素质，凭借优质进攻上演四连鞭，将场上比分改写为4比3领先。
+
+此后尽管利亚姆·海菲尔德以一杆单杆50+将比赛拖入决胜局，但中国球手随即击出一个单杆破百，最终以5比4战胜对手，惊险晋级。
+
+高阳与女子球手白雨露首战上演“中国德比”，高阳在先失一局的情况下连续打出四个单杆50+和一个单杆破百，直落五局以5比1击败对手晋级。
 
 ## 相关推荐
 
-- 2026-06-29 21:37 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-29 21:23 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-29 21:18 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 21:20 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 21:47 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-29 21:36 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-29 21:47 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-29 21:20 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-29 21:41 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-29 21:21 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-29 21:34 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 21:42 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 21:45 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-29 21:40 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 21:27 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 21:32 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-29 21:31 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 21:49 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-29 21:29 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-29 21:43 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 21:38 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 21:47 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-29 21:39 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-29 21:29 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 21:28 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 21:35 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:27 - [啊啊啊](https://www.share.minike.top/Article/details/12753.shtml)
-- 2026-06-29 21:42 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/551256750.shtml)
-- 2026-06-29 21:18 - [网红小徐直播时突遇地震](http://www.blog.minike.top/Article/details/5293362922.shtml)
-- 2026-06-29 21:33 - [穆祉丞东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/37904324.shtml)
-- 2026-06-29 21:38 - [乌克兰发广告全球征兵](http://www.blog.kurohicncr.top/Article/details/19367228616.shtml)
-- 2026-06-29 21:24 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/7388831308.shtml)
-- 2026-06-29 21:43 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/70820238546.shtml)
-- 2026-06-29 21:47 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/466029476.shtml)
-- 2026-06-29 21:21 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/880741.shtml)
-- 2026-06-29 21:25 - [啊啊啊](http://www.share.minike.top/Article/details/3673603404.shtml)
-- 2026-06-29 21:42 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/31424.shtml)
-- 2026-06-29 21:21 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.minike.top/Article/details/0262913515.shtml)
-- 2026-06-29 21:18 - [中外合作办学是“低分捷径”吗](https://www.blog.kurohicncr.top/Article/details/981954687.shtml)
-- 2026-06-29 21:37 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/456559.shtml)
-- 2026-06-29 21:44 - [绿营污蔑大陆“海上袭扰”被批](http://www.share.minike.top/Article/details/01109.shtml)
+- 2026-06-29 21:44 - [湖南姑娘被东北同事带偏口音](http://www.share.kurohicncr.top/Article/details/10991143946.shtml)
+- 2026-06-29 21:53 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/629779107381.shtml)
+- 2026-06-29 21:41 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/986230636739.shtml)
+- 2026-06-29 21:42 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/946736.shtml)
+- 2026-06-29 21:45 - [青春环游记第三季](http://www.share.minike.top/Article/details/37323.shtml)
+- 2026-06-29 21:25 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.minike.top/Article/details/1982744365.shtml)
+- 2026-06-29 21:52 - [第一炉香](https://www.share.minike.top/Article/details/002044145.shtml)
+- 2026-06-29 21:29 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/81331.shtml)
+- 2026-06-29 21:38 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/858841260216.shtml)
+- 2026-06-29 21:24 - [中方绝不允许日菲侵害我海洋权益](https://www.share.kurohicncr.top/Article/details/295072461144.shtml)
+- 2026-06-29 21:51 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/41936510.shtml)
+- 2026-06-29 21:38 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/0793873596.shtml)
+- 2026-06-29 21:53 - [华工科技龙虎榜数据](https://www.blog.kurohicncr.top/Article/details/313677.shtml)
+- 2026-06-29 21:51 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/7262933161.shtml)
+- 2026-06-29 21:50 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/5428359190.shtml)

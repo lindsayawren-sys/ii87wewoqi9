@@ -1,57 +1,56 @@
-# 东西问｜张晓峥：揭开红山古国“消失”真相
+# 王毅出席上海合作组织成立25周年招待会
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-中新社石家庄5月31日电 题：揭开红山古国“消失”真相 ——专访郑家沟遗址考古项目负责人、河北省文物考古研究院副院长张晓峥 中新社记者 牛琳 作为首次在远离红山文化核心区域的冀西北地区发现并发掘的红山文化典型遗存，郑家沟遗址近日入选“2025年度全国十大考古新发现”，其最新考古成果揭开困扰考古界40余年的红山古国“消失”真相，勾勒出“红山南下”的迁徙轨迹，实证中华文明“多元一体
+中新社北京6月15日电 6月15日，中共中央政治局委员、外交部长王毅在北京出席庆祝上海合作组织成立25周年招待会并致辞。 王毅说，25年前上合组织的成立，掀开当代国际关系崭新一页。25年来，成员国团结协作，担当道义，共谋发展，互学互鉴，培育出互信、互利、平等、协商、尊重多样文明、谋求共同发展的“上海精神”，探索出毗邻国家结伴而不结盟，共守安全稳定、共促发展繁荣的新型区域合作模式
 
 ## 正文
 
-中新社石家庄5月31日电 题：揭开红山古国“消失”真相 ——专访郑家沟遗址考古项目负责人、河北省文物考古研究院副院长张晓峥 中新社记者 牛琳 作为首次在远离红山文化核心区域的冀西北地区发现并发掘的红山文化典型遗存，郑家沟遗址近日入选“2025年度全国十大考古新发现”，其最新考古成果揭开困扰考古界40余年的红山古国“消失”真相，勾勒出“红山南下”的迁徙轨迹，实证中华文明“多元一体”演进格局和中华五千年文明史。
+中新社北京6月15日电 6月15日，中共中央政治局委员、外交部长王毅在北京出席庆祝上海合作组织成立25周年招待会并致辞。
 
-5000年前，红山人去哪了？
+王毅说，25年前上合组织的成立，掀开当代国际关系崭新一页。
 
-修正后的红山文化时空框架，将如何重绘中华文明起源版图？
+25年来，成员国团结协作，担当道义，共谋发展，互学互鉴，培育出互信、互利、平等、协商、尊重多样文明、谋求共同发展的“上海精神”，探索出毗邻国家结伴而不结盟，共守安全稳定、共促发展繁荣的新型区域合作模式，建立起以相互尊重、公平正义、合作共赢为核心的新型国际关系。
 
-中新社“东西问”就此专访了郑家沟遗址考古项目负责人、河北省文物考古研究院副院长张晓峥。
+王毅表示，当前百年变局加速演进，国际形势变乱加剧。
 
-现将访谈实录摘要如下： 中新社记者：在史前文化遗址丰富的冀西北地区，郑家沟遗址是怎样的存在？
+习近平主席胸怀天下，提出四大全球倡议，倡导构建人类命运共同体，指明了时代方向，提供了中国方案。
 
-考古人员是如何“锁定”它的？
+上合组织作为当今世界举足轻重的稳定性、建设性、进步性力量，应当更好发挥作用，为促进世界和平、发展、合作、共赢担当尽责，作出表率。
 
-张晓峥：冀西北地区史前文化发展序列非常完整，拥有丰富的百万年人类史和一万年文化史。
+王毅强调，要弘扬“上海精神”。
 
-郑家沟遗址正处于五千多年文明史的起步阶段，是五千多年文明史的实证。
+善作善成，让上合组织的合作越推越深，道路越走越宽，关系越理越顺，凝聚力、行动力、感召力持续提升。
 
 ## 相关推荐
 
-- 2026-06-29 21:46 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-29 21:47 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-29 21:39 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 21:30 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-29 21:22 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 21:32 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 21:46 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-29 21:28 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-29 21:27 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 21:43 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-29 21:19 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-29 21:35 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-29 21:33 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-29 21:48 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 21:46 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 21:50 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 21:24 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-29 21:50 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-29 21:37 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-29 21:24 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 21:28 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/605996328099.shtml)
-- 2026-06-29 21:18 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.blog.kurohicncr.top/Article/details/0838575358.shtml)
-- 2026-06-29 21:18 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/5538199.shtml)
-- 2026-06-29 21:20 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.blog.minike.top/Article/details/57152619.shtml)
-- 2026-06-29 21:37 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/351019.shtml)
-- 2026-06-29 21:24 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/08767872381.shtml)
-- 2026-06-29 21:29 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/707237965.shtml)
-- 2026-06-29 21:41 - [王冰冰向全网安利哈兰德](http://www.share.minike.top/Article/details/7754831.shtml)
-- 2026-06-29 21:39 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/707145361.shtml)
-- 2026-06-29 21:36 - [绘画区你赢了](https://www.blog.minike.top/Article/details/3920923.shtml)
-- 2026-06-29 21:31 - [炽夏](http://www.blog.minike.top/Article/details/442422.shtml)
-- 2026-06-29 21:46 - [斛珠夫人](https://www.share.minike.top/Article/details/8630770.shtml)
-- 2026-06-29 21:32 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/6974097998.shtml)
-- 2026-06-29 21:23 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/909855.shtml)
-- 2026-06-29 21:22 - [广东水利防汛Ⅳ级应急响应结束](https://www.share.minike.top/Article/details/352991419172.shtml)
+- 2026-06-29 21:41 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/17985992728.shtml)
+- 2026-06-29 21:24 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/06943937280.shtml)
+- 2026-06-29 21:28 - [杨德龙：创新药迎来新的发展机遇](https://www.share.minike.top/Article/details/12537560.shtml)
+- 2026-06-29 21:41 - [哈兰德玩游戏连女友都不让着](https://www.share.kurohicncr.top/Article/details/54760907736.shtml)
+- 2026-06-29 21:45 - [女心理师](https://www.blog.minike.top/Article/details/7583387617.shtml)
+- 2026-06-29 21:36 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/48457208.shtml)
+- 2026-06-29 21:40 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/48720365.shtml)
+- 2026-06-29 21:51 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/310805.shtml)
+- 2026-06-29 21:37 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/416307903.shtml)
+- 2026-06-29 21:32 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/13689374.shtml)
+- 2026-06-29 21:32 - [斛珠夫人](https://www.blog.minike.top/Article/details/82109640812.shtml)
+- 2026-06-29 21:51 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/43139.shtml)
+- 2026-06-29 21:51 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/62961724.shtml)
+- 2026-06-29 21:42 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/01652867.shtml)
+- 2026-06-29 21:29 - [送你一朵小红花](http://www.share.minike.top/Article/details/883549170.shtml)

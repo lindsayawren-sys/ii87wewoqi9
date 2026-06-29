@@ -1,60 +1,60 @@
-# 光大期货：6月2日农产品日报
+# 亿纬锂能预计上半年净利润翻倍，股价大涨逾10%收复年内全部跌幅
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周一，CBOT大豆收低，受累于强劲的美豆作物前景。美国整体良好的作物天气和强劲的作物长势对市场构成压力。盘后的作物报告显示，美豆种植率和优良率均低于预期，令人意外。美豆检验数据显示，上周检验量49万吨，符合预期。国内方面，蛋白粕震荡。美豆、巴西大豆基差报价稳中走高，全球大豆进口成本仅小幅下调。
+6月16日，市值近1300亿元的锂电龙头亿纬锂能（维权）（300014.SZ）股价高开，截至上午收盘，公司报66.84元/股，股价上涨了13.73%。 6月15日晚间，亿纬锂能发布2026年半年度业绩预告，预计上半年实现归属于上市公司股东的净利润31.30亿元至33.71亿元，同比增长95%至110%；扣除非经常性损益后的净利润预计为24.30亿元至26.03亿元，同比增长11
 
 ## 正文
 
-蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周一，CBOT大豆收低，受累于强劲的美豆作物前景。
+6月16日，市值近1300亿元的锂电龙头亿纬锂能（维权）（300014.SZ）股价高开，截至上午收盘，公司报66.84元/股，股价上涨了13.73%。
 
-美国整体良好的作物天气和强劲的作物长势对市场构成压力。
+6月15日晚间，亿纬锂能发布2026年半年度业绩预告，预计上半年实现归属于上市公司股东的净利润31.30亿元至33.71亿元，同比增长95%至110%；扣除非经常性损益后的净利润预计为24.30亿元至26.03亿元，同比增长110%至125%。
 
-盘后的作物报告显示，美豆种植率和优良率均低于预期，令人意外。
+该业绩预告显著超出市场预期。
 
-美豆检验数据显示，上周检验量49万吨，符合预期。
+事实上，今年以来，亿纬锂能股价整体表现疲软，截至6月15日收盘，公司股价报58.77元/股，累计下跌10.63%。
 
-国内方面，蛋白粕震荡。
+经过6月16日上午的上涨之后，公司股价已经收复年内跌幅。
 
-美豆、巴西大豆基差报价稳中走高，全球大豆进口成本仅小幅下调。
+从更长周期看，公司股价自2025年高点以来持续承压。
 
-大豆上周压榨超过200万吨，大豆库存攀升，豆粕库存拐点确认。
+2026年3月，公司因提前赎回“亿纬转债”引发市场争议，赎回价格100.034元/张远低于约167元/张的市价，正股一度下跌近10%。
 
-国内豆粕无供应担忧，进口成本走高给豆粕支撑。
+在2026年半年度业绩预告中，亿纬锂能表示，公司致力于产品迭代、服务升级与流程优化，把握市场增长机遇，驱动公司业务持续增长，营业收入同比增长约60%。
 
 ## 相关推荐
 
-- 2026-06-29 21:46 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-29 21:32 - [多人将马路护栏当球网打羽毛球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-29 21:18 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 21:26 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-29 21:39 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 21:19 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 21:24 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-29 21:25 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-29 21:46 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-29 21:19 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-29 21:35 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-29 21:42 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 21:20 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-29 21:41 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-29 21:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 21:28 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-29 21:40 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-29 21:35 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-29 21:46 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-29 21:41 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-29 21:35 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 21:40 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 21:38 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-29 21:51 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 21:24 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 21:43 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-29 21:30 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 21:28 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:47 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/74088215452.shtml)
-- 2026-06-29 21:25 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/240942457625.shtml)
-- 2026-06-29 21:43 - [巴黎区长紧急采购50台中国空调](http://www.share.minike.top/Article/details/12230951834.shtml)
-- 2026-06-29 21:37 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/15481.shtml)
-- 2026-06-29 21:39 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/714580948.shtml)
-- 2026-06-29 21:44 - [斗破苍穹](https://www.blog.minike.top/Article/details/203468787.shtml)
-- 2026-06-29 21:33 - [中国小将严子怡再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/505300855576.shtml)
-- 2026-06-29 21:24 - [一生一世](https://www.blog.kurohicncr.top/Article/details/2990131155.shtml)
-- 2026-06-29 21:27 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/20732395.shtml)
-- 2026-06-29 21:30 - [东方风云榜直播](https://www.blog.minike.top/Article/details/3810313.shtml)
-- 2026-06-29 21:34 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/69728422094.shtml)
-- 2026-06-29 21:35 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/770432207380.shtml)
-- 2026-06-29 21:23 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/73894511.shtml)
-- 2026-06-29 21:43 - [女心理师](http://www.share.minike.top/Article/details/692700615962.shtml)
-- 2026-06-29 21:29 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/566417.shtml)
+- 2026-06-29 21:38 - [沙丘](https://www.share.minike.top/Article/details/7326877.shtml)
+- 2026-06-29 21:30 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/50215.shtml)
+- 2026-06-29 21:34 - [小娘惹](http://www.share.minike.top/Article/details/74806325.shtml)
+- 2026-06-29 21:31 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/124822906726.shtml)
+- 2026-06-29 21:52 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/7755235241.shtml)
+- 2026-06-29 21:39 - [王楚钦称抽签结果出来心情不好](http://www.share.kurohicncr.top/Article/details/031729391226.shtml)
+- 2026-06-29 21:38 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/01614.shtml)
+- 2026-06-29 21:52 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.blog.kurohicncr.top/Article/details/2062723.shtml)
+- 2026-06-29 21:35 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/973211945.shtml)
+- 2026-06-29 21:37 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/50456.shtml)
+- 2026-06-29 21:41 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/613695.shtml)
+- 2026-06-29 21:48 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/341080.shtml)
+- 2026-06-29 21:26 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/380713.shtml)
+- 2026-06-29 21:24 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/4778377.shtml)
+- 2026-06-29 21:35 - [美以这对亲密盟友要掰了吗](https://www.share.minike.top/Article/details/6714151.shtml)

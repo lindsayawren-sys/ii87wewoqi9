@@ -1,57 +1,60 @@
-# 三冲IPO！这家公司超九成收入依赖单一产品
+# 市场监管总局：推行电子营业执照试点 严查“幽灵外卖” 无证假店
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-来源：IPO日报 近期，江西生物制品研究所股份有限公司（下称“江西生物”）向港交所递交主板上市申请，由中国国际金融香港证券有限公司、招商证券（香港）有限公司联席保荐，并正式委任富途证券国际（香港）有限公司担任整体协调人。 值得注意的是，这是继公司在2025年4月、2025年10月，两次递表失效后的第三次闯关。 张力制图 细分赛道龙头 江西生物的故事，始于一枚不起眼的“小药针”。
+发布时间：2026年06月16日 18:26 来源：中国新闻网 6月16日，市场监管总局召开2026年二季度例行新闻发布会。市场监管总局新闻发言人、新闻宣传司司长王秋苹表示，以“幽灵外卖”为例，他们弄虚作假，查无实体，给食品安全带来极大风险隐患，严重扰乱市场秩序。电子证照核验试点的核心，正是依托全国统一、权威可信的电子营业执照系统，推动入驻资质审核全流程数字化闭环管理。 一是有
 
 ## 正文
 
-来源：IPO日报 近期，江西生物制品研究所股份有限公司（下称“江西生物”）向港交所递交主板上市申请，由中国国际金融香港证券有限公司、招商证券（香港）有限公司联席保荐，并正式委任富途证券国际（香港）有限公司担任整体协调人。
+发布时间：2026年06月16日 18:26 来源：中国新闻网 6月16日，市场监管总局召开2026年二季度例行新闻发布会。
 
-值得注意的是，这是继公司在2025年4月、2025年10月，两次递表失效后的第三次闯关。
+市场监管总局新闻发言人、新闻宣传司司长王秋苹表示，以“幽灵外卖”为例，他们弄虚作假，查无实体，给食品安全带来极大风险隐患，严重扰乱市场秩序。
 
-张力制图 细分赛道龙头 江西生物的故事，始于一枚不起眼的“小药针”。
+电子证照核验试点的核心，正是依托全国统一、权威可信的电子营业执照系统，推动入驻资质审核全流程数字化闭环管理。
 
-被生锈铁钉扎伤或遭遇较深外伤后，医生常会提醒“打一针破伤风”。
+一是有效核验“真人”，从源头杜绝冒用。
 
-这个基础急救药品背后，站着的是中国乃至全球最大的人用破伤风抗毒素（人用TAT）提供商——江西生物。
+餐饮经营者入网时，通过电子营业执照小程序，由其法定代表人完成经营主体身份认证和电子证照精准授权，确保了经营主体身份和意愿的真实性，有效拦截了“套照入网”行为。
 
-根据弗若斯特沙利文的数据，按2024年销量计，江西生物在中国及全球人用TAT市场的份额分别为65.8%和36.6%，在中国市场已连续18年保持50%以上份额。
+二是有效核验“真证”，实现信息精准核验。
 
-这门生意的本质，是与时间赛跑的被动免疫。
+在获得商户授权后，平台可以从电子营业执照系统中实时调取官方保真的电子营业执照和食品经营许可证，实现证照信息“来源可溯、真实可靠”，从根本上阻断了“假照假证”入网。
 
-破伤风是由破伤风梭菌引起的严重神经系统感染性疾病，致死率极高——2024年全球感染死亡率约为41.5%，中国为30.4%。
+三是有效核验“真店”，推动监管全程可控。
 
 ## 相关推荐
 
-- 2026-06-29 21:40 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 21:21 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 21:22 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-29 21:31 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-29 21:35 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-29 21:35 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-29 21:31 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-29 21:46 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-29 21:20 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-29 21:30 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-29 21:19 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 21:45 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-29 21:35 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 21:38 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-29 21:53 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 21:26 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-29 21:28 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-29 21:44 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-29 21:34 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 21:29 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 21:25 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-29 21:36 - [记者：预计热火将追求小哈达威和康利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-29 21:40 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-29 21:38 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-29 21:44 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:45 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/3910755754.shtml)
-- 2026-06-29 21:29 - [普京建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/98429.shtml)
-- 2026-06-29 21:24 - [周生如故](http://www.blog.kurohicncr.top/Article/details/9103294.shtml)
-- 2026-06-29 21:43 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/61489959.shtml)
-- 2026-06-29 21:46 - [福建海警位金门附近海域常态执法巡查](http://www.blog.minike.top/Article/details/68064981735.shtml)
-- 2026-06-29 21:24 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/31374.shtml)
-- 2026-06-29 21:45 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/22131.shtml)
-- 2026-06-29 21:45 - [沙丘](http://www.share.minike.top/Article/details/448438.shtml)
-- 2026-06-29 21:18 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/45200818752.shtml)
-- 2026-06-29 21:36 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.minike.top/Article/details/432507006.shtml)
-- 2026-06-29 21:31 - [媒体评恋与深空用“引狼入室”台词](http://www.share.minike.top/Article/details/621086203515.shtml)
-- 2026-06-29 21:39 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/446914.shtml)
-- 2026-06-29 21:29 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/35123.shtml)
-- 2026-06-29 21:32 - [上世纪90年代玩具成新宠](http://www.share.minike.top/Article/details/070104549158.shtml)
-- 2026-06-29 21:41 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/3711180795.shtml)
+- 2026-06-29 21:38 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/37852.shtml)
+- 2026-06-29 21:36 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/08460995.shtml)
+- 2026-06-29 21:48 - [哈兰德吃饭被镜中自己吓到](https://www.share.minike.top/Article/details/98432701.shtml)
+- 2026-06-29 21:26 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/70938.shtml)
+- 2026-06-29 21:32 - [流金岁月](http://www.blog.minike.top/Article/details/878401972919.shtml)
+- 2026-06-29 21:45 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.kurohicncr.top/Article/details/14520129460.shtml)
+- 2026-06-29 21:35 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/1428084432.shtml)
+- 2026-06-29 21:53 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/73319.shtml)
+- 2026-06-29 21:31 - [CORTIS登机迟到致航班延误](https://www.share.minike.top/Article/details/3374322185.shtml)
+- 2026-06-29 21:25 - [恋与深空制作组回应争议](http://www.blog.kurohicncr.top/Article/details/3035796715.shtml)
+- 2026-06-29 21:40 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/8606117.shtml)
+- 2026-06-29 21:46 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/8955011.shtml)
+- 2026-06-29 21:41 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/09372204.shtml)
+- 2026-06-29 21:46 - [韩国队主帅遭极端网友死亡威胁](http://www.blog.kurohicncr.top/Article/details/53769865953.shtml)
+- 2026-06-29 21:33 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/14088535706.shtml)

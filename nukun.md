@@ -1,58 +1,60 @@
-# 司马台100长城越野赛收官 体育赛事助推文化传播
+# 端午前后国内糖价走势及核心影响因素
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-中新网北京6月1日电 司马台100长城越野赛31日迎来收官之日。赛事以“‘奇’6KM组大众体验奔跑+长城论坛思想对话”双线收官，让专业竞技回归大众热爱，让体育赛事助推文化传播，为为期三天的长城越野盛会画上圆满句号。 上午9时，“奇”6KM组别发枪仪式在古北水镇日月岛广场举行。来自亲子家庭、户外爱好者、城市运动人群以及何亚君助盲团跑者共500余名选手启程，加入这场长城之约。 作为
+沐甜科技 端午小长假前后，国内白糖市场呈现上有压力、下有支撑的震荡走势，从现货价格小幅微调来看，未出现节前市场预期的旺季拉升行情。为此，小编分别电话连线了糖厂生产商、现货贸易商、期货分析的三位业内资深人士，从产业一线、市场流通、宏观层面三个维度，深度拆解端午前后糖价波动逻辑，并对节后短期内糖价走势做出预判。 问题一：端午前后国内糖价整体震荡偏弱、上涨乏力，从各自领域来看，核心制
 
 ## 正文
 
-中新网北京6月1日电 司马台100长城越野赛31日迎来收官之日。
+沐甜科技 端午小长假前后，国内白糖市场呈现上有压力、下有支撑的震荡走势，从现货价格小幅微调来看，未出现节前市场预期的旺季拉升行情。
 
-赛事以“‘奇’6KM组大众体验奔跑+长城论坛思想对话”双线收官，让专业竞技回归大众热爱，让体育赛事助推文化传播，为为期三天的长城越野盛会画上圆满句号。
+为此，小编分别电话连线了糖厂生产商、现货贸易商、期货分析的三位业内资深人士，从产业一线、市场流通、宏观层面三个维度，深度拆解端午前后糖价波动逻辑，并对节后短期内糖价走势做出预判。
 
-上午9时，“奇”6KM组别发枪仪式在古北水镇日月岛广场举行。
+问题一：端午前后国内糖价整体震荡偏弱、上涨乏力，从各自领域来看，核心制约和支撑因素分别是什么？
 
-来自亲子家庭、户外爱好者、城市运动人群以及何亚君助盲团跑者共500余名选手启程，加入这场长城之约。
+生产端A：从国内生产来看，截止目前国内甘蔗压榨工作除云南仍在生产以外，其他省份均已收尾。
 
-作为本届赛事最具全民属性与参与温度的组别，“奇”6KM组赛道弱化竞技压力，强化体验感与陪伴感，让更多大众跑者走近司马台长城、走进古北水镇、亲近原生山野，在轻松奔跑中感受长城文化的独特魅力与户外运动的纯粹快乐。
+食糖市场整体供应充足，这也是糖价难以大幅上涨的核心制约。
 
-本次“奇”6KM组参赛阵容覆盖全年龄段人群，既有亲子家庭携手出发，也有初次接触越野跑的大众跑者共同奔赴山野。
+而价格底部支撑主要来自于产区现货出库节奏平稳，厂家无低价清库意愿，叠加夏季冷饮、烘焙消费旺季逐步启动，刚需托底，让糖价不存在大幅下跌的空间，最终形成窄幅震荡格局。
 
-其中，最小参赛选手仅8岁，孩子们在父母的陪伴下迈上长城脚下的赛道，用脚步触摸历史、用奔跑拥抱自然，在属于自己的节日里完成一次特别的成长挑战。
+贸易流通端B：2025/26榨季国内产糖量创下近12年的新高，广西、云南主产区增产显著，截至5月末，两大主产区合计工业库存达337万吨，库存压力处于近年高位，是压制现货涨价的主要利空因素。
 
-赛道上，还一支特殊参赛队伍格外动人——何亚君助盲团的参赛选手。
+进口端呈现“5月低位、6月回升”的态势，5月配额外原糖到港仅2.97万吨，6月预报到港量增至7.49万吨，同比增加4.11万吨，阶段性补充沿海销区货源，对冲了旺季消费利好。
 
 ## 相关推荐
 
-- 2026-06-29 21:34 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-29 21:21 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 21:40 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-29 21:23 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 21:30 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-29 21:44 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-29 21:37 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 21:18 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-29 21:21 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-29 21:22 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 21:41 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-29 21:26 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-29 21:38 - [店员光脚踩入盆中清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-29 21:31 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-29 21:24 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-29 21:37 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 21:32 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 21:38 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 21:35 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 21:32 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-29 21:34 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 21:46 - [记者：预计热火将追求小哈达威和康利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-29 21:43 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-29 21:46 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-29 21:33 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-29 21:32 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:39 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/0468364786.shtml)
-- 2026-06-29 21:44 - [欧洲多国高温突破40摄氏度](https://www.blog.kurohicncr.top/Article/details/661196.shtml)
-- 2026-06-29 21:34 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/631835599389.shtml)
-- 2026-06-29 21:32 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/952986.shtml)
-- 2026-06-29 21:30 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/386380.shtml)
-- 2026-06-29 21:19 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.minike.top/Article/details/105772455628.shtml)
-- 2026-06-29 21:25 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/663151565.shtml)
-- 2026-06-29 21:27 - [东宫女主是不是顶级恋爱脑](https://www.share.kurohicncr.top/Article/details/61339942.shtml)
-- 2026-06-29 21:21 - [穆祉丞东方风云榜红毯](http://www.blog.minike.top/Article/details/95452893935.shtml)
-- 2026-06-29 21:24 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/2539633.shtml)
-- 2026-06-29 21:30 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/823496.shtml)
-- 2026-06-29 21:23 - [网约车出事故平台拒赔称只是中介](https://www.share.minike.top/Article/details/49082575628.shtml)
-- 2026-06-29 21:42 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/12057.shtml)
-- 2026-06-29 21:33 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/123420070317.shtml)
-- 2026-06-29 21:18 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.kurohicncr.top/Article/details/472025529.shtml)
+- 2026-06-29 21:41 - [杨紫有3部作品入围金鹰奖](http://www.blog.kurohicncr.top/Article/details/45261.shtml)
+- 2026-06-29 21:26 - [美以这对亲密盟友要掰了吗](https://www.share.kurohicncr.top/Article/details/292665657.shtml)
+- 2026-06-29 21:38 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/644106.shtml)
+- 2026-06-29 21:46 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/798605.shtml)
+- 2026-06-29 21:53 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/858508673017.shtml)
+- 2026-06-29 21:44 - [返利科技盘中上演“天地板”](http://www.share.minike.top/Article/details/18593628.shtml)
+- 2026-06-29 21:48 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/31376.shtml)
+- 2026-06-29 21:26 - [任泽平：AI浪潮刚刚开始](https://www.share.minike.top/Article/details/5214231.shtml)
+- 2026-06-29 21:44 - [广东水利防汛Ⅳ级应急响应结束](https://www.blog.kurohicncr.top/Article/details/032104921344.shtml)
+- 2026-06-29 21:31 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/60662203.shtml)
+- 2026-06-29 21:44 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/225291505848.shtml)
+- 2026-06-29 21:29 - [日本在最东端离岛部署导弹发射装置](http://www.blog.minike.top/Article/details/1844870962.shtml)
+- 2026-06-29 21:50 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/461166.shtml)
+- 2026-06-29 21:45 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/157875954.shtml)
+- 2026-06-29 21:53 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/4941100175.shtml)

@@ -1,57 +1,54 @@
-# 徽商期货公司三个党支部联合开展主题党日活动
+# 印尼中苏拉威西省6.7级地震已致1死38伤
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-“赓续红色基因 聚力‘十五五’新篇” ——徽商期货公司三个党支部联合开展主题党日活动 为深入传承红色革命精神，赓续红色血脉，筑牢党员理想信念根基，凝聚奋进干事创业的强大合力，深入学习贯彻党的二十大和二十届历次全会精神，以昂扬姿态聚力谱写“十五五”发展新篇章。5月26日，公司第一党支部、第二党支部、上海徽丰公司党支部联合组织全体党员、发展对象及入党积极分子，赴金寨革命博物馆开展“
+中新网雅加达6月17日电 印度尼西亚国家抗灾署16日晚通报，截至当地时间16日19时，中苏拉威西省6.7级地震已造成1人死亡、25人轻伤、13人重伤。 初步统计显示，地震已导致约110户家庭、312人受灾。至少67栋房屋受到影响，其中26栋轻度受损、6栋中度受损、12栋重度受损。 此外，地震还造成多处桥梁、公共设施、办公楼、商业场所及省级公路等受损。 印尼国家抗灾署表示，截至1
 
 ## 正文
 
-“赓续红色基因 聚力‘十五五’新篇” ——徽商期货公司三个党支部联合开展主题党日活动 为深入传承红色革命精神，赓续红色血脉，筑牢党员理想信念根基，凝聚奋进干事创业的强大合力，深入学习贯彻党的二十大和二十届历次全会精神，以昂扬姿态聚力谱写“十五五”发展新篇章。
+中新网雅加达6月17日电 印度尼西亚国家抗灾署16日晚通报，截至当地时间16日19时，中苏拉威西省6.7级地震已造成1人死亡、25人轻伤、13人重伤。
 
-5月26日，公司第一党支部、第二党支部、上海徽丰公司党支部联合组织全体党员、发展对象及入党积极分子，赴金寨革命博物馆开展“赓续红色基因 聚力‘十五五’新篇”主题党日活动，以实地研学的形式接受红色教育、淬炼党性修养。
+初步统计显示，地震已导致约110户家庭、312人受灾。
 
-金寨是著名的革命老区、将军故里，承载着厚重的红色历史和不朽的革命精神，是重要的红色教育基地。
+至少67栋房屋受到影响，其中26栋轻度受损、6栋中度受损、12栋重度受损。
 
-抵达目的地后，大家有序走进金寨革命博物馆，驻足观摩馆内珍贵的历史文物、泛黄的文献资料、生动的影像素材和详实的历史展板，在讲解员声情并茂的讲解下，系统回望革命先辈浴血奋战、艰苦奋斗的峥嵘岁月，深刻感悟革命先烈忠诚于党、无私奉献、不畏艰险、奋勇拼搏的崇高革命精神，沉浸式接受红色教育，从百年党史中汲取初心力量与奋进智慧。
+此外，地震还造成多处桥梁、公共设施、办公楼、商业场所及省级公路等受损。
 
-参观结束后，全体党员来到金寨红军广场，在烈士纪念塔下，面向党旗庄严列队，高举右拳，举行预备党员入党宣誓仪式，全体党员一同重温入党誓词。
+印尼国家抗灾署表示，截至16日下午，余震仍持续发生。
 
-铿锵有力的誓言回荡现场，字字千钧、句句铭心，全体人员再次回望入党初心、牢记党员使命，进一步坚定了听党话、跟党走的坚定信念，强化了履职担当、奋勇争先的责任意识。
+该机构正联合相关部门和地方政府持续开展灾情评估与应急处置工作，并呼吁民众保持冷静，及时关注官方发布的预警和灾情信息。
 
-大家纷纷表示，将始终以党的二十大和二十届历次全会精神为行动指引，坚守党员本色，永葆奋斗热情。
-
-此次跨支部联合主题党日活动，有效搭建了支部交流共建平台，进一步丰富了支部党建活动形式，推动红色教育走深走实。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 21:42 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-29 21:20 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-29 21:26 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-29 21:43 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-29 21:35 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-29 21:28 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-29 21:18 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-29 21:37 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 21:41 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-29 21:25 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-29 21:33 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 21:41 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 21:37 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 21:26 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-29 21:38 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-29 21:40 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-29 21:40 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 21:29 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 21:43 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-29 21:39 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 21:51 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:23 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/628703013.shtml)
-- 2026-06-29 21:27 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/7794540338.shtml)
-- 2026-06-29 21:22 - [吴建豪和老婆差20岁](https://www.share.minike.top/Article/details/536110.shtml)
-- 2026-06-29 21:28 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/349228234.shtml)
-- 2026-06-29 21:44 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/997741.shtml)
-- 2026-06-29 21:38 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/09296089.shtml)
-- 2026-06-29 21:22 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/27246516204.shtml)
-- 2026-06-29 21:28 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/241799391.shtml)
-- 2026-06-29 21:26 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/8337374.shtml)
-- 2026-06-29 21:34 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/086395.shtml)
-- 2026-06-29 21:36 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/5295702.shtml)
-- 2026-06-29 21:41 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/345975.shtml)
-- 2026-06-29 21:38 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/290004729.shtml)
-- 2026-06-29 21:23 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/450713456.shtml)
-- 2026-06-29 21:30 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.minike.top/Article/details/6731305067.shtml)
+- 2026-06-29 21:46 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.kurohicncr.top/Article/details/9382232.shtml)
+- 2026-06-29 21:29 - [杨德龙：创新药迎来新的发展机遇](http://www.blog.minike.top/Article/details/7903291.shtml)
+- 2026-06-29 21:26 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/819128228166.shtml)
+- 2026-06-29 21:35 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/7933681386.shtml)
+- 2026-06-29 21:31 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/810278239589.shtml)
+- 2026-06-29 21:45 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/48305043.shtml)
+- 2026-06-29 21:34 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/533256303867.shtml)
+- 2026-06-29 21:47 - [欧洲缘何成为变暖最快的大洲](http://www.share.kurohicncr.top/Article/details/168557941.shtml)
+- 2026-06-29 21:51 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/5223206.shtml)
+- 2026-06-29 21:48 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/07501.shtml)
+- 2026-06-29 21:30 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/80522799072.shtml)
+- 2026-06-29 21:42 - [欧洲安装一台空调要花近8000元](http://www.blog.minike.top/Article/details/333495.shtml)
+- 2026-06-29 21:31 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/5639299.shtml)
+- 2026-06-29 21:26 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/4446704.shtml)
+- 2026-06-29 21:37 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.minike.top/Article/details/49729643.shtml)

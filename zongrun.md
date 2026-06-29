@@ -1,57 +1,57 @@
-# 英唐智控又要"买买买"了：拟8亿吞下两个标的背后，一场长达十年的转型困局
+# 国家卫生健康委：严格管理麻醉药品和精神药品
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：全景财经 当一家公司以“发行股份”的方式再次准备出手收购时，你需要问的不是它买了什么，而是它过去买的，到底怎么样了？ 01 序幕：又一份发行股份购买资产预案 2025年10月底，英唐智控（300131.SZ）宣布停牌，筹划发行股份及支付现金购买资产。一
+国家卫生健康委今天召开新闻发布会，介绍麻醉药品和精神药品管理有关情况。据介绍，今年6月26日是第39个国际禁毒日。根据《中华人民共和国禁毒法》，毒品不仅包括鸦片、海洛因、冰毒(甲基苯丙胺)等物质，也包括国家规定管制的其他能够使人成瘾的麻醉药品和精神药品。国家卫生健康委提醒 合理使用麻醉药品和精神药品有助于治疗疾病、控制疼痛，不当使用则可能导致成瘾及其他副作用。上述药品必须遵医嘱
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+国家卫生健康委今天召开新闻发布会，介绍麻醉药品和精神药品管理有关情况。
 
-来源：全景财经 当一家公司以“发行股份”的方式再次准备出手收购时，你需要问的不是它买了什么，而是它过去买的，到底怎么样了？
+据介绍，今年6月26日是第39个国际禁毒日。
 
-01 序幕：又一份发行股份购买资产预案 2025年10月底，英唐智控（300131.SZ）宣布停牌，筹划发行股份及支付现金购买资产。
+根据《中华人民共和国禁毒法》，毒品不仅包括鸦片、海洛因、冰毒(甲基苯丙胺)等物质，也包括国家规定管制的其他能够使人成瘾的麻醉药品和精神药品。
 
-一个月后预案出炉：公司拟以发行股份+现金的方式，拿下桂林光隆集成科技100%股权和上海奥简微电子100%股权，交易总对价约8.08亿元，同时向不超过35名特定投资者募集配套资金。
+国家卫生健康委提醒 合理使用麻醉药品和精神药品有助于治疗疾病、控制疼痛，不当使用则可能导致成瘾及其他副作用。
 
-表面叙事非常熟悉且合乎逻辑——“从低毛利的电子元器件分销商，向高壁垒的半导体IDM企业华丽转身”。
+上述药品必须遵医嘱凭处方购买、规范使用，使用过程中需按医嘱定期复诊，不得擅自购买使用或调整用药剂量。
 
-从交易草案看，光隆集成主攻光开关、光保护模块和OCS光路交换机等，广泛应用于光网络保护、测试系统、AI智算中心、数据中心光路调度、光传感、激光雷达等领域。
+过期和剩余的麻醉药品和精神药品应当按规定交回医疗机构，不得向他人转售。
 
-奥简微电子则聚焦电源管理类模拟芯片，涵盖线性稳压器、降压转换器、升压转换器、升降压转换器等，广泛应用于消费电子、通信电子、医疗电子等，听起来个个踩在AI算力、光通信、国产替代的风口上。
+骗购、套开、转售麻醉药品和精神药品可能涉嫌毒品犯罪，并要承担相应法律责任。
 
-英唐智控表示，与标的公司在市场、产品和技术等方面存在显著协同。
+愈美片、普瑞巴林等部分药品虽未纳入麻醉药品和精神药品目录管理，但同样具有成瘾性风险，不合理使用也可能对神经、呼吸系统造成损害，甚至危及生命。
 
 ## 相关推荐
 
-- 2026-06-29 21:23 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-29 21:24 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 21:31 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-29 21:38 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-29 21:20 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-29 21:27 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 21:38 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 21:47 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-29 21:36 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-29 21:45 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 21:33 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 21:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-29 21:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-29 21:29 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-29 21:28 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 21:27 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-29 21:34 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 21:35 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-29 21:42 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-29 21:30 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-29 21:33 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-29 21:38 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:42 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/02342.shtml)
-- 2026-06-29 21:39 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/85513492215.shtml)
-- 2026-06-29 21:40 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/976036092426.shtml)
-- 2026-06-29 21:44 - [杨德龙：创新药迎来新的发展机遇](https://www.share.minike.top/Article/details/813196460130.shtml)
-- 2026-06-29 21:33 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/63094257.shtml)
-- 2026-06-29 21:25 - [山东发布山洪灾害气象预警](http://www.blog.kurohicncr.top/Article/details/7277371477.shtml)
-- 2026-06-29 21:34 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/635089742.shtml)
-- 2026-06-29 21:45 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/0231070840.shtml)
-- 2026-06-29 21:26 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/2151995.shtml)
-- 2026-06-29 21:29 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/36564770.shtml)
-- 2026-06-29 21:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/898052507.shtml)
-- 2026-06-29 21:19 - [18岁高二体育生训练晕倒后离世](http://www.share.kurohicncr.top/Article/details/7795445110.shtml)
-- 2026-06-29 21:36 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.kurohicncr.top/Article/details/9482278148.shtml)
-- 2026-06-29 21:26 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/26456.shtml)
-- 2026-06-29 21:20 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/1735771492.shtml)
+- 2026-06-29 21:51 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/920918647.shtml)
+- 2026-06-29 21:49 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/24119855739.shtml)
+- 2026-06-29 21:52 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/77277.shtml)
+- 2026-06-29 21:29 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/75840208.shtml)
+- 2026-06-29 21:37 - [店员光脚踩入盆中清洗土豆](http://www.share.kurohicncr.top/Article/details/83856907223.shtml)
+- 2026-06-29 21:34 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/62252.shtml)
+- 2026-06-29 21:51 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/2043233871.shtml)
+- 2026-06-29 21:44 - [记者暗访养老机构消防安全](http://www.blog.kurohicncr.top/Article/details/91967423.shtml)
+- 2026-06-29 21:24 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/823007028675.shtml)
+- 2026-06-29 21:27 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/08910142.shtml)
+- 2026-06-29 21:37 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/80915.shtml)
+- 2026-06-29 21:46 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/879306.shtml)
+- 2026-06-29 21:51 - [美国一牛仔表演发生事故](http://www.blog.minike.top/Article/details/751683670847.shtml)
+- 2026-06-29 21:32 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/932811.shtml)
+- 2026-06-29 21:24 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/3423203457.shtml)

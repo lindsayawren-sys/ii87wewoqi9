@@ -1,57 +1,56 @@
-# 石油即将“畅行”霍尔木兹？白宫哈塞特预测：一两个月内！
+# 华泰期货：碳酸锂价格震荡走弱，下游成交量环比提升
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-转自：财联社 财联社6月1日讯（编辑 黄君芝）美东时间周日（5月31日），美国白宫首席经济顾问凯文·哈塞特（Kevin Hassett）预测，石油运输将在“一两个月内”通过霍尔木兹海峡，尽管该海峡因美伊冲突一直处于停滞状态。 哈塞特在一档节目中表示，现在通过海峡的“交通流量比两周前要大得多”。 “所以，巴基斯坦和印度那些炼油厂大多停产的国家，最终重新开始炼油，”他说：“他们恢复
+来源：华泰期货 作者： 师橙 市场分析 2026-06-16，碳酸锂主力合约2609开于173800元/吨，收于169980元/吨，当日收盘价较昨日结算价变化-2.98%。当日成交量为187954手，持仓量为449952手，前一交易日持仓量450397手，根据SMM现货报价，目前基差为-460元/吨（电碳均价-期货）。当日碳酸锂仓单53285手，较上个交易日变化-600手。 碳
 
 ## 正文
 
-转自：财联社 财联社6月1日讯（编辑 黄君芝）美东时间周日（5月31日），美国白宫首席经济顾问凯文·哈塞特（Kevin Hassett）预测，石油运输将在“一两个月内”通过霍尔木兹海峡，尽管该海峡因美伊冲突一直处于停滞状态。
+来源：华泰期货 作者： 师橙 市场分析 2026-06-16，碳酸锂主力合约2609开于173800元/吨，收于169980元/吨，当日收盘价较昨日结算价变化-2.98%。
 
-哈塞特在一档节目中表示，现在通过海峡的“交通流量比两周前要大得多”。
+当日成交量为187954手，持仓量为449952手，前一交易日持仓量450397手，根据SMM现货报价，目前基差为-460元/吨（电碳均价-期货）。
 
-“所以，巴基斯坦和印度那些炼油厂大多停产的国家，最终重新开始炼油，”他说：“他们恢复炼油厂的生产，成品油价格就会在全球范围内下降，然后这种趋势会蔓延开来。
+当日碳酸锂仓单53285手，较上个交易日变化-600手。
 
-但实际上，炼油厂完全恢复运转还需要一到两个月的时间。
+碳酸锂现货：根据SMM数据，电池级碳酸锂报价166000-172000元/吨，较前一交易日变化-1500元/吨，工业级碳酸锂报价162000-168000元/吨，较前一交易日变化-1500元/吨。
 
-” 自2月底冲突爆发以来，伊朗封锁霍尔木兹海峡导致能源价格飙升。
+6%锂精矿价格2495美元/吨，较前一日变化-10美元/吨。
 
-哈塞特表示，这些价格“远没有许多人预测的那么高，部分原因是人们已经找到了应对之策”。
+供应：据 SMM 统计，碳酸锂周度总产量26429吨，环比+85吨；其中辉石产碳酸锂15445吨，环比+230吨；云母产碳酸锂3140吨，环比+90吨；盐湖产碳酸锂4630吨，环比-315吨；回收产碳酸锂3214吨，环比+80吨。
 
-“沙特阿拉伯有一条大型输油管道，可以输送更多石油而无需经过海湾地区，”他补充道。
+库存：根据SMM最新统计数据，现货库存为97829吨，环比-857吨。
 
-哈塞特还称，尽管战争对能源价格和经济造成了影响，引发了焦虑，但美国人对自己的经济状况仍持乐观态度。
+其中冶炼厂库存为16494吨，环比-21吨；下游库存为46623吨，环比+194吨；其他库存为34712吨，环比-1030吨。
 
 ## 相关推荐
 
-- 2026-06-29 21:38 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-29 21:32 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-29 21:32 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-29 21:36 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 21:26 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 21:31 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 21:32 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-29 21:31 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 21:36 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-29 21:23 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-29 21:19 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 21:25 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 21:35 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 21:41 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 21:42 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 21:37 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 21:35 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 21:27 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 21:28 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-29 21:46 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-29 21:42 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:35 - [网约车出事故平台拒赔称只是中介](https://www.blog.minike.top/Article/details/64788.shtml)
-- 2026-06-29 21:38 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/34303061.shtml)
-- 2026-06-29 21:36 - [周生如故](https://www.blog.kurohicncr.top/Article/details/77568127.shtml)
-- 2026-06-29 21:30 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/03985784655.shtml)
-- 2026-06-29 21:35 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/882902.shtml)
-- 2026-06-29 21:46 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/9083732.shtml)
-- 2026-06-29 21:20 - [乔家的儿女](http://www.blog.minike.top/Article/details/1584959.shtml)
-- 2026-06-29 21:45 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/9329828316.shtml)
-- 2026-06-29 21:26 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/76775.shtml)
-- 2026-06-29 21:32 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/05329192706.shtml)
-- 2026-06-29 21:32 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/783753994514.shtml)
-- 2026-06-29 21:44 - [LPL第三赛段赛制公布](http://www.blog.kurohicncr.top/Article/details/476416674650.shtml)
-- 2026-06-29 21:39 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/7546621.shtml)
-- 2026-06-29 21:32 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/02668.shtml)
-- 2026-06-29 21:33 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/14865179435.shtml)
+- 2026-06-29 21:46 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/949621112.shtml)
+- 2026-06-29 21:35 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/01603.shtml)
+- 2026-06-29 21:30 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/11682.shtml)
+- 2026-06-29 21:32 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/948343.shtml)
+- 2026-06-29 21:27 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/177231700.shtml)
+- 2026-06-29 21:49 - [直击委内瑞拉加拉加斯救援现场](https://www.share.minike.top/Article/details/93727972277.shtml)
+- 2026-06-29 21:27 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/3603882.shtml)
+- 2026-06-29 21:33 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/595724515.shtml)
+- 2026-06-29 21:47 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/7168164434.shtml)
+- 2026-06-29 21:25 - [曝iPhone涨价后不会再降](http://www.blog.kurohicncr.top/Article/details/479276612.shtml)
+- 2026-06-29 21:46 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/66520153.shtml)
+- 2026-06-29 21:46 - [王冰冰向全网安利哈兰德](http://www.blog.minike.top/Article/details/540408.shtml)
+- 2026-06-29 21:32 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/50095.shtml)
+- 2026-06-29 21:41 - [葫芦岛居民楼闪爆事故致3死](https://www.share.minike.top/Article/details/297505.shtml)
+- 2026-06-29 21:52 - [哈兰德玩游戏连女友都不让着](https://www.blog.kurohicncr.top/Article/details/472852136995.shtml)

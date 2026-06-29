@@ -1,60 +1,57 @@
-# 水利部：6月1日起我国全面进入汛期 南方地区进入主汛期
+# 南方多地强降雨持续闷热感加剧 东北华北雨水送清凉
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-中新网6月1日电 据水利部网站消息，6月1日起，我国全面进入汛期，南方地区进入主汛期。据预报，6月份，东北北部、江南东部、华南、西南东南部等地降水偏多1～2成；华北南部、西北北部和中东部、黄淮、江淮大部等地降水偏少1～2成；其余地区降水接近常年。长江中游洞庭湖、鄱阳湖水系部分主要河流，珠江流域西江、韩江，浙江钱塘江及福建闽江等河流可能发生超警洪水。水利部强化风险隐患排查整治，坚
+中国天气网讯 未来三天(6月16日至18日)，南方大范围降雨持续，强降雨区域将逐渐北抬至长江中下游地区，伴随较大湿度，多地闷热感加剧。在北方，东北、华北等地受频繁降雨影响，今明天体感较凉爽，后天起将迎来升温，而新疆、内蒙古西部、陕西关中到黄淮等地高温天气发展，需注意防暑。 华南等地强降雨持续需警惕次生灾害 后天起南方主雨带北抬 昨天，我国降雨主要出现在西南、华南以及东北、华北两
 
 ## 正文
 
-中新网6月1日电 据水利部网站消息，6月1日起，我国全面进入汛期，南方地区进入主汛期。
+中国天气网讯 未来三天(6月16日至18日)，南方大范围降雨持续，强降雨区域将逐渐北抬至长江中下游地区，伴随较大湿度，多地闷热感加剧。
 
-据预报，6月份，东北北部、江南东部、华南、西南东南部等地降水偏多1～2成；华北南部、西北北部和中东部、黄淮、江淮大部等地降水偏少1～2成；其余地区降水接近常年。
+在北方，东北、华北等地受频繁降雨影响，今明天体感较凉爽，后天起将迎来升温，而新疆、内蒙古西部、陕西关中到黄淮等地高温天气发展，需注意防暑。
 
-长江中游洞庭湖、鄱阳湖水系部分主要河流，珠江流域西江、韩江，浙江钱塘江及福建闽江等河流可能发生超警洪水。
+华南等地强降雨持续需警惕次生灾害 后天起南方主雨带北抬 昨天，我国降雨主要出现在西南、华南以及东北、华北两片区域，其中广东、广西等地雨势猛烈。
 
-水利部强化风险隐患排查整治，坚持24小时值班值守，密切监视雨水情，滚动会商研判，及时发布预警、启动应急响应和相关调度指挥机制，科学调度流域水工程，有力应对南方地区等多轮强降雨过程。
+监测显示，昨天8时至今天6时，福建东部、广东中东部、广西南部、云南东部、贵州西南部及台湾岛等地部分地区出现暴雨或大暴雨；黑龙江南部、吉林中部、辽宁中西部、河北中部等地部分地区出现大雨或暴雨，局地大暴雨。
 
-随着全面进入汛期，洪涝灾害风险进一步增加，防汛形势严峻复杂。
+今明两天，南方强降雨依然集中在华南一带，后天起，随着副热带高压西进、北抬，冷暖气流对峙区域将转移到长江中下游地区，主雨带也将随之北抬。
 
-水利部树牢底线思维、极限思维，锚定“人员不伤亡、水库不垮坝、重要堤防不决口、重要基础设施不受冲击”和“确保城乡供水安全、确保灌区农作物时令灌溉用水需求、确保规模化养殖和大牲畜用水安全”目标，迅速进入主汛期工作状态，落实落细各项防御措施。
+在北方，未来三天东北、华北等地阵雨或雷阵雨天气依然频繁，局地需防范强对流天气。
 
-一是加强监测预报预警，充分利用雨水情监测预报“三道防线”和数字孪生水利体系建设成果，进一步延长洪水预见期、提高洪水预报精准度。
+中央气象台预计，今天，广东中南部、广西东南部和西部、海南岛东北部、福建东南部、云南东部和西北部、四川南部、西藏东南部等地有大到暴雨，其中，广东西南部、珠江口及以东沿海、广西东南部、福建东南部、云南东部等地部分地区有大暴雨，局地特大暴雨；北京西部和东北部、天津北部、河北北部、辽宁西部和北部、吉林中部等地部分地区有大到暴雨，局地大暴雨。
 
-二是强化调度指挥机制，及时启动应急响应，落实与响应等级匹配的各项防御措施，派出工作组、专家组赴一线协助指导。
+明天，华南中南部、四川盆地东部、云南东北部、西藏东南部等地部分地区有大到暴雨，其中，广西东南部沿海、广东西南部和珠江口等地部分地区有大暴雨，广西东南部沿海等地局地特大暴雨。
 
 ## 相关推荐
 
-- 2026-06-29 21:30 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 21:36 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-29 21:36 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-29 21:23 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-29 21:28 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-29 21:32 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 21:35 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-29 21:46 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 21:19 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 21:24 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-29 21:34 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-29 21:37 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 21:32 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-29 21:22 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-29 21:43 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-29 21:42 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-29 21:35 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 21:31 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 21:26 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-29 21:31 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 21:49 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 21:34 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 21:29 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-29 21:34 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-29 21:31 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:35 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/725080673.shtml)
-- 2026-06-29 21:43 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/01873.shtml)
-- 2026-06-29 21:40 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/93874607.shtml)
-- 2026-06-29 21:33 - [王楚钦称抽签结果出来心情不好](http://www.blog.minike.top/Article/details/98712.shtml)
-- 2026-06-29 21:27 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/593631973.shtml)
-- 2026-06-29 21:45 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/06901.shtml)
-- 2026-06-29 21:41 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/277833907485.shtml)
-- 2026-06-29 21:42 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/71359385.shtml)
-- 2026-06-29 21:46 - [《新闻联播》正在直播](https://www.blog.minike.top/Article/details/973317.shtml)
-- 2026-06-29 21:19 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.blog.kurohicncr.top/Article/details/3956109113.shtml)
-- 2026-06-29 21:43 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/060518.shtml)
-- 2026-06-29 21:24 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/06186.shtml)
-- 2026-06-29 21:29 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/3625072405.shtml)
-- 2026-06-29 21:44 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/29280.shtml)
-- 2026-06-29 21:33 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/0450063.shtml)
+- 2026-06-29 21:24 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/28969.shtml)
+- 2026-06-29 21:35 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/9719417922.shtml)
+- 2026-06-29 21:48 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/070848968.shtml)
+- 2026-06-29 21:52 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/28450268159.shtml)
+- 2026-06-29 21:46 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/43046830409.shtml)
+- 2026-06-29 21:43 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/5312006.shtml)
+- 2026-06-29 21:27 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/384382.shtml)
+- 2026-06-29 21:47 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/3538085.shtml)
+- 2026-06-29 21:42 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/408851.shtml)
+- 2026-06-29 21:41 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/4960732722.shtml)
+- 2026-06-29 21:32 - [郑钦文谈再战西尼亚科娃](https://www.blog.kurohicncr.top/Article/details/31112243275.shtml)
+- 2026-06-29 21:39 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/546048297.shtml)
+- 2026-06-29 21:42 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.minike.top/Article/details/80779692198.shtml)
+- 2026-06-29 21:37 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/78427355.shtml)
+- 2026-06-29 21:43 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/065882.shtml)

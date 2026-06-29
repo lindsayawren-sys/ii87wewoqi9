@@ -1,57 +1,49 @@
-# 聚焦可玩性食品等 两部门发布案例保护未成年人权益
+# 特朗普称美伊协议谈判进入第二阶段
 
-> 更新时间：2026-06-29 21:48:02 UTC+8
+> 更新时间：2026-06-29 21:54:02 UTC+8
 
 ## 摘要
 
-最高人民法院、国家市场监督管理总局6月2日联合发布一批未成年人权益保护典型案例，在其中一起案例中，明确产品缺陷致未成年人遭受损害，生产者应承担侵权责任。 小刘（9岁）购买某食品公司生产的针筒糖食用，并使用针筒往口中注水玩耍，误将针筒封堵件吸入嘴中导致窒息死亡。小刘的父母将某食品公司诉至法院，请求某食品公司赔偿医疗费、死亡赔偿金、丧葬费等。 经查明，该针筒糖为凝胶糖果，采用仿注射
+新华社巴黎6月16日电 美国总统特朗普16日称，美国和伊朗已成功在线上签署谅解备忘录，现在美伊协议谈判已进入第二阶段，“这应该比第一阶段更容易”。他还称，美国不会在伊朗投入任何资金。
 
 ## 正文
 
-最高人民法院、国家市场监督管理总局6月2日联合发布一批未成年人权益保护典型案例，在其中一起案例中，明确产品缺陷致未成年人遭受损害，生产者应承担侵权责任。
+新华社巴黎6月16日电 美国总统特朗普16日称，美国和伊朗已成功在线上签署谅解备忘录，现在美伊协议谈判已进入第二阶段，“这应该比第一阶段更容易”。
 
-小刘（9岁）购买某食品公司生产的针筒糖食用，并使用针筒往口中注水玩耍，误将针筒封堵件吸入嘴中导致窒息死亡。
-
-小刘的父母将某食品公司诉至法院，请求某食品公司赔偿医疗费、死亡赔偿金、丧葬费等。
-
-经查明，该针筒糖为凝胶糖果，采用仿注射型塑料容纳管包装（含管道、封堵件、活塞等部件），外包装注明0至3岁禁用及食用方法等，但单支产品标签未标注食用方法。
-
-经鉴定，针筒糖属预包装食品，但未按《食品安全国家标准 预包装食品标签通则》推荐要求标示食用方法；包装物（即针筒）具有可玩性，但其管帽在儿童常见玩耍使用状态下，存在被误吞的可能性。
-
-审理法院认为，案涉针筒糖标注为食品，具有可玩性，应当同时符合儿童玩具标准和食品安全标准。
-
-但该针筒糖存在设计缺陷，某食品公司作为生产者，应当对小刘的死亡承担相应赔偿责任。
-
-同时，刘某和王某作为小刘的监护人，未尽到教育、管理和保护的监护职责，应自行承担一定责任。
+他还称，美国不会在伊朗投入任何资金。
 
 ## 相关推荐
 
-- 2026-06-29 21:46 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-29 21:29 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-29 21:46 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 21:43 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-29 21:28 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-29 21:22 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 21:41 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 21:42 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 21:30 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-29 21:35 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 21:26 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-29 21:24 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 21:29 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-29 21:31 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 21:41 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 21:31 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-29 21:39 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 21:41 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 21:31 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-29 21:37 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 21:49 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 21:33 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 21:29 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 21:36 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 21:49 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-29 21:44 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:25 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/97893.shtml)
-- 2026-06-29 21:32 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/8476182.shtml)
-- 2026-06-29 21:37 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/7274457050.shtml)
-- 2026-06-29 21:33 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/311196.shtml)
-- 2026-06-29 21:26 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/84387.shtml)
-- 2026-06-29 21:32 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.minike.top/Article/details/32000729.shtml)
-- 2026-06-29 21:38 - [吴建豪和老婆差20岁](https://www.share.kurohicncr.top/Article/details/44083371.shtml)
-- 2026-06-29 21:18 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/815461.shtml)
-- 2026-06-29 21:22 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.kurohicncr.top/Article/details/1224441447.shtml)
-- 2026-06-29 21:41 - [谁在推动“成都造”影视持续出圈](http://www.blog.minike.top/Article/details/488166201.shtml)
-- 2026-06-29 21:40 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/4600039.shtml)
-- 2026-06-29 21:23 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/29641713842.shtml)
-- 2026-06-29 21:34 - [《新闻联播》正在直播](http://www.blog.kurohicncr.top/Article/details/92084527.shtml)
-- 2026-06-29 21:34 - [葫芦岛居民楼闪爆事故致3死](http://www.share.minike.top/Article/details/36112087979.shtml)
-- 2026-06-29 21:24 - [女生学医适合选什么专业](https://www.blog.kurohicncr.top/Article/details/418296996829.shtml)
+- 2026-06-29 21:33 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/9507502684.shtml)
+- 2026-06-29 21:33 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/15414232.shtml)
+- 2026-06-29 21:40 - [欧洲人买空调难点在哪](http://www.blog.minike.top/Article/details/107362816.shtml)
+- 2026-06-29 21:29 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/18845677959.shtml)
+- 2026-06-29 21:28 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/905659936.shtml)
+- 2026-06-29 21:44 - [恋与深空制作组回应争议](http://www.share.minike.top/Article/details/6275634.shtml)
+- 2026-06-29 21:30 - [国际清算银行警告AI投资热潮](https://www.blog.minike.top/Article/details/7904110621.shtml)
+- 2026-06-29 21:24 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/116892177.shtml)
+- 2026-06-29 21:42 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/022795785.shtml)
+- 2026-06-29 21:24 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.kurohicncr.top/Article/details/0306589.shtml)
+- 2026-06-29 21:52 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/7631242.shtml)
+- 2026-06-29 21:45 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/397268160.shtml)
+- 2026-06-29 21:46 - [林逸向方筱然求婚了](http://www.share.kurohicncr.top/Article/details/14887461.shtml)
+- 2026-06-29 21:49 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/2982980.shtml)
+- 2026-06-29 21:52 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/879660905856.shtml)
