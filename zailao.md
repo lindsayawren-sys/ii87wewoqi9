@@ -1,61 +1,56 @@
-# 江风里听交响 “乐汇两江”点亮重庆艺术之夜
+# 易趣网正式拒绝游戏驿站550亿美元并购提案
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-中新网重庆6月1日电 (记者 钟旖)两江之畔，晚风之中，交响与歌声相和。5月31日晚，作为第四届重庆都市艺术节“江·岸艺术现场”的重头戏之一，“乐汇两江”城市音乐会在弹子石广场奏响。 重庆交响乐团携手王丽达、谭学胜、张宇、沈晶晶、姜明、刘广、赵丹妮等声乐名家，以壮阔的江岸夜景为幕，为市民和游客献上一场高雅与烟火交融的视听盛宴。 没有传统剧院的围墙，只有晚风、江涛和满天星光。20
+美国电商平台易趣网（eBay）周二正式驳回了美国视频游戏零售商游戏驿（GameStop）价值约550亿美元的现金加股票并购提案。易趣网方面对此明确表态，称该项收购提议“既不可信也缺乏吸引力”。 游戏驿站于上周单方面提出上述并购意向。鉴于易趣网的企业体量约为游戏驿站的四倍，此项“蛇吞象”式的并购案引发了华尔街的广泛质疑。市场普遍对游戏驿站的资金筹措能力及其可行性持高度怀疑态度。
 
 ## 正文
 
-中新网重庆6月1日电 (记者 钟旖)两江之畔，晚风之中，交响与歌声相和。
+美国电商平台易趣网（eBay）周二正式驳回了美国视频游戏零售商游戏驿（GameStop）价值约550亿美元的现金加股票并购提案。
 
-5月31日晚，作为第四届重庆都市艺术节“江·岸艺术现场”的重头戏之一，“乐汇两江”城市音乐会在弹子石广场奏响。
+易趣网方面对此明确表态，称该项收购提议“既不可信也缺乏吸引力”。
 
-重庆交响乐团携手王丽达、谭学胜、张宇、沈晶晶、姜明、刘广、赵丹妮等声乐名家，以壮阔的江岸夜景为幕，为市民和游客献上一场高雅与烟火交融的视听盛宴。
+游戏驿站于上周单方面提出上述并购意向。
 
-没有传统剧院的围墙，只有晚风、江涛和满天星光。
+鉴于易趣网的企业体量约为游戏驿站的四倍，此项“蛇吞象”式的并购案引发了华尔街的广泛质疑。
 
-20时整，重庆交响乐团以一曲欢快热烈的《蝙蝠序曲》拉开序幕，弦乐与铜管交相呼应，瞬间点燃现场气氛。
+市场普遍对游戏驿站的资金筹措能力及其可行性持高度怀疑态度。
 
-这支深耕“交响乐中国化、重庆化”的乐团，展现出扎实的艺术功底与昂扬的时代风貌。
+易趣网在声明中表示，公司已会同法律与财务顾问团队对该提案进行了全面且审慎的评估。
 
-音乐会曲目中西合璧、精彩纷呈，既有《九儿》《天路》《亲吻祖国》等民族金曲，也有《春之声圆舞曲》《斗牛士之歌》等世界名篇。
+易趣网董事长保罗·普雷斯勒（Paul Pressler）在当日公开的致游戏驿站函件中，详细列明了否决该提案的核心考量。
 
-张宇一曲《父亲的草原母亲的河》清澈悠远，沈晶晶演唱《天上雾腾腾》尽显民歌韵味，谭学胜献唱《天路》高亢磅礴，赵丹妮的花腔演绎华丽灵动，刘广带来《贝加尔湖畔》温暖醇厚，王丽达以《亲吻祖国》《共圆中国梦》将全场气氛推向高潮……每位艺术家都以独特的声音，在江风中留下难忘的回响。
+他强调，管理层对该并购案的融资安排及确定性存在严重关切，并担忧此项交易将导致易趣网的债务负担被动大幅增加。
 
 ## 相关推荐
 
-- 2026-06-29 23:48 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 23:52 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-29 23:24 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 23:35 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-29 23:41 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-29 23:28 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-29 23:35 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 23:46 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-29 23:36 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 23:37 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 23:37 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 23:32 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-29 23:37 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 23:47 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-29 23:30 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 23:37 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 23:53 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 23:34 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-29 23:33 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 23:58 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 23:43 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-29 23:58 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-29 23:32 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-29 23:33 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 23:46 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:34 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/39362772.shtml)
-- 2026-06-29 23:49 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/029032.shtml)
-- 2026-06-29 23:52 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.minike.top/Article/details/07681736793.shtml)
-- 2026-06-29 23:47 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/6707111.shtml)
-- 2026-06-29 23:42 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/609941714.shtml)
-- 2026-06-29 23:26 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/38236280.shtml)
-- 2026-06-29 23:49 - [美人鱼](http://www.share.kurohicncr.top/Article/details/97534137.shtml)
-- 2026-06-29 23:25 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/973483716.shtml)
-- 2026-06-29 23:29 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/528383138025.shtml)
-- 2026-06-29 23:41 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/5399554701.shtml)
-- 2026-06-29 23:49 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/154596.shtml)
-- 2026-06-29 23:35 - [世界杯](https://www.share.kurohicncr.top/Article/details/621323022.shtml)
-- 2026-06-29 23:32 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/26237.shtml)
-- 2026-06-29 23:42 - [美股](http://www.share.kurohicncr.top/Article/details/498877053.shtml)
-- 2026-06-29 23:48 - [汪苏泷年度歌手](http://www.share.minike.top/Article/details/160471831.shtml)
+- 2026-06-29 23:54 - [山东发布山洪灾害气象预警](https://www.share.minike.top/Article/details/11053.shtml)
+- 2026-06-29 23:55 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/404268525.shtml)
+- 2026-06-29 23:52 - [周生如故](http://www.share.kurohicncr.top/Article/details/85207.shtml)
+- 2026-06-29 23:34 - [明星大侦探第四季](http://www.share.minike.top/Article/details/7617190137.shtml)
+- 2026-06-29 23:55 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/221497.shtml)
+- 2026-06-29 23:40 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/557377.shtml)
+- 2026-06-29 23:33 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/06313338553.shtml)
+- 2026-06-29 23:38 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/993403466846.shtml)
+- 2026-06-29 23:38 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/4713244349.shtml)
+- 2026-06-29 23:50 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/81402493251.shtml)
+- 2026-06-29 23:34 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/6845504.shtml)
+- 2026-06-29 23:52 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.kurohicncr.top/Article/details/2415726.shtml)
+- 2026-06-29 23:57 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/4256913947.shtml)
+- 2026-06-29 23:38 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/72538.shtml)
+- 2026-06-29 23:31 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/8924647801.shtml)

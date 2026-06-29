@@ -1,58 +1,61 @@
-# 美财长贝森特暗示对伊制裁可能调整 取决于谈判进展
+# 5月13日财经早餐：美联储年内加息概率攀升，金价承压，油价飙升近4%
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-美国财长斯科特·贝森特暗示，特朗普政府可以移除对伊朗的部分制裁，取决于当前与德黑兰方面对峙局势的进展情况。 当被问及美国是否会维持对伊朗的金融和经济封锁时，贝森特回答说：“我们拭目以待。”他周五在加州Simi Valley举行的里根国家经济论坛发表演讲后的问答环节中表示。 贝森特表示：“任何措施的解除都将循序渐进”。他补充称，任何包含放松制裁的协议都将包含“伊朗政权必须达到的里
+文章来源：汇通财经 周三（北京时间5月13日）亚市早盘，现货黄金交投于4718.40美元/盎司附近，金价周二承压，市场对通胀及全球利率可能上升的担忧加剧，美联储年内加息概率升至34.7%；美原油交投于102美元/桶附近，油价周二上涨近4%，美伊博弈持续，伊朗称如果再次遭到袭击，或将铀浓缩丰度提升至90%。 日内重点关注 股市 美股标普500指数和纳斯达克指数周二收跌，分别下跌0
 
 ## 正文
 
-美国财长斯科特·贝森特暗示，特朗普政府可以移除对伊朗的部分制裁，取决于当前与德黑兰方面对峙局势的进展情况。
+文章来源：汇通财经 周三（北京时间5月13日）亚市早盘，现货黄金交投于4718.40美元/盎司附近，金价周二承压，市场对通胀及全球利率可能上升的担忧加剧，美联储年内加息概率升至34.7%；美原油交投于102美元/桶附近，油价周二上涨近4%，美伊博弈持续，伊朗称如果再次遭到袭击，或将铀浓缩丰度提升至90%。
 
-当被问及美国是否会维持对伊朗的金融和经济封锁时，贝森特回答说：“我们拭目以待。
+日内重点关注 股市 美股标普500指数和纳斯达克指数周二收跌，分别下跌0.16%和0.71%，从历史高位回落，道琼斯指数则微涨0.11%。
 
-”他周五在加州Simi Valley举行的里根国家经济论坛发表演讲后的问答环节中表示。
+4月消费者价格指数涨幅超出预期，加之伊朗局势导致美伊停火协议日益脆弱，投资者在财报季接近尾声时获利了结。
 
-贝森特表示：“任何措施的解除都将循序渐进”。
+科技股疲软拖累纳指，而医疗保健股带动道指上涨。
 
-他补充称，任何包含放松制裁的协议都将包含“伊朗政权必须达到的里程碑”。
+通胀数据受伊朗战争封锁霍尔木兹海峡影响，市场对美联储今年降息的期望几乎破灭，加息概率上升，CME FedWatch工具显示12月加息25个基点的概率为30.5%。
 
-他还表示，如果不能很快达成协议，政府可能加大制裁。
+个股方面，Zebra Technologies上调年度销售增长预期后大涨11.4%；Humana因目标价上调36%上涨7.7%；GameStop遭eBay拒绝收购要约后下跌3.5%；Hims & Hers Health因营收不及预期且意外亏损暴跌14.1%；Venture Global上调核心利润预期大涨14.2%。
 
-自特朗普在第一个总统任期内退出限制伊朗核计划的协议以来，伊朗一直受到美国的经济制裁。
+金市 金价周二承压下跌，现货黄金下跌0.41%至每盎司4715.07美元，主要因伊朗和平协议希望破灭推高油价，加剧市场对通胀及全球利率可能上升的担忧。
 
-德黑兰始终将解除制裁列为与美国达成协议的条件之一。
+道明证券策略师表示，油价上涨增加了美联储等央行可能不得不加息应对滞胀的风险，从而对黄金构成压力。
 
 ## 相关推荐
 
-- 2026-06-29 23:30 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 23:29 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-29 23:49 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 23:37 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-29 23:30 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 23:48 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-29 23:47 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 23:48 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-29 23:29 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-29 23:44 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 23:37 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 23:24 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 23:30 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-29 23:35 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-29 23:43 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 23:37 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-29 23:37 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-29 23:53 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 23:32 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 23:41 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 23:55 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 23:54 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-29 23:57 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 23:32 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 23:42 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 23:40 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 23:48 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:45 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/733695840153.shtml)
-- 2026-06-29 23:26 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/1749821.shtml)
-- 2026-06-29 23:36 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/809888.shtml)
-- 2026-06-29 23:33 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/83381190481.shtml)
-- 2026-06-29 23:29 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/3258043.shtml)
-- 2026-06-29 23:52 - [恋与深空 日服](https://www.blog.minike.top/Article/details/73740874.shtml)
-- 2026-06-29 23:25 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/11508731.shtml)
-- 2026-06-29 23:30 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/13125542.shtml)
-- 2026-06-29 23:27 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/237872378.shtml)
-- 2026-06-29 23:39 - [送你一朵小红花](http://www.share.minike.top/Article/details/885171066.shtml)
-- 2026-06-29 23:33 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/610351001.shtml)
-- 2026-06-29 23:36 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/56272661297.shtml)
-- 2026-06-29 23:36 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/464496651.shtml)
-- 2026-06-29 23:26 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/37446747516.shtml)
-- 2026-06-29 23:31 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/43624706.shtml)
+- 2026-06-29 23:49 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/98220352.shtml)
+- 2026-06-29 23:38 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/97089.shtml)
+- 2026-06-29 23:39 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/06385125.shtml)
+- 2026-06-29 23:40 - [美人鱼](http://www.blog.minike.top/Article/details/68360703.shtml)
+- 2026-06-29 23:58 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/328938045130.shtml)
+- 2026-06-29 23:55 - [时光音乐会](http://www.blog.minike.top/Article/details/107947927244.shtml)
+- 2026-06-29 23:34 - [速度与激情9](https://www.share.minike.top/Article/details/517692118.shtml)
+- 2026-06-29 23:30 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/02788694162.shtml)
+- 2026-06-29 23:35 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/814281088587.shtml)
+- 2026-06-29 23:40 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/97421.shtml)
+- 2026-06-29 23:44 - [扬名立万](https://www.share.kurohicncr.top/Article/details/5821086.shtml)
+- 2026-06-29 23:33 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/489083474489.shtml)
+- 2026-06-29 23:45 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.kurohicncr.top/Article/details/77121285.shtml)
+- 2026-06-29 23:53 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/7507834.shtml)
+- 2026-06-29 23:31 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/005734760.shtml)

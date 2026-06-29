@@ -1,56 +1,57 @@
-# 美联储官员保尔森：通胀方面并无结构性变化
+# 美银证券：敏实集团目标价升至57港元 重申“买入”评级
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-费城联储银行行长保尔森表示，美国经济正面临一系列通胀冲击，她没有看到结构性变化的迹象。 “我没有看到通胀出现结构性变化。我看到的是一系列冲击以通胀的形式体现出来，”保尔森周五在一次活动上表示。 保尔森表示，全球经济正在偏离自由贸易和全球市场，不再像过去那样在成本最低的地方进行生产。 保尔森说：“世界已经不再将这种模式视为理想结果，这正在改变供应链。这改变了对生产过程产生冲击的因
+美银证券发布研报称，敏实集团（00425）在2026年将实现可持续盈利增长，其新业务包括机器人、固体氧化物燃料电池（SOFC）及液冷系统进展良好。该行将敏实目标价由52港元上调至57港元，重申“买入”评级。 管理层表示，机器人业务预计在2026年为公司贡献5亿元人民币（下同）销售额，包括零部件销售及机器人组装。此外，公司已开始SOFC解决方案的零部件业务，并已向潜在客户发送互连
 
 ## 正文
 
-费城联储银行行长保尔森表示，美国经济正面临一系列通胀冲击，她没有看到结构性变化的迹象。
+美银证券发布研报称，敏实集团（00425）在2026年将实现可持续盈利增长，其新业务包括机器人、固体氧化物燃料电池（SOFC）及液冷系统进展良好。
 
-“我没有看到通胀出现结构性变化。
+该行将敏实目标价由52港元上调至57港元，重申“买入”评级。
 
-我看到的是一系列冲击以通胀的形式体现出来，”保尔森周五在一次活动上表示。
+管理层表示，机器人业务预计在2026年为公司贡献5亿元人民币（下同）销售额，包括零部件销售及机器人组装。
 
-保尔森表示，全球经济正在偏离自由贸易和全球市场，不再像过去那样在成本最低的地方进行生产。
+此外，公司已开始SOFC解决方案的零部件业务，并已向潜在客户发送互连件、支撑结构及双极板的样品，同时已从中国SOFC客户获得支撑结构、双极板及框架的新订单。
 
-保尔森说：“世界已经不再将这种模式视为理想结果，这正在改变供应链。
+液冷业务方面，分流管及液冷箱已于2025年底开始付运，液冷板及冷却液分配装置（CDU）等更多新产品将于2026年下半年开始付运。
 
-这改变了对生产过程产生冲击的因素，而这些最终会体现在价格上”。
+考虑到最新的增长及利润率假设，美银将敏实2026年及2027年每股盈利预测分别下调1%及上调1%，至2.7元及3.13元人民币（下同），并引入2028年每股盈利预测为3.52元。
 
-保尔森今年就货币决策有投票权。
+该行认为，敏实估值具吸引力（相当于2026年预测市盈率12倍），并对其新业务持正面看法。
 
-政策制定者将于6月16日至17日举行会议。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:51 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-29 23:41 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-29 23:45 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-29 23:26 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-29 23:48 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-29 23:46 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-29 23:30 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 23:45 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-29 23:37 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 23:35 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 23:33 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 23:40 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 23:44 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 23:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-29 23:52 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-29 23:36 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-29 23:30 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-29 23:37 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 23:54 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 23:30 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 23:35 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:28 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/93428938.shtml)
-- 2026-06-29 23:49 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/7326254818.shtml)
-- 2026-06-29 23:38 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/32784680.shtml)
-- 2026-06-29 23:34 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/584982450328.shtml)
-- 2026-06-29 23:40 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/482719670199.shtml)
-- 2026-06-29 23:47 - [极限挑战第一季](https://www.blog.minike.top/Article/details/924794435.shtml)
-- 2026-06-29 23:39 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/28248811.shtml)
-- 2026-06-29 23:29 - [斛珠夫人](https://www.blog.minike.top/Article/details/4181074845.shtml)
-- 2026-06-29 23:29 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/84705138.shtml)
-- 2026-06-29 23:39 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/620807822727.shtml)
-- 2026-06-29 23:42 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/940159219222.shtml)
-- 2026-06-29 23:53 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/22180.shtml)
-- 2026-06-29 23:31 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/29707.shtml)
-- 2026-06-29 23:43 - [小龙女配音去世 李若彤发文悼念](http://www.share.minike.top/Article/details/7334408047.shtml)
-- 2026-06-29 23:26 - [山东发布山洪灾害气象预警](http://www.blog.kurohicncr.top/Article/details/233260.shtml)
+- 2026-06-29 23:47 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/658710877409.shtml)
+- 2026-06-29 23:36 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/34184657834.shtml)
+- 2026-06-29 23:51 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/5071927031.shtml)
+- 2026-06-29 23:31 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/884207251728.shtml)
+- 2026-06-29 23:46 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/4415018.shtml)
+- 2026-06-29 23:42 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/564620.shtml)
+- 2026-06-29 23:42 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/01679755.shtml)
+- 2026-06-29 23:32 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/82227392.shtml)
+- 2026-06-29 23:33 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.kurohicncr.top/Article/details/63290.shtml)
+- 2026-06-29 23:55 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/23986817527.shtml)
+- 2026-06-29 23:43 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/52134953.shtml)
+- 2026-06-29 23:57 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/930804698.shtml)
+- 2026-06-29 23:42 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/3785684584.shtml)
+- 2026-06-29 23:37 - [炽夏](https://www.blog.kurohicncr.top/Article/details/84965473.shtml)
+- 2026-06-29 23:37 - [湖南姑娘被东北同事带偏口音](https://www.blog.kurohicncr.top/Article/details/73398259.shtml)

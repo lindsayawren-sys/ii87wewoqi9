@@ -1,61 +1,61 @@
-# 首次突破、刷新纪录！本周我国多领域硬核成果刷屏
+# 提升公众避险能力 第三届全国防震减灾科普主场活动在吉林举办
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-本周 我国在航天、基建、工程等领域 迎来突破 从地下到太空从大国重器到汽车工业 中国硬核实力接连刷新历史 神舟二十一号乘组 成绩单亮点满满 5月29日20时11分，乘组搭乘的神舟二十二号载人飞船返回舱成功着陆，航天员张陆、武飞、张洪章顺利出舱，身体状态良好。 神舟二十一号航天员乘组在轨210天，刷新中国航天员单个乘组在轨驻留最长纪录。 指令长张陆已累计完成7次出舱活动，成为目前
+中新网吉林5月12日电 (记者 孙自法)2026年5月12日是第18个全国防灾减灾日。当天，聚焦“提升公众避险能力，夯实防震减灾基础”主题，中国地震局、吉林省人民政府在吉林市共同举办第三届全国防震减灾科普主场活动。 中国地震局副局长倪岳伟出席主场活动并致辞指出，地震安全已成为公众对于美好生活向往的重要内容。加强防震减灾科普工作，是提高全民科学素质的迫切需要，也是筑牢地震安全防线
 
 ## 正文
 
-本周 我国在航天、基建、工程等领域 迎来突破 从地下到太空从大国重器到汽车工业 中国硬核实力接连刷新历史 神舟二十一号乘组 成绩单亮点满满 5月29日20时11分，乘组搭乘的神舟二十二号载人飞船返回舱成功着陆，航天员张陆、武飞、张洪章顺利出舱，身体状态良好。
+中新网吉林5月12日电 (记者 孙自法)2026年5月12日是第18个全国防灾减灾日。
 
-神舟二十一号航天员乘组在轨210天，刷新中国航天员单个乘组在轨驻留最长纪录。
+当天，聚焦“提升公众避险能力，夯实防震减灾基础”主题，中国地震局、吉林省人民政府在吉林市共同举办第三届全国防震减灾科普主场活动。
 
-指令长张陆已累计完成7次出舱活动，成为目前在舱外执行任务次数最多的中国航天员。
+中国地震局副局长倪岳伟出席主场活动并致辞指出，地震安全已成为公众对于美好生活向往的重要内容。
 
-首次执行飞行任务的张洪章作为载荷专家，主要完成了面向空间应用的锂离子电池电化学光学原位研究及生命领域、流体与燃烧实验领域相关实验。
+加强防震减灾科普工作，是提高全民科学素质的迫切需要，也是筑牢地震安全防线、减轻地震灾害风险的有效途径。
 
-首次执行飞行任务的武飞，成为我国目前执行过出舱任务的最年轻的航天员。
+举办这次主场活动，是探索“防震减灾+文旅”的一次重要实践，旨在借助文旅传播防震避险知识和技能，进一步唤起社会各界对防震减灾工作的关注，为减轻地震灾害风险筑牢坚实的社会基础。
 
-国内首次实现了小鼠的空间密闭在轨饲养，为后续开展空间哺乳动物实验奠定了技术基础。
+本次活动在辽宁和黑龙江设分会场，通过线下主场和线上直播联动的形式，集中举办重要发布、科普展演、防震减灾倡议宣讲、应急演练、广场展览、科普讲座和经验交流等一系列丰富多彩活动，向公众讲解防震减灾科学知识和自救互救技能。
 
-大国重器+1 超大直径盾构机“焦平一号”下线 5月29日，由中铁十一局和铁建重工联合打造的超大直径盾构机“焦平一号”在长沙下线，盾构机整机总长约110米，总重约3500吨，装机功率达10000千瓦，具备“切削—出渣—衬砌—注浆”一体化连续作业能力，是目前世界最大直径土压平衡盾构高铁隧道盾构机。
+中国地震局发布了公众避险能力评估结果、防震减灾科普资源库。
 
-“焦平一号”搭载了多层次复合注浆系统、同步推拼系统、气压辅助掘进与盾构AI智能管控平台，可实时采集大量掘进数据，实现自动监测等，推动盾构施工向智能化升级。
+公众避险能力评估结果显示，4.7%的公众具备较好防震避险能力，14.5%的公众具备防震避险能力，42.1%的公众具有一定的防震避险能力，38.7%的公众能力不足。
 
 ## 相关推荐
 
-- 2026-06-29 23:28 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-29 23:40 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 23:40 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-29 23:32 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-29 23:44 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 23:24 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-29 23:33 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-29 23:30 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-29 23:40 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-29 23:45 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 23:53 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 23:38 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 23:53 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-29 23:33 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 23:44 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 23:52 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-29 23:57 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-29 23:57 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 23:36 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 23:49 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 23:49 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 23:45 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-29 23:53 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 23:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 23:45 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 23:45 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-29 23:53 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-29 23:30 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 23:41 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-29 23:55 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:41 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/17774741.shtml)
-- 2026-06-29 23:24 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/82428414.shtml)
-- 2026-06-29 23:40 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/393237961.shtml)
-- 2026-06-29 23:24 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/875405260.shtml)
-- 2026-06-29 23:47 - [追觅称质量不行终身包修也没意义](https://www.blog.minike.top/Article/details/044695.shtml)
-- 2026-06-29 23:52 - [曼城官宣马雷斯卡出任主教练](https://www.blog.minike.top/Article/details/580523.shtml)
-- 2026-06-29 23:40 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/29332.shtml)
-- 2026-06-29 23:51 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/7714272126.shtml)
-- 2026-06-29 23:45 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/240070.shtml)
-- 2026-06-29 23:39 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/7522074677.shtml)
-- 2026-06-29 23:46 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/72936534727.shtml)
-- 2026-06-29 23:47 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/96396555.shtml)
-- 2026-06-29 23:51 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/0922581862.shtml)
-- 2026-06-29 23:34 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/085655235.shtml)
-- 2026-06-29 23:43 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/819864.shtml)
+- 2026-06-29 23:59 - [《恋与深空》回应争议](https://www.blog.minike.top/Article/details/134598.shtml)
+- 2026-06-29 23:45 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/26041.shtml)
+- 2026-06-29 23:36 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/69135730323.shtml)
+- 2026-06-29 23:59 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/7224700242.shtml)
+- 2026-06-29 23:39 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/8632521.shtml)
+- 2026-06-29 23:34 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/03104525.shtml)
+- 2026-06-29 23:50 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/01728.shtml)
+- 2026-06-29 23:53 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/8878415.shtml)
+- 2026-06-29 23:56 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/7881907040.shtml)
+- 2026-06-29 23:53 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/89122403.shtml)
+- 2026-06-29 23:52 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/5915028340.shtml)
+- 2026-06-29 23:37 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/423296.shtml)
+- 2026-06-29 23:45 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/85984864.shtml)
+- 2026-06-29 23:36 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/8124618533.shtml)
+- 2026-06-29 23:48 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/87829723441.shtml)

@@ -1,49 +1,42 @@
-# 美军发射导弹拦截船只，实施对伊朗相关航道管控
+# 美防长表示：尽管发生交火 美伊停火协议依然有效
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-美国中央司令部发布声明称，5月29日，一架美军战机向一艘驶往伊朗港口的冈比亚籍船只的轮机舱发射地狱火导弹，致使该船失去航行能力。 中央司令部表示，部署在阿曼湾的美军部队完成了此次拦截行动。责任编辑：李桐
+发布时间：2026年05月13日 13:30 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-美国中央司令部发布声明称，5月29日，一架美军战机向一艘驶往伊朗港口的冈比亚籍船只的轮机舱发射地狱火导弹，致使该船失去航行能力。
-
-中央司令部表示，部署在阿曼湾的美军部队完成了此次拦截行动。
-
-责任编辑：李桐
+发布时间：2026年05月13日 13:30 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 23:30 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-29 23:34 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 23:50 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 23:33 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 23:43 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-29 23:31 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-29 23:46 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-29 23:42 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-29 23:28 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 23:31 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 23:50 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 23:27 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-29 23:27 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 23:31 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 23:30 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-29 23:57 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 23:37 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-29 23:39 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 23:37 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 23:34 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 23:39 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 23:56 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-29 23:45 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:30 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/28930029603.shtml)
-- 2026-06-29 23:31 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/7359851467.shtml)
-- 2026-06-29 23:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/13317345.shtml)
-- 2026-06-29 23:51 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/403725647767.shtml)
-- 2026-06-29 23:34 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/30662.shtml)
-- 2026-06-29 23:24 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/90511825171.shtml)
-- 2026-06-29 23:45 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/0093057250.shtml)
-- 2026-06-29 23:52 - [请回答王牌2019](https://www.share.minike.top/Article/details/7710941.shtml)
-- 2026-06-29 23:35 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.kurohicncr.top/Article/details/31957846.shtml)
-- 2026-06-29 23:53 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/044648153432.shtml)
-- 2026-06-29 23:42 - [法媒点赞分享中国小区降温方案](http://www.blog.minike.top/Article/details/184960742.shtml)
-- 2026-06-29 23:27 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/651158138445.shtml)
-- 2026-06-29 23:34 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/68896247141.shtml)
-- 2026-06-29 23:29 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/70825714.shtml)
-- 2026-06-29 23:38 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/782201.shtml)
+- 2026-06-29 23:49 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/7842003.shtml)
+- 2026-06-29 23:56 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/7969513421.shtml)
+- 2026-06-29 23:56 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/743448820253.shtml)
+- 2026-06-29 23:38 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/28706633.shtml)
+- 2026-06-29 23:30 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/58564.shtml)
+- 2026-06-29 23:31 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/582396870252.shtml)
+- 2026-06-29 23:49 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/182853165.shtml)
+- 2026-06-29 23:33 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/5053337.shtml)
+- 2026-06-29 23:49 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/30784455.shtml)
+- 2026-06-29 23:43 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/696100.shtml)
+- 2026-06-29 23:35 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/0593402355.shtml)
+- 2026-06-29 23:54 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/698954.shtml)
+- 2026-06-29 23:35 - [刘念回应](https://www.share.minike.top/Article/details/07586735336.shtml)
+- 2026-06-29 23:57 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/627424.shtml)
+- 2026-06-29 23:33 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/68578.shtml)

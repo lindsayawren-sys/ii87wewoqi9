@@ -1,58 +1,49 @@
-# 跨越半个多世纪的校友情——老挝“六七”学校校友共话老中情谊
+# 天津创业环保获易方达基金增持59.8万股 每股作价约4.38港元
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-新华社万象5月31日电 通讯｜跨越半个多世纪的校友情——老挝“六七”学校校友共话老中情谊 新华社记者马淮钊 赵旭 “中国人民的恩情，我们永生不忘！”在日前于老挝首都万象举行的以“庆祝老中建交65周年、共话校友情谊”为主题的广西与老挝“六七”学校校友联谊会上，“六七”学校校友宋萨努动情地说。 20世纪60年代，饱受战火之苦的老挝向中国提出办学需求，中国在广西南宁建设老挝“六七”学
+香港联交所最新数据显示，5月7日，易方达基金管理有限公司增持天津创业环保（01065）59.8万股，每股作价4.3804港元，总金额约为261.95万港元。增持后最新持股数目为1719万股，持股比例为5.06%。责任编辑：卢昱君
 
 ## 正文
 
-新华社万象5月31日电 通讯｜跨越半个多世纪的校友情——老挝“六七”学校校友共话老中情谊 新华社记者马淮钊 赵旭 “中国人民的恩情，我们永生不忘！
+香港联交所最新数据显示，5月7日，易方达基金管理有限公司增持天津创业环保（01065）59.8万股，每股作价4.3804港元，总金额约为261.95万港元。
 
-”在日前于老挝首都万象举行的以“庆祝老中建交65周年、共话校友情谊”为主题的广西与老挝“六七”学校校友联谊会上，“六七”学校校友宋萨努动情地说。
+增持后最新持股数目为1719万股，持股比例为5.06%。
 
-20世纪60年代，饱受战火之苦的老挝向中国提出办学需求，中国在广西南宁建设老挝“六七”学校。
-
-该校因老中双方于1967年确定创办而得名，曾设置幼儿班、小学一至六年级，到校任教和学习的老挝教师、学生逾千人，成为两国人民深情厚谊的重要历史见证。
-
-联谊会当天，400余名“六七”学校校友、中方教职工代表等齐聚一堂，共同追忆半个多世纪前那段跨越国界、患难与共的岁月，共叙老中薪火相传、历久弥坚的情谊。
-
-老挝政府总理、“六七”学校校友宋赛，广西壮族自治区人民政府副主席卢新宁出席了活动。
-
-在主题图片展区，不少校友在记录当年学习生活点滴的珍贵历史照片前感慨万千。
-
-现场还展出了校友们曾在学校用过的行李箱、棉袄、棉被等旧物，引得人们驻足凝视。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:36 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 23:40 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 23:24 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-29 23:41 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-29 23:28 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-29 23:24 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 23:29 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 23:50 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-29 23:27 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-29 23:35 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 23:48 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 23:44 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 23:53 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-29 23:51 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 23:48 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 23:57 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-29 23:31 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-29 23:46 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-29 23:53 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 23:47 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 23:36 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 23:33 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 23:57 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-29 23:44 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 23:49 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:41 - [刘宇宁 好听](https://www.blog.kurohicncr.top/Article/details/798118752578.shtml)
-- 2026-06-29 23:32 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/69031.shtml)
-- 2026-06-29 23:36 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/1124588951.shtml)
-- 2026-06-29 23:39 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/981547266222.shtml)
-- 2026-06-29 23:46 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/505235513.shtml)
-- 2026-06-29 23:45 - [速度与激情9](https://www.share.minike.top/Article/details/98037961.shtml)
-- 2026-06-29 23:32 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/2998666840.shtml)
-- 2026-06-29 23:47 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/033459462325.shtml)
-- 2026-06-29 23:36 - [TFing最具影响力音乐厂牌](http://www.share.minike.top/Article/details/758929615.shtml)
-- 2026-06-29 23:24 - [刘宇宁 好听](https://www.share.minike.top/Article/details/395543255471.shtml)
-- 2026-06-29 23:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/540218476298.shtml)
-- 2026-06-29 23:45 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/60437.shtml)
-- 2026-06-29 23:37 - [巴西队主帅称日本队是世界最佳之一](https://www.share.kurohicncr.top/Article/details/342998.shtml)
-- 2026-06-29 23:44 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/021353502328.shtml)
-- 2026-06-29 23:53 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/890424329.shtml)
+- 2026-06-29 23:36 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/50135231926.shtml)
+- 2026-06-29 23:52 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/781718.shtml)
+- 2026-06-29 23:57 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/40449865874.shtml)
+- 2026-06-29 23:50 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/099031013807.shtml)
+- 2026-06-29 23:33 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/6881997.shtml)
+- 2026-06-29 23:56 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/2548937228.shtml)
+- 2026-06-29 23:30 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/564877440251.shtml)
+- 2026-06-29 23:56 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/75367.shtml)
+- 2026-06-29 23:57 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/12315365687.shtml)
+- 2026-06-29 23:45 - [法拉利车主已自行承担修理费近3万](http://www.blog.kurohicncr.top/Article/details/41620.shtml)
+- 2026-06-29 23:38 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/9981152947.shtml)
+- 2026-06-29 23:58 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/5151505543.shtml)
+- 2026-06-29 23:33 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/91912.shtml)
+- 2026-06-29 23:44 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/08913709920.shtml)
+- 2026-06-29 23:37 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/779996.shtml)

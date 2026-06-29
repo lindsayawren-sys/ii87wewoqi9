@@ -1,58 +1,59 @@
-# Oppenheimer预计博通Q2业绩超预期 AI订单成核心驱动力
+# 大陆学者：如何对待“台独”是检验美方一中政策的试金石
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-在芯片巨头博通即将于6月3日公布第二财季业绩之际，Oppenheimer发布乐观前瞻报告，预计公司将交出击败预期并上调展望的亮眼成绩单，AI相关业务将成为主要增长引擎。 Oppenheimer分析师Rick Schafer在报告中指出，博通在AI领域的收入环比增长约30%，主要得益于定制化ASIC芯片和网络产品的强劲需求。公司被市场视为仅次于英伟达的第二大AI性能硬件厂商，凭借
+中新社北京5月12日电 (记者 张杨彬)中美元首会晤在即，海外舆论以台湾问题为关注焦点之一。中国人民大学两岸关系研究中心主任、国发院研究员王英津12日接受中新社采访时表示，美国应当心被“台独”拖下水，管控和反对“台独”，符合美国的战略利益。“美国有识之士已经意识到‘台独’亦是美国之患，对美国而言，一味地默许甚至纵容‘台独’分裂活动，绝非明智之举。”王英津说。 他分析指出，从中美
 
 ## 正文
 
-在芯片巨头博通即将于6月3日公布第二财季业绩之际，Oppenheimer发布乐观前瞻报告，预计公司将交出击败预期并上调展望的亮眼成绩单，AI相关业务将成为主要增长引擎。
+中新社北京5月12日电 (记者 张杨彬)中美元首会晤在即，海外舆论以台湾问题为关注焦点之一。
 
-Oppenheimer分析师Rick Schafer在报告中指出，博通在AI领域的收入环比增长约30%，主要得益于定制化ASIC芯片和网络产品的强劲需求。
+中国人民大学两岸关系研究中心主任、国发院研究员王英津12日接受中新社采访时表示，美国应当心被“台独”拖下水，管控和反对“台独”，符合美国的战略利益。
 
-公司被市场视为仅次于英伟达的第二大AI性能硬件厂商，凭借自研XPU和网络解决方案构建了独特的竞争壁垒。
+“美国有识之士已经意识到‘台独’亦是美国之患，对美国而言，一味地默许甚至纵容‘台独’分裂活动，绝非明智之举。
 
-Schafer强调，博通已与多家科技巨头建立了深度合作关系，主要客户包括谷歌、Meta、TikTok USA、Anthropic和OpenAI。
+”王英津说。
 
-公司的供应保障已延伸至2028年，未来订单可见度较高。
+他分析指出，从中美关系看，台湾问题始终是中美关系中最重要、最敏感的问题。
 
-具体来看，Anthropic预计今年部署1GW算力，有望带来150至200亿美元的订单；OpenAI则计划在2027财年完成1GW部署。
+美国政府多次重申坚持一个中国政策，这是两国关系得以维系的重要政治基础。
 
-值得关注的是，博通近期与OpenAI签订了多年期战略合作协议，共同设计定制化AI加速芯片。
+“放纵‘台独’的危险行为不仅会断送中美之间来之不易的稳定局面，更极有可能诱发一系列难以估量的灾难。
 
-公司管理层此前已勾勒出清晰蓝图，预计到2027年底，年AI芯片收入有望突破1000亿美元。
+” 从美方利益看，王英津表示，美国深陷地缘政治冲突，军事投入与资源消耗居高不下，国内通胀压力持续存在，中期选举临近，这对特朗普本人、美国国内经济发展及全球战略都是极不利的。
 
 ## 相关推荐
 
-- 2026-06-29 23:25 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-29 23:45 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-29 23:49 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-29 23:50 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 23:28 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-29 23:36 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-29 23:43 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 23:46 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-29 23:40 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-29 23:53 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-29 23:51 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-29 23:44 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-29 23:41 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 23:42 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 23:41 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 23:44 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 23:52 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-29 23:55 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-29 23:59 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-29 23:45 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 23:39 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-29 23:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 23:43 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 23:50 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-29 23:41 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:38 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/11951969223.shtml)
-- 2026-06-29 23:35 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/85530929920.shtml)
-- 2026-06-29 23:37 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/1953254621.shtml)
-- 2026-06-29 23:26 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/4762278.shtml)
-- 2026-06-29 23:47 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/868844.shtml)
-- 2026-06-29 23:40 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/991348949.shtml)
-- 2026-06-29 23:44 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/825565.shtml)
-- 2026-06-29 23:53 - [天道](https://www.share.kurohicncr.top/Article/details/59468433068.shtml)
-- 2026-06-29 23:48 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/13358.shtml)
-- 2026-06-29 23:31 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/138128425264.shtml)
-- 2026-06-29 23:47 - [把邻居裸体发群算维权还是侵权](https://www.share.minike.top/Article/details/864343612.shtml)
-- 2026-06-29 23:42 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/985426.shtml)
-- 2026-06-29 23:51 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/71646.shtml)
-- 2026-06-29 23:53 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/1283549637.shtml)
-- 2026-06-29 23:31 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/33131738248.shtml)
+- 2026-06-29 23:31 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/66473463411.shtml)
+- 2026-06-29 23:54 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/5930004853.shtml)
+- 2026-06-29 23:31 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/065663760.shtml)
+- 2026-06-29 23:57 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.kurohicncr.top/Article/details/23968738096.shtml)
+- 2026-06-29 23:59 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/3464579401.shtml)
+- 2026-06-29 23:41 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/9421300.shtml)
+- 2026-06-29 23:50 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/031251914.shtml)
+- 2026-06-29 23:52 - [《恋与深空》回应争议](http://www.share.minike.top/Article/details/31468.shtml)
+- 2026-06-29 23:59 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/29401669140.shtml)
+- 2026-06-29 23:47 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/165631907244.shtml)
+- 2026-06-29 23:30 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/281086377570.shtml)
+- 2026-06-29 23:58 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/578342.shtml)
+- 2026-06-29 23:47 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/414029757.shtml)
+- 2026-06-29 23:40 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/74411528866.shtml)
+- 2026-06-29 23:49 - [女心理师](https://www.share.minike.top/Article/details/4365688.shtml)

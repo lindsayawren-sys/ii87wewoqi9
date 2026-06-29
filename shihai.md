@@ -1,57 +1,57 @@
-# 美防长“香会”回应中方提问：希与中国防务部门开展更多对话
+# 吾买尔·热西提：从普通农民跨界电商达人 点亮乡村振兴新赛道
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-中新社新加坡5月30日电 (记者 李纯)5月30日，在第二十三届香格里拉对话会第一场全体会议上，美国国防部长赫格塞思回答中方参会代表提问时表示，希望与中国防务部门开展更多对话。 当天，赫格塞思作大会发言。他提到两周前随美国总统特朗普访华的经历，表示自己见证了两国元首长达数小时的坦诚对话，并认为这具有历史意义。他还提到，美中可以在利益相符的领域达成互利合作。 在随后的现场答问环节
+中新网新疆吐鲁番5月13日电 (袁鹏冲)“石榴花开 籽籽同心”铸牢中华民族共同体意识网络主题活动采访团，12日走进新疆吐鲁番市葡萄沟，采访当地知名网红农产品主播吾买尔·热西提。 今年56岁的吾买尔·热西提，是土生土长的葡萄沟人，半生守着家中十几墩葡萄深耕种植。 如今，他变身乡村主播，通过网络直播推介吐鲁番葡萄等特色农产品，成为当地小有名气的助农网红。 在他的视频中，有葡萄、哈密
 
 ## 正文
 
-中新社新加坡5月30日电 (记者 李纯)5月30日，在第二十三届香格里拉对话会第一场全体会议上，美国国防部长赫格塞思回答中方参会代表提问时表示，希望与中国防务部门开展更多对话。
+中新网新疆吐鲁番5月13日电 (袁鹏冲)“石榴花开 籽籽同心”铸牢中华民族共同体意识网络主题活动采访团，12日走进新疆吐鲁番市葡萄沟，采访当地知名网红农产品主播吾买尔·热西提。
 
-当天，赫格塞思作大会发言。
+今年56岁的吾买尔·热西提，是土生土长的葡萄沟人，半生守着家中十几墩葡萄深耕种植。
 
-他提到两周前随美国总统特朗普访华的经历，表示自己见证了两国元首长达数小时的坦诚对话，并认为这具有历史意义。
+如今，他变身乡村主播，通过网络直播推介吐鲁番葡萄等特色农产品，成为当地小有名气的助农网红。
 
-他还提到，美中可以在利益相符的领域达成互利合作。
+在他的视频中，有葡萄、哈密瓜等特色农产品，有葡萄沟、火焰山等景区，有抓饭、拌面、烤包子等美食，还有日常生活的点滴。
 
-在随后的现场答问环节，中国人民解放军专家学者代表团成员、军事科学院赵蔚彬大校提问说，在特朗普总统访华期间，中美元首同意将构建“中美建设性战略稳定关系”作为两国关系的新定位。
+吾买尔·热西提的账号逐渐吸引大量网友的关注，在各大网络平台积累了超300万粉丝，收获了3000多万点赞，视频播放量超10亿次。
 
-这将为中美两军关系发展带来怎样的影响？
+吾买尔·热西提发布的视频，不仅介绍家乡美食、美景，还有大量介绍民族团结的视频……“我觉得维护各民族团结是自然而然的事情，我们生活越来越好。
 
-作为美国防长，您将如何以务实举措落实两国元首达成的共识？
+” 如今，葡萄沟里出现一批像吾买尔·热西提一样的“新农人”，借助互联网的力量，把手机当作“新农具”，把直播变成“新农活”，把数据变成“新农资”，在致富路上越走越宽。
 
-赫格塞思表示，美中两国元首为双方关系的发展划定了框架，体现了高层交往的重要性。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 23:45 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-29 23:37 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-29 23:44 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-29 23:43 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-29 23:47 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-29 23:33 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 23:45 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-29 23:39 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-29 23:25 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 23:28 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 23:30 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-29 23:44 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-29 23:49 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-29 23:44 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 23:54 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 23:50 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-29 23:33 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 23:57 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-29 23:51 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-29 23:56 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 23:57 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-29 23:33 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:30 - [巴西队主帅称日本队是世界最佳之一](https://www.share.kurohicncr.top/Article/details/68035057.shtml)
-- 2026-06-29 23:31 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/2208841.shtml)
-- 2026-06-29 23:39 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/331512754.shtml)
-- 2026-06-29 23:53 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/384289256268.shtml)
-- 2026-06-29 23:34 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/7882273.shtml)
-- 2026-06-29 23:49 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/26708486.shtml)
-- 2026-06-29 23:35 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/561558263.shtml)
-- 2026-06-29 23:26 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/78266402144.shtml)
-- 2026-06-29 23:44 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/7866672853.shtml)
-- 2026-06-29 23:49 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/76398432406.shtml)
-- 2026-06-29 23:41 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/1004401.shtml)
-- 2026-06-29 23:52 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/9419260095.shtml)
-- 2026-06-29 23:27 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/255742.shtml)
-- 2026-06-29 23:29 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/6698068.shtml)
-- 2026-06-29 23:41 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/54208.shtml)
+- 2026-06-29 23:31 - [青春环游记第三季](https://www.blog.minike.top/Article/details/62978249.shtml)
+- 2026-06-29 23:41 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.kurohicncr.top/Article/details/8326803.shtml)
+- 2026-06-29 23:47 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/0156295588.shtml)
+- 2026-06-29 23:56 - [沙丘](https://www.share.minike.top/Article/details/05020881.shtml)
+- 2026-06-29 23:31 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/593873555.shtml)
+- 2026-06-29 23:37 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/29151.shtml)
+- 2026-06-29 23:52 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/1046957.shtml)
+- 2026-06-29 23:54 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/971279916477.shtml)
+- 2026-06-29 23:41 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/6617371.shtml)
+- 2026-06-29 23:45 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/77776425.shtml)
+- 2026-06-29 23:42 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/1298347.shtml)
+- 2026-06-29 23:58 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/786679515.shtml)
+- 2026-06-29 23:40 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/35105445299.shtml)
+- 2026-06-29 23:51 - [足球“出口导向”造就佛得角奇迹](http://www.blog.minike.top/Article/details/29099.shtml)
+- 2026-06-29 23:37 - [高考1357分的同学如何报志愿？](http://www.share.minike.top/Article/details/95942013.shtml)

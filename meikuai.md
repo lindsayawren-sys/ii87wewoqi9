@@ -1,50 +1,43 @@
-# 苏州银行：选举崔庆军为第六届董事会董事长
+# 西安现北方省会城市今年首个高温日
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-6月1日金融一线消息，苏州银行发布第六届董事会第一次会议决议公告，会议审议通过了关于选举苏州银行股份有限公司第六届董事会董事长的议案，同意选举崔庆军为本行第六届董事会董事长。 简历显示，崔庆军，1972年2月出生，博士研究生学历，正高级经济师，现任苏州银行党委书记、董事长兼苏新基金管理有限公司董事长。历任中国建设银行苏州分行党委宣传与群工部副部长兼团委书记、党委组织部部长、人力
+发布时间：2026年05月12日 13:19 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-6月1日金融一线消息，苏州银行发布第六届董事会第一次会议决议公告，会议审议通过了关于选举苏州银行股份有限公司第六届董事会董事长的议案，同意选举崔庆军为本行第六届董事会董事长。
-
-简历显示，崔庆军，1972年2月出生，博士研究生学历，正高级经济师，现任苏州银行党委书记、董事长兼苏新基金管理有限公司董事长。
-
-历任中国建设银行苏州分行党委宣传与群工部副部长兼团委书记、党委组织部部长、人力资源部总经理，中国建设银行苏州分行吴中支行、相城支行党委书记、行长，中国建设银行信用卡中心南宁运行中心主任，上海银行苏州分行党委书记、行长，上海银行党委委员、副行长、工会主席。
-
-2023年4月起任苏州银行党委书记、董事长。
-
-责任编辑：秦艺
+发布时间：2026年05月12日 13:19 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 23:49 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-29 23:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-29 23:40 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 23:26 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-29 23:49 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-29 23:52 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-29 23:53 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 23:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 23:24 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 23:52 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 23:48 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-29 23:40 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 23:44 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 23:50 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 23:43 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-29 23:58 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 23:50 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-29 23:34 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-29 23:50 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-29 23:48 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 23:36 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:32 - [“十五五”优质本科扩容](https://www.blog.kurohicncr.top/Article/details/283163.shtml)
-- 2026-06-29 23:52 - [足球小将的剧本成真了](http://www.share.kurohicncr.top/Article/details/42598414.shtml)
-- 2026-06-29 23:53 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/76827.shtml)
-- 2026-06-29 23:25 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/4745501051.shtml)
-- 2026-06-29 23:44 - [赵今麦电影开端客串路透](http://www.blog.kurohicncr.top/Article/details/693707.shtml)
-- 2026-06-29 23:29 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/72736.shtml)
-- 2026-06-29 23:39 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/95003.shtml)
-- 2026-06-29 23:29 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/631035.shtml)
-- 2026-06-29 23:35 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/614811.shtml)
-- 2026-06-29 23:43 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/3037743410.shtml)
-- 2026-06-29 23:42 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/21533063.shtml)
-- 2026-06-29 23:37 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/64075424825.shtml)
-- 2026-06-29 23:50 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/1532462.shtml)
-- 2026-06-29 23:24 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/546498007027.shtml)
-- 2026-06-29 23:38 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/0255101558.shtml)
+- 2026-06-29 23:30 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/24978094.shtml)
+- 2026-06-29 23:35 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/635022.shtml)
+- 2026-06-29 23:57 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/628534509985.shtml)
+- 2026-06-29 23:53 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/8216295807.shtml)
+- 2026-06-29 23:43 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/142221117336.shtml)
+- 2026-06-29 23:39 - [浙江进入梅雨最强“攻击时段”](http://www.blog.kurohicncr.top/Article/details/5044833194.shtml)
+- 2026-06-29 23:58 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/18616748171.shtml)
+- 2026-06-29 23:53 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/52475156.shtml)
+- 2026-06-29 23:39 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/67551233.shtml)
+- 2026-06-29 23:36 - [女子发现孩子非现任亲生起诉前任](http://www.share.kurohicncr.top/Article/details/5967637521.shtml)
+- 2026-06-29 23:30 - [速度与激情9](http://www.blog.minike.top/Article/details/6881814.shtml)
+- 2026-06-29 23:37 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/6771329.shtml)
+- 2026-06-29 23:58 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/77146469131.shtml)
+- 2026-06-29 23:52 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/172977531.shtml)
+- 2026-06-29 23:56 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/68282739126.shtml)

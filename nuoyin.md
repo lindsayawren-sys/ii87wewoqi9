@@ -1,61 +1,61 @@
-# “一人公司”刷屏：拆解OPC三个字母
+# 谷歌母公司Alphabet拟首次发行日元债券以支持AI支出
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-2026年以来，“一人公司”(也称OPC，One Person Company)迅速成为创业领域的热门关键词之一。 近日，全国31省份“十五五”规划纲要全部发布。梳理发现，多地已明确将OPC写入地方规划。据不完全统计，截至今年5月底，全国已有超20个城市出台OPC专项扶持政策，OPC社区也在多地密集涌现。 OPC究竟是什么？人人都能成为OPC吗？拆解OPC本身，或许能找到答案。
+一份销售文件显示，谷歌母公司Alphabet计划首次发行多档日元债券。多家科技巨头正日益通过发债为人工智能（AI）基础设施支出筹集资金。 销售文件未披露Alphabet债券发行的规模，但一位直接知情人士周一表示，此次发行总额预计将达数千亿日元。 一位知情人士周一表示，电商巨头亚马逊也正准备首次发行六部分组成的瑞郎债券。 这些海外债券发行凸显出AI支出激增正促使美国科技业者向海外
 
 ## 正文
 
-2026年以来，“一人公司”(也称OPC，One Person Company)迅速成为创业领域的热门关键词之一。
+一份销售文件显示，谷歌母公司Alphabet计划首次发行多档日元债券。
 
-近日，全国31省份“十五五”规划纲要全部发布。
+多家科技巨头正日益通过发债为人工智能（AI）基础设施支出筹集资金。
 
-梳理发现，多地已明确将OPC写入地方规划。
+销售文件未披露Alphabet债券发行的规模，但一位直接知情人士周一表示，此次发行总额预计将达数千亿日元。
 
-据不完全统计，截至今年5月底，全国已有超20个城市出台OPC专项扶持政策，OPC社区也在多地密集涌现。
+一位知情人士周一表示，电商巨头亚马逊也正准备首次发行六部分组成的瑞郎债券。
 
-OPC究竟是什么？
+这些海外债券发行凸显出AI支出激增正促使美国科技业者向海外投资者寻求资金。
 
-人人都能成为OPC吗？
+科技巨头今年AI基础设施支出料将超过7，000亿美元，较2025年的4，100亿美元大幅增长。
 
-拆解OPC本身，或许能找到答案。
+这些公司不得不更多地依赖债务融资。
 
-01One 小规模主体+AI 首先，“一人公司”是什么？
+销售文件显示，Alphabet发行的日元债券将包括三年、五年、七年、10年、15年、20年、30年和40年期，但根据需求和市场情况，可能取消其中一个或多个档次。
 
 ## 相关推荐
 
-- 2026-06-29 23:38 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-29 23:41 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 23:51 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-29 23:25 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-29 23:44 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-29 23:41 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-29 23:41 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 23:32 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-29 23:24 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 23:33 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-29 23:42 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 23:30 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-29 23:51 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 23:37 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 23:42 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 23:46 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 23:32 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 23:59 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 23:48 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 23:47 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-29 23:48 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 23:56 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-29 23:41 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-29 23:53 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 23:34 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 23:48 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-29 23:47 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 23:46 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 23:53 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-29 23:48 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:49 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/5337297.shtml)
-- 2026-06-29 23:28 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/612213.shtml)
-- 2026-06-29 23:31 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/869346309919.shtml)
-- 2026-06-29 23:42 - [85花告别古偶](http://www.share.minike.top/Article/details/069887.shtml)
-- 2026-06-29 23:53 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/51641389.shtml)
-- 2026-06-29 23:25 - [欧洲人买空调难点在哪](http://www.blog.minike.top/Article/details/221647.shtml)
-- 2026-06-29 23:35 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.minike.top/Article/details/99977490791.shtml)
-- 2026-06-29 23:51 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/17780728027.shtml)
-- 2026-06-29 23:32 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/8100519459.shtml)
-- 2026-06-29 23:47 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/8858324958.shtml)
-- 2026-06-29 23:33 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/025641644767.shtml)
-- 2026-06-29 23:26 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/686928725807.shtml)
-- 2026-06-29 23:44 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/954036.shtml)
-- 2026-06-29 23:52 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/261989391354.shtml)
-- 2026-06-29 23:51 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/483586140612.shtml)
+- 2026-06-29 23:35 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/44516560475.shtml)
+- 2026-06-29 23:43 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/80889333.shtml)
+- 2026-06-29 23:37 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/83206552.shtml)
+- 2026-06-29 23:50 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/157025091.shtml)
+- 2026-06-29 23:37 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/34962336.shtml)
+- 2026-06-29 23:41 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/21931461214.shtml)
+- 2026-06-29 23:30 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/011860386.shtml)
+- 2026-06-29 23:46 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/3173331.shtml)
+- 2026-06-29 23:40 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/65579.shtml)
+- 2026-06-29 23:54 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/5327384.shtml)
+- 2026-06-29 23:49 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/999198302504.shtml)
+- 2026-06-29 23:43 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/1671380.shtml)
+- 2026-06-29 23:36 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/342655131.shtml)
+- 2026-06-29 23:32 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/09082072731.shtml)
+- 2026-06-29 23:59 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/86429827.shtml)

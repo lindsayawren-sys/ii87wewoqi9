@@ -1,56 +1,61 @@
-# 湖南举行人工智能创新大赛赋能产业升级
+# 金观平：千方百计稳住就业基本盘
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-中新网长沙5月29日电(汤承霖)由三一集团与中南大学联合主办的“AI引领共筑生态”人工智能创新应用大赛自2026年3月启动以来，备受社会各界关注。组委会29日透露，日前，大赛已顺利完成半决赛入围筛选及公示工作，共有31个优秀项目脱颖而出，成功晋级半决赛。 本次大赛以“AI引领共筑生态”为主题，在国家大力推进“人工智能+”行动的背景下，依托三一集团千亿级产业链资源与中南大学雄厚的
+就业是最基本的民生，更是经济社会平稳运行的压舱石。中央政治局近期召开会议强调“要强化就业优先政策导向”，立足“十五五”开局关键节点，为当前和今后一个时期的就业工作划定重点、指明方向，彰显了以人民为中心的发展思想和稳增长、保民生的坚定决心。强化就业优先政策导向，要兼顾产业转型规律与企业经营实际，推动产业升级与就业扩容同频共振。一方面，要守牢传统产业就业基本盘，对劳动密集型行业精准
 
 ## 正文
 
-中新网长沙5月29日电(汤承霖)由三一集团与中南大学联合主办的“AI引领共筑生态”人工智能创新应用大赛自2026年3月启动以来，备受社会各界关注。
+就业是最基本的民生，更是经济社会平稳运行的压舱石。
 
-组委会29日透露，日前，大赛已顺利完成半决赛入围筛选及公示工作，共有31个优秀项目脱颖而出，成功晋级半决赛。
+中央政治局近期召开会议强调“要强化就业优先政策导向”，立足“十五五”开局关键节点，为当前和今后一个时期的就业工作划定重点、指明方向，彰显了以人民为中心的发展思想和稳增长、保民生的坚定决心。
 
-本次大赛以“AI引领共筑生态”为主题，在国家大力推进“人工智能+”行动的背景下，依托三一集团千亿级产业链资源与中南大学雄厚的学科实力，聚焦智能建造、工程机械、智能制造、智慧矿山、新能源+等重点领域，旨在推动人工智能技术与实体经济的深度融合，培育引领行业变革的标杆项目。
+强化就业优先政策导向，要兼顾产业转型规律与企业经营实际，推动产业升级与就业扩容同频共振。
 
-自3月1日报名通道在“筑享云平台”正式开启以来，大赛面向全国高校、科研院所、初创企业及社会团队广泛征集，共吸引了来自各地的134个前沿创新团队踊跃报名。
+一方面，要守牢传统产业就业基本盘，对劳动密集型行业精准帮扶，防止岗位供给出现大幅波动。
 
-经大赛组委会组织专家团队围绕技术创新性、产业应用价值、商业可行性等多维度进行严格评审与综合遴选，最终共有31个项目入围半决赛名单。
+另一方面，企业是吸纳就业的主力载体，企业经营稳住了，就业基本盘才能稳住；企业发展有活力，就业扩容才有更大空间。
 
-根据赛程安排，半决赛将于6月5日在长沙三湘银行正式举行。
+当前，不少中小微企业受制于用工成本偏高、招工留人困难等现实困扰，即便有扩岗意愿也往往力不从心。
 
-届时，所有入围团队将通过现场路演与专家评审，角逐晋级决赛的资格，半决赛将最终产生6支优胜队伍，晋级次日的总决赛。
+因此，需要持续优化营商环境，简化政策兑现流程，推动稳岗返还、创业担保贷款等惠企举措直达快享，切实破解企业经营成本与用工难题。
 
-总决赛定于6月6日在长沙三湘一品举办，6支晋级队伍将通过路演答辩、现场演示及专家评审等环节，全面展示项目成果，争夺大赛一、二、三等奖。
+强化就业优先政策导向，要紧跟新质生产力发展脚步，持续开拓就业新领域、新空间。
 
 ## 相关推荐
 
-- 2026-06-29 23:48 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 23:33 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 23:43 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-29 23:24 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-29 23:51 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 23:28 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-29 23:29 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 23:30 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-29 23:43 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 23:53 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 23:48 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 23:47 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 23:47 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 23:43 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-29 23:56 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-29 23:45 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 23:44 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 23:37 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 23:37 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 23:41 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 23:37 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-29 23:56 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 23:56 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 23:51 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 23:53 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:27 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/37110.shtml)
-- 2026-06-29 23:53 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/6283366939.shtml)
-- 2026-06-29 23:28 - [曼城官宣马雷斯卡出任主教练](http://www.share.minike.top/Article/details/288740267459.shtml)
-- 2026-06-29 23:44 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/9863539.shtml)
-- 2026-06-29 23:46 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/1771870072.shtml)
-- 2026-06-29 23:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/19301021210.shtml)
-- 2026-06-29 23:38 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/37434.shtml)
-- 2026-06-29 23:43 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/82180564.shtml)
-- 2026-06-29 23:33 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/585697805.shtml)
-- 2026-06-29 23:28 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/0822094752.shtml)
-- 2026-06-29 23:41 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/574900004.shtml)
-- 2026-06-29 23:50 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/831207336.shtml)
-- 2026-06-29 23:31 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/826321894.shtml)
-- 2026-06-29 23:46 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/8280191759.shtml)
-- 2026-06-29 23:43 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/11785.shtml)
+- 2026-06-29 23:47 - [张凌赫 客串](https://www.blog.minike.top/Article/details/60892646.shtml)
+- 2026-06-29 23:30 - [青春环游记第三季](https://www.share.minike.top/Article/details/2211139.shtml)
+- 2026-06-29 23:59 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/23604424064.shtml)
+- 2026-06-29 23:37 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/57454056469.shtml)
+- 2026-06-29 23:55 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/575898185108.shtml)
+- 2026-06-29 23:39 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/1062770552.shtml)
+- 2026-06-29 23:57 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/4600831.shtml)
+- 2026-06-29 23:57 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/25601795855.shtml)
+- 2026-06-29 23:53 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/6096491771.shtml)
+- 2026-06-29 23:59 - [美国一牛仔表演发生事故](http://www.blog.minike.top/Article/details/5757410.shtml)
+- 2026-06-29 23:32 - [105岁女红军看到自己长征时的模样](http://www.share.kurohicncr.top/Article/details/22582.shtml)
+- 2026-06-29 23:55 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/316728791.shtml)
+- 2026-06-29 23:39 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/522802.shtml)
+- 2026-06-29 23:53 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/64661173.shtml)
+- 2026-06-29 23:45 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/82059.shtml)

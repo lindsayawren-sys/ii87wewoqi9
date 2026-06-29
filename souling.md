@@ -1,57 +1,61 @@
-# 卡利巴夫的“新角色”
+# 汶川地震18周年 台青走进灾区缅怀遇难者
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-中国新闻周刊记者：陈佳琳 发于总第1237期《中国新闻周刊》杂志 过去一周，美国与伊朗的停火协议“基本谈成”的消息，引发了共和党鹰派的恐慌。他们罕见地公开批评特朗普，认为他急于结束战争，对伊朗作出太多让步。 在万里之外的德黑兰，针对伊朗对美首席谈判代表、伊斯兰议会议长卡利巴夫的政治攻击也在加剧。据半官方性质的伊朗劳工通讯社(ILNA)报道，伊朗议会投票选举新一届主席团前，出现了
+中新社成都5月12日电 (黄欣欣)“每年到这一天看新闻我都要流眼泪，我当时就住在这，隔壁就有孩子遇难。”夏春季是2008年汶川地震亲历者，18年后站在都江堰市抗震救灾·恢复重建陈列馆，向台湾青年忆起当年的惊心动魄。12日，约30名两岸媒体人走进当年的地震灾区，缅怀遇难者。作为距离震中最近的区县之一，都江堰全市遇难人数超三千人，多所学校教学楼垮塌。 展厅里，挂着灾民暂借水泥涵管避
 
 ## 正文
 
-中国新闻周刊记者：陈佳琳 发于总第1237期《中国新闻周刊》杂志 过去一周，美国与伊朗的停火协议“基本谈成”的消息，引发了共和党鹰派的恐慌。
+中新社成都5月12日电 (黄欣欣)“每年到这一天看新闻我都要流眼泪，我当时就住在这，隔壁就有孩子遇难。
 
-他们罕见地公开批评特朗普，认为他急于结束战争，对伊朗作出太多让步。
+”夏春季是2008年汶川地震亲历者，18年后站在都江堰市抗震救灾·恢复重建陈列馆，向台湾青年忆起当年的惊心动魄。
 
-在万里之外的德黑兰，针对伊朗对美首席谈判代表、伊斯兰议会议长卡利巴夫的政治攻击也在加剧。
+12日，约30名两岸媒体人走进当年的地震灾区，缅怀遇难者。
 
-据半官方性质的伊朗劳工通讯社(ILNA)报道，伊朗议会投票选举新一届主席团前，出现了针对卡利巴夫的“有组织诋毁”。
+作为距离震中最近的区县之一，都江堰全市遇难人数超三千人，多所学校教学楼垮塌。
 
-部分反对谈判的激进派，通过媒体和短信攻势向议员施压，试图阻止卡利巴夫继续领导议会。
+展厅里，挂着灾民暂借水泥涵管避灾的照片。
 
-美伊再次爆发有限冲突的5月25日，卡利巴夫以决定性优势战胜极端强硬派支持的挑战者，成功连任，任期再延长一年。
+夏春季说，为躲避余震，他和邻居在货车里住了数月。
 
-同一天，他与外长阿拉格齐、央行行长赫马蒂奔赴卡塔尔，在为期一天的行程中重点讨论伊朗被冻结资产的解冻问题。
+“十多年前我在台湾电视上看到这些画面，手都在抖。
 
-面对内部纷争，伊朗最高国家安全委员会秘书佐勒加德尔罕见公开发声，称此时伊朗更需要保持团结，唯其如此，才有可能获得“最终胜利”。
+那时台湾街头到处是募捐箱，我和朋友把零用钱都塞进去。
 
 ## 相关推荐
 
-- 2026-06-29 23:32 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-29 23:48 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 23:31 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-29 23:43 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 23:30 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-29 23:43 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 23:50 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 23:26 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-29 23:26 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 23:25 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 23:25 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 23:32 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-29 23:40 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-29 23:47 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 23:41 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 23:46 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-29 23:38 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 23:46 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-29 23:55 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 23:45 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 23:43 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 23:47 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 23:59 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-29 23:43 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-29 23:36 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 23:37 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:38 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/02178.shtml)
-- 2026-06-29 23:35 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/9848902169.shtml)
-- 2026-06-29 23:29 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/138503071254.shtml)
-- 2026-06-29 23:46 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/0955564.shtml)
-- 2026-06-29 23:49 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/942807.shtml)
-- 2026-06-29 23:48 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/962082851.shtml)
-- 2026-06-29 23:28 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/884225181952.shtml)
-- 2026-06-29 23:37 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/981982094.shtml)
-- 2026-06-29 23:28 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/7235403.shtml)
-- 2026-06-29 23:35 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/40685015572.shtml)
-- 2026-06-29 23:42 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/23759.shtml)
-- 2026-06-29 23:44 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/379726.shtml)
-- 2026-06-29 23:25 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/7325357573.shtml)
-- 2026-06-29 23:53 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/8071759647.shtml)
-- 2026-06-29 23:34 - [恋与深空制作组回应争议](http://www.share.kurohicncr.top/Article/details/9986757.shtml)
+- 2026-06-29 23:46 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/388607.shtml)
+- 2026-06-29 23:41 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/552236842.shtml)
+- 2026-06-29 23:38 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/6640038566.shtml)
+- 2026-06-29 23:48 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/4862975319.shtml)
+- 2026-06-29 23:41 - [恋与深空 日服](http://www.blog.minike.top/Article/details/903432054581.shtml)
+- 2026-06-29 23:38 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/6497637225.shtml)
+- 2026-06-29 23:58 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/087296151.shtml)
+- 2026-06-29 23:49 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/87062210.shtml)
+- 2026-06-29 23:56 - [如何看待乌空军3架米格-29被摧毁](https://www.share.minike.top/Article/details/23633290536.shtml)
+- 2026-06-29 23:50 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/653855514.shtml)
+- 2026-06-29 23:45 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/583660.shtml)
+- 2026-06-29 23:42 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/923903.shtml)
+- 2026-06-29 23:57 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/71143.shtml)
+- 2026-06-29 23:36 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/30780.shtml)
+- 2026-06-29 23:52 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/8977659.shtml)

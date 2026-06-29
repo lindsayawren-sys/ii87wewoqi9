@@ -1,48 +1,57 @@
-# 《联合国可转让货物单证公约》将于10月开放签署
+# 酒价内参5月13日价格发布：五粮液1618下跌1元
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-记者今天(6月1日)从商务部了解到，《联合国可转让货物单证公约》将于2026年10月26日在加纳首都阿克拉开放签署，中方将积极签约并推动《公约》早日生效。 《联合国可转让货物单证公约》创设适用于各类运输方式的“可转让货物单证”，并赋予其与海运提单相同的物权凭证属性，对于推动全球贸易繁荣发展具有重要意义，将填补陆路运单物权凭证属性的国际法空白，为跨境贸易融资和全球供应链稳定提供更
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月13日整体窄幅波动。如果主要单品各取一瓶整体打包售卖，今日总售价为9951元，较昨日微跌3元，连续三日站稳9950元上方。今日市场延续高位整理行情，终端交投情绪平稳，核心单品涨跌分化依然显著。 今日白酒市场11大单品五涨三跌三平，赢
 
 ## 正文
 
-记者今天(6月1日)从商务部了解到，《联合国可转让货物单证公约》将于2026年10月26日在加纳首都阿克拉开放签署，中方将积极签约并推动《公约》早日生效。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月13日整体窄幅波动。
 
-《联合国可转让货物单证公约》创设适用于各类运输方式的“可转让货物单证”，并赋予其与海运提单相同的物权凭证属性，对于推动全球贸易繁荣发展具有重要意义，将填补陆路运单物权凭证属性的国际法空白，为跨境贸易融资和全球供应链稳定提供更多保障。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9951元，较昨日微跌3元，连续三日站稳9950元上方。
 
-(央视新闻客户端 总台央视记者 吴昊 高媛)
+今日市场延续高位整理行情，终端交投情绪平稳，核心单品涨跌分化依然显著。
+
+今日白酒市场11大单品五涨三跌三平，赢家占据优势，但涨幅相对温和。
+
+上涨方面，飞天茅台、五粮液普五八代、国窖1573及青花郎均上涨2元/瓶，同步小幅回暖，其中飞天茅台二连涨，普五平近一月最高价格，国窖1573收获四连阳，价格快速回升至月内次高位，青花郎近半月价格中枢总体呈缓慢上升势头；洋河梦之蓝M6+上涨1元/瓶，价格升至月内次高位。
+
+下跌方面，古20跌幅居前，下跌6元/瓶，连续上涨势头告终；习酒君品下跌5元/瓶，创近一月新低；五粮液1618下跌1元/瓶。
+
+精品茅台、青花汾20及水晶剑南春的价格环比保持不变。
+
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-29 23:45 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-29 23:36 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-29 23:53 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-29 23:49 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-29 23:36 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 23:38 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 23:52 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 23:37 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 23:42 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 23:47 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 23:26 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 23:53 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-29 23:48 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 23:53 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-29 23:36 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-29 23:33 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 23:42 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-29 23:44 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-29 23:47 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-29 23:50 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 23:44 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-29 23:51 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 23:49 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:33 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/9412394.shtml)
-- 2026-06-29 23:52 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/47022967442.shtml)
-- 2026-06-29 23:47 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/741977.shtml)
-- 2026-06-29 23:46 - [演员都来上音综的原因](https://www.blog.minike.top/Article/details/18156.shtml)
-- 2026-06-29 23:53 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/75140697944.shtml)
-- 2026-06-29 23:26 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/03918.shtml)
-- 2026-06-29 23:46 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/9964023082.shtml)
-- 2026-06-29 23:41 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/78921762.shtml)
-- 2026-06-29 23:53 - [105岁女红军看到自己长征时的模样](http://www.share.minike.top/Article/details/856037133525.shtml)
-- 2026-06-29 23:27 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/96200682684.shtml)
-- 2026-06-29 23:41 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/764553064.shtml)
-- 2026-06-29 23:34 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/48665.shtml)
-- 2026-06-29 23:47 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/0842688740.shtml)
-- 2026-06-29 23:28 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/570644407802.shtml)
-- 2026-06-29 23:31 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/65489328.shtml)
+- 2026-06-29 23:32 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/942829305.shtml)
+- 2026-06-29 23:34 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/7776458587.shtml)
+- 2026-06-29 23:49 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/568154.shtml)
+- 2026-06-29 23:52 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/833838325225.shtml)
+- 2026-06-29 23:48 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/655145.shtml)
+- 2026-06-29 23:44 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/208291477.shtml)
+- 2026-06-29 23:57 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/3035078751.shtml)
+- 2026-06-29 23:53 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/99786471.shtml)
+- 2026-06-29 23:45 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/5123269.shtml)
+- 2026-06-29 23:42 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/96910791.shtml)
+- 2026-06-29 23:52 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/70935700.shtml)
+- 2026-06-29 23:41 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/59034166.shtml)
+- 2026-06-29 23:41 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/47518.shtml)
+- 2026-06-29 23:54 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/052447614185.shtml)
+- 2026-06-29 23:33 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/4775179495.shtml)

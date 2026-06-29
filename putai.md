@@ -1,56 +1,58 @@
-# 【十大券商一周策略】短期波动或加大，但并非行情反转！AI超级周期仍在半途
+# 央行：精准有效实施适度宽松的货币政策
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！广发证券：A股的成交集中度仍有上行空间 针对市场整体，广发证券认为，当指数没有负面β的情况下，市场也不会出现资金全面流出，季度维度上，还是可以聚焦业绩和产业，即6月底A股半年报预告、7月中旬美股半年报。 针对A股成交集中度来到相对高位的话题，广发证券认为，A股的成交集中度仍有上行空间。首先，即便是与历史高点
+证券时报记者 贺觉渊 5月11日，中国人民银行发布《2026年第一季度中国货币政策执行报告》（以下简称《报告》），明确下阶段将精准有效实施适度宽松的货币政策，着力扩大内需、优化供给，做优增量、盘活存量，增强经济发展内生动力，不断巩固拓展经济稳中向好势头。 今年以来，外部形势复杂多变，我国宏观政策更加积极有为，国民经济运行起步有力。《报告》指出，有效需求逐步回升，实体经济供需关系
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+证券时报记者 贺觉渊 5月11日，中国人民银行发布《2026年第一季度中国货币政策执行报告》（以下简称《报告》），明确下阶段将精准有效实施适度宽松的货币政策，着力扩大内需、优化供给，做优增量、盘活存量，增强经济发展内生动力，不断巩固拓展经济稳中向好势头。
 
-广发证券：A股的成交集中度仍有上行空间 针对市场整体，广发证券认为，当指数没有负面β的情况下，市场也不会出现资金全面流出，季度维度上，还是可以聚焦业绩和产业，即6月底A股半年报预告、7月中旬美股半年报。
+今年以来，外部形势复杂多变，我国宏观政策更加积极有为，国民经济运行起步有力。
 
-针对A股成交集中度来到相对高位的话题，广发证券认为，A股的成交集中度仍有上行空间。
+《报告》指出，有效需求逐步回升，实体经济供需关系持续改善，市场竞争秩序不断优化，为物价合理回升提供了有力支撑。
 
-首先，即便是与历史高点比较，当前成交集中度也尚未到达极值。
+近期，中东地缘政治事件引起国际原油和部分大宗商品价格上行，《报告》认为，这对当前我国物价指标回升有一定作用，外部输入型通胀对国内经济运行的影响也需要密切关注。
 
-其次，在大的产业趋势面前，成交集中度本身就有望创新高。
+宏观审慎管理是防范系统性金融风险的关键举措。
 
-此外，本轮集中度提升的背后，传统资产的抛压也驱使资金加速涌入科技，也进一步导致了成交集中度的高斜率上行。
+《报告》明确下阶段将加快构建覆盖全面的宏观审慎管理体系。
 
-因此，在景气度和业绩加速面前，以交易集中度、成交额占比、市值占比为代表的拥挤度指标很容易失效。
+丰富宏观审慎政策工具箱，持续做好重点领域宏观审慎管理。
 
-这类指标更适用于业绩尚未兑现的题材板块，典型如人形机器人、商业航天、AI应用等。
+逐步拓展宏观审慎管理范围。
 
 ## 相关推荐
 
-- 2026-06-29 23:28 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-29 23:27 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 23:39 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 23:35 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 23:53 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 23:24 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 23:35 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-29 23:51 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-29 23:50 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 23:50 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-29 23:30 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 23:42 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 23:53 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-29 23:47 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 23:46 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 23:44 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 23:41 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-29 23:43 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 23:59 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 23:43 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 23:40 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 23:54 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:40 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/35956.shtml)
-- 2026-06-29 23:36 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/96836.shtml)
-- 2026-06-29 23:36 - [世界杯](https://www.blog.kurohicncr.top/Article/details/811933686.shtml)
-- 2026-06-29 23:40 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/511141967.shtml)
-- 2026-06-29 23:44 - [湖南姑娘被东北同事带偏口音](http://www.blog.kurohicncr.top/Article/details/88539.shtml)
-- 2026-06-29 23:25 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/19720143214.shtml)
-- 2026-06-29 23:41 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/225115184597.shtml)
-- 2026-06-29 23:26 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/64689420.shtml)
-- 2026-06-29 23:27 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/91777445366.shtml)
-- 2026-06-29 23:49 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/62641773039.shtml)
-- 2026-06-29 23:34 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/1864557.shtml)
-- 2026-06-29 23:45 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/1845338601.shtml)
-- 2026-06-29 23:35 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/82167777.shtml)
-- 2026-06-29 23:31 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/903174019.shtml)
-- 2026-06-29 23:40 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/024620.shtml)
+- 2026-06-29 23:34 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/0146515116.shtml)
+- 2026-06-29 23:47 - [急先锋](http://www.share.kurohicncr.top/Article/details/6905592091.shtml)
+- 2026-06-29 23:52 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/077273989.shtml)
+- 2026-06-29 23:54 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/2134366506.shtml)
+- 2026-06-29 23:59 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/6718382617.shtml)
+- 2026-06-29 23:37 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/478103146289.shtml)
+- 2026-06-29 23:44 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/91554101640.shtml)
+- 2026-06-29 23:42 - [起风了](http://www.share.minike.top/Article/details/401257603.shtml)
+- 2026-06-29 23:37 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/375553.shtml)
+- 2026-06-29 23:31 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/61431223.shtml)
+- 2026-06-29 23:49 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/27463663.shtml)
+- 2026-06-29 23:35 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/19341.shtml)
+- 2026-06-29 23:57 - [电影后室值得看吗](https://www.share.minike.top/Article/details/292652341.shtml)
+- 2026-06-29 23:55 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/18915028.shtml)
+- 2026-06-29 23:37 - [月亮](http://www.share.minike.top/Article/details/577795610469.shtml)

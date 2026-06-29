@@ -1,56 +1,55 @@
-# 华泰期货：运价驱动向上，关注马士基6月下半月第一周报价
+# 泡泡玛特早盘高开近4% 第一季度整体收益同比增长75%至80%
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 高聪 市场分析 线上报价方面。 Gemini Cooperation：马士基上海-鹿特丹 WEEK24周报价2710/3970（40GP开价较week23周增加200美元/FEU）；HPL 6月上半月船期报价4000-5062美元/FEU，6月下半月船期报价5208-5563美元/FEU，7月份船期报价6016-6041美元/FEU。马士基6月份PSS
+泡泡玛特（09992）早盘高开近4%，截至发稿，股价上涨3.87%，报169.2港元，成交额1.63亿港元。 泡泡玛特公布，2026年第一季度整体收益（未经审核）同比增长75%- 80%，其中中国收益同比增长100%-105%，亚太同比增长25%-30%，美洲同比增长55%-60%，以及欧洲及其他地区同比增长60%-65%。2026年第一季度中国各渠道收益（未经审核）：线下渠道
 
 ## 正文
 
-来源：华泰期货 作者： 高聪 市场分析 线上报价方面。
+泡泡玛特（09992）早盘高开近4%，截至发稿，股价上涨3.87%，报169.2港元，成交额1.63亿港元。
 
-Gemini Cooperation：马士基上海-鹿特丹 WEEK24周报价2710/3970（40GP开价较week23周增加200美元/FEU）；HPL 6月上半月船期报价4000-5062美元/FEU，6月下半月船期报价5208-5563美元/FEU，7月份船期报价6016-6041美元/FEU。
+泡泡玛特公布，2026年第一季度整体收益（未经审核）同比增长75%- 80%，其中中国收益同比增长100%-105%，亚太同比增长25%-30%，美洲同比增长55%-60%，以及欧洲及其他地区同比增长60%-65%。
 
-马士基6月份PSS 300/600（6月10日之后开始征收），马士基公布6/15-7/15日涨价函价格为3055/4700。
+2026年第一季度中国各渠道收益（未经审核）：线下渠道同比增长75%-80%；及线上渠道同比增长150%-155%。
 
-MSC+Premier Alliance：MSC 6月上半月船期报价2840/4740；ONE 6月上半月船期报价4006美元/FEU，6月下半月船期报价5006美元/FEU，7月份船期报价5008美元/FEU；HMM 6月上半月船期报价2164/3928；YML6月上半月船期报价2250/4000。
+华泰证券点评称，公司Q1国内业务环比稳中有增，完善的渠道+生态韧性显现，有望成为全年业绩“压舱石”；预计26年公司将重点强化精细化运营能力，并拓展乐园、影视、甜品等创新业态，为未来海外市场及IP矩阵持续成长蓄力。
 
-MSC 6月份 下半月涨价函价格 Ocean Alliance：CMA 上海-鹿特丹6月上半月船期报价4225-4275美元/FEU；EMC 6月上半月船期报价4560美元/FEU，6月下半月船期报价3630/5560；OOCL 6月上半月船期报价4209-4499美元/FEU。
-
-地缘端：美国总统特朗普在当晚福克斯新闻播出的一档采访节目中表示，当前美伊已接近达成一份“很好的协议”。
-
-特朗普同时在采访中表示，我们会得到一份“更好的协议”，这本当更快才对。
-
-但同时特朗普表示，如果无法达成协议，他会要求“战争部”（即美国国防部）介入。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:32 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 23:49 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 23:26 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 23:39 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-29 23:51 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-29 23:36 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-29 23:30 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-29 23:47 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 23:51 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 23:25 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-29 23:55 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 23:45 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-29 23:53 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-29 23:35 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 23:58 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 23:46 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-29 23:50 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-29 23:42 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 23:31 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 23:50 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 23:39 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 23:59 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 23:32 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 23:36 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 23:46 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:34 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/497845559491.shtml)
-- 2026-06-29 23:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/696930.shtml)
-- 2026-06-29 23:40 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.minike.top/Article/details/03892.shtml)
-- 2026-06-29 23:39 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/528090.shtml)
-- 2026-06-29 23:35 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/34217790468.shtml)
-- 2026-06-29 23:47 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/026573.shtml)
-- 2026-06-29 23:44 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/12761.shtml)
-- 2026-06-29 23:28 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/503684342.shtml)
-- 2026-06-29 23:28 - [金牌调解](http://www.share.kurohicncr.top/Article/details/9931652420.shtml)
-- 2026-06-29 23:49 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/358039773891.shtml)
-- 2026-06-29 23:48 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/093498677.shtml)
-- 2026-06-29 23:41 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/58255902.shtml)
-- 2026-06-29 23:24 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/845709181809.shtml)
-- 2026-06-29 23:31 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/0544328.shtml)
-- 2026-06-29 23:32 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/79080461451.shtml)
+- 2026-06-29 23:47 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/0876902.shtml)
+- 2026-06-29 23:45 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/88898700588.shtml)
+- 2026-06-29 23:31 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/1808508608.shtml)
+- 2026-06-29 23:58 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/983187.shtml)
+- 2026-06-29 23:42 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/94481.shtml)
+- 2026-06-29 23:48 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/83553260.shtml)
+- 2026-06-29 23:38 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/76062492.shtml)
+- 2026-06-29 23:30 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/1396464392.shtml)
+- 2026-06-29 23:34 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.kurohicncr.top/Article/details/355426694.shtml)
+- 2026-06-29 23:31 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/64164669.shtml)
+- 2026-06-29 23:37 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/649491.shtml)
+- 2026-06-29 23:35 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/507184679.shtml)
+- 2026-06-29 23:55 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/40950917.shtml)
+- 2026-06-29 23:33 - [周生如故](https://www.blog.kurohicncr.top/Article/details/687586904104.shtml)
+- 2026-06-29 23:45 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/756568625056.shtml)

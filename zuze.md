@@ -1,43 +1,58 @@
-# 三丰智能：暂未开展人形机器人相关业务
+# 吉林全力打造全国重要绿色能源高地
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-转自：证券时报人民财讯6月1日电，三丰智能(300276)6月1日于互动平台表示，目前，公司暂未开展人形机器人相关业务。
+中新网长春5月12日电 (高龙安 李彦国)吉林省能源局局长赵彦峰12日在长春表示，“十五五”时期，该省将新能源产业作为培育壮大新质生产力、布局未来产业的“突破口”，推出多项举措推动新能源产业提质跃升。 当天，吉林省政府新闻办召开“开局起步‘十五五’推动吉林全面振兴和高质量发展”系列主题新闻发布会第二场，赵彦峰详细介绍了新能源产业跃升发展的相关举措。 截至“十四五”末，吉林省新增
 
 ## 正文
 
-转自：证券时报人民财讯6月1日电，三丰智能(300276)6月1日于互动平台表示，目前，公司暂未开展人形机器人相关业务。
+中新网长春5月12日电 (高龙安 李彦国)吉林省能源局局长赵彦峰12日在长春表示，“十五五”时期，该省将新能源产业作为培育壮大新质生产力、布局未来产业的“突破口”，推出多项举措推动新能源产业提质跃升。
+
+当天，吉林省政府新闻办召开“开局起步‘十五五’推动吉林全面振兴和高质量发展”系列主题新闻发布会第二场，赵彦峰详细介绍了新能源产业跃升发展的相关举措。
+
+截至“十四五”末，吉林省新增风光新能源装机是“十三五”期间的3.6倍，风光新能源装机占比、发电量占比及非水可再生能源消纳责任权重均走在全国前列；能源领域投资连续两年超千亿元，氢基绿能产业领跑全国，新能源产业已强势崛起为全省发展新的增长极。
+
+当前，吉林省正加快“两集四高”建设，全力打造全国重要的绿色能源产业高地。
+
+赵彦峰介绍，“两集”即推进新能源产业集成式发展、集群化布局，“四高”指实现新能源高质量开发、高水平消纳、高价值转化。
+
+在此基础上，吉林省将科学编制新型能源体系建设“十五五”规划，推动规划落地见效。
+
+为优化产业发展环境，吉林省将进一步完善省级能源政策体系，深化电力市场机制改革创新，保障企业“用得上绿电、用得起绿电、用得好绿电”，推动源网荷储协同发展，为新能源产业项目落地保驾护航。
+
+在产业融合发展方面，吉林将制定出台新能源集成融合发展方案，推出三种融合模式、17个典型场景，推动新能源产业多维度一体开发、多产业深度融合、多链条系统集成、多场景培育应用，打造产业发展“第二曲线”。
 
 ## 相关推荐
 
-- 2026-06-29 23:51 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-29 23:24 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 23:39 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-29 23:47 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 23:52 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-29 23:38 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 23:26 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-29 23:42 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-29 23:38 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 23:40 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-29 23:37 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-29 23:34 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-29 23:55 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 23:59 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 23:57 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 23:59 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-29 23:31 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 23:38 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 23:46 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 23:41 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-29 23:54 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 23:32 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-29 23:40 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:41 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.minike.top/Article/details/57810923954.shtml)
-- 2026-06-29 23:43 - [追觅称质量不行终身包修也没意义](https://www.share.minike.top/Article/details/277743732719.shtml)
-- 2026-06-29 23:39 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/28664.shtml)
-- 2026-06-29 23:25 - [山东发布山洪灾害气象预警](https://www.blog.minike.top/Article/details/730843137.shtml)
-- 2026-06-29 23:31 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/6814267.shtml)
-- 2026-06-29 23:40 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/95950.shtml)
-- 2026-06-29 23:34 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.minike.top/Article/details/128274262277.shtml)
-- 2026-06-29 23:34 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/1664059308.shtml)
-- 2026-06-29 23:28 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/669930972.shtml)
-- 2026-06-29 23:35 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.kurohicncr.top/Article/details/344600.shtml)
-- 2026-06-29 23:39 - [一生一世](https://www.blog.kurohicncr.top/Article/details/490105444.shtml)
-- 2026-06-29 23:45 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/27935692.shtml)
-- 2026-06-29 23:39 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/15748.shtml)
-- 2026-06-29 23:32 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/835342394362.shtml)
-- 2026-06-29 23:35 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/0210533.shtml)
+- 2026-06-29 23:32 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/347098.shtml)
+- 2026-06-29 23:48 - [《贺子珍》](http://www.blog.minike.top/Article/details/31391940.shtml)
+- 2026-06-29 23:34 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/6055138815.shtml)
+- 2026-06-29 23:33 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/10383093.shtml)
+- 2026-06-29 23:57 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/8029669.shtml)
+- 2026-06-29 23:50 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/307304970.shtml)
+- 2026-06-29 23:53 - [扬名立万](http://www.share.kurohicncr.top/Article/details/5368728.shtml)
+- 2026-06-29 23:30 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/93292001511.shtml)
+- 2026-06-29 23:49 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/80001.shtml)
+- 2026-06-29 23:49 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/76831326603.shtml)
+- 2026-06-29 23:38 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.minike.top/Article/details/76892096076.shtml)
+- 2026-06-29 23:33 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/797146773.shtml)
+- 2026-06-29 23:49 - [美国一牛仔表演发生事故](http://www.blog.kurohicncr.top/Article/details/749705309.shtml)
+- 2026-06-29 23:34 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/9671105.shtml)
+- 2026-06-29 23:47 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/69856324670.shtml)

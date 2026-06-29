@@ -1,55 +1,56 @@
-# 第七届“中外人文交流小使者”人工智能及四足机器人国际交流展示活动举行
+# 广州：让文旅从“观光打卡”迈向“沉浸共生”
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月31日 19:16 来源：中国新闻网 5月29日至31日，第七届“中外人文交流小使者”人工智能及四足机器人国际交流展示活动(华北站)在北京举办。来自英国、爱尔兰、西班牙、摩尔多瓦、韩国、德国、俄罗斯、白俄罗斯、阿尔及利亚、喀麦隆等多个国家，以及中国香港地区的青少年代表团，携手中国华北、东北地区多所中小学，总计81个团组、近500名中外师生相聚首都北京，
+数智赋能 文旅新生 从“观光打卡”迈向“沉浸共生” 当数字场景、内容、技术与文旅深度融合，旅行不再只是“去哪儿”，更是“和谁对话”。从VR、AR到人工智能大模型，从电竞动漫到人形机器人，科技正将博物馆里的文物、老街里的故事、山水间的诗意，化作在游客耳边娓娓道来的朋友、眼前触手可及的风景。 如今，数字化文旅早已超越“电子讲解”，让文化可沉浸、可参与、可共情，让每一次出发更有温度、
 
 ## 正文
 
-发布时间：2026年05月31日 19:16 来源：中国新闻网 5月29日至31日，第七届“中外人文交流小使者”人工智能及四足机器人国际交流展示活动(华北站)在北京举办。
+数智赋能 文旅新生 从“观光打卡”迈向“沉浸共生” 当数字场景、内容、技术与文旅深度融合，旅行不再只是“去哪儿”，更是“和谁对话”。
 
-来自英国、爱尔兰、西班牙、摩尔多瓦、韩国、德国、俄罗斯、白俄罗斯、阿尔及利亚、喀麦隆等多个国家，以及中国香港地区的青少年代表团，携手中国华北、东北地区多所中小学，总计81个团组、近500名中外师生相聚首都北京，在四足机器人竞速障碍展示和人工智能应用展示等活动中同场竞技、交流互动，共同书写中外青少年友好交往的友谊篇章。
+从VR、AR到人工智能大模型，从电竞动漫到人形机器人，科技正将博物馆里的文物、老街里的故事、山水间的诗意，化作在游客耳边娓娓道来的朋友、眼前触手可及的风景。
 
-此前该系列活动已先后在杭州、武汉、广州三座城市成功举办。
+如今，数字化文旅早已超越“电子讲解”，让文化可沉浸、可参与、可共情，让每一次出发更有温度、更有回响。
 
-目前，活动已累计吸引来自五大洲二十余个国家和地区的数千名中外师生参与。
+文、图/广州日报全媒体记者 罗磊 通讯员 吕嘉欣 陈嘉晖 数字场景 从“工具辅助”跨越至“情感共鸣” 日前，市民陈小姐走进广州塔一层登塔大厅，便被激昂的《赛马》吸引。
 
-(记者 刘超 视频来源 教育部中外人文交流中心） 责任编辑：【叶攀】
+舞台上，大提琴、小提琴演奏家与搭载灵巧手的钢琴机器人同台合奏，弓弦飞扬，琴键精准，中西经典曲目轮番上演，赢得阵阵掌声。
+
+陈小姐忍不住举起手机拍摄：“没想到机器人能和演奏家配合得这么默契，太过瘾了！
+
+” 这是“人类未来音乐会”的一幕，由弦乐演奏家与“灵巧手”机器人共同呈现，每日多场演出，将持续至5月25日。
+
+这种人机共情的瞬间，让数字场景的演进跨越了功能性辅助，向着有温度、有情感的交互体验跃升，科技让文旅服务更智慧，也更懂人心。
 
 ## 相关推荐
 
-- 2026-06-29 23:48 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-29 23:53 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-29 23:46 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-29 23:32 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-29 23:24 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 23:53 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 23:44 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 23:49 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 23:40 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-29 23:49 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 23:42 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 23:52 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-29 23:43 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-29 23:31 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-29 23:51 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-29 23:51 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-29 23:33 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 23:34 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-29 23:59 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 23:58 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 23:50 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 23:31 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-29 23:34 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 23:32 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-29 23:33 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:44 - [曼城官宣马雷斯卡出任主教练](https://www.share.kurohicncr.top/Article/details/83711461.shtml)
-- 2026-06-29 23:40 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/264038929853.shtml)
-- 2026-06-29 23:30 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/901157558.shtml)
-- 2026-06-29 23:31 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/704360.shtml)
-- 2026-06-29 23:51 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/8314363781.shtml)
-- 2026-06-29 23:25 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/26264.shtml)
-- 2026-06-29 23:45 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/04370068.shtml)
-- 2026-06-29 23:51 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/83635259190.shtml)
-- 2026-06-29 23:32 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/900166.shtml)
-- 2026-06-29 23:50 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/017482.shtml)
-- 2026-06-29 23:24 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/46791270002.shtml)
-- 2026-06-29 23:46 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/468074433.shtml)
-- 2026-06-29 23:44 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/608549.shtml)
-- 2026-06-29 23:30 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/505304.shtml)
-- 2026-06-29 23:39 - [网约车出事故平台拒赔称只是中介](https://www.blog.minike.top/Article/details/03958.shtml)
+- 2026-06-29 23:42 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/45822.shtml)
+- 2026-06-29 23:59 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/6744551.shtml)
+- 2026-06-29 23:33 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/815659207.shtml)
+- 2026-06-29 23:44 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/04018350648.shtml)
+- 2026-06-29 23:56 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/635230212.shtml)
+- 2026-06-29 23:58 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/5951343091.shtml)
+- 2026-06-29 23:57 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/88552376764.shtml)
+- 2026-06-29 23:35 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/109437916489.shtml)
+- 2026-06-29 23:52 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/052585873947.shtml)
+- 2026-06-29 23:32 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/8090377315.shtml)
+- 2026-06-29 23:59 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/44483626.shtml)
+- 2026-06-29 23:33 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/2808820.shtml)
+- 2026-06-29 23:50 - [高考1357分的同学如何报志愿？](http://www.share.kurohicncr.top/Article/details/9962417589.shtml)
+- 2026-06-29 23:36 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/701792268.shtml)
+- 2026-06-29 23:40 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/5869763992.shtml)

@@ -1,61 +1,56 @@
-# 智博会观察：AI“老中医”坐诊，“望闻问切”走到哪一步了？
+# 美国人乐享“中式生活”
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-中新网天津5月30日电 (记者 孙玲玲)当千年中医遇上人工智能，会发生什么？本届智博会智慧医疗展区展出的多款产品给出了各自的探索方向——从舌诊、面诊到脉诊，从基层医疗到家庭健康管理，AI中医产品正从实验室走向更多应用场景。 “AI扁鹊”：3分钟完成四诊 “伸出舌头，对准镜头。”在天津中医药大学的展台前，一台名为“AI扁鹊检测仪”的设备引起不少观众驻足。体验者将面部对准摄像头、双
+中新社纽约5月12日电 题：美国人乐享“中式生活” 中新社记者 王帆 廖攀 从纽约街头人气火爆的奶茶店、火锅店，到越来越受欢迎的太极、古筝课堂，再到社交媒体上关于中国旅游和文化体验的讨论，近来，越来越多美国民众开始以自己的方式接触了解中国，体验中国文化，“像中国人一样生活”成为热门现象。 对许多美国人来说，接触“中式生活”的第一站往往是“吃”。如今，这种“吃”已超出美式中餐馆里
 
 ## 正文
 
-中新网天津5月30日电 (记者 孙玲玲)当千年中医遇上人工智能，会发生什么？
+中新社纽约5月12日电 题：美国人乐享“中式生活” 中新社记者 王帆 廖攀 从纽约街头人气火爆的奶茶店、火锅店，到越来越受欢迎的太极、古筝课堂，再到社交媒体上关于中国旅游和文化体验的讨论，近来，越来越多美国民众开始以自己的方式接触了解中国，体验中国文化，“像中国人一样生活”成为热门现象。
 
-本届智博会智慧医疗展区展出的多款产品给出了各自的探索方向——从舌诊、面诊到脉诊，从基层医疗到家庭健康管理，AI中医产品正从实验室走向更多应用场景。
+对许多美国人来说，接触“中式生活”的第一站往往是“吃”。
 
-“AI扁鹊”：3分钟完成四诊 “伸出舌头，对准镜头。
+如今，这种“吃”已超出美式中餐馆里左宗棠鸡和陈皮牛的范畴。
 
-”在天津中医药大学的展台前，一台名为“AI扁鹊检测仪”的设备引起不少观众驻足。
+在纽约，每到晚餐时间，帝国大厦附近名为“蜀道山”的火锅店便会排起长龙，其地道的四川风味成为无数食客第一次体验正宗中国火锅的地方。
 
-体验者将面部对准摄像头、双手放在传感器上，约3分钟后，一份涵盖舌象、面色、脉象等指标的中医体质报告自动生成。
+“是孩子们邀请我和丈夫一起来的，这也是我第一次吃火锅。
 
-“传统中医诊断依赖医生经验，不同医生对同一患者的判断可能存在差异。
+”家住宾夕法尼亚州费城的凯·卡罗拉斯对中新社记者说，纽约工作的儿女之前曾光顾过这家店，觉得味道很棒，于是在她生日这天专程带她来感受一下。
 
-”项目研发团队核心企业天中依脉市场经理柳丽琴介绍，“AI扁鹊检测仪”由中国中医科学院重点支持，团队汇聚了天津中医药大学等多方力量，旨在通过人工智能技术推动中医四诊的客观化与标准化。
+卡罗拉斯表示，生活的美好就源于不同文化的交融。
 
-据了解，“中医望闻问切四诊系统”“中医体质辨识系统”等智能中医设备已在部分县乡卫生院投入使用，并为多所中医药院校提供虚拟教学系统。
+如果有机会，她愿意去中国走走看看。
 
 ## 相关推荐
 
-- 2026-06-29 23:52 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-29 23:24 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 23:31 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-29 23:41 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-29 23:31 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-29 23:34 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-29 23:34 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 23:52 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-29 23:27 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-29 23:30 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-29 23:44 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-29 23:42 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 23:44 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 23:41 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-29 23:46 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-29 23:36 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 23:37 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 23:49 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-29 23:38 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 23:57 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 23:47 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-29 23:53 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 23:38 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 23:57 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-29 23:54 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:39 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/61908575.shtml)
-- 2026-06-29 23:48 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/868024718.shtml)
-- 2026-06-29 23:30 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/10152596882.shtml)
-- 2026-06-29 23:41 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/7610761.shtml)
-- 2026-06-29 23:32 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/6750637.shtml)
-- 2026-06-29 23:43 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/74835.shtml)
-- 2026-06-29 23:27 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/6540694692.shtml)
-- 2026-06-29 23:53 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.kurohicncr.top/Article/details/47395223160.shtml)
-- 2026-06-29 23:48 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/353797376130.shtml)
-- 2026-06-29 23:26 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/0141055707.shtml)
-- 2026-06-29 23:52 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/9268502.shtml)
-- 2026-06-29 23:53 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/1949538.shtml)
-- 2026-06-29 23:43 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/425923.shtml)
-- 2026-06-29 23:41 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/914813413120.shtml)
-- 2026-06-29 23:33 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/82906.shtml)
+- 2026-06-29 23:33 - [汪苏泷年度歌手](http://www.blog.kurohicncr.top/Article/details/92261808203.shtml)
+- 2026-06-29 23:49 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/3901816.shtml)
+- 2026-06-29 23:41 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/342799051.shtml)
+- 2026-06-29 23:57 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/50938332939.shtml)
+- 2026-06-29 23:52 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/350951.shtml)
+- 2026-06-29 23:41 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/26067760.shtml)
+- 2026-06-29 23:56 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/204398.shtml)
+- 2026-06-29 23:47 - [扫黑风暴](https://www.share.minike.top/Article/details/14396.shtml)
+- 2026-06-29 23:53 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/5364454.shtml)
+- 2026-06-29 23:52 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/4255813957.shtml)
+- 2026-06-29 23:59 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/50403.shtml)
+- 2026-06-29 23:48 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/8260301199.shtml)
+- 2026-06-29 23:31 - [问心2金世佳追妻火葬场](https://www.share.minike.top/Article/details/9393373.shtml)
+- 2026-06-29 23:47 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/0315210.shtml)
+- 2026-06-29 23:33 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/850811730.shtml)

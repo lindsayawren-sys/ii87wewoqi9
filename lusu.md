@@ -1,59 +1,59 @@
-# 两难之下，工伤认定能否打破“48小时之限”？
+# 刷牙后立即漱口等于白刷？医生建议
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-放弃抢救，家属于心不忍，继续抢救一旦超过时限，又可能错失工亡认定机会—— 两难之下，工伤认定能否打破“48小时之限”？ 专家认为，与立法之时相比，如今的医疗条件、劳动场景、工作形态都发生了变化，抢救时限、死亡标准等也应与时俱进调整 工人日报记者 陈曦阅读提示 根据《工伤保险条例》第十五条，职工在工作时间和工作岗位，突发疾病死亡或者在48小时之内经抢救无效死亡的，视同工伤。近年来
+原标题：刷牙后立即漱口等于白刷？ 医生：功效型牙膏建议刷完15至30分钟后再漱口 每天早晚认真刷牙，刷完马上用清水漱干净——这是多数人多年来的刷牙习惯。但最近，一则“刷牙后马上漱口，可能一直在‘无效刷牙’”的新闻，颠覆了不少人的认知。对此，南京同仁医院口腔牙周专科主治医师朱奕名在接受记者采访时表示，对于含氟牙膏、抗敏感牙膏等功效型牙膏而言，刷牙后立刻漱口，确实可能效果不佳，但对
 
 ## 正文
 
-放弃抢救，家属于心不忍，继续抢救一旦超过时限，又可能错失工亡认定机会—— 两难之下，工伤认定能否打破“48小时之限”？
+原标题：刷牙后立即漱口等于白刷？
 
-专家认为，与立法之时相比，如今的医疗条件、劳动场景、工作形态都发生了变化，抢救时限、死亡标准等也应与时俱进调整 工人日报记者 陈曦阅读提示 根据《工伤保险条例》第十五条，职工在工作时间和工作岗位，突发疾病死亡或者在48小时之内经抢救无效死亡的，视同工伤。
+医生：功效型牙膏建议刷完15至30分钟后再漱口 每天早晚认真刷牙，刷完马上用清水漱干净——这是多数人多年来的刷牙习惯。
 
-近年来，工伤认定的“48小时条款”频频引发讨论，不仅面临现实伦理困境，各地案件还存在裁判尺度不一等情况。
+但最近，一则“刷牙后马上漱口，可能一直在‘无效刷牙’”的新闻，颠覆了不少人的认知。
 
-受访专家建议，结合当前医疗技术水平与社会发展情况，对抢救时限，死亡标准，工作时间、工作岗位的界定等作出与时俱进的调整。
+对此，南京同仁医院口腔牙周专科主治医师朱奕名在接受记者采访时表示，对于含氟牙膏、抗敏感牙膏等功效型牙膏而言，刷牙后立刻漱口，确实可能效果不佳，但对于普通牙膏来说，并不需要在口腔内特别“停留”。
 
-过去的这大半年来，浙江诸暨的周女士既悲伤又无助。
+扬子晚报/紫牛新闻记者 许倩倩“对于功效型牙膏，特别是含氟牙膏，为了防龋，我们一般会建议刷完牙后不要立即漱口，如果泡沫太多，可以先吐掉一些，等待15~30分钟之后再正常漱口（不漱口也可以）。
 
-2025年9月9日下午，她的父亲在工作岗位上突发心肌梗死，于9月20日抢救无效去世。
+”朱奕名解释说，这样才能让牙膏里的氟化物等有效成分充分附着在牙齿表面，形成保护层，增强牙齿抗龋能力。
 
-周女士为父亲申请了工伤认定，但未能成功，随后她提起上诉，一审、二审均被驳回，理由是“从发病到抢救无效死亡已超过48小时”。
+“当然，如果实在觉得嘴里黏糊糊的，可以含一小口水轻轻吐掉，但千万别反复用力漱口，否则就可能把刚刚筑起的‘保护层’也冲走了。
 
-根据《工伤保险条例》第十五条，职工在工作时间和工作岗位，突发疾病死亡或者在48小时之内经抢救无效死亡的，视同工伤。
+” 朱奕名介绍，此前有一项涵盖2000多名青少年的研究数据显示，和刷完立即漱口的人相比，刷完不立即漱口的人，平均患龋率降低了约9%。
 
 ## 相关推荐
 
-- 2026-06-29 23:31 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-29 23:26 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 23:45 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-29 23:32 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 23:29 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 23:30 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 23:27 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-29 23:51 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-29 23:47 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-29 23:44 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-29 23:46 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-29 23:32 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-29 23:31 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-29 23:33 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-29 23:30 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 23:49 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-29 23:53 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-29 23:33 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 23:33 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-29 23:41 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-29 23:40 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 23:42 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-29 23:49 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 23:33 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 23:45 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-29 23:37 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:38 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/93154.shtml)
-- 2026-06-29 23:36 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/728081.shtml)
-- 2026-06-29 23:41 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/155268623.shtml)
-- 2026-06-29 23:29 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/9973658.shtml)
-- 2026-06-29 23:25 - [锐评T1零封KC](https://www.share.minike.top/Article/details/6579532.shtml)
-- 2026-06-29 23:53 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/4634538831.shtml)
-- 2026-06-29 23:44 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/452696384.shtml)
-- 2026-06-29 23:43 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/3774834.shtml)
-- 2026-06-29 23:31 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/6957631101.shtml)
-- 2026-06-29 23:30 - [足球“出口导向”造就佛得角奇迹](http://www.share.kurohicncr.top/Article/details/97810.shtml)
-- 2026-06-29 23:35 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/4868454.shtml)
-- 2026-06-29 23:32 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/2529081.shtml)
-- 2026-06-29 23:50 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/52510872924.shtml)
-- 2026-06-29 23:36 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/7780506.shtml)
-- 2026-06-29 23:53 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/841229151587.shtml)
+- 2026-06-29 23:56 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/35807.shtml)
+- 2026-06-29 23:53 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/050293315.shtml)
+- 2026-06-29 23:56 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/302831.shtml)
+- 2026-06-29 23:33 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/758665.shtml)
+- 2026-06-29 23:46 - [浙江进入梅雨最强“攻击时段”](https://www.blog.minike.top/Article/details/786087884374.shtml)
+- 2026-06-29 23:39 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/86252716135.shtml)
+- 2026-06-29 23:33 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/412478484.shtml)
+- 2026-06-29 23:39 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/507646463455.shtml)
+- 2026-06-29 23:36 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/46745.shtml)
+- 2026-06-29 23:39 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/8691492.shtml)
+- 2026-06-29 23:49 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/1894268.shtml)
+- 2026-06-29 23:50 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/39958986777.shtml)
+- 2026-06-29 23:37 - [欧洲人买空调难点在哪](http://www.blog.minike.top/Article/details/325812.shtml)
+- 2026-06-29 23:33 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/770988.shtml)
+- 2026-06-29 23:32 - [绘画区你赢了](http://www.blog.minike.top/Article/details/62027062535.shtml)

@@ -1,60 +1,57 @@
-# 一季度持有多只“风险股”，中加基金风控何在？
+# 欧洲股市下跌 银行股承压 美国通胀数据加剧市场压力
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 来源：国际金融报 近期，中加基金旗下一只量化产品逆势加仓存在退市风险的股票，引发市场广泛关注，该机构的其他基金也重仓了在今年被立案调查的个股。中小公募究竟该如何避免“踩雷”？ 5月29日，*ST清越股价跌破1元，触发交易类退市风险。 *ST清越自去年以来深陷退市危机，但仍有公募基金在今年一季度逆势加仓。一季报显示，中加专精特新量
+欧洲股市周二下跌。在美国通胀数据高于预期，突显出各国央行面临的压力并给股市前景蒙上阴影后，跌势加速。 斯托克欧洲600指数在伦敦下跌1.0%。在普遍避险的走势中，科技股和零售股表现最为落后。斯托克600指数20个板块中只有三个板块收涨，其中包括食品饮料以及医疗保健，因投资者转向防御性板块。 英国股市此前已承压，由于投资者对首相斯塔默领导地位的前景存疑，侧重国内市场的富时250指
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 来源：国际金融报 近期，中加基金旗下一只量化产品逆势加仓存在退市风险的股票，引发市场广泛关注，该机构的其他基金也重仓了在今年被立案调查的个股。
+欧洲股市周二下跌。
 
-中小公募究竟该如何避免“踩雷”？
+在美国通胀数据高于预期，突显出各国央行面临的压力并给股市前景蒙上阴影后，跌势加速。
 
-5月29日，*ST清越股价跌破1元，触发交易类退市风险。
+斯托克欧洲600指数在伦敦下跌1.0%。
 
-*ST清越自去年以来深陷退市危机，但仍有公募基金在今年一季度逆势加仓。
+在普遍避险的走势中，科技股和零售股表现最为落后。
 
-一季报显示，中加专精特新量化选股混合新进该股前十大流通股股东，位列第七；该基金在去年四季度末已重仓该股。
+斯托克600指数20个板块中只有三个板块收涨，其中包括食品饮料以及医疗保健，因投资者转向防御性板块。
 
-5月31日，*ST清越再次发布可能被强制退市的风险提示公告。
+英国股市此前已承压，由于投资者对首相斯塔默领导地位的前景存疑，侧重国内市场的富时250指数下跌1.5%。
 
-与去年持有该股但今年已悉数退出的其他基金不同，中加基金选择留守。
+围绕美国与伊朗停火的新的不确定性令投资者保持谨慎，并推动布伦特原油逼近每桶108美元。
 
-不仅如此，该公司旗下其他基金重仓的两只个股也已被监管立案调查。
+Quintet Private Bank首席投资官Daniele Antonucci表示，美国通胀数据高于预期强化了利率将在更长时间内维持高位的背景，并使近期政策宽松几乎没有空间。
 
 ## 相关推荐
 
-- 2026-06-29 23:38 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-29 23:53 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 23:38 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-29 23:53 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-29 23:34 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-29 23:39 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 23:42 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-29 23:44 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-29 23:53 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-29 23:51 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-29 23:38 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 23:29 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-29 23:50 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-29 23:36 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 23:44 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-29 23:42 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 23:34 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 23:30 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-29 23:44 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 23:56 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-29 23:37 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 23:55 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 23:32 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 23:49 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-29 23:43 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:52 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/483847281.shtml)
-- 2026-06-29 23:43 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/7162857822.shtml)
-- 2026-06-29 23:29 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/1190438305.shtml)
-- 2026-06-29 23:25 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/78593132310.shtml)
-- 2026-06-29 23:33 - [AI接过张雪峰志愿填报衣钵](http://www.blog.minike.top/Article/details/07325.shtml)
-- 2026-06-29 23:35 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/5463220063.shtml)
-- 2026-06-29 23:34 - [曼城官宣马雷斯卡出任主教练](http://www.blog.minike.top/Article/details/474070573.shtml)
-- 2026-06-29 23:32 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/871816.shtml)
-- 2026-06-29 23:40 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/44881.shtml)
-- 2026-06-29 23:40 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/4624687.shtml)
-- 2026-06-29 23:44 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/91041.shtml)
-- 2026-06-29 23:45 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/54515681482.shtml)
-- 2026-06-29 23:26 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/254162.shtml)
-- 2026-06-29 23:36 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/567212.shtml)
-- 2026-06-29 23:31 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/70555.shtml)
+- 2026-06-29 23:38 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/242850632591.shtml)
+- 2026-06-29 23:38 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/28035492759.shtml)
+- 2026-06-29 23:40 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/44547.shtml)
+- 2026-06-29 23:56 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/377378640356.shtml)
+- 2026-06-29 23:50 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/43902182.shtml)
+- 2026-06-29 23:50 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/38157.shtml)
+- 2026-06-29 23:58 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/533476849.shtml)
+- 2026-06-29 23:35 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/79370.shtml)
+- 2026-06-29 23:59 - [明星大侦探第一季](http://www.share.minike.top/Article/details/99975597910.shtml)
+- 2026-06-29 23:53 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/317851674022.shtml)
+- 2026-06-29 23:53 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/705939601.shtml)
+- 2026-06-29 23:38 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/0652209.shtml)
+- 2026-06-29 23:38 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/64246.shtml)
+- 2026-06-29 23:55 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/13925.shtml)
+- 2026-06-29 23:37 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/22652656.shtml)

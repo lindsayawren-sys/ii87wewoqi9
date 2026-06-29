@@ -1,60 +1,57 @@
-# 美团-W午前涨超6% 大摩给予目标价120港元
+# 英特尔六周市值飙升4400亿美元 引来做空者围猎
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-美团-W（03690）早盘拉升逾6%，截至发稿，股价上涨6.33%，现报78.10港元，成交额24.02亿港元。 美团拟6月1日举行董事会会议，以考虑及通过2026年第一季度的未经审核财务业绩。摩根士丹利近期研报指出，维持美团增持评级，目标价维持120港元不变。该行维持美团的盈利预测，并继续假设外卖业务每单单位经济效益自2027年起达到1元人民币，而在基本情境下，到店、酒店及旅
+英特尔股价的火热上涨，正让那些押注其下跌的交易员面临巨额亏损。但这并未阻止他们继续做空。 自3月30日触及低点以来，这家芯片制造商的股价已飙升214%，市值增加超过4400亿美元。根据S3 Partners的数据，做空者的账面亏损已超过120亿美元。与此同时，英特尔股票的卖空比例接近52周高点。 S3 Partners董事总经理Matthew Unterman表示，“英特尔现在
 
 ## 正文
 
-美团-W（03690）早盘拉升逾6%，截至发稿，股价上涨6.33%，现报78.10港元，成交额24.02亿港元。
+英特尔股价的火热上涨，正让那些押注其下跌的交易员面临巨额亏损。
 
-美团拟6月1日举行董事会会议，以考虑及通过2026年第一季度的未经审核财务业绩。
+但这并未阻止他们继续做空。
 
-摩根士丹利近期研报指出，维持美团增持评级，目标价维持120港元不变。
+自3月30日触及低点以来，这家芯片制造商的股价已飙升214%，市值增加超过4400亿美元。
 
-该行维持美团的盈利预测，并继续假设外卖业务每单单位经济效益自2027年起达到1元人民币，而在基本情境下，到店、酒店及旅游业务的经营利润率将由目前的25%逐步恢复至2030年料达30%。
+根据S3 Partners的数据，做空者的账面亏损已超过120亿美元。
 
-大摩指出，在阿里承诺大幅收窄即时零售亏损后，美团迈向盈利能力的路线图清晰度显著提升。
+与此同时，英特尔股票的卖空比例接近52周高点。
 
-业务板块方面，大摩预计美团第一季到店、酒店及旅游（IHT）业务的总交易额（GTV）及收入将分别同比增长10%及9%，经营利润季按季大致持平于41亿元，经营利润率为25%。
+S3 Partners董事总经理Matthew Unterman表示，“英特尔现在几乎成了动量交易的典型代表。
 
-新业务方面，旗下海外业务KeeTa今年将专注于巩固现有市场，沙地阿拉伯的单位经济效益持续改善，香港市场维持盈利。
+但这种上涨动能终究会在某个时点停下来。
 
-责任编辑：卢昱君
+” 不过，此时做空英特尔风险不小。
 
 ## 相关推荐
 
-- 2026-06-29 23:42 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-29 23:25 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-29 23:31 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 23:32 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-29 23:42 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 23:42 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 23:32 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-29 23:26 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-29 23:30 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 23:44 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 23:37 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 23:40 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-29 23:35 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-29 23:46 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 23:42 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 23:34 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 23:41 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 23:44 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 23:42 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 23:39 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-29 23:34 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-29 23:55 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 23:57 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 23:44 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 23:52 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:37 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/7497574685.shtml)
-- 2026-06-29 23:48 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/728223.shtml)
-- 2026-06-29 23:29 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/61943123077.shtml)
-- 2026-06-29 23:50 - [绿营污蔑大陆“海上袭扰”被批](http://www.share.kurohicncr.top/Article/details/90530404695.shtml)
-- 2026-06-29 23:50 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/98939868.shtml)
-- 2026-06-29 23:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/97946092650.shtml)
-- 2026-06-29 23:50 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/04900547852.shtml)
-- 2026-06-29 23:48 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/226777.shtml)
-- 2026-06-29 23:32 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/99001377.shtml)
-- 2026-06-29 23:54 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/229395.shtml)
-- 2026-06-29 23:32 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/021406.shtml)
-- 2026-06-29 23:31 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/712363157073.shtml)
-- 2026-06-29 23:29 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/61958572.shtml)
-- 2026-06-29 23:44 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/44929004.shtml)
-- 2026-06-29 23:39 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/582474.shtml)
+- 2026-06-29 23:32 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/47675.shtml)
+- 2026-06-29 23:49 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/16608513.shtml)
+- 2026-06-29 23:39 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/20510.shtml)
+- 2026-06-29 23:47 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/1041410.shtml)
+- 2026-06-29 23:58 - [追觅称质量不行终身包修也没意义](https://www.share.minike.top/Article/details/44885352.shtml)
+- 2026-06-29 23:50 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/961152012738.shtml)
+- 2026-06-29 23:39 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/282547773.shtml)
+- 2026-06-29 23:49 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/34318.shtml)
+- 2026-06-29 23:57 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/033941619.shtml)
+- 2026-06-29 23:39 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/72403617374.shtml)
+- 2026-06-29 23:38 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/572587720949.shtml)
+- 2026-06-29 23:46 - [欧洲缘何成为变暖最快的大洲](https://www.share.minike.top/Article/details/9155703.shtml)
+- 2026-06-29 23:41 - [金刚川](http://www.blog.minike.top/Article/details/8548296274.shtml)
+- 2026-06-29 23:39 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/1256701.shtml)
+- 2026-06-29 23:51 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/591033072975.shtml)

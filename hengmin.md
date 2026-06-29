@@ -1,50 +1,59 @@
-# 三一重工获Temasek Holdings (Private) Limited增持121.82万股 每股作价约21.03港元
+# “中国服务”加速出海！一季度我国服务出口同比增长11.2%
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，5月26日，Temasek Holdings （Private） Limited增持三一重工（06031）121.82万股，每股作价21.0297港元，总金额约为2561.84万港元。增持后最新持股数目为6578.48万股，最新持股比例为9.13%。责任编辑：卢昱君
+原标题：今年一季度，我国服务出口同比增长11.2% “中国服务”加速出海(大数据观察) 中国大模型全球下载量、调用量不断增长，海南自贸港维修来自全球的飞机和汽车发动机，上海AI(人工智能)诊所落地沙特阿拉伯……近年来，“中国服务”出海步伐不断加快，成为国际市场上一张亮丽的新名片。 国务院日前印发的《关于推进服务业扩能提质的意见》提出，培育更多“中国服务”品牌，服务业全球竞争力、
 
 ## 正文
 
-香港联交所最新资料显示，5月26日，Temasek Holdings （Private） Limited增持三一重工（06031）121.82万股，每股作价21.0297港元，总金额约为2561.84万港元。
+原标题：今年一季度，我国服务出口同比增长11.2% “中国服务”加速出海(大数据观察) 中国大模型全球下载量、调用量不断增长，海南自贸港维修来自全球的飞机和汽车发动机，上海AI(人工智能)诊所落地沙特阿拉伯……近年来，“中国服务”出海步伐不断加快，成为国际市场上一张亮丽的新名片。
 
-增持后最新持股数目为6578.48万股，最新持股比例为9.13%。
+国务院日前印发的《关于推进服务业扩能提质的意见》提出，培育更多“中国服务”品牌，服务业全球竞争力、影响力明显增强。
 
-责任编辑：卢昱君
+2025年，我国服务贸易进出口额首次突破8万亿元，同比增长7.4%，其中服务出口同比增长14.2%，贸易结构持续优化。
+
+今年一季度，我国服务出口7045.2亿元，同比增长11.2%。
+
+下载量、调用量不断增长 中国大模型获得海外用户青睐 来自新加坡的工程师刘乾，基于千问开源大模型，训练了广受欢迎的东南亚语大模型；美国导演查尔斯·柯伦使用Seedance 2.0(字节跳动推出的视频生成模型)，为电影制作了时长1分24秒的预告片，达到电影级特效水准。
+
+中国大语言模型不断取得突破，全球竞争力显著增强，被海外用户高频使用。
+
+他们的实际使用反馈，正成为关键的评价标准。
+
+根据全球AI模型聚合平台OpenRouter公布的数据，5月4日至5月10日，中国大模型周调用量达7.941万亿词元，稳居全球首位。
 
 ## 相关推荐
 
-- 2026-06-29 23:49 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-29 23:47 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-29 23:37 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-29 23:41 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 23:52 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 23:30 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-29 23:31 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-29 23:48 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 23:50 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-29 23:39 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-29 23:45 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 23:51 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 23:43 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 23:51 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 23:41 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-29 23:35 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 23:40 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-29 23:37 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 23:31 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 23:58 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-29 23:38 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-29 23:59 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 23:59 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-29 23:48 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 23:41 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 23:52 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 23:40 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:46 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/9936051.shtml)
-- 2026-06-29 23:38 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/613550097374.shtml)
-- 2026-06-29 23:40 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/333195368223.shtml)
-- 2026-06-29 23:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/94145.shtml)
-- 2026-06-29 23:53 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/007964.shtml)
-- 2026-06-29 23:31 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/296448.shtml)
-- 2026-06-29 23:27 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/59963163655.shtml)
-- 2026-06-29 23:29 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/77187.shtml)
-- 2026-06-29 23:47 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/194909177375.shtml)
-- 2026-06-29 23:51 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/2436148.shtml)
-- 2026-06-29 23:51 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/286872076.shtml)
-- 2026-06-29 23:50 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/154236896017.shtml)
-- 2026-06-29 23:38 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/94448192.shtml)
-- 2026-06-29 23:47 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/276116967.shtml)
-- 2026-06-29 23:24 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/4687765757.shtml)
+- 2026-06-29 23:48 - [千与千寻](https://www.share.kurohicncr.top/Article/details/89165834940.shtml)
+- 2026-06-29 23:48 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/6375512618.shtml)
+- 2026-06-29 23:51 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/65477.shtml)
+- 2026-06-29 23:58 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/67327064564.shtml)
+- 2026-06-29 23:46 - [世界杯](https://www.share.kurohicncr.top/Article/details/710068.shtml)
+- 2026-06-29 23:48 - [《贺子珍》](https://www.blog.minike.top/Article/details/625755809707.shtml)
+- 2026-06-29 23:53 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/37292883202.shtml)
+- 2026-06-29 23:30 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/6191685532.shtml)
+- 2026-06-29 23:34 - [127只股涨停 最大封单资金6.04亿元](https://www.share.kurohicncr.top/Article/details/31075.shtml)
+- 2026-06-29 23:37 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/01080152994.shtml)
+- 2026-06-29 23:52 - [毒液2](http://www.blog.kurohicncr.top/Article/details/84565606.shtml)
+- 2026-06-29 23:35 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/1514908.shtml)
+- 2026-06-29 23:51 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/35620.shtml)
+- 2026-06-29 23:45 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/18823274378.shtml)
+- 2026-06-29 23:38 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/31167015.shtml)

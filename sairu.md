@@ -1,56 +1,56 @@
-# 大厂低位补涨，港股互联网ETF华宝（513770）涨超2%！AI应用持续爆发，4月营收大增42%，美图公司暴拉15%
+# 中国官方附条件批准腾讯收购喜马拉雅股权案
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-6月1日早盘，港股互联网龙头集体走强，港股互联网ETF华宝（513770）场内价格现涨2.15%，美团-W、腾讯控股、小米集团-W均涨逾2%，阿里巴巴-W涨超1%。AI应用方向涨势亮眼，美图公司涨超15%，瑞银报告显示，4月美图公司旗下应用的海外总收入同比增长42%，多款产品在海外增长强劲，其中，Wink的4月海外收入接近翻倍。 近期港股互联网板块加速筑底，当前位置已充分反映悲
+中新社北京5月12日电 (记者 刘亮)中国国家市场监管总局12日发布公告，附加限制性条件批准腾讯控股有限公司(以下简称腾讯)收购喜马拉雅公司(以下简称喜马拉雅)股权案。 国家市场监管总局称，该案对维护中国境内在线音频播放平台市场、网络音乐播放平台市场公平竞争秩序，防范平台领域“内卷式”竞争，推动平台经济创新和健康发展具有重要意义。 经审查，国家市场监管总局认为该案对中国境内在线
 
 ## 正文
 
-6月1日早盘，港股互联网龙头集体走强，港股互联网ETF华宝（513770）场内价格现涨2.15%，美团-W、腾讯控股、小米集团-W均涨逾2%，阿里巴巴-W涨超1%。
+中新社北京5月12日电 (记者 刘亮)中国国家市场监管总局12日发布公告，附加限制性条件批准腾讯控股有限公司(以下简称腾讯)收购喜马拉雅公司(以下简称喜马拉雅)股权案。
 
-AI应用方向涨势亮眼，美图公司涨超15%，瑞银报告显示，4月美图公司旗下应用的海外总收入同比增长42%，多款产品在海外增长强劲，其中，Wink的4月海外收入接近翻倍。
+国家市场监管总局称，该案对维护中国境内在线音频播放平台市场、网络音乐播放平台市场公平竞争秩序，防范平台领域“内卷式”竞争，推动平台经济创新和健康发展具有重要意义。
 
-近期港股互联网板块加速筑底，当前位置已充分反映悲观预期。
+经审查，国家市场监管总局认为该案对中国境内在线音频播放平台市场、网络音乐播放平台市场竞争可能具有排除、限制竞争效果。
 
-数据显示，截至5月末，中证港股通互联网指数自2025年10月3日开启回调以来已累计跌超40%，指数最新市盈率PE（TTM）仅位于近10年2.14%分位点的历史低位，具备较高的安全边际及性价比。
+为有效减少此项经营者集中可能产生的不利影响，国家市场监管总局经过全面审查、科学论证，依法对该案作出附条件批准决定，要求腾讯、喜马拉雅和集中后实体作出五项限制性承诺：不得提高在线音频播放平台服务价格、降低服务水平或者附加不合理交易条件；不得降低在线音频播放平台免费内容及免费热门内容比例；不得与在线音频播放平台版权方达成独家授权，并在规定期限内解除现有独家授权约定；不得向汽车厂商搭售在线音频播放平台、网络音乐播放平台，或者阻碍、限制其采购竞争对手产品；不得限制主播在多个在线音频播放平台入驻或分发其享有著作权的作品。
 
-与此同时2026年以来，互联网大厂AI应用迭代速度加快，商业化加速推进。
+经评估，国家市场监管总局认为该承诺方案可有效减少本集中导致的竞争问题，能够保障消费者、版权方、主播及汽车厂商等多方主体合法权益，维护相关市场公平竞争秩序，依法于5月11日附加限制性条件批准本案。
 
-阿里巴巴最新财报中宣布，AI业务正式迈入“商业化回报周期”。
+国家市场监管总局将严格督促交易双方有效履行限制性承诺，充分发挥经营者集中审查事前预防作用，切实维护中国在线音频播放平台市场、网络音乐播放平台市场公平竞争秩序。
 
-阿里云一季度外部商业化收入大增40%，为9个季度以来最快，其中AI相关收入占比达30%，连续11个季度三位数增长。
-
-招商证券指出，AI产业趋势明确，港股互联网平台在用户入口、数据积累、云服务、支付生态和企业客户基础方面具备优势，若后续AI能够在广告、电商、游戏、办公、云服务和企业服务等场景中形成更明确收入贡献，港股AI主线有望从基础设施映射逐步切换至应用端盈利兑现。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 23:32 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 23:32 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 23:49 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-29 23:28 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 23:52 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 23:45 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 23:33 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 23:40 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-29 23:31 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-29 23:33 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-29 23:54 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 23:58 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 23:52 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 23:53 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-29 23:50 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 23:58 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 23:48 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 23:45 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 23:38 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-29 23:51 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-29 23:47 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 23:50 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:45 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/008373019.shtml)
-- 2026-06-29 23:47 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/192952084567.shtml)
-- 2026-06-29 23:29 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/78240252864.shtml)
-- 2026-06-29 23:35 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/545031064.shtml)
-- 2026-06-29 23:49 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/70875.shtml)
-- 2026-06-29 23:33 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/98494524087.shtml)
-- 2026-06-29 23:35 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/3811520.shtml)
-- 2026-06-29 23:42 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/2293867909.shtml)
-- 2026-06-29 23:53 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/71729371.shtml)
-- 2026-06-29 23:37 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/2643587.shtml)
-- 2026-06-29 23:43 - [127只股涨停 最大封单资金6.04亿元](https://www.share.kurohicncr.top/Article/details/01847.shtml)
-- 2026-06-29 23:42 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/91703961375.shtml)
-- 2026-06-29 23:45 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/78944890661.shtml)
-- 2026-06-29 23:46 - [青春环游记第三季](https://www.blog.minike.top/Article/details/079437737989.shtml)
-- 2026-06-29 23:49 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/4369623.shtml)
+- 2026-06-29 23:36 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/5937553.shtml)
+- 2026-06-29 23:30 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/767702588287.shtml)
+- 2026-06-29 23:45 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/4501341.shtml)
+- 2026-06-29 23:49 - [演员都来上音综的原因](http://www.blog.kurohicncr.top/Article/details/4983735.shtml)
+- 2026-06-29 23:50 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/725376.shtml)
+- 2026-06-29 23:50 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/6994425688.shtml)
+- 2026-06-29 23:34 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/738864191.shtml)
+- 2026-06-29 23:50 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/535978456.shtml)
+- 2026-06-29 23:33 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/54063471146.shtml)
+- 2026-06-29 23:55 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/2568259968.shtml)
+- 2026-06-29 23:32 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/2596667.shtml)
+- 2026-06-29 23:47 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/219950.shtml)
+- 2026-06-29 23:46 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/85477024.shtml)
+- 2026-06-29 23:38 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/504005.shtml)
+- 2026-06-29 23:33 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/530766207.shtml)

@@ -1,54 +1,59 @@
-# 外交部：对日方推进同北约合作动向表示严重关切
+# 委内瑞拉代总统驳斥“委将成为美国第51州”说法
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-新华社北京6月1日电(记者董雪、马卓言)针对日本防卫省近日表示多名自卫队员将进驻北约乌克兰安全援助和训练计划总部，从俄乌冲突中“学习经验”，外交部发言人林剑1日在例行记者会上答问时表示，中方对日方推进同北约合作的动向表示严重关切。日本大肆推进“再军事化”，同域外军事组织互动频繁，扩大自卫队的活动范围，打造可以实战的作战体系。这是在突破日本宪法、国际法、国内法规制和“专守防卫”等
+中新社北京5月12日电 海牙消息：当地时间5月11日，委内瑞拉代总统德尔西·罗德里格斯在荷兰接受采访时强调，委内瑞拉将继续捍卫国家领土完整、主权、独立和历史，并驳斥“委内瑞拉将成为美国第51个州”的说法。综合美联社、福克斯新闻网等媒体消息，罗德里格斯是在海牙国际法院发表上述讲话的，当日是委内瑞拉与邻国圭亚那就埃塞奎博地区领土争端进行听证的最后一天。 罗德里格斯在接受采访时表示，
 
 ## 正文
 
-新华社北京6月1日电(记者董雪、马卓言)针对日本防卫省近日表示多名自卫队员将进驻北约乌克兰安全援助和训练计划总部，从俄乌冲突中“学习经验”，外交部发言人林剑1日在例行记者会上答问时表示，中方对日方推进同北约合作的动向表示严重关切。
+中新社北京5月12日电 海牙消息：当地时间5月11日，委内瑞拉代总统德尔西·罗德里格斯在荷兰接受采访时强调，委内瑞拉将继续捍卫国家领土完整、主权、独立和历史，并驳斥“委内瑞拉将成为美国第51个州”的说法。
 
-日本大肆推进“再军事化”，同域外军事组织互动频繁，扩大自卫队的活动范围，打造可以实战的作战体系。
+综合美联社、福克斯新闻网等媒体消息，罗德里格斯是在海牙国际法院发表上述讲话的，当日是委内瑞拉与邻国圭亚那就埃塞奎博地区领土争端进行听证的最后一天。
 
-这是在突破日本宪法、国际法、国内法规制和“专守防卫”等原则，挑战战后国际秩序，与日方自诩的“和平国家”形象背道而驰。
+罗德里格斯在接受采访时表示，“委内瑞拉将成为美国第51个州”的说法根本不在该国考虑之中，也根本不可能成为现实，因为委内瑞拉人民始终珍视国家独立。
 
-日本“新型军国主义”成势为患，威胁地区和平稳定。
+她强调，委内瑞拉不是殖民地，而是一个自由国家，“我们将继续捍卫国家的领土完整、主权、独立和历史”。
 
-国际社会必须高度警惕，坚决遏制。
+罗德里格斯还表示，委内瑞拉和美国官员目前一直保持联系，并致力于“合作与理解”。
+
+此前，美国总统特朗普在11日接受采访时表示，因委内瑞拉蕴藏丰富的石油资源，他“正在认真考虑让委内瑞拉成为美国第51个州”，但白宫尚未就此事作出回应。
+
+今年1月3日，美军对委内瑞拉发动大规模军事打击，强行控制委总统马杜罗及其妻子并将他们带到美国，罗德里格斯随后出任代总统。
+
+3月5日，委内瑞拉和美国一致决定，恢复两国外交和领事关系。
 
 ## 相关推荐
 
-- 2026-06-29 23:25 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-29 23:30 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-29 23:29 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-29 23:50 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-29 23:49 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 23:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-29 23:50 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-29 23:32 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 23:28 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-29 23:47 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 23:52 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 23:32 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 23:26 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-29 23:28 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 23:53 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-29 23:36 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 23:38 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 23:41 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-29 23:43 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-29 23:42 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 23:40 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-29 23:39 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-29 23:47 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 23:48 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-29 23:52 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-29 23:42 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-29 23:55 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:46 - [女心理师](https://www.share.minike.top/Article/details/079271.shtml)
-- 2026-06-29 23:48 - [刘念回应](http://www.share.kurohicncr.top/Article/details/74175.shtml)
-- 2026-06-29 23:46 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/1684157.shtml)
-- 2026-06-29 23:52 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/48629967.shtml)
-- 2026-06-29 23:24 - [周生如故](http://www.share.kurohicncr.top/Article/details/2734916.shtml)
-- 2026-06-29 23:26 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/166482906.shtml)
-- 2026-06-29 23:28 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/4006398049.shtml)
-- 2026-06-29 23:34 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/36324.shtml)
-- 2026-06-29 23:50 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/5997783.shtml)
-- 2026-06-29 23:37 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/46963046.shtml)
-- 2026-06-29 23:27 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/11096518.shtml)
-- 2026-06-29 23:52 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/78072862629.shtml)
-- 2026-06-29 23:36 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/706399.shtml)
-- 2026-06-29 23:48 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/581512457706.shtml)
-- 2026-06-29 23:35 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/791710.shtml)
+- 2026-06-29 23:39 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/12670560317.shtml)
+- 2026-06-29 23:31 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/60000.shtml)
+- 2026-06-29 23:46 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/2671201027.shtml)
+- 2026-06-29 23:50 - [田曦薇没招了](https://www.blog.minike.top/Article/details/97969335676.shtml)
+- 2026-06-29 23:45 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/979433.shtml)
+- 2026-06-29 23:39 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/639706044159.shtml)
+- 2026-06-29 23:39 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/90237.shtml)
+- 2026-06-29 23:50 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/65474946064.shtml)
+- 2026-06-29 23:54 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/308006922.shtml)
+- 2026-06-29 23:43 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/45984777077.shtml)
+- 2026-06-29 23:39 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/44939545185.shtml)
+- 2026-06-29 23:58 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/62386117619.shtml)
+- 2026-06-29 23:35 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/2341882.shtml)
+- 2026-06-29 23:40 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/0566517256.shtml)
+- 2026-06-29 23:38 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/02440.shtml)

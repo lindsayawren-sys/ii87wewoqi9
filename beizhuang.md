@@ -1,57 +1,49 @@
-# 香港请求“天宫授课”
+# 到大陆看演唱会成台青新时尚 周锡玮：我全家都喜欢大陆歌手
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-香港特区政府创新科技及工业局局长孙东近日表示，特区政府向中国载人航天工程办公室提出两项请求，期望来自香港的航天员黎家盈可以与香港学生连线进行“天宫授课”，亦希望她可以与神舟二十三号其他航天员在完成任务后一同来香港交流。目前两项请求均已得到正面回应。 黎家盈，女，汉族，籍贯广东顺德，博士学位。1982年11月出生于香港，2006年9月参加工作，香港特别行政区政府警务处警司。202
+发布时间：2026年05月12日 19:25 来源：中国新闻网 5月12日，台湾旺旺集团副董事长周锡玮在北京参加两岸媒体人峰会期间，接受中新社专访。他表示，现在很多台湾年轻人都喜欢到大陆看演唱会，以前他们“哈韩”“哈日”，现在这种情况都发生了变化。(范思忆 刘子衿 制作 方敏) 责任编辑：【刘湃】
 
 ## 正文
 
-香港特区政府创新科技及工业局局长孙东近日表示，特区政府向中国载人航天工程办公室提出两项请求，期望来自香港的航天员黎家盈可以与香港学生连线进行“天宫授课”，亦希望她可以与神舟二十三号其他航天员在完成任务后一同来香港交流。
+发布时间：2026年05月12日 19:25 来源：中国新闻网 5月12日，台湾旺旺集团副董事长周锡玮在北京参加两岸媒体人峰会期间，接受中新社专访。
 
-目前两项请求均已得到正面回应。
+他表示，现在很多台湾年轻人都喜欢到大陆看演唱会，以前他们“哈韩”“哈日”，现在这种情况都发生了变化。
 
-黎家盈，女，汉族，籍贯广东顺德，博士学位。
-
-1982年11月出生于香港，2006年9月参加工作，香港特别行政区政府警务处警司。
-
-2024年6月，作为载荷专家入选为我国第四批航天员。
-
-经全面考评，入选神舟二十三号载人飞行任务乘组。
-
-中国新闻社(CNS1952)综合自中新社香港分社(记者：邱兆翔)、中新社此前报道 编辑：代硕 审校：魏园 责编：马学玲 (中新社微信公众号)
+(范思忆 刘子衿 制作 方敏) 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-29 23:44 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-29 23:41 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 23:40 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 23:25 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-29 23:50 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-29 23:52 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 23:53 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-29 23:29 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 23:35 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 23:37 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-29 23:53 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-29 23:53 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-29 23:36 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 23:32 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 23:56 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 23:36 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-29 23:53 - [电影后室值得看吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 23:46 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 23:58 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 23:37 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-29 23:34 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-29 23:57 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 23:53 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-29 23:57 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 23:57 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 23:34 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:44 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/661257035.shtml)
-- 2026-06-29 23:43 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/395501.shtml)
-- 2026-06-29 23:30 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/98087.shtml)
-- 2026-06-29 23:52 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/52006606.shtml)
-- 2026-06-29 23:25 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/4720966499.shtml)
-- 2026-06-29 23:40 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/24685.shtml)
-- 2026-06-29 23:27 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/8532409520.shtml)
-- 2026-06-29 23:49 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/9335312.shtml)
-- 2026-06-29 23:33 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/2836334.shtml)
-- 2026-06-29 23:48 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/564226714486.shtml)
-- 2026-06-29 23:25 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/38236.shtml)
-- 2026-06-29 23:33 - [斗破苍穹](http://www.share.minike.top/Article/details/05832.shtml)
-- 2026-06-29 23:49 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/76110.shtml)
-- 2026-06-29 23:29 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/48572.shtml)
-- 2026-06-29 23:37 - [齐思钧回复孙怡](https://www.blog.kurohicncr.top/Article/details/768219631.shtml)
+- 2026-06-29 23:31 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/7162337.shtml)
+- 2026-06-29 23:32 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/091112.shtml)
+- 2026-06-29 23:43 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/0014674.shtml)
+- 2026-06-29 23:53 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/030537044736.shtml)
+- 2026-06-29 23:40 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/59752.shtml)
+- 2026-06-29 23:45 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/13874939920.shtml)
+- 2026-06-29 23:30 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/338379033.shtml)
+- 2026-06-29 23:59 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/74175457841.shtml)
+- 2026-06-29 23:34 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/8501439.shtml)
+- 2026-06-29 23:59 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/112093665.shtml)
+- 2026-06-29 23:44 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/5473399.shtml)
+- 2026-06-29 23:49 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/975900375.shtml)
+- 2026-06-29 23:35 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/53563.shtml)
+- 2026-06-29 23:56 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/832870453.shtml)
+- 2026-06-29 23:44 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/8608920331.shtml)

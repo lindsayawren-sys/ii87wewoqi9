@@ -1,59 +1,59 @@
-# 2026中国街舞联赛（南京站）火热开赛
+# Stephen Curley辞任Western Alliance高管职务，将出任Eagle Bancorp首席执行官
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-外资加仓中国，对中国市场投下信任票灵隐寺，你变了！人这一辈子，一定要去一趟“华北明珠”白洋淀！非法从事试管婴儿手术背后：求子路上为何陷阱重重？6月新规来了！事关疲劳驾驶、“开门杀”赔偿等为啥外国人都爱来这里买买买？从五张面孔读懂中国民营经济的信心与底气中美关系、中东局势、日本动向、南海问题......一文速览“香会”四大看点韩军要收回战时指挥权，美国不再保护韩国了？厄尔尼诺将如
+Stephen Curley已辞去Western Alliance Bancorporation全国业务线首席银行官职务，将出任Eagle Bancorp， Inc．总裁兼首席执行官，自2026年7月6日起生效。 任命背景 Curley的任命是Eagle Bancorp董事会经过全面评估后作出的决定，此前现任首席执行官Susan Riel于2025年11月宣布退休计划。Riel
 
 ## 正文
 
-外资加仓中国，对中国市场投下信任票灵隐寺，你变了！
+Stephen Curley已辞去Western Alliance Bancorporation全国业务线首席银行官职务，将出任Eagle Bancorp， Inc．总裁兼首席执行官，自2026年7月6日起生效。
 
-人这一辈子，一定要去一趟“华北明珠”白洋淀！
+任命背景 Curley的任命是Eagle Bancorp董事会经过全面评估后作出的决定，此前现任首席执行官Susan Riel于2025年11月宣布退休计划。
 
-非法从事试管婴儿手术背后：求子路上为何陷阱重重？
+Riel将继续履职至7月5日以确保平稳交接，退休后将以顾问身份服务12个月。
 
-6月新规来了！
+Eagle Bancorp独立董事会主席James A． Soltesz表示，此次遴选重点在于寻找一位在贷款业务、保证金增长、资本配置及风险管理方面均具备丰富经验的领导者。
 
-事关疲劳驾驶、“开门杀”赔偿等为啥外国人都爱来这里买买买？
+Curley履历 Curley拥有超过25年银行业从业经验。
 
-从五张面孔读懂中国民营经济的信心与底气中美关系、中东局势、日本动向、南海问题......一文速览“香会”四大看点韩军要收回战时指挥权，美国不再保护韩国了？
+在Western Alliance任职期间，他担任全国业务线首席银行官，同时兼任旗下联盟协会银行分部总裁，主导推动了零售银行、小企业贷款及商业客户服务等多项业务。
 
-厄尔尼诺将如何影响我国后续天气形势？
+Curley将于上任之日同步加入Eagle Bancorp及EagleBank董事会。
 
-中国气象局回应“抹黑门”丑闻发酵 “高市泡沫”或将破裂德国汉学家培高德：德国社会如何更好理解当代中国？
+市场反应 早盘交易时段，Western Alliance股价下跌1.3%，Eagle Bancorp下跌1.9%。
 
 ## 相关推荐
 
-- 2026-06-29 23:38 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-29 23:51 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-29 23:37 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 23:49 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 23:44 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-29 23:46 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 23:34 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 23:50 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 23:28 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-29 23:47 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 23:30 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-29 23:49 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-29 23:44 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-29 23:57 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-29 23:30 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-29 23:41 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 23:30 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 23:59 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 23:46 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-29 23:39 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-29 23:43 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-29 23:37 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 23:52 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 23:37 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-29 23:54 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-29 23:35 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:27 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.share.minike.top/Article/details/8045457831.shtml)
-- 2026-06-29 23:27 - [本西奇成本届温网女单首位晋级球员](http://www.share.kurohicncr.top/Article/details/385580641.shtml)
-- 2026-06-29 23:53 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/46971619900.shtml)
-- 2026-06-29 23:34 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/459371297.shtml)
-- 2026-06-29 23:44 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/7152221.shtml)
-- 2026-06-29 23:46 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/0575211.shtml)
-- 2026-06-29 23:52 - [山东发布山洪灾害气象预警](https://www.blog.kurohicncr.top/Article/details/561166.shtml)
-- 2026-06-29 23:52 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/6122944903.shtml)
-- 2026-06-29 23:36 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/435889505352.shtml)
-- 2026-06-29 23:53 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/0456204493.shtml)
-- 2026-06-29 23:32 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/422837290.shtml)
-- 2026-06-29 23:30 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/17358467533.shtml)
-- 2026-06-29 23:38 - [谁在推动“成都造”影视持续出圈](http://www.share.minike.top/Article/details/6482221.shtml)
-- 2026-06-29 23:36 - [小娘惹](http://www.share.minike.top/Article/details/198838.shtml)
-- 2026-06-29 23:44 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/1553445.shtml)
+- 2026-06-29 23:57 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/15407763.shtml)
+- 2026-06-29 23:37 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/08108.shtml)
+- 2026-06-29 23:57 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/401403480818.shtml)
+- 2026-06-29 23:55 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/88102.shtml)
+- 2026-06-29 23:45 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/6662522.shtml)
+- 2026-06-29 23:43 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/340090938036.shtml)
+- 2026-06-29 23:47 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/0937553.shtml)
+- 2026-06-29 23:54 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/9283607197.shtml)
+- 2026-06-29 23:50 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/008605450.shtml)
+- 2026-06-29 23:54 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.blog.minike.top/Article/details/74228135.shtml)
+- 2026-06-29 23:59 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/6860027.shtml)
+- 2026-06-29 23:54 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/57801336264.shtml)
+- 2026-06-29 23:45 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/806505.shtml)
+- 2026-06-29 23:37 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/51030.shtml)
+- 2026-06-29 23:33 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/070552040.shtml)

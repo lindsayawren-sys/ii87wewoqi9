@@ -1,57 +1,60 @@
-# 突发！霍尔木兹海峡，发现疑似水雷！阿曼发布航行警告
+# 东北证券：中国宏桥首予“买入”评级 目标价42港元
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-霍尔木兹海峡阿曼领海内发现疑似水雷。 当地时间5月30日，阿曼海事安全中心发布通告称，由于在霍尔木兹海峡阿曼领海范围内的沿岸通航带以西海域发现一件疑似水雷的漂浮物，该中心呼吁所有船舶、海员及渔民在相关海域活动时提高警惕，与可疑物体保持安全距离，并及时向有关部门报告。 另外，据伊朗媒体30日报道，伊朗议会主席团成员萨利米表示，伊朗对霍尔木兹海峡“实施主权管辖”的计划即将在议会获得
+5月8日，东北证券发布研报称，首次覆盖中国宏桥（01378），给予“买入”评级，对标26年股息率修复至6%，目标价42港元。预计公司2026~2028年归母净利342、376、386亿元，对应PE分别为8.5、7.7、7.5倍，若按64%分红比例，对应股息率为7.6%、8.3%、8.5%。。 东北证券主要观点如下： 一体化布局的电解铝龙头企业 中国宏桥是一家集热电、采矿、氧化铝
 
 ## 正文
 
-霍尔木兹海峡阿曼领海内发现疑似水雷。
+5月8日，东北证券发布研报称，首次覆盖中国宏桥（01378），给予“买入”评级，对标26年股息率修复至6%，目标价42港元。
 
-当地时间5月30日，阿曼海事安全中心发布通告称，由于在霍尔木兹海峡阿曼领海范围内的沿岸通航带以西海域发现一件疑似水雷的漂浮物，该中心呼吁所有船舶、海员及渔民在相关海域活动时提高警惕，与可疑物体保持安全距离，并及时向有关部门报告。
+预计公司2026~2028年归母净利342、376、386亿元，对应PE分别为8.5、7.7、7.5倍，若按64%分红比例，对应股息率为7.6%、8.3%、8.5%。
 
-另外，据伊朗媒体30日报道，伊朗议会主席团成员萨利米表示，伊朗对霍尔木兹海峡“实施主权管辖”的计划即将在议会获得批准，并有望以永久性法律的形式获得通过。
+。
 
-据伊朗学生通讯社报道，萨利米说，只有伊朗和阿曼有权就霍尔木兹海峡的管理方式作出决定。
+东北证券主要观点如下： 一体化布局的电解铝龙头企业 中国宏桥是一家集热电、采矿、氧化铝、液态铝合金、铝合金锭、铝合金铸轧产品、铝母线、高精铝板带箔、新材料于一体的铝全产业链特大型企业。
 
-伊朗方面已与阿曼展开沟通，阿曼方面也表达了初步同意，相关方案有望在近期敲定。
+1）电解铝产能 646 万吨：主要位于山东和云南，占全国 2024 年总产能 4462 万吨的 14.5%。
 
-此外，据伊朗媒体报道，尽管美国总统特朗普日前称对伊朗的海上封锁即将解除，但相关封锁措施仍在持续，美国仍在试图阻止伊朗船只通行。
+2）氧化铝产能 2100 万吨：山东 1900 万吨产能+印尼 200 万吨产能，是国内唯二氧化铝产能超过 1000 万吨/年的企业之一。
 
-伊朗塔斯尼姆通讯社的报道说，美国针对伊朗的海上封锁“作为一种敌对行动依然存在”。
+2020 年至 2025 年，公司营业收入从 861 亿增长至 1624 亿，年复合增长率为 13.5%，归母净利润从 105.0 亿元增长至 226 亿元，年复合增长率为 16.6%。
 
-部分伊朗船只在特朗普发表相关表态后尝试通过封锁区域，但遭美军舰警告要求立即返回。
+全产业链一体化布局，成本端优势凸显 中国宏桥通过构建并完善“采矿 —氧化铝—原铝—铝深加工、新材料—再生铝”的完整闭环产业链，实现了全产业链的一体化布局，尤其在上游铝土矿、氧化铝、能源等板块的布局强化了公司成本、利润的稳定性。
 
 ## 相关推荐
 
-- 2026-06-29 23:50 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 23:44 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 23:33 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-29 23:28 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-29 23:44 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-29 23:44 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-29 23:27 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-29 23:31 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 23:51 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-29 23:42 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-29 23:48 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 23:30 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-29 23:34 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-29 23:34 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-29 23:50 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 23:55 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-29 23:44 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 23:54 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-29 23:53 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 23:47 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 23:30 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 23:58 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-29 23:45 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-29 23:53 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-29 23:36 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:38 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/807416186877.shtml)
-- 2026-06-29 23:45 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/69958.shtml)
-- 2026-06-29 23:34 - [月亮](http://www.share.kurohicncr.top/Article/details/326881.shtml)
-- 2026-06-29 23:31 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/01362038.shtml)
-- 2026-06-29 23:51 - [斛珠夫人](https://www.blog.minike.top/Article/details/15994974.shtml)
-- 2026-06-29 23:43 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/381658.shtml)
-- 2026-06-29 23:38 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/84938354.shtml)
-- 2026-06-29 23:33 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/889337192373.shtml)
-- 2026-06-29 23:35 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/54933600.shtml)
-- 2026-06-29 23:32 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/88281818.shtml)
-- 2026-06-29 23:24 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/9554511.shtml)
-- 2026-06-29 23:34 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.minike.top/Article/details/965820.shtml)
-- 2026-06-29 23:46 - [片寄凉太胖了好多](http://www.blog.minike.top/Article/details/52591.shtml)
-- 2026-06-29 23:33 - [高考1357分的同学如何报志愿？](https://www.share.minike.top/Article/details/192581.shtml)
-- 2026-06-29 23:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/865584694502.shtml)
+- 2026-06-29 23:40 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/41582.shtml)
+- 2026-06-29 23:33 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/5905746548.shtml)
+- 2026-06-29 23:44 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/9620953.shtml)
+- 2026-06-29 23:47 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/56908.shtml)
+- 2026-06-29 23:48 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/239603280946.shtml)
+- 2026-06-29 23:55 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/6219663657.shtml)
+- 2026-06-29 23:55 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/978213701040.shtml)
+- 2026-06-29 23:53 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/409786438.shtml)
+- 2026-06-29 23:36 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/823489213389.shtml)
+- 2026-06-29 23:45 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/3689696790.shtml)
+- 2026-06-29 23:36 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/94179.shtml)
+- 2026-06-29 23:31 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/03348510.shtml)
+- 2026-06-29 23:49 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/264853843.shtml)
+- 2026-06-29 23:41 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/92889.shtml)
+- 2026-06-29 23:52 - [炽夏](https://www.share.minike.top/Article/details/640714744.shtml)

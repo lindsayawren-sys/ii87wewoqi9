@@ -1,59 +1,59 @@
-# 中国汽车流通协会成立奔驰、宝马、保时捷三大品牌经销商分会
+# 500亿市值巨头突然直线拉升
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！IT之家 5 月 30 日消息，中国汽车流通协会公众号今天上午发文披露，5 月 27 日，在“2026 中国汽车经销商大会”召开期间，中国汽车流通协会宣布成立奔驰经销商分会、宝马经销商分会、保时捷经销商分会，并分别召开了成立大会。 这三家分会经由协会理事会审议和会员代表投票通过，程序符合规定。协会表示，豪华
+午后，福晶科技股价直线拉升，现涨超4%，报113.58元/股，总市值超530亿元。 据福晶科技2025年年报，公司产品主要分为晶体元器件、精密光学元件、激光器件三大类别。其中，公司围绕光通信，尤其是WSS模块及其配套测试设备、光器件、光模块，提供涵盖各类衍射光栅、双折射晶片、球面镜、柱面镜、波片、反射镜、法拉第旋光片等一系列关键精密光学元件。 据公司最新披露的投资者关系活动记录
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+午后，福晶科技股价直线拉升，现涨超4%，报113.58元/股，总市值超530亿元。
 
-IT之家 5 月 30 日消息，中国汽车流通协会公众号今天上午发文披露，5 月 27 日，在“2026 中国汽车经销商大会”召开期间，中国汽车流通协会宣布成立奔驰经销商分会、宝马经销商分会、保时捷经销商分会，并分别召开了成立大会。
+据福晶科技2025年年报，公司产品主要分为晶体元器件、精密光学元件、激光器件三大类别。
 
-这三家分会经由协会理事会审议和会员代表投票通过，程序符合规定。
+其中，公司围绕光通信，尤其是WSS模块及其配套测试设备、光器件、光模块，提供涵盖各类衍射光栅、双折射晶片、球面镜、柱面镜、波片、反射镜、法拉第旋光片等一系列关键精密光学元件。
 
-协会表示，豪华品牌经销商专业化分会建设工作将持续稳步推进，继本次三大品牌分会成立后，接下来，奥迪、捷豹路虎两个品牌的分会也已列入计划，将陆续筹备成立。
+据公司最新披露的投资者关系活动记录表，2026年公司业务在总体规划上，继续采取晶体+光学+器件协同的“一站式”激光解决方案。
 
-根据介绍，当前，中国汽车产业正处于关键转型期，豪华汽车市场竞争日趋白热化，传统经销模式遭遇库存压力、商务政策、盈利结构失衡等多重挑战，广大豪华品牌经销商面临转型升级的严峻考验。
+在稳定工业纳秒紫外和光纤激光器业务基本面的基础上，重点关注和发展超快激光应用（包括碟片激光）、半导体制造相关的266nm深紫外等应用。
 
-在此背景下，协会针对性成立独立品牌专项分会，旨在搭建更高层级、更高效能、更具专业性的专属沟通服务平台，彻底打通厂商与经销商沟通壁垒，助力厂商经销商平等对话、良性互动。
+开展下一代WSS所需的衍射光栅的研发和量产工作，持续拓展高附加值的光通讯用复杂光胶光学组件和晶体业务。
 
-据IT之家了解，分会的核心职能将聚焦于“沟通、共享、赋能”的平台建设。
+据东北证券研报，法拉第旋光片成为光模块上游的重要瓶颈环节。
 
-责任编辑：张恒星
+上游SGGG衬底涉及稀土元素，海外供应链受产能分配和出口管制影响，全球高端旋光片供需出现明确缺口，带来国产替代窗口。
 
 ## 相关推荐
 
-- 2026-06-29 23:30 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 23:38 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-29 23:33 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-29 23:27 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-29 23:33 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 23:25 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 23:26 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-29 23:27 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 23:50 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-29 23:25 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 23:50 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-29 23:27 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-29 23:37 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-29 23:30 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 23:31 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 23:31 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-29 23:53 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-29 23:34 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-29 23:55 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 23:51 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-29 23:46 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 23:40 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-29 23:56 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 23:56 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-29 23:50 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-29 23:53 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:41 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/190048609486.shtml)
-- 2026-06-29 23:43 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/42348697.shtml)
-- 2026-06-29 23:42 - [青春环游记第三季](http://www.blog.minike.top/Article/details/1303705401.shtml)
-- 2026-06-29 23:28 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/22682830511.shtml)
-- 2026-06-29 23:39 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/88364.shtml)
-- 2026-06-29 23:32 - [乌是否掌握了扭转战局的钥匙](https://www.blog.minike.top/Article/details/247049868.shtml)
-- 2026-06-29 23:33 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/30244454878.shtml)
-- 2026-06-29 23:38 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/2503252.shtml)
-- 2026-06-29 23:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/18684076.shtml)
-- 2026-06-29 23:46 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/11396.shtml)
-- 2026-06-29 23:51 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/289736.shtml)
-- 2026-06-29 23:53 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/6293969572.shtml)
-- 2026-06-29 23:24 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/09832.shtml)
-- 2026-06-29 23:43 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/91820.shtml)
-- 2026-06-29 23:27 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/88524.shtml)
+- 2026-06-29 23:47 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/04060355.shtml)
+- 2026-06-29 23:31 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/132376784326.shtml)
+- 2026-06-29 23:44 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/23087159.shtml)
+- 2026-06-29 23:57 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/5950635.shtml)
+- 2026-06-29 23:53 - [巴西队主帅称日本队是世界最佳之一](https://www.share.minike.top/Article/details/6724759881.shtml)
+- 2026-06-29 23:48 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/51098.shtml)
+- 2026-06-29 23:39 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/512415.shtml)
+- 2026-06-29 23:56 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/858849672364.shtml)
+- 2026-06-29 23:39 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/490290.shtml)
+- 2026-06-29 23:48 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/91647758412.shtml)
+- 2026-06-29 23:52 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/8058885463.shtml)
+- 2026-06-29 23:49 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/37004842662.shtml)
+- 2026-06-29 23:47 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/4213621.shtml)
+- 2026-06-29 23:40 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/256980100.shtml)
+- 2026-06-29 23:55 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/3710362258.shtml)

@@ -1,60 +1,59 @@
-# 五折接盘！中信银行9.8亿元入股“烟草系”城商行
+# 软银愿景基金上财年投资收益460亿美元，对OpenAI投资收益达450亿美元
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-日前，据昆明产业开发投资有限责任公司（下称“昆明产投”）公告，其通过昆明联合产权交易有限公司挂牌出售了持有的云南红塔银行全部股权，占红塔银行总股份的14.52%。股权受让方为中信银行，成交价9.8亿元。 红塔银行，总部位于云南省玉溪市，玉溪市商业银行是它的前身，但“烟草系银行”却是它常被提起的另一个名字。 2016年7月，在云南省委省政府和国家烟草专卖局深化“省部合作”部署的推
+软银集团周三公布，其愿景基金上财年投资收益达460亿美元，主要得益于对OpenAI投资的巨额增值。 这家日本金融巨头已向OpenAI投资超过300亿美元，截至3月底的财年，其在OpenAI的投资收益总计达450亿美元。 在截至3月底的第四财季，愿景基金的收益约为200亿美元，几乎全部来自OpenAI的收益，因为软银在其他投资项目（例如Coupang和Klarna）上均遭遇了亏损
 
 ## 正文
 
-日前，据昆明产业开发投资有限责任公司（下称“昆明产投”）公告，其通过昆明联合产权交易有限公司挂牌出售了持有的云南红塔银行全部股权，占红塔银行总股份的14.52%。
+软银集团周三公布，其愿景基金上财年投资收益达460亿美元，主要得益于对OpenAI投资的巨额增值。
 
-股权受让方为中信银行，成交价9.8亿元。
+这家日本金融巨头已向OpenAI投资超过300亿美元，截至3月底的财年，其在OpenAI的投资收益总计达450亿美元。
 
-红塔银行，总部位于云南省玉溪市，玉溪市商业银行是它的前身，但“烟草系银行”却是它常被提起的另一个名字。
+在截至3月底的第四财季，愿景基金的收益约为200亿美元，几乎全部来自OpenAI的收益，因为软银在其他投资项目（例如Coupang和Klarna）上均遭遇了亏损。
 
-2016年7月，在云南省委省政府和国家烟草专卖局深化“省部合作”部署的推动下，该行前身玉溪市商业银行增资扩股，引入中国烟草总公司云南省公司、云南合和（集团）股份有限公司等多家部属、省属企业作为其主要股东后，正式更名为云南红塔银行，成为中国烟草直属管理的城商行。
+软银正寻求在人工智能热潮中占据核心地位，投资对象涵盖多家人工智能和芯片公司，其中萨姆·奥特曼的 OpenAI 是其投资的重中之重。
 
-红塔银行2025年年报显示，昆明产投为该银行第四大股东，持股比例为14.52%。
+软银在2月份表示，已承诺向OpenAI投资超过600 亿美元，这将使其持有该公司约13%的股份。
 
-与近年登上股权交易所或拍卖平台的其他中小银行股权一样，红塔银行此次股权转让也并不顺利。
+其中超过300亿美元已经投入。
 
-今年4月，该笔股权首次挂牌，底价约10.21亿元，折合每股1.116元。
+今年3月，OpenAI完成了一轮由软银联合领投的融资，估值达到8520亿美元。
 
-相比2025年末云南红塔银行每股净资产2.21元，折价幅度高达49.5%。
+虽然OpenAI估值的飙升提振了软银愿景基金，但OpenAI在软银投资组合中的集中度也引发了人们对其债务负担的担忧。
 
 ## 相关推荐
 
-- 2026-06-29 23:45 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-29 23:27 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-29 23:42 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-29 23:45 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-29 23:25 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-29 23:42 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-29 23:45 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-29 23:24 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 23:42 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-29 23:33 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-29 23:37 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-29 23:42 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 23:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 23:35 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 23:36 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-29 23:38 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 23:39 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 23:40 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 23:48 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 23:35 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 23:51 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 23:43 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 23:55 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 23:46 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 23:43 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 23:43 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-29 23:45 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:37 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/59447895.shtml)
-- 2026-06-29 23:44 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/8381303605.shtml)
-- 2026-06-29 23:43 - [一生一世](https://www.blog.kurohicncr.top/Article/details/6825227.shtml)
-- 2026-06-29 23:25 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/270117376.shtml)
-- 2026-06-29 23:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/92493.shtml)
-- 2026-06-29 23:46 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/719968698.shtml)
-- 2026-06-29 23:46 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/458357.shtml)
-- 2026-06-29 23:40 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.minike.top/Article/details/571959145045.shtml)
-- 2026-06-29 23:51 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/260370983.shtml)
-- 2026-06-29 23:41 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/00559856062.shtml)
-- 2026-06-29 23:33 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/354195175900.shtml)
-- 2026-06-29 23:36 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/816692223742.shtml)
-- 2026-06-29 23:24 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/4046439788.shtml)
-- 2026-06-29 23:25 - [蔚来车主罚站](https://www.share.minike.top/Article/details/51275346072.shtml)
-- 2026-06-29 23:24 - [第一炉香](http://www.share.minike.top/Article/details/87003328211.shtml)
+- 2026-06-29 23:42 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/7503106.shtml)
+- 2026-06-29 23:40 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/89688136011.shtml)
+- 2026-06-29 23:33 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/267472.shtml)
+- 2026-06-29 23:31 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/4815415127.shtml)
+- 2026-06-29 23:50 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/53089.shtml)
+- 2026-06-29 23:32 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/17459910.shtml)
+- 2026-06-29 23:42 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/00237949142.shtml)
+- 2026-06-29 23:48 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/86361.shtml)
+- 2026-06-29 23:41 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/04845410894.shtml)
+- 2026-06-29 23:50 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/92902294.shtml)
+- 2026-06-29 23:36 - [肝不好身体这几处会“说话”](https://www.blog.kurohicncr.top/Article/details/10860224127.shtml)
+- 2026-06-29 23:47 - [杨紫有3部作品入围金鹰奖](http://www.blog.kurohicncr.top/Article/details/962206857678.shtml)
+- 2026-06-29 23:57 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/378520881804.shtml)
+- 2026-06-29 23:51 - [世界杯](http://www.share.kurohicncr.top/Article/details/0411454141.shtml)
+- 2026-06-29 23:43 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/9956661.shtml)

@@ -1,57 +1,57 @@
-# 以军攻占黎南战略要地
+# 港股收评：恒指涨0.15% 科指涨0.46% 半导体板块拉升 “大模型双雄”走强 智谱涨超36%
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-中新社北京6月1日电 综合消息：以色列当地时间5月31日宣布已控制黎巴嫩南部战略要地博福特城堡，并表示将进一步扩大对黎南部地区的掌控。与此同时，黎巴嫩真主党继续向以色列北部发射火箭弹和无人机，黎以局势进一步升级。近日，以色列扩大了在黎巴嫩的军事行动范围，以国防军渡过利塔尼河，将针对黎真主党目标的军事行动推进至河北岸区域，并要求黎巴嫩南部大部分地区的居民撤离。 以总理办公室5月3
+5月13日消息，港股三大指数涨跌不一。截至收盘，恒生指数涨0.15%，报26388.44，恒生科技指数涨0.46%，国企指数跌0.07%。盘面上，科网股涨跌不一，京东涨超8%，美团涨超4%，百度、快手跌超1%；半导体板块涨幅居前，澜起科技涨超21%；人工智能板块走强，智谱涨超36%；猪肉股继续走弱，牧原股份跌超2%。 半导体板块涨幅居前，澜起科技涨超21%。大摩最新研报指出，随
 
 ## 正文
 
-中新社北京6月1日电 综合消息：以色列当地时间5月31日宣布已控制黎巴嫩南部战略要地博福特城堡，并表示将进一步扩大对黎南部地区的掌控。
+5月13日消息，港股三大指数涨跌不一。
 
-与此同时，黎巴嫩真主党继续向以色列北部发射火箭弹和无人机，黎以局势进一步升级。
+截至收盘，恒生指数涨0.15%，报26388.44，恒生科技指数涨0.46%，国企指数跌0.07%。
 
-近日，以色列扩大了在黎巴嫩的军事行动范围，以国防军渡过利塔尼河，将针对黎真主党目标的军事行动推进至河北岸区域，并要求黎巴嫩南部大部分地区的居民撤离。
+盘面上，科网股涨跌不一，京东涨超8%，美团涨超4%，百度、快手跌超1%；半导体板块涨幅居前，澜起科技涨超21%；人工智能板块走强，智谱涨超36%；猪肉股继续走弱，牧原股份跌超2%。
 
-以总理办公室5月31日发布总理内塔尼亚胡的一段讲话，他在视频中“庆祝”以军控制黎南部博福特城堡一带。
+半导体板块涨幅居前，澜起科技涨超21%。
 
-内塔尼亚胡说，攻占博福特城堡是一个“颇具戏剧性的阶段”，也是以色列正在推行政策的“重大转变”。
+大摩最新研报指出，随着Agentic AI（AI智能体）的爆发，AI基础设施正从以GPU（图形处理器）为主，转向“CPU（中央处理器）+内存+系统协同”架构。
 
-他已指示以军进一步深化并扩大对“此前处于真主党控制下地区”的掌控。
+该行预计，在基准情景下，到2030年，全球服务器CPU市场规模将达到1250亿美元，新增DRAM（动态随机存取存储器）需求则将达到74EB。
 
-据路透社等媒体介绍，博福特城堡始建于12世纪，位于俯瞰黎巴嫩南部和以色列北部的战略高地，后经多次扩建和改造。
+而在乐观情景下，到2030年，全球服务器CPU市场规模最高可能达到2830亿美元，新增DRAM需求甚至可能达到221EB，约为当前全球市场规模的近5倍。
 
-以军控制该地后，可加强对周边地区的监视和火力覆盖。
+人工智能板块走强，智谱涨超36%。
 
 ## 相关推荐
 
-- 2026-06-29 23:31 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-29 23:53 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-29 23:43 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 23:48 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-29 23:33 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-29 23:45 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 23:32 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-29 23:34 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-29 23:29 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-29 23:29 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-29 23:43 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-29 23:53 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 23:33 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-29 23:48 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-29 23:40 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-29 23:38 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-29 23:58 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-29 23:39 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 23:48 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-29 23:39 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-29 23:52 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-29 23:32 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:26 - [高考1357分的同学如何报志愿？](https://www.blog.minike.top/Article/details/84443676.shtml)
-- 2026-06-29 23:47 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/96753.shtml)
-- 2026-06-29 23:45 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/273335.shtml)
-- 2026-06-29 23:51 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/2768792606.shtml)
-- 2026-06-29 23:26 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/70414.shtml)
-- 2026-06-29 23:33 - [山东发布山洪灾害气象预警](https://www.share.kurohicncr.top/Article/details/43683601.shtml)
-- 2026-06-29 23:44 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/05384785858.shtml)
-- 2026-06-29 23:44 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/45041.shtml)
-- 2026-06-29 23:24 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/159495180960.shtml)
-- 2026-06-29 23:48 - [明星大侦探第一季](https://www.share.minike.top/Article/details/212499.shtml)
-- 2026-06-29 23:30 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/0233149605.shtml)
-- 2026-06-29 23:43 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/610630.shtml)
-- 2026-06-29 23:42 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/7257734.shtml)
-- 2026-06-29 23:47 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/262467201318.shtml)
-- 2026-06-29 23:42 - [一台空调背后的全球化逻辑](https://www.share.kurohicncr.top/Article/details/3085139.shtml)
+- 2026-06-29 23:42 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/161670924.shtml)
+- 2026-06-29 23:47 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/8515436971.shtml)
+- 2026-06-29 23:49 - [美以这对亲密盟友要掰了吗](https://www.blog.kurohicncr.top/Article/details/770235118642.shtml)
+- 2026-06-29 23:56 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/8739699.shtml)
+- 2026-06-29 23:46 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/96851088.shtml)
+- 2026-06-29 23:54 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/55667.shtml)
+- 2026-06-29 23:58 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/34216.shtml)
+- 2026-06-29 23:42 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/89759730334.shtml)
+- 2026-06-29 23:39 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/6284379072.shtml)
+- 2026-06-29 23:36 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/0001084.shtml)
+- 2026-06-29 23:38 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/69654276611.shtml)
+- 2026-06-29 23:56 - [流金岁月](https://www.blog.minike.top/Article/details/1521715108.shtml)
+- 2026-06-29 23:35 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/847807224.shtml)
+- 2026-06-29 23:58 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/296009.shtml)
+- 2026-06-29 23:59 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/5187486.shtml)

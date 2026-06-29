@@ -1,46 +1,52 @@
-# 智利中部沿岸远海发生6.0级地震
+# 中英“乒乓外交”55周年纪念活动在伦敦举行
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-中国地震台网正式测定：6月1日5时34分，在智利中部沿岸远海(南纬32.80度，西经71.90度)发生6.0级地震，震源深度10公里。 (总台央视记者 张腾飞)
+发布时间：2026年05月12日 22:14 来源：中国新闻网 当地时间5月11日，刚刚在2026年伦敦世乒赛荣膺男女团体冠军的中国乒乓球队应邀访问英国拉夫堡大学伦敦校区，参加在这里举行的中英“乒乓外交”55周年纪念活动。 中国驻英国大使郑泽光、中国乒乓球协会主席王励勤、英格兰乒乓球协会首席执行官洛克耶等出席并致辞。“乒乓外交”亲历者海德斯、英格兰乒乓球队运动员、教练员，拉夫堡
 
 ## 正文
 
-中国地震台网正式测定：6月1日5时34分，在智利中部沿岸远海(南纬32.80度，西经71.90度)发生6.0级地震，震源深度10公里。
+发布时间：2026年05月12日 22:14 来源：中国新闻网 当地时间5月11日，刚刚在2026年伦敦世乒赛荣膺男女团体冠军的中国乒乓球队应邀访问英国拉夫堡大学伦敦校区，参加在这里举行的中英“乒乓外交”55周年纪念活动。
 
-(总台央视记者 张腾飞)
+中国驻英国大使郑泽光、中国乒乓球协会主席王励勤、英格兰乒乓球协会首席执行官洛克耶等出席并致辞。
+
+“乒乓外交”亲历者海德斯、英格兰乒乓球队运动员、教练员，拉夫堡大学和当地社区学生等200余人参加。
+
+活动期间，中国乒乓球队运动员同英格兰乒乓球队运动员、拉夫堡大学师生以及英国各界乒乓球爱好者进行交流互动。
+
+现场气氛热烈友好，来宾们真切感受到乒乓球运动的独特魅力和中国运动健儿的良好精神风貌。
+
+(欧阳开宇 卢映荷 制作 王嘉怡） 责任编辑：【李骏】
 
 ## 相关推荐
 
-- 2026-06-29 23:26 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-29 23:35 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 23:38 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-29 23:35 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-29 23:34 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-29 23:30 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-29 23:40 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 23:53 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-29 23:40 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 23:47 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 23:33 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 23:44 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 23:30 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 23:57 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 23:32 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 23:55 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 23:44 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 23:37 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 23:47 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-29 23:42 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 23:44 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 23:45 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:40 - [扬名立万](https://www.blog.minike.top/Article/details/42668.shtml)
-- 2026-06-29 23:51 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/3644074.shtml)
-- 2026-06-29 23:34 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/279047.shtml)
-- 2026-06-29 23:52 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/699566134.shtml)
-- 2026-06-29 23:41 - [男子称在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/791417.shtml)
-- 2026-06-29 23:40 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/0345051.shtml)
-- 2026-06-29 23:42 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/1943974072.shtml)
-- 2026-06-29 23:29 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/43274.shtml)
-- 2026-06-29 23:51 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/20193636.shtml)
-- 2026-06-29 23:40 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/268372538443.shtml)
-- 2026-06-29 23:31 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/83883105.shtml)
-- 2026-06-29 23:38 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/131218970.shtml)
-- 2026-06-29 23:40 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/61936.shtml)
-- 2026-06-29 23:52 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/7578238075.shtml)
-- 2026-06-29 23:28 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/142488.shtml)
+- 2026-06-29 23:43 - [如何看法国总统候选人称加强与华合作](https://www.share.minike.top/Article/details/99374.shtml)
+- 2026-06-29 23:55 - [汪苏泷年度歌手](http://www.blog.kurohicncr.top/Article/details/6258132096.shtml)
+- 2026-06-29 23:57 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/27962728190.shtml)
+- 2026-06-29 23:37 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/18424955.shtml)
+- 2026-06-29 23:52 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/96895.shtml)
+- 2026-06-29 23:31 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/08507452813.shtml)
+- 2026-06-29 23:45 - [把邻居裸体发群算维权还是侵权](http://www.blog.kurohicncr.top/Article/details/0704139244.shtml)
+- 2026-06-29 23:32 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/7000985.shtml)
+- 2026-06-29 23:41 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/400801140161.shtml)
+- 2026-06-29 23:38 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/536881445.shtml)
+- 2026-06-29 23:41 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/33457908.shtml)
+- 2026-06-29 23:48 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/7451575038.shtml)
+- 2026-06-29 23:49 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/8162314.shtml)
+- 2026-06-29 23:53 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/21646.shtml)
+- 2026-06-29 23:51 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/242775926.shtml)

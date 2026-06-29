@@ -1,58 +1,61 @@
-# 中国赢得2030年国际测量师联合会大会主办权
+# 002081，15天11板！
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-中新网开普敦5月29日电 当地时间5月29日，在南非开普敦召开的国际测量师联合会(FIG)2026年大会全体会议上，经全球会员投票，中国青岛以78票高得票率赢得2030年FIG大会主办权。 这将是FIG大会自1878年成立以来首次落户中国，青岛将成为首座承办这一全球测绘地理信息领域顶级盛会的中国城市。 中国测绘学会组团参加了此次年会，山东省青岛市代表在大会上做陈述。 本届202
+15天11板。 金螳螂（002081）12日盘中强势上扬，午后再度涨停，近15个交易日收获11个涨停板，累计涨幅达136.8%。 金螳螂近期被市场赋予“AI算力”“商业航天”、“数据中心”等热点概念，在多重概念加持下，公司股价一路飙升。 对此，公司也进行了澄清。公司日前在公告中指出，公司目前未从事商业航天核心产业（含火箭研制、卫星制造、发射服务等），亦未开展数据中心算力运营业务
 
 ## 正文
 
-中新网开普敦5月29日电 当地时间5月29日，在南非开普敦召开的国际测量师联合会(FIG)2026年大会全体会议上，经全球会员投票，中国青岛以78票高得票率赢得2030年FIG大会主办权。
+15天11板。
 
-这将是FIG大会自1878年成立以来首次落户中国，青岛将成为首座承办这一全球测绘地理信息领域顶级盛会的中国城市。
+金螳螂（002081）12日盘中强势上扬，午后再度涨停，近15个交易日收获11个涨停板，累计涨幅达136.8%。
 
-中国测绘学会组团参加了此次年会，山东省青岛市代表在大会上做陈述。
+金螳螂近期被市场赋予“AI算力”“商业航天”、“数据中心”等热点概念，在多重概念加持下，公司股价一路飙升。
 
-本届2026年大会主题为“我们希望的未来——可持续发展目标及其未来”，重点聚焦土地治理、空间信息技术、可持续发展及气候韧性等议题。
+对此，公司也进行了澄清。
 
-国际测量师联合会大会每四年举办一次，被视为全球测绘与空间信息行业最具影响力的国际会议之一。
+公司日前在公告中指出，公司目前未从事商业航天核心产业（含火箭研制、卫星制造、发射服务等），亦未开展数据中心算力运营业务。
 
-国际测量师联合会是全球测绘、地籍、地理信息领域最权威的国际组织之一，1878年7月18日成立于法国巴黎，会员覆盖120多个国家和地区，含国家学会协会、企业、学术机构。
+公司仅以装饰及机电主业为上述领域提供基础设施配套服务，目前仅承接少量商业航天发射场配套工程及数据中心施工项目，施工范围含办公楼、餐厅、公寓楼、机电工程等，合计占营收比例不足1%，对业绩无重大影响。
 
-(完)
+据了解，公司股价持续受追捧，除了受到热点概念的加持，主要还是受公司近期签订的一系列订单提振。
+
+金螳螂4月22日晚间公告，孙公司金螳螂（越南）与富国民用建设有限责任公司于近日签署了《框架协议》。
 
 ## 相关推荐
 
-- 2026-06-29 23:25 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-29 23:31 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 23:25 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-29 23:26 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-29 23:50 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 23:34 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 23:40 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 23:37 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-29 23:39 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-29 23:52 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 23:53 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 23:30 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-29 23:52 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 23:36 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-29 23:32 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 23:56 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-29 23:58 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 23:43 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 23:37 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-29 23:49 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-29 23:57 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 23:37 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-29 23:33 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 23:44 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 23:42 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 23:34 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-29 23:30 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 23:57 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-29 23:49 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:45 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/0598161139.shtml)
-- 2026-06-29 23:50 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/19182332.shtml)
-- 2026-06-29 23:35 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/716323870280.shtml)
-- 2026-06-29 23:50 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/664116772.shtml)
-- 2026-06-29 23:53 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/709203.shtml)
-- 2026-06-29 23:25 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/43785693.shtml)
-- 2026-06-29 23:48 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/267706.shtml)
-- 2026-06-29 23:45 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/432870.shtml)
-- 2026-06-29 23:53 - [我和我的家乡](http://www.share.minike.top/Article/details/888381228524.shtml)
-- 2026-06-29 23:25 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/338553576987.shtml)
-- 2026-06-29 23:38 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/740099924.shtml)
-- 2026-06-29 23:28 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/274467110.shtml)
-- 2026-06-29 23:53 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/9346588.shtml)
-- 2026-06-29 23:31 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/2843395664.shtml)
-- 2026-06-29 23:45 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/0121067.shtml)
+- 2026-06-29 23:35 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/972014387738.shtml)
+- 2026-06-29 23:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/52961356.shtml)
+- 2026-06-29 23:51 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/3063928180.shtml)
+- 2026-06-29 23:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/2849742.shtml)
+- 2026-06-29 23:35 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/920154.shtml)
+- 2026-06-29 23:30 - [美以这对亲密盟友要掰了吗](https://www.share.kurohicncr.top/Article/details/83682242.shtml)
+- 2026-06-29 23:58 - [货车司机恶意闯卡逃费被行拘](http://www.blog.minike.top/Article/details/08863259667.shtml)
+- 2026-06-29 23:43 - [国常会听取人工智能发展情况汇报](https://www.share.kurohicncr.top/Article/details/28524.shtml)
+- 2026-06-29 23:32 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/832860.shtml)
+- 2026-06-29 23:41 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/467481609940.shtml)
+- 2026-06-29 23:43 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/0667321.shtml)
+- 2026-06-29 23:53 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/849137.shtml)
+- 2026-06-29 23:51 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/0709070.shtml)
+- 2026-06-29 23:42 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/8154216224.shtml)
+- 2026-06-29 23:41 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/39303.shtml)

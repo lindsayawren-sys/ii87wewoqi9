@@ -1,56 +1,57 @@
-# SK海力士园区火灾，影响多大？最新消息来了
+# 酒价内参5月12日价格发布：五粮液普五八代上涨1元
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！韩国SK海力士一园区气体室发生火灾 有毒气体泄漏 央视记者获悉，当地时间6月1日上午10时32分左右，位于韩国忠清北道清州市的SK海力士第四园区内，连接两个生产间的气体室发生火灾，自动喷淋系统在起火后随即启动，火势及时得到控制。但有氟气发生泄露，7人被送往医院接受治疗。 在有毒气体泄漏后，SK海力士方面立即
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月12日整体平稳。如果主要单品各取一瓶整体打包售卖，今日总售价为9954元，较昨日微跌1元，连续两日站稳9950元上方。昨天总酒价创下12天来新高，今日市场在连续走强后进入横盘整理，终端交投情绪保持稳定。 今日白酒市场11大单品七涨四
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月12日整体平稳。
 
-韩国SK海力士一园区气体室发生火灾 有毒气体泄漏 央视记者获悉，当地时间6月1日上午10时32分左右，位于韩国忠清北道清州市的SK海力士第四园区内，连接两个生产间的气体室发生火灾，自动喷淋系统在起火后随即启动，火势及时得到控制。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9954元，较昨日微跌1元，连续两日站稳9950元上方。
 
-但有氟气发生泄露，7人被送往医院接受治疗。
+昨天总酒价创下12天来新高，今日市场在连续走强后进入横盘整理，终端交投情绪保持稳定。
 
-在有毒气体泄漏后，SK海力士方面立即疏散了工厂内约3600名员工并于当地时间13时38分左右完成残留气体清除工作。
+今日白酒市场11大单品七涨四跌，赢家占据优势。
 
-在确认无异常情况后，重新开放全部工厂建筑，并宣布事件处置结束。
+上涨方面，飞天茅台与古井贡古20涨幅居前，均上涨5元/瓶，后者收获三连阳，价格快速上升重回550元月内最高位；国窖1573与洋河梦之蓝M6+均上涨3元/瓶；五粮液普五八代、五粮液1618及水晶剑南春均上涨1元/瓶。
 
-SK海力士方面表示，工厂的生产设备运行未受影响，不会使生产中断，目前公司正在调查事故发生的确切原因。
+下跌方面，习酒君品与青花汾20跌幅居前，均下跌6元/瓶，前者失守640元，后者创下近一月最大跌幅，平五月以来最低价位纪录；青花郎下跌5元/瓶；精品茅台下跌3元/瓶。
 
-SK海力士今年股价因存储周期景气而节节攀升，最新市值已站上1万亿美元。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
-今日SK海力士股价上涨1.29%，续创历史新高。
+随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
 
 ## 相关推荐
 
-- 2026-06-29 23:36 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-29 23:37 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-29 23:51 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-29 23:32 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-29 23:46 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-29 23:32 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-29 23:37 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-29 23:41 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 23:35 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-29 23:27 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-29 23:32 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-29 23:53 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 23:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-29 23:41 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-29 23:46 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 23:55 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-29 23:59 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 23:54 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 23:31 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 23:52 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 23:36 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:46 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/432298999.shtml)
-- 2026-06-29 23:25 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/8508835256.shtml)
-- 2026-06-29 23:39 - [东方风云榜直播](http://www.share.minike.top/Article/details/65114621.shtml)
-- 2026-06-29 23:39 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.kurohicncr.top/Article/details/86174750.shtml)
-- 2026-06-29 23:24 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/909940.shtml)
-- 2026-06-29 23:39 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/032944809.shtml)
-- 2026-06-29 23:38 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/29247.shtml)
-- 2026-06-29 23:33 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/40194714.shtml)
-- 2026-06-29 23:29 - [世界杯](https://www.share.kurohicncr.top/Article/details/53779.shtml)
-- 2026-06-29 23:48 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/437050385.shtml)
-- 2026-06-29 23:24 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/98208.shtml)
-- 2026-06-29 23:30 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/425090328217.shtml)
-- 2026-06-29 23:27 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/861850669.shtml)
-- 2026-06-29 23:25 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/3335985761.shtml)
-- 2026-06-29 23:50 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.minike.top/Article/details/615217230628.shtml)
+- 2026-06-29 23:53 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/943236.shtml)
+- 2026-06-29 23:46 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/50176345555.shtml)
+- 2026-06-29 23:32 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/937103391746.shtml)
+- 2026-06-29 23:44 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/532682.shtml)
+- 2026-06-29 23:36 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/9531618874.shtml)
+- 2026-06-29 23:59 - [创新药板块能否“苦尽甘来”](https://www.blog.minike.top/Article/details/2450528.shtml)
+- 2026-06-29 23:58 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/204093572154.shtml)
+- 2026-06-29 23:42 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/920370093391.shtml)
+- 2026-06-29 23:54 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/0628073.shtml)
+- 2026-06-29 23:40 - [千与千寻](http://www.share.minike.top/Article/details/7252080621.shtml)
+- 2026-06-29 23:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/32288.shtml)
+- 2026-06-29 23:44 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/43119.shtml)
+- 2026-06-29 23:52 - [谁在推动“成都造”影视持续出圈](https://www.blog.minike.top/Article/details/5902404.shtml)
+- 2026-06-29 23:48 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/8075491222.shtml)
+- 2026-06-29 23:51 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/621741740423.shtml)

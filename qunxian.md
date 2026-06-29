@@ -1,58 +1,58 @@
-# Veracyte在美国正式推出Prosigna乳腺癌检测
+# ATFX:美国CPI数据发布 美元何去何从
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-Veracyte公司今日宣布，其Prosigna乳腺癌复发风险检测在美国正式商业化上市，预计将于2026年6月8日起开放订购。此举紧随OPTIMA III期临床试验重磅数据的公布，该数据于上周在芝加哥举行的美国临床肿瘤学会年会上发布。 Prosigna检测是一款基于全转录组测序技术的基因组检测产品，专为早期激素受体阳性乳腺癌患者设计。该检测通过分析肿瘤内50个特定基因的活性，结
+专题：ATFX外汇专栏投稿 5月12，ATFX：北京时间今日20：30，美国将公布4月未季调CPI年率，前值为3.3%，预期值3.7%，预期增幅明显。4月季调后CPI月率，同时公布，前值为0.9%，预期值0.6%，预期降幅同样明显。通胀数据同比下降而环比上升，意味着美国的短期物价水平下降但长期仍存在高通胀风险。 ▲ATFX图 美原油WTI在三月份涨幅明显，四月份虽然维持高位区间
 
 ## 正文
 
-Veracyte公司今日宣布，其Prosigna乳腺癌复发风险检测在美国正式商业化上市，预计将于2026年6月8日起开放订购。
+专题：ATFX外汇专栏投稿 5月12，ATFX：北京时间今日20：30，美国将公布4月未季调CPI年率，前值为3.3%，预期值3.7%，预期增幅明显。
 
-此举紧随OPTIMA III期临床试验重磅数据的公布，该数据于上周在芝加哥举行的美国临床肿瘤学会年会上发布。
+4月季调后CPI月率，同时公布，前值为0.9%，预期值0.6%，预期降幅同样明显。
 
-Prosigna检测是一款基于全转录组测序技术的基因组检测产品，专为早期激素受体阳性乳腺癌患者设计。
+通胀数据同比下降而环比上升，意味着美国的短期物价水平下降但长期仍存在高通胀风险。
 
-该检测通过分析肿瘤内50个特定基因的活性，结合肿瘤内在亚型、增殖评分与临床病理因素，计算患者的复发风险评分，并预测10年内远处转移的概率。
+▲ATFX图 美原油WTI在三月份涨幅明显，四月份虽然维持高位区间，但整体涨幅有限。
 
-这些信息可帮助医生判断高风险患者是否需要接受化疗，或仅通过内分泌治疗即可获得良好预后。
+CPI数据衡量的是价格增量，在国际油价温和波动的前提下，四月份环比数据极可能出现下降。
 
-OPTIMA试验是一项由伦敦大学学院领导的前瞻性、随机对照III期研究，共纳入4，429名患者。
+短期CPI数据影响短期美元走势，如果市场主流观点认为下降的环比数据会降低美联储加息的紧迫性，美元可能遭受冲击。
 
-结果显示，根据Prosigna检测结果，超过三分之二的患者可安全免除化疗，其5年无癌生存率为93.7%，与接受化疗患者的94.9%相比未显示劣势。
+▲ATFX图 核心CPI年率，前值为2.6%，预期值为2.7%，预期增幅不明显。
 
-该研究还首次证实，绝经前女性及有多发淋巴结转移的患者同样可依据检测结果安全降级治疗。
+核心CPI月率，前值为0.2%，预期值为0.4%，预期增幅中等。
 
 ## 相关推荐
 
-- 2026-06-29 23:42 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 23:37 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-29 23:30 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 23:39 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-29 23:38 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-29 23:38 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 23:52 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-29 23:25 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-29 23:37 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 23:39 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-29 23:29 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 23:38 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-29 23:52 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-29 23:47 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-29 23:38 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 23:31 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 23:42 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-29 23:55 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 23:53 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-29 23:47 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 23:46 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 23:51 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 23:42 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-29 23:43 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:47 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/124326.shtml)
-- 2026-06-29 23:52 - [货车司机恶意闯卡逃费被行拘](https://www.share.minike.top/Article/details/94374755666.shtml)
-- 2026-06-29 23:36 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/36256.shtml)
-- 2026-06-29 23:32 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/6393842624.shtml)
-- 2026-06-29 23:36 - [恋与深空致歉](https://www.blog.kurohicncr.top/Article/details/60127974.shtml)
-- 2026-06-29 23:50 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/1859441941.shtml)
-- 2026-06-29 23:52 - [巴黎区长紧急采购50台中国空调](https://www.blog.minike.top/Article/details/04088.shtml)
-- 2026-06-29 23:24 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/12772712822.shtml)
-- 2026-06-29 23:40 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/34193062.shtml)
-- 2026-06-29 23:51 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/587225.shtml)
-- 2026-06-29 23:27 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/1027232.shtml)
-- 2026-06-29 23:44 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/60381710986.shtml)
-- 2026-06-29 23:25 - [曼城官宣马雷斯卡出任主教练](http://www.share.kurohicncr.top/Article/details/80286547115.shtml)
-- 2026-06-29 23:34 - [演员都来上音综的原因](https://www.share.kurohicncr.top/Article/details/748510056.shtml)
-- 2026-06-29 23:46 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/86831613.shtml)
+- 2026-06-29 23:49 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/585743066.shtml)
+- 2026-06-29 23:59 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/33952543927.shtml)
+- 2026-06-29 23:46 - [日防卫省正考虑引进美企人工智能系统](http://www.share.kurohicncr.top/Article/details/99988.shtml)
+- 2026-06-29 23:46 - [沙丘](http://www.blog.minike.top/Article/details/80690664.shtml)
+- 2026-06-29 23:31 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/2210794.shtml)
+- 2026-06-29 23:37 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/46261887.shtml)
+- 2026-06-29 23:39 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/11987.shtml)
+- 2026-06-29 23:44 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/570520237877.shtml)
+- 2026-06-29 23:36 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/657468910.shtml)
+- 2026-06-29 23:46 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/316065.shtml)
+- 2026-06-29 23:46 - [天道](http://www.blog.minike.top/Article/details/28992268.shtml)
+- 2026-06-29 23:51 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/000438479.shtml)
+- 2026-06-29 23:33 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/96646401430.shtml)
+- 2026-06-29 23:52 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/17041.shtml)
+- 2026-06-29 23:56 - [扬名立万](http://www.blog.minike.top/Article/details/82839476.shtml)

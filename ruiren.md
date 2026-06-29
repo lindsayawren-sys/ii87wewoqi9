@@ -1,56 +1,56 @@
-# 探访菲律宾菲华历史博物馆：寻漳州月港物证遗存
+# Coherus目标2026年LOQTORZI季度销售额达1500万美元，管线数据年中密集读出
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-中新社马尼拉6月1日电 题：探访菲律宾菲华历史博物馆：寻漳州月港物证遗存 中新社记者 张金川 张兴龙 “蓝色丝绸部分是中国生产，白色的须是马尼拉加工，然后出口欧洲。”近日，菲律宾华裔青年联合会理事蔡友铭向中国新闻社采访团讲述“马尼拉披肩”故事时如是说。 历史上，丝质披肩经由中国“海上丝绸之路”运抵马尼拉港口，再通过“马尼拉大帆船”贸易运至欧洲，因此被称为“马尼拉披肩”。时至今日
+Coherus Oncology周二公布一季度财报，重申2026年核心产品LOQTORZI季度销售额目标为约1500万美元，同时预计年中将迎来多项关键管线数据读出，包括casdozokitug和tagmokitug的临床进展。 LOQTORZI：一季度销售环比回落，新启动患者创新高 财报显示，LOQTORZI第一季度净销售额为1180万美元，较去年第四季度的1240万美元有所回
 
 ## 正文
 
-中新社马尼拉6月1日电 题：探访菲律宾菲华历史博物馆：寻漳州月港物证遗存 中新社记者 张金川 张兴龙 “蓝色丝绸部分是中国生产，白色的须是马尼拉加工，然后出口欧洲。
+Coherus Oncology周二公布一季度财报，重申2026年核心产品LOQTORZI季度销售额目标为约1500万美元，同时预计年中将迎来多项关键管线数据读出，包括casdozokitug和tagmokitug的临床进展。
 
-”近日，菲律宾华裔青年联合会理事蔡友铭向中国新闻社采访团讲述“马尼拉披肩”故事时如是说。
+LOQTORZI：一季度销售环比回落，新启动患者创新高 财报显示，LOQTORZI第一季度净销售额为1180万美元，较去年第四季度的1240万美元有所回落，但同比增长61%。
 
-历史上，丝质披肩经由中国“海上丝绸之路”运抵马尼拉港口，再通过“马尼拉大帆船”贸易运至欧洲，因此被称为“马尼拉披肩”。
+公司首席商务官Sameer Goregaoker将环比下滑归因于正常的一季度季节性和恶劣天气影响。
 
-时至今日，马尼拉披肩被收藏家和博物馆收藏。
+尽管销售额环比回落，LOQTORZI新启动患者数仍创下历史新高，订购账户宽度和深度均增长21%。
 
-漳州是一座拥有1300多年历史的中国历史文化名城，是海上丝绸之路重要节点城市。
+公司重申全年季度需求增长预期为10%至15%，2026年目标季度销售额约为1500万美元，2027年目标提升至3000万至3500万美元，2028年峰值季度销售额预计达约4400万美元。
 
-早在500多年前，漳州先辈就漂洋过海到菲律宾马尼拉经商贸易，拉开漳州和菲律宾经贸合作的序幕。
+管线进展：casdozokitug与tagmokitug年中数据读出在即 公司管线进展备受市场关注。
 
-5月26日至29日，中新社采访团赴菲律宾开展为期4天的“福建漳州月港海丝寻迹”主题采访暨海外华文媒体交流活动，旨在挖掘漳州月港作为明代中后期中国海上丝绸之路重要港口，以及“马尼拉大帆船”贸易重要起点所蕴含的世界性历史价值。
+Casdozokitug联合toripalimab和贝伐珠单抗一线治疗不可切除肝细胞癌的随机二期试验已完成患者入组，预计于2026年年中首次数据读出。
 
-活动期间，采访团前往菲律宾菲华历史博物馆探访，与菲律宾专家学者座谈交流。
+此前公布的数据显示，在标准治疗基础上加入casdozokitug后，总缓解率达38%，完全缓解率达17%。
 
 ## 相关推荐
 
-- 2026-06-29 23:33 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 23:34 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-29 23:51 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-29 23:33 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-29 23:48 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 23:25 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 23:28 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-29 23:37 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-29 23:51 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 23:30 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 23:34 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-29 23:50 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 23:56 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 23:36 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 23:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 23:40 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 23:46 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-29 23:48 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-29 23:35 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-29 23:51 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:35 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/4681489540.shtml)
-- 2026-06-29 23:47 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/407575.shtml)
-- 2026-06-29 23:43 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/22928.shtml)
-- 2026-06-29 23:49 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/76561946389.shtml)
-- 2026-06-29 23:36 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/9141479.shtml)
-- 2026-06-29 23:42 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/21281735580.shtml)
-- 2026-06-29 23:30 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/239544361.shtml)
-- 2026-06-29 23:36 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/09811.shtml)
-- 2026-06-29 23:41 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/05057909075.shtml)
-- 2026-06-29 23:41 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/785999430598.shtml)
-- 2026-06-29 23:34 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/92067391468.shtml)
-- 2026-06-29 23:28 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/3742459390.shtml)
-- 2026-06-29 23:26 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/6586115208.shtml)
-- 2026-06-29 23:24 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/77712001.shtml)
-- 2026-06-29 23:32 - [欧洲缘何成为变暖最快的大洲](https://www.blog.kurohicncr.top/Article/details/26176.shtml)
+- 2026-06-29 23:46 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/68209059879.shtml)
+- 2026-06-29 23:41 - [女心理师](https://www.share.kurohicncr.top/Article/details/342101954.shtml)
+- 2026-06-29 23:54 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/0637352.shtml)
+- 2026-06-29 23:39 - [急先锋](https://www.blog.kurohicncr.top/Article/details/543985.shtml)
+- 2026-06-29 23:32 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/34649319587.shtml)
+- 2026-06-29 23:35 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/56503.shtml)
+- 2026-06-29 23:57 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/056246119575.shtml)
+- 2026-06-29 23:54 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/579264.shtml)
+- 2026-06-29 23:55 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/61191944213.shtml)
+- 2026-06-29 23:48 - [五只军犬招募领养人](http://www.share.kurohicncr.top/Article/details/6547093108.shtml)
+- 2026-06-29 23:32 - [TFing最具影响力音乐厂牌](https://www.blog.minike.top/Article/details/334138417.shtml)
+- 2026-06-29 23:56 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/85633009324.shtml)
+- 2026-06-29 23:47 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/680797.shtml)
+- 2026-06-29 23:52 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/81188563482.shtml)
+- 2026-06-29 23:54 - [马光远谈马斯克最大的价值](http://www.blog.minike.top/Article/details/15967417.shtml)

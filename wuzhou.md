@@ -1,56 +1,44 @@
-# 光大期货0601黄金点评：加息定价趋于充分，金价韧性或逐步显现
+# 战鹰列阵！直击歼-20、歼-10C等多机型对抗演练
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-COMEX黄金今日开盘后以震荡为主，当前仍处于多空博弈的均衡区间。 5月以来，两大核心定价因子共同推动黄金调整。其一，美联储加息预期持续上修，市场对紧缩路径的定价不断强化；其二，中东地缘风险溢价随停火预期的升温而系统性回落。但站在5月末审视，上述双重压力均已出现边际变化。 从加息定价角度观察，市场对最鹰派情景的消化已接近充分。据芝商所美联储观察工具，当前市场预期美联储12月加息
+戈壁深处，战鹰列阵近日，空军某部 组织多机型实战化空战对抗演练 歼-20、歼-16、歼-10C等 多型战机混合编组 在预警探测、电子干扰体系支撑下 展开空战对抗 视频：战鹰列阵！直击歼-20、歼-10C等多机型对抗演练来源：央视军事 这次演练，指挥员不设预案 加入临机导调强电磁干扰 雷达压制等复合特情 全程聚焦多机协同漏洞和体系对抗短板 来源：央视军事
 
 ## 正文
 
-COMEX黄金今日开盘后以震荡为主，当前仍处于多空博弈的均衡区间。
+戈壁深处，战鹰列阵近日，空军某部 组织多机型实战化空战对抗演练 歼-20、歼-16、歼-10C等 多型战机混合编组 在预警探测、电子干扰体系支撑下 展开空战对抗 视频：战鹰列阵！
 
-5月以来，两大核心定价因子共同推动黄金调整。
-
-其一，美联储加息预期持续上修，市场对紧缩路径的定价不断强化；其二，中东地缘风险溢价随停火预期的升温而系统性回落。
-
-但站在5月末审视，上述双重压力均已出现边际变化。
-
-从加息定价角度观察，市场对最鹰派情景的消化已接近充分。
-
-据芝商所美联储观察工具，当前市场预期美联储12月加息的概率已超过50%。
-
-随着紧缩预期自远端逐步向近端收敛，金价来自利率层面的下行动能正趋于衰竭，此前加息预期快速上修阶段的剧烈冲击已渐次被市场吸收。
-
-从地缘风险角度观察，此前霍尔木兹海峡通行中断的风险溢价曾一度推升油价至119美元，并通过通胀传导路径对黄金构成间接压制。
+直击歼-20、歼-10C等多机型对抗演练来源：央视军事 这次演练，指挥员不设预案 加入临机导调强电磁干扰 雷达压制等复合特情 全程聚焦多机协同漏洞和体系对抗短板 来源：央视军事
 
 ## 相关推荐
 
-- 2026-06-29 23:29 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-29 23:41 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-29 23:26 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-29 23:26 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 23:50 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-29 23:43 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-29 23:43 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 23:38 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-29 23:48 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 23:49 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-29 23:39 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-29 23:45 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 23:31 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 23:52 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 23:48 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-29 23:43 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 23:40 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-29 23:57 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 23:36 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-29 23:30 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:30 - [返利科技盘中上演“天地板”](http://www.share.minike.top/Article/details/464454.shtml)
-- 2026-06-29 23:27 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/03544.shtml)
-- 2026-06-29 23:47 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/7506847.shtml)
-- 2026-06-29 23:36 - [《恋与深空》回应争议](https://www.blog.kurohicncr.top/Article/details/9007010.shtml)
-- 2026-06-29 23:29 - [千与千寻](http://www.share.minike.top/Article/details/737617004187.shtml)
-- 2026-06-29 23:37 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/285927510422.shtml)
-- 2026-06-29 23:24 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/91969613055.shtml)
-- 2026-06-29 23:28 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/6132474.shtml)
-- 2026-06-29 23:37 - [月亮](https://www.blog.kurohicncr.top/Article/details/855024818.shtml)
-- 2026-06-29 23:35 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/538006.shtml)
-- 2026-06-29 23:53 - [张凌赫 客串](https://www.blog.minike.top/Article/details/925958446149.shtml)
-- 2026-06-29 23:34 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/98056282.shtml)
-- 2026-06-29 23:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/422313.shtml)
-- 2026-06-29 23:35 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/97995.shtml)
-- 2026-06-29 23:44 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/711826907.shtml)
+- 2026-06-29 23:53 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/58504827.shtml)
+- 2026-06-29 23:45 - [浙江进入梅雨最强“攻击时段”](http://www.blog.kurohicncr.top/Article/details/768630.shtml)
+- 2026-06-29 23:35 - [爱很美味](http://www.blog.minike.top/Article/details/97171440.shtml)
+- 2026-06-29 23:58 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/53757024.shtml)
+- 2026-06-29 23:36 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/38604.shtml)
+- 2026-06-29 23:41 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/72744142097.shtml)
+- 2026-06-29 23:49 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/9178693346.shtml)
+- 2026-06-29 23:56 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/202551221.shtml)
+- 2026-06-29 23:45 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/508818141829.shtml)
+- 2026-06-29 23:59 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/5440435865.shtml)
+- 2026-06-29 23:39 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/38960054270.shtml)
+- 2026-06-29 23:44 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/9744649027.shtml)
+- 2026-06-29 23:44 - [美以这对亲密盟友要掰了吗](https://www.share.minike.top/Article/details/78915.shtml)
+- 2026-06-29 23:30 - [乔家的儿女](http://www.share.minike.top/Article/details/47169779.shtml)
+- 2026-06-29 23:57 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.minike.top/Article/details/458871.shtml)

@@ -1,59 +1,56 @@
-# 黑龙江连续发布大风预警 黑河局地或有龙卷风
+# A股存储芯片全线爆发，2700亿牛股飙涨超19%，创业板指重回4000点
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-中新网哈尔滨5月31日电(记者 王晓丹 姜辉)31日16时46分，黑龙江省气象台发布龙卷预警，预计未来2小时，黑河市爱辉区西部有雷雨大风天气，局地可能有龙卷风，最大阵风风力可达10级至11级，局地可达12级至13级，并伴有大冰雹。请有关单位和个人注意做好预防工作。31日7时和15时10分，黑龙江省气象台先后发布大风预报和雷雨大风预警，预计5月31日至6月1日白天，黑河、伊春、齐
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨金珊 林健民 编辑丨江佩霞 5月13日，A股创业板指持续走强，午后盘中突破4000点。此前仅有2015年6月3日至5日三个交易日在盘中突破4000点，但是收盘均在4000点下方。此外，深成指站上16000点，刷新自2021年2月19日以来新高，
 
 ## 正文
 
-中新网哈尔滨5月31日电(记者 王晓丹 姜辉)31日16时46分，黑龙江省气象台发布龙卷预警，预计未来2小时，黑河市爱辉区西部有雷雨大风天气，局地可能有龙卷风，最大阵风风力可达10级至11级，局地可达12级至13级，并伴有大冰雹。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-请有关单位和个人注意做好预防工作。
+记者丨金珊 林健民 编辑丨江佩霞 5月13日，A股创业板指持续走强，午后盘中突破4000点。
 
-31日7时和15时10分，黑龙江省气象台先后发布大风预报和雷雨大风预警，预计5月31日至6月1日白天，黑河、伊春、齐齐哈尔、绥化、大庆、哈尔滨、鹤岗、佳木斯、双鸭山、七台河、鸡西、牡丹江有8级至9级阵风，局地10级至12级，其他大部地区有7级至8级阵风。
+此前仅有2015年6月3日至5日三个交易日在盘中突破4000点，但是收盘均在4000点下方。
 
-上述地区开阔路段，局地可能横风较强，请有关单位和个人注意做好预防工作。
+此外，深成指站上16000点，刷新自2021年2月19日以来新高，年内累计上涨超18%。
 
-黑龙江省气象台发布的天气预报信息显示，5月31日夜间到6月1日白天，大兴安岭阴有小到中雨，大庆西部、哈尔滨西部、牡丹江东部多云，其他地区多云有阵雨或雷阵雨。
+算力硬件股持续走高，工业富联封涨，成交额位居A股第一，此前鹏鼎控股、生益科技涨停，天孚通信、罗博特科、新易盛等涨幅靠前。
 
-5月31日夜间最低气温，大兴安岭北部2℃至4℃，大兴安岭南部6℃至8℃，黑河西部9℃至11℃，黑河东部、伊春、齐齐哈尔12℃至14℃，大庆、绥化、哈尔滨、鹤岗15℃至17℃，其他地区18℃至20℃。
+存储芯片概念继续强势拉升，大普微涨超19%，市值突破2700亿元，雅克科技、万润科技、德明利涨停，深科技、江波龙、佰维存储、长电科技等跟涨。
 
-6月1日白天最高气温，大兴安岭、黑河、伊春18℃至20℃，齐齐哈尔北部、绥化北部、鹤岗21℃至23℃，其他地区24℃至26℃。
+白酒股集体下跌，其中，迎驾贡酒、古井贡酒跌超3%，今世缘、山西汾酒、泸州老窖跌超2%，五粮液（维权）、洋河股份、舍得酒业、水井坊、酒鬼酒、贵州茅台跌超3%，唯皇台酒业微涨，且皇台酒业为年内白酒板块中唯一上涨的白酒股。
 
-(完)
+光大证券最新研报表示，创业板指主要指标仍在各指数中名列前茅，具有高增长，高盈利，低估值的特点。
 
 ## 相关推荐
 
-- 2026-06-29 23:39 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 23:40 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 23:40 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 23:33 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 23:51 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-29 23:40 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 23:44 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 23:48 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-29 23:38 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-29 23:33 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 23:43 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 23:46 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 23:30 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 23:50 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 23:57 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 23:45 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 23:54 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-29 23:52 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 23:36 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-29 23:37 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-29 23:48 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-29 23:48 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 23:32 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:35 - [MG总经理直播被冲](http://www.share.minike.top/Article/details/111113.shtml)
-- 2026-06-29 23:48 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/59584632035.shtml)
-- 2026-06-29 23:42 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/16417.shtml)
-- 2026-06-29 23:26 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/88335056208.shtml)
-- 2026-06-29 23:35 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.minike.top/Article/details/067738902653.shtml)
-- 2026-06-29 23:38 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/160688509.shtml)
-- 2026-06-29 23:53 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/7970916.shtml)
-- 2026-06-29 23:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/81968106081.shtml)
-- 2026-06-29 23:43 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/587094.shtml)
-- 2026-06-29 23:38 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/3153476344.shtml)
-- 2026-06-29 23:36 - [一台空调背后的全球化逻辑](https://www.share.kurohicncr.top/Article/details/23675.shtml)
-- 2026-06-29 23:31 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/85434070.shtml)
-- 2026-06-29 23:25 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/38826.shtml)
-- 2026-06-29 23:47 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/056111.shtml)
-- 2026-06-29 23:51 - [恋与深空制作组回应争议](http://www.blog.kurohicncr.top/Article/details/8607224.shtml)
+- 2026-06-29 23:50 - [TOP Prada](https://www.blog.minike.top/Article/details/6693857750.shtml)
+- 2026-06-29 23:31 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/03687923034.shtml)
+- 2026-06-29 23:59 - [男子称在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/42116148.shtml)
+- 2026-06-29 23:42 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/59919.shtml)
+- 2026-06-29 23:52 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/8742398.shtml)
+- 2026-06-29 23:39 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/52719.shtml)
+- 2026-06-29 23:48 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/9414259390.shtml)
+- 2026-06-29 23:37 - [天道](https://www.share.kurohicncr.top/Article/details/274044600.shtml)
+- 2026-06-29 23:33 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/1875356.shtml)
+- 2026-06-29 23:42 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/20173.shtml)
+- 2026-06-29 23:51 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/1622049.shtml)
+- 2026-06-29 23:56 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/777450012358.shtml)
+- 2026-06-29 23:57 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/917640893496.shtml)
+- 2026-06-29 23:46 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/89535256.shtml)
+- 2026-06-29 23:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/7032147763.shtml)

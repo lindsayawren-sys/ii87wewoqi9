@@ -1,59 +1,59 @@
-# 香港助力氢能技术与标准走向世界——专访香港机电工程署署长潘国英
+# 外资集体加仓中国资产，A股重仓股名单曝光
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-中新社香港6月1日电 题：香港助力氢能技术与标准走向世界——专访香港机电工程署署长潘国英 中新社记者 魏华都 “香港能用，几乎全世界都能用。”近日，香港特区政府机电工程署署长潘国英接受中新社记者专访时，用一句话道出香港在全球氢能发展中的独特价值——这里是氢能技术的“压力考场”，也是通往国际市场的“通行证”。 香港是世界上人口密度最高、高层建筑最密集和地形最复杂的城市之一，发展氢
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨叶麦穗 编辑丨包芳鸣 全球资本目光齐聚中国，高盛、摩根士丹利（以下简称“大摩”）、摩根大通（以下简称“小摩”）、瑞银等全球知名外资正以“真金白银”的姿态，掀起加仓A股的狂潮。同花顺最新统计数据显示，截至2026年一季度末，共有1549家A股上市公司的前十大流通股东中出现外资身影，合计持有143亿股，持
 
 ## 正文
 
-中新社香港6月1日电 题：香港助力氢能技术与标准走向世界——专访香港机电工程署署长潘国英 中新社记者 魏华都 “香港能用，几乎全世界都能用。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-”近日，香港特区政府机电工程署署长潘国英接受中新社记者专访时，用一句话道出香港在全球氢能发展中的独特价值——这里是氢能技术的“压力考场”，也是通往国际市场的“通行证”。
+记者丨叶麦穗 编辑丨包芳鸣 全球资本目光齐聚中国，高盛、摩根士丹利（以下简称“大摩”）、摩根大通（以下简称“小摩”）、瑞银等全球知名外资正以“真金白银”的姿态，掀起加仓A股的狂潮。
 
-香港是世界上人口密度最高、高层建筑最密集和地形最复杂的城市之一，发展氢能相当困难，需要考虑到车辆动力和安全问题。
+同花顺最新统计数据显示，截至2026年一季度末，共有1549家A股上市公司的前十大流通股东中出现外资身影，合计持有143亿股，持股市值高达2370.8亿元。
 
-潘国英解释，正因如此，任何氢能技术若能通过香港的安全验证，几乎在任何城市都可应用，这正是香港的示范价值所在。
+与去年末相比，外资增持幅度堪称惊人——持股数量增加46.8亿股，持股市值更是暴增697.6亿元，这一规模不仅创下近年同期新高，更释放出外资对中国资产的强烈看好信号，成为A股市场极具冲击力的增量资金来源。
 
-2022年6月，香港引入全球首辆三轴氢能双层巴士，其后在西九龙车厂和元朗凹头分别设立加氢站。
+知名投行扎堆AI、科技赛道 高盛对A股资产的热情最高，高盛一季度共进入A股894家上市公司的十大流通股东，整体调仓换股动作十分明显，其中新进525家、加仓219家，减仓150家上市公司，合计持有市值约为250亿元。
 
-这辆由中国内地厂商制造的巴士投入服务后，穿梭于港岛和九龙多区的狭窄斜路、繁忙隧道，成功经受考验。
+高盛持股市值在1亿元以上的个股有20只，持股市值位居前三的分别是豪威集团、兴业银锡、永鼎股份。
 
-“我曾经乘搭过这辆巴士，感觉与普通巴士差别不大，同样能应付复杂路面。
+其中，第一大重仓股依旧是豪威集团，最新持股数量为812.45万股，位列公司十大流通股东第7位，持有的流通市值约为7.72亿元。
 
-”潘国英透露，试验成功后，制造商接到来自中东市场的订单，香港的示范效应直接促成内地氢能技术“出海”。
+此外，高盛在一季度加仓了恒申新材、华纺股份、特发信息（维权）、丰元股份等。
 
 ## 相关推荐
 
-- 2026-06-29 23:35 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 23:32 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-29 23:46 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 23:44 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-29 23:34 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-29 23:51 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 23:48 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-29 23:49 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 23:41 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-29 23:38 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-29 23:39 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 23:40 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 23:49 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-29 23:30 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-29 23:43 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 23:37 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-29 23:55 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-29 23:39 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-29 23:47 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 23:30 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-29 23:58 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-29 23:30 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 23:44 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 23:50 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 23:51 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 23:44 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:34 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/20801904527.shtml)
-- 2026-06-29 23:47 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/14100487770.shtml)
-- 2026-06-29 23:46 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/049246.shtml)
-- 2026-06-29 23:47 - [法拉利车主已自行承担修理费近3万](https://www.share.kurohicncr.top/Article/details/1637341.shtml)
-- 2026-06-29 23:30 - [张凌赫 客串](http://www.blog.minike.top/Article/details/81866815.shtml)
-- 2026-06-29 23:40 - [女心理师](https://www.blog.minike.top/Article/details/98636.shtml)
-- 2026-06-29 23:46 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/128740122582.shtml)
-- 2026-06-29 23:24 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/5890358.shtml)
-- 2026-06-29 23:46 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/292642.shtml)
-- 2026-06-29 23:38 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/2324245.shtml)
-- 2026-06-29 23:43 - [恋与深空制作组回应争议](http://www.share.minike.top/Article/details/3062902.shtml)
-- 2026-06-29 23:24 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/470634002042.shtml)
-- 2026-06-29 23:52 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/432920.shtml)
-- 2026-06-29 23:47 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/5806959114.shtml)
-- 2026-06-29 23:32 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/179372836.shtml)
+- 2026-06-29 23:37 - [我们的少年时代2](https://www.blog.minike.top/Article/details/589311.shtml)
+- 2026-06-29 23:49 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/90228644.shtml)
+- 2026-06-29 23:39 - [刘念回应](http://www.blog.minike.top/Article/details/13086.shtml)
+- 2026-06-29 23:36 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/0648860.shtml)
+- 2026-06-29 23:35 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/66768138707.shtml)
+- 2026-06-29 23:42 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/80481386978.shtml)
+- 2026-06-29 23:54 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/253706811376.shtml)
+- 2026-06-29 23:55 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/4566696.shtml)
+- 2026-06-29 23:54 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/6198727537.shtml)
+- 2026-06-29 23:55 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/52308062898.shtml)
+- 2026-06-29 23:49 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/663521779597.shtml)
+- 2026-06-29 23:30 - [湖南姑娘被东北同事带偏口音](http://www.share.minike.top/Article/details/5904685876.shtml)
+- 2026-06-29 23:45 - [日防卫省正考虑引进美企人工智能系统](http://www.share.kurohicncr.top/Article/details/57028056617.shtml)
+- 2026-06-29 23:52 - [斛珠夫人](https://www.share.minike.top/Article/details/782870318064.shtml)
+- 2026-06-29 23:39 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/622946759.shtml)

@@ -1,58 +1,61 @@
-# 广西柳工第60万台装载机交付 见证中国制造成“智造”
+# 中国“芯”延续攻势，寒武纪涨超6%，华宝基金科创芯片ETF（589190）冲高逾2%再创新高，还有多少上涨空间？
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-中新网柳州6月1日电 (林馨)“60年前，中国第一台轮式装载机Z435在广西柳州市下线，结束了中国无法自主生产装载机的历史。60年后，柳工第60万台装载机——一台纯电动装载机8110TE将奔赴矿山一线。”广西柳工集团有限公司(下称“柳工”)董事长郑津日前在柳州市表示。 5月31日，2026年柳工5·28全球客户节启幕，柳工第60万台装载机现场交付给海外客户。本次客户节吸引来自5
+5月12日，继前一日放量大涨，国产芯片今日波动上攻，早盘低开下探后冲高回落，午后再度强势拉升，彰显板块高景气。全“芯”布局芯片产业的科创芯片ETF华宝（589190）场内价格一度上涨2.65%再探历史新高，收涨0.96%。 盘面上，算力芯片再起攻势，8000亿巨头寒武纪盘中涨近8%，收涨逾6%；芯原股份盘中涨超4%。半导体设备延续强势，芯源微一度冲击20CM涨停，收涨15.76
 
 ## 正文
 
-中新网柳州6月1日电 (林馨)“60年前，中国第一台轮式装载机Z435在广西柳州市下线，结束了中国无法自主生产装载机的历史。
+5月12日，继前一日放量大涨，国产芯片今日波动上攻，早盘低开下探后冲高回落，午后再度强势拉升，彰显板块高景气。
 
-60年后，柳工第60万台装载机——一台纯电动装载机8110TE将奔赴矿山一线。
+全“芯”布局芯片产业的科创芯片ETF华宝（589190）场内价格一度上涨2.65%再探历史新高，收涨0.96%。
 
-”广西柳工集团有限公司(下称“柳工”)董事长郑津日前在柳州市表示。
+盘面上，算力芯片再起攻势，8000亿巨头寒武纪盘中涨近8%，收涨逾6%；芯原股份盘中涨超4%。
 
-5月31日，2026年柳工5·28全球客户节启幕，柳工第60万台装载机现场交付给海外客户。
+半导体设备延续强势，芯源微一度冲击20CM涨停，收涨15.76%；华海清科涨超13%。
 
-本次客户节吸引来自50多个国家和地区的1200余名嘉宾参与。
+此外，光芯片反复活跃，源杰科技涨超6%再创新高。
 
-在柳工挖掘机智慧工厂，5G智能生产线、AGV物流、机器人焊接装配等场景，让外国嘉宾零距离感受中国智能制造的魅力。
+近期国产芯片行情一马当先，拉长时间看，今年以来，科创芯片ETF华宝（589190）跟踪的上证科创板芯片指数累计涨幅48.5%，在本轮行情中，相对于同类半导体芯片指数表现出较为突出的进攻弹性。
 
-当天，柳工发布全场景电智数解决方案，涵盖纯电、混动、拖电、换电等多种动力路线，以及玄甲电池、电驱桥等核心技术。
+注：上证科创板芯片指数近5个完整年度涨跌幅为2021年 6.87%，2022年 -33.69%，2023年 7.26%，2024年 34.52%，2025年 61.33%，指数成份股构成根据该指数编制规则适时调整，其回测历史业绩不预示指数未来表现。
 
-其中，自主研发的智慧矿山管理系统4.0，通过“5G+人工智能+北斗技术”，实现全矿生产可视化管控与智能调度，作业效率提升20%以上。
+展望后续，行情能否延续？
 
 ## 相关推荐
 
-- 2026-06-29 23:51 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-29 23:43 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-29 23:49 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-29 23:29 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 23:29 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-29 23:27 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 23:32 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-29 23:48 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 23:53 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 23:24 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-29 23:49 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-29 23:31 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-29 23:52 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-29 23:35 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-29 23:37 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-29 23:51 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-29 23:31 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 23:37 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 23:42 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 23:32 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 23:34 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-29 23:54 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-29 23:55 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-29 23:50 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 23:56 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 23:50 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-29 23:40 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:31 - [起风了](http://www.share.kurohicncr.top/Article/details/6874198040.shtml)
-- 2026-06-29 23:24 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/39838.shtml)
-- 2026-06-29 23:35 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/29335875.shtml)
-- 2026-06-29 23:50 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/294999.shtml)
-- 2026-06-29 23:34 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/13598.shtml)
-- 2026-06-29 23:27 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/58185802.shtml)
-- 2026-06-29 23:47 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/382805395545.shtml)
-- 2026-06-29 23:37 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/897109.shtml)
-- 2026-06-29 23:47 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/0837352.shtml)
-- 2026-06-29 23:53 - [毒液2](https://www.blog.kurohicncr.top/Article/details/68453601116.shtml)
-- 2026-06-29 23:28 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/9241656164.shtml)
-- 2026-06-29 23:48 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/758221313142.shtml)
-- 2026-06-29 23:33 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/71072505.shtml)
-- 2026-06-29 23:30 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/534017263.shtml)
-- 2026-06-29 23:52 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/3468931288.shtml)
+- 2026-06-29 23:32 - [巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/772861548412.shtml)
+- 2026-06-29 23:40 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/875728.shtml)
+- 2026-06-29 23:43 - [炽夏](https://www.blog.minike.top/Article/details/52276267.shtml)
+- 2026-06-29 23:53 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/2769423164.shtml)
+- 2026-06-29 23:45 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/29869.shtml)
+- 2026-06-29 23:58 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/00879744904.shtml)
+- 2026-06-29 23:55 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/5971430154.shtml)
+- 2026-06-29 23:38 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/555100498.shtml)
+- 2026-06-29 23:51 - [葫芦岛居民楼闪爆事故致3死](https://www.share.minike.top/Article/details/74677.shtml)
+- 2026-06-29 23:47 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/566544823.shtml)
+- 2026-06-29 23:36 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/85040276231.shtml)
+- 2026-06-29 23:43 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/709364095011.shtml)
+- 2026-06-29 23:39 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/37413.shtml)
+- 2026-06-29 23:54 - [刘宇宁 好听](http://www.blog.minike.top/Article/details/08469.shtml)
+- 2026-06-29 23:38 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/720995342.shtml)

@@ -1,60 +1,58 @@
-# 十六载创新领航，共赴成长新程——创业板指焕新再出发
+# AI短剧冲击下，红果保底15亿扶持真人剧
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-2010年6月1日，创业板指正式启航，锚定服务科技创新的初心，与中国创新经济同频共振、共荣共生。十六年来，创业板市场不断深化改革、优化制度，汇聚了一大批代表中国未来产业方向的硬科技企业，形成了以AI算力、新能源为核心的产业集群。创业板指作为创业板市场的核心标尺，精准反映了中国科技创新产业的发展脉络，成为投资者把握时代发展机遇的重要工具。 2026年5月13日，创业板指突破201
+界面新闻记者 | 伍洋宇 界面新闻编辑 | 文姝琪 在一个兴起不久便开始经历某种结构性调整的内容产业里，来自抖音集团短剧版权中心的态度很明确：加大对真人短剧的投入与扶持，加强对AI漫剧的治理与管控。 这的确能够提升内容质量，但对行业中的众多从业者而言，这对他们正在经历的挑战可能起不了什么作用。 5月12日，抖音集团短剧版权中心举办首届短剧产业大会。红果短剧总编辑乐力的很多观点围
 
 ## 正文
 
-2010年6月1日，创业板指正式启航，锚定服务科技创新的初心，与中国创新经济同频共振、共荣共生。
+界面新闻记者 | 伍洋宇 界面新闻编辑 | 文姝琪 在一个兴起不久便开始经历某种结构性调整的内容产业里，来自抖音集团短剧版权中心的态度很明确：加大对真人短剧的投入与扶持，加强对AI漫剧的治理与管控。
 
-十六年来，创业板市场不断深化改革、优化制度，汇聚了一大批代表中国未来产业方向的硬科技企业，形成了以AI算力、新能源为核心的产业集群。
+这的确能够提升内容质量，但对行业中的众多从业者而言，这对他们正在经历的挑战可能起不了什么作用。
 
-创业板指作为创业板市场的核心标尺，精准反映了中国科技创新产业的发展脉络，成为投资者把握时代发展机遇的重要工具。
+5月12日，抖音集团短剧版权中心举办首届短剧产业大会。
 
-2026年5月13日，创业板指突破2015年6月5日的4037.96点，盘中创下历史新高。
+红果短剧总编辑乐力的很多观点围绕对真人短剧的判断。
 
-站在创业板指16周年的关键节点，我们一同回望成长轨迹、展望未来机遇。
+他表示，真人短剧的价值在于对人和生活的贴近，背后的真情实感仍然是行业发展的核心。
 
-一、创新沃土，成长标杆：创业板与创业板指的初心与进阶 1、设立背景：填补多层次资本市场的空白 2009年10月30日，创业板正式开板，首批28家企业挂牌上市。
+乐力透露，短剧版权中心近期推出了多项真人短剧扶持计划。
 
-创业板的设立，是中国资本市场发展史上的一个重要里程碑。
+例如，针对真人剧核心品类调高内容分成比例。
 
-它的初衷是为了给那些具有高成长性、创新性的中小企业提供融资渠道，解决它们“融资难、融资贵”的问题，同时也为投资者提供了分享中国经济转型和科技创新成果的机会。
+该中心5月11日发布的新政策公告显示，自然流量场景下，真人剧付费内容分成比例从70%调高至80%，免费内容广告分成预算同等调高。
 
 ## 相关推荐
 
-- 2026-06-29 23:29 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-29 23:29 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 23:41 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 23:34 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-29 23:40 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-29 23:35 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 23:29 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-29 23:49 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-29 23:32 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 23:45 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-29 23:43 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 23:24 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-29 23:26 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 23:45 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 23:30 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 23:33 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 23:57 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 23:36 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 23:36 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 23:59 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 23:33 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 23:52 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-29 23:48 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 23:54 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 23:30 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 23:54 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:33 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.minike.top/Article/details/67985.shtml)
-- 2026-06-29 23:36 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/17440867.shtml)
-- 2026-06-29 23:32 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/1606472.shtml)
-- 2026-06-29 23:27 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/758309.shtml)
-- 2026-06-29 23:35 - [把邻居裸体发群算维权还是侵权](http://www.blog.kurohicncr.top/Article/details/792285825.shtml)
-- 2026-06-29 23:35 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/421252.shtml)
-- 2026-06-29 23:35 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/444585.shtml)
-- 2026-06-29 23:51 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/57452.shtml)
-- 2026-06-29 23:33 - [急先锋](https://www.blog.minike.top/Article/details/724972.shtml)
-- 2026-06-29 23:26 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/6096695.shtml)
-- 2026-06-29 23:47 - [恋与深空制作组回应争议](http://www.share.minike.top/Article/details/04163.shtml)
-- 2026-06-29 23:24 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/940105840000.shtml)
-- 2026-06-29 23:28 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/194135843006.shtml)
-- 2026-06-29 23:35 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/288820654907.shtml)
-- 2026-06-29 23:47 - [逃狱兄弟](http://www.share.minike.top/Article/details/289365919637.shtml)
+- 2026-06-29 23:32 - [高考1357分的同学如何报志愿？](http://www.share.minike.top/Article/details/4531848.shtml)
+- 2026-06-29 23:58 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/4276188983.shtml)
+- 2026-06-29 23:45 - [恋与深空回应争议](https://www.share.minike.top/Article/details/1402218.shtml)
+- 2026-06-29 23:57 - [五只军犬招募领养人](http://www.share.kurohicncr.top/Article/details/421461760388.shtml)
+- 2026-06-29 23:39 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/186249.shtml)
+- 2026-06-29 23:48 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/208887732261.shtml)
+- 2026-06-29 23:59 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/640618251715.shtml)
+- 2026-06-29 23:43 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/6424094132.shtml)
+- 2026-06-29 23:50 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/57850939461.shtml)
+- 2026-06-29 23:53 - [毒液2](https://www.share.minike.top/Article/details/255739352.shtml)
+- 2026-06-29 23:51 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/2840777086.shtml)
+- 2026-06-29 23:44 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/208774.shtml)
+- 2026-06-29 23:49 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/943954814594.shtml)
+- 2026-06-29 23:44 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/617544716034.shtml)
+- 2026-06-29 23:31 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/6796156646.shtml)

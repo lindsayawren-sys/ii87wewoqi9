@@ -1,56 +1,52 @@
-# 梨汁“刷医保”、剪网线对抗检查，医保局曝光多起药店骗保案例
+# 大渡河金川水电站正式并网发电
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者 闫硕 上周，国家医保局接连发布两批定点零售药店违法违规使用医保基金典型案例，共计10起案件，集中曝光了梨汁“刷医保”、药店老板变身“药贩子”、药店沦为诊所“进货点”等多种违法违规乱象。 这些案件中的涉案药店主要通过倒卖“回流药”、空刷、串换等方式骗取或套取医保基金。而在检查组检查过程中，部分药店还存在剪网线、装晕倒等恶意对抗检查的行为。在这些典型案例中，国
+中新网成都5月12日电 (记者 安源)记者12日从国家能源集团获悉，位于大渡河流域的金川水电站首台机组正式并网发电。金川水电站总装机容量86万千瓦，装有4台单机21.5万千瓦的混流式水轮发电机组，年发电量约35亿千瓦时，对改善区域电力系统电源结构、促进经济社会和环境协调发展具有重要意义。 据介绍，金川水电站位于四川省阿坝藏族羌族自治州金川县、马尔康市境内，总装机容量86万千瓦，
 
 ## 正文
 
-21世纪经济报道记者 闫硕 上周，国家医保局接连发布两批定点零售药店违法违规使用医保基金典型案例，共计10起案件，集中曝光了梨汁“刷医保”、药店老板变身“药贩子”、药店沦为诊所“进货点”等多种违法违规乱象。
+中新网成都5月12日电 (记者 安源)记者12日从国家能源集团获悉，位于大渡河流域的金川水电站首台机组正式并网发电。
 
-这些案件中的涉案药店主要通过倒卖“回流药”、空刷、串换等方式骗取或套取医保基金。
+金川水电站总装机容量86万千瓦，装有4台单机21.5万千瓦的混流式水轮发电机组，年发电量约35亿千瓦时，对改善区域电力系统电源结构、促进经济社会和环境协调发展具有重要意义。
 
-而在检查组检查过程中，部分药店还存在剪网线、装晕倒等恶意对抗检查的行为。
+据介绍，金川水电站位于四川省阿坝藏族羌族自治州金川县、马尔康市境内，总装机容量86万千瓦，装有4台单机21.5万千瓦的混流式水轮发电机组，年发电量约35亿度，是四川省“十四五”能源发展规划重点建设项目，对改善区域电力系统电源结构、促进经济社会和环境协调发展具有重要意义。
 
-在这些典型案例中，国家医保局还同步配发了现场执法视频，使这些违法违规行为更直观地暴露在公众面前，警示教育效果显著增强。
+国家能源集团金川水电项目现场总指挥李方平表示，项目团队正全力冲刺剩余3台机组上半年投产发电目标，届时，整个电站年发电量达35亿千瓦时，减排二氧化碳260万吨，为“双碳”目标的实现贡献力量。
 
-相关案例基本都来自5月14日正式启动的全国定点零售药店违法违规使用医保基金专项飞行检查。
-
-仅半个多月时间，国家医保局就密集发布两批典型案例进行警示教育，彰显了对打击欺诈骗保行为的零容忍态度。
-
-与此同时，《医疗保障基金监督检查五年行动计划（2026-2030年）》正式印发，定点药店医保个人账户支付白名单制度即将落地，多维度、全链条的医保基金监管体系加速构建，医药流通行业正迎来史上最严格的合规监管时代。
-
-专项飞检亮剑 5月14日，2026年度国家医保基金飞行检查湖南现场启动会暨警示教育会在长沙召开，标志着年度飞检工作正式启动。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 23:24 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-29 23:51 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-29 23:53 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-29 23:28 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-29 23:47 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-29 23:39 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-29 23:49 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 23:33 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 23:34 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 23:29 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-29 23:45 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-29 23:36 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-29 23:46 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 23:51 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-29 23:43 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 23:47 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 23:57 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-29 23:38 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 23:46 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 23:51 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 23:40 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-29 23:53 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:41 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/486842.shtml)
-- 2026-06-29 23:26 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/88607554093.shtml)
-- 2026-06-29 23:49 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/4515891318.shtml)
-- 2026-06-29 23:25 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/9780393329.shtml)
-- 2026-06-29 23:36 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/079125679.shtml)
-- 2026-06-29 23:26 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/594579.shtml)
-- 2026-06-29 23:39 - [时光音乐会](http://www.share.minike.top/Article/details/66892750.shtml)
-- 2026-06-29 23:32 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/49214340030.shtml)
-- 2026-06-29 23:43 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/587100001727.shtml)
-- 2026-06-29 23:27 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/35856717950.shtml)
-- 2026-06-29 23:29 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/90979451.shtml)
-- 2026-06-29 23:39 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/2327285.shtml)
-- 2026-06-29 23:51 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/645626.shtml)
-- 2026-06-29 23:41 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/55382030.shtml)
-- 2026-06-29 23:48 - [浙江进入梅雨最强“攻击时段”](https://www.blog.minike.top/Article/details/28464366.shtml)
+- 2026-06-29 23:44 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.minike.top/Article/details/587496948.shtml)
+- 2026-06-29 23:56 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/47405279553.shtml)
+- 2026-06-29 23:46 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/49057018418.shtml)
+- 2026-06-29 23:41 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/4848239.shtml)
+- 2026-06-29 23:52 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/4931146.shtml)
+- 2026-06-29 23:42 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/346824059.shtml)
+- 2026-06-29 23:49 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/8795584657.shtml)
+- 2026-06-29 23:55 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/7485069604.shtml)
+- 2026-06-29 23:33 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/8322089.shtml)
+- 2026-06-29 23:54 - [毒液2](http://www.share.minike.top/Article/details/449555466588.shtml)
+- 2026-06-29 23:39 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/6647409093.shtml)
+- 2026-06-29 23:33 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/6898336.shtml)
+- 2026-06-29 23:50 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/370898724842.shtml)
+- 2026-06-29 23:54 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/41071934176.shtml)
+- 2026-06-29 23:57 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/536558794.shtml)

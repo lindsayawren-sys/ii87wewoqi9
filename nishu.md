@@ -1,59 +1,59 @@
-# 瑞银收购瑞信后持续瘦身 再度裁员数百人
+# 第79届戛纳电影节开幕
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-瑞银集团在欧洲、中东及非洲地区裁减数百个岗位，这是该行三年前收购瑞信以来实施的最新一轮相关裁员。 知情人士透露，此次裁员主要波及后勤支持部门的员工，但也影响到一些对接客户的银行家。这些因讨论非公开信息而要求匿名的知情人士表示，为了减轻裁员的影响，瑞银为部分被裁员工提供了公司内部的新职位。 瑞银一位发言人表示，无论是在瑞士本土还是在全球范围内，该行都将尽可能把收购导致的裁员人数控
+中新社巴黎5月12日电 (记者 李洋)第79届戛纳电影节当地时间12日开幕。电影节开幕典礼当晚在戛纳节庆宫举行。 本届戛纳电影节评委会主席由韩国导演朴赞郁担任。本届电影节荣誉金棕榈奖颁给新西兰导演彼得·杰克逊和美国老牌影星芭芭拉·斯特赖桑德。影星巩俐在开幕典礼上致辞并以中文宣布本届电影节开幕。 法国导演皮埃尔·沙尔瓦多利的作品《电动维纳斯》成为本届电影节的开幕影片。电影节官方海
 
 ## 正文
 
-瑞银集团在欧洲、中东及非洲地区裁减数百个岗位，这是该行三年前收购瑞信以来实施的最新一轮相关裁员。
+中新社巴黎5月12日电 (记者 李洋)第79届戛纳电影节当地时间12日开幕。
 
-知情人士透露，此次裁员主要波及后勤支持部门的员工，但也影响到一些对接客户的银行家。
+电影节开幕典礼当晚在戛纳节庆宫举行。
 
-这些因讨论非公开信息而要求匿名的知情人士表示，为了减轻裁员的影响，瑞银为部分被裁员工提供了公司内部的新职位。
+本届戛纳电影节评委会主席由韩国导演朴赞郁担任。
 
-瑞银一位发言人表示，无论是在瑞士本土还是在全球范围内，该行都将尽可能把收购导致的裁员人数控制在“尽可能低”的水平。
+本届电影节荣誉金棕榈奖颁给新西兰导演彼得·杰克逊和美国老牌影星芭芭拉·斯特赖桑德。
 
-发言人还称，为减少冗余，瑞银致力于将目前由第三方供应商承担的岗位转移到内部。
+影星巩俐在开幕典礼上致辞并以中文宣布本届电影节开幕。
 
-最新数据显示，自完成收购瑞信的交易以来，瑞银的员工总数已减少了约17500人。
+法国导演皮埃尔·沙尔瓦多利的作品《电动维纳斯》成为本届电影节的开幕影片。
 
-此前有报道称，在交易完成后的几个月里，该行曾计划最终裁员约35000人。
+电影节官方海报采用的是1991年美国电影《末路狂花》的画面。
 
-2023年收购瑞信以来，瑞银一直寻求精简员工队伍。
+共有22部影片入围本届电影节主竞赛单元，角逐最高奖项“金棕榈奖”。
 
 ## 相关推荐
 
-- 2026-06-29 23:50 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-29 23:39 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 23:38 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 23:40 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-29 23:40 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-29 23:53 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 23:35 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 23:32 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 23:51 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 23:33 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-29 23:35 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 23:24 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-29 23:33 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-29 23:47 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 23:56 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 23:48 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-29 23:54 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 23:59 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 23:41 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 23:51 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 23:39 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-29 23:41 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 23:49 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-29 23:39 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 23:50 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-29 23:38 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:40 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/44369.shtml)
-- 2026-06-29 23:49 - [恋与深空 巧合](http://www.share.minike.top/Article/details/6910867073.shtml)
-- 2026-06-29 23:34 - [一生一世](https://www.share.minike.top/Article/details/213389277.shtml)
-- 2026-06-29 23:43 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/8102379.shtml)
-- 2026-06-29 23:41 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/0006668960.shtml)
-- 2026-06-29 23:26 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/563000625.shtml)
-- 2026-06-29 23:48 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/58313366.shtml)
-- 2026-06-29 23:24 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/17055204.shtml)
-- 2026-06-29 23:46 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/98917.shtml)
-- 2026-06-29 23:49 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/3737621.shtml)
-- 2026-06-29 23:34 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/0385578348.shtml)
-- 2026-06-29 23:27 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/046215.shtml)
-- 2026-06-29 23:28 - [追觅称质量不行终身包修也没意义](https://www.blog.kurohicncr.top/Article/details/25167280.shtml)
-- 2026-06-29 23:36 - [扬名立万](http://www.share.minike.top/Article/details/12155870.shtml)
-- 2026-06-29 23:37 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/91876236147.shtml)
+- 2026-06-29 23:34 - [巴黎区长紧急采购50台中国空调](https://www.blog.minike.top/Article/details/6241954068.shtml)
+- 2026-06-29 23:47 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/564207.shtml)
+- 2026-06-29 23:39 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/9097222598.shtml)
+- 2026-06-29 23:58 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/49380.shtml)
+- 2026-06-29 23:46 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/71036.shtml)
+- 2026-06-29 23:43 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/9120547791.shtml)
+- 2026-06-29 23:37 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/078785891069.shtml)
+- 2026-06-29 23:32 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/9922228507.shtml)
+- 2026-06-29 23:43 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/527798748.shtml)
+- 2026-06-29 23:51 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/57027461.shtml)
+- 2026-06-29 23:56 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/135681.shtml)
+- 2026-06-29 23:45 - [《贺子珍》](http://www.blog.minike.top/Article/details/83754819.shtml)
+- 2026-06-29 23:57 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/9111415.shtml)
+- 2026-06-29 23:39 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/2033398214.shtml)
+- 2026-06-29 23:39 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/279770.shtml)

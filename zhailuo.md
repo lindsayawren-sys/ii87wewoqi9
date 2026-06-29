@@ -1,57 +1,60 @@
-# 中国人民大学发布“观天 短临降水智能预报系统”等最新成果
+# 螺纹钢成本上行动能减弱 铁矿石供需边际走弱
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-中新社北京5月30日电 (记者 曾玥)中国人民大学高瓴人工智能学院30日在北京发布“观天 短临降水智能预报系统”“玉兰-万象 社会模拟平台2.0”两项最新研究成果。 当日，以“智汇未来 青年引领”为主题的人工智能青年科学家论坛在北京举办。中国人民大学高瓴人工智能学院执行院长文继荣现场发布上述成果并介绍，前者将人工智能引入极端天气预报，为极端天气预警、防汛应急和城市安全运行提供新
+（来源：兴业期货） 研报正文 【螺纹钢】 昨日期现价格双双走弱，期货跌幅大于现货。需求端，内需弱现实，地方政府专项债发行进度、重点项目投资额数据明显弱于同期，强劲的外需对内需形成补充。供给端，钢厂盈利已显著改善，钢厂生产意愿增强，需关注淡季的供给压力。 成本端，焦煤供应充裕，价格再度下探支撑位，短期削弱成本上移动能。市场风险偏好出现回落迹象，主力资金连续两天流出。螺纹、热卷观点
 
 ## 正文
 
-中新社北京5月30日电 (记者 曾玥)中国人民大学高瓴人工智能学院30日在北京发布“观天 短临降水智能预报系统”“玉兰-万象 社会模拟平台2.0”两项最新研究成果。
+（来源：兴业期货） 研报正文 【螺纹钢】 昨日期现价格双双走弱，期货跌幅大于现货。
 
-当日，以“智汇未来 青年引领”为主题的人工智能青年科学家论坛在北京举办。
+需求端，内需弱现实，地方政府专项债发行进度、重点项目投资额数据明显弱于同期，强劲的外需对内需形成补充。
 
-中国人民大学高瓴人工智能学院执行院长文继荣现场发布上述成果并介绍，前者将人工智能引入极端天气预报，为极端天气预警、防汛应急和城市安全运行提供新的技术支撑；后者以智能计算重构社会科学研究范式，服务国家治理现代化。
+供给端，钢厂盈利已显著改善，钢厂生产意愿增强，需关注淡季的供给压力。
 
-“观天 短临降水智能预报系统”由中国人民大学高瓴人工智能学院孙浩教授团队与中国气象局地球系统数值预报中心韩威研究员团队合作完成，以三维雷达观测资料为核心输入，深入刻画降水云团在不同高度上的结构变化、运动差异和发展过程。
+成本端，焦煤供应充裕，价格再度下探支撑位，短期削弱成本上移动能。
 
-据介绍，此前在北京怀柔强降水、广东茂名大暴雨的预报试验中，“观天 短临降水智能预报系统”在强回波结构、降水位置和未来发展趋势等方面展现出良好的预报能力。
+市场风险偏好出现回落迹象，主力资金连续两天流出。
 
-目前，模型正在从实验室走向一线业务单位，在天津气象台、广西气象台等单位开展模型部署与业务应用，并推进在巴基斯坦、蒙古国等“一带一路”共建国家的业务应用。
+螺纹、热卷观点暂时调整为震荡，关注资金流出的持续性。
 
-“玉兰-万象 社会模拟平台2.0”同期发布。
+策略上继续持有卖出看跌期权。
 
-去年，中国人民大学高瓴人工智能学院已发布“玉兰-万象 社会模拟平台1.0”。
+风险提示：外需走弱、地缘导致全球经济衰退。
 
 ## 相关推荐
 
-- 2026-06-29 23:30 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-29 23:41 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 23:42 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-29 23:33 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 23:44 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-29 23:33 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-29 23:34 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 23:34 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-29 23:45 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-29 23:45 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 23:35 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 23:58 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-29 23:48 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 23:49 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 23:50 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-29 23:39 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 23:50 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-29 23:36 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 23:51 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-29 23:37 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-29 23:48 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-29 23:53 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 23:33 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-29 23:42 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 23:33 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:27 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/78780358.shtml)
-- 2026-06-29 23:29 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/9384154101.shtml)
-- 2026-06-29 23:51 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/89190.shtml)
-- 2026-06-29 23:41 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/2291472603.shtml)
-- 2026-06-29 23:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/37785438.shtml)
-- 2026-06-29 23:34 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/200617635449.shtml)
-- 2026-06-29 23:47 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/87288.shtml)
-- 2026-06-29 23:40 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/479194504848.shtml)
-- 2026-06-29 23:42 - [追觅称质量不行终身包修也没意义](http://www.blog.kurohicncr.top/Article/details/865596143.shtml)
-- 2026-06-29 23:45 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.kurohicncr.top/Article/details/43275788288.shtml)
-- 2026-06-29 23:24 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/17466319740.shtml)
-- 2026-06-29 23:49 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/987070434993.shtml)
-- 2026-06-29 23:41 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/399064.shtml)
-- 2026-06-29 23:48 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/98843796980.shtml)
-- 2026-06-29 23:38 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/745594568.shtml)
+- 2026-06-29 23:44 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/634492876.shtml)
+- 2026-06-29 23:44 - [肝不好身体这几处会“说话”](http://www.share.kurohicncr.top/Article/details/523762011779.shtml)
+- 2026-06-29 23:44 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/57178.shtml)
+- 2026-06-29 23:32 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/45539364.shtml)
+- 2026-06-29 23:37 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/65765354.shtml)
+- 2026-06-29 23:48 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/982992063829.shtml)
+- 2026-06-29 23:44 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/60760735.shtml)
+- 2026-06-29 23:56 - [足球“出口导向”造就佛得角奇迹](https://www.blog.minike.top/Article/details/3878659280.shtml)
+- 2026-06-29 23:54 - [张凌赫 客串](http://www.blog.minike.top/Article/details/3179539.shtml)
+- 2026-06-29 23:45 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/104385078.shtml)
+- 2026-06-29 23:48 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/1452743553.shtml)
+- 2026-06-29 23:38 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/7443231.shtml)
+- 2026-06-29 23:46 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/7642444014.shtml)
+- 2026-06-29 23:58 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/73660543.shtml)
+- 2026-06-29 23:36 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/114795.shtml)

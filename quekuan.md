@@ -1,48 +1,59 @@
-# 淮北矿业：董事、总经理邱丹因工作调动辞职
+# 近期频发！收到这种贷款逾期催收短信 千万别信
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-人民财讯6月1日电，淮北矿业（600985）6月1日公告，董事、总经理邱丹因工作调动，申请辞去公司董事，董事会战略委员会、提名委员会委员及总经理职务。辞去上述职务后，邱丹不再担任公司任何职务。责任编辑：刘万里 SF014
+原标题：视频丨近期频发！收到这种贷款逾期催收短信 千万别信 “您的消费分期网贷借款至今未还，诉讼前最后通知，请您主动到平台归还借款。”如果您收到这样的贷款逾期催收短信，一定要提高警惕，因为这很有可能是诈骗。 发送虚假律师函 诱骗进入假冒还款网站 记者从北京市反诈中心获悉，近期有一些手机用户收到了“贷款逾期催收律师函”之类的图片，扫描二维码后，进入仿冒的还款网站，遭遇诈骗。北京的
 
 ## 正文
 
-人民财讯6月1日电，淮北矿业（600985）6月1日公告，董事、总经理邱丹因工作调动，申请辞去公司董事，董事会战略委员会、提名委员会委员及总经理职务。
+原标题：视频丨近期频发！
 
-辞去上述职务后，邱丹不再担任公司任何职务。
+收到这种贷款逾期催收短信 千万别信 “您的消费分期网贷借款至今未还，诉讼前最后通知，请您主动到平台归还借款。
 
-责任编辑：刘万里 SF014
+”如果您收到这样的贷款逾期催收短信，一定要提高警惕，因为这很有可能是诈骗。
+
+发送虚假律师函 诱骗进入假冒还款网站 记者从北京市反诈中心获悉，近期有一些手机用户收到了“贷款逾期催收律师函”之类的图片，扫描二维码后，进入仿冒的还款网站，遭遇诈骗。
+
+北京的林女士不久前就被骗走了8000多元。
+
+被害人 林女士：当时接到一个短信说有信用卡没还、严重逾期，说借了一笔6500元，两年逾期利息2000多元。
+
+我当时就认为我没还，因为我做生意，可能有时借信用卡周转什么的。
+
+林女士说，催收信息是通过苹果手机上的iMessage功能发来的一张律师函，上面有律所的名称和公章，对方表示已对林女士提起了电子诉讼，这是最后一次通知。
 
 ## 相关推荐
 
-- 2026-06-29 23:53 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-29 23:48 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 23:37 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-29 23:41 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-29 23:48 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-29 23:50 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-29 23:48 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-29 23:35 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-29 23:26 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-29 23:38 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-29 23:39 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 23:33 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 23:59 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 23:59 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 23:41 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 23:39 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 23:40 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 23:37 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 23:35 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 23:53 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 23:37 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-29 23:56 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 23:50 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 23:58 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-29 23:56 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:47 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/59922509.shtml)
-- 2026-06-29 23:39 - [急先锋](https://www.blog.kurohicncr.top/Article/details/3165465037.shtml)
-- 2026-06-29 23:47 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/9693653.shtml)
-- 2026-06-29 23:35 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/1375748958.shtml)
-- 2026-06-29 23:31 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/368973.shtml)
-- 2026-06-29 23:24 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/594803.shtml)
-- 2026-06-29 23:40 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/812581.shtml)
-- 2026-06-29 23:52 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/05125842801.shtml)
-- 2026-06-29 23:47 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/42251630273.shtml)
-- 2026-06-29 23:41 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/29445.shtml)
-- 2026-06-29 23:43 - [把邻居裸体发群算维权还是侵权](http://www.blog.kurohicncr.top/Article/details/108738064505.shtml)
-- 2026-06-29 23:35 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/431100912.shtml)
-- 2026-06-29 23:42 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/6279114.shtml)
-- 2026-06-29 23:25 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/125635.shtml)
-- 2026-06-29 23:28 - [返利科技盘中上演“天地板”](http://www.share.minike.top/Article/details/627235454.shtml)
+- 2026-06-29 23:41 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/581990.shtml)
+- 2026-06-29 23:39 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/61161106.shtml)
+- 2026-06-29 23:31 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/48106389467.shtml)
+- 2026-06-29 23:41 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/33285425126.shtml)
+- 2026-06-29 23:55 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/306837187532.shtml)
+- 2026-06-29 23:55 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/8021305588.shtml)
+- 2026-06-29 23:52 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/180884.shtml)
+- 2026-06-29 23:58 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/364062096120.shtml)
+- 2026-06-29 23:34 - [山东发布山洪灾害气象预警](http://www.blog.kurohicncr.top/Article/details/375245.shtml)
+- 2026-06-29 23:50 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/881763.shtml)
+- 2026-06-29 23:35 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/13664.shtml)
+- 2026-06-29 23:36 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/00711012.shtml)
+- 2026-06-29 23:55 - [明星大侦探第四季](https://www.share.minike.top/Article/details/5493355.shtml)
+- 2026-06-29 23:41 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/48318029576.shtml)
+- 2026-06-29 23:46 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/726178.shtml)

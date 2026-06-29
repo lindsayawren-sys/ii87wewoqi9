@@ -1,56 +1,47 @@
-# 马斯克掌舵的SpaceX推进重磅IPO 迫使华尔街打破固有运作模式
+# 新华图讯丨习近平同塔吉克斯坦总统拉赫蒙举行会谈
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-华尔街过去不乏轰动一时的重磅IPO，但没有哪一次首次公开募股像SpaceX这样迅速冲击其运作体系。 这家由埃隆·马斯克掌舵的火箭、卫星和人工智能综合企业，预计融资规模将超过历史上任何IPO的两倍。其规模之大、经济影响之深远，使得市场的多个环节开始围绕其重新布局。 指数编制机构正改写大型基准指数的纳入规则；被动投资机构正测算数十亿美元的被动资金流入；ETF发行商争相推出与该上市挂
+5月12日，国家主席习近平在北京同塔吉克斯坦总统拉赫蒙举行会谈。 记者：黄敬文 李响 殷博古 编辑：王诺 虞东升 卢烨 许睿
 
 ## 正文
 
-华尔街过去不乏轰动一时的重磅IPO，但没有哪一次首次公开募股像SpaceX这样迅速冲击其运作体系。
+5月12日，国家主席习近平在北京同塔吉克斯坦总统拉赫蒙举行会谈。
 
-这家由埃隆·马斯克掌舵的火箭、卫星和人工智能综合企业，预计融资规模将超过历史上任何IPO的两倍。
-
-其规模之大、经济影响之深远，使得市场的多个环节开始围绕其重新布局。
-
-指数编制机构正改写大型基准指数的纳入规则；被动投资机构正测算数十亿美元的被动资金流入；ETF发行商争相推出与该上市挂钩的产品；散户投资者则蜂拥进入IPO前的投机性投资工具，哪怕只是为了获得间接敞口。
-
-对于将在发行定价时被要求投入创纪录750亿美元资金的投资者而言（目标估值至少1.8万亿美元），SpaceX的体量同样构成压力。
-
-现在入场，意味着认可马斯克主导人工智能算力市场的雄心壮志，相信他能在卫星通信领域复制成功，并认真对待其在其他星球为人类寻找新家园的计划。
-
-但其更深层的意义并不仅在于规模本身，而在于这家公司所揭示的权力平衡变化——在强势创始人、公开资本市场以及日益承担“维持体系运转”职责的机构之间，力量对比正在发生转移。
-
-4月13日，SpaceX位于德克萨斯州南部卡梅伦县的设施。
+记者：黄敬文 李响 殷博古 编辑：王诺 虞东升 卢烨 许睿
 
 ## 相关推荐
 
-- 2026-06-29 23:36 - [存储三巨头被告了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 23:43 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-29 23:33 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 23:26 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-29 23:44 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-29 23:29 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-29 23:53 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-29 23:36 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-29 23:29 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 23:49 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 23:57 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 23:55 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-29 23:53 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-29 23:46 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-29 23:58 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-29 23:48 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-29 23:58 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 23:31 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-29 23:57 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 23:43 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 23:48 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-29 23:43 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 23:50 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:52 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/1047807.shtml)
-- 2026-06-29 23:24 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/222499528377.shtml)
-- 2026-06-29 23:30 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/244129.shtml)
-- 2026-06-29 23:43 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/81195870.shtml)
-- 2026-06-29 23:35 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/067486719.shtml)
-- 2026-06-29 23:31 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/94576329.shtml)
-- 2026-06-29 23:42 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/803612.shtml)
-- 2026-06-29 23:37 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/3425751265.shtml)
-- 2026-06-29 23:47 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/5786777.shtml)
-- 2026-06-29 23:25 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/404710470788.shtml)
-- 2026-06-29 23:34 - [小娘惹](https://www.share.minike.top/Article/details/763763311668.shtml)
-- 2026-06-29 23:24 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/982018248272.shtml)
-- 2026-06-29 23:34 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/3786483.shtml)
-- 2026-06-29 23:38 - [日防卫省正考虑引进美企人工智能系统](http://www.share.minike.top/Article/details/65318578.shtml)
-- 2026-06-29 23:31 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/19800.shtml)
+- 2026-06-29 23:30 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/1339900.shtml)
+- 2026-06-29 23:54 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/0170292541.shtml)
+- 2026-06-29 23:55 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/4285962776.shtml)
+- 2026-06-29 23:36 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/4392383.shtml)
+- 2026-06-29 23:36 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/4238439.shtml)
+- 2026-06-29 23:43 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/58092010.shtml)
+- 2026-06-29 23:57 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/851904515.shtml)
+- 2026-06-29 23:49 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/4867810.shtml)
+- 2026-06-29 23:55 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/989932.shtml)
+- 2026-06-29 23:38 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/05434603.shtml)
+- 2026-06-29 23:37 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/386349.shtml)
+- 2026-06-29 23:43 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/1230944.shtml)
+- 2026-06-29 23:36 - [法媒点赞分享中国小区降温方案](https://www.blog.kurohicncr.top/Article/details/7774476950.shtml)
+- 2026-06-29 23:48 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/92878555879.shtml)
+- 2026-06-29 23:50 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/75131501.shtml)

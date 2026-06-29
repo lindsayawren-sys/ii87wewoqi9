@@ -1,57 +1,59 @@
-# 马来西亚新规实施：16岁以下青少年禁注册社交媒体账号
+# 香港将设“AI+与产业发展策略委员会” 聚焦具身智能推动产业升级
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-中新社吉隆坡6月1日电 (记者 刘育英)马来西亚从6月1日起正式实施针对16岁以下用户的社交媒体使用限制措施，禁止未满16岁者新注册社交媒体账号，旨在加强对未成年人的网络安全保护。 这项措施是基于《网络安全法2025》框架下《儿童保护守则》及《风险降低守则》的要求，由马来西亚通信和多媒体委员会(MCMC)统筹执行。 该措施适用范围涵盖脸书(Facebook)、照片墙(Insta
+中新社香港5月12日电 (记者 刘玥晴)首届香港具身智能产业峰会暨2026智元合作伙伴大会(香港)12日在港举行。香港特区行政长官李家超在会上致辞表示，特区政府将成立“AI+与产业发展策略委员会”，初期聚焦生命健康和具身智能，为AI(人工智能)带动产业转型制定策略。 “具身智能作为AI与物理世界互动的重要形态，已成为推动产业升级、培育新质生产力的关键引擎。”李家超指出，香港在A
 
 ## 正文
 
-中新社吉隆坡6月1日电 (记者 刘育英)马来西亚从6月1日起正式实施针对16岁以下用户的社交媒体使用限制措施，禁止未满16岁者新注册社交媒体账号，旨在加强对未成年人的网络安全保护。
+中新社香港5月12日电 (记者 刘玥晴)首届香港具身智能产业峰会暨2026智元合作伙伴大会(香港)12日在港举行。
 
-这项措施是基于《网络安全法2025》框架下《儿童保护守则》及《风险降低守则》的要求，由马来西亚通信和多媒体委员会(MCMC)统筹执行。
+香港特区行政长官李家超在会上致辞表示，特区政府将成立“AI+与产业发展策略委员会”，初期聚焦生命健康和具身智能，为AI(人工智能)带动产业转型制定策略。
 
-该措施适用范围涵盖脸书(Facebook)、照片墙(Instagram)、TikTok、优兔(YouTube)等持牌大型社交媒体平台。
+“具身智能作为AI与物理世界互动的重要形态，已成为推动产业升级、培育新质生产力的关键引擎。
 
-根据新规，用户须通过政府认可的身份验证机制确认年龄。
+”李家超指出，香港在AI与机器人领域拥有一批知名专家学者，学术研究水平位居世界前列。
 
-不仅限于新用户，现有用户亦需进行年龄验证；若经验证确认未满16岁，平台将给予一个月时间下载或转移照片、视频等个人资料。
+特区政府一直通过“创新及科技基金”资助本地大学、研发中心和企业进行具身智能有关专题研究。
 
-MCMC在当日发布的公告中强调，社交媒体服务商有责任落实包括最低年龄门槛在内的多项安全义务。
+他介绍，特区政府设立的“InnoHK创新香港研发平台”已资助16个AI与机器人实验室，推动相关技术广泛应用于医疗、物流、智能制造、建造等行业。
 
-一个月宽限期结束后，平台将对仍不符合资格的账号采取限制使用、暂停账号或其他适当措施。
+香港数码港也在支持约120家涉及人形机器人、无人驾驶、无人机、智能可穿戴设备等企业。
 
-(完)
+李家超说，香港有高度国际化、文化多元且空间紧凑的城市环境，为具身智能提供了理想的试验与应用场景，有助于相关技术进一步对接国际市场。
 
 ## 相关推荐
 
-- 2026-06-29 23:25 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-29 23:39 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 23:35 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 23:53 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-29 23:32 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-29 23:28 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 23:38 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 23:35 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-29 23:50 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 23:28 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 23:33 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 23:47 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-29 23:46 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 23:54 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-29 23:30 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 23:35 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-29 23:55 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 23:33 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-29 23:48 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-29 23:33 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-29 23:42 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 23:47 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 23:42 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 23:59 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:41 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/57051736182.shtml)
-- 2026-06-29 23:27 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/2538812.shtml)
-- 2026-06-29 23:47 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/014493992067.shtml)
-- 2026-06-29 23:29 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/2166477.shtml)
-- 2026-06-29 23:33 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/574938964891.shtml)
-- 2026-06-29 23:35 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/21279435.shtml)
-- 2026-06-29 23:40 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/5769139520.shtml)
-- 2026-06-29 23:53 - [金牌调解](http://www.blog.minike.top/Article/details/5394338.shtml)
-- 2026-06-29 23:37 - [齐思钧回复孙怡](https://www.blog.kurohicncr.top/Article/details/4479814691.shtml)
-- 2026-06-29 23:38 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.kurohicncr.top/Article/details/12212.shtml)
-- 2026-06-29 23:33 - [沙丘](https://www.share.kurohicncr.top/Article/details/090862078028.shtml)
-- 2026-06-29 23:52 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/627983.shtml)
-- 2026-06-29 23:50 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/12542.shtml)
-- 2026-06-29 23:52 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/36939.shtml)
-- 2026-06-29 23:44 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/86876310336.shtml)
+- 2026-06-29 23:52 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/571830378.shtml)
+- 2026-06-29 23:37 - [追觅称质量不行终身包修也没意义](https://www.share.kurohicncr.top/Article/details/12589375178.shtml)
+- 2026-06-29 23:50 - [炽夏](https://www.share.minike.top/Article/details/187514.shtml)
+- 2026-06-29 23:33 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/13436.shtml)
+- 2026-06-29 23:52 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/972040851267.shtml)
+- 2026-06-29 23:40 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/29321.shtml)
+- 2026-06-29 23:38 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/9106549.shtml)
+- 2026-06-29 23:33 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/9042187.shtml)
+- 2026-06-29 23:33 - [东方风云榜直播](http://www.blog.kurohicncr.top/Article/details/233799.shtml)
+- 2026-06-29 23:45 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/657035.shtml)
+- 2026-06-29 23:55 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/048010155294.shtml)
+- 2026-06-29 23:51 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/496544686158.shtml)
+- 2026-06-29 23:57 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/69143125556.shtml)
+- 2026-06-29 23:33 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/1588681.shtml)
+- 2026-06-29 23:58 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/576454453.shtml)

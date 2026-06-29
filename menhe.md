@@ -1,61 +1,57 @@
-# 赛力斯要孵化新品牌？旗下“蓝电”更名“赛豆”，获66.7亿增资
+# 微短剧、电影、游戏、潮玩齐“出海” 中国品牌软实力硬核崛起
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-【大河财立方记者陈薇文图】日前，赛力斯集团股份有限公司旗下重庆蓝电科技有限公司，正式更名为重庆赛豆科技有限公司。与此同时，赛豆科技完成总额66.71亿元的战略增资，重庆国资沙磁致远以34.50%持股比例成为第一大股东，赛力斯退居第二大股东。赛豆科技这个新的公司名称，可能意味着，赛力斯将与豆包大模型有深度合作。赛豆科技的前身蓝电科技，是2023年3月赛力斯推出的蓝电独立新能源品牌
+过去提起“中国制造”“中国品牌”，大家脑海中浮现的大多是汽车、家电、服装；但今天，微短剧、电影、游戏、潮玩等中国原创的文化产品，正在全球掀起中国文化热潮。 今年一季度，我国服务出口7045.2亿元，同比增长11.2%；其中，个人文化和娱乐服务增长最快，增速达25.6%。这份软实力崛起的背后，究竟蕴藏着怎样的时代机遇与发展密码？ 在加拿大温哥华的一个片场，一部英文微短剧正在紧张拍
 
 ## 正文
 
-【大河财立方记者陈薇文图】日前，赛力斯集团股份有限公司旗下重庆蓝电科技有限公司，正式更名为重庆赛豆科技有限公司。
+过去提起“中国制造”“中国品牌”，大家脑海中浮现的大多是汽车、家电、服装；但今天，微短剧、电影、游戏、潮玩等中国原创的文化产品，正在全球掀起中国文化热潮。
 
-与此同时，赛豆科技完成总额66.71亿元的战略增资，重庆国资沙磁致远以34.50%持股比例成为第一大股东，赛力斯退居第二大股东。
+今年一季度，我国服务出口7045.2亿元，同比增长11.2%；其中，个人文化和娱乐服务增长最快，增速达25.6%。
 
-赛豆科技这个新的公司名称，可能意味着，赛力斯将与豆包大模型有深度合作。
+这份软实力崛起的背后，究竟蕴藏着怎样的时代机遇与发展密码？
 
-赛豆科技的前身蓝电科技，是2023年3月赛力斯推出的蓝电独立新能源品牌。
+在加拿大温哥华的一个片场，一部英文微短剧正在紧张拍摄。
 
-当时推出了蓝电E5、E3等多款车型，定位10万~15万元大众化家用市场，希望与旗下高端问界搭配，覆盖不同价位的市场。
+这部剧的导演和制片都是中国人，而演员、摄影、服化道等岗位由本地人担任，形成了“中国IP+本地制作”的创作模式。
 
-尽管2024年10月蓝电E5PLUS正式上市，官方指导价9.98万元起，试图以更具竞争力的价格走量，但蓝电品牌身处10万元级别红海市场，加上品牌声量弱，销量持续低迷。
+据国际咨询公司预测，2029年全球海外短剧市场规模将突破1200亿元，复合增速53.9%，中国企业有望占据76%份额。
 
-据公开数据，蓝电2025年全年销量约2万辆，月均千余台，未达盈亏平衡点。
+中国电影也迎来历史性突破，《哪吒之魔童闹海》以22.67亿美元全球票房登顶动画影史，在海外引发文化共鸣。
 
-与此同时，蓝电科技也经历了一系列股权变更。
+2025年全年，国产影片海外总票房超10亿元人民币，国产电影年度票房前20的影片中，15部实现海外上映。
 
 ## 相关推荐
 
-- 2026-06-29 23:51 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 23:53 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 23:32 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-29 23:24 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-29 23:43 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-29 23:39 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 23:39 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-29 23:48 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 23:25 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-29 23:25 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-29 23:31 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 23:35 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-29 23:36 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-29 23:29 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-29 23:36 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 23:56 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 23:42 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-29 23:50 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-29 23:47 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 23:33 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-29 23:53 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 23:46 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 23:52 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-29 23:51 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-29 23:51 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 23:59 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:33 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/3561806.shtml)
-- 2026-06-29 23:39 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/01797.shtml)
-- 2026-06-29 23:48 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/78530.shtml)
-- 2026-06-29 23:52 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/75829657.shtml)
-- 2026-06-29 23:50 - [世界杯](https://www.share.minike.top/Article/details/406833799022.shtml)
-- 2026-06-29 23:46 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/9091865.shtml)
-- 2026-06-29 23:51 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/93466134.shtml)
-- 2026-06-29 23:52 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.kurohicncr.top/Article/details/028012.shtml)
-- 2026-06-29 23:48 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/65948078596.shtml)
-- 2026-06-29 23:46 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/9481797.shtml)
-- 2026-06-29 23:25 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/42950097572.shtml)
-- 2026-06-29 23:26 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/71080180715.shtml)
-- 2026-06-29 23:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/028480.shtml)
-- 2026-06-29 23:31 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/27768285.shtml)
-- 2026-06-29 23:47 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/6592725.shtml)
+- 2026-06-29 23:43 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/66676.shtml)
+- 2026-06-29 23:49 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/62137163.shtml)
+- 2026-06-29 23:36 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/507843.shtml)
+- 2026-06-29 23:42 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/768994054616.shtml)
+- 2026-06-29 23:49 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/52027.shtml)
+- 2026-06-29 23:32 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/9152944962.shtml)
+- 2026-06-29 23:43 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/4968457.shtml)
+- 2026-06-29 23:45 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/03562010498.shtml)
+- 2026-06-29 23:43 - [周杰伦的歌勾起25年友情](http://www.blog.kurohicncr.top/Article/details/38785.shtml)
+- 2026-06-29 23:58 - [高考1357分的同学如何报志愿？](http://www.blog.minike.top/Article/details/15126.shtml)
+- 2026-06-29 23:54 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/376035653.shtml)
+- 2026-06-29 23:53 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/086512.shtml)
+- 2026-06-29 23:40 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/7239549635.shtml)
+- 2026-06-29 23:47 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/780117.shtml)
+- 2026-06-29 23:30 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/920801.shtml)

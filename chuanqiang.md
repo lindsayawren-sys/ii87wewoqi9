@@ -1,60 +1,57 @@
-# 《中国宪法学文献整理与研究》新书发布
+# 一镇十八载，满目万般新 略阳徐家坪绘就秦巴乡村新画卷
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-中新网北京5月30日电 (记者 高凯)由法律出版社出版的国家出版基金资助项目《中国宪法学文献整理与研究》新书发布暨构建中国宪法学自主知识体系研讨会日前在中国人民大学举行。 国家出版基金项目《中国宪法学文献整理与研究》是中国人民大学法学院韩大元教授主持的国家社科基金重大项目“中国宪法学文献整理与研究”的同名成果。丛书总主编韩大元教授作丛书整理过程说明并指出，丛书从学术文献的视角，
+中新网陕西略阳5月12日电 题：一镇十八载，满目万般新 略阳徐家坪绘就秦巴乡村新画卷 作者 李一璠 秦文璐 杨雯琪 初夏时节，嘉陵江畔绿意流淌，秦岭南麓草木芬芳，一派生机勃勃的景象。 十八年前，2008年汶川大地震中，陕西南部的略阳县徐家坪镇饱受重创。近年来，该镇以产业为基、民生为本，在秦巴山水间铺展一幅产业兴旺、生态宜居、乡风文明、治理有效的乡村振兴新图景。 走进徐家坪社区蚕
 
 ## 正文
 
-中新网北京5月30日电 (记者 高凯)由法律出版社出版的国家出版基金资助项目《中国宪法学文献整理与研究》新书发布暨构建中国宪法学自主知识体系研讨会日前在中国人民大学举行。
+中新网陕西略阳5月12日电 题：一镇十八载，满目万般新 略阳徐家坪绘就秦巴乡村新画卷 作者 李一璠 秦文璐 杨雯琪 初夏时节，嘉陵江畔绿意流淌，秦岭南麓草木芬芳，一派生机勃勃的景象。
 
-国家出版基金项目《中国宪法学文献整理与研究》是中国人民大学法学院韩大元教授主持的国家社科基金重大项目“中国宪法学文献整理与研究”的同名成果。
+十八年前，2008年汶川大地震中，陕西南部的略阳县徐家坪镇饱受重创。
 
-丛书总主编韩大元教授作丛书整理过程说明并指出，丛书从学术文献的视角，对百年来积累的宪法学文献进行系统考察，并围绕宪法学的基本原理、基本权利、国家机构等重要议题展开细致、深入的专题研究，形成了中国宪法学著作、论文文献总目录。
+近年来，该镇以产业为基、民生为本，在秦巴山水间铺展一幅产业兴旺、生态宜居、乡风文明、治理有效的乡村振兴新图景。
 
-丛书约700万字，其中文献总目录部分收录近代以来宪法学刊物2728种，论文共计35580余篇，著作3338种，是中国宪法学研究领域最全面的文献目录之一，较为全面地展现了近代以来中国宪法学发展的内在逻辑与学术传统，被认为为推动中国宪法学繁荣、拓展宪法学研究领域、培养宪法学人才、推进宪法学的学术创新以及构建中国宪法学自主知识体系提供了坚实的文献基础。
+走进徐家坪社区蚕桑产业园，桑田叠翠连绵，标准化蚕房整齐有序，传统蚕桑产业在科技创新中焕发蓬勃生机。
 
-据介绍，丛书以百余年来中国宪法学文献为基础，体系化地展现了不同时期、不同主题、不同类型的宪法学研究成果，为学界提供了系统、扎实、可持续利用的学术资源，其价值不仅在于保存和整理史料，更在于通过呈现问题意识、辨析概念源流、理清学术脉络，揭示中国宪法学在制度变迁、理论发展和知识转化中的内在逻辑。
+2019年，陕西福瑞源实业有限公司入驻园区，创新推行“公司+合作社+家庭农场+养蚕大户”联动发展模式，延伸种桑养蚕、产品研发、研学农旅全产业链，带动全县26个村发展密植桑园1.2万亩，吸纳112户农户参与产业发展，户均年增收3000元以上。
 
-本次会议旨在通过对中国宪法学百年学术文献的研讨交流，推动加快构建中国宪法学自主知识体系。
+“为推动蚕桑产业发展，公司与多所高校、科研机构建立技术合作，成立市级蚕桑产业专家工作站，以科技赋能传统产业提质升级。
 
-中国法学会宪法学研究会会长、全国人大常委会法制工作委员会原副主任郑淑娜出席并讲话。
+”陕西福瑞源实业有限公司副总经理金诚介绍。
 
-中国人民大学党委常委、常务副校长朱信凯，法律出版社党委书记、社长梁尚华致辞。
+循着清甜果香，来到朱儿坝村田园综合体，大樱桃缀满枝头、枇杷果香四溢，昔日零散土地如今变身当地民众增收的“聚宝盆”。
 
 ## 相关推荐
 
-- 2026-06-29 23:29 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-29 23:24 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 23:25 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-29 23:48 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-29 23:48 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-29 23:53 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-29 23:31 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-29 23:29 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-29 23:52 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-29 23:41 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 23:50 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-29 23:36 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 23:41 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-29 23:41 - [东方风云榜直播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 23:39 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-29 23:54 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 23:57 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 23:49 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-29 23:39 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-29 23:32 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-29 23:57 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-29 23:32 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 23:47 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 23:45 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 23:55 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:29 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/6939232350.shtml)
-- 2026-06-29 23:35 - [存储三巨头被告了](https://www.share.minike.top/Article/details/14733430371.shtml)
-- 2026-06-29 23:41 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/4649144104.shtml)
-- 2026-06-29 23:43 - [《贺子珍》](http://www.blog.minike.top/Article/details/21639367.shtml)
-- 2026-06-29 23:47 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/3278078660.shtml)
-- 2026-06-29 23:39 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/41833.shtml)
-- 2026-06-29 23:41 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/13681.shtml)
-- 2026-06-29 23:46 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/12213924693.shtml)
-- 2026-06-29 23:45 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/386713521051.shtml)
-- 2026-06-29 23:45 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/54299018464.shtml)
-- 2026-06-29 23:34 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/77135.shtml)
-- 2026-06-29 23:36 - [周生如故](https://www.blog.kurohicncr.top/Article/details/61306.shtml)
-- 2026-06-29 23:34 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/24936.shtml)
-- 2026-06-29 23:37 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/3307438193.shtml)
-- 2026-06-29 23:37 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/8481578613.shtml)
+- 2026-06-29 23:43 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/17255657918.shtml)
+- 2026-06-29 23:45 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/57565771.shtml)
+- 2026-06-30 00:00 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/46497345922.shtml)
+- 2026-06-29 23:34 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/02176427.shtml)
+- 2026-06-29 23:30 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/2637201.shtml)
+- 2026-06-29 23:34 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/1374722760.shtml)
+- 2026-06-29 23:41 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/668851.shtml)
+- 2026-06-29 23:59 - [小娘惹](http://www.share.kurohicncr.top/Article/details/825946051.shtml)
+- 2026-06-29 23:58 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/79945.shtml)
+- 2026-06-29 23:52 - [小龙女配音去世 李若彤发文悼念](http://www.blog.kurohicncr.top/Article/details/45952.shtml)
+- 2026-06-29 23:59 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/12028679.shtml)
+- 2026-06-29 23:44 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/233107337255.shtml)
+- 2026-06-29 23:32 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/32969958.shtml)
+- 2026-06-29 23:35 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/326635146261.shtml)
+- 2026-06-29 23:41 - [金刚川](https://www.blog.minike.top/Article/details/025323134.shtml)

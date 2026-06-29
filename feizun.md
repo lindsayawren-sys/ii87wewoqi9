@@ -1,61 +1,56 @@
-# 大学生版权保护赋能与短视频AI精品创作研讨会在京举行
+# 九华山“厕所存放食材”餐厅已停业整顿 负责人称系“疏忽大意”
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-中新网北京6月1日电 (记者 应妮)大学生版权保护赋能与短视频AI精品创作研讨会30日在北京电影学院举办。教育、司法、法律服务、行业协会、数字版权服务等领域的30多位专家，围绕高校大学生版权保护与AI短视频创作合规发展核心议题，共解AI创作版权痛点。当前，生成式AI已成为高校学生短视频、微短剧创作的核心工具，但随之而来的版权归属模糊、侵权风险高发、合规边界不清等问题，严重制约原
+中新网合肥5月13日电 (记者 张俊)针对媒体曝光的安徽池州九华山景区内“灵山土菜馆”将食材存放于厕所的卫生乱象，该餐厅负责人13日在接受中新社记者采访时称，此举系“疏忽大意”，目前餐厅已停止营业，正在接受相关部门调查。在媒体曝光后，记者尝试联系该餐厅负责人。对方在电话中承认了这一情况，并解释称：此举系疏忽大意。该负责人表示，此前，店内进行卫生大扫除，因空间狭小，临时将装有笋干
 
 ## 正文
 
-中新网北京6月1日电 (记者 应妮)大学生版权保护赋能与短视频AI精品创作研讨会30日在北京电影学院举办。
+中新网合肥5月13日电 (记者 张俊)针对媒体曝光的安徽池州九华山景区内“灵山土菜馆”将食材存放于厕所的卫生乱象，该餐厅负责人13日在接受中新社记者采访时称，此举系“疏忽大意”，目前餐厅已停止营业，正在接受相关部门调查。
 
-教育、司法、法律服务、行业协会、数字版权服务等领域的30多位专家，围绕高校大学生版权保护与AI短视频创作合规发展核心议题，共解AI创作版权痛点。
+在媒体曝光后，记者尝试联系该餐厅负责人。
 
-当前，生成式AI已成为高校学生短视频、微短剧创作的核心工具，但随之而来的版权归属模糊、侵权风险高发、合规边界不清等问题，严重制约原创活力与行业良性发展。
+对方在电话中承认了这一情况，并解释称：此举系疏忽大意。
 
-此次研讨会一大亮点是落地普惠性公益版权服务，华版数字版权服务中心面向高校师生、视听行业从业者，正式推出一站式全链条版权推优公益服务体系，涵盖作品版权存证、智能侵权监测、法律维权援助、版权交易赋能等核心服务，精准打通青年原创版权保护落地最后一公里，以公益赋能校企深度融合。
+该负责人表示，此前，店内进行卫生大扫除，因空间狭小，临时将装有笋干的箱子和腌菜坛子放置在了洗手间内。
 
-北京电影学院党委副书记支宏伟指出，高校是文艺创新人才培育的主阵地，AI技术创新发展必须以知识产权合规为核心前提，高校需常态化开展版权法治科普教育，引导青年学子树立正版创作、合规创新的核心理念，从源头规范校园文创创作。
+随后因生意忙碌，工作人员大意，未能及时将食材移出，导致了这一情况的发生。
 
-中国电视艺术家协会分党组成员、副秘书长董涛表示，AI技术在重塑创作模式的同时，也重构了版权治理格局，他呼吁各界多方联动、协同发力，共建适配AI时代的版权治理新体系，全方位护航青年文艺创新发展。
+“东西是放在储藏间的，搞卫生才挪过去的。
 
-主题发言环节，专家从法律界定、高校育人、纠纷化解、行业发展等多维度输出专业观点，构建系统化AI创作版权合规体系。
+”该负责人说，平时食材是在专门的储藏间，此次是工作人员的疏忽大意，对此感到非常后悔。
 
-北京电影学院副院长李伟剖析高校AI影像创作版权保护难点与落地解决方案；全国律协知识产权委员会主任王正志结合《著作权法》条款，明确AI短视频创作的权利认定标准与法律适用边界；北京仲裁委员会副秘书长张皓亮解读仲裁机制化解AI版权纠纷的独特优势与实践价值，为行业纠纷调处提供新思路。
+对于后续处理，该负责人向记者表示，目前餐厅已全面停业，具体如何处置需等待监管部门的进一步通知。
 
 ## 相关推荐
 
-- 2026-06-29 23:50 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-29 23:48 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 23:45 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-29 23:36 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-29 23:37 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-29 23:31 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-29 23:31 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-29 23:45 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-29 23:50 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 23:52 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-29 23:36 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 23:48 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-29 23:50 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 23:38 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-29 23:33 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 23:33 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 23:43 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-29 23:43 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 23:46 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-29 23:55 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-29 23:38 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 23:43 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-29 23:56 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-29 23:35 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-29 23:42 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:44 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/252899.shtml)
-- 2026-06-29 23:48 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/79661632.shtml)
-- 2026-06-29 23:53 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.minike.top/Article/details/37497133.shtml)
-- 2026-06-29 23:27 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/48923.shtml)
-- 2026-06-29 23:28 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/09047102.shtml)
-- 2026-06-29 23:27 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/83034391.shtml)
-- 2026-06-29 23:47 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/729015841.shtml)
-- 2026-06-29 23:28 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/25189.shtml)
-- 2026-06-29 23:45 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/055041022971.shtml)
-- 2026-06-29 23:45 - [月亮](https://www.share.minike.top/Article/details/57753.shtml)
-- 2026-06-29 23:31 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/3468526475.shtml)
-- 2026-06-29 23:40 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/04814.shtml)
-- 2026-06-29 23:35 - [金刚川](http://www.share.kurohicncr.top/Article/details/8349525024.shtml)
-- 2026-06-29 23:28 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/8579421643.shtml)
-- 2026-06-29 23:49 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/255643351790.shtml)
+- 2026-06-29 23:43 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/27970.shtml)
+- 2026-06-29 23:56 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/460645058176.shtml)
+- 2026-06-29 23:37 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/71271.shtml)
+- 2026-06-29 23:38 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.minike.top/Article/details/3501303.shtml)
+- 2026-06-29 23:56 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/9404783.shtml)
+- 2026-06-29 23:31 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/43168420.shtml)
+- 2026-06-29 23:51 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/6069429486.shtml)
+- 2026-06-29 23:39 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/56133542202.shtml)
+- 2026-06-29 23:50 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/8439943.shtml)
+- 2026-06-29 23:57 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/35190.shtml)
+- 2026-06-29 23:57 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/9064842.shtml)
+- 2026-06-29 23:47 - [如何看法国总统候选人称加强与华合作](https://www.share.minike.top/Article/details/59817948570.shtml)
+- 2026-06-29 23:57 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/23258245748.shtml)
+- 2026-06-29 23:34 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/50479336774.shtml)
+- 2026-06-29 23:50 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/677061702525.shtml)

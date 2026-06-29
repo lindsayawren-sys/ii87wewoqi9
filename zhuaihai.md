@@ -1,51 +1,57 @@
-# Luna相机延迟到6月上市 刘靖康发文道歉：我临时加了需求
+# 四大证券报头版头条内容精华摘要_2026年5月12日_财经新闻
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-新浪科技讯 6月1日下午消息，近日，影石创新创始人兼CEO刘靖康发文，为Luna相机延迟到6月上市公开道歉，并解释称是由于他自己临时加了需求。 “去年国庆旅游我内测我们相机的时候，遇到一个街头表演，我用Luna样机去记录，但是全程都是盯着屏幕（怕出框），而不是享受这个表演本身，记录是害怕失去，但是唯一一次享受的机会我的注意力却在屏幕上。这让我意识到一个事情：享受当下和记录同等重
+专题：四大证券报精华 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月12日（星期二），今日报刊头条主要内容精华如下： 中国证券报 央行发布 关于货币政策、利率、汇率等 中国人民银行5月11日发布2026年第一季度中国货币政策执行报告。 多家中小银行 下调存款利率 5月以来，多家中小银行宣布下调存款利率，且部分银行利率下调节奏明显加快。具体来看，近期
 
 ## 正文
 
-新浪科技讯 6月1日下午消息，近日，影石创新创始人兼CEO刘靖康发文，为Luna相机延迟到6月上市公开道歉，并解释称是由于他自己临时加了需求。
+专题：四大证券报精华 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-“去年国庆旅游我内测我们相机的时候，遇到一个街头表演，我用Luna样机去记录，但是全程都是盯着屏幕（怕出框），而不是享受这个表演本身，记录是害怕失去，但是唯一一次享受的机会我的注意力却在屏幕上。
+5月12日（星期二），今日报刊头条主要内容精华如下： 中国证券报 央行发布 关于货币政策、利率、汇率等 中国人民银行5月11日发布2026年第一季度中国货币政策执行报告。
 
-这让我意识到一个事情：享受当下和记录同等重要，于是我们在今年临时开发了Luna第一人称套件，镜头会随着你头动的方向而动，这样高品质记录和享受当下、解放双手就可以兼得了。
+多家中小银行 下调存款利率 5月以来，多家中小银行宣布下调存款利率，且部分银行利率下调节奏明显加快。
 
-”刘靖康称。
+具体来看，近期银行利率调整范围覆盖定期存款、通知存款等主流品种。
 
-责任编辑：刘万里 SF014
+调整后，存款利率普遍降至“1”字头。
+
+近500亿龙头跳水跌停！
+
+顶级量化逆势抄底 5月11日，国内心血管领域创新药龙头信立泰开盘跳水跌停，收报43.11元/股，成交额5.69亿元，换手率1.17%，市值为481亿元。
+
+究竟发生了什么？
 
 ## 相关推荐
 
-- 2026-06-29 23:27 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-29 23:39 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 23:46 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-29 23:26 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-29 23:34 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 23:48 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-29 23:38 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 23:43 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-29 23:25 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-29 23:33 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-29 23:51 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 23:34 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 23:53 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-29 23:51 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-29 23:52 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-29 23:50 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 23:33 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 23:42 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-29 23:37 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 23:33 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 23:35 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 23:54 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:34 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/49768.shtml)
-- 2026-06-29 23:24 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/80774221776.shtml)
-- 2026-06-29 23:46 - [谁在推动“成都造”影视持续出圈](http://www.blog.minike.top/Article/details/813804183.shtml)
-- 2026-06-29 23:25 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/09978.shtml)
-- 2026-06-29 23:45 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/244477557.shtml)
-- 2026-06-29 23:50 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/491847098796.shtml)
-- 2026-06-29 23:25 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/494039.shtml)
-- 2026-06-29 23:26 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/4848419131.shtml)
-- 2026-06-29 23:26 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/14708752.shtml)
-- 2026-06-29 23:44 - [时光音乐会](http://www.blog.minike.top/Article/details/637932159.shtml)
-- 2026-06-29 23:42 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/171429.shtml)
-- 2026-06-29 23:28 - [明星大侦探第四季](http://www.share.minike.top/Article/details/1177110.shtml)
-- 2026-06-29 23:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/8932857.shtml)
-- 2026-06-29 23:48 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/5892281339.shtml)
-- 2026-06-29 23:41 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/2382865561.shtml)
+- 2026-06-29 23:36 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/93101296.shtml)
+- 2026-06-29 23:56 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/95990744.shtml)
+- 2026-06-29 23:34 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/08530.shtml)
+- 2026-06-29 23:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/72374750.shtml)
+- 2026-06-29 23:52 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/51992459.shtml)
+- 2026-06-29 23:39 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.kurohicncr.top/Article/details/564691355.shtml)
+- 2026-06-29 23:31 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.blog.minike.top/Article/details/3851255.shtml)
+- 2026-06-29 23:59 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/50037.shtml)
+- 2026-06-29 23:55 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.minike.top/Article/details/218232.shtml)
+- 2026-06-29 23:33 - [恋与深空致歉](http://www.share.minike.top/Article/details/79283.shtml)
+- 2026-06-29 23:46 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/918002407.shtml)
+- 2026-06-29 23:43 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/57730310426.shtml)
+- 2026-06-29 23:47 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/120218.shtml)
+- 2026-06-29 23:49 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/1005173.shtml)
+- 2026-06-29 23:56 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/861927.shtml)

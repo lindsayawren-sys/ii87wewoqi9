@@ -1,56 +1,58 @@
-# 金正恩携女儿视察温室农场（图）
+# 太平洋岛国瑙鲁拟更改国名 下一步将举行全民公投
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-中新网6月1日电 据朝中社报道，朝鲜劳动党总书记、国务委员会委员长金正恩5月31日视察新义州温室综合农场。 据报道，金正恩察看不同类型的水培及土壤温室、试验栽培温室，了解农场的生产和蔬菜科研工作以及经营管理情况。 金正恩表示，“农场不要只顾生产效率，而要实现品种多样化、科学地搞好施肥培植管理，供人民吃到味美营养高的蔬菜。” 报道称，金正恩提出了推动各温室农场长远发展的重要任务，
+中新网5月13日电 据新西兰RNZ网站报道，当地时间5月12日，瑙鲁议会通过一项宪法修正案，拟将国名由“Nauru(瑙鲁)”更改为“Naoero(音译为瑙埃罗)”，下一步将举行全民公投。 据报道，该更名提案最初由总统阿迪昂于1月提出。瑙鲁政府表示，现行国名“瑙鲁”源于外国语言难以准确发音“瑙埃罗”。 新加坡《海峡时报》报道称，阿迪昂5月12日发表声明表示，“瑙埃罗”这一名称“更
 
 ## 正文
 
-中新网6月1日电 据朝中社报道，朝鲜劳动党总书记、国务委员会委员长金正恩5月31日视察新义州温室综合农场。
+中新网5月13日电 据新西兰RNZ网站报道，当地时间5月12日，瑙鲁议会通过一项宪法修正案，拟将国名由“Nauru(瑙鲁)”更改为“Naoero(音译为瑙埃罗)”，下一步将举行全民公投。
 
-据报道，金正恩察看不同类型的水培及土壤温室、试验栽培温室，了解农场的生产和蔬菜科研工作以及经营管理情况。
+据报道，该更名提案最初由总统阿迪昂于1月提出。
 
-金正恩表示，“农场不要只顾生产效率，而要实现品种多样化、科学地搞好施肥培植管理，供人民吃到味美营养高的蔬菜。
+瑙鲁政府表示，现行国名“瑙鲁”源于外国语言难以准确发音“瑙埃罗”。
 
-” 报道称，金正恩提出了推动各温室农场长远发展的重要任务，包括增建蔬菜保管设施和销售站，以供道内人民正常吃到新鲜蔬菜；在温室蔬菜部门有序地建立迅速普及先进新技术的体系；建立温室专家培养体系等。
+新加坡《海峡时报》报道称，阿迪昂5月12日发表声明表示，“瑙埃罗”这一名称“更忠实地尊重”瑙鲁的文化遗产、语言和身份认同。
 
-随后，金正恩察看了油菜田。
+瑙鲁政府表示，下一步将举行全民公投。
 
-金正恩说道，“相当壮观，大规模农场城市的特色景观展现在眼前，犹如一幅美丽画卷。
+若更名获公投通过，新国名将用于国家官方记录和标志，以及区域和国际官方身份标识中，包括在联合国的官方称谓。
 
-整座岛屿沉浸在一片温室蔬菜大海、油菜大海之中。
-
-”
+公开资料显示，瑙鲁位于中太平洋，由一个独立的珊瑚礁岛及周边海域构成， 陆地面积21.1平方公里，人口约1.3万人。
 
 ## 相关推荐
 
-- 2026-06-29 23:52 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-29 23:31 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-29 23:53 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 23:35 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 23:34 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 23:43 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-29 23:26 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-29 23:44 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 23:35 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-29 23:24 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-29 23:54 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 23:59 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-29 23:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 23:42 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-29 23:31 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-29 23:40 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-29 23:42 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 23:42 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-29 23:56 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-29 23:40 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 23:44 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 23:47 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-29 23:31 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 23:44 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:45 - [货车司机恶意闯卡逃费被行拘](http://www.share.minike.top/Article/details/68599727.shtml)
-- 2026-06-29 23:48 - [浙江进入梅雨最强“攻击时段”](https://www.blog.kurohicncr.top/Article/details/87592026.shtml)
-- 2026-06-29 23:50 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/135017149.shtml)
-- 2026-06-29 23:28 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/4893196337.shtml)
-- 2026-06-29 23:52 - [乔家的儿女](http://www.share.minike.top/Article/details/1340826967.shtml)
-- 2026-06-29 23:35 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/24420724.shtml)
-- 2026-06-29 23:49 - [绘画区你赢了](https://www.share.minike.top/Article/details/3248450.shtml)
-- 2026-06-29 23:25 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/28691.shtml)
-- 2026-06-29 23:49 - [一生一世](https://www.blog.minike.top/Article/details/5050148.shtml)
-- 2026-06-29 23:28 - [绘画区你赢了](http://www.blog.minike.top/Article/details/32955373.shtml)
-- 2026-06-29 23:42 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/042084540.shtml)
-- 2026-06-29 23:29 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/28988.shtml)
-- 2026-06-29 23:48 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/11071725896.shtml)
-- 2026-06-29 23:29 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/57769899.shtml)
-- 2026-06-29 23:43 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/89365.shtml)
+- 2026-06-29 23:47 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/510767065.shtml)
+- 2026-06-29 23:30 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/78467.shtml)
+- 2026-06-29 23:30 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/7167600.shtml)
+- 2026-06-29 23:42 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/987957.shtml)
+- 2026-06-29 23:55 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/857701.shtml)
+- 2026-06-29 23:55 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/88070.shtml)
+- 2026-06-29 23:50 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/77860114.shtml)
+- 2026-06-29 23:45 - [AI接过张雪峰志愿填报衣钵](https://www.blog.kurohicncr.top/Article/details/05250.shtml)
+- 2026-06-29 23:34 - [急先锋](http://www.share.kurohicncr.top/Article/details/26733470013.shtml)
+- 2026-06-29 23:48 - [乔家的儿女](http://www.share.minike.top/Article/details/03342997.shtml)
+- 2026-06-29 23:32 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/887090.shtml)
+- 2026-06-29 23:55 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/679780495770.shtml)
+- 2026-06-29 23:32 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/62073678.shtml)
+- 2026-06-29 23:37 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/055597.shtml)
+- 2026-06-29 23:57 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/7859568258.shtml)

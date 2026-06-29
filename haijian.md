@@ -1,56 +1,56 @@
-# 东京审判开庭80周年：坚守历史定论 守护人间正义
+# 普及防灾避险知识 西藏日喀则消防守护民生安全
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-原标题：蓝厅观察丨东京审判开庭80周年：坚守历史定论 守护人间正义 今年是东京审判开庭八十周年。这场载入史册的世纪大审判，以国际法为准绳、以海量铁证为支撑，依法裁定日本军国主义的滔天侵略罪行，构筑战后东亚和平秩序，成为捍卫国际公平正义的核心基石。 这几天，来自中国、俄罗斯、韩国、日本等多国专家学者齐聚上海，出席“纪念东京审判开庭八十周年国际研讨会”。与会中外学者在接受采访时表示
+中新网拉萨5月12日电(洛桑顿珠)5月12日是第18个全国防灾减灾日。当天，日喀则消防救援机动大队(以下简称：大队)消防救援人员深入城区商超、社区、公交站点等人员密集场所，创新采用“定点宣传+流动宣讲+实操演练”三位一体模式，开展沉浸式科普宣传活动。 活动现场，救援人员向过往群众发放藏汉双语防灾减灾宣传手册、海报等资料2000余份，面对面细致讲解高原地区火灾防控、地震应急逃生、
 
 ## 正文
 
-原标题：蓝厅观察丨东京审判开庭80周年：坚守历史定论 守护人间正义 今年是东京审判开庭八十周年。
+中新网拉萨5月12日电(洛桑顿珠)5月12日是第18个全国防灾减灾日。
 
-这场载入史册的世纪大审判，以国际法为准绳、以海量铁证为支撑，依法裁定日本军国主义的滔天侵略罪行，构筑战后东亚和平秩序，成为捍卫国际公平正义的核心基石。
+当天，日喀则消防救援机动大队(以下简称：大队)消防救援人员深入城区商超、社区、公交站点等人员密集场所，创新采用“定点宣传+流动宣讲+实操演练”三位一体模式，开展沉浸式科普宣传活动。
 
-这几天，来自中国、俄罗斯、韩国、日本等多国专家学者齐聚上海，出席“纪念东京审判开庭八十周年国际研讨会”。
+活动现场，救援人员向过往群众发放藏汉双语防灾减灾宣传手册、海报等资料2000余份，面对面细致讲解高原地区火灾防控、地震应急逃生、暴雪冰雹等极端天气避险、居家燃气用电安全等贴合本地生活的实用知识，针对农牧民群众、老年人、青少年等不同群体，用通俗易懂的语言拆解安全要点。
 
-与会中外学者在接受采访时表示，时隔八十年的今天，日本右翼势力质疑东京审判合法性、不断歪曲历史、推动修宪扩军，“新型军国主义”成势为患，给地区安全带来严峻风险。
+同时，消防救援人员现场演示灭火器、消防水带、应急救援包等器材的规范使用方法，手把手教学初期火灾扑救、伤员紧急救护、有序疏散逃生等实操技能，耐心解答群众咨询的日常安全隐患排查、家庭防火注意事项等各类问题，让抽象的安全知识转化为可操作、能掌握的实用技能，真正实现防灾减灾知识“入脑入心”。
 
-这些危险动向正在冲击东京审判与《联合国宪章》共同确立的战后国际秩序。
+“这些知识太实用了，我们高原地区天气多变，学会这些逃生自救技巧，不仅能保护自己，还能告诉家里的老人和孩子。
 
-东京审判：筑牢反侵略司法根基 八十年前的东京审判以法律方式清算20世纪30年代以来，日本军国主义在亚太地区发动侵略战争、制造反人类暴行的罪责，明确“侵略有罪、暴行必究”，为中韩等亚太受害国家抚平战争创伤、伸张历史正义提供了坚实法理依据，将日本军国主义的侵略本质与罪恶行径永久钉刻在历史耻辱柱上，筑牢了历史真相不容篡改、侵略罪责不容翻案的司法根基。
+”参与活动的当地市民扎西拿着宣传手册，连连为活动点赞。
 
-中国社会科学院日本研究所历史研究室主任、研究员金莹指出，当今世界并不太平。
+为扩大宣传覆盖面，让防灾减灾理念渗透城市各个角落，大队主动联合日喀则市委宣传部、市融媒体中心、交通运输部门等多方力量，强化部门联动协作。
 
-二战结束之后，战争不再出现的愿望到今天远没有实现。
+在全市主要公交站点、商业综合体、电影院、政务服务大厅等人员流动量大的公共场所，循环播放藏汉双语防灾减灾科普宣传片、公益广告，以直观生动的影像形式，向过往市民普及灾害防范、应急避险核心知识，实现线下宣传阵地全域覆盖、无死角传播。
 
 ## 相关推荐
 
-- 2026-06-29 23:32 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 23:53 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-29 23:45 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 23:40 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 23:49 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 23:31 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 23:24 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-29 23:31 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 23:39 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-29 23:47 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 23:30 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-29 23:58 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-29 23:55 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-29 23:35 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 23:42 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-29 23:45 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-29 23:34 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 23:54 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-29 23:52 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 23:52 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:48 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/798292888.shtml)
-- 2026-06-29 23:45 - [《贺子珍》](https://www.blog.minike.top/Article/details/95740997479.shtml)
-- 2026-06-29 23:37 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/7553839.shtml)
-- 2026-06-29 23:31 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/95286.shtml)
-- 2026-06-29 23:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/3957046.shtml)
-- 2026-06-29 23:34 - [月亮](https://www.share.minike.top/Article/details/6136542.shtml)
-- 2026-06-29 23:27 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/424380607.shtml)
-- 2026-06-29 23:30 - [扫黑风暴](https://www.blog.minike.top/Article/details/39517.shtml)
-- 2026-06-29 23:36 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/554130033.shtml)
-- 2026-06-29 23:38 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/2778734.shtml)
-- 2026-06-29 23:40 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/78696.shtml)
-- 2026-06-29 23:43 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/7075707.shtml)
-- 2026-06-29 23:36 - [追觅称质量不行终身包修也没意义](https://www.share.kurohicncr.top/Article/details/3757370079.shtml)
-- 2026-06-29 23:47 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/7949243099.shtml)
-- 2026-06-29 23:28 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/130320535.shtml)
+- 2026-06-29 23:35 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/685461.shtml)
+- 2026-06-29 23:31 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/260522.shtml)
+- 2026-06-29 23:54 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/25313.shtml)
+- 2026-06-29 23:34 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/12746.shtml)
+- 2026-06-29 23:41 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/523914116339.shtml)
+- 2026-06-29 23:38 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/4044105188.shtml)
+- 2026-06-29 23:46 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/19265900.shtml)
+- 2026-06-29 23:44 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/2116803.shtml)
+- 2026-06-29 23:34 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/44882119255.shtml)
+- 2026-06-29 23:54 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/2307881037.shtml)
+- 2026-06-29 23:45 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/244902.shtml)
+- 2026-06-29 23:41 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/53933231.shtml)
+- 2026-06-29 23:31 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/2653145.shtml)
+- 2026-06-29 23:30 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/9631530046.shtml)
+- 2026-06-29 23:38 - [爱很美味](http://www.share.minike.top/Article/details/7545923976.shtml)

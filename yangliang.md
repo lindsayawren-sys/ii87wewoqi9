@@ -1,59 +1,58 @@
-# 中国美院毕业季启幕 近三千件作品铺展“无墙的学院”
+# 通胀涨幅超过薪资增速，美国中产生活水准当下正出现下滑
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-中新网杭州6月1日电(曹丹)6月1日晚，随着一场融合影像、音乐与时装的开幕展演在浙江杭州上演，壮游·2026中国美术学院毕业季暨国际青年艺术对话正式启幕。本届毕业季设立九大展区，集中呈现2881位毕业生的近3000件毕业创作，以开放的姿态将艺术节日转化为一场面向全社会的文化盛会。 自2009年率先面向公众举办毕业展示周以来，中国美术学院不断打破学院围墙。2019年起，毕业展走向
+专题：美国4月消费者物价同比上涨3.8%，创2023年5月以来新高 作者：艾玛・奥克曼、本・沃施库尔 事实已然明确：物价涨幅已经超过劳动者薪资涨幅。 美国政府周二公布的数据显示，4 月消费者物价同比飙升 3.8%，而平均时薪仅上涨 3.6%。 海军联邦信用联盟首席经济学家希瑟・朗在社交平台 X 上发文表示： “近三年来，通胀首次完全吞噬了薪资涨幅。这让普通美国人倍感压力，家庭财
 
 ## 正文
 
-中新网杭州6月1日电(曹丹)6月1日晚，随着一场融合影像、音乐与时装的开幕展演在浙江杭州上演，壮游·2026中国美术学院毕业季暨国际青年艺术对话正式启幕。
+专题：美国4月消费者物价同比上涨3.8%，创2023年5月以来新高 作者：艾玛・奥克曼、本・沃施库尔 事实已然明确：物价涨幅已经超过劳动者薪资涨幅。
 
-本届毕业季设立九大展区，集中呈现2881位毕业生的近3000件毕业创作，以开放的姿态将艺术节日转化为一场面向全社会的文化盛会。
+美国政府周二公布的数据显示，4 月消费者物价同比飙升 3.8%，而平均时薪仅上涨 3.6%。
 
-自2009年率先面向公众举办毕业展示周以来，中国美术学院不断打破学院围墙。
+海军联邦信用联盟首席经济学家希瑟・朗在社交平台 X 上发文表示： “近三年来，通胀首次完全吞噬了薪资涨幅。
 
-2019年起，毕业展走向杭城，形成内外打通、“无墙的学院”。
+这让普通美国人倍感压力，家庭财务被严重挤压。
 
-今年毕业季以“壮游”为主题，倡导学子在行走中体认天地、以经验拓展心灵——山川即课堂，风云皆典籍，艺术在流动世界中建立形式。
+” 会计师事务所 RSM 首席经济学家乔・布鲁苏埃拉斯补充道： “对于中产阶层、工薪阶层以及贫困工薪群体而言，他们将首当其冲承受冲击。
 
-当晚的开幕现场，秀道如远行之路延伸，主题曲《壮游》以音乐回应青年人的理想与时代情绪。
+这意味着，当下他们的生活水准正在倒退。
 
-近140套毕业设计时装组成四大叙事篇章，与纪录片《我照见我》等影像作品交织，构成一次关于启程的空间叙事。
+” 民生与政治影响 美国工薪阶层收入形势出现逆转，势必引发政治连锁反应。
 
-作为毕业季的重要组成部分，“2026国际青年艺术对话”系列活动同步开启，下设国际艺术院校校长对话、国际青年艺术家对话及“感知中国·四海艺同”国际青年艺术作品展三项活动，汇聚20余所国际美院院长与50余个国家和地区青年艺术家，形成覆盖创作、教学、研究、评论和策展的系统网络。
+自上任以来，特朗普政府频繁强调实际薪资概念 —— 即扣除通胀侵蚀后的真实收入水平，以此宣称在其执政下民众生活正在变好。
 
 ## 相关推荐
 
-- 2026-06-29 23:34 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 23:28 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 23:42 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-29 23:52 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 23:38 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-29 23:51 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-29 23:26 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-29 23:45 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-29 23:52 - [返利科技盘中上演“天地板”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 23:46 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-29 23:49 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-29 23:40 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-29 23:51 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 23:31 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-29 23:31 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-29 23:52 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-29 23:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 23:35 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 23:47 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-29 23:42 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-29 23:42 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-29 23:52 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 23:40 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 23:41 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-29 23:30 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:46 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/8614736955.shtml)
-- 2026-06-29 23:50 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/7142456235.shtml)
-- 2026-06-29 23:39 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/92537488693.shtml)
-- 2026-06-29 23:39 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/047101577.shtml)
-- 2026-06-29 23:48 - [一台空调背后的全球化逻辑](https://www.blog.minike.top/Article/details/7812015.shtml)
-- 2026-06-29 23:46 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/72610192579.shtml)
-- 2026-06-29 23:29 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/47043806.shtml)
-- 2026-06-29 23:35 - [国际清算银行警告AI投资热潮](http://www.blog.minike.top/Article/details/5702751.shtml)
-- 2026-06-29 23:42 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/5986592800.shtml)
-- 2026-06-29 23:44 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/7174252354.shtml)
-- 2026-06-29 23:33 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/22750894.shtml)
-- 2026-06-29 23:35 - [国际清算银行警告AI投资热潮](http://www.share.minike.top/Article/details/4192300662.shtml)
-- 2026-06-29 23:46 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/5412423330.shtml)
-- 2026-06-29 23:35 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/35555.shtml)
-- 2026-06-29 23:53 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/074130843.shtml)
+- 2026-06-29 23:56 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/627951.shtml)
+- 2026-06-29 23:33 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/460243450.shtml)
+- 2026-06-29 23:58 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/004875886.shtml)
+- 2026-06-29 23:55 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/771895850.shtml)
+- 2026-06-29 23:52 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/65496988643.shtml)
+- 2026-06-29 23:36 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/80597.shtml)
+- 2026-06-29 23:35 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/39876667.shtml)
+- 2026-06-29 23:53 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/78751666.shtml)
+- 2026-06-29 23:30 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/9562471.shtml)
+- 2026-06-29 23:52 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/5667620.shtml)
+- 2026-06-29 23:56 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/5763216393.shtml)
+- 2026-06-29 23:44 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/35378.shtml)
+- 2026-06-29 23:41 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/47296802066.shtml)
+- 2026-06-29 23:37 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/7283646471.shtml)
+- 2026-06-29 23:38 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/277552117.shtml)

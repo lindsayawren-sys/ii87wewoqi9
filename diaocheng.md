@@ -1,57 +1,60 @@
-# 国家医疗保障局发布《2026年国家基本医疗保险、生育保险和工伤保险药品目录及商业健康保险创新药品目录调整工作方案》等相关文件
+# 一字跌停！ST文峰控制权变更告吹!
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-中新网5月31日电 据国家医保局网站消息，国家医疗保障局31日通知，根据工作安排，现将《2026年国家基本医疗保险、生育保险和工伤保险药品目录及商业健康保险创新药品目录调整工作方案》《2026年国家基本医疗保险、生育保险和工伤保险药品目录及商业健康保险创新药品目录调整申报指南》《谈判药品续约规则》以及《非独家药品竞价规则》正式发布。同时，为帮助社会各界加深对政策的理解，组织编制
+一字跌停！这家公司控制权变更告吹！ 本报记者 曹卫新 停牌两个交易日后，文峰大世界连锁发展股份有限公司（以下简称“ST文峰”）发布控制权变更事项进展公告。 5月12日，ST文峰对外宣布，停牌期间，公司控股股东江苏文峰集团有限公司（以下简称“文峰集团”）与意向受让方就控制权转让事宜进行了充分沟通。但因所涉事项较多，相关交易方经慎重考虑、磋商，认真听取各方意见，终止筹划本次控制权变
 
 ## 正文
 
-中新网5月31日电 据国家医保局网站消息，国家医疗保障局31日通知，根据工作安排，现将《2026年国家基本医疗保险、生育保险和工伤保险药品目录及商业健康保险创新药品目录调整工作方案》《2026年国家基本医疗保险、生育保险和工伤保险药品目录及商业健康保险创新药品目录调整申报指南》《谈判药品续约规则》以及《非独家药品竞价规则》正式发布。
+一字跌停！
 
-同时，为帮助社会各界加深对政策的理解，组织编制了《国家基本医疗保险、生育保险和工伤保险药品目录及商业健康保险创新药品目录调整常用问答(2026年版)》，在此一并公布。
+这家公司控制权变更告吹！
 
-2026年6月1日-6月10日，国家医保局国家医保服务平台(网址：https://fuwu.nhsa.gov.cn/)开通网上申报系统，请符合条件的申报主体予以关注。
+本报记者 曹卫新 停牌两个交易日后，文峰大世界连锁发展股份有限公司（以下简称“ST文峰”）发布控制权变更事项进展公告。
 
-需要说明的是，因今年整体工作时间提前，《工作方案》在社会公开征求意见过程中，我们收到较多企业关于适当延长截止日期的反映。
+5月12日，ST文峰对外宣布，停牌期间，公司控股股东江苏文峰集团有限公司（以下简称“文峰集团”）与意向受让方就控制权转让事宜进行了充分沟通。
 
-为尽量减少对行业的影响，更好体现对医药创新的支持，在国家药监部门大力支持下，决定将药品申报条件的截止时间延后为“6月10日前已正式获批或完成技术评审”。
+但因所涉事项较多，相关交易方经慎重考虑、磋商，认真听取各方意见，终止筹划本次控制权变更事项。
 
-自2027年开始，截止日期将确定为方案发布之日。
+此前，公司于2026年5月7日收到控股股东文峰集团通知，正在筹划公司股份转让事宜，该事项可能导致公司的控制权变更。
 
-附件：1.2026年国家基本医疗保险、生育保险和工伤保险药品目录及商业健康保险创新药品目录调整工作方案 2.2026年国家基本医疗保险、生育保险和工伤保险药品目录及商业健康保险创新药品目录调整申报指南 3.谈判药品续约规则 4.非独家药品竞价规则 5.国家基本医疗保险、生育保险和工伤保险药品目录及商业健康保险创新药品目录调整常用问答(2026年版)
+根据《上海证券交易所股票上市规则》《上海证券交易所上市公司自律监管指引第 4 号——停复牌》等有关规定，经申请，公司股票自2026年5月8日开市起停牌。
+
+因控股股东终止控制权变更事项，ST文峰股票于2026年5月12日开市起复牌。
 
 ## 相关推荐
 
-- 2026-06-29 23:50 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-29 23:45 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-29 23:47 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 23:43 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 23:51 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-29 23:44 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-29 23:51 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 23:31 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-29 23:38 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-29 23:32 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-29 23:28 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 23:38 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-29 23:38 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-29 23:48 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 23:54 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-29 23:47 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 23:46 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-29 23:31 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-29 23:38 - [TOP Prada](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 23:56 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 23:55 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 23:48 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-29 23:42 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 23:47 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-29 23:43 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 23:42 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-29 23:35 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:42 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/2768156.shtml)
-- 2026-06-29 23:31 - [MG总经理直播被冲](http://www.share.minike.top/Article/details/127354892071.shtml)
-- 2026-06-29 23:43 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/84890.shtml)
-- 2026-06-29 23:53 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/4289107.shtml)
-- 2026-06-29 23:36 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/1048720.shtml)
-- 2026-06-29 23:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/790729185305.shtml)
-- 2026-06-29 23:30 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/9714419.shtml)
-- 2026-06-29 23:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/822382752965.shtml)
-- 2026-06-29 23:28 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/4587970.shtml)
-- 2026-06-29 23:45 - [一生一世](https://www.blog.kurohicncr.top/Article/details/19654343816.shtml)
-- 2026-06-29 23:44 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/0489284291.shtml)
-- 2026-06-29 23:46 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/86708089197.shtml)
-- 2026-06-29 23:49 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/892672.shtml)
-- 2026-06-29 23:51 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/97677.shtml)
-- 2026-06-29 23:41 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/32535726.shtml)
+- 2026-06-29 23:34 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/1914819.shtml)
+- 2026-06-29 23:40 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/36774.shtml)
+- 2026-06-29 23:50 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/7606300956.shtml)
+- 2026-06-29 23:35 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/91822035766.shtml)
+- 2026-06-29 23:53 - [汪苏泷年度歌手](http://www.share.minike.top/Article/details/43727317403.shtml)
+- 2026-06-29 23:47 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/5615765.shtml)
+- 2026-06-29 23:30 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/18337.shtml)
+- 2026-06-29 23:36 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/0709505240.shtml)
+- 2026-06-29 23:48 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/6958120.shtml)
+- 2026-06-29 23:40 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/252134623671.shtml)
+- 2026-06-29 23:33 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/6673028547.shtml)
+- 2026-06-29 23:58 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/630991768304.shtml)
+- 2026-06-29 23:36 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/29189910721.shtml)
+- 2026-06-29 23:53 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/96028.shtml)
+- 2026-06-29 23:55 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/91084032.shtml)

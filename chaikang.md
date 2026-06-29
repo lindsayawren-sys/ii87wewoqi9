@@ -1,57 +1,58 @@
-# 欧美同学会（中国留学人员联谊会）第二次全国会员代表大会召开 李干杰出席开幕会并讲话
+# 广东将有大暴雨 局部或有龙卷
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-新华社北京6月1日电 欧美同学会(中国留学人员联谊会)第二次全国会员代表大会1日在京召开。中共中央政治局委员、中央统战部部长李干杰出席开幕会并讲话。 李干杰表示，五年来，欧美同学会坚持以习近平新时代中国特色社会主义思想为指导，深入贯彻落实习近平总书记重要讲话和重要贺信精神，始终把政治建设摆在首位，强化思想引领，服务党和国家中心大局，持续完善组织体系建设，开创事业发展新局面。 李
+中新网广州5月13日电 (记者 王坚)12日白天到13日早晨，粤北和粤东市县出现了(雷)阵雨局部大雨。广东省气象局预计，13日午后至14日，全省有大雨到暴雨局部大暴雨，珠三角中南部地区局部可能有特大暴雨；雷雨时部分市县伴有8至10级短时大风、局部有小冰雹和龙卷。据广东气象部门统计，截至13日16时30分，广宁、四会、高要雷雨大风橙色预警信号处于生效中，信宜、罗定、郁南、德庆、封
 
 ## 正文
 
-新华社北京6月1日电 欧美同学会(中国留学人员联谊会)第二次全国会员代表大会1日在京召开。
+中新网广州5月13日电 (记者 王坚)12日白天到13日早晨，粤北和粤东市县出现了(雷)阵雨局部大雨。
 
-中共中央政治局委员、中央统战部部长李干杰出席开幕会并讲话。
+广东省气象局预计，13日午后至14日，全省有大雨到暴雨局部大暴雨，珠三角中南部地区局部可能有特大暴雨；雷雨时部分市县伴有8至10级短时大风、局部有小冰雹和龙卷。
 
-李干杰表示，五年来，欧美同学会坚持以习近平新时代中国特色社会主义思想为指导，深入贯彻落实习近平总书记重要讲话和重要贺信精神，始终把政治建设摆在首位，强化思想引领，服务党和国家中心大局，持续完善组织体系建设，开创事业发展新局面。
+据广东气象部门统计，截至13日16时30分，广宁、四会、高要雷雨大风橙色预警信号处于生效中，信宜、罗定、郁南、德庆、封开、怀集、清新、肇庆、三水雷雨大风黄色预警信号处于生效中。
 
-李干杰表示，以习近平同志为核心的党中央高度重视留学人员工作，习近平总书记作出一系列重要论述，为做好新时代留学人员工作指明了前进方向、提供了根本遵循。
+广东省气象局预计，13日午后至14日，全省有大雨到暴雨局部大暴雨，珠三角中南部地区局部可能有特大暴雨；雷雨时部分市县伴有8至10级短时大风、局部有小冰雹和龙卷；15日，中北部市县降水减弱，南部市县有大雨局部暴雨或大暴雨；16至18日，中南部市县仍有明显降水，局部雨势强烈。
 
-欧美同学会要坚持正确政治方向，加强对留学人员的团结引导。
+其中，13日夜间到14日，珠三角、粤北、阳江、粤东、茂名北部有大到暴雨局部大暴雨；其中珠三角可能局部有特大暴雨，其余市县多云到阴天，有中到大雨。
 
-要着眼“十五五”时期经济社会发展任务要求，发挥“留学报国人才库、建言献策智囊团、民间外交生力军”优势作用。
+15日，南部市县阴天，有大雨局部暴雨或大暴雨，其余市县多云间阴天，有(雷)阵雨局部大雨。
 
-要发扬改革创新精神，不断提高引领力、组织力、服务力。
+气象专家提醒，近期，雨时能见度下降、路面湿滑，注意交通安全。
 
-全国人大常委会副委员长、欧美同学会会长丁仲礼代表第八届理事会作工作报告。
+同时，要注意防御强降水及其引发的局地山洪、泥石流、滑坡、崩塌等地质灾害、城乡积涝、农田渍涝等次生灾害；警惕强降水导致的中小河流洪水风险。
 
 ## 相关推荐
 
-- 2026-06-29 23:37 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-29 23:30 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 23:35 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 23:50 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-29 23:29 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 23:46 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-29 23:46 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-29 23:25 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-29 23:32 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-29 23:47 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-29 23:33 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 23:37 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-29 23:53 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-29 23:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 23:34 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-29 23:57 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-29 23:39 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-29 23:56 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 23:52 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-29 23:57 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 23:53 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-29 23:57 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 23:36 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:51 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/319799658088.shtml)
-- 2026-06-29 23:44 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/5309270967.shtml)
-- 2026-06-29 23:48 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/703857282.shtml)
-- 2026-06-29 23:38 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/25608444.shtml)
-- 2026-06-29 23:30 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/3214939235.shtml)
-- 2026-06-29 23:33 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/30868581.shtml)
-- 2026-06-29 23:38 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/891707279499.shtml)
-- 2026-06-29 23:29 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/895129101.shtml)
-- 2026-06-29 23:45 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/590128835.shtml)
-- 2026-06-29 23:51 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/873584748.shtml)
-- 2026-06-29 23:51 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/3525289631.shtml)
-- 2026-06-29 23:24 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/48050.shtml)
-- 2026-06-29 23:51 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/8241195.shtml)
-- 2026-06-29 23:38 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/285921981275.shtml)
-- 2026-06-29 23:44 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/16007173534.shtml)
+- 2026-06-29 23:50 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/512007804079.shtml)
+- 2026-06-29 23:49 - [6.5万观众40分钟“丝滑”离场](https://www.blog.kurohicncr.top/Article/details/21178.shtml)
+- 2026-06-29 23:50 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/78562741672.shtml)
+- 2026-06-29 23:43 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/442140238.shtml)
+- 2026-06-29 23:56 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/96598.shtml)
+- 2026-06-29 23:53 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/57584182.shtml)
+- 2026-06-29 23:59 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/128388513.shtml)
+- 2026-06-29 23:47 - [送你一朵小红花](https://www.share.minike.top/Article/details/6153945070.shtml)
+- 2026-06-29 23:51 - [荷兰VS摩洛哥你看好谁](https://www.share.minike.top/Article/details/37897248.shtml)
+- 2026-06-29 23:36 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/203816605.shtml)
+- 2026-06-29 23:40 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/397421271.shtml)
+- 2026-06-29 23:37 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/229103.shtml)
+- 2026-06-29 23:39 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/5484038387.shtml)
+- 2026-06-29 23:57 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/045297.shtml)
+- 2026-06-29 23:43 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/6367233.shtml)

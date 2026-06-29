@@ -1,59 +1,56 @@
-# 注意！国家统计局6月1日启动入户调查，请积极配合！调查结果将用于加强人口变动统计，服务人口高质量发展
+# “三不明”中成药或从医保目录“清退” 专家解读
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-请注意！请注意！入户调查6月1日启动！ 日前，国家统计局发布公告称，将于2026年在全国范围内开展两次人口固定样本跟访调查。 国家统计局决定于2026年在全国范围内开展两次人口固定样本跟访调查。调查结果将用于加强人口变动统计，服务人口高质量发展。 两次调查的标准时点分别为6月1日零时和11月1日零时。6月1日至6月25日和11月16日至12月5日期间，调查员将入户开展调查工作。
+“三不明”中成药或从医保目录“清退” 对患者有何影响？专家解读 近日，2026年国家基本医疗保险药品目录调整工作方案公开征求意见。在优化和调整方面，方案明确，根据国家药监局发布的《中药注册管理专门规定》，将说明书中禁忌、不良反应、注意事项为尚不明确且未在规定时间内完善的中成药，作为重点考虑调出的品种。“三不明”中成药或将迎来医保目录“清退”，释放出怎样的信号？对患者用药又有多大
 
 ## 正文
 
-请注意！
+“三不明”中成药或从医保目录“清退” 对患者有何影响？
 
-请注意！
+专家解读 近日，2026年国家基本医疗保险药品目录调整工作方案公开征求意见。
 
-入户调查6月1日启动！
+在优化和调整方面，方案明确，根据国家药监局发布的《中药注册管理专门规定》，将说明书中禁忌、不良反应、注意事项为尚不明确且未在规定时间内完善的中成药，作为重点考虑调出的品种。
 
-日前，国家统计局发布公告称，将于2026年在全国范围内开展两次人口固定样本跟访调查。
+“三不明”中成药或将迎来医保目录“清退”，释放出怎样的信号？
 
-国家统计局决定于2026年在全国范围内开展两次人口固定样本跟访调查。
+对患者用药又有多大影响？
 
-调查结果将用于加强人口变动统计，服务人口高质量发展。
+在本次医保目录药品的调出重点考虑方面，国家医保局参照了国家药监局于2023年发布的《中药注册管理专门规定》。
 
-两次调查的标准时点分别为6月1日零时和11月1日零时。
+该《规定》明确，自当年7月1日起，中药说明书禁忌、不良反应、注意事项中任何一项，满3年后申请药品再注册时仍标注为“尚不明确”的，依法不予再注册。
 
-6月1日至6月25日和11月16日至12月5日期间，调查员将入户开展调查工作。
+在华中科技大学同济医学院药品政策与管理研究中心主任陈昊看来，早年中成药审批侧重传统经验，缺乏足够的临床数据支撑，而本次医保目录调整规则的变化，正是对此前行业监管政策的有效衔接。
 
 ## 相关推荐
 
-- 2026-06-29 23:39 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-29 23:51 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 23:29 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-29 23:52 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 23:51 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 23:44 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 23:39 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-29 23:32 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 23:43 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-29 23:24 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-29 23:32 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 23:38 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-29 23:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 23:59 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-29 23:58 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-29 23:58 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-29 23:55 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-29 23:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 23:56 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-29 23:43 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-29 23:31 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 23:45 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-29 23:50 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:50 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/129121985117.shtml)
-- 2026-06-29 23:52 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/086947739.shtml)
-- 2026-06-29 23:47 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/92834.shtml)
-- 2026-06-29 23:41 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/641273344.shtml)
-- 2026-06-29 23:35 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/175723.shtml)
-- 2026-06-29 23:33 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/210262824.shtml)
-- 2026-06-29 23:40 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/869272.shtml)
-- 2026-06-29 23:46 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/077909084689.shtml)
-- 2026-06-29 23:46 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/50921.shtml)
-- 2026-06-29 23:50 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/111794618678.shtml)
-- 2026-06-29 23:45 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/63458109.shtml)
-- 2026-06-29 23:35 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/150429022102.shtml)
-- 2026-06-29 23:28 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/8862724.shtml)
-- 2026-06-29 23:41 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/93572922405.shtml)
-- 2026-06-29 23:42 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/5623486.shtml)
+- 2026-06-29 23:59 - [第一炉香](https://www.share.kurohicncr.top/Article/details/009417839.shtml)
+- 2026-06-29 23:33 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/40569.shtml)
+- 2026-06-29 23:49 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/734909630.shtml)
+- 2026-06-29 23:56 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/5541946.shtml)
+- 2026-06-29 23:43 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/21195125.shtml)
+- 2026-06-29 23:58 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/92781.shtml)
+- 2026-06-29 23:53 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/7238597178.shtml)
+- 2026-06-29 23:34 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/520439138.shtml)
+- 2026-06-29 23:44 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/533549.shtml)
+- 2026-06-29 23:34 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/52021119587.shtml)
+- 2026-06-29 23:42 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/19062424570.shtml)
+- 2026-06-29 23:46 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/8413622718.shtml)
+- 2026-06-29 23:47 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/391387001.shtml)
+- 2026-06-29 23:46 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/748170973776.shtml)
+- 2026-06-29 23:50 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/76849844344.shtml)

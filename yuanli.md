@@ -1,52 +1,58 @@
-# 香港组建“机器人义工队” 机器狗将走进香港安老院
+# 印度将黄金和白银关税上调至15% 以遏制进口并支撑卢比汇率
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月30日 12:14 来源：中国新闻网 5月29日，香港机器人义工队协会举行启动仪式。现场展现了多个将用于义工队的机器人、机器狗。据介绍，这些机器产品将在探访安老院、社区关爱等公益活动中发挥陪伴的价值。 普斯特有限公司创办人许佩珊表示，学生完成课程后将加入机器人义工队，参与政府或慈善团体的活动，展示所学技能。(记者 周圣昀) 责任编辑：【王凯】
+印度政府周三发布命令称，已将黄金和白银的进口关税从6%上调至15%，以遏制贵金属的海外采购，并缓解外汇储备面临的压力。尽管提高关税可能有助于缩小印度的贸易逆差并支撑卢比（亚洲表现最差的货币之一），但也可能抑制这个全球第二大贵金属消费国的需求。不过行业人士警告称，进口税的提高可能会重新刺激走私活动--自印度在2024年中期下调关税以来，走私情况已有所缓解。“正如预期，政府提高了关
 
 ## 正文
 
-发布时间：2026年05月30日 12:14 来源：中国新闻网 5月29日，香港机器人义工队协会举行启动仪式。
+印度政府周三发布命令称，已将黄金和白银的进口关税从6%上调至15%，以遏制贵金属的海外采购，并缓解外汇储备面临的压力。
 
-现场展现了多个将用于义工队的机器人、机器狗。
+尽管提高关税可能有助于缩小印度的贸易逆差并支撑卢比（亚洲表现最差的货币之一），但也可能抑制这个全球第二大贵金属消费国的需求。
 
-据介绍，这些机器产品将在探访安老院、社区关爱等公益活动中发挥陪伴的价值。
+不过行业人士警告称，进口税的提高可能会重新刺激走私活动--自印度在2024年中期下调关税以来，走私情况已有所缓解。
 
-普斯特有限公司创办人许佩珊表示，学生完成课程后将加入机器人义工队，参与政府或慈善团体的活动，展示所学技能。
+“正如预期，政府提高了关税以遏制经常账赤字。
 
-(记者 周圣昀) 责任编辑：【王凯】
+但此举可能会影响需求，因为金银价格本已处于高位，”印度金银珠宝协会全国秘书Surendra Mehta表示。
+
+近几周，印度一直试图遏制黄金进口，并开始对黄金和白银进口征收3%的综合商品和服务税（IGST），导致银行暂停进口超过一个月。
+
+受此影响，4月黄金进口量跌至近30年来的最低水平。
+
+交易商表示，银行在缴纳了3%的IGST后已恢复进口，但在关税上调后，进口量可能再次下降。
 
 ## 相关推荐
 
-- 2026-06-29 23:33 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 23:48 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-29 23:48 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-29 23:50 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-29 23:52 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 23:32 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 23:51 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-29 23:34 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-29 23:34 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 23:29 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-29 23:38 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-29 23:47 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 23:45 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 23:48 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 23:39 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 23:33 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 23:50 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 23:52 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-29 23:46 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-29 23:40 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 23:39 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-29 23:30 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-29 23:32 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 23:57 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:24 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/0975898776.shtml)
-- 2026-06-29 23:51 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/91199095694.shtml)
-- 2026-06-29 23:52 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/3801306.shtml)
-- 2026-06-29 23:28 - [格莱美唱作人锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/932270.shtml)
-- 2026-06-29 23:51 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/54084.shtml)
-- 2026-06-29 23:41 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.minike.top/Article/details/559138519472.shtml)
-- 2026-06-29 23:42 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/79435.shtml)
-- 2026-06-29 23:34 - [美国一牛仔表演发生事故](http://www.blog.kurohicncr.top/Article/details/01535893684.shtml)
-- 2026-06-29 23:33 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/296986.shtml)
-- 2026-06-29 23:25 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/2641000185.shtml)
-- 2026-06-29 23:53 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/047790974.shtml)
-- 2026-06-29 23:45 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/1351939.shtml)
-- 2026-06-29 23:34 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/12990404.shtml)
-- 2026-06-29 23:30 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/982064961674.shtml)
-- 2026-06-29 23:30 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/541492.shtml)
+- 2026-06-29 23:46 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/2953380.shtml)
+- 2026-06-29 23:42 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/505364823.shtml)
+- 2026-06-29 23:45 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/2342333987.shtml)
+- 2026-06-29 23:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/75660.shtml)
+- 2026-06-29 23:49 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/54345991.shtml)
+- 2026-06-29 23:40 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/31578704.shtml)
+- 2026-06-29 23:46 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/796290766.shtml)
+- 2026-06-29 23:48 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/4795135.shtml)
+- 2026-06-29 23:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/64810336.shtml)
+- 2026-06-29 23:35 - [起风了](http://www.blog.kurohicncr.top/Article/details/947392.shtml)
+- 2026-06-29 23:54 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/13951917.shtml)
+- 2026-06-29 23:35 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/669629.shtml)
+- 2026-06-29 23:33 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/124049.shtml)
+- 2026-06-29 23:44 - [小娘惹](https://www.share.minike.top/Article/details/579625.shtml)
+- 2026-06-29 23:43 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/5478903118.shtml)

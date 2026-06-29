@@ -1,57 +1,59 @@
-# 云通信平台提供商8x8公司公布2026年度合作伙伴奖得主
+# 市场预期上调 回升动能积蓄——透视4月份我国物流业相关数据
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-云通信平台提供商8x8 Inc．近日公布了2026年度合作伙伴奖获奖名单，表彰在2026财年推动最强收入增长、新客户获取和同比业绩的渠道合作伙伴。奖项涵盖北美、欧洲中东及非洲以及澳大利亚新西兰三大区域，共设九个类别。 8x8全球渠道销售负责人Emily Masterton表示，合作伙伴是8x8一切工作的核心，今年的获奖者代表了双方携手进入市场时所能达到的最佳水平。这些团队全力以
+新华社北京5月11日电 题：市场预期上调 回升动能积蓄——透视4月份我国物流业相关数据 新华社记者叶昊鸣 中国物流与采购联合会11日发布数据显示，4月份，中国物流业景气指数为49.7%。产业链供应链复产平稳推进，资金周转率指数、物流服务价格指数、固定资产投资完成额指数、从业人员指数、业务活动预期指数等指标均处于景气区间。 供需总体保持平稳。分地区来看，4月份，我国东部地区和中部
 
 ## 正文
 
-云通信平台提供商8x8 Inc．近日公布了2026年度合作伙伴奖获奖名单，表彰在2026财年推动最强收入增长、新客户获取和同比业绩的渠道合作伙伴。
+新华社北京5月11日电 题：市场预期上调 回升动能积蓄——透视4月份我国物流业相关数据 新华社记者叶昊鸣 中国物流与采购联合会11日发布数据显示，4月份，中国物流业景气指数为49.7%。
 
-奖项涵盖北美、欧洲中东及非洲以及澳大利亚新西兰三大区域，共设九个类别。
+产业链供应链复产平稳推进，资金周转率指数、物流服务价格指数、固定资产投资完成额指数、从业人员指数、业务活动预期指数等指标均处于景气区间。
 
-8x8全球渠道销售负责人Emily Masterton表示，合作伙伴是8x8一切工作的核心，今年的获奖者代表了双方携手进入市场时所能达到的最佳水平。
+供需总体保持平稳。
 
-这些团队全力以赴，为共同客户交付了实实在在的成果。
+分地区来看，4月份，我国东部地区和中部地区业务总量指数分别为49.5%和49.4%。
 
-她为表彰他们感到无比自豪，并对接下来将共同构建的事业感到更加兴奋。
+西部地区物流业务总量指数为50.2%，保持在景气区间。
 
-2026年度获奖名单 年度代理合作伙伴：北美为Optus，欧洲中东及非洲为Softcat。
+新订单指数为49.8%，连续2个月回升。
 
-年度转售合作伙伴：北美为Spectrotel，欧洲中东及非洲为Wavenet。
+分地区来看，4月份，我国东部地区和西部地区新订单指数环比分别回升0.3和0.8个百分点。
 
-年度合作伙伴（澳大利亚新西兰）：Arrow Voice and Data。
+分行业来看，我国邮政快递业、道路运输业、铁路运输业、航空运输业新订单指数环比回升，涨幅在0.3至0.6个百分点。
 
 ## 相关推荐
 
-- 2026-06-29 23:43 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-29 23:43 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-29 23:27 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-29 23:34 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 23:31 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-29 23:53 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 23:34 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-29 23:52 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 23:38 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 23:24 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-29 23:39 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-29 23:57 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 23:33 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 23:53 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-29 23:34 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-29 23:40 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-29 23:48 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 23:40 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-29 23:53 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 23:51 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 23:46 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 23:42 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-29 23:57 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-29 23:55 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:32 - [急先锋](http://www.blog.minike.top/Article/details/059573359.shtml)
-- 2026-06-29 23:44 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/523007.shtml)
-- 2026-06-29 23:34 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/27324389.shtml)
-- 2026-06-29 23:45 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/70456.shtml)
-- 2026-06-29 23:25 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/00713.shtml)
-- 2026-06-29 23:26 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/782460615086.shtml)
-- 2026-06-29 23:32 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/353989046.shtml)
-- 2026-06-29 23:45 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/7655181294.shtml)
-- 2026-06-29 23:48 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/089534400573.shtml)
-- 2026-06-29 23:47 - [女心理师](http://www.blog.kurohicncr.top/Article/details/386541895.shtml)
-- 2026-06-29 23:35 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/9747503.shtml)
-- 2026-06-29 23:25 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/13028.shtml)
-- 2026-06-29 23:43 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/17911183359.shtml)
-- 2026-06-29 23:26 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/18593.shtml)
-- 2026-06-29 23:42 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/2615185375.shtml)
+- 2026-06-29 23:35 - [赵今麦电影开端客串路透](http://www.blog.kurohicncr.top/Article/details/91335.shtml)
+- 2026-06-29 23:40 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/76075847151.shtml)
+- 2026-06-29 23:35 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/17187249126.shtml)
+- 2026-06-29 23:53 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/346219300.shtml)
+- 2026-06-29 23:45 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/39719989.shtml)
+- 2026-06-29 23:54 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/457524825.shtml)
+- 2026-06-29 23:51 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/62655887970.shtml)
+- 2026-06-29 23:33 - [金刚川](http://www.share.kurohicncr.top/Article/details/610038.shtml)
+- 2026-06-29 23:31 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/40102003935.shtml)
+- 2026-06-29 23:37 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/790630576.shtml)
+- 2026-06-29 23:43 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/09655379.shtml)
+- 2026-06-29 23:44 - [高考1357分的同学如何报志愿？](http://www.share.minike.top/Article/details/5157986487.shtml)
+- 2026-06-29 23:44 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/95485504.shtml)
+- 2026-06-29 23:41 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/9761354.shtml)
+- 2026-06-29 23:54 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/212105.shtml)

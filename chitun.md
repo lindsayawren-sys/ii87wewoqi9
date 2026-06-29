@@ -1,56 +1,59 @@
-# 中银国际：滔搏目标价下调至2.90港元 维持“持有”评级
+# 公募基金减持超2000亿元银行股，险资、社保基金逆势加仓
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-中银国际发布研报称，下调滔搏（06110）目标价12.1%，从3.3港元降至2.9港元，维持“持有”评级。该行表示，滔搏2026财年净利润为12.67亿元人民币（同比减2%），基本上符合该行预期。受惠于组织架构精简，下半年净利润同比增16%，呈现一定的环比改善态势。然而，就2026财年全年而言，净关店数量达660家，高于预期，反映出其全渠道策略的推进仍持续面临压力。 展望202
+2026年一季度的A股市场，机构资金正在上演一场鲜明的“攻防转换”。 一边是公募基金中的股票型基金正撤离银行板块：一季度，超2000亿元市值的银行股被减持，资金大举转向制造业与科技赛道。 业内人士认为，4月中旬后银行股普跌，很可能与公募等大资金的“搬家”离场直接相关。事实上，银行板块年初至今市值已缩水超过6000亿元，这也在一定程度上印证了上述判断。 另一边，险资与社保基金却在
 
 ## 正文
 
-中银国际发布研报称，下调滔搏（06110）目标价12.1%，从3.3港元降至2.9港元，维持“持有”评级。
+2026年一季度的A股市场，机构资金正在上演一场鲜明的“攻防转换”。
 
-该行表示，滔搏2026财年净利润为12.67亿元人民币（同比减2%），基本上符合该行预期。
+一边是公募基金中的股票型基金正撤离银行板块：一季度，超2000亿元市值的银行股被减持，资金大举转向制造业与科技赛道。
 
-受惠于组织架构精简，下半年净利润同比增16%，呈现一定的环比改善态势。
+业内人士认为，4月中旬后银行股普跌，很可能与公募等大资金的“搬家”离场直接相关。
 
-然而，就2026财年全年而言，净关店数量达660家，高于预期，反映出其全渠道策略的推进仍持续面临压力。
+事实上，银行板块年初至今市值已缩水超过6000亿元，这也在一定程度上印证了上述判断。
 
-展望2027财年，旗下耐克正积极清理库存、为在华业务重塑铺路，其相对疲软的表现或将继续拖累滔搏的业绩表现。
+另一边，险资与社保基金却在逆势加仓银行股。
 
-鉴于公司在2027财年将持续推进门店收缩，该行认为滔搏实现净利年持平这一指引目标仍面临一定挑战。
+一季度，险资增持中国银行、工商银行、兴业银行等上市银行股份，单家增持规模均达上亿股；社保基金则在一季度继续重仓持有银行股。
 
-尽管如此，滔搏的股息政策仍具一定吸引力，公司计划派发相当于2026财年净利137%的股息，预计为股价提供一定支撑，限制下行风险。
+多位业内专家认为，银行板块的资金流出，直接原因是被动型基金（如指数ETF）赎回。
 
-责任编辑：卢昱君
+而险资、社保基金等长期资金更加重视绝对收益，银行股低估值、高股息、利润增长稳定，契合负债久期匹配需求。
 
 ## 相关推荐
 
-- 2026-06-29 23:33 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-29 23:52 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-29 23:41 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-29 23:30 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-29 23:32 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-29 23:27 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-29 23:42 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-29 23:38 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-29 23:45 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 23:37 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 23:37 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 23:36 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-29 23:39 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 23:32 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-29 23:33 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 23:43 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 23:45 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 23:51 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 23:46 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-29 23:31 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 23:41 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-29 23:40 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-29 23:40 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:44 - [女心理师](http://www.share.kurohicncr.top/Article/details/64921645.shtml)
-- 2026-06-29 23:29 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/3128393.shtml)
-- 2026-06-29 23:24 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/5918394263.shtml)
-- 2026-06-29 23:50 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/78678715539.shtml)
-- 2026-06-29 23:50 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/898969184.shtml)
-- 2026-06-29 23:46 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/40964146.shtml)
-- 2026-06-29 23:27 - [货车司机恶意闯卡逃费被行拘](http://www.blog.kurohicncr.top/Article/details/54166.shtml)
-- 2026-06-29 23:52 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/191997146.shtml)
-- 2026-06-29 23:27 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/9948738.shtml)
-- 2026-06-29 23:26 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/55936807.shtml)
-- 2026-06-29 23:38 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/964696004594.shtml)
-- 2026-06-29 23:25 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/13878527928.shtml)
-- 2026-06-29 23:35 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/29989547334.shtml)
-- 2026-06-29 23:27 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/75494.shtml)
-- 2026-06-29 23:30 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/629183.shtml)
+- 2026-06-29 23:30 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/9998391633.shtml)
+- 2026-06-29 23:40 - [田曦薇没招了](https://www.share.minike.top/Article/details/3108625.shtml)
+- 2026-06-29 23:52 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/087033.shtml)
+- 2026-06-29 23:50 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/2242770222.shtml)
+- 2026-06-29 23:37 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/9149245.shtml)
+- 2026-06-29 23:50 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/0798460.shtml)
+- 2026-06-29 23:46 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/730973426.shtml)
+- 2026-06-29 23:46 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/1087623.shtml)
+- 2026-06-29 23:44 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/435402.shtml)
+- 2026-06-29 23:55 - [蓝箭航天科创板IPO审核状态为已问询](https://www.share.minike.top/Article/details/049312314.shtml)
+- 2026-06-29 23:39 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/388482910266.shtml)
+- 2026-06-29 23:38 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/69936.shtml)
+- 2026-06-29 23:33 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/36667118.shtml)
+- 2026-06-29 23:41 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/93951067821.shtml)
+- 2026-06-29 23:31 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.minike.top/Article/details/34186.shtml)

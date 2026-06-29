@@ -1,57 +1,56 @@
-# A股超3700只个股上涨，AI应用端爆发
+# 京东健康绩后涨逾5% 一季度实现收入194.7亿元同比增长17.0%
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国际金融报 6月1日，A股三大指数集体下跌。截至收盘，上证指数跌0.27%，深证成指跌1.51%，创业板指跌2.15%，北证50涨0.45%，科创50指数跌5%。 盘面上，全市场超3700只个股上涨，其中170只个股涨停。 板块上，AI应用端爆发，天地在线3连板，掌阅科技4天2板，视觉中国、税友股份、
+京东健康（06618）盘中涨超6%，截至发稿，股价上涨4.97%，现报47.70港元，成交额3.63亿港元。 5月12日，京东健康发布2026年第一季度业绩。2026年第一季度，京东健康实现收入194.7亿元，同比增长17.0%；非国际财务报告准则指标下（Non-IFRS）经营盈利达19.4亿元，同比增长48.0%；非国际财务报告准则指标下（Non-IFRS）净利润达18.7亿
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+京东健康（06618）盘中涨超6%，截至发稿，股价上涨4.97%，现报47.70港元，成交额3.63亿港元。
 
-来源：国际金融报 6月1日，A股三大指数集体下跌。
+5月12日，京东健康发布2026年第一季度业绩。
 
-截至收盘，上证指数跌0.27%，深证成指跌1.51%，创业板指跌2.15%，北证50涨0.45%，科创50指数跌5%。
+2026年第一季度，京东健康实现收入194.7亿元，同比增长17.0%；非国际财务报告准则指标下（Non-IFRS）经营盈利达19.4亿元，同比增长48.0%；非国际财务报告准则指标下（Non-IFRS）净利润达18.7亿元，同比增长6.0%。
 
-盘面上，全市场超3700只个股上涨，其中170只个股涨停。
+第一季度，公司持续强化医药供应链核心优势，持续以“AI+供应链”全场景赋能“医、检、诊、药”闭环，各项核心经营指标保持稳健增长，高质量发展势头良好。
 
-板块上，AI应用端爆发，天地在线3连板，掌阅科技4天2板，视觉中国、税友股份、久其软件涨停。
+在“AI+医疗器械”领域，京东健康全面升级战略布局，推动AI技术与医疗器械深度融合。
 
-AI PC概念表现活跃，春秋电子2连板，胜利精密、英力股份、雷神科技涨停。
+第一季度，公司与鱼跃医疗、可孚医疗、讯飞医疗等头部品牌签署战略合作协议，以“AI+医疗器械”为核心引擎，围绕产品智能化升级、慢病管理服务融合创新等方向深化合作。
 
-消息面上，6月1日，在GTC Taipei2026大会上，全球AI芯片巨头英伟达正式宣布进军个人电脑处理器市场，发力电脑通用计算芯片市场。
+同时，京东健康加速推进JoyInside智能互联系统在适老场景的落地，计划推动百万台医疗器械接入该系统，覆盖轮椅、护理床、健康监测等适老核心品类，携手10家头部品牌共建服务生态。
 
-英伟达CEO黄仁勋还重点介绍了Vera Rubin架构、DRIVE Hyperion自动驾驶出租车平台等多个新品。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:25 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 23:44 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 23:39 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-29 23:32 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-29 23:45 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 23:37 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 23:45 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-29 23:33 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 23:45 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-29 23:30 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-29 23:31 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 23:38 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 23:30 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-29 23:50 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-29 23:50 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 23:31 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 23:46 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 23:54 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-29 23:39 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 23:49 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-29 23:58 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:27 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/88235625.shtml)
-- 2026-06-29 23:31 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/88520351976.shtml)
-- 2026-06-29 23:29 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/18608.shtml)
-- 2026-06-29 23:27 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/80045965.shtml)
-- 2026-06-29 23:26 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/560538268.shtml)
-- 2026-06-29 23:25 - [东方风云榜](http://www.blog.minike.top/Article/details/465265834699.shtml)
-- 2026-06-29 23:26 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/959332570634.shtml)
-- 2026-06-29 23:44 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/162818.shtml)
-- 2026-06-29 23:50 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/00973744496.shtml)
-- 2026-06-29 23:48 - [105岁女红军看到自己长征时的模样](https://www.blog.kurohicncr.top/Article/details/47769.shtml)
-- 2026-06-29 23:45 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/5963122522.shtml)
-- 2026-06-29 23:34 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/66721.shtml)
-- 2026-06-29 23:24 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/719247544182.shtml)
-- 2026-06-29 23:35 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/6277139040.shtml)
-- 2026-06-29 23:34 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/13498799.shtml)
+- 2026-06-29 23:47 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/933071.shtml)
+- 2026-06-29 23:52 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/45165.shtml)
+- 2026-06-29 23:44 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/63328.shtml)
+- 2026-06-29 23:42 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/366905090742.shtml)
+- 2026-06-29 23:49 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/10793550718.shtml)
+- 2026-06-29 23:34 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/04790.shtml)
+- 2026-06-29 23:57 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/464069488855.shtml)
+- 2026-06-29 23:33 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/299037.shtml)
+- 2026-06-29 23:34 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/5247058.shtml)
+- 2026-06-29 23:39 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/871560.shtml)
+- 2026-06-29 23:44 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/78681058772.shtml)
+- 2026-06-29 23:58 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/982426.shtml)
+- 2026-06-29 23:43 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/73416.shtml)
+- 2026-06-29 23:40 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/48370910.shtml)
+- 2026-06-29 23:44 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/89236603.shtml)

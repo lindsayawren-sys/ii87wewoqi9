@@ -1,53 +1,61 @@
-# 康方生物盘初涨超12% 依沃西联合化疗战胜PD-1联合化疗OS结果发布
+# 中国空间站首次人类“人工胚胎”实验进展顺利
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-康方生物（09926）今日大幅高开，股价涨超12%，高见132.60港元，截至发稿，股价上涨7.28%，现报126.70港元，成交额17.40亿港元。 康方生物PD-1/VEGF双抗依沃西单抗联合化疗一线治疗晚期鳞状非小细胞肺癌的III期HARMONi-6研究于ASCO大会全体会议（Plenary Session）公布最新结果。与替雷利珠单抗联合化疗相比，依沃西组患者死亡风险下
+新华社北京5月13日电(记者李国利、刘艺)记者13日从中国科学院空间应用工程与技术中心了解到，随天舟十号上行太空的人类“人工胚胎”实验样本，已装置于中国空间站实验模块，目前实验进展顺利。 这是世界首次在太空开展的人类“人工胚胎”实验。 5月11日，包括“人工胚胎”在内的41项空间科学实验项目，随天舟十号货运飞船抵达空间站。当晚约10时，“人工胚胎”实验样本被在轨航天员装入空间站
 
 ## 正文
 
-康方生物（09926）今日大幅高开，股价涨超12%，高见132.60港元，截至发稿，股价上涨7.28%，现报126.70港元，成交额17.40亿港元。
+新华社北京5月13日电(记者李国利、刘艺)记者13日从中国科学院空间应用工程与技术中心了解到，随天舟十号上行太空的人类“人工胚胎”实验样本，已装置于中国空间站实验模块，目前实验进展顺利。
 
-康方生物PD-1/VEGF双抗依沃西单抗联合化疗一线治疗晚期鳞状非小细胞肺癌的III期HARMONi-6研究于ASCO大会全体会议（Plenary Session）公布最新结果。
+这是世界首次在太空开展的人类“人工胚胎”实验。
 
-与替雷利珠单抗联合化疗相比，依沃西组患者死亡风险下降34%，OS达到统计学显著性，两年生存率64.7% vs 48.6%。
+5月11日，包括“人工胚胎”在内的41项空间科学实验项目，随天舟十号货运飞船抵达空间站。
 
-HARMONi-6共入组532例患者，中央型鳞癌占比约63%，PD-L1 TPS＜1%患者占39%，多部位转移、肝转移及脑转移患者占比约33.8%。
+当晚约10时，“人工胚胎”实验样本被在轨航天员装入空间站实验模块。
 
-核心数据显示：依沃西组mOS达到27.89个月，对照组为23.69个月，延长近4个月；HR为0.66，p值0.0017，明显优于预设统计学边界0.0049。
+“目前实验进展非常顺利，预设好的自动化系统每天都会为它们更换新鲜的培养液。
 
-责任编辑：卢昱君
+”“人工胚胎”空间科学实验项目负责人于乐谦介绍，他们将通过这项实验对关乎人类未来在太空长期驻留、生存、繁衍等问题展开前期研究。
+
+人工胚胎，是用干细胞构建的与真正胚胎非常相似的一种结构。
+
+“那么，人类‘人工胚胎’，就是以人类干细胞为原材料制备的。
 
 ## 相关推荐
 
-- 2026-06-29 23:38 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-29 23:26 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-29 23:46 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 23:32 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 23:53 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 23:30 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-29 23:37 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 23:52 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 23:53 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 23:38 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-29 23:39 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 23:49 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-29 23:41 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-29 23:58 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 23:52 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 23:55 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-29 23:56 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 23:40 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 23:42 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 23:59 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 23:30 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 23:51 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 23:47 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-29 23:43 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-29 23:53 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 23:50 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:34 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/240279.shtml)
-- 2026-06-29 23:48 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/44252.shtml)
-- 2026-06-29 23:38 - [湖南姑娘被东北同事带偏口音](http://www.share.kurohicncr.top/Article/details/705421846.shtml)
-- 2026-06-29 23:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/64252301.shtml)
-- 2026-06-29 23:45 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/641797.shtml)
-- 2026-06-29 23:37 - [Prada在内娱首度签下偶像团体](https://www.share.minike.top/Article/details/38348.shtml)
-- 2026-06-29 23:46 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/5650808.shtml)
-- 2026-06-29 23:34 - [AI接过张雪峰志愿填报衣钵](https://www.share.kurohicncr.top/Article/details/7745630378.shtml)
-- 2026-06-29 23:46 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/6656392.shtml)
-- 2026-06-29 23:30 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/408087.shtml)
-- 2026-06-29 23:53 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/9937183.shtml)
-- 2026-06-29 23:28 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/87798.shtml)
-- 2026-06-29 23:53 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/6396005.shtml)
-- 2026-06-29 23:31 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/7653933918.shtml)
-- 2026-06-29 23:24 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/628718771.shtml)
+- 2026-06-29 23:57 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/774404230866.shtml)
+- 2026-06-29 23:56 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/56724.shtml)
+- 2026-06-29 23:43 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/8830487388.shtml)
+- 2026-06-29 23:32 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/362313183923.shtml)
+- 2026-06-29 23:41 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/635938730462.shtml)
+- 2026-06-29 23:48 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/96812.shtml)
+- 2026-06-29 23:49 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/3299892966.shtml)
+- 2026-06-29 23:31 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/51105.shtml)
+- 2026-06-29 23:36 - [一生一世](http://www.blog.minike.top/Article/details/00975409.shtml)
+- 2026-06-29 23:41 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/865313.shtml)
+- 2026-06-29 23:30 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/151005817.shtml)
+- 2026-06-29 23:39 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/5180169530.shtml)
+- 2026-06-29 23:55 - [周生如故](https://www.blog.kurohicncr.top/Article/details/610192.shtml)
+- 2026-06-29 23:53 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/687077433739.shtml)
+- 2026-06-29 23:50 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/77992942311.shtml)

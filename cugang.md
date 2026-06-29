@@ -1,61 +1,58 @@
-# 白宫就美伊协议前景释放矛盾信号 市场聚焦特朗普周末有何动作
+# 沃达丰股价走低：德国业务表现不及预期，调整后盈利未达市场预估
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-白宫一直就与伊朗达成协议的前景发出相互矛盾的信号，凸显出美国总统唐纳德·特朗普难以找到途径结束这场已进入第四个月的冲突。 周五这一模式仍在延续。 特朗普周五在社交媒体发帖称，他准备就延长脆弱停火的初步协议做出“最终决定”。然而几小时后，美媒援引高级政府官员报道，特朗普结束了战情室会议，但未做出任何决定。 这种反复延续了这样一种模式，即双方一再暗示协议接近达成，但又在伊朗铀库存去
+专题：聚焦美股2026年第一季度财报 英国电信巨头沃达丰公布财报后股价下跌，核心原因是其最大市场德国业务服务收入下滑，且调整后盈利小幅不及市场预期。 这家英国电信企业公布，截至 3 月 31 日的财年，扣除租赁支出后的调整后息税折旧摊销前利润为113.5 亿欧元（约 133.8 亿美元），上年同期为 109.3 亿欧元。 根据公司汇总的分析师一致预期，市场原本预估该项调整后 E
 
 ## 正文
 
-白宫一直就与伊朗达成协议的前景发出相互矛盾的信号，凸显出美国总统唐纳德·特朗普难以找到途径结束这场已进入第四个月的冲突。
+专题：聚焦美股2026年第一季度财报 英国电信巨头沃达丰公布财报后股价下跌，核心原因是其最大市场德国业务服务收入下滑，且调整后盈利小幅不及市场预期。
 
-周五这一模式仍在延续。
+这家英国电信企业公布，截至 3 月 31 日的财年，扣除租赁支出后的调整后息税折旧摊销前利润为113.5 亿欧元（约 133.8 亿美元），上年同期为 109.3 亿欧元。
 
-特朗普周五在社交媒体发帖称，他准备就延长脆弱停火的初步协议做出“最终决定”。
+根据公司汇总的分析师一致预期，市场原本预估该项调整后 EBITDA 为 114.8 亿欧元。
 
-然而几小时后，美媒援引高级政府官员报道，特朗普结束了战情室会议，但未做出任何决定。
+沃达丰伦敦上市股票早盘下跌 3.5%，报 1.16 英镑；该股年内累计涨幅仍略超 17%。
 
-这种反复延续了这样一种模式，即双方一再暗示协议接近达成，但又在伊朗铀库存去向、核计划以及霍尔木兹海峡通航等长期困扰谈判的问题上显露分歧。
+投资机构 AJ Bell 分析师拉斯・穆尔德在客户研报中表示，股价回落，一方面源于前期涨幅已大，另一方面刚结束的财年及新财年开局均未出现超预期利好。
 
-公开发言的陡然转向令交易员措手不及，但对停火协议可能为结束冲突铺平道路的希望，仍推动股市迈向历史性的周度连涨。
+他指出：“市场甚至略带失望情绪。
 
-不过，投资者仍面临预期因特朗普再度转向而落空的风险。
+公司欧洲以外业务增长更强劲，而德国业务能否重回正轨，沃达丰尚未给出足够说服力的表现。
 
-位于华盛顿的咨询公司ClearView Energy Partners董事总经理Kevin Book表示，目前存在一种“不确定性折价”，市场正面临“步入周末不知道总统又会作何发言”的挑战。
+” 财报期内，集团总营收从上年 374.5 亿欧元增至404.6 亿欧元。
 
 ## 相关推荐
 
-- 2026-06-29 23:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-29 23:48 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-29 23:50 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 23:46 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-29 23:43 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-29 23:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-29 23:33 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 23:37 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 23:42 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 23:51 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 23:42 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-29 23:48 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 23:39 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-29 23:25 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-29 23:48 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-29 23:54 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 00:00 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-29 23:54 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 23:30 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 23:45 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-29 23:52 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-29 23:37 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-29 23:40 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 23:33 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 23:49 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 23:56 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 23:54 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:30 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/480804020.shtml)
-- 2026-06-29 23:51 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/5243617.shtml)
-- 2026-06-29 23:49 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/7911049.shtml)
-- 2026-06-29 23:50 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/20187683.shtml)
-- 2026-06-29 23:26 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/112379786759.shtml)
-- 2026-06-29 23:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/61939.shtml)
-- 2026-06-29 23:31 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/66005.shtml)
-- 2026-06-29 23:39 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/454960484761.shtml)
-- 2026-06-29 23:46 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/4985813408.shtml)
-- 2026-06-29 23:52 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/2758718.shtml)
-- 2026-06-29 23:37 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/02580271118.shtml)
-- 2026-06-29 23:28 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/648434.shtml)
-- 2026-06-29 23:44 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/275100253881.shtml)
-- 2026-06-29 23:45 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/04907.shtml)
-- 2026-06-29 23:27 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.minike.top/Article/details/7627907671.shtml)
+- 2026-06-29 23:53 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/99156.shtml)
+- 2026-06-29 23:52 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/642392.shtml)
+- 2026-06-29 23:35 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/08077.shtml)
+- 2026-06-29 23:49 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/39969.shtml)
+- 2026-06-29 23:56 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/95287754.shtml)
+- 2026-06-29 23:45 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/434453465.shtml)
+- 2026-06-29 23:43 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/31660121.shtml)
+- 2026-06-29 23:41 - [一生一世](http://www.share.kurohicncr.top/Article/details/19267.shtml)
+- 2026-06-29 23:58 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/10074137380.shtml)
+- 2026-06-29 23:53 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/73811721304.shtml)
+- 2026-06-29 23:46 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/5571305.shtml)
+- 2026-06-29 23:44 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/5133979564.shtml)
+- 2026-06-29 23:55 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/25032368.shtml)
+- 2026-06-29 23:51 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/0027711.shtml)
+- 2026-06-29 23:51 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/41156.shtml)

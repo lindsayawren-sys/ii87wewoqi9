@@ -1,56 +1,49 @@
-# 激光精准灭蚊国货闯国际 江苏一科创产品海外受追捧
+# 河南省南阳市人大常委会原副主任余广东被“双开”
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月01日 08:12 来源：中国新闻网 夏季蚊虫多发，安全高效的灭蚊产品需求持续攀升。江苏常州一家科创企业自主研发的便携式激光灭蚊设备，备受海外市场青睐。产品收获海外好评的背后，是研发团队多年的技术攻坚。企业负责人王川分享了产品的研发与出海历程。 区别于传统灭蚊产品，该设备搭载智能防控系统，配备多重安全防护机制，使用安全稳定。研发团队融合激光雷达、AI视
+中新网5月13日电 据河南省纪委监委消息：经中共河南省委批准，河南省纪委监委对河南省南阳市人大常委会原党组成员、副主任余广东严重违纪违法问题进行了立案审查调查。 经查，余广东丧失理想信念，背弃初心使命，结交政治骗子，对抗组织审查；无视中央八项规定精神，收受可能影响公正执行公务的礼品、礼金、消费卡；违背组织原则，在组织谈话时不如实说明问题，不按规定报告个人有关事项，利用职权为他人
 
 ## 正文
 
-发布时间：2026年06月01日 08:12 来源：中国新闻网 夏季蚊虫多发，安全高效的灭蚊产品需求持续攀升。
+中新网5月13日电 据河南省纪委监委消息：经中共河南省委批准，河南省纪委监委对河南省南阳市人大常委会原党组成员、副主任余广东严重违纪违法问题进行了立案审查调查。
 
-江苏常州一家科创企业自主研发的便携式激光灭蚊设备，备受海外市场青睐。
+经查，余广东丧失理想信念，背弃初心使命，结交政治骗子，对抗组织审查；无视中央八项规定精神，收受可能影响公正执行公务的礼品、礼金、消费卡；违背组织原则，在组织谈话时不如实说明问题，不按规定报告个人有关事项，利用职权为他人谋取人事利益并收受财物；廉洁底线失守，通过民间借贷获取大额回报，违规从事营利性活动，将应当由本人支付的费用由他人支付，利用职权为他人谋利并收受财物；丧失纪法底线，大搞权钱交易，利用职务便利为他人在工程承揽、职务调整等方面谋取利益，非法收受巨额财物。
 
-产品收获海外好评的背后，是研发团队多年的技术攻坚。
+余广东严重违反党的政治纪律、组织纪律和廉洁纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
 
-企业负责人王川分享了产品的研发与出海历程。
-
-区别于传统灭蚊产品，该设备搭载智能防控系统，配备多重安全防护机制，使用安全稳定。
-
-研发团队融合激光雷达、AI视觉等前沿技术，优化算法参数，攻克微型目标识别等核心难题，持续迭代产品性能。
-
-目前，产品已收获海外订单，量产筹备工作稳步推进。
-
-未来企业将持续深耕激光防控技术，拓展多元应用场景，释放科创技术价值。
+依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经河南省纪委常委会会议研究并报中共河南省委批准，决定给予余广东开除党籍处分；由河南省监委给予其开除公职处分；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
 
 ## 相关推荐
 
-- 2026-06-29 23:51 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 23:33 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-29 23:34 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-29 23:34 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 23:30 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 23:47 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 23:27 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 23:41 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-29 23:51 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-29 23:32 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 23:37 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-29 23:44 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-29 23:33 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 23:33 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-29 23:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 23:42 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-29 23:55 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-29 23:36 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 23:48 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-29 23:38 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-29 23:57 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:33 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/515828975.shtml)
-- 2026-06-29 23:46 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/134183764083.shtml)
-- 2026-06-29 23:37 - [世界杯](http://www.share.kurohicncr.top/Article/details/9203146188.shtml)
-- 2026-06-29 23:25 - [美以这对亲密盟友要掰了吗](http://www.share.kurohicncr.top/Article/details/4667186575.shtml)
-- 2026-06-29 23:29 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/473020.shtml)
-- 2026-06-29 23:36 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/703786774655.shtml)
-- 2026-06-29 23:47 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/177615842.shtml)
-- 2026-06-29 23:31 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/349835371427.shtml)
-- 2026-06-29 23:29 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/938426.shtml)
-- 2026-06-29 23:32 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/7771728.shtml)
-- 2026-06-29 23:32 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/687854.shtml)
-- 2026-06-29 23:26 - [第一炉香](https://www.share.kurohicncr.top/Article/details/77237565.shtml)
-- 2026-06-29 23:48 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/95794897.shtml)
-- 2026-06-29 23:38 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/41661.shtml)
-- 2026-06-29 23:34 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/284445.shtml)
+- 2026-06-29 23:41 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/254207.shtml)
+- 2026-06-29 23:42 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/043813860.shtml)
+- 2026-06-29 23:47 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/747697222723.shtml)
+- 2026-06-29 23:36 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/978827156.shtml)
+- 2026-06-29 23:53 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/901079138587.shtml)
+- 2026-06-29 23:44 - [沙丘](https://www.blog.kurohicncr.top/Article/details/234571.shtml)
+- 2026-06-29 23:33 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/8716236.shtml)
+- 2026-06-29 23:57 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/42178697.shtml)
+- 2026-06-29 23:34 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/5150364.shtml)
+- 2026-06-29 23:56 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/552104031571.shtml)
+- 2026-06-29 23:40 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/3706854.shtml)
+- 2026-06-29 23:46 - [炽夏](https://www.blog.minike.top/Article/details/15145.shtml)
+- 2026-06-29 23:45 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/2850496544.shtml)
+- 2026-06-29 23:40 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/25944444369.shtml)
+- 2026-06-29 23:40 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/081528893331.shtml)

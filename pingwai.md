@@ -1,43 +1,57 @@
-# 美媒：特朗普要求修改美伊协议草案
+# 一场“无电视”的发布会，揭开海信视像第二增长曲线
 
-> 更新时间：2026-06-29 23:54:02 UTC+8
+> 更新时间：2026-06-30 00:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月01日 09:14 来源：央视新闻 责任编辑：【王祎】
+5月8日，海信召开全场景新品发布会，推出涵盖海信和Vidda两大品牌的六款3C智能硬件新品。这是海信成立50多年来，海信视像第一次召开没有“电视”的发布会。 50余年，海信沉淀了最硬核的显示底色。2019年，“海信电器”正式升级为“海信视像”，战略发展也更加笃定：要让屏幕突破物理边界，为用户提供有温度的陪伴。正是循着这个战略，海信开始了全场景生态的探索。 “未来的智能硬件，屏幕
 
 ## 正文
 
-发布时间：2026年06月01日 09:14 来源：央视新闻 责任编辑：【王祎】
+5月8日，海信召开全场景新品发布会，推出涵盖海信和Vidda两大品牌的六款3C智能硬件新品。
+
+这是海信成立50多年来，海信视像第一次召开没有“电视”的发布会。
+
+50余年，海信沉淀了最硬核的显示底色。
+
+2019年，“海信电器”正式升级为“海信视像”，战略发展也更加笃定：要让屏幕突破物理边界，为用户提供有温度的陪伴。
+
+正是循着这个战略，海信开始了全场景生态的探索。
+
+“未来的智能硬件，屏幕不再是配件，而是感知的核⼼入口。
+
+既然技术走到了这里，海信作为显示龙头，就必须出现在这里！
+
+”海信视像科技总裁李炜在发布会上公开了海信的发展逻辑：不是海信进⼊了3C，而是3C终于进⼊了“显示智能”时代。
 
 ## 相关推荐
 
-- 2026-06-29 23:25 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-29 23:51 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-29 23:39 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-29 23:32 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 23:47 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 23:42 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-29 23:37 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 23:42 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 23:35 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 23:54 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-29 23:43 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 23:55 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-29 23:36 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 23:30 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 23:33 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-29 23:52 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 23:32 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 23:38 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-29 23:40 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-29 23:33 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 23:30 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 23:59 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:47 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/684837.shtml)
-- 2026-06-29 23:38 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/0008734987.shtml)
-- 2026-06-29 23:33 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/2048075351.shtml)
-- 2026-06-29 23:42 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/8615006154.shtml)
-- 2026-06-29 23:46 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/6727496093.shtml)
-- 2026-06-29 23:52 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/98275.shtml)
-- 2026-06-29 23:47 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/50940916.shtml)
-- 2026-06-29 23:48 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/063999792.shtml)
-- 2026-06-29 23:34 - [曼城官宣马雷斯卡出任主教练](http://www.share.kurohicncr.top/Article/details/248978060.shtml)
-- 2026-06-29 23:45 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/67193.shtml)
-- 2026-06-29 23:46 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/4110030764.shtml)
-- 2026-06-29 23:52 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/179574393.shtml)
-- 2026-06-29 23:25 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/3486450105.shtml)
-- 2026-06-29 23:52 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/20270052949.shtml)
-- 2026-06-29 23:24 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/5408644819.shtml)
+- 2026-06-29 23:53 - [把邻居裸体发群算维权还是侵权](https://www.share.kurohicncr.top/Article/details/3812838618.shtml)
+- 2026-06-29 23:44 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/2537919947.shtml)
+- 2026-06-29 23:52 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/213871201608.shtml)
+- 2026-06-29 23:40 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/7847817299.shtml)
+- 2026-06-29 23:44 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/63321797.shtml)
+- 2026-06-29 23:41 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/24779.shtml)
+- 2026-06-29 23:42 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/8326927337.shtml)
+- 2026-06-29 23:48 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/7346738621.shtml)
+- 2026-06-29 23:57 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/7768897.shtml)
+- 2026-06-29 23:58 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/64807660.shtml)
+- 2026-06-29 23:55 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/6209787.shtml)
+- 2026-06-29 23:41 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/424181.shtml)
+- 2026-06-29 23:30 - [葫芦岛居民楼闪爆事故致3死](https://www.share.minike.top/Article/details/43458.shtml)
+- 2026-06-29 23:50 - [毒液2](https://www.share.minike.top/Article/details/60595362795.shtml)
+- 2026-06-29 23:38 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/97475981.shtml)
