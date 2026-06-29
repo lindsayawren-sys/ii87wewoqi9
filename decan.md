@@ -1,60 +1,56 @@
-# 多用户绿电直连政策落地，电力ETF华泰柏瑞（561560）今年以来份额增长275%
+# 均胜电子盘中涨近5% 公司聚焦机器人核心部件以及相关总成方案
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-今日早盘（26/5/25）电力板块延续回暖态势，主要受政策端与需求端双重利好提振。政策端，多用户绿电直连政策落地、绿电就近消纳加速推进。需求端，4月全社会用电量同比增长6.0%，显著高于市场预期。与此同时，AI缺电、算电协同、“Halo交易”、能源安全等逻辑共同支撑板块交投活跃。 2026年5月20日，国家发展改革委、国家能源局联合发布《关于有序推动多用户绿电直连发展有关事项的
+均胜电子（00699）盘中涨近5%，截至发稿，股价上涨3.50%，现报18.06港元，成交额7315.295万港元。 特斯拉官方此前宣布，第三代人形机器人预计于今年年中亮相，7-8月启动正式投产。此外，特斯拉计划在今年第二季度开始准备人形机器人的首条量产线，第一代产线目标年产能达100万台。同时，特斯拉还在其德州超级工厂准备第二代生产线，以实现1000万台年产能的长期目标。 国
 
 ## 正文
 
-今日早盘（26/5/25）电力板块延续回暖态势，主要受政策端与需求端双重利好提振。
+均胜电子（00699）盘中涨近5%，截至发稿，股价上涨3.50%，现报18.06港元，成交额7315.295万港元。
 
-政策端，多用户绿电直连政策落地、绿电就近消纳加速推进。
+特斯拉官方此前宣布，第三代人形机器人预计于今年年中亮相，7-8月启动正式投产。
 
-需求端，4月全社会用电量同比增长6.0%，显著高于市场预期。
+此外，特斯拉计划在今年第二季度开始准备人形机器人的首条量产线，第一代产线目标年产能达100万台。
 
-与此同时，AI缺电、算电协同、“Halo交易”、能源安全等逻辑共同支撑板块交投活跃。
+同时，特斯拉还在其德州超级工厂准备第二代生产线，以实现1000万台年产能的长期目标。
 
-2026年5月20日，国家发展改革委、国家能源局联合发布《关于有序推动多用户绿电直连发展有关事项的通知》，宣告绿电直连正式从“一对一”的单用户时代迈入“一对多”新纪元。
+国联民生证券此前发布研报称，均胜电子于2025年初全面启动“汽车+机器人 Tier1”的双轮驱动战略，聚焦机器人核心部件以及相关总成方案。
 
-这一政策是在梳理总结去年单用户绿电直连政策各地实践基础上的重要升级，或有力支撑工业园区、零碳园区等用能清洁替代需求，推动能源消费模式变革。
+海外客户方面，已为某头部机器人公司批量交付机器人后脑勺、颈部、肩部、膝盖及手指等部件，正在探讨下一代头部显示方案和头部总成供货。
 
-国盛证券提出，多用户绿电直连政策落地，源网荷储进一步加速推进，园区绿电转型走向规模化，绿电直连运营商价值量有望提升。
-
-建议关注算电协同、调节价值凸显&红利化火电企业；电算协同有望打开绿电企业新增长空间，看好优质风光资产；把握水核防御，水电电价具备市场化优势、水核容量电价有待补充。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 19:01 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-29 18:44 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 19:00 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-29 18:56 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 19:10 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 19:00 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 18:58 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-29 19:01 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-29 18:42 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 19:08 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-29 18:55 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-29 19:00 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 19:07 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-29 18:59 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 19:06 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 19:03 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 19:00 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 19:07 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-29 18:59 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-29 19:14 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 18:57 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-29 18:52 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-29 19:00 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-29 19:10 - [看大国重器“云端穿针引线”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-29 19:02 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 18:56 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:42 - [河南四位大妈景区跳舞爆火](http://www.blog.kurohicncr.top/Article/details/271132357893.shtml)
-- 2026-06-29 19:11 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/99952.shtml)
-- 2026-06-29 19:05 - [中方绝不允许日菲侵害我海洋权益](https://www.share.minike.top/Article/details/166517814.shtml)
-- 2026-06-29 18:43 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/119624.shtml)
-- 2026-06-29 19:10 - [AG 宫斗](http://www.share.minike.top/Article/details/7523528.shtml)
-- 2026-06-29 18:52 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/3986861678.shtml)
-- 2026-06-29 19:04 - [当地回应林区违规放羊遭豹啃食](https://www.blog.minike.top/Article/details/41594.shtml)
-- 2026-06-29 18:42 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/327506.shtml)
-- 2026-06-29 18:46 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.minike.top/Article/details/783076162206.shtml)
-- 2026-06-29 19:01 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/8544939676.shtml)
-- 2026-06-29 19:07 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/47897321683.shtml)
-- 2026-06-29 19:02 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/29775503275.shtml)
-- 2026-06-29 19:08 - [滚石点名酒店员工说有急救培训](https://www.blog.minike.top/Article/details/9551592.shtml)
-- 2026-06-29 18:57 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/062474565.shtml)
-- 2026-06-29 18:59 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/46650431856.shtml)
+- 2026-06-29 19:17 - [叠纸客服回应恋与深空新角色争议](https://www.share.minike.top/Article/details/404455554.shtml)
+- 2026-06-29 19:04 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/837367754.shtml)
+- 2026-06-29 19:16 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/0441459094.shtml)
+- 2026-06-29 18:55 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/71855.shtml)
+- 2026-06-29 18:54 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/53492.shtml)
+- 2026-06-29 18:57 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/36706.shtml)
+- 2026-06-29 18:49 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/1420029266.shtml)
+- 2026-06-29 19:01 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/982141857.shtml)
+- 2026-06-29 19:15 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/4417373.shtml)
+- 2026-06-29 19:17 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/5440733264.shtml)
+- 2026-06-29 19:02 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/34443040811.shtml)
+- 2026-06-29 19:01 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/72579834.shtml)
+- 2026-06-29 18:57 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/7879512.shtml)
+- 2026-06-29 19:03 - [第二波数码涨价潮来袭](https://www.share.minike.top/Article/details/18598.shtml)
+- 2026-06-29 19:12 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/27376254.shtml)

@@ -1,42 +1,49 @@
-# 新思想引领新征程丨美丽中国 万物共生
+# 英伟达市值突破5.5万亿美元，股价飙升
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月23日 16:37 来源：央视新闻客户端 责任编辑：【李骏】
+周四，人工智能芯片巨头英伟达（NVDA）市值创下5.7 万亿美元历史新高，股价大涨超 4%，创下盘中历史最高纪录。 这家半导体巨头将于下周发布财报，受此预期推动，英伟达股价与科技板块（XLK）同步走强。 今年以来，英伟达股价已累计上涨超 26%，过去 12 个月涨幅达 70%。责任编辑：郭明煜
 
 ## 正文
 
-发布时间：2026年05月23日 16:37 来源：央视新闻客户端 责任编辑：【李骏】
+周四，人工智能芯片巨头英伟达（NVDA）市值创下5.7 万亿美元历史新高，股价大涨超 4%，创下盘中历史最高纪录。
+
+这家半导体巨头将于下周发布财报，受此预期推动，英伟达股价与科技板块（XLK）同步走强。
+
+今年以来，英伟达股价已累计上涨超 26%，过去 12 个月涨幅达 70%。
+
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 19:11 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 18:44 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 18:58 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-29 18:52 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-29 18:48 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-29 19:06 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-29 18:55 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-29 18:46 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-29 18:42 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-29 18:53 - [机器人学校开学了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 19:07 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 19:04 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 19:17 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-29 19:15 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-29 18:50 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 18:53 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-29 19:08 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-29 18:52 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-29 19:12 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 19:04 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 18:49 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:01 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/71449138499.shtml)
-- 2026-06-29 18:52 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/65549915.shtml)
-- 2026-06-29 18:49 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.kurohicncr.top/Article/details/628725405.shtml)
-- 2026-06-29 18:43 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/908878156346.shtml)
-- 2026-06-29 18:58 - [韩国800万亿韩元押注半导体](https://www.share.kurohicncr.top/Article/details/07886446.shtml)
-- 2026-06-29 18:42 - [专家预计全球央行加息节奏将出现反复](https://www.blog.kurohicncr.top/Article/details/59931717.shtml)
-- 2026-06-29 18:53 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/0205476.shtml)
-- 2026-06-29 18:45 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/08136938649.shtml)
-- 2026-06-29 19:07 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.share.kurohicncr.top/Article/details/985420.shtml)
-- 2026-06-29 18:43 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/586401.shtml)
-- 2026-06-29 19:01 - [小娘惹](http://www.blog.minike.top/Article/details/39077985.shtml)
-- 2026-06-29 19:02 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/7211019.shtml)
-- 2026-06-29 19:03 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/09003263.shtml)
-- 2026-06-29 19:04 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/7309829.shtml)
-- 2026-06-29 18:51 - [张雪机车杀向海外](https://www.blog.minike.top/Article/details/739884518.shtml)
+- 2026-06-29 19:08 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/580944617.shtml)
+- 2026-06-29 19:15 - [叠纸客服回应恋与深空新角色争议](http://www.share.minike.top/Article/details/46748825.shtml)
+- 2026-06-29 18:49 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/931952.shtml)
+- 2026-06-29 18:48 - [6.5万观众40分钟“丝滑”离场](https://www.blog.kurohicncr.top/Article/details/366993.shtml)
+- 2026-06-29 18:50 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/92686928.shtml)
+- 2026-06-29 18:56 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.blog.kurohicncr.top/Article/details/74933573375.shtml)
+- 2026-06-29 18:51 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/841603.shtml)
+- 2026-06-29 18:59 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/295270349312.shtml)
+- 2026-06-29 19:06 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/88148544.shtml)
+- 2026-06-29 19:04 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/31133277658.shtml)
+- 2026-06-29 19:02 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/957520607.shtml)
+- 2026-06-29 19:14 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/98963864764.shtml)
+- 2026-06-29 18:59 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/015279147.shtml)
+- 2026-06-29 19:03 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/08097464.shtml)
+- 2026-06-29 19:10 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.share.minike.top/Article/details/4992939.shtml)

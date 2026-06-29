@@ -1,58 +1,50 @@
-# 特朗普称美伊终战协议框架接近定稿 霍尔木兹海峡将重启通航 核议题仍存重大分歧
+# 中兴通讯遭小摩减持约220.90万股 每股均价约27.48港元
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-美国总统特朗普表示，一份用于敲定与伊朗终战谈判、重新开放霍尔木兹海峡的框架草案已接近“最终定稿”。 特朗普周六称，一份规划未来美伊终战谈判、重启霍尔木兹海峡通航的框架草案，已接近“最终定稿”。 他表示，协议条款“大体已谈判完毕”，将于近期公布。此前，他已于周六与中东多国领导人通电话，又单独与以色列总理本雅明・内塔尼亚胡交谈。 协议核心内容 若协议最终达成，虽无法实现特朗普阻止伊
+香港联交所最新资料显示，5月11日，小摩减持中兴通讯（00763）220.9036万股，每股均价27.4824港元，总金额约为6070.96万港元。减持后最新持股数目约为5271.04万股，最新持股比例为6.97%。责任编辑：卢昱君
 
 ## 正文
 
-美国总统特朗普表示，一份用于敲定与伊朗终战谈判、重新开放霍尔木兹海峡的框架草案已接近“最终定稿”。
+香港联交所最新资料显示，5月11日，小摩减持中兴通讯（00763）220.9036万股，每股均价27.4824港元，总金额约为6070.96万港元。
 
-特朗普周六称，一份规划未来美伊终战谈判、重启霍尔木兹海峡通航的框架草案，已接近“最终定稿”。
+减持后最新持股数目约为5271.04万股，最新持股比例为6.97%。
 
-他表示，协议条款“大体已谈判完毕”，将于近期公布。
-
-此前，他已于周六与中东多国领导人通电话，又单独与以色列总理本雅明・内塔尼亚胡交谈。
-
-协议核心内容 若协议最终达成，虽无法实现特朗普阻止伊朗永久拥核的核心目标，但可避免中东国家不愿看到的战争重启，同时逐步缓解因伊朗封锁霍尔木兹海峡引发的全球经济危机——全球五分之一的石油供应经该海峡运输。
-
-美国官员透露，特朗普已向助手及他国代表明确，若伊朗违反临时协议，美国保留恢复对伊打击的权利。
-
-特朗普在其社交平台“真实社交”上发文称：“美利坚合众国、伊朗伊斯兰共和国及各斡旋国之间的协议已大体谈妥，待最终定稿。
-
-协议包含多项内容，其中霍尔木兹海峡将重新开放。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 19:05 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-29 18:58 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-29 19:02 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-29 19:09 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 19:03 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 19:11 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-29 18:57 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-29 18:46 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-29 19:09 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 18:43 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-29 19:07 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-29 18:46 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 18:55 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-29 19:01 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 18:58 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 18:50 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 18:51 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 19:13 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-29 18:52 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-29 18:55 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-29 19:10 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 18:58 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 19:03 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 19:17 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 19:16 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 19:09 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:51 - [4位大妈跳舞爆火多地景区争相邀约](https://www.share.kurohicncr.top/Article/details/2693352.shtml)
-- 2026-06-29 18:53 - [海口塔吊事故处罚结果公布](http://www.blog.minike.top/Article/details/564197380524.shtml)
-- 2026-06-29 18:47 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/45772995.shtml)
-- 2026-06-29 18:56 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/65062284.shtml)
-- 2026-06-29 18:59 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/9620130.shtml)
-- 2026-06-29 18:46 - [面对热浪欧洲人为何陷入空调内耗](http://www.blog.minike.top/Article/details/75985.shtml)
-- 2026-06-29 18:49 - [流金岁月](https://www.share.kurohicncr.top/Article/details/56843.shtml)
-- 2026-06-29 19:07 - [滚石要求万豪就屠颖去世事件道歉](https://www.blog.kurohicncr.top/Article/details/32062174.shtml)
-- 2026-06-29 19:02 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/0797325.shtml)
-- 2026-06-29 18:53 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.kurohicncr.top/Article/details/11017689268.shtml)
-- 2026-06-29 19:05 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/4573561.shtml)
-- 2026-06-29 19:03 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/49951986235.shtml)
-- 2026-06-29 19:10 - [天柱山回应网红打卡树枝被砍](http://www.share.minike.top/Article/details/408114813.shtml)
-- 2026-06-29 19:04 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/812229911329.shtml)
-- 2026-06-29 18:46 - [4位大妈跳舞爆火多地景区争相邀约](http://www.share.minike.top/Article/details/166812037539.shtml)
+- 2026-06-29 19:08 - [赵今麦时隔五年再演李诗情](https://www.share.minike.top/Article/details/450677443.shtml)
+- 2026-06-29 19:00 - [日本偶像龟梨和也宣布结婚](http://www.share.kurohicncr.top/Article/details/98061331821.shtml)
+- 2026-06-29 19:07 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/16567456.shtml)
+- 2026-06-29 18:58 - [盛秋平任南昌市委书记](https://www.blog.minike.top/Article/details/3234042.shtml)
+- 2026-06-29 19:10 - [中方向委方追加1亿元援助](https://www.blog.kurohicncr.top/Article/details/310566247743.shtml)
+- 2026-06-29 18:56 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/35854.shtml)
+- 2026-06-29 18:57 - [依法管制阻遏日方军事化危险动向](http://www.share.kurohicncr.top/Article/details/978106734.shtml)
+- 2026-06-29 18:52 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/85796052.shtml)
+- 2026-06-29 19:11 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/16070922439.shtml)
+- 2026-06-29 19:12 - [永远有话聊的原因](http://www.share.kurohicncr.top/Article/details/826954.shtml)
+- 2026-06-29 18:54 - [中方向委方追加1亿元援助](https://www.blog.kurohicncr.top/Article/details/8110035.shtml)
+- 2026-06-29 18:53 - [齐思钧回复孙怡](https://www.blog.minike.top/Article/details/577860559888.shtml)
+- 2026-06-29 18:57 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/00707.shtml)
+- 2026-06-29 19:01 - [运-20网宣片中的“小六”或是六代机](http://www.blog.kurohicncr.top/Article/details/71014776.shtml)
+- 2026-06-29 18:51 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.kurohicncr.top/Article/details/740494978.shtml)

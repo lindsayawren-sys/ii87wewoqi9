@@ -1,61 +1,58 @@
-# 筑牢强国建设、民族复兴的文化根基
+# 110件/套汉代中山国诸侯王墓出土文物亮相江西
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-2026文化强国建设高峰论坛凝聚共识—— 筑牢强国建设、民族复兴的文化根基 党的二十届四中全会和“十五五”规划纲要对激发全民族文化创新创造活力、繁荣发展社会主义文化作出部署，为建设社会主义文化强国绘就了宏伟蓝图。 5月21日至22日，2026文化强国建设高峰论坛在广东深圳举办。本届论坛主题为“文脉文运的传承与文化的创新创造”，围绕人文经济学、人工智能与媒体变革、繁荣文艺创作、冷
+中新社南昌5月15日电 (记者 李韵涵)“王畿中山——汉代中山王国历史与文化展”15日在南昌汉代海昏侯国遗址博物馆开幕，110件/套文物集中亮相，实现了“王”与“侯”的跨时空对话。 据了解，本次展览由南昌汉代海昏侯国遗址博物馆与河北博物院、河北省文物考古研究院联合举办，共展出汉代中山国诸侯王墓出土文物110件/套，并配合展出2组海昏侯墓出土文物。 据南昌汉代海昏侯国遗址管理局党
 
 ## 正文
 
-2026文化强国建设高峰论坛凝聚共识—— 筑牢强国建设、民族复兴的文化根基 党的二十届四中全会和“十五五”规划纲要对激发全民族文化创新创造活力、繁荣发展社会主义文化作出部署，为建设社会主义文化强国绘就了宏伟蓝图。
+中新社南昌5月15日电 (记者 李韵涵)“王畿中山——汉代中山王国历史与文化展”15日在南昌汉代海昏侯国遗址博物馆开幕，110件/套文物集中亮相，实现了“王”与“侯”的跨时空对话。
 
-5月21日至22日，2026文化强国建设高峰论坛在广东深圳举办。
+据了解，本次展览由南昌汉代海昏侯国遗址博物馆与河北博物院、河北省文物考古研究院联合举办，共展出汉代中山国诸侯王墓出土文物110件/套，并配合展出2组海昏侯墓出土文物。
 
-本届论坛主题为“文脉文运的传承与文化的创新创造”，围绕人文经济学、人工智能与媒体变革、繁荣文艺创作、冷门绝学传承与创新、文化遗产保护传承、人工智能驱动文化产业创新发展、出版融合发展、电影业高质量发展、文明乡风建设、培育高水平文化人才队伍、共建数智人文湾区等11个方面开设分论坛，与会嘉宾深入研讨交流，广泛凝聚共识，取得丰硕成果。
+据南昌汉代海昏侯国遗址管理局党工委书记夏清平介绍，汉代中山王墓和海昏侯墓，同属汉代大一统格局下诸侯国历史的典型缩影，也是汉代文明的珍贵载体。
 
-传承文脉，高扬文化主体性 文运与国运相牵，文脉与国脉相连。
+一北一南、跨越千里，两大汉文化地标遥相呼应、同脉同源，共同诠释了中华文明多元一体、兼容并蓄的鲜明特质。
 
-要深入学习实践习近平文化思想，以文脉传承高扬中华民族的文化主体性，筑牢强国建设、民族复兴的文化根基。
+河北博物院副院长王然表示，本次展览展品以错金银鸟篆文铜壶、骑兽人物博山炉、中山简王刘焉铜缕玉衣等文物重器为核心，涵盖了西汉中山靖王刘胜夫妇、中山怀王刘修及东汉中山简王刘焉等多处王陵出土的精品文物，全景展现大汉王朝的礼乐制度、工艺技术与生活图景。
 
-中国社会科学院学部委员、一级研究员王巍表示，中华文明在传承中创新、在融合中坚守，以其突出的连续性、创新性、统一性、包容性、和平性，成为世界上唯一绵延不断且以国家形态发展至今的伟大文明。
+据了解，此次展览的一大亮点在于实现了“王”与“侯”的跨时空对话。
 
-要坚定文化自信，传承中华优秀传统文化，在守正创新中推动中华文明永续发展。
+汉代中山国与海昏侯国，同属汉代宗室分封体系，墓葬出土的文物在器型、功能、礼制内涵上既有一致性，又各具地域特色。
 
-“中华大地上的文化遗产是人类在东亚地区文化与文明持续不间断发展的卓越见证。
+例如，展览第二单元“王的世界”中，展示了中山靖王刘胜墓出土的饼金，可与海昏侯墓出土的饼金、褭蹏金等形成直观对比，是研究汉代黄金货币与酎金制度的重要材料。
 
 ## 相关推荐
 
-- 2026-06-29 19:04 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-29 18:48 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 18:45 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 19:00 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 18:50 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-29 18:57 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 18:59 - [博主：AI泡沫必须破灭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 18:57 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-29 18:45 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 19:11 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 19:07 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-29 18:47 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 19:01 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 18:58 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 19:01 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 19:15 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-29 19:03 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 19:00 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 18:51 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-29 18:51 - [北京市发布雷电黄色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 19:07 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 19:04 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-29 18:49 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 19:04 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 19:04 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-29 18:58 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-29 19:06 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:51 - [普京为何喊话俄乌都别打对方纵深](https://www.share.minike.top/Article/details/973751865644.shtml)
-- 2026-06-29 19:02 - [SK集团将投资400万亿韩元建芯片集群](http://www.blog.minike.top/Article/details/553898518043.shtml)
-- 2026-06-29 19:00 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/56967.shtml)
-- 2026-06-29 19:07 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/9908445.shtml)
-- 2026-06-29 18:56 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/02182534016.shtml)
-- 2026-06-29 18:50 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/6866174.shtml)
-- 2026-06-29 18:58 - [截瘫男子心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/007574301.shtml)
-- 2026-06-29 19:12 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/80044987.shtml)
-- 2026-06-29 19:06 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/5029877237.shtml)
-- 2026-06-29 18:54 - [学者：建设性战略稳定重塑中美关系](https://www.share.kurohicncr.top/Article/details/6636315.shtml)
-- 2026-06-29 19:11 - [两老人多次到一洗车店泼粪](https://www.share.kurohicncr.top/Article/details/173939783.shtml)
-- 2026-06-29 19:00 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.kurohicncr.top/Article/details/56430.shtml)
-- 2026-06-29 18:47 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/07188.shtml)
-- 2026-06-29 18:46 - [首个靠AI躺赢的国家](http://www.share.kurohicncr.top/Article/details/503643950.shtml)
-- 2026-06-29 19:06 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/0068641.shtml)
+- 2026-06-29 18:59 - [大六座SUV进入黄金时代](https://www.share.minike.top/Article/details/203828680.shtml)
+- 2026-06-29 18:50 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/778503087156.shtml)
+- 2026-06-29 19:10 - [千与千寻](https://www.blog.minike.top/Article/details/038655.shtml)
+- 2026-06-29 18:50 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/174549237.shtml)
+- 2026-06-29 19:02 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.minike.top/Article/details/3949425978.shtml)
+- 2026-06-29 19:08 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/229387187.shtml)
+- 2026-06-29 18:48 - [《新闻联播》正在直播](http://www.share.minike.top/Article/details/027889549.shtml)
+- 2026-06-29 18:49 - [滚石就音乐人屠颖去世事件发声明](https://www.share.minike.top/Article/details/59640711498.shtml)
+- 2026-06-29 19:14 - [天道](https://www.blog.minike.top/Article/details/69861.shtml)
+- 2026-06-29 19:12 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/78114094766.shtml)
+- 2026-06-29 18:55 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/464593.shtml)
+- 2026-06-29 18:55 - [急先锋](https://www.share.kurohicncr.top/Article/details/911182218450.shtml)
+- 2026-06-29 19:06 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.kurohicncr.top/Article/details/495069.shtml)
+- 2026-06-29 19:03 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/20618359321.shtml)
+- 2026-06-29 19:04 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/8543863.shtml)

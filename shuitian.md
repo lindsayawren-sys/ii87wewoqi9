@@ -1,48 +1,58 @@
-# 硝烟四起！直击武警“枪王”挑战赛现场
+# 星巴克再裁数百名总部员工，推进业务转型自救
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月25日 11:26 来源：中国新闻网 近日，武警孝感支队2026年度“枪王”挑战赛正式打响。训练场上硝烟四起，一场实战化射击巅峰对决火热展开。(作者：方聪聪 朱骏 牛常山 姚天宝) 责任编辑：【魏聪聪】
+内容速览 星巴克宣布关闭位于芝加哥、亚特兰大、达拉斯以及加州伯班克的区域总部办公室。 星巴克（SBUX）新一轮改革落地：裁员 300 名美国员工、关闭多家区域总部办公室，这是首席执行官布莱恩・尼科尔为扭转这家咖啡连锁颓势推出的最新举措。 公司周五表示，管理层已下达任务，在此前数千人裁员的基础上进一步精简人员，目的是优化运营、削减成本、打造更可持续的经营模式。 具体细节 此次裁撤
 
 ## 正文
 
-发布时间：2026年05月25日 11:26 来源：中国新闻网 近日，武警孝感支队2026年度“枪王”挑战赛正式打响。
+内容速览 星巴克宣布关闭位于芝加哥、亚特兰大、达拉斯以及加州伯班克的区域总部办公室。
 
-训练场上硝烟四起，一场实战化射击巅峰对决火热展开。
+星巴克（SBUX）新一轮改革落地：裁员 300 名美国员工、关闭多家区域总部办公室，这是首席执行官布莱恩・尼科尔为扭转这家咖啡连锁颓势推出的最新举措。
 
-(作者：方聪聪 朱骏 牛常山 姚天宝) 责任编辑：【魏聪聪】
+公司周五表示，管理层已下达任务，在此前数千人裁员的基础上进一步精简人员，目的是优化运营、削减成本、打造更可持续的经营模式。
+
+具体细节 此次裁撤的 300 个美国总部岗位，主要集中在西雅图，同时涵盖全美各地远程岗位，涉及技术、营销、财务、研发等多个部门，门店零售员工不受此次裁员影响。
+
+星巴克将关闭四座区域办公点：芝加哥、亚特兰大、达拉斯、加州伯班克。
+
+北美保留的区域办公点包括：纽约、多伦多、佛罗里达州科勒尔盖布尔斯，以及西雅图总部、新建的田纳西州纳什维尔企业中心。
+
+公司同时正在评估海外总部办公室，不排除进一步缩减的可能。
+
+背景情况 星巴克计划在2028 财年末之前削减 20 亿美元成本，用以平衡其在门店运营上数亿美元的投入。
 
 ## 相关推荐
 
-- 2026-06-29 19:00 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-29 18:50 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-29 18:57 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 19:05 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 18:48 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-29 18:52 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 19:07 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 18:48 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-29 18:45 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-29 19:10 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 18:52 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 18:51 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 18:53 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-29 19:00 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 19:05 - [伊朗足球队将启程回国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-29 18:50 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-29 19:12 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 18:48 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-29 19:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 18:59 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-29 18:54 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 19:00 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-29 19:06 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-29 19:13 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:47 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/853140.shtml)
-- 2026-06-29 18:56 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.minike.top/Article/details/30834239.shtml)
-- 2026-06-29 18:49 - [滚石就音乐人屠颖去世事件发声明](https://www.blog.kurohicncr.top/Article/details/208174242.shtml)
-- 2026-06-29 18:57 - [特朗普两大核心赌注将迎高院裁决](http://www.blog.kurohicncr.top/Article/details/084948.shtml)
-- 2026-06-29 19:10 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.minike.top/Article/details/83517134.shtml)
-- 2026-06-29 19:03 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/87758938521.shtml)
-- 2026-06-29 18:56 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/87533993756.shtml)
-- 2026-06-29 18:58 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/3796063.shtml)
-- 2026-06-29 18:45 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/627233068260.shtml)
-- 2026-06-29 18:56 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/69491.shtml)
-- 2026-06-29 18:54 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/84653884.shtml)
-- 2026-06-29 18:44 - [V8](https://www.share.kurohicncr.top/Article/details/66578640376.shtml)
-- 2026-06-29 18:56 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/89161843.shtml)
-- 2026-06-29 18:54 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/462811.shtml)
-- 2026-06-29 19:01 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/12226085379.shtml)
+- 2026-06-29 18:53 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/3154011234.shtml)
+- 2026-06-29 19:04 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/97566899.shtml)
+- 2026-06-29 18:55 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/01270495.shtml)
+- 2026-06-29 18:51 - [TFING全员黑西装](https://www.share.minike.top/Article/details/684824.shtml)
+- 2026-06-29 18:50 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/94436129379.shtml)
+- 2026-06-29 19:07 - [依法管制阻遏日方军事化危险动向](https://www.share.kurohicncr.top/Article/details/63530.shtml)
+- 2026-06-29 18:53 - [V8](https://www.share.kurohicncr.top/Article/details/0335558448.shtml)
+- 2026-06-29 19:07 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/39821524.shtml)
+- 2026-06-29 19:11 - [极限挑战第一季](http://www.share.minike.top/Article/details/25383.shtml)
+- 2026-06-29 19:12 - [森保一坚信日本能赢巴西](http://www.share.kurohicncr.top/Article/details/301275.shtml)
+- 2026-06-29 19:09 - [截瘫男子心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/85266.shtml)
+- 2026-06-29 19:03 - [2026世界杯谁能一黑到底](https://www.share.kurohicncr.top/Article/details/464384234.shtml)
+- 2026-06-29 19:01 - [张杰我九岁就跟你了](http://www.share.minike.top/Article/details/5511005.shtml)
+- 2026-06-29 19:17 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/34865860.shtml)
+- 2026-06-29 19:02 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/92994431.shtml)

@@ -1,60 +1,58 @@
-# 证监会拟对富途罚款18.5亿，老虎证券罚没4.112亿
+# 除了12315，还有哪些途径可以方便投诉企业
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中国证监会5月22日宣布，近日依法对Tiger Brokers（NZ）Limited（下称“老虎证券”）、富途证券国际（香港）有限公司（下称“富途”）、长桥证券（香港）有限公司（下称“长桥”）境内外相关主体在境内非法经营证券业务等行为立案调查并作出行政处罚事先告知。拟决定没收三家机构境内外相关主体全部违法所得，并依法严厉处罚。 5月22日晚间，富途证券母公司富途控股发布公告称，
+“乃万演唱会40元票价”——这条消息以近127万的热度登上热搜榜第六位。在演唱会动辄数百上千元的票价环境下，40元的票价引发了广泛关注和讨论。与此同时，根据黑猫投诉 【下载黑猫投诉客户端】平台发布的《2026年五一消费投诉数据报告》，今年五一期间票务相关投诉量接近5400件，其中演唱会、音乐节等演出类投诉占比超过六成。“门票不退不改”“预售票无法转赠”“现场座位与描述不符”等问
 
 ## 正文
 
-中国证监会5月22日宣布，近日依法对Tiger Brokers（NZ）Limited（下称“老虎证券”）、富途证券国际（香港）有限公司（下称“富途”）、长桥证券（香港）有限公司（下称“长桥”）境内外相关主体在境内非法经营证券业务等行为立案调查并作出行政处罚事先告知。
+“乃万演唱会40元票价”——这条消息以近127万的热度登上热搜榜第六位。
 
-拟决定没收三家机构境内外相关主体全部违法所得，并依法严厉处罚。
+在演唱会动辄数百上千元的票价环境下，40元的票价引发了广泛关注和讨论。
 
-5月22日晚间，富途证券母公司富途控股发布公告称，公司收到了中国证券管理委员会及其深圳分局（合称“CSRC”）的调查通知及行政罚款预通知函，拟对公司罚款18.5亿元人民币（约合2.71亿美元）。
+与此同时，根据黑猫投诉 【下载黑猫投诉客户端】平台发布的《2026年五一消费投诉数据报告》，今年五一期间票务相关投诉量接近5400件，其中演唱会、音乐节等演出类投诉占比超过六成。
 
-对富途创始人兼首席执行官李华处以个人罚款125万元（约合183575美元）。
+“门票不退不改”“预售票无法转赠”“现场座位与描述不符”等问题持续困扰着广大消费者。
 
-老虎证券5月22日公告称，北京证监局对公司的相关子公司处以合计约人民币3.081亿元的行政罚款，并没收合计约人民币1.031亿元的违法所得。
+遇到这些问题时，很多人只知道打12315，但其实还有很多便捷有效的投诉渠道可以选择。
 
-合计罚没金额为4.112亿元。
+12315毫无疑问是目前知名度最高的消费投诉渠道。
 
-此外，老虎证券董事、首席执行官巫天华亦收到警告，并被处以人民币125万元的罚款。
+作为全国统一的市场监督管理投诉举报热线，它的优势在于权威性强、覆盖面广，几乎适用于所有消费场景。
 
-5月22日美股开盘，老虎证券跌约31%，富途控股跌约35%。
+无论是演出票务纠纷、价格争议，还是商品质量、虚假宣传等问题，都可以通过12315进行投诉举报。
 
 ## 相关推荐
 
-- 2026-06-29 18:48 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-29 18:58 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 19:02 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 18:48 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-29 18:44 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-29 18:46 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 19:03 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-29 18:49 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-29 18:56 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-29 18:43 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 18:47 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 19:04 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 19:08 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-29 19:09 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-29 19:13 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 19:08 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-29 18:48 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 18:59 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 18:52 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 19:16 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 18:54 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 18:54 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 19:09 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 19:02 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 18:49 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-29 18:52 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:57 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.minike.top/Article/details/155691500923.shtml)
-- 2026-06-29 19:08 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.minike.top/Article/details/87984080839.shtml)
-- 2026-06-29 19:01 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.kurohicncr.top/Article/details/11517857754.shtml)
-- 2026-06-29 18:49 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.kurohicncr.top/Article/details/77503886095.shtml)
-- 2026-06-29 19:04 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/01512.shtml)
-- 2026-06-29 18:52 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/150986405411.shtml)
-- 2026-06-29 19:03 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/394868287266.shtml)
-- 2026-06-29 19:10 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/14016.shtml)
-- 2026-06-29 19:03 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/772806537.shtml)
-- 2026-06-29 18:49 - [明星大侦探第一季](https://www.share.minike.top/Article/details/21647585.shtml)
-- 2026-06-29 18:54 - [沙丘](https://www.blog.kurohicncr.top/Article/details/917002.shtml)
-- 2026-06-29 18:59 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/52810486338.shtml)
-- 2026-06-29 19:09 - [齐思钧回复孙怡](http://www.blog.kurohicncr.top/Article/details/129536.shtml)
-- 2026-06-29 18:58 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/8814745.shtml)
-- 2026-06-29 18:51 - [霍尔木兹海峡风波再起 油价走向何方](http://www.blog.kurohicncr.top/Article/details/68517280.shtml)
+- 2026-06-29 18:50 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/81887247.shtml)
+- 2026-06-29 19:02 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.kurohicncr.top/Article/details/18202.shtml)
+- 2026-06-29 19:14 - [欧洲安装一台空调要花近8000元](https://www.share.minike.top/Article/details/464947.shtml)
+- 2026-06-29 18:59 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/1879533.shtml)
+- 2026-06-29 18:54 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/618855158303.shtml)
+- 2026-06-29 18:48 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/00732757.shtml)
+- 2026-06-29 18:48 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/272544.shtml)
+- 2026-06-29 18:56 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/00687630.shtml)
+- 2026-06-29 19:03 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.kurohicncr.top/Article/details/68719437119.shtml)
+- 2026-06-29 19:14 - [四川达州发生一起交通事故致2死](http://www.share.minike.top/Article/details/86750261.shtml)
+- 2026-06-29 18:53 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/550570192.shtml)
+- 2026-06-29 18:54 - [滚石要求万豪就屠颖去世事件道歉](https://www.blog.kurohicncr.top/Article/details/766114652965.shtml)
+- 2026-06-29 19:16 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/189361.shtml)
+- 2026-06-29 19:04 - [韩国队出局是因为内讧吗](http://www.blog.minike.top/Article/details/2108209299.shtml)
+- 2026-06-29 19:01 - [一家三口吃溪石斑鱼中毒](http://www.blog.minike.top/Article/details/5185044301.shtml)

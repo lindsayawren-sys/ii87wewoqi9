@@ -1,51 +1,56 @@
-# 4月上海黄金交易所黄金成交5633.7吨
+# 515投资者保护 | 全平台传播4813万！博时基金《+油！人生》荣获2026年度最具影响力投教项目奖
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中新社北京5月22日电 中国央行22日发布4月金融市场运行情况。其中，黄金市场方面，4月上海黄金交易所黄金成交5633.7吨，同比减少17.0%；上海期货交易所黄金成交1.3万吨，同比减少64.3%。4月末，上海黄金交易所Au(T+D)合约收于每克1014元人民币，环比下跌0.2%。(完)
+专题：515投资者保护！新浪财经2026年度投教案例评选结果公布 5月15日，新浪财经2026年度基金投教案例评选结果正式揭晓。博时基金凭借《+油！人生》固收+投教纪录片，荣获2026年度“最具影响力投教项目奖”。 据悉，传统的投教内容往往聚焦于产品讲解或市场分析，容易与普通投资者的真实生活产生距离感。博时基金出品的《+油！人生》投教纪录片，则选择了一条温暖而真诚的路径——让投
 
 ## 正文
 
-中新社北京5月22日电 中国央行22日发布4月金融市场运行情况。
+专题：515投资者保护！
 
-其中，黄金市场方面，4月上海黄金交易所黄金成交5633.7吨，同比减少17.0%；上海期货交易所黄金成交1.3万吨，同比减少64.3%。
+新浪财经2026年度投教案例评选结果公布 5月15日，新浪财经2026年度基金投教案例评选结果正式揭晓。
 
-4月末，上海黄金交易所Au(T+D)合约收于每克1014元人民币，环比下跌0.2%。
+博时基金凭借《+油！
 
-(完)
+人生》固收+投教纪录片，荣获2026年度“最具影响力投教项目奖”。
+
+据悉，传统的投教内容往往聚焦于产品讲解或市场分析，容易与普通投资者的真实生活产生距离感。
+
+博时基金出品的《+油！
+
+人生》投教纪录片，则选择了一条温暖而真诚的路径——让投资者成为主角。
+
+这档纪录片的镜头对准了三个不同年龄阶段的投资者：一对在深圳打拼的年轻夫妻、一个懂生活的上海职业女性、一对爱好粤剧的广州老友。
 
 ## 相关推荐
 
-- 2026-06-29 18:53 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 19:04 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 19:10 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-29 18:51 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-29 19:02 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 18:47 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-29 19:06 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-29 18:54 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-29 19:05 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-29 18:43 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 19:05 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-29 18:44 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 18:50 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 19:12 - [专家预计全球央行加息节奏将出现反复](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-29 19:13 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 19:09 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-29 18:51 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-29 19:09 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-29 19:12 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-29 19:06 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 18:52 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-29 19:17 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 19:01 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:09 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/05718948851.shtml)
-- 2026-06-29 19:07 - [速度与激情9](https://www.blog.minike.top/Article/details/5267646.shtml)
-- 2026-06-29 19:01 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/12721677204.shtml)
-- 2026-06-29 19:05 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/2850180771.shtml)
-- 2026-06-29 18:42 - [法生态部长反对装空调却自己吹空调](https://www.share.minike.top/Article/details/713036772422.shtml)
-- 2026-06-29 19:02 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/95283717.shtml)
-- 2026-06-29 18:50 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/82018512.shtml)
-- 2026-06-29 19:07 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/448114697220.shtml)
-- 2026-06-29 18:57 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/87754606.shtml)
-- 2026-06-29 19:07 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.kurohicncr.top/Article/details/7716621794.shtml)
-- 2026-06-29 18:45 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/065318493.shtml)
-- 2026-06-29 18:58 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/0934549.shtml)
-- 2026-06-29 18:43 - [小娘惹](https://www.share.minike.top/Article/details/760364.shtml)
-- 2026-06-29 19:03 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/3407563.shtml)
-- 2026-06-29 18:43 - [大马同意延长马航370残骸搜寻工作](https://www.blog.kurohicncr.top/Article/details/683209480244.shtml)
+- 2026-06-29 18:48 - [吴建豪和老婆差20岁](http://www.share.kurohicncr.top/Article/details/60068878389.shtml)
+- 2026-06-29 19:04 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/2373492568.shtml)
+- 2026-06-29 18:51 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.kurohicncr.top/Article/details/90914627.shtml)
+- 2026-06-29 19:13 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/2440256.shtml)
+- 2026-06-29 19:10 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/4430825.shtml)
+- 2026-06-29 19:10 - [音乐人屠颖离世家属追责涉事酒店](http://www.share.minike.top/Article/details/929352136452.shtml)
+- 2026-06-29 19:00 - [盛秋平任南昌市委书记](http://www.blog.kurohicncr.top/Article/details/077709423.shtml)
+- 2026-06-29 19:15 - [大 周 礼 时 代(4)](https://www.blog.kurohicncr.top/Article/details/37042.shtml)
+- 2026-06-29 19:09 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/243028825.shtml)
+- 2026-06-29 19:06 - [法生态部长反对装空调却自己吹空调](http://www.share.kurohicncr.top/Article/details/8519888866.shtml)
+- 2026-06-29 19:05 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.kurohicncr.top/Article/details/44282018.shtml)
+- 2026-06-29 19:17 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/54489490.shtml)
+- 2026-06-29 19:10 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/34161.shtml)
+- 2026-06-29 19:15 - [中外合作办学是“低分捷径”吗](http://www.blog.minike.top/Article/details/205867.shtml)
+- 2026-06-29 19:07 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.kurohicncr.top/Article/details/192138491730.shtml)

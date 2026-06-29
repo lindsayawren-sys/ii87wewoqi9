@@ -1,61 +1,56 @@
-# 西藏那曲拍摄制作《长江第一滴水》《江河源》两部纪录片 共探江河源头
+# Indaptus Therapeutics Q1净亏损收窄，现金储备大幅下降
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中新网拉萨5月23日电(达瓦次仁 贡保)大型自然人文纪录片《长江第一滴水》于近日在西藏那曲正式发布。与此同时，记者从那曲市融媒体中心获悉，历时18个月拍摄的另一部纪录片《江河源》也于近日全部完成，即将与观众见面。两部作品均以那曲为核心的江河源头为舞台，用镜头探寻高原水系背后的自然奇观与人文守护。 《长江第一滴水》由那曲安多县人民政府出品、那曲市融媒体中心摄制，历时两年打磨。全片
+核心财务数据 Indaptus Therapeutics公布2026年第一季度财报。公司报告期内净亏损为254万美元，合每股亏损0.23美元，较上年同期的453万美元亏损和每股亏损9.11美元显著收窄。每股亏损的大幅减少主要源于2025年6月实施的1比28反向股票分割带来的股份数量增加。 费用大幅削减 研发费用为49万美元，较上年同期的281万美元下降82%，主要由于一期临床成
 
 ## 正文
 
-中新网拉萨5月23日电(达瓦次仁 贡保)大型自然人文纪录片《长江第一滴水》于近日在西藏那曲正式发布。
+核心财务数据 Indaptus Therapeutics公布2026年第一季度财报。
 
-与此同时，记者从那曲市融媒体中心获悉，历时18个月拍摄的另一部纪录片《江河源》也于近日全部完成，即将与观众见面。
+公司报告期内净亏损为254万美元，合每股亏损0.23美元，较上年同期的453万美元亏损和每股亏损9.11美元显著收窄。
 
-两部作品均以那曲为核心的江河源头为舞台，用镜头探寻高原水系背后的自然奇观与人文守护。
+每股亏损的大幅减少主要源于2025年6月实施的1比28反向股票分割带来的股份数量增加。
 
-《长江第一滴水》由那曲安多县人民政府出品、那曲市融媒体中心摄制，历时两年打磨。
+费用大幅削减 研发费用为49万美元，较上年同期的281万美元下降82%，主要由于一期临床成本减少约190万美元以及人员薪酬下降。
 
-全片从长江正源姜古迪如冰川的一滴融水切入，跟随其6300公里的奔流轨迹，展开“源头叙事—守护群像—文化联结—科技赋能—入海回响”的史诗结构。
+一般及行政费用为167万美元，同比略有下降。
 
-镜头里，“长江源头第一户”南扎近半个世纪坚持从河边取水、志愿巡河；上海青草沙水库总工程师顾玉亮则因1983年《话说长江》的感召，用四十余年攻克咸潮倒灌等难题。
+总运营支出为216万美元，较上年同期的457万美元减少超过一半。
 
-他在片中动情地说：“没有源头的守护，哪来下游这一口纯净？
+现金储备告急与优先股转换 截至季末，公司现金及现金等价物仅为150万美元，较2025年末的850万美元大幅下降。
 
-” 与《长江第一滴水》聚焦一条大江不同，同期完成的《江河源》则由那曲市水利局出品、那曲市融媒体中心摄制，首次对那曲境内的中国五大江河源头及高原湖泊生态系统进行全景式、高规格影像记录。
+运营活动使用的现金净额约为700万美元。
 
 ## 相关推荐
 
-- 2026-06-29 19:07 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-29 19:11 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 19:04 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 18:58 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 19:11 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 19:07 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 18:59 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 18:58 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-29 18:54 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 19:09 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 18:42 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 18:46 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-29 19:11 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-29 19:10 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 18:52 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-29 18:48 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-29 19:14 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 18:59 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 19:03 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 19:02 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 19:02 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 19:15 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 18:57 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-29 19:03 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-29 18:55 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:53 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.minike.top/Article/details/547429714.shtml)
-- 2026-06-29 18:56 - [每天通勤往返3h的感觉](http://www.blog.kurohicncr.top/Article/details/152080.shtml)
-- 2026-06-29 18:58 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/093879908.shtml)
-- 2026-06-29 19:09 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/706101.shtml)
-- 2026-06-29 19:02 - [机器人学校开学了](https://www.share.minike.top/Article/details/304228664949.shtml)
-- 2026-06-29 18:58 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/15811233.shtml)
-- 2026-06-29 18:50 - [周杰伦演唱会含星量](https://www.share.minike.top/Article/details/812895895.shtml)
-- 2026-06-29 19:02 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/8404865543.shtml)
-- 2026-06-29 18:43 - [胡光宇一审获刑13年](http://www.share.minike.top/Article/details/75678996985.shtml)
-- 2026-06-29 18:51 - [小说《无悔追踪》翻红](https://www.blog.minike.top/Article/details/988247673.shtml)
-- 2026-06-29 19:09 - [老板回应员工光脚清洗土豆](https://www.blog.kurohicncr.top/Article/details/266138190647.shtml)
-- 2026-06-29 18:50 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/3700226417.shtml)
-- 2026-06-29 18:43 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/71500.shtml)
-- 2026-06-29 18:53 - [105岁女红军看到自己长征时的模样](https://www.blog.kurohicncr.top/Article/details/7858877.shtml)
-- 2026-06-29 19:01 - [天道](https://www.share.kurohicncr.top/Article/details/490688861.shtml)
+- 2026-06-29 19:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/816208458.shtml)
+- 2026-06-29 18:54 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/40933988539.shtml)
+- 2026-06-29 18:59 - [伊朗足球队将启程回国](http://www.share.kurohicncr.top/Article/details/037965244270.shtml)
+- 2026-06-29 18:50 - [1个视频看懂2026志愿填报新专业](https://www.share.kurohicncr.top/Article/details/6316341996.shtml)
+- 2026-06-29 19:10 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/8540034602.shtml)
+- 2026-06-29 19:01 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/269896439.shtml)
+- 2026-06-29 18:49 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/62585671.shtml)
+- 2026-06-29 19:03 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.kurohicncr.top/Article/details/8285437051.shtml)
+- 2026-06-29 18:51 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/633003149852.shtml)
+- 2026-06-29 19:09 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/468105023.shtml)
+- 2026-06-29 19:01 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/9768870.shtml)
+- 2026-06-29 18:48 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.kurohicncr.top/Article/details/8625773.shtml)
+- 2026-06-29 19:09 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/520697045428.shtml)
+- 2026-06-29 18:49 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/9240146898.shtml)
+- 2026-06-29 18:59 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/518795616.shtml)

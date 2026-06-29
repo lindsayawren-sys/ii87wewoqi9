@@ -1,58 +1,61 @@
-# 石油大省阿尔伯塔将就脱离加拿大举行公投
+# 驱车千里维权！一文梳理190元榴莲仅退款事件
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-核心要点 阿尔伯塔省省长丹妮尔・史密斯宣布，这座石油资源丰富的省份将于今年秋季举行一场无法律约束力的公投，表决民众是否愿意留在加拿大境内；若倾向脱离，则后续将举行具备法律效力的独立公投。 这是加拿大历史上，魁北克之外首个就独立问题发起全民表决的省份，此前当地分离势力已开展数月宣传活动。 史密斯周四晚间发表电视讲话称，个人立场支持本省留在加拿大，也会在公投中投出赞成留存的一票。
+据央视新闻消息，买家明明吃了，却说榴莲坏了，要求退钱。半个月前，因为这笔190元的恶意退款，商家程岩两次开车从河南到山东，往返1600公里维权，也正是因为这段经历，他收获了众多支持，订单不断。不过，本周四上午，当我们见到程岩时，公司处在歇业状态。 程岩：还有个十几万元的货（榴莲）。 记者：十几万的货，那能放多久？ 程岩：冷冻榴莲的话，它一般是6个月到12个月之间。 记者：为什么
 
 ## 正文
 
-核心要点 阿尔伯塔省省长丹妮尔・史密斯宣布，这座石油资源丰富的省份将于今年秋季举行一场无法律约束力的公投，表决民众是否愿意留在加拿大境内；若倾向脱离，则后续将举行具备法律效力的独立公投。
+据央视新闻消息，买家明明吃了，却说榴莲坏了，要求退钱。
 
-这是加拿大历史上，魁北克之外首个就独立问题发起全民表决的省份，此前当地分离势力已开展数月宣传活动。
+半个月前，因为这笔190元的恶意退款，商家程岩两次开车从河南到山东，往返1600公里维权，也正是因为这段经历，他收获了众多支持，订单不断。
 
-史密斯周四晚间发表电视讲话称，个人立场支持本省留在加拿大，也会在公投中投出赞成留存的一票。
+不过，本周四上午，当我们见到程岩时，公司处在歇业状态。
 
-她同时表示：“尽管我个人主张维持联邦统一，但一项不当的法院判决侵犯了数十万阿尔伯塔民众的民主权利，这令我深感忧虑。
+程岩：还有个十几万元的货（榴莲）。
 
-” 此前当地一名法官驳回了民众发起的脱省请愿。
+记者：十几万的货，那能放多久？
 
-民间组织 “自由阿尔伯塔” 是独立诉求的支持者，该组织已收集超 30.1 万份联名签名。
+程岩：冷冻榴莲的话，它一般是6个月到12个月之间。
 
-支持者认为，渥太华联邦政府长期忽视本省利益。
+记者：为什么休息了？
 
-不过民意调查显示，独立主张并未获得广泛民意支持。
+程岩：因为咨询量太多，怕影响品质、发货不及时。
 
 ## 相关推荐
 
-- 2026-06-29 19:04 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-29 18:47 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 18:46 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 19:06 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-29 18:49 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-29 19:02 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-29 19:01 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 18:56 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-29 18:59 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-29 19:01 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 19:07 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-29 19:06 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 19:02 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-29 19:13 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 18:59 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-29 19:07 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-29 18:58 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 19:09 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 18:50 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 18:58 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 18:53 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-29 19:14 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-29 19:09 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-29 19:15 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 19:15 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 18:48 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-29 18:59 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:50 - [学者：建设性战略稳定重塑中美关系](https://www.share.minike.top/Article/details/3231071.shtml)
-- 2026-06-29 19:03 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/96474530.shtml)
-- 2026-06-29 19:10 - [日本在最东端离岛部署导弹发射装置](https://www.blog.minike.top/Article/details/92533.shtml)
-- 2026-06-29 19:02 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/84519.shtml)
-- 2026-06-29 18:45 - [2026年，如果你有100万，你会怎么投资？](https://www.share.kurohicncr.top/Article/details/39540391528.shtml)
-- 2026-06-29 19:08 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/45129.shtml)
-- 2026-06-29 18:51 - [叠纸](https://www.share.minike.top/Article/details/866356.shtml)
-- 2026-06-29 19:03 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.blog.minike.top/Article/details/4523212.shtml)
-- 2026-06-29 19:06 - [小众羞耻点是吃麻辣烫](https://www.blog.minike.top/Article/details/5261010.shtml)
-- 2026-06-29 19:04 - [两老人多次到一洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/6199243190.shtml)
-- 2026-06-29 18:46 - [河南高院审委会原委员曲海滨被查](https://www.blog.kurohicncr.top/Article/details/4455495.shtml)
-- 2026-06-29 19:07 - [沉睡花园](http://www.blog.minike.top/Article/details/628383415124.shtml)
-- 2026-06-29 18:58 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/0959064.shtml)
-- 2026-06-29 19:08 - [中方将20家日本实体列入出口管制名单](http://www.blog.kurohicncr.top/Article/details/885939.shtml)
-- 2026-06-29 18:42 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/525544583957.shtml)
+- 2026-06-29 18:58 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/1001508014.shtml)
+- 2026-06-29 18:59 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/5106837.shtml)
+- 2026-06-29 18:55 - [海口塔吊事故处罚结果公布](http://www.blog.kurohicncr.top/Article/details/483128871.shtml)
+- 2026-06-29 19:16 - [虞书欣好辣的剧宣](http://www.share.kurohicncr.top/Article/details/611866243380.shtml)
+- 2026-06-29 18:57 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.kurohicncr.top/Article/details/214151337.shtml)
+- 2026-06-29 19:03 - [网友晒14年前支教影像等来学生评论](http://www.blog.minike.top/Article/details/25604638037.shtml)
+- 2026-06-29 18:52 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/073147679.shtml)
+- 2026-06-29 19:06 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/366274055.shtml)
+- 2026-06-29 19:13 - [王楚钦开门红](http://www.blog.minike.top/Article/details/679671.shtml)
+- 2026-06-29 19:13 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/650276.shtml)
+- 2026-06-29 18:51 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/397155051.shtml)
+- 2026-06-29 18:51 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/88770969587.shtml)
+- 2026-06-29 18:54 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/997506.shtml)
+- 2026-06-29 18:56 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/51295.shtml)
+- 2026-06-29 19:10 - [王俊凯命名方式](http://www.share.kurohicncr.top/Article/details/73568.shtml)

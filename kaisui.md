@@ -1,58 +1,57 @@
-# 监管审查突生变数，吉宝M1剥离资产告吹，子公司Tuas股价暴跌69%
+# 重庆忠县实景演艺三国故事 吸引海内外游客齐聚三峡之畔
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-新加坡吉宝有限公司脱售M1股份给Simba电信的交易正式搁浅。由于新加坡资讯通信媒体发展局暂停对交易的合并评估，买卖协议于5月22日宣告失效。受此冲击，吉宝旗下澳大利亚子公司Tuas Limited股价本周暴跌逾69%。 此次交易终止的直接导火索，是IMDA在对Simba进行审查时发现，该公司可能使用了未被指配的无线电频段来提供移动服务，涉嫌违反电信法及运营商牌照条款。监管机构
+书记省长密集会见民营企业家 政企互动促进高质量发展揭秘爆火的《ENEMY》：成本超百万 将有中长剧版多地网约车司机违规考核落地 绕道等列入“黑榜”行为烧烤摊主停业捐髓救助患者 带动多人加入中华骨髓库排队时间长、回复不及时……互联网医院“堵”在哪？年轻人的第一台“新家电”，为什么是3D打印机？人这一辈子，一定要去一趟眉山！王帆：中美合作共赢具有可持续性且有利于双方美国总统特朗普访
 
 ## 正文
 
-新加坡吉宝有限公司脱售M1股份给Simba电信的交易正式搁浅。
+书记省长密集会见民营企业家 政企互动促进高质量发展揭秘爆火的《ENEMY》：成本超百万 将有中长剧版多地网约车司机违规考核落地 绕道等列入“黑榜”行为烧烤摊主停业捐髓救助患者 带动多人加入中华骨髓库排队时间长、回复不及时……互联网医院“堵”在哪？
 
-由于新加坡资讯通信媒体发展局暂停对交易的合并评估，买卖协议于5月22日宣告失效。
+年轻人的第一台“新家电”，为什么是3D打印机？
 
-受此冲击，吉宝旗下澳大利亚子公司Tuas Limited股价本周暴跌逾69%。
+人这一辈子，一定要去一趟眉山！
 
-此次交易终止的直接导火索，是IMDA在对Simba进行审查时发现，该公司可能使用了未被指配的无线电频段来提供移动服务，涉嫌违反电信法及运营商牌照条款。
+王帆：中美合作共赢具有可持续性且有利于双方美国总统特朗普访华，为何逛北京的这座公园？
 
-监管机构随即暂停了对吉宝出售M1 83.9%股权交易的审批程序。
+鸟归巢，人归乡：归国藏胞从“寻根”到“扎根”中美元首共同参观祈年殿！
 
-2025年，吉宝与Tuas的子公司Simba达成协议，拟以14.3亿新元的企业价值出售其持有的M1股份。
+告诉你一个你所不知道的天坛天热了车里别放这些东西！
 
-此前吉宝CEO卢振华曾表示，若交易成功，股东可能获得每股0.07至0.11新元的特别股息。
+已有车辆遭“封印”用AI、大蒜鉴别野生菌毒性靠谱吗？
 
-随着交易告吹，这笔潜在的现金回报已落空。
+专家提示科幻走进现实！
 
 ## 相关推荐
 
-- 2026-06-29 18:55 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-29 18:42 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-29 18:52 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 19:09 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-29 18:42 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 18:58 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-29 19:06 - [V8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 19:07 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-29 19:03 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 18:48 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 19:08 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-29 19:04 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 18:56 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 19:01 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-29 18:51 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 19:01 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 19:05 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-29 18:59 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 19:06 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 19:17 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-29 18:58 - [5万块的威力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 19:15 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 19:09 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:49 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/363373623.shtml)
-- 2026-06-29 18:44 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/5448908.shtml)
-- 2026-06-29 18:51 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/27409627081.shtml)
-- 2026-06-29 19:05 - [厨房装空调还是装冷烟机](http://www.blog.minike.top/Article/details/57292.shtml)
-- 2026-06-29 19:11 - [外交部谈对日出口管制措施](https://www.share.minike.top/Article/details/32381274.shtml)
-- 2026-06-29 19:00 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.minike.top/Article/details/238096583.shtml)
-- 2026-06-29 18:44 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/702360165349.shtml)
-- 2026-06-29 19:06 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.share.kurohicncr.top/Article/details/468565059.shtml)
-- 2026-06-29 19:01 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/18193.shtml)
-- 2026-06-29 18:53 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/727264.shtml)
-- 2026-06-29 18:42 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/89728383.shtml)
-- 2026-06-29 18:46 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/2295302.shtml)
-- 2026-06-29 19:09 - [被中方管控的20家日本实体什么来头](http://www.share.minike.top/Article/details/1282943.shtml)
-- 2026-06-29 19:02 - [地震来临时铁路工作人员果断拦停列车](http://www.share.kurohicncr.top/Article/details/782074055603.shtml)
-- 2026-06-29 18:42 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.share.kurohicncr.top/Article/details/6224851.shtml)
+- 2026-06-29 18:53 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/309121.shtml)
+- 2026-06-29 19:16 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/2856053851.shtml)
+- 2026-06-29 19:06 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/2453784841.shtml)
+- 2026-06-29 19:11 - [2026年，如果你有100万，你会怎么投资？](https://www.blog.kurohicncr.top/Article/details/30855491713.shtml)
+- 2026-06-29 18:56 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/09652.shtml)
+- 2026-06-29 18:52 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/069765.shtml)
+- 2026-06-29 18:59 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/80392394126.shtml)
+- 2026-06-29 19:04 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/1400000.shtml)
+- 2026-06-29 18:55 - [2026世界杯谁能一黑到底](https://www.blog.kurohicncr.top/Article/details/39505524.shtml)
+- 2026-06-29 19:04 - [TTG KSG](http://www.blog.kurohicncr.top/Article/details/724053.shtml)
+- 2026-06-29 18:51 - [吴建豪和老婆差20岁](http://www.share.minike.top/Article/details/25277003766.shtml)
+- 2026-06-29 18:59 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.share.minike.top/Article/details/13743260.shtml)
+- 2026-06-29 18:49 - [看大国重器“云端穿针引线”](https://www.share.kurohicncr.top/Article/details/89011660.shtml)
+- 2026-06-29 19:00 - [货车司机雨中帮交警挪树获表扬](http://www.blog.minike.top/Article/details/67756310.shtml)
+- 2026-06-29 18:58 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/67543147342.shtml)

@@ -1,57 +1,59 @@
-# “向东看”，到中国！近期全球掀起“访华潮”原因在哪里？
+# 主动量化掘金中盘成长机遇，长城智悦均衡混合正在发行中
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-央视网消息：今年以来，全球外交出现了一个引人关注的现象，多国领导人密集来到中国访问，从西方主要大国到全球南方国家，从山水相连的友邻到远道而来的客人，全球掀起了一波波“访华潮”，不断刷新中国外交活动的密度。为何会出现这一现象？中国对世界各国有着怎样的吸引力？来看记者观察。进入5月以来，先后访华的外国元首包括塔吉克斯坦总统拉赫蒙、美国总统特朗普、俄罗斯总统普京。此外，巴基斯坦总理夏
+登录新浪财经APP 搜索【信披】查看更多考评等级 在经济结构加速转型的背景下，兼具成长弹性与经营稳健性的中盘资产，正成为机构与个人投资者布局的重点。顺应市场配置需求及公募基金费率改革趋势，长城智悦均衡混合（A类：027035；C类：027036）正在发行中。该产品以长城基金自研的“AI+多因子”量化模型为核心、全市场选股为特色、浮动费率为保障，依托资深量化团队实力，打造适配震荡
 
 ## 正文
 
-央视网消息：今年以来，全球外交出现了一个引人关注的现象，多国领导人密集来到中国访问，从西方主要大国到全球南方国家，从山水相连的友邻到远道而来的客人，全球掀起了一波波“访华潮”，不断刷新中国外交活动的密度。
+登录新浪财经APP 搜索【信披】查看更多考评等级 在经济结构加速转型的背景下，兼具成长弹性与经营稳健性的中盘资产，正成为机构与个人投资者布局的重点。
 
-为何会出现这一现象？
+顺应市场配置需求及公募基金费率改革趋势，长城智悦均衡混合（A类：027035；C类：027036）正在发行中。
 
-中国对世界各国有着怎样的吸引力？
+该产品以长城基金自研的“AI+多因子”量化模型为核心、全市场选股为特色、浮动费率为保障，依托资深量化团队实力，打造适配震荡市的中盘均衡配置工具，为投资者提供全新的量化投资选择。
 
-来看记者观察。
+长城智悦均衡混合是一只主动量化产品，产品定位清晰，业绩基准对标中证500指数，但选股范围更加广泛。
 
-进入5月以来，先后访华的外国元首包括塔吉克斯坦总统拉赫蒙、美国总统特朗普、俄罗斯总统普京。
+这意味着，基金经理可在更广的标的池中挖掘优质个股，超额收益来源空间更广，有望实现更加精细化的个股与模型风险管理。
 
-此外，巴基斯坦总理夏巴兹23日起访华，塞尔维亚总统武契奇24日起访华。
+在具体操作层面，长城智悦均衡混合将深度运用“AI+多因子”模型。
 
-如果把时间线进一步拉长，从去年岁末到今年初夏，从法国、加拿大、英国、德国等西方主要大国，到韩国、越南、乌拉圭等亚洲和拉美国家，多国领导人来到中国访问，他们大多还率领豪华商务代表团。
+该模型依托长城基金量化团队自主研发的量化投研系统，从数据采集到因子挖掘、从模型构建到交易执行实现了全流程一体化。
 
-尽管各国国情迥异，但求稳定、谋合作、促发展的目标高度一致，将中国作为可靠稳定的合作伙伴，正成为各国的优先选项。
+尤为值得一提的是，该团队自2021年起便前瞻布局AI在量化投资中的应用，目前已将深度学习等技术全面引入实盘，用于因子挖掘、非结构化数据处理、风险与波动率控制等关键环节，力求在复杂的市场环境中捕捉定价偏差带来的投资机会。
 
 ## 相关推荐
 
-- 2026-06-29 19:06 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-29 18:49 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-29 18:58 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 18:54 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-29 18:54 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 19:03 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 19:07 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 18:51 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 18:59 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-29 18:47 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-29 19:06 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 19:02 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 18:57 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-29 18:59 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 19:05 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 19:08 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-29 18:52 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-29 19:14 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 18:48 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 19:04 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 19:09 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 18:57 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-29 19:12 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 19:14 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:53 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/698996125410.shtml)
-- 2026-06-29 18:45 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/4180809.shtml)
-- 2026-06-29 19:01 - [赵今麦时隔五年再演李诗情](https://www.blog.kurohicncr.top/Article/details/0355710754.shtml)
-- 2026-06-29 18:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/61440823079.shtml)
-- 2026-06-29 18:53 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/986690579360.shtml)
-- 2026-06-29 19:07 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/24006.shtml)
-- 2026-06-29 19:09 - [互助版模拟高考志愿填报](http://www.blog.minike.top/Article/details/837777251.shtml)
-- 2026-06-29 18:51 - [赵今麦时隔五年再演李诗情](https://www.blog.minike.top/Article/details/271227762612.shtml)
-- 2026-06-29 19:05 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.minike.top/Article/details/0020076078.shtml)
-- 2026-06-29 18:53 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/73231677.shtml)
-- 2026-06-29 19:04 - [送你一朵小红花](http://www.blog.minike.top/Article/details/008338.shtml)
-- 2026-06-29 18:46 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/991353562.shtml)
-- 2026-06-29 19:01 - [女心理师](https://www.share.kurohicncr.top/Article/details/327697.shtml)
-- 2026-06-29 18:47 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/8290210.shtml)
-- 2026-06-29 19:01 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/363528564045.shtml)
+- 2026-06-29 19:02 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/0115768.shtml)
+- 2026-06-29 19:13 - [戒掉咖啡后我的身体变化](https://www.blog.minike.top/Article/details/3941133131.shtml)
+- 2026-06-29 18:58 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/2139739978.shtml)
+- 2026-06-29 19:11 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/03775380069.shtml)
+- 2026-06-29 19:09 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/636558.shtml)
+- 2026-06-29 19:15 - [主力抛售电子和通信板块](http://www.share.kurohicncr.top/Article/details/979853195073.shtml)
+- 2026-06-29 18:49 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/09182.shtml)
+- 2026-06-29 18:54 - [依法管制阻遏日方军事化危险动向](https://www.share.minike.top/Article/details/17510749.shtml)
+- 2026-06-29 18:51 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/46313.shtml)
+- 2026-06-29 18:57 - [日本偶像龟梨和也宣布结婚](http://www.share.kurohicncr.top/Article/details/380906179888.shtml)
+- 2026-06-29 18:57 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/313241490112.shtml)
+- 2026-06-29 19:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/0768568085.shtml)
+- 2026-06-29 18:51 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/715061.shtml)
+- 2026-06-29 19:08 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/512725647007.shtml)
+- 2026-06-29 19:16 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/364021697801.shtml)

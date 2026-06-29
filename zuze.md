@@ -1,56 +1,61 @@
-# 重庆发布小流域山洪灾害气象风险预警 三地风险很高
+# Nu Holdings营收突破50亿美元，但季度利润率承压
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中新网重庆5月25日电 (梁钦卿)重庆市水利局和重庆市气象局25日8时联合发布小流域山洪灾害气象风险预警：预计25日8时至14时，13个区县部分乡镇有小流域山洪灾害气象风险。其余区县也可能因局地短时强降雨引发小流域山洪灾害。风险很高的地方有云阳、奉节、巫山；风险高的地方有万州；有一定风险的地方有巴南、江津、綦江、丰都、梁平、忠县、开州、巫溪、石柱。 防御要求：有关区县按照风险提
+Nu Holdings在公布2026年第一季度按管理口径计算的营收为53亿美元（首次突破50亿美元）后，盘前交易下跌4.87%。按中性汇率计算，净利润为8.71亿美元，同比增长41%。年化净资产收益率（ROE）收于29%，低于2025年第四季度的33%。 毛利润环比下降7%至18.8亿美元，信贷损失准备金环比增长33%至17.9亿美元。经风险调整后的净息差（NIM）从第四季度的
 
 ## 正文
 
-中新网重庆5月25日电 (梁钦卿)重庆市水利局和重庆市气象局25日8时联合发布小流域山洪灾害气象风险预警：预计25日8时至14时，13个区县部分乡镇有小流域山洪灾害气象风险。
+Nu Holdings在公布2026年第一季度按管理口径计算的营收为53亿美元（首次突破50亿美元）后，盘前交易下跌4.87%。
 
-其余区县也可能因局地短时强降雨引发小流域山洪灾害。
+按中性汇率计算，净利润为8.71亿美元，同比增长41%。
 
-风险很高的地方有云阳、奉节、巫山；风险高的地方有万州；有一定风险的地方有巴南、江津、綦江、丰都、梁平、忠县、开州、巫溪、石柱。
+年化净资产收益率（ROE）收于29%，低于2025年第四季度的33%。
 
-防御要求：有关区县按照风险提示，结合当地实际，细化气象风险预警颗粒度，加强监测预警，根据预案及时发布预警、启动响应，逐级叫应基层责任人上岗到位。
+毛利润环比下降7%至18.8亿美元，信贷损失准备金环比增长33%至17.9亿美元。
 
-达到预警阈值时，有关区县水行政主管部门果断提请基层地方政府和相关部门组织人员转移。
+经风险调整后的净息差（NIM）从第四季度的10.5%下降100个基点至9.5%。
 
-基层责任人加强巡查，及时提醒受威胁人员做好转移准备，达到转移条件或收到转移指令后，第一时间组织人员转移。
+早期逾期率（15至90天不良贷款率）上升89个基点至5.0%，与2024年第一季度和2025年第一季度观察到的季节性模式一致。
 
-市防指有关成员单位结合本行业实际，细致研判风险，落实管控措施。
+总信贷组合同比增长40%至372亿美元。
 
-(完)
+成本收入比从第四季度的19.9%改善至17.6%。
 
 ## 相关推荐
 
-- 2026-06-29 18:47 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-29 18:59 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 19:02 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-29 18:47 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 18:42 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 18:52 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-29 19:09 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-29 19:11 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-29 19:09 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 18:55 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-29 19:03 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 19:00 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 18:52 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 19:07 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-29 19:08 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 19:16 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 18:48 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 19:00 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-29 19:09 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 19:15 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-29 19:08 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 18:55 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 18:48 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 18:48 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 18:58 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:46 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/17822047369.shtml)
-- 2026-06-29 18:43 - [老板回应员工光脚清洗土豆](https://www.share.minike.top/Article/details/446977560.shtml)
-- 2026-06-29 18:52 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/6919516029.shtml)
-- 2026-06-29 19:01 - [湖南姑娘被东北同事带偏口音](http://www.share.minike.top/Article/details/9238779336.shtml)
-- 2026-06-29 19:03 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/872664.shtml)
-- 2026-06-29 19:02 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/83752.shtml)
-- 2026-06-29 19:03 - [河南四位大妈景区跳舞爆火](http://www.share.kurohicncr.top/Article/details/292434831.shtml)
-- 2026-06-29 18:47 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/6021727786.shtml)
-- 2026-06-29 18:57 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/003548249.shtml)
-- 2026-06-29 18:52 - [7月1日起一批新规即将落地](https://www.share.minike.top/Article/details/873752394192.shtml)
-- 2026-06-29 18:49 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/493505115.shtml)
-- 2026-06-29 18:44 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/18497659439.shtml)
-- 2026-06-29 18:57 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/23975169.shtml)
-- 2026-06-29 19:03 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/941362.shtml)
-- 2026-06-29 19:04 - [恋与深空客服的回应](http://www.share.minike.top/Article/details/07172.shtml)
+- 2026-06-29 19:16 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/2723894.shtml)
+- 2026-06-29 18:51 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/1620186.shtml)
+- 2026-06-29 18:52 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/220708658700.shtml)
+- 2026-06-29 19:13 - [第一炉香](https://www.share.minike.top/Article/details/76623854785.shtml)
+- 2026-06-29 19:16 - [唐艺昕告别浪姐千字长文](http://www.blog.kurohicncr.top/Article/details/15079561.shtml)
+- 2026-06-29 19:05 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/694482.shtml)
+- 2026-06-29 19:12 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/691614534464.shtml)
+- 2026-06-29 18:53 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/36479.shtml)
+- 2026-06-29 18:50 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/214773034.shtml)
+- 2026-06-29 18:58 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/24934.shtml)
+- 2026-06-29 18:52 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/296704299.shtml)
+- 2026-06-29 19:02 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/65369.shtml)
+- 2026-06-29 19:10 - [TFING全员黑西装](http://www.blog.kurohicncr.top/Article/details/40120.shtml)
+- 2026-06-29 18:56 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/418763.shtml)
+- 2026-06-29 19:14 - [小众羞耻点是吃麻辣烫](http://www.share.kurohicncr.top/Article/details/0788463657.shtml)

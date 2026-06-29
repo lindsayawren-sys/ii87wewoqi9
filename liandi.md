@@ -1,61 +1,61 @@
-# 5毛叫卖，“港股开户攻略”！监管重拳出击整治
+# 吉林发布民族交融史专著 厘清边疆族群发展轨迹
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-【重磅】富途、老虎交易被限！这个合规投资海外资产渠道来了>> 5月22日，中国证监会对老虎、富途、长桥境内外相关主体在境内非法经营证券业务等行为立案调查并作出行政处罚事先告知。经查，3家机构在未取得境内相关许可的情况下，在境内开展证券交易营销推广、处理交易指令等相关证券业务服务并获取相关收益，严重违反我国证券基金期货法律法规，破坏了市场秩序，必须坚决予以打击。 事实上，非法展业
+中新网长春5月16日电 (记者 郭佳)由吉林出版集团股份有限公司出版的《吉林省古代民族交往交流交融史纲要》16日在长春发布。这部著作系统梳理了先秦至明清吉林地域民族迁徙与交往交流交融发展脉络，是吉林边疆民族史领域颇具价值的研究成果。 吉林自古便是中国东北边疆多民族聚居之地。该书由东北师范大学文学院古籍整理研究所所长、该校中华民族共同体研究基地首席专家李德山，联合研究所讲师李路共
 
 ## 正文
 
-【重磅】富途、老虎交易被限！
+中新网长春5月16日电 (记者 郭佳)由吉林出版集团股份有限公司出版的《吉林省古代民族交往交流交融史纲要》16日在长春发布。
 
-这个合规投资海外资产渠道来了>> 5月22日，中国证监会对老虎、富途、长桥境内外相关主体在境内非法经营证券业务等行为立案调查并作出行政处罚事先告知。
+这部著作系统梳理了先秦至明清吉林地域民族迁徙与交往交流交融发展脉络，是吉林边疆民族史领域颇具价值的研究成果。
 
-经查，3家机构在未取得境内相关许可的情况下，在境内开展证券交易营销推广、处理交易指令等相关证券业务服务并获取相关收益，严重违反我国证券基金期货法律法规，破坏了市场秩序，必须坚决予以打击。
+吉林自古便是中国东北边疆多民族聚居之地。
 
-事实上，非法展业只是行业乱象的冰山一角。
+该书由东北师范大学文学院古籍整理研究所所长、该校中华民族共同体研究基地首席专家李德山，联合研究所讲师李路共同编撰，全书共计约27万字，以华夏、肃慎、秽貊、东胡四大族系为核心主线，清晰展现各民族在吉林大地共生相融的历史进程。
 
-证券时报记者此前对部分机构非法在境内招揽客户赴港开户情况开展了调查，发现尽管中国证监会早在2022年就已明确“红线”，若干香港大型券商也停止在境内招揽客户，但违规跨境开户灰色产业链仍未消停。
+著作打破以往单一民族、单一朝代的叙事局限，采用族系脉络与时间轴线并行的编撰架构，全面呈现女真、夫余、契丹等古代民族在政治、经济、文化领域的交流互动与融合史实。
 
-部分香港中小券商及中介人员依然通过各种方式在境内招揽客户，背后暗藏的资金与法律风险不容忽视。
+李德山表示，民族交往交流交融始终是吉林地区历史发展的主流趋势。
 
-随着监管部门的重拳出击，违规跨境证券交易灰色产业链将迎来清朗时刻。
+他指出，民族交融绝非单向同化，也非简单同质化合并，而是各民族长期共处中相互包容、互学互鉴、携手共进的自然发展过程。
 
-“港股开户攻略”5毛叫卖 网络大V也私下揽客 早在2022年12月30日，中国证监会就依法推进对富途控股、老虎证券非法跨境展业的整治工作。
+该书依托传世文献与考古实证资料，对包括高句丽相关问题在内的部分东北边疆历史争议进行了严谨辨析，以详实史料厘清区域民族发展全貌，为深化中华民族共同体相关研究提供扎实学术依据。
 
 ## 相关推荐
 
-- 2026-06-29 18:50 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 18:46 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 18:49 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 19:09 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-29 18:52 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 19:10 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 18:55 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-29 19:10 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-29 18:55 - [医药生物行业今日涨5.91%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-29 18:45 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 19:05 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 19:04 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 19:00 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-29 18:50 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 18:52 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-29 19:14 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-29 18:54 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-29 18:56 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 18:50 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 19:17 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 18:51 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-29 19:15 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 19:15 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 18:59 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 18:50 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 18:53 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 18:48 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 18:55 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 19:13 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-29 18:49 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:03 - [虞书欣好辣的剧宣](https://www.share.kurohicncr.top/Article/details/10510790.shtml)
-- 2026-06-29 18:45 - [4位大妈跳舞爆火多地景区争相邀约](https://www.share.kurohicncr.top/Article/details/88265231334.shtml)
-- 2026-06-29 18:43 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/77585283938.shtml)
-- 2026-06-29 18:45 - [徐昕暂不参加NBA夏季联赛](http://www.blog.kurohicncr.top/Article/details/3665546.shtml)
-- 2026-06-29 18:57 - [卢卡申科发布解放军仪仗队视频](https://www.blog.minike.top/Article/details/811429660.shtml)
-- 2026-06-29 18:42 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/3413149607.shtml)
-- 2026-06-29 18:42 - [速度与激情9](https://www.blog.minike.top/Article/details/12223646.shtml)
-- 2026-06-29 19:01 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/371938159128.shtml)
-- 2026-06-29 19:06 - [我和我的家乡](http://www.share.minike.top/Article/details/062180713.shtml)
-- 2026-06-29 19:05 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.kurohicncr.top/Article/details/010146293496.shtml)
-- 2026-06-29 18:50 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.blog.kurohicncr.top/Article/details/3729622251.shtml)
-- 2026-06-29 19:00 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.minike.top/Article/details/49043.shtml)
-- 2026-06-29 19:06 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.kurohicncr.top/Article/details/91980505633.shtml)
-- 2026-06-29 18:49 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/2979865232.shtml)
-- 2026-06-29 18:47 - [中方向委方追加1亿元援助](https://www.blog.kurohicncr.top/Article/details/2979667120.shtml)
+- 2026-06-29 19:03 - [依法管制阻遏日方军事化危险动向](http://www.blog.minike.top/Article/details/684518.shtml)
+- 2026-06-29 18:50 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/384173.shtml)
+- 2026-06-29 18:50 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.share.kurohicncr.top/Article/details/05465194.shtml)
+- 2026-06-29 19:04 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/00426.shtml)
+- 2026-06-29 19:06 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/445443021338.shtml)
+- 2026-06-29 18:56 - [章若楠包场白敬亭特立独行](http://www.blog.minike.top/Article/details/64324864.shtml)
+- 2026-06-29 18:56 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/252707656.shtml)
+- 2026-06-29 18:48 - [杨紫视后第一场线下活动](http://www.share.minike.top/Article/details/56241.shtml)
+- 2026-06-29 19:04 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/71355949111.shtml)
+- 2026-06-29 19:08 - [人形机器人](http://www.share.kurohicncr.top/Article/details/375160412.shtml)
+- 2026-06-29 19:06 - [利率一再降 “存款搬家”搬去哪](https://www.blog.minike.top/Article/details/573996.shtml)
+- 2026-06-29 19:06 - [日本在最东端离岛部署导弹发射装置](https://www.blog.kurohicncr.top/Article/details/3695574.shtml)
+- 2026-06-29 19:06 - [谢依霖夸杨幂靠谱](https://www.share.minike.top/Article/details/75632443.shtml)
+- 2026-06-29 18:59 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/461140.shtml)
+- 2026-06-29 19:00 - [地震来临时铁路工作人员果断拦停列车](https://www.share.kurohicncr.top/Article/details/756485.shtml)

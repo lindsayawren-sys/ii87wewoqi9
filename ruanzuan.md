@@ -1,47 +1,58 @@
-# 伊朗媒体：伊美双方均未在协议草案中就核问题作出任何承诺
+# 玲珑轮胎总裁周令坤：出海机遇远远大于风险
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰5月25日电伊朗学生通讯社25日援引伊朗高级外交官的话报道称，在伊朗与美国达成的初步协议草案中，双方均未就核问题和高丰度浓缩铀问题作出任何承诺。（完）责任编辑：宋雅芳
+专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。玲珑轮胎总裁周令坤在演讲中表示，在配套市场方面，玲珑轮胎在配套领域做得相对较好，目前全球排名前十的整车厂中，已有八家是我们的供货客户，估计很快就能实现对前十家整车厂的全面供货。“在这个过程中，我们完全没有感受到外资OEM的封闭性，反而更多感受到的是机遇，是非常有利
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。
 
-新华社德黑兰5月25日电伊朗学生通讯社25日援引伊朗高级外交官的话报道称，在伊朗与美国达成的初步协议草案中，双方均未就核问题和高丰度浓缩铀问题作出任何承诺。
+玲珑轮胎总裁周令坤在演讲中表示，在配套市场方面，玲珑轮胎在配套领域做得相对较好，目前全球排名前十的整车厂中，已有八家是我们的供货客户，估计很快就能实现对前十家整车厂的全面供货。
 
-（完）责任编辑：宋雅芳
+“在这个过程中，我们完全没有感受到外资OEM的封闭性，反而更多感受到的是机遇，是非常有利的发展契机。
+
+”他说。
+
+他表示，这种机遇的背后，是相对成熟的产业链优势。
+
+往上游看，从原材料环节开始，国内完善的产业基础，再加上我们新建工厂的优势，让我们的设备更具备智能制造的基础。
+
+无论是产品出口，我们的价格竞争力都非常明显，工厂新、原材料价格有优势、制造成本可控。
+
+同时，受外部等因素影响，我们现在也在推进产业链出海。
 
 ## 相关推荐
 
-- 2026-06-29 18:48 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 18:52 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 19:10 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 19:02 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 18:48 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-29 18:45 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-29 18:59 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 19:03 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-29 19:07 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-29 18:46 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 19:10 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 19:16 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 18:50 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 19:03 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 18:59 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-29 19:11 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-29 18:53 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 19:00 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-29 19:02 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 19:08 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 18:56 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 19:10 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 18:48 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:54 - [不烧钱的低成本爱好](https://www.blog.minike.top/Article/details/10962824.shtml)
-- 2026-06-29 19:06 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/168408741250.shtml)
-- 2026-06-29 18:46 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/905338428.shtml)
-- 2026-06-29 18:44 - [张杰我九岁就跟你了](http://www.blog.kurohicncr.top/Article/details/42527199.shtml)
-- 2026-06-29 18:50 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/842937.shtml)
-- 2026-06-29 18:49 - [胡光宇一审获刑13年](https://www.blog.minike.top/Article/details/089975.shtml)
-- 2026-06-29 19:02 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/43686.shtml)
-- 2026-06-29 18:43 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/702993306136.shtml)
-- 2026-06-29 19:04 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/17001228147.shtml)
-- 2026-06-29 19:06 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.share.kurohicncr.top/Article/details/3927961.shtml)
-- 2026-06-29 18:42 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/24487.shtml)
-- 2026-06-29 18:47 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/926737898659.shtml)
-- 2026-06-29 18:49 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/106304.shtml)
-- 2026-06-29 18:59 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.minike.top/Article/details/383591335704.shtml)
-- 2026-06-29 18:46 - [面对热浪欧洲人为何陷入空调内耗](https://www.share.kurohicncr.top/Article/details/34618.shtml)
+- 2026-06-29 19:05 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/186401.shtml)
+- 2026-06-29 18:55 - [巴西发布对阵日本宣传片](https://www.blog.kurohicncr.top/Article/details/7249291.shtml)
+- 2026-06-29 19:00 - [小说《无悔追踪》翻红](http://www.share.kurohicncr.top/Article/details/12658930.shtml)
+- 2026-06-29 19:13 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/205082629.shtml)
+- 2026-06-29 19:04 - [女心理师](http://www.share.kurohicncr.top/Article/details/206928.shtml)
+- 2026-06-29 19:08 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/344407578.shtml)
+- 2026-06-29 18:53 - [大 周 礼 时 代(4)](https://www.blog.minike.top/Article/details/25142936.shtml)
+- 2026-06-29 18:56 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/12066384232.shtml)
+- 2026-06-29 19:07 - [挪威王储妃长子两次强奸获刑](https://www.share.minike.top/Article/details/002713.shtml)
+- 2026-06-29 19:01 - [欧洲极端高温如何影响家电股](https://www.blog.kurohicncr.top/Article/details/8202456.shtml)
+- 2026-06-29 19:17 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/9225430.shtml)
+- 2026-06-29 19:04 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/142034870515.shtml)
+- 2026-06-29 19:03 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/00853721.shtml)
+- 2026-06-29 18:50 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/012757.shtml)
+- 2026-06-29 19:08 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/91332533.shtml)

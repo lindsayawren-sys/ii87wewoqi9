@@ -1,50 +1,52 @@
-# 国务院任免国家工作人员
+# 大美边疆看我家丨云南水富：因水而盛的活力之城
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！免去张云明的工业和信息化部副部长职务；免去龚旗煌的北京大学校长职务；免去高松的中山大学校长职务。（完）责任编辑：宋雅芳
+发布时间：2026年05月15日 10:18 来源：中国新闻网 在云贵高原的壮阔怀抱中，云南省水富市如一颗璀璨明珠，傲然屹立于云川交界之地。水富港是云南省唯一能实现3000吨级船舶江海直达的长江干线港口，素有“万里长江第一港”之称。水富城，一座因水而盛、因港而强的活力之城，正以开放包容的胸怀、蓬勃向上的姿态，在时代浪潮中书写属于自己的恢弘篇章。(作者：黄明高） 责任编辑：【魏聪
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年05月15日 10:18 来源：中国新闻网 在云贵高原的壮阔怀抱中，云南省水富市如一颗璀璨明珠，傲然屹立于云川交界之地。
 
-免去张云明的工业和信息化部副部长职务；免去龚旗煌的北京大学校长职务；免去高松的中山大学校长职务。
+水富港是云南省唯一能实现3000吨级船舶江海直达的长江干线港口，素有“万里长江第一港”之称。
 
-（完）责任编辑：宋雅芳
+水富城，一座因水而盛、因港而强的活力之城，正以开放包容的胸怀、蓬勃向上的姿态，在时代浪潮中书写属于自己的恢弘篇章。
+
+(作者：黄明高） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 18:47 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-29 18:45 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-29 18:56 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-29 19:02 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 18:58 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 18:43 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 18:43 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-29 18:44 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 18:42 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 19:05 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-29 18:53 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-29 18:57 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 19:06 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 18:51 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 19:03 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 19:14 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 19:00 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-29 19:01 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-29 19:15 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 18:56 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-29 19:00 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-29 18:58 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-29 19:17 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-29 19:00 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-29 18:57 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-29 18:51 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-29 19:13 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-29 19:11 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:48 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.kurohicncr.top/Article/details/41916465.shtml)
-- 2026-06-29 19:06 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/74329194870.shtml)
-- 2026-06-29 18:44 - [四川达州发生一起交通事故致2死](http://www.share.kurohicncr.top/Article/details/5219750209.shtml)
-- 2026-06-29 18:47 - [中国空间站为什么要升级扩容](https://www.share.kurohicncr.top/Article/details/916827844.shtml)
-- 2026-06-29 19:06 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/7293221.shtml)
-- 2026-06-29 18:57 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/284858453710.shtml)
-- 2026-06-29 18:54 - [徐昕暂不参加NBA夏季联赛](http://www.blog.kurohicncr.top/Article/details/330573.shtml)
-- 2026-06-29 18:42 - [央视曝光涉黄App诈骗陷阱](http://www.share.minike.top/Article/details/61739441203.shtml)
-- 2026-06-29 18:46 - [音乐人屠颖离世家属追责涉事酒店](http://www.share.minike.top/Article/details/8779519.shtml)
-- 2026-06-29 19:06 - [挪威王储妃长子两次强奸获刑](http://www.blog.kurohicncr.top/Article/details/511992680565.shtml)
-- 2026-06-29 19:06 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/71752.shtml)
-- 2026-06-29 19:04 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/982804909.shtml)
-- 2026-06-29 18:50 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/0293710349.shtml)
-- 2026-06-29 18:54 - [厨房装空调还是装冷烟机](https://www.blog.kurohicncr.top/Article/details/3838318.shtml)
-- 2026-06-29 19:05 - [法拉利被4个孩子当滑梯玩](https://www.share.kurohicncr.top/Article/details/882082.shtml)
+- 2026-06-29 19:05 - [我和我的家乡](http://www.blog.minike.top/Article/details/38155.shtml)
+- 2026-06-29 19:09 - [TLAW零封DCG MSI](http://www.share.minike.top/Article/details/9096216372.shtml)
+- 2026-06-29 18:55 - [扬名立万](http://www.share.minike.top/Article/details/582826228013.shtml)
+- 2026-06-29 18:55 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/33604437.shtml)
+- 2026-06-29 18:54 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/6989913513.shtml)
+- 2026-06-29 18:49 - [歼-15型舰载机为何被歼-15T替代](http://www.share.minike.top/Article/details/92395182.shtml)
+- 2026-06-29 19:08 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/07529222.shtml)
+- 2026-06-29 19:17 - [朱必达辞去湖南人大常委会委员职务](http://www.share.minike.top/Article/details/4340438.shtml)
+- 2026-06-29 18:56 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/32970702382.shtml)
+- 2026-06-29 19:14 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/39894.shtml)
+- 2026-06-29 18:48 - [回顾世界杯争议事件](https://www.share.minike.top/Article/details/07711162094.shtml)
+- 2026-06-29 19:04 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/97623.shtml)
+- 2026-06-29 19:07 - [周杰伦演唱会含星量](http://www.blog.minike.top/Article/details/95850439921.shtml)
+- 2026-06-29 18:57 - [欧洲安装一台空调要花近8000元](http://www.blog.minike.top/Article/details/9942114689.shtml)
+- 2026-06-29 19:08 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/88621317.shtml)

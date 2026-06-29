@@ -1,58 +1,59 @@
-# 郑州商品交易所聚酯期货板块引入境外交易者
+# 中山大学研制的可重复使用火箭实现低空飞行
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中新社郑州5月22日电 (阚力 张楠)郑州商品交易所(以下简称郑商所)22日消息，该所聚酯期货板块正式引入境外交易者。同时，对二甲苯(PX)、瓶片、短纤期货及期权、精对苯二甲酸(PTA)期权等7个品种同步对外开放。聚酯产业是连接石油化工与化纤纺织两大支柱产业的重要枢纽。目前，中国市场规模占全球70%，是全球最大的聚酯生产国、消费国和贸易国。2025年，中国PTA、短纤出口约占全
+中新网广州5月15日电 (许青青 李建平)由中山大学航空航天学院吴志刚教授团队研制的“逸仙-3号”面对称可重复使用火箭，14日在广东省阳江市成功完成低空飞行试验。 当日下午，火箭在发射至预定高度后，完成悬停、机动调整，平稳垂直降落至目标区域。据了解，这是中国内地首枚高校主导研制的面对称可回收液体火箭。 “逸仙-3号”火箭起飞质量约1吨，高度4.5米，直径0.6米。火箭外形呈面对
 
 ## 正文
 
-中新社郑州5月22日电 (阚力 张楠)郑州商品交易所(以下简称郑商所)22日消息，该所聚酯期货板块正式引入境外交易者。
+中新网广州5月15日电 (许青青 李建平)由中山大学航空航天学院吴志刚教授团队研制的“逸仙-3号”面对称可重复使用火箭，14日在广东省阳江市成功完成低空飞行试验。
 
-同时，对二甲苯(PX)、瓶片、短纤期货及期权、精对苯二甲酸(PTA)期权等7个品种同步对外开放。
+当日下午，火箭在发射至预定高度后，完成悬停、机动调整，平稳垂直降落至目标区域。
 
-聚酯产业是连接石油化工与化纤纺织两大支柱产业的重要枢纽。
+据了解，这是中国内地首枚高校主导研制的面对称可回收液体火箭。
 
-目前，中国市场规模占全球70%，是全球最大的聚酯生产国、消费国和贸易国。
+“逸仙-3号”火箭起飞质量约1吨，高度4.5米，直径0.6米。
 
-2025年，中国PTA、短纤出口约占全球贸易量的40%，瓶片出口占比达50%。
+火箭外形呈面对称，相比传统的轴对称火箭，这种设计能在大气层内提供更好的升力和姿态稳定性，尤其适合垂直起降回收。
 
-“此次开放正当其时，可为全球聚酯产业提供透明的价格发现和高效避险平台，增强产业链供应链韧性。
+“垂直起降是可重复使用火箭的核心技术，因为它决定了火箭能否安全回收并再次发射。
 
-”郑商所理事长朱丽红表示，此举同时引导全球产业、贸易和金融机构在郑州市场集聚，推动“中国价格”向“全球价格”转变。
+但垂直起降对控制精度要求极高，火箭要在高速下落中多次点火、反推减速，在触地时达到近乎零速度和零偏差，涉及气动、制导、推力调节控制等多学科技术的综合运用，任何一个微小失误都可能导致失败。
 
-中国化学纤维工业协会副会长靳高岭表示，从2006年PTA期货上市到覆盖全产业链的工具体系建成，期货深刻重塑了传统贸易生态，目前PTA现货贸易已普遍采用“期货价格+升贴水”的基差定价模式。
+”该项目主要负责老师、中山大学航空航天学院副教授张亮介绍，在“逸仙-3号”试验中，火箭在低空飞行过程中成功完成了姿态稳定、悬停控制、减速调整及精准着陆等关键动作，证明了团队在火箭总体设计方面的能力和设计方案的工程可行性。
 
 ## 相关推荐
 
-- 2026-06-29 18:44 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-29 18:42 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 19:01 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-29 18:57 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 18:52 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-29 18:43 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-29 19:03 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-29 19:07 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 18:45 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-29 18:58 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 18:54 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 18:59 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 18:55 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 18:49 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 19:08 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-29 19:11 - [黄金也扛不住了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 19:01 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-29 19:10 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-29 19:12 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-29 19:11 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 18:52 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-29 19:00 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-29 19:08 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 19:03 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 19:06 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:58 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/30307367898.shtml)
-- 2026-06-29 18:56 - [速度与激情9](http://www.blog.minike.top/Article/details/7844746.shtml)
-- 2026-06-29 19:01 - [恋与深空各大应用商店评分](http://www.share.minike.top/Article/details/71347058.shtml)
-- 2026-06-29 18:44 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/17828.shtml)
-- 2026-06-29 19:07 - [周杰伦演唱会含星量](https://www.blog.minike.top/Article/details/676141.shtml)
-- 2026-06-29 18:54 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/30998418546.shtml)
-- 2026-06-29 18:55 - [一生一世](http://www.blog.kurohicncr.top/Article/details/76855070585.shtml)
-- 2026-06-29 19:01 - [媒体：日本边磨刀边要货是做梦](http://www.blog.kurohicncr.top/Article/details/414356.shtml)
-- 2026-06-29 18:45 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/3151210.shtml)
-- 2026-06-29 18:57 - [利率一再降 “存款搬家”搬去哪](http://www.blog.minike.top/Article/details/045667462.shtml)
-- 2026-06-29 18:42 - [1个视频看懂2026志愿填报新专业](http://www.blog.minike.top/Article/details/873554120.shtml)
-- 2026-06-29 18:52 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/25475600735.shtml)
-- 2026-06-29 18:49 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/738271.shtml)
-- 2026-06-29 18:54 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/98951906.shtml)
-- 2026-06-29 19:06 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/1759583.shtml)
+- 2026-06-29 19:14 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/65769.shtml)
+- 2026-06-29 18:58 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/5605783834.shtml)
+- 2026-06-29 19:06 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/016139573950.shtml)
+- 2026-06-29 19:05 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/1721415.shtml)
+- 2026-06-29 19:04 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/805603830.shtml)
+- 2026-06-29 19:16 - [杨紫视后第一场线下活动](http://www.blog.minike.top/Article/details/42115360882.shtml)
+- 2026-06-29 18:59 - [一生一世](https://www.blog.kurohicncr.top/Article/details/32670439203.shtml)
+- 2026-06-29 18:56 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/71138704431.shtml)
+- 2026-06-29 19:09 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/58215516879.shtml)
+- 2026-06-29 18:52 - [韩国小学生都来吐槽了](https://www.share.kurohicncr.top/Article/details/564208.shtml)
+- 2026-06-29 18:52 - [森保一坚信日本能赢巴西](http://www.blog.minike.top/Article/details/83541.shtml)
+- 2026-06-29 19:06 - [让AI做一个账号，它会做成什么样？](http://www.blog.minike.top/Article/details/37223210918.shtml)
+- 2026-06-29 18:59 - [杨紫视后第一场线下活动](https://www.blog.minike.top/Article/details/878461967.shtml)
+- 2026-06-29 19:13 - [北京市发布雷电黄色预警](https://www.share.kurohicncr.top/Article/details/7531997723.shtml)
+- 2026-06-29 19:09 - [当家电外通风口出现鸟窝](https://www.blog.minike.top/Article/details/55462147985.shtml)

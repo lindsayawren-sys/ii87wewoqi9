@@ -1,56 +1,58 @@
-# 韬定律火了！半导体板块再创新高
+# 荀玉根等 | 4万亿成交额会突破吗？
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-专题：半导体领域取得新突破！华为发布韬（τ）定律 创造芯片性能提升新范式 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！今天，华为发布半导体领域的新突破——韬定律，这是中国在全球半导体领域首次提出指导产业发展的新原则。 过去几十年，摩尔定律是芯片行业的铁律，即把晶体管越做越小，靠“缩小尺寸”（几何缩微）堆性能。 在摩尔定律之下，每18个月-24个月，芯
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：荀玉根思考 国信证券首席经济学家 荀玉根 执业资格编号：S0980525090001 国信证券策略首席分析师 吴信坤 执业资格编号：S0980525120001 报告发布日期：2026年5月15日 3/23以来A股市场逐渐转暖，各大指数纷纷创新高，不过成交额未能突破今年1月3.99万亿的高点，5/11
 
 ## 正文
 
-专题：半导体领域取得新突破！
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-华为发布韬（τ）定律 创造芯片性能提升新范式 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+来源：荀玉根思考 国信证券首席经济学家 荀玉根 执业资格编号：S0980525090001 国信证券策略首席分析师 吴信坤 执业资格编号：S0980525120001 报告发布日期：2026年5月15日 3/23以来A股市场逐渐转暖，各大指数纷纷创新高，不过成交额未能突破今年1月3.99万亿的高点，5/11成交额一度超过3.5万亿，近两日又有所缩量。
 
-今天，华为发布半导体领域的新突破——韬定律，这是中国在全球半导体领域首次提出指导产业发展的新原则。
+量价往往相关，牛市运行过程中成交能放量是投资者关注的焦点之一。
 
-过去几十年，摩尔定律是芯片行业的铁律，即把晶体管越做越小，靠“缩小尺寸”（几何缩微）堆性能。
+本文借鉴过去牛市规律，运用牛市三段论，分析推演本轮牛市的成交趋势。
 
-在摩尔定律之下，每18个月-24个月，芯片上的晶体管数量翻一番，性能翻倍、成本减半。
+历史数据显示，牛市三个阶段成交额逐级放大。
 
-不过，摩尔定律开始逐渐失效。
+《荀玉根讲策略：少即是多》第5章通过对A股历史分析，提出牛市三段论概念：第一阶段孕育期，对应波浪理论中的1浪上涨和2浪回调，政策宽松驱动估值修复；第二阶段爆发期，即3浪上涨和4浪回调，盈利改善带来戴维斯双击；第三阶段泡沫期，即5浪冲顶，资金入场推高市场情绪。
 
-一是晶体管已经做到2-3纳米级别，再往下做难度加大，“几何缩微”放缓；二是晶体管越小，研发等费用越高，3纳米之下成本指数级上升，成本红利逐渐消退。
+回顾05/6-07/10、12/12-15/6、19/1-21/12三轮A股牛市历史，牛市三阶段市场日均成交额逐级放大。
 
-在这种背景下，韬定律提出以“时间缩微”替代“几何缩微”，以系统性降低时间常数为目标，通过逻辑折叠等创新技术，持续压缩信号传播时延，不断提升晶体管密度，实现半导体与电子系统的持续演进。
+牛市第二阶段日均成交额是第一阶段的1.4-3.3倍，第三阶段是第二阶段的1.2-4.9倍。
 
 ## 相关推荐
 
-- 2026-06-29 19:02 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 18:55 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-29 18:58 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 18:55 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 18:49 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-29 18:43 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 19:04 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-29 18:53 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-29 19:02 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 19:06 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 19:01 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 18:56 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 18:55 - [互助版模拟高考志愿填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-29 19:09 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-29 19:06 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 19:11 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 19:12 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-29 19:10 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 19:12 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 19:16 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-29 18:52 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-29 19:09 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:48 - [急先锋](http://www.share.kurohicncr.top/Article/details/21731766.shtml)
-- 2026-06-29 19:11 - [滚石就音乐人屠颖去世事件发声明](https://www.share.minike.top/Article/details/949068044673.shtml)
-- 2026-06-29 18:54 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/940852931.shtml)
-- 2026-06-29 18:47 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/943555894.shtml)
-- 2026-06-29 19:01 - [小娘惹](http://www.blog.minike.top/Article/details/45366882372.shtml)
-- 2026-06-29 19:09 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/47402607.shtml)
-- 2026-06-29 19:02 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/31275199.shtml)
-- 2026-06-29 18:43 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/71391.shtml)
-- 2026-06-29 18:44 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.minike.top/Article/details/2465206686.shtml)
-- 2026-06-29 18:57 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/04558.shtml)
-- 2026-06-29 19:06 - [看大国重器“云端穿针引线”](http://www.share.kurohicncr.top/Article/details/23651.shtml)
-- 2026-06-29 18:51 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/407772.shtml)
-- 2026-06-29 19:05 - [TFING全员黑西装](https://www.blog.kurohicncr.top/Article/details/102692581371.shtml)
-- 2026-06-29 18:43 - [日本足球能掀翻巴西吗](http://www.share.kurohicncr.top/Article/details/9013255987.shtml)
-- 2026-06-29 19:02 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/7898282676.shtml)
+- 2026-06-29 19:15 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.minike.top/Article/details/05785198.shtml)
+- 2026-06-29 19:00 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.minike.top/Article/details/50968921278.shtml)
+- 2026-06-29 19:04 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/7331922.shtml)
+- 2026-06-29 18:58 - [巴西国脚说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/543040650.shtml)
+- 2026-06-29 18:57 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/623882.shtml)
+- 2026-06-29 19:16 - [斛珠夫人](http://www.blog.minike.top/Article/details/63191530027.shtml)
+- 2026-06-29 18:48 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/589575802.shtml)
+- 2026-06-29 19:02 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/3181405750.shtml)
+- 2026-06-29 19:17 - [韩文体部对韩足协开展审计 查出局原因](https://www.share.kurohicncr.top/Article/details/12686758.shtml)
+- 2026-06-29 18:53 - [蔚来回应车漆洗车时被冲掉](http://www.share.minike.top/Article/details/23138478514.shtml)
+- 2026-06-29 19:16 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/90298.shtml)
+- 2026-06-29 19:01 - [《贺子珍》](http://www.blog.minike.top/Article/details/952379353779.shtml)
+- 2026-06-29 19:17 - [天道](http://www.blog.minike.top/Article/details/35037.shtml)
+- 2026-06-29 19:09 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/7981398292.shtml)
+- 2026-06-29 19:14 - [断骨增高灰产拉一人提成1.5万元](http://www.share.kurohicncr.top/Article/details/617988703.shtml)

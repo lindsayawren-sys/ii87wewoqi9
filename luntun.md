@@ -1,45 +1,57 @@
-# 央行今日开展2580亿元7天期逆回购操作
+# 外交大家谈：中美关系新定位，怎么看、怎么干？
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-5月25日金融一线消息，今日央行以固定利率、数量招标方式开展了2580亿元7天期逆回购操作，全额满足了一级交易商需求。 责任编辑：曹睿潼
+“我同特朗普总统赞同将构建‘中美建设性战略稳定关系’作为中美关系新定位，将为未来3年乃至更长时间的中美关系提供战略指引，相信会受到两国人民和国际社会的欢迎。” 14日，中国国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈时说。 中美关系新定位怎么看、怎么干？中国新闻社邀请南京大学国际关系学院院长朱锋、复旦大学国际问题研究院院长吴心伯、四川大学国际关系学院
 
 ## 正文
 
-5月25日金融一线消息，今日央行以固定利率、数量招标方式开展了2580亿元7天期逆回购操作，全额满足了一级交易商需求。
+“我同特朗普总统赞同将构建‘中美建设性战略稳定关系’作为中美关系新定位，将为未来3年乃至更长时间的中美关系提供战略指引，相信会受到两国人民和国际社会的欢迎。
 
-责任编辑：曹睿潼
+” 14日，中国国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈时说。
+
+中美关系新定位怎么看、怎么干？
+
+中国新闻社邀请南京大学国际关系学院院长朱锋、复旦大学国际问题研究院院长吴心伯、四川大学国际关系学院讲席教授荣鹰、中国人民大学国际关系学院教授刁大明、清华大学战略与安全研究中心副研究员孙成昊五位国际关系专家，围绕热点话题进行解读。
+
+中新社记者：中美关系新定位为何会在此时提出？
+
+朱锋：主要有两个方面的原因。
+
+一方面，国际社会变乱交织，动荡起伏也在加剧。
+
+中美两国作为世界前两大经济体，应更有作为、更有担当。
 
 ## 相关推荐
 
-- 2026-06-29 18:57 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-29 18:58 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-29 18:59 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-29 19:09 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-29 18:42 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-29 18:54 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 19:08 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-29 18:50 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 19:08 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-29 19:04 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 18:44 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-29 18:57 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-29 19:16 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 19:15 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-29 18:55 - [许建琼任湖南省检察院副检察长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 19:13 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 18:48 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 19:10 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-29 18:50 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 19:13 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 18:49 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 18:55 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:46 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/07931408402.shtml)
-- 2026-06-29 18:57 - [日本偶像龟梨和也宣布结婚](http://www.share.minike.top/Article/details/6915035661.shtml)
-- 2026-06-29 18:48 - [TLAW零封DCG MSI](https://www.share.kurohicncr.top/Article/details/13165314.shtml)
-- 2026-06-29 18:42 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/795470604593.shtml)
-- 2026-06-29 18:57 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/36094.shtml)
-- 2026-06-29 18:43 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/0884782718.shtml)
-- 2026-06-29 19:09 - [一家三口吃溪石斑鱼中毒](http://www.share.kurohicncr.top/Article/details/97144280527.shtml)
-- 2026-06-29 18:53 - [博主：AI泡沫必须破灭](https://www.share.kurohicncr.top/Article/details/9383718736.shtml)
-- 2026-06-29 18:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/8021638390.shtml)
-- 2026-06-29 19:09 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.minike.top/Article/details/437042.shtml)
-- 2026-06-29 18:47 - [娜扎搂着我的腰和我合照](http://www.share.kurohicncr.top/Article/details/543153291.shtml)
-- 2026-06-29 19:02 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.kurohicncr.top/Article/details/0635794.shtml)
-- 2026-06-29 19:00 - [中方向委方追加1亿元援助](https://www.share.kurohicncr.top/Article/details/7919625.shtml)
-- 2026-06-29 18:55 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/9253313890.shtml)
-- 2026-06-29 19:04 - [叠纸客服回应恋与深空新角色争议](https://www.share.kurohicncr.top/Article/details/238056.shtml)
+- 2026-06-29 19:14 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/240606.shtml)
+- 2026-06-29 18:55 - [唐艺昕告别浪姐千字长文](https://www.share.kurohicncr.top/Article/details/050477.shtml)
+- 2026-06-29 19:00 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/3495377375.shtml)
+- 2026-06-29 19:08 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/150408.shtml)
+- 2026-06-29 19:13 - [白宇摘下白玉兰送给杨幂](https://www.share.kurohicncr.top/Article/details/51076795.shtml)
+- 2026-06-29 19:01 - [河南四位大妈景区跳舞爆火](http://www.blog.minike.top/Article/details/7732448198.shtml)
+- 2026-06-29 18:50 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/4646383319.shtml)
+- 2026-06-29 18:56 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/250139040499.shtml)
+- 2026-06-29 19:16 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/14970903.shtml)
+- 2026-06-29 18:53 - [曝iPhone涨价后不会再降](https://www.blog.minike.top/Article/details/861155520.shtml)
+- 2026-06-29 19:08 - [互助版模拟高考志愿填报](http://www.blog.minike.top/Article/details/891917116679.shtml)
+- 2026-06-29 19:00 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/26424.shtml)
+- 2026-06-29 18:50 - [学者：建设性战略稳定重塑中美关系](http://www.blog.minike.top/Article/details/02419.shtml)
+- 2026-06-29 18:58 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.minike.top/Article/details/26381848217.shtml)
+- 2026-06-29 19:07 - [谢依霖夸杨幂靠谱](https://www.share.minike.top/Article/details/070202287268.shtml)

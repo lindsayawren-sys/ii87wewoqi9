@@ -1,59 +1,58 @@
-# EnWave第二季度营收骤降69%，亏损扩大至115万加元
+# 中方：愿同纽埃新一届政府拓展交流合作
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-EnWave Corporation于5月22日公布了截至2026年3月31日的第二季度财报。数据显示，公司当季营收为116万加元，较去年同期的369万加元大幅下降69%。净亏损为115万加元，而去年同期为盈利76.4万加元。调整后EBITDA录得亏损77.5万加元，去年同期为盈利11.2万加元。每股基本亏损为0.01加元。 公司表示，营收下降的主要原因是大型辐射能真空机器订单
+中新网北京5月15日电 (记者 曾玥 黄钰钦)中国外交部发言人郭嘉昆15日主持例行记者会。 有记者提问：据报道，纽埃议会5月14日选举现任总理塔格拉吉为新任总理。中方对此有何评论？对中纽关系有何期待？ 郭嘉昆：中方对塔格拉吉总理成功连任表示祝贺。中方高度重视中纽关系发展，愿同纽埃新一届政府共同努力，增进政治互信，拓展交流合作，推动两国相互尊重、共同发展的全面战略伙伴关系迈上新台
 
 ## 正文
 
-EnWave Corporation于5月22日公布了截至2026年3月31日的第二季度财报。
+中新网北京5月15日电 (记者 曾玥 黄钰钦)中国外交部发言人郭嘉昆15日主持例行记者会。
 
-数据显示，公司当季营收为116万加元，较去年同期的369万加元大幅下降69%。
+有记者提问：据报道，纽埃议会5月14日选举现任总理塔格拉吉为新任总理。
 
-净亏损为115万加元，而去年同期为盈利76.4万加元。
+中方对此有何评论？
 
-调整后EBITDA录得亏损77.5万加元，去年同期为盈利11.2万加元。
+对中纽关系有何期待？
 
-每股基本亏损为0.01加元。
+郭嘉昆：中方对塔格拉吉总理成功连任表示祝贺。
 
-公司表示，营收下降的主要原因是大型辐射能真空机器订单的固有波动性导致机器销售和在建机器数量减少。
+中方高度重视中纽关系发展，愿同纽埃新一届政府共同努力，增进政治互信，拓展交流合作，推动两国相互尊重、共同发展的全面战略伙伴关系迈上新台阶，更好惠及两国人民。
 
-基础版税收入为43.4万加元，同比下降8%；总版税收入为46.5万加元，同比下降2%。
-
-毛利率为35%，略高于去年同期的33%，主要得益于大型机器合同制造成本的降低。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 19:04 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 19:05 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 18:52 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 19:01 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-29 18:51 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-29 18:54 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 19:08 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-29 18:54 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 18:44 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-29 19:03 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 19:01 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 18:55 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 18:57 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 18:59 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 18:55 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-29 18:57 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 19:14 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 19:10 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-29 19:03 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 18:57 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 18:53 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-29 19:13 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 19:07 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-29 19:07 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 19:03 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-29 19:04 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 19:16 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:07 - [《贺子珍》](https://www.blog.minike.top/Article/details/536964628849.shtml)
-- 2026-06-29 18:50 - [刘扬任湖南省副省长](http://www.blog.kurohicncr.top/Article/details/999529451650.shtml)
-- 2026-06-29 19:11 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/87193301485.shtml)
-- 2026-06-29 18:58 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/299525.shtml)
-- 2026-06-29 19:11 - [毛朝晖任湖南省农业农村厅厅长](https://www.blog.minike.top/Article/details/8838839923.shtml)
-- 2026-06-29 18:59 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/56849124.shtml)
-- 2026-06-29 19:10 - [普京：俄罗斯面临命运攸关时刻](https://www.share.minike.top/Article/details/62357401373.shtml)
-- 2026-06-29 18:57 - [许建琼任湖南省检察院副检察长](http://www.share.minike.top/Article/details/47662855.shtml)
-- 2026-06-29 19:01 - [NBA交易](http://www.blog.minike.top/Article/details/7253782.shtml)
-- 2026-06-29 19:07 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.minike.top/Article/details/8831123945.shtml)
-- 2026-06-29 19:03 - [斛珠夫人](http://www.share.minike.top/Article/details/563661058131.shtml)
-- 2026-06-29 18:52 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/800893980.shtml)
-- 2026-06-29 19:06 - [谢依霖夸杨幂靠谱](https://www.blog.minike.top/Article/details/13748122433.shtml)
-- 2026-06-29 18:50 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.blog.kurohicncr.top/Article/details/165578.shtml)
-- 2026-06-29 18:44 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/4700221.shtml)
+- 2026-06-29 19:07 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/088714264349.shtml)
+- 2026-06-29 19:17 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/31143.shtml)
+- 2026-06-29 19:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/29186841.shtml)
+- 2026-06-29 19:14 - [大学专业未来如何洗牌](https://www.share.minike.top/Article/details/9753169.shtml)
+- 2026-06-29 19:05 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.kurohicncr.top/Article/details/416562.shtml)
+- 2026-06-29 19:11 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/405043425204.shtml)
+- 2026-06-29 18:55 - [专家预计全球央行加息节奏将出现反复](http://www.blog.minike.top/Article/details/854128.shtml)
+- 2026-06-29 19:02 - [如何看法国总统候选人称加强与华合作](https://www.share.minike.top/Article/details/63180865.shtml)
+- 2026-06-29 18:50 - [张杰我九岁就跟你了](http://www.share.minike.top/Article/details/23841656846.shtml)
+- 2026-06-29 19:17 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/90818.shtml)
+- 2026-06-29 19:11 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/61822229.shtml)
+- 2026-06-29 18:52 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/537922.shtml)
+- 2026-06-29 18:49 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/662292838.shtml)
+- 2026-06-29 19:17 - [世界杯预测史上最不吃压力之物](https://www.blog.kurohicncr.top/Article/details/832688162062.shtml)
+- 2026-06-29 18:58 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/69921677028.shtml)

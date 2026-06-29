@@ -1,52 +1,57 @@
-# 追觅官宣C罗出任品牌全球代言人，C罗：很荣幸
+# 专骗未成年人！以赠送游戏“皮肤”为诱饵 电诈团伙被捣毁
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-5月25日，追觅科技发文宣布，葡萄牙足球巨星克里斯蒂亚诺·罗纳尔多（C罗）出任品牌全球代言人，覆盖扫地机、洗地机、洗衣机等全品类，助力其在欧洲、中东等核心市场的高端化与全球化布局。‌‌ 这是继3月签约刘亦菲后的又一重磅合作，标志着追觅成功搭建影视+体坛双星代言格局。 同日，C罗发文称，“因相同的初心与信仰同行，很荣幸，成为追觅全球代言人。” 此前5月8日，C罗在沙特联赛攻入职业
+近日，山东临沂警方摧毁了一个针对未成年人实施电信诈骗的犯罪团伙。据警方初步查证，此案涉及全国各地受害者200多人，涉案金额巨大。 以赠送游戏装备为诱饵 实施诈骗200多起 犯罪嫌疑人交代，他们自去年8月份到案发时，在网上以赠送“皮肤”等游戏装备为诱饵，骗取钱财，累计针对未成年人实施诈骗200多起。今年4月8日，警方在临沂市兰山区捣毁一出租房内犯罪窝点。由于黄某文等3名犯罪嫌疑人
 
 ## 正文
 
-5月25日，追觅科技发文宣布，葡萄牙足球巨星克里斯蒂亚诺·罗纳尔多（C罗）出任品牌全球代言人，覆盖扫地机、洗地机、洗衣机等全品类，助力其在欧洲、中东等核心市场的高端化与全球化布局。
+近日，山东临沂警方摧毁了一个针对未成年人实施电信诈骗的犯罪团伙。
 
-‌‌ 这是继3月签约刘亦菲后的又一重磅合作，标志着追觅成功搭建影视+体坛双星代言格局。
+据警方初步查证，此案涉及全国各地受害者200多人，涉案金额巨大。
 
-同日，C罗发文称，“因相同的初心与信仰同行，很荣幸，成为追觅全球代言人。
+以赠送游戏装备为诱饵 实施诈骗200多起 犯罪嫌疑人交代，他们自去年8月份到案发时，在网上以赠送“皮肤”等游戏装备为诱饵，骗取钱财，累计针对未成年人实施诈骗200多起。
 
-” 此前5月8日，C罗在沙特联赛攻入职业生涯第971球，达成沙特联百球里程碑。
+今年4月8日，警方在临沂市兰山区捣毁一出租房内犯罪窝点。
 
-5月11日，追觅发文暗示追觅全球代言人称，971次破门只是一个数字。
+由于黄某文等3名犯罪嫌疑人在网上行骗作案到凌晨，此时，他们还在房内睡觉。
 
-责任编辑：李昂
+在前期的侦查中民警发现，黄某文等3人都有各自的房间。
+
+警方担心的是，如果不能快速控制嫌疑人，他们手机里涉嫌犯罪的证据很有可能被删掉。
+
+临沂市公安局兰山分局刑侦大队七中队中队长 韩晓东：我们制定了详细的抓捕计划，由于嫌疑人居住在高层楼内，我们强攻会产生一定的风险，因为这些嫌疑人手里的聊天软件，都具备一键删除所有聊天记录的功能。
 
 ## 相关推荐
 
-- 2026-06-29 19:00 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-29 19:10 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-29 18:54 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 19:09 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-29 18:56 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-29 18:51 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-29 19:03 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 19:01 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 18:50 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 18:51 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-29 18:59 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 18:58 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-29 19:13 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 18:55 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-29 19:03 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-29 18:52 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 19:17 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-29 19:13 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 19:15 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 19:13 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 18:56 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:43 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/6263090.shtml)
-- 2026-06-29 18:52 - [不烧钱的低成本爱好](http://www.blog.kurohicncr.top/Article/details/834564364122.shtml)
-- 2026-06-29 19:02 - [起风了](https://www.share.minike.top/Article/details/83711.shtml)
-- 2026-06-29 18:48 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.kurohicncr.top/Article/details/1262027787.shtml)
-- 2026-06-29 18:43 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/7933070963.shtml)
-- 2026-06-29 18:44 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/592188237.shtml)
-- 2026-06-29 18:55 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/113961079.shtml)
-- 2026-06-29 18:44 - [RAY评乘风2026总决赛](https://www.share.kurohicncr.top/Article/details/750434911.shtml)
-- 2026-06-29 19:04 - [让AI做一个账号，它会做成什么样？](https://www.share.kurohicncr.top/Article/details/978303560.shtml)
-- 2026-06-29 19:01 - [官媒首曝六代机？大V解读](https://www.share.kurohicncr.top/Article/details/173982746.shtml)
-- 2026-06-29 18:54 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.minike.top/Article/details/97632.shtml)
-- 2026-06-29 19:07 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/41171520244.shtml)
-- 2026-06-29 18:49 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/664302002.shtml)
-- 2026-06-29 18:44 - [一见倾心](http://www.share.minike.top/Article/details/0230854.shtml)
-- 2026-06-29 19:01 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/03650094.shtml)
+- 2026-06-29 19:09 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/6510590677.shtml)
+- 2026-06-29 18:59 - [世界杯1/16决赛对阵出炉](https://www.share.kurohicncr.top/Article/details/10084446.shtml)
+- 2026-06-29 19:15 - [AG 宫斗](http://www.blog.kurohicncr.top/Article/details/989390776217.shtml)
+- 2026-06-29 18:56 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.kurohicncr.top/Article/details/324538.shtml)
+- 2026-06-29 18:58 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/7080937322.shtml)
+- 2026-06-29 19:00 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/1530044.shtml)
+- 2026-06-29 18:56 - [当地回应林区违规放羊遭豹啃食](https://www.blog.minike.top/Article/details/890706018486.shtml)
+- 2026-06-29 18:50 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/98484920670.shtml)
+- 2026-06-29 18:51 - [韩文体部对韩足协开展审计 查出局原因](http://www.blog.kurohicncr.top/Article/details/74582455.shtml)
+- 2026-06-29 19:02 - [当我回母校教书](http://www.share.minike.top/Article/details/80603.shtml)
+- 2026-06-29 19:10 - [美人鱼](https://www.share.kurohicncr.top/Article/details/12477365.shtml)
+- 2026-06-29 19:03 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/30845280471.shtml)
+- 2026-06-29 18:53 - [小娘惹](https://www.blog.minike.top/Article/details/44259282759.shtml)
+- 2026-06-29 19:10 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/369099599.shtml)
+- 2026-06-29 19:09 - [巴西球员：日本队有点傲慢了](http://www.share.minike.top/Article/details/682575.shtml)

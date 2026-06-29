@@ -1,59 +1,58 @@
-# 监管全面升级！有关部门下一步将约谈违规展业的跨境券商、以及为其提供服务的中介
+# 紫砂雕刻传人以刀代笔雕雅器 心承文脉传非遗
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-专题：证监会严肃查处老虎富途长桥非法跨境展业案件 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！监管全面升级！跨境券商境内展业被全面取缔，协助展业者将被同步整顿 2年过渡期如何保障存量投资者权益？ 针对跨境互联网券商的监管全面升级，未持牌机构在内地展业将被全面禁止。 5月22日，证监会等八部门联合发布《综合整治非法跨境证券期货基金经营活动实施方案》（下
+中新网上海5月16日电 题：紫砂雕刻传人以刀代笔雕雅器 心承文脉传非遗 作者 范宇斌 “玩壶尚志彬心游艺”贺志斌紫砂雕刻展16日在上海朵云轩开幕。本次展览展出江苏省溧阳市紫砂雕刻非遗代表性传承人、一级(高级)陶艺师、中华文化促进会紫砂产业工作委员会副秘书长贺志斌的220余件作品，展现海派紫砂雕刻的独特艺术精髓与深厚文化内涵。 贺志斌出身书香门第，自幼接受传统文化熏陶，师承海派雕
 
 ## 正文
 
-专题：证监会严肃查处老虎富途长桥非法跨境展业案件 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网上海5月16日电 题：紫砂雕刻传人以刀代笔雕雅器 心承文脉传非遗 作者 范宇斌 “玩壶尚志彬心游艺”贺志斌紫砂雕刻展16日在上海朵云轩开幕。
 
-监管全面升级！
+本次展览展出江苏省溧阳市紫砂雕刻非遗代表性传承人、一级(高级)陶艺师、中华文化促进会紫砂产业工作委员会副秘书长贺志斌的220余件作品，展现海派紫砂雕刻的独特艺术精髓与深厚文化内涵。
 
-跨境券商境内展业被全面取缔，协助展业者将被同步整顿 2年过渡期如何保障存量投资者权益？
+贺志斌出身书香门第，自幼接受传统文化熏陶，师承海派雕刻大师、上海市文史研究馆馆员龚展。
 
-针对跨境互联网券商的监管全面升级，未持牌机构在内地展业将被全面禁止。
+在艺术修行之路上，他深耕宋元明清历代书画，坚守“以意趣为尚”的创作理念，精通以刀代笔的雕刻技法，将文人写意美学巧妙融合于紫砂器物创作中，让作品兼具古朴金石气与清雅书卷气，形成独有的艺术风格。
 
-5月22日，证监会等八部门联合发布《综合整治非法跨境证券期货基金经营活动实施方案》（下称《方案》）明确，禁止境外机构在境内开展证券期货基金业务相关营销招揽活动、提供相关开户、处理交易指令、资金划转等交易服务。
+贺志斌当日接受中新网专访时介绍，紫砂雕刻创作最难的并非技法本身，而在于创作者的文化底蕴以及对书画艺术的理解。
 
-同时，为保护投资者权益，新规设置2年过渡期，存量投资者可在期间单向卖出并转出资金。
+区别于侧重制壶工艺的宜兴紫砂，溧阳紫砂雕刻最大的特色是将传统书画艺术融入紫砂器物。
 
-整治期满后，境外机构全面关停境内网站、交易软件及配套服务。
+他潜心钻研古代书画流派风格与文化内核，结合紫砂器物造型，对书画艺术进行二次创作，让书画艺术在紫砂载体上焕发新生。
 
-随着新规出台，未持牌的境外券商将被明令禁止在内地展业。
+在创作方面，贺志斌坚持无草稿直接雕刻。
 
 ## 相关推荐
 
-- 2026-06-29 19:01 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-29 18:57 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 18:43 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-29 18:52 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 18:42 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 18:47 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 18:42 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-29 18:49 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 19:06 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-29 19:03 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-29 19:00 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 18:47 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-29 19:07 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-29 18:58 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 19:08 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 18:54 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 18:58 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 19:03 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-29 18:49 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 19:16 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-29 18:55 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 19:11 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-29 19:00 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-29 18:53 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 19:04 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:02 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/491232292970.shtml)
-- 2026-06-29 19:06 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/876847335.shtml)
-- 2026-06-29 18:56 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/94942.shtml)
-- 2026-06-29 18:58 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/024623891876.shtml)
-- 2026-06-29 18:59 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.minike.top/Article/details/401038026.shtml)
-- 2026-06-29 18:45 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/0500741225.shtml)
-- 2026-06-29 19:06 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.kurohicncr.top/Article/details/941780.shtml)
-- 2026-06-29 19:09 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/459613841.shtml)
-- 2026-06-29 18:42 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/7198701257.shtml)
-- 2026-06-29 19:04 - [中国创新药股价要反攻了吗](https://www.blog.kurohicncr.top/Article/details/135682791.shtml)
-- 2026-06-29 18:46 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/301279171.shtml)
-- 2026-06-29 18:42 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/045165116591.shtml)
-- 2026-06-29 19:04 - [一家三口吃溪石斑鱼中毒](https://www.blog.kurohicncr.top/Article/details/9960103526.shtml)
-- 2026-06-29 19:11 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/52030.shtml)
-- 2026-06-29 18:52 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/47776645.shtml)
+- 2026-06-29 19:14 - [送你一朵小红花](https://www.share.minike.top/Article/details/9098877.shtml)
+- 2026-06-29 19:03 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/1485187.shtml)
+- 2026-06-29 19:05 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/94310157.shtml)
+- 2026-06-29 19:08 - [欧洲极端高温如何影响家电股](https://www.blog.minike.top/Article/details/93977.shtml)
+- 2026-06-29 19:11 - [世界杯在中国观看最多的比赛](https://www.blog.minike.top/Article/details/163208334.shtml)
+- 2026-06-29 19:12 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/96455781862.shtml)
+- 2026-06-29 18:48 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.kurohicncr.top/Article/details/28740210109.shtml)
+- 2026-06-29 19:06 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.blog.minike.top/Article/details/699934883609.shtml)
+- 2026-06-29 19:08 - [巴西发布对阵日本宣传片](https://www.blog.kurohicncr.top/Article/details/067495403.shtml)
+- 2026-06-29 19:15 - [媒体：听清自己内心的声音再填志愿](http://www.blog.kurohicncr.top/Article/details/6982500762.shtml)
+- 2026-06-29 18:50 - [依法管制阻遏日方军事化危险动向](https://www.share.minike.top/Article/details/5798536.shtml)
+- 2026-06-29 19:16 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/505706.shtml)
+- 2026-06-29 18:59 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/060692.shtml)
+- 2026-06-29 18:50 - [欧洲极端高温如何影响家电股](http://www.share.minike.top/Article/details/472032480.shtml)
+- 2026-06-29 19:11 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/04680105844.shtml)

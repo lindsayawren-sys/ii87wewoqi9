@@ -1,60 +1,47 @@
-# 浙江侨媛齐聚丽水青田 探侨力如何赋能产业发展
+# 收评|国内期货主力合约跌多涨少 沪银跌超11%
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中新网丽水5月22日电(吴怡欣)5月21日至22日，近60位女企业家、女侨领齐聚浙江丽水青田，实地探访侨乡风貌，共话侨力助推地方产业发展的实践路径。 青田是著名侨乡，现有38万华侨华人分布在全球146个国家和地区。多年来，当地依托深厚的华侨资源，积极引入各国优质商品，为本土商贸发展持续赋能。 在侨乡进口商品城，写着不同国名的店铺吸引众人参观。来自义乌的浙江郦歌影视传媒有限公司董
+2026年5月15日，国内期货主力合约跌多涨少。SC原油涨超3%，集运欧线、液化石油气（LPG）、苯乙烯（EB）、低硫燃料油（LU）涨超2%；跌幅方面，沪银跌超11%，铂跌超6%，钯、沪锡跌超5%，碳酸锂、20号胶跌超3%，豆二、国际铜、橡胶、沪铜、氧化铝、棉花跌超2%。 责任编辑：赵思远
 
 ## 正文
 
-中新网丽水5月22日电(吴怡欣)5月21日至22日，近60位女企业家、女侨领齐聚浙江丽水青田，实地探访侨乡风貌，共话侨力助推地方产业发展的实践路径。
+2026年5月15日，国内期货主力合约跌多涨少。
 
-青田是著名侨乡，现有38万华侨华人分布在全球146个国家和地区。
+SC原油涨超3%，集运欧线、液化石油气（LPG）、苯乙烯（EB）、低硫燃料油（LU）涨超2%；跌幅方面，沪银跌超11%，铂跌超6%，钯、沪锡跌超5%，碳酸锂、20号胶跌超3%，豆二、国际铜、橡胶、沪铜、氧化铝、棉花跌超2%。
 
-多年来，当地依托深厚的华侨资源，积极引入各国优质商品，为本土商贸发展持续赋能。
-
-在侨乡进口商品城，写着不同国名的店铺吸引众人参观。
-
-来自义乌的浙江郦歌影视传媒有限公司董事长何丽娟走进某服饰店进行挑选，丰富的款式令她眼花缭乱。
-
-服装仅是商品城众多品类中的一部分，这里还汇聚了日用品、乳制品等10万余种来自各国的商品。
-
-何丽娟说：“义乌国际商贸城也设有进口商品区，两处市场各具特色，但同样显示出浙江县域对外开放的活力。
-
-” 不止是卖“好物”，如今的青田还致力于造“好物”。
+责任编辑：赵思远
 
 ## 相关推荐
 
-- 2026-06-29 19:06 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 19:06 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 19:02 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-29 19:11 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-29 18:54 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-29 18:46 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-29 18:47 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-29 18:53 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 19:10 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-29 18:44 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 18:47 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-29 18:55 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-29 18:45 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 18:56 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-29 18:57 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 19:12 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 19:17 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 19:01 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-29 19:18 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-29 19:13 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 19:17 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 19:01 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 19:17 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 19:15 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-29 19:14 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:03 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/05636.shtml)
-- 2026-06-29 19:09 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/3553403261.shtml)
-- 2026-06-29 19:06 - [不烧钱的低成本爱好](http://www.share.minike.top/Article/details/020453.shtml)
-- 2026-06-29 19:04 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/992999554927.shtml)
-- 2026-06-29 18:49 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/9142343103.shtml)
-- 2026-06-29 18:49 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/21108434063.shtml)
-- 2026-06-29 19:05 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/758584.shtml)
-- 2026-06-29 18:43 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/7279799489.shtml)
-- 2026-06-29 18:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/987115.shtml)
-- 2026-06-29 18:59 - [笔记本电脑一年涨价近一倍](https://www.share.kurohicncr.top/Article/details/64958375071.shtml)
-- 2026-06-29 18:44 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/061659190427.shtml)
-- 2026-06-29 18:48 - [爱很美味](https://www.share.minike.top/Article/details/328397.shtml)
-- 2026-06-29 19:07 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/626214294361.shtml)
-- 2026-06-29 18:43 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/643300351481.shtml)
-- 2026-06-29 18:58 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/44973884478.shtml)
+- 2026-06-29 18:54 - [杨紫有3部作品入围金鹰奖](https://www.share.minike.top/Article/details/8197353.shtml)
+- 2026-06-29 19:05 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/45278.shtml)
+- 2026-06-29 18:59 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/04070242199.shtml)
+- 2026-06-29 19:14 - [欧洲安装一台空调要花近8000元](http://www.share.kurohicncr.top/Article/details/6828603894.shtml)
+- 2026-06-29 19:14 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.minike.top/Article/details/733052929.shtml)
+- 2026-06-29 18:49 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/8982385.shtml)
+- 2026-06-29 18:52 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/589716252633.shtml)
+- 2026-06-29 19:11 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.blog.kurohicncr.top/Article/details/3339528390.shtml)
+- 2026-06-29 19:02 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/378925295.shtml)
+- 2026-06-29 19:09 - [逃狱兄弟](https://www.share.minike.top/Article/details/0363844580.shtml)
+- 2026-06-29 19:11 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/0535561.shtml)
+- 2026-06-29 19:13 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/29076071.shtml)
+- 2026-06-29 19:13 - [截瘫男子心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/14782102.shtml)
+- 2026-06-29 19:01 - [海清4次陪跑白玉兰](https://www.share.kurohicncr.top/Article/details/49678.shtml)
+- 2026-06-29 18:58 - [葛军透露高考出题思路](http://www.blog.kurohicncr.top/Article/details/6866182.shtml)

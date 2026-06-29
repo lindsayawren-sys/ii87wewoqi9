@@ -1,58 +1,49 @@
-# 巴基斯坦客运列车遭袭遇难人数升至47人
+# 国金证券：阿里巴巴-W维持“买入”评级 AI业务加速增长
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-新华社伊斯兰堡5月25日电(记者杨恺)新华社记者25日从巴基斯坦当地救援组织获悉，该国俾路支省客运列车24日遭袭击事件死亡人数已上升至47人，另有98人受伤。遇难者中包括20名安全人员。 安全部门消息人士说，当地时间24日8时5分许，一列短途客运列车从俾路支省首府奎达一处军营出发，在一铁路交叉口附近遭爆炸袭击。列车上载有因宰牲节假期返乡休假的安全人员。爆炸导致3节车厢脱轨，其中
+国金证券发布研报称，阿里芯片+云+模型三位一体，是国内全栈AI龙头，云业务加速增长，即时零售有望显著减亏。阿里巴巴-W（09988）预计FY2027-2029年经调整归母净利润分别为974.97/1438.90/1919.77亿元，对应经调整PE分别为23.5/15.9/11.9倍，维持“买入”评级。责任编辑：卢昱君
 
 ## 正文
 
-新华社伊斯兰堡5月25日电(记者杨恺)新华社记者25日从巴基斯坦当地救援组织获悉，该国俾路支省客运列车24日遭袭击事件死亡人数已上升至47人，另有98人受伤。
+国金证券发布研报称，阿里芯片+云+模型三位一体，是国内全栈AI龙头，云业务加速增长，即时零售有望显著减亏。
 
-遇难者中包括20名安全人员。
+阿里巴巴-W（09988）预计FY2027-2029年经调整归母净利润分别为974.97/1438.90/1919.77亿元，对应经调整PE分别为23.5/15.9/11.9倍，维持“买入”评级。
 
-安全部门消息人士说，当地时间24日8时5分许，一列短途客运列车从俾路支省首府奎达一处军营出发，在一铁路交叉口附近遭爆炸袭击。
-
-列车上载有因宰牲节假期返乡休假的安全人员。
-
-爆炸导致3节车厢脱轨，其中2节车厢翻车起火，附近车辆也受波及。
-
-初步调查显示，袭击者使用了共超70公斤的车载炸弹。
-
-巴基斯坦警方消息人士24日告诉新华社记者，该袭击导致至少24人死亡、82人受伤。
-
-巴基斯坦总理夏巴兹24日发表声明强烈谴责此次事件，并向遇难者家属表示慰问，强调“此类懦弱的恐怖主义行为无法削弱巴基斯坦人民的决心”，巴政府致力于消除一切形式的恐怖主义。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 18:56 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 19:08 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-29 18:45 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 19:09 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-29 18:59 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-29 18:48 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-29 19:01 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 19:09 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 18:53 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-29 18:46 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-29 19:03 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-29 19:11 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-29 18:48 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 18:57 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 19:10 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-29 19:13 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-29 18:50 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 18:54 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-29 19:12 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-29 19:03 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 19:01 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-29 18:50 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-29 18:50 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 18:58 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 19:15 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:46 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/250645644.shtml)
-- 2026-06-29 18:44 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/539703473984.shtml)
-- 2026-06-29 19:05 - [曝iPhone涨价后不会再降](http://www.share.kurohicncr.top/Article/details/00762321.shtml)
-- 2026-06-29 19:11 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/32130.shtml)
-- 2026-06-29 18:58 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/0598947.shtml)
-- 2026-06-29 18:54 - [大学专业未来如何洗牌](http://www.share.kurohicncr.top/Article/details/620543.shtml)
-- 2026-06-29 18:42 - [当家电外通风口出现鸟窝](https://www.blog.minike.top/Article/details/949864610.shtml)
-- 2026-06-29 19:02 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/901978698397.shtml)
-- 2026-06-29 19:01 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/713718.shtml)
-- 2026-06-29 18:50 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/785908571.shtml)
-- 2026-06-29 18:56 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/640091.shtml)
-- 2026-06-29 19:07 - [龟梨和也田中美奈实结婚](http://www.blog.minike.top/Article/details/5494355984.shtml)
-- 2026-06-29 18:53 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/90301.shtml)
-- 2026-06-29 19:00 - [章若楠包场白敬亭特立独行](http://www.blog.minike.top/Article/details/26026981.shtml)
-- 2026-06-29 18:48 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/195670374.shtml)
+- 2026-06-29 18:50 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/22237852962.shtml)
+- 2026-06-29 19:11 - [宜宾地震后铁路工作人员叫停列车](http://www.share.kurohicncr.top/Article/details/76565.shtml)
+- 2026-06-29 19:15 - [虞书欣好辣的剧宣](https://www.share.kurohicncr.top/Article/details/28255.shtml)
+- 2026-06-29 19:10 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/070061.shtml)
+- 2026-06-29 18:58 - [谢依霖夸杨幂靠谱](http://www.blog.minike.top/Article/details/449608.shtml)
+- 2026-06-29 19:00 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.kurohicncr.top/Article/details/97621482971.shtml)
+- 2026-06-29 19:15 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/86037.shtml)
+- 2026-06-29 19:07 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/82653944041.shtml)
+- 2026-06-29 19:15 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/13067911546.shtml)
+- 2026-06-29 19:04 - [105岁女红军看到自己长征时的模样](https://www.blog.kurohicncr.top/Article/details/87534465.shtml)
+- 2026-06-29 19:06 - [片寄凉太胖了好多](http://www.blog.minike.top/Article/details/64730.shtml)
+- 2026-06-29 18:53 - [韩国队启程回国 全员羞愧低头](https://www.share.minike.top/Article/details/8201647533.shtml)
+- 2026-06-29 18:48 - [铜价上涨 日本住宅水表失窃严重](https://www.share.minike.top/Article/details/22858.shtml)
+- 2026-06-29 19:03 - [金牌调解](https://www.share.minike.top/Article/details/84766261.shtml)
+- 2026-06-29 18:53 - [呼兰赵晓卉来东风奕派开专场了](https://www.blog.kurohicncr.top/Article/details/09483422.shtml)

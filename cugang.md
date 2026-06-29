@@ -1,59 +1,59 @@
-# 健身运动，如何让你更心动——体博会展现体育产业新图景
+# 广西南宁首批10个人工智能OPC创业社区集中开放
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-健身运动，如何让你更心动(体育大看台) ——体博会展现体育产业新图景 5月24日，第四十三届中国国际体育用品博览会(以下简称“体博会”)在福建厦门落幕，4天来，累计接待观众超过17万人次。本届体博会上，智能产品纷纷亮相，技术赋能健身场景，业态融合服务便捷贴心，让体育产品拥有了更动人的温度。 健身更智能体态分析报告、器械自动调重，科学健身有了坚实的技术支撑 本届体博会，亚太健身及
+中新网南宁5月16日电(记者 黄艳梅)5月15日，广西南宁市首批人工智能OPC(一人公司)创业社区集中开放仪式在中国—东盟国家人工智能应用合作中心举行，集中展示南宁人工智能(AI)OPC创业生态建设成果。 随着AI浪潮的蓬勃兴起，个体创新潜力被持续激活，OPC成为当前炙手可热的轻量化、智能化、普惠化的新型创业模式。 南宁首批推出的人工智能OPC创业社区共10个，主要分布于五象新
 
 ## 正文
 
-健身运动，如何让你更心动(体育大看台) ——体博会展现体育产业新图景 5月24日，第四十三届中国国际体育用品博览会(以下简称“体博会”)在福建厦门落幕，4天来，累计接待观众超过17万人次。
+中新网南宁5月16日电(记者 黄艳梅)5月15日，广西南宁市首批人工智能OPC(一人公司)创业社区集中开放仪式在中国—东盟国家人工智能应用合作中心举行，集中展示南宁人工智能(AI)OPC创业生态建设成果。
 
-本届体博会上，智能产品纷纷亮相，技术赋能健身场景，业态融合服务便捷贴心，让体育产品拥有了更动人的温度。
+随着AI浪潮的蓬勃兴起，个体创新潜力被持续激活，OPC成为当前炙手可热的轻量化、智能化、普惠化的新型创业模式。
 
-健身更智能体态分析报告、器械自动调重，科学健身有了坚实的技术支撑 本届体博会，亚太健身及健康生活展区占地面积最大，国内外一线品牌及新锐企业在此集结。
+南宁首批推出的人工智能OPC创业社区共10个，主要分布于五象新区、青秀区等。
 
-体态分析报告立等可取，专业心肺测试半小时完成，力量器械随动作自动调重……舒华体育展区门口排起长队，一系列流畅演示吸引大量观众驻足体验。
+这批社区聚焦培育智能时代“超级个体”，依托“单人+AI+平台”轻量化创业新模式，为广大创客提供低成本办公空间、智能算力支撑、AI工具赋能、创业政策兑现、导师陪伴指导、市场场景对接、东盟资源链接等一站式服务，构建全周期、专业化、智能化的OPC创业服务生态。
 
-“我们将体态分析、有氧训练、力量训练融合，让各环节硬件串联形成健身闭环。
+其中，具有“AI+跨境电商”特色的扶遥匯OPC社区，依托广西东盟跨境电商总部基地，打造面向东盟的AI+电商超级个体孵化平台，可入驻100个OPC；主打“AI+东盟应用”的南A东盟谷，具备畅通的资源渠道与产业联动纽带，能为OPC创业发展搭建优质产业链接与生态支撑。
 
-”舒华体育股份有限公司副总裁侍勇介绍，系统可根据使用者身体情况、肌肉力量等生成训练方案，动态调整器械强度。
+当天，“AI创业优选南宁”OPC云社区平台正式发布。
 
-他边展示手机应用边说，每次锻炼数据会实时回收，下次方案生成时会参考上次的数据，形成“长线记忆”，让进步看得见，健身更有动力。
+该平台立足“邀约全球、创享南宁、智联东盟”，聚焦创业订单供给、AI工具支持、社区直达服务、东盟资源链接四大核心功能，集聚人才引育、技能培养、项目交付、算力支撑、政策服务五大关键能力，提供一站式、全链条、高品质的线上创业孵化服务。
 
-西安维塑智能科技的展位也同样热闹，这家企业以健康数据服务见长，已与多家硬件厂商展开合作。
+当前，南宁市深入落实国家“人工智能+”行动部署，抢抓产业发展战略机遇，在广西率先出台人社服务支持人工智能OPC创业发展“十条措施”、支持打造人工智能OPC创新发展先行区十五条措施等，积极推动OPC创业个体发展及创业社区建设。
 
 ## 相关推荐
 
-- 2026-06-29 18:46 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 18:42 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 18:47 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-29 19:08 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 18:48 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-29 18:52 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-29 19:10 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 18:58 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 18:52 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-29 18:49 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-29 18:44 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-29 18:52 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 19:02 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 18:57 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-29 18:53 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 19:02 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-29 19:00 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-29 18:48 - [机器人学校开学了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 19:10 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-29 19:15 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 18:50 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-29 19:09 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 18:51 - [扩军害了世界杯吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 19:01 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 18:49 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-29 19:12 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:09 - [娜扎搂着我的腰和我合照](https://www.share.minike.top/Article/details/27130.shtml)
-- 2026-06-29 18:58 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/82768406683.shtml)
-- 2026-06-29 18:54 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/73722.shtml)
-- 2026-06-29 18:43 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.kurohicncr.top/Article/details/577873.shtml)
-- 2026-06-29 18:59 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/350577963098.shtml)
-- 2026-06-29 19:03 - [媒体：听清自己内心的声音再填志愿](https://www.share.kurohicncr.top/Article/details/71480648987.shtml)
-- 2026-06-29 18:59 - [西十高铁让“朝秦暮楚”之地活了](http://www.blog.minike.top/Article/details/035148061.shtml)
-- 2026-06-29 18:48 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/2331084851.shtml)
-- 2026-06-29 18:55 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/169434922315.shtml)
-- 2026-06-29 18:53 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/757620778.shtml)
-- 2026-06-29 19:05 - [湖南耒阳“轮椅女孩”高考546分](http://www.blog.minike.top/Article/details/75203155.shtml)
-- 2026-06-29 19:11 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/67560795518.shtml)
-- 2026-06-29 19:01 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/92146.shtml)
-- 2026-06-29 19:02 - [河南高院审委会原委员曲海滨被查](https://www.blog.minike.top/Article/details/88618.shtml)
-- 2026-06-29 18:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/20492037299.shtml)
+- 2026-06-29 19:06 - [中国创新药股价要反攻了吗](http://www.blog.kurohicncr.top/Article/details/863373904.shtml)
+- 2026-06-29 18:59 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/967852488532.shtml)
+- 2026-06-29 18:58 - [爱很美味](http://www.share.kurohicncr.top/Article/details/34595.shtml)
+- 2026-06-29 19:17 - [叠纸客服回应恋与深空新角色争议](https://www.share.kurohicncr.top/Article/details/5684302032.shtml)
+- 2026-06-29 19:06 - [滚石就音乐人屠颖去世事件发声明](http://www.share.kurohicncr.top/Article/details/05644265378.shtml)
+- 2026-06-29 19:06 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/011385.shtml)
+- 2026-06-29 19:01 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/2519295895.shtml)
+- 2026-06-29 19:15 - [女心理师](https://www.blog.minike.top/Article/details/729061788.shtml)
+- 2026-06-29 18:56 - [毒液2](https://www.share.minike.top/Article/details/7183610720.shtml)
+- 2026-06-29 19:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/3658444.shtml)
+- 2026-06-29 18:57 - [王俊凯命名方式](http://www.share.minike.top/Article/details/3054019633.shtml)
+- 2026-06-29 18:50 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/0468303.shtml)
+- 2026-06-29 19:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/9674889930.shtml)
+- 2026-06-29 19:01 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/588829084747.shtml)
+- 2026-06-29 18:52 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/6000877689.shtml)

@@ -1,48 +1,59 @@
-# 三星电子达成临时协议避免罢工
+# 黎霍高速太岳山隧道贯通 全长11.1千米
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-三星电子（KRX：005930）与工会达成了一项临时薪资和奖金协议，暂停了持续18天的罢工，在人工智能内存供应紧张的背景下，公司股价上涨约6%。责任编辑：张俊 SF065
+中新网长治5月16日电 (陆祁国 蒋勇)中铁三局5月16日发布消息，由该局参建的山西黎城至霍州高速公路(简称“黎霍高速”)控制性工程——太岳山隧道实现全隧贯通，向全线通车目标迈出了关键一步。 太岳山隧道是山西省目前在建最长的高速公路隧道，全长11.1千米，采用分离式双洞设计。由于隧道围岩以Ⅳ、Ⅴ级为主，需穿越29条断层破碎带及2处大型褶皱，围岩软弱破碎，突泥涌水、岩爆等地质风险
 
 ## 正文
 
-三星电子（KRX：005930）与工会达成了一项临时薪资和奖金协议，暂停了持续18天的罢工，在人工智能内存供应紧张的背景下，公司股价上涨约6%。
+中新网长治5月16日电 (陆祁国 蒋勇)中铁三局5月16日发布消息，由该局参建的山西黎城至霍州高速公路(简称“黎霍高速”)控制性工程——太岳山隧道实现全隧贯通，向全线通车目标迈出了关键一步。
 
-责任编辑：张俊 SF065
+太岳山隧道是山西省目前在建最长的高速公路隧道，全长11.1千米，采用分离式双洞设计。
+
+由于隧道围岩以Ⅳ、Ⅴ级为主，需穿越29条断层破碎带及2处大型褶皱，围岩软弱破碎，突泥涌水、岩爆等地质风险突出。
+
+受复杂地形及太岳山国家级自然保护区环保要求限制，项目需攻克单洞单向超长独头掘进难题，掘进距离达到5.32公里，在国内高速公路隧道施工中较为少见，对施工技术、安全管控及环保措施等提出了严苛要求。
+
+面对多重施工挑战，项目部科学谋划，精心组织，多次邀请隧道专家现场勘察、集中“会诊”，对特长隧道通风、排水、物料运输制定专项施工方案。
+
+其间，项目部创新应用“巷道式+射流风机多级接力”通风系统，显著改善洞内通风条件与空气质量，优化了超长隧道洞内施工作业环境。
+
+“建设中，隧道富水断层破碎带突泥涌水风险极为突出，尤其是在穿越S4富水褶皱断层过程中，日均涌水量高达17000立方米，约等同于7个标准游泳池蓄水量，施工难度极大。
+
+”中铁三局项目部总工程师赵卿政介绍。
 
 ## 相关推荐
 
-- 2026-06-29 18:45 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-29 18:42 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 18:48 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-29 18:48 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-29 18:56 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-29 19:05 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 18:54 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-29 19:01 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-29 18:43 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 19:11 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-29 18:48 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-29 18:59 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-29 19:03 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-29 18:42 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 18:53 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 19:02 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 19:01 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 19:00 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 19:07 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-29 18:54 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 19:14 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 19:14 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-29 18:59 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 18:50 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 18:52 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-29 19:17 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-29 19:10 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:03 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/518078.shtml)
-- 2026-06-29 19:06 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/184652904.shtml)
-- 2026-06-29 18:50 - [李连杰否认不管前妻两女儿](https://www.blog.kurohicncr.top/Article/details/103194959173.shtml)
-- 2026-06-29 18:57 - [赵今麦时隔五年再演李诗情](http://www.blog.kurohicncr.top/Article/details/517343417427.shtml)
-- 2026-06-29 19:05 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/49229076017.shtml)
-- 2026-06-29 18:51 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/2193675.shtml)
-- 2026-06-29 18:50 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.minike.top/Article/details/26249461879.shtml)
-- 2026-06-29 19:07 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/463195.shtml)
-- 2026-06-29 19:04 - [机器人学校开学了](https://www.blog.kurohicncr.top/Article/details/98641922414.shtml)
-- 2026-06-29 19:03 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/349791290942.shtml)
-- 2026-06-29 19:01 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/461322394716.shtml)
-- 2026-06-29 18:51 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/54568876.shtml)
-- 2026-06-29 18:47 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/997953319.shtml)
-- 2026-06-29 18:49 - [湖南耒阳“轮椅女孩”高考546分](http://www.blog.minike.top/Article/details/9549266050.shtml)
-- 2026-06-29 18:45 - [王冰冰向全网安利哈兰德](http://www.share.minike.top/Article/details/93946678.shtml)
+- 2026-06-29 18:59 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/01108020576.shtml)
+- 2026-06-29 18:59 - [花万元相亲对象是50元雇的演员](https://www.blog.minike.top/Article/details/91657982491.shtml)
+- 2026-06-29 18:51 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/308001.shtml)
+- 2026-06-29 18:55 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/984454841.shtml)
+- 2026-06-29 19:15 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/64159.shtml)
+- 2026-06-29 19:13 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/6966909203.shtml)
+- 2026-06-29 19:07 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/36524939.shtml)
+- 2026-06-29 19:15 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/343813382585.shtml)
+- 2026-06-29 19:12 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/41617863.shtml)
+- 2026-06-29 19:05 - [韩文体部对韩足协开展审计 查出局原因](https://www.blog.minike.top/Article/details/449375674.shtml)
+- 2026-06-29 19:12 - [大学专业未来如何洗牌](https://www.share.kurohicncr.top/Article/details/123985093462.shtml)
+- 2026-06-29 18:59 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/388023544203.shtml)
+- 2026-06-29 18:59 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/19063.shtml)
+- 2026-06-29 19:05 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.minike.top/Article/details/591063456528.shtml)
+- 2026-06-29 19:17 - [河南高院审委会原委员曲海滨被查](http://www.blog.kurohicncr.top/Article/details/7532561.shtml)

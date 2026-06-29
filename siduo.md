@@ -1,60 +1,49 @@
-# 南宁铁警进校开展“硬核”科普 趣味课堂解锁铁路安全必修课
+# “党史面对面”走进浙江北仑灵峰工业社区 传承红色精神
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中新网南宁5月25日电(姚鹏鹏)5月26日是全国铁路爱路护路宣传日。近日，南宁铁路公安处乘警支队联合南宁客运段团委、关工委，依托“壮锦乘警服务队”党建品牌，走进北京大学南宁附属实验学校，为200余名学生开展了一场沉浸式铁路安全法治宣讲活动。 此次活动贴合青少年认知规律，摒弃枯燥说教模式，通过实景展示、趣味授课、互动问答等多元化形式，将铁路安全知识、法治常识、文明出行理念融入生动
+发布时间：2026年05月16日 13:40 来源：中国新闻网 5月15日，“党史面对面”——走进北仑灵峰工业社区活动在浙江省宁波市北仑区举行，以沉浸式情景展示、青年宣讲、文艺展演等多元形式，让党史故事从书本中“走”出来，让红色精神赋能产业一线。(张斌 刘子琳) 责任编辑：【吉翔】
 
 ## 正文
 
-中新网南宁5月25日电(姚鹏鹏)5月26日是全国铁路爱路护路宣传日。
+发布时间：2026年05月16日 13:40 来源：中国新闻网 5月15日，“党史面对面”——走进北仑灵峰工业社区活动在浙江省宁波市北仑区举行，以沉浸式情景展示、青年宣讲、文艺展演等多元形式，让党史故事从书本中“走”出来，让红色精神赋能产业一线。
 
-近日，南宁铁路公安处乘警支队联合南宁客运段团委、关工委，依托“壮锦乘警服务队”党建品牌，走进北京大学南宁附属实验学校，为200余名学生开展了一场沉浸式铁路安全法治宣讲活动。
-
-此次活动贴合青少年认知规律，摒弃枯燥说教模式，通过实景展示、趣味授课、互动问答等多元化形式，将铁路安全知识、法治常识、文明出行理念融入生动课堂，让安全法治理念根植青少年心中。
-
-活动现场，青年乘警带来了伸缩警棍、催泪喷射器等常用警用装备，平日里仅在影视画面中出现的警务装备悉数亮相，瞬间吸引了同学们的目光。
-
-乘警现场逐一展示装备用途、规范使用场景及安全防护原理，同时结合装备实操讲解铁路治安防护、违法违规行为处置相关知识，让大家近距离感受铁路公安的硬核守护，直观认识遵纪守法、爱护铁路设施的重要意义，进一步树立了同学们敬畏法律、敬畏规则的意识。
-
-课堂上，民警化身安全讲师，将法律条文转化为通俗易懂的“安全秘籍”，精准聚焦青少年日常生活和出行场景开展普法宣讲。
-
-针对校园安全，开设反霸凌小课堂，引导同学们团结友善、和睦相处，学会自我保护的同时，勇敢向霸凌行为说“不”。
-
-针对青少年网络安全，民警通过普及防诈知识，详细拆解了针对未成年人的各类诈骗套路，提醒大家不轻信陌生信息、不随意转账消费，守护个人财产安全。
+(张斌 刘子琳) 责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-29 19:08 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-29 18:45 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 18:52 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 18:45 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-29 18:54 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-29 18:47 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 19:07 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-29 19:07 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 18:56 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-29 19:02 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-29 18:50 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 18:59 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-29 19:11 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 18:45 - [看大国重器“云端穿针引线”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 19:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 19:11 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 19:14 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-29 19:06 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 19:11 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 19:09 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 19:10 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-29 19:06 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 18:57 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 18:49 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 18:56 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 19:01 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-29 19:15 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-29 19:14 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-29 18:49 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:02 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/961161064.shtml)
-- 2026-06-29 18:42 - [为何说今日日本似战前日本](https://www.blog.minike.top/Article/details/003436523.shtml)
-- 2026-06-29 19:06 - [笔记本电脑一年涨价近一倍](https://www.blog.minike.top/Article/details/834427.shtml)
-- 2026-06-29 19:07 - [RAY评乘风2026总决赛](http://www.blog.minike.top/Article/details/20312526659.shtml)
-- 2026-06-29 18:58 - [看大国重器“云端穿针引线”](https://www.share.minike.top/Article/details/66934599.shtml)
-- 2026-06-29 18:53 - [林昀儒止步美国大满贯首轮](http://www.share.minike.top/Article/details/33350.shtml)
-- 2026-06-29 18:44 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/1583628.shtml)
-- 2026-06-29 19:07 - [中国创新药股价要反攻了吗](http://www.share.minike.top/Article/details/5799230494.shtml)
-- 2026-06-29 18:46 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.blog.minike.top/Article/details/034405.shtml)
-- 2026-06-29 18:52 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/949153695.shtml)
-- 2026-06-29 19:06 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.blog.minike.top/Article/details/609112076.shtml)
-- 2026-06-29 18:54 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/6616126.shtml)
-- 2026-06-29 18:53 - [滚石点名酒店员工说有急救培训](https://www.blog.minike.top/Article/details/0401280648.shtml)
-- 2026-06-29 19:07 - [5万块的威力](http://www.share.kurohicncr.top/Article/details/65348962220.shtml)
-- 2026-06-29 18:45 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/041082298389.shtml)
+- 2026-06-29 19:07 - [7款高价创新药有望降价](http://www.blog.kurohicncr.top/Article/details/83053662.shtml)
+- 2026-06-29 18:55 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/321925601.shtml)
+- 2026-06-29 18:55 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/26830889940.shtml)
+- 2026-06-29 19:15 - [唐艺昕告别浪姐千字长文](http://www.share.kurohicncr.top/Article/details/2585468.shtml)
+- 2026-06-29 19:15 - [小娘惹](https://www.share.kurohicncr.top/Article/details/736553401690.shtml)
+- 2026-06-29 19:04 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/857125682.shtml)
+- 2026-06-29 19:14 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/46507364.shtml)
+- 2026-06-29 19:04 - [欧洲安装一台空调要花近8000元](https://www.share.kurohicncr.top/Article/details/4781996334.shtml)
+- 2026-06-29 18:58 - [95后小伙突然确诊癌症 医生提醒](http://www.share.kurohicncr.top/Article/details/3472330.shtml)
+- 2026-06-29 18:49 - [徐昕暂不参加NBA夏季联赛](https://www.share.kurohicncr.top/Article/details/67753.shtml)
+- 2026-06-29 19:11 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/146861447082.shtml)
+- 2026-06-29 18:58 - [中方向委方追加1亿元援助](http://www.share.kurohicncr.top/Article/details/05218235689.shtml)
+- 2026-06-29 19:02 - [女心理师](http://www.share.kurohicncr.top/Article/details/0011132346.shtml)
+- 2026-06-29 18:48 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/03117178.shtml)
+- 2026-06-29 18:48 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/8346155.shtml)

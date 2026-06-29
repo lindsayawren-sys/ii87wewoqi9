@@ -1,57 +1,56 @@
-# 又改口？特朗普：美伊尚未“完全谈妥” 美国不急于达成协议
+# 浙江省欧美同学会金融委员会举行座谈交流活动
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-财联社5月25日讯（编辑 卞纯）美国总统特朗普周六表示，美伊“已基本谈成”一项将使霍尔木兹海峡重新开放的和平协议，并将很快公布。这一进展重新燃起了人们对伊朗战争即将结束的希望。 然而在他发出此番言论的仅一天之后，他又改口了，表示美伊协议尚未“完全谈妥”，谈判仍在有序推进，但美国不会仓促达成协议。 综合央视新闻等媒体报道，美国总统特朗普24日表示，美国和伊朗的协议“尚未完全谈妥”
+5月12日下午，浙江省欧美同学会金融委员会座谈交流活动在杭州玉皇山南基金小镇举行，省欧美同学会副会长兼金融委员会主任，敦和资产管理有限公司总经理、首席执行官张志洲出席，金融委员会相关成员参加。 活动中，成员们共同学习了习近平总书记关于“义乌发展经验”的重要指示精神，结合自身金融实践与行业思考，聚焦海归赋能金融强省建设展开热烈讨论，并就金融委员会年度工作安排提出意见建议。 与会人
 
 ## 正文
 
-财联社5月25日讯（编辑 卞纯）美国总统特朗普周六表示，美伊“已基本谈成”一项将使霍尔木兹海峡重新开放的和平协议，并将很快公布。
+5月12日下午，浙江省欧美同学会金融委员会座谈交流活动在杭州玉皇山南基金小镇举行，省欧美同学会副会长兼金融委员会主任，敦和资产管理有限公司总经理、首席执行官张志洲出席，金融委员会相关成员参加。
 
-这一进展重新燃起了人们对伊朗战争即将结束的希望。
+活动中，成员们共同学习了习近平总书记关于“义乌发展经验”的重要指示精神，结合自身金融实践与行业思考，聚焦海归赋能金融强省建设展开热烈讨论，并就金融委员会年度工作安排提出意见建议。
 
-然而在他发出此番言论的仅一天之后，他又改口了，表示美伊协议尚未“完全谈妥”，谈判仍在有序推进，但美国不会仓促达成协议。
+与会人员表示，“义乌发展经验” 的核心要义在于立足自身禀赋、尊重首创精神、坚持改革创新、秉持实干作风，是因地制宜推动区域经济发展的成功典范。
 
-综合央视新闻等媒体报道，美国总统特朗普24日表示，美国和伊朗的协议“尚未完全谈妥”，他指责一些不了解情况的人对其“妄加批评”。
+金融委员会要从中汲取智慧，紧扣浙江发展实际，把 “莫名其妙、无中生有、点石成金” 的创新理念融入金融服务实践，在服务实体经济、强化人才联动、深化调研建言等方面发力，以知行合一的实干担当将学习成果转化为助力金融强省建设的生动实践，为全省经济社会高质量发展积极贡献力量。
 
-特朗普在社交媒体发文，称“如果我与伊朗达成协议，那将会是一份好的、合适的协议”。
+座谈交流后，金融委员会成员和上城区统一战线成员共同参加“海归浙里・金融赋能”同心大讲堂。
 
-“目前没人看过它或知道它的内容。
-
-它还没有完全谈妥。
-
-所以不要去听那些失败者的话，他们对一件自己根本不了解的事情妄加批评。
+张志洲副会长以《“十五五”规划解读及经济金融市场走势展望》为题作主题分享，精准阐释“十五五”规划的战略部署与政策内涵，系统分析当前经济金融市场运行态势与投资机遇，并围绕上城区放大金融特色优势、抢抓“十五五”金融开放发展先机，从产业升级、资本赋能、人才引育等维度提出针对性意见建议，为区域经济高质量发展提供了有益参考。
 
 ## 相关推荐
 
-- 2026-06-29 18:43 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-29 19:02 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-29 19:08 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 18:50 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
-- 2026-06-29 18:57 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 18:47 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 19:04 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-29 18:59 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-29 19:07 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-29 19:05 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-29 18:59 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-29 18:59 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 18:56 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-29 18:54 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 18:56 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-29 19:10 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-29 18:54 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 18:50 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-29 19:08 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 19:06 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 18:55 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 19:07 - [V8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-29 19:02 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 19:04 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-29 19:12 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:08 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/9418653839.shtml)
-- 2026-06-29 18:57 - [赵今麦时隔五年再演李诗情](https://www.blog.minike.top/Article/details/16286658522.shtml)
-- 2026-06-29 19:05 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/22592.shtml)
-- 2026-06-29 19:11 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.kurohicncr.top/Article/details/67009241.shtml)
-- 2026-06-29 18:54 - [看大国重器“云端穿针引线”](https://www.share.minike.top/Article/details/3441383.shtml)
-- 2026-06-29 18:50 - [小众羞耻点是吃麻辣烫](http://www.blog.kurohicncr.top/Article/details/81649431291.shtml)
-- 2026-06-29 18:48 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/314957324.shtml)
-- 2026-06-29 18:46 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/979615052.shtml)
-- 2026-06-29 18:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/39785636.shtml)
-- 2026-06-29 18:48 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/04757802111.shtml)
-- 2026-06-29 18:46 - [互助版模拟高考志愿填报](https://www.share.minike.top/Article/details/31564761773.shtml)
-- 2026-06-29 18:53 - [当家电外通风口出现鸟窝](http://www.blog.kurohicncr.top/Article/details/67132620589.shtml)
-- 2026-06-29 18:58 - [2026年，如果你有100万，你会怎么投资？](http://www.share.kurohicncr.top/Article/details/034913689875.shtml)
-- 2026-06-29 19:07 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.kurohicncr.top/Article/details/658840.shtml)
-- 2026-06-29 18:49 - [拍到真的赛博朋克边缘行者了！](http://www.share.kurohicncr.top/Article/details/16055.shtml)
+- 2026-06-29 19:10 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/85483.shtml)
+- 2026-06-29 18:51 - [机器人学校开学了](https://www.share.kurohicncr.top/Article/details/9000139954.shtml)
+- 2026-06-29 19:09 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/339568553.shtml)
+- 2026-06-29 19:06 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.minike.top/Article/details/8396608.shtml)
+- 2026-06-29 19:02 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/81688.shtml)
+- 2026-06-29 18:51 - [专家预计全球央行加息节奏将出现反复](http://www.blog.minike.top/Article/details/575029757468.shtml)
+- 2026-06-29 18:54 - [张杰我九岁就跟你了](https://www.share.minike.top/Article/details/51434711335.shtml)
+- 2026-06-29 18:58 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/665154774.shtml)
+- 2026-06-29 19:08 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/185201693501.shtml)
+- 2026-06-29 19:01 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/16934.shtml)
+- 2026-06-29 18:48 - [大六座SUV进入黄金时代](http://www.share.minike.top/Article/details/405197.shtml)
+- 2026-06-29 18:52 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/58696.shtml)
+- 2026-06-29 18:49 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/529486143789.shtml)
+- 2026-06-29 18:54 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.minike.top/Article/details/198497041107.shtml)
+- 2026-06-29 19:14 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/2154141.shtml)

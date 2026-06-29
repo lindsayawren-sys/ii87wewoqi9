@@ -1,58 +1,51 @@
-# 证监会严肃查处老虎等机构非法跨境展业案件
+# 周末看摩托车赛成国人新爱好：每逢周末“WSBK”“张雪机车”搜索指数明显升高
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中新网5月22日电 据“证监会发布”微信公众号消息，近日，证监会依法对Tiger Brokers (NZ) Limited(以下简称老虎)、富途证券国际(香港)有限公司(以下简称富途)、长桥证券(香港)有限公司(以下简称长桥)境内外相关主体在境内非法经营证券业务等行为立案调查并作出行政处罚事先告知。老虎、富途、长桥境内外相关主体未经证监会核准，未取得经营证券经纪业务许可、经营证
+中新网5月17日电(记者 吴家驹)周末看场紧张刺激的摩托车比赛，正成为不少国人的新爱好。 百度指数显示，自张雪机车3月28日首次在2026世界超级摩托车锦标赛(WSBK)WorldSSP组别比赛夺冠以来，每逢有该比赛的周末，关键词“WSBK”“张雪机车”的搜索指数就会明显升高。 同时，比赛当天，大量网友会涌入相关直播间观看张雪机车比赛，张雪机车赛况也时常登上微博、B站热搜，抖音
 
 ## 正文
 
-中新网5月22日电 据“证监会发布”微信公众号消息，近日，证监会依法对Tiger Brokers (NZ) Limited(以下简称老虎)、富途证券国际(香港)有限公司(以下简称富途)、长桥证券(香港)有限公司(以下简称长桥)境内外相关主体在境内非法经营证券业务等行为立案调查并作出行政处罚事先告知。
+中新网5月17日电(记者 吴家驹)周末看场紧张刺激的摩托车比赛，正成为不少国人的新爱好。
 
-老虎、富途、长桥境内外相关主体未经证监会核准，未取得经营证券经纪业务许可、经营证券融资融券业务许可，在境内开展证券交易营销推广、处理交易指令等相关证券业务服务并获取相关收益，违反了《证券法》第一百二十条的规定，构成非法经营证券业务。
+百度指数显示，自张雪机车3月28日首次在2026世界超级摩托车锦标赛(WSBK)WorldSSP组别比赛夺冠以来，每逢有该比赛的周末，关键词“WSBK”“张雪机车”的搜索指数就会明显升高。
 
-此外，三家机构境内外相关主体还违反了《证券投资基金法》第九十七条、《期货和衍生品法》第六十三条的规定，构成非法从事公募基金销售业务、非法从事期货经纪业务。
+同时，比赛当天，大量网友会涌入相关直播间观看张雪机车比赛，张雪机车赛况也时常登上微博、B站热搜，抖音、快手热榜等。
 
-上述非法跨境展业行为，违反了我国证券基金期货法律法规，破坏了市场秩序，必须坚决予以打击。
+此外，张雪机车冠军车手瓦伦丁·德比斯也收获众多粉丝，截至5月17日上午10时许，德比斯抖音账号粉丝数超过119万，B站账号粉丝数也超过20万。
 
-依据《证券法》第二百零二条、《证券投资基金法》第一百三十六条、《期货和衍生品法》第一百三十二条的规定，证监会拟决定没收老虎、富途、长桥境内外相关主体全部违法所得，并依法严厉处罚。
-
-拟对当事人实施的行政处罚，当事人享有陈述、申辩及要求听证的权利，证监会将充分听取当事人意见后，依法作出行政处罚决定。
-
-下一步，证监会将继续坚决落实监管“长牙带刺”、有棱有角要求，严厉打击境外机构在境内非法经营证券业务等违法行为，全力维护资本市场秩序和稳定。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 19:11 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-29 18:58 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 19:08 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-29 18:50 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 18:58 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 19:00 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-29 19:07 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 18:57 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 18:52 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 18:49 - [黄金也扛不住了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 18:54 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-29 18:54 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-29 18:48 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 18:56 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-29 18:55 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-29 19:09 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 19:14 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 19:01 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 18:58 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 18:56 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-29 19:00 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-29 18:54 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 19:09 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 19:16 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 19:13 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:59 - [日本偶像龟梨和也宣布结婚](https://www.share.minike.top/Article/details/08197442.shtml)
-- 2026-06-29 18:55 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/942422054977.shtml)
-- 2026-06-29 18:48 - [扬名立万](https://www.share.minike.top/Article/details/42918.shtml)
-- 2026-06-29 18:59 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/651588174117.shtml)
-- 2026-06-29 19:02 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/331217655488.shtml)
-- 2026-06-29 18:56 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/87107.shtml)
-- 2026-06-29 18:44 - [赵今麦时隔五年再演李诗情](https://www.share.minike.top/Article/details/0405580.shtml)
-- 2026-06-29 19:07 - [刘扬任湖南省副省长](http://www.share.kurohicncr.top/Article/details/794153089953.shtml)
-- 2026-06-29 18:55 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/48353.shtml)
-- 2026-06-29 18:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/08867.shtml)
-- 2026-06-29 19:00 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/57344279759.shtml)
-- 2026-06-29 18:57 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/4038111136.shtml)
-- 2026-06-29 18:42 - [女生每天戴耳机18小时突发耳聋](https://www.share.minike.top/Article/details/85647292.shtml)
-- 2026-06-29 18:53 - [韩剧编剧又升级了](https://www.share.minike.top/Article/details/048976961.shtml)
-- 2026-06-29 18:49 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.minike.top/Article/details/0242844619.shtml)
+- 2026-06-29 18:58 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.kurohicncr.top/Article/details/7227310.shtml)
+- 2026-06-29 18:49 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/713031813.shtml)
+- 2026-06-29 19:04 - [世界杯1/16决赛对阵出炉](http://www.blog.kurohicncr.top/Article/details/0018389540.shtml)
+- 2026-06-29 19:11 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/1469336636.shtml)
+- 2026-06-29 18:49 - [起风了](https://www.share.minike.top/Article/details/11117.shtml)
+- 2026-06-29 19:07 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/1484602514.shtml)
+- 2026-06-29 19:00 - [沙特外交大臣将访华](https://www.blog.kurohicncr.top/Article/details/6774929.shtml)
+- 2026-06-29 18:52 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/63758800.shtml)
+- 2026-06-29 19:16 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/329338.shtml)
+- 2026-06-29 19:06 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/95913.shtml)
+- 2026-06-29 18:58 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/677443411120.shtml)
+- 2026-06-29 19:07 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/884706936.shtml)
+- 2026-06-29 19:06 - [网友晒14年前支教影像等来学生评论](http://www.share.kurohicncr.top/Article/details/117570305856.shtml)
+- 2026-06-29 19:04 - [22岁民警拦截违法车辆被撞牺牲](http://www.blog.kurohicncr.top/Article/details/92254.shtml)
+- 2026-06-29 19:13 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/753051596217.shtml)

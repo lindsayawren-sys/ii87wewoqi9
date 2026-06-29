@@ -1,57 +1,55 @@
-# 中马钦州产业园区举办2026年政金企对接交流会暨签约仪式
+# 河南证监局原党委委员、副局长楚天慧被开除党籍和公职
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-5月22日，中马钦州产业园区举办2026年政金企对接交流会暨签约仪式，活动旨在搭建政府、金融机构与企业之间“双向奔赴”的对接平台，进一步深化政金企合作、促进产融结合，以精准的金融服务支持园区产业高质量发展。中马钦州产业园区党工委副书记、管委会常务副主任毛任建出席会议并讲话。毛任建表示，随着园区产业体系加快构建和开放合作持续扩大，企业对金融服务的需求更加迫切，这为政金企深化精准对
+来源：央视网 央视网消息：中央纪委国家监委网站5月15日通报，据中央纪委国家监委驻中国证券监督管理委员会纪检监察组、河南省纪委监委消息：日前，经中央纪委国家监委批准，中央纪委国家监委驻中国证券监督管理委员会纪检监察组与河南省漯河市监委对中国证监会河南监管局原党委委员、副局长楚天慧严重违纪违法问题进行了纪律审查和监察调查。 经查，楚天慧丧失理想信念，背弃初心使命，对中央八项规定精
 
 ## 正文
 
-5月22日，中马钦州产业园区举办2026年政金企对接交流会暨签约仪式，活动旨在搭建政府、金融机构与企业之间“双向奔赴”的对接平台，进一步深化政金企合作、促进产融结合，以精准的金融服务支持园区产业高质量发展。
+来源：央视网 央视网消息：中央纪委国家监委网站5月15日通报，据中央纪委国家监委驻中国证券监督管理委员会纪检监察组、河南省纪委监委消息：日前，经中央纪委国家监委批准，中央纪委国家监委驻中国证券监督管理委员会纪检监察组与河南省漯河市监委对中国证监会河南监管局原党委委员、副局长楚天慧严重违纪违法问题进行了纪律审查和监察调查。
 
-中马钦州产业园区党工委副书记、管委会常务副主任毛任建出席会议并讲话。
+经查，楚天慧丧失理想信念，背弃初心使命，对中央八项规定精神置若罔闻，长期违规收受礼品礼金及消费卡，接受可能影响公正执行公务的宴请；违反组织原则，不按规定报告个人有关事项；纪律意识淡薄，借用多人多个账户长期违规买卖股票，违规拥有非上市公司股份；纪法底线失守，弃守监管职责，利用职务便利及职务影响力，在公司监管、稽查执法等工作中为他人谋取利益，非法收受巨额财物。
 
-毛任建表示，随着园区产业体系加快构建和开放合作持续扩大，企业对金融服务的需求更加迫切，这为政金企深化精准对接、实现互利共赢创造了广阔空间。
+楚天慧严重违反党的组织纪律、廉洁纪律，构成严重职务违法并涉嫌受贿犯罪，在党的十八大后仍不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
 
-希望金融机构加大投放力度，各重点企业积极对接，围绕今年园区全力推进实施年度总投资1607亿元的重点建设项目开展金融业务合作。
+依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经中国证监会党委研究，决定给予楚天慧开除党籍处分；经中央纪委国家监委驻中国证券监督管理委员会纪检监察组研究，决定给予楚天慧开除公职处分；收缴其违纪违法所得。
 
-同时，共同深化金融创新，持续推动中马跨境金融试点，落地更多面向东盟的创新业务场景，构建覆盖企业全生命周期的多元产品体系。
+经河南省漯河市监委研究，决定将楚天慧涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
 
-园区管委会将强化政策引导和服务协调，企业拿出好项目，金融机构拿出好产品，形成产业与金融深度融合、互利共赢的新格局，以金融赋能推动园区高质量发展。
-
-活动中，政金企三方进行深入交流。
-
-中国人民银行广西区分行、广西证监局分别围绕绿色金融与跨境金融政策、企业债券发行等方面作了政策解读，广西中马钦州产业园区投资控股集团有限公司等企业代表围绕重点产业项目发展、创新融资工具等提出具体需求，园区管委会与广西融资担保集团有限公司签署战略合作协议，相关金融机构与园区企业签署具体项目合作协议。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 19:03 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-29 18:55 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-29 18:47 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-29 18:53 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-29 18:48 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-29 18:47 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-29 19:10 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 18:54 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 18:50 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-29 18:56 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-29 18:47 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 19:15 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-29 18:53 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-29 18:57 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 19:03 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 19:17 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 19:16 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-29 19:16 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 18:55 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 19:03 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 18:53 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-29 19:06 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 19:00 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 19:17 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:54 - [哈基米歌王争霸赛](https://www.share.minike.top/Article/details/68445.shtml)
-- 2026-06-29 19:04 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/717449886096.shtml)
-- 2026-06-29 18:44 - [急先锋](http://www.share.minike.top/Article/details/49893722778.shtml)
-- 2026-06-29 19:09 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/6306900.shtml)
-- 2026-06-29 19:06 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/69461019.shtml)
-- 2026-06-29 19:06 - [四川达州发生一起交通事故致2死](http://www.share.kurohicncr.top/Article/details/125044859.shtml)
-- 2026-06-29 18:47 - [A股割裂行情有变化了吗](http://www.blog.minike.top/Article/details/6745952216.shtml)
-- 2026-06-29 19:05 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/363909716.shtml)
-- 2026-06-29 18:44 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/3140528.shtml)
-- 2026-06-29 18:43 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/701434.shtml)
-- 2026-06-29 18:56 - [盛秋平任南昌市委书记](https://www.blog.minike.top/Article/details/508145564.shtml)
-- 2026-06-29 19:05 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/10505181051.shtml)
-- 2026-06-29 19:11 - [人形机器人](http://www.blog.kurohicncr.top/Article/details/4259670603.shtml)
-- 2026-06-29 19:07 - [欧洲高温会成下个印度吗](http://www.share.minike.top/Article/details/68674161.shtml)
-- 2026-06-29 18:46 - [杨紫有3部作品入围金鹰奖](https://www.blog.minike.top/Article/details/6752273669.shtml)
+- 2026-06-29 18:59 - [斛珠夫人](https://www.blog.minike.top/Article/details/4002055732.shtml)
+- 2026-06-29 18:50 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.kurohicncr.top/Article/details/44004986930.shtml)
+- 2026-06-29 19:02 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/02703.shtml)
+- 2026-06-29 18:51 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/081307513568.shtml)
+- 2026-06-29 19:15 - [主力抛售电子和通信板块](http://www.share.kurohicncr.top/Article/details/42495161.shtml)
+- 2026-06-29 18:59 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.kurohicncr.top/Article/details/414209493220.shtml)
+- 2026-06-29 18:55 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/38684815740.shtml)
+- 2026-06-29 19:10 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/415062213943.shtml)
+- 2026-06-29 19:10 - [曝iPhone涨价后不会再降](http://www.blog.kurohicncr.top/Article/details/761537758.shtml)
+- 2026-06-29 18:55 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/625288.shtml)
+- 2026-06-29 18:54 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/4380231902.shtml)
+- 2026-06-29 18:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/16969097.shtml)
+- 2026-06-29 18:54 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/3944506.shtml)
+- 2026-06-29 19:14 - [河南高院审委会原委员曲海滨被查](http://www.share.kurohicncr.top/Article/details/4018538.shtml)
+- 2026-06-29 18:57 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.kurohicncr.top/Article/details/307809.shtml)

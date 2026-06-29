@@ -1,46 +1,56 @@
-# 重庆永川突降暴雨 导致山洪爆发 部分村民家被淹
+# 上海公布2025年老年人口数据：户籍60岁及以上人口占比约37.6％
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月24日 16:32 来源：中国新闻网 责任编辑：【翟璐】
+中新社上海5月15日电 (记者 郑莹莹)上海市老龄工作委员会办公室、上海市民政局和上海市统计局15日联合发布“2025年上海市户籍老年人口、老龄事业和养老服务工作有关综合统计信息”。 数据显示，截至2025年年末，上海市户籍人口达1555.70万人，其中60岁及以上的老年人口为584.38万人，约占总人口的37.6%。 上海市户籍60岁及以上的老年人口中，男性占47.8%，女性
 
 ## 正文
 
-发布时间：2026年05月24日 16:32 来源：中国新闻网 责任编辑：【翟璐】
+中新社上海5月15日电 (记者 郑莹莹)上海市老龄工作委员会办公室、上海市民政局和上海市统计局15日联合发布“2025年上海市户籍老年人口、老龄事业和养老服务工作有关综合统计信息”。
+
+数据显示，截至2025年年末，上海市户籍人口达1555.70万人，其中60岁及以上的老年人口为584.38万人，约占总人口的37.6%。
+
+上海市户籍60岁及以上的老年人口中，男性占47.8%，女性占52.2%。
+
+截至2025年年底，上海养老服务行业共有养老护理员6.75万人，卫生专业技术人员3274人。
+
+上海持续构建居家养老、社区养老、机构养老相融合的养老服务格局。
+
+除了在社区养老、机构养老上不断加强服务，近年来，上海尝试为老年人家庭提供适老化改造，小到换鞋凳、小夜灯，大到厨房、卫生间的整体改造，均致力于让居家养老更舒适、更安全。
+
+数据显示，2025年，上海居家环境适老化改造户数共计11031户，其中享受补贴的有10938户。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:59 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-29 19:02 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-29 18:50 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 18:46 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 18:55 - [V8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-29 18:50 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-29 18:42 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 19:11 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-29 19:04 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 18:57 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 18:47 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-29 18:48 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-29 18:57 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 18:59 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 18:53 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 18:58 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-29 18:59 - [逆天祖国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 18:52 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 19:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-29 19:01 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 19:09 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 18:56 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 18:56 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 19:12 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:05 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/70919813.shtml)
-- 2026-06-29 18:52 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/622339180.shtml)
-- 2026-06-29 18:46 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/33916519.shtml)
-- 2026-06-29 19:02 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/997245887223.shtml)
-- 2026-06-29 18:45 - [利率一再降 “存款搬家”搬去哪](https://www.blog.kurohicncr.top/Article/details/718346.shtml)
-- 2026-06-29 19:09 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/5036509966.shtml)
-- 2026-06-29 19:08 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/896922445.shtml)
-- 2026-06-29 18:43 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.kurohicncr.top/Article/details/04575.shtml)
-- 2026-06-29 18:58 - [叠纸客服回应恋与深空新角色争议](http://www.share.kurohicncr.top/Article/details/5060027.shtml)
-- 2026-06-29 18:55 - [杨紫有3部作品入围金鹰奖](https://www.blog.minike.top/Article/details/572300.shtml)
-- 2026-06-29 18:58 - [机器人学校开学了](http://www.share.kurohicncr.top/Article/details/79694.shtml)
-- 2026-06-29 18:42 - [四川达州发生一起交通事故致2死](http://www.share.minike.top/Article/details/1553884708.shtml)
-- 2026-06-29 19:03 - [叠纸客服回应恋与深空新角色争议](http://www.share.minike.top/Article/details/997219105.shtml)
-- 2026-06-29 18:56 - [扩军害了世界杯吗](https://www.share.minike.top/Article/details/2466672107.shtml)
-- 2026-06-29 19:04 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/039510087525.shtml)
+- 2026-06-29 18:56 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/736616.shtml)
+- 2026-06-29 18:57 - [卢卡申科发布解放军仪仗队视频](https://www.blog.minike.top/Article/details/049177420.shtml)
+- 2026-06-29 18:58 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.minike.top/Article/details/909729107083.shtml)
+- 2026-06-29 18:49 - [女心理师](https://www.share.kurohicncr.top/Article/details/556488.shtml)
+- 2026-06-29 19:05 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/17754974.shtml)
+- 2026-06-29 18:52 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/1322802481.shtml)
+- 2026-06-29 18:50 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/99176174.shtml)
+- 2026-06-29 19:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/795803630918.shtml)
+- 2026-06-29 18:56 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/564038184.shtml)
+- 2026-06-29 18:50 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/21101268.shtml)
+- 2026-06-29 19:16 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/704608.shtml)
+- 2026-06-29 19:17 - [7款高价创新药有望降价](http://www.share.kurohicncr.top/Article/details/42921676.shtml)
+- 2026-06-29 18:51 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/4074257.shtml)
+- 2026-06-29 19:13 - [CORTIS 小牌大耍](https://www.share.minike.top/Article/details/123865763458.shtml)
+- 2026-06-29 18:52 - [娜扎搂着我的腰和我合照](http://www.share.kurohicncr.top/Article/details/43120577509.shtml)

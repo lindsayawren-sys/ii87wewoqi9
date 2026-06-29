@@ -1,58 +1,59 @@
-# 莫高义：大数据不能代替深调研 “键对键”不能代替“面对面”
+# 日本央行副行长呼吁对全球货币体系采取“整体性方法”
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中新网深圳5月22日电 (记者 索有为)在22日举行的2026年文化强国建设高峰论坛“人工智能与媒体变革”论坛上，中宣部副部长、国务院新闻办公室主任莫高义发表主旨演讲时表示，无论技术如何发展，大数据不能代替深调研，“键对键”不能代替“面对面”，智能化不能代替专业化，要弘扬新闻战线优良传统，深入践行“四力”要求，常态化深入基层、深入民众，创造更多富有真情实感、经得起实践和时代检验
+日本央行副总裁冰见野良三周六呼吁，在设计未来的全球货币体系时应采取“整体性方法”，不要将选择局限于央行数字货币和稳定币。 美国禁止发行央行数字货币（CBDC），并推动稳定币作为强化美元担任全球关键货币地位的手段；而欧洲则在推广数字欧元，以克服零售支付系统中的区域碎片化现象。 冰见野良三表示：“日本已为这两条道路做好了准备。”日本在推进央行数字货币试点项目的同时，也是率先出台稳定
 
 ## 正文
 
-中新网深圳5月22日电 (记者 索有为)在22日举行的2026年文化强国建设高峰论坛“人工智能与媒体变革”论坛上，中宣部副部长、国务院新闻办公室主任莫高义发表主旨演讲时表示，无论技术如何发展，大数据不能代替深调研，“键对键”不能代替“面对面”，智能化不能代替专业化，要弘扬新闻战线优良传统，深入践行“四力”要求，常态化深入基层、深入民众，创造更多富有真情实感、经得起实践和时代检验的精品力作。
+日本央行副总裁冰见野良三周六呼吁，在设计未来的全球货币体系时应采取“整体性方法”，不要将选择局限于央行数字货币和稳定币。
 
-莫高义就处理好人工智能与媒体变革关系提出三点意见。
+美国禁止发行央行数字货币（CBDC），并推动稳定币作为强化美元担任全球关键货币地位的手段；而欧洲则在推广数字欧元，以克服零售支付系统中的区域碎片化现象。
 
-一是积极拥抱人工智能新技术，加快主流媒体数智化转型。
+冰见野良三表示：“日本已为这两条道路做好了准备。
 
-二是深入践行主流媒体职责使命，推动人工智能健康有序发展。
+”日本在推进央行数字货币试点项目的同时，也是率先出台稳定币立法的国家之一。
 
-三是坚持统筹发展和安全，助力提升人工智能治理水平。
+但他指出，海外的发展态势表明，未来货币体系需要一个全面的设计，需综合考虑技术可行性、社会成本、用户便利性、金融稳定及货币政策等因素。
 
-莫高义强调，希望主流媒体勇立时代潮头，加强与科技企业、商业平台、研究机构的交流合作，建立产、学、研、用协同创新机制，当好人工智能技术使用者、发展推动者、安全守护者，在深化系统性变革中展现新作为、取得新成效。
+冰见野良三在日本金融学会年会上发表演讲时表示：“未来货币体系的选择不仅限于央行数字货币和稳定币”，还有其他选项，例如引入代币化的银行存款以及在区块链上运行的央行储备。
 
-(完)
+他补充道，日本央行已启动一项“沙盒项目”，旨在探索将其储备代币化并用于基于区块链的支付解决方案的技术可行性。
+
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 19:08 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-29 18:58 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 18:44 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-29 18:57 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 18:50 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 18:57 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 19:05 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-29 19:10 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 19:05 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-29 19:02 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-29 19:07 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-29 18:46 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 19:05 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-29 18:44 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-29 19:14 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 19:04 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 18:53 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 19:17 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 19:00 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 18:58 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 19:12 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-29 19:00 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 19:15 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 18:48 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 18:48 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 18:48 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 19:12 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:48 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/04258001.shtml)
-- 2026-06-29 19:00 - [斗破苍穹](http://www.share.minike.top/Article/details/63305693.shtml)
-- 2026-06-29 19:05 - [河南四位大妈景区跳舞爆火](http://www.share.kurohicncr.top/Article/details/885362042.shtml)
-- 2026-06-29 18:55 - [天道](http://www.blog.minike.top/Article/details/89228398.shtml)
-- 2026-06-29 18:43 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/5396739.shtml)
-- 2026-06-29 19:01 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/339809183990.shtml)
-- 2026-06-29 18:45 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/306829.shtml)
-- 2026-06-29 18:51 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/24598715302.shtml)
-- 2026-06-29 19:10 - [毒液2](https://www.blog.kurohicncr.top/Article/details/3510965928.shtml)
-- 2026-06-29 18:56 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/86781.shtml)
-- 2026-06-29 18:54 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.minike.top/Article/details/88521099605.shtml)
-- 2026-06-29 18:58 - [韩国800万亿韩元押注半导体](https://www.blog.minike.top/Article/details/192196174.shtml)
-- 2026-06-29 19:02 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/6793861665.shtml)
-- 2026-06-29 18:48 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/215166373229.shtml)
-- 2026-06-29 18:50 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/26505182518.shtml)
+- 2026-06-29 18:57 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/222620.shtml)
+- 2026-06-29 18:54 - [CORTIS 小牌大耍](http://www.share.kurohicncr.top/Article/details/10760031.shtml)
+- 2026-06-29 19:05 - [7款高价创新药有望降价](https://www.share.kurohicncr.top/Article/details/4155247219.shtml)
+- 2026-06-29 19:08 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/574137196.shtml)
+- 2026-06-29 19:09 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/93739.shtml)
+- 2026-06-29 19:08 - [海口塔吊事故处罚结果公布](https://www.share.minike.top/Article/details/076519206.shtml)
+- 2026-06-29 19:01 - [韩国队主帅遭极端网友死亡威胁](https://www.share.kurohicncr.top/Article/details/987891136126.shtml)
+- 2026-06-29 19:17 - [林昀儒止步美国大满贯首轮](https://www.blog.minike.top/Article/details/74722.shtml)
+- 2026-06-29 18:59 - [起风了](http://www.share.kurohicncr.top/Article/details/92843343894.shtml)
+- 2026-06-29 19:08 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/2987215.shtml)
+- 2026-06-29 19:10 - [TFING全员黑西装](http://www.share.kurohicncr.top/Article/details/79307655.shtml)
+- 2026-06-29 19:12 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/0555897156.shtml)
+- 2026-06-29 18:57 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/9224633.shtml)
+- 2026-06-29 19:01 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/914653.shtml)
+- 2026-06-29 19:04 - [世界杯预测史上最不吃压力之物](https://www.blog.kurohicncr.top/Article/details/23949.shtml)

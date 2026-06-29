@@ -1,61 +1,56 @@
-# 海外华人书画家安徽探源架“桥”
+# 印度阿达尼与其侄子同意支付1800万美元 就欺诈指控与美国SEC达成和解
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中新社安徽旌德5月24日电 题：海外华人书画家安徽探源架“桥” 作者 江婉琪 “这块墨，是有温度的。”5月23日，在安徽宣城旌德县春林胡开文古艺墨厂，刚脱模的徽墨还带着余温。来自越南的书画家范林竹决定把这方自己参与制作的墨锭带回越南，送给朋友。 5月20日至23日，来自日本、澳大利亚、马来西亚、新加坡等国的华人书画家在安徽宣城开启了一场艺术探源之旅。 在泾县黄村镇的三兔宣笔厂，
+核心要点 在美国监管机构向法院申请批准与印度亿万富豪高塔姆・阿达尼及其侄子萨加尔・阿达尼的民事诉讼和解协议后，阿达尼企业与阿达尼绿色能源股价周五早盘跌幅收窄。 伦敦证券交易所集团数据显示，两只个股仍维持在 52 周高位上方；阿达尼企业年内累计涨幅约 24%，阿达尼绿色能源涨幅约 41%。 美国证券交易委员会（SEC）指控二人在关联印度光伏项目合同的贿赂及欺诈行为中误导投资者。根
 
 ## 正文
 
-中新社安徽旌德5月24日电 题：海外华人书画家安徽探源架“桥” 作者 江婉琪 “这块墨，是有温度的。
+核心要点 在美国监管机构向法院申请批准与印度亿万富豪高塔姆・阿达尼及其侄子萨加尔・阿达尼的民事诉讼和解协议后，阿达尼企业与阿达尼绿色能源股价周五早盘跌幅收窄。
 
-”5月23日，在安徽宣城旌德县春林胡开文古艺墨厂，刚脱模的徽墨还带着余温。
+伦敦证券交易所集团数据显示，两只个股仍维持在 52 周高位上方；阿达尼企业年内累计涨幅约 24%，阿达尼绿色能源涨幅约 41%。
 
-来自越南的书画家范林竹决定把这方自己参与制作的墨锭带回越南，送给朋友。
+美国证券交易委员会（SEC）指控二人在关联印度光伏项目合同的贿赂及欺诈行为中误导投资者。
 
-5月20日至23日，来自日本、澳大利亚、马来西亚、新加坡等国的华人书画家在安徽宣城开启了一场艺术探源之旅。
+根据和解协议，高塔姆・阿达尼需缴纳 600 万美元罚款，萨加尔・阿达尼缴纳 1200 万美元罚款。
 
-在泾县黄村镇的三兔宣笔厂，制笔匠人端坐案前，将一撮毛料反复梳理、对齐、捆绑。
+印度可再生能源企业阿达尼绿色能源向印度交易所提交公告称，二人同意接受最终判决生效，既不承认也不否认民事诉状中的相关指控，并按规定缴纳罚金。
 
-来自日本的书画家孙盈衣第一次看到一支笔是如何诞生的。
+公司同时表示，自身并未卷入此次诉讼程序，未受到任何指控。
 
-“亲眼见到每一道工序，让我对不同毛笔的特点有了更深的理解。
+受 SEC 和解消息提振，集团旗舰企业阿达尼企业股价收涨 1.8%，身处贿赂指控核心的阿达尼绿色能源从早盘下跌中回升，最终上涨 0.6%。
 
-”她凑近观察匠人的手法，又用手比划着开笔的动作。
+美国证券交易委员会对阿达尼叔侄以及 Azure Power Global 多名高管提起的民事诉讼，核心指控为在印度政府光伏能源项目招标中涉嫌行贿。
 
 ## 相关推荐
 
-- 2026-06-29 18:59 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-29 18:58 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-29 19:01 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-29 18:44 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-29 18:56 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 18:56 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 18:57 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 19:07 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 19:08 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-29 19:00 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 18:45 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-29 19:08 - [韩国小学生都来吐槽了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 18:55 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-29 18:49 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-29 19:09 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-29 19:06 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 19:06 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 19:12 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-29 19:00 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 19:10 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 19:01 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-29 18:48 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-29 18:57 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-29 19:03 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 19:15 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:09 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.share.minike.top/Article/details/7546017.shtml)
-- 2026-06-29 18:45 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/5525240484.shtml)
-- 2026-06-29 18:47 - [我和我的家乡](https://www.share.minike.top/Article/details/5829440.shtml)
-- 2026-06-29 18:48 - [白宇摘下白玉兰送给杨幂](http://www.blog.minike.top/Article/details/96207940.shtml)
-- 2026-06-29 18:46 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/04928285988.shtml)
-- 2026-06-29 19:03 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/316847555.shtml)
-- 2026-06-29 18:45 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/623759.shtml)
-- 2026-06-29 19:10 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/18601226021.shtml)
-- 2026-06-29 18:49 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/37315984957.shtml)
-- 2026-06-29 18:50 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/38305.shtml)
-- 2026-06-29 18:44 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/866202.shtml)
-- 2026-06-29 19:04 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/660465804.shtml)
-- 2026-06-29 19:06 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/9107811883.shtml)
-- 2026-06-29 19:02 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.kurohicncr.top/Article/details/11107419.shtml)
-- 2026-06-29 18:53 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/796966565606.shtml)
+- 2026-06-29 19:14 - [2026世界杯谁能一黑到底](http://www.share.kurohicncr.top/Article/details/8199303.shtml)
+- 2026-06-29 19:09 - [网红小徐直播时突遇地震](https://www.blog.kurohicncr.top/Article/details/401469481.shtml)
+- 2026-06-29 19:07 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/5997500.shtml)
+- 2026-06-29 19:16 - [小鹏MONAL03预售定档7月2日](http://www.blog.minike.top/Article/details/881655.shtml)
+- 2026-06-29 19:07 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/20174.shtml)
+- 2026-06-29 19:11 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.kurohicncr.top/Article/details/315302155731.shtml)
+- 2026-06-29 19:07 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/944978875897.shtml)
+- 2026-06-29 19:07 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/402465340165.shtml)
+- 2026-06-29 18:53 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/6423211.shtml)
+- 2026-06-29 18:52 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/924488.shtml)
+- 2026-06-29 19:07 - [娜扎搂着我的腰和我合照](http://www.blog.minike.top/Article/details/867359807.shtml)
+- 2026-06-29 19:09 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.share.minike.top/Article/details/823328806609.shtml)
+- 2026-06-29 19:10 - [西十高铁让“朝秦暮楚”之地活了](http://www.blog.minike.top/Article/details/7296946920.shtml)
+- 2026-06-29 18:55 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/71084127.shtml)
+- 2026-06-29 18:56 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/45879474021.shtml)

@@ -1,59 +1,51 @@
-# 学习笔记丨“时刻绷紧安全生产这根弦”
+# 香港镜头中的山西彩塑：跨越四十年的文化守望
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-紧急提醒！汛期，这些危险地区要远离！神二十三任务新亮点：港人飞天、太空“种稻”、飞船舷窗升级武契奇访华首站登长城：购熊猫玩偶 笑谈“577”昵称贾永婕喊“不当台湾人可以离开” 岛内舆论怒怼中新网评：安全责任，不能总用生命来“检验”想吃烧烤哪家强？西北藏着一个适合“撸串”的小城复古经济兴起：年轻人愿为“回忆”买单民生应用场景“多点开花” 低空经济正走向普惠阶段“东北超”开踢，为东
+发布时间：2026年05月16日 10:55 来源：中国新闻网 5月15日，由山西省古建筑与彩塑壁画保护研究院与香港佛教志莲图书馆联合推出的《镜界存真——山西佛教彩塑的光影志》展览在山西古建筑博物馆开展。展览首次集中展示了20世纪八十年代香港志莲净苑摄影团队拍摄的山西佛教彩塑珍贵影像。 40年后，回看这批影像，许多彩塑已遭盗损或色彩改变，照片成为修复对照的珍贵依据，给后人留下一
 
 ## 正文
 
-紧急提醒！
+发布时间：2026年05月16日 10:55 来源：中国新闻网 5月15日，由山西省古建筑与彩塑壁画保护研究院与香港佛教志莲图书馆联合推出的《镜界存真——山西佛教彩塑的光影志》展览在山西古建筑博物馆开展。
 
-汛期，这些危险地区要远离！
+展览首次集中展示了20世纪八十年代香港志莲净苑摄影团队拍摄的山西佛教彩塑珍贵影像。
 
-神二十三任务新亮点：港人飞天、太空“种稻”、飞船舷窗升级武契奇访华首站登长城：购熊猫玩偶 笑谈“577”昵称贾永婕喊“不当台湾人可以离开” 岛内舆论怒怼中新网评：安全责任，不能总用生命来“检验”想吃烧烤哪家强？
+40年后，回看这批影像，许多彩塑已遭盗损或色彩改变，照片成为修复对照的珍贵依据，给后人留下一份不可复刻的历史档案。
 
-西北藏着一个适合“撸串”的小城复古经济兴起：年轻人愿为“回忆”买单民生应用场景“多点开花” 低空经济正走向普惠阶段“东北超”开踢，为东北全面振兴注入鲜活动能中国“离境退税2.0”为打造国际化消费环境添动力港人飞天，星辰可及美联储新主席宣誓就任 “沃什时代”政策迷雾待解抓科创、强产业，长三角一体化发展再提速你身上穿的T恤，大概率来自这个北方小城美军导弹告急，韩国日本更急？
-
-国务院常务会议部署全国统一大市场建设“手搓经济”火热，AI真的让创业变容易了吗？
-
-618大战，为何先从手机降价开始？
-
-硝烟四起！
-
-直击武警“枪王”挑战赛现场安徽东至：雨雾初歇 山水入画武契奇幽默回忆中国网友在异国街头暖心相认瞬间邂逅绿意夏日 满眼皆是盎然生机跨越国界的图像语言 第十届图像小说节架起中法创作桥梁澳大利亚女华侨逐梦特技飞行 冲破自我边界警惕狂奔的日本“灰犀牛”“洋医生”沈义扬扎根海南十三载：义之所至，扬之千里北京天坛的奠基土来自山西后土祠？
+(记者 张立程 山西太原报道） 责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-29 18:44 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-29 19:05 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-29 18:59 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 18:44 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-29 18:59 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-29 18:50 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 18:47 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 18:53 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 18:58 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-29 19:05 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 18:47 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 19:08 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 18:47 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-29 19:17 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 18:50 - [互助版模拟高考志愿填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 18:52 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 18:57 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 18:56 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-29 19:10 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-29 18:51 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-29 19:12 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-29 19:04 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 19:17 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-29 18:49 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 19:00 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 19:08 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:48 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/61698765.shtml)
-- 2026-06-29 18:52 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/614755217.shtml)
-- 2026-06-29 18:52 - [哈兰德玩游戏连女友都不让着](http://www.share.kurohicncr.top/Article/details/328079201.shtml)
-- 2026-06-29 19:00 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/070978169.shtml)
-- 2026-06-29 19:10 - [看大国重器“云端穿针引线”](https://www.share.kurohicncr.top/Article/details/081532.shtml)
-- 2026-06-29 18:44 - [AG 宫斗](http://www.blog.kurohicncr.top/Article/details/316723.shtml)
-- 2026-06-29 18:42 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/68951808320.shtml)
-- 2026-06-29 18:43 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.kurohicncr.top/Article/details/195497679814.shtml)
-- 2026-06-29 18:49 - [小说《无悔追踪》翻红](https://www.blog.kurohicncr.top/Article/details/754025684598.shtml)
-- 2026-06-29 19:06 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/35426957214.shtml)
-- 2026-06-29 19:11 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.blog.minike.top/Article/details/90177821.shtml)
-- 2026-06-29 19:10 - [中外合作办学是“低分捷径”吗](http://www.blog.minike.top/Article/details/477809.shtml)
-- 2026-06-29 19:09 - [不烧钱的低成本爱好](http://www.share.kurohicncr.top/Article/details/6457796.shtml)
-- 2026-06-29 18:57 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.kurohicncr.top/Article/details/727282315.shtml)
-- 2026-06-29 18:46 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.kurohicncr.top/Article/details/935234188.shtml)
+- 2026-06-29 18:50 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/0948458.shtml)
+- 2026-06-29 19:03 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/391880450483.shtml)
+- 2026-06-29 19:12 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/945917.shtml)
+- 2026-06-29 19:16 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/4189722052.shtml)
+- 2026-06-29 18:57 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/655872965.shtml)
+- 2026-06-29 18:51 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/8691415134.shtml)
+- 2026-06-29 18:56 - [曝屠颖去世和酒店失责有关](http://www.share.kurohicncr.top/Article/details/4153055.shtml)
+- 2026-06-29 19:08 - [当地回应林区违规放羊遭豹啃食](https://www.share.kurohicncr.top/Article/details/53695.shtml)
+- 2026-06-29 18:56 - [黄金也扛不住了](http://www.share.minike.top/Article/details/52284270239.shtml)
+- 2026-06-29 19:12 - [韩文体部对韩足协开展审计 查出局原因](http://www.blog.minike.top/Article/details/933685.shtml)
+- 2026-06-29 19:09 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/799806688219.shtml)
+- 2026-06-29 19:12 - [中方在台湾岛以东海域活动合理合法](https://www.share.kurohicncr.top/Article/details/45998546855.shtml)
+- 2026-06-29 19:03 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/03022.shtml)
+- 2026-06-29 19:08 - [韩剧编剧又升级了](http://www.share.minike.top/Article/details/696679246678.shtml)
+- 2026-06-29 18:48 - [穆祉丞东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/283016614783.shtml)

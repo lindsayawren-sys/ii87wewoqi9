@@ -1,60 +1,60 @@
-# 东南大学公共卫生学院成立50周年 多项医工交叉成果发布
+# 【市场聚焦】橡胶：隐忧仍存
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中新网南京5月25日电 (吴涵玉 徐珊珊)5月24日，在东南大学公共卫生学院成立50周年之际，第三届医学与生命科学创新发展论坛暨“传承·融合·致远”公共卫生高质量发展大会在南京举行。大会发布了中国居民肝脏健康促进项目队列随访计划、教育部果蝇和线虫资源库、“智策”医保-临床协同决策引擎大模型，并启动国家生物技术药物产业计量测试中心器官芯片联合检测实验室。 中国居民肝脏健康促进项目
+中粮期货研究中心 摘要 橡胶当前强中有弱的格局，意味着短期行情依旧偏强。但受各类潜在隐忧制约，上行空间将受到限制。同时，后续若产区产量恢复，橡胶盘面存在大幅回调的可能。 目前橡胶处于强中有弱的状态。所谓强，即基本面偏强，价格持续上涨，盘面与基本面形成了相互印证。所谓弱，是指在橡胶强势之中存在隐忧，这些隐忧当前未必会显现出作用，而在后市可能会给橡胶带来大幅回调。 基本面偏多，体现
 
 ## 正文
 
-中新网南京5月25日电 (吴涵玉 徐珊珊)5月24日，在东南大学公共卫生学院成立50周年之际，第三届医学与生命科学创新发展论坛暨“传承·融合·致远”公共卫生高质量发展大会在南京举行。
+中粮期货研究中心 摘要 橡胶当前强中有弱的格局，意味着短期行情依旧偏强。
 
-大会发布了中国居民肝脏健康促进项目队列随访计划、教育部果蝇和线虫资源库、“智策”医保-临床协同决策引擎大模型，并启动国家生物技术药物产业计量测试中心器官芯片联合检测实验室。
+但受各类潜在隐忧制约，上行空间将受到限制。
 
-中国居民肝脏健康促进项目由东南大学牵头，自启动以来已完成3.2万余例基线筛查，建成了中国规模领先的肝脏健康人群队列。
+同时，后续若产区产量恢复，橡胶盘面存在大幅回调的可能。
 
-东南大学附属中大医院院长助理、肝病中心主任祁小龙介绍，项目将在早期肝纤维化阶段实现干预，降低肝硬化、肝癌发病率。
+目前橡胶处于强中有弱的状态。
 
-教育部果蝇和线虫资源库由东南大学联合清华大学等高校、科研院所共建，预计收集、甄别、保藏果蝇品系超6万种、保存线虫品系超5万种，为生命科学研究提供战略资源支撑。
+所谓强，即基本面偏强，价格持续上涨，盘面与基本面形成了相互印证。
 
-国家生物技术药物产业计量测试中心器官芯片联合检测实验室的启动，将推动器官芯片技术标准化、规范化和应用转化，为新污染物健康风险评估、药物研发和疾病机制研究提供更高生理相关性的技术平台。
+所谓弱，是指在橡胶强势之中存在隐忧，这些隐忧当前未必会显现出作用，而在后市可能会给橡胶带来大幅回调。
 
-东南大学公共卫生学院负责人梁戈玉透露，未来东南大学公共卫生学院将紧密围绕“大医科”发展战略，充分利用学校工科、人工智能、大数据等多学科综合优势，重点发力器官芯片毒理学、食品安全与精准营养、重大传染病防控及智慧大健康等方向，推进更深层次的医工交叉体系建设。
+基本面偏多，体现在需求端超预期利好，供给端长短逻辑共振向上。
 
-自1976年建院以来，东南大学公共卫生学院坚定不移走医工结合与多学科交叉的发展道路。
+从需求端来看，3月重卡销量数据创出近几年来同期最高水平；4月重卡销量虽有所回落，但仍处于近几年高位。
 
 ## 相关推荐
 
-- 2026-06-29 18:43 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-29 18:53 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 18:49 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 18:54 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-29 18:55 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 19:11 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 19:09 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-29 18:55 - [依法管制阻遏日方军事化危险动向](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-29 18:49 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 19:05 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-29 18:56 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 18:46 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 18:44 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 18:50 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 19:17 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-29 18:52 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-29 19:03 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 19:08 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-29 19:03 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 19:02 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-29 19:05 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 19:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 19:05 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-29 19:12 - [沙特外交大臣将访华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 18:51 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-29 19:02 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 19:07 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-29 19:12 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:07 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/84760.shtml)
-- 2026-06-29 18:52 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/30921.shtml)
-- 2026-06-29 19:07 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/7954238.shtml)
-- 2026-06-29 18:48 - [A股收评：科创50指数大涨4.61%](https://www.share.minike.top/Article/details/997018533010.shtml)
-- 2026-06-29 19:03 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.share.minike.top/Article/details/695737869827.shtml)
-- 2026-06-29 18:58 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/900209709177.shtml)
-- 2026-06-29 19:09 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/42076.shtml)
-- 2026-06-29 18:43 - [7月1日起一批新规即将落地](http://www.blog.minike.top/Article/details/2894087905.shtml)
-- 2026-06-29 18:44 - [歼-15型舰载机为何被歼-15T替代](https://www.share.kurohicncr.top/Article/details/265588.shtml)
-- 2026-06-29 18:53 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.minike.top/Article/details/27915853.shtml)
-- 2026-06-29 18:54 - [中方将20家日本实体列入管控名单](https://www.share.kurohicncr.top/Article/details/935437.shtml)
-- 2026-06-29 19:09 - [女生每天戴耳机18小时突发耳聋](https://www.blog.kurohicncr.top/Article/details/8756349.shtml)
-- 2026-06-29 18:56 - [刘嘉玲为64岁梁朝伟庆生](http://www.blog.minike.top/Article/details/38986627.shtml)
-- 2026-06-29 19:00 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/8968514006.shtml)
-- 2026-06-29 18:46 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/767168642.shtml)
+- 2026-06-29 19:04 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/48821875.shtml)
+- 2026-06-29 18:49 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/8285438.shtml)
+- 2026-06-29 18:56 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/325329163303.shtml)
+- 2026-06-29 19:06 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/212153.shtml)
+- 2026-06-29 19:10 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/125335795182.shtml)
+- 2026-06-29 19:07 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/48046110193.shtml)
+- 2026-06-29 19:11 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.share.kurohicncr.top/Article/details/8412479104.shtml)
+- 2026-06-29 19:11 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/87753385.shtml)
+- 2026-06-29 19:11 - [我和我的家乡](http://www.blog.minike.top/Article/details/24985454070.shtml)
+- 2026-06-29 19:10 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/723011402.shtml)
+- 2026-06-29 19:02 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/76375.shtml)
+- 2026-06-29 19:02 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/264020.shtml)
+- 2026-06-29 19:05 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/288803.shtml)
+- 2026-06-29 18:50 - [西十高铁让“朝秦暮楚”之地活了](http://www.blog.minike.top/Article/details/45477277.shtml)
+- 2026-06-29 19:14 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/767911347.shtml)

@@ -1,57 +1,59 @@
-# 2026年湖南省社会科学普及主题活动周启动
+# 白宫称中方同意重开霍尔木兹海峡 外交部回应
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中新网湘潭5月25日电 (郭凤湘 岳珊)今年是《湖南省社会科学普及条例》实施十周年。5月24日，以“答好两道融合命题·社科解码”为主题的2026年湖南省社会科学普及主题活动周在湘潭市启动。 本次活动打破传统会场模式，把启动盛典和“社科奇妙游”市集整体搬进集装箱文化街区，创新打造社科普及全新场域，让公共文化服务跳出展馆围墙，走进市井街区、贴近群众生活。 启动仪式上，短视频《十年·
+来源：北京青年报 【#白宫称中方同意重开霍尔木兹海峡# 外交部回应】5月15日，外交部发言人郭嘉昆主持例行记者会。 有记者提问，白宫称，在中美元首会谈中，中方同意重开霍尔木兹海峡，请问中方能否证实此则消息？ 郭嘉昆表示，中方在伊朗局势上的立场十分明确，这场战事已对包括伊朗在内的地区各国人民造成严重损失，外溢影响还在持续扩大，严重冲击世界经济发展、产供链畅通、国际贸易秩序和全球能
 
 ## 正文
 
-中新网湘潭5月25日电 (郭凤湘 岳珊)今年是《湖南省社会科学普及条例》实施十周年。
+来源：北京青年报 【#白宫称中方同意重开霍尔木兹海峡# 外交部回应】5月15日，外交部发言人郭嘉昆主持例行记者会。
 
-5月24日，以“答好两道融合命题·社科解码”为主题的2026年湖南省社会科学普及主题活动周在湘潭市启动。
+有记者提问，白宫称，在中美元首会谈中，中方同意重开霍尔木兹海峡，请问中方能否证实此则消息？
 
-本次活动打破传统会场模式，把启动盛典和“社科奇妙游”市集整体搬进集装箱文化街区，创新打造社科普及全新场域，让公共文化服务跳出展馆围墙，走进市井街区、贴近群众生活。
+郭嘉昆表示，中方在伊朗局势上的立场十分明确，这场战事已对包括伊朗在内的地区各国人民造成严重损失，外溢影响还在持续扩大，严重冲击世界经济发展、产供链畅通、国际贸易秩序和全球能源供应稳定，损害国际社会共同利益。
 
-启动仪式上，短视频《十年·答卷——湖南社科普及融合之路》系统展现了湖南社科界守正创新，走出的一条植根湖湘、面向时代、融合赋能的社科普及新路。
+这场本不该发生的战事没有任何进行下去的必要，早一点找到解决出路，对美伊双方有利，也对地区各国乃至整个世界有利。
 
-访谈环节，《十年·薪火传承——湖南社科普及十年经验分享》汇聚业界智慧，共话如何推动社科普及“潮”起来、“活”起来，真正扎根基层、润化人心。
+近来，美伊实现停火，探索通过谈判解决问题，受到地区国家和国际社会欢迎。
 
-AI数字人“谭晓碧”“谭小泉”宣读《2025年湖南省社会科学普及优秀作品通报》，69个读物作品、23个短视频作品、14个讲解作品、47个海报作品、16个社科新闻宣传作品集中亮相。
+中方始终认为，对话谈判才是正道，武力解决没有出路。
 
-体验磨墨书写、湘绣手作、汉字拓印等传统技艺，与C919飞行模拟、人形机器人、智能机器狗趣味互动，享受社科暖心服务站提供的心理测评、情绪疏导、亲子辅导等公益服务……活动周期间，湘潭万楼青年码头连片集装箱会变身沉浸式市集，湖南14市州87个特色项目集中亮相，市民游客可以边走边逛、边玩边学，解锁全民沉浸式社科科普新体验。
+对话的大门既然打开，就不应再次关上。
 
-湖南省社科界还将开展线上线下普及、“社科普及+”融合创新等系列活动，推出线上社科普及精品课程、短视频展播、直播互动等内容，依托数字平台扩大覆盖面与影响力，推动社科知识更好“飞入寻常百姓家”。
+应稳住局势缓和势头，坚持政治解决大方向，通过对话协商，就伊核等问题达成兼顾各方关切的解决方案。
 
 ## 相关推荐
 
-- 2026-06-29 19:09 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-29 19:06 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-29 19:07 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-29 18:45 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 18:55 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 19:11 - [央视曝光涉黄App诈骗陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-29 19:06 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-29 18:57 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-29 19:09 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-29 18:56 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-29 18:44 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 19:10 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 19:16 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 19:12 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-29 19:01 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 19:00 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-29 18:50 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 18:57 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-29 19:02 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 19:04 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-29 19:08 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-29 18:55 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 18:57 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 18:51 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:11 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/035537707001.shtml)
-- 2026-06-29 18:45 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/7431443081.shtml)
-- 2026-06-29 18:42 - [巴西国脚说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/38115141.shtml)
-- 2026-06-29 19:03 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/47180.shtml)
-- 2026-06-29 18:49 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/1392148389.shtml)
-- 2026-06-29 18:47 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/6996645.shtml)
-- 2026-06-29 18:46 - [运20对中国空军的意义是什么](https://www.share.kurohicncr.top/Article/details/61270.shtml)
-- 2026-06-29 18:52 - [滚石要求万豪就屠颖去世事件道歉](https://www.blog.minike.top/Article/details/324442.shtml)
-- 2026-06-29 19:04 - [7款高价创新药有望降价](http://www.share.minike.top/Article/details/6347961.shtml)
-- 2026-06-29 18:47 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.share.minike.top/Article/details/358720780301.shtml)
-- 2026-06-29 18:58 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/92036.shtml)
-- 2026-06-29 19:10 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.minike.top/Article/details/975272535.shtml)
-- 2026-06-29 18:42 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.minike.top/Article/details/015889246.shtml)
-- 2026-06-29 18:58 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/316730978386.shtml)
-- 2026-06-29 18:50 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/68401293.shtml)
+- 2026-06-29 19:12 - [德国医生在没有空调的手术室工作](https://www.share.minike.top/Article/details/60589993120.shtml)
+- 2026-06-29 18:52 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/93163.shtml)
+- 2026-06-29 19:10 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/114182612437.shtml)
+- 2026-06-29 19:10 - [青春环游记第三季](https://www.share.minike.top/Article/details/361851569940.shtml)
+- 2026-06-29 18:59 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/86771006.shtml)
+- 2026-06-29 18:57 - [河南高院审委会原委员曲海滨被查](https://www.blog.kurohicncr.top/Article/details/80875.shtml)
+- 2026-06-29 18:57 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/460823358.shtml)
+- 2026-06-29 19:03 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/070147.shtml)
+- 2026-06-29 18:48 - [媒体：听清自己内心的声音再填志愿](https://www.blog.kurohicncr.top/Article/details/69648.shtml)
+- 2026-06-29 19:11 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/29312229226.shtml)
+- 2026-06-29 19:09 - [官媒首曝六代机？大V解读](http://www.share.kurohicncr.top/Article/details/035978.shtml)
+- 2026-06-29 18:58 - [杨紫视后第一场线下活动](http://www.share.kurohicncr.top/Article/details/70213506398.shtml)
+- 2026-06-29 19:03 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/45473687532.shtml)
+- 2026-06-29 19:15 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/299827423.shtml)
+- 2026-06-29 19:00 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.minike.top/Article/details/7046580.shtml)

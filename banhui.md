@@ -1,45 +1,57 @@
-# 高温固体消泡剂商品报价动态（2026-05-24）
+# 沪指小幅低开 贵金属板块跌幅居前
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-生意社05月24日讯 交易商 品牌/产地 交货地 最新报价 河南顺之邦环保科技有限公司 国产 河南省/郑州市 5300元/吨 （文章来源：生意社）责任编辑：陈平
+中新经纬5月15日电 周五，A股三大指数开盘涨跌不一。上证指数跌0.09%，报4174.18点；深证成指涨0.05%，报15753.19点；创业板指涨0.17%，报3957.74点。 来源：同花顺 盘面上，行业板块中，橡胶制品、电子化学品、教育、化学原料等板块领涨，贵金属、白酒、电力、工业金属等板块跌幅居前。 概念板块中，氟化工概念、PVDF概念、染料等板块涨幅居前，金属锌、电
 
 ## 正文
 
-生意社05月24日讯 交易商 品牌/产地 交货地 最新报价 河南顺之邦环保科技有限公司 国产 河南省/郑州市 5300元/吨 （文章来源：生意社）责任编辑：陈平
+中新经纬5月15日电 周五，A股三大指数开盘涨跌不一。
+
+上证指数跌0.09%，报4174.18点；深证成指涨0.05%，报15753.19点；创业板指涨0.17%，报3957.74点。
+
+来源：同花顺 盘面上，行业板块中，橡胶制品、电子化学品、教育、化学原料等板块领涨，贵金属、白酒、电力、工业金属等板块跌幅居前。
+
+概念板块中，氟化工概念、PVDF概念、染料等板块涨幅居前，金属锌、电子纸、黄金概念等板块领跌。
+
+截至5月14日，沪深两市的融资融券余额为2.88万亿元。
+
+当日融资余额为2.86万亿元，较上一个交易日增长了91.54亿元；当日融券余额为207.47亿元，较上一个交易日下降了3.44亿元。
+
+个股方面，集合竞价期间涨停股部分如下：金富科技(10.01%)、中欣氟材(10.00%)、威龙股份(9.98%)、滨化股份(10.04%)、利仁科技(10.00%)。
+
+沃格光电开盘跌停，消息上，该公司实控人易伟华被证监会立案调查。
 
 ## 相关推荐
 
-- 2026-06-29 18:57 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 19:11 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-29 19:02 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 19:08 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 18:53 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 18:59 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-29 18:55 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 18:54 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-29 18:50 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 19:08 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-29 18:49 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 19:03 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-29 18:51 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 19:12 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 19:04 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 19:09 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 18:54 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-29 19:00 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 18:48 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 18:53 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 19:05 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-29 19:14 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 18:56 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 19:10 - [两老人多次到一洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:07 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/95840896306.shtml)
-- 2026-06-29 19:05 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.blog.kurohicncr.top/Article/details/4568402.shtml)
-- 2026-06-29 18:42 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.blog.minike.top/Article/details/6375446.shtml)
-- 2026-06-29 19:09 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/6699922.shtml)
-- 2026-06-29 18:46 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/316703.shtml)
-- 2026-06-29 19:06 - [大六座SUV进入黄金时代](https://www.share.minike.top/Article/details/912476237887.shtml)
-- 2026-06-29 18:45 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/859159083492.shtml)
-- 2026-06-29 18:48 - [韩剧编剧又升级了](http://www.share.minike.top/Article/details/6190417933.shtml)
-- 2026-06-29 18:56 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/322750003.shtml)
-- 2026-06-29 18:54 - [医药生物行业今日涨5.91%](http://www.blog.kurohicncr.top/Article/details/4666451831.shtml)
-- 2026-06-29 19:06 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/3983268969.shtml)
-- 2026-06-29 19:08 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.blog.kurohicncr.top/Article/details/916673940.shtml)
-- 2026-06-29 19:04 - [张杰我九岁就跟你了](https://www.blog.kurohicncr.top/Article/details/569458.shtml)
-- 2026-06-29 18:45 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/5788791.shtml)
-- 2026-06-29 19:04 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/43157.shtml)
+- 2026-06-29 19:08 - [齐思钧回复孙怡](https://www.share.kurohicncr.top/Article/details/594962687639.shtml)
+- 2026-06-29 19:12 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/911347165.shtml)
+- 2026-06-29 19:04 - [起风了](http://www.blog.minike.top/Article/details/7876844.shtml)
+- 2026-06-29 19:11 - [花万元相亲对象是50元雇的演员](http://www.share.minike.top/Article/details/00998686.shtml)
+- 2026-06-29 19:16 - [滚石就音乐人屠颖去世事件发声明](http://www.share.minike.top/Article/details/1876866.shtml)
+- 2026-06-29 19:15 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/61842806.shtml)
+- 2026-06-29 18:58 - [韩国队主帅遭极端网友死亡威胁](http://www.share.kurohicncr.top/Article/details/3903413641.shtml)
+- 2026-06-29 18:51 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/373532.shtml)
+- 2026-06-29 18:50 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/84144546884.shtml)
+- 2026-06-29 19:09 - [官媒首曝六代机？大V解读](http://www.share.minike.top/Article/details/185317274.shtml)
+- 2026-06-29 19:17 - [王楚钦开门红](http://www.blog.minike.top/Article/details/09240836486.shtml)
+- 2026-06-29 19:11 - [虞书欣好辣的剧宣](https://www.blog.kurohicncr.top/Article/details/062568909.shtml)
+- 2026-06-29 19:15 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/716753790.shtml)
+- 2026-06-29 19:04 - [小说《无悔追踪》翻红](http://www.share.kurohicncr.top/Article/details/166804070.shtml)
+- 2026-06-29 19:00 - [拍到真的赛博朋克边缘行者了！](http://www.blog.kurohicncr.top/Article/details/89082455.shtml)

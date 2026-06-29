@@ -1,56 +1,56 @@
-# 视频 | 今日，追觅万名员工游迪士尼，俞浩现身“被追星”
+# 葡萄酒T7圆桌会议丨孙健：当前形势下，信心和行动最重要
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-新浪科技讯 5月22日晚间消息，今日于上海迪士尼举办的“追觅奇妙夜”活动上，追觅科技创始人俞浩兑现“请全体员工到迪士尼玩”承诺。 据俞浩本人透露，此次参与迪士尼游玩的总人数预计约 5 万人，覆盖办公室职员、研发人员、一线员工以及部分员工家属。 今日晚间，俞浩也来到迪士尼现场，引来大量现场观众围观并争相拍照合影。在追觅特别举办的“惊喜分享”环节，追觅扫地机事业部总裁孟佳、追觅个护
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 5月13日，由中国酒业协会主办、中信尼雅葡萄酒股份有限公司承办的中国酒业协会第七届葡萄酒T7圆桌会议在新疆玛纳斯县举行。来自张裕、长城、茅台、威龙、王朝、中信尼雅、西鸽酒庄等中国葡萄酒行业领军企业的代表齐聚一堂，围绕“轻饮 悦享 再出发”这一主题进行座谈交流，分享了各自的精彩观点和实践经验。 烟台张裕葡萄酿酒股份有限公司
 
 ## 正文
 
-新浪科技讯 5月22日晚间消息，今日于上海迪士尼举办的“追觅奇妙夜”活动上，追觅科技创始人俞浩兑现“请全体员工到迪士尼玩”承诺。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 5月13日，由中国酒业协会主办、中信尼雅葡萄酒股份有限公司承办的中国酒业协会第七届葡萄酒T7圆桌会议在新疆玛纳斯县举行。
 
-据俞浩本人透露，此次参与迪士尼游玩的总人数预计约 5 万人，覆盖办公室职员、研发人员、一线员工以及部分员工家属。
+来自张裕、长城、茅台、威龙、王朝、中信尼雅、西鸽酒庄等中国葡萄酒行业领军企业的代表齐聚一堂，围绕“轻饮 悦享 再出发”这一主题进行座谈交流，分享了各自的精彩观点和实践经验。
 
-今日晚间，俞浩也来到迪士尼现场，引来大量现场观众围观并争相拍照合影。
+烟台张裕葡萄酿酒股份有限公司总经理孙健在会上表示，2026 年行业依旧呈现总量收缩、结构分化的特征，暂无明确趋势性回暖信号。
 
-在追觅特别举办的“惊喜分享”环节，追觅扫地机事业部总裁孟佳、追觅个护事业部总裁许梦靖、以及追觅生活环境电器总裁何兴伟等人登台进行了简短致辞，俞浩全程台下观礼。
+“当前形势下，信心和行动最重要！
 
-致辞结束后的特别抽奖环节，俞浩扮演开奖官，选出了首批10名获奖者，赠予追觅提供的迪士尼年卡礼品。
+”孙健总经理介绍了张裕2026 年的应对策略。
 
-（文猛）责任编辑：刘万里 SF014
+他表示，张裕将继续坚持“守正创新”的发展策略。
+
+守正层面，聚焦传统葡萄酒、白兰地业务，通过创新运营手法，稳住核心业务基本盘；创新层面，适配当下市场消费新需求，集中发力大众消费市场，在产品研发、消费场景、品牌营销等维度全面寻求突破。
+
+具体而言： 一是创新酒庄酒业务。
 
 ## 相关推荐
 
-- 2026-06-29 19:08 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 18:54 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 19:06 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 18:42 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-29 18:43 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 19:05 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-29 18:57 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-29 18:52 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-29 19:05 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-29 18:53 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 19:08 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 19:04 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-29 19:00 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-29 18:53 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-29 18:50 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-29 18:51 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 18:50 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 18:48 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-29 19:16 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 18:52 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-29 19:06 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 19:11 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 19:14 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 18:55 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:05 - [中方将20家日本实体列入管控名单](https://www.share.kurohicncr.top/Article/details/1397506.shtml)
-- 2026-06-29 18:56 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/553734913609.shtml)
-- 2026-06-29 18:48 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/138299643217.shtml)
-- 2026-06-29 19:08 - [韩国队出局是因为内讧吗](http://www.blog.minike.top/Article/details/9786067.shtml)
-- 2026-06-29 19:04 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/50026641.shtml)
-- 2026-06-29 18:46 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/0972981740.shtml)
-- 2026-06-29 19:05 - [医药生物行业今日涨5.91%](https://www.share.minike.top/Article/details/78852108.shtml)
-- 2026-06-29 18:47 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/51726812640.shtml)
-- 2026-06-29 18:55 - [哈兰德玩游戏连女友都不让着](https://www.share.kurohicncr.top/Article/details/68702.shtml)
-- 2026-06-29 19:03 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/59021783.shtml)
-- 2026-06-29 19:09 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/7158276427.shtml)
-- 2026-06-29 18:44 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/164827075581.shtml)
-- 2026-06-29 19:06 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/03170.shtml)
-- 2026-06-29 19:04 - [谢依霖夸杨幂靠谱](http://www.blog.minike.top/Article/details/959318008.shtml)
-- 2026-06-29 19:02 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/168236862.shtml)
+- 2026-06-29 19:05 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/5625295958.shtml)
+- 2026-06-29 19:16 - [曝iPhone涨价后不会再降](http://www.share.kurohicncr.top/Article/details/192270.shtml)
+- 2026-06-29 19:01 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/519631710737.shtml)
+- 2026-06-29 19:10 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/5879587.shtml)
+- 2026-06-29 19:03 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/41767.shtml)
+- 2026-06-29 18:57 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/66395.shtml)
+- 2026-06-29 18:54 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.blog.minike.top/Article/details/36269897.shtml)
+- 2026-06-29 19:15 - [为何说今日日本似战前日本](https://www.blog.kurohicncr.top/Article/details/000307906.shtml)
+- 2026-06-29 19:07 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/760637674.shtml)
+- 2026-06-29 19:12 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/648623056.shtml)
+- 2026-06-29 19:16 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/903299323.shtml)
+- 2026-06-29 18:58 - [谢依霖夸杨幂靠谱](http://www.share.minike.top/Article/details/80927.shtml)
+- 2026-06-29 19:07 - [首个靠AI躺赢的国家](http://www.share.kurohicncr.top/Article/details/52070787626.shtml)
+- 2026-06-29 19:04 - [王俊凯命名方式](https://www.blog.minike.top/Article/details/65819899170.shtml)
+- 2026-06-29 18:57 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.kurohicncr.top/Article/details/8246435.shtml)

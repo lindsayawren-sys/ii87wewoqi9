@@ -1,57 +1,59 @@
-# 中信建投期货：5月26日农产品早报
+# 估值7年暴涨120倍！成都企业冲刺“太空AI第一股”，叶国富也投了
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-玉米：中性 1．市场关注：在谷物放量始终没有明确的情况下，弱势运行延续，近期重点关注新麦价格，新季小麦整体丰产预期但品质偏弱。饲用企业的谷物替代逐步铺开，等待谷物库存及盘面的进一步消化，短期至6月上旬之前，新麦开秤价的价格锚定或成为利空出尽的关键变量，丰产预期下的利空压制愈发变强。目前虽然饲用豆粕/玉米都在持续走低并且不断逼近安全垫，但注意目前小麦替代仍在计价途中，现货购销短期
+来源：财通社 5月14日晚，成都国星宇航科技股份有限公司（简称“国星宇航”）更新招股书，继续推进赴港上市进程。 若成功上市，这家成立仅八年的商业航天企业，有望成为港股“太空AI第一股”。 在近一年AI与商业航天概念持续升温的背景下，国星宇航无疑踩中了资本市场最热门的赛道。 01 卖AI卫星 国星宇航成立于2018年5月，总部位于成都，创始人为陆川。 公司早期专注于内部开发AI有
 
 ## 正文
 
-玉米：中性 1．市场关注：在谷物放量始终没有明确的情况下，弱势运行延续，近期重点关注新麦价格，新季小麦整体丰产预期但品质偏弱。
+来源：财通社 5月14日晚，成都国星宇航科技股份有限公司（简称“国星宇航”）更新招股书，继续推进赴港上市进程。
 
-饲用企业的谷物替代逐步铺开，等待谷物库存及盘面的进一步消化，短期至6月上旬之前，新麦开秤价的价格锚定或成为利空出尽的关键变量，丰产预期下的利空压制愈发变强。
+若成功上市，这家成立仅八年的商业航天企业，有望成为港股“太空AI第一股”。
 
-目前虽然饲用豆粕/玉米都在持续走低并且不断逼近安全垫，但注意目前小麦替代仍在计价途中，现货购销短期即便走强也不构成持续性利多。
+在近一年AI与商业航天概念持续升温的背景下，国星宇航无疑踩中了资本市场最热门的赛道。
 
-稻谷拍的市场消息卖对盘面的反复拉扯削弱，适当减少关注。
+01 卖AI卫星 国星宇航成立于2018年5月，总部位于成都，创始人为陆川。
 
-2．观点总结：观望为主，等待利空进一步消化。
+公司早期专注于内部开发AI有效载荷，后来转向独立开发AI卫星。
 
-豆粕：中性 1．特朗普表示美国与伊朗谈判已进入最后阶段，隔夜WTI原油显著下跌，引发农产品多头获利平仓，美豆跟随走弱。
+2018年12月，公司发射了中国第一颗AI应用卫星；2024年9月，又成功发射了中国第一颗AI大模型智算卫星。
 
-Stone X指出，在中美采购协议披露进一步细节之前，市场对这一题材的交易保持谨慎，进而对美豆价格的推动作用或相对有限。
+到了2025年5月，其成功研制并发射了全球首个由12颗AI智算卫星组成的AI智算卫星星座。
 
-与此同时，市场逐步将交易重心转向北美新季作物播种进展，当前美豆播种进度偏快，不利于天气升水累积，亦给美豆价格带来压力。
+截至目前，国星宇航已成功完成14次太空任务，累计发射27颗卫星，其中15颗AI智算卫星仍然在轨。
 
 ## 相关推荐
 
-- 2026-06-29 18:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-29 18:46 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 18:51 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 18:51 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 18:53 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-29 19:03 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 18:59 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 19:07 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-29 18:48 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-29 19:00 - [伊朗足球队将启程回国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 18:44 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-29 18:57 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 18:50 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 19:10 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 18:58 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 19:10 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 18:51 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 19:13 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 18:48 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-29 19:15 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 19:00 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 18:55 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 19:12 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-29 19:06 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:11 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/28890315331.shtml)
-- 2026-06-29 18:50 - [美议员呼吁断供以色列政府](http://www.share.minike.top/Article/details/2804875.shtml)
-- 2026-06-29 18:48 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/5747477368.shtml)
-- 2026-06-29 19:05 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/69970146249.shtml)
-- 2026-06-29 19:08 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/54951463.shtml)
-- 2026-06-29 18:48 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/67867593.shtml)
-- 2026-06-29 18:49 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/63837.shtml)
-- 2026-06-29 18:51 - [叠纸客服回应恋与深空新角色争议](http://www.blog.minike.top/Article/details/29399.shtml)
-- 2026-06-29 18:43 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.blog.minike.top/Article/details/81414.shtml)
-- 2026-06-29 19:02 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/721144512.shtml)
-- 2026-06-29 19:07 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/36244089.shtml)
-- 2026-06-29 19:00 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/56998901.shtml)
-- 2026-06-29 19:05 - [爱很美味](https://www.blog.minike.top/Article/details/781097604.shtml)
-- 2026-06-29 18:53 - [美议员呼吁断供以色列政府](http://www.share.kurohicncr.top/Article/details/79030.shtml)
-- 2026-06-29 18:48 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/5022862735.shtml)
+- 2026-06-29 19:14 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/040371.shtml)
+- 2026-06-29 19:12 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/3911933.shtml)
+- 2026-06-29 18:59 - [花万元相亲对象是50元雇的演员](http://www.share.kurohicncr.top/Article/details/6453320029.shtml)
+- 2026-06-29 18:54 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/60179.shtml)
+- 2026-06-29 18:49 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.kurohicncr.top/Article/details/446751835.shtml)
+- 2026-06-29 19:02 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/955501604.shtml)
+- 2026-06-29 19:03 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/095307548.shtml)
+- 2026-06-29 18:48 - [papi酱在救赎窦文涛](https://www.blog.kurohicncr.top/Article/details/27564.shtml)
+- 2026-06-29 19:03 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/1868427080.shtml)
+- 2026-06-29 19:00 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/80490483.shtml)
+- 2026-06-29 19:15 - [当家电外通风口出现鸟窝](https://www.share.minike.top/Article/details/690274098.shtml)
+- 2026-06-29 18:49 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/7511818.shtml)
+- 2026-06-29 18:51 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/9262821.shtml)
+- 2026-06-29 19:02 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/93791.shtml)
+- 2026-06-29 19:17 - [韩文体部对韩足协开展审计 查出局原因](https://www.blog.kurohicncr.top/Article/details/2362818188.shtml)

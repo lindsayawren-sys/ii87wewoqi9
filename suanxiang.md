@@ -1,54 +1,61 @@
-# 西安石油大学乌兹别克斯坦分校——中乌石油大学建设启动
+# 第24届大连国际徒步大会开幕 30余万名徒步爱好者山海同行
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中新网西安5月23日电 (梅镱泷 徐天雨)在22日举行的2026丝绸之路国际产学研用合作会议暨教育合作交流活动上，西安石油大学乌兹别克斯坦分校——中乌石油大学建设启动揭牌。 据介绍，西安石油大学乌兹别克斯坦分校——中乌石油大学项目是西安石油大学主动融入共建“一带一路”倡议、深度对接国家能源强国战略、践行“中文+”教育出海理念的重大举措，也是该校以独立法人身份在乌兹别克斯坦设立的
+中新网大连5月16日电 (记者 杨毅)为期2天的第24届大连国际徒步大会16日开幕，本届徒步大会以“和平、健康、交流——遇见大连，心动无限”为主题，吸引国内外30余万名徒步爱好者齐聚滨城，用脚步丈量“山海之城”的浪漫与活力。 清晨的星海广场，微风拂面，人潮涌动。8时整，大会宣读国际徒步联盟贺信，贺信对滨海路沿途的人文底蕴与山海风光表示赞叹，并邀请全球徒步爱好者相约大连。 大连市
 
 ## 正文
 
-中新网西安5月23日电 (梅镱泷 徐天雨)在22日举行的2026丝绸之路国际产学研用合作会议暨教育合作交流活动上，西安石油大学乌兹别克斯坦分校——中乌石油大学建设启动揭牌。
+中新网大连5月16日电 (记者 杨毅)为期2天的第24届大连国际徒步大会16日开幕，本届徒步大会以“和平、健康、交流——遇见大连，心动无限”为主题，吸引国内外30余万名徒步爱好者齐聚滨城，用脚步丈量“山海之城”的浪漫与活力。
 
-据介绍，西安石油大学乌兹别克斯坦分校——中乌石油大学项目是西安石油大学主动融入共建“一带一路”倡议、深度对接国家能源强国战略、践行“中文+”教育出海理念的重大举措，也是该校以独立法人身份在乌兹别克斯坦设立的海外分校。
+清晨的星海广场，微风拂面，人潮涌动。
 
-活动现场还签署了西安石油大学与阿联酋穆罕默德亲王皇室办公室合作谅解备忘录。
+8时整，大会宣读国际徒步联盟贺信，贺信对滨海路沿途的人文底蕴与山海风光表示赞叹，并邀请全球徒步爱好者相约大连。
 
-双方将依托备忘录，围绕国际教育合作、科研成果国际化转化、深化多方协同合作等领域开展长期深度合作，积极探索能源领域跨国产学研合作新模式，拓宽学校国际合作渠道，推动优质教育资源、能源技术成果双向共享。
+大连市副市长李丹在致辞中表示，大连国际徒步大会已成功举办23届，累计吸引430万人参与。
 
-近年来，西安石油大学积极把握丝路国际合作机遇，扎实推进土库曼斯坦鲁班工坊、乌兹别克斯坦分校等重点国际合作项目，以务实举措深化能源领域国际产学研协同，学校国际化办学水平与丝路能源合作影响力持续提升。
+本届大会实行“1个主会场+9个分会场”全域布局，汇聚30余万人激情参与。
 
-西安石油大学党委书记常江表示，将持续依托丝路产学研国际交流平台，锚定国际化发展目标，稳步推进境外办学项目落地，深化与中亚、中东国家高校及机构的务实合作，以教育赋能能源合作，以产学研融合助力区域发展。
+期待广大徒步爱好者以徒步为媒，让运动融入日常，成为宣传使者，传递大连的开放活力与城市魅力。
 
-(完)
+本届大会继续采用“1个主会场+9个分会场”全域布局。
+
+主会场设在星海广场，线路沿滨海路向东港商务区延伸，串联森林动物园、傅家庄公园、燕窝岭、老虎滩海洋公园、渔人码头、棒棰岛、海之韵公园、大连国际会议中心等滨海地标。
 
 ## 相关推荐
 
-- 2026-06-29 19:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 19:11 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 19:05 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 18:49 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 19:05 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-29 18:57 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-29 19:09 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-29 18:57 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-29 18:52 - [德国医生在没有空调的手术室工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-29 19:05 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 18:48 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-29 18:54 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-29 18:58 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-29 18:55 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 19:15 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-29 18:57 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 18:48 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 18:54 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 19:02 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 18:48 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 19:11 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-29 18:52 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 19:06 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-29 18:53 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-29 19:05 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:06 - [戒掉咖啡后我的身体变化](https://www.blog.minike.top/Article/details/99237019847.shtml)
-- 2026-06-29 19:02 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/18051.shtml)
-- 2026-06-29 18:56 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/6524202.shtml)
-- 2026-06-29 18:51 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/535376227.shtml)
-- 2026-06-29 19:04 - [笔记本电脑一年涨价近一倍](https://www.blog.minike.top/Article/details/7657709.shtml)
-- 2026-06-29 18:48 - [乔家的儿女](https://www.blog.minike.top/Article/details/594138.shtml)
-- 2026-06-29 19:04 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/7520016.shtml)
-- 2026-06-29 18:43 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/77081.shtml)
-- 2026-06-29 18:59 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.blog.kurohicncr.top/Article/details/082833979.shtml)
-- 2026-06-29 19:05 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/6930932084.shtml)
-- 2026-06-29 19:06 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.blog.minike.top/Article/details/4208868532.shtml)
-- 2026-06-29 18:44 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/8032985439.shtml)
-- 2026-06-29 19:07 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/246639710392.shtml)
-- 2026-06-29 18:58 - [RAY评乘风2026总决赛](http://www.blog.minike.top/Article/details/163148901.shtml)
-- 2026-06-29 18:57 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/671252.shtml)
+- 2026-06-29 19:13 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/39418.shtml)
+- 2026-06-29 18:59 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/4914153.shtml)
+- 2026-06-29 18:59 - [女心理师](https://www.share.minike.top/Article/details/513630056176.shtml)
+- 2026-06-29 19:10 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/489278576794.shtml)
+- 2026-06-29 18:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/44050580274.shtml)
+- 2026-06-29 19:09 - [共享单车“价格刺客”79分钟30元](https://www.share.kurohicncr.top/Article/details/9730750547.shtml)
+- 2026-06-29 19:03 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/04670.shtml)
+- 2026-06-29 18:53 - [法拉利被4个孩子当滑梯玩](https://www.share.kurohicncr.top/Article/details/2679041.shtml)
+- 2026-06-29 19:06 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/30210.shtml)
+- 2026-06-29 19:06 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/822546913.shtml)
+- 2026-06-29 19:03 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/455259.shtml)
+- 2026-06-29 19:00 - [被中方管控的20家日本实体什么来头](https://www.blog.minike.top/Article/details/619362.shtml)
+- 2026-06-29 19:14 - [日本在最东端离岛部署导弹发射装置](https://www.blog.minike.top/Article/details/175505429.shtml)
+- 2026-06-29 19:01 - [时光音乐会](http://www.blog.minike.top/Article/details/365600745138.shtml)
+- 2026-06-29 18:53 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/280082957815.shtml)

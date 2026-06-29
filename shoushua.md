@@ -1,58 +1,56 @@
-# 综合整治“内卷式”竞争 北京约谈17家重点平台企业
+# 《关于证券纠纷“示范性诉讼+批量化调解”的工作指引》发布
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中新网5月25日电 据北京市市场监督管理局网站消息，为加强平台经济监管，规范“6·18”期间平台经营行为，近日，北京市市场监管局组织召开北京市网络市场监管联席会议，对17家重点平台企业开展约谈指导。 北京市市场监管局要求，要严格落实“内卷式”竞争综合整治工作要求，杜绝在“6·18”期间开展非理性大额补贴促销活动，规范价格和广告营销行为，强化食品安全风险防控。北京市商务局强调，要
+中新网北京5月15日电 (记者 陈康亮)记者15日自中证中小投资者服务中心获悉，上海金融法院与中证中小投资者服务中心联合发布《关于证券纠纷“示范性诉讼+批量化调解”的工作指引》(下称《指引》)，旨在进一步畅通和规范证券批量纠纷诉调对接流程，促推证券纠纷高效实质化解，坚实护航资本市场高质量发展及中小投资者合法权益保护。《指引》全文共六章三十五条，分为总则、示范性诉讼、批量化调解、
 
 ## 正文
 
-中新网5月25日电 据北京市市场监督管理局网站消息，为加强平台经济监管，规范“6·18”期间平台经营行为，近日，北京市市场监管局组织召开北京市网络市场监管联席会议，对17家重点平台企业开展约谈指导。
+中新网北京5月15日电 (记者 陈康亮)记者15日自中证中小投资者服务中心获悉，上海金融法院与中证中小投资者服务中心联合发布《关于证券纠纷“示范性诉讼+批量化调解”的工作指引》(下称《指引》)，旨在进一步畅通和规范证券批量纠纷诉调对接流程，促推证券纠纷高效实质化解，坚实护航资本市场高质量发展及中小投资者合法权益保护。
 
-北京市市场监管局要求，要严格落实“内卷式”竞争综合整治工作要求，杜绝在“6·18”期间开展非理性大额补贴促销活动，规范价格和广告营销行为，强化食品安全风险防控。
+《指引》全文共六章三十五条，分为总则、示范性诉讼、批量化调解、诉调对接、机制保障和附则。
 
-北京市商务局强调，要坚守诚信经营底线，严守公平竞争经营准则，健全全流程服务体系，推动经营模式提质升级。
+重点明确了以下三方面内容： 一是明确“示范性诉讼+批量化调解”解纷模式运用。
 
-北京市文化和旅游局提示，要严格落实住宿业务等资质核验要求，强化内容管控，加强产品审核，充分展示退订退费规则，妥善处理投诉。
+将法院对示范案件进行示范审理后作出“示范判决”或“示范调解”的行为，一并列为具有示范效应、可以明确批量纠纷裁判或调解标准的诉讼活动，提升调解解纷的权威性。
 
-北京市通信管理局强调，要不断优化APP改进服务，加强网络售卡渠道相关资质审核，不得未经消费者同意擅自发送营销短信。
+将示范性诉讼的规则确立功能与批量化调解的高效集约功能有机融合，实现从标准确立到标准适用的无缝衔接，既发挥司法裁判的引领作用，又释放调解组织的专业优势。
 
-北京市税务局指出，要严格落实税务信息报送规定，及时准确报送平台内经营者和从业人员信息，主动提示办理证照。
+同时，充分保障批量案件投资者知悉示范性诉讼审理过程及结果的权利，稳定投资者预期。
 
-北京市邮政局提示，要加强人员、运力、设备、信息系统能力储备，提高末端投递服务能力，严禁寄递违规物品。
+为证券批量纠纷化解提供了可复制、可推广的“上海方案”。
 
-北京市版权局要求，要健全版权审核、投诉处置、侵权惩戒全链条机制，积极开展正版合规自查。
+二是强化法院与调解组织的协同联动作用发挥。
 
 ## 相关推荐
 
-- 2026-06-29 19:08 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-29 18:52 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 18:52 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-29 19:10 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-29 18:54 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 18:59 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 18:56 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-29 19:05 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-29 18:58 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-29 19:04 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-29 18:49 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 18:47 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 19:09 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 19:04 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 19:00 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 18:59 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 19:04 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-29 18:50 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 19:18 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 19:10 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-29 18:55 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-29 19:12 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:01 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/336076.shtml)
-- 2026-06-29 18:58 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/35570363533.shtml)
-- 2026-06-29 18:48 - [逃狱兄弟](https://www.share.minike.top/Article/details/8324093626.shtml)
-- 2026-06-29 19:06 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/2438349.shtml)
-- 2026-06-29 19:06 - [欧洲极端高温如何影响家电股](https://www.blog.minike.top/Article/details/421236455936.shtml)
-- 2026-06-29 18:43 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/26570474413.shtml)
-- 2026-06-29 19:08 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.kurohicncr.top/Article/details/925625.shtml)
-- 2026-06-29 18:55 - [韩国队启程回国 全员羞愧低头](https://www.blog.minike.top/Article/details/1207003.shtml)
-- 2026-06-29 19:07 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/7604022.shtml)
-- 2026-06-29 19:09 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/556136582.shtml)
-- 2026-06-29 18:43 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/078965.shtml)
-- 2026-06-29 19:01 - [一见倾心](https://www.blog.minike.top/Article/details/100389551.shtml)
-- 2026-06-29 19:07 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/8853430386.shtml)
-- 2026-06-29 19:00 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/56843502299.shtml)
-- 2026-06-29 18:46 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/079161842.shtml)
+- 2026-06-29 19:08 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.share.minike.top/Article/details/21804610132.shtml)
+- 2026-06-29 19:08 - [永远有话聊的原因](http://www.share.minike.top/Article/details/381426646456.shtml)
+- 2026-06-29 19:14 - [极限挑战第一季](http://www.blog.minike.top/Article/details/46750092.shtml)
+- 2026-06-29 19:14 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/096520393.shtml)
+- 2026-06-29 19:00 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/67687521.shtml)
+- 2026-06-29 19:13 - [德国医生在没有空调的手术室工作](http://www.blog.minike.top/Article/details/50189349.shtml)
+- 2026-06-29 19:04 - [逆天祖国人](http://www.blog.minike.top/Article/details/78442814526.shtml)
+- 2026-06-29 18:56 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.minike.top/Article/details/771698637174.shtml)
+- 2026-06-29 18:50 - [片寄凉太胖了好多](http://www.blog.minike.top/Article/details/4626214836.shtml)
+- 2026-06-29 18:52 - [花万元相亲对象是50元雇的演员](http://www.blog.kurohicncr.top/Article/details/49573.shtml)
+- 2026-06-29 19:04 - [湖南耒阳“轮椅女孩”高考546分](https://www.share.kurohicncr.top/Article/details/1267443.shtml)
+- 2026-06-29 18:58 - [专家预计全球央行加息节奏将出现反复](https://www.blog.minike.top/Article/details/848023019747.shtml)
+- 2026-06-29 18:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/3876468.shtml)
+- 2026-06-29 19:01 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/085706.shtml)
+- 2026-06-29 19:01 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/924916552961.shtml)

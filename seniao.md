@@ -1,57 +1,61 @@
-# 李家超祝贺黎家盈博士参与神舟二十三号载人飞行任务
+# 山东上线“齐鲁制造会客厅” 勾勒“智造”跃升新图景
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月23日 16:46 来源：中国新闻网 香港特区行政长官李家超5月23日发表祝贺香港载荷专家参与神舟二十三号载人飞行任务的致辞。 他在致辞中表示：“今日，香港特区迎来参与国家伟大航天事业历史性的一日！中国载人航天工程办公室公布，来自香港的载荷专家黎家盈博士，将成为神舟二十三号飞行乘组的成员，前往中国空间站执行任务。我衷心感谢国家对香港的信任，以及对香港创
+中新网济南5月15日电(记者 孙婷婷)山东打造“齐鲁制造会客厅”系列活动，围绕人工智能、机器人、智能终端、空天装备、新能源装备、智能装备、高端化工、新材料等产业链，展示企业最新技术成果和前沿技术产品，塑造引领行业变革的“硬核样本”，并借由“齐鲁制造会客厅”，帮助企业精准找到供应链衔接方、资本对接方，加速创新链到产业链的深度转化，推动样机走进车间、材料装进产品、软件跑上产线，让技
 
 ## 正文
 
-发布时间：2026年05月23日 16:46 来源：中国新闻网 香港特区行政长官李家超5月23日发表祝贺香港载荷专家参与神舟二十三号载人飞行任务的致辞。
+中新网济南5月15日电(记者 孙婷婷)山东打造“齐鲁制造会客厅”系列活动，围绕人工智能、机器人、智能终端、空天装备、新能源装备、智能装备、高端化工、新材料等产业链，展示企业最新技术成果和前沿技术产品，塑造引领行业变革的“硬核样本”，并借由“齐鲁制造会客厅”，帮助企业精准找到供应链衔接方、资本对接方，加速创新链到产业链的深度转化，推动样机走进车间、材料装进产品、软件跑上产线，让技术成果真正转化为市场订单和产业增量。
 
-他在致辞中表示：“今日，香港特区迎来参与国家伟大航天事业历史性的一日！
+“齐鲁制造会客厅”人工智能专场活动15日在济南拉开帷幕。
 
-中国载人航天工程办公室公布，来自香港的载荷专家黎家盈博士，将成为神舟二十三号飞行乘组的成员，前往中国空间站执行任务。
+山东省副省长孙喜民在会上表示，人工智能是山东塑造竞争新优势的关键力量，也是建设先进制造业强省的必由之路。
 
-我衷心感谢国家对香港的信任，以及对香港创科人员的肯定和支持。
+该省将围绕制造业全链条挖掘优质应用场景，分行业建立需求库，培育100个左右示范性标杆，同时鼓励大企业打造定制化AI解决方案，为中小微企业推出AI套餐，推动初创AI企业与传统制造业合作，赋能传统产业、孵化新兴产业。
 
-我亦祝贺黎家盈博士代表香港特区骄傲地参与国家航天任务，在太空翱翔探索。
+山东省工业和信息化厅厅长陈飞指出，当前，山东工业经济正处于由大到强的关键转型期，亟须打破“传统产业大省”的固有标签，全方位展示产业智能化转型新成果。
 
-创新科技及工业局局长孙东教授会率领香港特区的代表团，参与在酒泉卫星发射中心举行的出征仪式。
+“齐鲁制造会客厅”作为全新的产业服务品牌，核心目标是讲好山东智造新故事、树立产业新形象，依托19条标志性产业链持续挖掘优质企业、标杆产品，推动“山东制造”向“山东智造”加速跃迁。
 
-我期待与各位香港市民和全国同胞，一起见证神舟二十三号发射升空。
+在首期活动中，6家企业分享了在人工智能赋能制造业方面的最新实践。
 
-星空浩瀚，逐梦远航。
+浪潮集团执行总裁肖雪在推介“人工智能工厂”产品时表示，浪潮集团部署人工智能工厂企业版，通过超级智能体，为产业提供自主可控的AI基座。
 
 ## 相关推荐
 
-- 2026-06-29 19:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-29 18:42 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-29 18:58 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-29 18:58 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 18:51 - [V8](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 18:55 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-29 19:01 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 18:54 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-29 18:49 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 18:50 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 19:01 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 19:02 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 19:13 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-29 18:59 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-29 18:56 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 18:54 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 19:08 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 19:12 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-29 19:09 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-29 19:10 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 19:07 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 18:58 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 18:58 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-29 18:57 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-29 19:05 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 18:52 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:54 - [小众羞耻点是吃麻辣烫](http://www.blog.minike.top/Article/details/64402.shtml)
-- 2026-06-29 18:51 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/25064950.shtml)
-- 2026-06-29 19:01 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.minike.top/Article/details/133598260265.shtml)
-- 2026-06-29 18:54 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/915136.shtml)
-- 2026-06-29 19:10 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/968176169070.shtml)
-- 2026-06-29 19:11 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/82011.shtml)
-- 2026-06-29 18:42 - [大马同意延长马航370残骸搜寻工作](http://www.blog.kurohicncr.top/Article/details/8434130500.shtml)
-- 2026-06-29 19:00 - [机器人学校开学了](https://www.blog.kurohicncr.top/Article/details/799810842416.shtml)
-- 2026-06-29 18:56 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/172035627649.shtml)
-- 2026-06-29 18:52 - [不烧钱的低成本爱好](https://www.share.minike.top/Article/details/634089932289.shtml)
-- 2026-06-29 18:54 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/7749666910.shtml)
-- 2026-06-29 18:47 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/362783.shtml)
-- 2026-06-29 18:45 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/239914326780.shtml)
-- 2026-06-29 18:57 - [中国空间站为什么要升级扩容](https://www.blog.kurohicncr.top/Article/details/80940960.shtml)
-- 2026-06-29 19:09 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/123348.shtml)
+- 2026-06-29 19:05 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/738028.shtml)
+- 2026-06-29 18:48 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.kurohicncr.top/Article/details/571076.shtml)
+- 2026-06-29 18:51 - [青春环游记第三季](http://www.blog.minike.top/Article/details/092774756.shtml)
+- 2026-06-29 19:11 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.kurohicncr.top/Article/details/43098.shtml)
+- 2026-06-29 19:12 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/8630062701.shtml)
+- 2026-06-29 18:57 - [依法管制阻遏日方军事化危险动向](https://www.blog.minike.top/Article/details/93377958835.shtml)
+- 2026-06-29 19:12 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.kurohicncr.top/Article/details/455614876.shtml)
+- 2026-06-29 19:04 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/481190.shtml)
+- 2026-06-29 18:48 - [看大国重器“云端穿针引线”](https://www.share.kurohicncr.top/Article/details/2644927.shtml)
+- 2026-06-29 19:16 - [A股割裂行情有变化了吗](https://www.blog.minike.top/Article/details/78133642.shtml)
+- 2026-06-29 19:01 - [千与千寻](https://www.blog.minike.top/Article/details/532406.shtml)
+- 2026-06-29 19:16 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/041022663399.shtml)
+- 2026-06-29 18:58 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/83362.shtml)
+- 2026-06-29 18:56 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/94758.shtml)
+- 2026-06-29 19:05 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/46749.shtml)

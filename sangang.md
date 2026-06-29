@@ -1,57 +1,61 @@
-# “我们‘视’好朋友呀！”影视拍摄平台亮相深圳文博会
+# 新疆导游迪丽努尔来北京见到他，不禁红了眼眶……
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中新网深圳5月24日电 (记者 蔡敏婕)在第二十二届深圳文博会上，北京市广电局携“我们‘视’好朋友呀！”影视拍摄服务平台、“北京大视听”四季影视打卡路线两大核心成果亮相北京展区，举办北京影视产业服务生态创新暨平台推介仪式，展示首都影视产业服务创新成果与视听文旅融合发展新势能。 推介仪式上，现场首先播放“我们‘视’好朋友呀！”影视拍摄服务平台宣传片，直观展现平台服务功能与核心优势
+“因为人民需要这样一条好走的路，祖国可以让高山让路，让河流低头，不是打穿天山容易，而是天山那头有人民。” 前不久，新疆导游迪丽努尔·吐尔逊江带台湾游客进行南疆环线游览，她自豪地为游客讲解了天山胜利隧道这座“超级工程”，视频走红全网。天山胜利隧道是目前世界最长的高速公路隧道，凝聚着无数建设者的心血与坚守。 近日，迪丽努尔来到北京，如愿见到了她心心念念的天山胜利隧道建设者。那一刻，
 
 ## 正文
 
-中新网深圳5月24日电 (记者 蔡敏婕)在第二十二届深圳文博会上，北京市广电局携“我们‘视’好朋友呀！
+“因为人民需要这样一条好走的路，祖国可以让高山让路，让河流低头，不是打穿天山容易，而是天山那头有人民。
 
-”影视拍摄服务平台、“北京大视听”四季影视打卡路线两大核心成果亮相北京展区，举办北京影视产业服务生态创新暨平台推介仪式，展示首都影视产业服务创新成果与视听文旅融合发展新势能。
+” 前不久，新疆导游迪丽努尔·吐尔逊江带台湾游客进行南疆环线游览，她自豪地为游客讲解了天山胜利隧道这座“超级工程”，视频走红全网。
 
-推介仪式上，现场首先播放“我们‘视’好朋友呀！
+天山胜利隧道是目前世界最长的高速公路隧道，凝聚着无数建设者的心血与坚守。
 
-”影视拍摄服务平台宣传片，直观展现平台服务功能与核心优势。
+近日，迪丽努尔来到北京，如愿见到了她心心念念的天山胜利隧道建设者。
 
-北京市广电局党组成员、副局长张苏现场宣介“北京大视听”拍摄服务机制建设运行情况，详解首都影视产业全链条服务体系。
+那一刻，她的眼眶红了…… 山不走来 “基建狂魔”便向山走去 迪丽努尔这次见到的是天山胜利隧道?
 
-“北京大视听”拍摄服务机制自2024年4月正式启动，系统梳理搭建起包含1200余个点位的优质取景资源库。
+建设的两位核心负责人——中国交建新疆乌尉公路包项目总经理部总经理周政(负责天山胜利隧道及乌尉高速公路等重大交通工程的建设与管理)、项目土建5标项目经理王贺起(负责天山胜利隧道进口端的施工建设)。
 
-机制运行两年来，已累计协助50余部影视作品在京取景拍摄，拍摄足迹覆盖钟鼓楼、国贸、什刹海、大运河等425个城市标志性点位。
+对周政来说，从参加工作至今已有31年，他的职业关键词就是“修路”。
 
-数据显示，相关影视取景热度成功带动景点游览、餐饮住宿、文创消费等多业态发展，累计拉动消费达3.5亿元。
+天山胜利隧道位于新疆天山山脉腹地，地处高寒高海拔地区，贯穿天山南北，气候寒冷，是他职业生涯中挑战最大、攻坚最难的工程。
 
 ## 相关推荐
 
-- 2026-06-29 18:52 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 19:06 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 18:47 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 18:58 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 19:00 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-29 18:47 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-29 19:09 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-29 18:42 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-29 18:56 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-29 18:42 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-29 18:52 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 18:56 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 18:56 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-29 19:13 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 18:51 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 18:53 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-29 19:01 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 18:48 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-29 19:13 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-29 18:49 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-29 18:57 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-29 18:54 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 18:53 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-29 19:13 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-29 18:57 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-29 19:00 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:42 - [唐艺昕告别浪姐千字长文](https://www.blog.minike.top/Article/details/3746245522.shtml)
-- 2026-06-29 18:53 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/651176.shtml)
-- 2026-06-29 18:43 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/456943.shtml)
-- 2026-06-29 18:43 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/90631901.shtml)
-- 2026-06-29 19:04 - [日媒：日本高价采购“战斧”变冤大头](http://www.share.kurohicncr.top/Article/details/75222440084.shtml)
-- 2026-06-29 18:44 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.share.minike.top/Article/details/75971038451.shtml)
-- 2026-06-29 19:05 - [伊朗足球队将启程回国](https://www.share.minike.top/Article/details/0095560097.shtml)
-- 2026-06-29 19:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/66800903257.shtml)
-- 2026-06-29 18:45 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.blog.kurohicncr.top/Article/details/97983365.shtml)
-- 2026-06-29 18:45 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/26388108.shtml)
-- 2026-06-29 19:02 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.blog.kurohicncr.top/Article/details/961583904.shtml)
-- 2026-06-29 19:04 - [日本偶像龟梨和也宣布结婚](http://www.blog.minike.top/Article/details/0103398392.shtml)
-- 2026-06-29 19:11 - [大学专业未来如何洗牌](https://www.share.kurohicncr.top/Article/details/012639953.shtml)
-- 2026-06-29 18:42 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/0080890.shtml)
-- 2026-06-29 18:54 - [税务总局披露5起合规申报个税案例](http://www.share.kurohicncr.top/Article/details/52039.shtml)
+- 2026-06-29 19:11 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/684409765363.shtml)
+- 2026-06-29 19:09 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/715868982662.shtml)
+- 2026-06-29 18:49 - [首个靠AI躺赢的国家](http://www.blog.kurohicncr.top/Article/details/2935421494.shtml)
+- 2026-06-29 19:04 - [夏天被这些虫子咬了可能致命](http://www.share.minike.top/Article/details/433312.shtml)
+- 2026-06-29 18:51 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/1019697511.shtml)
+- 2026-06-29 18:50 - [世界杯1/16决赛对阵出炉](https://www.blog.kurohicncr.top/Article/details/54860252479.shtml)
+- 2026-06-29 19:05 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/085799367.shtml)
+- 2026-06-29 19:06 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/308884360531.shtml)
+- 2026-06-29 18:59 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/190701163.shtml)
+- 2026-06-29 19:01 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/9043369184.shtml)
+- 2026-06-29 18:49 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/82591670656.shtml)
+- 2026-06-29 19:12 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/46152594575.shtml)
+- 2026-06-29 18:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/0011198.shtml)
+- 2026-06-29 18:50 - [RAY评乘风2026总决赛](http://www.share.kurohicncr.top/Article/details/67636.shtml)
+- 2026-06-29 19:14 - [齐思钧回复孙怡](http://www.blog.kurohicncr.top/Article/details/04534633440.shtml)

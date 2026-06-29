@@ -1,49 +1,56 @@
-# 美国假日出行高峰临近 高油价下的需求即将接受考验
+# 美国务院说以色列黎巴嫩停火将延长45天
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-美国航空集团（AAL）在达拉斯-沃斯堡机场为阵亡将士纪念日的大量客流做准备。美国汽车协会数据显示，全美平均汽油价格已达每加仑4.56美元，为四年来该周末的最高水平，可能抑制部分出行需求。责任编辑：张俊 SF065
+中新社华盛顿5月15日电 (记者 沙晗汀)美国国务院发言人托马斯·皮戈特当地时间15日表示，以色列与黎巴嫩已同意将美国总统特朗普于4月16日宣布的停火协议延长45天。 皮戈特当天在社交媒体发文说，“4月16日达成的停止敌对行动协议将延长45天，以实现进一步进展”。 皮戈特还说，以色列和黎巴嫩14日和15日在华盛顿举行的会谈“富有成效”。以色列和黎巴嫩政府代表将于6月2日到3日再
 
 ## 正文
 
-美国航空集团（AAL）在达拉斯-沃斯堡机场为阵亡将士纪念日的大量客流做准备。
+中新社华盛顿5月15日电 (记者 沙晗汀)美国国务院发言人托马斯·皮戈特当地时间15日表示，以色列与黎巴嫩已同意将美国总统特朗普于4月16日宣布的停火协议延长45天。
 
-美国汽车协会数据显示，全美平均汽油价格已达每加仑4.56美元，为四年来该周末的最高水平，可能抑制部分出行需求。
+皮戈特当天在社交媒体发文说，“4月16日达成的停止敌对行动协议将延长45天，以实现进一步进展”。
 
-责任编辑：张俊 SF065
+皮戈特还说，以色列和黎巴嫩14日和15日在华盛顿举行的会谈“富有成效”。
+
+以色列和黎巴嫩政府代表将于6月2日到3日再次举行会谈。
+
+两国军方代表将于5月29日举行会谈。
+
+皮戈特表示，“希望会谈能推动两国之间实现长久和平、承认对方领土和主权完整、在边境实现真正稳定”。
+
+据路透社报道，自3月2日以色列和黎巴嫩冲突以来，这是双方举行的第三次会谈。
+
+尽管双方达成“停火”协议，但实际上冲突并未停止。
 
 ## 相关推荐
 
-- 2026-06-29 18:59 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 19:02 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 19:05 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 19:01 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 18:57 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 18:47 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 18:53 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-29 18:49 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-29 19:11 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 19:04 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-29 19:07 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-29 18:51 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-29 18:58 - [看大国重器“云端穿针引线”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-29 18:56 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 19:11 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-29 18:58 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 19:10 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 19:16 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 18:52 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 19:06 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-29 18:50 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 19:03 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-29 19:03 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:56 - [日本偶像龟梨和也宣布结婚](https://www.blog.minike.top/Article/details/811002.shtml)
-- 2026-06-29 19:11 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/268060028238.shtml)
-- 2026-06-29 18:50 - [扫黑风暴](https://www.share.minike.top/Article/details/687841.shtml)
-- 2026-06-29 19:11 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/8951352752.shtml)
-- 2026-06-29 18:48 - [速度与激情9](http://www.share.minike.top/Article/details/26501.shtml)
-- 2026-06-29 19:05 - [德云色预测世界杯16强](http://www.blog.minike.top/Article/details/5212212.shtml)
-- 2026-06-29 19:02 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.minike.top/Article/details/90905457.shtml)
-- 2026-06-29 18:55 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.blog.minike.top/Article/details/621795.shtml)
-- 2026-06-29 18:53 - [速度与激情9](https://www.share.minike.top/Article/details/8553526193.shtml)
-- 2026-06-29 18:44 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/34170.shtml)
-- 2026-06-29 18:57 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/09608832811.shtml)
-- 2026-06-29 18:54 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/82086.shtml)
-- 2026-06-29 18:53 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/27421235816.shtml)
-- 2026-06-29 19:09 - [胡光宇一审获刑13年](http://www.share.kurohicncr.top/Article/details/4504212495.shtml)
-- 2026-06-29 18:42 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/6767451.shtml)
+- 2026-06-29 19:05 - [海口塔吊事故处罚结果公布](http://www.share.kurohicncr.top/Article/details/76566.shtml)
+- 2026-06-29 18:48 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/894332.shtml)
+- 2026-06-29 19:09 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.kurohicncr.top/Article/details/48322118.shtml)
+- 2026-06-29 18:53 - [扩军害了世界杯吗](http://www.share.minike.top/Article/details/5161066.shtml)
+- 2026-06-29 19:07 - [天道](http://www.share.minike.top/Article/details/63672841299.shtml)
+- 2026-06-29 19:11 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/331383150750.shtml)
+- 2026-06-29 19:10 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/4106137.shtml)
+- 2026-06-29 18:51 - [大马同意延长马航370残骸搜寻工作](http://www.share.minike.top/Article/details/205484098491.shtml)
+- 2026-06-29 19:14 - [韩国队出局是因为内讧吗](https://www.share.kurohicncr.top/Article/details/662249.shtml)
+- 2026-06-29 18:50 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/734821.shtml)
+- 2026-06-29 18:49 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/78003958.shtml)
+- 2026-06-29 18:55 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/13703.shtml)
+- 2026-06-29 18:52 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/4366514.shtml)
+- 2026-06-29 18:56 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/879981804.shtml)
+- 2026-06-29 19:02 - [TFING全员黑西装](https://www.share.minike.top/Article/details/648563361.shtml)

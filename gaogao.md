@@ -1,61 +1,53 @@
-# 西藏拥青一家的时代变迁：归于故乡 寻得“身份”
+# 紫砂雕刻传人以刀代笔雕雅器 心承文脉传非遗
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中新社西藏林芝5月23日电 题：西藏拥青一家的时代变迁：归于故乡 寻得“身份” 作者 赵朗 陈静 “如果没有国家的帮助，光靠我们自己，肯定过不上现在的好生活。”藏族大姐拥青说这话时，眼神格外坚定。 初夏的察隅，青山滴翠，轻雾缭绕。拥青家门口矗立着一块石碑，上面镌刻着“幸福家园”四个大字。大门门头，是一面涂着红漆的石刻五星红旗，院内鲜花绽放。 新中国成立前，地处藏东南的察隅民众，
+发布时间：2026年05月16日 22:29 来源：中国新闻网 5月16日，“玩壶尚志 彬心游艺”贺志斌紫砂雕刻展在上海朵云轩开幕。本次展览展出江苏省溧阳市紫砂雕刻非遗代表性传承人、一级(高级)陶艺师、中华文化促进会紫砂产业工作委员会副秘书长贺志斌的200多件作品，展现海派紫砂雕刻的独特艺术精髓与深厚文化内涵。 贺志斌出身书香门第，自幼接受传统文化熏陶，师承海派雕刻大师、上海市
 
 ## 正文
 
-中新社西藏林芝5月23日电 题：西藏拥青一家的时代变迁：归于故乡 寻得“身份” 作者 赵朗 陈静 “如果没有国家的帮助，光靠我们自己，肯定过不上现在的好生活。
+发布时间：2026年05月16日 22:29 来源：中国新闻网 5月16日，“玩壶尚志 彬心游艺”贺志斌紫砂雕刻展在上海朵云轩开幕。
 
-”藏族大姐拥青说这话时，眼神格外坚定。
+本次展览展出江苏省溧阳市紫砂雕刻非遗代表性传承人、一级(高级)陶艺师、中华文化促进会紫砂产业工作委员会副秘书长贺志斌的200多件作品，展现海派紫砂雕刻的独特艺术精髓与深厚文化内涵。
 
-初夏的察隅，青山滴翠，轻雾缭绕。
+贺志斌出身书香门第，自幼接受传统文化熏陶，师承海派雕刻大师、上海市文史研究馆馆员龚展。
 
-拥青家门口矗立着一块石碑，上面镌刻着“幸福家园”四个大字。
+在艺术修行之路上，他深耕宋元明清历代书画，坚守“以意趣为尚”的创作理念，精通以刀代笔的雕刻技法，将文人写意美学巧妙融合于紫砂器物创作中，让作品兼具古朴金石气与清雅书卷气，形成独有的艺术风格。
 
-大门门头，是一面涂着红漆的石刻五星红旗，院内鲜花绽放。
+他表示，此次在沪举办展览，旨在向大众普及紫砂雕刻艺术，让更多人了解这项非遗，提升传统艺术审美，感受紫砂雕刻承载的文化之美。
 
-新中国成立前，地处藏东南的察隅民众，并未因闭塞原始而少受旧西藏地方政府的深重压迫。
-
-自上世纪20年代，不少人选择背井离乡，逃往缅甸。
-
-拥青的爷爷便是其中之一。
+(范宇斌 制作 乐小敏） 责任编辑：【李骏】
 
 ## 相关推荐
 
-- 2026-06-29 18:54 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-29 19:04 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 18:51 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 18:48 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 18:47 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-29 18:56 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 18:51 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-29 18:48 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-29 18:44 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-29 18:49 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-29 19:10 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 18:59 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-29 19:00 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-29 18:57 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 18:44 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 19:17 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 19:00 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 19:00 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 19:10 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-29 18:54 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 19:11 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 18:50 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 19:13 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 18:52 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 19:17 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 19:14 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:59 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.minike.top/Article/details/41071854772.shtml)
-- 2026-06-29 18:54 - [河南四位大妈景区跳舞爆火](http://www.share.minike.top/Article/details/42884194653.shtml)
-- 2026-06-29 18:59 - [小说《无悔追踪》翻红](https://www.blog.minike.top/Article/details/52703402.shtml)
-- 2026-06-29 18:49 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/4289868523.shtml)
-- 2026-06-29 18:52 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/469961.shtml)
-- 2026-06-29 18:48 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/1040125.shtml)
-- 2026-06-29 18:43 - [特朗普两大核心赌注将迎高院裁决](https://www.blog.kurohicncr.top/Article/details/770417490.shtml)
-- 2026-06-29 18:53 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/84050158.shtml)
-- 2026-06-29 19:05 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/8576509.shtml)
-- 2026-06-29 19:05 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/7087735319.shtml)
-- 2026-06-29 19:10 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/125290847761.shtml)
-- 2026-06-29 18:42 - [机器人学校开学了](https://www.share.kurohicncr.top/Article/details/807451184.shtml)
-- 2026-06-29 18:57 - [断骨增高灰产拉一人提成1.5万元](http://www.share.kurohicncr.top/Article/details/4701211250.shtml)
-- 2026-06-29 18:44 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/934057990768.shtml)
-- 2026-06-29 18:58 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/834431166485.shtml)
+- 2026-06-29 19:13 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/242231801676.shtml)
+- 2026-06-29 19:01 - [徐昕暂不参加NBA夏季联赛](http://www.blog.kurohicncr.top/Article/details/4536127.shtml)
+- 2026-06-29 19:11 - [爱很美味](http://www.share.minike.top/Article/details/74395972.shtml)
+- 2026-06-29 18:52 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/390765.shtml)
+- 2026-06-29 18:57 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/92918158.shtml)
+- 2026-06-29 19:16 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/550310.shtml)
+- 2026-06-29 19:10 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/03805.shtml)
+- 2026-06-29 18:55 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/2662587493.shtml)
+- 2026-06-29 19:17 - [TFING全员黑西装](http://www.share.kurohicncr.top/Article/details/0696251236.shtml)
+- 2026-06-29 18:56 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/6042596077.shtml)
+- 2026-06-29 18:56 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/71122.shtml)
+- 2026-06-29 19:14 - [哈兰德玩游戏连女友都不让着](https://www.share.kurohicncr.top/Article/details/53930.shtml)
+- 2026-06-29 19:02 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/99182191.shtml)
+- 2026-06-29 18:56 - [赵露思爸爸拍vlog“翻车”](http://www.share.kurohicncr.top/Article/details/1342929610.shtml)
+- 2026-06-29 19:03 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/2221048.shtml)

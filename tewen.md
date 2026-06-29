@@ -1,59 +1,59 @@
-# 中金公司助巴基斯坦发行首笔熊猫债，架起中巴合作新桥梁
+# 广东持续强降雨 水利系统提前转移群众1300余人
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中国银行间市场迎来一桩具有里程碑意义的债券发行。 5月14日，中金公司作为主承销商及簿记管理人，牵头协助巴基斯坦伊斯兰共和国在中国银行间市场成功簿记发行巴基斯坦伊斯兰共和国(由巴基斯坦伊斯兰共和国总统代表)2026年度第一期人民币债券(可持续发展债券)(债券通)。 本期债券发行规模17.5亿元，期限3年，票面利率2.50%，债项评级AAA，由国际多边开发机构亚洲基础设施投资银行
+中新网广州5月16日电 (记者 王坚)广东省水利厅16日通报称，全省持续强降雨，据初步统计，目前共提前转移群众1300余人，成功避免了人员伤亡。根据当前强降雨形势，该厅维持水利防汛Ⅳ级应急响应。 广东省水利厅介绍，根据预测预报，15日夜间至18日，粤西、珠江三角洲和粤东沿海地区有新一轮大到暴雨降水过程，并伴有局地强对流天气。预计全省珠江三角洲、粤东粤西沿海和西江下游部分中小河流
 
 ## 正文
 
-中国银行间市场迎来一桩具有里程碑意义的债券发行。
+中新网广州5月16日电 (记者 王坚)广东省水利厅16日通报称，全省持续强降雨，据初步统计，目前共提前转移群众1300余人，成功避免了人员伤亡。
 
-5月14日，中金公司作为主承销商及簿记管理人，牵头协助巴基斯坦伊斯兰共和国在中国银行间市场成功簿记发行巴基斯坦伊斯兰共和国(由巴基斯坦伊斯兰共和国总统代表)2026年度第一期人民币债券(可持续发展债券)(债券通)。
+根据当前强降雨形势，该厅维持水利防汛Ⅳ级应急响应。
 
-本期债券发行规模17.5亿元，期限3年，票面利率2.50%，债项评级AAA，由国际多边开发机构亚洲基础设施投资银行(Asian Infrastructure Investment Bank)和亚洲开发银行(Asian Development Bank)提供无条件且不可撤销的部分保证担保。
+广东省水利厅介绍，根据预测预报，15日夜间至18日，粤西、珠江三角洲和粤东沿海地区有新一轮大到暴雨降水过程，并伴有局地强对流天气。
 
-这是巴基斯坦首次进入中国境内人民币债券市场，也是南亚地区首笔熊猫债。
+预计全省珠江三角洲、粤东粤西沿海和西江下游部分中小河流将出现2至6米左右的涨水过程，部分水文站点可能超过警戒水位，需重点防范局地短历时强降雨可能引发的山洪灾害、中小河流洪水、城乡积涝等风险。
 
-首单非全额担保的创新实践 “本期债券最重要的结构创新，是由两家多边开发机构提供无条件且不可撤销的部分担保，对本期债券本息的覆盖率达95%。
+针对本轮强降雨，广东省水利厅按照广东省委、省政府工作要求和省防总工作部署，及早安排部署防御工作。
 
-”中金公司党委副书记、副董事长、总裁王曙光表示，这使得本项目成为中国境内债券市场首单非全额保证担保债券，也是熊猫债市场中具有代表性的创新案例。
+首先，及时启动应急响应。
 
-据他介绍，这种结构的价值在于实现了信用增进与市场化风险识别之间的平衡。
+5月12日印发通知部署本轮强降雨防御工作。
 
-一方面，多边开发机构的参与有助于缓释投资者对首次发行主权信用的认知门槛，增强市场信心；另一方面，部分担保而非全额担保的安排，保留了投资者对发行人本身信用、财政经济情况和后续融资能力进行判断的空间，有利于发行人逐步建立在中国债券市场的信用曲线和发行记录。
+14日启动水利防汛Ⅳ级应急响应，各个值班专岗迅速上岗到位。
 
 ## 相关推荐
 
-- 2026-06-29 19:11 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-29 18:42 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 18:51 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 19:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-29 19:06 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-29 19:06 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-29 18:53 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 19:09 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-29 18:58 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 18:45 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-29 18:47 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 19:04 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 19:09 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 18:49 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 18:55 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 19:13 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 19:15 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 18:51 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 19:15 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 19:16 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 18:55 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 18:49 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 19:01 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 19:06 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-29 19:15 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-29 19:17 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:03 - [papi酱在救赎窦文涛](http://www.blog.minike.top/Article/details/935270747389.shtml)
-- 2026-06-29 18:49 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/66260606862.shtml)
-- 2026-06-29 18:49 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/20082.shtml)
-- 2026-06-29 18:44 - [挪威王储妃长子两次强奸获刑](https://www.blog.kurohicncr.top/Article/details/53786.shtml)
-- 2026-06-29 19:06 - [张雪机车杀向海外](http://www.share.kurohicncr.top/Article/details/3486364793.shtml)
-- 2026-06-29 18:54 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/9460810.shtml)
-- 2026-06-29 19:09 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/681770173859.shtml)
-- 2026-06-29 18:48 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/6355191.shtml)
-- 2026-06-29 18:44 - [湖南姑娘被东北同事带偏口音](http://www.share.minike.top/Article/details/19916592493.shtml)
-- 2026-06-29 19:11 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/2095530.shtml)
-- 2026-06-29 19:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/623196.shtml)
-- 2026-06-29 18:43 - [李连杰否认不管前妻两女儿](https://www.share.minike.top/Article/details/16830458032.shtml)
-- 2026-06-29 18:45 - [中国空间站为什么要升级扩容](http://www.share.kurohicncr.top/Article/details/6480129141.shtml)
-- 2026-06-29 18:42 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/27651574612.shtml)
-- 2026-06-29 18:47 - [港股爆发 美团百度阿里等集体大涨](http://www.share.kurohicncr.top/Article/details/47955.shtml)
+- 2026-06-29 19:06 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/13713087755.shtml)
+- 2026-06-29 18:56 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/08913702.shtml)
+- 2026-06-29 19:09 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/80345833658.shtml)
+- 2026-06-29 18:50 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/993037.shtml)
+- 2026-06-29 18:59 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/975867575.shtml)
+- 2026-06-29 19:07 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/6401424.shtml)
+- 2026-06-29 19:17 - [货车司机雨中帮交警挪树获表扬](http://www.blog.minike.top/Article/details/79603624.shtml)
+- 2026-06-29 19:14 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/14741734.shtml)
+- 2026-06-29 19:14 - [赵今麦时隔五年再演李诗情](http://www.blog.kurohicncr.top/Article/details/461938111.shtml)
+- 2026-06-29 19:00 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/259043608.shtml)
+- 2026-06-29 19:03 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/57507696.shtml)
+- 2026-06-29 19:06 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/7000106.shtml)
+- 2026-06-29 19:11 - [外交部谈对日出口管制措施](https://www.share.minike.top/Article/details/389802.shtml)
+- 2026-06-29 19:07 - [滚石就音乐人屠颖去世事件发声明](https://www.blog.minike.top/Article/details/13672.shtml)
+- 2026-06-29 18:52 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/02289.shtml)

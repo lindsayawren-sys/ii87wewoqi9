@@ -1,57 +1,61 @@
-# 台胞携科创成果亮相海交会 盼深化两岸产业协作
+# 通过新型合同诈骗，培训机构和家长都受害 “职业闭店人”盯上教培行业
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中新社福州5月23日电 (郑江洛)第二十八届海峡两岸经贸交易会(简称“海交会”)正在福建福州举行，多位台湾技术人才携绿色新材料、生物医药、数字科技等领域科创成果亮相，展现两岸产业深度融合的新趋势。 本届海交会规划面积达4万平方米，设置台湾工业智造科技、福马产业园、两岸绿色低碳产业等10个主题展区，推动产业交流与对接。 “两岸产业互补性强，台湾在半导体、精密制造等方面具备优势，而
+本报讯(记者裴龙翔)精心包装身份，以机构收购为幌子骗取原经营者低价转让；以低价赠课为噱头，大量收取新会员费用；再制造难以经营假象闭店跑路，最终实现“两头骗”。看似步步合法，实则环环套路，“职业闭店人”盯上教培行业。日前，上海市公安局经侦总队牵头侦破一起“职业闭店人”新型合同诈骗案，抓获顾某、韩某等4名犯罪嫌疑人，捣毁一个恶意闭店团伙。该案涉及3家教育培训机构，涉案金额达140万
 
 ## 正文
 
-中新社福州5月23日电 (郑江洛)第二十八届海峡两岸经贸交易会(简称“海交会”)正在福建福州举行，多位台湾技术人才携绿色新材料、生物医药、数字科技等领域科创成果亮相，展现两岸产业深度融合的新趋势。
+本报讯(记者裴龙翔)精心包装身份，以机构收购为幌子骗取原经营者低价转让；以低价赠课为噱头，大量收取新会员费用；再制造难以经营假象闭店跑路，最终实现“两头骗”。
 
-本届海交会规划面积达4万平方米，设置台湾工业智造科技、福马产业园、两岸绿色低碳产业等10个主题展区，推动产业交流与对接。
+看似步步合法，实则环环套路，“职业闭店人”盯上教培行业。
 
-“两岸产业互补性强，台湾在半导体、精密制造等方面具备优势，而大陆在市场规模、数字经济、新能源等领域发展迅速。
+日前，上海市公安局经侦总队牵头侦破一起“职业闭店人”新型合同诈骗案，抓获顾某、韩某等4名犯罪嫌疑人，捣毁一个恶意闭店团伙。
 
-”台胞曾月春受访时说，22年前来到大陆从事风力发电新材料开发，此次携石墨烯新材料在能源电力及风电多功能应用项目参展，为风电叶片轻量化、电力传输增效等提供系统解决方案。
+该案涉及3家教育培训机构，涉案金额达140万元，600余名消费者遭受财产损失。
 
-作为台湾高校校友(福建)联谊中心会长，曾月春此次还带领该中心多名成员共同参会，希望借助海交会平台对接更多合作伙伴，推动两岸高端材料研发与工程应用深度协作，助力能源产业绿色低碳转型。
+2025年6月，肖女士向浦东分局张江派出所报案，称她买课的一家儿童美术培训机构突然关停、实控人失联。
 
-台胞陈蕙如带来其团队研发的植物萃取抑菌呼吸棒。
+她在该机构购买2.1万元的150节大课包后发现，原本约定的户外写生、节日手工等活动被取消，销售人员和老师陆续离职。
 
-她表示，大陆中医药底蕴深厚，大健康产业市场广阔，希望通过海交会对接资源，将安全有效的植物康养产品推向更广阔市场，并在养老康养领域与大陆伙伴展开长期合作。
+该机构关停时，她尚有大量课时未能销课。
 
-专注新材料研发逾30年、在大陆发展25年的台胞赖百本，此次重点推介了其自主研发的分散式菌丝体皮革生产平台项目。
+上海市公安局经侦总队通过串并类似警情后发现，该市多家教培机构出现前述失联闭店的风险苗头，且均指向顾某、韩某。
 
 ## 相关推荐
 
-- 2026-06-29 18:55 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-29 19:09 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 19:03 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-29 18:58 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 19:11 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-29 18:52 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 19:07 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 18:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 19:01 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-29 19:08 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-29 18:42 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-29 19:11 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 19:17 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 19:12 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-29 18:55 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-29 19:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 19:12 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 19:10 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-29 19:02 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 19:04 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-29 18:50 - [看大国重器“云端穿针引线”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-29 19:15 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 19:18 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 18:59 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 18:53 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-29 19:07 - [V8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/9926958889.shtml)
-- 2026-06-29 19:02 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/738767270.shtml)
-- 2026-06-29 19:03 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/13875057.shtml)
-- 2026-06-29 18:52 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/6828189236.shtml)
-- 2026-06-29 18:44 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/89310.shtml)
-- 2026-06-29 19:03 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/987310423341.shtml)
-- 2026-06-29 19:03 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.share.kurohicncr.top/Article/details/710508549.shtml)
-- 2026-06-29 19:08 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/7122617901.shtml)
-- 2026-06-29 18:50 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/395200.shtml)
-- 2026-06-29 19:02 - [海口塔吊事故处罚结果公布](https://www.blog.kurohicncr.top/Article/details/908358179723.shtml)
-- 2026-06-29 18:51 - [乌是否掌握了扭转战局的钥匙](http://www.blog.kurohicncr.top/Article/details/669073471804.shtml)
-- 2026-06-29 18:51 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/76404.shtml)
-- 2026-06-29 18:58 - [叠纸客服回应恋与深空新角色争议](http://www.blog.minike.top/Article/details/61490.shtml)
-- 2026-06-29 19:09 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/071590029.shtml)
-- 2026-06-29 18:56 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/54344507175.shtml)
+- 2026-06-29 19:09 - [湖南耒阳“轮椅女孩”高考546分](http://www.share.kurohicncr.top/Article/details/679936467228.shtml)
+- 2026-06-29 19:08 - [白玉兰答谢宴合影](http://www.share.minike.top/Article/details/3777183503.shtml)
+- 2026-06-29 19:08 - [恋与深空各大应用商店评分](https://www.blog.kurohicncr.top/Article/details/04968848.shtml)
+- 2026-06-29 18:49 - [花万元相亲对象是50元雇的演员](https://www.blog.kurohicncr.top/Article/details/693786.shtml)
+- 2026-06-29 18:56 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/05199959570.shtml)
+- 2026-06-29 19:08 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.minike.top/Article/details/027291449525.shtml)
+- 2026-06-29 19:16 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/3936343530.shtml)
+- 2026-06-29 19:08 - [厨房装空调还是装冷烟机](https://www.blog.kurohicncr.top/Article/details/331938470201.shtml)
+- 2026-06-29 19:13 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/87975397.shtml)
+- 2026-06-29 19:16 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/562762322.shtml)
+- 2026-06-29 19:09 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/607300.shtml)
+- 2026-06-29 19:13 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/6813264.shtml)
+- 2026-06-29 19:03 - [明天睁眼按时来取代我](http://www.share.minike.top/Article/details/9635861204.shtml)
+- 2026-06-29 18:59 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/40563430.shtml)
+- 2026-06-29 19:14 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/3647451577.shtml)

@@ -1,57 +1,49 @@
-# 天天学习｜习近平见证的“天路”传奇
+# 国家防总办公室滚动会商调度防汛工作 针对湖北重庆启动防汛四级应急响应
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-｜天天学习｜“当时的路况非常险，还好没有遇到滑坡”“福建派去援藏的，到墨脱那都是骑着马进去的”……回想起第一次进藏的情景，时隔多年，习近平依然历历在目。 那是1998年6月的一天清晨，乘机抵达拉萨贡嘎机场后，时任福建省委副书记的习近平就马不停蹄地带队奔赴福建对口支援的林芝地区。 从机场去往当时林芝行政公署所在地八一镇需要翻过海拔5000多米的米拉雪山，一路人烟罕见、崎岖颠簸。5
+根据国家防总副总指挥、应急管理部部长张成中安排部署，5月16日上午，针对今年首轮大范围强降雨过程，国家防总办公室、应急管理部继续组织联合会商，会同中国气象局、水利部、自然资源部研判雨情汛情和地质灾害发展态势，指导重点省份针对性做好山洪、地质灾害、中小河流洪水和城市暴雨内涝防范应对工作，要求压实压紧防汛减灾责任，强化预警响应联动，盯紧看牢重点部位和重要基础设施，果断组织转移避险，
 
 ## 正文
 
-｜天天学习｜“当时的路况非常险，还好没有遇到滑坡”“福建派去援藏的，到墨脱那都是骑着马进去的”……回想起第一次进藏的情景，时隔多年，习近平依然历历在目。
+根据国家防总副总指挥、应急管理部部长张成中安排部署，5月16日上午，针对今年首轮大范围强降雨过程，国家防总办公室、应急管理部继续组织联合会商，会同中国气象局、水利部、自然资源部研判雨情汛情和地质灾害发展态势，指导重点省份针对性做好山洪、地质灾害、中小河流洪水和城市暴雨内涝防范应对工作，要求压实压紧防汛减灾责任，强化预警响应联动，盯紧看牢重点部位和重要基础设施，果断组织转移避险，切实做好抢险救援各项准备。
 
-那是1998年6月的一天清晨，乘机抵达拉萨贡嘎机场后，时任福建省委副书记的习近平就马不停蹄地带队奔赴福建对口支援的林芝地区。
-
-从机场去往当时林芝行政公署所在地八一镇需要翻过海拔5000多米的米拉雪山，一路人烟罕见、崎岖颠簸。
-
-500多公里的路程，习近平一行乘车整整走了一天，抵达八一镇已是当晚8点多。
-
-那些崎岖难行的道路，习近平始终牵挂于心。
-
-正如来自墨脱的全国人大代表白玛曲珍所说，“西藏的路……都装在总书记心里”。
-
-2013年3月，习近平担任总书记后首次出席全国两会，在参加西藏代表团审议时，再次关切询问起西藏的路：“现在到墨脱的路通了没有？
-
-” 从墨脱到北京参会的白玛曲珍难掩激动地回答：“2013年底有望全线通车。
+根据会商研判意见，国家防总12时针对湖北、重庆启动防汛四级应急响应，继续维持针对广东、贵州防汛四级应急响应，要求有关省份全力做好强降雨防范应对工作。
 
 ## 相关推荐
 
-- 2026-06-29 19:07 - [看大国重器“云端穿针引线”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-29 19:07 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 18:54 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-29 18:51 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-29 18:42 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 18:57 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-29 19:05 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 18:44 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 18:51 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 18:52 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 18:53 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-29 18:48 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-29 19:13 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-29 19:06 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-29 19:17 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 19:17 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-29 18:49 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 19:12 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-29 18:55 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 19:13 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-29 19:10 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 19:04 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 19:07 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-29 19:04 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 18:53 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 19:04 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:10 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/010267777577.shtml)
-- 2026-06-29 18:58 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/417380368.shtml)
-- 2026-06-29 18:56 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/414583694.shtml)
-- 2026-06-29 19:08 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/5605112787.shtml)
-- 2026-06-29 18:46 - [杨紫视后第一场线下活动](http://www.blog.minike.top/Article/details/5720502561.shtml)
-- 2026-06-29 19:05 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/15177.shtml)
-- 2026-06-29 19:02 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/5899428.shtml)
-- 2026-06-29 19:06 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/5480299.shtml)
-- 2026-06-29 19:11 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/317645.shtml)
-- 2026-06-29 19:06 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/602383.shtml)
-- 2026-06-29 19:07 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/86801994577.shtml)
-- 2026-06-29 18:51 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/29336.shtml)
-- 2026-06-29 18:42 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/49106.shtml)
-- 2026-06-29 18:59 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/857356.shtml)
-- 2026-06-29 19:08 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/7476240.shtml)
+- 2026-06-29 18:57 - [不烧钱的低成本爱好](https://www.blog.kurohicncr.top/Article/details/534068.shtml)
+- 2026-06-29 18:55 - [一生一世](http://www.blog.minike.top/Article/details/32955.shtml)
+- 2026-06-29 18:49 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/00034.shtml)
+- 2026-06-29 19:00 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/1795127.shtml)
+- 2026-06-29 19:00 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/882357289.shtml)
+- 2026-06-29 18:57 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/276160.shtml)
+- 2026-06-29 18:51 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/5021746737.shtml)
+- 2026-06-29 18:55 - [网红小徐直播时突遇地震](https://www.blog.minike.top/Article/details/3291245.shtml)
+- 2026-06-29 18:52 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.minike.top/Article/details/934426.shtml)
+- 2026-06-29 18:48 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/54461797120.shtml)
+- 2026-06-29 18:59 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/09174881.shtml)
+- 2026-06-29 19:04 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.blog.kurohicncr.top/Article/details/0882774.shtml)
+- 2026-06-29 18:59 - [当地回应林区违规放羊遭豹啃食](https://www.blog.minike.top/Article/details/2018637.shtml)
+- 2026-06-29 18:57 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/11459517579.shtml)
+- 2026-06-29 18:52 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/552491.shtml)

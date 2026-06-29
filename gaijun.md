@@ -1,60 +1,56 @@
-# 舆论：香港同胞深度参与国家航天事业是“一国两制”优势生动实践
+# 日媒调查：高市早苗内阁支持率连续下滑 民众不满“只谈修宪不顾经济和民生”
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中新网5月23日电 题：舆论：香港同胞深度参与国家航天事业是“一国两制”优势生动实践 记者 陈文韬 李柏涛 实习生 金子于 据中国载人航天工程办公室23日消息，经空间站应用与发展阶段飞行任务总指挥部研究决定，神舟二十三号航天员乘组由航天飞行工程师朱杨柱、航天驾驶员张志远、载荷专家黎家盈3名航天员组成，朱杨柱任指令长。 其中，黎家盈为我国首位执行飞行任务的第四批航天员，也是工程面
+海外网5月15日电 日本《每日新闻》5月15日公布调查数据显示，高市早苗内阁支持率在4月降至53%，半年内支持率下滑12个百分点，已连续两个月下滑。 《每日新闻》表示，从今年3月起，高市早苗内阁支持率呈现下滑趋势。其女性支持率的下降幅度大于男性，年轻人的支持率也不断下滑。4月的调查数据显示，对于日本政府应对物价上涨的措施，50%的受访者认为“不充分”。 日本网友在《每日新闻》网
 
 ## 正文
 
-中新网5月23日电 题：舆论：香港同胞深度参与国家航天事业是“一国两制”优势生动实践 记者 陈文韬 李柏涛 实习生 金子于 据中国载人航天工程办公室23日消息，经空间站应用与发展阶段飞行任务总指挥部研究决定，神舟二十三号航天员乘组由航天飞行工程师朱杨柱、航天驾驶员张志远、载荷专家黎家盈3名航天员组成，朱杨柱任指令长。
+海外网5月15日电 日本《每日新闻》5月15日公布调查数据显示，高市早苗内阁支持率在4月降至53%，半年内支持率下滑12个百分点，已连续两个月下滑。
 
-其中，黎家盈为我国首位执行飞行任务的第四批航天员，也是工程面向港澳地区选拔出的我国首位女性载荷专家。
+《每日新闻》表示，从今年3月起，高市早苗内阁支持率呈现下滑趋势。
 
-香港特区行政长官李家超当日发文表示，感谢国家对香港特区的支持和信任，同时祝贺黎家盈通过严格选拔和训练成为国家第四批航天员，为国家航天事业贡献香港力量，并预祝神舟二十三号飞行任务圆满成功。
+其女性支持率的下降幅度大于男性，年轻人的支持率也不断下滑。
 
-李家超指出，今年是国家“十五五”规划开局之年，香港特区就迎来航天梦的历史时刻，香港专家成为首次参与飞行任务的航天员，意义非凡，我们深感振奋。
+4月的调查数据显示，对于日本政府应对物价上涨的措施，50%的受访者认为“不充分”。
 
-衷心感谢国家给予香港特区科技人才参与国家航天事业的宝贵机会。
+日本网友在《每日新闻》网站评论说，当前日本政府的政策枉顾民生。
 
-“我热烈恭贺黎家盈，诚挚祝福她圆满完成飞行任务。
+面临生活困难的家庭越来越多，物价高涨问题迟迟得不到缓解。
 
-”李家超说。
+还有人愤怒表示，高市早苗在选举前宣称的政策完全没有落实，却迅速推动修宪、武器出口这些法案通过，“这完全是高市早苗自己的意图，她丝毫不打算在改善民众生活方面下功夫。
 
-黎家盈入选前在特区政府警务处工作 23日上午，神舟二十三号载人飞行任务新闻发布会在酒泉卫星发射中心召开。
+” 日本法政大学教授白鸟浩说，高市早苗内阁在成立之初，承诺把解决物价上涨问题放在首位，而如今在经济政策方面，很难让民众感到满意。
 
 ## 相关推荐
 
-- 2026-06-29 19:02 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-29 18:50 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-29 18:42 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-29 18:45 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 18:53 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-29 19:01 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 18:51 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 18:48 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-29 18:42 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-29 19:02 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 18:43 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-29 18:51 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 18:42 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 19:04 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 19:09 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-29 19:00 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-29 19:09 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 19:05 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-29 19:14 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 19:08 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-29 18:54 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-29 18:49 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-29 19:02 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 19:08 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:54 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/91952.shtml)
-- 2026-06-29 19:01 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.share.kurohicncr.top/Article/details/3522335.shtml)
-- 2026-06-29 19:01 - [张杰我九岁就跟你了](https://www.share.kurohicncr.top/Article/details/66497890.shtml)
-- 2026-06-29 18:48 - [网红小徐直播时突遇地震](http://www.blog.minike.top/Article/details/751916.shtml)
-- 2026-06-29 18:51 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/3693082667.shtml)
-- 2026-06-29 18:53 - [葛军透露高考出题思路](https://www.share.minike.top/Article/details/820565821879.shtml)
-- 2026-06-29 19:05 - [小娘惹](https://www.share.minike.top/Article/details/321796.shtml)
-- 2026-06-29 18:53 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/97651878.shtml)
-- 2026-06-29 18:54 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/286826.shtml)
-- 2026-06-29 18:59 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/85782.shtml)
-- 2026-06-29 18:47 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/09125992697.shtml)
-- 2026-06-29 18:57 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.kurohicncr.top/Article/details/588369981644.shtml)
-- 2026-06-29 18:52 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/8969234.shtml)
-- 2026-06-29 19:04 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/50417834.shtml)
-- 2026-06-29 19:01 - [赵今麦时隔五年再演李诗情](https://www.blog.minike.top/Article/details/738125267822.shtml)
+- 2026-06-29 18:50 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/269521601884.shtml)
+- 2026-06-29 19:13 - [为何说今日日本似战前日本](http://www.share.kurohicncr.top/Article/details/734576008.shtml)
+- 2026-06-29 19:04 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/6580211690.shtml)
+- 2026-06-29 19:16 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/5486446.shtml)
+- 2026-06-29 18:52 - [断骨增高灰产拉一人提成1.5万元](https://www.blog.minike.top/Article/details/66580783494.shtml)
+- 2026-06-29 18:52 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/758842.shtml)
+- 2026-06-29 18:49 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/48213.shtml)
+- 2026-06-29 19:05 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/12153.shtml)
+- 2026-06-29 19:06 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/52448202854.shtml)
+- 2026-06-29 19:05 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/995190016.shtml)
+- 2026-06-29 19:08 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/07538.shtml)
+- 2026-06-29 18:57 - [V8](http://www.share.kurohicncr.top/Article/details/231872880.shtml)
+- 2026-06-29 19:07 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/8032889372.shtml)
+- 2026-06-29 19:01 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/688226650086.shtml)
+- 2026-06-29 19:05 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/18708797268.shtml)

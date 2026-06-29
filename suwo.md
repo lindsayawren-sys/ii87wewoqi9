@@ -1,56 +1,56 @@
-# 《从西安到瓜达尔港》第二季《工者伟业》登陆巴基斯坦荧屏
+# 国农金融投资完成配售总计2710.45万股配售股份 净筹约1581万港元
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中新网西安5月22日电 (李一璠)2026年是中巴建交七十五周年。22日，由陕西导演白志军担任总策划、总导演，巴基斯坦国家电视台、陕西仲山文化传媒有限公司、北京秦晟国际文化产业发展有限公司联合摄制的大型丝路纪实系列纪录片《从西安到瓜达尔港》第二季《工者伟业》登陆巴基斯坦国家电视台全频道，并同步上线海外主流社交平台全网播出，成为中巴人文交流、友谊升华的象征。从古丝绸之路起点西安延
+国农金融投资（08120）发布公告，就有关公司拟折让约11.76%配售最多2710.45万股配售股份。配售协议所载的一切条件已达成，且完成已于2026年5月15日落实。根据配售协议的条款，总计2710.45万股配售股份（占经配发及发行配售股份扩大后的本公司已发行股本约16.67%）已成功配售予不少于六名承配人，配售价为每股配售股份0.60港元。 据董事作出一切合理查询后所深知、
 
 ## 正文
 
-中新网西安5月22日电 (李一璠)2026年是中巴建交七十五周年。
+国农金融投资（08120）发布公告，就有关公司拟折让约11.76%配售最多2710.45万股配售股份。
 
-22日，由陕西导演白志军担任总策划、总导演，巴基斯坦国家电视台、陕西仲山文化传媒有限公司、北京秦晟国际文化产业发展有限公司联合摄制的大型丝路纪实系列纪录片《从西安到瓜达尔港》第二季《工者伟业》登陆巴基斯坦国家电视台全频道，并同步上线海外主流社交平台全网播出，成为中巴人文交流、友谊升华的象征。
+配售协议所载的一切条件已达成，且完成已于2026年5月15日落实。
 
-从古丝绸之路起点西安延伸至中巴经济走廊核心枢纽瓜达尔港，西安与瓜达尔港遥遥相望，既是古老丝路文明与现代走廊建设的双向奔赴，也凝聚着中巴两国守望相助、精诚协作的深厚情谊。
+根据配售协议的条款，总计2710.45万股配售股份（占经配发及发行配售股份扩大后的本公司已发行股本约16.67%）已成功配售予不少于六名承配人，配售价为每股配售股份0.60港元。
 
-当日该纪录片在巴基斯坦多地掀起观影热潮，该纪录片相继“走”进当地高等院校、城乡社区、华侨华人社团、企业等开展公益展映，让中巴携手同行的温情故事深入人心。
+据董事作出一切合理查询后所深知、尽悉及确信，承配人及彼等的最终实益拥有人（如适用）均为独立第三方，而概无承配人因配售事项而成为本公司的主要股东（定义见GEM上市规则）。
 
-瓜达尔港务局主席努尔·乌尔·哈克·巴洛奇日前表示，《工者伟业》以纪实视角留存中巴经济走廊建设历程，珍藏两国并肩打拼的珍贵画面，既是对共建硕果的崇高致敬，更是两国民心相融、合作共赢的有力见证。
+配售事项所得款项总额约为1626万港元。
 
-据介绍，《工者伟业》历经两年潜心筹备与实地拍摄，摄制组跨越万里山川，足迹遍布西安、北京、上海、天津等中国城市和巴基斯坦全境，总行程近三万公里。
+配售事项的所得款项净额（经扣除有关配售事项产生的配售佣金及其他相关开支）约为1581万港元，拟根据该公告先前所披露，分别（i）约80%用于偿还本集团的未清偿贷款及利息；（ii）约10%用于在中国发展农产品及相关业务以及酒精饮料业务，此部分需支付法律及专业费用、持续的市场推广开支及资本；以及（iii）约10%用于补充本集团一般营运资金，用作员工成本、专业费用及其他营运开支。
 
-主创团队深入建设一线、扎根基层，采访记录近三百位中外建设者的奋斗事迹，用细腻镜头刻画普通人的责任与担当，打磨出一部兼具人文温度、思想深度与时代格局的优质纪实佳作。
-
-回望整个拍摄历程，白志军表示为捕捉原生态实景画面，摄制组多次往返卡拉奇机场取景，为等候最佳拍摄契机足足耗时两个月，“纪录片中，四位献身港口建设的英烈，让英雄风骨永驻山海之间；工程师李晓博负伤坚守、恪尽职守的身影，让奋斗光芒照亮丝路前路；中国海外港口控股(巴基斯坦)有限公司于博、邹耀东带领团队日夜攻坚、奋勇拼搏……无数中外建设者不畏烈日风沙，勤恳奉献。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 19:09 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-29 19:04 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-29 18:49 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-29 18:48 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 18:57 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-29 18:51 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 18:44 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 18:53 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 19:08 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-29 19:03 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 19:08 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 18:59 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 19:07 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 19:14 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 19:10 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 19:10 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 18:54 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 19:14 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-29 19:12 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 19:16 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-29 19:16 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 19:10 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:07 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/17254223.shtml)
-- 2026-06-29 18:43 - [夏天被这些虫子咬了可能致命](https://www.share.minike.top/Article/details/40507732908.shtml)
-- 2026-06-29 19:06 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/32345.shtml)
-- 2026-06-29 19:10 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/00227449.shtml)
-- 2026-06-29 18:42 - [厨房装空调还是装冷烟机](https://www.blog.minike.top/Article/details/019315.shtml)
-- 2026-06-29 18:44 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/8129538568.shtml)
-- 2026-06-29 18:46 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.kurohicncr.top/Article/details/313432284.shtml)
-- 2026-06-29 19:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/9468389.shtml)
-- 2026-06-29 19:02 - [7款高价创新药有望降价](http://www.share.kurohicncr.top/Article/details/65313.shtml)
-- 2026-06-29 19:04 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/0201105.shtml)
-- 2026-06-29 18:43 - [两老人多次到一洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/9228395.shtml)
-- 2026-06-29 19:07 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/22546016.shtml)
-- 2026-06-29 18:51 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/24000.shtml)
-- 2026-06-29 19:06 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/46173074.shtml)
-- 2026-06-29 19:08 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/126491445.shtml)
+- 2026-06-29 18:53 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/9405916509.shtml)
+- 2026-06-29 19:14 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/937593.shtml)
+- 2026-06-29 18:58 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.kurohicncr.top/Article/details/798946.shtml)
+- 2026-06-29 18:51 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/87157.shtml)
+- 2026-06-29 19:13 - [《新闻联播》正在直播](https://www.share.kurohicncr.top/Article/details/863621738848.shtml)
+- 2026-06-29 19:11 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/246887075.shtml)
+- 2026-06-29 18:55 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/379588.shtml)
+- 2026-06-29 18:52 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/99752914.shtml)
+- 2026-06-29 19:00 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/5171070.shtml)
+- 2026-06-29 19:04 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/17514.shtml)
+- 2026-06-29 19:04 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/70319.shtml)
+- 2026-06-29 19:14 - [明星大侦探第一季](https://www.share.minike.top/Article/details/71403788.shtml)
+- 2026-06-29 19:16 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.kurohicncr.top/Article/details/4723465.shtml)
+- 2026-06-29 18:51 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.kurohicncr.top/Article/details/9653870350.shtml)
+- 2026-06-29 18:59 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.minike.top/Article/details/579955.shtml)

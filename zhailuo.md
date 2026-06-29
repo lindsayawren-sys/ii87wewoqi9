@@ -1,55 +1,55 @@
-# “北威州初夏之约”——中德友好协会联谊活动举办
+# 贵州破获经济犯罪案件400余起 挽回经济损失上亿元
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中新网柏林5月23日电 “北威州初夏之约”——中德友好协会联谊活动22日在杜塞尔多夫举办。中国驻杜塞尔多夫总领事余勇、德国联邦前海军司令埃勒、北威州议会议员格林斯、全德德中友好协会联合会主席贝内特及地方友协代表等近40人出席。余勇表示，面对百年变局，中欧肩负维护世界和平稳定、促进全球共同发展重要责任，中德务实合作基础深厚，全方位战略伙伴关系正在两国领导人战略共识引领下迈入新阶段
+中新网贵阳5月15日电 (记者 刘美伶)2026年以来，贵州警方共破获经济犯罪案件400余起，抓获嫌疑人700余名，挽回经济损失上亿。 记者15日从贵州省政府新闻办新闻发布会获悉上述消息。 贵州省公安厅党委委员、政治部主任、新闻发言人严俊介绍，贵州警方发挥“专业+机制+大数据”新型警务运行模式优势，组建类案攻坚战队，深化经济犯罪治理联席会商机制运行，紧盯非法集资、合同诈骗、虚开
 
 ## 正文
 
-中新网柏林5月23日电 “北威州初夏之约”——中德友好协会联谊活动22日在杜塞尔多夫举办。
+中新网贵阳5月15日电 (记者 刘美伶)2026年以来，贵州警方共破获经济犯罪案件400余起，抓获嫌疑人700余名，挽回经济损失上亿。
 
-中国驻杜塞尔多夫总领事余勇、德国联邦前海军司令埃勒、北威州议会议员格林斯、全德德中友好协会联合会主席贝内特及地方友协代表等近40人出席。
+记者15日从贵州省政府新闻办新闻发布会获悉上述消息。
 
-余勇表示，面对百年变局，中欧肩负维护世界和平稳定、促进全球共同发展重要责任，中德务实合作基础深厚，全方位战略伙伴关系正在两国领导人战略共识引领下迈入新阶段。
+贵州省公安厅党委委员、政治部主任、新闻发言人严俊介绍，贵州警方发挥“专业+机制+大数据”新型警务运行模式优势，组建类案攻坚战队，深化经济犯罪治理联席会商机制运行，紧盯非法集资、合同诈骗、虚开骗税、侵犯知识产权、洗钱、串通招投标、假币等突出经济犯罪，运用资金分析、股权穿透等专业手段，依法精准打击涉企涉商案件，全力追赃挽损。
 
-友协是中德友谊建设者、两国关系“摆渡人”，总领馆愿同所有友人一道，坚守初心，坚持合作，深耕民间交往，让友谊之花长盛久开。
+自公安部联合国家金融监督管理总局部署全国开展金融领域“黑灰产”专项打击工作以来，贵州警方创新“省级抓总、市县主战、战队攻坚”打击金融领域“黑灰产”新模式，聚焦非法贷款中介等重点群体，充分发挥公安经侦部门专业优势，组建类案战队，强化数据研判，注重多方联动，先后破获案件近百起，抓获犯罪嫌疑人百余人，打掉一批非法贷款中介团伙。
 
-席间乐格调典雅，尽显中德文化之美。
+此外，贵州警方依法保护贵州省特色支柱产业和知名品牌，破获假冒注册商标等侵犯知识产权案件30余起。
 
-各位嘉宾在温馨氛围中畅叙中德友情及光明前景。
+贵州警方提醒，切勿配合不法中介虚构贷款资料充当“背债人”，否则，不仅将涉嫌刑事犯罪，还将背负沉重的债务负担，得不偿失。
 
 (完)
 
 ## 相关推荐
 
-- 2026-06-29 19:06 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 18:52 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 19:11 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 19:07 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-29 18:51 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 18:54 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-29 19:06 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-29 18:59 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-29 18:49 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-29 18:44 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-29 19:05 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 19:14 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-29 19:07 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 19:14 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 18:58 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-29 18:57 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 18:53 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-29 18:48 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-29 18:54 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 18:53 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-29 19:13 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-29 19:15 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:53 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/6143188792.shtml)
-- 2026-06-29 18:43 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/693928.shtml)
-- 2026-06-29 19:05 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/59418342.shtml)
-- 2026-06-29 19:09 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.kurohicncr.top/Article/details/63264557.shtml)
-- 2026-06-29 19:08 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/91143375012.shtml)
-- 2026-06-29 18:49 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/868906.shtml)
-- 2026-06-29 18:45 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.minike.top/Article/details/62244091.shtml)
-- 2026-06-29 19:09 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/449161.shtml)
-- 2026-06-29 18:43 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/0053738.shtml)
-- 2026-06-29 19:11 - [网红小徐直播时突遇地震](https://www.share.minike.top/Article/details/154810541.shtml)
-- 2026-06-29 18:55 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/3555446.shtml)
-- 2026-06-29 19:06 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/87580693201.shtml)
-- 2026-06-29 18:57 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/86983.shtml)
-- 2026-06-29 18:50 - [一见倾心](https://www.share.minike.top/Article/details/5470339459.shtml)
-- 2026-06-29 18:55 - [天道](http://www.blog.minike.top/Article/details/81544714779.shtml)
+- 2026-06-29 19:02 - [韩国800万亿韩元押注半导体](http://www.blog.minike.top/Article/details/3846491983.shtml)
+- 2026-06-29 19:07 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/51421.shtml)
+- 2026-06-29 18:53 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/542046.shtml)
+- 2026-06-29 19:14 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.minike.top/Article/details/561204825588.shtml)
+- 2026-06-29 19:13 - [杨紫视后第一场线下活动](https://www.blog.kurohicncr.top/Article/details/23107451.shtml)
+- 2026-06-29 18:51 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/6466099.shtml)
+- 2026-06-29 19:16 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/941925.shtml)
+- 2026-06-29 19:01 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.kurohicncr.top/Article/details/53714.shtml)
+- 2026-06-29 18:54 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/931404.shtml)
+- 2026-06-29 19:01 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/433535487324.shtml)
+- 2026-06-29 19:06 - [第一炉香](http://www.share.kurohicncr.top/Article/details/7689703.shtml)
+- 2026-06-29 19:01 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/787181048.shtml)
+- 2026-06-29 19:05 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.minike.top/Article/details/0282994.shtml)
+- 2026-06-29 18:48 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/40069571319.shtml)
+- 2026-06-29 19:12 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/0376890649.shtml)

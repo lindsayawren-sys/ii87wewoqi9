@@ -1,47 +1,57 @@
-# 《超龄劳动者基本权益保障暂行规定》发布 7月1日起施行
+# Microbot Medical遭做空机构狙击，股价暴跌近8%
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中新网5月25日电 据人力资源和社会保障部网站消息，日前，人力资源社会保障部会同国家卫生健康委、应急管理部、税务总局、国家医保局联合出台《超龄劳动者基本权益保障暂行规定》(以下简称《暂行规定》)，自2026年7月1日起施行。《暂行规定》是我国首部明确超龄劳动者权益的专门规章，填补了我国现行劳动法律制度的短板，明确了用人单位与超龄劳动者的权利和义务，保障超龄劳动者的劳动报酬、休息
+医疗设备公司Microbot Medical股价周四盘中暴跌逾7%，此前做空机构White Diamond Research发布报告，对其核心产品LIBERTY血管内机器人系统的商业可行性提出尖锐质疑，同时公司一季度营收远不及预期的数据也令市场信心承压。 做空报告五大指控 White Diamond在报告中披露持有Microbot空仓，目标价设定为1美元。该机构通过采访使用过L
 
 ## 正文
 
-中新网5月25日电 据人力资源和社会保障部网站消息，日前，人力资源社会保障部会同国家卫生健康委、应急管理部、税务总局、国家医保局联合出台《超龄劳动者基本权益保障暂行规定》(以下简称《暂行规定》)，自2026年7月1日起施行。
+医疗设备公司Microbot Medical股价周四盘中暴跌逾7%，此前做空机构White Diamond Research发布报告，对其核心产品LIBERTY血管内机器人系统的商业可行性提出尖锐质疑，同时公司一季度营收远不及预期的数据也令市场信心承压。
 
-《暂行规定》是我国首部明确超龄劳动者权益的专门规章，填补了我国现行劳动法律制度的短板，明确了用人单位与超龄劳动者的权利和义务，保障超龄劳动者的劳动报酬、休息休假、劳动安全卫生、工伤保障等合法权益。
+做空报告五大指控 White Diamond在报告中披露持有Microbot空仓，目标价设定为1美元。
+
+该机构通过采访使用过LIBERTY系统的外科医生，指出了五大核心问题： 其一，设备成本过高。
+
+一位匿名外科医生表示，LIBERTY系统每次手术会增加3000至4000美元的额外费用，且没有任何报销机制，不仅延长手术时间，在精准度上也不优于人工操作。
+
+该医生直言：“这只会给你增加额外工作量，手术时间更长。
+
+不用机器人你自己也能做，而且更快、精准度一样，还能省下3000美元。
+
+” 其二，用户接受度低。
+
+来自坦帕综合医院的Charles Briggs医生告诉研究人员，在他所在的15名血管外科医生中，他是唯一定期使用LIBERTY系统的医生。
 
 ## 相关推荐
 
-- 2026-06-29 18:42 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 18:58 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-29 18:55 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 18:44 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 18:44 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 19:05 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 18:46 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 18:47 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 18:44 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 18:56 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-29 18:55 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-29 18:56 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 18:49 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 19:07 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-29 19:05 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-29 19:10 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-29 19:10 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 19:08 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-29 19:06 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 19:00 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-29 19:15 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-29 18:55 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-29 18:59 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 18:51 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:53 - [A股收评：科创50指数大涨4.61%](https://www.blog.minike.top/Article/details/6193520673.shtml)
-- 2026-06-29 19:09 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.minike.top/Article/details/650098.shtml)
-- 2026-06-29 19:08 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/7125426.shtml)
-- 2026-06-29 18:47 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/1096003.shtml)
-- 2026-06-29 18:54 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/38802828.shtml)
-- 2026-06-29 19:03 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/68528.shtml)
-- 2026-06-29 19:00 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/75412031.shtml)
-- 2026-06-29 19:03 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/219500785.shtml)
-- 2026-06-29 18:46 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/39550.shtml)
-- 2026-06-29 19:02 - [普京：俄罗斯面临命运攸关时刻](https://www.share.minike.top/Article/details/2579282767.shtml)
-- 2026-06-29 18:58 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/569242.shtml)
-- 2026-06-29 19:10 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/53378237.shtml)
-- 2026-06-29 19:00 - [小鹏MONAL03预售定档7月2日](http://www.share.minike.top/Article/details/84600381.shtml)
-- 2026-06-29 19:04 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.minike.top/Article/details/86934198906.shtml)
-- 2026-06-29 18:59 - [张杰我九岁就跟你了](https://www.share.minike.top/Article/details/39882295453.shtml)
+- 2026-06-29 19:02 - [赵今麦时隔五年再演李诗情](https://www.blog.minike.top/Article/details/530028059.shtml)
+- 2026-06-29 19:09 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/88809913.shtml)
+- 2026-06-29 19:05 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/96296832.shtml)
+- 2026-06-29 19:11 - [海口塔吊事故处罚结果公布](http://www.blog.minike.top/Article/details/236163.shtml)
+- 2026-06-29 19:17 - [日本足球能掀翻巴西吗](http://www.share.minike.top/Article/details/56150.shtml)
+- 2026-06-29 19:17 - [专家预计全球央行加息节奏将出现反复](https://www.share.minike.top/Article/details/1635570.shtml)
+- 2026-06-29 19:14 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/40433981499.shtml)
+- 2026-06-29 18:48 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/6334335275.shtml)
+- 2026-06-29 19:01 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/475426363.shtml)
+- 2026-06-29 19:12 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/77247.shtml)
+- 2026-06-29 18:56 - [法生态部长反对装空调却自己吹空调](https://www.blog.minike.top/Article/details/1442172763.shtml)
+- 2026-06-29 19:10 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/61077.shtml)
+- 2026-06-29 18:55 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/893218659.shtml)
+- 2026-06-29 19:12 - [齐思钧回复孙怡](http://www.blog.kurohicncr.top/Article/details/757571.shtml)
+- 2026-06-29 18:59 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/93515.shtml)

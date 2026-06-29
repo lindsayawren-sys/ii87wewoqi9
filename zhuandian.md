@@ -1,59 +1,56 @@
-# 折扣零售之王Ross Stores业绩大超预期，上调全年指引，市场威胁加剧
+# 《中国经营报》社启动“再走长征路·见证新时代”重大主题报道
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-2026年5月22日，美国折扣零售巨头Ross Stores发布第一财季报告，业绩全面大超预期，并大幅上调全年盈利和同店销售指引。这一折扣模式的成功，不仅巩固了其在经济压力下的王者地位，也为竞争对手TJX等带来更大挑战。 财报显示，公司营收达60亿美元，同比猛增21%，远超预期；同店销售额飙升17%，去年同期持平，每股收益2.02美元，同比增37%，大幅高出分析师预期的1.73
+中国社会科学网讯 5月15日，《中国经营报》社“再走长征路·见证新时代”重大主题报道启动仪式在江西省赣州市于都县举行。 中国社会科学院工业经济研究所所长陈彦斌表示，长征沿线不仅是红色精神的“富矿”，也是观察中国区域经济发展、乡村振兴、产业升级的绝佳样本。此次重大主题报道活动将财经媒体的专业视角与红色主题报道的传播规律有机结合，是“智库+媒体”服务国家战略的一次创新实践。希望采访
 
 ## 正文
 
-2026年5月22日，美国折扣零售巨头Ross Stores发布第一财季报告，业绩全面大超预期，并大幅上调全年盈利和同店销售指引。
+中国社会科学网讯 5月15日，《中国经营报》社“再走长征路·见证新时代”重大主题报道启动仪式在江西省赣州市于都县举行。
 
-这一折扣模式的成功，不仅巩固了其在经济压力下的王者地位，也为竞争对手TJX等带来更大挑战。
+中国社会科学院工业经济研究所所长陈彦斌表示，长征沿线不仅是红色精神的“富矿”，也是观察中国区域经济发展、乡村振兴、产业升级的绝佳样本。
 
-财报显示，公司营收达60亿美元，同比猛增21%，远超预期；同店销售额飙升17%，去年同期持平，每股收益2.02美元，同比增37%，大幅高出分析师预期的1.73美元。
+此次重大主题报道活动将财经媒体的专业视角与红色主题报道的传播规律有机结合，是“智库+媒体”服务国家战略的一次创新实践。
 
-首席执行官Jim Conroy将强劲表现归因于各收入层消费者的寻宝需求。
+希望采访团记者从产业视角切入，关注长征沿线的基础设施改善、特色产业培育、营商环境优化等议题，用数据和案例说话，推出一批有学术含量、有政策价值的研究型报道。
 
-基于强劲势头，Ross Stores上调全年指引：预计全年同店销售增长6%至7%，原为3%至4%；每股收益目标上调至7.50至7.74美元，原为7.02至7.36美元。
+中国行业报协会会长张超文表示，此次重大主题报道活动规模大、跨度广、内容实、意义深，希望《中国经营报》社举全员之力、汇众人之智，科学谋划、系统推进、多元传播，推出一系列有温度、有深度、有厚度、有力量的优秀新闻作品；同时紧扣时代主线，立足长征沿线各地经济发展、乡村振兴、产业升级、民生改善、生态保护等重点领域，全方位、多角度展现老区换新颜、区域大发展、人民生活节节高的崭新风貌和发展成就。
 
-分析师指出，当全价零售商因库存过剩而苦苦挣扎时，罗斯百货通过其机会性购买模式，以20%至60%的折扣从制造商和百货公司收购积压商品。
+《中国经营报》由中国社会科学院主管，中国社会科学院工业经济研究所主办。
 
-其灵活的区域性运营和严格的成本控制，使其在扩张市场的同时，盈利能力也显著提升。
+此次重大主题报道采访范围将覆盖中央红军长征途经的11个省(自治区)、160余个县(区)。
 
-尽管股价在盘后大涨近6%后出现小幅回调，但分析师普遍看好其结构性优势。
+采访团分为5个分队，将沿着革命先辈足迹，从福建、江西出发，经湖南、广东、广西，走过贵州、云南、四川，翻越雪山、穿过草地，最终抵达甘肃、宁夏、陕西，用双脚丈量长征历程，用镜头记录时代变迁，用笔触书写沿线地区的发展实践。
 
 ## 相关推荐
 
-- 2026-06-29 18:53 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 19:00 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 18:51 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-29 19:00 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-29 18:53 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 19:09 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-29 19:01 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-29 19:03 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-29 19:09 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 19:00 - [沙特外交大臣将访华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 18:51 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 19:08 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 18:45 - [税务总局披露5起合规申报个税案例](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 19:05 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-29 18:56 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 18:53 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-29 18:59 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 18:54 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-29 18:54 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-29 18:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-29 19:11 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-29 19:08 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 19:00 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:44 - [葛军透露高考出题思路](http://www.blog.kurohicncr.top/Article/details/1793510716.shtml)
-- 2026-06-29 18:57 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/24846320145.shtml)
-- 2026-06-29 18:51 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/442636713812.shtml)
-- 2026-06-29 18:58 - [第一炉香](https://www.blog.minike.top/Article/details/038201.shtml)
-- 2026-06-29 19:01 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/136199.shtml)
-- 2026-06-29 19:06 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.kurohicncr.top/Article/details/9658213.shtml)
-- 2026-06-29 18:58 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/634502354.shtml)
-- 2026-06-29 18:48 - [李连杰否认不管前妻两女儿](https://www.share.minike.top/Article/details/0191309090.shtml)
-- 2026-06-29 19:04 - [7款高价创新药有望降价](http://www.share.minike.top/Article/details/69558471893.shtml)
-- 2026-06-29 19:11 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/214405301.shtml)
-- 2026-06-29 18:56 - [如何看法国总统候选人称加强与华合作](https://www.share.minike.top/Article/details/94645882951.shtml)
-- 2026-06-29 18:58 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/05589216800.shtml)
-- 2026-06-29 19:07 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/80347859.shtml)
-- 2026-06-29 19:07 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/6821757105.shtml)
-- 2026-06-29 18:50 - [蔚来回应车漆洗车时被冲掉](https://www.share.kurohicncr.top/Article/details/9466092.shtml)
+- 2026-06-29 19:05 - [女心理师](https://www.blog.minike.top/Article/details/43137665.shtml)
+- 2026-06-29 19:13 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/09613243507.shtml)
+- 2026-06-29 19:16 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/02870738.shtml)
+- 2026-06-29 19:15 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/895657738.shtml)
+- 2026-06-29 19:11 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/77123900.shtml)
+- 2026-06-29 18:49 - [断骨增高灰产拉一人提成1.5万元](https://www.blog.minike.top/Article/details/46952480.shtml)
+- 2026-06-29 19:07 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/84199276437.shtml)
+- 2026-06-29 19:02 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/295791.shtml)
+- 2026-06-29 19:08 - [林逸向方筱然求婚了](http://www.blog.kurohicncr.top/Article/details/42668001143.shtml)
+- 2026-06-29 18:53 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/9799674.shtml)
+- 2026-06-29 19:13 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/3318557465.shtml)
+- 2026-06-29 18:57 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/52725967.shtml)
+- 2026-06-29 18:55 - [让AI做一个账号，它会做成什么样？](https://www.share.kurohicncr.top/Article/details/646714003.shtml)
+- 2026-06-29 19:11 - [中国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/10948.shtml)
+- 2026-06-29 18:57 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/9016705.shtml)

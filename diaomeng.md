@@ -1,59 +1,61 @@
-# ISPOR 2026研究显示：ANKTIVA联合BCG在膀胱癌治疗中更具成本效益
+# 广西国际旅行卫生保健中心2026年设备采购(HCA(ZB3)2026060C）竞争性协商公告
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-ImmunityBio在2026年国际药物经济学与结果研究学会年会上公布了一项卫生经济学分析，结果表明其ANKTIVA联合卡介苗疗法在治疗卡介苗无应答的非肌层浸润性膀胱癌原位癌患者时，相比强生旗下TAR-200疗法，能以更低的成本实现更高的持续完全缓解率。 该分析由范德堡健康中心的Ruchika Talwar博士进行，采用了基于QUILT-3.032研究和SunRISe-1试验
+项目概况 广西国际旅行卫生保健中心2026年设备采购为非政府采购项目，潜在供应商在广西阳光采购服务平台(行政事业国资专区)获取采购文件，并于2026年5月26日9时30分(北京时间)前提交响应文件。 一、项目基本情况 1.项目编号：HCA(ZB3)2026060C2.项目名称：广西国际旅行卫生保健中心2026年设备采购 3.采购方式：☑竞争性协商(非政府采购项目) 4.预算金额
 
 ## 正文
 
-ImmunityBio在2026年国际药物经济学与结果研究学会年会上公布了一项卫生经济学分析，结果表明其ANKTIVA联合卡介苗疗法在治疗卡介苗无应答的非肌层浸润性膀胱癌原位癌患者时，相比强生旗下TAR-200疗法，能以更低的成本实现更高的持续完全缓解率。
+项目概况 广西国际旅行卫生保健中心2026年设备采购为非政府采购项目，潜在供应商在广西阳光采购服务平台(行政事业国资专区)获取采购文件，并于2026年5月26日9时30分(北京时间)前提交响应文件。
 
-该分析由范德堡健康中心的Ruchika Talwar博士进行，采用了基于QUILT-3.032研究和SunRISe-1试验数据的成本-后果模型，对美国联邦医疗保险人群进行了为期三年的评估。
+一、项目基本情况 1.项目编号：HCA(ZB3)2026060C2.项目名称：广西国际旅行卫生保健中心2026年设备采购 3.采购方式：☑竞争性协商(非政府采购项目) 4.预算金额：44.5万元 5.最高限价：44.5万元 6.采购需求：采购全自动分支杆菌检测仪、精密烘干箱各1台，如需进一步了解详细内容，详见竞争性协商文件。
 
-研究涵盖了药物采购、给药管理、医疗资源利用、根治性膀胱切除术及死亡率等多项成本。
+7.合同履行期限：在签订合同之日起30个日历日内。
 
-研究结果显示，与TAR-200相比，ANKTIVA联合BCG在避免膀胱切除术方面，第一年可节省109，622美元，第二年可节省151，438美元，第三年可节省60，393美元。
+8.本项目不接受联合体。
 
-在完全缓解患者方面，第一年节省成本313，775美元，第二年节省282，013美元。
+二、供应商资格要求： 1. 供应商资格： (1)具有良好的商业信誉和健全的财务会计制度； (2)具有履行合同所必需的设备和专业技术能力； (3)有依法缴纳税收和社会保障资金的良好记录； (4)参加本次采购活动前三年内，在经营活动中没有重大违法记录； (5)法律、行政法规规定的其他条件。
 
-这些成本节省主要归因于ANKTIVA更低的药物采购及给药成本。
+2.本项目的特定资格要求：所投产品需具备医疗器械资质并取得NMPA认证证书。
 
-根据间接治疗比较，ANKTIVA的完全缓解率为49.6%，略高于TAR-200的45.9%。
+3. 单位负责人为同一人或者存在直接控股、管理关系的不同供应商，不得参加同一合同项下的采购活动。
 
-此次分析的临床数据基于近期在美国泌尿外科协会年会上公布的比较有效性数据。
+4.对在“信用中国”网站(www.creditchina.gov.cn) 、中国政府采购网(www.ccgp.gov.cn)被列入失信被执行人、重大税收违法失信主体、政府采购严重违法失信行为记录名单的供应商，不得参与采购活动。
 
 ## 相关推荐
 
-- 2026-06-29 18:42 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 18:58 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-29 18:55 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 18:46 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 19:00 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 18:49 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-29 18:56 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-29 18:51 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-29 18:56 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-29 18:44 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-29 19:05 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 19:10 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-29 18:44 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 19:03 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-29 18:55 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 19:06 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-29 18:56 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-29 18:59 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-29 18:55 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-29 19:17 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 19:01 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-29 19:08 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 19:06 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 18:54 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 18:55 - [V8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 19:03 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 19:17 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-29 18:55 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:48 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/2968422535.shtml)
-- 2026-06-29 18:51 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/993009.shtml)
-- 2026-06-29 19:09 - [林昀儒止步美国大满贯首轮](https://www.blog.minike.top/Article/details/216842031.shtml)
-- 2026-06-29 18:53 - [拍到真的赛博朋克边缘行者了！](http://www.share.minike.top/Article/details/7785546543.shtml)
-- 2026-06-29 18:54 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.minike.top/Article/details/44826231480.shtml)
-- 2026-06-29 18:56 - [直击委内瑞拉加拉加斯救援现场](http://www.share.minike.top/Article/details/6079918.shtml)
-- 2026-06-29 18:50 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.minike.top/Article/details/07948.shtml)
-- 2026-06-29 18:43 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/5270964.shtml)
-- 2026-06-29 19:05 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.minike.top/Article/details/03420.shtml)
-- 2026-06-29 18:56 - [官方通报一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/820167524.shtml)
-- 2026-06-29 19:09 - [TFING全员黑西装](http://www.share.kurohicncr.top/Article/details/223682.shtml)
-- 2026-06-29 18:55 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/845272.shtml)
-- 2026-06-29 18:48 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/500164994075.shtml)
-- 2026-06-29 18:44 - [税务总局披露5起合规申报个税案例](http://www.blog.kurohicncr.top/Article/details/035999.shtml)
-- 2026-06-29 18:45 - [急先锋](http://www.share.kurohicncr.top/Article/details/754832207767.shtml)
+- 2026-06-29 18:58 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/415073221150.shtml)
+- 2026-06-29 18:49 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/50884.shtml)
+- 2026-06-29 18:58 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/0660363.shtml)
+- 2026-06-29 18:49 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/4755566992.shtml)
+- 2026-06-29 19:07 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/88544.shtml)
+- 2026-06-29 19:11 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/1812688153.shtml)
+- 2026-06-29 18:48 - [音乐人屠颖离世家属追责涉事酒店](http://www.blog.kurohicncr.top/Article/details/0702034.shtml)
+- 2026-06-29 18:57 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/665956507752.shtml)
+- 2026-06-29 19:10 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/3270709955.shtml)
+- 2026-06-29 19:04 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.minike.top/Article/details/75585023.shtml)
+- 2026-06-29 18:49 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/140963.shtml)
+- 2026-06-29 19:07 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/5802371.shtml)
+- 2026-06-29 18:57 - [人类对空调和其他家电有多双标](https://www.blog.minike.top/Article/details/2008795490.shtml)
+- 2026-06-29 19:03 - [宜宾地震后铁路工作人员叫停列车](https://www.share.kurohicncr.top/Article/details/438678.shtml)
+- 2026-06-29 19:06 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/2988661.shtml)

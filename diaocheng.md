@@ -1,57 +1,61 @@
-# 茶香润五洲 中外学子广西品茶论道
+# 应用材料业绩超预期却股价走低 市场陷入“卖事实”模式
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中新网南宁5月22日电(记者 黄艳梅)“我喜爱中国绿茶的清鲜爽口与红茶的温润醇厚，这份独特的茶香让我深深感受到中国茶文化的魅力。”广西大学越南籍留学生团玉玄21日说。 当日，中外学子在广西大学参加茶文化日活动，沉浸式感受中国茶文化、古琴艺术与广西非遗魅力。该活动以茶为媒，通过茶艺展演、古琴演奏、非遗油茶体验、中外茶文化互动沙龙等，搭建文化交流桥梁。 活动现场，古朴雅致的中式茶席
+财报表现亮眼 半导体设备供应商应用材料公布了2026财年第二季度财报，各项核心指标均超出市场预期。数据显示，公司当季营收达到79.1亿美元，同比增长11%，高于分析师预期的76.5亿美元；调整后每股收益为2.86美元，同样超越市场预期的2.68美元。毛利率更是触及50.0%大关，创下逾25年新高。 AI需求驱动增长 公司首席执行官Gary Dickerson在财报中表示：“应用
 
 ## 正文
 
-中新网南宁5月22日电(记者 黄艳梅)“我喜爱中国绿茶的清鲜爽口与红茶的温润醇厚，这份独特的茶香让我深深感受到中国茶文化的魅力。
+财报表现亮眼 半导体设备供应商应用材料公布了2026财年第二季度财报，各项核心指标均超出市场预期。
 
-”广西大学越南籍留学生团玉玄21日说。
+数据显示，公司当季营收达到79.1亿美元，同比增长11%，高于分析师预期的76.5亿美元；调整后每股收益为2.86美元，同样超越市场预期的2.68美元。
 
-当日，中外学子在广西大学参加茶文化日活动，沉浸式感受中国茶文化、古琴艺术与广西非遗魅力。
+毛利率更是触及50.0%大关，创下逾25年新高。
 
-该活动以茶为媒，通过茶艺展演、古琴演奏、非遗油茶体验、中外茶文化互动沙龙等，搭建文化交流桥梁。
+AI需求驱动增长 公司首席执行官Gary Dickerson在财报中表示：“应用材料实现了创纪录的季度业绩，我们现在预计半导体设备业务在2026年将增长超过30%。
 
-活动现场，古朴雅致的中式茶席与清香四溢的各类茶品营造出浓郁的文化氛围。
+”他指出，全球AI运算基础设施的快速扩张，加上公司在先进逻辑芯片、DRAM与先进封装领域的领先地位，为未来多年的持续增长奠定了坚实基础。
 
-茶艺表演精彩纷呈，温杯、投茶、注水、奉茶……一招一式行云流水。
+公司还宣布与台积电、SK海力士、美光等行业巨头建立新的合作伙伴关系。
 
-活动现场设置了名茶展示区，汇集中国绿茶、红茶、六堡茶等多款特色茶品，搭配茶画等展示，全方位解读茶叶的种植、制作与品鉴知识。
+乐观指引难阻股价回调 尽管业绩亮眼，应用材料股价却在盘后交易中下跌约2%。
 
-在中外茶文化交流环节，中外学子结伴而坐，共品香茗、共话茶事。
+分析人士指出，这可能是典型的“卖事实”行情——公司股价年初至今已累计上涨约七成，强劲的AI需求预期已被提前消化。
 
 ## 相关推荐
 
-- 2026-06-29 18:58 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-29 18:45 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 18:59 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-29 18:56 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 18:46 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-29 19:04 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-29 18:50 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-29 18:51 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-29 18:48 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-29 18:48 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-29 18:55 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-29 19:12 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 18:48 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-29 18:56 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-29 18:54 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 18:54 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 19:10 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 19:13 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-29 19:04 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-29 18:48 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 19:05 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 19:00 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 19:10 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 19:04 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 18:54 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 18:57 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:59 - [2026世界杯谁能一黑到底](https://www.blog.kurohicncr.top/Article/details/79046992.shtml)
-- 2026-06-29 19:01 - [拍到真的赛博朋克边缘行者了！](http://www.blog.minike.top/Article/details/42726.shtml)
-- 2026-06-29 18:45 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/81198643.shtml)
-- 2026-06-29 18:53 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/23923.shtml)
-- 2026-06-29 18:51 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/419922419716.shtml)
-- 2026-06-29 19:04 - [拍到真的赛博朋克边缘行者了！](https://www.blog.kurohicncr.top/Article/details/0523330.shtml)
-- 2026-06-29 18:47 - [胡光宇一审获刑13年](http://www.share.kurohicncr.top/Article/details/99862248.shtml)
-- 2026-06-29 19:05 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/18061940.shtml)
-- 2026-06-29 19:04 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/9245605.shtml)
-- 2026-06-29 19:04 - [世界杯1/16决赛对阵出炉](http://www.share.kurohicncr.top/Article/details/40572896.shtml)
-- 2026-06-29 19:00 - [TOP Prada](http://www.blog.minike.top/Article/details/649136.shtml)
-- 2026-06-29 18:45 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/3223603230.shtml)
-- 2026-06-29 19:06 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/83311827.shtml)
-- 2026-06-29 18:47 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/35919193723.shtml)
-- 2026-06-29 18:56 - [娜扎搂着我的腰和我合照](http://www.share.kurohicncr.top/Article/details/499732258.shtml)
+- 2026-06-29 19:03 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/0528122.shtml)
+- 2026-06-29 18:58 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.kurohicncr.top/Article/details/998856154.shtml)
+- 2026-06-29 18:50 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/991515512.shtml)
+- 2026-06-29 19:09 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/9450283937.shtml)
+- 2026-06-29 19:00 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/605585378170.shtml)
+- 2026-06-29 19:06 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/7200709672.shtml)
+- 2026-06-29 19:11 - [恋与深空各大应用商店评分](http://www.blog.kurohicncr.top/Article/details/17262.shtml)
+- 2026-06-29 19:14 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/39803.shtml)
+- 2026-06-29 19:11 - [专家预计全球央行加息节奏将出现反复](https://www.share.kurohicncr.top/Article/details/58885150003.shtml)
+- 2026-06-29 19:10 - [许建琼任湖南省检察院副检察长](https://www.blog.kurohicncr.top/Article/details/750216.shtml)
+- 2026-06-29 18:49 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/7699392647.shtml)
+- 2026-06-29 18:55 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.share.minike.top/Article/details/89636666915.shtml)
+- 2026-06-29 19:11 - [恋与深空客服的回应](http://www.share.minike.top/Article/details/85238.shtml)
+- 2026-06-29 18:50 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/4143285000.shtml)
+- 2026-06-29 18:59 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.blog.minike.top/Article/details/595462354.shtml)

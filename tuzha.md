@@ -1,61 +1,57 @@
-# 港股大模型概念股日报（2026-05-22）
+# 首届中国新文创市集满场“黑科技” 观众：超出预期
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-一、行业观察 Wind数据显示，2026年5月22日，港股震荡反弹，恒生指数收涨0.86%报25606.03点，恒生科技指数大涨2.11%报4869.57点，恒生国企指数涨0.89%报8550.87点。全日成交额2812.98亿港元，较前日缩减；南向资金净卖出64.94亿港元。 AI产业链成领涨主线。智谱涨近27%，MINIMAX涨超15%；联想集团暴涨19.8%，2025/2
+发布时间：2026年05月16日 13:18 来源：中国新闻网 AI萌宠、数字织机、定制冰箱贴......5月15日，首届中国新文创市集暨潮玩游园会在北京启幕。来自全国各地的爆款文创汇聚于此。记者发现，从文博“国家队”到潮玩IP，各大展台都推出了形式各样的“黑科技”文创产品，其中一家AI智能潮玩更是成为了市集里的“排队王”。从“没想到”到“随处可见”，科技正成为文创的标配。观众
 
 ## 正文
 
-一、行业观察 Wind数据显示，2026年5月22日，港股震荡反弹，恒生指数收涨0.86%报25606.03点，恒生科技指数大涨2.11%报4869.57点，恒生国企指数涨0.89%报8550.87点。
+发布时间：2026年05月16日 13:18 来源：中国新闻网 AI萌宠、数字织机、定制冰箱贴......5月15日，首届中国新文创市集暨潮玩游园会在北京启幕。
 
-全日成交额2812.98亿港元，较前日缩减；南向资金净卖出64.94亿港元。
+来自全国各地的爆款文创汇聚于此。
 
-AI产业链成领涨主线。
+记者发现，从文博“国家队”到潮玩IP，各大展台都推出了形式各样的“黑科技”文创产品，其中一家AI智能潮玩更是成为了市集里的“排队王”。
 
-智谱涨近27%，MINIMAX涨超15%；联想集团暴涨19.8%，2025/26财年营收831亿美元创历史新高，CEO杨元庆放言两年内冲刺千亿美元营收；五一视界飙升28.9%，智驾物理AI迎催化，51World Model已覆盖多重AI应用场景；佑驾创新大涨23.8%，获200台无人物流车订单并再获头部自主品牌定点。
+从“没想到”到“随处可见”，科技正成为文创的标配。
 
-算力基建方面，建滔积层板涨15.1%，PCB及覆铜板价格持续上行；中芯国际涨7.6%。
+观众也期待文创产品更加个性化和智能化。
 
-网易-S涨5.7%，一季度净收入306亿元。
-
-二、大模型概念股盘面表现数据来源：港交所，不构成投资建议，截至2026年5月22日收盘三、大模型行业与企业动态1、国际巨头方面，有报道称，OpenAI正与高盛、摩根士丹利合作准备IPO招股书草案，最快本周秘密递交SEC，目标最早于2026年9月具备上市条件。
-
-5月22日，还有消息称，OpenAI在第一季度创造了约57亿美元的收入，这比Anthropic同期收入高出近10亿美元。
+(记者 董语飞 郎佳慧 北京报道） 责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-29 18:55 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-29 18:55 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-29 18:50 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 18:57 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 18:57 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-29 19:02 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 18:56 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-29 18:43 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 18:52 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-29 18:44 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 18:48 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 18:46 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 18:52 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-29 18:45 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-29 19:11 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 19:14 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-29 19:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 19:03 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-29 18:59 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 18:55 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-29 19:15 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-29 19:12 - [专家预计全球央行加息节奏将出现反复](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-29 18:48 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-29 18:55 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 18:54 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-29 18:58 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-29 18:53 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-29 19:03 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 19:16 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 19:01 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:00 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/09885071669.shtml)
-- 2026-06-29 19:10 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/561164385.shtml)
-- 2026-06-29 19:03 - [刘扬任湖南省副省长](http://www.blog.minike.top/Article/details/7507420046.shtml)
-- 2026-06-29 18:42 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/115127077.shtml)
-- 2026-06-29 18:54 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/8787894.shtml)
-- 2026-06-29 19:03 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/046408.shtml)
-- 2026-06-29 19:09 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/735006123.shtml)
-- 2026-06-29 18:52 - [小娘惹](http://www.share.kurohicncr.top/Article/details/34864966.shtml)
-- 2026-06-29 18:46 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/902842932.shtml)
-- 2026-06-29 18:52 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/57581514963.shtml)
-- 2026-06-29 19:01 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/2026527.shtml)
-- 2026-06-29 19:02 - [青春环游记第三季](http://www.blog.minike.top/Article/details/34302777.shtml)
-- 2026-06-29 19:03 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/1207832913.shtml)
-- 2026-06-29 19:06 - [105岁女红军看到自己长征时的模样](https://www.blog.kurohicncr.top/Article/details/420796.shtml)
-- 2026-06-29 19:08 - [天柱山回应网红打卡树枝被砍](http://www.blog.kurohicncr.top/Article/details/486211131589.shtml)
+- 2026-06-29 19:12 - [面对热浪欧洲人为何陷入空调内耗](http://www.blog.minike.top/Article/details/69247235076.shtml)
+- 2026-06-29 19:08 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.minike.top/Article/details/78558853.shtml)
+- 2026-06-29 19:13 - [中方向委方追加1亿元援助](https://www.share.kurohicncr.top/Article/details/821530.shtml)
+- 2026-06-29 19:09 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/3523224906.shtml)
+- 2026-06-29 18:54 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/3738516.shtml)
+- 2026-06-29 19:06 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/54552170.shtml)
+- 2026-06-29 19:11 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/773470513124.shtml)
+- 2026-06-29 19:13 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/65280.shtml)
+- 2026-06-29 19:03 - [河南高院审委会原委员曲海滨被查](https://www.blog.kurohicncr.top/Article/details/7824179609.shtml)
+- 2026-06-29 18:49 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/994513478828.shtml)
+- 2026-06-29 18:48 - [95后小伙突然确诊癌症 医生提醒](https://www.blog.minike.top/Article/details/6382376311.shtml)
+- 2026-06-29 18:56 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.kurohicncr.top/Article/details/860867508085.shtml)
+- 2026-06-29 18:59 - [叠纸](http://www.blog.kurohicncr.top/Article/details/67624.shtml)
+- 2026-06-29 18:55 - [每天通勤往返3h的感觉](https://www.blog.minike.top/Article/details/82664893982.shtml)
+- 2026-06-29 18:58 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/85387854049.shtml)

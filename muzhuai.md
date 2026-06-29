@@ -1,60 +1,58 @@
-# 湖北又将迎强降水 发布暴雨橙色省级预警
+# 广西首批村集体持有林票线上竞价交易
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中新网武汉5月23日电 (记者 马芙蓉)湖北新一轮较强降水将于23日晚上线。23日下午，湖北省气象台发布暴雨橙色省级预警，湖北省气象局启动重大气象灾害(暴雨、强对流)三级应急响应。 根据预警信息，预计23日晚至24日白天，恩施、宜昌、荆门、荆州、潜江、天门、仙桃、孝感、武汉西部等地将有大雨到暴雨，部分地区大暴雨，局地特大暴雨；襄阳、十堰东部、随州南部有中到大雨，局地暴雨。 本轮
+中新网贺州5月15日电(黄令妍 张雷 向磊)5月15日，广西首批村集体持有林票线上竞价交易现场会在贺州市八步区仁义镇举行，4个林票项目经过多轮激烈竞标全部顺利成交，村集体与中标企业现场完成签约。 广西是南方重要集体林区，集体林地是维护生态安全和实现乡村振兴的重要资源。作为广西国家储备林林票2.0改革首发区，贺州市八步区创新“自治区直属林场+村集体”股金型合作模式，与广西国有大桂
 
 ## 正文
 
-中新网武汉5月23日电 (记者 马芙蓉)湖北新一轮较强降水将于23日晚上线。
+中新网贺州5月15日电(黄令妍 张雷 向磊)5月15日，广西首批村集体持有林票线上竞价交易现场会在贺州市八步区仁义镇举行，4个林票项目经过多轮激烈竞标全部顺利成交，村集体与中标企业现场完成签约。
 
-23日下午，湖北省气象台发布暴雨橙色省级预警，湖北省气象局启动重大气象灾害(暴雨、强对流)三级应急响应。
+广西是南方重要集体林区，集体林地是维护生态安全和实现乡村振兴的重要资源。
 
-根据预警信息，预计23日晚至24日白天，恩施、宜昌、荆门、荆州、潜江、天门、仙桃、孝感、武汉西部等地将有大雨到暴雨，部分地区大暴雨，局地特大暴雨；襄阳、十堰东部、随州南部有中到大雨，局地暴雨。
+作为广西国家储备林林票2.0改革首发区，贺州市八步区创新“自治区直属林场+村集体”股金型合作模式，与广西国有大桂山林场合作实施两批林票项目，累计发行林票1382万元(人民币，下同)，覆盖林地7152.8亩。
 
-本轮降水将持续至26日，主要降雨时段在23日夜间至25日夜间。
+项目实行年均3.4%固定分红，合作期限8年，到期全额返还本金。
 
-具体来看，23日晚，较强降水主要集中在湖北中西部地区；24日，强降雨区将向东推进，势力进一步加强；25日，较强降雨区域仍主要位于湖北东部，但强度略有减弱。
+截至交易前，八步区已有6个村集体参与认购，累计认购金额420万元。
 
-气象专家介绍，预计本轮降水过程中，鄂西南南部、江汉平原和鄂东地区累计雨量较大，部分地区还将伴有小时雨强在40毫米~80毫米、局地100毫米以上的短时强降水和8级~12级雷暴大风。
+为破解林票流动性不足、退出渠道不畅等问题，八步区联合北部湾产权交易所集团探索林票二次流转机制，依托广西农村产权流转交易信息服务平台，实现林票挂牌、竞价、结算、鉴证全流程线上化、规范化操作。
 
-5月16日至19日，湖北已遭遇今年以来最强区域性暴雨过程，综合强度排5月历史第2位。
+本次交易选取4个村集体持有的210万元林票公开挂牌，实行线上竞价、价高者得，全程留痕可溯，公开透明。
 
-气象专家表示，23日至26日降雨过程叠加前期降雨影响，致灾风险较高，需注意防范强降雨诱发的山洪地质灾害、中小河流洪水和城乡积涝风险。
+此次竞价交易成功实现210万元林票溢价成交至230万元，直接增加村集体收入，充分证明村集体持有的林票是优质绿色资产；同时进一步畅通社会资本进山入林渠道，构建多元投融资体系，吸引更多资本参与林业建设，持续释放生态红利。
 
 ## 相关推荐
 
-- 2026-06-29 18:50 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-29 18:59 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-29 19:08 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-29 19:10 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-29 18:54 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 19:05 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-29 18:57 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-29 18:53 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 19:07 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-29 18:53 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 18:59 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 18:58 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-29 18:55 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 18:43 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 18:53 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-29 18:52 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-29 19:08 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 19:06 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-29 18:50 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 19:12 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 18:49 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-29 19:01 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 18:49 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 18:59 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-29 18:48 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-29 19:14 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:10 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/88919.shtml)
-- 2026-06-29 18:47 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.kurohicncr.top/Article/details/416855698723.shtml)
-- 2026-06-29 19:03 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/78133.shtml)
-- 2026-06-29 18:49 - [上海小区惊现鳄鱼](http://www.share.minike.top/Article/details/93345030518.shtml)
-- 2026-06-29 18:54 - [韩国队出局是因为内讧吗](http://www.blog.minike.top/Article/details/29547454045.shtml)
-- 2026-06-29 18:51 - [杨紫视后第一场线下活动](https://www.blog.kurohicncr.top/Article/details/099391994892.shtml)
-- 2026-06-29 18:56 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.minike.top/Article/details/76455848.shtml)
-- 2026-06-29 19:08 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/394209578.shtml)
-- 2026-06-29 18:49 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/9488123279.shtml)
-- 2026-06-29 19:00 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.kurohicncr.top/Article/details/729794344.shtml)
-- 2026-06-29 19:01 - [滚石点名酒店员工说有急救培训](http://www.share.minike.top/Article/details/95351699037.shtml)
-- 2026-06-29 18:43 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/089320165.shtml)
-- 2026-06-29 19:05 - [AG 宫斗](https://www.blog.minike.top/Article/details/16022.shtml)
-- 2026-06-29 18:51 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/03155.shtml)
-- 2026-06-29 18:51 - [NBA交易](http://www.share.minike.top/Article/details/3847870620.shtml)
+- 2026-06-29 19:10 - [海口塔吊事故处罚结果公布](http://www.share.minike.top/Article/details/04904271020.shtml)
+- 2026-06-29 19:06 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/933833325.shtml)
+- 2026-06-29 19:17 - [中国战机大片上新](https://www.share.minike.top/Article/details/160192.shtml)
+- 2026-06-29 18:53 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/8312679987.shtml)
+- 2026-06-29 19:01 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/44967700757.shtml)
+- 2026-06-29 19:12 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/21128725.shtml)
+- 2026-06-29 19:07 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/293018281.shtml)
+- 2026-06-29 19:08 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.kurohicncr.top/Article/details/51611.shtml)
+- 2026-06-29 19:13 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/33531288.shtml)
+- 2026-06-29 19:17 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/46722.shtml)
+- 2026-06-29 18:51 - [机器人学校开学了](https://www.blog.minike.top/Article/details/9238358.shtml)
+- 2026-06-29 18:56 - [《新闻联播》正在直播](https://www.share.minike.top/Article/details/5775698.shtml)
+- 2026-06-29 19:02 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/85926178.shtml)
+- 2026-06-29 18:49 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/193072063066.shtml)
+- 2026-06-29 19:16 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/131630.shtml)

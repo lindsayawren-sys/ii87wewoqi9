@@ -1,59 +1,61 @@
-# 正扬科技IPO：在美国德国2大市场输了专利诉讼，2024年从盈利1.8亿到亏损9000万，不再符合主板就报创业板！
+# 7年少了700万！保险代理人“大缩水”，有公司已不足10人
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-来源：国际投行研究报告 原标题：《正扬科技IPO大聪明：在美国德国 2 大市场输了专利诉讼，2024 年从盈利 1.8 亿到亏损 9000 万现在更多赔款待定，不再符合主板就报创业板！》 广东正扬传感科技 IPO价值与风险分析报告 2026年5月 INVESTMENT RESEARCH REPORT 广东正扬传感科技 IPO 价值与风险分析报告 申报板块 深圳证券交易所 · 创
+来源：中新经纬 作者：李自曼 近期，人身险公司2026年一季度偿付能力报告首次集中披露个险营销员人数。 据中新经纬统计，截至2026年一季度末，已披露相关数据的56家人身险公司，个险营销员合计约212.6万。对比2019年912万的历史高峰，七年行业少了近700万代理人，曾经的人海战术逐渐落幕。 业内人士对中新经纬表示，寿险代理人的粗放式增长阶段已经过去，靠“人口红利”的发展模
 
 ## 正文
 
-来源：国际投行研究报告 原标题：《正扬科技IPO大聪明：在美国德国 2 大市场输了专利诉讼，2024 年从盈利 1.8 亿到亏损 9000 万现在更多赔款待定，不再符合主板就报创业板！
+来源：中新经纬 作者：李自曼 近期，人身险公司2026年一季度偿付能力报告首次集中披露个险营销员人数。
 
-》 广东正扬传感科技 IPO价值与风险分析报告 2026年5月 INVESTMENT RESEARCH REPORT 广东正扬传感科技 IPO 价值与风险分析报告 申报板块 深圳证券交易所 · 创业板（第三套标准） 当前状态 已问询 拟募资规模 12亿元人民币 保荐机构 华泰联合证券有限责任公司 主要产品 SCR尿素传感器、尿素箱总成、新能源产品（VCU/PTC） 实控人背景 台籍企业家，夫妻店控股结构 报告日期 2026年5月 申报次数 第二次（2023年首次主板申报，2025年7月撤回） 深交所发行审核网站显示，广东正杨传感科技已经更新到已问询。
+据中新经纬统计，截至2026年一季度末，已披露相关数据的56家人身险公司，个险营销员合计约212.6万。
 
-1 、正杨传感科技不是第一次到深交所，正杨科技早在2023 年 6 月就申请深交所主板上市，开始的版本的 IPO 说明书拟募资 15 亿。
+对比2019年912万的历史高峰，七年行业少了近700万代理人，曾经的人海战术逐渐落幕。
 
-然后版本的 IPO 说明书改成募资 12 亿，区别是前者准备补流 4 ．5亿，后者改为 1 ．5亿。
+业内人士对中新经纬表示，寿险代理人的粗放式增长阶段已经过去，靠“人口红利”的发展模式已经无以为继，在行业高质量转型过程中，对代理人渠道的改革，重点体现在重新定位、重建模式和重塑能力。
 
-当时深交所发出二轮问询函后公司 2025 年 7 月就撤回了。
+中国人寿、太保寿险个险人力增加 整体看，头部人身险公司占据八成以上的人力，剩下50家中小险企分食不到18%的市场空间。
 
-2 、 2026 年 5 月，公司卷土重来，和上次不同的是，这次公司从当时的主板改成创业板。
+据各家公司2026年一季度偿付能力报告，中国人寿64.5万人独占三成份额，平安人寿33.3万、泰康人寿27.6万、太保寿险19万、太平人寿18.3万、新华保险12.9万。
 
-看了一下说明书，基本原因是公司 2026 版的数据中 2024 年亏损 9000 万，而上次申报是盈利 1.86亿，原因是因为上次市场关心其和美国企业的专利诉讼可能要输，所以公司做了一次计提（也可能没有完全计提）。
+六家合计约175.5万个险营销员，占总量八成以上。
 
-而创业板现在是允许亏损的，本次公司只用一招，研发经费超过 5000 万就满足了深交所的硬条件，大聪明吧！
+与2025年末相比，中国人寿、太保寿险的个险营销员数量等在一季度出现净增长。
 
 ## 相关推荐
 
-- 2026-06-29 18:58 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-29 18:45 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 18:58 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-29 18:57 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 18:48 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-29 19:11 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-29 18:49 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-29 19:06 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-29 18:49 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-29 18:51 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 19:01 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 19:10 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 18:58 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 18:51 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-29 19:12 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-29 18:56 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 19:05 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 19:11 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 19:01 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-29 19:03 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-29 19:14 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 19:01 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-29 18:58 - [T1零封KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 18:48 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-29 19:03 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 18:50 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 18:58 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 19:10 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:06 - [一家三口吃溪石斑鱼中毒](http://www.share.kurohicncr.top/Article/details/07712.shtml)
-- 2026-06-29 18:43 - [7款高价创新药有望降价](http://www.share.kurohicncr.top/Article/details/2629544.shtml)
-- 2026-06-29 18:47 - [金刚川](https://www.blog.kurohicncr.top/Article/details/12759402.shtml)
-- 2026-06-29 19:08 - [绘画区你赢了](https://www.blog.minike.top/Article/details/4109677.shtml)
-- 2026-06-29 19:08 - [A股割裂行情有变化了吗](http://www.share.minike.top/Article/details/7950136.shtml)
-- 2026-06-29 18:52 - [TFING全员黑西装](https://www.blog.kurohicncr.top/Article/details/314061.shtml)
-- 2026-06-29 18:42 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/533049687.shtml)
-- 2026-06-29 18:45 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/106779.shtml)
-- 2026-06-29 18:48 - [东方风云榜](https://www.blog.minike.top/Article/details/31113.shtml)
-- 2026-06-29 18:49 - [张杰我九岁就跟你了](http://www.share.kurohicncr.top/Article/details/725161.shtml)
-- 2026-06-29 18:58 - [V8](https://www.share.minike.top/Article/details/702287.shtml)
-- 2026-06-29 18:55 - [林昀儒止步美国大满贯首轮](http://www.share.minike.top/Article/details/119871432.shtml)
-- 2026-06-29 18:50 - [盛秋平任南昌市委书记](http://www.blog.minike.top/Article/details/702976888.shtml)
-- 2026-06-29 19:05 - [斛珠夫人](https://www.blog.minike.top/Article/details/5819173.shtml)
-- 2026-06-29 18:59 - [扫黑风暴](https://www.share.minike.top/Article/details/78365936.shtml)
+- 2026-06-29 19:09 - [上海小区惊现鳄鱼](https://www.blog.minike.top/Article/details/95598575089.shtml)
+- 2026-06-29 18:55 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.minike.top/Article/details/2191981967.shtml)
+- 2026-06-29 18:50 - [韩国小学生都来吐槽了](https://www.share.minike.top/Article/details/0279096486.shtml)
+- 2026-06-29 18:53 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/8390804222.shtml)
+- 2026-06-29 19:08 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/56141478.shtml)
+- 2026-06-29 18:48 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/0326676.shtml)
+- 2026-06-29 18:52 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/270375.shtml)
+- 2026-06-29 19:03 - [我和我的家乡](http://www.share.minike.top/Article/details/148931.shtml)
+- 2026-06-29 18:49 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/72783.shtml)
+- 2026-06-29 19:06 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/600513338147.shtml)
+- 2026-06-29 19:06 - [官媒首曝六代机？大V解读](http://www.share.minike.top/Article/details/6604177.shtml)
+- 2026-06-29 19:01 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/138326723684.shtml)
+- 2026-06-29 18:57 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/479401.shtml)
+- 2026-06-29 18:50 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/658503741.shtml)
+- 2026-06-29 18:59 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/506284.shtml)

@@ -1,58 +1,56 @@
-# “科技馆体系协同开展区域性科学教育中心建设项目”进行总结交流
+# 厨师掉入货梯 消防员徒手撕挡板救援
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中新网北京5月22日电 (记者 孙自法)中国科技馆5月22日向媒体通报说，“科技馆体系协同开展区域性科学教育中心建设项目”总结交流活动5月21日至22日在郑州科技馆举办，郑州、包头、绍兴、武威、滨州、日照、合肥、泉州、遵义、曲靖等10家科技馆分别汇报项目完成情况和取得成效。 “科技馆体系协同开展区域性科学教育中心建设项目”自2024年启动以来，中国科技馆联动10所地市级科技馆，
+发布时间：2026年05月16日 20:59 来源：中国新闻网 近日，山西晋中，平遥县发生一起电梯被困事故。接警后，平遥县消防救援大队柳根西街站出动2车14人赶赴现场。 据悉，由于饭店厨师打开传菜货梯门查看时不慎脚滑，导致从货梯上摔下。1名消防员利用撬棍将货梯侧门进行破拆，4名队员在翘一角后集中发力将货梯撕开大口。随后一名人员继续破拆，其余人员放置担架并辅助被困人员进行移动，7
 
 ## 正文
 
-中新网北京5月22日电 (记者 孙自法)中国科技馆5月22日向媒体通报说，“科技馆体系协同开展区域性科学教育中心建设项目”总结交流活动5月21日至22日在郑州科技馆举办，郑州、包头、绍兴、武威、滨州、日照、合肥、泉州、遵义、曲靖等10家科技馆分别汇报项目完成情况和取得成效。
+发布时间：2026年05月16日 20:59 来源：中国新闻网 近日，山西晋中，平遥县发生一起电梯被困事故。
 
-“科技馆体系协同开展区域性科学教育中心建设项目”自2024年启动以来，中国科技馆联动10所地市级科技馆，充分发挥区域性枢纽作用，聚焦机制模式探索、资源研发供给、科学教师研修、专家库资源库共建共享、科学教育研究实践五大核心任务，立足区域特色、深耕实践创新，在体制机制上破局、在资源供给上提质、在师资培养上赋能、在平台共建上聚力、在研究实践上深耕。
+接警后，平遥县消防救援大队柳根西街站出动2车14人赶赴现场。
 
-目前，该项目不仅形成一批可复制、可推广的建设成果与典型经验，丰富了科技馆行业智库资源，而且有效开拓了科技馆联合教育部门、大中小学及社会资源单位协同开展科学教育的新路径，初步形成家校社创新合作与多元协同育人的新局面。
+据悉，由于饭店厨师打开传菜货梯门查看时不慎脚滑，导致从货梯上摔下。
 
-“科技馆体系协同开展区域性科学教育中心建设项目”总结交流活动现场，还举行建设成果展示和优质科普活动展演，10所地市级科技馆分别展示项目周期内开发的优质科教资源，涵盖科学课资源包、活动教具、活动手册等，不仅内容丰富、形式多样，而且地域特色鲜明。
+1名消防员利用撬棍将货梯侧门进行破拆，4名队员在翘一角后集中发力将货梯撕开大口。
 
-在科普展演环节，各馆则带来科学与文化融合的科普课程。
+随后一名人员继续破拆，其余人员放置担架并辅助被困人员进行移动，7分钟后，成功将被困人员救出并送医。
 
-中国科技馆称，下一步将继续发挥示范引领作用，加强经验总结与顶层谋划，持续强化体系协同，通过区域联动筑牢教育强国建设根基，开创“十五五”科学教育发展新局面。
-
-(完)
+(张立程 吕文军） 责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-29 19:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 19:05 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-29 18:59 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-29 18:44 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-29 18:55 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-29 18:55 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 18:55 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 19:06 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-29 18:50 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-29 18:45 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 19:07 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 19:08 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 18:51 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-29 19:05 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-29 19:12 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 19:08 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 19:07 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 19:03 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 19:06 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 19:03 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 19:02 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-29 18:57 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-29 18:49 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-29 19:08 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-29 19:17 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-29 18:56 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 19:14 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-29 18:56 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:09 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/8515056118.shtml)
-- 2026-06-29 18:50 - [王俊凯命名方式](https://www.share.minike.top/Article/details/16619589.shtml)
-- 2026-06-29 18:45 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/9671546356.shtml)
-- 2026-06-29 18:46 - [白玉兰答谢宴合影](https://www.share.kurohicncr.top/Article/details/6110724482.shtml)
-- 2026-06-29 18:52 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/049472096402.shtml)
-- 2026-06-29 19:07 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/7961628757.shtml)
-- 2026-06-29 19:06 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/776072145056.shtml)
-- 2026-06-29 19:07 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/9072911128.shtml)
-- 2026-06-29 18:46 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/3486931.shtml)
-- 2026-06-29 18:43 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/125501333510.shtml)
-- 2026-06-29 19:07 - [急先锋](http://www.blog.minike.top/Article/details/1790362.shtml)
-- 2026-06-29 19:02 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/500693097.shtml)
-- 2026-06-29 18:44 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/76318.shtml)
-- 2026-06-29 19:07 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/66065.shtml)
-- 2026-06-29 19:00 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/362326312174.shtml)
+- 2026-06-29 19:09 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/526745.shtml)
+- 2026-06-29 19:01 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/53197168.shtml)
+- 2026-06-29 18:49 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/398244330.shtml)
+- 2026-06-29 19:13 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/0982661.shtml)
+- 2026-06-29 19:08 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/9416974.shtml)
+- 2026-06-29 19:15 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/02965.shtml)
+- 2026-06-29 18:59 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/38487677.shtml)
+- 2026-06-29 19:04 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/271379.shtml)
+- 2026-06-29 18:54 - [上海小区惊现鳄鱼](http://www.share.minike.top/Article/details/669931.shtml)
+- 2026-06-29 19:14 - [上海小区惊现鳄鱼](http://www.share.kurohicncr.top/Article/details/86641.shtml)
+- 2026-06-29 18:59 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/63077.shtml)
+- 2026-06-29 19:00 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/9019453621.shtml)
+- 2026-06-29 19:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/89116.shtml)
+- 2026-06-29 18:49 - [沙丘](https://www.blog.kurohicncr.top/Article/details/5347712.shtml)
+- 2026-06-29 19:13 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.minike.top/Article/details/261212690.shtml)

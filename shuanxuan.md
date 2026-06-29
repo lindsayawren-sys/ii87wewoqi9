@@ -1,56 +1,60 @@
-# 泛大湾区交通行业可信数据空间联盟在广州成立
+# 江苏将全面实施“人工智能+”行动 打造创新发展高地
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中新网广州5月23日电 (记者 蔡敏婕)泛大湾区交通行业可信数据空间联盟23日在广州成立。该联盟汇聚广东、湖南、广西、福建、江西、海南六省区60余家单位，旨在打破省界数据壁垒，在安全合规前提下推动跨省(区)出行信息实时共享与预警响应协同，从根本上解决信息不连贯、标准不统一等长期影响公众出行的痛点问题。 该联盟由广东省交通集团、湖南省高速公路集团、交通运输部路网监测与应急处置中心
+中新网南京5月15日电 (记者 徐珊珊)江苏省委副书记、省长刘小涛14日在“开局起步‘十五五’”江苏省专题新闻发布会上表示，江苏将全面拥抱时代的风口，抓住人工智能这个关键变量，全面实施“人工智能+”行动，加快打造全国人工智能创新发展高地。刘小涛说，江苏经济规模大、企业多、场景广，发展空间很大。目前全省已备案大模型达74款，注册用户超1.5亿，服务企业超3万家，API日均调用量达
 
 ## 正文
 
-中新网广州5月23日电 (记者 蔡敏婕)泛大湾区交通行业可信数据空间联盟23日在广州成立。
+中新网南京5月15日电 (记者 徐珊珊)江苏省委副书记、省长刘小涛14日在“开局起步‘十五五’”江苏省专题新闻发布会上表示，江苏将全面拥抱时代的风口，抓住人工智能这个关键变量，全面实施“人工智能+”行动，加快打造全国人工智能创新发展高地。
 
-该联盟汇聚广东、湖南、广西、福建、江西、海南六省区60余家单位，旨在打破省界数据壁垒，在安全合规前提下推动跨省(区)出行信息实时共享与预警响应协同，从根本上解决信息不连贯、标准不统一等长期影响公众出行的痛点问题。
+刘小涛说，江苏经济规模大、企业多、场景广，发展空间很大。
 
-该联盟由广东省交通集团、湖南省高速公路集团、交通运输部路网监测与应急处置中心共同发起。
+目前全省已备案大模型达74款，注册用户超1.5亿，服务企业超3万家，API日均调用量达4400万余次。
 
-据了解，泛大湾区跨省出行需求旺盛。
+江苏将发挥制造优势，把制造业作为AI赋能的主赛道，从研发设计、生产管理、产品质检、物流运输到市场营销，全链条推动AI规模化、商业化应用，同时拓展AI+科学、医疗、教育、交通、政务、社会治理等应用，让AI深度融入生产生活。
 
-官方数据显示，广东省高速公路每日产生交通数据超2.5亿条，节假日跨省日高峰车流超70万辆次。
+在筑牢基础底座方面，刘小涛指出，人工智能世界，词元(Token)是基础细胞，算法是工具，要素是算力和数据。
 
-但是，各省交通数据标准不一、系统互不兼容，存在堵点、卡点。
+江苏算力规模超10万P居全国前列，其中智算7.8万P。
 
-联盟将扮演“连接器”和“共识推动者”的关键角色，在安全合规前提下，推动区域内高速公路关键数据的可信共享，逐步构建覆盖泛大湾区的“交通数据流通空间”，破解“数据孤岛”难题。
+数据方面，以江苏省卫生健康云为例，每日健康数据交互超千万级，累计1600多亿条；建成全省统一的“影像云”，大家到医院看病基本上不用带片子，全省通用，同时建成了21个专病数据集。
 
-据了解，联盟将通过可信技术实现区域内高速公路、主干道实时车流、事故、施工、天气等多源数据的安全汇聚。
+此外，江苏将发展数据标注产业，建设高质量数据集，到2027年高质量数据集将超1000个。
 
 ## 相关推荐
 
-- 2026-06-29 18:45 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-29 19:03 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-29 18:51 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-29 18:48 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-29 18:51 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-29 18:44 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-29 18:42 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-29 18:49 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-29 19:06 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 18:57 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-29 19:03 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 19:11 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-29 19:03 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-29 18:59 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 18:59 - [欧洲极端高温如何影响家电股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 18:53 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 19:05 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 18:50 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-29 18:52 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 19:02 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-29 18:56 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-29 19:13 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-29 18:56 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-29 18:52 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:08 - [杨紫视后第一场线下活动](http://www.share.minike.top/Article/details/342869100142.shtml)
-- 2026-06-29 18:51 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/06577524.shtml)
-- 2026-06-29 18:49 - [世界杯在中国观看最多的比赛](http://www.blog.minike.top/Article/details/1350023.shtml)
-- 2026-06-29 18:42 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.kurohicncr.top/Article/details/94913190.shtml)
-- 2026-06-29 18:46 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/407380933299.shtml)
-- 2026-06-29 19:10 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/26103695.shtml)
-- 2026-06-29 18:44 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/188882021937.shtml)
-- 2026-06-29 19:11 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.share.minike.top/Article/details/60118822.shtml)
-- 2026-06-29 18:58 - [金刚川](http://www.share.kurohicncr.top/Article/details/553043973.shtml)
-- 2026-06-29 19:01 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/56462113.shtml)
-- 2026-06-29 18:48 - [当地回应林区违规放羊遭豹啃食](http://www.blog.kurohicncr.top/Article/details/31063.shtml)
-- 2026-06-29 18:49 - [王俊凯命名方式](http://www.share.kurohicncr.top/Article/details/0212803006.shtml)
-- 2026-06-29 18:50 - [大六座SUV进入黄金时代](https://www.share.minike.top/Article/details/76576658.shtml)
-- 2026-06-29 18:46 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/490596.shtml)
-- 2026-06-29 18:46 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.kurohicncr.top/Article/details/02730.shtml)
+- 2026-06-29 18:59 - [当我回母校教书](https://www.blog.minike.top/Article/details/760500520869.shtml)
+- 2026-06-29 19:08 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/0860194840.shtml)
+- 2026-06-29 18:58 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/76059672327.shtml)
+- 2026-06-29 19:06 - [乌是否掌握了扭转战局的钥匙](https://www.share.minike.top/Article/details/378563.shtml)
+- 2026-06-29 18:57 - [海清4次陪跑白玉兰](http://www.blog.kurohicncr.top/Article/details/87462751.shtml)
+- 2026-06-29 19:11 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/008353.shtml)
+- 2026-06-29 18:50 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/65357.shtml)
+- 2026-06-29 19:14 - [FIFA回应佛得角队长被指控强奸](https://www.share.minike.top/Article/details/151288.shtml)
+- 2026-06-29 18:51 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.minike.top/Article/details/06242173252.shtml)
+- 2026-06-29 18:58 - [7月1日起一批新规即将落地](http://www.share.minike.top/Article/details/82192.shtml)
+- 2026-06-29 19:08 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/66015712570.shtml)
+- 2026-06-29 18:58 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/9459677008.shtml)
+- 2026-06-29 19:05 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/718089709.shtml)
+- 2026-06-29 19:17 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/34458178.shtml)
+- 2026-06-29 18:58 - [网友晒14年前支教影像等来学生评论](http://www.blog.minike.top/Article/details/055237030.shtml)

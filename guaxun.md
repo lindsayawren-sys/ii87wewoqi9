@@ -1,58 +1,56 @@
-# 一场乡村创客会 共商发展“更优解”
+# 主力资金，“盯上”这些股票
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-平谷大桃、怀柔板栗、通州樱桃……享誉京城的农产品如何通过产业链延伸走向更广阔市场？一二三产融合发展趋势下，如何更好开发农业多种功能、挖掘乡村多元价值？在北京市政协都市农业委员工作室近日举办的“筑梦京郊 创见未来”乡村创客交流活动中，乡村创客代表与政协委员及有关各方共同探讨京郊乡村发展“更优解”。 将技术与经营模式推广到多地 声名远播的平谷大桃，曾面临销售渠道单一等问题。从小在桃
+本周，A股市场表现分化。上证指数、深证成指分别累计下跌1.07%、0.02%，创业板指累计上涨3.50%。行业板块中，通信、电子、机械设备行业领涨，涨幅最大的股票中船特气涨逾82%（剔除本周上市新股）。 Wind数据显示，截至5月15日收盘，A股市场总市值为130.12万亿元。 资金层面，Wind数据显示，本周沪深两市主力资金有4个交易日出现净流出，主力资金加仓天孚通信超49亿
 
 ## 正文
 
-平谷大桃、怀柔板栗、通州樱桃……享誉京城的农产品如何通过产业链延伸走向更广阔市场？
+本周，A股市场表现分化。
 
-一二三产融合发展趋势下，如何更好开发农业多种功能、挖掘乡村多元价值？
+上证指数、深证成指分别累计下跌1.07%、0.02%，创业板指累计上涨3.50%。
 
-在北京市政协都市农业委员工作室近日举办的“筑梦京郊 创见未来”乡村创客交流活动中，乡村创客代表与政协委员及有关各方共同探讨京郊乡村发展“更优解”。
+行业板块中，通信、电子、机械设备行业领涨，涨幅最大的股票中船特气涨逾82%（剔除本周上市新股）。
 
-将技术与经营模式推广到多地 声名远播的平谷大桃，曾面临销售渠道单一等问题。
+Wind数据显示，截至5月15日收盘，A股市场总市值为130.12万亿元。
 
-从小在桃园长大的岳巧云2016年返乡创业，乘着政策支持及电商发展的东风，她带领乡亲们拓宽销售渠道，将平谷大桃卖到全国各地。
+资金层面，Wind数据显示，本周沪深两市主力资金有4个交易日出现净流出，主力资金加仓天孚通信超49亿元。
 
-强品牌需要硬质量，发展科技农业、绿色农业势在必行。
+中船特气本周大涨超82% 本周，A股三大指数表现分化，半导体设备、长江存储、工业气体等主题概念板块表现亮眼。
 
-在平谷，岳巧云请来专家为桃农指导绿色防控技术；在顺义，深耕有机农场15年的程存旺带领团队自主研发“养鱼不换水，种菜不施肥”的“鱼菜共生”方案，并将生态循环农业技术与“社区支持农业”经营模式推广到更多地区。
+Wind数据显示，本周申万一级31个行业中，通信、电子、机械设备、公用事业、家用电器行业上涨，涨幅分别为6.77%、4.70% 、1.81%、1.18%、0.52%；有色金属、钢铁、美容护理行业跌幅居前，分别下跌7.39%、5.92%、5.63%。
 
-“5月是樱桃成熟的季节，欢迎大家来通州西集采摘，品尝樱桃美味，欣赏运河风光。
+数据来源：Wind Wind数据显示，本周A股有115只股票涨幅超20%。
 
 ## 相关推荐
 
-- 2026-06-29 19:03 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-29 18:46 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-29 18:49 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-29 19:10 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 18:44 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 18:58 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 18:59 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-29 18:51 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-29 19:04 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-29 19:05 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-29 19:07 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-29 19:05 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-29 19:07 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 18:49 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-29 18:58 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-29 18:51 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 18:54 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 19:04 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 18:59 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-29 19:06 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-29 18:50 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-29 19:12 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:48 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/755553076.shtml)
-- 2026-06-29 19:07 - [欧洲极端高温如何影响家电股](https://www.blog.kurohicncr.top/Article/details/144893242.shtml)
-- 2026-06-29 18:50 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.minike.top/Article/details/11338650.shtml)
-- 2026-06-29 18:44 - [毒液2](https://www.blog.minike.top/Article/details/386932961321.shtml)
-- 2026-06-29 18:56 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.minike.top/Article/details/229239.shtml)
-- 2026-06-29 18:45 - [刘扬任湖南省副省长](https://www.share.kurohicncr.top/Article/details/723451.shtml)
-- 2026-06-29 18:49 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/2894361415.shtml)
-- 2026-06-29 18:52 - [德国医生在没有空调的手术室工作](http://www.blog.minike.top/Article/details/5112655273.shtml)
-- 2026-06-29 19:09 - [上海小区惊现鳄鱼](https://www.blog.kurohicncr.top/Article/details/4077105.shtml)
-- 2026-06-29 19:01 - [韩国800万亿韩元押注半导体](http://www.blog.minike.top/Article/details/2584144118.shtml)
-- 2026-06-29 18:54 - [扩军害了世界杯吗](http://www.blog.kurohicncr.top/Article/details/89483419416.shtml)
-- 2026-06-29 18:54 - [穆祉丞东方风云榜红毯](https://www.blog.minike.top/Article/details/5364668.shtml)
-- 2026-06-29 18:58 - [《贺子珍》](https://www.share.minike.top/Article/details/66966.shtml)
-- 2026-06-29 19:07 - [夏天被这些虫子咬了可能致命](https://www.blog.minike.top/Article/details/529426849.shtml)
-- 2026-06-29 19:00 - [白玉兰答谢宴合影](http://www.blog.minike.top/Article/details/272602909.shtml)
+- 2026-06-29 18:49 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/245959848.shtml)
+- 2026-06-29 19:11 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.blog.minike.top/Article/details/53584271.shtml)
+- 2026-06-29 19:06 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/256750529.shtml)
+- 2026-06-29 19:16 - [周杰伦演唱会含星量](http://www.blog.minike.top/Article/details/9528837609.shtml)
+- 2026-06-29 19:02 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/37801.shtml)
+- 2026-06-29 19:01 - [德国医生在没有空调的手术室工作](https://www.blog.minike.top/Article/details/8686989.shtml)
+- 2026-06-29 19:03 - [断骨增高灰产拉一人提成1.5万元](http://www.share.kurohicncr.top/Article/details/12639178131.shtml)
+- 2026-06-29 19:13 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/56876977.shtml)
+- 2026-06-29 19:05 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/18916431.shtml)
+- 2026-06-29 18:58 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/09346427.shtml)
+- 2026-06-29 19:16 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/862474530737.shtml)
+- 2026-06-29 18:53 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.minike.top/Article/details/5502919.shtml)
+- 2026-06-29 19:16 - [媒体：听清自己内心的声音再填志愿](http://www.share.minike.top/Article/details/60846.shtml)
+- 2026-06-29 19:12 - [挪威王储妃长子两次强奸获刑](https://www.blog.minike.top/Article/details/1400292.shtml)
+- 2026-06-29 18:53 - [专家预计全球央行加息节奏将出现反复](http://www.blog.minike.top/Article/details/509729930.shtml)

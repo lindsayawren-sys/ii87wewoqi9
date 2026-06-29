@@ -1,57 +1,52 @@
-# 马来西亚称能源供应可保障至7月底
+# 中方回应中美是否达成农业方面协议
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-马来西亚经济部长周一援引国家石油公司数据表示，受伊朗战事引发的供应扰动影响，该国能源储备可稳定供应至 7 月底。 马来西亚经济部部长阿克玛・纳斯鲁拉在例行通报会上称，现有电力储备足以应对当前用电需求增长。 阿克玛表示，前往中东的海运费用涨幅达 50% 至 80%，战争也令保险费率最高攀升 3%。 他指出，物流成本上涨给本国大宗商品行业带来风险。2026 年一季度，可可、橡胶、棕
+【#中方回应中美是否达成农业方面协议#】 5月15日，外交部发言人郭嘉昆主持例行记者会。 《纽约时报》记者提问，请问中美双方是否在农业方面达成了一些协议？ 郭嘉昆表示，此访期间，双方就保持经贸关系稳定、拓展各领域务实合作、妥善解决彼此分歧达成重要共识。中方愿同美方一道落实好两国元首重要共识，本着平等尊重互利原则，不断拉长合作清单，实现互利共赢。（@北京日报 记者 刘晓琰）责任编
 
 ## 正文
 
-马来西亚经济部长周一援引国家石油公司数据表示，受伊朗战事引发的供应扰动影响，该国能源储备可稳定供应至 7 月底。
+【#中方回应中美是否达成农业方面协议#】 5月15日，外交部发言人郭嘉昆主持例行记者会。
 
-马来西亚经济部部长阿克玛・纳斯鲁拉在例行通报会上称，现有电力储备足以应对当前用电需求增长。
+《纽约时报》记者提问，请问中美双方是否在农业方面达成了一些协议？
 
-阿克玛表示，前往中东的海运费用涨幅达 50% 至 80%，战争也令保险费率最高攀升 3%。
+郭嘉昆表示，此访期间，双方就保持经贸关系稳定、拓展各领域务实合作、妥善解决彼此分歧达成重要共识。
 
-他指出，物流成本上涨给本国大宗商品行业带来风险。
+中方愿同美方一道落实好两国元首重要共识，本着平等尊重互利原则，不断拉长合作清单，实现互利共赢。
 
-2026 年一季度，可可、橡胶、棕榈油、木材等主力产品出口下滑，大宗商品产业产值同比下降 14.7%。
-
-阿克玛透露，预计 2026 年马来西亚农产品出口总额将下滑 13.48%，至 1702 亿林吉特（折合 430 亿美元）；进口额同比下降 3.28%，达 724.7 亿林吉特。
-
-他补充道，相关部门已接到建议，积极开拓棕榈油海外输出市场，推动贸易多元化，稳固出口竞争力。
-
-此外，该国航空业承压明显。
+（@北京日报 记者 刘晓琰）责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 19:04 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-29 18:50 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 18:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 18:54 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 19:10 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-29 18:49 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 18:57 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-29 18:43 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-29 18:48 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 18:48 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 19:07 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 19:12 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 19:07 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-29 19:08 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-29 19:04 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 19:12 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-29 19:10 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 19:16 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-29 19:07 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-29 19:06 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-29 18:58 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-29 19:12 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 19:03 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:06 - [4位大妈跳舞爆火多地景区争相邀约](http://www.share.minike.top/Article/details/89872.shtml)
-- 2026-06-29 18:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/001721063409.shtml)
-- 2026-06-29 19:11 - [海清4次陪跑白玉兰](https://www.blog.kurohicncr.top/Article/details/853618.shtml)
-- 2026-06-29 18:57 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/069864159867.shtml)
-- 2026-06-29 18:53 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/60366876423.shtml)
-- 2026-06-29 18:44 - [AG 宫斗](http://www.blog.kurohicncr.top/Article/details/08359280778.shtml)
-- 2026-06-29 19:09 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/49564488675.shtml)
-- 2026-06-29 19:08 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.blog.minike.top/Article/details/87737393.shtml)
-- 2026-06-29 18:44 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.kurohicncr.top/Article/details/07805.shtml)
-- 2026-06-29 18:52 - [首个靠AI躺赢的国家](https://www.blog.kurohicncr.top/Article/details/579997452357.shtml)
-- 2026-06-29 18:49 - [一见倾心](http://www.blog.minike.top/Article/details/616816.shtml)
-- 2026-06-29 19:05 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/6432229083.shtml)
-- 2026-06-29 18:53 - [叠纸](http://www.share.minike.top/Article/details/774068012222.shtml)
-- 2026-06-29 19:06 - [小鹏MONAL03预售定档7月2日](https://www.blog.minike.top/Article/details/42397063072.shtml)
-- 2026-06-29 18:42 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/0075120.shtml)
+- 2026-06-29 19:11 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/91790.shtml)
+- 2026-06-29 19:16 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/4958049742.shtml)
+- 2026-06-29 19:12 - [V8](http://www.share.minike.top/Article/details/755210123.shtml)
+- 2026-06-29 18:48 - [世界杯1/16决赛对阵出炉](https://www.blog.kurohicncr.top/Article/details/0243924187.shtml)
+- 2026-06-29 19:09 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/5184589019.shtml)
+- 2026-06-29 19:14 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/1353225.shtml)
+- 2026-06-29 18:57 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/786505187632.shtml)
+- 2026-06-29 18:59 - [特朗普两大核心赌注将迎高院裁决](https://www.blog.minike.top/Article/details/45591.shtml)
+- 2026-06-29 19:02 - [世界杯预测史上最不吃压力之物](http://www.blog.kurohicncr.top/Article/details/31519.shtml)
+- 2026-06-29 19:15 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/540902.shtml)
+- 2026-06-29 19:02 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/4119802.shtml)
+- 2026-06-29 19:05 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/87923402.shtml)
+- 2026-06-29 18:51 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.blog.kurohicncr.top/Article/details/35353839.shtml)
+- 2026-06-29 18:51 - [北京市发布雷电黄色预警](http://www.blog.kurohicncr.top/Article/details/63012.shtml)
+- 2026-06-29 19:04 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/186459.shtml)

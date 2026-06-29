@@ -1,61 +1,61 @@
-# 香港各界：黎家盈入选神二十三乘组彰显香港科创实力
+# 青海多项医改举措领跑全国 减轻民众就医负担
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中新社香港5月23日电 (记者 戴小橦 赵静怡 邱兆翔)中国载人航天工程办公室23日公布神舟二十三号飞行乘组成员，其中包括来自香港特区的载荷专家黎家盈。香港各界代表接受中新社记者采访时表示，这既彰显国家对香港的认可与关怀，印证“一国两制”的显著优势，也将进一步凝聚家国情怀，鼓舞香港科创力量，激励香港青年追梦前行。全国政协常委、香港中华总商会会长蔡冠深表示，香港科研人员有机会参与
+中新网西宁5月15日电 (记者 孙睿)记者15日从青海省卫生健康委员会获悉，2025年，青海省深化医药卫生体制改革成效显著，以“三医协同”为核心发力点，多项改革举措领跑全国，高原民众看病就医负担不断减轻。 2025年，国家及省级区域医疗中心全部建成投用，市州三级医院、急诊急救“五大中心”全覆盖；县域医共体实现全覆盖，90%以上达紧密型标准，基层检查、上级诊断常态化。家庭医生重点
 
 ## 正文
 
-中新社香港5月23日电 (记者 戴小橦 赵静怡 邱兆翔)中国载人航天工程办公室23日公布神舟二十三号飞行乘组成员，其中包括来自香港特区的载荷专家黎家盈。
+中新网西宁5月15日电 (记者 孙睿)记者15日从青海省卫生健康委员会获悉，2025年，青海省深化医药卫生体制改革成效显著，以“三医协同”为核心发力点，多项改革举措领跑全国，高原民众看病就医负担不断减轻。
 
-香港各界代表接受中新社记者采访时表示，这既彰显国家对香港的认可与关怀，印证“一国两制”的显著优势，也将进一步凝聚家国情怀，鼓舞香港科创力量，激励香港青年追梦前行。
+2025年，国家及省级区域医疗中心全部建成投用，市州三级医院、急诊急救“五大中心”全覆盖；县域医共体实现全覆盖，90%以上达紧密型标准，基层检查、上级诊断常态化。
 
-全国政协常委、香港中华总商会会长蔡冠深表示，香港科研人员有机会参与国家载人航天任务，彰显出“一国两制”的独特优势，也为香港建设国际创新科技中心、发展新质生产力注入强大信心，更将激发香港青年投身科技创新的热情。
+家庭医生重点人群签约率超90%，97.31%村卫生室接入医保结算，民众在家门口就能看好常见病。
 
-他期待香港能够在国家建设航天强国的征程中贡献力量、为国争光。
+同时，青海在全国率先实现省内异地住院费用纳入DRG/DIP付费管理，基金使用效率大幅提升；职工医保门诊共济全面落地，个人账户可惠及全家近亲属，医保药品目录扩充至3219种，保障范围持续扩大。
 
-香港科学院院长卢煜明表示，今年适逢国家“十五五”规划开局之年，香港迎来首位本地科学家获选参与国家载人航天飞行任务的历史性时刻。
+同期，中(藏)医药创新取得突破。
 
-黎家盈成为首位参与任务的香港航天员，彰显国家对香港科技人才实力的高度肯定，相信这能激励更多本地青年投身前沿科技研究，贡献所长。
+联合西藏等省区制定的《藏医疾病分类与代码》获国家标委会正式发布，收录3036种疾病，有效填补国内藏医标准空白；并建成16个国家中医优势专科，中(藏)医药服务能力稳步提升。
 
-“意义重大且空前。
+截至目前，青海省已累计开展药品耗材集采1202种、耗材127类，平均降价超55%；与8省区建立检查检验结果互认机制，互认项目达571项，累计互认188万次，直接为患者节约费用5709万元。
 
-”香港特区立法会议员陈勇指出，逐梦苍穹对香港社会厚植家国情怀有着深远意义，尤其能增强香港青年与专业人士的民族自豪感和国家归属感，“让大家看到国家、香港与个人未来的发展前景”。
+53家医疗机构推行无陪护服务，暖心服务惠及1.17万人次。
 
 ## 相关推荐
 
-- 2026-06-29 18:49 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 18:49 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-29 19:01 - [许建琼任湖南省检察院副检察长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-29 18:56 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-29 19:05 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-29 18:52 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 18:42 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-29 19:04 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 19:03 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-29 19:02 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 18:45 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 18:55 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-29 18:45 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 18:55 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-29 18:46 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-29 19:15 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 19:14 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 18:56 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 19:13 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-29 19:16 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-29 19:01 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-29 19:16 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-29 19:08 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 19:01 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-29 19:15 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-29 19:00 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 19:07 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 19:02 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 19:02 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-29 19:09 - [官方通报一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:10 - [A股割裂行情有变化了吗](https://www.share.kurohicncr.top/Article/details/59504164.shtml)
-- 2026-06-29 19:02 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/648038654951.shtml)
-- 2026-06-29 18:47 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/470698.shtml)
-- 2026-06-29 18:57 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.kurohicncr.top/Article/details/61860780.shtml)
-- 2026-06-29 19:03 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/685412601.shtml)
-- 2026-06-29 19:02 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/18419301.shtml)
-- 2026-06-29 18:59 - [歼-15型舰载机为何被歼-15T替代](http://www.share.minike.top/Article/details/3961684844.shtml)
-- 2026-06-29 18:45 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/4378069995.shtml)
-- 2026-06-29 19:06 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.kurohicncr.top/Article/details/05700626309.shtml)
-- 2026-06-29 18:54 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.minike.top/Article/details/154859223681.shtml)
-- 2026-06-29 18:45 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/0234808.shtml)
-- 2026-06-29 18:42 - [V8](http://www.share.minike.top/Article/details/548440905822.shtml)
-- 2026-06-29 19:10 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.share.kurohicncr.top/Article/details/6070875958.shtml)
-- 2026-06-29 18:53 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/8693379936.shtml)
-- 2026-06-29 18:56 - [中国创新药股价要反攻了吗](http://www.blog.minike.top/Article/details/876942535.shtml)
+- 2026-06-29 18:50 - [恋与深空客服的回应](http://www.share.minike.top/Article/details/41225108393.shtml)
+- 2026-06-29 19:15 - [不烧钱的低成本爱好](http://www.blog.minike.top/Article/details/913732.shtml)
+- 2026-06-29 19:17 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.share.minike.top/Article/details/749448337102.shtml)
+- 2026-06-29 18:50 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/624620762211.shtml)
+- 2026-06-29 19:14 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/4815976.shtml)
+- 2026-06-29 19:16 - [货车司机雨中帮交警挪树获表扬](https://www.share.minike.top/Article/details/1366631250.shtml)
+- 2026-06-29 18:50 - [叠纸客服回应恋与深空新角色争议](https://www.share.kurohicncr.top/Article/details/2166252.shtml)
+- 2026-06-29 18:56 - [学者：建设性战略稳定重塑中美关系](http://www.share.kurohicncr.top/Article/details/407870.shtml)
+- 2026-06-29 19:17 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/94359.shtml)
+- 2026-06-29 19:13 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.minike.top/Article/details/56562.shtml)
+- 2026-06-29 18:55 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/588500934.shtml)
+- 2026-06-29 19:05 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.kurohicncr.top/Article/details/76673829556.shtml)
+- 2026-06-29 18:58 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/15887244872.shtml)
+- 2026-06-29 19:14 - [歼-15型舰载机为何被歼-15T替代](https://www.blog.kurohicncr.top/Article/details/017649.shtml)
+- 2026-06-29 19:11 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/129035610780.shtml)

@@ -1,60 +1,60 @@
-# 通胀率上升，欧元区担忧“滞胀”
+# 商务部新闻发言人就中美经贸磋商初步成果答记者问
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-本报驻德国特约记者 青 木 本报特约记者 甄 翔 欧元区的通货膨胀率持续攀升。据德新社报道，欧盟统计局公布的最新数据显示，4月，欧元区通胀率由3月的2.6%进一步升至3%。通胀的主要推手是美以伊冲突引发的能源价格飙升。4月能源价格同比上涨10.8%。欧盟委员会此前发布的春季经济展望报告将今年欧元区通胀率从此前预期的1.9%-2.1%上调至3.1%，远超欧洲央行此前设定的2%通胀
+问：5月14日，中美两国元首举行会晤，宣布中美经贸团队达成了总体平衡积极的成果。请问商务部能否介绍经贸磋商成果更多情况？ 答：中美两国元首在北京举行会晤，深入讨论经贸问题，为两国经贸关系发展进一步指明了航向，提供了战略指引。习近平主席指出，中美经贸关系的本质是互利共赢，两国经贸团队达成了总体平衡积极的成果，这对两国老百姓、对世界都是好消息，双方应一道维护好当前来之不易的良好势头
 
 ## 正文
 
-本报驻德国特约记者 青 木 本报特约记者 甄 翔 欧元区的通货膨胀率持续攀升。
+问：5月14日，中美两国元首举行会晤，宣布中美经贸团队达成了总体平衡积极的成果。
 
-据德新社报道，欧盟统计局公布的最新数据显示，4月，欧元区通胀率由3月的2.6%进一步升至3%。
+请问商务部能否介绍经贸磋商成果更多情况？
 
-通胀的主要推手是美以伊冲突引发的能源价格飙升。
+答：中美两国元首在北京举行会晤，深入讨论经贸问题，为两国经贸关系发展进一步指明了航向，提供了战略指引。
 
-4月能源价格同比上涨10.8%。
+习近平主席指出，中美经贸关系的本质是互利共赢，两国经贸团队达成了总体平衡积极的成果，这对两国老百姓、对世界都是好消息，双方应一道维护好当前来之不易的良好势头。
 
-欧盟委员会此前发布的春季经济展望报告将今年欧元区通胀率从此前预期的1.9%-2.1%上调至3.1%，远超欧洲央行此前设定的2%通胀目标，还将今年欧元区经济增速从此前预期的1.2%下调至0.9%。
+5月13日，中美经贸团队在韩国举行经贸磋商，为两国元首会晤作了经贸领域的准备。
 
-彭博社近日发布了对经济学家调查后得出的对欧元区四大主要经济体的通胀数据预测。
+磋商中，双方以元首重要共识为指引，秉持相互尊重、和平共处、合作共赢的原则，就解决彼此关注的经贸问题和进一步拓展务实合作进行了坦诚、深入、富有建设性的交流磋商。
 
-预测显示，受能源价格上涨影响，法国和意大利的居民消费价格涨幅将明显加快；德国和西班牙的通胀指标将维持在2024年以来的最高水平。
+此后，双方就成果具体内容进行了密集磋商，取得了积极共识。
 
-上述4国的最新官方通胀数据定于29日正式发布。
+目前，双方在经贸领域达成的初步成果主要有以下几方面： 一是双方继续落实好前期磋商成果，并就有关关税安排形成积极共识。
 
 ## 相关推荐
 
-- 2026-06-29 18:57 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 18:51 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-29 19:05 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 18:59 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-29 18:54 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-29 18:43 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-29 18:54 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-29 19:00 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-29 18:58 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 18:42 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 19:09 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-29 18:59 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-29 19:01 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-29 18:48 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 19:00 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 19:13 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-29 19:06 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 19:01 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-29 19:13 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 18:53 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 19:05 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-29 18:53 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 19:07 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 19:08 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-29 18:53 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-29 18:59 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 19:13 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 19:16 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:07 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/29680655449.shtml)
-- 2026-06-29 19:03 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/267279542.shtml)
-- 2026-06-29 18:55 - [老板回应员工光脚清洗土豆](http://www.share.kurohicncr.top/Article/details/12278813.shtml)
-- 2026-06-29 18:51 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/78629450.shtml)
-- 2026-06-29 18:51 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/7235816482.shtml)
-- 2026-06-29 18:48 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/2032051169.shtml)
-- 2026-06-29 19:05 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/92237574349.shtml)
-- 2026-06-29 18:58 - [叠纸](https://www.blog.kurohicncr.top/Article/details/591210427970.shtml)
-- 2026-06-29 18:51 - [媒体：听清自己内心的声音再填志愿](https://www.share.kurohicncr.top/Article/details/0830086659.shtml)
-- 2026-06-29 18:51 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/40046.shtml)
-- 2026-06-29 18:55 - [金刚川](http://www.share.minike.top/Article/details/40315020.shtml)
-- 2026-06-29 18:42 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/357113.shtml)
-- 2026-06-29 18:54 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/138231699.shtml)
-- 2026-06-29 19:07 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/197843232.shtml)
-- 2026-06-29 19:08 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/5684369153.shtml)
+- 2026-06-29 18:50 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/304459391.shtml)
+- 2026-06-29 19:13 - [第一炉香](https://www.blog.minike.top/Article/details/2287660176.shtml)
+- 2026-06-29 18:58 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/47336121802.shtml)
+- 2026-06-29 18:55 - [截瘫男子心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/966524011.shtml)
+- 2026-06-29 19:10 - [河南四位大妈景区跳舞爆火](https://www.blog.kurohicncr.top/Article/details/4227166.shtml)
+- 2026-06-29 19:09 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/796250760.shtml)
+- 2026-06-29 18:48 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/408268370719.shtml)
+- 2026-06-29 19:06 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/41372460.shtml)
+- 2026-06-29 18:48 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.minike.top/Article/details/051154078.shtml)
+- 2026-06-29 18:53 - [内马尔打日本前先买百万美元豪表](https://www.blog.minike.top/Article/details/48163.shtml)
+- 2026-06-29 19:01 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/9162158.shtml)
+- 2026-06-29 18:54 - [内马尔打日本前先买百万美元豪表](https://www.blog.minike.top/Article/details/002819720244.shtml)
+- 2026-06-29 19:16 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/4404201.shtml)
+- 2026-06-29 19:04 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.kurohicncr.top/Article/details/33971284349.shtml)
+- 2026-06-29 18:55 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/28760407286.shtml)

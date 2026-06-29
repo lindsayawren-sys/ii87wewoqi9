@@ -1,46 +1,47 @@
-# 中伟新材将于7月22日派发末期股息每10股3.8元
+# 佳兆业集团遭Elliott Investment Management GP LLC减持411.3万股 每股作价0.0743港元
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中伟新材（02579）发布公告，该公司将于2026年7月22日派发末期股息每10股3.8元。责任编辑：卢昱君
+香港联交所最新资料显示，5月11日，Elliott Investment Management GP LLC减持佳兆业集团（01638）411.3万股，每股作价0.0743港元，总金额约为30.56万港元。减持后最新持股数目为约8.16亿股，最新持股比例为7.99%。责任编辑：卢昱君
 
 ## 正文
 
-中伟新材（02579）发布公告，该公司将于2026年7月22日派发末期股息每10股3.8元。
+香港联交所最新资料显示，5月11日，Elliott Investment Management GP LLC减持佳兆业集团（01638）411.3万股，每股作价0.0743港元，总金额约为30.56万港元。
+
+减持后最新持股数目为约8.16亿股，最新持股比例为7.99%。
 
 责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 19:05 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-29 18:57 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 18:55 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-29 18:46 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 18:45 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-29 18:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-29 19:05 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-29 18:53 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-29 18:54 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 18:57 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 19:06 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-29 18:58 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-29 19:06 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-29 18:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 18:52 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-29 18:49 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 19:06 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-29 18:58 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-29 18:51 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-29 19:11 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-29 18:54 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 19:00 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 19:06 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:50 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/533253647297.shtml)
-- 2026-06-29 19:05 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.kurohicncr.top/Article/details/84107675.shtml)
-- 2026-06-29 18:57 - [大马同意延长马航370残骸搜寻工作](http://www.blog.kurohicncr.top/Article/details/21257.shtml)
-- 2026-06-29 18:47 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/23608.shtml)
-- 2026-06-29 18:54 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/9052711.shtml)
-- 2026-06-29 19:07 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.blog.kurohicncr.top/Article/details/24395.shtml)
-- 2026-06-29 19:10 - [TFING全员黑西装](http://www.blog.minike.top/Article/details/4372466563.shtml)
-- 2026-06-29 19:09 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/0325288612.shtml)
-- 2026-06-29 18:42 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/81287.shtml)
-- 2026-06-29 18:43 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/47160.shtml)
-- 2026-06-29 18:42 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/633536282.shtml)
-- 2026-06-29 18:52 - [105岁女红军看到自己长征时的模样](http://www.share.kurohicncr.top/Article/details/7787698703.shtml)
-- 2026-06-29 19:09 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/19032582922.shtml)
-- 2026-06-29 18:43 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/723963130497.shtml)
-- 2026-06-29 19:07 - [永远有话聊的原因](https://www.blog.kurohicncr.top/Article/details/87475.shtml)
+- 2026-06-29 19:11 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.blog.kurohicncr.top/Article/details/58246971.shtml)
+- 2026-06-29 18:56 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/815289887.shtml)
+- 2026-06-29 18:50 - [学者：建设性战略稳定重塑中美关系](https://www.blog.kurohicncr.top/Article/details/54648020783.shtml)
+- 2026-06-29 18:53 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/437822.shtml)
+- 2026-06-29 19:14 - [湖南姑娘被东北同事带偏口音](https://www.blog.kurohicncr.top/Article/details/8911582.shtml)
+- 2026-06-29 18:56 - [主力抛售电子和通信板块](https://www.share.minike.top/Article/details/744427.shtml)
+- 2026-06-29 18:52 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/96117955.shtml)
+- 2026-06-29 18:56 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/398008216710.shtml)
+- 2026-06-29 19:08 - [黄金也扛不住了](http://www.share.minike.top/Article/details/70513339.shtml)
+- 2026-06-29 18:54 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.kurohicncr.top/Article/details/56711573093.shtml)
+- 2026-06-29 18:51 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/98284279459.shtml)
+- 2026-06-29 19:09 - [看大国重器“云端穿针引线”](https://www.blog.kurohicncr.top/Article/details/516617.shtml)
+- 2026-06-29 18:57 - [一生一世](https://www.blog.minike.top/Article/details/08788.shtml)
+- 2026-06-29 19:09 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.minike.top/Article/details/60679655657.shtml)
+- 2026-06-29 19:08 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/957877.shtml)

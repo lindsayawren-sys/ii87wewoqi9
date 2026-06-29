@@ -1,61 +1,61 @@
-# 民企奋进自贸港：“像深海狮子鱼一样不断深潜，就没有天敌”
+# 止升下挫！白银宽幅震荡何时休？
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-中新网三亚5月24日电 题：民企奋进自贸港：“像深海狮子鱼一样不断深潜，就没有天敌” 作者 张月和 在马里亚纳海沟7800米深处生存着一种神奇的生物——深海狮子鱼，它承受着深海的巨大压力、没有天敌、不断向更深海域拓展生存空间。而在中国距离深海最近的海南自贸港重点园区三亚崖州湾科技城高新区，一家以深海狮子鱼命名的民企也走上了一条不断“深潜”的创业之路。 从“可视化”起步，让深海不
+作者：张晨/F0284349、Z0010567/ 一德期货宏观分析师 要点速览版 核心原因 秘鲁消息刺激的补涨难持续，情绪影响偏短期； 中东地缘僵局等中观利空仍在；美债利率创新高，金融属性施压； 投资需求虽回暖（SLV ETF回流超170吨），但纽期银交割不及预期，注册仓单占比不降反升，难以重演库存挤压。 后市展望 贵金属整体仍处宽幅震荡，何时重回单边升势，需增长担忧超越通胀焦
 
 ## 正文
 
-中新网三亚5月24日电 题：民企奋进自贸港：“像深海狮子鱼一样不断深潜，就没有天敌” 作者 张月和 在马里亚纳海沟7800米深处生存着一种神奇的生物——深海狮子鱼，它承受着深海的巨大压力、没有天敌、不断向更深海域拓展生存空间。
+作者：张晨/F0284349、Z0010567/ 一德期货宏观分析师 要点速览版 核心原因 秘鲁消息刺激的补涨难持续，情绪影响偏短期； 中东地缘僵局等中观利空仍在；美债利率创新高，金融属性施压； 投资需求虽回暖（SLV ETF回流超170吨），但纽期银交割不及预期，注册仓单占比不降反升，难以重演库存挤压。
 
-而在中国距离深海最近的海南自贸港重点园区三亚崖州湾科技城高新区，一家以深海狮子鱼命名的民企也走上了一条不断“深潜”的创业之路。
+后市展望 贵金属整体仍处宽幅震荡，何时重回单边升势，需增长担忧超越通胀焦虑，重新主导利率定价。
 
-从“可视化”起步，让深海不再遥远 “很多人对深海有莫名的恐惧感，是因为接触不到它。
+昨夜今晨，白银一改此前几日持续向上的偏强走势，掉头向下并领跌贵金属板块，“光速调整”看似出乎意料，但有其必然性。
 
-”海南狮子鱼深海技术有限公司(简称“深海狮子鱼公司”)副总经理谢杨冰受访时说，该公司创始人苗业宸早年曾深度参与“蛟龙”号载人潜水器海试的影像记录和宣传报道，真切察觉到国内深海科普传播事业有广阔的发展空间，国产深海技术更是具备极大的提升与突破潜力。
+对于本周在秘鲁消息刺激下的上涨，我们此前分析中已将其定位为相对有色金属的补涨，特别是针对秘鲁石油公司最新的救助法令，本质是缓解能源危机，有助于降低矿产银供应下滑的担忧，剩余的情绪化影响对市场而言更偏短期。
 
-2016年，苗业宸带领团队来到三亚，希望利用虚拟现实技术，将深海的科学数据、工程场景“可视化”，让普通民众也能“看到”深海。
+而中观维度的利空仍在中东地缘僵局，亦即海峡封锁一系列负面影响。
 
-“当时元宇宙概念作为新兴事物非常火，VR技术也逐渐被大众熟知。
+从目前美国通胀传导路径看，能源价格的上行已开始向核心通胀传导，支持降息的美联储官员比例愈发走低，即将上任的新主席沃什推进政府主导的降息行动也将愈发艰难。
 
-”谢杨冰说，团队通过与国家科研团队合作，参与深海科学数据可视化项目，打造深海虚拟现实技术联合实验室，并在“探索一号”“探索二号”科考船开设文创品牌店，铺开深海文化科普教育业务。
+更雪上加霜的是，前任主席鲍威尔留任理事，占据了原本属于新任主席的理事名额，此前有着政府经历且年初刚被重新任命的理事米兰被迫辞任，委员会内部政府主导力量趋弱意味着联储独立性随之加强。
 
-“押注”深海项目，从“看客”变“玩家” 2019年，一项鼓励社会资本参与的深海项目吸引了苗业宸团队的注意。
+因此，叠加前述数据、联储官员讲话以及米兰辞任等消息共同影响下，10年期美债利率触及4.5%，续创地缘冲突以来新高，30年期美债利率更是站上5%，触及财政部“红线”，利率市场持续定价更高的通胀及随之而来更紧的政策基调，从金融属性角度对贵金属施压。
 
 ## 相关推荐
 
-- 2026-06-29 18:55 - [韩国小学生都来吐槽了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 18:52 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-29 18:47 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 19:01 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-29 18:43 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-29 18:51 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-29 18:46 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-29 18:46 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 18:48 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-29 19:03 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-29 18:54 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 18:46 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 18:51 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-29 18:43 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-29 19:01 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 18:55 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-29 19:09 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-29 18:55 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 19:05 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 19:06 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 19:13 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 19:09 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 18:49 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 19:03 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 19:00 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 18:59 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 18:48 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-29 19:17 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 18:49 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-29 19:15 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:49 - [官方通报一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/319646342.shtml)
-- 2026-06-29 19:11 - [曝iPhone涨价后不会再降](https://www.share.minike.top/Article/details/52467.shtml)
-- 2026-06-29 19:11 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/85719979657.shtml)
-- 2026-06-29 19:04 - [天道](https://www.share.minike.top/Article/details/9889206021.shtml)
-- 2026-06-29 19:09 - [霍尔木兹海峡风波再起 油价走向何方](http://www.blog.kurohicncr.top/Article/details/659793.shtml)
-- 2026-06-29 18:56 - [中国空间站为什么要升级扩容](https://www.blog.minike.top/Article/details/6351505450.shtml)
-- 2026-06-29 18:55 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/525430372.shtml)
-- 2026-06-29 19:08 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/58351.shtml)
-- 2026-06-29 18:49 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/6687078.shtml)
-- 2026-06-29 18:57 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/09214.shtml)
-- 2026-06-29 19:06 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/57131372384.shtml)
-- 2026-06-29 19:05 - [2026年，如果你有100万，你会怎么投资？](http://www.share.minike.top/Article/details/305242.shtml)
-- 2026-06-29 18:58 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/85943823180.shtml)
-- 2026-06-29 18:45 - [男子造谣县城满街都是小混混被行拘](https://www.blog.kurohicncr.top/Article/details/28823273158.shtml)
-- 2026-06-29 19:01 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/10329571961.shtml)
+- 2026-06-29 18:50 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/7812635374.shtml)
+- 2026-06-29 18:58 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/01197.shtml)
+- 2026-06-29 19:08 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/446639.shtml)
+- 2026-06-29 18:55 - [刘扬任湖南省副省长](https://www.share.kurohicncr.top/Article/details/77885070.shtml)
+- 2026-06-29 18:49 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/438088506757.shtml)
+- 2026-06-29 18:54 - [韩文体部对韩足协开展审计 查出局原因](https://www.share.minike.top/Article/details/311347802708.shtml)
+- 2026-06-29 19:12 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/41328097410.shtml)
+- 2026-06-29 19:15 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/1230264326.shtml)
+- 2026-06-29 19:17 - [蔚来回应车漆洗车时被冲掉](https://www.share.minike.top/Article/details/56283.shtml)
+- 2026-06-29 19:09 - [世界杯1/16决赛对阵出炉](https://www.share.kurohicncr.top/Article/details/476998627672.shtml)
+- 2026-06-29 18:52 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/2804775.shtml)
+- 2026-06-29 18:49 - [RAY评乘风2026总决赛](https://www.share.kurohicncr.top/Article/details/317708.shtml)
+- 2026-06-29 18:52 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/0523817349.shtml)
+- 2026-06-29 18:48 - [RAY评乘风2026总决赛](https://www.blog.kurohicncr.top/Article/details/518196832.shtml)
+- 2026-06-29 19:00 - [流金岁月](https://www.share.minike.top/Article/details/726066.shtml)

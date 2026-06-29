@@ -1,59 +1,56 @@
-# 市值跌去四分之三，五粮液还值得投资者信任吗？
+# 跌势未止，信达生物挫逾7%！港股通创新药4连跌，520880单日再获亿元资金加码！机构提示月底行业大会催化
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 砺石商业评论 深陷财务“洗澡”风波的五粮液（维权），这一次的回应，股东们愿意买账吗？ 吴遮 | 文 孙春芳 | 编辑 棱镜 | 来源 近日，五粮液2026年第一次临时股东大会在四川宜宾召开。 这是一场备受资本市场关注的临时股东大会。此时的五粮液正处于多事之秋，今年2月，五粮液原董事长曾从钦被宜宾市立案调查，时至今日，这家
+5月15日，港股全线回调，恒指跌逾1%。港股通创新药延续调整，权重龙头信达生物挫逾7%，康方生物、百济神州、石药集团等齐跌超3%。100%创新药研发标的——港股通创新药ETF华宝（520880）跌2%连续4日下行，场内价格一度逼近前低。 值得关注的是，港股通创新药ETF华宝（520880）场内溢价不止，显示买盘态度积极，昨日逾亿元资金逢跌吸筹，近10日维度，520880累计吸金
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 砺石商业评论 深陷财务“洗澡”风波的五粮液（维权），这一次的回应，股东们愿意买账吗？
+5月15日，港股全线回调，恒指跌逾1%。
 
-吴遮 | 文 孙春芳 | 编辑 棱镜 | 来源 近日，五粮液2026年第一次临时股东大会在四川宜宾召开。
+港股通创新药延续调整，权重龙头信达生物挫逾7%，康方生物、百济神州、石药集团等齐跌超3%。
 
-这是一场备受资本市场关注的临时股东大会。
+100%创新药研发标的——港股通创新药ETF华宝（520880）跌2%连续4日下行，场内价格一度逼近前低。
 
-此时的五粮液正处于多事之秋，今年2月，五粮液原董事长曾从钦被宜宾市立案调查，时至今日，这家仅次于贵州茅台白酒巨头，依然未能迎来自己的新掌门人。
+值得关注的是，港股通创新药ETF华宝（520880）场内溢价不止，显示买盘态度积极，昨日逾亿元资金逢跌吸筹，近10日维度，520880累计吸金超5.35亿元，最新份额升至53.42亿份，续创上市以来新高！
 
-4月30日，五粮液又发布了多份公告，除了披露2025年财报和2026年第一季度报告之外，还对2025年前三季度的业绩进行了“大幅度”调整，直接震惊了资本市场。
+港股通创新药板块自去年9月进入阶段调整期，至今已有8个月，港股通创新药ETF华宝（520880）标的指数区间累计跌幅超过23%，调整较为充分，当前位置或具备较高投资性价比，持续吸引资金进场。
 
-根据当时的业绩调整报告，去年前三季度，五粮液的营业总收入由原来的609亿改为306亿，减少了303亿；归母净利润由原来的215亿改为65亿，减少了150亿。
+注：恒生港股通创新药精选指数2021-2025年年度历史收益分别为：-22.72%、-16.48%、-19.76%、-14.16%、66.32%。
 
-受业绩调整的影响，五粮液的股价持续下跌，目前已经跌破90元。
+回测历史业绩不预示指数未来表现。
 
-4月30日开盘时，五粮液的股价为97.74元/股，截至5月19日收盘为85.78元/股。
+兴业证券最新研报提示，创新药板块即将进入密集数据催化期。
 
 ## 相关推荐
 
-- 2026-06-29 19:07 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-29 18:44 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 19:09 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 18:56 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-29 19:05 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 18:59 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 18:42 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 18:45 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-29 19:05 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-29 18:44 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 19:01 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 18:48 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-29 18:47 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-29 19:06 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-29 19:08 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-29 19:00 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-29 18:51 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-29 18:54 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 18:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-29 18:50 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 19:03 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 19:16 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 19:05 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:51 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.minike.top/Article/details/7483374.shtml)
-- 2026-06-29 18:59 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/63773543178.shtml)
-- 2026-06-29 18:50 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/516095207136.shtml)
-- 2026-06-29 19:04 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/56324936721.shtml)
-- 2026-06-29 19:09 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/5948378.shtml)
-- 2026-06-29 19:10 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/47808.shtml)
-- 2026-06-29 18:58 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.kurohicncr.top/Article/details/8042092.shtml)
-- 2026-06-29 18:49 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/174377277630.shtml)
-- 2026-06-29 18:44 - [送你一朵小红花](https://www.blog.minike.top/Article/details/5358572571.shtml)
-- 2026-06-29 18:44 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/9467846766.shtml)
-- 2026-06-29 18:53 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/13113171391.shtml)
-- 2026-06-29 18:54 - [1个视频看懂2026志愿填报新专业](https://www.blog.minike.top/Article/details/153476029172.shtml)
-- 2026-06-29 18:53 - [白玉兰答谢宴合影](https://www.blog.minike.top/Article/details/76143291.shtml)
-- 2026-06-29 18:49 - [中国空间站为什么要升级扩容](https://www.share.kurohicncr.top/Article/details/4539799.shtml)
-- 2026-06-29 18:45 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/473774913.shtml)
+- 2026-06-29 18:51 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/9612897.shtml)
+- 2026-06-29 19:04 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/2705115781.shtml)
+- 2026-06-29 18:56 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/2546751193.shtml)
+- 2026-06-29 19:03 - [一见倾心](http://www.share.minike.top/Article/details/9896948022.shtml)
+- 2026-06-29 18:52 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.share.kurohicncr.top/Article/details/30809.shtml)
+- 2026-06-29 19:13 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.kurohicncr.top/Article/details/308308.shtml)
+- 2026-06-29 19:00 - [papi酱在救赎窦文涛](https://www.blog.kurohicncr.top/Article/details/8530947065.shtml)
+- 2026-06-29 18:53 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/3138244673.shtml)
+- 2026-06-29 19:10 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/41668924501.shtml)
+- 2026-06-29 18:53 - [存储三巨头被告了](http://www.share.minike.top/Article/details/423149832.shtml)
+- 2026-06-29 18:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/57435164427.shtml)
+- 2026-06-29 19:11 - [中方向委方追加1亿元援助](https://www.blog.kurohicncr.top/Article/details/942307099.shtml)
+- 2026-06-29 19:10 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/9051356206.shtml)
+- 2026-06-29 18:59 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/2835453446.shtml)
+- 2026-06-29 19:13 - [张雪机车杀向海外](https://www.blog.kurohicncr.top/Article/details/8167507.shtml)

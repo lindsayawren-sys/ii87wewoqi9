@@ -1,57 +1,42 @@
-# 美伊谈判、霍尔木兹海峡，突传大消息！美股拉升！黄金、白银、原油集体走低！
+# 俄罗斯总统普京将对华进行国事访问
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！美伊谈判，传来大消息，美伊协议草案被曝包括“在所有战线实现停火”。5月22日晚间美股拉升，黄金、白银、原油集体走低。 美股三大指数均高开，开盘后集体拉升，截至发稿，纳指涨0.79%，标普500指数涨0.71%，道指涨0.57%。 芯片股表现分化，AMD涨超4%，英特尔涨超1%，闪迪跌超2%，美光科技跌超1%
+外交部发言人宣布： 应国家主席习近平邀请，俄罗斯总统普京将于5月19日至20日对中国进行国事访问。
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
-
-美伊谈判，传来大消息，美伊协议草案被曝包括“在所有战线实现停火”。
-
-5月22日晚间美股拉升，黄金、白银、原油集体走低。
-
-美股三大指数均高开，开盘后集体拉升，截至发稿，纳指涨0.79%，标普500指数涨0.71%，道指涨0.57%。
-
-芯片股表现分化，AMD涨超4%，英特尔涨超1%，闪迪跌超2%，美光科技跌超1%。
-
-中概股方面，纳斯达克中国金龙指数跌超2%。
-
-富途控股跌超27%，老虎证券跌超24%，蔚来跌超7%，理想汽车跌超3%。
-
-国际金银均走低，截至发稿，现货黄金跌近0.6%，现货白银跌逾1%。
+外交部发言人宣布： 应国家主席习近平邀请，俄罗斯总统普京将于5月19日至20日对中国进行国事访问。
 
 ## 相关推荐
 
-- 2026-06-29 18:51 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 19:10 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 18:58 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-29 18:43 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-29 19:09 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 19:00 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 18:45 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 18:58 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 19:06 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-29 19:01 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-29 18:56 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 18:56 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 19:15 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 18:57 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-29 18:55 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-29 19:05 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 18:53 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 19:01 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-29 19:08 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 19:10 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 18:55 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:01 - [让AI做一个账号，它会做成什么样？](http://www.blog.kurohicncr.top/Article/details/31765452.shtml)
-- 2026-06-29 18:51 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/64212.shtml)
-- 2026-06-29 18:58 - [滚石就音乐人屠颖去世事件发声明](https://www.blog.minike.top/Article/details/239260271424.shtml)
-- 2026-06-29 19:08 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/10756764.shtml)
-- 2026-06-29 18:57 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/62249.shtml)
-- 2026-06-29 19:06 - [为何说今日日本似战前日本](https://www.blog.minike.top/Article/details/05793.shtml)
-- 2026-06-29 18:46 - [厨房装空调还是装冷烟机](http://www.share.minike.top/Article/details/105642456.shtml)
-- 2026-06-29 18:42 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/43071264823.shtml)
-- 2026-06-29 18:57 - [王楚钦开门红](http://www.share.minike.top/Article/details/097058377667.shtml)
-- 2026-06-29 18:43 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/1337134296.shtml)
-- 2026-06-29 18:58 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/61624603568.shtml)
-- 2026-06-29 19:10 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/546004479.shtml)
-- 2026-06-29 18:56 - [杨紫视后第一场线下活动](https://www.blog.kurohicncr.top/Article/details/99573.shtml)
-- 2026-06-29 18:56 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/61281585.shtml)
-- 2026-06-29 19:04 - [徐昕暂不参加NBA夏季联赛](https://www.share.minike.top/Article/details/31961687.shtml)
+- 2026-06-29 18:59 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/4093333.shtml)
+- 2026-06-29 18:49 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/533168.shtml)
+- 2026-06-29 19:01 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/70206.shtml)
+- 2026-06-29 19:10 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/423731321.shtml)
+- 2026-06-29 18:50 - [朱必达辞去湖南人大常委会委员职务](https://www.blog.kurohicncr.top/Article/details/2915685.shtml)
+- 2026-06-29 18:57 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/930306.shtml)
+- 2026-06-29 19:00 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/54217.shtml)
+- 2026-06-29 19:07 - [7款高价创新药有望降价](https://www.share.kurohicncr.top/Article/details/50300398227.shtml)
+- 2026-06-29 18:57 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.minike.top/Article/details/159808.shtml)
+- 2026-06-29 18:48 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.minike.top/Article/details/5574295604.shtml)
+- 2026-06-29 19:01 - [欧洲极端高温如何影响家电股](https://www.share.kurohicncr.top/Article/details/4869094060.shtml)
+- 2026-06-29 19:13 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/813238.shtml)
+- 2026-06-29 18:49 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/555296.shtml)
+- 2026-06-29 18:58 - [刘扬任湖南省副省长](https://www.share.minike.top/Article/details/31858713710.shtml)
+- 2026-06-29 18:51 - [世界杯预测史上最不吃压力之物](http://www.blog.minike.top/Article/details/77558604056.shtml)

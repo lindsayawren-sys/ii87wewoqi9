@@ -1,57 +1,49 @@
-# 美国制裁古巴殃及池鱼 加拿大矿企Sherritt因无法提交财报遭监管停牌
+# 复星国际于5月15日斥资818.03万港元回购200万股
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-受美国对古巴扩大制裁影响，加拿大镍钴矿企Sherritt International Corporation无法按期提交一季报，其股票已被监管机构实施停牌。 安大略省证券委员会已于5月21日向Sherritt发出未能提交文件禁止交易令(cease trade order)。该命令禁止任何人在加拿大辖区内交易该公司证券，包括通过多伦多证券交易所进行的交易。 导致停牌的直接原因是公
+复星国际（00656）发布公告，于2026年5月15日斥资818.03万港元回购200万股。责任编辑：卢昱君
 
 ## 正文
 
-受美国对古巴扩大制裁影响，加拿大镍钴矿企Sherritt International Corporation无法按期提交一季报，其股票已被监管机构实施停牌。
+复星国际（00656）发布公告，于2026年5月15日斥资818.03万港元回购200万股。
 
-安大略省证券委员会已于5月21日向Sherritt发出未能提交文件禁止交易令(cease trade order)。
-
-该命令禁止任何人在加拿大辖区内交易该公司证券，包括通过多伦多证券交易所进行的交易。
-
-导致停牌的直接原因是公司未能在5月15日截止日期前提交2026年第一季度财务报表、管理层讨论与分析及相关认证文件。
-
-公司表示，这是由于美国特朗普政府于5月1日签署行政命令、扩大对古巴制裁后，其运营和治理遭受严重冲击所致。
-
-该公司在古巴拥有长达32年的业务，通过Moa合资企业在当地开采镍和钴。
-
-美国制裁导致其业务瘫痪，审计师德勤及首席财务官相继辞职，外部审计师聘任也因制裁受阻。
-
-Sherritt此前还撤回了退出古巴的决定。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 19:04 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 18:42 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-29 18:48 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 18:57 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 18:55 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 19:03 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-29 19:10 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 19:04 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-29 19:01 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-29 19:03 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-29 18:49 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 18:50 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 19:16 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 19:17 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 18:56 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-29 19:02 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-29 18:57 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 18:48 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-29 19:01 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 19:16 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 19:07 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-29 18:53 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 19:02 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 19:14 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 19:06 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 19:17 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:52 - [天柱山回应网红打卡树枝被砍](http://www.blog.minike.top/Article/details/567504.shtml)
-- 2026-06-29 19:03 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/3728223.shtml)
-- 2026-06-29 18:53 - [金刚川](https://www.blog.minike.top/Article/details/83953814.shtml)
-- 2026-06-29 18:58 - [税务总局披露5起合规申报个税案例](https://www.share.minike.top/Article/details/3112731115.shtml)
-- 2026-06-29 19:11 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/0780598.shtml)
-- 2026-06-29 19:07 - [当地回应林区违规放羊遭豹啃食](http://www.share.kurohicncr.top/Article/details/8915988569.shtml)
-- 2026-06-29 18:52 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/632783934.shtml)
-- 2026-06-29 18:47 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/4155626933.shtml)
-- 2026-06-29 19:00 - [小说《无悔追踪》翻红](https://www.blog.minike.top/Article/details/0757996546.shtml)
-- 2026-06-29 19:09 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/1283399902.shtml)
-- 2026-06-29 19:07 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/03313.shtml)
-- 2026-06-29 18:47 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/268026.shtml)
-- 2026-06-29 19:10 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.share.minike.top/Article/details/052505.shtml)
-- 2026-06-29 19:07 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.kurohicncr.top/Article/details/82484930303.shtml)
-- 2026-06-29 18:56 - [2026世界杯谁能一黑到底](https://www.blog.minike.top/Article/details/474302721656.shtml)
+- 2026-06-29 18:56 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/41359654905.shtml)
+- 2026-06-29 19:04 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/425595.shtml)
+- 2026-06-29 18:50 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/8341728196.shtml)
+- 2026-06-29 19:13 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.minike.top/Article/details/0640350852.shtml)
+- 2026-06-29 19:13 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/53031726.shtml)
+- 2026-06-29 18:58 - [《新闻联播》正在直播](https://www.share.minike.top/Article/details/757765.shtml)
+- 2026-06-29 19:08 - [森保一坚信日本能赢巴西](http://www.share.kurohicncr.top/Article/details/8897801.shtml)
+- 2026-06-29 19:01 - [专家预计全球央行加息节奏将出现反复](https://www.blog.minike.top/Article/details/423965445908.shtml)
+- 2026-06-29 18:55 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/17922.shtml)
+- 2026-06-29 18:52 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/0313689022.shtml)
+- 2026-06-29 19:11 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.minike.top/Article/details/7871724772.shtml)
+- 2026-06-29 18:53 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/361583.shtml)
+- 2026-06-29 19:09 - [两老人多次到一洗车店泼粪](https://www.share.kurohicncr.top/Article/details/65581647.shtml)
+- 2026-06-29 18:54 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/5103201040.shtml)
+- 2026-06-29 18:58 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/400749.shtml)

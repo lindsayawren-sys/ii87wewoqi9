@@ -1,57 +1,57 @@
-# 7天“低调”套现19亿，美的“少东家”为何要动“盈峰系长子”？
+# 国家统计局：6月和11月将开展人口固定样本跟访调查
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源 | 野马财经 作者 | 姚悦 营收占比不足2%的业务， 如何撬动百亿市值增长？ 离开美的集团董事席位后，美的集团创始人何享健之子——何剑锋的资本棋局更加凌厉。 不仅先后加注顾家家居（603816.SH）、入股索菲亚（002572.SZ），麾下百纳千成（
+记者从国家统计局了解到，今年，国家统计局将在全国范围内开展两次人口固定样本跟访调查，两次调查的标准时点分别为6月1日零时和11月1日零时。 调查的主要内容包括：调查对象的姓名、性别等基本信息，以及受教育程度、迁移流动情况、工作状况、婚姻状况、生育和死亡情况、儿童生活状况等。调查员将入户开展调查工作，调查结果将有助于加强人口动态监测，服务人口高质量发展。 什么是人口固定样本跟访调
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+记者从国家统计局了解到，今年，国家统计局将在全国范围内开展两次人口固定样本跟访调查，两次调查的标准时点分别为6月1日零时和11月1日零时。
 
-来源 | 野马财经 作者 | 姚悦 营收占比不足2%的业务， 如何撬动百亿市值增长？
+调查的主要内容包括：调查对象的姓名、性别等基本信息，以及受教育程度、迁移流动情况、工作状况、婚姻状况、生育和死亡情况、儿童生活状况等。
 
-离开美的集团董事席位后，美的集团创始人何享健之子——何剑锋的资本棋局更加凌厉。
+调查员将入户开展调查工作，调查结果将有助于加强人口动态监测，服务人口高质量发展。
 
-不仅先后加注顾家家居（603816.SH）、入股索菲亚（002572.SZ），麾下百纳千成（300291.SZ）上演“蛇吞象”。
+什么是人口固定样本跟访调查？
 
-近期，何剑锋还一改过去十年对“盈峰系长子”盈峰环境（000967.SZ）沉稳低调的持股风格，开启快节奏、大规模的减持。
+什么是人口固定样本跟访调查？
 
-营收占比不足2%的算力概念，让环保公司盈峰环境市值一度暴涨超200亿；股价高位之际，何剑锋麾下的“盈峰系”公司7个交易日“低调”套现近19亿。
+它和普通人有什么关系？
 
-而这场资本大戏的真正收尾—— 借股价拉升，盈峰环境可转债强制赎回，化解14.7亿债务，盈峰转债的最后一个转股日定在5月28日。
+一起来了解。
 
-截至5月25日收盘，盈峰环境股价下跌0.46%，报12.92元/股，总市值425亿元。
+人口固定样本跟访调查，顾名思义，这项调查的“调查对象”每年都是基本保持不变的。
 
 ## 相关推荐
 
-- 2026-06-29 18:48 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 18:43 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-29 18:56 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-29 18:49 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-29 19:02 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 19:09 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 18:54 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 19:09 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-29 18:53 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-29 18:58 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 18:55 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-29 18:50 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 19:04 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-29 19:13 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-29 19:01 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 19:06 - [韩国小学生都来吐槽了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 18:54 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 19:14 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 18:48 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 19:17 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-29 19:16 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-29 18:51 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:49 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/78442239.shtml)
-- 2026-06-29 19:03 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/50446949.shtml)
-- 2026-06-29 18:45 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.blog.minike.top/Article/details/8544125.shtml)
-- 2026-06-29 19:02 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/5677387799.shtml)
-- 2026-06-29 19:11 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/015841766468.shtml)
-- 2026-06-29 18:59 - [央视曝光涉黄App诈骗陷阱](https://www.blog.minike.top/Article/details/907389.shtml)
-- 2026-06-29 18:52 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/7507121035.shtml)
-- 2026-06-29 18:57 - [吴建豪和老婆差20岁](https://www.share.kurohicncr.top/Article/details/643269017538.shtml)
-- 2026-06-29 19:04 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/32242.shtml)
-- 2026-06-29 18:53 - [小众羞耻点是吃麻辣烫](https://www.blog.minike.top/Article/details/24684100097.shtml)
-- 2026-06-29 19:04 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/4710325382.shtml)
-- 2026-06-29 19:08 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/610044.shtml)
-- 2026-06-29 19:07 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/771320.shtml)
-- 2026-06-29 18:47 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.minike.top/Article/details/71328.shtml)
-- 2026-06-29 18:47 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/7403396831.shtml)
+- 2026-06-29 19:17 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/6155563345.shtml)
+- 2026-06-29 19:10 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/518228.shtml)
+- 2026-06-29 19:06 - [第一炉香](http://www.share.minike.top/Article/details/6091939.shtml)
+- 2026-06-29 18:50 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/091653111.shtml)
+- 2026-06-29 18:57 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/119886.shtml)
+- 2026-06-29 19:03 - [徐昕暂不参加NBA夏季联赛](http://www.share.minike.top/Article/details/460832323.shtml)
+- 2026-06-29 19:08 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/573733447.shtml)
+- 2026-06-29 19:05 - [逃狱兄弟](https://www.blog.minike.top/Article/details/49193833088.shtml)
+- 2026-06-29 19:04 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/14627451.shtml)
+- 2026-06-29 18:55 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/17049.shtml)
+- 2026-06-29 18:57 - [河南高院审委会原委员曲海滨被查](https://www.blog.minike.top/Article/details/9939476546.shtml)
+- 2026-06-29 19:09 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.share.kurohicncr.top/Article/details/12355.shtml)
+- 2026-06-29 19:06 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.minike.top/Article/details/8859830286.shtml)
+- 2026-06-29 19:14 - [周杰伦演唱会含星量](http://www.blog.kurohicncr.top/Article/details/048868899271.shtml)
+- 2026-06-29 19:06 - [小说《无悔追踪》翻红](https://www.share.minike.top/Article/details/762544485731.shtml)

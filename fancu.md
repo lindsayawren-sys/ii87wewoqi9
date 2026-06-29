@@ -1,54 +1,58 @@
-# 深圳文博会：香港“开箱”湾区文化 澳门“活化”历史资源
+# AI芯片制造商Cerebras Systems IPO估值飙升至近700亿美元
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月25日 10:01 来源：中国新闻网 第二十二届中国(深圳)国际文化产业博览交易会正在深圳举行，香港馆与澳门馆各以“开箱香港”和中西文化共融韵律吸引观众关注。 香港馆将场馆打造成一座立体“城市盲盒”，带来《九龙城寨之围城》3D模型、香港红色“的士”等特色打卡场景，展出黄飞鸿标配狮头等珍稀传统狮头，九个香港品牌及创作单位超百件作品亮相。 香港特区政府文化
+人工智能芯片制造商Cerebras Systems登陆美股上市，IPO募资55亿美元，上市首日股价暴涨超一倍，再度凸显投资者对人工智能及半导体板块的狂热追捧。 尽管这家硅谷科技企业在行业外知名度不高，且几年前还被视作英伟达的二流竞争对手、不被市场看好，但凭借与OpenAI、亚马逊的战略合作，其依然完成了今年规模最大的IPO。 华尔街对此次IPO的热烈反应，只会进一步拉高市场对O
 
 ## 正文
 
-发布时间：2026年05月25日 10:01 来源：中国新闻网 第二十二届中国(深圳)国际文化产业博览交易会正在深圳举行，香港馆与澳门馆各以“开箱香港”和中西文化共融韵律吸引观众关注。
+人工智能芯片制造商Cerebras Systems登陆美股上市，IPO募资55亿美元，上市首日股价暴涨超一倍，再度凸显投资者对人工智能及半导体板块的狂热追捧。
 
-香港馆将场馆打造成一座立体“城市盲盒”，带来《九龙城寨之围城》3D模型、香港红色“的士”等特色打卡场景，展出黄飞鸿标配狮头等珍稀传统狮头，九个香港品牌及创作单位超百件作品亮相。
+尽管这家硅谷科技企业在行业外知名度不高，且几年前还被视作英伟达的二流竞争对手、不被市场看好，但凭借与OpenAI、亚马逊的战略合作，其依然完成了今年规模最大的IPO。
 
-香港特区政府文化体育及旅游局副局长刘震表示，香港与内地文脉同源，近年来已在大湾区以及内地多个城市持续打造民俗文化节、演艺博览会等活动，打造文化互通的平台。
+华尔街对此次IPO的热烈反应，只会进一步拉高市场对OpenAI、Anthropic上市的期待，两家企业最快有望于今年紧随埃隆·马斯克旗下太空探索技术公司SpaceX登陆公开资本市场。
 
-走进澳门馆，人们可以感受中西文化共生共融的独特韵律，近距离体验非遗技艺的匠心传承。
+市场对Cerebras股票需求旺盛，投行多次上调发行指导价。
 
-澳门特区政府文化局局长梁惠敏表示，澳门正积极规划以数字化手段活化传统文化资源。
+公司于周三晚间将IPO发行价定为每股185美元，而本周早些时候其募资目标仅为48亿美元。
 
-她还鼓励青年设计师深耕本土历史文化资源，将特色文化元素转化为大众喜爱的文创产品。
+该股周四午后挂牌交易后，盘中一度飙升至385美元，随后因波动过大触发临时停牌；收盘大涨68%，报收311美元。
 
-(记者 何俊杰 蔡敏婕 广东深圳报道） 责任编辑：【李季】
+Cerebras上市后市值接近700亿美元，体量比肩通用汽车、华纳兄弟探索，同时也与苹果、三星等处于同一层次。
+
+Cerebras早在近两年前就首次递交上市申请。
 
 ## 相关推荐
 
-- 2026-06-29 18:49 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-29 18:54 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 18:50 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-29 18:52 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-29 19:06 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-29 18:56 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-29 18:54 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-29 18:54 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-29 19:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 18:57 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 18:53 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-29 19:14 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 19:08 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-29 18:48 - [货车司机雨中帮交警挪树获表扬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 18:50 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 18:57 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 18:56 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 19:02 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 19:08 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-29 19:08 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 19:12 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 19:07 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:44 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/37456545.shtml)
-- 2026-06-29 18:57 - [穆祉丞东方风云榜红毯](http://www.blog.minike.top/Article/details/430461280.shtml)
-- 2026-06-29 18:46 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.minike.top/Article/details/193805705.shtml)
-- 2026-06-29 18:54 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/811494894225.shtml)
-- 2026-06-29 18:51 - [毒液2](https://www.blog.minike.top/Article/details/2248376738.shtml)
-- 2026-06-29 18:45 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.blog.kurohicncr.top/Article/details/802803145250.shtml)
-- 2026-06-29 18:45 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/23777538105.shtml)
-- 2026-06-29 18:50 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.kurohicncr.top/Article/details/573792.shtml)
-- 2026-06-29 19:07 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/53501654208.shtml)
-- 2026-06-29 19:11 - [中方绝不允许日菲侵害我海洋权益](https://www.share.kurohicncr.top/Article/details/921525119853.shtml)
-- 2026-06-29 18:55 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/91088437.shtml)
-- 2026-06-29 18:50 - [博主：AI泡沫必须破灭](http://www.blog.minike.top/Article/details/3354583.shtml)
-- 2026-06-29 18:56 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.kurohicncr.top/Article/details/439339785.shtml)
-- 2026-06-29 18:51 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/186065.shtml)
-- 2026-06-29 18:50 - [《新闻联播》正在直播](http://www.share.minike.top/Article/details/29818.shtml)
+- 2026-06-29 18:58 - [NBA交易](https://www.share.kurohicncr.top/Article/details/2776853.shtml)
+- 2026-06-29 19:04 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/32901791697.shtml)
+- 2026-06-29 18:56 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/114008048.shtml)
+- 2026-06-29 18:54 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/14780938310.shtml)
+- 2026-06-29 18:58 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/48917.shtml)
+- 2026-06-29 19:05 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/38832165.shtml)
+- 2026-06-29 19:04 - [胡光宇一审获刑13年](https://www.blog.kurohicncr.top/Article/details/396954905.shtml)
+- 2026-06-29 18:48 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/01533273797.shtml)
+- 2026-06-29 18:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/43723.shtml)
+- 2026-06-29 19:07 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/907394562.shtml)
+- 2026-06-29 19:10 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/64833453.shtml)
+- 2026-06-29 19:12 - [世界杯在中国观看最多的比赛](http://www.share.kurohicncr.top/Article/details/240361.shtml)
+- 2026-06-29 19:07 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.minike.top/Article/details/719942.shtml)
+- 2026-06-29 19:00 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/6856824789.shtml)
+- 2026-06-29 19:17 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/6647360.shtml)

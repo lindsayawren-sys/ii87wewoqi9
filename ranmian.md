@@ -1,60 +1,46 @@
-# 日本自民党成立新议员联盟：右翼力量集结或加速国家右倾化
+# 中天策略:5月15日市场分析
 
-> 更新时间：2026-06-29 19:12:02 UTC+8
+> 更新时间：2026-06-29 19:18:03 UTC+8
 
 ## 摘要
 
-21日，日本执政党自民党的部分议员成立了一个新的议员联盟“国力研究会”，并于当天举行了首次会议。在日本国会众参两院的共417名自民党籍议员中，包括阁僚和自民党高层在内共有347人加入该联盟。 分析称，自民党内成立该议员联盟，表面上的目的是“加强政府与执政党的协作”，而背后的真实意图却是强化原本没有派系背景的日本首相、自民党总裁高市在自民党内的根基，力争在明年9月总裁任满后实现“
+责任编辑：陈平
 
 ## 正文
 
-21日，日本执政党自民党的部分议员成立了一个新的议员联盟“国力研究会”，并于当天举行了首次会议。
-
-在日本国会众参两院的共417名自民党籍议员中，包括阁僚和自民党高层在内共有347人加入该联盟。
-
-分析称，自民党内成立该议员联盟，表面上的目的是“加强政府与执政党的协作”，而背后的真实意图却是强化原本没有派系背景的日本首相、自民党总裁高市在自民党内的根基，力争在明年9月总裁任满后实现“无投票连任”。
-
-21日，“国力研究会”在日本国会内举行首次会议，超过200名国会议员出席。
-
-会议决定，由领导自民党内唯一派系“麻生派”的自民党副总裁麻生太郎担任最高顾问，前日本财务大臣加藤胜信担任会长，已解散的“安倍派”原骨干萩生田光一担任干事长，日本内阁官房长官木原稔担任事务总长。
-
-高市本人未出席会议。
-
-萩生田光一在会议上宣称，必须正面应对修宪以及日本防卫态势等问题。
-
-该联盟此前在发给议员的邀请函中称，日本当前需要的是“政府与执政党的务实合作”，称自民党全党内应保持一致，执行政策。
+责任编辑：陈平
 
 ## 相关推荐
 
-- 2026-06-29 18:59 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-29 18:56 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-29 18:51 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-29 19:10 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 19:05 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-29 19:05 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 18:48 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-29 19:11 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-29 19:02 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-29 18:51 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-29 19:09 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-29 19:06 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-29 19:00 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 18:42 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 19:07 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 18:54 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 19:15 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 19:06 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 19:03 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-29 19:15 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-29 19:03 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-29 19:12 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-29 19:01 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 19:17 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 19:12 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-29 19:01 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 18:49 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 18:56 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:48 - [极限挑战第一季](https://www.share.minike.top/Article/details/21553013783.shtml)
-- 2026-06-29 19:00 - [虞书欣好辣的剧宣](https://www.share.kurohicncr.top/Article/details/31176927235.shtml)
-- 2026-06-29 18:49 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/4680711680.shtml)
-- 2026-06-29 18:49 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/10438.shtml)
-- 2026-06-29 19:08 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/71224845494.shtml)
-- 2026-06-29 18:45 - [大马同意延长马航370残骸搜寻工作](https://www.blog.minike.top/Article/details/48176.shtml)
-- 2026-06-29 18:54 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/43152004981.shtml)
-- 2026-06-29 18:58 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.kurohicncr.top/Article/details/555559.shtml)
-- 2026-06-29 19:01 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/8030649.shtml)
-- 2026-06-29 18:49 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/91608511.shtml)
-- 2026-06-29 18:46 - [第一炉香](https://www.share.minike.top/Article/details/63197.shtml)
-- 2026-06-29 19:11 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/70056291.shtml)
-- 2026-06-29 18:57 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.minike.top/Article/details/623326957663.shtml)
-- 2026-06-29 18:51 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.kurohicncr.top/Article/details/40158942666.shtml)
-- 2026-06-29 18:42 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/48071479.shtml)
+- 2026-06-29 19:09 - [拍到真的赛博朋克边缘行者了！](https://www.share.minike.top/Article/details/99782267.shtml)
+- 2026-06-29 19:05 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/26654654096.shtml)
+- 2026-06-29 19:13 - [曝屠颖去世和酒店失责有关](http://www.blog.kurohicncr.top/Article/details/78121971.shtml)
+- 2026-06-29 18:58 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/2905322876.shtml)
+- 2026-06-29 18:56 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.minike.top/Article/details/530924513045.shtml)
+- 2026-06-29 19:13 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/420967.shtml)
+- 2026-06-29 19:13 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.minike.top/Article/details/2072720943.shtml)
+- 2026-06-29 19:04 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/832582096.shtml)
+- 2026-06-29 19:01 - [河南高院审委会原委员曲海滨被查](https://www.share.kurohicncr.top/Article/details/610640.shtml)
+- 2026-06-29 19:01 - [白玉兰答谢宴合影](http://www.share.kurohicncr.top/Article/details/2182802782.shtml)
+- 2026-06-29 18:56 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/9580903364.shtml)
+- 2026-06-29 18:59 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/651199538178.shtml)
+- 2026-06-29 19:01 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.kurohicncr.top/Article/details/05320415.shtml)
+- 2026-06-29 18:49 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/40812315.shtml)
+- 2026-06-29 18:52 - [许建琼任湖南省检察院副检察长](http://www.share.minike.top/Article/details/30456.shtml)
