@@ -1,60 +1,58 @@
-# 陈果拆解“J曲线”：AI革命第一波炒基建 下游才是长跑冠军 “醉了容易高点被套”
+# 再生元与特朗普达成药品定价协议，免费提供全新耳聋基因疗法
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月26日，当前AI进入哪个阶段？当前与1999年有哪些可比与不可比之处？下半年该如何配置？新浪证券对话东方财富证券研究所副所长、首席策略官陈果为投资者深度解析>>点击查看视频直播 陈果表示，我们现在看到的一些指标，和2000年互联网牛市顶部的时候是接近的，有些指标甚至已经超过了。所以我认为，至少对于美股来
+白宫于周四宣布，再生元制药（Regeneron）已与美国总统特朗普达成合作协议，为美国部分民众下调药品价格。 就在本周四早些时候，该公司这款全新疗法刚刚获得监管机构批准；此后，再生元承诺，将为符合申领条件的美国患者免费提供全球首款遗传性耳聋基因疗法。 再生元是接连与特朗普政府达成定价协议的大型药企中最新的一家。特朗普政府的整套协议体系围绕最惠国待遇政策展开，目标是让美国处方药价
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+白宫于周四宣布，再生元制药（Regeneron）已与美国总统特朗普达成合作协议，为美国部分民众下调药品价格。
 
-5月26日，当前AI进入哪个阶段？
+就在本周四早些时候，该公司这款全新疗法刚刚获得监管机构批准；此后，再生元承诺，将为符合申领条件的美国患者免费提供全球首款遗传性耳聋基因疗法。
 
-当前与1999年有哪些可比与不可比之处？
+再生元是接连与特朗普政府达成定价协议的大型药企中最新的一家。
 
-下半年该如何配置？
+特朗普政府的整套协议体系围绕最惠国待遇政策展开，目标是让美国处方药价格看齐全球其他发达国家的最低水平。
 
-新浪证券对话东方财富证券研究所副所长、首席策略官陈果为投资者深度解析>>点击查看视频直播 陈果表示，我们现在看到的一些指标，和2000年互联网牛市顶部的时候是接近的，有些指标甚至已经超过了。
+作为协议交换条件，美国将给予这些药企为期三年的关税豁免，包括特朗普此前计划对部分药品征收、最高达 100% 的关税。
 
-所以我认为，至少对于美股来说，现在去谈论泡沫的风险是合理的。
+美国医疗保障与医疗补助服务中心（CMS）副主任克里斯・克隆普在白宫活动上表示，特朗普政府目前已敲定 17 份此类协议，同时仍在与其他生物科技、制药企业洽谈更多合作。
 
-但是，精准预判泡沫什么时候破灭——没有一个统一的方法。
+再生元达成此项协议的数小时前，美国食品药品监督管理局（FDA）刚刚批准了该公司的基因疗法奥塔美尼（Otarmeni），该疗法可帮助少数失聪儿童恢复听力。
 
-即使我们不做海外投资、只关注A股，也要对外部的波动风险保持警惕和关注。
+这款疗法借助美国食品药品监督管理局旗下所谓的国家优先凭证计划获得了加速审批。
 
 ## 相关推荐
 
-- 2026-06-30 04:36 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-30 04:35 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-30 04:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-30 04:32 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-30 04:41 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-30 04:47 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-30 04:28 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-30 04:41 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 04:28 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-30 04:47 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-30 04:23 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-30 04:24 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-30 04:45 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-30 04:36 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-30 04:37 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-30 04:36 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 04:26 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-30 04:26 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-30 04:26 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-30 04:27 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-30 04:33 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-30 04:46 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-30 04:30 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-30 04:45 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 04:35 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-30 04:28 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:45 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/30548333.shtml)
-- 2026-06-30 04:30 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/96516588296.shtml)
-- 2026-06-30 04:47 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/6516267.shtml)
-- 2026-06-30 04:46 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/7641342594.shtml)
-- 2026-06-30 04:27 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/604036367320.shtml)
-- 2026-06-30 04:38 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/90966969.shtml)
-- 2026-06-30 04:43 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.minike.top/Article/details/3502591.shtml)
-- 2026-06-30 04:26 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/7774317.shtml)
-- 2026-06-30 04:26 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/0967536.shtml)
-- 2026-06-30 04:25 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/89527730.shtml)
-- 2026-06-30 04:34 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/7040828.shtml)
-- 2026-06-30 04:33 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/53458.shtml)
-- 2026-06-30 04:28 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/45833652783.shtml)
-- 2026-06-30 04:36 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/030577342692.shtml)
-- 2026-06-30 04:43 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/78252438.shtml)
+- 2026-06-30 04:44 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/7051141140.shtml)
+- 2026-06-30 04:27 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/08029553060.shtml)
+- 2026-06-30 04:44 - [巴西2-1绝杀日本](http://www.share.minike.top/Article/details/118859.shtml)
+- 2026-06-30 04:32 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/3661544007.shtml)
+- 2026-06-30 04:36 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/8429979037.shtml)
+- 2026-06-30 04:44 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/58720.shtml)
+- 2026-06-30 04:30 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/0416500571.shtml)
+- 2026-06-30 04:39 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/087554357631.shtml)
+- 2026-06-30 04:45 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/714560.shtml)
+- 2026-06-30 04:34 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/801702687.shtml)
+- 2026-06-30 04:29 - [巴西醒醒 这是淘汰赛](http://www.share.minike.top/Article/details/26418969609.shtml)
+- 2026-06-30 04:45 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/262457346196.shtml)
+- 2026-06-30 04:40 - [周生如故](http://www.blog.kurohicncr.top/Article/details/78652763945.shtml)
+- 2026-06-30 04:26 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/806674354.shtml)
+- 2026-06-30 04:24 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/85831738870.shtml)

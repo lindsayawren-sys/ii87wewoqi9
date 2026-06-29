@@ -1,61 +1,59 @@
-# 苏大维格（300331）投资者索赔案倒计时三个月，前期已有胜诉
+# 原油市场遭遇“双重压力测试”！交易者如何应对？
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-上海久诚律师事务所股票索赔律师许峰提示，苏大维格（维权）（300331）虚假陈述投资者索赔案已经进入最后三个月倒计时，前期已有投资者胜诉，“过期作废”。（许峰律师专栏） 此前法院已对苏大维格投资者索赔案作出两审判决，法院判决被告苏大维格在判决生效后向投资者赔偿核定损失，符合条件的投资者还可发起索赔。 此前2023年12月29日，苏大维格公告收到江苏证监局下发的《行政处罚决定书》
+文章来源：期货日报 今年以来，国际原油市场正经历一场前所未有的“双重压力测试”。一方面，国际能源署（IEA）近日发布了自2020年以来最悲观的供需预测，全球石油需求6年来首次下降；另一方面，中东地缘冲突导致霍尔木兹海峡近乎“断流”，原油供应受阻。在供需同时遭受剧烈冲击的背景下，如何把握大国博弈的底层逻辑，厘清原油市场的运行脉络？4月22日，期货日报打造的深度对话直播栏目“期货相
 
 ## 正文
 
-上海久诚律师事务所股票索赔律师许峰提示，苏大维格（维权）（300331）虚假陈述投资者索赔案已经进入最后三个月倒计时，前期已有投资者胜诉，“过期作废”。
+文章来源：期货日报 今年以来，国际原油市场正经历一场前所未有的“双重压力测试”。
 
-（许峰律师专栏） 此前法院已对苏大维格投资者索赔案作出两审判决，法院判决被告苏大维格在判决生效后向投资者赔偿核定损失，符合条件的投资者还可发起索赔。
+一方面，国际能源署（IEA）近日发布了自2020年以来最悲观的供需预测，全球石油需求6年来首次下降；另一方面，中东地缘冲突导致霍尔木兹海峡近乎“断流”，原油供应受阻。
 
-此前2023年12月29日，苏大维格公告收到江苏证监局下发的《行政处罚决定书》，经查明，当事人存在以下违法事实： 2023年9月14日12时25分，苏大维格在深交所互动易平台（以下简称互动易）对投资者前期关于“贵司光刻机及相关技术有哪些知名企业在使用”的提问，回复称“公司光刻机已实现向国内龙头芯片企业的销售，并已实现向日本韩国、以色列等国家的出口；同时，公司向国内相关芯片光刻机厂商提供了定位光栅尺部件”。
+在供需同时遭受剧烈冲击的背景下，如何把握大国博弈的底层逻辑，厘清原油市场的运行脉络？
 
-公司前述回复发布后，下午开盘后公司股价快速由跌转涨，最终收盘上涨20%。
+4月22日，期货日报打造的深度对话直播栏目“期货相对论”详细讲解了原油市场的交易新逻辑。
 
-公司前述回复所称已实现销售和出口的“光刻机”实际为用于制造微纳光学材料、掩膜等的直写光刻设备，而非用于芯片制造的光刻机，该“光刻机”与回复中所称的“芯片光刻机”存在显著差异。
+能源行业战略顾问吴世平表示，当前，原油市场供需双弱，处于相对平衡的状态，难以出现“大牛市”，但足以支撑价格在高位震荡。
 
-公司未能准确、完整地披露公司销售的光刻设备的种类和具体应用领域，且在回复中将“光刻机”和“芯片光刻机”并用，具有误导性。
+此外，考虑到美国战略目标并未完成，特朗普政府“克制下的激进”状态不会轻易结束，即便美伊谈判出现阶段性进展，地缘冲突风险也不会完全消失，建议交易者从全球战略维度把握原油市场运行脉络。
 
-专门从事股票索赔法律事务的上海久诚律师事务所主任许峰律师认为，根据前期投资者胜诉判决，在2023年9月14日下午买入苏大维格股票，并在2023年9月15日后卖出或继续持有股票的投资者，目前还可发起索赔。
+“具体来说，当前，特朗普政府的中东战略呈现由地区安全格局、盟友需求及对外决策机制共同塑造的一种‘克制下的激进’状态。
 
-（苏大维格维权入口） （本文由许峰律师供稿，不代表新浪财经立场。
+总体而言，美国倾向于减少对中东地区的战略资源投入，但随着总统权力集中、制度化制约减弱，美国反而可能采取更高烈度但范围较小的军事行动。
 
 ## 相关推荐
 
-- 2026-06-30 04:28 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-30 04:36 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-30 04:38 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-30 04:33 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 04:36 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-30 04:20 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-30 04:40 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-30 04:33 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-30 04:40 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-30 04:38 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-30 04:42 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-30 04:34 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-30 04:36 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-30 04:35 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-30 04:45 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-30 04:45 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-30 04:49 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-30 04:43 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 04:41 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 04:24 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-30 04:51 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-30 04:31 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 04:34 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-30 04:47 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-30 04:36 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-30 04:33 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-30 04:49 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-30 04:50 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:36 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/1880798506.shtml)
-- 2026-06-30 04:32 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.minike.top/Article/details/421465401636.shtml)
-- 2026-06-30 04:27 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/7803520428.shtml)
-- 2026-06-30 04:33 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/28393011.shtml)
-- 2026-06-30 04:22 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/4067719.shtml)
-- 2026-06-30 04:46 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/475142930237.shtml)
-- 2026-06-30 04:40 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/47402.shtml)
-- 2026-06-30 04:19 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/84000429.shtml)
-- 2026-06-30 04:42 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/369518500.shtml)
-- 2026-06-30 04:36 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/8632882.shtml)
-- 2026-06-30 04:43 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/373159837001.shtml)
-- 2026-06-30 04:45 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/11100412996.shtml)
-- 2026-06-30 04:20 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/77331.shtml)
-- 2026-06-30 04:34 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/6770943.shtml)
-- 2026-06-30 04:21 - [毒液2](http://www.blog.kurohicncr.top/Article/details/8657160750.shtml)
+- 2026-06-30 04:41 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/629388492.shtml)
+- 2026-06-30 04:45 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/0075930805.shtml)
+- 2026-06-30 04:52 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/897838135372.shtml)
+- 2026-06-30 04:40 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/49945836.shtml)
+- 2026-06-30 04:35 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/942456364.shtml)
+- 2026-06-30 04:38 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/719283892271.shtml)
+- 2026-06-30 04:45 - [官方：建立健全学龄人口预测预警机制](https://www.blog.minike.top/Article/details/629324457.shtml)
+- 2026-06-30 04:44 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/341955.shtml)
+- 2026-06-30 04:41 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/248652016405.shtml)
+- 2026-06-30 04:27 - [美人鱼](http://www.blog.minike.top/Article/details/40348.shtml)
+- 2026-06-30 04:26 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/836821.shtml)
+- 2026-06-30 04:46 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/33701459.shtml)
+- 2026-06-30 04:53 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/3707864.shtml)
+- 2026-06-30 04:52 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/4173352.shtml)
+- 2026-06-30 04:29 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/9159619.shtml)

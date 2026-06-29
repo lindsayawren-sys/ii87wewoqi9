@@ -1,58 +1,60 @@
-# 被滥用的“减肥神药”
+# 香港追责！13 亿港元天价罚单，普华永道为恒大财务造假担责！
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-中国新闻周刊记者：孙厚铭 发于2026.5.25总第1236期《中国新闻周刊》杂志 不到三周，王璐瘦了16斤。虽然减肥成功，但身体却透支了。 30岁的王璐家住云南，婚礼定在今年8月。靠着运动和节食，她减肥几个月，体重却始终卡在114斤左右。对于身高近1.6米的她来说，这已是非常正常的体重。为了在婚礼前瘦到105斤，4月末，她在某电商平台下单了替尔泊肽减肥针。社交媒体上，这类药物
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月23日，香港证监会与香港会财局同步发布处置结果，针对普华永道在中国恒大2019—2020财年审计中的严重失职行为，作出股东赔偿、高额罚款、执业限制、个人追责的组合式处罚。 普华永道同意预留10亿港元专项赔偿恒大独立少数股东，同时被会财局处以3亿港元罚款、6个月执业限制，两名前合伙人合计被罚1000万港元
 
 ## 正文
 
-中国新闻周刊记者：孙厚铭 发于2026.5.25总第1236期《中国新闻周刊》杂志 不到三周，王璐瘦了16斤。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-虽然减肥成功，但身体却透支了。
+4月23日，香港证监会与香港会财局同步发布处置结果，针对普华永道在中国恒大2019—2020财年审计中的严重失职行为，作出股东赔偿、高额罚款、执业限制、个人追责的组合式处罚。
 
-30岁的王璐家住云南，婚礼定在今年8月。
+普华永道同意预留10亿港元专项赔偿恒大独立少数股东，同时被会财局处以3亿港元罚款、6个月执业限制，两名前合伙人合计被罚1000万港元。
 
-靠着运动和节食，她减肥几个月，体重却始终卡在114斤左右。
+一、香港证监会：10亿港元专项赔偿，恒大财报造假数据曝光 普华永道为中国恒大2019、2020财年的审计机构，香港证监会调查确认，恒大这两个年度财报存在重大虚假及误导性信息，违规提前确认物业销售收入，大幅夸大收入与利润。
 
-对于身高近1.6米的她来说，这已是非常正常的体重。
+经核实，恒大2019财年经审核收入被夸大2139亿元，虚增44.79%；2020财年被夸大收入3502亿元，虚增69.03%。
 
-为了在婚礼前瘦到105斤，4月末，她在某电商平台下单了替尔泊肽减肥针。
+对应利润由原本披露的盈利335亿元、314亿元，转为实际亏损71.2亿元、199亿元。
 
-社交媒体上，这类药物常被称为“减肥神药”。
+依据协议，普华永道在不承认法律责任前提下，预留10亿港元由独立管理人监督，专项赔付恒大的合资格独立少数股东，履行完毕后证监会不再采取进一步行动。
 
-注射两针后，王璐没有明显反应。
+二、香港会财局：3亿罚款+6个月执业限制，个人同遭追责 香港会财局认定，普华永道在恒大集团、恒大物业、恒大汽车2019—2020年度审计中存在系统性严重缺失：未保持专业怀疑、审计独立性失守、缺乏充分证据仍出具无保留意见、内部管控存在重大缺陷，间接助长恒大财务造假。
 
 ## 相关推荐
 
-- 2026-06-30 04:35 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-30 04:19 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-30 04:31 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-30 04:42 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 04:40 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-30 04:44 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-30 04:39 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 04:32 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-30 04:21 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-30 04:30 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-30 04:39 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-30 04:31 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-30 04:27 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-30 04:47 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 04:24 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-30 04:42 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 04:45 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-30 04:31 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-30 04:39 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 04:27 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-30 04:29 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 04:40 - [内马尔替补](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-30 04:49 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-30 04:46 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-30 04:46 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-30 04:50 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:47 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/9970131.shtml)
-- 2026-06-30 04:41 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/997498610.shtml)
-- 2026-06-30 04:46 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/53229701.shtml)
-- 2026-06-30 04:21 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/220271.shtml)
-- 2026-06-30 04:38 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/304060.shtml)
-- 2026-06-30 04:29 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/137390.shtml)
-- 2026-06-30 04:37 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/6023985534.shtml)
-- 2026-06-30 04:20 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/506528419613.shtml)
-- 2026-06-30 04:30 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/3501994.shtml)
-- 2026-06-30 04:35 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/049158700776.shtml)
-- 2026-06-30 04:39 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/164354.shtml)
-- 2026-06-30 04:41 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/746434974.shtml)
-- 2026-06-30 04:31 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/54265814.shtml)
-- 2026-06-30 04:35 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/15265.shtml)
-- 2026-06-30 04:46 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/4274753731.shtml)
+- 2026-06-30 04:41 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/7907395951.shtml)
+- 2026-06-30 04:38 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/9309466.shtml)
+- 2026-06-30 04:52 - [刘念回应](http://www.share.kurohicncr.top/Article/details/523896272203.shtml)
+- 2026-06-30 04:43 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/817319.shtml)
+- 2026-06-30 04:44 - [美股](https://www.blog.kurohicncr.top/Article/details/40668323.shtml)
+- 2026-06-30 04:37 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/17995453.shtml)
+- 2026-06-30 04:34 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/2362722.shtml)
+- 2026-06-30 04:39 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/851257022308.shtml)
+- 2026-06-30 04:29 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/44036010.shtml)
+- 2026-06-30 04:30 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/19703474142.shtml)
+- 2026-06-30 04:24 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/48647.shtml)
+- 2026-06-30 04:46 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/47000933.shtml)
+- 2026-06-30 04:42 - [月亮](https://www.blog.kurohicncr.top/Article/details/3714075.shtml)
+- 2026-06-30 04:48 - [德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/459790108.shtml)
+- 2026-06-30 04:44 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/90802480970.shtml)

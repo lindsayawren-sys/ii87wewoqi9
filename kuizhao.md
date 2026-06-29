@@ -1,50 +1,57 @@
-# 渤海人寿：市场化公开选聘总经理
+# 去年破获侵权假冒犯罪案件1093起 山西全链条打击知识产权侵权
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-5月25日金融一线消息，渤海人寿今日发布《关于公开选聘渤海人寿保险股份有限公司总经理的公告》，市场化公开选聘总经理。选聘资格要求为：具有大学本科以上学历或者学士以上学位。具有金融工作经历8年以上或者经济工作经历10年以上（其中金融工作经历不得少于5年），并且具有下列任职经历之一：担任保险公司省级分公司总经理以上职务高级管理人员5年以上；担任保险公司部门主要负责人5年以上；担任金
+中新网太原4月23日电 (记者 杨杰英)4月23日，山西省知识产权工作新闻发布会在太原举行。来自公安、检察、海关等部门的负责人介绍，2025年山西共破获侵犯知识产权和制售伪劣商品刑事案件1093起，查扣侵权商品1096件。在对假冒“山西老陈醋”案件的办理中，检察机关追索惩罚性赔偿金350余万元。 针对“汾酒”“宁化府”等老字号以及“山西老陈醋”“大同黄花”“沁州黄小米”等地理标
 
 ## 正文
 
-5月25日金融一线消息，渤海人寿今日发布《关于公开选聘渤海人寿保险股份有限公司总经理的公告》，市场化公开选聘总经理。
+中新网太原4月23日电 (记者 杨杰英)4月23日，山西省知识产权工作新闻发布会在太原举行。
 
-选聘资格要求为：具有大学本科以上学历或者学士以上学位。
+来自公安、检察、海关等部门的负责人介绍，2025年山西共破获侵犯知识产权和制售伪劣商品刑事案件1093起，查扣侵权商品1096件。
 
-具有金融工作经历8年以上或者经济工作经历10年以上（其中金融工作经历不得少于5年），并且具有下列任职经历之一：担任保险公司省级分公司总经理以上职务高级管理人员5年以上；担任保险公司部门主要负责人5年以上；担任金融监管机构相当管理职务5年以上；具有10年以上金融工作经历且其中保险业工作经历不少于2年，并担任国家机关、大中型企业相当管理职务5年以上的，可以不受上述关于任职经历的限制。
+在对假冒“山西老陈醋”案件的办理中，检察机关追索惩罚性赔偿金350余万元。
 
-年龄原则上不超过55周岁。
+针对“汾酒”“宁化府”等老字号以及“山西老陈醋”“大同黄花”“沁州黄小米”等地理标志产品，山西实施了最为严格的保护。
 
-责任编辑：秦艺
+山西省人民检察院副检察长史海东介绍，在“护航三晋品牌”检察监督专项行动中，检察机关统筹运用刑事、民事、行政、公益诉讼“四大检察”职能，为特色产业筑牢司法屏障。
+
+特别是在依法惩治假冒老陈醋犯罪方面，检察机关办理刑事附带民事公益诉讼案件8件，追索惩罚性赔偿金350余万元。
+
+在民事审判领域，山西省高级人民法院副院长张建康透露，法院依法认定“龟龄集”为非注册驰名商标，全面加强对驰名商标、传统品牌和老字号的司法保护。
+
+同时，法院系统持续深化非正常批量诉讼突出问题专项治理，严厉规制将诉讼作为牟利手段的商业维权行为，引导权利人依法正当维权、诚信诉讼。
 
 ## 相关推荐
 
-- 2026-06-30 04:22 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-30 04:29 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-30 04:20 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-30 04:31 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-30 04:28 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-30 04:28 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-30 04:30 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-30 04:18 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-30 04:31 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 04:45 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 04:41 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 04:40 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-30 04:50 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-30 04:48 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-30 04:37 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-30 04:44 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-30 04:40 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-30 04:38 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 04:47 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-30 04:27 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-30 04:24 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:18 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/45052658408.shtml)
-- 2026-06-30 04:44 - [日本领先巴西](https://www.share.minike.top/Article/details/3278221.shtml)
-- 2026-06-30 04:31 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/20080644.shtml)
-- 2026-06-30 04:29 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/846220.shtml)
-- 2026-06-30 04:37 - [斛珠夫人](http://www.share.minike.top/Article/details/72279697.shtml)
-- 2026-06-30 04:32 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/71794827530.shtml)
-- 2026-06-30 04:33 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/33409424.shtml)
-- 2026-06-30 04:23 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/220217750961.shtml)
-- 2026-06-30 04:20 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/38190002.shtml)
-- 2026-06-30 04:36 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/60914922532.shtml)
-- 2026-06-30 04:30 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/261906216610.shtml)
-- 2026-06-30 04:27 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/54510679.shtml)
-- 2026-06-30 04:21 - [沙丘](http://www.share.minike.top/Article/details/605542.shtml)
-- 2026-06-30 04:39 - [周生如故](https://www.blog.kurohicncr.top/Article/details/4550163.shtml)
-- 2026-06-30 04:22 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/79582.shtml)
+- 2026-06-30 04:34 - [沙丘](http://www.blog.minike.top/Article/details/1265839.shtml)
+- 2026-06-30 04:27 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/260573.shtml)
+- 2026-06-30 04:42 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/48104772.shtml)
+- 2026-06-30 04:34 - [本西奇成本届温网女单首位晋级球员](http://www.share.kurohicncr.top/Article/details/3330155081.shtml)
+- 2026-06-30 04:48 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/068855.shtml)
+- 2026-06-30 04:25 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/684019946.shtml)
+- 2026-06-30 04:24 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/415109443888.shtml)
+- 2026-06-30 04:51 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/425332179853.shtml)
+- 2026-06-30 04:43 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/945746.shtml)
+- 2026-06-30 04:33 - [千与千寻](http://www.share.kurohicncr.top/Article/details/077719341714.shtml)
+- 2026-06-30 04:38 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/070137427220.shtml)
+- 2026-06-30 04:34 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/799752035447.shtml)
+- 2026-06-30 04:29 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/817617.shtml)
+- 2026-06-30 04:44 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/77309527776.shtml)
+- 2026-06-30 04:28 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/6924358.shtml)

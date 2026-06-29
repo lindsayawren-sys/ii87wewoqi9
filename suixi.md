@@ -1,53 +1,58 @@
-# 青海上调医用耗材医保支付限额标准至12万元
+# 酒价内参4月24日价格发布：飞天强势上涨 总价高位小幅回落
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-中新网西宁5月26日电 (记者 孙睿)青海省医疗保障局26日消息，该局将于2026年6月1日起，将职工、居民医保医用耗材最高支付限额统一提高至12万元，进一步减轻民众就医耗材费用负担。 据介绍，调整前，青海各市州职工医保医用耗材报销最高限额为7万元至9万元，居民医保最高限额为5万元。 本次政策调整均衡青海省医保保障水平，显著降低疑难重症患者医用耗材个人支出压力。 同时，进一步支
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月24日整体小幅回落。如果主要单品各取一瓶整体打包售卖，今日总售价为9919元，较昨日下跌9元，自高位小幅回落。市场连续四日持续上涨后出现调整，终端交投情绪保持平稳，但核心单品涨跌分化依然显著。 今日白酒市场11大单品五涨六跌，输家略
 
 ## 正文
 
-中新网西宁5月26日电 (记者 孙睿)青海省医疗保障局26日消息，该局将于2026年6月1日起，将职工、居民医保医用耗材最高支付限额统一提高至12万元，进一步减轻民众就医耗材费用负担。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月24日整体小幅回落。
 
-据介绍，调整前，青海各市州职工医保医用耗材报销最高限额为7万元至9万元，居民医保最高限额为5万元。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9919元，较昨日下跌9元，自高位小幅回落。
 
-本次政策调整均衡青海省医保保障水平，显著降低疑难重症患者医用耗材个人支出压力。
+市场连续四日持续上涨后出现调整，终端交投情绪保持平稳，但核心单品涨跌分化依然显著。
 
-同时，进一步支撑医疗机构开展复杂诊疗服务，提升全省重症救治能力和整体医疗服务水平，以精准医保惠民举措持续增进民众健康福祉。
+今日白酒市场11大单品五涨六跌，输家略占上风。
 
-(完)
+上涨方面，贵州茅台飞天酒的涨幅居前，环比大幅上涨16元/瓶，创4月1日以来最大涨幅，重返1730元关口上方；洋河梦之蓝M6+上涨3元/瓶；贵州茅台精品酒、五粮液1618及青花汾20均小幅上涨1元/瓶。
+
+下跌方面，习酒君品跌幅居前，下跌10元/瓶，前一日该酒品创下近一个月新高后今天明显回落；国窖1573下跌6元/瓶，连续第二天大幅回调；古井贡古20与青花郎均下跌5元/瓶，其中青花郎再度回到700元下方；五粮液普五八代下跌3元/瓶；水晶剑南春小幅回落2元/瓶。
+
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+
+随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
 
 ## 相关推荐
 
-- 2026-06-30 04:47 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-30 04:21 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-30 04:19 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-30 04:22 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 04:28 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-30 04:42 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-30 04:22 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-30 04:29 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-30 04:43 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-30 04:21 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-30 04:44 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-30 04:44 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-30 04:46 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-30 04:44 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 04:44 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-30 04:33 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-30 04:41 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-30 04:32 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-30 04:31 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-30 04:46 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-30 04:29 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-30 04:24 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-30 04:36 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-30 04:44 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-30 04:52 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:46 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/00851297148.shtml)
-- 2026-06-30 04:42 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/163058.shtml)
-- 2026-06-30 04:36 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/0902898.shtml)
-- 2026-06-30 04:33 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/683958.shtml)
-- 2026-06-30 04:33 - [庆祝中国共产党成立105周年音乐会](http://www.blog.kurohicncr.top/Article/details/68971.shtml)
-- 2026-06-30 04:20 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.minike.top/Article/details/988953.shtml)
-- 2026-06-30 04:35 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/521411910161.shtml)
-- 2026-06-30 04:38 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/867406870293.shtml)
-- 2026-06-30 04:20 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/638273.shtml)
-- 2026-06-30 04:41 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/56750.shtml)
-- 2026-06-30 04:41 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/70047.shtml)
-- 2026-06-30 04:29 - [佐野海舟远射破门](http://www.share.minike.top/Article/details/86587780898.shtml)
-- 2026-06-30 04:30 - [啊啊啊](http://www.blog.minike.top/Article/details/36950748665.shtml)
-- 2026-06-30 04:23 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/32798376594.shtml)
-- 2026-06-30 04:32 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/4851372.shtml)
+- 2026-06-30 04:29 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/408328424.shtml)
+- 2026-06-30 04:53 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/200107.shtml)
+- 2026-06-30 04:51 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/45169.shtml)
+- 2026-06-30 04:42 - [恋与深空 日服](http://www.blog.minike.top/Article/details/187380608582.shtml)
+- 2026-06-30 04:48 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/9240638402.shtml)
+- 2026-06-30 04:41 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/17060480152.shtml)
+- 2026-06-30 04:42 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/6679056219.shtml)
+- 2026-06-30 04:25 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/808432.shtml)
+- 2026-06-30 04:50 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/1389776846.shtml)
+- 2026-06-30 04:49 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/0296308353.shtml)
+- 2026-06-30 04:42 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/646656012143.shtml)
+- 2026-06-30 04:52 - [巴西扳平比分](http://www.share.minike.top/Article/details/5971641.shtml)
+- 2026-06-30 04:48 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/124523.shtml)
+- 2026-06-30 04:50 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/672198.shtml)
+- 2026-06-30 04:41 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/6228180.shtml)

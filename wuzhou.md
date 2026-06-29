@@ -1,48 +1,58 @@
-# 2026年1-4月我国全行业对外直接投资4294.2亿元人民币
+# 农业农村部：一季度我国粮油生产基础较好
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-据商务部、外汇局统计，2026年1-4月，我国全行业对外直接投资4294.2亿元人民币，同比增长3.9%(以美元计为619.9亿美元，增长7.7%)。 其中，我国境内投资者共对全球142个国家和地区的5231家境外企业进行了非金融类直接投资，累计投资3157.4亿元人民币，下降13.9%(以美元计为455.8亿美元，下降10.7%)。 (总台央视记者 丁雅妮 林杉)
+中新网4月23日电 国务院新闻办公室23日上午举行新闻发布会，介绍2026年一季度农业农村经济运行情况，并答记者问。会上，农业农村部副部长麦尔丹·木盖提介绍，今年以来，农业农村经济保持良好发展势头。主要呈现以下几个特点。一是粮油生产基础较好。坚持不懈扛稳保障国家粮食安全责任，强化技术指导服务，促进冬小麦苗情转化升级，精细抓好春耕备耕，确保粮食播种面积稳定。按照我部农情调度，目前
 
 ## 正文
 
-据商务部、外汇局统计，2026年1-4月，我国全行业对外直接投资4294.2亿元人民币，同比增长3.9%(以美元计为619.9亿美元，增长7.7%)。
+中新网4月23日电 国务院新闻办公室23日上午举行新闻发布会，介绍2026年一季度农业农村经济运行情况，并答记者问。
 
-其中，我国境内投资者共对全球142个国家和地区的5231家境外企业进行了非金融类直接投资，累计投资3157.4亿元人民币，下降13.9%(以美元计为455.8亿美元，下降10.7%)。
+会上，农业农村部副部长麦尔丹·木盖提介绍，今年以来，农业农村经济保持良好发展势头。
 
-(总台央视记者 丁雅妮 林杉)
+主要呈现以下几个特点。
+
+一是粮油生产基础较好。
+
+坚持不懈扛稳保障国家粮食安全责任，强化技术指导服务，促进冬小麦苗情转化升级，精细抓好春耕备耕，确保粮食播种面积稳定。
+
+按照我部农情调度，目前冬小麦长势和生育进程基本赶上常年。
+
+冬油菜面积稳定，长势较好。
+
+春耕生产进展顺利，全年粮食意向播种面积总体稳定，春播粮食进度过两成，同比持平略快。
 
 ## 相关推荐
 
-- 2026-06-30 04:19 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-30 04:34 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-30 04:36 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-30 04:44 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-30 04:33 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 04:28 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-30 04:42 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-30 04:31 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-30 04:35 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 04:47 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-30 04:45 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-30 04:25 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-30 04:34 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-30 04:34 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-30 04:32 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 04:51 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-30 04:32 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-30 04:33 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-30 04:37 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-30 04:26 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 04:46 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-30 04:26 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 04:30 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-30 04:44 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:41 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/18100.shtml)
-- 2026-06-30 04:27 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/69610.shtml)
-- 2026-06-30 04:45 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/119310.shtml)
-- 2026-06-30 04:47 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/917532.shtml)
-- 2026-06-30 04:45 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/2098579909.shtml)
-- 2026-06-30 04:22 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/220227532778.shtml)
-- 2026-06-30 04:31 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/83855939649.shtml)
-- 2026-06-30 04:34 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/36230580.shtml)
-- 2026-06-30 04:19 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/92063275.shtml)
-- 2026-06-30 04:34 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/64053768606.shtml)
-- 2026-06-30 04:25 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/5573788061.shtml)
-- 2026-06-30 04:47 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.kurohicncr.top/Article/details/131854516.shtml)
-- 2026-06-30 04:39 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/672974.shtml)
-- 2026-06-30 04:45 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/823521789437.shtml)
-- 2026-06-30 04:31 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/531363.shtml)
+- 2026-06-30 04:41 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/60387.shtml)
+- 2026-06-30 04:28 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/7070567.shtml)
+- 2026-06-30 04:35 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/615783474690.shtml)
+- 2026-06-30 04:45 - [王欣瑜温网开门红](http://www.blog.kurohicncr.top/Article/details/93704.shtml)
+- 2026-06-30 04:40 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/03304.shtml)
+- 2026-06-30 04:34 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/62158.shtml)
+- 2026-06-30 04:48 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/84856.shtml)
+- 2026-06-30 04:24 - [王欣瑜2-1击败科恰雷托](https://www.blog.kurohicncr.top/Article/details/14934.shtml)
+- 2026-06-30 04:40 - [日本进球](http://www.share.kurohicncr.top/Article/details/31504793696.shtml)
+- 2026-06-30 04:39 - [巴西2比1日本](https://www.blog.minike.top/Article/details/756366925079.shtml)
+- 2026-06-30 04:48 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/9453521818.shtml)
+- 2026-06-30 04:51 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/1131406322.shtml)
+- 2026-06-30 04:37 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/5736819.shtml)
+- 2026-06-30 04:24 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/6389946.shtml)
+- 2026-06-30 04:31 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/586389136.shtml)

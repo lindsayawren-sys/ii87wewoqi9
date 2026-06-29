@@ -1,59 +1,60 @@
-# 风雨同心！建设银行全力支持防汛救灾工作
+# 涉恒大虚假财报！普华永道，赔偿10亿港元！最新回应来了
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-来源：今日建行 近期，重庆、广西、湖北等地遭遇强降雨天气，部分区域出现洪涝和塌方灾害。面对极端天气，建设银行迅速响应，全力支持防汛救灾工作，排查网点隐患，保障服务畅通，以“金融为民”初心守护人民群众生命财产安全。 重庆 5月23日夜间至24日凌晨，重庆永川突发瞬时极端特大暴雨，多个镇街降雨量突破当地历史极值。强降雨引发的山洪造成民房倒塌、农作物受灾、基础设施损毁。建行重庆永川支
+中国恒大少数股东将收到赔偿。 4月23日，香港证监会发文表示，与罗兵咸永道会计师事务所（罗兵咸永道香港，亦称普华永道香港）达成协议，据此，罗兵咸永道香港同意预留10亿港元，以向中国恒大集团（中国恒大）的合资格独立少数股东作出赔偿。 据介绍，中国恒大于2009年11月在港交所主板上市，其后于2025年8月摘牌，中国恒大曾是中国最大的房地产发展商之一。今年4月，深圳市中级人民法院对
 
 ## 正文
 
-来源：今日建行 近期，重庆、广西、湖北等地遭遇强降雨天气，部分区域出现洪涝和塌方灾害。
+中国恒大少数股东将收到赔偿。
 
-面对极端天气，建设银行迅速响应，全力支持防汛救灾工作，排查网点隐患，保障服务畅通，以“金融为民”初心守护人民群众生命财产安全。
+4月23日，香港证监会发文表示，与罗兵咸永道会计师事务所（罗兵咸永道香港，亦称普华永道香港）达成协议，据此，罗兵咸永道香港同意预留10亿港元，以向中国恒大集团（中国恒大）的合资格独立少数股东作出赔偿。
 
-重庆 5月23日夜间至24日凌晨，重庆永川突发瞬时极端特大暴雨，多个镇街降雨量突破当地历史极值。
+据介绍，中国恒大于2009年11月在港交所主板上市，其后于2025年8月摘牌，中国恒大曾是中国最大的房地产发展商之一。
 
-强降雨引发的山洪造成民房倒塌、农作物受灾、基础设施损毁。
+今年4月，深圳市中级人民法院对恒大集团、许家印非法吸收公众存款、集资诈骗、违法发放贷款等进行了公开开庭审理，许家印当庭表示认罪悔罪。
 
-建行重庆永川支行第一时间与受灾最为严重的茶山竹海街道、中山路街道和双石镇政府取得联系，在得知目前受灾群众急需方便面、牛奶、手电等物资后，立即组织员工自愿捐款、采购物资，于5月26日上午将物资送到灾区群众手中。
+值得一提的是，普华永道在官网第一时间回应称，此次中国香港监管机构所采取的行动，与2024年中国财政部和中国证监会在内地就相关审计工作所作出的处罚决定均针对同一事件。
 
-▲建行重庆永川支行组织员工为灾区捐款，采购急需物资（左右滑动查看） 永川支行各网点开展安全检查，布放防汛沙袋，在确保安全的情况下持续正常营业，并借助“劳动者港湾”等区域，为市民和救灾人员提供休息、充电等便民服务。
+香港会财局所施加的业务限制将不会影响事务所的现有客户。
 
-为满足防汛救灾金融需求，永川支行第一时间开通防汛救灾专属绿色通道，特事特办、简化流程、优先办理，确保救灾资金快速到账；针对银行卡、社保卡损毁遗失等情况，开设专属窗口提供一站式服务；全面摸排客户受灾情况，为因受灾出现还款困难的客户及时提供还款计划调整等服务，切实减轻受灾群众和经营主体资金压力，助力尽快恢复生产生活秩序。
+达成赔偿10亿港元协议 香港证监会与罗兵咸永道会计师事务所（罗兵咸永道香港）达成协议，据此，罗兵咸永道香港同意预留10亿港元，以向中国恒大集团（中国恒大）的合资格独立少数股东作出赔偿。
 
-▲建行重庆永川支行做好防汛应急准备 广西 5月19日，广西柳州启动四级防汛预警，叠加此前地震影响，面临双重考验。
+罗兵咸永道香港曾审核中国恒大2019年财报和2020年财报。
 
 ## 相关推荐
 
-- 2026-06-30 04:45 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-30 04:45 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-30 04:41 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-30 04:25 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-30 04:33 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-30 04:27 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-30 04:39 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-30 04:35 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-30 04:25 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-30 04:47 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-30 04:25 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-30 04:30 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 04:36 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-30 04:44 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-30 04:31 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-30 04:53 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 04:34 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-30 04:51 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-30 04:33 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-30 04:43 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-30 04:52 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-30 04:38 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-30 04:53 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-30 04:53 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-30 04:44 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-30 04:34 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 04:35 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:21 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/7342821253.shtml)
-- 2026-06-30 04:47 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/014282.shtml)
-- 2026-06-30 04:35 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/199025.shtml)
-- 2026-06-30 04:47 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/46418.shtml)
-- 2026-06-30 04:40 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/439775658246.shtml)
-- 2026-06-30 04:37 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/877283635.shtml)
-- 2026-06-30 04:29 - [斛珠夫人](http://www.blog.minike.top/Article/details/84275245574.shtml)
-- 2026-06-30 04:45 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/261967.shtml)
-- 2026-06-30 04:47 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/453109739.shtml)
-- 2026-06-30 04:44 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/80764.shtml)
-- 2026-06-30 04:36 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/0519794771.shtml)
-- 2026-06-30 04:42 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/7446016.shtml)
-- 2026-06-30 04:37 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/061625710.shtml)
-- 2026-06-30 04:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/130277483.shtml)
-- 2026-06-30 04:33 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/52849959125.shtml)
+- 2026-06-30 04:44 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/20816802122.shtml)
+- 2026-06-30 04:49 - [日本淘汰](https://www.blog.minike.top/Article/details/7667108.shtml)
+- 2026-06-30 04:53 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/45128.shtml)
+- 2026-06-30 04:52 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/27567329.shtml)
+- 2026-06-30 04:45 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/62369.shtml)
+- 2026-06-30 04:30 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/030904585.shtml)
+- 2026-06-30 04:32 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/1595022.shtml)
+- 2026-06-30 04:34 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/328180.shtml)
+- 2026-06-30 04:36 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/6308648522.shtml)
+- 2026-06-30 04:37 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/44367224977.shtml)
+- 2026-06-30 04:49 - [日本淘汰](http://www.share.kurohicncr.top/Article/details/989289315.shtml)
+- 2026-06-30 04:33 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/1992717754.shtml)
+- 2026-06-30 04:40 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.kurohicncr.top/Article/details/26835574.shtml)
+- 2026-06-30 04:46 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.kurohicncr.top/Article/details/86196.shtml)
+- 2026-06-30 04:30 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/7204119.shtml)

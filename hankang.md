@@ -1,56 +1,56 @@
-# 港股午评：恒指涨0.54% 科指涨2.29% 航空股回暖 芯片股走强 华虹半导体涨超10% 联想涨超17%
+# 北京海淀知识产权服务跨区延伸 助医药健康产业高质量发展
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-5月26日消息，港股三大指数高开高走。截至午间收盘，恒生指数涨0.54%，报25743.37，恒生科技指数涨2.29%，国企指数涨0.91%。盘面上，科网股涨跌不一，联想涨超17%，网易涨超4%，阿里巴巴、小米涨超1%，京东跌超2%，美团、哔哩哔哩跌超1%；芯片股走强，华虹半导体涨超10%；航空股回暖，东方航空涨超5%；铝业股活跃，中国铝业涨超7%。 芯片股走强，华虹半导体涨超
+中新网北京4月23日电 (记者 陈杭)2026年海淀知识产权宣传周活动22日在北京举行，中关村知识产权保护中心BioPark分中心正式授牌成立，标志着北京市海淀区科技创新服务资源在推动医药健康产业高质量发展、构建跨区域知识产权协同保护机制方面迈出了实质性一步。 中关村知识产权保护中心是国家级知识产权一站式服务平台，长期立足海淀、服务全市，重点聚焦生物医药等战略性新兴产业。截至目
 
 ## 正文
 
-5月26日消息，港股三大指数高开高走。
+中新网北京4月23日电 (记者 陈杭)2026年海淀知识产权宣传周活动22日在北京举行，中关村知识产权保护中心BioPark分中心正式授牌成立，标志着北京市海淀区科技创新服务资源在推动医药健康产业高质量发展、构建跨区域知识产权协同保护机制方面迈出了实质性一步。
 
-截至午间收盘，恒生指数涨0.54%，报25743.37，恒生科技指数涨2.29%，国企指数涨0.91%。
+中关村知识产权保护中心是国家级知识产权一站式服务平台，长期立足海淀、服务全市，重点聚焦生物医药等战略性新兴产业。
 
-盘面上，科网股涨跌不一，联想涨超17%，网易涨超4%，阿里巴巴、小米涨超1%，京东跌超2%，美团、哔哩哔哩跌超1%；芯片股走强，华虹半导体涨超10%；航空股回暖，东方航空涨超5%；铝业股活跃，中国铝业涨超7%。
+截至目前，该中心已累计备案创新主体超过3200家，在助力科技企业登陆科创板、推动技术出海与成果转化方面发挥了重要作用，成为北京创新主体快速获得专利授权、高效维护合法权益的“硬核支撑”。
 
-芯片股走强，华虹半导体涨超10%。
+此次授牌的BioPark分中心，位于亦庄国际医药创新公园(BioPark)，是海淀区知识产权服务向外延伸的首个重要载体，也是全市首家由同级行政区跨区联建的知识产权保护平台。
 
-5月25日，华为正式发表“韬（τ）定律”引发市场关注。
+分中心的设立，意味着海淀成熟的全链条知识产权服务经验，将系统性地导入经开区，直接服务于区域内的医药健康企业。
 
-人民日报社网络评论平台“人民锐评”公众号发文称，该定律”不以几何尺寸论英雄，而以逻辑折叠和时间效率取胜，在摩尔定律之外开启“第二曲线”，丰富了全球半导体产业发展路径。
+生物医药产业具有研发周期长、投入大、对知识产权依赖度高等特点。
 
-此前发改委召开发布会，指导国产大模型加大力度适配国产算力芯片。
+对于创新企业而言，专利审查速度、维权效率、海外布局能力，往往直接关系到产品上市节奏乃至企业生存发展。
 
-分析认为这一表态将“国产大模型”与“国产算力芯片”的协同适配提升至明确的政策指导层面。
+BioPark分中心投入运行后，将为经开区医药健康企业提供一站式知识产权综合服务。
 
 ## 相关推荐
 
-- 2026-06-30 04:45 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-30 04:32 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-30 04:18 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-30 04:26 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-30 04:44 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-30 04:23 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-30 04:32 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 04:30 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-30 04:25 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-30 04:38 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-30 04:50 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-30 04:45 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-30 04:47 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-30 04:49 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-30 04:40 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 04:35 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-30 04:42 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-30 04:35 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-30 04:47 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-30 04:27 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:22 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/23126.shtml)
-- 2026-06-30 04:21 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/139715539.shtml)
-- 2026-06-30 04:18 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/3445904.shtml)
-- 2026-06-30 04:27 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/6946839.shtml)
-- 2026-06-30 04:47 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/3647631.shtml)
-- 2026-06-30 04:42 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/1282247.shtml)
-- 2026-06-30 04:23 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/03007.shtml)
-- 2026-06-30 04:25 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/87036.shtml)
-- 2026-06-30 04:40 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/812791553.shtml)
-- 2026-06-30 04:19 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/86226376676.shtml)
-- 2026-06-30 04:25 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/790189581852.shtml)
-- 2026-06-30 04:21 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/05030831.shtml)
-- 2026-06-30 04:40 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/498232829357.shtml)
-- 2026-06-30 04:34 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/932990277691.shtml)
-- 2026-06-30 04:18 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/579743408137.shtml)
+- 2026-06-30 04:33 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/388995397.shtml)
+- 2026-06-30 04:46 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/864447980.shtml)
+- 2026-06-30 04:29 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/94644.shtml)
+- 2026-06-30 04:34 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/496039848190.shtml)
+- 2026-06-30 04:43 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/330307402192.shtml)
+- 2026-06-30 04:39 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/11941852590.shtml)
+- 2026-06-30 04:40 - [巴西2-1绝杀日本](http://www.blog.kurohicncr.top/Article/details/620689.shtml)
+- 2026-06-30 04:51 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/780056559.shtml)
+- 2026-06-30 04:36 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/0278077.shtml)
+- 2026-06-30 04:41 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/05140800.shtml)
+- 2026-06-30 04:47 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/635025691163.shtml)
+- 2026-06-30 04:24 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/191044.shtml)
+- 2026-06-30 04:28 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/5081055297.shtml)
+- 2026-06-30 04:47 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/854475.shtml)
+- 2026-06-30 04:27 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/764577717208.shtml)

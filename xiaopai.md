@@ -1,57 +1,55 @@
-# 政策底已现！猪价后期走势关注三个指标
+# 高盛任命Akila Raman执掌另类资本市场业务
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-来源：期货日报 今年春节后生猪市场供给达到峰值，供强需弱格局凸显，3月末猪价触及历史低价8.6元/公斤，局部区域甚至跌破8元/公斤。猪价跌至历史低位且明显低于完全养殖成本，甚至低于行业现金成本，养殖端陷入深度亏损状态。 鉴于此，生猪市场产能调控力度升级，生猪市场政策底确立。4月28日，中共中央政治局会议提到“抓好农业生产，稳定生猪等农产品价格。当日，农业农村部成立生猪产业监测预
+2026年4月22日，高盛集团（Goldman Sachs）宣布了一项重要的人事任命，旨在进一步强化其在快速增长的另类资产领域的市场地位。根据内部备忘录显示，高盛已任命Akila Raman为另类资本市场（Alternatives Capital Markets）主管。 此举是高盛对当前资本加速流向私募股权、对冲基金及私人信贷等非传统资产趋势的直接响应。作为战略核心，Raman
 
 ## 正文
 
-来源：期货日报 今年春节后生猪市场供给达到峰值，供强需弱格局凸显，3月末猪价触及历史低价8.6元/公斤，局部区域甚至跌破8元/公斤。
+2026年4月22日，高盛集团（Goldman Sachs）宣布了一项重要的人事任命，旨在进一步强化其在快速增长的另类资产领域的市场地位。
 
-猪价跌至历史低位且明显低于完全养殖成本，甚至低于行业现金成本，养殖端陷入深度亏损状态。
+根据内部备忘录显示，高盛已任命Akila Raman为另类资本市场（Alternatives Capital Markets）主管。
 
-鉴于此，生猪市场产能调控力度升级，生猪市场政策底确立。
+此举是高盛对当前资本加速流向私募股权、对冲基金及私人信贷等非传统资产趋势的直接响应。
 
-4月28日，中共中央政治局会议提到“抓好农业生产，稳定生猪等农产品价格。
+作为战略核心，Raman的新职位将负责协调高盛全球投资银行部与全球市场部的资源，为另类资产管理人提供从基金设立、杠杆融资到上市的全方位服务。
 
-当日，农业农村部成立生猪产业监测预警专家咨询委员会。
+该任命也契合高盛近年来的战略重组方向，即通过合并相关业务板块打造“一个高盛”的运营模式，以提升运营效率。
 
-5月14日，农业农村部印发《生猪产能综合调控实施方案（2026年修订）》 。
+目前，高盛资产管理规模已达2.8万亿美元，Raman的履新将进一步巩固高盛在这一高增长、高利润领域的竞争优势，利用其庞大的全球网络为客户创造更多跨境交易机会。
 
-5月18日，农业农村部召开生猪产能综合调控部署视频会。
-
-新版产能调控实施方案将母猪正常保有量从3900万头下调至3750万头，并计划在“十五五”初期完成。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 04:28 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-30 04:32 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-30 04:33 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-30 04:35 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-30 04:42 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-30 04:41 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-30 04:33 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 04:28 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-30 04:27 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-30 04:19 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-30 04:26 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-30 04:36 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 04:36 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-30 04:49 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-30 04:39 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-30 04:40 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-30 04:39 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 04:35 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 04:47 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-30 04:28 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-30 04:37 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-30 04:33 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:25 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/06074380191.shtml)
-- 2026-06-30 04:38 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.minike.top/Article/details/125603650.shtml)
-- 2026-06-30 04:28 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/153479.shtml)
-- 2026-06-30 04:26 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/50714590.shtml)
-- 2026-06-30 04:24 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/53931.shtml)
-- 2026-06-30 04:40 - [陈小云又好好的养了自己一年](http://www.blog.kurohicncr.top/Article/details/66540692.shtml)
-- 2026-06-30 04:46 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/21918955.shtml)
-- 2026-06-30 04:45 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/1982697214.shtml)
-- 2026-06-30 04:45 - [极限挑战第一季](http://www.blog.minike.top/Article/details/64422.shtml)
-- 2026-06-30 04:30 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.kurohicncr.top/Article/details/80223.shtml)
-- 2026-06-30 04:38 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/384552.shtml)
-- 2026-06-30 04:24 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/170502.shtml)
-- 2026-06-30 04:42 - [急先锋](http://www.blog.kurohicncr.top/Article/details/3522889288.shtml)
-- 2026-06-30 04:32 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/46364730.shtml)
-- 2026-06-30 04:30 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/524685483147.shtml)
+- 2026-06-30 04:39 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/03905921.shtml)
+- 2026-06-30 04:34 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/0811379.shtml)
+- 2026-06-30 04:51 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/28367098.shtml)
+- 2026-06-30 04:44 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/344976607.shtml)
+- 2026-06-30 04:53 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/98010404675.shtml)
+- 2026-06-30 04:24 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/656347992984.shtml)
+- 2026-06-30 04:28 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/37452437690.shtml)
+- 2026-06-30 04:31 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/5105468.shtml)
+- 2026-06-30 04:47 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/850143154.shtml)
+- 2026-06-30 04:48 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/93740264.shtml)
+- 2026-06-30 04:48 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/95022889.shtml)
+- 2026-06-30 04:42 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/2044214739.shtml)
+- 2026-06-30 04:41 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/3720491.shtml)
+- 2026-06-30 04:38 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/62150.shtml)
+- 2026-06-30 04:39 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/3937132013.shtml)

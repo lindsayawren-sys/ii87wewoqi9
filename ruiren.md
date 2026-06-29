@@ -1,58 +1,60 @@
-# （投资中国）全球医疗器械创新中心在上海揭牌
+# 汇伦医药三闯资本市场：业绩连亏两年，核心产品收入腰斩，估值增长近乎停滞
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-中新社上海5月25日电 (高志苗)旨在汇聚全球医疗创新资源、推动国际协同创新的全球医疗器械培训展示交易和创新中心，25日在上海揭牌。 当日，首批项目入驻运营。波士顿科学联合丹纳赫、西门子医疗共同打造名为“A3国际医疗科技创新交流中心”的开放式联盟平台，聚焦心脑血管、肿瘤、神经调控三大疾病，依托三家企业在影像、诊断、人工智能和微创介入等领域的优势，推动技术能力、临床经验与创新理念
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年4月，上海汇伦医药股份有限公司正式向港交所递交招股书，开启其港股上市之旅，中信证券担任独家保荐人。这是汇伦医药在A股上市计划折戟、被新天药业收购计划终止后的第三次资本化尝试。 招股书数据显示，公司2023年至2025年营收从9.85亿元骤降至6.86亿元，净利润由2065.9万元的盈利转为连续两年
 
 ## 正文
 
-中新社上海5月25日电 (高志苗)旨在汇聚全球医疗创新资源、推动国际协同创新的全球医疗器械培训展示交易和创新中心，25日在上海揭牌。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-当日，首批项目入驻运营。
+2026年4月，上海汇伦医药股份有限公司正式向港交所递交招股书，开启其港股上市之旅，中信证券担任独家保荐人。
 
-波士顿科学联合丹纳赫、西门子医疗共同打造名为“A3国际医疗科技创新交流中心”的开放式联盟平台，聚焦心脑血管、肿瘤、神经调控三大疾病，依托三家企业在影像、诊断、人工智能和微创介入等领域的优势，推动技术能力、临床经验与创新理念深度融合，探索以疾病为中心的协同创新模式。
+这是汇伦医药在A股上市计划折戟、被新天药业收购计划终止后的第三次资本化尝试。
 
-波士顿科学大中华区总裁张珺表示，人工智能(AI)正以前所未有的速度重塑诊断模式，精准医疗正在改写治疗路径，跨学科的深度融合不断打破传统边界，全球协作成为行业进步的必然选择，未来的医疗领域属于那些秉持开放理念、善于连接各方资源、勇于将“不可能”化为“可能”的前行者。
+招股书数据显示，公司2023年至2025年营收从9.85亿元骤降至6.86亿元，净利润由2065.9万元的盈利转为连续两年亏损，2025年亏损额进一步扩大至1.74亿元。
 
-由复旦大学附属华山医院牵头主导的波士顿科学亚太脑机接口创新培训基地当日正式揭牌。
+此外，其在产品结构、业绩增长、资本认可度、研发转化等方面均存在一定问题，公司能否顺利闯关资本市场仍存变数。
 
-波士顿科学中国与复旦大学上海医学院全面开启“产学研医”合作，另联合上海物理智能与机器人研究院开展关于共同孵化具有创新价值的AI+介入技术合作。
+营收停滞、亏损扩大 核心产品退潮后新增长曲线难堪大任 从财务数据看，汇伦医药的业绩表现从2023年开始出现拐点，营收大幅下滑，盈利水平持续恶化，经营性现金流长期承压，尚未看到复苏信号。
 
-(完)
+从营收端来看，2023年公司实现营收9.85亿元，主要得益于核心产品希为纳在疫情期间的需求爆发，但2024年营收便大幅下滑30.4%至6.86亿元，2025年营收仅微增26.7万元，增幅仅约0.05%，基本陷入停滞状态。
+
+盈利端的表现则更为惨淡，公司由盈转亏后亏损幅度持续扩大。
 
 ## 相关推荐
 
-- 2026-06-30 04:40 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 04:35 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-30 04:32 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-30 04:30 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-30 04:39 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-30 04:22 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-30 04:47 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-30 04:28 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-30 04:39 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-30 04:47 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 04:39 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-30 04:42 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 04:47 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-30 04:23 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-30 04:53 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-30 04:36 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-30 04:29 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-30 04:29 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 04:33 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-30 04:51 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 04:46 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-30 04:41 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-30 04:48 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 04:36 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-30 04:38 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-30 04:24 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-30 04:34 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-30 04:34 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:29 - [二次元提前预演明日巴西对日本](http://www.blog.kurohicncr.top/Article/details/57262.shtml)
-- 2026-06-30 04:24 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/58313171223.shtml)
-- 2026-06-30 04:38 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/777248264474.shtml)
-- 2026-06-30 04:20 - [普京间接喊话特朗普有何考量](http://www.blog.kurohicncr.top/Article/details/227928.shtml)
-- 2026-06-30 04:30 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/024638886735.shtml)
-- 2026-06-30 04:22 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/37704878.shtml)
-- 2026-06-30 04:38 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/85569738.shtml)
-- 2026-06-30 04:35 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/0438825.shtml)
-- 2026-06-30 04:36 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/744685.shtml)
-- 2026-06-30 04:32 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/37170957.shtml)
-- 2026-06-30 04:30 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/4408166745.shtml)
-- 2026-06-30 04:32 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/38668441.shtml)
-- 2026-06-30 04:28 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/71501896211.shtml)
-- 2026-06-30 04:43 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/20167056321.shtml)
-- 2026-06-30 04:32 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/2399776382.shtml)
+- 2026-06-30 04:38 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/703403652513.shtml)
+- 2026-06-30 04:50 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/044104385007.shtml)
+- 2026-06-30 04:28 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/324364230630.shtml)
+- 2026-06-30 04:28 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/621344948989.shtml)
+- 2026-06-30 04:24 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/09593793.shtml)
+- 2026-06-30 04:37 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/004094743585.shtml)
+- 2026-06-30 04:53 - [绘画区你赢了](https://www.blog.minike.top/Article/details/9052904.shtml)
+- 2026-06-30 04:49 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/2108960836.shtml)
+- 2026-06-30 04:38 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/3488920.shtml)
+- 2026-06-30 04:35 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/339948305700.shtml)
+- 2026-06-30 04:50 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/2218443587.shtml)
+- 2026-06-30 04:37 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/978806.shtml)
+- 2026-06-30 04:32 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/34484436084.shtml)
+- 2026-06-30 04:26 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/358103.shtml)
+- 2026-06-30 04:44 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/8851901403.shtml)

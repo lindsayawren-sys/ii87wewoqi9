@@ -1,61 +1,60 @@
-# 四川达州通川特色水产“养”出富民兴村大产业
+# 中国首个月背主题沉浸式科普展开幕 第一视角体验2049年月球南极
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-中新网达州5月25日电 (蒋艺 张浪)25日，四川省达州市通川区碑庙镇石笋村内的水产养殖基地呈现出一派繁忙丰收景象，养殖户们抢抓晴好天气捕捞出货，肥美的生态鲈鱼争相跃出陆基圆桶，带着满满鲜味奔赴各大市场。 在水产养殖基地内，整洁规范的养殖设施整齐排列，清澈的循环水体中，一条条银灰色鲈鱼体态饱满、活力充沛。养殖人员们手持网具，有条不紊地开展捞鱼、分拣、称重、充氧、装箱等作业。完成
+中新网北京4月23日电 (记者 孙自法)2049年的月球南极将是怎样的状况？来到中国首个以月背探索为主题的沉浸式航天科普展——《星辰足迹—月背之约》主题展，观众将能以第一视角“穿越”至2049年月球南极“天枢”基地进行体验。 在2026年“中国航天日”来临前夕，《星辰足迹—月背之约》主题展4月23日下午在北京中国科技馆开幕，其最大亮点为国内首创、基于真实探月数据打造的VR(虚拟
 
 ## 正文
 
-中新网达州5月25日电 (蒋艺 张浪)25日，四川省达州市通川区碑庙镇石笋村内的水产养殖基地呈现出一派繁忙丰收景象，养殖户们抢抓晴好天气捕捞出货，肥美的生态鲈鱼争相跃出陆基圆桶，带着满满鲜味奔赴各大市场。
+中新网北京4月23日电 (记者 孙自法)2049年的月球南极将是怎样的状况？
 
-在水产养殖基地内，整洁规范的养殖设施整齐排列，清澈的循环水体中，一条条银灰色鲈鱼体态饱满、活力充沛。
+来到中国首个以月背探索为主题的沉浸式航天科普展——《星辰足迹—月背之约》主题展，观众将能以第一视角“穿越”至2049年月球南极“天枢”基地进行体验。
 
-养殖人员们手持网具，有条不紊地开展捞鱼、分拣、称重、充氧、装箱等作业。
+在2026年“中国航天日”来临前夕，《星辰足迹—月背之约》主题展4月23日下午在北京中国科技馆开幕，其最大亮点为国内首创、基于真实探月数据打造的VR(虚拟现实)科普科幻剧，体验者“穿越”到2049年月球南极“天枢”基地过程中，将第一视角亲历火箭发射、地月轨道转移、太空漫步、载人登月、月面科考等全流程场景，直面陨石撞击、宇宙射线、太阳风暴等震撼特效，也标志着中国航天科普迈入全感官、交互式、故事化新阶段。
 
-完成打包后的鲈鱼迅速装车，将新鲜直达本地及周边城市各大餐饮门店、商超。
+作为今年“中国航天日”重磅科普活动，本次月背之约主题展由中国科技馆与国家航天局新闻宣传中心联合主办，展览内容由航天、天文、地质、科普、艺术等多领域专家联合论证，严格依托中国探月工程真实数据与实拍影像创作，实现科学严谨性与艺术感染力高度统一，也是国内首次将珍贵航天实物与大空间VR科幻体验深度融合的创新科普工程。
 
-为精准适配市场需求、保障产品新鲜度，该养殖基地采用分批分次、按需上市的运营模式，结合采购订单灵活调配供货，持续为市场输送优质生态鲈鱼。
+实物展区展出多件国宝级航天展品，其中，嫦娥五号搭载的五星红旗备份件等，见证中国首次地外天体采样返回的历史瞬间；中国自主研制的新型高强韧“嫦娥钢”，直观展现航天材料领域的自主创新突破；火箭发动机等实物装备，系统呈现中国航天硬核科技实力。
 
-如今，特色鲈鱼养殖已成为碑庙镇石笋村富民兴村的亮眼名片。
+同时，展览搭配高清图文、任务纪实影像与高精度航天器模型，完整梳理中国探月工程发展脉络，解码航天任务背后的科学原理与关键技术突破，传递代代相传的航天精神。
 
-据了解，该养殖基地仅依托3000立方米养殖水体、27个标准化陆基养殖圆桶，产能效益便可达到传统鱼塘的20倍，真正实现“小空间、高产出”。
+航天科普专家、《独行月球》科学顾问周武表示，今年是中国航天事业创建70周年，本次月背之约主题展融合真实科学任务与科幻叙事，让遥远的太空触手可及，让“仰望星空、脚踏实地”不再是一句口号，而是一颗颗能够生根发芽的梦想种子。
 
-目前，该养殖基地可年产鲈鱼、黄颡鱼等优质水产品超20万斤，年产值可达300万元，产品凭借优良品质站稳周边市场，销路稳定畅通。
+这正是航天科普最珍贵的价值——守护好奇、点燃热爱，为中国航天强国建设储备最宝贵的青春力量。
 
 ## 相关推荐
 
-- 2026-06-30 04:38 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-30 04:42 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-30 04:20 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-30 04:25 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-30 04:38 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 04:43 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-30 04:37 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-30 04:45 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-30 04:41 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-30 04:25 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-30 04:40 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-30 04:42 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-30 04:19 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-30 04:32 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-30 04:44 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 04:29 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-30 04:26 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-30 04:51 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-30 04:31 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-30 04:46 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-30 04:30 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-30 04:42 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-30 04:50 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-30 04:52 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-30 04:25 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-30 04:48 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-30 04:30 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-30 04:41 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-30 04:38 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:20 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/875031610928.shtml)
-- 2026-06-30 04:28 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/2374343589.shtml)
-- 2026-06-30 04:45 - [这一刀 会很帅](https://www.share.minike.top/Article/details/22275268.shtml)
-- 2026-06-30 04:22 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/7453652.shtml)
-- 2026-06-30 04:43 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/430372.shtml)
-- 2026-06-30 04:38 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/1652374.shtml)
-- 2026-06-30 04:20 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/0767363.shtml)
-- 2026-06-30 04:44 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/78398354.shtml)
-- 2026-06-30 04:19 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/29533353526.shtml)
-- 2026-06-30 04:32 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/4889566243.shtml)
-- 2026-06-30 04:20 - [日本领先巴西](http://www.blog.minike.top/Article/details/621824091505.shtml)
-- 2026-06-30 04:27 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/09827.shtml)
-- 2026-06-30 04:29 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/53645226766.shtml)
-- 2026-06-30 04:21 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/4940076.shtml)
-- 2026-06-30 04:42 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/66433392573.shtml)
+- 2026-06-30 04:27 - [巴西vs日本](http://www.blog.minike.top/Article/details/766375851206.shtml)
+- 2026-06-30 04:33 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/65000569164.shtml)
+- 2026-06-30 04:24 - [上半年全国特种设备安全形势总体平稳](https://www.blog.kurohicncr.top/Article/details/0584026297.shtml)
+- 2026-06-30 04:26 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/786598081.shtml)
+- 2026-06-30 04:50 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/02922307194.shtml)
+- 2026-06-30 04:41 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/4886895908.shtml)
+- 2026-06-30 04:25 - [起风了](http://www.blog.kurohicncr.top/Article/details/4891601.shtml)
+- 2026-06-30 04:35 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.minike.top/Article/details/091834229432.shtml)
+- 2026-06-30 04:27 - [沙丘](http://www.blog.kurohicncr.top/Article/details/777984.shtml)
+- 2026-06-30 04:36 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/166337.shtml)
+- 2026-06-30 04:41 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/027651.shtml)
+- 2026-06-30 04:37 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/8626537664.shtml)
+- 2026-06-30 04:33 - [卡塞米罗头球破门](https://www.blog.kurohicncr.top/Article/details/6914857535.shtml)
+- 2026-06-30 04:29 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/057867305769.shtml)
+- 2026-06-30 04:24 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/517645417665.shtml)

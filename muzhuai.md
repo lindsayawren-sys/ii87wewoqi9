@@ -1,54 +1,57 @@
-# 新疆：六一儿童节来临前 师生为戍边民警和护边员送国旗
+# 全球媒体聚焦 | 英媒：日本放宽武器出口限制 背离二战后和平主义立场
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月25日 14:17 来源：中国新闻网 5月24日，新疆克州铁列克乡驻地师生在乡政府各部门组织下将一面崭新的国旗送给驻守边关的铁列克边境警务站民警和护边员们。在边境警务站民警的带领下，师生们连续徒步上升5公里的巡边路前往铁列克乡边境辖区界碑进行描红。参与此次保障活动的老师们和在这里戍边的民警一样，大多是从全国各地来到新疆戍边支教的西部计划志愿者。参与此次
+日本政府日前在内阁会议上正式修改了“防卫装备转移三原则”及其运用指南，原则上将允许出口杀伤性武器。这一做法引发了国际媒体的广泛批评。英国媒体刊文称，自高市早苗就任首相以来，日本长达八十年的和平主义似乎正在瓦解。英国广播公司刊文认为，日本放宽了实施数十年的武器出口限制，为向十余个国家出售武器铺平了道路。这一决定，标志着日本背离其战后防卫政策中一贯的和平主义立场，是一个重要转折点。
 
 ## 正文
 
-发布时间：2026年05月25日 14:17 来源：中国新闻网 5月24日，新疆克州铁列克乡驻地师生在乡政府各部门组织下将一面崭新的国旗送给驻守边关的铁列克边境警务站民警和护边员们。
+日本政府日前在内阁会议上正式修改了“防卫装备转移三原则”及其运用指南，原则上将允许出口杀伤性武器。
 
-在边境警务站民警的带领下，师生们连续徒步上升5公里的巡边路前往铁列克乡边境辖区界碑进行描红。
+这一做法引发了国际媒体的广泛批评。
 
-参与此次保障活动的老师们和在这里戍边的民警一样，大多是从全国各地来到新疆戍边支教的西部计划志愿者。
+英国媒体刊文称，自高市早苗就任首相以来，日本长达八十年的和平主义似乎正在瓦解。
 
-参与此次活动的学生，他们之中有很多人的父母就是这里戍边卫国的护边员。
+英国广播公司刊文认为，日本放宽了实施数十年的武器出口限制，为向十余个国家出售武器铺平了道路。
 
-来源：新疆边检总站 责任编辑：【魏聪聪】
+这一决定，标志着日本背离其战后防卫政策中一贯的和平主义立场，是一个重要转折点。
+
+文章分析称，此前将武器出口限制在救援、运输、预警、监视和扫雷这五类装备的规定将被取消。
+
+这意味着日本现在可以向包括美国和英国在内的17个与其签订防务协定的国家出售杀伤性武器。
+
+对参与冲突的国家实施武器出口的禁令将继续保留，但该禁令不适用于与日本有防务协定的国家。
 
 ## 相关推荐
 
-- 2026-06-30 04:40 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-30 04:43 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-30 04:18 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-30 04:28 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-30 04:27 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-30 04:27 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-30 04:44 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-30 04:45 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 04:22 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-30 04:47 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-30 04:35 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-30 04:37 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 04:33 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-30 04:41 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-30 04:35 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 04:45 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-30 04:27 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 04:41 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 04:51 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-30 04:46 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-30 04:31 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-30 04:30 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-30 04:24 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 04:32 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-30 04:49 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:18 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/5316731139.shtml)
-- 2026-06-30 04:20 - [巴西绝杀](http://www.blog.minike.top/Article/details/131520.shtml)
-- 2026-06-30 04:39 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/55799.shtml)
-- 2026-06-30 04:28 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/020142.shtml)
-- 2026-06-30 04:34 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/610215997101.shtml)
-- 2026-06-30 04:41 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/4352316811.shtml)
-- 2026-06-30 04:21 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/3479628.shtml)
-- 2026-06-30 04:44 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/09001.shtml)
-- 2026-06-30 04:28 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/83673274.shtml)
-- 2026-06-30 04:43 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/8018261734.shtml)
-- 2026-06-30 04:22 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/12830338497.shtml)
-- 2026-06-30 04:19 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/582313.shtml)
-- 2026-06-30 04:36 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/86746981401.shtml)
-- 2026-06-30 04:26 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/07669376.shtml)
-- 2026-06-30 04:37 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/192779.shtml)
+- 2026-06-30 04:37 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/0848248.shtml)
+- 2026-06-30 04:47 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/00818456.shtml)
+- 2026-06-30 04:29 - [周生如故](https://www.share.minike.top/Article/details/4718839776.shtml)
+- 2026-06-30 04:48 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/224715647.shtml)
+- 2026-06-30 04:24 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/49316287084.shtml)
+- 2026-06-30 04:33 - [千与千寻](https://www.blog.minike.top/Article/details/552525976606.shtml)
+- 2026-06-30 04:53 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/433227696663.shtml)
+- 2026-06-30 04:43 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/780993.shtml)
+- 2026-06-30 04:33 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/412189837.shtml)
+- 2026-06-30 04:43 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/80841971.shtml)
+- 2026-06-30 04:54 - [张凌赫 客串](https://www.share.minike.top/Article/details/8327012160.shtml)
+- 2026-06-30 04:26 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/47593464.shtml)
+- 2026-06-30 04:49 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/571329.shtml)
+- 2026-06-30 04:49 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/5289608.shtml)
+- 2026-06-30 04:52 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/7203877124.shtml)

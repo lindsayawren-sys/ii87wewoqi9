@@ -1,60 +1,58 @@
-# “快时代”里的“慢时光”：探访全国仅存的电报窗口
+# 武铁三条铁路干线同时启动今年第一阶段集中修
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月25日 19:16 来源：中国新闻网 在中国联通北京市分公司西单营业厅一角，保留一个独特窗口，这里是全国最后一个还能发电报的地方。走进营业厅内，复古的标语和充满年代感的海报，瞬间将人的思绪拉回上世纪的慢时光。据营业厅工作人员介绍，目前发电报的收费标准为每字0.14元，可以发往北京市、广州市、合肥市、山东全省以及河北全省。 在营业厅受理完毕的电报信息，将
+中新网武汉4月23日电(孟硕 于海龙 余哲)2026年“五一”假期临近，铁路客流即将迎来高峰。为提升线路设备质量、保障旅客出行安全舒适，中国铁路武汉局集团有限公司(以下简称“武铁”)于4月19日起，对管内京广线、孟宝线、宁西线三条普速铁路干线的固定设备同时启动今年第一阶段集中修施工。 铁路集中修施工通常在每年春运、暑运结束后分两个阶段开展，是对铁路固定设备进行大规模、高强度整修
 
 ## 正文
 
-发布时间：2026年05月25日 19:16 来源：中国新闻网 在中国联通北京市分公司西单营业厅一角，保留一个独特窗口，这里是全国最后一个还能发电报的地方。
+中新网武汉4月23日电(孟硕 于海龙 余哲)2026年“五一”假期临近，铁路客流即将迎来高峰。
 
-走进营业厅内，复古的标语和充满年代感的海报，瞬间将人的思绪拉回上世纪的慢时光。
+为提升线路设备质量、保障旅客出行安全舒适，中国铁路武汉局集团有限公司(以下简称“武铁”)于4月19日起，对管内京广线、孟宝线、宁西线三条普速铁路干线的固定设备同时启动今年第一阶段集中修施工。
 
-据营业厅工作人员介绍，目前发电报的收费标准为每字0.14元，可以发往北京市、广州市、合肥市、山东全省以及河北全省。
+铁路集中修施工通常在每年春运、暑运结束后分两个阶段开展，是对铁路固定设备进行大规模、高强度整修的关键手段。
 
-在营业厅受理完毕的电报信息，将被转派至一公里外的电报大楼，由电报员陈宝凤和同事完成后续流程。
+根据施工计划，第一阶段集中修期间，将完成29项线桥施工维修任务，具体包括：更换道岔25组，线路大机清筛21.651公里，隧道大机清筛7.158公里，道岔大机清筛10组，线路大机捣固320.5公里，道岔大机捣固265组，线路大机打磨206.9公里，道岔大机打磨189组等。
 
-陈宝凤观察到，过去的电报多以实用为主，承担着信息传递的功能，而现在的电报，更多是为了抒发情感。
+承担集中修主要任务的武铁信阳工务段第一阶段施工从4月19日持续至5月25日，除“五一”假期运输期间暂停施工外，共在京广、孟宝、宁西三条线路上安排了87个“天窗”作业点。
 
-陈宝凤说，如今信息传递往往只需指尖轻点，瞬间即达。
+在此期间，工务段将集中人力、物力，对线路路基、桥涵隧道及重点地段运输设备进行全面整修，更换磨损钢轨和老化配件，全面提升线路设备质量。
 
-而发电报，则需要人们走进营业厅，一笔一划写下寄语，再经过一道道工序传递。
+由于本次集中修是三条干线同时启动施工，武铁信阳工务段严格执行施工安全管理措施等制度。
 
-这种看似“低效”的流程，却重建了人与人之间珍贵的期待感。
+在施工组织、作业方式上，该段采取“大天窗、多项目、集人员、同施工”的生产组织模式，综合运用大型养路机械设备及人员技术优势，确保各项任务安全、优质、高效、按期完成，让旅客在“五一”假期和后续暑运期间出行更加安全、舒适。
 
 ## 相关推荐
 
-- 2026-06-30 04:33 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-30 04:28 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-30 04:40 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-30 04:23 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-30 04:43 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-30 04:26 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 04:29 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 04:35 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-30 04:25 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-30 04:37 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-30 04:20 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 04:38 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-30 04:18 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-30 04:20 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-30 04:51 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-30 04:34 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-30 04:41 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-30 04:36 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 04:49 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 04:53 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-30 04:52 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-30 04:45 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-30 04:46 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-30 04:41 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-30 04:47 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 04:52 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:28 - [月亮](http://www.share.kurohicncr.top/Article/details/35719054.shtml)
-- 2026-06-30 04:46 - [金刚川](http://www.share.minike.top/Article/details/357868330590.shtml)
-- 2026-06-30 04:43 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/481819.shtml)
-- 2026-06-30 04:33 - [周生如故](https://www.blog.minike.top/Article/details/269113631.shtml)
-- 2026-06-30 04:26 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/6613814700.shtml)
-- 2026-06-30 04:43 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/781241710125.shtml)
-- 2026-06-30 04:28 - [审核了不止十年的低创鬼畜](https://www.share.kurohicncr.top/Article/details/56215076.shtml)
-- 2026-06-30 04:46 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/141063.shtml)
-- 2026-06-30 04:31 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/82466.shtml)
-- 2026-06-30 04:30 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.minike.top/Article/details/24756031.shtml)
-- 2026-06-30 04:26 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/3503605.shtml)
-- 2026-06-30 04:18 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/14428842532.shtml)
-- 2026-06-30 04:43 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/7927812706.shtml)
-- 2026-06-30 04:33 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/041966051.shtml)
-- 2026-06-30 04:23 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/743451931.shtml)
+- 2026-06-30 04:35 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/30518188413.shtml)
+- 2026-06-30 04:49 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/849086676121.shtml)
+- 2026-06-30 04:29 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/693751.shtml)
+- 2026-06-30 04:49 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/662348967.shtml)
+- 2026-06-30 04:51 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/917782592.shtml)
+- 2026-06-30 04:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/02020967036.shtml)
+- 2026-06-30 04:42 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/37252376.shtml)
+- 2026-06-30 04:50 - [斗破苍穹](https://www.blog.minike.top/Article/details/91763371.shtml)
+- 2026-06-30 04:38 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/9670634638.shtml)
+- 2026-06-30 04:50 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/75731859799.shtml)
+- 2026-06-30 04:44 - [我们的少年时代2](https://www.blog.minike.top/Article/details/61867449858.shtml)
+- 2026-06-30 04:27 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/0582839223.shtml)
+- 2026-06-30 04:45 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/143884.shtml)
+- 2026-06-30 04:41 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/6212786273.shtml)
+- 2026-06-30 04:45 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/88816.shtml)

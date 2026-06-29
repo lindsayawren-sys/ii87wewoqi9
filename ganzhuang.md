@@ -1,56 +1,56 @@
-# 礼来宣布收购三家疫苗研发企业
+# 大宗商品综述：美伊延长停火推动原油、黄金和铜均上涨
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-礼来公司向媒体证实，已达成协议收购三家疫苗研发企业，三笔交易总金额最高接近40亿美元。 上述交易将于周二晚些时候正式公布，此举标志着这家减肥药领域的龙头企业正式发力传染病预防赛道。 总部位于印第安纳波利斯的礼来公司，此次收购标的为Curevo、LimmaTech Biologics以及Vaccine Co。 礼来首席科学与产品官介绍，Curevo正在研发一款带状疱疹疫苗。礼来认
+由于美伊和谈的前景依然不明朗，而且双方都利用封锁霍尔木兹海峡为自己争取谈判筹码，油价周三上涨。不过，黄金价格和伦敦市场基本金属依然受到停火延长的提振而走高。 原油：美伊和平协议前景不明 油价上涨 由于美国和伊朗之间的和平谈判陷入僵局，而且双方都利用封锁至关重要的霍尔木兹海峡来争取筹码，原油价格周三上涨。 伴随着各种有关重启和谈的相互矛盾的报道，布伦特原油期货收于每桶101美元上
 
 ## 正文
 
-礼来公司向媒体证实，已达成协议收购三家疫苗研发企业，三笔交易总金额最高接近40亿美元。
+由于美伊和谈的前景依然不明朗，而且双方都利用封锁霍尔木兹海峡为自己争取谈判筹码，油价周三上涨。
 
-上述交易将于周二晚些时候正式公布，此举标志着这家减肥药领域的龙头企业正式发力传染病预防赛道。
+不过，黄金价格和伦敦市场基本金属依然受到停火延长的提振而走高。
 
-总部位于印第安纳波利斯的礼来公司，此次收购标的为Curevo、LimmaTech Biologics以及Vaccine Co。
+原油：美伊和平协议前景不明 油价上涨 由于美国和伊朗之间的和平谈判陷入僵局，而且双方都利用封锁至关重要的霍尔木兹海峡来争取筹码，原油价格周三上涨。
 
-礼来首席科学与产品官介绍，Curevo正在研发一款带状疱疹疫苗。
+伴随着各种有关重启和谈的相互矛盾的报道，布伦特原油期货收于每桶101美元上方，创两周来最高水平。
 
-礼来认为，该疫苗疗效可对标现有主流产品，且副作用更低。
+目前华盛顿和德黑兰在若干关键问题上仍僵持不下，包括核问题以及以色列对黎巴嫩的入侵等。
 
-针对这家企业，礼来最高将支付15亿美元现金，包含一笔金额未披露的首付款，以及达成特定研发里程碑后的后续款项。
+负责与航运业联络的英国海事贸易行动办公室表示，伊朗炮艇周三在霍尔木兹海峡向一艘货船和一艘集装箱船开火。
 
-LimmaTech Biologics专注于研发针对金黄色葡萄球菌等细菌病原体的疫苗。
+目前霍尔木兹海峡的通行仍接近停滞，而在正常情况下，该海峡承载着全球约五分之一的原油运输量。
 
-礼来收购该公司的最高现金对价为7.8亿美元，同样包含未公开的首付款，以及完成特定临床、审批里程碑后的追加款项。
+美国总统特朗普无限期延长了与伊朗的停火，但同时维持了针对进出伊朗港口船只的海上封锁，以继续向伊朗政府施压，这对油价来说也是一个利多信号。
 
 ## 相关推荐
 
-- 2026-06-30 04:33 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-30 04:38 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-30 04:43 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-30 04:44 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-30 04:21 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-30 04:43 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-30 04:38 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-30 04:27 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-30 04:42 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-30 04:19 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-30 04:48 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-30 04:30 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-30 04:32 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 04:43 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 04:41 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-30 04:24 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-30 04:40 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-30 04:48 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-30 04:33 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-30 04:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:36 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/545202.shtml)
-- 2026-06-30 04:19 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/1972780.shtml)
-- 2026-06-30 04:41 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/04253.shtml)
-- 2026-06-30 04:22 - [日本淘汰](http://www.share.kurohicncr.top/Article/details/222797.shtml)
-- 2026-06-30 04:42 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/838212768412.shtml)
-- 2026-06-30 04:21 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/08833.shtml)
-- 2026-06-30 04:39 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/7348407569.shtml)
-- 2026-06-30 04:42 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/504057303.shtml)
-- 2026-06-30 04:40 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/286406.shtml)
-- 2026-06-30 04:25 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/693236967.shtml)
-- 2026-06-30 04:30 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/38407929.shtml)
-- 2026-06-30 04:32 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/71785.shtml)
-- 2026-06-30 04:44 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/04670072.shtml)
-- 2026-06-30 04:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/95493096762.shtml)
-- 2026-06-30 04:40 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/167305.shtml)
+- 2026-06-30 04:33 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/163737914.shtml)
+- 2026-06-30 04:35 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/837037924584.shtml)
+- 2026-06-30 04:32 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/365925246693.shtml)
+- 2026-06-30 04:43 - [恋与深空制作组回应近期争议](https://www.blog.minike.top/Article/details/140392.shtml)
+- 2026-06-30 04:43 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/653103.shtml)
+- 2026-06-30 04:52 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/612425004.shtml)
+- 2026-06-30 04:49 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/30465410666.shtml)
+- 2026-06-30 04:25 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/099758307853.shtml)
+- 2026-06-30 04:39 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/69273543688.shtml)
+- 2026-06-30 04:35 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/091420.shtml)
+- 2026-06-30 04:43 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/5220706978.shtml)
+- 2026-06-30 04:38 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/1574640654.shtml)
+- 2026-06-30 04:28 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/84547.shtml)
+- 2026-06-30 04:50 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/11416991.shtml)
+- 2026-06-30 04:44 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/787060.shtml)

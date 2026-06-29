@@ -1,58 +1,59 @@
-# 七家民营银行2025年贷款规模萎缩，转型路在何方？
+# 广州召开加快培育国际一流律师事务所动员会 港澳专家深度参与
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 林倩冰 “贷款放不出去，一直在摸索转型方向。”近日，一位民营银行人士对界面新闻说道。 界面新闻注意到，截至2025年末，多家民营银行贷款规模较2024年末出现负增长。此外，部分民营银行2025年贷款规模增速较2024年有所下降。 业内认为，民营银行贷款规模下降主要受宏观经济形势、助贷新规，以及银行自身策略的影响，民营银行贷款规模收缩或成为大的趋势。目前，民营银
+中新网广州4月22日电 (记者 方伟彬)记者22日从广州市律师协会获悉，该市日前召开动员会，全面启动国际一流律师事务所培育工作，聚焦粤港澳合作与涉外法律服务能力提升，活动吸引了港澳专家深度参与。 会议聘请了6位专家学者担任顾问，其中特别包括澳门特别行政区立法会议员李焕江、香港特别行政区立法会议员何君尧等港澳代表。中国政法大学教授王进喜指出，此举实现了粤港澳理论、实务与“一国两制
 
 ## 正文
 
-界面新闻记者 | 林倩冰 “贷款放不出去，一直在摸索转型方向。
+中新网广州4月22日电 (记者 方伟彬)记者22日从广州市律师协会获悉，该市日前召开动员会，全面启动国际一流律师事务所培育工作，聚焦粤港澳合作与涉外法律服务能力提升，活动吸引了港澳专家深度参与。
 
-”近日，一位民营银行人士对界面新闻说道。
+会议聘请了6位专家学者担任顾问，其中特别包括澳门特别行政区立法会议员李焕江、香港特别行政区立法会议员何君尧等港澳代表。
 
-界面新闻注意到，截至2025年末，多家民营银行贷款规模较2024年末出现负增长。
+中国政法大学教授王进喜指出，此举实现了粤港澳理论、实务与“一国两制三法域”的有机结合，为培育工作提供了跨法域的专业支撑。
 
-此外，部分民营银行2025年贷款规模增速较2024年有所下降。
+会议公布了广州首批国际一流律师事务所培育名单，择优遴选了21家涉外服务能力强、专业特色鲜明的律所进行重点培育。
 
-业内认为，民营银行贷款规模下降主要受宏观经济形势、助贷新规，以及银行自身策略的影响，民营银行贷款规模收缩或成为大的趋势。
+这些律所既包括本土所，也涵盖在穗设立分所的大型律所，体现了广州开放包容的态度。
 
-目前，民营银行业内也正寻求转型。
+会上发布了涵盖完善顶层设计、加强政策支持等十个方面的具体工作措施。
 
-多家民营银行去年贷款规模下降 界面新闻据各民营银行年报梳理，截至发稿，19家民营银行中，除武汉众邦银行未公布年报外，其余18家民营银行均已公布2025年年报。
+同时，广州市司法局联合中山大学、市律师协会组建了“政产学研”课题组，并推动广州仲裁委与市律师协会签署合作协议，协同赋能法律服务机构国际化。
 
-其中，有7家民营银行贷款规模较2024年末负增长，7家民营银行贷款规模增速较2024年有所下降，4家民营银行2025年贷款增速较2024年有所上升。
+会议强调，广州作为粤港澳大湾区核心引擎和“一带一路”重要枢纽，必须加快培育一批能与国家综合国力相匹配的国际一流律所。
 
 ## 相关推荐
 
-- 2026-06-30 04:27 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-30 04:18 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 04:35 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-30 04:24 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-30 04:41 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-30 04:24 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-30 04:29 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 04:38 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 04:21 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-30 04:43 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-30 04:24 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-30 04:34 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-30 04:39 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 04:42 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-30 04:25 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-30 04:31 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-30 04:35 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-30 04:35 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-30 04:37 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-30 04:28 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-30 04:41 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-30 04:33 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 04:35 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-30 04:50 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-30 04:25 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:41 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/275619780.shtml)
-- 2026-06-30 04:18 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/793664899.shtml)
-- 2026-06-30 04:47 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/33646.shtml)
-- 2026-06-30 04:31 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/10945085670.shtml)
-- 2026-06-30 04:34 - [锐评T1零封KC](http://www.share.minike.top/Article/details/17368669.shtml)
-- 2026-06-30 04:36 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.kurohicncr.top/Article/details/223358225.shtml)
-- 2026-06-30 04:44 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/21268870254.shtml)
-- 2026-06-30 04:38 - [房价什么时候能涨](http://www.share.minike.top/Article/details/78147.shtml)
-- 2026-06-30 04:35 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/86620642881.shtml)
-- 2026-06-30 04:29 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/069981.shtml)
-- 2026-06-30 04:29 - [第一炉香](https://www.share.kurohicncr.top/Article/details/069147.shtml)
-- 2026-06-30 04:19 - [我和我的家乡](http://www.share.minike.top/Article/details/998327.shtml)
-- 2026-06-30 04:23 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/14742585841.shtml)
-- 2026-06-30 04:39 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/95668.shtml)
-- 2026-06-30 04:27 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/766955018.shtml)
+- 2026-06-30 04:36 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/428506.shtml)
+- 2026-06-30 04:48 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/06269.shtml)
+- 2026-06-30 04:39 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/068547.shtml)
+- 2026-06-30 04:40 - [上半年全国特种设备安全形势总体平稳](http://www.share.minike.top/Article/details/572182857.shtml)
+- 2026-06-30 04:51 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/87769393.shtml)
+- 2026-06-30 04:46 - [内马尔替补](http://www.share.minike.top/Article/details/23381526.shtml)
+- 2026-06-30 04:35 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/136738657.shtml)
+- 2026-06-30 04:41 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/40964.shtml)
+- 2026-06-30 04:38 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/201014.shtml)
+- 2026-06-30 04:52 - [恋与深空制作组回应近期争议](https://www.blog.kurohicncr.top/Article/details/06068602.shtml)
+- 2026-06-30 04:36 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/11046900307.shtml)
+- 2026-06-30 04:34 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/16265813795.shtml)
+- 2026-06-30 04:45 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/58942362.shtml)
+- 2026-06-30 04:46 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/6265718765.shtml)
+- 2026-06-30 04:26 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/897440998169.shtml)

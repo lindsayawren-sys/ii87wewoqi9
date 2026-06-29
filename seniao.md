@@ -1,56 +1,59 @@
-# 欧盟计划对谷歌处以数亿欧元罚款
+# 晶采观察丨最新成绩单！三个关键变化解读一季度工业经济
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-德国《商报》援引欧盟委员会消息人士称，欧盟计划对Alphabet旗下谷歌处以高达数亿欧元的罚款，作为一项反垄断调查的一部分。 该报称，相关裁决已接近完成，预计将在夏季休会前正式公布，并补充说，这将是欧盟因违反新《数字市场法案》（DMA）而开出的最高金额罚单。 此项调查于2025年3月正式启动，涉及对谷歌在搜索结果中偏袒自身服务的担忧，旨在确保这一全球最受欢迎的互联网搜索引擎遵守
+4月21日，国新办举行新闻发布会，介绍2026年一季度工业和信息化发展情况。工业和信息化部相关负责人介绍，一季度，规模以上工业增加值同比增长6.1%，31个省份全部实现正增长，行业增长面超八成，工业对经济增长的贡献率近四成。这是一份“开门稳”的成绩单，细读之下，这更是一份传递出我国工业经济深层转型信号的路线图。首先，高技术制造业已成为工业经济增长的核心引擎。具体而言，人工智能等
 
 ## 正文
 
-德国《商报》援引欧盟委员会消息人士称，欧盟计划对Alphabet旗下谷歌处以高达数亿欧元的罚款，作为一项反垄断调查的一部分。
+4月21日，国新办举行新闻发布会，介绍2026年一季度工业和信息化发展情况。
 
-该报称，相关裁决已接近完成，预计将在夏季休会前正式公布，并补充说，这将是欧盟因违反新《数字市场法案》（DMA）而开出的最高金额罚单。
+工业和信息化部相关负责人介绍，一季度，规模以上工业增加值同比增长6.1%，31个省份全部实现正增长，行业增长面超八成，工业对经济增长的贡献率近四成。
 
-此项调查于2025年3月正式启动，涉及对谷歌在搜索结果中偏袒自身服务的担忧，旨在确保这一全球最受欢迎的互联网搜索引擎遵守当地法规。
+这是一份“开门稳”的成绩单，细读之下，这更是一份传递出我国工业经济深层转型信号的路线图。
 
-欧盟委员会发言人托马斯·雷尼耶在一份电子邮件声明中表示，比起“简单地开出罚单”，委员会更希望与谷歌找到未来合规的解决方案。
+首先，高技术制造业已成为工业经济增长的核心引擎。
 
-“即使我们正就未来解决方案进行谈判，我们也会毫不犹豫地尽快推进下一步措施，”他补充道。
+具体而言，人工智能等新技术在电子、消费品行业的应用加速拓展，无人机、AI眼镜等终端产品日益丰富，工业机器人、集成电路等产品产量同比分别增长33.2%和24.3%，显示出制造业正加速推进智能化改造。
 
-本月早些时候，欧盟委员会曾表示，在谷歌此前提出的方案未达要求后，已给予其稍多一点时间来消除顾虑。
+其次，规模以上装备制造业增加值同比增长8.9%，对规模以上工业增加值增长的贡献率接近50%。
 
-责任编辑：丁文武
+此外，人工智能等技术变革推动消费电子等行业的新技术、新产品加速落地，机器人减速器、存储芯片等具有较高技术含量与附加值的产品产量实现了超过40%的高速增长。
+
+这些数据和案例共同表明，中国工业的结构性升级已从概念走向实绩。
 
 ## 相关推荐
 
-- 2026-06-30 04:43 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-30 04:20 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-30 04:25 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-30 04:33 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-30 04:44 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-30 04:46 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-30 04:46 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-30 04:39 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-30 04:27 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 04:24 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-30 04:38 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 04:22 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-30 04:32 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 04:32 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 04:40 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-30 04:27 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-30 04:51 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 04:27 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-30 04:39 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-30 04:38 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-30 04:41 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-30 04:28 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-30 04:32 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-30 04:47 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 04:29 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:20 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/7094739176.shtml)
-- 2026-06-30 04:29 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/68475749170.shtml)
-- 2026-06-30 04:20 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/297936500020.shtml)
-- 2026-06-30 04:25 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/466302.shtml)
-- 2026-06-30 04:44 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/388530721474.shtml)
-- 2026-06-30 04:42 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/5392913757.shtml)
-- 2026-06-30 04:44 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/213788558.shtml)
-- 2026-06-30 04:47 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/42104774146.shtml)
-- 2026-06-30 04:29 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/218621209774.shtml)
-- 2026-06-30 04:29 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/9473768.shtml)
-- 2026-06-30 04:40 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/03370169089.shtml)
-- 2026-06-30 04:24 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/718146.shtml)
-- 2026-06-30 04:40 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/7978365683.shtml)
-- 2026-06-30 04:18 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/583750.shtml)
-- 2026-06-30 04:46 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/07724388.shtml)
+- 2026-06-30 04:30 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/1109868910.shtml)
+- 2026-06-30 04:43 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/106343.shtml)
+- 2026-06-30 04:48 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/131684.shtml)
+- 2026-06-30 04:38 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/918296.shtml)
+- 2026-06-30 04:35 - [恋与深空 日服](http://www.share.minike.top/Article/details/601819.shtml)
+- 2026-06-30 04:44 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/950041740.shtml)
+- 2026-06-30 04:28 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/90282218.shtml)
+- 2026-06-30 04:49 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/39034824.shtml)
+- 2026-06-30 04:38 - [DeepSeek V4正式版要来了](https://www.blog.kurohicncr.top/Article/details/76162902.shtml)
+- 2026-06-30 04:53 - [扬名立万](https://www.share.minike.top/Article/details/125696241.shtml)
+- 2026-06-30 04:43 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/607171094.shtml)
+- 2026-06-30 04:46 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/90449069116.shtml)
+- 2026-06-30 04:41 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/87317452.shtml)
+- 2026-06-30 04:50 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/516738643724.shtml)
+- 2026-06-30 04:43 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/9816815892.shtml)

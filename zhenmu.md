@@ -1,61 +1,58 @@
-# 华为出手！688347，涨停
+# 中央气象台：广东广西等地有较强降水
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-专题：半导体领域取得新突破！华为发布韬（τ）定律 创造芯片性能提升新范式 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】极致行情上演，芯片半导体暴涨 中国基金报记者 泰勒 大家好啊，今天的市场，太极致了！芯片半导体全线暴涨，美中不足的是，个股跌多涨少，一起看看今天到底发生了什么事情。 5月25日，亚洲市场全线暴涨。日经225指
+中新网4月23日电 据中央气象台网站消息，预计23日至24日，华南等地部分地区仍有较强降雨，局地并伴有强对流天气，关注较强降水和局地强对流天气对交通运输、农业生产等的不利影响；未来三天，内蒙古东北部、东北地区等地有降水天气，关注对设施农业、畜牧业等的影响。 广东广西等地有较强降水 23日至24日，广东、广西东部、海南岛等地将有较强降雨，局地暴雨或大暴雨，并伴有强对流天气；内蒙古
 
 ## 正文
 
-专题：半导体领域取得新突破！
+中新网4月23日电 据中央气象台网站消息，预计23日至24日，华南等地部分地区仍有较强降雨，局地并伴有强对流天气，关注较强降水和局地强对流天气对交通运输、农业生产等的不利影响；未来三天，内蒙古东北部、东北地区等地有降水天气，关注对设施农业、畜牧业等的影响。
 
-华为发布韬（τ）定律 创造芯片性能提升新范式 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+广东广西等地有较强降水 23日至24日，广东、广西东部、海南岛等地将有较强降雨，局地暴雨或大暴雨，并伴有强对流天气；内蒙古东北部、黑龙江北部等地部分地区有小到中雨(雪)或雨夹雪，局地大雪或暴雪。
 
-来源：中国基金报 【导读】极致行情上演，芯片半导体暴涨 中国基金报记者 泰勒 大家好啊，今天的市场，太极致了！
+预计，4月23日08时至24日08时，广西东南部、广东南部、福建东南部等地部分地区有大到暴雨，其中，广东西南部等地部分地区有大暴雨(100～130毫米)。
 
-芯片半导体全线暴涨，美中不足的是，个股跌多涨少，一起看看今天到底发生了什么事情。
+上述部分地区伴有短时强降水(最大小时降雨量20～40毫米，局地可超过50毫米)，局地有雷暴大风等强对流天气。
 
-5月25日，亚洲市场全线暴涨。
+中央气象台4月23日06时继续发布暴雨蓝色预警。
 
-日经225指数收盘上涨1819.12点，涨幅达2.87%，报65157.97点，创历史新高。
+国内未来三天具体预报 4月23日08时至24日08时，内蒙古东北部、黑龙江北部、新疆北疆北部和南疆西部山区、青海南部等地部分地区有小雪或雨夹雪，其中，内蒙古东北部、黑龙江西北部等地部分地区有中到大雪；福建东南部、广东中南部、广西东南部、台湾岛北部等地部分地区有中到大雨，其中，福建东南部、广东西南部等地部分地区有暴雨或大暴雨(100～130毫米)。
 
-中国台湾加权指数暴涨超3%。
+青海中西部、甘肃河西、川西高原北部等地部分地区有4～6级风。
 
-韩国股市以及港股休市。
+4月24日08时至25日08时，内蒙古东北部、黑龙江北部和东部、新疆沿天山地区和南疆西部山区等地部分地区有小雪或雨夹雪，其中，内蒙古东北部、黑龙江西北部等地部分地区有中到大雪；华南南部、福建东南部、海南岛、台湾岛等地部分地区有中到大雨，其中，广东南部、海南岛东北部等地部分地区有暴雨。
 
 ## 相关推荐
 
-- 2026-06-30 04:35 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-30 04:28 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-30 04:19 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-30 04:43 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 04:32 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 04:39 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-30 04:42 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-30 04:42 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-30 04:42 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-30 04:43 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-30 04:41 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 04:34 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-30 04:25 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-30 04:23 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-30 04:26 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-30 04:45 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-30 04:32 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-30 04:27 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 04:40 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-30 04:28 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-30 04:47 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-30 04:35 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-30 04:37 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-30 04:48 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-30 04:24 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-30 04:34 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 04:36 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:26 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/33888.shtml)
-- 2026-06-30 04:43 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/2286486706.shtml)
-- 2026-06-30 04:37 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/1691286.shtml)
-- 2026-06-30 04:46 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/9140478.shtml)
-- 2026-06-30 04:41 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/00109058917.shtml)
-- 2026-06-30 04:44 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/35760.shtml)
-- 2026-06-30 04:31 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/32162633.shtml)
-- 2026-06-30 04:29 - [田曦薇没招了](https://www.blog.minike.top/Article/details/32378043.shtml)
-- 2026-06-30 04:20 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/7110817.shtml)
-- 2026-06-30 04:23 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/977278884.shtml)
-- 2026-06-30 04:39 - [巴西醒醒 这是淘汰赛](https://www.blog.minike.top/Article/details/847727.shtml)
-- 2026-06-30 04:39 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/62055584596.shtml)
-- 2026-06-30 04:45 - [审核了不止十年的低创鬼畜](https://www.blog.minike.top/Article/details/9463407738.shtml)
-- 2026-06-30 04:38 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/91558.shtml)
-- 2026-06-30 04:33 - [扬名立万](http://www.share.minike.top/Article/details/47236.shtml)
+- 2026-06-30 04:37 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/7378894.shtml)
+- 2026-06-30 04:24 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/8461678.shtml)
+- 2026-06-30 04:45 - [沉睡花园](https://www.blog.minike.top/Article/details/99360523.shtml)
+- 2026-06-30 04:31 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/91474785019.shtml)
+- 2026-06-30 04:53 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/1568818.shtml)
+- 2026-06-30 04:24 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/98729070814.shtml)
+- 2026-06-30 04:41 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/39810.shtml)
+- 2026-06-30 04:30 - [日本进球](https://www.share.minike.top/Article/details/779220211327.shtml)
+- 2026-06-30 04:24 - [日本进球](https://www.blog.kurohicncr.top/Article/details/77295.shtml)
+- 2026-06-30 04:49 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/7030153.shtml)
+- 2026-06-30 04:50 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/9727195.shtml)
+- 2026-06-30 04:38 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/992170494280.shtml)
+- 2026-06-30 04:29 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/19701.shtml)
+- 2026-06-30 04:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/190471306.shtml)
+- 2026-06-30 04:36 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/70602299078.shtml)

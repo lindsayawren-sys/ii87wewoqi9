@@ -1,49 +1,57 @@
-# 明确超龄劳动者权益 首部专门规章7月1日起施行
+# 欧元区私营部门商业活动意外萎缩 服务业大幅下滑
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-5月25日，人力资源社会保障部等5部门对外发布《超龄劳动者基本权益保障暂行规定》，自7月1日起施行。这是我国首部明确超龄劳动者权益的专门规章，填补了我国现行劳动法律制度的短板，明确了用人单位与超龄劳动者的权利和义务，保障超龄劳动者的劳动报酬、休息休假、劳动安全卫生、工伤保障等合法权益。 记者：张晓洁
+欧元区商业活动2024年底以来首次意外萎缩，伊朗战争给消费者带来压力，导致服务业大幅下滑。 标普全球编制的综合采购经理人指数（PMI） 4月份降至48.6，跌破50的荣枯分界线。上月数据为50.7，分析师此前预测跌至50.1。 这一趋势与德国类似，该国工业保持稳定，而服务业则大幅下滑。法国制造业表现超出预期，创下2022年以来最佳，但服务业也下滑。整个地区的物价压力持续上升。
 
 ## 正文
 
-5月25日，人力资源社会保障部等5部门对外发布《超龄劳动者基本权益保障暂行规定》，自7月1日起施行。
+欧元区商业活动2024年底以来首次意外萎缩，伊朗战争给消费者带来压力，导致服务业大幅下滑。
 
-这是我国首部明确超龄劳动者权益的专门规章，填补了我国现行劳动法律制度的短板，明确了用人单位与超龄劳动者的权利和义务，保障超龄劳动者的劳动报酬、休息休假、劳动安全卫生、工伤保障等合法权益。
+标普全球编制的综合采购经理人指数（PMI） 4月份降至48.6，跌破50的荣枯分界线。
 
-记者：张晓洁
+上月数据为50.7，分析师此前预测跌至50.1。
+
+这一趋势与德国类似，该国工业保持稳定，而服务业则大幅下滑。
+
+法国制造业表现超出预期，创下2022年以来最佳，但服务业也下滑。
+
+整个地区的物价压力持续上升。
+
+“欧元区正面临中东战争带来的日益严重的经济困境，这给政策制定者带来了巨大难题，”S&P Global Market Intelligence首席商业经济学家Chris Williamson周四在一份声明中表示。
+
+“与此同时，日益普遍的供应短缺可能会进一步抑制经济增长，并在未来几周内给价格带来更大的上行压力。
 
 ## 相关推荐
 
-- 2026-06-30 04:32 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-30 04:20 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-30 04:41 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-30 04:35 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-30 04:24 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-30 04:47 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-30 04:35 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-30 04:21 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-30 04:20 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-30 04:37 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-30 04:26 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-30 04:30 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-30 04:27 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 04:48 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-30 04:51 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 04:38 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 04:39 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 04:49 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-30 04:36 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-30 04:46 - [房价什么时候能涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-30 04:53 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 04:43 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-30 04:36 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-30 04:45 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:20 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/30601367.shtml)
-- 2026-06-30 04:23 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/32683422.shtml)
-- 2026-06-30 04:33 - [蔚来车主罚站](https://www.share.minike.top/Article/details/20428387896.shtml)
-- 2026-06-30 04:47 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/04949184186.shtml)
-- 2026-06-30 04:32 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/341058263797.shtml)
-- 2026-06-30 04:23 - [流金岁月](http://www.share.kurohicncr.top/Article/details/4330545.shtml)
-- 2026-06-30 04:46 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/065512.shtml)
-- 2026-06-30 04:19 - [警犬“多多”助民警寻回失联老人](https://www.share.kurohicncr.top/Article/details/9305792586.shtml)
-- 2026-06-30 04:32 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/352597579.shtml)
-- 2026-06-30 04:29 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/105310172000.shtml)
-- 2026-06-30 04:45 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/805985770768.shtml)
-- 2026-06-30 04:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/64525565651.shtml)
-- 2026-06-30 04:45 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/35815498.shtml)
-- 2026-06-30 04:40 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/11723282156.shtml)
-- 2026-06-30 04:43 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/73915122.shtml)
+- 2026-06-30 04:36 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/587670.shtml)
+- 2026-06-30 04:38 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/40340855353.shtml)
+- 2026-06-30 04:24 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/2403026.shtml)
+- 2026-06-30 04:44 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/44681.shtml)
+- 2026-06-30 04:30 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/6553508539.shtml)
+- 2026-06-30 04:37 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/28169167674.shtml)
+- 2026-06-30 04:52 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/891556082741.shtml)
+- 2026-06-30 04:40 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/31166833304.shtml)
+- 2026-06-30 04:27 - [日本进球](http://www.share.minike.top/Article/details/656030.shtml)
+- 2026-06-30 04:29 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/9439212628.shtml)
+- 2026-06-30 04:27 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/28446918934.shtml)
+- 2026-06-30 04:28 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/2062585892.shtml)
+- 2026-06-30 04:25 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/476053375210.shtml)
+- 2026-06-30 04:45 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/72901322728.shtml)
+- 2026-06-30 04:30 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/204529439512.shtml)

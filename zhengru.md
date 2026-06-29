@@ -1,48 +1,58 @@
-# 两座大桥同日合龙 通甬高铁再迎新进展
+# 涨价拉动快递公司业绩，燃油成本仍成隐忧
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月25日 23:05 来源：中国新闻网 5月25日，浙江嘉兴，通甬高铁海盐段迎来重要进展。通甬高铁全线施工难度最大、安全风险最高的重难点控制性工程之一跨百步亭港T构连续梁，与跨秦山大道连续梁顺利实现合龙，为加快后续施工奠定基础。据悉，通甬高铁是国家“八纵八横”高速铁路网沿海客运通道的核心组成部分，也是长三角城际轨道交通骨干干线。(记者 王刚 制作 侯诗蕊
+除了行业普涨，快递公司也积极通过技术进行降本。 快递行业涨价的影响逐步体现在快递公司财报业绩中。 去年7月以来，多地陆续宣布快递调价。近期多家快递公司发布的2025年年报显示，受去年下半年行业涨价影响，快递价格得到理性回升，行业竞争环境持续向好。 涨价且增效 4月23日，圆通速递发布了2025年年报和2026年一季度财报。 圆通年报显示，公司全年实现营业收入752.8亿元，同比
 
 ## 正文
 
-发布时间：2026年05月25日 23:05 来源：中国新闻网 5月25日，浙江嘉兴，通甬高铁海盐段迎来重要进展。
+除了行业普涨，快递公司也积极通过技术进行降本。
 
-通甬高铁全线施工难度最大、安全风险最高的重难点控制性工程之一跨百步亭港T构连续梁，与跨秦山大道连续梁顺利实现合龙，为加快后续施工奠定基础。
+快递行业涨价的影响逐步体现在快递公司财报业绩中。
 
-据悉，通甬高铁是国家“八纵八横”高速铁路网沿海客运通道的核心组成部分，也是长三角城际轨道交通骨干干线。
+去年7月以来，多地陆续宣布快递调价。
 
-(记者 王刚 制作 侯诗蕊) 责任编辑：【曲克】
+近期多家快递公司发布的2025年年报显示，受去年下半年行业涨价影响，快递价格得到理性回升，行业竞争环境持续向好。
+
+涨价且增效 4月23日，圆通速递发布了2025年年报和2026年一季度财报。
+
+圆通年报显示，公司全年实现营业收入752.8亿元，同比增长9.05%；归母净利润43.2亿元，同比增长7.73%。
+
+一季度营收为187.7亿元，同比增长10.01%。
+
+归属于上市公司股东的净利润为13.8亿元，同比增长60.76%。
 
 ## 相关推荐
 
-- 2026-06-30 04:20 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-30 04:36 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 04:23 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-30 04:32 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-30 04:23 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-30 04:31 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-30 04:42 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-30 04:31 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-30 04:18 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-30 04:36 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 04:43 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-30 04:32 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-30 04:46 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-30 04:34 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-30 04:31 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-30 04:30 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 04:29 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-30 04:45 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-30 04:48 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-30 04:36 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 04:26 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 04:52 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:45 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/961917363985.shtml)
-- 2026-06-30 04:28 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/924893392.shtml)
-- 2026-06-30 04:36 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/97979.shtml)
-- 2026-06-30 04:29 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/318149974.shtml)
-- 2026-06-30 04:30 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/471205946536.shtml)
-- 2026-06-30 04:29 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/5544515.shtml)
-- 2026-06-30 04:39 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/9964282.shtml)
-- 2026-06-30 04:47 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/9200931208.shtml)
-- 2026-06-30 04:25 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/65136.shtml)
-- 2026-06-30 04:24 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/722453.shtml)
-- 2026-06-30 04:27 - [第一炉香](http://www.blog.minike.top/Article/details/73626.shtml)
-- 2026-06-30 04:20 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/9117881188.shtml)
-- 2026-06-30 04:38 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/053229113338.shtml)
-- 2026-06-30 04:20 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/533393581.shtml)
-- 2026-06-30 04:21 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/65488670.shtml)
+- 2026-06-30 04:37 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/175756865.shtml)
+- 2026-06-30 04:32 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/38684891.shtml)
+- 2026-06-30 04:50 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/567918735.shtml)
+- 2026-06-30 04:47 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/05354.shtml)
+- 2026-06-30 04:46 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/030044519.shtml)
+- 2026-06-30 04:28 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/1320755345.shtml)
+- 2026-06-30 04:40 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/216700641370.shtml)
+- 2026-06-30 04:34 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/78828.shtml)
+- 2026-06-30 04:45 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/74444733.shtml)
+- 2026-06-30 04:30 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/3372654.shtml)
+- 2026-06-30 04:33 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/5564590891.shtml)
+- 2026-06-30 04:27 - [起风了](https://www.blog.kurohicncr.top/Article/details/49701.shtml)
+- 2026-06-30 04:35 - [二次元提前预演明日巴西对日本](https://www.share.kurohicncr.top/Article/details/352958752449.shtml)
+- 2026-06-30 04:49 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/53898551603.shtml)
+- 2026-06-30 04:36 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/33646.shtml)

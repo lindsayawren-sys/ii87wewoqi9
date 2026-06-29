@@ -1,57 +1,59 @@
-# 带壳食用荔枝能避免上火？专家：不建议！
+# 美卫生部长出席国会听证会 疫苗问题成焦点
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-这几天，云南等多地荔枝迎来丰收季，各大水果市场也迎来上市高峰。荔枝清甜多汁，味道鲜美，但食用的时候还藏着不少营养学问和需要注意的事项。吃荔枝有什么讲究？来看专家怎么说。 荔枝营养丰富 贪多或得“荔枝病” 荔枝果肉中水分占了八成左右，其余主要是糖、多酚、蛋白质和矿物质。荔枝不仅风味出众，营养价值也相当可观：维生素C含量是橙子的近1.2倍，果肉中的原花青素、花青素还能抗炎降血脂，有
+中新社华盛顿4月22日电 (记者 沙晗汀)美国卫生与公共服务部长小罗伯特·肯尼迪当地时间22日就2027财年预算出席国会参议院两场委员会听证会，疫苗问题成为听证会的焦点。 小罗伯特·肯尼迪当天分别出席了参议院金融委员会和参议院卫生、教育、劳工、养老金委员会听证会。这是他近来就2027财年预算出席7场国会听证会的最后两场。 在当天的听证会上，多位民主党议员对小罗伯特·肯尼迪“散布
 
 ## 正文
 
-这几天，云南等多地荔枝迎来丰收季，各大水果市场也迎来上市高峰。
+中新社华盛顿4月22日电 (记者 沙晗汀)美国卫生与公共服务部长小罗伯特·肯尼迪当地时间22日就2027财年预算出席国会参议院两场委员会听证会，疫苗问题成为听证会的焦点。
 
-荔枝清甜多汁，味道鲜美，但食用的时候还藏着不少营养学问和需要注意的事项。
+小罗伯特·肯尼迪当天分别出席了参议院金融委员会和参议院卫生、教育、劳工、养老金委员会听证会。
 
-吃荔枝有什么讲究？
+这是他近来就2027财年预算出席7场国会听证会的最后两场。
 
-来看专家怎么说。
+在当天的听证会上，多位民主党议员对小罗伯特·肯尼迪“散布关于疫苗虚假信息”的做法表示批评，并要求他对美国儿童疫苗接种率下降以及麻疹病例增加提供解决方案。
 
-荔枝营养丰富 贪多或得“荔枝病” 荔枝果肉中水分占了八成左右，其余主要是糖、多酚、蛋白质和矿物质。
+小罗伯特·肯尼迪表示，疫苗接种率下降是因为美国民众对政府在疫情期间推荐防疫措施失去信心，他正在努力恢复政府信誉。
 
-荔枝不仅风味出众，营养价值也相当可观：维生素C含量是橙子的近1.2倍，果肉中的原花青素、花青素还能抗炎降血脂，有机酸帮助消化、软化血管。
+小罗伯特·肯尼迪还说，美国麻疹病例增多“与我无关”。
 
-华南农业大学食品学院副院长 赵雷：研究发现，在目前已知的水果之中，荔枝中的伽马氨基丁酸含量是最高的。
+当前全球多个国家出现麻疹病例增加的趋势，包括加拿大、墨西哥、英国。
 
-它有非常好的抗抑郁、助睡眠等效果。
+“我们支持接种麻疹疫苗，我们建议所有儿童接种麻疹疫苗。
 
 ## 相关推荐
 
-- 2026-06-30 04:33 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-30 04:47 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-30 04:28 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 04:43 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-30 04:27 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-30 04:22 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-30 04:19 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-30 04:40 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 04:32 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-30 04:19 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-30 04:34 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-30 04:26 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-30 04:45 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-30 04:36 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-30 04:53 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-30 04:38 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-30 04:43 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-30 04:37 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-30 04:30 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 04:38 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-30 04:31 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-30 04:42 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-30 04:39 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-30 04:29 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:18 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/066323.shtml)
-- 2026-06-30 04:44 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/8581830307.shtml)
-- 2026-06-30 04:37 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/55049346.shtml)
-- 2026-06-30 04:22 - [美股](http://www.blog.kurohicncr.top/Article/details/57563893626.shtml)
-- 2026-06-30 04:37 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/11836.shtml)
-- 2026-06-30 04:23 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/5110980795.shtml)
-- 2026-06-30 04:28 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/66587.shtml)
-- 2026-06-30 04:45 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/68791.shtml)
-- 2026-06-30 04:46 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/017142.shtml)
-- 2026-06-30 04:27 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/17388387.shtml)
-- 2026-06-30 04:38 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/13667161.shtml)
-- 2026-06-30 04:46 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/9915754124.shtml)
-- 2026-06-30 04:47 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/854773.shtml)
-- 2026-06-30 04:24 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/39747810763.shtml)
-- 2026-06-30 04:33 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.minike.top/Article/details/677251464479.shtml)
+- 2026-06-30 04:45 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/74142419.shtml)
+- 2026-06-30 04:32 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/78563556527.shtml)
+- 2026-06-30 04:50 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/787902149672.shtml)
+- 2026-06-30 04:29 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/2819150286.shtml)
+- 2026-06-30 04:50 - [格力遥控器里有黄金](https://www.share.minike.top/Article/details/351684077810.shtml)
+- 2026-06-30 04:38 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/92540.shtml)
+- 2026-06-30 04:43 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/63277830859.shtml)
+- 2026-06-30 04:35 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/2028623492.shtml)
+- 2026-06-30 04:24 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/15636431.shtml)
+- 2026-06-30 04:44 - [田曦薇没招了](http://www.blog.minike.top/Article/details/9477828643.shtml)
+- 2026-06-30 04:34 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/329809.shtml)
+- 2026-06-30 04:25 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/86255385701.shtml)
+- 2026-06-30 04:29 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/94518757955.shtml)
+- 2026-06-30 04:52 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/82514410.shtml)
+- 2026-06-30 04:47 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/259595107307.shtml)

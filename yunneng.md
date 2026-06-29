@@ -1,57 +1,46 @@
-# 美股相对美债的风险溢价近乎消失
+# 常熟银行：第一季度净利润12.04亿元，同比增长11.10%
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-投资者正以狂热势头涌入股市。但从一项指标来看，股市现在似乎和互联网泡沫破裂后一样缺乏吸引力。 这个指标就是股权风险溢价，通常定义为标普500指数的盈利率与10年期美国国债收益率之差；盈利率是指公司利润相对于股票估值的百分比。最近几周，这一差距几乎消失，目前处于新千年以来最低水平之列。 换言之，一个粗略衡量股票预期回报率的指标，如今仅略高于极其安全的政府债券所能带来的收益。 主要
+4月23日金融一线消息，常熟银行公告，2026年第一季度营收为31.71亿元，同比增长6.74%；净利润为12.04亿元，同比增长11.10%。 责任编辑：李琳琳
 
 ## 正文
 
-投资者正以狂热势头涌入股市。
+4月23日金融一线消息，常熟银行公告，2026年第一季度营收为31.71亿元，同比增长6.74%；净利润为12.04亿元，同比增长11.10%。
 
-但从一项指标来看，股市现在似乎和互联网泡沫破裂后一样缺乏吸引力。
-
-这个指标就是股权风险溢价，通常定义为标普500指数的盈利率与10年期美国国债收益率之差；盈利率是指公司利润相对于股票估值的百分比。
-
-最近几周，这一差距几乎消失，目前处于新千年以来最低水平之列。
-
-换言之，一个粗略衡量股票预期回报率的指标，如今仅略高于极其安全的政府债券所能带来的收益。
-
-主要原因在于：对通胀的担忧引发了全球债券抛售，从而推高美国国债收益率。
-
-伊朗冲突和霍尔木兹海峡的关闭导致今年油价上涨了约60%，并极大地改变了投资者对降息的预期，人们一度认为降息在2026年是板上钉钉之事。
-
-美国总统特朗普（Trump）上周末表示，美国和伊朗接近达成重新开放霍尔木兹海峡的协议。
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-30 04:41 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 04:38 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-30 04:35 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-30 04:46 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-30 04:47 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-30 04:43 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-30 04:20 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-30 04:30 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 04:36 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-30 04:32 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-30 04:43 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-30 04:35 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-30 04:44 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-30 04:52 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-30 04:47 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-30 04:43 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 04:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-30 04:50 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-30 04:29 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-30 04:50 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-30 04:29 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-30 04:26 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-30 04:33 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:18 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/4372284509.shtml)
-- 2026-06-30 04:44 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/50440.shtml)
-- 2026-06-30 04:33 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/74767.shtml)
-- 2026-06-30 04:41 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/3356721.shtml)
-- 2026-06-30 04:26 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/9267525.shtml)
-- 2026-06-30 04:25 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/833178.shtml)
-- 2026-06-30 04:22 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/60410.shtml)
-- 2026-06-30 04:22 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/558022106777.shtml)
-- 2026-06-30 04:27 - [巴西2比1日本](https://www.blog.kurohicncr.top/Article/details/940504.shtml)
-- 2026-06-30 04:38 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/71865.shtml)
-- 2026-06-30 04:23 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/06470801.shtml)
-- 2026-06-30 04:43 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/97823388701.shtml)
-- 2026-06-30 04:33 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/312388.shtml)
-- 2026-06-30 04:36 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/74080.shtml)
-- 2026-06-30 04:26 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/47589.shtml)
+- 2026-06-30 04:36 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/4447454903.shtml)
+- 2026-06-30 04:39 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/974035026.shtml)
+- 2026-06-30 04:33 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/198930.shtml)
+- 2026-06-30 04:28 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/37055.shtml)
+- 2026-06-30 04:28 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/82238747331.shtml)
+- 2026-06-30 04:47 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/177503106791.shtml)
+- 2026-06-30 04:50 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/2184116197.shtml)
+- 2026-06-30 04:32 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/44838676.shtml)
+- 2026-06-30 04:41 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/58468901148.shtml)
+- 2026-06-30 04:53 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/594832405502.shtml)
+- 2026-06-30 04:44 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/831530850.shtml)
+- 2026-06-30 04:36 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/43401140.shtml)
+- 2026-06-30 04:27 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/501041814912.shtml)
+- 2026-06-30 04:28 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/53648.shtml)
+- 2026-06-30 04:53 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/616501.shtml)

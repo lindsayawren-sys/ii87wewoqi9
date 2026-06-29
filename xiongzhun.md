@@ -1,47 +1,57 @@
-# 汇川技术：公司认为人形机器人产业仍处于非常早期阶段
+# 第十三批在韩中国人民志愿军烈士遗骸在沈阳安葬
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-证券日报网5月25日讯，汇川技术在接受调研者提问时表示，公司认为人形机器人产业仍处于非常早期阶段，零部件和整机都处于快速进化阶段，未来存在较好机遇。公司将通过人形机器人核心零部件技术优势赋能产业，并凭借丰富工业场景资源，推动人形机器人解决方案在工业领域落地。
+中新社沈阳4月23日电 (记者 李纯 韩宏)第十三批在韩中国人民志愿军烈士遗骸安葬仪式23日在沈阳抗美援朝烈士陵园举行。12位为保家卫国英勇牺牲在异国他乡的志愿军烈士英灵，阔别祖国70多年后回到中华大地安息。当天，陵园下沉式纪念广场环形烈士英名墙下摆满了黄白相间的菊花，参加仪式的人们列队整齐，肃穆站立。 上午10时，仪式正式开始，军乐队奏响《思念曲》。在解放军仪仗司礼大队官兵持
 
 ## 正文
 
-证券日报网5月25日讯，汇川技术在接受调研者提问时表示，公司认为人形机器人产业仍处于非常早期阶段，零部件和整机都处于快速进化阶段，未来存在较好机遇。
+中新社沈阳4月23日电 (记者 李纯 韩宏)第十三批在韩中国人民志愿军烈士遗骸安葬仪式23日在沈阳抗美援朝烈士陵园举行。
 
-公司将通过人形机器人核心零部件技术优势赋能产业，并凭借丰富工业场景资源，推动人形机器人解决方案在工业领域落地。
+12位为保家卫国英勇牺牲在异国他乡的志愿军烈士英灵，阔别祖国70多年后回到中华大地安息。
+
+当天，陵园下沉式纪念广场环形烈士英名墙下摆满了黄白相间的菊花，参加仪式的人们列队整齐，肃穆站立。
+
+上午10时，仪式正式开始，军乐队奏响《思念曲》。
+
+在解放军仪仗司礼大队官兵持枪护卫下，礼兵们迈着整齐的步伐，护送志愿军烈士棺椁缓步进入纪念广场。
+
+全场奏唱中华人民共和国国歌。
+
+退役军人事务部党组书记、部长裴金佳致祭文后，全体人员向志愿军烈士三鞠躬。
+
+27名礼兵连续鸣枪12响，以鸣枪礼向志愿军烈士致以最崇高敬意。
 
 ## 相关推荐
 
-- 2026-06-30 04:20 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-30 04:38 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 04:22 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-30 04:31 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-30 04:18 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-30 04:38 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-30 04:40 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-30 04:44 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-30 04:18 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-30 04:46 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 04:42 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-30 04:35 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-30 04:30 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-30 04:27 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-30 04:38 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-30 04:48 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-30 04:48 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 04:42 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 04:51 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 04:27 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 04:28 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 04:53 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 04:45 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 04:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:39 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/812501989472.shtml)
-- 2026-06-30 04:46 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/18563485.shtml)
-- 2026-06-30 04:33 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/69598957.shtml)
-- 2026-06-30 04:34 - [孙兴慜道歉](http://www.share.minike.top/Article/details/6845692.shtml)
-- 2026-06-30 04:39 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/56936.shtml)
-- 2026-06-30 04:33 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/316377.shtml)
-- 2026-06-30 04:42 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/29841962.shtml)
-- 2026-06-30 04:46 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/44192085.shtml)
-- 2026-06-30 04:43 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/26030.shtml)
-- 2026-06-30 04:23 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/80322535677.shtml)
-- 2026-06-30 04:44 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/754869236.shtml)
-- 2026-06-30 04:30 - [沉睡花园](https://www.blog.minike.top/Article/details/439040513287.shtml)
-- 2026-06-30 04:34 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/63516.shtml)
-- 2026-06-30 04:25 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/572505138669.shtml)
-- 2026-06-30 04:34 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/73485311160.shtml)
+- 2026-06-30 04:30 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/87766252.shtml)
+- 2026-06-30 04:26 - [巴西补时绝杀日本](https://www.share.kurohicncr.top/Article/details/0223684375.shtml)
+- 2026-06-30 04:30 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/400243813509.shtml)
+- 2026-06-30 04:24 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/20512136.shtml)
+- 2026-06-30 04:35 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/132279255.shtml)
+- 2026-06-30 04:46 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/98864.shtml)
+- 2026-06-30 04:48 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/75055236759.shtml)
+- 2026-06-30 04:34 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/5981938.shtml)
+- 2026-06-30 04:39 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/26614724725.shtml)
+- 2026-06-30 04:53 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/883108.shtml)
+- 2026-06-30 04:26 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/990154718006.shtml)
+- 2026-06-30 04:48 - [巴西绝杀日本](http://www.blog.minike.top/Article/details/22066868.shtml)
+- 2026-06-30 04:48 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/58445.shtml)
+- 2026-06-30 04:48 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/7300514.shtml)
+- 2026-06-30 04:50 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/477136815575.shtml)

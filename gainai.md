@@ -1,59 +1,57 @@
-# 长江电力5月25日大宗交易成交3600.45万元
+# 中信证券：厄尔尼诺预期升温，或催化新一轮煤价表现
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-长江电力5月25日大宗交易平台出现一笔成交，成交量135.00万股，成交金额3600.45万元，大宗交易成交价为26.67元。该笔交易的买方营业部为广发证券股份有限公司上海浦东新区东方路证券营业部，卖方营业部为国泰海通证券股份有限公司泰安迎胜东路证券营业部。进一步统计，近3个月内该股累计发生4笔大宗交易，合计成交金额为7644.93万元。证券时报·数据宝统计显示，长江电力今日收
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！中信证券研究 文|祖国鹏 赵柏霖 黄杰 厄尔尼诺现象发生概率增加，或带来夏季高温天数增加，利好国内电煤需求提振，也有可能带动印度动力煤需求增加，利好全球煤价预期。我们看好Q2煤价表现，即便中东冲突缓和，能源供应恢复也需要时间，叠加气候因素影响，国内外煤价在Q2中后期或形成共振，煤、化价格上涨的效应在Q2也有
 
 ## 正文
 
-长江电力5月25日大宗交易平台出现一笔成交，成交量135.00万股，成交金额3600.45万元，大宗交易成交价为26.67元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-该笔交易的买方营业部为广发证券股份有限公司上海浦东新区东方路证券营业部，卖方营业部为国泰海通证券股份有限公司泰安迎胜东路证券营业部。
+中信证券研究 文|祖国鹏 赵柏霖 黄杰 厄尔尼诺现象发生概率增加，或带来夏季高温天数增加，利好国内电煤需求提振，也有可能带动印度动力煤需求增加，利好全球煤价预期。
 
-进一步统计，近3个月内该股累计发生4笔大宗交易，合计成交金额为7644.93万元。
+我们看好Q2煤价表现，即便中东冲突缓和，能源供应恢复也需要时间，叠加气候因素影响，国内外煤价在Q2中后期或形成共振，煤、化价格上涨的效应在Q2也有望充分体现，我们认为，煤价预期新的催化剂正逐步形成，板块有望进入新一轮反弹行情。
 
-证券时报·数据宝统计显示，长江电力今日收盘价为26.67元，上涨0.41%，日换手率为0.34%，成交额为22.46亿元，全天主力资金净流出4653.96万元，近5日该股累计下跌0.82%，近5日资金合计净流出5.60亿元。
+▍厄尔尼诺现象预期升温，夏季高温天数或增加。
 
-两融数据显示，该股最新融资余额为121.34亿元，近5日增加2.18亿元，增幅为1.83%。
+近期，市场对厄尔尼诺现象关注度提升。
 
-据天眼查APP显示，中国长江电力股份有限公司成立于2002年11月04日，注册资本2446821.7716万人民币。
+根据央广网相关报道，国家气候中心预计，今年5月将进入厄尔尼诺状态，并于夏秋季形成一次中等及以上强度的厄尔尼诺事件。
 
-（数据宝）5月25日长江电力大宗交易一览注：本文系新闻报道，不构成投资建议，股市有风险，投资需谨慎。
+按照历史经验，厄尔尼诺现象发生当年，国内北方大部分地区和华中东北部地区夏季高温天数或较往年增多。
 
-（文章来源：证券时报网）
+▍近30年国内发生5次厄尔尼诺现象，多数情况下对火电耗煤需求都有提振。
 
 ## 相关推荐
 
-- 2026-06-30 04:31 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-30 04:30 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-30 04:24 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-30 04:30 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-30 04:32 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-30 04:35 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-30 04:18 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 04:22 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-30 04:35 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-30 04:28 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-30 04:18 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-30 04:44 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-30 04:40 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-30 04:43 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-30 04:29 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 04:48 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-30 04:25 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-30 04:37 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-30 04:39 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-30 04:41 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-30 04:28 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 04:36 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-30 04:33 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-30 04:24 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:41 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/54253538983.shtml)
-- 2026-06-30 04:33 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/4820535950.shtml)
-- 2026-06-30 04:30 - [王欣瑜2-1击败科恰雷托](https://www.share.minike.top/Article/details/443496.shtml)
-- 2026-06-30 04:34 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/848661244.shtml)
-- 2026-06-30 04:29 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/6975581879.shtml)
-- 2026-06-30 04:33 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/26123.shtml)
-- 2026-06-30 04:22 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/14722026084.shtml)
-- 2026-06-30 04:18 - [刘必安等16人非法集资案二审宣判](https://www.share.minike.top/Article/details/3899963739.shtml)
-- 2026-06-30 04:28 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/889418.shtml)
-- 2026-06-30 04:30 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/534268938.shtml)
-- 2026-06-30 04:25 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/6956398047.shtml)
-- 2026-06-30 04:28 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/40861172.shtml)
-- 2026-06-30 04:40 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/4411320662.shtml)
-- 2026-06-30 04:22 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/364788.shtml)
-- 2026-06-30 04:46 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/9844953417.shtml)
+- 2026-06-30 04:30 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/314670036405.shtml)
+- 2026-06-30 04:47 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/9404571592.shtml)
+- 2026-06-30 04:41 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/475836.shtml)
+- 2026-06-30 04:40 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/884965339.shtml)
+- 2026-06-30 04:46 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/7828658.shtml)
+- 2026-06-30 04:32 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/39074.shtml)
+- 2026-06-30 04:27 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/99652.shtml)
+- 2026-06-30 04:36 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/59390663171.shtml)
+- 2026-06-30 04:51 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/7785283.shtml)
+- 2026-06-30 04:30 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/415881.shtml)
+- 2026-06-30 04:48 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/22972.shtml)
+- 2026-06-30 04:41 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/97978120.shtml)
+- 2026-06-30 04:38 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/27968.shtml)
+- 2026-06-30 04:49 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/2672104.shtml)
+- 2026-06-30 04:39 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/482196715.shtml)

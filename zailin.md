@@ -1,46 +1,54 @@
-# 5月25日周末要闻：特朗普称美伊协议“尚未完全谈妥” 国际油价大跌
+# 北京银行：关文杰董事、董事长的任职资格获监管核准
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-上周国际市场回顾 5月23日收盘：道指再创新高 标普500指数连续第八周上涨 5月23日美股成交额前20：富途非法跨境展业被重罚被罚18.5亿 5月23日热门中概股多数下跌 富途控股跌27.53%，蔚来跌7.05% 大宗商品综述：油价微涨 伦铜上涨 金价走低 欧洲市场录得逾一个月最大单周涨幅 市场憧憬伊朗和平解决方案达成 宏观 特朗普：美伊协议“尚未完全谈妥” 美国务卿称美伊协
+4月23日金融一线消息，北京银行公告称，本行于近日收到《北京金融监管局关于关文杰北京银行股份有限公司董事、董事长任职资格的批复》（京金复〔2026〕218 号）。国家金融监督管理总局北京监管局已核准关文杰先生本行董事、董事长的任职资格。 简历显示，关文杰，文学硕士，高级会计师。现任北京银行党委书记。曾任北京农村商业银行党委书记、董事长；华夏银行党委副书记、董事、行长；华夏银行党
 
 ## 正文
 
-上周国际市场回顾 5月23日收盘：道指再创新高 标普500指数连续第八周上涨 5月23日美股成交额前20：富途非法跨境展业被重罚被罚18.5亿 5月23日热门中概股多数下跌 富途控股跌27.53%，蔚来跌7.05% 大宗商品综述：油价微涨 伦铜上涨 金价走低 欧洲市场录得逾一个月最大单周涨幅 市场憧憬伊朗和平解决方案达成 宏观 特朗普：美伊协议“尚未完全谈妥” 美国务卿称美伊协议草案获多国支持 伊朗称解冻资金事宜与铀料处置无关 伊朗方面称现阶段伊尚未就核问题的细节做出任何承诺 欧洲央行召集各家银行，着手修补人工智能模型暴露的系统漏洞 公司 史上最大IPO，关键一战！
+4月23日金融一线消息，北京银行公告称，本行于近日收到《北京金融监管局关于关文杰北京银行股份有限公司董事、董事长任职资格的批复》（京金复〔2026〕218 号）。
 
-华尔街，重大警告！
+国家金融监督管理总局北京监管局已核准关文杰先生本行董事、董事长的任职资格。
 
-三星海力士杠杆ETF即将上市 韩国千万散户需求旺盛 分析师预警波动风险 日产旗下子公司取消在英国生产电动汽车动力总成的计划 特朗普的3711笔股票交易引发审视：自动化调仓、税损收割还是另有玄机 评论 阿联酋等八国发表联合声明 谴责以色列国家安全部长 阿曼与伊朗就霍尔木兹海峡航运等议题举行磋商 美政府高官：与伊朗的协议预计不会在24日签署 美谈判人员认为伊最高领袖已认可协议整体框架 美伊协议重点在于“结束地区战争” 美官员：美伊双方谈判已完成“95%” 高浓缩铀问题是关键 哈塞特：结束伊朗战争或为美联储降息创造空间 拉加德：欧洲央行或将在6月上调通胀预期 伊朗官员：霍尔木兹海峡的管理不会恢复到战前状态 内塔尼亚胡告诉特朗普，以色列将继续保留对威胁采取行动的自由 伊朗局势缓和提振风险偏好相关资产，外汇市场反应或相对滞后 消息人士称，潜在协议包含伊朗承诺不
+简历显示，关文杰，文学硕士，高级会计师。
+
+现任北京银行党委书记。
+
+曾任北京农村商业银行党委书记、董事长；华夏银行党委副书记、董事、行长；华夏银行党委常委、董事、副行长、首席财务官；华夏银行会计部总经理、计划财务部总经理、财务负责人、首席财务官、计划财务部总经理兼金融市场部总经理；华夏银行青岛分行党委书记、行长；华夏银行青岛分行党委委员、副行长；华夏银行青岛分行计划财务部总经理；华夏银行青岛支行计划财会处副处长（主持工作）、处长；华夏银行青岛支行会计财务处负责人、副处长；此前，关文杰曾在中国建设银行从事相关工作。
+
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-30 04:26 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-30 04:34 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-30 04:47 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-30 04:43 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-30 04:24 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-30 04:21 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-30 04:44 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-30 04:20 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-30 04:35 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-30 04:24 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-30 04:24 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-30 04:37 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-30 04:26 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-30 04:33 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-30 04:32 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-30 04:31 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-30 04:36 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-30 04:30 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 04:50 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 04:37 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-30 04:35 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-30 04:49 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:19 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/88912625.shtml)
-- 2026-06-30 04:31 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/127506.shtml)
-- 2026-06-30 04:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/2154795.shtml)
-- 2026-06-30 04:22 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/54854.shtml)
-- 2026-06-30 04:35 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/014407945657.shtml)
-- 2026-06-30 04:42 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/42944.shtml)
-- 2026-06-30 04:29 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/00179232.shtml)
-- 2026-06-30 04:23 - [金刚川](http://www.share.minike.top/Article/details/246078657760.shtml)
-- 2026-06-30 04:40 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/84162.shtml)
-- 2026-06-30 04:43 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/0047992318.shtml)
-- 2026-06-30 04:24 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/92028.shtml)
-- 2026-06-30 04:19 - [一见倾心](http://www.share.minike.top/Article/details/024626.shtml)
-- 2026-06-30 04:18 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/424141.shtml)
-- 2026-06-30 04:34 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/5965223.shtml)
-- 2026-06-30 04:23 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/165544193.shtml)
+- 2026-06-30 04:53 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/3485901097.shtml)
+- 2026-06-30 04:37 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/03520.shtml)
+- 2026-06-30 04:47 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/806890764220.shtml)
+- 2026-06-30 04:47 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/21868.shtml)
+- 2026-06-30 04:28 - [内马尔中场休息积极鼓励队友](https://www.share.kurohicncr.top/Article/details/3643069.shtml)
+- 2026-06-30 04:27 - [巴西绝杀](https://www.share.minike.top/Article/details/5606250.shtml)
+- 2026-06-30 04:32 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/81904.shtml)
+- 2026-06-30 04:44 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/4926862150.shtml)
+- 2026-06-30 04:46 - [极限挑战第一季](https://www.share.minike.top/Article/details/592516985256.shtml)
+- 2026-06-30 04:33 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/728210.shtml)
+- 2026-06-30 04:24 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/078982619535.shtml)
+- 2026-06-30 04:48 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/0479696443.shtml)
+- 2026-06-30 04:32 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/999908001.shtml)
+- 2026-06-30 04:42 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/41474929.shtml)
+- 2026-06-30 04:52 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/730434733.shtml)

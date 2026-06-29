@@ -1,58 +1,56 @@
-# 加拿大央行官员：劳动力市场活力不足给本国经济带来风险
+# 我国发现并申报的第十一种月球新矿物铈镁嫦娥石获批
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-加拿大央行副行长称，数据显示加拿大如今陷入低招聘、低裁员的劳动力市场格局：主动跳槽的劳动者数量减少，企业因担心流失专业技能人才，也更倾向于保留现有员工。 加拿大央行副行原定在蒙特利尔面向学界发表讲话，其预先准备的讲稿中提到：“这一切催生了市场惰性。”他表示，当前就业格局会给经济带来风险。 “劳动力从低生产率行业向高生产率行业的流转速度可能放缓。劳动力流动性不足，会削弱经济体应对
+科技日报北京4月22日电 (记者操秀英)22日，记者从自然资源部中国地质调查局获悉，经国际矿物学会新矿物命名与分类专业委员会评审投票，由中国地质科学院侯增谦院士团队发现并申报的月球新矿物——铈镁嫦娥石正式获得批准。这是人类发现的第十一种月球新矿物，也是继美国和德国科研团队之后，在月球陨石中发现的第三种月球新矿物。至此我国发现的月球新矿物达到了4个，和美国并列成为发现月球新矿物最
 
 ## 正文
 
-加拿大央行副行长称，数据显示加拿大如今陷入低招聘、低裁员的劳动力市场格局：主动跳槽的劳动者数量减少，企业因担心流失专业技能人才，也更倾向于保留现有员工。
+科技日报北京4月22日电 (记者操秀英)22日，记者从自然资源部中国地质调查局获悉，经国际矿物学会新矿物命名与分类专业委员会评审投票，由中国地质科学院侯增谦院士团队发现并申报的月球新矿物——铈镁嫦娥石正式获得批准。
 
-加拿大央行副行原定在蒙特利尔面向学界发表讲话，其预先准备的讲稿中提到：“这一切催生了市场惰性。
+这是人类发现的第十一种月球新矿物，也是继美国和德国科研团队之后，在月球陨石中发现的第三种月球新矿物。
 
-”他表示，当前就业格局会给经济带来风险。
+至此我国发现的月球新矿物达到了4个，和美国并列成为发现月球新矿物最多的国家。
 
-“劳动力从低生产率行业向高生产率行业的流转速度可能放缓。
+科研人员是在第一块坠落在我国境内的月球陨石——Pakepake 005陨石中发现铈镁嫦娥石的。
 
-劳动力流动性不足，会削弱经济体应对外部冲击的能力、阻碍创新、损害竞争力，进而拖累生产效率，抑制居民收入增长与整体购买力。
+2024年1月22日，该陨石被发现于新疆塔克拉玛干沙漠，单颗球状陨石重44克，表面覆盖深色熔壳，可见钙长石的白色碎屑以及深色碎屑。
 
-” 加拿大最新就业数据显示，4月失业率攀升至六个月新高；2026年至今，全国就业岗位净减少11.2万个。
+铈镁嫦娥石Magnesiochangesite-(Ce)是一种新的含稀土磷酸盐矿物，属于三方晶系，是硅铈石超族陨磷钙钠石族的新成员。
 
-樊尚指出，目前劳动力市场呈现供给小幅过剩的状态，2025年初以来，加拿大月均新增就业岗位仅约6000个。
+“铈、镁”分别代表矿物富含稀土元素铈和镁元素，“嫦娥石”则体现了中国探月工程的文化传承。
 
-部分经济学家与交易员认为，劳动力市场走弱是加拿大央行今年大概率将政策利率维持在2.25%不变的主要原因。
+据介绍，铈镁嫦娥石呈无色透明状，具有玻璃光泽，性脆，具贝壳状断口，并表现出明显的荧光效应。
 
 ## 相关推荐
 
-- 2026-06-30 04:28 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-30 04:26 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-30 04:34 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 04:28 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 04:38 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-30 04:43 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-30 04:44 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-30 04:42 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-30 04:38 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-30 04:31 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-30 04:23 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-30 04:31 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-30 04:35 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 04:44 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-30 04:42 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-30 04:34 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-30 04:35 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 04:36 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 04:43 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-30 04:48 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-30 04:45 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-30 04:28 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:46 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/09232734.shtml)
-- 2026-06-30 04:33 - [巴西扳平比分](http://www.blog.minike.top/Article/details/98124.shtml)
-- 2026-06-30 04:40 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/01187200.shtml)
-- 2026-06-30 04:32 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/56723852.shtml)
-- 2026-06-30 04:44 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/7678646.shtml)
-- 2026-06-30 04:44 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/52826883.shtml)
-- 2026-06-30 04:42 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/355114153.shtml)
-- 2026-06-30 04:18 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/772017437.shtml)
-- 2026-06-30 04:23 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/1286832.shtml)
-- 2026-06-30 04:29 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/46279295.shtml)
-- 2026-06-30 04:39 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/310255.shtml)
-- 2026-06-30 04:22 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/47679.shtml)
-- 2026-06-30 04:31 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/29082334.shtml)
-- 2026-06-30 04:27 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/6588205.shtml)
-- 2026-06-30 04:45 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/73241412.shtml)
+- 2026-06-30 04:24 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/013976721476.shtml)
+- 2026-06-30 04:24 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/148815147.shtml)
+- 2026-06-30 04:43 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/11020139659.shtml)
+- 2026-06-30 04:33 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/05279.shtml)
+- 2026-06-30 04:44 - [流金岁月](https://www.blog.minike.top/Article/details/324558.shtml)
+- 2026-06-30 04:33 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/5569996824.shtml)
+- 2026-06-30 04:42 - [德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/10605098.shtml)
+- 2026-06-30 04:53 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/00922639.shtml)
+- 2026-06-30 04:32 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/946711758.shtml)
+- 2026-06-30 04:43 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/146134743.shtml)
+- 2026-06-30 04:37 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/966889027.shtml)
+- 2026-06-30 04:33 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/413753431511.shtml)
+- 2026-06-30 04:33 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/77728635.shtml)
+- 2026-06-30 04:33 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/674455902.shtml)
+- 2026-06-30 04:42 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/7404274.shtml)

@@ -1,57 +1,58 @@
-# “全国科技工作者日”欢乐科学周落幕：完善“全国一盘棋”科普联动机制
+# 易方达参与建设的两大智能体开源项目登顶GitHub趋势榜单
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-中新网北京5月26日电 (记者 孙自法)记者5月26日从中国科技馆获悉，为期5天的2026年现代科技馆体系联合行动暨自然科学类博物馆系列科普活动“全国科技工作者日”欢乐科学周近日圆满落幕，实现了现代科技馆体系从“场馆联动”升级到“生态共建”，将进一步完善“全国一盘棋”科普联动机制，激活科普资源协同共享。 作为“十五五”开局之年现代科技馆体系服务大众的重要活动之一，本次活动聚焦“
+4月16日至17日，由易方达金融科技团队参与技术贡献的AI智能体开源项目——轻量化自主智能体框架GenericAgent，连续两日登上全球最大开源平台GitHub的趋势榜单（GitHub trending）榜首，在Python项目中排名（Python Ranking）第一。此前3月24日，易方达金融科技团队参与建设的另一个项目——超级智能体框架 DeerFlow也登顶该榜单。
 
 ## 正文
 
-中新网北京5月26日电 (记者 孙自法)记者5月26日从中国科技馆获悉，为期5天的2026年现代科技馆体系联合行动暨自然科学类博物馆系列科普活动“全国科技工作者日”欢乐科学周近日圆满落幕，实现了现代科技馆体系从“场馆联动”升级到“生态共建”，将进一步完善“全国一盘棋”科普联动机制，激活科普资源协同共享。
+4月16日至17日，由易方达金融科技团队参与技术贡献的AI智能体开源项目——轻量化自主智能体框架GenericAgent，连续两日登上全球最大开源平台GitHub的趋势榜单（GitHub trending）榜首，在Python项目中排名（Python Ranking）第一。
 
-作为“十五五”开局之年现代科技馆体系服务大众的重要活动之一，本次活动聚焦“欢乐科学、强国同行”主题，通过联动全国200余家各级科技馆、自然科学类博物馆及科研院所、高校、企业，带来一场科普点亮中原、多元体验创新开启沉浸式科学探索的“科普盛宴”。
+此前3月24日，易方达金融科技团队参与建设的另一个项目——超级智能体框架 DeerFlow也登顶该榜单。
 
-这次欢乐科学周一体化布局六大板块，推出五大主题展览、多场科学展演、科学之夜等精品内容，让科学走出书本、走出实验室，变得可触可感、可亲可近。
+GitHub 作为全球领先的开源代码托管与协作平台，汇聚超 1 亿开发者，开发者可自主提交代码优化申请，为平台进行技术贡献。
 
-其中，“科技创新成果科普展”“河南省前沿科技成果展”“河南省健康科普展”“蔚蓝奇境——共生与未来”“国家安全长城行”等展览集中亮相，以可视化、互动化、场景化方式，实现“展览即课堂、参观即学习”的科普目标。
+GitHub官方每天会从代码提交活跃度、开发者协作质量、项目增长速度等多维度进行指标加权，形成趋势榜单。
 
-欢乐科学剧场精彩不断、科学大舞台好戏连台，来自全国各地科技馆、中小学、高校、科研院所等72家单位的150个优秀科普作品、文艺节目汇聚一堂，轮番上演，并通过网络平台同步线上直播。
+该榜单是业内重要的技术风向标，项目登上榜首不仅是技术实力的有力证明，更是全球热度、开源影响力与行业价值的集中体现。
 
-连续3天的“科学之夜”打造“科学不夜城”，科普电影展映、科学创意市集、科普脱口秀、沉浸式互动奇妙游等活动精彩纷呈，丰富民众文化生活，激活城市夜经济。
+易方达金融科技团队参与建设并先后登顶榜单的两大开源项目，均为新一代自主智能体开源代码框架，可覆盖不同场景下的智能体应用需求。
 
-活动以“1+N”创新模式构建覆盖城乡的科普服务矩阵。
+其中，超级智能体框架 DeerFlow侧重多智能体协同统筹，能够一站式处理复杂任务、提升运行效率；轻量化自主智能体框架 GenericAgent架构简洁、资源占用较低，具备自主学习进化能力，适配性可随使用持续优化提升。
 
-河南省科技馆主场5天累计服务观众近8万人次，线上直播观看量达110万余人次；郑州、洛阳、鹤壁、焦作、许昌、漯河、南阳、驻马店、济源等9个地市科技馆，以及河南自然博物馆、郑州市动物园等，同步推出特色活动近300场，累计服务公众12万余人次；流动科技馆、科普大篷车等流动科普服务深入基层，从省会城市到县域乡村，从线下互动到线上联动，优质的科学教育资源跨越地域限制，实现“优质资源直达基层、走进公众”。
+针对这两个项目的技术实现细节，易方达金融科技团队结合实践经验梳理方向，所提交的优化代码经项目主导方审核验收，成功并入项目主分支，体现了其对易方达金融科技团队技术优化方案的认可，展现了公司在AI智能体领域坚实的底层技术储备。
 
 ## 相关推荐
 
-- 2026-06-30 04:42 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-30 04:44 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-30 04:24 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-30 04:37 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-30 04:40 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-30 04:36 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 04:21 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-30 04:22 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 04:23 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-30 04:31 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-30 04:43 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-30 04:47 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-30 04:30 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 04:28 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-30 04:39 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-30 04:30 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-30 04:29 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-30 04:45 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-30 04:36 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-30 04:47 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-30 04:30 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-30 04:29 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 04:24 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:31 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/414764840.shtml)
-- 2026-06-30 04:25 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/98261.shtml)
-- 2026-06-30 04:19 - [巴西2比1日本](http://www.share.kurohicncr.top/Article/details/18297072.shtml)
-- 2026-06-30 04:31 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/825742407502.shtml)
-- 2026-06-30 04:36 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/9306288.shtml)
-- 2026-06-30 04:42 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/0783791013.shtml)
-- 2026-06-30 04:31 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/94017.shtml)
-- 2026-06-30 04:27 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/020578505768.shtml)
-- 2026-06-30 04:23 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/98054625108.shtml)
-- 2026-06-30 04:26 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/27337561.shtml)
-- 2026-06-30 04:48 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/1985757229.shtml)
-- 2026-06-30 04:24 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/47189.shtml)
-- 2026-06-30 04:41 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.minike.top/Article/details/769641824.shtml)
-- 2026-06-30 04:21 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/415786483743.shtml)
-- 2026-06-30 04:34 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/86736.shtml)
+- 2026-06-30 04:50 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.minike.top/Article/details/99217490.shtml)
+- 2026-06-30 04:33 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/63732346652.shtml)
+- 2026-06-30 04:45 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/408345821383.shtml)
+- 2026-06-30 04:35 - [王欣瑜2-1击败科恰雷托](https://www.blog.minike.top/Article/details/0464859.shtml)
+- 2026-06-30 04:35 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/21332.shtml)
+- 2026-06-30 04:45 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/82848404708.shtml)
+- 2026-06-30 04:47 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/8116686.shtml)
+- 2026-06-30 04:38 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/731248041145.shtml)
+- 2026-06-30 04:43 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/479088471.shtml)
+- 2026-06-30 04:51 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/968894993731.shtml)
+- 2026-06-30 04:29 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/436575437553.shtml)
+- 2026-06-30 04:34 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/7340649.shtml)
+- 2026-06-30 04:41 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/22332.shtml)
+- 2026-06-30 04:24 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/617490.shtml)
+- 2026-06-30 04:40 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/590316961.shtml)

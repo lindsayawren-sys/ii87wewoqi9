@@ -1,56 +1,59 @@
-# 侨胞助力侨乡越野跑活动 “农文体旅”融合带动乡村振兴
+# ServiceNow因利润率展望不佳股价下跌
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-中新网温州5月26日电 在浙南海岛洞头，首届洞头石浦海岛野奢跑·龟岩挑战赛日前鸣枪开跑。 活动由浙江省温州市洞头区大门镇石浦村、温州市跑步协会、温州大学侨留联(欧美同学会)联合主办，超500名来自全国各地的跑友参与。参赛者在11公里的赛道上盘山而上，途经百年石屋聚落、临海观景平台，抵达龟岩景区，全程爬升438米。 男子组冠军赵国虎以45分39秒完赛，他表示，“赛道很有挑战性，但
+尽管第一季度销售增长强劲，但ServiceNow由于利润率展望不及预期，股价大幅下挫。 分析师预计这家企业软件公司调整后每股利润为0.97美元。营收同比增长22%，达到37.7亿美元，超出分析师预期。剩余履约义务增长25%，达到277亿美元，表明需求强劲。 投资者关注利润表现。ServiceNow预计全年订阅毛利率为81.5%，低于此前的82.1%。该公司表示，近期的收购导致了
 
 ## 正文
 
-中新网温州5月26日电 在浙南海岛洞头，首届洞头石浦海岛野奢跑·龟岩挑战赛日前鸣枪开跑。
+尽管第一季度销售增长强劲，但ServiceNow由于利润率展望不及预期，股价大幅下挫。
 
-活动由浙江省温州市洞头区大门镇石浦村、温州市跑步协会、温州大学侨留联(欧美同学会)联合主办，超500名来自全国各地的跑友参与。
+分析师预计这家企业软件公司调整后每股利润为0.97美元。
 
-参赛者在11公里的赛道上盘山而上，途经百年石屋聚落、临海观景平台，抵达龟岩景区，全程爬升438米。
+营收同比增长22%，达到37.7亿美元，超出分析师预期。
 
-男子组冠军赵国虎以45分39秒完赛，他表示，“赛道很有挑战性，但沿途补给很到位，尤其是完赛包和百家宴，在其他赛事里很少见。
+剩余履约义务增长25%，达到277亿美元，表明需求强劲。
 
-”女子组选手程唤唤则以57分21秒夺冠。
+投资者关注利润表现。
 
-石浦村市派第一书记周春雷介绍，此次赛事完赛包中除常规补给外，还放入了村里代表性农特产品羊栖菜。
+ServiceNow预计全年订阅毛利率为81.5%，低于此前的82.1%。
 
-村中还设置了近百桌“十大碗”宴席，凑成百家宴，葱油黄鱼、夹粉包等一道道地道菜肴，向参赛者展现了当地乡土文化与渔家美食。
+该公司表示，近期的收购导致了这一差距，预计到2027年该差距将缩小。
 
-赛事筹办期间，一位在迪拜经商的邻村村民得知家乡办赛的消息后，专门委托朋友代为捐赠1万元(人民币，下同)，并附言“人在海外，心在家里”，助力赛事举办。
+尽管销售仍在增长，但投资者对利润率感到担忧，股价盘后下跌14%。
 
 ## 相关推荐
 
-- 2026-06-30 04:46 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 04:18 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-30 04:29 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 04:23 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-30 04:41 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-30 04:32 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-30 04:24 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-30 04:32 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-30 04:39 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 04:45 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-30 04:24 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-30 04:52 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-30 04:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-30 04:41 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-30 04:48 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-30 04:47 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 04:47 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-30 04:53 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-30 04:33 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-30 04:48 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 04:43 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-30 04:45 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-30 04:52 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:36 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/21530288463.shtml)
-- 2026-06-30 04:39 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/289570045.shtml)
-- 2026-06-30 04:39 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/388015970.shtml)
-- 2026-06-30 04:32 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/77766.shtml)
-- 2026-06-30 04:23 - [世界杯](http://www.blog.kurohicncr.top/Article/details/4284660.shtml)
-- 2026-06-30 04:24 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/22409236263.shtml)
-- 2026-06-30 04:43 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/408267085.shtml)
-- 2026-06-30 04:42 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/925493.shtml)
-- 2026-06-30 04:19 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/40320374.shtml)
-- 2026-06-30 04:47 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/87606446642.shtml)
-- 2026-06-30 04:21 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/370736755275.shtml)
-- 2026-06-30 04:33 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/2904616.shtml)
-- 2026-06-30 04:19 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/4548338260.shtml)
-- 2026-06-30 04:47 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.minike.top/Article/details/448980780258.shtml)
-- 2026-06-30 04:34 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/3640094480.shtml)
+- 2026-06-30 04:35 - [逃狱兄弟](https://www.share.minike.top/Article/details/5423353.shtml)
+- 2026-06-30 04:49 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/143529543.shtml)
+- 2026-06-30 04:50 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/3846629713.shtml)
+- 2026-06-30 04:29 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/530218633827.shtml)
+- 2026-06-30 04:24 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/4833100.shtml)
+- 2026-06-30 04:31 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/47024115774.shtml)
+- 2026-06-30 04:43 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/76148.shtml)
+- 2026-06-30 04:24 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/61064976.shtml)
+- 2026-06-30 04:53 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/16862.shtml)
+- 2026-06-30 04:52 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/370888.shtml)
+- 2026-06-30 04:36 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/555077631296.shtml)
+- 2026-06-30 04:50 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/17781981.shtml)
+- 2026-06-30 04:40 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/394281.shtml)
+- 2026-06-30 04:35 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/23300754712.shtml)
+- 2026-06-30 04:40 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/7297856.shtml)

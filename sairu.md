@@ -1,56 +1,56 @@
-# 三大投票结果出炉！网友这次怎么看后市？
+# 燃油成本飙升，美国航空腰斩2026年盈利预期
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-上周关于纳斯达克、纽约原油、伦敦金的三大投票结果已经正式出炉。在这次投票里，市场情绪其实出现了一个非常明显的信号：大家对科技股依然偏乐观，但对黄金和原油，分歧明显加大。 首先是纳斯达克指数。在“纳斯达克100本周五收盘价”投票中：61%的用户选择了29000-30000点区间，最终成功命中结果。反映出着：市场当前依然认为AI主线并没有结束。即使近期波动加大，资金仍在持续回流AI
+据媒体4月23日报道，受中东冲突推高航空燃油成本影响，美国航空（American Airlines）周四大幅下调2026年全年盈利预期，直言利润空间正遭受严重侵蚀。 该公司最新指引显示，预计全年调整后每股收益将在亏损0.40美元至盈利1.10美元之间，远低于1月份预测的1.70至2.70美元。首席执行官罗伯特·艾索姆（Robert Isom）指出，自美以袭击伊朗事件发生以来，燃
 
 ## 正文
 
-上周关于纳斯达克、纽约原油、伦敦金的三大投票结果已经正式出炉。
+据媒体4月23日报道，受中东冲突推高航空燃油成本影响，美国航空（American Airlines）周四大幅下调2026年全年盈利预期，直言利润空间正遭受严重侵蚀。
 
-在这次投票里，市场情绪其实出现了一个非常明显的信号：大家对科技股依然偏乐观，但对黄金和原油，分歧明显加大。
+该公司最新指引显示，预计全年调整后每股收益将在亏损0.40美元至盈利1.10美元之间，远低于1月份预测的1.70至2.70美元。
 
-首先是纳斯达克指数。
+首席执行官罗伯特·艾索姆（Robert Isom）指出，自美以袭击伊朗事件发生以来，燃油成本已增加约40亿美元，成为业绩下修的核心原因。
 
-在“纳斯达克100本周五收盘价”投票中：61%的用户选择了29000-30000点区间，最终成功命中结果。
+为应对成本压力，美国航空正通过提高票价、燃油附加费和行李费来转嫁部分成本，并可能收紧运力增长计划。
 
-反映出着：市场当前依然认为AI主线并没有结束。
+尽管面临挑战，公司预计第二季度营收仍将实现双位数增长。
 
-即使近期波动加大，资金仍在持续回流AI、半导体、科技龙头等热门板块。
+目前，美国航空业正普遍受到高油价冲击。
 
-而原油这边，情绪则明显出现变化。
+联合航空已下调全年盈利指引并计划削减运力，而精神航空等廉价航司更是面临破产风险。
 
-此前很多人担心：中东局势升级、油价继续暴涨。
+分析指出，若地缘政治紧张局势持续，全球航空业的脆弱资产负债表将面临更大压力。
 
 ## 相关推荐
 
-- 2026-06-30 04:29 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-30 04:46 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-30 04:43 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-30 04:27 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-30 04:22 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-30 04:32 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-30 04:23 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-30 04:20 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-30 04:20 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-30 04:44 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-30 04:50 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 04:25 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-30 04:53 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 04:52 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-30 04:39 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-30 04:33 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-30 04:37 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-30 04:41 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-30 04:50 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-30 04:36 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:36 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/079971691118.shtml)
-- 2026-06-30 04:24 - [日本16强魔咒](http://www.blog.minike.top/Article/details/52803901.shtml)
-- 2026-06-30 04:42 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/1152723.shtml)
-- 2026-06-30 04:47 - [流金岁月](http://www.blog.minike.top/Article/details/082766123.shtml)
-- 2026-06-30 04:42 - [《共患难》](https://www.share.kurohicncr.top/Article/details/6287117.shtml)
-- 2026-06-30 04:44 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/104317862687.shtml)
-- 2026-06-30 04:23 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/80826808851.shtml)
-- 2026-06-30 04:26 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/395871763500.shtml)
-- 2026-06-30 04:18 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/38857.shtml)
-- 2026-06-30 04:25 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/746930405844.shtml)
-- 2026-06-30 04:47 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/611808874.shtml)
-- 2026-06-30 04:34 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/5110605022.shtml)
-- 2026-06-30 04:36 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/000849.shtml)
-- 2026-06-30 04:27 - [世界杯](http://www.blog.minike.top/Article/details/895308539.shtml)
-- 2026-06-30 04:29 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/796452055020.shtml)
+- 2026-06-30 04:36 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/15703.shtml)
+- 2026-06-30 04:46 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/647362.shtml)
+- 2026-06-30 04:52 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/83310389914.shtml)
+- 2026-06-30 04:48 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/7330846.shtml)
+- 2026-06-30 04:50 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/3452793001.shtml)
+- 2026-06-30 04:25 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/13332604214.shtml)
+- 2026-06-30 04:25 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/304598.shtml)
+- 2026-06-30 04:45 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/6380380.shtml)
+- 2026-06-30 04:39 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/2535872.shtml)
+- 2026-06-30 04:46 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/33195.shtml)
+- 2026-06-30 04:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/02038.shtml)
+- 2026-06-30 04:24 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/9855793458.shtml)
+- 2026-06-30 04:41 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/05856010.shtml)
+- 2026-06-30 04:24 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/71312.shtml)
+- 2026-06-30 04:26 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/16851025639.shtml)

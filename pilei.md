@@ -1,56 +1,54 @@
-# 乐山商业银行破2200亿，批零贷款占比飙升至53%，去年净利创新高
+# 金融街嘉年华“筷乐大作战”，30秒夹多少领多少
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-日前，知名区域城商行——乐山市商业银行公布了2025年报及今年一季度经营信息，在当前“你追我赶”且激烈竞争的川内城商行中，又表现如何？先看业绩，2025年，乐山商业银行实现营收56.57亿元，较上年增加近13亿元，同比增幅29.78%。其中，利息净收入同比增幅30.76%，新增11.75亿元至近50亿元，占总营收的88.3%。此外，其该期内实现手续费及佣金净收入近2.22亿元，
+专题：2026金融街智绘春光嘉年华 4月25日，今日进行的2026金融街智绘春光嘉年华上，主办单位特别设置的“筷乐大作战”互动点位，约20名家长、孩童排队“候战”，凭长筷现场夹取零食，30秒内夹起多少带走多少。 据游戏规则，参赛人需先和机器人/吉祥物猜拳，成功后可进行长筷子夹取零食挑战，30秒内夹取多少带走多少。现场，有参赛者一筷夹起数袋零食，引发围观者一片“哇哦”惊呼。 新浪
 
 ## 正文
 
-日前，知名区域城商行——乐山市商业银行公布了2025年报及今年一季度经营信息，在当前“你追我赶”且激烈竞争的川内城商行中，又表现如何？
+专题：2026金融街智绘春光嘉年华 4月25日，今日进行的2026金融街智绘春光嘉年华上，主办单位特别设置的“筷乐大作战”互动点位，约20名家长、孩童排队“候战”，凭长筷现场夹取零食，30秒内夹起多少带走多少。
 
-先看业绩，2025年，乐山商业银行实现营收56.57亿元，较上年增加近13亿元，同比增幅29.78%。
+据游戏规则，参赛人需先和机器人/吉祥物猜拳，成功后可进行长筷子夹取零食挑战，30秒内夹取多少带走多少。
 
-其中，利息净收入同比增幅30.76%，新增11.75亿元至近50亿元，占总营收的88.3%。
+现场，有参赛者一筷夹起数袋零食，引发围观者一片“哇哦”惊呼。
 
-此外，其该期内实现手续费及佣金净收入近2.22亿元，同比增幅51.47%；投资收益约5.26亿元，同比翻倍；公允价值变动亏损0.667亿元，同比由盈转亏且有所拖累。
+新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
 
-从整体看，乐山商业银行去年传统存贷差基本盘、中间业务收入及投资收益均取得了较显著的增长。
-
-去年，乐山商业银行业务及管理费同比新增2.23亿元至14.69亿元，增幅17.9%，而信用减值损失同比新增5.43亿元至22.36亿元，增幅达到32.06%，跟上年同比变化相比较而言，计提拨备力度明显加大。
-
-该期内，乐山商业银行实现营业利润18.39亿元，同比增幅45.53%，新增5.75亿元；净利润12.58亿元，同比增幅69%，新增约5.51亿元。
-
-依此看，乐山商业银行在多元业务营收较快增长的推动下，虽运营成本增幅近18%且计提信用减值损失超三成，但净利润同比增幅近七成，业绩确实较惊艳。
+责任编辑：王翔
 
 ## 相关推荐
 
-- 2026-06-30 04:24 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 04:26 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-30 04:19 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-30 04:44 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-30 04:25 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-30 04:21 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 04:36 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-30 04:38 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-30 04:33 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-30 04:46 - [恋与深空制作组回应近期争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-30 04:41 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-30 04:53 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 04:27 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-30 04:29 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-30 04:33 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 04:46 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-30 04:38 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-30 04:29 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-30 04:50 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-30 04:38 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 04:37 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-30 04:49 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-30 04:31 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-30 04:42 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:43 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/515830089.shtml)
-- 2026-06-30 04:24 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/917942.shtml)
-- 2026-06-30 04:29 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/50580787639.shtml)
-- 2026-06-30 04:44 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/23722009774.shtml)
-- 2026-06-30 04:44 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/106165625469.shtml)
-- 2026-06-30 04:47 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/1576014533.shtml)
-- 2026-06-30 04:46 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/865095563.shtml)
-- 2026-06-30 04:39 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/55036.shtml)
-- 2026-06-30 04:39 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/41902141184.shtml)
-- 2026-06-30 04:36 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/90408.shtml)
-- 2026-06-30 04:44 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.kurohicncr.top/Article/details/3433442035.shtml)
-- 2026-06-30 04:44 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/30556812880.shtml)
-- 2026-06-30 04:38 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/0723571393.shtml)
-- 2026-06-30 04:43 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/16730556.shtml)
-- 2026-06-30 04:37 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/4855606127.shtml)
+- 2026-06-30 04:47 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/07073052059.shtml)
+- 2026-06-30 04:40 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/46445737.shtml)
+- 2026-06-30 04:37 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/647512062578.shtml)
+- 2026-06-30 04:36 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/53338.shtml)
+- 2026-06-30 04:50 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/141901.shtml)
+- 2026-06-30 04:53 - [佐野海舟远射破门](http://www.share.minike.top/Article/details/57398892342.shtml)
+- 2026-06-30 04:49 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/630142772337.shtml)
+- 2026-06-30 04:26 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/159977177320.shtml)
+- 2026-06-30 04:35 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/3609040.shtml)
+- 2026-06-30 04:47 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/625362074.shtml)
+- 2026-06-30 04:44 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/953618.shtml)
+- 2026-06-30 04:34 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/20631.shtml)
+- 2026-06-30 04:33 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/9945832.shtml)
+- 2026-06-30 04:49 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/080141.shtml)
+- 2026-06-30 04:53 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/703976586.shtml)

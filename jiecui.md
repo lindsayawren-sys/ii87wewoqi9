@@ -1,46 +1,56 @@
-# 伊朗媒体披露更多潜在谅解备忘录内容
+# 大摩：平安好医生给予“与大市同步”评级 目标价16.8港元
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月25日 10:54 来源：央视新闻 责任编辑：【王祎】
+摩根士丹利发布研报称，平安好医生（01833）第一季度业绩反映经营正迈向全年目标，首季收入同比增长9.1%至11.6亿元人民币（下同）；净利润为7，910万元，同比大幅增长138.4%；经调整净利润为8，440万元，同比增长45.8%。该行认为，收入增长幅度较小可能反映服务提供模式及会计方法调整，利润增长更能体现公司实际经济效益。该行现予平安好医生目标价16.8港元及“与大市同
 
 ## 正文
 
-发布时间：2026年05月25日 10:54 来源：央视新闻 责任编辑：【王祎】
+摩根士丹利发布研报称，平安好医生（01833）第一季度业绩反映经营正迈向全年目标，首季收入同比增长9.1%至11.6亿元人民币（下同）；净利润为7，910万元，同比大幅增长138.4%；经调整净利润为8，440万元，同比增长45.8%。
+
+该行认为，收入增长幅度较小可能反映服务提供模式及会计方法调整，利润增长更能体现公司实际经济效益。
+
+该行现予平安好医生目标价16.8港元及“与大市同步”评级。
+
+报告提到，公司的企业健康管理业务保持稳健，过去12个月付费用户超过7，500名，同比增长89%，支持交易总额（GMV）的健康增长。
+
+截至第一季度，新的二维码支付服务已覆盖全国11.1万家药房，促进了商业保险与线上线下（O2O）的整合。
+
+另外，截至第一季度，AI医生用户达到560万名，其多学科会诊（MDT）平台提供的复杂疾病方案，在AI辅助下的准确率达到约95%。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 04:43 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-30 04:47 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-30 04:35 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-30 04:40 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-30 04:44 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 04:29 - [日本进球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-30 04:24 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-30 04:24 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-30 04:23 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-30 04:23 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 04:40 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 04:42 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-30 04:40 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-30 04:20 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 04:33 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 04:36 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-30 04:29 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-30 04:53 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-30 04:34 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-30 04:42 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-30 04:36 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-30 04:41 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-30 04:28 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-30 04:34 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 04:24 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-30 04:43 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:26 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/56797964816.shtml)
-- 2026-06-30 04:45 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/1358300089.shtml)
-- 2026-06-30 04:43 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/2842072052.shtml)
-- 2026-06-30 04:34 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/6753112.shtml)
-- 2026-06-30 04:38 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/7286371913.shtml)
-- 2026-06-30 04:46 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/5254365.shtml)
-- 2026-06-30 04:27 - [恋与深空制作组回应近期争议](https://www.share.kurohicncr.top/Article/details/49568182568.shtml)
-- 2026-06-30 04:40 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/063087777.shtml)
-- 2026-06-30 04:24 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/030571.shtml)
-- 2026-06-30 04:37 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/768797865079.shtml)
-- 2026-06-30 04:41 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/44579.shtml)
-- 2026-06-30 04:42 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/1272531.shtml)
-- 2026-06-30 04:27 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/513880427150.shtml)
-- 2026-06-30 04:27 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/897100.shtml)
-- 2026-06-30 04:25 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/0707043.shtml)
+- 2026-06-30 04:26 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/88825134564.shtml)
+- 2026-06-30 04:33 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/212512066248.shtml)
+- 2026-06-30 04:43 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/88080.shtml)
+- 2026-06-30 04:50 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/66745733.shtml)
+- 2026-06-30 04:36 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/337352.shtml)
+- 2026-06-30 04:48 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/03397897635.shtml)
+- 2026-06-30 04:41 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/80099.shtml)
+- 2026-06-30 04:51 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/008102988405.shtml)
+- 2026-06-30 04:49 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.kurohicncr.top/Article/details/226753235.shtml)
+- 2026-06-30 04:48 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/47253.shtml)
+- 2026-06-30 04:51 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.minike.top/Article/details/133591.shtml)
+- 2026-06-30 04:33 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/23095846456.shtml)
+- 2026-06-30 04:42 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/8069423.shtml)
+- 2026-06-30 04:43 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/2775271462.shtml)
+- 2026-06-30 04:35 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/1374591.shtml)

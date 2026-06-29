@@ -1,56 +1,59 @@
-# 民政部：共同守护好每一名流动儿童健康成长
+# 股海导航_2026年4月23日_沪深股市公告与交易提示
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-中新网5月26日电 国务院新闻办公室26日举行国务院政策例行吹风会，介绍《关于推行常住地提供基本公共服务的实施意见》有关情况。民政部儿童福利司司长孟志强表示，民政部将逐步统一关爱服务内容、办事流程、帮扶尺度等，推动流动儿童关爱服务走向标准化、规范化，真正做到人在哪里，关爱服务就跟进到哪里，共同守护好每一名流动儿童健康成长。孟志强介绍，流动儿童是指随父母或者其他监护人双方或者一方
+登录新浪财经APP 搜索【信披】查看更多考评等级 专题：交易提示 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！【停牌】 002977 天箭科技（维权） 300295 三六五网 601003 柳钢股份 600889 南京化纤 【复牌】 605336 *ST帅电 000609 *ST中迪（维权） 【品大事】 中际旭创：2025年度每10股派10元合计派发
 
 ## 正文
 
-中新网5月26日电 国务院新闻办公室26日举行国务院政策例行吹风会，介绍《关于推行常住地提供基本公共服务的实施意见》有关情况。
+登录新浪财经APP 搜索【信披】查看更多考评等级 专题：交易提示 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-民政部儿童福利司司长孟志强表示，民政部将逐步统一关爱服务内容、办事流程、帮扶尺度等，推动流动儿童关爱服务走向标准化、规范化，真正做到人在哪里，关爱服务就跟进到哪里，共同守护好每一名流动儿童健康成长。
+【停牌】 002977 天箭科技（维权） 300295 三六五网 601003 柳钢股份 600889 南京化纤 【复牌】 605336 *ST帅电 000609 *ST中迪（维权） 【品大事】 中际旭创：2025年度每10股派10元合计派发现金红利11亿元股权登记日为4月29日 中际旭创公告称，公司2025年度权益分派方案已经2026年4月20日召开的2025年度股东会审议通过，具体分派方案：以公司总股本11.11亿股为基数，向全体股东每10股派发现金红利10元，合计派发现金红利11.11亿元，其余未分配利润结转下一年度；本年度不送股、不以资本公积转增股本。
 
-孟志强介绍，流动儿童是指随父母或者其他监护人双方或者一方离开户籍地，跨县域异地居住或生活6个月以上不满16周岁的未成年人，是流动人口中的重要群体。
+本次权益分派股权登记日为2026年4月29日，除权除息日为2026年4月30日。
 
-近期，国务院印发《关于推行常住地提供基本公共服务的实施意见》，明确提出支持流动儿童融入城市，推动各地出台流动儿童在居住地享有关爱服务基础清单，保障流动儿童基本享有基本公共服务。
+中天科技：若未来光纤光缆行业市场需求不及预期、核心原材料供应紧张或价格大幅波动可能对生产经营产生影响 中天科技发布异动公告，公司注意到近期市场及媒体对光纤光缆行业需求、价格等相关事项关注度较高。
 
-文件从国家层面确立了“流入地为主、流出地协同”的常住地服务保障总体原则，促进流动儿童在常住地同等享有养育、教育、医疗、困难救助、精神关爱等全方位保障。
+全球人工智能技术的发展，带动了相关光纤光缆产品需求提升，但是行业整体发展与全球通信技术迭代、下游客户资本开支计划等因素紧密相关。
 
-孟志强透露，民政部作为流动儿童和留守儿童权益保障的牵头部门，聚焦人口流动新形势和儿童成长的新需求，会同相关部门不断健全完善政策。
+若未来出现行业政策调整、市场需求不及预期、核心原材料供应紧张或价格大幅波动等情形，可能对公司生产经营、产品成本及盈利能力产生影响。
 
-2024年8月，民政部等21部门联合印发《关于加强流动儿童关爱保护行动方案》，同步出台了《流动儿童在居住地享有关爱服务基础清单》，为流动儿童关爱服务划定了内容、明确了方向，基本搭建起“四梁八柱”的制度框架。
+敬请广大投资者理性投资，注意投资风险。
 
-今年5月，民政部等23部门又联合印发《流动儿童在居住地享有关爱服务基础清单工作索引》，将关于推行常住地提供基本公共服务的实施意见要求落得更细更实了，工作索引相当于一部流动儿童权益保障的“实用手册”，明确了相关部门在幼有所育、学有所教、病有所医、住有所居、弱有所扶等方面的职责分工和工作要求，让流动儿童及其家长能够一目了然地了解可享受的服务项目和内容，推动实现从“有清单”向“会落地、能落地、落地好”转变。
+南京化纤：2025年净亏损9994万元触及财务类强制退市情形 4月24日起实施退市风险警示证券简称变更为“*ST京化” 南京化纤公告称，2025年营业收入3.01亿元，同比下降54.64%；归属于上市公司股东的净利润为-9994.22万元。
 
 ## 相关推荐
 
-- 2026-06-30 04:40 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 04:46 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-30 04:21 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-30 04:24 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-30 04:41 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-30 04:36 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-30 04:46 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-30 04:38 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-30 04:26 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-30 04:40 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 04:50 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-30 04:26 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-30 04:28 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 04:40 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-30 04:37 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-30 04:50 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-30 04:41 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 04:35 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-30 04:49 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-30 04:29 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-30 04:44 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-30 04:24 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-30 04:25 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:35 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/1669795.shtml)
-- 2026-06-30 04:20 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/675554.shtml)
-- 2026-06-30 04:42 - [老外对中国cosplay竟这样评价…](http://www.blog.minike.top/Article/details/24595216.shtml)
-- 2026-06-30 04:35 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/787348125.shtml)
-- 2026-06-30 04:29 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/14100927537.shtml)
-- 2026-06-30 04:35 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/56707689.shtml)
-- 2026-06-30 04:28 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/7177619814.shtml)
-- 2026-06-30 04:34 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/468941528.shtml)
-- 2026-06-30 04:23 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/15063153385.shtml)
-- 2026-06-30 04:38 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/67752420.shtml)
-- 2026-06-30 04:19 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/323541.shtml)
-- 2026-06-30 04:32 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/292237237.shtml)
-- 2026-06-30 04:34 - [“十五五”优质本科扩容](http://www.blog.minike.top/Article/details/2071104.shtml)
-- 2026-06-30 04:26 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/465712.shtml)
-- 2026-06-30 04:32 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/9644493956.shtml)
+- 2026-06-30 04:45 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/968789554627.shtml)
+- 2026-06-30 04:41 - [斗破苍穹](https://www.share.minike.top/Article/details/8654180.shtml)
+- 2026-06-30 04:45 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/11344.shtml)
+- 2026-06-30 04:34 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/85890.shtml)
+- 2026-06-30 04:28 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/693208395581.shtml)
+- 2026-06-30 04:43 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/883645776626.shtml)
+- 2026-06-30 04:43 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/7989691.shtml)
+- 2026-06-30 04:53 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/645017.shtml)
+- 2026-06-30 04:42 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/74630.shtml)
+- 2026-06-30 04:49 - [巴西绝杀](http://www.blog.minike.top/Article/details/7274233089.shtml)
+- 2026-06-30 04:51 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/01607257.shtml)
+- 2026-06-30 04:26 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/35102936437.shtml)
+- 2026-06-30 04:39 - [穆祉丞年度人气艺人](http://www.blog.kurohicncr.top/Article/details/6361810.shtml)
+- 2026-06-30 04:29 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.minike.top/Article/details/77463440303.shtml)
+- 2026-06-30 04:31 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/95349536105.shtml)

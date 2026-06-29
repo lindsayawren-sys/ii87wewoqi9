@@ -1,60 +1,59 @@
-# 心相近｜共同铸牢中塞“铁杆友谊”
+# “东疆+香港”协同发力 第十届中国海事金融（东疆）国际论坛启幕
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-新华社贝尔格莱德5月24日电 心相近｜共同铸牢中塞“铁杆友谊” 新华社记者张远 石中玉 应国家主席习近平邀请，塞尔维亚总统武契奇于5月24日至28日首次对中国进行国事访问。 在两国领导人战略引领下，近年来中塞关系高水平运行。双方坚定支持彼此核心利益和重大关切，政治互信稳固，合作成果丰硕，多边协作紧密，人员往来热络。中塞“铁杆友谊”在两国日益深入人心。 这份“铁杆友谊”，体现在两
+中新网天津4月23日电 (记者 周亚强)第十届中国海事金融(东疆)国际论坛23日在天津举行。本届论坛以“持舵驭浪，共策远航”为主题，吸引数百家金融机构、航运企业、法律服务机构及行业智库代表与会，参会人数创历届新高。 论坛数据显示，2026年一季度，天津东疆综合保税区船舶租赁单季交付突破100艘，创历史同期最高水平；累计租赁船舶超1200艘，资产规模逾350亿美元。其中，“海洋石
 
 ## 正文
 
-新华社贝尔格莱德5月24日电 心相近｜共同铸牢中塞“铁杆友谊” 新华社记者张远 石中玉 应国家主席习近平邀请，塞尔维亚总统武契奇于5月24日至28日首次对中国进行国事访问。
+中新网天津4月23日电 (记者 周亚强)第十届中国海事金融(东疆)国际论坛23日在天津举行。
 
-在两国领导人战略引领下，近年来中塞关系高水平运行。
+本届论坛以“持舵驭浪，共策远航”为主题，吸引数百家金融机构、航运企业、法律服务机构及行业智库代表与会，参会人数创历届新高。
 
-双方坚定支持彼此核心利益和重大关切，政治互信稳固，合作成果丰硕，多边协作紧密，人员往来热络。
+论坛数据显示，2026年一季度，天津东疆综合保税区船舶租赁单季交付突破100艘，创历史同期最高水平；累计租赁船舶超1200艘，资产规模逾350亿美元。
 
-中塞“铁杆友谊”在两国日益深入人心。
+其中，“海洋石油696”号海上压裂工程船、“凌远译桥”号节能环保型散货船等重点项目完成交付，填补国内多项技术与装备空白。
 
-这份“铁杆友谊”，体现在两国元首的高频互动与战略引领中—— 抵达北京之际，武契奇总统在社交媒体上发文表示，习近平主席是塞尔维亚真诚而伟大的朋友。
+值得关注的是，论坛期间，香港航商总会、香港海事处、天津海事局及东疆管委会就“东疆+香港”政策功能协同达成共识，明确将推动两地合作从飞机租赁向船舶租赁领域延伸。
 
-“我相信，此次访问将进一步加强塞尔维亚与中国之间的联系，开启两国合作新篇章，并对未来产生深远影响。
+各方正就“内地—香港光租船舶国籍中止机制”展开研究，以期为跨境资产运营提供更多选择。
 
-” 2024年5月，习近平主席对塞尔维亚进行国事访问，武契奇总统亲赴机场迎接和送别。
+此外，与会方亦提出推动中国法律、香港仲裁及中文标准合同在国际业务中扩大适用，提升中国在国际航运规则制定中的参与度。
 
-访问期间，两国领导人叙友谊、话合作，塞方举办史无前例的盛大欢迎仪式，两位领导人在塞尔维亚大厦平台，向近2万名前来热情欢迎的塞尔维亚民众挥手致意，现场欢呼声、掌声雷鸣般响起，留下难忘瞬间。
+东疆管委会相关负责人介绍，东疆已率先开展离岸融资租赁对外债权登记试点，并建立离岸经营性租赁白名单制度，离岸租赁业务制度化、常态化运作取得进展。
 
 ## 相关推荐
 
-- 2026-06-30 04:28 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 04:32 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 04:39 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-30 04:34 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-30 04:42 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-30 04:36 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-30 04:43 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-30 04:37 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-30 04:19 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-30 04:23 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-30 04:24 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-30 04:22 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-30 04:33 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-30 04:24 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-30 04:41 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-30 04:43 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-30 04:42 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-30 04:39 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-30 04:24 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 04:38 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 04:49 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-30 04:38 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-30 04:41 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-30 04:36 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-30 04:37 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-30 04:50 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-30 04:44 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:39 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/259976253123.shtml)
-- 2026-06-30 04:24 - [《贺子珍》](https://www.blog.minike.top/Article/details/406559.shtml)
-- 2026-06-30 04:46 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/2257261.shtml)
-- 2026-06-30 04:35 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/687245.shtml)
-- 2026-06-30 04:18 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/0592201638.shtml)
-- 2026-06-30 04:25 - [扬名立万](http://www.share.minike.top/Article/details/3274667530.shtml)
-- 2026-06-30 04:47 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/530754819.shtml)
-- 2026-06-30 04:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/16906.shtml)
-- 2026-06-30 04:31 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/439220289.shtml)
-- 2026-06-30 04:40 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/40945.shtml)
-- 2026-06-30 04:20 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/383603095.shtml)
-- 2026-06-30 04:39 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/747186.shtml)
-- 2026-06-30 04:20 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/6631900625.shtml)
-- 2026-06-30 04:30 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/55279241175.shtml)
-- 2026-06-30 04:26 - [日本进球](http://www.blog.minike.top/Article/details/77661516.shtml)
+- 2026-06-30 04:46 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/181842069602.shtml)
+- 2026-06-30 04:53 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.kurohicncr.top/Article/details/1375084.shtml)
+- 2026-06-30 04:51 - [月亮](http://www.share.kurohicncr.top/Article/details/8175145.shtml)
+- 2026-06-30 04:47 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/233749.shtml)
+- 2026-06-30 04:51 - [沉睡花园](http://www.blog.minike.top/Article/details/364602500997.shtml)
+- 2026-06-30 04:34 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/248557301389.shtml)
+- 2026-06-30 04:44 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/262863097.shtml)
+- 2026-06-30 04:53 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/774571.shtml)
+- 2026-06-30 04:49 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/87136396736.shtml)
+- 2026-06-30 04:35 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/0222939.shtml)
+- 2026-06-30 04:38 - [天道](http://www.blog.minike.top/Article/details/26028846274.shtml)
+- 2026-06-30 04:28 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/904481848.shtml)
+- 2026-06-30 04:28 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.kurohicncr.top/Article/details/050499016950.shtml)
+- 2026-06-30 04:37 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/2443350835.shtml)
+- 2026-06-30 04:41 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/3036186190.shtml)

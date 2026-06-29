@@ -1,60 +1,48 @@
-# 黄连素是“躺瘦神药”？医生提醒
+# 江阴银行业绩快报：2025年净利润20.49亿元 同比增长0.62%
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-黄连素是“躺瘦神药”？ 近期，一款家庭常备止泻药——盐酸小檗碱(俗称黄连素)在网络上意外走红。不少博主叫它“植物司美格鲁肽”，宣称其能够轻松减重、燃脂控糖，引得众多爱美和减重人士跟风囤药。 对此，黑龙江省医院副主任药师马明明在接受科技日报记者采访时提醒，黄连素是治疗肠道感染的药物，而非减肥药，其减重效果十分有限，长期盲目服用还会带来多重健康风险。 黄连素是大众熟知的非处方药品，
+4月23日金融一线消息，江阴银行发布2025年度业绩快报，2025年实现营业总收入41.25亿元，同比增长4.11%；归母净利润20.49亿元，同比增长0.62%；基本每股收益0.83元。截至2025年末，总资产2193.00亿元，较年初增长190.68亿元，增幅9.52%；不良贷款率0.82%，较年初下降0.04个百分点。 责任编辑：李琳琳
 
 ## 正文
 
-黄连素是“躺瘦神药”？
+4月23日金融一线消息，江阴银行发布2025年度业绩快报，2025年实现营业总收入41.25亿元，同比增长4.11%；归母净利润20.49亿元，同比增长0.62%；基本每股收益0.83元。
 
-近期，一款家庭常备止泻药——盐酸小檗碱(俗称黄连素)在网络上意外走红。
+截至2025年末，总资产2193.00亿元，较年初增长190.68亿元，增幅9.52%；不良贷款率0.82%，较年初下降0.04个百分点。
 
-不少博主叫它“植物司美格鲁肽”，宣称其能够轻松减重、燃脂控糖，引得众多爱美和减重人士跟风囤药。
-
-对此，黑龙江省医院副主任药师马明明在接受科技日报记者采访时提醒，黄连素是治疗肠道感染的药物，而非减肥药，其减重效果十分有限，长期盲目服用还会带来多重健康风险。
-
-黄连素是大众熟知的非处方药品，适应症仅为肠道感染、细菌性痢疾等，主要作用是抑菌、止泻，是家庭药箱中的常备药，但它从未获批用于减肥或调节代谢。
-
-“网传黄连素能减肥，是夸大了其微弱的辅助作用。
-
-”马明明解释道。
-
-部分科学研究显示，黄连素可能对肠道菌群有一定调节作用，可轻度抑制糖分和脂肪吸收，并可能改善胰岛素抵抗。
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-30 04:27 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 04:23 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 04:18 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-30 04:20 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-30 04:33 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-30 04:27 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-30 04:46 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-30 04:47 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-30 04:37 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-30 04:31 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-30 04:28 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-30 04:47 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-30 04:25 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-30 04:24 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-30 04:34 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-30 04:43 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-30 04:42 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-30 04:34 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 04:28 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-30 04:35 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-30 04:24 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-30 04:25 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-30 04:25 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 04:24 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-30 04:34 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-30 04:44 - [世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:43 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/394575701.shtml)
-- 2026-06-30 04:35 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/8265894.shtml)
-- 2026-06-30 04:28 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/280888.shtml)
-- 2026-06-30 04:47 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/04198772448.shtml)
-- 2026-06-30 04:33 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/33579787.shtml)
-- 2026-06-30 04:34 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.minike.top/Article/details/61039313.shtml)
-- 2026-06-30 04:37 - [扬名立万](https://www.share.kurohicncr.top/Article/details/776284.shtml)
-- 2026-06-30 04:41 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/66628.shtml)
-- 2026-06-30 04:32 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/453870.shtml)
-- 2026-06-30 04:32 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.minike.top/Article/details/669562.shtml)
-- 2026-06-30 04:20 - [请回答王牌2019](https://www.share.minike.top/Article/details/41742474620.shtml)
-- 2026-06-30 04:38 - [月亮](http://www.blog.kurohicncr.top/Article/details/0329602.shtml)
-- 2026-06-30 04:44 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/97752879.shtml)
-- 2026-06-30 04:29 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/78950669959.shtml)
-- 2026-06-30 04:36 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/645250.shtml)
+- 2026-06-30 04:44 - [一见倾心](https://www.share.minike.top/Article/details/250025.shtml)
+- 2026-06-30 04:49 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/907890646667.shtml)
+- 2026-06-30 04:36 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/764359.shtml)
+- 2026-06-30 04:48 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/71538.shtml)
+- 2026-06-30 04:41 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/58628.shtml)
+- 2026-06-30 04:29 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/09737.shtml)
+- 2026-06-30 04:26 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/41926591.shtml)
+- 2026-06-30 04:25 - [德约科维奇向温网对手放狠话](http://www.share.minike.top/Article/details/578771439101.shtml)
+- 2026-06-30 04:25 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/4227801537.shtml)
+- 2026-06-30 04:52 - [青春环游记第三季](http://www.share.minike.top/Article/details/4236572.shtml)
+- 2026-06-30 04:48 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/64352.shtml)
+- 2026-06-30 04:43 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/771906344619.shtml)
+- 2026-06-30 04:37 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/11261012729.shtml)
+- 2026-06-30 04:38 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/8074360.shtml)
+- 2026-06-30 04:38 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/6859434053.shtml)

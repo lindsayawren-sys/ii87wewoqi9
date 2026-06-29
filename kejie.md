@@ -1,60 +1,44 @@
-# 瑞银把银价预期从100砍到85，白银跌回76.35附近——底在哪？
+# 探展寻好物 埃及自媒体博主打卡广交会
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-来源：汇通网 汇通财经APP讯——周二（5月26日）亚洲时段，白银价格回吐了前一交易日的部分涨幅，交投于76.35美元附近，跌幅超2%。由于美军周一在伊朗南部实施“自卫打击”，地缘政治不确定性重燃，加剧了市场对能源驱动型通胀冲击的担忧，强化了央行将在更长时间内维持紧缩货币政策的预期，从而打压了白银等无息资产。 地缘动态：美军对伊朗实施“自卫打击” 美国中央司令部发言人称，美军周
+发布时间：2026年04月23日 16:18 来源：央视新闻客户端 责任编辑：【杜晓姣】
 
 ## 正文
 
-来源：汇通网 汇通财经APP讯——周二（5月26日）亚洲时段，白银价格回吐了前一交易日的部分涨幅，交投于76.35美元附近，跌幅超2%。
-
-由于美军周一在伊朗南部实施“自卫打击”，地缘政治不确定性重燃，加剧了市场对能源驱动型通胀冲击的担忧，强化了央行将在更长时间内维持紧缩货币政策的预期，从而打压了白银等无息资产。
-
-地缘动态：美军对伊朗实施“自卫打击” 美国中央司令部发言人称，美军周一在伊朗南部实施了“自卫打击”，目标为导弹发射场及试图布设水雷的伊朗船只。
-
-据报道，美军中央司令部发言人蒂姆·霍金斯在声明中表示，打击旨在保护美军部队“免受伊朗军队构成的威胁”，并声称在持续停火期间，美军将继续“保持克制”。
-
-据伊朗多家媒体报道，当地时间25日深夜，阿巴斯港传出三起爆炸声，霍尔木兹海峡沿岸的锡里克和贾斯克两地也传出类似爆炸声响。
-
-社交媒体消息显示，伊朗伊斯兰革命卫队海军两艘快艇当晚遭到美军战机袭击，据称造成多人死亡。
-
-作为回应，伊朗方面向阿曼湾的美国军舰开火，美军随后对阿巴斯港东边进行空袭，伊朗防空系统启动。
-
-尽管交火事件一度引发局势紧张，但美国福克斯新闻频道援引美方高级官员称，美军空袭“暂时结束”，目前整体局势相对平静。
+发布时间：2026年04月23日 16:18 来源：央视新闻客户端 责任编辑：【杜晓姣】
 
 ## 相关推荐
 
-- 2026-06-30 04:34 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-30 04:44 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-30 04:39 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-30 04:18 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-30 04:41 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-30 04:29 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-30 04:25 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-30 04:30 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-30 04:29 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-30 04:27 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-30 04:28 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-30 04:47 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 04:28 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-30 04:40 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-30 04:39 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-30 04:50 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-30 04:31 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-30 04:44 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 04:48 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 04:50 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-30 04:39 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-30 04:47 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-30 04:31 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 04:35 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-30 04:43 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-30 04:51 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:24 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/593766242948.shtml)
-- 2026-06-30 04:23 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/017462363.shtml)
-- 2026-06-30 04:25 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/0531608.shtml)
-- 2026-06-30 04:33 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/12276.shtml)
-- 2026-06-30 04:40 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/76957470423.shtml)
-- 2026-06-30 04:44 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/9456625.shtml)
-- 2026-06-30 04:46 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/08428881.shtml)
-- 2026-06-30 04:44 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/07800.shtml)
-- 2026-06-30 04:35 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/500368667.shtml)
-- 2026-06-30 04:39 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/143985785231.shtml)
-- 2026-06-30 04:46 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/49985328.shtml)
-- 2026-06-30 04:24 - [日本淘汰](http://www.blog.minike.top/Article/details/10155543.shtml)
-- 2026-06-30 04:41 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/2039500.shtml)
-- 2026-06-30 04:42 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/720831635.shtml)
-- 2026-06-30 04:29 - [毒液2](https://www.share.kurohicncr.top/Article/details/16183.shtml)
+- 2026-06-30 04:49 - [刘必安等16人非法集资案二审宣判](https://www.share.kurohicncr.top/Article/details/124722290.shtml)
+- 2026-06-30 04:43 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/900320266.shtml)
+- 2026-06-30 04:41 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/46770254.shtml)
+- 2026-06-30 04:43 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/731188732.shtml)
+- 2026-06-30 04:35 - [创新药板块能否“苦尽甘来”](https://www.blog.minike.top/Article/details/64439.shtml)
+- 2026-06-30 04:37 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/91956828049.shtml)
+- 2026-06-30 04:31 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/75876.shtml)
+- 2026-06-30 04:30 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/32700212796.shtml)
+- 2026-06-30 04:48 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/66564468838.shtml)
+- 2026-06-30 04:37 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/66018.shtml)
+- 2026-06-30 04:25 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/616212637.shtml)
+- 2026-06-30 04:28 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/707382468.shtml)
+- 2026-06-30 04:50 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/921624693.shtml)
+- 2026-06-30 04:32 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/2347918.shtml)
+- 2026-06-30 04:28 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/14199231118.shtml)

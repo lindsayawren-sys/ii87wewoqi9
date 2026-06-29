@@ -1,61 +1,58 @@
-# 优步拟提高报价竞购Delivery Hero 股东期望每股不低于40欧元
+# 奥运冠军张常宁担任宣讲大使 江苏发布倡议护航“苏超”知识产权
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-在115亿欧元的初步收购要约遭拒后，优步正考虑提高对德国外卖巨头Delivery Hero的收购报价。多位股东表示，期望收购价格能够超过每股40欧元，对应公司整体估值约130亿欧元。 Delivery Hero上周六发布声明确认，已收到优步提出的每股33欧元的初步收购要约，对公司估值超过100亿欧元。然而，这一报价遭到主要股东拒绝。知情人士透露，优步随后向一位大股东提出每股38
+中新网南京4月23日电 (记者 徐珊珊)2026年全国知识产权宣传周江苏分会场活动22日在南京拉开帷幕。本次活动紧扣“加强新兴领域知识产权保护，加快新质生产力发展”主题，政产学研多界代表齐聚一堂，聚焦体育IP保护与数智赋能，发布多项知识产权服务创新举措。奥运冠军张常宁、中国播音主持“金声奖”得主王丹、知名运动达人程鸣获聘江苏省知识产权宣讲大使，以公众影响力为知识产权保护发声。活
 
 ## 正文
 
-在115亿欧元的初步收购要约遭拒后，优步正考虑提高对德国外卖巨头Delivery Hero的收购报价。
+中新网南京4月23日电 (记者 徐珊珊)2026年全国知识产权宣传周江苏分会场活动22日在南京拉开帷幕。
 
-多位股东表示，期望收购价格能够超过每股40欧元，对应公司整体估值约130亿欧元。
+本次活动紧扣“加强新兴领域知识产权保护，加快新质生产力发展”主题，政产学研多界代表齐聚一堂，聚焦体育IP保护与数智赋能，发布多项知识产权服务创新举措。
 
-Delivery Hero上周六发布声明确认，已收到优步提出的每股33欧元的初步收购要约，对公司估值超过100亿欧元。
+奥运冠军张常宁、中国播音主持“金声奖”得主王丹、知名运动达人程鸣获聘江苏省知识产权宣讲大使，以公众影响力为知识产权保护发声。
 
-然而，这一报价遭到主要股东拒绝。
+活动现场发布了“苏超”知识产权保护倡议，号召全社会共筑规范有序、活力迸发的体育赛事知识产权生态。
 
-知情人士透露，优步随后向一位大股东提出每股38欧元的新价码，但仍未被接受。
+在数智赋能环节，江苏推出多个“人工智能+”知识产权公共服务应用场景。
 
-优步董事会已于上周六召开会议，评估收购进展并讨论是否进一步提高报价。
+“苏智汇”知识产权智能应用商店正式上线，南京市“AI+知识产权”公共服务应用场景同步发布。
 
-与此同时，优步持续增持Delivery Hero股份。
+江苏知识产权数创实验室顺利签约，打造国内首创的知识产权数智创新高地。
 
-公司披露，其持股比例已从约7%提升至19.5%，成为Delivery Hero第一大股东，并通过衍生品额外持有5.6%的相关权益。
+此外，现场还举行了知识产权人工智能创新大赛颁奖仪式，聚焦“AI+知识产权侵权智能监测、AI+知识产权法律服务、AI+海外知识产权风险预警”三大前沿赛道。
 
 ## 相关推荐
 
-- 2026-06-30 04:37 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-30 04:33 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-30 04:44 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-30 04:35 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-30 04:46 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-30 04:47 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-30 04:27 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-30 04:33 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-30 04:28 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-30 04:32 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-30 04:42 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-30 04:42 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-30 04:33 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-30 04:37 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-30 04:36 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-30 04:33 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-30 04:26 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-30 04:33 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-30 04:49 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-30 04:50 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-30 04:31 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-30 04:47 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-30 04:49 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-30 04:51 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-30 04:28 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-30 04:36 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-30 04:43 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:46 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/60043652.shtml)
-- 2026-06-30 04:35 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/6422693.shtml)
-- 2026-06-30 04:26 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/60595342.shtml)
-- 2026-06-30 04:30 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/32029432495.shtml)
-- 2026-06-30 04:26 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/595863336556.shtml)
-- 2026-06-30 04:36 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/94927537836.shtml)
-- 2026-06-30 04:36 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/740717479.shtml)
-- 2026-06-30 04:35 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/50018358.shtml)
-- 2026-06-30 04:45 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/07716.shtml)
-- 2026-06-30 04:25 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.minike.top/Article/details/67242297485.shtml)
-- 2026-06-30 04:18 - [恋与深空回应争议](https://www.share.minike.top/Article/details/349839789110.shtml)
-- 2026-06-30 04:21 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/7490742.shtml)
-- 2026-06-30 04:23 - [请回答王牌2019](http://www.share.minike.top/Article/details/6050795.shtml)
-- 2026-06-30 04:20 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/36567761.shtml)
-- 2026-06-30 04:22 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/97647.shtml)
+- 2026-06-30 04:48 - [周生如故](http://www.blog.kurohicncr.top/Article/details/8511412629.shtml)
+- 2026-06-30 04:39 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/571078.shtml)
+- 2026-06-30 04:26 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/1199487163.shtml)
+- 2026-06-30 04:32 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/57885334831.shtml)
+- 2026-06-30 04:41 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/7436556695.shtml)
+- 2026-06-30 04:44 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.minike.top/Article/details/78554056.shtml)
+- 2026-06-30 04:53 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/15598129.shtml)
+- 2026-06-30 04:28 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/95573590876.shtml)
+- 2026-06-30 04:41 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/02896918926.shtml)
+- 2026-06-30 04:48 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/196360.shtml)
+- 2026-06-30 04:40 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/9132867570.shtml)
+- 2026-06-30 04:35 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/4171972568.shtml)
+- 2026-06-30 04:27 - [日本反击率先破门](https://www.share.minike.top/Article/details/35639364318.shtml)
+- 2026-06-30 04:24 - [张帅时隔四年再取温网正赛胜利](https://www.share.kurohicncr.top/Article/details/6230877532.shtml)
+- 2026-06-30 04:31 - [巴西2比1日本](https://www.blog.minike.top/Article/details/21902424.shtml)

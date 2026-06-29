@@ -1,58 +1,61 @@
-# 戴耳环遭网暴灾区女干部回应恶评：没时间看那些评论
+# 雄安交出绿色发展成绩单 “九大典范”建设全面提能级
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-戴耳环遭网暴灾区女干部回应恶评：天灾人祸冲在一线，工作24小时都不够用，没时间看那些评论！ 近日，湖南石门县遭遇强降雨过程，超10万人受灾。在这场与时间赛跑的抢险救灾中，无数基层干部奋战在一线，其中一位女村支书的发言受到不少网友的关注。 据报道，龙池河村女支书向金元从5月17日晚就扎在救灾一线，嗓子喊哑了，眼泪流干了，扛着全村900多人的安危在断路断网中奔波。 “电也没有，网也
+中新网雄安4月22日电 (王夏菲 韩冰)河北雄安新区22日召开新闻发布会通报雄安新区绿色发展城市典范建设情况，“强化绿色技术研发推广”“构建低碳智能交通网络”等“九大典范”建设全面提能级。 绿色技术方面，城市智慧化水平持续提升，雄安新区新建片区基础设施智慧化水平达到100%。打造“15分钟政务服务圈”，“互联网+”政务、公安等领域全面接入DeepSeek大模型，部署AI智能助手
 
 ## 正文
 
-戴耳环遭网暴灾区女干部回应恶评：天灾人祸冲在一线，工作24小时都不够用，没时间看那些评论！
+中新网雄安4月22日电 (王夏菲 韩冰)河北雄安新区22日召开新闻发布会通报雄安新区绿色发展城市典范建设情况，“强化绿色技术研发推广”“构建低碳智能交通网络”等“九大典范”建设全面提能级。
 
-近日，湖南石门县遭遇强降雨过程，超10万人受灾。
+绿色技术方面，城市智慧化水平持续提升，雄安新区新建片区基础设施智慧化水平达到100%。
 
-在这场与时间赛跑的抢险救灾中，无数基层干部奋战在一线，其中一位女村支书的发言受到不少网友的关注。
+打造“15分钟政务服务圈”，“互联网+”政务、公安等领域全面接入DeepSeek大模型，部署AI智能助手“雄小智”。
 
-据报道，龙池河村女支书向金元从5月17日晚就扎在救灾一线，嗓子喊哑了，眼泪流干了，扛着全村900多人的安危在断路断网中奔波。
+绿色交通方面，雄安新区着力打造地下空间风雨无阻、地上交通便捷高效、空中走廊低空飞行的立体化综合交通网络。
 
-“电也没有，网也没有，特别是看到我们的村部，设施成了这个样子……”媒体镜头前，她声音嘶哑、眼眶红肿，眼泪止不住地往下掉。
+东西轴线铁路工程基本完工，京雄快线全线主体完工，新建片区公共交通站点500米覆盖率超95%，47条主干路双向绿波协调，主要路段早晚高峰时长缩短15分钟，无人驾驶出租车上路投用。
 
-但向金元耳朵上一副并不显眼的普通金耳环，却被个别网友盯着不放：“一个耳环有50克”“2两黄金应该摘了拍”“金耳环捐了就更加感动了”…… 对此，25日，女村支书回应中新社记者称：“我们(现在)主要就是(进行)人员的安全转移工作。
+绿色产业方面，以中国星网为龙头发展空天信息和卫星互联网产业，集聚企业67家、创新平台9家，首颗“雄安造”卫星下线。
 
-从17号政府紧急调度、会议通讯以后，我们回来接到指令，一直就没有休息过。
+以人工智能研究院为基础发展人工智能，人工智能产业园、AI科技大厦等平台建设运营，建设“城市”“行业”“企业”三个领域可信数据空间，“极数”数据大模型(LimiX)等在雄安新区首发，集聚企业90家。
 
-(我觉得)累啊，怎么不累呢。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 04:30 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-30 04:24 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-30 04:39 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-30 04:23 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-30 04:37 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-30 04:44 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-30 04:29 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-30 04:34 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-30 04:35 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-30 04:34 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 04:37 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-30 04:33 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-30 04:32 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-30 04:40 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-30 04:26 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-30 04:34 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-30 04:50 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-30 04:27 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 04:32 - [恋与深空制作组回应近期争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-30 04:31 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-30 04:52 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-30 04:30 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-30 04:45 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 04:43 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-30 04:38 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-30 04:51 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-30 04:41 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:41 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/67768359.shtml)
-- 2026-06-30 04:38 - [内马尔中场休息积极鼓励队友](http://www.blog.kurohicncr.top/Article/details/60666012.shtml)
-- 2026-06-30 04:21 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/98977655.shtml)
-- 2026-06-30 04:24 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/647729376.shtml)
-- 2026-06-30 04:21 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/9992214012.shtml)
-- 2026-06-30 04:28 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/28259421.shtml)
-- 2026-06-30 04:18 - [沉睡花园](http://www.blog.minike.top/Article/details/1136538423.shtml)
-- 2026-06-30 04:36 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/79265.shtml)
-- 2026-06-30 04:41 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/855102.shtml)
-- 2026-06-30 04:48 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/63867.shtml)
-- 2026-06-30 04:44 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/23683.shtml)
-- 2026-06-30 04:24 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/463348298.shtml)
-- 2026-06-30 04:21 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/752867.shtml)
-- 2026-06-30 04:46 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.kurohicncr.top/Article/details/509834.shtml)
-- 2026-06-30 04:45 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/9232574.shtml)
+- 2026-06-30 04:34 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/8335196.shtml)
+- 2026-06-30 04:27 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/455425.shtml)
+- 2026-06-30 04:49 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/3499804.shtml)
+- 2026-06-30 04:41 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/397511592984.shtml)
+- 2026-06-30 04:40 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/02104474.shtml)
+- 2026-06-30 04:30 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/54828.shtml)
+- 2026-06-30 04:29 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/93494030759.shtml)
+- 2026-06-30 04:44 - [斗破苍穹](http://www.share.minike.top/Article/details/998211735482.shtml)
+- 2026-06-30 04:49 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/85457966.shtml)
+- 2026-06-30 04:31 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/2148702407.shtml)
+- 2026-06-30 04:39 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/55989074.shtml)
+- 2026-06-30 04:43 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/76820.shtml)
+- 2026-06-30 04:36 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/251857287582.shtml)
+- 2026-06-30 04:45 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/716663.shtml)
+- 2026-06-30 04:30 - [沉睡花园](http://www.share.minike.top/Article/details/7768621378.shtml)

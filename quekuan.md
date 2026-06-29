@@ -1,55 +1,58 @@
-# 新加坡上调2026年出口增长预测
+# “华夏东极”抚远：界江开渔忙 民警护安航
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-新加坡上调了2026年非石油国内出口的预测，理由是人工智能（AI）需求具有韧性，但同时警示了中东冲突持续和贸易摩擦可能带来的风险。新加坡企业发展局（Enterprise Singapore）周一表示，该国今年非石油国内出口（NODX）预计将增长3.0%至5.0%，高于此前预测的2.0%至4.0%。该机构将上调预测归因于强劲的AI相关需求，称这支撑了全球经济。此外，关税带来的拖累
+中新网佳木斯4月25日电(高峰 韩睿 邱治博)25日凌晨2时，被称为“中国淡水鱼都”的黑龙江省佳木斯抚远市迎来新一年开渔时刻。黑龙江佳木斯边境管理支队乌苏镇边境派出所民警驾驶警艇开启24小时界江驻守巡逻，警灯在碧波上划出安心的轨迹，与渔民撒下的渔网共同编织出“华夏东极”的丰收图景。“王大哥，救生衣的卡扣再检查一遍，北斗定位器信号一定要确认通畅！”民警李鑫踩着湿滑的船板，弯腰仔细
 
 ## 正文
 
-新加坡上调了2026年非石油国内出口的预测，理由是人工智能（AI）需求具有韧性，但同时警示了中东冲突持续和贸易摩擦可能带来的风险。
+中新网佳木斯4月25日电(高峰 韩睿 邱治博)25日凌晨2时，被称为“中国淡水鱼都”的黑龙江省佳木斯抚远市迎来新一年开渔时刻。
 
-新加坡企业发展局（Enterprise Singapore）周一表示，该国今年非石油国内出口（NODX）预计将增长3.0%至5.0%，高于此前预测的2.0%至4.0%。
+黑龙江佳木斯边境管理支队乌苏镇边境派出所民警驾驶警艇开启24小时界江驻守巡逻，警灯在碧波上划出安心的轨迹，与渔民撒下的渔网共同编织出“华夏东极”的丰收图景。
 
-该机构将上调预测归因于强劲的AI相关需求，称这支撑了全球经济。
+“王大哥，救生衣的卡扣再检查一遍，北斗定位器信号一定要确认通畅！
 
-此外，关税带来的拖累小于预期，也对贸易额构成了支持。
+”民警李鑫踩着湿滑的船板，弯腰仔细查看渔船的消防设备。
 
-责任编辑：王永生
+在抚远市乌苏镇通江口滩地，鞭炮声与渔船马达声交织回荡，渔民们满脸喜色地整理渔网，身着藏蓝制服的民警们，踏着晨露逐船开展安全检查，为这场期盼已久的丰收盛宴筑牢安全防线。
+
+作为中俄界江的核心作业区，这里高峰时近300艘渔船云集江面，占到黑龙江省界江作业船只的十分之一。
+
+乌苏镇边境派出所民警采用“蹲滩值守+登船核验”模式，与渔民同吃同住同作息，从黎明到日暮穿梭在大小渔船间，细致检查雷达、通信设备及灭火器材，确保每一艘渔船“健康”下江。
+
+江风渐起，祭江祈福仪式的余韵仍在江畔萦绕。
 
 ## 相关推荐
 
-- 2026-06-30 04:32 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 04:36 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-30 04:21 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-30 04:38 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-30 04:27 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-30 04:27 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-30 04:45 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-30 04:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-30 04:38 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-30 04:36 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-30 04:35 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-30 04:29 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-30 04:19 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-30 04:33 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-30 04:30 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 04:31 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-30 04:41 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 04:50 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-30 04:43 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-30 04:48 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-30 04:51 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-30 04:42 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-30 04:44 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 04:37 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-30 04:30 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-30 04:47 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-30 04:50 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:35 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/0611727.shtml)
-- 2026-06-30 04:32 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.minike.top/Article/details/78929646833.shtml)
-- 2026-06-30 04:45 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/45030688.shtml)
-- 2026-06-30 04:21 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/82054.shtml)
-- 2026-06-30 04:20 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/56064.shtml)
-- 2026-06-30 04:27 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/803975476066.shtml)
-- 2026-06-30 04:22 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/02468163.shtml)
-- 2026-06-30 04:44 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/36679320594.shtml)
-- 2026-06-30 04:33 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/71125.shtml)
-- 2026-06-30 04:27 - [二次元提前预演明日巴西对日本](http://www.blog.minike.top/Article/details/35789.shtml)
-- 2026-06-30 04:32 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/452955937364.shtml)
-- 2026-06-30 04:38 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/0695875.shtml)
-- 2026-06-30 04:31 - [人类...完蛋了...](https://www.blog.kurohicncr.top/Article/details/6601699619.shtml)
-- 2026-06-30 04:34 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/5633465.shtml)
-- 2026-06-30 04:28 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/86706.shtml)
+- 2026-06-30 04:46 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/8673278966.shtml)
+- 2026-06-30 04:30 - [问心2金世佳追妻火葬场](https://www.share.minike.top/Article/details/5143877558.shtml)
+- 2026-06-30 04:45 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/40706354482.shtml)
+- 2026-06-30 04:40 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/683923638324.shtml)
+- 2026-06-30 04:33 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/694813497529.shtml)
+- 2026-06-30 04:45 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/93094519700.shtml)
+- 2026-06-30 04:34 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/44473.shtml)
+- 2026-06-30 04:39 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/696560085.shtml)
+- 2026-06-30 04:51 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/0854007.shtml)
+- 2026-06-30 04:52 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/364873926.shtml)
+- 2026-06-30 04:47 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/1646889.shtml)
+- 2026-06-30 04:38 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/15698092.shtml)
+- 2026-06-30 04:48 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/02803642638.shtml)
+- 2026-06-30 04:52 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/8300522670.shtml)
+- 2026-06-30 04:32 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/811417182.shtml)

@@ -1,48 +1,52 @@
-# 建设银行广东省分行原党委委员、副行长席荣贵被查
+# 中国作家协会副主席：家长是孩子最好的“书”
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-中央纪委国家监委网站讯 据中央纪委国家监委驻中国建设银行纪检监察组、广东省纪委监委消息：中国建设银行广东省分行原党委委员、副行长席荣贵涉嫌严重违纪违法，目前正接受中央纪委国家监委驻中国建设银行纪检监察组纪律审查和广东省珠海市监察委员会监察调查。 （中央纪委国家监委驻中国建设银行纪检监察组、广东省纪委监委）责任编辑：秦艺
+发布时间：2026年04月23日 22:12 来源：中国新闻网 4月23日，正值第31个世界读书日。“一城一卷”阅行广西活动启幕式在南宁市三街两巷历史文化街区举行。中国作家协会副主席毕飞宇在活动中介绍，如果要让孩子爱读书，家长就是孩子最好的“书”。(陈沿佑) 【同期】中国作家协会副主席 毕飞宇 所以你要问我怎么走上文学道路的，两本书至为关键，第一“爸爸”，第二“妈妈”，所以在这
 
 ## 正文
 
-中央纪委国家监委网站讯 据中央纪委国家监委驻中国建设银行纪检监察组、广东省纪委监委消息：中国建设银行广东省分行原党委委员、副行长席荣贵涉嫌严重违纪违法，目前正接受中央纪委国家监委驻中国建设银行纪检监察组纪律审查和广东省珠海市监察委员会监察调查。
+发布时间：2026年04月23日 22:12 来源：中国新闻网 4月23日，正值第31个世界读书日。
 
-（中央纪委国家监委驻中国建设银行纪检监察组、广东省纪委监委）责任编辑：秦艺
+“一城一卷”阅行广西活动启幕式在南宁市三街两巷历史文化街区举行。
+
+中国作家协会副主席毕飞宇在活动中介绍，如果要让孩子爱读书，家长就是孩子最好的“书”。
+
+(陈沿佑) 【同期】中国作家协会副主席 毕飞宇 所以你要问我怎么走上文学道路的，两本书至为关键，第一“爸爸”，第二“妈妈”，所以在这样的时候，如果我们家长们，要让自己的孩子爱读书，最好的办法是让自己成为一本“书”。
+
+责任编辑：【于晓】
 
 ## 相关推荐
 
-- 2026-06-30 04:41 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 04:36 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-30 04:24 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-30 04:44 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-30 04:19 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-30 04:20 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 04:27 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-30 04:45 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-30 04:37 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-30 04:37 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-30 04:41 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-30 04:30 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 04:32 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-30 04:47 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 04:40 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-30 04:34 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-30 04:29 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-30 04:29 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-30 04:34 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-30 04:37 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-30 04:38 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-30 04:33 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 04:31 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 04:30 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-30 04:27 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-30 04:47 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:25 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/00401761.shtml)
-- 2026-06-30 04:34 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/6342014.shtml)
-- 2026-06-30 04:38 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/36907614505.shtml)
-- 2026-06-30 04:21 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/18853816.shtml)
-- 2026-06-30 04:34 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/042229313.shtml)
-- 2026-06-30 04:39 - [扫黑风暴](https://www.blog.minike.top/Article/details/92129.shtml)
-- 2026-06-30 04:47 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/48475274.shtml)
-- 2026-06-30 04:40 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/701565097357.shtml)
-- 2026-06-30 04:21 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/057333637.shtml)
-- 2026-06-30 04:29 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/43374871.shtml)
-- 2026-06-30 04:27 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/70944.shtml)
-- 2026-06-30 04:33 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/91620368.shtml)
-- 2026-06-30 04:42 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/321297044529.shtml)
-- 2026-06-30 04:25 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/94055697.shtml)
-- 2026-06-30 04:45 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/81291428932.shtml)
+- 2026-06-30 04:37 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/71042.shtml)
+- 2026-06-30 04:49 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/00597883.shtml)
+- 2026-06-30 04:45 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/29555266.shtml)
+- 2026-06-30 04:29 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/30386060.shtml)
+- 2026-06-30 04:51 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/35415993498.shtml)
+- 2026-06-30 04:51 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/93308959186.shtml)
+- 2026-06-30 04:52 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/049393695.shtml)
+- 2026-06-30 04:44 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/215259260956.shtml)
+- 2026-06-30 04:28 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/138216.shtml)
+- 2026-06-30 04:29 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/37590099086.shtml)
+- 2026-06-30 04:28 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/963558467.shtml)
+- 2026-06-30 04:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/1054233150.shtml)
+- 2026-06-30 04:28 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/10003987.shtml)
+- 2026-06-30 04:32 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/5996531.shtml)
+- 2026-06-30 04:25 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/90840322.shtml)

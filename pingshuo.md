@@ -1,59 +1,57 @@
-# （乡村行·看振兴）浙江庆元：一颗甜桔柚的共富“突围记”
+# 粤港澳科普教育专家齐聚广州 共商高质量发展
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-中新网丽水5月25日电(傅飞扬 吴吉 吴乐丹)连日来，浙江省丽水市庆元县竹口镇甜桔柚基地内一派繁忙景象——当地新研发的甜桔柚干订单火爆，烘干机器连轴运转；添加白巧克力的新款更是供不应求，预售登记已排至6月…… 作为国家地理标志产品，庆元甜桔柚兼具桔的甜蜜与柚的清香，种植面积达2.1万亩，是该县名副其实的“致富果”。 然而，近年来，甜桔柚也遇到了“生长的烦恼”：大果小果一起卖，好
+中新网广州4月23日电 (记者 王坚)粤港澳科学教育生态共建工作交流会22日在位于广州举办。来自科研院所、科普场馆和中小学校等20余家单位代表齐聚广东科学中心，围绕科学教育资源共建共享、协同育人机制创新和区域科学教育生态构建深入交流，共同谋划粤港澳科学教育高质量发展新路径。 据介绍，此次交流会由广东省中小学科学教育指导中心、广东科学中心主办。会议旨在深入推进粤港澳大湾区科学教育
 
 ## 正文
 
-中新网丽水5月25日电(傅飞扬 吴吉 吴乐丹)连日来，浙江省丽水市庆元县竹口镇甜桔柚基地内一派繁忙景象——当地新研发的甜桔柚干订单火爆，烘干机器连轴运转；添加白巧克力的新款更是供不应求，预售登记已排至6月…… 作为国家地理标志产品，庆元甜桔柚兼具桔的甜蜜与柚的清香，种植面积达2.1万亩，是该县名副其实的“致富果”。
+中新网广州4月23日电 (记者 王坚)粤港澳科学教育生态共建工作交流会22日在位于广州举办。
 
-然而，近年来，甜桔柚也遇到了“生长的烦恼”：大果小果一起卖，好果次果一个价；私域销售难破圈，出单率没保障；产品品类不全，全产业链迟迟未打通……产业发展面临“产得出、存不住、走不远”的难题。
+来自科研院所、科普场馆和中小学校等20余家单位代表齐聚广东科学中心，围绕科学教育资源共建共享、协同育人机制创新和区域科学教育生态构建深入交流，共同谋划粤港澳科学教育高质量发展新路径。
 
-在此背景下，竹口镇“柚”点甜品牌与市场开拓团聚焦全链环节，从定标准、把品控、链龙头、拓销路四个维度，为这颗果子打了一场漂亮的“翻身仗”——一颗果卖到10元，一亩地最高产值突破7万元。
+据介绍，此次交流会由广东省中小学科学教育指导中心、广东科学中心主办。
 
-如今，庆元甜桔柚从业人员已达3000多人，辐射带动4万多人就业增收，品牌价值超过3.7亿元，全产业链产值突破30亿元。
+会议旨在深入推进粤港澳大湾区科学教育协同发展，搭建区域科学教育资源共建共享平台，凝聚多方力量共建大湾区科学教育良好生态。
 
-“以前的甜桔柚，不管甜不甜、大不大，都混着卖，1斤只能卖3元，现在分选后按级卖的特级果能卖到15元。
+活动现场，广东省中小学科学教育指导中心执行负责人王丰系统介绍了粤港澳科学教育生态共建的总体思路、目标任务和支持服务。
 
-”技能团成员沈国峰坦言，靠经验分选就像传统农业“靠天吃饭”，现代农业得靠数据说话、用标准护航。
+广东科学中心、香港科技大学霍英东研究院、广州气象卫星地面站、华南师范大学附属黄埔实验学校等科研、科普基地和学校代表围绕资源共享、平台共建、机制协同等重点问题深入探讨。
 
-技能团队成员们链接专业资源，跟着专家下基地，学习怎么测糖度、怎么看成熟度、怎么建品质档案。
+各方代表一致认为，推进粤港澳科学教育生态共建，关键在于打通学校、场馆、科研机构等不同主体之间的资源链路和合作通道，把分散的优质资源转化为可持续、可共享、可推广的科学教育供给体系，更好服务青少年科学素养提升和创新人才培养。
 
-学成后，他们带着果农一起干，把果径、克重、糖度、成熟度等指标一条条写进地方标准，用可量化、可复制的数据测算，迭代了凭眼看、靠手捏的经验。
+王丰表示，科学教育是多主体协同的生态系统，各基地立足自身特色，在课程教学、教师发展、资源建设等方面发挥各方优势、协同谋划、共促科学教育生态建设，对切实推动“大中小融通、校内外联动、粤港澳协同”的科学教育新生态落地见效，推动大湾区科学教育高质量发展具有重要意义。
 
 ## 相关推荐
 
-- 2026-06-30 04:33 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-30 04:25 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-30 04:43 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-30 04:22 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-30 04:38 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-30 04:27 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-30 04:43 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-30 04:39 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-30 04:39 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-30 04:29 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-30 04:44 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-30 04:35 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-30 04:47 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-30 04:49 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-30 04:44 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-30 04:35 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 04:41 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 04:45 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 04:32 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-30 04:28 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-30 04:36 - [世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-30 04:43 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-30 04:31 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-30 04:25 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:35 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/4141326.shtml)
-- 2026-06-30 04:22 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/9027009207.shtml)
-- 2026-06-30 04:40 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/550949.shtml)
-- 2026-06-30 04:33 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/599098690787.shtml)
-- 2026-06-30 04:46 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/279043786295.shtml)
-- 2026-06-30 04:36 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/25091937888.shtml)
-- 2026-06-30 04:34 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.minike.top/Article/details/136483375097.shtml)
-- 2026-06-30 04:30 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/982103164.shtml)
-- 2026-06-30 04:38 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/27802447.shtml)
-- 2026-06-30 04:18 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/324389101.shtml)
-- 2026-06-30 04:36 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/0424827.shtml)
-- 2026-06-30 04:23 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/08738659972.shtml)
-- 2026-06-30 04:47 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/734841852428.shtml)
-- 2026-06-30 04:20 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/74541.shtml)
-- 2026-06-30 04:41 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/7415830978.shtml)
+- 2026-06-30 04:24 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/4642014638.shtml)
+- 2026-06-30 04:36 - [逃狱兄弟](https://www.share.minike.top/Article/details/39128564.shtml)
+- 2026-06-30 04:33 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/08199.shtml)
+- 2026-06-30 04:44 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/93428.shtml)
+- 2026-06-30 04:24 - [巴西绝杀](https://www.share.kurohicncr.top/Article/details/635227337.shtml)
+- 2026-06-30 04:29 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/794227481.shtml)
+- 2026-06-30 04:48 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/193036.shtml)
+- 2026-06-30 04:53 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/7392984006.shtml)
+- 2026-06-30 04:38 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/2468853178.shtml)
+- 2026-06-30 04:33 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/63807.shtml)
+- 2026-06-30 04:32 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/8481698657.shtml)
+- 2026-06-30 04:50 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/416331.shtml)
+- 2026-06-30 04:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/390792.shtml)
+- 2026-06-30 04:27 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/0913538901.shtml)
+- 2026-06-30 04:44 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/876822335062.shtml)

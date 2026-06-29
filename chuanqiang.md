@@ -1,46 +1,57 @@
-# 武契奇抵达小米汽车工厂参访
+# 量化投资先驱马丁·卢克警告勿将交易决策全盘交予人工智能
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-中新网北京5月26日电(记者 黄钰钦)5月26日，正在对中国进行国事访问的塞尔维亚总统武契奇抵达小米汽车工厂参访。(完)
+量化投资领域最负盛名的人物之一警告称，不应将投资决策权完全交予人工智能，并指出对冲基金行业的某些领域在采用该技术方面已走得过远。 马丁·卢克（Martin Lueck）是量化先驱AHL的三位创始人之一，同时也是对冲基金宽立资本（Aspect Capital）的联合创始人兼总裁。他表示，能够准确理解其计算机模型为何推荐特定交易，对他的公司而言至关重要。 “我的出发点是，我不会将我
 
 ## 正文
 
-中新网北京5月26日电(记者 黄钰钦)5月26日，正在对中国进行国事访问的塞尔维亚总统武契奇抵达小米汽车工厂参访。
+量化投资领域最负盛名的人物之一警告称，不应将投资决策权完全交予人工智能，并指出对冲基金行业的某些领域在采用该技术方面已走得过远。
 
-(完)
+马丁·卢克（Martin Lueck）是量化先驱AHL的三位创始人之一，同时也是对冲基金宽立资本（Aspect Capital）的联合创始人兼总裁。
+
+他表示，能够准确理解其计算机模型为何推荐特定交易，对他的公司而言至关重要。
+
+“我的出发点是，我不会将我的名字或我公司的声誉押在某个我完全不清楚它为何持有这些头寸的东西上，”卢克（Lueck）表示。
+
+他管理的公司资产规模达90亿美元。
+
+“我需要有某种我可以依托的假设。
+
+如果我是把自己的钱投进去，我想知道它在做什么，”他补充道。
+
+卢克发表上述言论之际，对冲基金和自营交易公司正在深化对人工智能及机器学习技术的运用。
 
 ## 相关推荐
 
-- 2026-06-30 04:26 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 04:22 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-30 04:36 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-30 04:43 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-30 04:45 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-30 04:31 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-30 04:26 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-30 04:31 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-30 04:22 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 04:21 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-30 04:24 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-30 04:24 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-30 04:52 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-30 04:39 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-30 04:28 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 04:25 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-30 04:25 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-30 04:24 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-30 04:39 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-30 04:51 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 04:36 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-30 04:38 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-30 04:53 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:21 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/112586650.shtml)
-- 2026-06-30 04:19 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/51711.shtml)
-- 2026-06-30 04:36 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/521631808.shtml)
-- 2026-06-30 04:25 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/84948.shtml)
-- 2026-06-30 04:18 - [审核了不止十年的低创鬼畜](http://www.blog.minike.top/Article/details/31184289312.shtml)
-- 2026-06-30 04:23 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/43932260.shtml)
-- 2026-06-30 04:40 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/4118981247.shtml)
-- 2026-06-30 04:25 - [内马尔中场休息积极鼓励队友](https://www.blog.kurohicncr.top/Article/details/65686877133.shtml)
-- 2026-06-30 04:20 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/084054446.shtml)
-- 2026-06-30 04:21 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/304379947845.shtml)
-- 2026-06-30 04:19 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/725365917.shtml)
-- 2026-06-30 04:28 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/763072447.shtml)
-- 2026-06-30 04:38 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/366364.shtml)
-- 2026-06-30 04:42 - [日本领先巴西](http://www.share.minike.top/Article/details/848338631716.shtml)
-- 2026-06-30 04:25 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/4731510478.shtml)
+- 2026-06-30 04:29 - [德国vs巴拉圭](http://www.share.minike.top/Article/details/3030708383.shtml)
+- 2026-06-30 04:46 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/417049406.shtml)
+- 2026-06-30 04:49 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/32365.shtml)
+- 2026-06-30 04:26 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/4724356.shtml)
+- 2026-06-30 04:50 - [扬名立万](https://www.share.kurohicncr.top/Article/details/76682197.shtml)
+- 2026-06-30 04:51 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/323485187.shtml)
+- 2026-06-30 04:49 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/811303820.shtml)
+- 2026-06-30 04:27 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/6288278136.shtml)
+- 2026-06-30 04:29 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/771811501176.shtml)
+- 2026-06-30 04:48 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/474365797.shtml)
+- 2026-06-30 04:41 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/85533475659.shtml)
+- 2026-06-30 04:34 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/492816304806.shtml)
+- 2026-06-30 04:50 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/756213734485.shtml)
+- 2026-06-30 04:49 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/48889.shtml)
+- 2026-06-30 04:30 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/541070311631.shtml)

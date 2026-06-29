@@ -1,42 +1,59 @@
-# 我国累计发布1750项食品安全国家标准
+# *ST数源退市压力叠加立案，经营困境持续加深
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月26日 13:17 来源：央视新闻 责任编辑：【王祎】
+登录新浪财经APP 搜索【信披】查看更多考评等级 一、风险重重再添立案 2026年4月22日晚，*ST数源（维权）公告称，因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，证监会决定对公司立案。立案通知书公告中未披露具体立案缘由，仅表示将配合调查并履行信披义务。对于这家本已面临退市风险的公司而言，此次立案是雪上加霜。 公司于2023
 
 ## 正文
 
-发布时间：2026年05月26日 13:17 来源：央视新闻 责任编辑：【王祎】
+登录新浪财经APP 搜索【信披】查看更多考评等级 一、风险重重再添立案 2026年4月22日晚，*ST数源（维权）公告称，因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，证监会决定对公司立案。
+
+立案通知书公告中未披露具体立案缘由，仅表示将配合调查并履行信披义务。
+
+对于这家本已面临退市风险的公司而言，此次立案是雪上加霜。
+
+公司于2023年5月因内控审计报告被出具否定意见、财务报告被出具保留意见而首次被实施其他风险警示。
+
+二、公司经营困境持续加深 公司的2025年年报数据显示，公司全年营业收入为2.70亿元，同比下降16.28%；归母净利润亏损4.37亿元，同比下降562.09%；扣非归母净利润亏损3.27亿元，每股收益为-1.00元。
+
+财务指标触及退市风险警示条件，公司股票因此于2026年4月1日披星戴帽。
+
+在监管记录方面，该公司并非首次遭遇证监会立案调查。
+
+近年来，公司曾多次因财务数据核算不准确、关联交易未及时披露、资金往来信息披露不合规、内控失效等问题，被地方证监局采取行政监管措施，多名时任核心管理人员也一并受到监管警示。
 
 ## 相关推荐
 
-- 2026-06-30 04:42 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-30 04:23 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-30 04:38 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-30 04:31 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 04:39 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-30 04:32 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-30 04:18 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-30 04:35 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-30 04:33 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-30 04:21 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 04:53 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-30 04:39 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-30 04:24 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-30 04:47 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-30 04:39 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-30 04:44 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-30 04:33 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-30 04:33 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-30 04:27 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-30 04:46 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-30 04:42 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-30 04:46 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-30 04:54 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:36 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/337973818.shtml)
-- 2026-06-30 04:40 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/78970.shtml)
-- 2026-06-30 04:41 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/363869388.shtml)
-- 2026-06-30 04:30 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/8488512296.shtml)
-- 2026-06-30 04:39 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/241491.shtml)
-- 2026-06-30 04:37 - [绘画区你赢了](http://www.share.minike.top/Article/details/955467.shtml)
-- 2026-06-30 04:25 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/63177196.shtml)
-- 2026-06-30 04:38 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/667815335.shtml)
-- 2026-06-30 04:32 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/255693009.shtml)
-- 2026-06-30 04:43 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/55732997.shtml)
-- 2026-06-30 04:22 - [德国vs巴拉圭](http://www.share.minike.top/Article/details/108409.shtml)
-- 2026-06-30 04:18 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/058533.shtml)
-- 2026-06-30 04:19 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/996628786571.shtml)
-- 2026-06-30 04:39 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/64948.shtml)
-- 2026-06-30 04:36 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/6377870477.shtml)
+- 2026-06-30 04:43 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/552266.shtml)
+- 2026-06-30 04:38 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/11900329.shtml)
+- 2026-06-30 04:53 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/98956425200.shtml)
+- 2026-06-30 04:45 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/2230216.shtml)
+- 2026-06-30 04:52 - [张凌赫 客串](http://www.share.minike.top/Article/details/628336332680.shtml)
+- 2026-06-30 04:35 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/823735960390.shtml)
+- 2026-06-30 04:26 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/59722.shtml)
+- 2026-06-30 04:52 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/3965073082.shtml)
+- 2026-06-30 04:24 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/54849.shtml)
+- 2026-06-30 04:27 - [时光音乐会](https://www.share.minike.top/Article/details/8542011.shtml)
+- 2026-06-30 04:38 - [德约科维奇向温网对手放狠话](http://www.share.minike.top/Article/details/644611955444.shtml)
+- 2026-06-30 04:47 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.kurohicncr.top/Article/details/9244507980.shtml)
+- 2026-06-30 04:36 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/58576602.shtml)
+- 2026-06-30 04:35 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/480708.shtml)
+- 2026-06-30 04:53 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/927754927956.shtml)

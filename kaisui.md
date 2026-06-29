@@ -1,56 +1,54 @@
-# “海洋石油112”FPSO原油外输破千船次
+# 中柬外长、防长“2+2”战略对话首次会议达成六点共识
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-中新网天津5月25日电 (记者 王君妍 周亚强)记者从天津东疆海事局获悉，25日下午，在渤海西部海域，“三鼎长春”轮完成约5.7万吨原油装载后，安全驶离“海洋石油112”浮式生产储卸油装置作业水域。至此，“海洋石油112”FPSO(浮式生产储卸油装置)第1000艘次原油外输作业完成。 据介绍，“海洋石油112”FPSO自2004年开展首船原油外输以来，已连续作业22年，累计外输
+当地时间2026年4月23日，中共中央政治局委员、外交部长王毅向媒体介绍了中柬外长、防长“2+2”战略对话首次会议达成的六点共识： 一是双方同意坚定相互支持，重在支持对方维护好核心利益。中方赞赏柬方重申坚定恪守一个中国原则，支持中国统一大业，支持习近平主席提出的重大全球倡议。 二是双方同意深化互利合作，重在帮助柬加快提高自主发展能力，特别是聚焦“工业发展走廊”“鱼米走廊”建设，
 
 ## 正文
 
-中新网天津5月25日电 (记者 王君妍 周亚强)记者从天津东疆海事局获悉，25日下午，在渤海西部海域，“三鼎长春”轮完成约5.7万吨原油装载后，安全驶离“海洋石油112”浮式生产储卸油装置作业水域。
+当地时间2026年4月23日，中共中央政治局委员、外交部长王毅向媒体介绍了中柬外长、防长“2+2”战略对话首次会议达成的六点共识： 一是双方同意坚定相互支持，重在支持对方维护好核心利益。
 
-至此，“海洋石油112”FPSO(浮式生产储卸油装置)第1000艘次原油外输作业完成。
+中方赞赏柬方重申坚定恪守一个中国原则，支持中国统一大业，支持习近平主席提出的重大全球倡议。
 
-据介绍，“海洋石油112”FPSO自2004年开展首船原油外输以来，已连续作业22年，累计外输原油逾4800万吨。
+二是双方同意深化互利合作，重在帮助柬加快提高自主发展能力，特别是聚焦“工业发展走廊”“鱼米走廊”建设，推进扶南德佐综合水利项目这一战略性工程。
 
-天津海事局辖区海上油田群位于渤海西部海域，区域内分布着海上油气开采的中心平台、井口平台、浮式生产储卸油装置等海上设施。
+三是双方同意加强政治安全合作，重在维护各自政权安全和制度安全，携手抵御外部渗透，防范“颜色革命”。
 
-水下铺设着连接各设施的海底输油、输电、输水等管线。
+四是双方同意加强执法合作，重在坚决彻底打击网赌电诈，维护人民群众生命和财产安全，为中柬合作营造良好外部环境。
 
-日常生产中，提油轮开展原油外输作业，施工船进行水上水下作业，油田工作船穿梭各设施间运送人员物资。
+五是双方同意加强防务合作，重在协助柬加快国防能力建设，维护好自身主权、安全和发展利益。
 
-而油田水域外，又紧邻渤海湾中部船舶定线制、曹妃甸水域船舶定线制等多个重要海上交通功能区，通航环境复杂，安全和防污染形势严峻。
-
-面对复杂的“海上棋盘”，多年来，天津海事局以保障海上油田生产作业安全、服务国家能源战略为出发点，探索出一套“1531”工作机制——“1”个中心：以海上原油外输作业安全监管为中心；“5步工作法”：估(安全风险评估)、查(现场检查)、审(许可审批)、盯(全过程记录)、核(通关核查)，环环相扣；“3”个基本点：船舶监督、巡航管理、应急处置；“1”个服务平台：油田作业监管综合服务平台，实现“一站式”监管与服务。
+六是双方同意加强在国际和地区事务中协调配合，重在反对强权政治和霸凌行径，维护全球自由贸易，支持联合国发挥应有作用。
 
 ## 相关推荐
 
-- 2026-06-30 04:46 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-30 04:18 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-30 04:43 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-30 04:26 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-30 04:26 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-30 04:34 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-30 04:35 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-30 04:31 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-30 04:28 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-30 04:40 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-30 04:49 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-30 04:48 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-30 04:49 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 04:34 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-30 04:49 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-30 04:47 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-30 04:27 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-30 04:25 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-30 04:37 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-30 04:48 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:37 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/9969032762.shtml)
-- 2026-06-30 04:34 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/1218282618.shtml)
-- 2026-06-30 04:40 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/3788558902.shtml)
-- 2026-06-30 04:24 - [日本进球](http://www.blog.minike.top/Article/details/37609448.shtml)
-- 2026-06-30 04:31 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/63474413807.shtml)
-- 2026-06-30 04:19 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/893943.shtml)
-- 2026-06-30 04:25 - [毒液2](https://www.share.kurohicncr.top/Article/details/20693424090.shtml)
-- 2026-06-30 04:43 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/3067068.shtml)
-- 2026-06-30 04:46 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/923878.shtml)
-- 2026-06-30 04:43 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/0884460480.shtml)
-- 2026-06-30 04:34 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/8675047607.shtml)
-- 2026-06-30 04:28 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/4608630137.shtml)
-- 2026-06-30 04:19 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/5406575.shtml)
-- 2026-06-30 04:40 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/270336121783.shtml)
-- 2026-06-30 04:45 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/22727112115.shtml)
+- 2026-06-30 04:48 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/94656271.shtml)
+- 2026-06-30 04:37 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/4695193.shtml)
+- 2026-06-30 04:26 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/19526810.shtml)
+- 2026-06-30 04:41 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/212522628.shtml)
+- 2026-06-30 04:34 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/916428606345.shtml)
+- 2026-06-30 04:53 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/690539312954.shtml)
+- 2026-06-30 04:51 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/83416873587.shtml)
+- 2026-06-30 04:48 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/0503750380.shtml)
+- 2026-06-30 04:52 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/62098.shtml)
+- 2026-06-30 04:40 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/9305438313.shtml)
+- 2026-06-30 04:36 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/9918354.shtml)
+- 2026-06-30 04:32 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/693365629475.shtml)
+- 2026-06-30 04:49 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/9128742903.shtml)
+- 2026-06-30 04:50 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/0888818966.shtml)
+- 2026-06-30 04:25 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/95661.shtml)

@@ -1,57 +1,50 @@
-# 借名炒股、诱导客户、外包招揽：“新锐”投顾把红线踩了个遍，中金财富在干什么？
+# 海尔智家获Pzena Investment Management, LLC增持180.92万股 每股作价约20.99港元
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：行家券业 借名炒股、诱导客户、外包招揽：“新锐”投顾把红线踩了个遍，中金财富在干什么？ 两张同步落地的监管罚单，直击中金财富旗下老牌营业部。一边是深耕多年的老将长期坐镇，一边是新锐投顾“顶风作案”屡破规则。中金财富基层券商网点的合规失守，或许早有端倪。 一名员工，三条红线 时隔年余，吉林证监局更新了涉
+香港联交所最新资料显示，4月17日，Pzena Investment Management， LLC增持海尔智家（06690）180.92万股，每股作价20.9874港元，总金额约为3797.04万港元。增持后最新持股数目约为1.72亿股，最新持股比例为6.02%。责任编辑：卢昱君
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+香港联交所最新资料显示，4月17日，Pzena Investment Management， LLC增持海尔智家（06690）180.92万股，每股作价20.9874港元，总金额约为3797.04万港元。
 
-来源：行家券业 借名炒股、诱导客户、外包招揽：“新锐”投顾把红线踩了个遍，中金财富在干什么？
+增持后最新持股数目约为1.72亿股，最新持股比例为6.02%。
 
-两张同步落地的监管罚单，直击中金财富旗下老牌营业部。
-
-一边是深耕多年的老将长期坐镇，一边是新锐投顾“顶风作案”屡破规则。
-
-中金财富基层券商网点的合规失守，或许早有端倪。
-
-一名员工，三条红线 时隔年余，吉林证监局更新了涉及券商机构的罚单，这次指向的是中金财富证券。
-
-先看被罚的个人。
-
-周某，2019年6月入职中金公司，2020年7月转到中金财富证券，任职于长春长春大街证券营业部（简称：长春营业部）；2022年1月拿下投顾资质，路径按部就班。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 04:34 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 04:35 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-30 04:22 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 04:29 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-30 04:34 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 04:21 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-30 04:40 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-30 04:18 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-30 04:33 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-30 04:39 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 04:43 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-30 04:48 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-30 04:46 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-30 04:32 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-30 04:30 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 04:24 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-30 04:25 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-30 04:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-30 04:25 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-30 04:46 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-30 04:40 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-30 04:46 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-30 04:48 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-30 04:26 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-30 04:44 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:32 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/0212044138.shtml)
-- 2026-06-30 04:30 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/9651228.shtml)
-- 2026-06-30 04:27 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/01762271.shtml)
-- 2026-06-30 04:32 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/33745581.shtml)
-- 2026-06-30 04:40 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/0015347787.shtml)
-- 2026-06-30 04:22 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/5990162.shtml)
-- 2026-06-30 04:40 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/22741293202.shtml)
-- 2026-06-30 04:47 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/41466770.shtml)
-- 2026-06-30 04:20 - [巴西2比1日本](http://www.blog.minike.top/Article/details/690986.shtml)
-- 2026-06-30 04:33 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/906244.shtml)
-- 2026-06-30 04:40 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/606892221282.shtml)
-- 2026-06-30 04:22 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/0760135735.shtml)
-- 2026-06-30 04:18 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/269280962852.shtml)
-- 2026-06-30 04:19 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/63147689.shtml)
-- 2026-06-30 04:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/83787444503.shtml)
+- 2026-06-30 04:43 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/0379585.shtml)
+- 2026-06-30 04:34 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/439168786992.shtml)
+- 2026-06-30 04:51 - [扬名立万](http://www.share.kurohicncr.top/Article/details/66900170.shtml)
+- 2026-06-30 04:53 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/311201.shtml)
+- 2026-06-30 04:42 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/826297.shtml)
+- 2026-06-30 04:33 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/0194025.shtml)
+- 2026-06-30 04:27 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/460915.shtml)
+- 2026-06-30 04:29 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/7832356531.shtml)
+- 2026-06-30 04:30 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/66076481017.shtml)
+- 2026-06-30 04:25 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/173650632814.shtml)
+- 2026-06-30 04:31 - [巴西绝杀](http://www.blog.minike.top/Article/details/33285.shtml)
+- 2026-06-30 04:29 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/9240572.shtml)
+- 2026-06-30 04:33 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/134292516947.shtml)
+- 2026-06-30 04:24 - [周生如故](http://www.share.minike.top/Article/details/9280312195.shtml)
+- 2026-06-30 04:26 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/97549.shtml)

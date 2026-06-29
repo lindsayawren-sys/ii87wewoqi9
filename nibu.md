@@ -1,59 +1,60 @@
-# 银行收紧零售信贷风控？不同银行体感有温差
+# 牛市早报丨商务部：如中国企业因欧盟修订《网络安全法》遭歧视性待遇，将采取措施
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 安震 界面新闻近日从业内获悉，目前商业银行对零售信贷风控和审批有收紧的趋势。 “最近个贷风控确实是收紧了，总行对于贷款用途和放款后的资金流向都查得比以前更严格。”一位国有行个贷条线人士对界面新闻表示。 不过界面新闻在走访中获悉，不同银行对于零售贷款风控感受有所不同。另一家国有行省分行个贷条线负责人则表示，零售贷款风控并没有明显收紧，总行的考核任务基本没有调整，
+【市场数据】 截至4月23日收盘，上证综指跌0.32%，报4093.25点；深证成指跌0.88%，报15043.45点；创业板指跌0.87%，报3720.25点。 纽约股市三大股指23日下跌。截至当天收盘，道琼斯工业平均指数比前一交易日下跌179.71点，收于49310.32点，跌幅为0.36%；标准普尔500种股票指数下跌29.50点，收于7108.40点，跌幅为0.41%；
 
 ## 正文
 
-界面新闻记者 | 安震 界面新闻近日从业内获悉，目前商业银行对零售信贷风控和审批有收紧的趋势。
+【市场数据】 截至4月23日收盘，上证综指跌0.32%，报4093.25点；深证成指跌0.88%，报15043.45点；创业板指跌0.87%，报3720.25点。
 
-“最近个贷风控确实是收紧了，总行对于贷款用途和放款后的资金流向都查得比以前更严格。
+纽约股市三大股指23日下跌。
 
-”一位国有行个贷条线人士对界面新闻表示。
+截至当天收盘，道琼斯工业平均指数比前一交易日下跌179.71点，收于49310.32点，跌幅为0.36%；标准普尔500种股票指数下跌29.50点，收于7108.40点，跌幅为0.41%；纳斯达克综合指数下跌219.06点，收于24438.50点，跌幅为0.89%。
 
-不过界面新闻在走访中获悉，不同银行对于零售贷款风控感受有所不同。
+国际油价23日显著上涨。
 
-另一家国有行省分行个贷条线负责人则表示，零售贷款风控并没有明显收紧，总行的考核任务基本没有调整，银行拓展业务的意愿仍然比较强。
+截至当天收盘，纽约商品交易所6月交货的轻质原油期货价格上涨2.89美元，收于每桶95.85美元，涨幅为3.11%；6月交货的伦敦布伦特原油期货价格上涨3.16美元，收于每桶105.07美元，涨幅为3.1%。
 
-体感有温差 此前，有媒体报道，出于控制风险的考量，实操中零售信贷的把控仍在趋于审慎。
+【财经要闻】 1、据新华社，近日，中共中央办公厅、国务院办公厅印发《碳达峰碳中和综合评价考核办法》。
 
-有银行将部分核心省会级城市支行的个贷审批权限全面上收至分行。
+其中提出，“十五五”时期，国家发展改革委应当会同有关部门围绕如期实现2030年前碳达峰目标，制定“十五五”碳达峰行动方案，确保实现2030年碳排放强度比2005年降低65%以上、2030年非化石能源消费占比达到25%等目标，实现煤炭消费总量和石油消费总量达峰，合理控制煤电装机规模和发电量，力争年度新增清洁能源电量逐步覆盖全社会新增用电量。
 
-一位国有大行个贷条线人士对界面新闻表示，“我们银行消费贷的审批权限基本都在总行，为了更好地风控，不会把风控权限下放到分行，而且总行的科技能力也有保证，授信集中起来之后，调整风控参数也比较方便。
+2、据央视新闻，商务部4月23日下午举行例行新闻发布会，针对美国海关与边境保护局在20日开始相关关税的退款工作，商务部表示，中方一贯反对任何形式的单边加征关税措施，美方对等关税、芬太尼关税等单边措施，既违反国际经贸规则，也违反美国国内法，危害全球经贸秩序，不符合各方利益。
 
 ## 相关推荐
 
-- 2026-06-30 04:29 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-30 04:22 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-30 04:25 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-30 04:40 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-30 04:20 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-30 04:46 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-30 04:42 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-30 04:42 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-30 04:40 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-30 04:37 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-30 04:33 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-30 04:46 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-30 04:35 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-30 04:42 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-30 04:37 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-30 04:27 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-30 04:33 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 04:53 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-30 04:26 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-30 04:38 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-30 04:43 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-30 04:51 - [日本淘汰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-30 04:40 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 04:31 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 04:31 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-30 04:29 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-30 04:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:21 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/557358874.shtml)
-- 2026-06-30 04:30 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/26689620.shtml)
-- 2026-06-30 04:39 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/51569.shtml)
-- 2026-06-30 04:24 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/26922.shtml)
-- 2026-06-30 04:28 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/8416230.shtml)
-- 2026-06-30 04:30 - [明星大侦探第一季](https://www.share.minike.top/Article/details/39513927800.shtml)
-- 2026-06-30 04:19 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.minike.top/Article/details/322185.shtml)
-- 2026-06-30 04:45 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/3438038.shtml)
-- 2026-06-30 04:28 - [恋与深空 日服](http://www.share.minike.top/Article/details/2166196.shtml)
-- 2026-06-30 04:27 - [金刚川](https://www.blog.minike.top/Article/details/69458270994.shtml)
-- 2026-06-30 04:46 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/24682.shtml)
-- 2026-06-30 04:28 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/95543.shtml)
-- 2026-06-30 04:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/0385683.shtml)
-- 2026-06-30 04:18 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/7566607.shtml)
-- 2026-06-30 04:19 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/8357627.shtml)
+- 2026-06-30 04:40 - [第一炉香](https://www.share.kurohicncr.top/Article/details/883597715136.shtml)
+- 2026-06-30 04:48 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.kurohicncr.top/Article/details/895265575542.shtml)
+- 2026-06-30 04:47 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/2087281.shtml)
+- 2026-06-30 04:49 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/33278.shtml)
+- 2026-06-30 04:28 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/470659824.shtml)
+- 2026-06-30 04:27 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/80409125638.shtml)
+- 2026-06-30 04:30 - [恋与深空制作组回应近期争议](https://www.blog.kurohicncr.top/Article/details/2351954278.shtml)
+- 2026-06-30 04:37 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/75941892.shtml)
+- 2026-06-30 04:47 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/25962497.shtml)
+- 2026-06-30 04:24 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/799039.shtml)
+- 2026-06-30 04:50 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/4115878.shtml)
+- 2026-06-30 04:29 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/748912.shtml)
+- 2026-06-30 04:25 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/4762098883.shtml)
+- 2026-06-30 04:32 - [田曦薇没招了](https://www.share.minike.top/Article/details/4302499819.shtml)
+- 2026-06-30 04:42 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/00566.shtml)

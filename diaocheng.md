@@ -1,61 +1,60 @@
-# 空客供应链受阻，澳洲航空直飞伦敦、纽约航班计划延后
+# 美国海军部长约翰·费伦被解职
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-12 架空客 A350-1000 客机的首架交付时间推迟至 2027 年 4 月 受供应链问题持续影响，空中客车宣布，向澳大利亚澳洲航空交付首批远程客机的计划再度推迟。 这家欧洲航空制造商于周二表示，12 架经过定制改装的 A350-1000 客机，首架交付时间现已延至 2027 年 4 月。 澳洲航空早在 2022 年就宣布向空客订购新款机型，计划开通澳大利亚城市直飞伦敦、纽
+中新社华盛顿4月23日电 (记者 陈孟统)美国国防部发言人肖恩·帕内尔22日发表声明称，美国海军部长约翰·费伦(John Phelan)将离职，“立即生效”。海军部副部长高雄(越南裔)将任代理海军部长。 这是美国对伊朗发起军事行动以来，再次调整军方高层人事。4月初，美国陆军参谋长兰迪·乔治(Randy A. George)被宣布“立即退休”。 和兰迪·乔治的离任一样，五角大楼也
 
 ## 正文
 
-12 架空客 A350-1000 客机的首架交付时间推迟至 2027 年 4 月 受供应链问题持续影响，空中客车宣布，向澳大利亚澳洲航空交付首批远程客机的计划再度推迟。
+中新社华盛顿4月23日电 (记者 陈孟统)美国国防部发言人肖恩·帕内尔22日发表声明称，美国海军部长约翰·费伦(John Phelan)将离职，“立即生效”。
 
-这家欧洲航空制造商于周二表示，12 架经过定制改装的 A350-1000 客机，首架交付时间现已延至 2027 年 4 月。
+海军部副部长高雄(越南裔)将任代理海军部长。
 
-澳洲航空早在 2022 年就宣布向空客订购新款机型，计划开通澳大利亚城市直飞伦敦、纽约的超长航线。
+这是美国对伊朗发起军事行动以来，再次调整军方高层人事。
 
-该航司最初预计这类航班可在 2025 年底投入运营，此后又将首架飞机交付时间调整为 2026 年底。
+4月初，美国陆军参谋长兰迪·乔治(Randy A. George)被宣布“立即退休”。
 
-空客称，此次交付延期主要由供应链问题导致。
+和兰迪·乔治的离任一样，五角大楼也没有给出费伦离职的具体原因。
 
-受全球供应链瓶颈制约，从客舱座椅到机载卫浴等各类组装零部件供应不畅，空客曾在 2022 年、2024 年及 2025 年三度下调飞机交付目标。
+对于五角大楼在一个月内两度调整军队高层，美国国会参议院军事委员会资深成员、民主党人杰克·里德表示，五角大楼此举“令人不安”，这表明军方处于“不稳定和失灵”状态，向美国的对手发出了错误的信号。
 
-如今，由雷神技术集团旗下普惠公司提供的航空发动机供应短缺，成为空客面临的新难题，不过该公司仍坚持本年度交付目标不变。
+美国防长赫格塞思就任后，推动国防部大规模改革，多名美军高级将领被解职或提前退休，其中包括时任美军参谋长联席会议主席查尔斯·布朗、国家安全局局长兼网络司令部司令蒂莫西·霍、海军作战部长莉萨·弗兰凯蒂以及海岸警卫队司令琳达·费根等。
 
-澳洲航空发言人表示，这批 A350 客机的首架目前已进入喷漆工序，数周内将开展试飞。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 04:18 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-30 04:35 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-30 04:39 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-30 04:39 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-30 04:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-30 04:27 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-30 04:41 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-30 04:30 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-30 04:22 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-30 04:30 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-30 04:46 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 04:20 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-30 04:35 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-30 04:42 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-30 04:29 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-30 04:52 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-30 04:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-30 04:30 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-30 04:53 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 04:49 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 04:50 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-30 04:37 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-30 04:37 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 04:29 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-30 04:38 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-30 04:30 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-30 04:34 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-30 04:35 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 04:44 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:23 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/02560.shtml)
-- 2026-06-30 04:25 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/4301267.shtml)
-- 2026-06-30 04:29 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/960262702101.shtml)
-- 2026-06-30 04:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/39588483648.shtml)
-- 2026-06-30 04:46 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/980896049046.shtml)
-- 2026-06-30 04:36 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/3508430.shtml)
-- 2026-06-30 04:21 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/0081535973.shtml)
-- 2026-06-30 04:25 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/4997048.shtml)
-- 2026-06-30 04:28 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/425365412.shtml)
-- 2026-06-30 04:25 - [天道](http://www.share.minike.top/Article/details/616673.shtml)
-- 2026-06-30 04:25 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/2253706.shtml)
-- 2026-06-30 04:23 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/65413621.shtml)
-- 2026-06-30 04:26 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/526530.shtml)
-- 2026-06-30 04:23 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/77315.shtml)
-- 2026-06-30 04:20 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/5096886965.shtml)
+- 2026-06-30 04:44 - [内马尔中场休息积极鼓励队友](http://www.blog.kurohicncr.top/Article/details/38811667463.shtml)
+- 2026-06-30 04:34 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/4135583.shtml)
+- 2026-06-30 04:41 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/02766.shtml)
+- 2026-06-30 04:45 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/09990772987.shtml)
+- 2026-06-30 04:28 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/844649277521.shtml)
+- 2026-06-30 04:25 - [《共患难》](http://www.share.kurohicncr.top/Article/details/447847139883.shtml)
+- 2026-06-30 04:51 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/5163816228.shtml)
+- 2026-06-30 04:32 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/898196099242.shtml)
+- 2026-06-30 04:41 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/926030702.shtml)
+- 2026-06-30 04:40 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/3333833.shtml)
+- 2026-06-30 04:45 - [巴西绝杀日本](http://www.blog.minike.top/Article/details/207084.shtml)
+- 2026-06-30 04:46 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/92906083.shtml)
+- 2026-06-30 04:52 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/82000043024.shtml)
+- 2026-06-30 04:42 - [《共患难》](http://www.share.minike.top/Article/details/20437698916.shtml)
+- 2026-06-30 04:48 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/174023.shtml)

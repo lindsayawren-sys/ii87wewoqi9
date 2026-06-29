@@ -1,49 +1,58 @@
-# 《超龄劳动者基本权益保障暂行规定》发布 7月1日起施行
+# 94.5%受访家长认为优质少儿图书是孩子不可或缺的精神食粮
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-中新网5月25日电 据人力资源和社会保障部网站消息，日前，人力资源社会保障部会同国家卫生健康委、应急管理部、税务总局、国家医保局联合出台《超龄劳动者基本权益保障暂行规定》(以下简称《暂行规定》)，自2026年7月1日起施行。《暂行规定》是我国首部明确超龄劳动者权益的专门规章，填补了我国现行劳动法律制度的短板，明确了用人单位与超龄劳动者的权利和义务，保障超龄劳动者的劳动报酬、休息
+94.5%受访家长认为优质少儿图书是孩子不可或缺的精神食粮 超八成受访家长表示自家孩子爱阅读 第31个“世界读书日”如期而至。阅读不仅是了解世界、获取知识的窗口，更是滋养心灵、涵养品格的重要途径。如何为孩子挑选合适的书籍，成为不少家长关注的话题。 日前，中国青年报社社会调查中心联合问卷网(wenjuan.com)，对1334名受访者(其中少儿家长1120名)进行的一项调查显示，
 
 ## 正文
 
-中新网5月25日电 据人力资源和社会保障部网站消息，日前，人力资源社会保障部会同国家卫生健康委、应急管理部、税务总局、国家医保局联合出台《超龄劳动者基本权益保障暂行规定》(以下简称《暂行规定》)，自2026年7月1日起施行。
+94.5%受访家长认为优质少儿图书是孩子不可或缺的精神食粮 超八成受访家长表示自家孩子爱阅读 第31个“世界读书日”如期而至。
 
-《暂行规定》是我国首部明确超龄劳动者权益的专门规章，填补了我国现行劳动法律制度的短板，明确了用人单位与超龄劳动者的权利和义务，保障超龄劳动者的劳动报酬、休息休假、劳动安全卫生、工伤保障等合法权益。
+阅读不仅是了解世界、获取知识的窗口，更是滋养心灵、涵养品格的重要途径。
+
+如何为孩子挑选合适的书籍，成为不少家长关注的话题。
+
+日前，中国青年报社社会调查中心联合问卷网(wenjuan.com)，对1334名受访者(其中少儿家长1120名)进行的一项调查显示，85.0%的受访家长表示孩子喜欢阅读。
+
+为孩子选书时，52.2%的受访家长重视贴合孩子年龄特点，助力价值观塑造；51.7%的受访家长会结合孩子的兴趣爱好与阅读偏好。
+
+94.5%的受访家长认为优质少儿图书是孩子成长不可或缺的精神食粮。
+
+“现在班里不少学生会在课间、午休时主动拿起书读，能看到他们眼里有光” “儿子很喜欢看书，上幼儿园时看绘本认识了一些汉字，进入小学后识字一点不费劲。
+
+”北京家长胡丽敏的孩子现在读小学六年级。
 
 ## 相关推荐
 
-- 2026-06-30 04:46 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-30 04:24 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-30 04:23 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-30 04:25 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-30 04:23 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-30 04:22 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-30 04:34 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-30 04:44 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-30 04:30 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-30 04:39 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-30 04:19 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-30 04:40 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-30 04:37 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-30 04:37 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-30 04:19 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-30 04:32 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-30 04:34 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-30 04:44 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-30 04:32 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-30 04:28 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 04:43 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-30 04:36 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-30 04:50 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-30 04:44 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-30 04:52 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-30 04:47 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-30 04:48 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:38 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/279509359039.shtml)
-- 2026-06-30 04:42 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/8344991.shtml)
-- 2026-06-30 04:47 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.kurohicncr.top/Article/details/945699548069.shtml)
-- 2026-06-30 04:20 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/065379668201.shtml)
-- 2026-06-30 04:18 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/18479208446.shtml)
-- 2026-06-30 04:32 - [巴西绝杀日本](http://www.share.minike.top/Article/details/9010485078.shtml)
-- 2026-06-30 04:39 - [人类...完蛋了...](https://www.share.minike.top/Article/details/5047441209.shtml)
-- 2026-06-30 04:26 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/54169.shtml)
-- 2026-06-30 04:38 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/223924.shtml)
-- 2026-06-30 04:28 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/812976735380.shtml)
-- 2026-06-30 04:24 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/03320253.shtml)
-- 2026-06-30 04:42 - [巴西替补奇兵读秒绝杀](https://www.blog.minike.top/Article/details/21996059296.shtml)
-- 2026-06-30 04:30 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/47180023.shtml)
-- 2026-06-30 04:29 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/302538.shtml)
-- 2026-06-30 04:35 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/793436.shtml)
+- 2026-06-30 04:31 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/79599.shtml)
+- 2026-06-30 04:46 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/77468950.shtml)
+- 2026-06-30 04:42 - [流金岁月](https://www.share.minike.top/Article/details/444365.shtml)
+- 2026-06-30 04:26 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/61003.shtml)
+- 2026-06-30 04:48 - [二次元提前预演明日巴西对日本](http://www.blog.minike.top/Article/details/570282481195.shtml)
+- 2026-06-30 04:38 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/628786668943.shtml)
+- 2026-06-30 04:25 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/504930503.shtml)
+- 2026-06-30 04:35 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/401711.shtml)
+- 2026-06-30 04:27 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/3244782190.shtml)
+- 2026-06-30 04:36 - [小娘惹](https://www.blog.minike.top/Article/details/8408884762.shtml)
+- 2026-06-30 04:49 - [周生如故](https://www.share.kurohicncr.top/Article/details/611680509.shtml)
+- 2026-06-30 04:43 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/58818.shtml)
+- 2026-06-30 04:48 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/06892.shtml)
+- 2026-06-30 04:48 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/93540559.shtml)
+- 2026-06-30 04:39 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/71098646.shtml)

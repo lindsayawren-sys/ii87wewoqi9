@@ -1,52 +1,49 @@
-# 美军袭击消息引发标普500指数期货小幅回落
+# 十四届全国人大常委会第二十二次会议4月27日至30日举行
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-据报道，美军对伊朗境内目标实施打击，受此影响，美国股指期货小幅走低，西德克萨斯轻质原油价格同步小幅上行。目前伊朗暂无回应，媒体援引美国中央司令部声明称，此次袭击行动较为克制。亚洲市场周二早盘，标普500迷你股指期货开盘约7560点，现报7544点左右。西德克萨斯轻质原油盘中最低触及90.35美元/桶，目前价格升至90.90美元/桶上方。市场整体反应温和，交易员认为，只要美方展现
+今天，全国人大常委会法工委举行记者会。记者会上发言人介绍，十四届全国人大常委会第六十五次委员长会议决定，十四届全国人大常委会第二十二次会议4月27日至30日在北京举行。 委员长会议建议，十四届全国人大常委会第二十二次会议： 审议监狱法修订草案、社会救助法草案、医疗保障法草案、耕地保护和质量提升法草案； 审议全国人大财政经济委员会关于提请审议企业国有资产法修订草案的议案；审议全国
 
 ## 正文
 
-据报道，美军对伊朗境内目标实施打击，受此影响，美国股指期货小幅走低，西德克萨斯轻质原油价格同步小幅上行。
+今天，全国人大常委会法工委举行记者会。
 
-目前伊朗暂无回应，媒体援引美国中央司令部声明称，此次袭击行动较为克制。
+记者会上发言人介绍，十四届全国人大常委会第六十五次委员长会议决定，十四届全国人大常委会第二十二次会议4月27日至30日在北京举行。
 
-亚洲市场周二早盘，标普500迷你股指期货开盘约7560点，现报7544点左右。
+委员长会议建议，十四届全国人大常委会第二十二次会议： 审议监狱法修订草案、社会救助法草案、医疗保障法草案、耕地保护和质量提升法草案； 审议全国人大财政经济委员会关于提请审议企业国有资产法修订草案的议案；审议全国人大农业与农村委员会关于提请审议农业法修订草案的议案； 审议国务院、中央军事委员会关于提请审议国防动员法修订草案的议案； 审议国务院关于提请审议水法修订草案的议案。
 
-西德克萨斯轻质原油盘中最低触及90.35美元/桶，目前价格升至90.90美元/桶上方。
-
-市场整体反应温和，交易员认为，只要美方展现出达成协议的意愿，各方就能容忍这类突发扰动。
-
-责任编辑：王永生
+(总台央视记者 武兵 周琨)
 
 ## 相关推荐
 
-- 2026-06-30 04:27 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-30 04:44 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 04:41 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-30 04:27 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-30 04:43 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-30 04:31 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 04:33 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-30 04:42 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-30 04:34 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 04:19 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 04:42 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-30 04:26 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-30 04:38 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-30 04:43 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-30 04:25 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-30 04:38 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-30 04:42 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-30 04:31 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 04:35 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-30 04:29 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-30 04:37 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:22 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/5894036333.shtml)
-- 2026-06-30 04:21 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/528477421679.shtml)
-- 2026-06-30 04:47 - [亚洲球队全部告别世界杯](http://www.share.minike.top/Article/details/7050918.shtml)
-- 2026-06-30 04:35 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/139020939979.shtml)
-- 2026-06-30 04:27 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/2104883.shtml)
-- 2026-06-30 04:36 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/097381052.shtml)
-- 2026-06-30 04:41 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/2808360.shtml)
-- 2026-06-30 04:30 - [流金岁月](https://www.blog.minike.top/Article/details/38978.shtml)
-- 2026-06-30 04:30 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/05183.shtml)
-- 2026-06-30 04:32 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/75565.shtml)
-- 2026-06-30 04:21 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/801543615326.shtml)
-- 2026-06-30 04:24 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/512675663.shtml)
-- 2026-06-30 04:37 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/09747392.shtml)
-- 2026-06-30 04:31 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/29056323.shtml)
-- 2026-06-30 04:26 - [足球小将的剧本成真了](http://www.blog.minike.top/Article/details/399460366.shtml)
+- 2026-06-30 04:44 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/79076457.shtml)
+- 2026-06-30 04:38 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/60852.shtml)
+- 2026-06-30 04:53 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/140688690.shtml)
+- 2026-06-30 04:44 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/4184752.shtml)
+- 2026-06-30 04:33 - [“十五五”优质本科扩容](https://www.blog.kurohicncr.top/Article/details/83227970.shtml)
+- 2026-06-30 04:35 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/725894.shtml)
+- 2026-06-30 04:51 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/7316751256.shtml)
+- 2026-06-30 04:49 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/546574237.shtml)
+- 2026-06-30 04:35 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/98673.shtml)
+- 2026-06-30 04:25 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/4071927.shtml)
+- 2026-06-30 04:52 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/91032241348.shtml)
+- 2026-06-30 04:47 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/6910388455.shtml)
+- 2026-06-30 04:37 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/619813.shtml)
+- 2026-06-30 04:42 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/91866.shtml)
+- 2026-06-30 04:49 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/008085511.shtml)

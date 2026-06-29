@@ -1,58 +1,58 @@
-# 关于金价，华尔街集体改口！花旗看低至4300美元
+# 屏山君｜《摆脱贫困》中的读书之道
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-记者丨叶麦穗 编辑丨周炎炎 肖嘉 周一（5月25日）亚洲时段（截至北京时间19点45分），金价最高升至4580美元/盎司附近，日内上涨1.45%。 受美伊谈判取得进展、霍尔木兹海峡有望重新开放的报道影响，美元小幅走弱，黄金因此获得买盘支撑。 此前在美联储鹰派政策预期持续压制下，黄金价格已经连跌两周，累计跌幅逼近5%。 宏观面上，凯文·沃什于当日正式出任美联储主席，全球金融市场的
+本周一(4月20日)，全国首个“全民阅读活动周”和第五届全民阅读大会同步开启，八闽大地书香氤氲。 “我爱好挺多，最大的爱好是读书，读书已成为我的一种生活方式。”习近平总书记多次在不同场合谈领导干部读书问题。在宁德工作期间，他就对党员干部应当读什么书、如何读书、读书为了什么等关键问题，进行了深邃思考与系统阐释，留下了弥足珍贵的思想财富。 一段时间以来，各地各部门陆续举办了树立和践
 
 ## 正文
 
-记者丨叶麦穗 编辑丨周炎炎 肖嘉 周一（5月25日）亚洲时段（截至北京时间19点45分），金价最高升至4580美元/盎司附近，日内上涨1.45%。
+本周一(4月20日)，全国首个“全民阅读活动周”和第五届全民阅读大会同步开启，八闽大地书香氤氲。
 
-受美伊谈判取得进展、霍尔木兹海峡有望重新开放的报道影响，美元小幅走弱，黄金因此获得买盘支撑。
+“我爱好挺多，最大的爱好是读书，读书已成为我的一种生活方式。
 
-此前在美联储鹰派政策预期持续压制下，黄金价格已经连跌两周，累计跌幅逼近5%。
+”习近平总书记多次在不同场合谈领导干部读书问题。
 
-宏观面上，凯文·沃什于当日正式出任美联储主席，全球金融市场的政策切换大幕正式拉开，黄金首当其冲。
+在宁德工作期间，他就对党员干部应当读什么书、如何读书、读书为了什么等关键问题，进行了深邃思考与系统阐释，留下了弥足珍贵的思想财富。
 
-金价这一波调整并非在沃什上任后才开始——鹰派基调早已提前在黄金市场掀起波澜：1月29日，提名沃什接替鲍威尔任美联储主席的消息公布前后，金价就从5600美元/盎司附近单日急挫至5100美元/盎司，此后重心持续下移，自1月底的高点以来累计跌幅约19%。
+一段时间以来，各地各部门陆续举办了树立和践行正确政绩观学习教育读书班。
 
-面对“缩表优先、降息在后”的政策组合预期，国际投行已纷纷下调金价预期。
+《摆脱贫困》中关于读书学习的深刻论述，为党员干部治学修身提供了明确方向，对树立和践行正确政绩观具有重要启发。
 
-尽管中东紧张局势持续，但市场对美联储政策可能转向更趋鹰派的预期持续发酵，成为压制金价的主要力量。
+第31个世界读书日到来之际，让我们再次翻开《摆脱贫困》，一起品读这部光辉著作，感悟蕴藏其中的读书之道。
 
-虽然沃什暂时还没有开始大动作，但是华尔街已经集体“倒戈”，密集修改“小作文”，对黄金重新定价。
+学经典原著要 “反复琢磨、深刻领会” 1990年，习近平同志即将离开闽东前往新的工作岗位，临别之际，与宁德地直机关领导干部共勉：“我们一定要反复学习马克思列宁主义的经典原著，反复琢磨、深刻领会。
 
 ## 相关推荐
 
-- 2026-06-30 04:39 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-30 04:29 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-30 04:45 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-30 04:33 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-30 04:26 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-30 04:30 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-30 04:30 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-30 04:31 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-30 04:29 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 04:27 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-30 04:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-30 04:37 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-30 04:35 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-30 04:45 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 04:46 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-30 04:50 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-30 04:47 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-30 04:54 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-30 04:42 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 04:25 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-30 04:29 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-30 04:45 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 04:43 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-30 04:38 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:27 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/03934400423.shtml)
-- 2026-06-30 04:38 - [扬名立万](https://www.share.kurohicncr.top/Article/details/980410.shtml)
-- 2026-06-30 04:44 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/5052362.shtml)
-- 2026-06-30 04:29 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/7516567966.shtml)
-- 2026-06-30 04:24 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/37470781561.shtml)
-- 2026-06-30 04:40 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/8887172915.shtml)
-- 2026-06-30 04:45 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/721786.shtml)
-- 2026-06-30 04:18 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/07562.shtml)
-- 2026-06-30 04:25 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/39335615387.shtml)
-- 2026-06-30 04:43 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/60241.shtml)
-- 2026-06-30 04:25 - [巴西绝杀日本](https://www.blog.minike.top/Article/details/11312.shtml)
-- 2026-06-30 04:41 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/9523732.shtml)
-- 2026-06-30 04:31 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/77712.shtml)
-- 2026-06-30 04:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/390738353.shtml)
-- 2026-06-30 04:27 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/87267248739.shtml)
+- 2026-06-30 04:42 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/108155002962.shtml)
+- 2026-06-30 04:47 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/819718711432.shtml)
+- 2026-06-30 04:32 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/810180.shtml)
+- 2026-06-30 04:38 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/97765995090.shtml)
+- 2026-06-30 04:53 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/1817132.shtml)
+- 2026-06-30 04:29 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/71102752.shtml)
+- 2026-06-30 04:35 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/437434578243.shtml)
+- 2026-06-30 04:36 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/10803894318.shtml)
+- 2026-06-30 04:45 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/0895574.shtml)
+- 2026-06-30 04:40 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/047147991.shtml)
+- 2026-06-30 04:47 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/39937144.shtml)
+- 2026-06-30 04:46 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/30834.shtml)
+- 2026-06-30 04:36 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/11055.shtml)
+- 2026-06-30 04:31 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/88378282.shtml)
+- 2026-06-30 04:43 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/73709061.shtml)

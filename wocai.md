@@ -1,59 +1,60 @@
-# 胜利济阳页岩油国家级示范区累产突破200万吨
+# 银行理财资金入市步伐持续加快，深交所打新报价一个半月激增87%，定增、基石协同发力
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-中新网济南5月25日电 (记者 沙见龙)据中国石化胜利油田5月25日消息，中国首个陆相断陷盆地页岩油国家级示范区——胜利济阳页岩油国家级示范区累计产量突破200万吨，标志着中国中低成熟度页岩油勘探开发取得历史性突破，为推动陆相页岩油规模化发展提供重要示范支撑。 截至目前，示范区累计上报探明储量3.27亿吨，估算资源量达105亿吨，相当于在胜利油田之下再造一个“新胜利”，为中国东
+财联社4月22日讯（记者 郭子硕）理财资金入市再迎亮眼收益兑现，先进制程半导体领域新股盛合晶微上市首日大涨289%，宁银理财凭借 8 只产品入围、获配金额居理财子榜首。 深交所数据显示，短短一个半月内，理财子在深交所打新报价量已激增 87%，打新热情持续升温。2025年3月，银行理财产品正式被纳入IPO网下A类优先配售对象，与公募基金、社保基金享有同等待遇；沪深交易所同步落地配
 
 ## 正文
 
-中新网济南5月25日电 (记者 沙见龙)据中国石化胜利油田5月25日消息，中国首个陆相断陷盆地页岩油国家级示范区——胜利济阳页岩油国家级示范区累计产量突破200万吨，标志着中国中低成熟度页岩油勘探开发取得历史性突破，为推动陆相页岩油规模化发展提供重要示范支撑。
+财联社4月22日讯（记者 郭子硕）理财资金入市再迎亮眼收益兑现，先进制程半导体领域新股盛合晶微上市首日大涨289%，宁银理财凭借 8 只产品入围、获配金额居理财子榜首。
 
-截至目前，示范区累计上报探明储量3.27亿吨，估算资源量达105亿吨，相当于在胜利油田之下再造一个“新胜利”，为中国东部原油战略接替筑牢资源根基。
+深交所数据显示，短短一个半月内，理财子在深交所打新报价量已激增 87%，打新热情持续升温。
 
-据胜利油田副总地质师张世明介绍，页岩油成熟度的高低代表了地层的生油能力，国际公认页岩油成熟度需大于0.9%才富集可动、具备商业开发价值，而胜利济阳页岩油90%的资源量成熟度小于0.9%，属于中低成熟度，并且断层复杂、裂缝多，地层温度普遍高于150℃，勘探开发属于世界级难题，没有先例可借鉴。
+2025年3月，银行理财产品正式被纳入IPO网下A类优先配售对象，与公募基金、社保基金享有同等待遇；沪深交易所同步落地配套细则，明确理财公司可直接参与询价，配售比例不低于其他机构投资者。
 
-早在2006年，胜利油田地质工作者便开始页岩油探索，因为对地质规律认识不清、工程工艺技术不成熟，勘探开发一度陷入低谷，与国外知名石油公司合作探索的结论也是“无商业勘探开发价值”。
+政策红利持续释放下，理财资金入市步伐持续提速，除网下打新外，定增、基石投资等权益布局同步发力。
 
-胜利油田立足自主创新，科研团队累计取出2万米岩心、完成16万块次分析化验，攻关国家级、省部级研究课题40余项，对页岩储集性、含油性、可动性开展系统研究，创立陆相断陷盆地页岩油富集成藏与“储–缝–压”三元储渗等勘探开发理论，为济阳页岩油勘探开发奠定了理论基础。
+背后有哪些驱动因素，又将面临哪些现实挑战？
 
-2022年胜利济阳页岩油国家级示范区正式揭牌，加快勘探开发技术的迭代升级，攻克了陆相断陷盆地构造复杂、演化程度低、页岩油流动性差以及高温、高压、涌漏并存的世界级难题，形成立体开发、优快钻井、高效均衡压裂等六大关键技术系列，实现厚层页岩油从三层楼到五层楼再到七层楼立体开发的跨越，6000米井深钻井周期从133天降至17天，平均单井预测产油突破4.3万吨，核心装备国产化率提升至95%以上。
+深交所报价规模接近翻倍扩容，宁银理财增量领跑 深交所数据显示，截至2026年3月6日，宁银理财、兴银理财、光大理财三家理财公司累计报价100次；短短一个半月后，截至4月22日，合计报价次数骤增至187次。
 
-作为陆相断陷盆地页岩油开发的“先行者”，胜利油田先后发现新兴、新河、新丰3个页岩油田，59口井峰值日产油超过百吨，最高达263吨；示范区年产量从初期的13.1万吨攀升至2025年的70万吨，提前一年完成储量与产量目标任务，形成了陆相断陷盆地页岩油高效勘探开发模式，为中国页岩油革命提供了“胜利样板”。
+分机构来看，宁银理财的增长势头最为迅猛，报价次数由61次攀升至114次，增幅达87%；其申购次数与获配售次数均维持114次，实现申购全获配，累计获配股份数量32.86万股。
 
-“我们将锚定‘十五五’末年产300万吨的目标，深化地质工程一体化，加快推进科产融创，全力推动济阳页岩油规模增储、效益建产，以示范经验带动全国陆相页岩油规模化上产，为推动中国页岩油革命、保障国家能源安全贡献更大力量。
+除宁银理财外，光大理财、兴银理财的报价参与度也同步提升，兴银理财52次报价全部高于发行价，51次有效申购全部获配；光大理财报价21次，18次申购实现全获配。
 
 ## 相关推荐
 
-- 2026-06-30 04:28 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-30 04:39 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-30 04:37 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-30 04:32 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 04:39 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-30 04:47 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-30 04:18 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-30 04:19 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-30 04:24 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-30 04:43 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-30 04:44 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-30 04:39 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-30 04:24 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-30 04:25 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-30 04:51 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 04:36 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-30 04:30 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 04:28 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-30 04:36 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-30 04:34 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-30 04:52 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-30 04:25 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-30 04:52 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-30 04:33 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-30 04:35 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-30 04:40 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-30 04:48 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/17582966.shtml)
-- 2026-06-30 04:25 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/736629.shtml)
-- 2026-06-30 04:44 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/36338.shtml)
-- 2026-06-30 04:44 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/82874.shtml)
-- 2026-06-30 04:36 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/966334.shtml)
-- 2026-06-30 04:42 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/587160597814.shtml)
-- 2026-06-30 04:46 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/17879224.shtml)
-- 2026-06-30 04:18 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/1308615.shtml)
-- 2026-06-30 04:37 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/2245619315.shtml)
-- 2026-06-30 04:18 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/39176561.shtml)
-- 2026-06-30 04:31 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/315531.shtml)
-- 2026-06-30 04:37 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/5798325283.shtml)
-- 2026-06-30 04:24 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/088798766702.shtml)
-- 2026-06-30 04:36 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/80578.shtml)
-- 2026-06-30 04:44 - [刘念回应](http://www.share.minike.top/Article/details/06268378.shtml)
+- 2026-06-30 04:47 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/7777826084.shtml)
+- 2026-06-30 04:38 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.kurohicncr.top/Article/details/07192.shtml)
+- 2026-06-30 04:41 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/228581607.shtml)
+- 2026-06-30 04:52 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/21057956428.shtml)
+- 2026-06-30 04:50 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/86880.shtml)
+- 2026-06-30 04:40 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/4314122592.shtml)
+- 2026-06-30 04:27 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/3314882.shtml)
+- 2026-06-30 04:25 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/30778219.shtml)
+- 2026-06-30 04:34 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/94011195.shtml)
+- 2026-06-30 04:47 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/61118308.shtml)
+- 2026-06-30 04:52 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/75758598507.shtml)
+- 2026-06-30 04:44 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/256812874.shtml)
+- 2026-06-30 04:24 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/513238852.shtml)
+- 2026-06-30 04:37 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/234263956.shtml)
+- 2026-06-30 04:34 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/368045158837.shtml)

@@ -1,58 +1,61 @@
-# 特朗普要求先签“亚伯拉罕协议” 沙特方面回应
+# （经济观察）中国春耕生产“蹄疾步稳” 筑牢全年粮食丰收底盘
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-当地时间25日，据沙特阿拉伯方面消息，就美国总统特朗普呼吁沙特等国在美国与伊朗达成协议前先签署“亚伯拉罕协议”、实现与以色列关系正常化，一名沙特消息人士表示，沙特相关立场没有改变。 这名消息人士表示，沙特在巴勒斯坦问题上的立场没有改变，认为“需要一条不可逆转的巴勒斯坦建国路径”。 沙特方面长期立场指出，沙特多次强调，若巴勒斯坦无法建国，就不会与以色列实现关系正常化。 特朗普当天
+中新社北京4月23日电 (记者 陈溯)当下，中国各地春耕自南向北陆续展开。在23日举行的国新办新闻发布会上，中国农业农村部称，春耕生产进展顺利，各地紧盯粮食安全这一“国之大者”，抢抓农时，筑牢全年粮食丰收底盘。“春播粮食面积占全年粮食面积的一半以上，产量占六成以上，目前春播进度正常，意向面积总体稳定。”农业农村部种植业管理司负责人吕修涛在发布会上说，当前正值谷雨时节，全国春耕春
 
 ## 正文
 
-当地时间25日，据沙特阿拉伯方面消息，就美国总统特朗普呼吁沙特等国在美国与伊朗达成协议前先签署“亚伯拉罕协议”、实现与以色列关系正常化，一名沙特消息人士表示，沙特相关立场没有改变。
+中新社北京4月23日电 (记者 陈溯)当下，中国各地春耕自南向北陆续展开。
 
-这名消息人士表示，沙特在巴勒斯坦问题上的立场没有改变，认为“需要一条不可逆转的巴勒斯坦建国路径”。
+在23日举行的国新办新闻发布会上，中国农业农村部称，春耕生产进展顺利，各地紧盯粮食安全这一“国之大者”，抢抓农时，筑牢全年粮食丰收底盘。
 
-沙特方面长期立场指出，沙特多次强调，若巴勒斯坦无法建国，就不会与以色列实现关系正常化。
+“春播粮食面积占全年粮食面积的一半以上，产量占六成以上，目前春播进度正常，意向面积总体稳定。
 
-特朗普当天在社交媒体发文，呼吁参与斡旋美伊谈判的沙特、卡塔尔、埃及、约旦、土耳其和巴基斯坦“立即”加入“亚伯拉罕协议”，并称沙特和卡塔尔应该带头，否则，上述国家不应参与美伊协议斡旋。
+”农业农村部种植业管理司负责人吕修涛在发布会上说，当前正值谷雨时节，全国春耕春播全面展开，春季农业生产顺利推进。
 
-特朗普还说，如果美伊达成协议，伊朗也应该加入“亚伯拉罕协议”。
+据最新农情调度，春播粮食进度已经过两成、同比持平略快；其中，早稻播栽已经过八成，春玉米播种过一成，春大豆播种陆续展开。
 
-“亚伯拉罕协议”是以色列政府同阿联酋、巴林、苏丹、摩洛哥等阿拉伯国家签署的、意在快速推进以色列与阿拉伯国家关系正常化的协议。
+夏粮是全年粮食生产的第一季，产量占全年粮食产量两成多。
 
-2023年10月新一轮巴以冲突爆发前，美国曾力促沙特与以色列关系正常化。
+春管对筑牢夏粮丰收根基具有关键作用。
 
-冲突爆发后，沙特暂停沙以关系正常化谈判。
+吕修涛表示，去年秋季农业部门全力以赴应对黄淮海连阴雨影响，稳住了冬小麦面积。
 
 ## 相关推荐
 
-- 2026-06-30 04:38 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-30 04:45 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 04:40 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-30 04:37 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-30 04:26 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 04:38 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-30 04:21 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-30 04:22 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-30 04:18 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-30 04:22 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-30 04:18 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-30 04:45 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-30 04:37 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-30 04:26 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-30 04:33 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 04:50 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-30 04:39 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-30 04:28 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-30 04:37 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-30 04:37 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-30 04:51 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-30 04:26 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-30 04:52 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-30 04:25 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-30 04:44 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-30 04:49 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-30 04:38 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:32 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/627648.shtml)
-- 2026-06-30 04:29 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/97169138631.shtml)
-- 2026-06-30 04:35 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/1592289735.shtml)
-- 2026-06-30 04:46 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/0070070435.shtml)
-- 2026-06-30 04:21 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/257082327545.shtml)
-- 2026-06-30 04:24 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/50624099.shtml)
-- 2026-06-30 04:35 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/26838002712.shtml)
-- 2026-06-30 04:47 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/817118.shtml)
-- 2026-06-30 04:33 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/622262809003.shtml)
-- 2026-06-30 04:40 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/51322803235.shtml)
-- 2026-06-30 04:27 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/56385.shtml)
-- 2026-06-30 04:27 - [普京间接喊话特朗普有何考量](http://www.blog.minike.top/Article/details/6680915.shtml)
-- 2026-06-30 04:22 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/79398971284.shtml)
-- 2026-06-30 04:20 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/228807920287.shtml)
-- 2026-06-30 04:34 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/8100952764.shtml)
+- 2026-06-30 04:48 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/694786626.shtml)
+- 2026-06-30 04:25 - [我和我的家乡](https://www.share.minike.top/Article/details/25083159.shtml)
+- 2026-06-30 04:40 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/587093676.shtml)
+- 2026-06-30 04:40 - [张帅时隔四年再取温网正赛胜利](http://www.blog.kurohicncr.top/Article/details/7599620963.shtml)
+- 2026-06-30 04:33 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/010084984526.shtml)
+- 2026-06-30 04:38 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/421944935.shtml)
+- 2026-06-30 04:36 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/997937079424.shtml)
+- 2026-06-30 04:52 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/8933464.shtml)
+- 2026-06-30 04:41 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/52664.shtml)
+- 2026-06-30 04:25 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/76054268634.shtml)
+- 2026-06-30 04:45 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/3372996.shtml)
+- 2026-06-30 04:46 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/9461530.shtml)
+- 2026-06-30 04:52 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/74223743518.shtml)
+- 2026-06-30 04:40 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/3036944370.shtml)
+- 2026-06-30 04:47 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/748277831190.shtml)

@@ -1,52 +1,57 @@
-# 伊朗伊斯兰革命卫队：向进入领空的美国战机和无人机开火
+# 多家车企4月底或停办7年低息“车贷”
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-据伊朗半官方的塔斯尼姆通讯社援引伊朗伊斯兰革命卫队的声明报道，革命卫队向一架进入波斯湾地区伊朗领空的美国F-35战斗机和数架无人机开火。 革命卫队称防空部队击落了一架MQ-9无人机；其他飞机被迫撤离。 警告美国不得违反停火协议。责任编辑：何云
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者|曹媛 编辑|孙超逸 肖嘉 七年期低息“车贷”业务被收紧，多家车企金融政策暂时延至4月底。 2026年开年，车市掀起超长周期低息车贷促销。近期，21世纪经济报道记者独家了解到，这一超长周期贷款业务正在被收紧，多家车企已明确将相关政策延续至2026年4月30日，后续是否续期暂无定论。 “车贷七年期，（部分
 
 ## 正文
 
-据伊朗半官方的塔斯尼姆通讯社援引伊朗伊斯兰革命卫队的声明报道，革命卫队向一架进入波斯湾地区伊朗领空的美国F-35战斗机和数架无人机开火。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-革命卫队称防空部队击落了一架MQ-9无人机；其他飞机被迫撤离。
+记者|曹媛 编辑|孙超逸 肖嘉 七年期低息“车贷”业务被收紧，多家车企金融政策暂时延至4月底。
 
-警告美国不得违反停火协议。
+2026年开年，车市掀起超长周期低息车贷促销。
 
-责任编辑：何云
+近期，21世纪经济报道记者独家了解到，这一超长周期贷款业务正在被收紧，多家车企已明确将相关政策延续至2026年4月30日，后续是否续期暂无定论。
+
+“车贷七年期，（部分）银行停掉了，然后这两天（融资）租赁公司据传也要求停掉了。
+
+”一位股份制银行汽车金融人士向记者透露。
+
+小米汽车的一位销售人员给记者展示了其内部通知：接银行侧政策调整通知，6—7年期产品可能随时停止受理（全行业事件），最多做到4月30日。
+
+另一位专门负责某新势力车企的银行相关负责人告诉记者，“7年低息，我们行之前上架过一段时间，后来停掉了，其他行还在做，现在是有说要停7年低息的产品，具体什么时候停还不知道。
 
 ## 相关推荐
 
-- 2026-06-30 04:36 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-30 04:26 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-30 04:45 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-30 04:22 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-30 04:29 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-30 04:35 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-30 04:38 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-30 04:20 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 04:18 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-30 04:23 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-30 04:34 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-30 04:27 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-30 04:46 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 04:47 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-30 04:38 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-30 04:36 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-30 04:27 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-30 04:46 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-30 04:35 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-30 04:26 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-30 04:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-30 04:29 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-30 04:44 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-30 04:45 - [恋与深空制作组回应近期争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-30 04:32 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:46 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/266687.shtml)
-- 2026-06-30 04:40 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/9508736459.shtml)
-- 2026-06-30 04:33 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/59206227807.shtml)
-- 2026-06-30 04:18 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/2566755.shtml)
-- 2026-06-30 04:23 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/6975106.shtml)
-- 2026-06-30 04:31 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/0223726990.shtml)
-- 2026-06-30 04:26 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/910317409428.shtml)
-- 2026-06-30 04:19 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/27412.shtml)
-- 2026-06-30 04:31 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/729426.shtml)
-- 2026-06-30 04:44 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/505022.shtml)
-- 2026-06-30 04:23 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/2558039.shtml)
-- 2026-06-30 04:40 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/433547365094.shtml)
-- 2026-06-30 04:29 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/786636314800.shtml)
-- 2026-06-30 04:19 - [曝多支争冠球队有意塞克斯顿](https://www.share.kurohicncr.top/Article/details/06510014783.shtml)
-- 2026-06-30 04:22 - [二次元提前预演明日巴西对日本](http://www.blog.minike.top/Article/details/597419415.shtml)
+- 2026-06-30 04:32 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/575311.shtml)
+- 2026-06-30 04:25 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/40689122.shtml)
+- 2026-06-30 04:51 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/405984325649.shtml)
+- 2026-06-30 04:36 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/30502536.shtml)
+- 2026-06-30 04:31 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/47433.shtml)
+- 2026-06-30 04:31 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/91995511.shtml)
+- 2026-06-30 04:24 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/87344182.shtml)
+- 2026-06-30 04:49 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/72880.shtml)
+- 2026-06-30 04:44 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/2522583.shtml)
+- 2026-06-30 04:35 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/472876569.shtml)
+- 2026-06-30 04:54 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/405551577.shtml)
+- 2026-06-30 04:25 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/1312619614.shtml)
+- 2026-06-30 04:50 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/139758.shtml)
+- 2026-06-30 04:45 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/296615628629.shtml)
+- 2026-06-30 04:29 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/58824.shtml)

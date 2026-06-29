@@ -1,56 +1,57 @@
-# 长鑫科技董事长，减持603986
+# 突发！吃喝板块直线拉升，白酒股集体狂欢！华宝基金食品饮料ETF（515710）上探1.66%，机构继续看好
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】又减持啦 中国基金报记者 泰勒 大家好啊，一边是芯片股高歌猛进，一边是大股东的减持。 今晚轮到兆易创新这只近期翻倍的牛股了，而减持的股东来头更不小，是长鑫科技的董事长朱一明！ 5月26日晚间，芯片牛股兆易创新发布公告，收到股东朱一明先生发来的《关于权益变动比例触及1%刻度的告知函》
+吃喝板块突发拉升！反映吃喝板块整体走势的食品饮料ETF华宝（515710）开盘短暂低位震荡后突然拉升，盘中场内价格最高涨幅达到1.66%，截至发稿，涨1.29%。 成份股方面，白酒集体大涨。截至发稿，迎驾贡酒强势涨停，老白干酒飙涨超7%，山西汾酒大涨超5%，金种子酒、古井贡酒、今世缘等亦涨幅居前。 消息面上，4月22日晚间，山西汾酒发布2025年年度报告。报告期内，公司实现营业
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+吃喝板块突发拉升！
 
-来源：中国基金报 【导读】又减持啦 中国基金报记者 泰勒 大家好啊，一边是芯片股高歌猛进，一边是大股东的减持。
+反映吃喝板块整体走势的食品饮料ETF华宝（515710）开盘短暂低位震荡后突然拉升，盘中场内价格最高涨幅达到1.66%，截至发稿，涨1.29%。
 
-今晚轮到兆易创新这只近期翻倍的牛股了，而减持的股东来头更不小，是长鑫科技的董事长朱一明！
+成份股方面，白酒集体大涨。
 
-5月26日晚间，芯片牛股兆易创新发布公告，收到股东朱一明先生发来的《关于权益变动比例触及1%刻度的告知函》，在2026年5月11日至2026年5月25日期间，朱一明通过集中竞价和大宗交易方式累计减持公司股份 6，329，905股，占公司总股本的0.90%。
+截至发稿，迎驾贡酒强势涨停，老白干酒飙涨超7%，山西汾酒大涨超5%，金种子酒、古井贡酒、今世缘等亦涨幅居前。
 
-本次权益变动后，朱一明先生及其一致行动人香港赢富得有限公司的合计持股比例由7.90%减少至7.00%。
+消息面上，4月22日晚间，山西汾酒发布2025年年度报告。
 
-另外，公司还对近期股价暴涨做了进一步澄清。
+报告期内，公司实现营业收入387.18亿元，同比增长7.52%；归属于上市公司股东的净利润为122.46亿元，同比增长0.03%。
 
-兆易创新称，近期关注到部分网络媒体报道，称公司股票为“长鑫科技首次公开发行股票并上市的相关概念股。
+公司拟向全体股东每10股派发现金红利65.60元（含税）。
 
-公司现将相关情况说明如下：截至本报告披露日，公司持有长鑫科技股份仅占其当前总股本的1.80%，持股比例较小，公司无法对其生产经营决策施加重大影响。
+有分析指出，汾酒营收稳增且净利实现正增长，在行业深度调整期尽显龙头的经营韧性，有效巩固了其中长期估值中枢。
 
 ## 相关推荐
 
-- 2026-06-30 04:28 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-30 04:20 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-30 04:19 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-30 04:41 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-30 04:33 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-30 04:18 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 04:25 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-30 04:33 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-30 04:33 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 04:26 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-30 04:28 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-30 04:26 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-30 04:31 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 04:38 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-30 04:26 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 04:26 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-30 04:40 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-30 04:32 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-30 04:54 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-30 04:39 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-30 04:50 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:47 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/81891.shtml)
-- 2026-06-30 04:31 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/07382.shtml)
-- 2026-06-30 04:41 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/007627889009.shtml)
-- 2026-06-30 04:22 - [一见倾心](https://www.blog.minike.top/Article/details/5968986.shtml)
-- 2026-06-30 04:27 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/358235110.shtml)
-- 2026-06-30 04:22 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.minike.top/Article/details/18635852243.shtml)
-- 2026-06-30 04:45 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/2538464729.shtml)
-- 2026-06-30 04:18 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/99294442165.shtml)
-- 2026-06-30 04:47 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/6248562.shtml)
-- 2026-06-30 04:42 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/880016492341.shtml)
-- 2026-06-30 04:28 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/0427921688.shtml)
-- 2026-06-30 04:21 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/84489.shtml)
-- 2026-06-30 04:47 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/02772.shtml)
-- 2026-06-30 04:33 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/53191787051.shtml)
-- 2026-06-30 04:30 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/7956211.shtml)
+- 2026-06-30 04:25 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/411779.shtml)
+- 2026-06-30 04:33 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/191132126.shtml)
+- 2026-06-30 04:31 - [张帅时隔四年再取温网正赛胜利](https://www.blog.kurohicncr.top/Article/details/762552045.shtml)
+- 2026-06-30 04:26 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/76739537.shtml)
+- 2026-06-30 04:24 - [时光音乐会](https://www.blog.minike.top/Article/details/6146657748.shtml)
+- 2026-06-30 04:46 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/56710.shtml)
+- 2026-06-30 04:38 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/47921.shtml)
+- 2026-06-30 04:46 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/0115967.shtml)
+- 2026-06-30 04:38 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/2708973723.shtml)
+- 2026-06-30 04:40 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/0998487091.shtml)
+- 2026-06-30 04:35 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/20374200.shtml)
+- 2026-06-30 04:35 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/511013831949.shtml)
+- 2026-06-30 04:33 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/348287555.shtml)
+- 2026-06-30 04:32 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/144203.shtml)
+- 2026-06-30 04:37 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/147482796852.shtml)

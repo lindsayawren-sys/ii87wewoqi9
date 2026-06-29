@@ -1,58 +1,56 @@
-# 中国首富，砸5亿再次跨界
+# 受内存成本上涨冲击 佳能下调盈利指引 股价大跌
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-记者丨费心懿 编辑丨曹恩惠 骆一帆 当全固态电池被业界视为下一代电池的重要方向之时，中国首富钟睒睒悄然入局。 2026年5月，农夫山泉创始人钟睒睒通过其控制的养生堂有限公司出资设立的私募基金，领投了一家成立仅一年有余的固态电解质企业——浙江智邦锂电新材料有限公司（下称智邦锂电）。 这笔通过基金间接落地的投资，将这位“大自然的搬运工”推向了新能源材料产业的最上游，也折射出固态电池
+佳能因存储芯片价格上涨带来的冲击下调盈利预期，其东京市场股价跌幅最高达7.6%。这家总部位于东京的企业在周四发布财报时，将全年营业利润预期从4790亿日元下调至4560亿日元（折合28.5亿美元），不及市场预期。同时公司一季度营业利润为714亿日元，同样低于市场预估。此次悲观的业绩预期凸显出，存储芯片价格暴涨正在消费电子行业引发连锁冲击——人工智能需求激增使得芯片产能大量流向A
 
 ## 正文
 
-记者丨费心懿 编辑丨曹恩惠 骆一帆 当全固态电池被业界视为下一代电池的重要方向之时，中国首富钟睒睒悄然入局。
+佳能因存储芯片价格上涨带来的冲击下调盈利预期，其东京市场股价跌幅最高达7.6%。
 
-2026年5月，农夫山泉创始人钟睒睒通过其控制的养生堂有限公司出资设立的私募基金，领投了一家成立仅一年有余的固态电解质企业——浙江智邦锂电新材料有限公司（下称智邦锂电）。
+这家总部位于东京的企业在周四发布财报时，将全年营业利润预期从4790亿日元下调至4560亿日元（折合28.5亿美元），不及市场预期。
 
-这笔通过基金间接落地的投资，将这位“大自然的搬运工”推向了新能源材料产业的最上游，也折射出固态电池赛道对圈外资本的强大吸引力。
+同时公司一季度营业利润为714亿日元，同样低于市场预估。
 
-二级市场上，据Wind显示，截至2026年5月26日，固态电池板块年内累计涨幅超24%，多只龙头股年内股价大涨，大族激光、德福科技年内涨超200%。
+此次悲观的业绩预期凸显出，存储芯片价格暴涨正在消费电子行业引发连锁冲击——人工智能需求激增使得芯片产能大量流向AI领域，挤压了其他厂商的芯片供应。
 
-首富的跨界投资密码 据公开信息，2026年5月8日，智邦锂电完成A轮融资，领投方昆山格物致知一期创业投资基金持股约10%。
+佳能表示，尽管本年度所需供应链基本落实，但受存储芯片产能紧张影响，2026财年公司盈利将因此减少约500亿日元。
 
-穿透股权后，该基金核心出资方为养生堂有限公司，认缴约5亿元，占比约81%，而养生堂的实际控制人正是钟睒睒。
-
-这意味着，钟睒睒通过基金间接持有智邦锂电，正式切入固态电池材料赛道。
-
-此外，在本轮融资中，衢州地方国资背景的衢州智纳、险峰长青等也联合参投。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 04:45 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-30 04:34 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-30 04:47 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-30 04:29 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-30 04:30 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 04:26 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-30 04:41 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-30 04:40 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-30 04:45 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-30 04:25 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-30 04:21 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-30 04:26 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-30 04:42 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-30 04:39 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-30 04:28 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-30 04:44 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-30 04:33 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-30 04:44 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-30 04:46 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-30 04:51 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-30 04:27 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-30 04:30 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-30 04:30 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-30 04:45 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 04:39 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-30 04:41 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:30 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/9211979.shtml)
-- 2026-06-30 04:18 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.minike.top/Article/details/50008.shtml)
-- 2026-06-30 04:18 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/95169787.shtml)
-- 2026-06-30 04:38 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/44293.shtml)
-- 2026-06-30 04:44 - [亚洲球队全部告别世界杯](http://www.blog.kurohicncr.top/Article/details/89204020247.shtml)
-- 2026-06-30 04:19 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/796530042679.shtml)
-- 2026-06-30 04:43 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/52903901617.shtml)
-- 2026-06-30 04:38 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/693870963.shtml)
-- 2026-06-30 04:25 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/3161381047.shtml)
-- 2026-06-30 04:39 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/1830661.shtml)
-- 2026-06-30 04:33 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/16357.shtml)
-- 2026-06-30 04:22 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/07674179764.shtml)
-- 2026-06-30 04:27 - [月亮](https://www.blog.minike.top/Article/details/968695987670.shtml)
-- 2026-06-30 04:40 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/044265.shtml)
-- 2026-06-30 04:18 - [扬名立万](http://www.share.kurohicncr.top/Article/details/1622911572.shtml)
+- 2026-06-30 04:25 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/386571972359.shtml)
+- 2026-06-30 04:40 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/04573090.shtml)
+- 2026-06-30 04:30 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/493819.shtml)
+- 2026-06-30 04:38 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.minike.top/Article/details/33002657.shtml)
+- 2026-06-30 04:48 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/128517731349.shtml)
+- 2026-06-30 04:36 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/064599718.shtml)
+- 2026-06-30 04:37 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/938114742343.shtml)
+- 2026-06-30 04:43 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/645662.shtml)
+- 2026-06-30 04:46 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/5184878266.shtml)
+- 2026-06-30 04:35 - [极限挑战第一季](https://www.share.minike.top/Article/details/61207403459.shtml)
+- 2026-06-30 04:34 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/4617374978.shtml)
+- 2026-06-30 04:45 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/99699465515.shtml)
+- 2026-06-30 04:38 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/004342.shtml)
+- 2026-06-30 04:37 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/5508319276.shtml)
+- 2026-06-30 04:34 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/518682.shtml)

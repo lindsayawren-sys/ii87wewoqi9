@@ -1,55 +1,56 @@
-# 伊朗将在达成和平协议30天后开放霍尔木兹海峡
+# 欧莱雅财报“亮眼”，股价暴涨9%，或创18年最大单日涨幅
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-一位中东外交消息人士称，美国和伊朗正在讨论一项计划，即在两国达成结束敌对状态的协议约30天后，开放霍尔木兹海峡。 在达成协议后的30天窗口期内，伊朗将推进清除该海峡水雷的工作。之后，各国船只将能够自由且安全地通行，而伊朗也将停止收取过境费。 4月初达成的停火协议将延长60天，计划在这两个月的缓冲期内就伊朗核问题展开磋商。责任编辑：李桐
+专题：聚焦美股2026年第一季度财报 核心要点 全球最大美妆公司欧莱雅周三盘后公布的季度增长数据远超预期，在美妆市场未见放缓迹象的背景下，其股价一度暴涨 10%。 财报核心数据 业绩亮点与管理层点评 “我们不仅跑赢了依然充满活力的美妆市场，更在全球范围内加速抢占市场份额。” 欧莱雅 CEO 叶鸿慕（Nicolas Hieronimus）表示。 “我们在电商领域的领导地位，让我们
 
 ## 正文
 
-一位中东外交消息人士称，美国和伊朗正在讨论一项计划，即在两国达成结束敌对状态的协议约30天后，开放霍尔木兹海峡。
+专题：聚焦美股2026年第一季度财报 核心要点 全球最大美妆公司欧莱雅周三盘后公布的季度增长数据远超预期，在美妆市场未见放缓迹象的背景下，其股价一度暴涨 10%。
 
-在达成协议后的30天窗口期内，伊朗将推进清除该海峡水雷的工作。
+财报核心数据 业绩亮点与管理层点评 “我们不仅跑赢了依然充满活力的美妆市场，更在全球范围内加速抢占市场份额。
 
-之后，各国船只将能够自由且安全地通行，而伊朗也将停止收取过境费。
+” 欧莱雅 CEO 叶鸿慕（Nicolas Hieronimus）表示。
 
-4月初达成的停火协议将延长60天，计划在这两个月的缓冲期内就伊朗核问题展开磋商。
+“我们在电商领域的领导地位，让我们能在这一制胜渠道加倍投入，在所有地区（尤其是新兴市场）取得了惊人业绩。
 
-责任编辑：李桐
+” 他补充道，“2025 年下半年开始的美国与中国两大市场的复苏持续推进，我们在两国的表现均超越了市场水平。
+
+” 市场与分析师评价 巴克莱分析师评价：“其核心增长非常亮眼。
+
+全球美妆市场 4% 的增速毫无放缓迹象。
+
+即使在市场波动时期，欧莱雅的‘美丽刺激计划’仍助力其实现更强劲的份额增长。
 
 ## 相关推荐
 
-- 2026-06-30 04:31 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 04:36 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-30 04:27 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-30 04:44 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-30 04:30 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-30 04:31 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-30 04:29 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-30 04:34 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 04:39 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-30 04:44 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-30 04:31 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 04:31 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-30 04:29 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-30 04:31 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-30 04:36 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-30 04:31 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-30 04:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-30 04:29 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-30 04:28 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-30 04:50 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-30 04:49 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-30 04:53 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 04:53 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-30 04:27 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 04:42 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:28 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/78684.shtml)
-- 2026-06-30 04:47 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/013156.shtml)
-- 2026-06-30 04:43 - [斛珠夫人](http://www.blog.minike.top/Article/details/80531362.shtml)
-- 2026-06-30 04:24 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/212199.shtml)
-- 2026-06-30 04:40 - [内马尔中场休息积极鼓励队友](https://www.blog.minike.top/Article/details/17204.shtml)
-- 2026-06-30 04:21 - [沙丘](http://www.blog.kurohicncr.top/Article/details/50910031180.shtml)
-- 2026-06-30 04:21 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/615924470.shtml)
-- 2026-06-30 04:37 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/864022911380.shtml)
-- 2026-06-30 04:29 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/075651358.shtml)
-- 2026-06-30 04:20 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/1996832847.shtml)
-- 2026-06-30 04:47 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/083359473191.shtml)
-- 2026-06-30 04:44 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/9426384956.shtml)
-- 2026-06-30 04:31 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/440403844872.shtml)
-- 2026-06-30 04:18 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/80835219210.shtml)
-- 2026-06-30 04:42 - [扬名立万](http://www.blog.minike.top/Article/details/5775522825.shtml)
+- 2026-06-30 04:47 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/1999620.shtml)
+- 2026-06-30 04:28 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/26050.shtml)
+- 2026-06-30 04:39 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/98368.shtml)
+- 2026-06-30 04:41 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/44002.shtml)
+- 2026-06-30 04:40 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/7920980513.shtml)
+- 2026-06-30 04:32 - [巴西醒醒 这是淘汰赛](https://www.share.minike.top/Article/details/58476333408.shtml)
+- 2026-06-30 04:33 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/4092550106.shtml)
+- 2026-06-30 04:27 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/6388897348.shtml)
+- 2026-06-30 04:26 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/28602812503.shtml)
+- 2026-06-30 04:43 - [二次元提前预演明日巴西对日本](http://www.share.minike.top/Article/details/33377719512.shtml)
+- 2026-06-30 04:53 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/325001.shtml)
+- 2026-06-30 04:40 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/3490922.shtml)
+- 2026-06-30 04:45 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/557001275.shtml)
+- 2026-06-30 04:48 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/716968273629.shtml)
+- 2026-06-30 04:40 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/947202045619.shtml)

@@ -1,56 +1,58 @@
-# 油价暴跌与“供应危机”警告同时出现：市场错了吗？
+# 现场炒料、围锅涮菜 “来重庆的第一顿火锅”开席
 
-> 更新时间：2026-06-30 04:48:02 UTC+8
+> 更新时间：2026-06-30 04:54:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——资深市场策略师杰夫·柯里周一（5月25日）表示，亚洲石油市场正接近最低运营水平，欧洲可能紧随其后，美国可能在7月面临短缺，这突显了伊朗战争引发的全球能源冲击。 凯雷集团能源路径首席战略官兼Abaxx Markets联合主席柯里指出，全球库存的整体数据可能具有误导性，因为全球储存的石油中有很大一部分无法立即使用。其中大部分石油需要用于维持管道和储存系统的安全运
+发布时间：2026年04月25日 14:51 来源：中国新闻网 4月24日下午，重庆两江新区天宫殿街道首届火锅美食消费节启幕。依托重庆北站枢纽区位优势，活动以“来重庆的第一顿火锅”为主题，面向海内外游客集中展示重庆火锅文化。 现场，热辣翻滚的红油锅底吸引不少民众拿起筷子，围站锅旁，涮起毛肚、鸭肠等各式食材，热气与欢笑声一同升腾。不远处，一口大锅前，商家正在手工炒制火锅底料，铁铲
 
 ## 正文
 
-汇通财经APP讯——资深市场策略师杰夫·柯里周一（5月25日）表示，亚洲石油市场正接近最低运营水平，欧洲可能紧随其后，美国可能在7月面临短缺，这突显了伊朗战争引发的全球能源冲击。
+发布时间：2026年04月25日 14:51 来源：中国新闻网 4月24日下午，重庆两江新区天宫殿街道首届火锅美食消费节启幕。
 
-凯雷集团能源路径首席战略官兼Abaxx Markets联合主席柯里指出，全球库存的整体数据可能具有误导性，因为全球储存的石油中有很大一部分无法立即使用。
+依托重庆北站枢纽区位优势，活动以“来重庆的第一顿火锅”为主题，面向海内外游客集中展示重庆火锅文化。
 
-其中大部分石油需要用于维持管道和储存系统的安全运行，只有较小的一部分可供市场使用。
+现场，热辣翻滚的红油锅底吸引不少民众拿起筷子，围站锅旁，涮起毛肚、鸭肠等各式食材，热气与欢笑声一同升腾。
 
-柯里表述，亚洲已接近这些所谓的“最低运营水平”。
+不远处，一口大锅前，商家正在手工炒制火锅底料，铁铲翻飞间，牛油香与辣椒辛香热烈交织，吸引民众纷纷围观。
 
-成品油市场：新加坡问题从航空燃油转向柴油 自今年早些时候伊朗战争爆发、霍尔木兹海峡航运中断导致中东能源出口急剧减少以来，全球石油市场一直承压。
+据悉，作为众多游客来渝的“第一站”，该片区火锅业态高度集聚，汇集特色火锅街区与人气门店，是重庆对外展示本土饮食文化的重要窗口。
 
-“我们已经看到成品油价格暴涨。
+此次为期三天的消费节，以美食为纽带，融合川剧变脸等民俗表演，向八方宾客展现重庆独特的烟火气、人情味与城市活力。
 
-航空燃油价格有所下降，但柴油价格已涨至航空燃油之上。
-
-因此，新加坡的问题仍在继续，只是从航空燃油转移到了柴油，”柯里表示。
+(景诗雁) 责任编辑：【叶攀】
 
 ## 相关推荐
 
-- 2026-06-30 04:35 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 04:46 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-30 04:25 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-30 04:19 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-30 04:43 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-30 04:24 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-30 04:32 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 04:37 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-30 04:43 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-30 04:35 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-30 04:27 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 04:49 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 04:34 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-30 04:52 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-30 04:49 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 04:45 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-30 04:39 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-30 04:52 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-30 04:29 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-30 04:39 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 04:49 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-30 04:41 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-30 04:46 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-30 04:28 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:34 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/88138.shtml)
-- 2026-06-30 04:47 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/83400.shtml)
-- 2026-06-30 04:36 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/789229.shtml)
-- 2026-06-30 04:20 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/5639452251.shtml)
-- 2026-06-30 04:40 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/67260263.shtml)
-- 2026-06-30 04:33 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/45389.shtml)
-- 2026-06-30 04:45 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/19519891385.shtml)
-- 2026-06-30 04:34 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/8605570.shtml)
-- 2026-06-30 04:28 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/487422312.shtml)
-- 2026-06-30 04:40 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/8959451465.shtml)
-- 2026-06-30 04:33 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/64509406.shtml)
-- 2026-06-30 04:21 - [沙丘](http://www.blog.minike.top/Article/details/439244.shtml)
-- 2026-06-30 04:37 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/323550906.shtml)
-- 2026-06-30 04:18 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/328495963785.shtml)
-- 2026-06-30 04:33 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/22430053757.shtml)
+- 2026-06-30 04:52 - [恋与深空制作组回应近期争议](http://www.blog.minike.top/Article/details/00978869812.shtml)
+- 2026-06-30 04:28 - [巴西绝杀](https://www.blog.minike.top/Article/details/13651.shtml)
+- 2026-06-30 04:34 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/260672661987.shtml)
+- 2026-06-30 04:49 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/1524287.shtml)
+- 2026-06-30 04:33 - [猛龙快船交易或将达成](https://www.blog.minike.top/Article/details/67999.shtml)
+- 2026-06-30 04:40 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/8596965795.shtml)
+- 2026-06-30 04:40 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/91036428007.shtml)
+- 2026-06-30 04:49 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/0900084.shtml)
+- 2026-06-30 04:48 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/50605497786.shtml)
+- 2026-06-30 04:30 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/196569631763.shtml)
+- 2026-06-30 04:44 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/4857646.shtml)
+- 2026-06-30 04:40 - [起风了](http://www.blog.kurohicncr.top/Article/details/06254006983.shtml)
+- 2026-06-30 04:28 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/32593177.shtml)
+- 2026-06-30 04:49 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/274779803.shtml)
+- 2026-06-30 04:37 - [荷兰vs摩洛哥前瞻](http://www.blog.minike.top/Article/details/4821620627.shtml)
