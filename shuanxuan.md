@@ -1,61 +1,59 @@
-# 360发布AI安全报告：漏洞挖掘从模型能力涌现走向智能体工程实战
+# 摩根大通预计到2030年 AI基础设施建设总花费将达5.5万亿美元
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-新浪科技讯 6月23日下午消息，360 AI安全研究院发布《AI漏洞挖掘进入真实系统竞争阶段：从“大模型能力涌现”到“智能体工程实战”》研究报告。报告认为，AI驱动的漏洞挖掘正在从模型能力展示，进入真实系统、真实生态、真实攻击链中的工程化验证阶段。未来AI安全竞争的关键，不只是模型能否发现候选漏洞，而是能否在真实系统中完成发现、解释、验证、修复和阻断。 报告指出，人工智能正在重
+摩根大通上调对大型科技公司建设人工智能（AI）基础设施所需的花费和借款预估。 该行策略师在周二的一份研报中指出，他们预计到2030年，AI超大规模数据中心运营商将为此投入约5.5万亿美元，较11月时的预测增加4000亿美元。他们写道，其中约4.1万亿美元将来自债务融资，反映出市场预期这些公司将利用借入的资金来覆盖更大比例的支出。 围绕AI基础设施的投资竞赛已极大地推动企业债发行
 
 ## 正文
 
-新浪科技讯 6月23日下午消息，360 AI安全研究院发布《AI漏洞挖掘进入真实系统竞争阶段：从“大模型能力涌现”到“智能体工程实战”》研究报告。
+摩根大通上调对大型科技公司建设人工智能（AI）基础设施所需的花费和借款预估。
 
-报告认为，AI驱动的漏洞挖掘正在从模型能力展示，进入真实系统、真实生态、真实攻击链中的工程化验证阶段。
+该行策略师在周二的一份研报中指出，他们预计到2030年，AI超大规模数据中心运营商将为此投入约5.5万亿美元，较11月时的预测增加4000亿美元。
 
-未来AI安全竞争的关键，不只是模型能否发现候选漏洞，而是能否在真实系统中完成发现、解释、验证、修复和阻断。
+他们写道，其中约4.1万亿美元将来自债务融资，反映出市场预期这些公司将利用借入的资金来覆盖更大比例的支出。
 
-报告指出，人工智能正在重写网络安全规则。
+围绕AI基础设施的投资竞赛已极大地推动企业债发行。
 
-过去，网络安全攻防的核心资源是漏洞。
+包括Tarek Hamid在内的摩根大通策略师指出，自该行11月做出预测以来，与AI和数据中心有关的债券发行规模已超过3000亿美元。
 
-谁能更快发现、验证和修复漏洞，谁就能在攻防对抗中掌握主动权。
+他们表示，数据中心的债券发行是今年初债券发行量接近历史最高水平的最大推手。
 
-随着大模型和智能体能力快速发展，漏洞挖掘正在从依赖专家经验和人工分析，进入AI自动化、智能体协同和真实系统验证的新阶段。
+芯片制造巨头英伟达周一也加入了科技巨头大规模发债的浪潮，发行了250亿美元的高评级债券。
 
-AI安全已经过了“秀能力”阶段，真正的检验标准正在回到真实系统。
+此次发行吸引了高达850亿美元的认购，投资者希望借此参与AI热潮。
 
 ## 相关推荐
 
-- 2026-06-30 03:59 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-30 03:42 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-30 03:51 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-30 03:34 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-30 03:50 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-30 03:54 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 03:51 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-30 03:50 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-30 03:35 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-30 03:52 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-30 03:36 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-30 03:58 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 03:36 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-30 03:30 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-30 03:37 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-30 03:55 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-30 03:45 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-30 03:59 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-30 03:51 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-30 04:05 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 03:54 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-30 03:37 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-30 04:05 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 03:46 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-30 03:52 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-30 03:38 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-30 03:55 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-30 03:41 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:59 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/85564595.shtml)
-- 2026-06-30 03:39 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/6460247063.shtml)
-- 2026-06-30 03:53 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/4820815.shtml)
-- 2026-06-30 03:50 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/45068722714.shtml)
-- 2026-06-30 03:34 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/441671207.shtml)
-- 2026-06-30 03:57 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/8481370380.shtml)
-- 2026-06-30 03:53 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/3235512.shtml)
-- 2026-06-30 03:34 - [金刚川](https://www.blog.minike.top/Article/details/85820168.shtml)
-- 2026-06-30 03:57 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/8962457.shtml)
-- 2026-06-30 03:34 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/2634172879.shtml)
-- 2026-06-30 03:50 - [日本进球](https://www.blog.minike.top/Article/details/2760779.shtml)
-- 2026-06-30 03:51 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/59364956.shtml)
-- 2026-06-30 03:33 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/305571890037.shtml)
-- 2026-06-30 03:42 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/870199517855.shtml)
-- 2026-06-30 03:38 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/420174236.shtml)
+- 2026-06-30 03:59 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/60283112.shtml)
+- 2026-06-30 03:56 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/54353447.shtml)
+- 2026-06-30 03:42 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/121481.shtml)
+- 2026-06-30 03:54 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/533317.shtml)
+- 2026-06-30 03:36 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/627729237051.shtml)
+- 2026-06-30 04:02 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/9558238053.shtml)
+- 2026-06-30 03:37 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/656136.shtml)
+- 2026-06-30 03:56 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/027032.shtml)
+- 2026-06-30 03:43 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/990859898.shtml)
+- 2026-06-30 03:46 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/027054707.shtml)
+- 2026-06-30 03:37 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/026686719.shtml)
+- 2026-06-30 03:46 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/45234.shtml)
+- 2026-06-30 03:43 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/94312.shtml)
+- 2026-06-30 03:55 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/5112249.shtml)
+- 2026-06-30 04:04 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/434174579.shtml)

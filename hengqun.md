@@ -1,57 +1,56 @@
-# 美加息预期与日方干预风险相互制衡，美元兑日元高位震荡
+# 银行开始下架2年期定存！存款利率继续下滑
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——周三亚洲早盘时段，美元兑日元汇率整体维持横盘震荡走势，行情波动幅度相对有限，盘面价格稳定在161.55一线。 当前该货币对陷入典型的多空博弈格局，美联储加息预期持续升温为美元提供强势支撑，利好汇率上行；但日元持续贬值引发日本官方干预预期升温，极大限制了美元兑日元的上行空间，两大核心因素相互制衡，主导短期汇市走势。 美联储释放鹰派信号，市场加息预期大幅升温 美
+不仅3年期、5年期定期存款在渐行渐远，连2年期定存也开始被银行下架。记者发现，重庆富民银行近日发布关于2年期及以上整存整取及续存系列产品暂停受理新增存入的公告。这意味着，重庆富民银行线上渠道的中长期存款全部阶段性停售。融360数字科技研究院高级分析师艾亚文在接受采访时分析，银行下架中长期定期存款，主要因优质信贷资产增长乏力，叠加高息揽存模式难以为继，机构主动压降高成本、长期限负
 
 ## 正文
 
-汇通财经APP讯——周三亚洲早盘时段，美元兑日元汇率整体维持横盘震荡走势，行情波动幅度相对有限，盘面价格稳定在161.55一线。
+不仅3年期、5年期定期存款在渐行渐远，连2年期定存也开始被银行下架。
 
-当前该货币对陷入典型的多空博弈格局，美联储加息预期持续升温为美元提供强势支撑，利好汇率上行；但日元持续贬值引发日本官方干预预期升温，极大限制了美元兑日元的上行空间，两大核心因素相互制衡，主导短期汇市走势。
+记者发现，重庆富民银行近日发布关于2年期及以上整存整取及续存系列产品暂停受理新增存入的公告。
 
-美联储释放鹰派信号，市场加息预期大幅升温 美联储在6月最新货币政策会议中，宣布维持3.50%至3.75%的基准利率区间保持不变。
+这意味着，重庆富民银行线上渠道的中长期存款全部阶段性停售。
 
-美联储主席凯文·沃什（Kevin Warsh）首次主持会后新闻发布会，他在发布会上表示，物价稳定将是美联储后续货币政策制定与调整的核心指导原则。
+融360数字科技研究院高级分析师艾亚文在接受采访时分析，银行下架中长期定期存款，主要因优质信贷资产增长乏力，叠加高息揽存模式难以为继，机构主动压降高成本、长期限负债。
 
-本次会议整体基调偏鹰派，被市场解读为偏紧缩的政策导向，为美元汇率提供了有力支撑。
+第一财经“下架潮”蔓延至2年期存款就在6月初，多家银行下架3年期、5年期定期存款的话题冲上了微博热搜。
 
-伴随政策信号落地，市场对美联储年内加息的定价情绪快速升温。
+其中，北京中关村银行暂时下架个人、单位整存整取3年期存款产品。
 
-据芝加哥商品交易所美联储观察工具数据显示，当前市场预判美联储7月议息会议加息25个基点及以上的概率升至37.4%，较一周前8.5%的概率实现大幅攀升；9月加息概率更是飙升至70.2%，远超前期29.1%的水平，货币政策预期的转变成为支撑美元走强的核心动力。
+该行在售整存整取产品的期限包括3个月、6个月、1年和2年，其中，2年期存款利率为1.8%。
 
-日元贬值触发干预预警，日方政策威慑压制汇价涨幅 在美元强势走强的背景下，日元持续走弱，汇率持续偏离合理区间，引发日本政府高度重视，市场汇市干预风险快速升温。
+湖南三湘银行也于5月初下架了5年期定存产品，存量到期不再自动滚存，并将3年期利率从2.05%下调至1.95%。
 
 ## 相关推荐
 
-- 2026-06-30 03:45 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-30 03:59 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-30 03:48 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-30 03:32 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-30 03:43 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-30 03:31 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-30 03:44 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-30 03:36 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
-- 2026-06-30 03:38 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-30 03:43 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-30 03:34 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 03:47 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-30 03:55 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 03:40 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-30 03:38 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-30 03:50 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-30 03:50 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-30 03:37 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-30 03:36 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 03:44 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-30 03:46 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:54 - [千与千寻](https://www.share.minike.top/Article/details/333701.shtml)
-- 2026-06-30 03:31 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/742470316.shtml)
-- 2026-06-30 03:39 - [千香](https://www.blog.minike.top/Article/details/018735500583.shtml)
-- 2026-06-30 03:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/82243863345.shtml)
-- 2026-06-30 03:53 - [德约科维奇向温网对手放狠话](http://www.share.minike.top/Article/details/3653172652.shtml)
-- 2026-06-30 03:49 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/8670753755.shtml)
-- 2026-06-30 03:59 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/036558979.shtml)
-- 2026-06-30 03:51 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/63084967.shtml)
-- 2026-06-30 03:30 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/635817.shtml)
-- 2026-06-30 03:34 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/82109.shtml)
-- 2026-06-30 03:43 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/7151630486.shtml)
-- 2026-06-30 03:34 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/07504164757.shtml)
-- 2026-06-30 03:30 - [急先锋](http://www.blog.minike.top/Article/details/969787432569.shtml)
-- 2026-06-30 03:36 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/88771773121.shtml)
-- 2026-06-30 03:54 - [沙丘](https://www.blog.minike.top/Article/details/24317176534.shtml)
+- 2026-06-30 03:43 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/2878765264.shtml)
+- 2026-06-30 03:59 - [金刚川](https://www.share.minike.top/Article/details/2622574415.shtml)
+- 2026-06-30 03:40 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/3366889.shtml)
+- 2026-06-30 03:36 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/69569796853.shtml)
+- 2026-06-30 03:49 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/41397697.shtml)
+- 2026-06-30 03:57 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/5553220.shtml)
+- 2026-06-30 03:59 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/2334912.shtml)
+- 2026-06-30 03:42 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/2034927393.shtml)
+- 2026-06-30 03:58 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/207437.shtml)
+- 2026-06-30 03:57 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/42638312594.shtml)
+- 2026-06-30 03:47 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/96334001230.shtml)
+- 2026-06-30 03:50 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/05272927205.shtml)
+- 2026-06-30 03:57 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/04815265.shtml)
+- 2026-06-30 03:57 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/870600.shtml)
+- 2026-06-30 03:50 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/13358905.shtml)

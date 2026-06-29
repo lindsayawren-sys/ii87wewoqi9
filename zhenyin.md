@@ -1,57 +1,56 @@
-# “九色甘南”首创跨省篮球IP：28场对决燃动雪域
+# 工行、中行、中信等在列 六家银行获批试点离岸人民币外汇交易
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-中新网兰州6月23日电 (刘娜)2026年(第一届)“九色甘南杯”雪域羚城篮球邀请赛23日在甘肃省甘南藏族自治州合作市正式开赛。来自湖北、四川、青海、甘肃四省10支代表队齐聚雪域羚城，以篮球为媒，搭建跨区域体育竞技与民族交融的新平台。 据了解，本次赛事是甘南州自主孵化的首个跨省原创篮球IP，立足铸牢中华民族共同体意识主线，把篮球运动作为各族民众交往交流交融的重要载体。参赛队伍涵
+21世纪经济报道记者张欣 6月17日，中国人民银行行长潘功胜在2026陆家嘴论坛上宣布，将在上海自贸试验区开展离岸人民币外汇交易试点，授权工商银行、农业银行、中国银行、建设银行、交通银行及中信银行等6家银行，利用中国外汇交易中心平台开展离岸人民币外汇交易。 本次试点直击在岸、离岸人民币市场长期分割痛点，推动两地市场互联互通与定价权回流，为人民币国际化和上海国际金融中心建设注入新
 
 ## 正文
 
-中新网兰州6月23日电 (刘娜)2026年(第一届)“九色甘南杯”雪域羚城篮球邀请赛23日在甘肃省甘南藏族自治州合作市正式开赛。
+21世纪经济报道记者张欣 6月17日，中国人民银行行长潘功胜在2026陆家嘴论坛上宣布，将在上海自贸试验区开展离岸人民币外汇交易试点，授权工商银行、农业银行、中国银行、建设银行、交通银行及中信银行等6家银行，利用中国外汇交易中心平台开展离岸人民币外汇交易。
 
-来自湖北、四川、青海、甘肃四省10支代表队齐聚雪域羚城，以篮球为媒，搭建跨区域体育竞技与民族交融的新平台。
+本次试点直击在岸、离岸人民币市场长期分割痛点，推动两地市场互联互通与定价权回流，为人民币国际化和上海国际金融中心建设注入新动能。
 
-据了解，本次赛事是甘南州自主孵化的首个跨省原创篮球IP，立足铸牢中华民族共同体意识主线，把篮球运动作为各族民众交往交流交融的重要载体。
+据本报记者了解，工商银行、中国银行率先落地上海自贸区离岸人民币外汇试点首批业务。
 
-参赛队伍涵盖湖北恩施土家族苗族自治州、四川凉山彝族自治州，青海海北、海南、黄南藏族自治州，临夏回族自治州、白银市、定西市、兰州新区以及东道主甘南州代表队，均来自多民族聚居区和沿黄河洮河民族团结进步创新示范区。
+工商银行方面表示，率先开展双边做市报价并完成首批交易，交易对手涵盖中国香港、新加坡、英国伦敦等多个国家和地区的金融机构，交易品种包括外汇即期、远期和掉期全品类，交易货币覆盖离岸人民币对美元、欧元、日元、港币、新加坡元、土耳其里拉、澳大利亚元、泰国铢、南非兰特等，交易规模、对手数量和币种种类丰富度处行业前列。
 
-甘南素有深厚的篮球底蕴，全州县域篮球争霸赛已连续举办五届，“扎尕那杯”篮球赛等基层活动常态化落地。
+工商银行称，依托银行间各类市场核心做市商与全球一体化经营优势，持续助力人民币国际化与高水平对外开放。
 
-本次邀请赛跳出单纯竞技比拼范畴，依托篮球赛事搭建跨区域体育竞技、地域文化互通、民族深度交融的综合平台。
+首批试点机构中国银行亦完成试点首单，据中行官方披露，该行本次首批交易覆盖外汇即期、外汇掉期两大主流交易品种，交易币种涵盖多个发达经济体货币以及“一带一路”共建国家货币，且已成功与境外同业机构达成首笔相关交易。
 
-未来赛事将固定为年度常态化品牌赛事长期举办，同步向下延伸深耕基层篮球联赛、常态化开展青少年篮球选拔培优工作。
+中国银行方面表示，本次业务落地进一步丰富了离岸人民币外汇市场参与主体，拓宽市场交易渠道，助力离岸人民币市场规范化、规模化发展，持续推动人民币跨境交易生态完善。
 
-赛事赛制方面，10支队伍划分为A、B两个小组，每组5队展开小组单循环对决，各组前四名晋级八强，后续依次推进交叉淘汰赛、半决赛、三四名决赛和冠亚军决赛，全程共计28场精彩对决。
+远东资信研究院副院长张林针对本次试点政策作出解读。
 
 ## 相关推荐
 
-- 2026-06-30 03:50 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-30 04:00 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-30 03:59 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-30 03:32 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-30 03:35 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 03:47 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 03:43 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-30 03:58 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-30 03:47 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-30 03:30 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-30 03:33 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-30 03:57 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-30 03:49 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-30 03:49 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 03:46 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-30 03:52 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-30 03:53 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-30 03:56 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-30 04:04 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-30 04:00 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-30 03:42 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:41 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/079016677731.shtml)
-- 2026-06-30 03:44 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/35431167.shtml)
-- 2026-06-30 03:39 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/9383895832.shtml)
-- 2026-06-30 03:30 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/95452.shtml)
-- 2026-06-30 03:39 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/11673180.shtml)
-- 2026-06-30 03:32 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/261541.shtml)
-- 2026-06-30 03:42 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/7349200013.shtml)
-- 2026-06-30 03:47 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/030368653.shtml)
-- 2026-06-30 03:36 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/1583528.shtml)
-- 2026-06-30 03:40 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/7882274239.shtml)
-- 2026-06-30 03:48 - [女心理师](https://www.blog.minike.top/Article/details/24862545.shtml)
-- 2026-06-30 03:55 - [美股](http://www.share.minike.top/Article/details/97000.shtml)
-- 2026-06-30 03:43 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/33573861125.shtml)
-- 2026-06-30 03:51 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/73243027303.shtml)
-- 2026-06-30 03:41 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/596842460.shtml)
+- 2026-06-30 03:58 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/760374953755.shtml)
+- 2026-06-30 03:54 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/958733897.shtml)
+- 2026-06-30 03:47 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/189770065014.shtml)
+- 2026-06-30 03:57 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/96948076.shtml)
+- 2026-06-30 04:03 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/80485.shtml)
+- 2026-06-30 03:48 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/8257155.shtml)
+- 2026-06-30 03:38 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/505842741.shtml)
+- 2026-06-30 04:03 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/4040712.shtml)
+- 2026-06-30 03:47 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/63890419.shtml)
+- 2026-06-30 03:42 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/39661782272.shtml)
+- 2026-06-30 03:47 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/8452821983.shtml)
+- 2026-06-30 03:57 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/05456737.shtml)
+- 2026-06-30 03:42 - [流金岁月](https://www.share.kurohicncr.top/Article/details/087979702.shtml)
+- 2026-06-30 04:01 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/10552962.shtml)
+- 2026-06-30 03:56 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/5866225.shtml)

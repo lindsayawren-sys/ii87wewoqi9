@@ -1,61 +1,46 @@
-# 受贿1.39亿余元 上海市委原常委朱芝松一审被判死缓
+# 海光芯正于6月18日至6月24日招股 拟全球发售1343.15万股H股
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-2026年6月23日，江西省南昌市中级人民法院一审公开宣判上海市委原常委、浦东新区区委原书记朱芝松受贿案，对被告人朱芝松以受贿罪判处死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产；对追缴在案的朱芝松受贿所得财物及孳息依法上缴国库，不足部分继续追缴。 经审理查明：2003年至2024年，被告人朱芝松利用担任中国航天科技集团公司第八研究院副院长、院长，上海市委宣传部副部
+海光芯正（01191）于2026年6月18日-2026年6月24日招股，公司拟全球发售1343.15万股H股，香港公开发售占10%（可予重新分配），国际发售占90%（可予重新分配），另有15%超额配股权。发售价将为每股发售股份114.00港元，每手50股H股，预期H股将于2026年6月29日（星期一）上午九时正开始在联交所买卖。责任编辑：卢昱君
 
 ## 正文
 
-2026年6月23日，江西省南昌市中级人民法院一审公开宣判上海市委原常委、浦东新区区委原书记朱芝松受贿案，对被告人朱芝松以受贿罪判处死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产；对追缴在案的朱芝松受贿所得财物及孳息依法上缴国库，不足部分继续追缴。
+海光芯正（01191）于2026年6月18日-2026年6月24日招股，公司拟全球发售1343.15万股H股，香港公开发售占10%（可予重新分配），国际发售占90%（可予重新分配），另有15%超额配股权。
 
-经审理查明：2003年至2024年，被告人朱芝松利用担任中国航天科技集团公司第八研究院副院长、院长，上海市委宣传部副部长，上海市闵行区委副书记、区长，闵行区委书记，上海市政府副秘书长、中国(上海)自贸区临港新片区管委会党组书记、常务副主任、浦东新区区委副书记，中国(上海)自贸区临港新片区党工委书记、管委会主任，上海市委常委、浦东新区区委书记等职务上的便利，为相关单位和个人在企业经营、工程承揽、融资贷款等事项上提供帮助，直接或者通过他人非法收受财物，共计折合人民币1.39亿余元。
+发售价将为每股发售股份114.00港元，每手50股H股，预期H股将于2026年6月29日（星期一）上午九时正开始在联交所买卖。
 
-南昌市中级人民法院认为，被告人朱芝松的行为构成受贿罪，受贿数额特别巨大，并使国家和人民利益遭受特别重大损失，论罪应当判处死刑。
-
-鉴于其受贿犯罪中有未遂情节，归案后如实供述自己罪行，主动交代监察机关尚未掌握的大部分犯罪事实，认罪悔罪，积极退赃，绝大部分受贿所得已追缴到案，具有法定、酌定从轻处罚情节，对其判处死刑，可不立即执行。
-
-法庭遂作出上述判决。
-
-据悉，南昌市中级人民法院于2026年1月22日公开开庭审理了该案。
-
-庭审中，检察机关出示了相关证据，被告人朱芝松及其辩护人进行了质证，控辩双方在法庭的主持下充分发表了意见，朱芝松进行了最后陈述，并当庭表示认罪悔罪。
-
-人大代表和各界群众30余人旁听了庭审。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 03:55 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-30 03:41 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-30 03:31 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-30 03:50 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-30 03:44 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-30 03:39 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-30 03:35 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-30 03:56 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-30 03:42 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-30 03:48 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-30 03:40 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-30 03:59 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-30 03:59 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-30 03:31 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-30 03:32 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-30 03:42 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-30 03:40 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-30 03:49 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-30 03:39 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-30 03:42 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-30 03:41 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-30 03:41 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-30 03:41 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-30 04:04 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-30 03:57 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:57 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/258459468323.shtml)
-- 2026-06-30 03:58 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/104562427.shtml)
-- 2026-06-30 03:43 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/1621748745.shtml)
-- 2026-06-30 03:30 - [毒液2](http://www.blog.minike.top/Article/details/59896.shtml)
-- 2026-06-30 03:35 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/726294885303.shtml)
-- 2026-06-30 03:55 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/77247914337.shtml)
-- 2026-06-30 03:37 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/859622.shtml)
-- 2026-06-30 03:57 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/48258.shtml)
-- 2026-06-30 03:39 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/30120702274.shtml)
-- 2026-06-30 03:45 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/2763026474.shtml)
-- 2026-06-30 03:58 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/151194.shtml)
-- 2026-06-30 03:30 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/2139016900.shtml)
-- 2026-06-30 03:37 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/679905.shtml)
-- 2026-06-30 03:55 - [时光音乐会](http://www.share.minike.top/Article/details/06895058342.shtml)
-- 2026-06-30 03:40 - [人类...完蛋了...](http://www.share.minike.top/Article/details/32150362061.shtml)
+- 2026-06-30 03:45 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.kurohicncr.top/Article/details/63011242602.shtml)
+- 2026-06-30 03:45 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/85704353213.shtml)
+- 2026-06-30 03:39 - [毒液2](https://www.share.kurohicncr.top/Article/details/9150862.shtml)
+- 2026-06-30 03:45 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/41440076300.shtml)
+- 2026-06-30 04:05 - [斛珠夫人](http://www.share.minike.top/Article/details/90568.shtml)
+- 2026-06-30 03:48 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/640230.shtml)
+- 2026-06-30 03:46 - [急先锋](http://www.blog.kurohicncr.top/Article/details/471166.shtml)
+- 2026-06-30 03:59 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/871402198.shtml)
+- 2026-06-30 03:39 - [我和我的家乡](http://www.share.minike.top/Article/details/710924.shtml)
+- 2026-06-30 03:59 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/61271.shtml)
+- 2026-06-30 03:41 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/87296992.shtml)
+- 2026-06-30 03:54 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/398493985851.shtml)
+- 2026-06-30 03:45 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/21052402.shtml)
+- 2026-06-30 03:58 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/75316509464.shtml)
+- 2026-06-30 04:03 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/39813.shtml)

@@ -1,53 +1,48 @@
-# 沈铭权任浙江宁波市代市长
+# 浙海德曼：公司未来将举办形式多样的投资者交流活动
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-中新社宁波6月24日电 (张斌 骆泽明)据浙江省宁波市政府新闻办在微信公众号发布的消息，宁波市第十六届人民代表大会常务委员会第三十四次会议6月24日决定，接受汤飞帆辞去宁波市市长的请求，任命沈铭权为宁波市副市长、代理市长。沈铭权，男，汉族，1970年12月生，此前任中共台州市委书记。2021年6月，时任浙江省安吉县委书记的沈铭权被中组部授予全国优秀县委书记称号，并在表彰会议上发
+证券日报网讯 6月17日，浙海德曼在互动平台回答投资者提问时表示，公司未来将举办形式多样的投资者交流活动，以便让投资者更多的了解公司。（文章来源：证券日报）
 
 ## 正文
 
-中新社宁波6月24日电 (张斌 骆泽明)据浙江省宁波市政府新闻办在微信公众号发布的消息，宁波市第十六届人民代表大会常务委员会第三十四次会议6月24日决定，接受汤飞帆辞去宁波市市长的请求，任命沈铭权为宁波市副市长、代理市长。
+证券日报网讯 6月17日，浙海德曼在互动平台回答投资者提问时表示，公司未来将举办形式多样的投资者交流活动，以便让投资者更多的了解公司。
 
-沈铭权，男，汉族，1970年12月生，此前任中共台州市委书记。
-
-2021年6月，时任浙江省安吉县委书记的沈铭权被中组部授予全国优秀县委书记称号，并在表彰会议上发言。
-
-数据显示，宁波作为著名侨乡，目前有海外宁波籍华侨华人、港澳台同胞、留学生67.7万人，分布在全球159个国家和地区。
-
-(完)
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-30 03:36 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-30 03:56 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-30 03:30 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-30 03:31 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-30 03:41 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-30 03:30 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-30 03:41 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-30 03:41 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-30 03:55 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-30 03:37 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-30 03:35 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-30 03:49 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-30 03:44 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 03:58 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-30 04:02 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 03:43 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-30 03:57 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-30 03:53 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-30 03:42 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-30 03:39 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-30 03:53 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-30 03:44 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-30 03:42 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-30 03:47 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-30 03:57 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-30 03:38 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-30 03:58 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:45 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/603004667726.shtml)
-- 2026-06-30 03:36 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/51480814.shtml)
-- 2026-06-30 03:32 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/62330.shtml)
-- 2026-06-30 03:30 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/02199.shtml)
-- 2026-06-30 03:56 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/94133.shtml)
-- 2026-06-30 03:30 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/62546440789.shtml)
-- 2026-06-30 03:30 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/4334251499.shtml)
-- 2026-06-30 03:31 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/4102551271.shtml)
-- 2026-06-30 03:58 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/29102.shtml)
-- 2026-06-30 03:47 - [逃狱兄弟](https://www.blog.minike.top/Article/details/9685222740.shtml)
-- 2026-06-30 03:35 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/55424.shtml)
-- 2026-06-30 03:46 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/8913617545.shtml)
-- 2026-06-30 03:32 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/2344488393.shtml)
-- 2026-06-30 03:46 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/8809171.shtml)
-- 2026-06-30 03:55 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/2833321712.shtml)
+- 2026-06-30 03:40 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/38839684684.shtml)
+- 2026-06-30 03:47 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/313686895329.shtml)
+- 2026-06-30 03:48 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/727467183935.shtml)
+- 2026-06-30 04:01 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/817672.shtml)
+- 2026-06-30 03:55 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/96927641.shtml)
+- 2026-06-30 03:43 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/223429063812.shtml)
+- 2026-06-30 03:43 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/29381943716.shtml)
+- 2026-06-30 03:47 - [庆祝中国共产党成立105周年音乐会](https://www.blog.minike.top/Article/details/9595978946.shtml)
+- 2026-06-30 03:59 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/9852896253.shtml)
+- 2026-06-30 03:43 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/19599994.shtml)
+- 2026-06-30 03:43 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/97546473103.shtml)
+- 2026-06-30 03:42 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/585423757.shtml)
+- 2026-06-30 03:53 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/815773.shtml)
+- 2026-06-30 03:54 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/484672012.shtml)
+- 2026-06-30 04:05 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/181008690709.shtml)

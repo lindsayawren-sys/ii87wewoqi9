@@ -1,56 +1,57 @@
-# 大理苍山世界地质公园顺利完成再评估工作
+# FOMC会议前瞻：沃什是否会彻底终结降息交易？
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-中新网昆明6月23日电 (记者 韩帅南)记者23日从苍山洱海国家级自然保护区管理局获悉，近日，大理苍山世界地质公园迎来联合国教科文组织世界地质公园为期五天的再评估。本次评估是继2018年大理苍山世界地质公园通过首次再评估之后，时隔八年以来的又一次全面检验。 大理苍山世界地质公园位于云南省大理白族自治州，是展示地球演化历史的“天然博物馆”。苍山是历史名山，位于横断山脉云岭中支末端
+撰文：嘉盛集团全球研究主管 Matt Weller 美联储、FOMC关键要点 · 交易者和经济学家预计美联储将维持利率在3.50%-3.75%区间。 · 凯文·沃什关于央行独立性及沟通策略的表态，将对市场产生最持久的影响。 · 美国美元指数（DXY）的99.50水平将成为重要“分水岭”，可能决定本周剩余时间乃至更长期的技术走势倾向。 FOMC会议何时举行？ 2026年6月FOM
 
 ## 正文
 
-中新网昆明6月23日电 (记者 韩帅南)记者23日从苍山洱海国家级自然保护区管理局获悉，近日，大理苍山世界地质公园迎来联合国教科文组织世界地质公园为期五天的再评估。
+撰文：嘉盛集团全球研究主管 Matt Weller 美联储、FOMC关键要点 · 交易者和经济学家预计美联储将维持利率在3.50%-3.75%区间。
 
-本次评估是继2018年大理苍山世界地质公园通过首次再评估之后，时隔八年以来的又一次全面检验。
+· 凯文·沃什关于央行独立性及沟通策略的表态，将对市场产生最持久的影响。
 
-大理苍山世界地质公园位于云南省大理白族自治州，是展示地球演化历史的“天然博物馆”。
+· 美国美元指数（DXY）的99.50水平将成为重要“分水岭”，可能决定本周剩余时间乃至更长期的技术走势倾向。
 
-苍山是历史名山，位于横断山脉云岭中支末端，其特殊的地理位置、复杂的地质构造和地形、多样的气候条件孕育了极其丰富的生物多样性和独特的人文自然生态景观。
+FOMC会议何时举行？
 
-2014年，在第六届联合国教科文组织世界地质公园大会上，大理苍山被列为世界地质公园。
+2026年6月FOMC会议将于美东时间6月17日（星期三）下午2：00结束。
 
-此次再评估由来自斯洛文尼亚的博扬·雷尊与来自马来西亚的塔诺特·温贾两位国际专家组成团队，通过听取汇报、野外实地考察、座谈交流及意见反馈会等形式，对大理苍山世界地质公园开展全面的再评估检验，旨在全面总结该公园在园区管理、基础建设、地质遗迹保护、地学科普以及促进地方旅游经济发展等方面的进展，推动该公园不断自我创新、持续发展。
+美联储主席凯文·沃什的新闻发布会将于美东时间下午2：30开始。
 
-评估期间，专家组先后听取了大理苍山世界地质公园代表围绕公园概况、整改情况、工作进展、未来展望等方面所作的详细汇报，全面了解八年来的工作成效。
+FOMC利率预期是什么？
 
-在实地考察环节，专家组严格对照联合国教科文组织标准，深入大理苍山世界地质公园博物馆、洗马潭、玉带路、洱海生态廊道等20余个考察节点，对大理苍山世界地质公园“地质+生态+文化+社区”的融合发展路径开展了全方位、多角度的细致考察。
+交易者和经济学家对美联储将维持利率在3.50%-3.75%区间抱有高度信心。
 
 ## 相关推荐
 
-- 2026-06-30 03:40 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-30 03:48 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-30 03:50 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-30 03:41 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-30 03:36 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-30 03:30 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-30 03:51 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-30 03:51 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-30 03:58 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-30 03:40 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-30 03:53 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-30 03:43 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 03:38 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-30 03:39 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-30 03:54 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-30 04:02 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-30 03:48 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-30 04:03 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 03:49 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-30 03:53 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-30 03:51 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:33 - [勇敢的心第二部](https://www.share.minike.top/Article/details/3679712.shtml)
-- 2026-06-30 03:40 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/4589831.shtml)
-- 2026-06-30 03:52 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/957892188348.shtml)
-- 2026-06-30 03:51 - [普京间接喊话特朗普有何考量](http://www.blog.minike.top/Article/details/77566028827.shtml)
-- 2026-06-30 03:39 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/896212645181.shtml)
-- 2026-06-30 03:55 - [亚洲球队全部告别世界杯](http://www.share.kurohicncr.top/Article/details/499253847.shtml)
-- 2026-06-30 03:53 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/68727432341.shtml)
-- 2026-06-30 03:56 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/448871687.shtml)
-- 2026-06-30 03:38 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/6168184417.shtml)
-- 2026-06-30 03:40 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/791771.shtml)
-- 2026-06-30 03:48 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/41018.shtml)
-- 2026-06-30 03:35 - [苗族银饰](http://www.share.minike.top/Article/details/2147536165.shtml)
-- 2026-06-30 03:57 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/68429386.shtml)
-- 2026-06-30 03:50 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/2008295618.shtml)
-- 2026-06-30 03:48 - [女心理师](https://www.blog.kurohicncr.top/Article/details/1760588.shtml)
+- 2026-06-30 03:57 - [千香](https://www.blog.minike.top/Article/details/71776.shtml)
+- 2026-06-30 03:53 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/0723716698.shtml)
+- 2026-06-30 03:58 - [美人鱼](https://www.blog.minike.top/Article/details/7437314.shtml)
+- 2026-06-30 04:00 - [沙丘](https://www.share.minike.top/Article/details/10654337814.shtml)
+- 2026-06-30 04:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/173196559.shtml)
+- 2026-06-30 03:52 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/120015257936.shtml)
+- 2026-06-30 03:48 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/25909.shtml)
+- 2026-06-30 03:44 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/698224466437.shtml)
+- 2026-06-30 03:56 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/22531030873.shtml)
+- 2026-06-30 03:47 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/2976978.shtml)
+- 2026-06-30 04:01 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/620155233436.shtml)
+- 2026-06-30 03:57 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/650585.shtml)
+- 2026-06-30 03:37 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/1418991.shtml)
+- 2026-06-30 03:58 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/266334.shtml)
+- 2026-06-30 03:55 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/78155.shtml)

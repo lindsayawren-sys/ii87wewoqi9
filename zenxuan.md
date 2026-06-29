@@ -1,54 +1,60 @@
-# 威海银行：H股发行与内资股发行已于6月23日完成
+# 万物皆可做“CT” “璧山造”智造装备如何远销全球？
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-6月23日金融一线消息，威海银行发布公告，本行分别与山东高速认购方、财鑫资产及恒源控股签订的内资股认购协议及H股认购协议全部先决条件均已达成（其中包括本行本次发行H股、内资股相关事项均已取得监管部门所需核准），本次H股发行与内资股发行已于2026年6月23日完成。 根据本次发行安排，1.5亿股H股已于2026年6月23日发行予恒源控股；合计7.39130169亿股内资股于同日发
+中新网重庆6月17日电(马佳欣)走进重庆日联科技有限公司(以下简称“日联科技”)的展厅，一系列“X光片”引人驻足。汽车一体压铸车身内部的微小气孔清晰可见、新能源电池的焊点瑕疵无所遁形……6月16日，“2026海外华媒侨领川渝行”参访团走进位于重庆市璧山区的日联科技，实地观摩智能检测核心装备，深入了解企业技术研发创新与全球化市场布局情况。 重庆日联科技有限公司成立于2013年，是
 
 ## 正文
 
-6月23日金融一线消息，威海银行发布公告，本行分别与山东高速认购方、财鑫资产及恒源控股签订的内资股认购协议及H股认购协议全部先决条件均已达成（其中包括本行本次发行H股、内资股相关事项均已取得监管部门所需核准），本次H股发行与内资股发行已于2026年6月23日完成。
+中新网重庆6月17日电(马佳欣)走进重庆日联科技有限公司(以下简称“日联科技”)的展厅，一系列“X光片”引人驻足。
 
-根据本次发行安排，1.5亿股H股已于2026年6月23日发行予恒源控股；合计7.39130169亿股内资股于同日发行给山东高速集团、山东高速及财鑫资产，其中：向山东高速集团发行3.16134362亿股内资股，向山东高速发行1.03179425亿股内资股，向财鑫资产发行3.19816382亿股内资股。
+汽车一体压铸车身内部的微小气孔清晰可见、新能源电池的焊点瑕疵无所遁形……6月16日，“2026海外华媒侨领川渝行”参访团走进位于重庆市璧山区的日联科技，实地观摩智能检测核心装备，深入了解企业技术研发创新与全球化市场布局情况。
 
-据此，本次H股、内资股发行完成后，本行注册资本增至人民币68.69188513亿元，股份总额增至68.69188513亿股，其中内资股57.10327513亿股、H股11.58861亿股。
+重庆日联科技有限公司成立于2013年，是一家专注于精密X射线技术研究及智能检测装备研发、生产与销售的国家级高新技术企业。
 
-与此同时，本行与津联集团于2025年12月21日签订的H股认购协议（下称“该协议”）项下生效条件截至本公告出具之日尚未满足，且本次新股发行已于2026年6月23日落地，因此津联集团不会参与本次H股发行，该协议将于2026年6月30日自动终止。
+公司建有总面积达75000平方米的X射线检测装备产业基地。
 
-截至本公告出具日，该协议项下不存在任何需要退还的款项。
+凭借可覆盖工业制造、食品医药、美妆日化等多品类、全场景的精密X射线检测技术，实现“万物皆可工业CT”的精准检测能力，这家扎根璧山13年的企业生产智造装备已经远销全球70多个国家，成为“璧山造”智造装备走向全球的一张名片。
 
-本次发行募集资金扣除相关发行费用后的净额约人民币29.03亿元（折合33.38亿港元），募集资金将全部用于补充本行核心一级资本。
+X射线智能检测装备被誉为“工业医生”，其核心部件微焦点X射线源曾长期被美国、日本等国垄断，是国内高端制造业的难题。
 
-责任编辑：王馨茹
+重庆日联科技有限公司副总经理余海鹏称，日联科技历时十余年攻坚，成功研制出国内首款封闭式热阴极微焦点X射线源并实现产业化。
+
+“这一突破对中国新能源电池、汽车制造等重点产业的产业链安全检测具有重要意义。
 
 ## 相关推荐
 
-- 2026-06-30 03:47 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-30 03:50 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-30 03:44 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-30 03:45 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-30 03:43 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-30 03:46 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-30 03:50 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 03:50 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-30 03:34 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-30 03:43 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 03:36 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-30 03:49 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-30 03:55 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-30 03:42 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-30 03:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-30 03:43 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 03:51 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-30 03:40 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 03:54 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-30 03:58 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-30 03:59 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 03:39 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-30 03:41 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-30 03:44 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:44 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/95406.shtml)
-- 2026-06-30 03:32 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.kurohicncr.top/Article/details/580505.shtml)
-- 2026-06-30 03:52 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/60440809.shtml)
-- 2026-06-30 03:47 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/3238544.shtml)
-- 2026-06-30 03:34 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/193958794013.shtml)
-- 2026-06-30 03:43 - [金刚川](http://www.blog.kurohicncr.top/Article/details/0901982013.shtml)
-- 2026-06-30 03:44 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/4581097.shtml)
-- 2026-06-30 03:39 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/522871290.shtml)
-- 2026-06-30 03:37 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/715926.shtml)
-- 2026-06-30 03:54 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/083013233739.shtml)
-- 2026-06-30 03:41 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/7246594.shtml)
-- 2026-06-30 03:42 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/909589139478.shtml)
-- 2026-06-30 03:52 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/38337524073.shtml)
-- 2026-06-30 03:52 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/43753504759.shtml)
-- 2026-06-30 03:46 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/393318186349.shtml)
+- 2026-06-30 03:59 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/03832.shtml)
+- 2026-06-30 03:46 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/68230438346.shtml)
+- 2026-06-30 03:58 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/58845382.shtml)
+- 2026-06-30 03:42 - [乔家的儿女](http://www.blog.minike.top/Article/details/26256.shtml)
+- 2026-06-30 03:52 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/670743490.shtml)
+- 2026-06-30 03:53 - [刘宇宁是去进货了吗](https://www.share.kurohicncr.top/Article/details/1452035735.shtml)
+- 2026-06-30 03:42 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/5411836.shtml)
+- 2026-06-30 03:42 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/7165353.shtml)
+- 2026-06-30 03:55 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/542379828.shtml)
+- 2026-06-30 04:00 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/634156848.shtml)
+- 2026-06-30 03:40 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/121750.shtml)
+- 2026-06-30 04:04 - [TOP Prada](http://www.blog.minike.top/Article/details/87722155.shtml)
+- 2026-06-30 04:00 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/461354152.shtml)
+- 2026-06-30 03:38 - [蔚来车主罚站](https://www.share.minike.top/Article/details/399754389637.shtml)
+- 2026-06-30 03:38 - [我们的少年时代2](https://www.share.minike.top/Article/details/79085.shtml)

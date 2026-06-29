@@ -1,56 +1,48 @@
-# 内蒙古包头：毕业典礼变“就业直通车”
+# 王毅：共同抵制任何绕过安理会的单边行径
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-中新网包头6月23日电 (记者 李爱平)6月22日晚，“包你心动 青春与共”2026年包头大学生集体毕业典礼在内蒙古科技大学举行。包头市3.1万余名高校应届毕业生即将进入择业阶段，当地政府及企业在此期间集中推出针对毕业生的就业岗位。 与侧重仪式感的传统毕业典礼不同，本次活动设置了校企对接环节。包头多家重点企业开展专项招聘，为毕业生提供本地就业岗位，以减少异地求职的成本。 包钢集
+中新网6月17日电 国务院新闻办公室6月17日举行新闻发布会，中共中央政治局委员、外交部长王毅表示，要坚定捍卫联合国核心地位。在上个月中国倡导召开的安理会高级别会议上，各方一致呼吁重温联合国宪章初心，重振联合国的权威。要落实好“联合国80周年改革倡议”，推动联合国提质增效，提升安理会行动力，履行好维护和平与安全的职责使命，共同抵制任何绕过安理会的单边行径。
 
 ## 正文
 
-中新网包头6月23日电 (记者 李爱平)6月22日晚，“包你心动 青春与共”2026年包头大学生集体毕业典礼在内蒙古科技大学举行。
+中新网6月17日电 国务院新闻办公室6月17日举行新闻发布会，中共中央政治局委员、外交部长王毅表示，要坚定捍卫联合国核心地位。
 
-包头市3.1万余名高校应届毕业生即将进入择业阶段，当地政府及企业在此期间集中推出针对毕业生的就业岗位。
+在上个月中国倡导召开的安理会高级别会议上，各方一致呼吁重温联合国宪章初心，重振联合国的权威。
 
-与侧重仪式感的传统毕业典礼不同，本次活动设置了校企对接环节。
-
-包头多家重点企业开展专项招聘，为毕业生提供本地就业岗位，以减少异地求职的成本。
-
-包钢集团公司(简称包钢)是当地吸纳毕业生的主要企业之一。
-
-包钢组织人事部工作人员秦义伟介绍，包钢主营钢铁和稀土业务，目前正在拓展机器人、智能制造等新领域，对自动化、人形机器人等理工类专业人才存在需求缺口。
-
-秦义伟表示，企业按专业适配度招录毕业生，不区分院校背景。
-
-针对内蒙古科技大学相关专业，包钢设有订单班，学生大四全年在企业实习，参与生产和项目操作。
+要落实好“联合国80周年改革倡议”，推动联合国提质增效，提升安理会行动力，履行好维护和平与安全的职责使命，共同抵制任何绕过安理会的单边行径。
 
 ## 相关推荐
 
-- 2026-06-30 03:41 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-30 03:34 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-30 03:47 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-30 03:33 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 03:53 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-30 03:59 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-30 03:56 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-30 03:56 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-30 03:38 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-30 03:50 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-30 03:38 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 04:02 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-30 04:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-30 03:42 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-30 03:49 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-30 03:56 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-30 03:54 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 03:51 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-30 03:52 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-30 03:40 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-30 03:45 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-30 03:56 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:40 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/723710382963.shtml)
-- 2026-06-30 03:55 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/876304018418.shtml)
-- 2026-06-30 03:56 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/68630.shtml)
-- 2026-06-30 03:31 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/609675732.shtml)
-- 2026-06-30 03:36 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/86286997023.shtml)
-- 2026-06-30 03:54 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/05260.shtml)
-- 2026-06-30 03:38 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/5860924.shtml)
-- 2026-06-30 03:41 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/284132879.shtml)
-- 2026-06-30 03:38 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/763660.shtml)
-- 2026-06-30 03:59 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/456193.shtml)
-- 2026-06-30 03:49 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/355061785.shtml)
-- 2026-06-30 03:36 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/4577338.shtml)
-- 2026-06-30 03:57 - [请回答王牌2019](http://www.blog.minike.top/Article/details/281249215906.shtml)
-- 2026-06-30 03:57 - [一见倾心](http://www.share.minike.top/Article/details/320619.shtml)
-- 2026-06-30 03:59 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/4179043.shtml)
+- 2026-06-30 03:51 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/095344.shtml)
+- 2026-06-30 03:48 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/8273762969.shtml)
+- 2026-06-30 04:00 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/660331607607.shtml)
+- 2026-06-30 04:00 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/76385088390.shtml)
+- 2026-06-30 03:57 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/205655944.shtml)
+- 2026-06-30 03:45 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/615965.shtml)
+- 2026-06-30 04:01 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/4101691.shtml)
+- 2026-06-30 03:53 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/853934.shtml)
+- 2026-06-30 03:55 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/435716.shtml)
+- 2026-06-30 03:59 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/4927176395.shtml)
+- 2026-06-30 03:53 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/1878890.shtml)
+- 2026-06-30 03:58 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/832727471936.shtml)
+- 2026-06-30 03:58 - [沙丘](https://www.blog.minike.top/Article/details/47813.shtml)
+- 2026-06-30 03:58 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/03276431.shtml)
+- 2026-06-30 04:00 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/390500240777.shtml)

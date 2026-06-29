@@ -1,43 +1,56 @@
-# 共识教育百问百答 | 张淑瑛：怎么从实践中增进各民族文化互鉴融通？——以广西米粉为例
+# 中英出版界签约合作出版《伍连德画传》英文版
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月24日 09:31 来源：中央社会主义学院 责任编辑：【周驰】
+中新网北京6月17日电 《伍连德画传》英文版版权输出发布会暨签约仪式6月17日在第32届北京国际图书博览会现场举行。京版若晴公司与英国新一代出版社签署了《伍连德画传》英文版合作协议。 伍连德是中国卫生防疫、检疫事业以及中国现代医学等领域的先驱，诺贝尔奖首位华人候选人。《伍连德画传》依托作者历时十余载挖掘、整理的史料，集纳近800幅历史影像，以图文并茂、通俗生动的画传形式，完整再
 
 ## 正文
 
-发布时间：2026年06月24日 09:31 来源：中央社会主义学院 责任编辑：【周驰】
+中新网北京6月17日电 《伍连德画传》英文版版权输出发布会暨签约仪式6月17日在第32届北京国际图书博览会现场举行。
+
+京版若晴公司与英国新一代出版社签署了《伍连德画传》英文版合作协议。
+
+伍连德是中国卫生防疫、检疫事业以及中国现代医学等领域的先驱，诺贝尔奖首位华人候选人。
+
+《伍连德画传》依托作者历时十余载挖掘、整理的史料，集纳近800幅历史影像，以图文并茂、通俗生动的画传形式，完整再现了伍连德跌宕传奇的一生。
+
+出席仪式的《伍连德画传》作者、伍连德亲属代表及伍连德权益在华唯⼀授权维护⼈黄建堃表示，伍连德与英国渊源深厚，是剑桥首位华人医学博士，且长期推动中英文化学术交流。
+
+希望通过《伍连德画传》英文版的推出，依托全球传播渠道，更好地让世界读懂伍连德济世为民的医者精神。
+
+京版若晴公司董事长袁海表示，《伍连德画传》版权输出合作体现了中英出版与医学人文文化的深度交融。
+
+未来将继续立足首都出版优势，持续深化国际版权合作，打造更多可传播、可感知、可共鸣的中国原创好书，持续助力中华文化国际传播。
 
 ## 相关推荐
 
-- 2026-06-30 03:59 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-30 03:43 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-30 03:51 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-30 03:32 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-30 03:36 - [人类...完蛋了...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 03:55 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-30 03:42 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-30 03:44 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-30 03:51 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-30 03:39 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-30 03:44 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-30 03:45 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-30 03:40 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-30 03:53 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 04:05 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-30 03:49 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-30 03:54 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 03:45 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-30 03:38 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-30 04:00 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-30 04:02 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:40 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/829451.shtml)
-- 2026-06-30 03:47 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/465105403277.shtml)
-- 2026-06-30 03:58 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/179335.shtml)
-- 2026-06-30 03:55 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/884912090.shtml)
-- 2026-06-30 03:34 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/015148121.shtml)
-- 2026-06-30 03:47 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/79831370599.shtml)
-- 2026-06-30 03:30 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/8189121287.shtml)
-- 2026-06-30 03:56 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/428262138.shtml)
-- 2026-06-30 03:41 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/1221157.shtml)
-- 2026-06-30 03:37 - [世界杯](http://www.share.kurohicncr.top/Article/details/515205.shtml)
-- 2026-06-30 03:51 - [世界杯](http://www.blog.minike.top/Article/details/1007386193.shtml)
-- 2026-06-30 03:48 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/400155808940.shtml)
-- 2026-06-30 03:38 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/21014059.shtml)
-- 2026-06-30 03:56 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/96541.shtml)
-- 2026-06-30 03:52 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/05686774549.shtml)
+- 2026-06-30 04:01 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/665799.shtml)
+- 2026-06-30 04:04 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/9929364.shtml)
+- 2026-06-30 04:01 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/48145412777.shtml)
+- 2026-06-30 03:42 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/36995793619.shtml)
+- 2026-06-30 03:51 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/415082697337.shtml)
+- 2026-06-30 03:42 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/93401771587.shtml)
+- 2026-06-30 03:44 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/0814154100.shtml)
+- 2026-06-30 03:55 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/6420649.shtml)
+- 2026-06-30 03:49 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/737525773253.shtml)
+- 2026-06-30 03:59 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/81902519510.shtml)
+- 2026-06-30 03:41 - [内马尔中场休息积极鼓励队友](https://www.blog.minike.top/Article/details/6543497.shtml)
+- 2026-06-30 03:57 - [世界杯：德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/849650494.shtml)
+- 2026-06-30 03:54 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/217211818680.shtml)
+- 2026-06-30 03:57 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/2791939.shtml)
+- 2026-06-30 04:00 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/5190776871.shtml)

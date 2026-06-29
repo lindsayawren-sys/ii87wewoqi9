@@ -1,49 +1,57 @@
-# 百洋医药：锝\[99mTc\]佩昔瑞特加肽注射液是我国第一个自主研发的核医学1类创新药
+# 白银龙头盛达资源及其实控人被立案，股价一字跌停，7.4万股民“踩雷”
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-证券日报网讯 6月23日，百洋医药在互动平台回答投资者提问时表示，锝\[99mTc\]佩昔瑞特加肽注射液是我国第一个自主研发的核医学1类创新药，全球首个用于SPECT显像诊断的广谱肿瘤显像药物。目前公司正按照经营计划有序进行商业化推广工作。（文章来源：证券日报）
+登录新浪财经APP 搜索【信披】查看更多考评等级 从一年暴涨超400%的“明星牛股”，到一纸立案告知书后封死跌停，盛达资源（维权）的资本故事正在经历戏剧性转折。 6月15日晚间，A股白银龙头盛达资源（000603）发布公告称，公司及实际控制人赵满堂于当日分别收到中国证监会下发的《立案告知书》，因涉嫌信息披露违法违规，证监会决定对公司及赵满堂立案。消息一出，6月16日公司股价开盘
 
 ## 正文
 
-证券日报网讯 6月23日，百洋医药在互动平台回答投资者提问时表示，锝\[99mTc\]佩昔瑞特加肽注射液是我国第一个自主研发的核医学1类创新药，全球首个用于SPECT显像诊断的广谱肿瘤显像药物。
+登录新浪财经APP 搜索【信披】查看更多考评等级 从一年暴涨超400%的“明星牛股”，到一纸立案告知书后封死跌停，盛达资源（维权）的资本故事正在经历戏剧性转折。
 
-目前公司正按照经营计划有序进行商业化推广工作。
+6月15日晚间，A股白银龙头盛达资源（000603）发布公告称，公司及实际控制人赵满堂于当日分别收到中国证监会下发的《立案告知书》，因涉嫌信息披露违法违规，证监会决定对公司及赵满堂立案。
 
-（文章来源：证券日报）
+消息一出，6月16日公司股价开盘即封死跌停，报收27.71元/股，市值一天之内蒸发超20亿元。
+
+一、祸起资金占用：11个月滚动占用7.92亿元 此次立案调查，指向的是公司此前自查披露的控股股东资金占用问题。
+
+据盛达资源2025年4月29日披露的自查公告，2024年2月至12月期间，控股股东甘肃盛达集团有限公司及其附属企业存在间歇性非经营性占用公司资金的情形。
+
+滚动累计占用资金7.92亿元，日占用资金最高余额达2.75亿元。
+
+盛达资源称，截至2024年12月11日，公司已收回全部被占用资金，并按3.85%的年化利率收取资金占用利息360.14万元。
+
+公司已对相关问题进行整改。
 
 ## 相关推荐
 
-- 2026-06-30 03:47 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-30 03:47 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-30 03:35 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-30 03:35 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 03:58 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-30 03:47 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-30 03:52 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-30 03:48 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-30 03:46 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 03:48 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-30 03:33 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-30 03:41 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-30 03:49 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 03:39 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-30 03:58 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-30 03:58 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-30 03:37 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-30 03:53 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-30 04:05 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-30 03:36 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-30 03:44 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-30 03:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-30 04:00 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-30 03:56 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:51 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/91810438062.shtml)
-- 2026-06-30 03:36 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/820851.shtml)
-- 2026-06-30 03:53 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/10225857068.shtml)
-- 2026-06-30 03:48 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/0296141974.shtml)
-- 2026-06-30 03:43 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/8030031921.shtml)
-- 2026-06-30 03:48 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/5052258634.shtml)
-- 2026-06-30 03:35 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/23057898.shtml)
-- 2026-06-30 03:59 - [金刚川](http://www.blog.minike.top/Article/details/59542.shtml)
-- 2026-06-30 03:58 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/361415612.shtml)
-- 2026-06-30 03:30 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/510470.shtml)
-- 2026-06-30 03:43 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/99708576.shtml)
-- 2026-06-30 03:54 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/9246680.shtml)
-- 2026-06-30 03:42 - [一生一世](https://www.blog.kurohicncr.top/Article/details/401980589140.shtml)
-- 2026-06-30 03:55 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.minike.top/Article/details/73977240598.shtml)
-- 2026-06-30 03:58 - [法媒点赞分享中国小区降温方案](http://www.blog.minike.top/Article/details/605590108378.shtml)
+- 2026-06-30 04:01 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/857731.shtml)
+- 2026-06-30 03:53 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/7996650.shtml)
+- 2026-06-30 03:48 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/65989454.shtml)
+- 2026-06-30 03:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/282885474821.shtml)
+- 2026-06-30 04:04 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/9861884444.shtml)
+- 2026-06-30 03:57 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/4578499738.shtml)
+- 2026-06-30 03:49 - [巴西绝杀](http://www.blog.kurohicncr.top/Article/details/4996757.shtml)
+- 2026-06-30 03:47 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/2823792686.shtml)
+- 2026-06-30 03:53 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/7879310156.shtml)
+- 2026-06-30 03:46 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/688909214419.shtml)
+- 2026-06-30 03:39 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/374217.shtml)
+- 2026-06-30 03:49 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/855513.shtml)
+- 2026-06-30 03:57 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/70082171207.shtml)
+- 2026-06-30 03:38 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/106807194.shtml)
+- 2026-06-30 03:39 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/577792457.shtml)

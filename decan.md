@@ -1,57 +1,59 @@
-# 中国建材盘中涨超9% 玻纤及电子布涨价传导顺畅机构指中国建材具有领先优势
+# 纪录片《妙壁生花——复活的南宗壁画》唤醒“南宗壁画”艺术魅力
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-中国建材（03323）盘中涨超9%，截至发稿，股价上涨3.65%，现报5.40港元，成交额4.83亿港元。 电子布、电子树脂等上游原材料价格持续上涨带动覆铜板提价，产业链传导顺畅。机构指出，建滔积层板于6月16日宣布对所有厚度FR-4覆铜板及PP半固化片提价15%，而7628电子布价格较年初已上涨超70%。 公开资料显示，中国建材旗下中国巨石为全球产能第一的电子布生产商，目前中
+中新网北京6月16日电 (记者 应妮)一面墙，一支笔，十年面壁。从手的锤炼，到眼的观照，再到心的归依——纪录片《妙壁生花——复活的南宗壁画》于6月15日至6月17日在凤凰卫视《纪录大时代》栏目首播。该片以中国美术学院教授、画家何士扬十年“面壁”上天竺法喜寺的经历为叙事源起，串联起一场横跨南北、纵贯古今的中国传统壁画美学探寻之旅。 上天竺法喜寺位于浙江省杭州市西湖区天竺路上，是杭
 
 ## 正文
 
-中国建材（03323）盘中涨超9%，截至发稿，股价上涨3.65%，现报5.40港元，成交额4.83亿港元。
+中新网北京6月16日电 (记者 应妮)一面墙，一支笔，十年面壁。
 
-电子布、电子树脂等上游原材料价格持续上涨带动覆铜板提价，产业链传导顺畅。
+从手的锤炼，到眼的观照，再到心的归依——纪录片《妙壁生花——复活的南宗壁画》于6月15日至6月17日在凤凰卫视《纪录大时代》栏目首播。
 
-机构指出，建滔积层板于6月16日宣布对所有厚度FR-4覆铜板及PP半固化片提价15%，而7628电子布价格较年初已上涨超70%。
+该片以中国美术学院教授、画家何士扬十年“面壁”上天竺法喜寺的经历为叙事源起，串联起一场横跨南北、纵贯古今的中国传统壁画美学探寻之旅。
 
-公开资料显示，中国建材旗下中国巨石为全球产能第一的电子布生产商，目前中国巨石在全球电子玻纤市场的占有率已达到23%，年产约13亿米电子布。
+上天竺法喜寺位于浙江省杭州市西湖区天竺路上，是杭州“天竺三寺”里规模最大的一座，建于五代吴越王时。
 
-此外，中材科技特种纤维布产品完成国内外头部客户认证并批量供货。
+三集纪录片以《手·八面出锋》《眼·触目即真》《心·此身安处》为题，构成一条从技法锤炼到精神归依的递进叙事线索，展现何士扬用十年时间，完成了一场由手到眼再入心的艺术修行。
 
-据华泰证券此前研报，中国建材在玻璃纤维领域具有领先优势，分别持有中材科技60.24%、中国巨石29.22%股权。
+在南方潮湿气候中绘制壁画，曾被视为不可能。
 
-责任编辑：卢昱君
+摄制组跟随何士扬跨越五六个省份，追寻散落于江南乡野的古代壁画遗存——龙泉清代照壁、金华太平天国侍王府、四川竹编基底壁画……残破的清代照壁为何风吹雨打百年颜色如新？
+
+太平天国侍王府里藏着怎样的制墙秘方？
 
 ## 相关推荐
 
-- 2026-06-30 03:39 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-30 03:44 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-30 03:48 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-30 03:54 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-30 03:52 - [刘念回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-30 03:37 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 03:49 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-30 03:31 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 03:59 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-30 03:56 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-30 03:45 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 03:42 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-30 03:55 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-30 03:43 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-30 03:59 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 03:55 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 04:01 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-30 03:43 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-30 04:00 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-30 03:48 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-30 03:47 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-30 04:05 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-30 03:40 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-30 03:59 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-30 04:01 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-30 03:38 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:30 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/337123668.shtml)
-- 2026-06-30 03:41 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/93804.shtml)
-- 2026-06-30 03:45 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/496295784482.shtml)
-- 2026-06-30 03:33 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/06365095925.shtml)
-- 2026-06-30 03:54 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/078756580.shtml)
-- 2026-06-30 03:54 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/405264.shtml)
-- 2026-06-30 03:36 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/784413423215.shtml)
-- 2026-06-30 03:46 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/74547.shtml)
-- 2026-06-30 03:57 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/957664.shtml)
-- 2026-06-30 03:51 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/070435.shtml)
-- 2026-06-30 03:41 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/44923.shtml)
-- 2026-06-30 03:34 - [女心理师](http://www.share.minike.top/Article/details/7842626200.shtml)
-- 2026-06-30 03:56 - [扬名立万](https://www.share.minike.top/Article/details/687589095122.shtml)
-- 2026-06-30 03:46 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/4276003326.shtml)
-- 2026-06-30 03:38 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/62160417.shtml)
+- 2026-06-30 03:48 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/867771.shtml)
+- 2026-06-30 03:41 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/73985.shtml)
+- 2026-06-30 04:05 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/0757326931.shtml)
+- 2026-06-30 03:36 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/3095781057.shtml)
+- 2026-06-30 03:49 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/81186501871.shtml)
+- 2026-06-30 03:45 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/9452049311.shtml)
+- 2026-06-30 03:56 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/404864.shtml)
+- 2026-06-30 04:02 - [金刚川](https://www.share.kurohicncr.top/Article/details/4837378144.shtml)
+- 2026-06-30 04:02 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/0958156428.shtml)
+- 2026-06-30 03:47 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/849463.shtml)
+- 2026-06-30 04:04 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/346323.shtml)
+- 2026-06-30 03:58 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/4691828.shtml)
+- 2026-06-30 03:42 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/555645525554.shtml)
+- 2026-06-30 03:51 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/0191481.shtml)
+- 2026-06-30 03:42 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/28648172729.shtml)

@@ -1,54 +1,53 @@
-# 美企发射“星落”返回舱 演示再入返回技术
+# 河南省郑州市人大常委会原一级巡视员王广灿被开除党籍
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-美国太空探索技术公司23日利用“猎鹰9”号火箭首次发射“星落”返回舱，旨在对这种新型无人再入返回飞行器进行演示与验证。 太空探索技术公司表示，完成受控飞行演示后，飞行器将在太平洋海域溅落。 美联邦航空局相关文件显示，“星落”返回舱为扁圆形无人舱，高约0.75米，直径约3.1米，重量约2100公斤，可携带约1000公斤载荷，太空探索技术公司计划实施两次“星落”返回舱演示任务。该项
+中新网6月17日电 据河南省纪委监委消息：经中共河南省委批准，河南省纪委监委对郑州市人大常委会原一级巡视员王广灿严重违纪违法问题进行了立案审查调查。 经查，王广灿丧失理想信念，背离初心使命，转移证据，对抗组织审查；违反中央八项规定精神，收受可能影响公正执行公务的消费卡；违背组织原则，在组织函询时不如实说明问题，利用职权为他人谋取人事利益；廉洁底线失守，通过民间借贷获取大额回报，
 
 ## 正文
 
-美国太空探索技术公司23日利用“猎鹰9”号火箭首次发射“星落”返回舱，旨在对这种新型无人再入返回飞行器进行演示与验证。
+中新网6月17日电 据河南省纪委监委消息：经中共河南省委批准，河南省纪委监委对郑州市人大常委会原一级巡视员王广灿严重违纪违法问题进行了立案审查调查。
 
-太空探索技术公司表示，完成受控飞行演示后，飞行器将在太平洋海域溅落。
+经查，王广灿丧失理想信念，背离初心使命，转移证据，对抗组织审查；违反中央八项规定精神，收受可能影响公正执行公务的消费卡；违背组织原则，在组织函询时不如实说明问题，利用职权为他人谋取人事利益；廉洁底线失守，通过民间借贷获取大额回报，利用职权违规购买经济适用房，利用职权在购买团购房方面谋取私利；违规干预插手市场经济活动；公器私用，利用职务便利大肆侵吞公款；毫无纪法观念，大搞权钱交易，利用职务便利为他人在项目承揽、工程款拨付等方面提供帮助，非法收受巨额财物。
 
-美联邦航空局相关文件显示，“星落”返回舱为扁圆形无人舱，高约0.75米，直径约3.1米，重量约2100公斤，可携带约1000公斤载荷，太空探索技术公司计划实施两次“星落”返回舱演示任务。
+王广灿严重违反党的政治纪律、组织纪律、廉洁纪律、工作纪律和生活纪律，构成严重职务违法并涉嫌贪污、受贿犯罪，且在党的十八大、十九大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
 
-该项目旨在实现太空和地面间关键货物快速点对点运输，并通过提供微重力和真空环境、轨道驻留以及规模化轨道返回服务，推动商业太空制造能力发展，有望成为国际空间站的后续商业替代平台之一。
-
-目前，太空探索技术公司尚未公布关于本次任务的更多细节，比如载荷内容和再入返回时间。
-
-据美国方面消息，此次任务有望为仍处于起步阶段的太空制造产业提供支持。
-
-(央视新闻客户端)
+依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经河南省纪委常委会会议研究并报中共河南省委批准，决定给予王广灿开除党籍处分；按规定取消其享受的待遇；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
 
 ## 相关推荐
 
-- 2026-06-30 03:52 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-30 03:33 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-30 03:48 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-30 03:41 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 03:58 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-30 03:42 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 03:53 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-30 03:48 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-30 03:35 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-30 03:32 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-30 03:42 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-30 03:41 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-30 03:51 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-30 04:00 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-30 03:37 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-30 03:46 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-30 04:02 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-30 03:40 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-30 04:01 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-30 03:59 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-30 03:42 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-30 03:49 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-30 03:54 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-30 03:46 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 03:52 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:50 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/094379362.shtml)
-- 2026-06-30 03:33 - [女子发现孩子非现任亲生起诉前任](http://www.share.minike.top/Article/details/60055.shtml)
-- 2026-06-30 03:52 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/792925981627.shtml)
-- 2026-06-30 03:57 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/35014789.shtml)
-- 2026-06-30 03:35 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/512997958.shtml)
-- 2026-06-30 03:58 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/6234719.shtml)
-- 2026-06-30 03:57 - [日本反击率先破门](https://www.blog.minike.top/Article/details/01293083.shtml)
-- 2026-06-30 03:48 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/72975.shtml)
-- 2026-06-30 03:59 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/643376.shtml)
-- 2026-06-30 03:58 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/53903.shtml)
-- 2026-06-30 03:57 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/013215938.shtml)
-- 2026-06-30 03:33 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/59527626587.shtml)
-- 2026-06-30 03:33 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/2599385693.shtml)
-- 2026-06-30 03:40 - [刘念回应](https://www.share.kurohicncr.top/Article/details/22306612.shtml)
-- 2026-06-30 03:33 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/30220.shtml)
+- 2026-06-30 04:04 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/58639.shtml)
+- 2026-06-30 03:50 - [刘念回应](https://www.blog.minike.top/Article/details/69305967907.shtml)
+- 2026-06-30 03:52 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/79020608925.shtml)
+- 2026-06-30 03:42 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/590101286520.shtml)
+- 2026-06-30 03:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/59641249413.shtml)
+- 2026-06-30 03:45 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/26108.shtml)
+- 2026-06-30 03:39 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/26649896.shtml)
+- 2026-06-30 03:50 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/386205494417.shtml)
+- 2026-06-30 03:51 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/3416156821.shtml)
+- 2026-06-30 03:55 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/80108401500.shtml)
+- 2026-06-30 04:00 - [这一刀 会很帅](http://www.share.minike.top/Article/details/846180334.shtml)
+- 2026-06-30 03:48 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/195144044.shtml)
+- 2026-06-30 03:42 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/92177525.shtml)
+- 2026-06-30 03:44 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/4229400733.shtml)
+- 2026-06-30 03:40 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/70961164486.shtml)

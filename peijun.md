@@ -1,59 +1,58 @@
-# 美联储官员古尔斯比：通胀过高且正朝错误方向发展
+# 宣布六项政策，央行行长潘功胜详解中国金融结构变迁和金融市场现代化
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-芝加哥联储行长奥斯坦·古尔斯比表示，他仍然担心通胀问题，并质疑推动价格上涨的因素是否都只是暂时性的。 古尔斯比周一表示：“我们面对的通胀远高于目标水平，并且在朝着错误的方向发展。” 美联储官员上周维持利率不变，但会后公布的预测显示，接近半数官员预计今年至少需要加息一次。通胀已连续逾五年未能回到美联储2%的目标水平，并在过去几个月升温，这加剧了官员对维持当前利率水平将不足以抑制价
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 完善短端利率调控机制、创设境外央行回购工具、在上海自贸区开展离岸人民币外汇交易试点、研究设立特定情景非银流动性支持宏观审慎工具等，6月17日上午，中国人民银行行长潘功胜在2026陆家嘴论坛上详解了央行即将出台的六项政策举措。 同时，潘功胜阐述了中国金融结构变迁，他指出，从一个较长的时间区间看，中国金融结构的变迁，根本
 
 ## 正文
 
-芝加哥联储行长奥斯坦·古尔斯比表示，他仍然担心通胀问题，并质疑推动价格上涨的因素是否都只是暂时性的。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 完善短端利率调控机制、创设境外央行回购工具、在上海自贸区开展离岸人民币外汇交易试点、研究设立特定情景非银流动性支持宏观审慎工具等，6月17日上午，中国人民银行行长潘功胜在2026陆家嘴论坛上详解了央行即将出台的六项政策举措。
 
-古尔斯比周一表示：“我们面对的通胀远高于目标水平，并且在朝着错误的方向发展。
+同时，潘功胜阐述了中国金融结构变迁，他指出，从一个较长的时间区间看，中国金融结构的变迁，根本上反映了经济结构的深度调整和经济增长动能的新旧转换，金融体系与产业结构转型升级的动态适配，以及金融供给侧结构性改革的持续深化，是长期性、趋势性的变化。
 
-” 美联储官员上周维持利率不变，但会后公布的预测显示，接近半数官员预计今年至少需要加息一次。
+谈及持续建设规范、开放、有活力、有韧性的现代化金融市场，潘功胜给出了五大重点方向：第一，建设和发展多类别、多层次的金融市场体系，进一步丰富金融市场业态。
 
-通胀已连续逾五年未能回到美联储2%的目标水平，并在过去几个月升温，这加剧了官员对维持当前利率水平将不足以抑制价格压力的担忧。
+第二，持续深化市场化改革，进一步发挥金融市场价格发现和资源配置作用。
 
-古尔斯比表示，美联储现在需要评估像关税或伊朗战争引发的能源价格飙升这类临时性冲击，是否是推高通胀的唯一因素，这一点至关重要。
+第三，健全法治规则体系，进一步培育良好的市场生态。
 
-他指出，与这些冲击无关的服务价格上涨“令人不安”，并表示来自服务业的通胀压力往往更具持续性。
+第四，完善金融市场宏观审慎管理框架和监管体系，进一步提升金融市场运行稳定性和韧性。
 
-古尔斯比说，他理解美联储主席沃什关于美联储不应对未来利率路径提供过多指引的观点。
+第五，稳步推进金融领域制度型开放，进一步提升中国金融市场的国际化水平。
 
-他表示，对经济前景的预测有误会损害央行信誉。
+多项政策举措将出台 一是完善短端利率调控机制。
 
 ## 相关推荐
 
-- 2026-06-30 03:38 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-30 03:55 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-30 03:39 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-30 03:59 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-30 03:38 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-30 03:52 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-30 03:33 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 03:55 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-30 03:56 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-30 03:44 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-30 03:53 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-30 03:45 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-30 03:50 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-30 03:44 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 04:03 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 03:51 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-30 03:51 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-30 04:04 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-30 04:00 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-30 04:04 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 04:02 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-30 03:57 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-30 04:01 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 03:56 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-30 03:38 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:58 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/412094412804.shtml)
-- 2026-06-30 03:59 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/98929609135.shtml)
-- 2026-06-30 03:58 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/161424125.shtml)
-- 2026-06-30 03:41 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/054480.shtml)
-- 2026-06-30 03:39 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/624357204.shtml)
-- 2026-06-30 03:41 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/64421.shtml)
-- 2026-06-30 03:52 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/918226.shtml)
-- 2026-06-30 03:34 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/65903028.shtml)
-- 2026-06-30 03:31 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/182914017.shtml)
-- 2026-06-30 03:48 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/966256027723.shtml)
-- 2026-06-30 03:59 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/861183.shtml)
-- 2026-06-30 03:58 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/16531.shtml)
-- 2026-06-30 03:41 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/41557825242.shtml)
-- 2026-06-30 03:48 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/88234549577.shtml)
-- 2026-06-30 03:43 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/74457.shtml)
+- 2026-06-30 03:38 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/9421910484.shtml)
+- 2026-06-30 03:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/4502127.shtml)
+- 2026-06-30 04:01 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/287468218513.shtml)
+- 2026-06-30 03:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/818262044218.shtml)
+- 2026-06-30 03:51 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/9746391.shtml)
+- 2026-06-30 03:42 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/18336.shtml)
+- 2026-06-30 03:50 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/206635471.shtml)
+- 2026-06-30 03:51 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/38278.shtml)
+- 2026-06-30 04:02 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/665653716.shtml)
+- 2026-06-30 03:43 - [千香](https://www.share.minike.top/Article/details/32600915861.shtml)
+- 2026-06-30 03:48 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/55899.shtml)
+- 2026-06-30 04:03 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/846093871.shtml)
+- 2026-06-30 03:42 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/396756589.shtml)
+- 2026-06-30 03:44 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/050928915165.shtml)
+- 2026-06-30 04:01 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/318449989177.shtml)

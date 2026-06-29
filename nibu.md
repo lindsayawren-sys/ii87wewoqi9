@@ -1,59 +1,56 @@
-# 全球灯塔工厂新名单公布，中国占比过半
+# 青海大柴旦6.3级地震 多地联动全力安置滞留人员
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-专题：2026第十七届夏季达沃斯论坛 世界经济论坛 世界经济论坛公布16个新工厂加入全球灯塔网络，至此该网络已汇聚全球238个一流工厂。 新晋灯塔工厂折射出工业竞争力的三大变革方向：端到端智能化、人机协同、以可持续发展赋能经营绩效。 世界经济论坛同步推出全新项目“影响力之星”（Impact Stars），表彰有望重塑行业运营模式的突破性工业创新成果。 了解2026年新领军者年会
+发布时间：2026年06月17日 17:38 来源：中国新闻网 6月16日，青海大柴旦发生6.3级地震，受地质波动影响，青藏铁路西格段7列客车临时停运，部分旅客、游客及务工人员就地滞留。德令哈市立即启动应急预案。 为切实纾解群众住宿成本压力，稳定旅居保障，德令哈市商务局主动统筹促消费专项资金，联合市文旅局迅速推出暖心住宿惠民举措，面向全市20家星级酒店投放面值100元住宿抵扣券
 
 ## 正文
 
-专题：2026第十七届夏季达沃斯论坛 世界经济论坛 世界经济论坛公布16个新工厂加入全球灯塔网络，至此该网络已汇聚全球238个一流工厂。
+发布时间：2026年06月17日 17:38 来源：中国新闻网 6月16日，青海大柴旦发生6.3级地震，受地质波动影响，青藏铁路西格段7列客车临时停运，部分旅客、游客及务工人员就地滞留。
 
-新晋灯塔工厂折射出工业竞争力的三大变革方向：端到端智能化、人机协同、以可持续发展赋能经营绩效。
+德令哈市立即启动应急预案。
 
-世界经济论坛同步推出全新项目“影响力之星”（Impact Stars），表彰有望重塑行业运营模式的突破性工业创新成果。
+为切实纾解群众住宿成本压力，稳定旅居保障，德令哈市商务局主动统筹促消费专项资金，联合市文旅局迅速推出暖心住宿惠民举措，面向全市20家星级酒店投放面值100元住宿抵扣券，抵扣券使用期限为6月17日至6月19日，每位游客每天可使用一张。
 
-了解2026年新领军者年会的更多信息，请访问世界经济论坛官网。
+灾情牵动各方，毗邻地区火速驰援。
 
-在社交媒体上关注年会动态，欢迎使用话题标签#2026夏季达沃斯。
+6月17日凌晨，格尔木市紧急调运八大类共万件生活保障物资驰援大柴旦，包含帐篷、棉被、棉褥、枕头、折叠床、取暖煤炉、照明设备及插板等急需物资，全方位保障群众御寒、居住和生活所需。
 
-详细了解全球灯塔网络，请点击阅读原文。
+在大柴旦安置现场，各地救援力量连夜搭建连片帐篷与防雨棚，应急物资快速到位。
 
-世界经济论坛今日宣布，全球灯塔网络新增16家成员，目前网络已汇聚全球238座顶尖制造及供应链运营基地。
+震后群众得以就近避风取暖、入住安全住所、吃上热餐，基本生活得到全面保障。
 
-这些灯塔工厂充分展示了企业正通过规模化应用先进技术，持续提升生产效率、供应链韧性、可持续发展能力、客户服务水平与人才发展成效。
+(视频来源：德令哈融媒体中心，格尔木融媒体中心） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 03:39 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-30 03:54 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-30 03:48 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-30 03:58 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-30 03:35 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-30 03:46 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-30 03:37 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-30 03:46 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-30 03:55 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-30 03:34 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-30 03:54 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-30 03:35 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-30 03:56 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-30 03:49 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-30 03:37 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-30 03:40 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-30 04:03 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-30 04:04 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 03:40 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-30 03:38 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-30 03:47 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-30 03:53 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-30 04:05 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:55 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/0586037200.shtml)
-- 2026-06-30 03:31 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/01212026130.shtml)
-- 2026-06-30 03:49 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/84504967.shtml)
-- 2026-06-30 03:48 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/334821.shtml)
-- 2026-06-30 03:37 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/565226.shtml)
-- 2026-06-30 03:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/82697055.shtml)
-- 2026-06-30 03:44 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/322460.shtml)
-- 2026-06-30 03:44 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/49500619789.shtml)
-- 2026-06-30 03:39 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/3993231623.shtml)
-- 2026-06-30 03:41 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/1068095771.shtml)
-- 2026-06-30 03:38 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/040577.shtml)
-- 2026-06-30 03:43 - [一见倾心](https://www.share.kurohicncr.top/Article/details/04541301.shtml)
-- 2026-06-30 03:42 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/03032774.shtml)
-- 2026-06-30 03:40 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/3850872683.shtml)
-- 2026-06-30 03:50 - [天道](https://www.blog.minike.top/Article/details/2397004417.shtml)
+- 2026-06-30 03:45 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/72924.shtml)
+- 2026-06-30 03:54 - [送你一朵小红花](https://www.blog.minike.top/Article/details/109294294513.shtml)
+- 2026-06-30 03:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/7183830.shtml)
+- 2026-06-30 03:36 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/4743667573.shtml)
+- 2026-06-30 03:57 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/94249502140.shtml)
+- 2026-06-30 03:47 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/1838901.shtml)
+- 2026-06-30 03:58 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/93040149727.shtml)
+- 2026-06-30 03:56 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/7589568.shtml)
+- 2026-06-30 03:41 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/433471123.shtml)
+- 2026-06-30 04:05 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/09000857.shtml)
+- 2026-06-30 03:50 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/813240.shtml)
+- 2026-06-30 03:47 - [金刚川](http://www.share.kurohicncr.top/Article/details/4475883.shtml)
+- 2026-06-30 04:04 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/74356019.shtml)
+- 2026-06-30 03:46 - [乔家的儿女](http://www.blog.minike.top/Article/details/1137501605.shtml)
+- 2026-06-30 03:56 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/15593652674.shtml)

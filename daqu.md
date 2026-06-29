@@ -1,60 +1,60 @@
-# 财经早报：美股科技巨头突发利空 两公司预计业绩翻倍中报行情要来了丨2026年6月23日
+# （同心·大调研）聚焦文化消费促国内市场建设 民进中央开展2026年度重点考察调研
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 【重磅】全球迎来“芯片牛”！别再错过，立即开户跟进>> 【头条要闻】 夏季达沃斯论坛今日开幕丨李强总理将出席开幕式并发表特别致辞 世界经济论坛第十七届新领军者年会，也就是夏季达沃斯论坛于今天（6月23日）至25日在大连举办。目前主会场大连国际会议中心已基本准备就绪，本届年会都有哪些亮点？ 不少海内外参会嘉宾十分看重中国市场与创新
+中新网成都6月17日电 题：聚焦文化消费促国内市场建设 民进中央开展2026年度重点考察调研 中新网记者 钟升 岳依桐 朱贺 “十五五”规划纲要提出“建设强大国内市场，加快构建新发展格局”的战略任务，并提出，完善文化管理体制和生产经营机制，实施积极的文化经济政策，大力发展文化旅游业，以文化赋能经济社会发展。当前，如何进一步扩大文化消费，使其更好发挥建设强大国内市场的重要引擎作用
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 【重磅】全球迎来“芯片牛”！
+中新网成都6月17日电 题：聚焦文化消费促国内市场建设 民进中央开展2026年度重点考察调研 中新网记者 钟升 岳依桐 朱贺 “十五五”规划纲要提出“建设强大国内市场，加快构建新发展格局”的战略任务，并提出，完善文化管理体制和生产经营机制，实施积极的文化经济政策，大力发展文化旅游业，以文化赋能经济社会发展。
 
-别再错过，立即开户跟进>> 【头条要闻】 夏季达沃斯论坛今日开幕丨李强总理将出席开幕式并发表特别致辞 世界经济论坛第十七届新领军者年会，也就是夏季达沃斯论坛于今天（6月23日）至25日在大连举办。
+当前，如何进一步扩大文化消费，使其更好发挥建设强大国内市场的重要引擎作用，为高质量发展注入新动能？
 
-目前主会场大连国际会议中心已基本准备就绪，本届年会都有哪些亮点？
+民进中央主席蔡达峰、常务副主席朱永新近期率调研组赴江苏、四川，围绕“扩大文化消费，建设强大国内市场”开展2026年度重点考察调研。
 
-不少海内外参会嘉宾十分看重中国市场与创新赛道，希望依托本次论坛对接合作契机，高水平开放的红利，正不断向实体经济、经贸往来拓展。
+中共中央统战部、国家发展改革委、文化和旅游部等部门有关同志及相关专家参加调研。
 
-除了议程，本届会场也亮点十足。
+蝶变焕新：工业遗存转型，激活文旅消费 当前，文化消费已成为拉动内需、促进就业及塑造城市品牌的重要引擎。
 
-最大的特色就是全程贯穿的绿色低碳设计。
+作为文化消费活跃区域，江苏、四川如何创新业态、激活消费潜力？
 
-这里用的都是清洁能源供电，整场活动办下来，大概能减少800吨二氧化碳排放。
+让闲置旧厂房、老厂区“活”起来，成为消费新空间，是多地发力文旅消费的突破口。
 
-因为这里靠海，会场空调用的是“海水源热泵系统”，也就是利用海水交换热量降温，比普通空调省电30%以上。
+在江苏，调研组考察无锡、南京等地。
 
 ## 相关推荐
 
-- 2026-06-30 03:43 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-30 03:39 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-30 03:54 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-30 03:58 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-30 03:52 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-30 03:36 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 03:32 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-30 03:38 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-30 03:59 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-30 03:37 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-30 03:52 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-30 03:53 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 03:47 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-30 03:47 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 04:01 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 03:46 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-30 03:47 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-30 03:45 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-30 04:04 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-30 03:54 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-30 03:56 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-30 03:38 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-30 04:05 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 03:54 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-30 03:42 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-30 03:39 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-30 03:41 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-30 03:39 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:48 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/70629.shtml)
-- 2026-06-30 03:51 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/46731.shtml)
-- 2026-06-30 03:52 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/667777883785.shtml)
-- 2026-06-30 03:53 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/72254051.shtml)
-- 2026-06-30 03:56 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/488232902.shtml)
-- 2026-06-30 03:46 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/56143.shtml)
-- 2026-06-30 03:57 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/5809557152.shtml)
-- 2026-06-30 03:59 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/94761442.shtml)
-- 2026-06-30 03:52 - [女心理师](https://www.share.minike.top/Article/details/28247991474.shtml)
-- 2026-06-30 03:39 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/50571518.shtml)
-- 2026-06-30 03:32 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/30590952875.shtml)
-- 2026-06-30 03:36 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/918201786.shtml)
-- 2026-06-30 03:30 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/44927111035.shtml)
-- 2026-06-30 03:32 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/419619455.shtml)
-- 2026-06-30 03:54 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/38381369300.shtml)
+- 2026-06-30 04:05 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/53805.shtml)
+- 2026-06-30 04:00 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/08668292227.shtml)
+- 2026-06-30 03:38 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/790150391993.shtml)
+- 2026-06-30 03:48 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/47197976.shtml)
+- 2026-06-30 03:46 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/73439929.shtml)
+- 2026-06-30 03:38 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/24094.shtml)
+- 2026-06-30 03:40 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/83892.shtml)
+- 2026-06-30 04:05 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/3329138.shtml)
+- 2026-06-30 03:37 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/586139510.shtml)
+- 2026-06-30 03:43 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/158907598944.shtml)
+- 2026-06-30 03:48 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/89147.shtml)
+- 2026-06-30 03:58 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/007380812950.shtml)
+- 2026-06-30 03:55 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/953464570374.shtml)
+- 2026-06-30 03:46 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/5005068.shtml)
+- 2026-06-30 03:37 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/66568.shtml)

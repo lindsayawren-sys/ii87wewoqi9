@@ -1,60 +1,48 @@
-# 央行等三部门印发《关于进一步加强金融支持妇女就业发展的实施意见》
+# 梁凤仪：争取早日将人民币股票交易柜台纳入港股通
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-中国人民银行 金融监管总局 全国妇联印发《关于进一步加强金融支持妇女就业发展的实施意见》 为深入贯彻党的二十大和二十届历次全会精神，认真落实习近平总书记关于促进妇女全面发展的重要指示精神，进一步优化金融资源配置、完善金融服务体系，撬动更多金融资源赋能妇女就业发展。近日，中国人民银行、金融监管总局、全国妇联印发《关于进一步加强金融支持妇女就业发展的实施意见》（以下简称《实施意见》
+人民财讯6月17日电，2026陆家嘴论坛全体大会四“沪港金融协同发展赋能高水平金融开放”6月17日晚间举行。香港证券及期货事务监察委员会行政总裁梁凤仪表示，继续支持港交所推出更多人民币外汇期货、人民币计价的黄金期货，以及结构性固收产品；与内地监管机构合作，争取早日将人民币股票交易柜台纳入港股通。 二级市场方面，梁凤仪表示：“我们正积极推动相关债券电子交易平台构建，配合相应做市资
 
 ## 正文
 
-中国人民银行 金融监管总局 全国妇联印发《关于进一步加强金融支持妇女就业发展的实施意见》 为深入贯彻党的二十大和二十届历次全会精神，认真落实习近平总书记关于促进妇女全面发展的重要指示精神，进一步优化金融资源配置、完善金融服务体系，撬动更多金融资源赋能妇女就业发展。
+人民财讯6月17日电，2026陆家嘴论坛全体大会四“沪港金融协同发展赋能高水平金融开放”6月17日晚间举行。
 
-近日，中国人民银行、金融监管总局、全国妇联印发《关于进一步加强金融支持妇女就业发展的实施意见》（以下简称《实施意见》）。
+香港证券及期货事务监察委员会行政总裁梁凤仪表示，继续支持港交所推出更多人民币外汇期货、人民币计价的黄金期货，以及结构性固收产品；与内地监管机构合作，争取早日将人民币股票交易柜台纳入港股通。
 
-《实施意见》提出，要加大金融资源投入力度，助力妇女就业发展。
+二级市场方面，梁凤仪表示：“我们正积极推动相关债券电子交易平台构建，配合相应做市资质和回购市场建设，希望能全面提升债券交易的效率和市场整体的流动性。
 
-加强创业孵化基地等创业载体建设融资支持，为女性创业项目落地提供保障。
-
-鼓励各地结合实际优化创业担保贷款政策，对信用良好的女性创业者适当降低或取消反担保要求。
-
-拓宽妇女就业创业多元化融资渠道，支持符合条件的妇女创业企业注册发行债务融资工具、开展供应链票据业务。
-
-优化教育培训金融服务，提升妇女就业发展能力。
-
-用好国家助学贷款政策，规范开展研究生商业性助学贷款业务，支持女性接受高等教育。
+”责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 03:43 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-30 03:53 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-30 03:49 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-30 03:43 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-30 03:40 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-30 03:50 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-30 03:55 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-30 03:54 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-30 03:41 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-30 03:55 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-30 03:58 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-30 03:57 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 03:59 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-30 03:47 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-30 03:53 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 04:02 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 03:40 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-30 03:37 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-30 03:48 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-30 03:44 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 04:04 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 03:59 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-30 03:42 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-30 04:02 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:50 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/282740773268.shtml)
-- 2026-06-30 03:46 - [美股](http://www.share.minike.top/Article/details/274081.shtml)
-- 2026-06-30 03:58 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/9734082637.shtml)
-- 2026-06-30 03:58 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/309166510684.shtml)
-- 2026-06-30 03:39 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/896631970.shtml)
-- 2026-06-30 03:36 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/0218833416.shtml)
-- 2026-06-30 03:56 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/2616652699.shtml)
-- 2026-06-30 03:36 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/5525976855.shtml)
-- 2026-06-30 03:33 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/853751828.shtml)
-- 2026-06-30 03:54 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/16543.shtml)
-- 2026-06-30 03:38 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/89050.shtml)
-- 2026-06-30 03:42 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/879500085.shtml)
-- 2026-06-30 03:30 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/3010986500.shtml)
-- 2026-06-30 03:31 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/3162441.shtml)
-- 2026-06-30 03:53 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/32732969410.shtml)
+- 2026-06-30 03:52 - [一见倾心](http://www.share.minike.top/Article/details/17847901534.shtml)
+- 2026-06-30 03:48 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/39989854206.shtml)
+- 2026-06-30 03:53 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/6562391.shtml)
+- 2026-06-30 04:03 - [我觉得你是在无中生友](http://www.blog.minike.top/Article/details/148495992.shtml)
+- 2026-06-30 03:39 - [逃狱兄弟](https://www.share.minike.top/Article/details/98103.shtml)
+- 2026-06-30 03:40 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/5924371.shtml)
+- 2026-06-30 04:02 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/994301824017.shtml)
+- 2026-06-30 03:55 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/104463.shtml)
+- 2026-06-30 03:40 - [刘必安等16人非法集资案二审宣判](http://www.blog.minike.top/Article/details/56404335.shtml)
+- 2026-06-30 03:57 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/181249.shtml)
+- 2026-06-30 03:37 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/154216599.shtml)
+- 2026-06-30 03:55 - [湖南祁东原文化馆被指贱卖](https://www.share.kurohicncr.top/Article/details/579366376.shtml)
+- 2026-06-30 03:46 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/64857832.shtml)
+- 2026-06-30 03:49 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/271589.shtml)
+- 2026-06-30 03:43 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/82111587.shtml)

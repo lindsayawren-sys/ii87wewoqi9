@@ -1,44 +1,59 @@
-# 隆华科技：两款显示面板靶材导入三星并开始批量供货
+# 量价齐稳 北京二手房价环比连涨4个月
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-隆华科技在互动平台表示，公司两款用于显示面板的靶材产品顺利通过韩国三星的品质稽核和产品验证，成功导入其供应商名录并开始批量供货，海外市场拓展取得显著突破。 （文章来源：财联社）
+6月16日，国家统计局发布5月70个大中城市商品住宅销售价格变动情况。数据显示，5月，一线城市二手住宅销售价格环比上涨0.4%，连续3个月实现上涨。其中，北京环比上涨0.1%。北京商报记者梳理发现，北京自2月起便结束了二手房价连续10个月的环比下跌趋势，是四大一线城市中二手房价回暖较早的城市之一，至今已经连续4个月环比上涨。北京二手房市场“量价齐稳” 从上涨城市数量来看，5月7
 
 ## 正文
 
-隆华科技在互动平台表示，公司两款用于显示面板的靶材产品顺利通过韩国三星的品质稽核和产品验证，成功导入其供应商名录并开始批量供货，海外市场拓展取得显著突破。
+6月16日，国家统计局发布5月70个大中城市商品住宅销售价格变动情况。
 
-（文章来源：财联社）
+数据显示，5月，一线城市二手住宅销售价格环比上涨0.4%，连续3个月实现上涨。
+
+其中，北京环比上涨0.1%。
+
+北京商报记者梳理发现，北京自2月起便结束了二手房价连续10个月的环比下跌趋势，是四大一线城市中二手房价回暖较早的城市之一，至今已经连续4个月环比上涨。
+
+北京二手房市场“量价齐稳” 从上涨城市数量来看，5月70个城市中，二手房价格环比上涨的城市数量为10个。
+
+上海、深圳二手房价格环比上涨0.6%，位居二手房价格上涨城市首位；徐州环比上涨0.3%紧随其后；北京、广州、厦门等7座城市则环比上涨0.1%。
+
+上海易居房地产研究院副院长严跃进表示，政策层面对于限购的放开，直接带动了上海、深圳购房需求的明显释放，二手房交易量呈现稳步上升态势，市场活跃度随之提升。
+
+北京商报记者梳理发现，今年4月末，上海、深圳同步出台调整限购标准、上调公积金贷款额度等支持举措，有效激活本地住房消费，推动市场热度上行。
 
 ## 相关推荐
 
-- 2026-06-30 03:49 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-30 03:56 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-30 03:35 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-30 03:59 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-30 03:39 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-30 03:33 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-30 03:37 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-30 03:50 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-30 03:51 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-30 03:38 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-30 03:59 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-30 03:46 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 04:01 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-30 03:39 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-30 03:44 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 03:55 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-30 03:48 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-30 03:50 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-30 03:52 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 04:05 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-30 03:53 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-30 03:40 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 03:54 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/270093240.shtml)
-- 2026-06-30 03:51 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/8894040912.shtml)
-- 2026-06-30 03:32 - [这种关系可能正在悄悄“催老”你](https://www.share.kurohicncr.top/Article/details/908995257.shtml)
-- 2026-06-30 03:42 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/32384058.shtml)
-- 2026-06-30 03:43 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/462961370.shtml)
-- 2026-06-30 03:56 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/1573655.shtml)
-- 2026-06-30 03:58 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/36503.shtml)
-- 2026-06-30 03:40 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/870036062.shtml)
-- 2026-06-30 03:30 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/09091444223.shtml)
-- 2026-06-30 03:50 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/4626076387.shtml)
-- 2026-06-30 03:48 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/42091898554.shtml)
-- 2026-06-30 03:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/0746285824.shtml)
-- 2026-06-30 03:53 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/047690995.shtml)
-- 2026-06-30 03:56 - [普京间接喊话特朗普有何考量](https://www.blog.minike.top/Article/details/30845078035.shtml)
-- 2026-06-30 03:47 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/905703396.shtml)
+- 2026-06-30 03:39 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/3661934.shtml)
+- 2026-06-30 03:59 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/8391043.shtml)
+- 2026-06-30 03:56 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/196565946.shtml)
+- 2026-06-30 04:03 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/26621.shtml)
+- 2026-06-30 03:48 - [老外对中国cosplay竟这样评价…](http://www.blog.kurohicncr.top/Article/details/422590714967.shtml)
+- 2026-06-30 03:56 - [苗族银饰](http://www.share.minike.top/Article/details/10734027.shtml)
+- 2026-06-30 03:37 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/133035246565.shtml)
+- 2026-06-30 03:50 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/3460512926.shtml)
+- 2026-06-30 04:01 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/4746791.shtml)
+- 2026-06-30 04:01 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/441980785019.shtml)
+- 2026-06-30 03:50 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/3567028787.shtml)
+- 2026-06-30 04:04 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/11692384304.shtml)
+- 2026-06-30 04:04 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/02242.shtml)
+- 2026-06-30 04:03 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/99776531.shtml)
+- 2026-06-30 03:45 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/130769.shtml)

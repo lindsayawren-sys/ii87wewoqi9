@@ -1,45 +1,58 @@
-# 今年广州白云机场口岸进出境超千万人次
+# 辽宁省民族和宗教委召开全省少数民族发展资金调度会
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月24日 09:00 来源：央视新闻 责任编辑：【王祎】
+6月16日，全省少数民族发展资金调度会在营口市鲅鱼圈区召开。省民族和宗教委党组书记、主任张智明出席会议并讲话。会议由省民族和宗教委党组成员、副主任邓荔主持。会议通报了全省少数民族发展资金预算执行整体情况。各市依次汇报辖区内项目实施、资金拨付进展及下一步工作安排。会议充分肯定去年全省少数民族发展任务取得的优异绩效，要求各地认真总结经验、巩固既有成果。当前年度工作进程过半，部分地区
 
 ## 正文
 
-发布时间：2026年06月24日 09:00 来源：央视新闻 责任编辑：【王祎】
+6月16日，全省少数民族发展资金调度会在营口市鲅鱼圈区召开。
+
+省民族和宗教委党组书记、主任张智明出席会议并讲话。
+
+会议由省民族和宗教委党组成员、副主任邓荔主持。
+
+会议通报了全省少数民族发展资金预算执行整体情况。
+
+各市依次汇报辖区内项目实施、资金拨付进展及下一步工作安排。
+
+会议充分肯定去年全省少数民族发展任务取得的优异绩效，要求各地认真总结经验、巩固既有成果。
+
+当前年度工作进程过半，部分地区项目开工、资金拨付工作推进滞后，与国家考核标准、省委省政府工作要求存在较大差距，形势严峻，务必高度重视、立即行动。
+
+会议对下一步重点任务作出部署。
 
 ## 相关推荐
 
-- 2026-06-30 03:51 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-30 03:33 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-30 03:51 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 03:54 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-30 03:43 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-30 03:37 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 03:32 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-30 03:33 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-30 03:35 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 03:42 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-30 03:32 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-30 03:33 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-30 03:55 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-30 03:37 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-30 03:50 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-30 03:56 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-30 03:43 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-30 04:02 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-30 03:51 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-30 04:03 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 03:38 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-30 03:46 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-30 03:40 - [日本进球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 04:02 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 03:41 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:53 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/503522420432.shtml)
-- 2026-06-30 03:42 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.kurohicncr.top/Article/details/1906279.shtml)
-- 2026-06-30 03:45 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/32272331799.shtml)
-- 2026-06-30 03:57 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/86998.shtml)
-- 2026-06-30 03:50 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/45019.shtml)
-- 2026-06-30 03:41 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/88537387.shtml)
-- 2026-06-30 03:59 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/0278689.shtml)
-- 2026-06-30 03:34 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/264494584359.shtml)
-- 2026-06-30 03:38 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/4797693510.shtml)
-- 2026-06-30 03:53 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/886523.shtml)
-- 2026-06-30 03:53 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/042833994452.shtml)
-- 2026-06-30 03:51 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/057277.shtml)
-- 2026-06-30 03:45 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/963983438424.shtml)
-- 2026-06-30 03:48 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/28749401243.shtml)
-- 2026-06-30 03:30 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/117236.shtml)
+- 2026-06-30 03:51 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/9196315.shtml)
+- 2026-06-30 04:03 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/40082980.shtml)
+- 2026-06-30 03:37 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/43326253.shtml)
+- 2026-06-30 03:56 - [巴西替补奇兵读秒绝杀](https://www.share.minike.top/Article/details/09993674.shtml)
+- 2026-06-30 04:00 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/34447531.shtml)
+- 2026-06-30 03:44 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/58508.shtml)
+- 2026-06-30 03:44 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/841274207.shtml)
+- 2026-06-30 04:05 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/657738628248.shtml)
+- 2026-06-30 03:49 - [巴西半场0比1日本](http://www.blog.minike.top/Article/details/80649099226.shtml)
+- 2026-06-30 03:45 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/66089.shtml)
+- 2026-06-30 04:01 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/02828.shtml)
+- 2026-06-30 03:47 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/840272485103.shtml)
+- 2026-06-30 03:57 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/7994155.shtml)
+- 2026-06-30 03:42 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/1444390532.shtml)
+- 2026-06-30 04:05 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/445913265.shtml)

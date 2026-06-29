@@ -1,61 +1,58 @@
-# 高途12年，陈向东以“顺天和人”穿越AI时代周期
+# 如何构建科技金融发展新路径？工商银行行长刘珺阐述现代经济新“三表”
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年5月22日，北京飞往深圳的航班上，高途集团（NYSE：GOTU）创始人、董事长兼CEO陈向东合上笔记本电脑，望向舷窗外厚重的云层。这是他熟悉的长途飞行节奏，处理完工作，漫长的航程的时间留给自己独处与思索。 就在这3个多小时里，一个他思考了许久的词汇忽然清晰地浮现在脑海，像是一道一直隐约可见、此刻终
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月18日金融一线消息，中国工商银行行长刘珺出席2026陆家嘴论坛，并参加主题为“健全科技金融全生命周期服务体系，服务实体经济高质量发展”的主题演讲。 刘珺首先对科技和金融作出定义：科技是第一生产力，人才是第一资源，金融是现代经济的血液，同时也是实体经济的血液。大家谈到科技金融，会发现它是多维度的概念，科技、教育、人
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月18日金融一线消息，中国工商银行行长刘珺出席2026陆家嘴论坛，并参加主题为“健全科技金融全生命周期服务体系，服务实体经济高质量发展”的主题演讲。
 
-2026年5月22日，北京飞往深圳的航班上，高途集团（NYSE：GOTU）创始人、董事长兼CEO陈向东合上笔记本电脑，望向舷窗外厚重的云层。
+刘珺首先对科技和金融作出定义：科技是第一生产力，人才是第一资源，金融是现代经济的血液，同时也是实体经济的血液。
 
-这是他熟悉的长途飞行节奏，处理完工作，漫长的航程的时间留给自己独处与思索。
+大家谈到科技金融，会发现它是多维度的概念，科技、教育、人才三位一体，同时金融又带着产业，“科技+金融+产业”三维叠加。
 
-就在这3个多小时里，一个他思考了许久的词汇忽然清晰地浮现在脑海，像是一道一直隐约可见、此刻终于显影的光——“顺天和人”。
+他进一步解释称，科技金融是特别复杂的系统化概念，现在看到科技金融的重要性是基于科技对当代全球经济增长和人类福祉提升的决定性意义，同时反观科技创新前沿发展也会发现，它正在不断逼近物理极限和工程极限，对资源投入的要求趋于极值化。
 
-更早之前，2025年9月他提出“本真心”，2026年2月提出“始善利人”，至此，三位一体的思想框架成型。
+金融服务和金融范式需要在边界进行定义，在极限进行思维，在集成解的基础上，向边界条件上寻求它的焦点解。
 
-“顺是顺应，顺应规律、常识、天道；和是让每一个人和和美美、激发善意与潜能，天人合一、高标准。
+“以前我们认为，科技创新基于某个前沿科技创新领域，对这个领域做一定程度的研究，适配一定金融服务，把它推而广之，现在不行，很多颠覆性科技技术在边界上进行定位，如果不能对边界做准确把握，科技金融服务一定不会特别到位。
 
-”陈向东做如此阐释。
+” 目前“经济”的定位和意涵发生了什么样的变化？
 
-三层心法：从本真心到顺天和人，构建企业精神底色 陈向东今年55岁，他说这个年龄让他明白了许多年轻时不懂的事情。
+刘珺提出四方面的变化：首先是资源配置的极致效率。
 
 ## 相关推荐
 
-- 2026-06-30 03:46 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-30 03:58 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-30 03:56 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-30 03:43 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-30 03:38 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-30 03:45 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-30 03:53 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-30 03:58 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 03:34 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-30 03:34 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-30 03:55 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-30 03:36 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 03:41 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-30 03:48 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-30 03:57 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-30 03:57 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-30 03:50 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-30 03:36 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-30 03:52 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-30 03:53 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-30 03:44 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-30 04:04 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-30 03:43 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-30 03:54 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 03:49 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-30 03:59 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-30 03:36 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:59 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/37920377486.shtml)
-- 2026-06-30 03:43 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/44042402950.shtml)
-- 2026-06-30 03:43 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/0648373602.shtml)
-- 2026-06-30 03:34 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/054204166749.shtml)
-- 2026-06-30 03:34 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/247728004.shtml)
-- 2026-06-30 03:57 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/771614117.shtml)
-- 2026-06-30 03:45 - [人类...完蛋了...](https://www.share.kurohicncr.top/Article/details/5162476.shtml)
-- 2026-06-30 03:40 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/26857362.shtml)
-- 2026-06-30 03:55 - [内马尔替补](https://www.blog.minike.top/Article/details/779007134.shtml)
-- 2026-06-30 03:46 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/505974695.shtml)
-- 2026-06-30 03:52 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/884743134505.shtml)
-- 2026-06-30 03:49 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/16034807.shtml)
-- 2026-06-30 03:34 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/308540.shtml)
-- 2026-06-30 03:45 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/4849597.shtml)
-- 2026-06-30 03:40 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/538845.shtml)
+- 2026-06-30 04:04 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/9006985.shtml)
+- 2026-06-30 03:55 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/42241.shtml)
+- 2026-06-30 03:47 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/053852.shtml)
+- 2026-06-30 03:58 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/041404650.shtml)
+- 2026-06-30 03:52 - [庆祝中国共产党成立105周年音乐会](https://www.blog.minike.top/Article/details/281763.shtml)
+- 2026-06-30 03:58 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/76220.shtml)
+- 2026-06-30 03:42 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/115710.shtml)
+- 2026-06-30 03:39 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/71414.shtml)
+- 2026-06-30 04:00 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/3814067832.shtml)
+- 2026-06-30 03:54 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/53344.shtml)
+- 2026-06-30 03:38 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/1406985.shtml)
+- 2026-06-30 03:49 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/135256463.shtml)
+- 2026-06-30 03:36 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/55873.shtml)
+- 2026-06-30 03:36 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/809799679.shtml)
+- 2026-06-30 04:04 - [起风了](https://www.blog.minike.top/Article/details/15222826563.shtml)

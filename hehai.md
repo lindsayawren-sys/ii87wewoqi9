@@ -1,60 +1,55 @@
-# 多地开启“暴雨模式”，如何正确避险
+# 本世纪以来全球最大规模莫兰迪展登陆上海
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-多地开启“暴雨模式”，如何正确避险(服务窗) 入汛以来，多地开启“暴雨模式”，短时强降雨、雷暴大风等强对流天气集中多发。汛期出行有哪些避险要点？如何应对暴雨引发的山体滑坡等次生灾害？小雨天气是否无需防范？针对暴雨天气中可能遇到的各类安全问题，我们为您准备了一份避险指南。 步行外出切勿盲目涉水 “汛期降雨突发性强、局地性明显、瞬时雨量大，极易导致城市内涝、路面积水、高空坠物等安全
+发布时间：2026年06月16日 22:59 来源：中国新闻网 作为本世纪以来全球最大规模的莫兰迪主题展览，6月16日由浦东美术馆与意大利博洛尼亚莫兰迪博物馆联合打造的国际大展“乔治·莫兰迪：独白”在上海浦东美术馆开幕。 乔治·莫兰迪(Giorgio Morandi)出生于意大利博洛尼亚，是20世纪最具影响力的艺术家之一。本次展览汇集来自全球各地30多家机构与收藏家的逾200件
 
 ## 正文
 
-多地开启“暴雨模式”，如何正确避险(服务窗) 入汛以来，多地开启“暴雨模式”，短时强降雨、雷暴大风等强对流天气集中多发。
+发布时间：2026年06月16日 22:59 来源：中国新闻网 作为本世纪以来全球最大规模的莫兰迪主题展览，6月16日由浦东美术馆与意大利博洛尼亚莫兰迪博物馆联合打造的国际大展“乔治·莫兰迪：独白”在上海浦东美术馆开幕。
 
-汛期出行有哪些避险要点？
+乔治·莫兰迪(Giorgio Morandi)出生于意大利博洛尼亚，是20世纪最具影响力的艺术家之一。
 
-如何应对暴雨引发的山体滑坡等次生灾害？
+本次展览汇集来自全球各地30多家机构与收藏家的逾200件展品，分为30余个细分叙事单元，梳理艺术家的创作语言如何在不同阶段的探索中凝练、转化并走向成熟。
 
-小雨天气是否无需防范？
+其中逾140件莫兰迪真迹涵盖油画、蚀刻版画、水彩、素描等多种媒介，超过120件作品系首次在中国亮相。
 
-针对暴雨天气中可能遇到的各类安全问题，我们为您准备了一份避险指南。
-
-步行外出切勿盲目涉水 “汛期降雨突发性强、局地性明显、瞬时雨量大，极易导致城市内涝、路面积水、高空坠物等安全隐患，稍有疏忽就可能引发人员被困、触电受伤等事故。
-
-”河北石家庄城区防汛办副主任范振龙说。
-
-范振龙提醒，汛期出行要遵循“遇雨不冒险、积水不盲行、高危不逗留、险情速撤离”的避险原则。
+(记者 康玉湛 王笈) 责任编辑：【曲克】
 
 ## 相关推荐
 
-- 2026-06-30 03:56 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-30 03:47 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-30 03:49 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-30 03:44 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-30 03:59 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-30 03:37 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-30 03:42 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-30 03:40 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-30 03:50 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-30 03:42 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-30 03:40 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-30 03:49 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-30 03:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-30 03:34 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 03:46 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-30 03:52 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-30 03:47 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-30 03:47 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-30 03:54 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-30 03:59 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-30 03:40 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 03:54 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-30 04:03 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-30 03:59 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 03:44 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 03:45 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-30 03:38 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-30 03:57 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-30 03:57 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:32 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/951228200260.shtml)
-- 2026-06-30 03:30 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/244320506512.shtml)
-- 2026-06-30 03:33 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/4609213.shtml)
-- 2026-06-30 03:59 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/3057515.shtml)
-- 2026-06-30 03:46 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/649820.shtml)
-- 2026-06-30 03:33 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/66143561.shtml)
-- 2026-06-30 03:45 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/094149838.shtml)
-- 2026-06-30 03:52 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/262868828.shtml)
-- 2026-06-30 03:36 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/158907.shtml)
-- 2026-06-30 03:41 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/963293.shtml)
-- 2026-06-30 03:48 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/490917607.shtml)
-- 2026-06-30 03:55 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/26846141.shtml)
-- 2026-06-30 03:37 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/43669.shtml)
-- 2026-06-30 03:58 - [月亮](http://www.blog.minike.top/Article/details/48522383.shtml)
-- 2026-06-30 03:57 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/191626.shtml)
+- 2026-06-30 03:59 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/86867.shtml)
+- 2026-06-30 03:49 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/9459426.shtml)
+- 2026-06-30 03:50 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/34873963.shtml)
+- 2026-06-30 03:48 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/97274650.shtml)
+- 2026-06-30 04:03 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/217710186.shtml)
+- 2026-06-30 03:38 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/0673800788.shtml)
+- 2026-06-30 03:43 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/2041537.shtml)
+- 2026-06-30 03:57 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/75367266789.shtml)
+- 2026-06-30 03:50 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/39731.shtml)
+- 2026-06-30 03:46 - [巴西绝杀](https://www.share.minike.top/Article/details/5575134914.shtml)
+- 2026-06-30 03:52 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/744473916.shtml)
+- 2026-06-30 03:58 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/350082449.shtml)
+- 2026-06-30 03:44 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/599311521447.shtml)
+- 2026-06-30 03:52 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/602160532898.shtml)
+- 2026-06-30 03:45 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/981865.shtml)

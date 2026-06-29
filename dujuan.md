@@ -1,58 +1,58 @@
-# 探访吉林舒兰原生野山参展馆：“参王”串起千年参脉
+# 中国发展历程具有重要启示意义——访几内亚总理阿马杜·乌里·巴
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-中新网吉林6月23日电 题：探访吉林舒兰原生野山参展馆：“参王”串起千年参脉 中新网记者 苍雁 石洪宇 仲夏时节，吉林省舒兰市上营镇群山环抱间，一座原生野山参展馆持续迎来中外游客。场馆采用赣派庭院融合东北民居设计，建筑与四周苍翠山林浑然相融。 走进展馆，“镇馆之宝”——一株千年野山参静静陈列于中央展柜，根须舒展、体态灵动。这株“参王”曾亮相长春国际医药健康产业博览会，吸引海内外
+新华社科纳克里6月17日电 高端访谈｜中国发展历程具有重要启示意义——访几内亚总理阿马杜·乌里·巴 新华社记者张健 曾涛 刘琼 几内亚总理阿马杜·乌里·巴日前接受新华社记者专访时说，中国在相对较短的时间内实现跨越式发展的成功实践，对几内亚等发展中国家具有重要启示意义，“几内亚正在借鉴中国的发展经验”。 阿马杜·乌里·巴说，中国的发展历程证明，发展中国家完全可以通过自身努力实现跨
 
 ## 正文
 
-中新网吉林6月23日电 题：探访吉林舒兰原生野山参展馆：“参王”串起千年参脉 中新网记者 苍雁 石洪宇 仲夏时节，吉林省舒兰市上营镇群山环抱间，一座原生野山参展馆持续迎来中外游客。
+新华社科纳克里6月17日电 高端访谈｜中国发展历程具有重要启示意义——访几内亚总理阿马杜·乌里·巴 新华社记者张健 曾涛 刘琼 几内亚总理阿马杜·乌里·巴日前接受新华社记者专访时说，中国在相对较短的时间内实现跨越式发展的成功实践，对几内亚等发展中国家具有重要启示意义，“几内亚正在借鉴中国的发展经验”。
 
-场馆采用赣派庭院融合东北民居设计，建筑与四周苍翠山林浑然相融。
+阿马杜·乌里·巴说，中国的发展历程证明，发展中国家完全可以通过自身努力实现跨越式发展。
 
-走进展馆，“镇馆之宝”——一株千年野山参静静陈列于中央展柜，根须舒展、体态灵动。
+在他看来，中国的发展经验之所以具有重要意义，在于它向广大发展中国家证明了一条切实可行的发展道路。
 
-这株“参王”曾亮相长春国际医药健康产业博览会，吸引海内外客商关注。
+中国始终是几内亚学习借鉴的重要对象。
 
-以这株镇馆“参王”为线索，整座展馆完整铺展绵延千年的人参文脉。
+回顾两国关系的发展，阿马杜·乌里·巴表示，1959年两国建交以来，双方开展务实合作，形成长期稳定的友好关系。
 
-漫步展厅，一条清晰的时间轴徐徐铺展，完整呈现人参文化脉络：从神农传说、清代贡山疆域图，到传统放山工具、现代精深加工工艺。
+这是6月2日在几内亚皮塔省拍摄的金康水电站(无人机照片)。
 
-这座藏于群山之间的特色文博场馆，完整还原舒兰野山参的“前世今生”。
+新华社记者 刘琼 摄 在众多合作成果中，他特别提到今年迎来交付60周年的金康水电站。
 
-展馆不仅系统梳理舒兰人参千年历史脉络，更清晰标注出舒兰在吉林人参产业版图中的独特区位优势。
+“这座水电站就建在我的家乡皮塔省。
 
 ## 相关推荐
 
-- 2026-06-30 03:31 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-30 03:31 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-30 03:35 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-30 03:49 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-30 03:45 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-30 03:51 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 03:39 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-30 03:52 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-30 03:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-30 03:57 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-30 03:34 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-30 03:38 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-30 03:42 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-30 03:38 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-30 04:00 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-30 03:46 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-30 03:39 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-30 03:38 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-30 04:02 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-30 03:36 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-30 03:59 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-30 03:49 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 03:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-30 03:44 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:46 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/28477575.shtml)
-- 2026-06-30 03:45 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/405757533.shtml)
-- 2026-06-30 03:58 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/9855438.shtml)
-- 2026-06-30 03:54 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/909651.shtml)
-- 2026-06-30 03:58 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/23329678.shtml)
-- 2026-06-30 03:41 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/077200876.shtml)
-- 2026-06-30 03:45 - [亚洲球队全部告别世界杯](http://www.blog.kurohicncr.top/Article/details/42843.shtml)
-- 2026-06-30 03:54 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/50182318.shtml)
-- 2026-06-30 03:44 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/27022.shtml)
-- 2026-06-30 03:31 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/50528870854.shtml)
-- 2026-06-30 03:50 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/54671405.shtml)
-- 2026-06-30 03:38 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/6584403257.shtml)
-- 2026-06-30 03:34 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/5626496197.shtml)
-- 2026-06-30 03:30 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/5353150778.shtml)
-- 2026-06-30 03:32 - [天道](http://www.share.kurohicncr.top/Article/details/8169804820.shtml)
+- 2026-06-30 03:47 - [2026MSI应援曲《如果季中成回忆》](http://www.share.kurohicncr.top/Article/details/6565994012.shtml)
+- 2026-06-30 03:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/036045.shtml)
+- 2026-06-30 03:38 - [巴西扳平比分](http://www.share.kurohicncr.top/Article/details/585623222674.shtml)
+- 2026-06-30 03:41 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/59836.shtml)
+- 2026-06-30 03:37 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/17544429133.shtml)
+- 2026-06-30 03:50 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/8484726860.shtml)
+- 2026-06-30 03:54 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/488103127.shtml)
+- 2026-06-30 03:50 - [85花告别古偶](http://www.blog.minike.top/Article/details/94567750.shtml)
+- 2026-06-30 04:02 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/11233315.shtml)
+- 2026-06-30 04:02 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/53867.shtml)
+- 2026-06-30 04:02 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/7832837.shtml)
+- 2026-06-30 03:39 - [《共患难》](http://www.share.kurohicncr.top/Article/details/070231.shtml)
+- 2026-06-30 03:54 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/9092406.shtml)
+- 2026-06-30 03:52 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/389838728802.shtml)
+- 2026-06-30 03:52 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/31459456024.shtml)

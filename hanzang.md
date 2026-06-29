@@ -1,57 +1,60 @@
-# 中央气象台：全国夏收夏种气象服务（2026年06月23日）
+# 重庆碳市场交易主体超1200户 累计成交额达13.42亿元
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-来源：中央气象台网站 6月24-25日甘肃山西等地有小到中雨需注意避雨夏播 摘要：预计6月24-25日，甘肃东部有小到中雨，夏种气象等级为次适宜到不适宜，山西中部有小雨，夏种气象等级为次适宜；26日，夏种区大部天气晴好，气象条件适宜夏种。建议甘肃、山西等地避开降雨时段，待天气转晴后及时趁墒播种，已播地区应做好查苗补苗，确保苗齐、苗匀。 一、夏收夏种进展 截至6月22日，全国冬小
+中新网重庆6月17日电 (梁钦卿)重庆市17日开展2026年全国低碳日活动。重庆市生态环境局对外公布，重庆碳市场交易主体超1200户，累计成交约5533万吨、13.42亿元。 重庆作为西部地区唯一纳入地方碳市场试点和出资参与全国碳市场联建的省市，稳步推进碳市场建设。五年来，重庆已形成由碳排放权交易管理办法以及配额管理、核查、交易、自愿减排等细则为核心的“1+4+N”制度体系，建
 
 ## 正文
 
-来源：中央气象台网站 6月24-25日甘肃山西等地有小到中雨需注意避雨夏播 摘要：预计6月24-25日，甘肃东部有小到中雨，夏种气象等级为次适宜到不适宜，山西中部有小雨，夏种气象等级为次适宜；26日，夏种区大部天气晴好，气象条件适宜夏种。
+中新网重庆6月17日电 (梁钦卿)重庆市17日开展2026年全国低碳日活动。
 
-建议甘肃、山西等地避开降雨时段，待天气转晴后及时趁墒播种，已播地区应做好查苗补苗，确保苗齐、苗匀。
+重庆市生态环境局对外公布，重庆碳市场交易主体超1200户，累计成交约5533万吨、13.42亿元。
 
-一、夏收夏种进展 截至6月22日，全国冬小麦大规模机收已基本结束；河南夏种已完成，山东、河北、陕西夏种过9成，安徽、江苏过8成。
+重庆作为西部地区唯一纳入地方碳市场试点和出资参与全国碳市场联建的省市，稳步推进碳市场建设。
 
-二、6月24日-6月26日夏种天气展望 预计6月24-25日，甘肃东部有小到中雨，夏种气象等级为次适宜到不适宜；山西中部有小雨，夏种气象等级为次适宜；其余夏种区以晴好天气为主，夏种气象等级为适宜（图1）。
+五年来，重庆已形成由碳排放权交易管理办法以及配额管理、核查、交易、自愿减排等细则为核心的“1+4+N”制度体系，建成履行强制减排责任的地方碳排放权交易市场和激励社会自主减排的地方自愿减排交易市场的完整市场体系。
 
-预计6月26日，夏种区大部天气晴好，夏种气象等级为适宜（图2）。
+重庆市纳入管控工业企业由152家增加至379家，碳排放量门槛由2万吨/年下调为1.3万吨/年，管控二氧化碳、氧化亚氮、甲烷等七种主要温室气体，成为全国唯一管控七种主要温室气体的地方碳市场。
 
-三、农业生产建议 已完成夏收的地区应注意做好小麦晾晒和通风存储工作，确保颗粒归仓。
+“十四五”时期，重庆碳市场价格由14.6元/吨增长至36元/吨，年交易天数增长近一倍。
 
-甘肃、山西等受降雨影响的地区，需避开降雨时段，待天气转晴后及时趁墒夏播；已完成夏播地区应及时查苗补苗，确保苗齐、苗匀。
+企业低碳发展意识不断增强，碳排放履约率提升到99.7%。
 
-责任编辑：李铁民
+造纸、陶瓷、食品等行业碳排放总量均实现不同程度下降，碳市场有力推动企业绿色转型。
 
 ## 相关推荐
 
-- 2026-06-30 03:42 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-30 03:30 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-30 03:39 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 03:32 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-30 03:30 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-30 03:51 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-30 03:44 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-30 03:31 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-30 03:56 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-30 03:44 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-30 03:38 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 04:00 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-30 03:53 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-30 03:54 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-30 03:48 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-30 03:47 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-30 03:52 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-30 03:44 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 03:42 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-30 03:49 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 03:58 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 03:52 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-30 03:59 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-30 03:55 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 04:05 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:46 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/070171.shtml)
-- 2026-06-30 03:36 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/825085162168.shtml)
-- 2026-06-30 03:37 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/588293.shtml)
-- 2026-06-30 03:52 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/81698717418.shtml)
-- 2026-06-30 03:42 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/47962.shtml)
-- 2026-06-30 03:59 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/232151950.shtml)
-- 2026-06-30 03:49 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/98094.shtml)
-- 2026-06-30 03:52 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/095255362.shtml)
-- 2026-06-30 03:45 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/10002065563.shtml)
-- 2026-06-30 03:44 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/0362814.shtml)
-- 2026-06-30 03:36 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/781022785.shtml)
-- 2026-06-30 03:58 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/701509.shtml)
-- 2026-06-30 03:41 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/407687007.shtml)
-- 2026-06-30 03:47 - [女子发现孩子非现任亲生起诉前任](http://www.blog.kurohicncr.top/Article/details/825155.shtml)
-- 2026-06-30 03:46 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/15379404954.shtml)
+- 2026-06-30 04:00 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/807247921.shtml)
+- 2026-06-30 03:38 - [上半年全国特种设备安全形势总体平稳](https://www.share.minike.top/Article/details/9335762.shtml)
+- 2026-06-30 04:03 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/979098.shtml)
+- 2026-06-30 03:39 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/5685550593.shtml)
+- 2026-06-30 04:04 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/04851.shtml)
+- 2026-06-30 03:40 - [乔家的儿女](https://www.blog.minike.top/Article/details/17566652884.shtml)
+- 2026-06-30 03:40 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/999591.shtml)
+- 2026-06-30 03:37 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/835714.shtml)
+- 2026-06-30 03:39 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/60802.shtml)
+- 2026-06-30 03:59 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/782885770.shtml)
+- 2026-06-30 03:44 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/200383059348.shtml)
+- 2026-06-30 03:57 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/681797947267.shtml)
+- 2026-06-30 03:36 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/934730930.shtml)
+- 2026-06-30 03:50 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/990251899422.shtml)
+- 2026-06-30 04:05 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/016541906.shtml)

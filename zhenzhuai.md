@@ -1,59 +1,56 @@
-# 龙宇股份（603003）股民索赔案已再次开庭，并再提交立案，前期已有胜诉
+# 铁矿石延续探底走势
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-6月18日、22日，上海久诚律师事务所股票索赔律师许峰代理的龙宇股份（603003）虚假陈述投资者索赔案再次向上海金融法院提交两次立案。2026年6月22日，部分案件也已在上海金融法院开庭审理。（许峰律师专栏） 此前2026年5月29日，许峰律师代理的龙宇股份投资者索赔案收到投资者一审胜诉判决，目前进入二审。 许峰律师提示，部分投资者诉龙宇股份虚假陈述索赔案已有判决结果，已有投
+正信期研社 今日，铁矿石期货价格再度下探阶段新低，市场悲观情绪持续弥漫。究其根本，本轮下跌的核心驱动力源自宏观经济数据的显著走弱与供需格局的边际宽松。昨日国家统计局发布的5月消费、固定资产投资等重磅经济数据全面低于预期，犹如一盆冷水浇灭市场信心；叠加铁矿石自身供应回升、需求乏力、库存累积的利空共振，空头逻辑愈发坚实。短期来看，若无超预期政策刺激或需求回暖，铁矿价格大概率延续弱势
 
 ## 正文
 
-6月18日、22日，上海久诚律师事务所股票索赔律师许峰代理的龙宇股份（603003）虚假陈述投资者索赔案再次向上海金融法院提交两次立案。
+正信期研社 今日，铁矿石期货价格再度下探阶段新低，市场悲观情绪持续弥漫。
 
-2026年6月22日，部分案件也已在上海金融法院开庭审理。
+究其根本，本轮下跌的核心驱动力源自宏观经济数据的显著走弱与供需格局的边际宽松。
 
-（许峰律师专栏） 此前2026年5月29日，许峰律师代理的龙宇股份投资者索赔案收到投资者一审胜诉判决，目前进入二审。
+昨日国家统计局发布的5月消费、固定资产投资等重磅经济数据全面低于预期，犹如一盆冷水浇灭市场信心；叠加铁矿石自身供应回升、需求乏力、库存累积的利空共振，空头逻辑愈发坚实。
 
-许峰律师提示，部分投资者诉龙宇股份虚假陈述索赔案已有判决结果，已有投资者获得两审胜诉判决。
+短期来看，若无超预期政策刺激或需求回暖，铁矿价格大概率延续弱势探底走势。
 
-需要提示的是，目前该案还在索赔诉讼时效内，符合条件的投资者还可发起索赔，律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+我有一个交流圈子，每日会推荐热点品种策略，和大家交流交易心得，有兴趣的朋友可以点击小程序或者下面评论区留言获取点击这里给我留言 宏观数据“不及格”，成材需求预期崩塌，铁矿首当其冲。
 
-2025年11月7日，龙宇股份公告收到证监会《行政处罚决定书》，经查明，龙宇股份违法事实如下： 一、2019年、2020年、2021年、2022年年度报告虚增营业收入、利润。
+6月16日公布的经济数据中，1-5月固定资产投资同比下降4.1%，降幅较前月显著扩大，远超市场预期。
 
-二、未按规定披露非经营性资金占用相关关联交易事项。
+基建与地产作为钢铁产业链的核心下游，投资增速的疲软直接映射为终端用钢需求的萎靡。
 
-专门从事股票索赔法律事务的上海久诚律师事务所主任许峰律师认为，根据前期投资者胜诉判决，在2020年4月28日到2024年4月30日之间买入龙宇股份股票，并且在2024年4月30日后卖出或继续持有股票的投资者，目前还可发起索赔。
+与此同时，5月社零总额同比下滑，消费复苏动能不足，进一步削弱了汽车、家电等制造业对钢材的采购需求。
 
 ## 相关推荐
 
-- 2026-06-30 03:50 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-30 03:51 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-30 03:44 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 03:43 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-30 03:34 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-30 03:49 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-30 03:50 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-30 03:37 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-30 03:51 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 03:41 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-30 03:47 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-30 03:37 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-30 03:45 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-30 03:58 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-30 03:38 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 03:47 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-30 03:42 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 03:36 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-30 03:49 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-30 04:03 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-30 03:59 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-30 04:01 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-30 03:52 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:47 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/626727328.shtml)
-- 2026-06-30 03:49 - [一见倾心](https://www.blog.minike.top/Article/details/447163.shtml)
-- 2026-06-30 03:56 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/08764683.shtml)
-- 2026-06-30 03:37 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/862100662.shtml)
-- 2026-06-30 03:44 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/613182.shtml)
-- 2026-06-30 03:35 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/46689015529.shtml)
-- 2026-06-30 03:49 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/96779703.shtml)
-- 2026-06-30 03:54 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/8516311627.shtml)
-- 2026-06-30 03:47 - [《共患难》](http://www.share.minike.top/Article/details/0356872.shtml)
-- 2026-06-30 03:46 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/09314.shtml)
-- 2026-06-30 03:46 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/4984657225.shtml)
-- 2026-06-30 03:30 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/98426.shtml)
-- 2026-06-30 03:31 - [起风了](https://www.share.kurohicncr.top/Article/details/500165.shtml)
-- 2026-06-30 03:59 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.minike.top/Article/details/838309.shtml)
-- 2026-06-30 03:59 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/768808.shtml)
+- 2026-06-30 03:52 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/9840186782.shtml)
+- 2026-06-30 03:39 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/12385087.shtml)
+- 2026-06-30 03:45 - [月亮](http://www.share.kurohicncr.top/Article/details/47370974.shtml)
+- 2026-06-30 03:37 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/89404.shtml)
+- 2026-06-30 03:55 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/131862664518.shtml)
+- 2026-06-30 03:42 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/8262329312.shtml)
+- 2026-06-30 03:54 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/773865.shtml)
+- 2026-06-30 03:43 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/68911749.shtml)
+- 2026-06-30 03:41 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/0621485175.shtml)
+- 2026-06-30 03:38 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/28880510309.shtml)
+- 2026-06-30 04:03 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/463379.shtml)
+- 2026-06-30 04:00 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/72781834272.shtml)
+- 2026-06-30 03:58 - [蔚来车主罚站](https://www.share.minike.top/Article/details/56589.shtml)
+- 2026-06-30 03:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/90722.shtml)
+- 2026-06-30 03:59 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/210520966357.shtml)

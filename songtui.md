@@ -1,57 +1,59 @@
-# 福建仙游创建木兰溪源国家级自然保护区 以生态优势赋能绿色发展
+# 五省区联手 科研创新推动冬虫夏草产业发展
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-中新网莆田6月23日电(郑志忠)近日，木兰溪源自然保护区申报国家级自然保护区通过省级评审会，标志着福建省莆田市仙游县的创建工作取得关键性突破。这片总面积18485.20公顷的绿色宝库，即将迈入更高层级的保护与发展新阶段。 福建“五江一溪”之一的木兰溪发源于县域面积1841平方公里、呈现“七山一水二分田”格局的仙游。近年来，仙游县成立由县委、县政府主要领导任“双组长”的创建工作领
+中新网青海玉树6月16日电 (记者 孙睿)6月16日，青海、四川、甘肃、云南、西藏五省区冬虫夏草资源保护与产业发展座谈会在青海玉树召开。五省区林草部门聚焦冬虫夏草资源保护、科研创新与产业发展展开交流。 冬虫夏草是青藏高原及其周边地区特有珍稀物种资源。中国青海、四川、云南、甘肃、西藏五省区冬虫夏草产量占全球总产量的98%以上。 记者梳理发现，科技创新成为冬虫夏草产业发展亮点。西藏
 
 ## 正文
 
-中新网莆田6月23日电(郑志忠)近日，木兰溪源自然保护区申报国家级自然保护区通过省级评审会，标志着福建省莆田市仙游县的创建工作取得关键性突破。
+中新网青海玉树6月16日电 (记者 孙睿)6月16日，青海、四川、甘肃、云南、西藏五省区冬虫夏草资源保护与产业发展座谈会在青海玉树召开。
 
-这片总面积18485.20公顷的绿色宝库，即将迈入更高层级的保护与发展新阶段。
+五省区林草部门聚焦冬虫夏草资源保护、科研创新与产业发展展开交流。
 
-福建“五江一溪”之一的木兰溪发源于县域面积1841平方公里、呈现“七山一水二分田”格局的仙游。
+冬虫夏草是青藏高原及其周边地区特有珍稀物种资源。
 
-近年来，仙游县成立由县委、县政府主要领导任“双组长”的创建工作领导小组，将生态保护“责任田”落实到每个部门和乡镇。
+中国青海、四川、云南、甘肃、西藏五省区冬虫夏草产量占全球总产量的98%以上。
 
-在木兰溪上中游，当地全面推开“县级主导、镇街主责、村居主体、群众参与、规范运维”的农村污水治理新模式。
+记者梳理发现，科技创新成为冬虫夏草产业发展亮点。
 
-木兰溪源头所在的西苑乡打造“源党建”模式，整合7支队伍力量，组建2支常态化巡防队、12支志愿者护河队、18支巾帼护河队，吸纳志愿者300余人。
+西藏开展种质研究，研发便携式智能鉴别设备，30秒即可完成无损检测；云南深耕成分研究，为产品品质把控提供科学依据；四川依托科研平台完成仿野生栽培等关键技术攻关。
 
-目前，木兰溪主要流域国省控断面水质优良率常年保持100%，Ⅰ-Ⅱ类水质比例稳中有升，重要水功能区水质达标率100%。
+据了解，五省区均严守生态保护底线，实施精细化采挖管控。
 
-除水质改善外，仙游协同推进大气、土壤与海洋污染治理。
+青海完成全域资源摸排，合理控制采挖规模，落实生态修复举措；四川分析基因并建立标本数据库，严控采集量；甘肃严管本地资源，持续打击非法交易。
 
 ## 相关推荐
 
-- 2026-06-30 03:39 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-30 03:52 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-30 03:46 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 03:58 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-30 03:35 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-30 03:34 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-30 03:56 - [张凌赫 客串](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-30 03:52 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-30 03:41 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-30 03:50 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-30 03:44 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-30 04:01 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-30 03:40 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-30 03:46 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-30 03:36 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-30 03:53 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-30 03:57 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-30 03:48 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-30 04:00 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-30 03:41 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-30 03:40 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-30 03:46 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-30 03:41 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-30 03:39 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:37 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/3111545.shtml)
-- 2026-06-30 03:38 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/205736.shtml)
-- 2026-06-30 03:30 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/051682016593.shtml)
-- 2026-06-30 03:57 - [我们的少年时代2](http://www.share.minike.top/Article/details/44250.shtml)
-- 2026-06-30 03:57 - [月亮](http://www.share.minike.top/Article/details/497187770197.shtml)
-- 2026-06-30 03:52 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/750656128.shtml)
-- 2026-06-30 03:48 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/460578817.shtml)
-- 2026-06-30 03:43 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/76844.shtml)
-- 2026-06-30 03:50 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/419576818.shtml)
-- 2026-06-30 03:46 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/60282.shtml)
-- 2026-06-30 03:36 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/6445409896.shtml)
-- 2026-06-30 03:31 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/8368125408.shtml)
-- 2026-06-30 03:49 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/5257997.shtml)
-- 2026-06-30 03:55 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/29070637903.shtml)
-- 2026-06-30 03:33 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/7731669441.shtml)
+- 2026-06-30 03:56 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/52364835025.shtml)
+- 2026-06-30 04:04 - [毒液2](http://www.share.kurohicncr.top/Article/details/940148.shtml)
+- 2026-06-30 04:04 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/7769185.shtml)
+- 2026-06-30 04:05 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/92742335352.shtml)
+- 2026-06-30 03:41 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/0536509497.shtml)
+- 2026-06-30 03:44 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/07730228.shtml)
+- 2026-06-30 03:42 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/932146688093.shtml)
+- 2026-06-30 03:57 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/370092397.shtml)
+- 2026-06-30 04:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/036090219.shtml)
+- 2026-06-30 03:36 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/743797706.shtml)
+- 2026-06-30 03:57 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/80358.shtml)
+- 2026-06-30 03:39 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/86128.shtml)
+- 2026-06-30 04:01 - [急先锋](http://www.blog.kurohicncr.top/Article/details/68841569.shtml)
+- 2026-06-30 04:05 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/47533.shtml)
+- 2026-06-30 03:54 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/74852197959.shtml)

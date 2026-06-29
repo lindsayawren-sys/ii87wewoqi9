@@ -1,58 +1,59 @@
-# 德意志银行下调黄金价格预期 最大下调幅度达22%
+# 主动ETF，来了！沪深交易所发布→
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-德意志银行大幅下调黄金价格预测，最大下调幅度22%。当前投资者对美国货币政策前景愈发谨慎，黄金的投资需求持续萎缩。 该行分析师 Michael Hsueh在研报中表示，三季度黄金价格预期下调至每盎司4300美元，较此前预测下调逾两成；四季度目标价下调至每盎司4800美元，下调幅度17%。修正后的两项价格目标仍高于当前约4140美元的金价，但看涨力度较此前显著减弱。 德意志银行此
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月17日，中国证监会主席吴清在陆家嘴论坛宣布支持在交易所推出主动ETF。同日，沪深交易所发布关于主动管理交易型开放式证券投资基金业务指引（简称《指引》）。这是落实中国证监会《推动公募基金高质量发展行动方案》关于“推动权益类基金产品创新发展”的务实举措，有助
 
 ## 正文
 
-德意志银行大幅下调黄金价格预测，最大下调幅度22%。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-当前投资者对美国货币政策前景愈发谨慎，黄金的投资需求持续萎缩。
+6月17日，中国证监会主席吴清在陆家嘴论坛宣布支持在交易所推出主动ETF。
 
-该行分析师 Michael Hsueh在研报中表示，三季度黄金价格预期下调至每盎司4300美元，较此前预测下调逾两成；四季度目标价下调至每盎司4800美元，下调幅度17%。
+同日，沪深交易所发布关于主动管理交易型开放式证券投资基金业务指引（简称《指引》）。
 
-修正后的两项价格目标仍高于当前约4140美元的金价，但看涨力度较此前显著减弱。
+这是落实中国证监会《推动公募基金高质量发展行动方案》关于“推动权益类基金产品创新发展”的务实举措，有助于更好满足中长期资金配置与投资者多样化财富管理需求，促进公募基金行业差异化发展。
 
-德意志银行此番悲观预期，与高盛上周的调整步调一致。
+主动管理交易型开放式基金（简称主动ETF），是指基金管理人自主选择投资策略、不以跟踪特定指数为投资目标，并在沪深交易所上市交易的ETF。
 
-高盛将年末金价预测下调500美元至4900美元/盎司，核心逻辑是该行判断美联储今年不会降息。
+主动ETF融合了主动管理的专业投研能力与ETF的标准化运作优势，具备持仓透明、交易便捷等特点。
 
-责任编辑：王永生
+发展主动ETF适应我国资本市场高质量发展阶段，有助于服务居民财富管理需求和赋能公募基金高质量发展，对于增强权益投资吸引力，强化资本市场功能升级，吸引中长期资金入市等具有积极意义。
+
+《指引》围绕主动ETF的特点，主要对主动ETF命名规则、管理人及基金经理资质、产品投资运作、信息披露、风险防范等方面进行规范。
 
 ## 相关推荐
 
-- 2026-06-30 03:42 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-30 03:36 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-30 03:36 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-30 03:49 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-30 03:33 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-30 03:53 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-30 03:40 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-30 03:51 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-30 03:43 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-30 03:33 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-30 03:42 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-30 03:40 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 03:53 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-30 03:37 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-30 04:04 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-30 03:41 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-30 03:38 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-30 03:55 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-30 04:00 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 03:39 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-30 04:01 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-30 03:48 - [日本16强魔咒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-30 03:57 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-30 04:03 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-30 03:41 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-30 03:57 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 04:01 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:54 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/11012372.shtml)
-- 2026-06-30 03:37 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/1095817362.shtml)
-- 2026-06-30 03:50 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/79563.shtml)
-- 2026-06-30 03:45 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/13971.shtml)
-- 2026-06-30 03:37 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/804342.shtml)
-- 2026-06-30 03:52 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/381955.shtml)
-- 2026-06-30 03:51 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/9531810213.shtml)
-- 2026-06-30 03:48 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/07297298696.shtml)
-- 2026-06-30 03:42 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/800957923675.shtml)
-- 2026-06-30 03:51 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/02414426929.shtml)
-- 2026-06-30 03:54 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/0494825041.shtml)
-- 2026-06-30 03:39 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/197554.shtml)
-- 2026-06-30 03:33 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/7133156808.shtml)
-- 2026-06-30 03:55 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/11871841.shtml)
-- 2026-06-30 03:47 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/598429751.shtml)
+- 2026-06-30 03:53 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/69309053365.shtml)
+- 2026-06-30 03:50 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/9522120.shtml)
+- 2026-06-30 03:52 - [内马尔替补](http://www.blog.minike.top/Article/details/844257660018.shtml)
+- 2026-06-30 03:58 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/163141695077.shtml)
+- 2026-06-30 03:37 - [德约科维奇向温网对手放狠话](https://www.blog.minike.top/Article/details/638240497388.shtml)
+- 2026-06-30 03:42 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/9867840272.shtml)
+- 2026-06-30 03:46 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/28429464.shtml)
+- 2026-06-30 04:04 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/87550.shtml)
+- 2026-06-30 03:49 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/7216003408.shtml)
+- 2026-06-30 04:01 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/847799738158.shtml)
+- 2026-06-30 03:39 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/14500648577.shtml)
+- 2026-06-30 03:44 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/2453331165.shtml)
+- 2026-06-30 03:54 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/23848.shtml)
+- 2026-06-30 03:47 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/330213240674.shtml)
+- 2026-06-30 03:54 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/51965859511.shtml)

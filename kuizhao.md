@@ -1,61 +1,56 @@
-# “东北超”：以球迷专列带动观赛研学跨城互动
+# 封关半年看海南：交出高质量开局答卷
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-中新网沈阳6月24日电 (记者 韩宏)记者24日从辽宁省文体旅产业发展集团获悉，辽宁打造“大东副食号”球迷专列，不仅搭建起城市间的足球纽带，更进一步凝聚辽宁足球力量，助力东北足球文化持续蓬勃发展。 日前，备受瞩目的“东北超”足球联赛辽宁德比大战打响，大连队坐镇主场迎战沈阳队。“大东副食号”球迷专列再度开行，满载近400名球迷从沈阳出发奔赴赛场，以列车为欢乐主场，提前点燃德比之战
+中新网海口6月17日电 (记者 王子谦)自2025年12月18日海南自贸港正式启动全岛封关已近半年。 中共海南省委深改办(自贸港工委办)副主任王奉利17日表示，半年来海南自贸港整体呈现“一线”便利高效，“二线”顺畅有序、政策红利持续释放、市场活力加速迸发、产业发展成型起势、风险防控坚实有力的良好态势，全岛封关运作实现高质量开局。 王奉利当日在海南自由贸易港封关半年新闻发布会上表
 
 ## 正文
 
-中新网沈阳6月24日电 (记者 韩宏)记者24日从辽宁省文体旅产业发展集团获悉，辽宁打造“大东副食号”球迷专列，不仅搭建起城市间的足球纽带，更进一步凝聚辽宁足球力量，助力东北足球文化持续蓬勃发展。
+中新网海口6月17日电 (记者 王子谦)自2025年12月18日海南自贸港正式启动全岛封关已近半年。
 
-日前，备受瞩目的“东北超”足球联赛辽宁德比大战打响，大连队坐镇主场迎战沈阳队。
+中共海南省委深改办(自贸港工委办)副主任王奉利17日表示，半年来海南自贸港整体呈现“一线”便利高效，“二线”顺畅有序、政策红利持续释放、市场活力加速迸发、产业发展成型起势、风险防控坚实有力的良好态势，全岛封关运作实现高质量开局。
 
-“大东副食号”球迷专列再度开行，满载近400名球迷从沈阳出发奔赴赛场，以列车为欢乐主场，提前点燃德比之战的火热激情。
+王奉利当日在海南自由贸易港封关半年新闻发布会上表示，封关半年来成效初步显现，主要体现在四个方面： “快”——政策红利加速释放 海南封关后，进口货物“零关税”、加工增值免关税、禁限清单等封关核心政策全面实施，享惠主体快速扩容，实际业务保持稳定增长。
 
-据介绍，“大东副食号”球迷专列阵容丰富多元，乘客群体涵盖朝气蓬勃的小记者团、求知探索的研学团，以及来自沈阳、抚顺和鞍山的铁杆球迷。
+统计数据显示，封关以来截至2026年5月31日，“零关税”政策进口货物26.45亿元、同比增长1.2倍，减免税款4.4亿元、增长74.1%；加工增值免关税政策内销货值5.8亿元，减免关税3024.6万元，保税上下游加工增值累计享惠、岛内自产货物纳入增值部分等优化政策全面落地。
 
-不同年龄、不同地域的足球爱好者因热爱相聚一堂，整趟列车里处处洋溢着欢声笑语与足球情怀，大家怀揣着期待，共同奔赴这场备受关注的辽宁足坛巅峰对决。
+禁限清单项下“两头在外”保税维修、取消进口许可证管理业务完成17票，货值701.2万元。
 
-其中，“东北超”小记者团，搭乘“大东副食号”东北超球迷专列开启“观赛+研学+交流”实践之旅。
+离岛免税新政落地，离岛免税销售金额203.4亿元，同比增长20.5%。
 
-来自沈阳各中小学的小记者，以少年视角记录“东北超”，在文旅体融合中收获成长，更搭建起苏辽联动、辽沈双城交流的桥梁。
+王奉利表示，半年来，封关运作的制度供给正加速推动海南产业发展从“规模积累”迈向“质量跃升”，自贸港顶层设计稳步转化为实实在在的发展成果。
 
-“大东副食号”专列作为东北超赛事专属流动主场，车厢内布满赛事助威标语、足球文创，氛围感拉满。
+“畅”——要素流动便捷高效 封关后，人员、货物、物品、运输工具等要素高效便捷进出海南。
 
 ## 相关推荐
 
-- 2026-06-30 03:40 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-30 03:38 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 03:58 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-30 03:57 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-30 03:33 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-30 03:44 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-30 03:48 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-30 03:32 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-30 03:33 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 03:58 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-30 03:44 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-30 03:50 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-30 03:54 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-30 03:32 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-30 03:39 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-30 03:55 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-30 03:38 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 03:49 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-30 03:50 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-30 03:55 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-30 03:42 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-30 04:05 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 03:36 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 04:05 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-30 03:49 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:35 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/049467649.shtml)
-- 2026-06-30 03:43 - [巴西扳平比分](http://www.blog.minike.top/Article/details/6702169153.shtml)
-- 2026-06-30 03:43 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/769941200.shtml)
-- 2026-06-30 03:55 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/405437998.shtml)
-- 2026-06-30 03:50 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/39175.shtml)
-- 2026-06-30 03:36 - [青春环游记第三季](https://www.share.minike.top/Article/details/098538366847.shtml)
-- 2026-06-30 03:46 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/23909.shtml)
-- 2026-06-30 03:38 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/05806882.shtml)
-- 2026-06-30 03:58 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/759974644304.shtml)
-- 2026-06-30 03:42 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/5882306808.shtml)
-- 2026-06-30 03:39 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/3803399.shtml)
-- 2026-06-30 03:45 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/3607833.shtml)
-- 2026-06-30 03:53 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/41783.shtml)
-- 2026-06-30 03:32 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/977124.shtml)
-- 2026-06-30 03:53 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/923914.shtml)
+- 2026-06-30 03:43 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/57597340058.shtml)
+- 2026-06-30 03:42 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/12634370.shtml)
+- 2026-06-30 03:45 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/4622694683.shtml)
+- 2026-06-30 03:58 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/8356613555.shtml)
+- 2026-06-30 03:58 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/827644145083.shtml)
+- 2026-06-30 03:48 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/2900906.shtml)
+- 2026-06-30 04:05 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/64424.shtml)
+- 2026-06-30 03:54 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/040301090794.shtml)
+- 2026-06-30 03:54 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/3161930601.shtml)
+- 2026-06-30 03:36 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/4828393738.shtml)
+- 2026-06-30 03:49 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/76334.shtml)
+- 2026-06-30 03:49 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/91178176.shtml)
+- 2026-06-30 03:45 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/72923580364.shtml)
+- 2026-06-30 03:40 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/530273560.shtml)
+- 2026-06-30 03:37 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/3607699946.shtml)

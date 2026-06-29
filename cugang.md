@@ -1,53 +1,50 @@
-# 鲜花铺路果蔬蛋糕 重庆动物园“双重喜庆”四只大熊猫迎来七岁生日
+# 香港西九龙站高铁直达内地站点新增3个 相关车票已发售
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月23日 19:10 来源：中国新闻网 6月23日，重庆动物园“双重喜庆”四只大熊猫迎来七岁生日。饲养员们用新鲜果蔬为它们精心制作了“旋转蛋糕”“双层蛋糕”等创意生日蛋糕。 2019年6月23日，四只熊猫宝宝在同一天降生——大熊猫“兰香”诞下雄性双胞胎“双双”“重重”，“莽仔”产下雌性双胞胎“喜喜”“庆庆”，合起来便是“双重喜庆”，寓意好事成双、喜上加喜
+发布时间：2026年06月17日 19:42 来源：中国新闻网 由香港铁路有限公司运营的高速铁路(香港段)7月1日起新增广州北、义乌、福清西三个站点。至此，香港西九龙站直达内地站点增至113个，相关车票于6月17日起发售。 港铁表示，本次新增站点中，广州北站为区域交通枢纽，接驳地铁、城际铁路，临近白云机场与广州融创文旅城；浙江义乌有“世界超市”之称，是知名的小商品集散中心；福建
 
 ## 正文
 
-发布时间：2026年06月23日 19:10 来源：中国新闻网 6月23日，重庆动物园“双重喜庆”四只大熊猫迎来七岁生日。
+发布时间：2026年06月17日 19:42 来源：中国新闻网 由香港铁路有限公司运营的高速铁路(香港段)7月1日起新增广州北、义乌、福清西三个站点。
 
-饲养员们用新鲜果蔬为它们精心制作了“旋转蛋糕”“双层蛋糕”等创意生日蛋糕。
+至此，香港西九龙站直达内地站点增至113个，相关车票于6月17日起发售。
 
-2019年6月23日，四只熊猫宝宝在同一天降生——大熊猫“兰香”诞下雄性双胞胎“双双”“重重”，“莽仔”产下雌性双胞胎“喜喜”“庆庆”，合起来便是“双重喜庆”，寓意好事成双、喜上加喜。
+港铁表示，本次新增站点中，广州北站为区域交通枢纽，接驳地铁、城际铁路，临近白云机场与广州融创文旅城；浙江义乌有“世界超市”之称，是知名的小商品集散中心；福建福清有灵石山国家森林公园等众多文旅资源。
 
-网友们也亲切地称它们为“四喜丸子”。
+港铁将持续优化跨境铁路服务，便利乘客出行。
 
-(贾楠 王梓平） 责任编辑：【罗攀】
+(记者 孙悦) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 03:42 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-30 03:42 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 03:53 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-30 03:52 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-30 03:54 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-30 03:55 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-30 03:51 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 03:30 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-30 03:49 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 03:42 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-30 03:44 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-30 03:33 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-30 03:45 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-30 03:58 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-30 04:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-30 04:02 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-30 03:39 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 03:46 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-30 03:37 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-30 03:57 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-30 03:42 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-30 03:55 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-30 03:45 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:53 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/35738504568.shtml)
-- 2026-06-30 03:35 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/485186445184.shtml)
-- 2026-06-30 03:47 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/550142714.shtml)
-- 2026-06-30 03:58 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/657716376064.shtml)
-- 2026-06-30 03:42 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/651316103.shtml)
-- 2026-06-30 03:50 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/892572775603.shtml)
-- 2026-06-30 03:39 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/30848864424.shtml)
-- 2026-06-30 03:41 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/376142.shtml)
-- 2026-06-30 03:53 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/407062978956.shtml)
-- 2026-06-30 03:41 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/73861388361.shtml)
-- 2026-06-30 03:50 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/853248613986.shtml)
-- 2026-06-30 03:47 - [沙丘](https://www.blog.minike.top/Article/details/38627.shtml)
-- 2026-06-30 03:39 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/782311248192.shtml)
-- 2026-06-30 03:36 - [《贺子珍》](https://www.blog.minike.top/Article/details/057133226.shtml)
-- 2026-06-30 03:46 - [日本16强魔咒](http://www.blog.minike.top/Article/details/357913064.shtml)
+- 2026-06-30 04:03 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/550971947499.shtml)
+- 2026-06-30 03:45 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/9883962601.shtml)
+- 2026-06-30 03:51 - [亚洲球队全部告别世界杯](http://www.share.kurohicncr.top/Article/details/0225957.shtml)
+- 2026-06-30 04:04 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/011134073.shtml)
+- 2026-06-30 03:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/102430537.shtml)
+- 2026-06-30 03:51 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/6876788041.shtml)
+- 2026-06-30 04:01 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/348639735692.shtml)
+- 2026-06-30 03:43 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/763240.shtml)
+- 2026-06-30 03:58 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/208412.shtml)
+- 2026-06-30 03:46 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/76264306256.shtml)
+- 2026-06-30 04:00 - [巴西绝杀日本](https://www.share.kurohicncr.top/Article/details/737717489052.shtml)
+- 2026-06-30 03:40 - [日本16强魔咒](http://www.blog.minike.top/Article/details/33530.shtml)
+- 2026-06-30 03:47 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/1199236887.shtml)
+- 2026-06-30 04:01 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/39952309646.shtml)
+- 2026-06-30 03:54 - [世界杯：德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/5379506.shtml)

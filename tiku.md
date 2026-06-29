@@ -1,43 +1,56 @@
-# 2026年01月至05月云南省进出口月度总值表
+# 广东发布山洪灾害风险预警
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-2026年01月至05月云南省进出口月度总值表.xlsx 来源：昆明海关
+中新网广州6月17日电 (记者 王坚)广东正在经历今年入汛以来最长的强降雨过程。16日8时到17日8时，江门台山市川岛镇录得全省最大降雨量达328毫米。广东省水利厅17日9时发布山洪灾害风险预警。 该预警称，根据气象降雨预报分析，预计未来24小时：茂名高州市、化州市、信宜市，阳江阳东区，湛江廉江市，局地发生山洪灾害可能性大(橙色预警)。肇庆高要区、怀集县，惠州博罗县、龙门县，云
 
 ## 正文
 
-2026年01月至05月云南省进出口月度总值表.xlsx 来源：昆明海关
+中新网广州6月17日电 (记者 王坚)广东正在经历今年入汛以来最长的强降雨过程。
+
+16日8时到17日8时，江门台山市川岛镇录得全省最大降雨量达328毫米。
+
+广东省水利厅17日9时发布山洪灾害风险预警。
+
+该预警称，根据气象降雨预报分析，预计未来24小时：茂名高州市、化州市、信宜市，阳江阳东区，湛江廉江市，局地发生山洪灾害可能性大(橙色预警)。
+
+肇庆高要区、怀集县，惠州博罗县、龙门县，云浮云城区、云安区、新兴县、罗定市，汕尾陆丰市，江门台山市、开平市、鹤山市、恩平市，广州增城区，湛江遂溪县，清远佛冈县、连山壮族瑶族自治县，茂名电白区，阳江阳春市，佛山高明区，局地发生山洪灾害可能性较大(黄色预警)。
+
+其他地区也可能因局地短历时强降水引发山洪灾害。
+
+该预警指出，请各地密切关注天气预报及雨水情变化，结合实际加强研判，做好实时监测、防汛预警和转移避险等防范工作。
+
+此外，请相关地区公众留意预报预警信息，增强灾害防范避险意识，尽量避免前往山丘区沟溪、河滩地等低洼区域，确保自身生命财产安全。
 
 ## 相关推荐
 
-- 2026-06-30 03:51 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-30 03:56 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-30 03:59 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-30 03:46 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-30 03:38 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-30 03:55 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-30 03:35 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-30 03:56 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-30 03:45 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-30 03:40 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-30 03:51 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 03:55 - [张凌赫 客串](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-30 04:04 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-30 03:48 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-30 03:46 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-30 03:51 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 03:44 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-30 03:43 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-30 03:59 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 04:03 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-30 03:55 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:43 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/5804785070.shtml)
-- 2026-06-30 03:56 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/61008497418.shtml)
-- 2026-06-30 03:32 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/36500408747.shtml)
-- 2026-06-30 03:46 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/93144236.shtml)
-- 2026-06-30 03:54 - [我和我的家乡](http://www.blog.minike.top/Article/details/40829006.shtml)
-- 2026-06-30 03:32 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/33950121.shtml)
-- 2026-06-30 03:45 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/1328081.shtml)
-- 2026-06-30 03:31 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/545861.shtml)
-- 2026-06-30 03:31 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/990818108822.shtml)
-- 2026-06-30 03:31 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/23726510619.shtml)
-- 2026-06-30 03:51 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.minike.top/Article/details/4733875.shtml)
-- 2026-06-30 03:40 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/871842181608.shtml)
-- 2026-06-30 03:56 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/315294941013.shtml)
-- 2026-06-30 03:49 - [千与千寻](https://www.share.kurohicncr.top/Article/details/770780.shtml)
-- 2026-06-30 03:48 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/723935168402.shtml)
+- 2026-06-30 03:39 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/126689.shtml)
+- 2026-06-30 03:47 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/8372270.shtml)
+- 2026-06-30 03:39 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/2840912722.shtml)
+- 2026-06-30 04:04 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/30478333405.shtml)
+- 2026-06-30 03:41 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/93817163232.shtml)
+- 2026-06-30 03:46 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/83026747157.shtml)
+- 2026-06-30 04:00 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.kurohicncr.top/Article/details/4945902515.shtml)
+- 2026-06-30 04:03 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/00861552281.shtml)
+- 2026-06-30 03:45 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/13615877206.shtml)
+- 2026-06-30 03:47 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/438288848.shtml)
+- 2026-06-30 03:56 - [日本领先巴西](https://www.share.minike.top/Article/details/585832.shtml)
+- 2026-06-30 03:41 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/483490078213.shtml)
+- 2026-06-30 03:46 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/49771783.shtml)
+- 2026-06-30 03:55 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/399312.shtml)
+- 2026-06-30 03:53 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/23595141414.shtml)

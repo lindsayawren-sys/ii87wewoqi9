@@ -1,57 +1,60 @@
-# 甘肃原创话剧《哈达铺的灯光》将重走长征路启巡演
+# 沃什的“首秀”尴尬了，特朗普选他来降息，如今美联储却在谈加息
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-中新网兰州6月23日电 (闫姣 王子予 石娇艳)23日，甘肃省人民政府新闻办公室举行大型原创红色话剧《哈达铺的灯光》媒体见面会。该剧将于6月30日至7月1日在国家大剧院上演，随后沿着长征路线开展跨区域巡演，向建党105周年和长征胜利90周年献礼。 《哈达铺的灯光》聚焦1935年9月中央红军突破天险腊子口后抵达哈达铺的关键历史时刻。彼时中央红军人数锐减，疲惫不堪、伤病缠身，周恩来
+金十数据 凯文·沃什（Kevin Warsh）本周以美联储主席身份走进他的首场议息会议时，处境颇为尴尬。去年他曾主张降息，并被选中来兑现这一承诺。但如今美联储内部的讨论方向已经逆转——转向加息，而非降息。 《华尔街日报》首席经济记者、素有“美联储传声筒”之称的Nick Timiraos最新撰文称，市场普遍预计美联储本周将把基准利率维持在3.5%至3.75%区间不变。但真正引发关
 
 ## 正文
 
-中新网兰州6月23日电 (闫姣 王子予 石娇艳)23日，甘肃省人民政府新闻办公室举行大型原创红色话剧《哈达铺的灯光》媒体见面会。
+金十数据 凯文·沃什（Kevin Warsh）本周以美联储主席身份走进他的首场议息会议时，处境颇为尴尬。
 
-该剧将于6月30日至7月1日在国家大剧院上演，随后沿着长征路线开展跨区域巡演，向建党105周年和长征胜利90周年献礼。
+去年他曾主张降息，并被选中来兑现这一承诺。
 
-《哈达铺的灯光》聚焦1935年9月中央红军突破天险腊子口后抵达哈达铺的关键历史时刻。
+但如今美联储内部的讨论方向已经逆转——转向加息，而非降息。
 
-彼时中央红军人数锐减，疲惫不堪、伤病缠身，周恩来也身患重病。
+《华尔街日报》首席经济记者、素有“美联储传声筒”之称的Nick Timiraos最新撰文称，市场普遍预计美联储本周将把基准利率维持在3.5%至3.75%区间不变。
 
-正是在哈达铺的邮政代办所，红军从缴获的《大公报》上得知陕北有红军和根据地的消息，做出了“到陕北去”的重大决策。
+但真正引发关注的并非利率本身，而是政策信号的明显转向。
 
-哈达铺由此被誉为红军长征途中名副其实的“加油站”，是决定长征命运的重要决策地。
+沃什以主席身份首次主持会议之际，面对的是一个与数月前截然不同的政策环境。
 
-编剧李维平阐释剧名寓意，“灯光”有三层内涵：初到哈达铺时百姓对红军不了解，革命领袖们在昏暗油灯下忧心前路；军民融合后百姓送来粮食、衣物、药材，灯光化为温暖的“民心之光”；最终毛泽东提灯决策，灯光成为照亮方向的“信仰之光”。
+2025年，他曾公开支持降息，并因此在2026年1月被总统特朗普选中执掌美联储，外界当时普遍认为其任务是推动进一步宽松。
 
-灯光由暗到明，象征红军从迷茫走向坚定，这一意象贯穿全剧，成为核心精神符号。
+彼时的背景是，2025年底美联储已实施三次降息，市场原本预计2026年还将延续这一节奏。
 
 ## 相关推荐
 
-- 2026-06-30 03:34 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 03:36 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-30 03:59 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-30 03:36 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-30 03:37 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-30 03:43 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-30 03:34 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-30 03:42 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-30 03:32 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 03:51 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-30 03:53 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 04:00 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-30 03:46 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-30 04:00 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-30 04:03 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-30 03:42 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-30 03:47 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-30 03:55 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-30 04:01 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-30 03:48 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-30 03:41 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 03:54 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-30 03:57 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-30 03:47 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-30 04:02 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:58 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/4250749.shtml)
-- 2026-06-30 03:53 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/372316.shtml)
-- 2026-06-30 03:40 - [演员都来上音综的原因](http://www.blog.kurohicncr.top/Article/details/6626938.shtml)
-- 2026-06-30 03:59 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/697047417.shtml)
-- 2026-06-30 03:59 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/2871751.shtml)
-- 2026-06-30 03:32 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/04030319948.shtml)
-- 2026-06-30 03:53 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/94155.shtml)
-- 2026-06-30 03:31 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/636522986.shtml)
-- 2026-06-30 03:50 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/674333031.shtml)
-- 2026-06-30 03:56 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/908402771.shtml)
-- 2026-06-30 03:46 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/083613.shtml)
-- 2026-06-30 03:32 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/99416.shtml)
-- 2026-06-30 03:39 - [斗破苍穹](https://www.share.minike.top/Article/details/1140670323.shtml)
-- 2026-06-30 03:59 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/928962247818.shtml)
-- 2026-06-30 03:42 - [花少8要去世界杯举办国](https://www.share.kurohicncr.top/Article/details/382458.shtml)
+- 2026-06-30 03:57 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/996311195612.shtml)
+- 2026-06-30 03:49 - [巴西绝杀](https://www.share.minike.top/Article/details/851272112152.shtml)
+- 2026-06-30 04:05 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/796943268.shtml)
+- 2026-06-30 03:45 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/8516847274.shtml)
+- 2026-06-30 03:51 - [月亮](http://www.blog.minike.top/Article/details/16844740697.shtml)
+- 2026-06-30 03:45 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/660955.shtml)
+- 2026-06-30 03:43 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/8583172227.shtml)
+- 2026-06-30 04:05 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/4700153939.shtml)
+- 2026-06-30 03:51 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/60941.shtml)
+- 2026-06-30 03:42 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/00928947.shtml)
+- 2026-06-30 03:42 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/750798890.shtml)
+- 2026-06-30 03:58 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/646026513000.shtml)
+- 2026-06-30 03:41 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/8273723.shtml)
+- 2026-06-30 03:54 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/076517080873.shtml)
+- 2026-06-30 03:43 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/21133313373.shtml)

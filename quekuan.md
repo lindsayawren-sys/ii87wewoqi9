@@ -1,51 +1,54 @@
-# 2018年以来检察机关共起诉侵害未成年人犯罪53.1万人
+# 沉浸式“玩”中医 呼市学子DIY端午香囊解锁中医魅力
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-中新网6月23日电 最高人民检察院23日举行新闻发布会，发布《中国未成年人检察工作40年发展报告》并通报有关情况。 会上，最高人民检察院党组成员、副检察长史卫忠介绍40年来未成年人检察工作发展成就。他表示，我国落实“双向保护”原则更加有力。2018年以来，起诉侵害未成年人犯罪53.1万人。严厉打击性侵害未成年人犯罪，加强未成年被害人关爱救助，推动建立集“询问、取证、身体检查、心
+发布时间：2026年06月17日 20:39 来源：中国新闻网 6月16日，内蒙古自治区中医医院医护人员走进呼和浩特市敬业学校，举办“浓情端午制香囊”中医药文化进校园活动，让师生沉浸式感受传统中医药和传统民俗的魅力。 活动现场药香弥漫，香囊DIY体验活动备受欢迎。医护人员现场细致指导，同学们分拣药材、填充香囊、编织挂饰，亲手制作端午香包。医生同步开设科普课堂，结合佩香囊习俗讲解
 
 ## 正文
 
-中新网6月23日电 最高人民检察院23日举行新闻发布会，发布《中国未成年人检察工作40年发展报告》并通报有关情况。
+发布时间：2026年06月17日 20:39 来源：中国新闻网 6月16日，内蒙古自治区中医医院医护人员走进呼和浩特市敬业学校，举办“浓情端午制香囊”中医药文化进校园活动，让师生沉浸式感受传统中医药和传统民俗的魅力。
 
-会上，最高人民检察院党组成员、副检察长史卫忠介绍40年来未成年人检察工作发展成就。
+活动现场药香弥漫，香囊DIY体验活动备受欢迎。
 
-他表示，我国落实“双向保护”原则更加有力。
+医护人员现场细致指导，同学们分拣药材、填充香囊、编织挂饰，亲手制作端午香包。
 
-2018年以来，起诉侵害未成年人犯罪53.1万人。
+医生同步开设科普课堂，结合佩香囊习俗讲解艾草、藿香、薄荷等药材芳香辟秽、安神助眠、驱蚊防病等作用，普及传统中医药知识与日常养生常识。
 
-严厉打击性侵害未成年人犯罪，加强未成年被害人关爱救助，推动建立集“询问、取证、身体检查、心理疏导”等功能于一体的“一站式”办案区2600余个，一次性询问10万余人，提供心理疏导11.9万次，发放救助金8.6亿元。
+医师还针对青少年身心特点，分享作息调理、舒缓压力的实用妙招，将中医药知识根植少年心间。
+
+(陈峰 闫龙） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 03:41 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-30 03:58 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-30 03:42 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-30 03:34 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-30 03:52 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 03:41 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-30 03:33 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 03:30 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 03:32 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-30 03:39 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-30 03:53 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-30 04:01 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 03:44 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-30 04:01 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 03:58 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-30 04:05 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 03:53 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-30 04:02 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-30 03:48 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-30 03:59 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 04:03 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-30 03:58 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-30 03:45 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:53 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/569481231683.shtml)
-- 2026-06-30 03:47 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/8887368.shtml)
-- 2026-06-30 03:40 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/431525.shtml)
-- 2026-06-30 03:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/3671905974.shtml)
-- 2026-06-30 03:35 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/536826.shtml)
-- 2026-06-30 03:40 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/71737960.shtml)
-- 2026-06-30 03:59 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/705227.shtml)
-- 2026-06-30 03:42 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/23500065765.shtml)
-- 2026-06-30 03:37 - [日本反击率先破门](https://www.share.minike.top/Article/details/56595950488.shtml)
-- 2026-06-30 03:33 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/3351125786.shtml)
-- 2026-06-30 03:38 - [第一炉香](http://www.blog.minike.top/Article/details/005880283928.shtml)
-- 2026-06-30 03:37 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/517829757.shtml)
-- 2026-06-30 03:56 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/77073.shtml)
-- 2026-06-30 03:44 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/0259584446.shtml)
-- 2026-06-30 03:53 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/37910.shtml)
+- 2026-06-30 03:47 - [审核了不止十年的低创鬼畜](http://www.share.minike.top/Article/details/26722424258.shtml)
+- 2026-06-30 03:54 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/3443304590.shtml)
+- 2026-06-30 03:58 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/5550690522.shtml)
+- 2026-06-30 03:36 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/738506813295.shtml)
+- 2026-06-30 03:50 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/649640208545.shtml)
+- 2026-06-30 03:39 - [月亮](https://www.share.kurohicncr.top/Article/details/4377830.shtml)
+- 2026-06-30 03:49 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/382900261419.shtml)
+- 2026-06-30 04:01 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/61822172.shtml)
+- 2026-06-30 03:38 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/681723.shtml)
+- 2026-06-30 04:02 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/8074727939.shtml)
+- 2026-06-30 03:51 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/751705353048.shtml)
+- 2026-06-30 03:40 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/32223297570.shtml)
+- 2026-06-30 03:51 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.minike.top/Article/details/3146920.shtml)
+- 2026-06-30 03:56 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/2523774.shtml)
+- 2026-06-30 03:53 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/81876910641.shtml)

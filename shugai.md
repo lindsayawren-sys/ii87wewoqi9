@@ -1,56 +1,60 @@
-# 海南陵水国际影视基地近两年拍摄约140部短剧 多部发行海外
+# 新疆首批地产樱桃直供香港
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月24日 11:57 来源：中国新闻网 6月23日，来自12个国家的媒体人走进海南陵水的海风国际影视基地。 据该影视基地品牌宣传部经理刘禾介绍，海风国际影视基地2024年8月正式对外运行以来，已拍摄近140部短剧，其中由外籍演员出演的海外短剧近20部；由国内演员出演制作，且发行到国外的短剧近10部。海外发行多在美国、英国、新加坡、泰国。 俄罗斯《龙报》社
+中新社乌鲁木齐6月16日电 (胡嘉琛)记者16日从喀什海关获悉，一批产自新疆喀什地区的优质樱桃，经冷链运输至深圳的口岸后运往香港。这是新疆首批地产樱桃直供香港。 喀什地区地处新疆南部，光热资源丰富、昼夜温差大，产出的樱桃汁水丰盈、甜度出众。 “在高效通关与冷链物流双重保障下，香港民众可以品尝到新疆鲜果的风味。”销售此批樱桃的喀什市一家合作社负责人高起方说。 据悉，喀什海关指导企
 
 ## 正文
 
-发布时间：2026年06月24日 11:57 来源：中国新闻网 6月23日，来自12个国家的媒体人走进海南陵水的海风国际影视基地。
+中新社乌鲁木齐6月16日电 (胡嘉琛)记者16日从喀什海关获悉，一批产自新疆喀什地区的优质樱桃，经冷链运输至深圳的口岸后运往香港。
 
-据该影视基地品牌宣传部经理刘禾介绍，海风国际影视基地2024年8月正式对外运行以来，已拍摄近140部短剧，其中由外籍演员出演的海外短剧近20部；由国内演员出演制作，且发行到国外的短剧近10部。
+这是新疆首批地产樱桃直供香港。
 
-海外发行多在美国、英国、新加坡、泰国。
+喀什地区地处新疆南部，光热资源丰富、昼夜温差大，产出的樱桃汁水丰盈、甜度出众。
 
-俄罗斯《龙报》社国际合作部总经理林喆参观后表示，该影视基地多种场景让自己感觉很穿越，不到半小时，体验了不同的人生。
+“在高效通关与冷链物流双重保障下，香港民众可以品尝到新疆鲜果的风味。
 
-林喆觉得俄罗斯市场对短剧会感兴趣，希望以后有机会推荐俄罗斯演员到该影视基地拍摄，影视公司也可尝试将短剧发行到俄罗斯。
+”销售此批樱桃的喀什市一家合作社负责人高起方说。
 
-(记者 李宇凡 林士杰) 责任编辑：【李季】
+据悉，喀什海关指导企业完成出境水果果园注册登记，并协助建立质量追溯体系，确保果品来源可查、去向可追，符合香港食品安全标准。
+
+喀什海关稽查处处长杨晓怡称，截至今年5月，喀什海关累计帮助19家企业完成供港水果包装厂及出境水果果园注册登记，助力当地企业开拓粤港澳大湾区市场、深化两地经贸合作。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:48 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-30 03:56 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-30 03:51 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-30 03:55 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 03:52 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-30 03:56 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-30 03:41 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-30 03:33 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-30 03:50 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-30 03:34 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-30 03:46 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-30 03:45 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 03:47 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 03:54 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-30 03:58 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-30 03:53 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-30 04:00 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-30 03:38 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-30 03:44 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-30 03:41 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 03:54 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 03:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-30 03:50 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-30 03:48 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-30 04:03 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-30 03:48 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-30 03:51 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-30 03:53 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:44 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/834353182.shtml)
-- 2026-06-30 03:49 - [巴西补时绝杀日本](http://www.blog.minike.top/Article/details/619150054998.shtml)
-- 2026-06-30 03:49 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/9182632473.shtml)
-- 2026-06-30 03:45 - [巴西半场0比1日本](http://www.blog.minike.top/Article/details/25995.shtml)
-- 2026-06-30 03:45 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/184246.shtml)
-- 2026-06-30 03:44 - [请回答王牌2019](https://www.blog.minike.top/Article/details/311552.shtml)
-- 2026-06-30 03:34 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/5163142329.shtml)
-- 2026-06-30 03:50 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/067596069834.shtml)
-- 2026-06-30 03:50 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/64820.shtml)
-- 2026-06-30 03:50 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/77550.shtml)
-- 2026-06-30 03:46 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/98746154.shtml)
-- 2026-06-30 03:39 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/489161.shtml)
-- 2026-06-30 03:42 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/555285742.shtml)
-- 2026-06-30 03:51 - [女心理师](https://www.blog.kurohicncr.top/Article/details/02587339730.shtml)
-- 2026-06-30 03:54 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/04737.shtml)
+- 2026-06-30 04:05 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/158174553767.shtml)
+- 2026-06-30 03:54 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.minike.top/Article/details/254406.shtml)
+- 2026-06-30 03:37 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/43359308052.shtml)
+- 2026-06-30 04:03 - [起风了](http://www.blog.kurohicncr.top/Article/details/600583984013.shtml)
+- 2026-06-30 03:44 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/635035.shtml)
+- 2026-06-30 04:03 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/7802284.shtml)
+- 2026-06-30 03:53 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/65050573.shtml)
+- 2026-06-30 03:38 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/438203272.shtml)
+- 2026-06-30 03:55 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/750957.shtml)
+- 2026-06-30 03:54 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/79630069742.shtml)
+- 2026-06-30 03:57 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/86439618918.shtml)
+- 2026-06-30 04:02 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/127225.shtml)
+- 2026-06-30 04:03 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.minike.top/Article/details/5450549.shtml)
+- 2026-06-30 03:42 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/06852.shtml)
+- 2026-06-30 03:36 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/797692439351.shtml)

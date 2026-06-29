@@ -1,44 +1,57 @@
-# 今年前5月深圳进出口2.32万亿元 居内地城市首位
+# 中国生态环境部：中国能源转型、碳市场建设等成就显著
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月24日 09:03 来源：央视新闻 责任编辑：【王祎】
+中新社南宁6月17日电 (黄令妍)中国生态环境部副部长李高17日在广西南宁表示，中国在能源转型、碳市场建设、产业升级等方面取得显著成就，目前全国可再生能源装机占发电装机的比例超60%，风电、太阳能发电装机总容量和蓄电量已提前实现中国2030年国家自主贡献目标，为应对全球气候变化作出突出贡献。6月17日是第十四个“全国低碳日”，中国生态环境部、广西壮族自治区人民政府在南宁市联合举
 
 ## 正文
 
-发布时间：2026年06月24日 09:03 来源：央视新闻 责任编辑：【王祎】
+中新社南宁6月17日电 (黄令妍)中国生态环境部副部长李高17日在广西南宁表示，中国在能源转型、碳市场建设、产业升级等方面取得显著成就，目前全国可再生能源装机占发电装机的比例超60%，风电、太阳能发电装机总容量和蓄电量已提前实现中国2030年国家自主贡献目标，为应对全球气候变化作出突出贡献。
+
+6月17日是第十四个“全国低碳日”，中国生态环境部、广西壮族自治区人民政府在南宁市联合举办2026年“全国低碳日”主场宣传活动。
+
+李高在活动中指出，气候变化是全人类面临的严峻挑战，绿色低碳发展已成为全球不可逆转的时代潮流。
+
+中国将坚定实施应对气候变化国家战略，加快建设更加有效、更有活力、更具国际影响力的碳市场，积极应对涉碳贸易壁垒；更加积极主动参与和引领全球气候治理，深化应对气候变化南南合作。
+
+中国生态环境部当天发布《产品碳足迹管理体系建设进展报告(2026)》《中国适应气候变化进展报告(2025)》，全景展示碳足迹管理与气候适应新进展。
+
+《中国适应气候变化进展报告(2025)》指出，全球变暖趋势持续，区域性极端天气频发，未来将加快完善适应气候变化工作体系，持续提升气候相关重大风险防范和灾害防治能力，为建设人与自然和谐共生的美丽中国、推动全球气候治理作出新的贡献。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:33 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-30 03:36 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-30 03:54 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-30 03:35 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-30 03:36 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-30 03:32 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-30 03:43 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-30 03:32 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-30 03:54 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 03:34 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-30 03:49 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-30 03:35 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-30 03:54 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-30 04:00 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 03:54 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-30 03:55 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-30 03:52 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-30 04:04 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-30 03:57 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 03:54 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-30 03:42 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-30 03:56 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-30 04:04 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-30 04:04 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-30 04:05 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:54 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/3560310069.shtml)
-- 2026-06-30 03:52 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/80200084.shtml)
-- 2026-06-30 03:41 - [速度与激情9](https://www.share.minike.top/Article/details/38218.shtml)
-- 2026-06-30 03:58 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/1178732934.shtml)
-- 2026-06-30 03:52 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/369674.shtml)
-- 2026-06-30 03:40 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/04104488.shtml)
-- 2026-06-30 03:32 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/20332.shtml)
-- 2026-06-30 03:58 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/21891330542.shtml)
-- 2026-06-30 03:56 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/9712970783.shtml)
-- 2026-06-30 03:36 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/863877414.shtml)
-- 2026-06-30 03:49 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/0340571400.shtml)
-- 2026-06-30 03:33 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/50031.shtml)
-- 2026-06-30 03:50 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/42413722.shtml)
-- 2026-06-30 03:54 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/5384777484.shtml)
-- 2026-06-30 03:33 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/79236.shtml)
+- 2026-06-30 03:38 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/5586850.shtml)
+- 2026-06-30 03:38 - [巴西2-1绝杀日本](https://www.share.kurohicncr.top/Article/details/158940.shtml)
+- 2026-06-30 03:59 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/570908916.shtml)
+- 2026-06-30 03:50 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/83150688.shtml)
+- 2026-06-30 03:56 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/820387334437.shtml)
+- 2026-06-30 03:38 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/77295993.shtml)
+- 2026-06-30 03:43 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/30839.shtml)
+- 2026-06-30 03:52 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/886373.shtml)
+- 2026-06-30 03:38 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/2369539.shtml)
+- 2026-06-30 03:52 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/49824791393.shtml)
+- 2026-06-30 03:37 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/7530621.shtml)
+- 2026-06-30 04:05 - [点菜也要教吗](http://www.share.minike.top/Article/details/10978371.shtml)
+- 2026-06-30 03:45 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/046097157.shtml)
+- 2026-06-30 03:36 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/7135537.shtml)
+- 2026-06-30 03:49 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/7106520.shtml)

@@ -1,51 +1,56 @@
-# 12国媒体人行走陵水 助海南自贸港圈粉海外
+# 龙虎榜机构新动向：净买入24股 净卖出21股
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月22日 21:21 来源：中国新闻网 6月22日，“何以中国·行走陵水”陵水旅游文化国际传播活动在海南陵水启动。来自泰国、日本、韩国、埃及、俄罗斯、加拿大等12个国家的海外华文媒体及外籍博主，将深入探访陵水，通过镜头、笔触，向世界讲述“Lingshui Travel”的精彩故事。(记者 李宇凡 林士杰) 责任编辑：【罗攀】
+6月17日沪指上涨0.40%，盘后龙虎榜数据显示，机构现身45只个股龙虎榜，净买入24只，净卖出21只。深沪股通席位出现在31只个股龙虎榜。证券时报·数据宝统计显示，6月17日机构专用席位现身45只个股龙虎榜，合计净买入16.72亿元。个股来看，净买入24只，净卖出21只。机构龙虎榜净买卖个股机构专用席位净买入金额最多的是鹏鼎控股，该股今日收盘涨停，全天换手率为2.79%，成交
 
 ## 正文
 
-发布时间：2026年06月22日 21:21 来源：中国新闻网 6月22日，“何以中国·行走陵水”陵水旅游文化国际传播活动在海南陵水启动。
+6月17日沪指上涨0.40%，盘后龙虎榜数据显示，机构现身45只个股龙虎榜，净买入24只，净卖出21只。
 
-来自泰国、日本、韩国、埃及、俄罗斯、加拿大等12个国家的海外华文媒体及外籍博主，将深入探访陵水，通过镜头、笔触，向世界讲述“Lingshui Travel”的精彩故事。
+深沪股通席位出现在31只个股龙虎榜。
 
-(记者 李宇凡 林士杰) 责任编辑：【罗攀】
+证券时报·数据宝统计显示，6月17日机构专用席位现身45只个股龙虎榜，合计净买入16.72亿元。
+
+个股来看，净买入24只，净卖出21只。
+
+机构龙虎榜净买卖个股机构专用席位净买入金额最多的是鹏鼎控股，该股今日收盘涨停，全天换手率为2.79%，成交额为74.49亿元。
+
+因日涨幅偏离值达9.27%上榜龙虎榜，前五大买卖营业部中有6家机构专用席位，为买二、买四、买五、卖三、卖四、卖五，合计净买入61315.45万元。
+
+同时上榜的还有深股通专用席位，净卖出1.36亿元，营业部席位合计净买入8346.53万元。
+
+资金流向方面，该股全天资金净流入10.85亿元。
 
 ## 相关推荐
 
-- 2026-06-30 03:34 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-30 03:37 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-30 03:45 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-30 03:30 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-30 03:30 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 03:53 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-30 03:52 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-30 03:35 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-30 03:48 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-30 03:47 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-30 03:59 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-30 03:59 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-30 03:42 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-30 03:38 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-30 03:37 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 03:38 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-30 03:56 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 03:50 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-30 03:40 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 04:01 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-30 04:00 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 04:00 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 04:05 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-30 03:52 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-30 03:59 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:40 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/49020.shtml)
-- 2026-06-30 03:44 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/808347.shtml)
-- 2026-06-30 03:59 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/80990.shtml)
-- 2026-06-30 03:39 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/30647639992.shtml)
-- 2026-06-30 03:56 - [我们的少年时代2](http://www.blog.minike.top/Article/details/2769057272.shtml)
-- 2026-06-30 03:57 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/7557145650.shtml)
-- 2026-06-30 03:56 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/361067267.shtml)
-- 2026-06-30 03:41 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/7972100.shtml)
-- 2026-06-30 03:36 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/61125042460.shtml)
-- 2026-06-30 03:44 - [足球小将的剧本成真了](http://www.share.kurohicncr.top/Article/details/3428692393.shtml)
-- 2026-06-30 03:33 - [日本反击率先破门](http://www.blog.minike.top/Article/details/0400640.shtml)
-- 2026-06-30 03:52 - [我们的少年时代2](http://www.share.minike.top/Article/details/097468110.shtml)
-- 2026-06-30 03:46 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/989245.shtml)
-- 2026-06-30 03:34 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/56859272990.shtml)
-- 2026-06-30 03:58 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/92943896419.shtml)
+- 2026-06-30 03:55 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/9194780.shtml)
+- 2026-06-30 03:40 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/733579.shtml)
+- 2026-06-30 03:55 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/6932004749.shtml)
+- 2026-06-30 04:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/055557675.shtml)
+- 2026-06-30 04:02 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/211565.shtml)
+- 2026-06-30 03:53 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/150614.shtml)
+- 2026-06-30 03:56 - [速度与激情9](http://www.share.minike.top/Article/details/22417.shtml)
+- 2026-06-30 03:56 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/430732098316.shtml)
+- 2026-06-30 03:38 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/0378705.shtml)
+- 2026-06-30 03:41 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/472370906125.shtml)
+- 2026-06-30 03:46 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/987020250.shtml)
+- 2026-06-30 03:40 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/681392773.shtml)
+- 2026-06-30 04:01 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/031750.shtml)
+- 2026-06-30 04:05 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/4833288.shtml)
+- 2026-06-30 03:39 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/8002673.shtml)

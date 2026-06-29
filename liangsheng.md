@@ -1,57 +1,56 @@
-# 成都警方抓获一非法经营犯罪团伙 非法销售电子烟达130万元
+# 首届中国（宁夏）—中亚经贸对接交流会促农贸、新能源合作
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-中新网成都6月22日电 (记者 安源)记者22日从成都市公安局高新区分局获悉，该局近日接到成都市烟草专卖局高新区分局报警，反映辖区内存在涉嫌非法销售电子烟的违法线索。接报后，该局环食药侦大队高度重视，立即启动立案侦查程序，迅速开展“挖根断链”专项打击行动，全力彻查涉案链条。 据介绍，办案民警通过海量数据分析、缜密线索研判，最终将侦查重点锁定在成都市玉林夜市周边的芳草街、芳华街片
+【中亚专线】首届中国(宁夏)—中亚经贸对接交流会促农贸、新能源合作 中新社银川6月17日电 (记者 李佩珊)首届中国(宁夏)—中亚经贸对接交流会17日在银川开幕。本次活动以“跨山海塞上携手 谱新篇共赢未来”为主题，搭建宁夏与中亚国家多层次务实合作平台，持续助力共建“一带一路”高质量发展。 交流会由中国国际贸易促进委员会宁夏回族自治区委员会、中国-中亚实业家委员会中方联席秘书处主
 
 ## 正文
 
-中新网成都6月22日电 (记者 安源)记者22日从成都市公安局高新区分局获悉，该局近日接到成都市烟草专卖局高新区分局报警，反映辖区内存在涉嫌非法销售电子烟的违法线索。
+【中亚专线】首届中国(宁夏)—中亚经贸对接交流会促农贸、新能源合作 中新社银川6月17日电 (记者 李佩珊)首届中国(宁夏)—中亚经贸对接交流会17日在银川开幕。
 
-接报后，该局环食药侦大队高度重视，立即启动立案侦查程序，迅速开展“挖根断链”专项打击行动，全力彻查涉案链条。
+本次活动以“跨山海塞上携手 谱新篇共赢未来”为主题，搭建宁夏与中亚国家多层次务实合作平台，持续助力共建“一带一路”高质量发展。
 
-据介绍，办案民警通过海量数据分析、缜密线索研判，最终将侦查重点锁定在成都市玉林夜市周边的芳草街、芳华街片区。
+交流会由中国国际贸易促进委员会宁夏回族自治区委员会、中国-中亚实业家委员会中方联席秘书处主办，汇聚中亚各国商协会、企业及宁夏政企代表洽谈合作。
 
-为精准锁定违法证据、摸清团伙架构，民警开展多日实地摸排、蹲点侦查，一个行踪诡秘、隐蔽经营的非法销售电子烟犯罪团伙逐渐浮出水面。
+活动前期多方提前对接撮合，累计达成23个合作项目，覆盖进出口贸易、农业、新能源、新材料等领域，企业代表在大会开幕式上进行了现场签约。
 
-在精准掌握嫌疑人落脚点及违法事实后，执法人员联合开展突击抓捕行动，在辖区一公寓内成功抓获涉案嫌疑人段某某、郑某某等人。
+经贸数据显示，2025年，中国与中亚国家货物进出口总额1063亿美元，同比增长12%。
 
-执法人员推门核查时，现场查获大量非法电子烟产品，货品层层堆叠、数量庞大。
+同年，宁夏对中亚五国进出口总额2.84亿元人民币，同比增长126%，出口产品以化工制品、包装材料、果蔬等为主，进口产品以亚麻籽、农副畜产品、饲草料等为主，宁夏对中亚进出口增速优势突出。
 
-经现场初步清点核算，现场查获涉案物品价值高达30余万元。
+作为古丝绸之路重要节点与内陆开放型经济试验区，宁夏对中亚合作基础持续夯实。
 
-经现场突击审讯查明，自2024年中旬起，嫌疑人段某某在未依法取得烟草专卖零售许可证的前提下，私自开展电子烟倒卖业务。
+当地建成中国-中亚荒漠化防治合作中心，中亚国际货运班列常态化运行，银川跨境电商综试区加快布局哈萨克斯坦、乌兹别克斯坦等国海外仓。
 
 ## 相关推荐
 
-- 2026-06-30 03:39 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-30 03:30 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-30 03:53 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 03:33 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-30 03:33 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-30 03:55 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-30 03:49 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-30 03:39 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-30 03:35 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-30 03:53 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-30 03:33 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-30 03:45 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-30 03:42 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 03:59 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-30 03:46 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-30 03:48 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-30 03:39 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-30 03:42 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 03:52 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 04:01 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 03:48 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:52 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/08845294.shtml)
-- 2026-06-30 03:45 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/543538151092.shtml)
-- 2026-06-30 03:37 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/22333981.shtml)
-- 2026-06-30 03:53 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/400410430.shtml)
-- 2026-06-30 03:45 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/4470198.shtml)
-- 2026-06-30 03:38 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/5710532235.shtml)
-- 2026-06-30 03:58 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/59163.shtml)
-- 2026-06-30 03:58 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/04765.shtml)
-- 2026-06-30 03:53 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/712742.shtml)
-- 2026-06-30 03:49 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/0884018.shtml)
-- 2026-06-30 03:32 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/95273138.shtml)
-- 2026-06-30 03:32 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/3918383681.shtml)
-- 2026-06-30 03:34 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/45812.shtml)
-- 2026-06-30 03:37 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/579928363280.shtml)
-- 2026-06-30 03:59 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/24542759663.shtml)
+- 2026-06-30 03:41 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/2633101.shtml)
+- 2026-06-30 04:01 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/9529843.shtml)
+- 2026-06-30 04:00 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.kurohicncr.top/Article/details/450071288.shtml)
+- 2026-06-30 04:05 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/63169672.shtml)
+- 2026-06-30 04:05 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/21497.shtml)
+- 2026-06-30 03:43 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/99072652.shtml)
+- 2026-06-30 03:52 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/693654556949.shtml)
+- 2026-06-30 03:50 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/51556192857.shtml)
+- 2026-06-30 03:52 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/483526.shtml)
+- 2026-06-30 03:38 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/6716769.shtml)
+- 2026-06-30 03:37 - [美股](http://www.share.kurohicncr.top/Article/details/00611495361.shtml)
+- 2026-06-30 03:59 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/842498957703.shtml)
+- 2026-06-30 03:43 - [《共患难》](https://www.share.minike.top/Article/details/16789379414.shtml)
+- 2026-06-30 03:41 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/99211.shtml)
+- 2026-06-30 03:55 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/12733437928.shtml)

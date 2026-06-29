@@ -1,48 +1,46 @@
-# 谁说台湾人不能吃辣？家乡的味道是不能忘的
+# 葡萄牙队迎美加墨世界杯首秀 英格兰对阵克罗地亚
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月23日 13:15 来源：中国新闻网 台农曹圣和赴成都发展辣椒生态种植，融合台湾精细种植与大陆规模化优势，培育百余种辣椒、开发多款辣椒产品。他以辣椒为纽带拉近两岸同胞距离，在蜀地实现 “火辣” 创业梦。(编导 林千一 制作 王雪尔） 责任编辑：【周驰】
+中新网6月17日电 北京时间18日，美加墨世界杯将迎来四场小组赛争夺，分别为K组葡萄牙队对阵刚果(金)队、乌兹别克斯坦队迎战哥伦比亚队，L组英格兰队对阵克罗地亚队、加纳队迎战巴拿马队。 赛前，英格兰队与克罗地亚队的比赛被视为小组赛阶段最受关注的强强较量，拥有豪华阵容的葡萄牙队也将迎来赛事首秀。(完)
 
 ## 正文
 
-发布时间：2026年06月23日 13:15 来源：中国新闻网 台农曹圣和赴成都发展辣椒生态种植，融合台湾精细种植与大陆规模化优势，培育百余种辣椒、开发多款辣椒产品。
+中新网6月17日电 北京时间18日，美加墨世界杯将迎来四场小组赛争夺，分别为K组葡萄牙队对阵刚果(金)队、乌兹别克斯坦队迎战哥伦比亚队，L组英格兰队对阵克罗地亚队、加纳队迎战巴拿马队。
 
-他以辣椒为纽带拉近两岸同胞距离，在蜀地实现 “火辣” 创业梦。
+赛前，英格兰队与克罗地亚队的比赛被视为小组赛阶段最受关注的强强较量，拥有豪华阵容的葡萄牙队也将迎来赛事首秀。
 
-(编导 林千一 制作 王雪尔） 责任编辑：【周驰】
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:39 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-30 03:45 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-30 03:59 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-30 03:43 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-30 03:45 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-30 03:40 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-30 03:40 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-30 03:30 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-30 03:47 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-30 03:43 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-30 03:37 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-30 03:33 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-30 03:58 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 04:05 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-30 03:38 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-30 03:38 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-30 03:58 - [美股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 04:02 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-30 03:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-30 03:59 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-30 03:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 04:00 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:54 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/22130374979.shtml)
-- 2026-06-30 03:51 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/0336669.shtml)
-- 2026-06-30 03:35 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/7723374198.shtml)
-- 2026-06-30 03:34 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/86857195428.shtml)
-- 2026-06-30 03:57 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.kurohicncr.top/Article/details/63167796338.shtml)
-- 2026-06-30 03:41 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/84780.shtml)
-- 2026-06-30 03:50 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/775649253970.shtml)
-- 2026-06-30 03:43 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/4072256.shtml)
-- 2026-06-30 03:44 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/70317382.shtml)
-- 2026-06-30 03:56 - [世界杯](https://www.share.minike.top/Article/details/3021077.shtml)
-- 2026-06-30 03:52 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/6258254.shtml)
-- 2026-06-30 03:48 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/380004907.shtml)
-- 2026-06-30 03:36 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/8570207476.shtml)
-- 2026-06-30 03:44 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/63581.shtml)
-- 2026-06-30 03:33 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/77843620.shtml)
+- 2026-06-30 04:03 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/523417914.shtml)
+- 2026-06-30 03:59 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/8808386990.shtml)
+- 2026-06-30 03:49 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/756805.shtml)
+- 2026-06-30 04:01 - [男子中医院拔火罐致浅2度烧伤](https://www.share.minike.top/Article/details/5668629.shtml)
+- 2026-06-30 03:37 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/378148735.shtml)
+- 2026-06-30 03:38 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/8247331003.shtml)
+- 2026-06-30 04:01 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/317136258.shtml)
+- 2026-06-30 03:59 - [请回答王牌2019](https://www.share.minike.top/Article/details/905091122.shtml)
+- 2026-06-30 04:05 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/34098.shtml)
+- 2026-06-30 03:48 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/27331265036.shtml)
+- 2026-06-30 03:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/974860.shtml)
+- 2026-06-30 03:57 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/70344.shtml)
+- 2026-06-30 03:53 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/129231.shtml)
+- 2026-06-30 04:04 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/2990973.shtml)
+- 2026-06-30 03:46 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/19925002.shtml)

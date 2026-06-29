@@ -1,56 +1,52 @@
-# 家用光疗设备买的是“美容神器”还是情绪价值？医生解答
+# 四川万源八台山夏日现绝美银河星空景观
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-从“照照就变白”到“边洗澡边美容”，家用光疗设备来了 买的是“美容神器”还是情绪价值？ “30岁就‘老’了！再不加点‘猛料’，脸就完了！”社交媒体上，被这类话术戳中年龄焦虑的人，远比想象中更多。 从“照照就变白”的大排灯，到宣称“边洗澡边美容”的浴霸美容舱，家用光疗设备正被不少人加入购物车。有数据显示，中国家用美容仪市场规模年均复合增长率超过30%，今年预计将突破200亿元。而
+发布时间：2026年06月17日 18:18 来源：中国新闻网 6月中旬，夏日里的四川达州万源八台山现绝美银河星空景观。八台山海拔2348米，远离城市灯火，夜空澄澈通透，是川东优质观星胜地。入夜后浩瀚银河横跨天际，繁星密布山野，彩色气辉缥缈环绕山头，氛围感拉满。据悉，夏秋季节是八台山观星最佳时段，澄澈夜空肉眼可见清晰银河，不少游客、摄影爱好者专程登山露营追星打卡。(马娟 石仲张
 
 ## 正文
 
-从“照照就变白”到“边洗澡边美容”，家用光疗设备来了 买的是“美容神器”还是情绪价值？
+发布时间：2026年06月17日 18:18 来源：中国新闻网 6月中旬，夏日里的四川达州万源八台山现绝美银河星空景观。
 
-“30岁就‘老’了！
+八台山海拔2348米，远离城市灯火，夜空澄澈通透，是川东优质观星胜地。
 
-再不加点‘猛料’，脸就完了！
+入夜后浩瀚银河横跨天际，繁星密布山野，彩色气辉缥缈环绕山头，氛围感拉满。
 
-”社交媒体上，被这类话术戳中年龄焦虑的人，远比想象中更多。
+据悉，夏秋季节是八台山观星最佳时段，澄澈夜空肉眼可见清晰银河，不少游客、摄影爱好者专程登山露营追星打卡。
 
-从“照照就变白”的大排灯，到宣称“边洗澡边美容”的浴霸美容舱，家用光疗设备正被不少人加入购物车。
-
-有数据显示，中国家用美容仪市场规模年均复合增长率超过30%，今年预计将突破200亿元。
-
-而在市场狂奔的另一面，“越照越黑”“用完烂脸”的吐槽与日俱增。
-
-当一束光被包装出种种神奇功效，消费者高价买回家的，是光电新科技，还是一种昂贵的情绪价值甚至是未被察觉的皮肤隐患？
+(马娟 石仲张浪 制作 徐妙巧） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 03:37 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 03:36 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-30 03:33 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-30 03:39 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-30 03:37 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-30 03:39 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-30 03:36 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-30 03:31 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-30 03:40 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-30 03:40 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-30 03:38 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-30 03:37 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-30 03:49 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-30 03:36 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-30 03:39 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-30 03:50 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-30 03:41 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-30 03:41 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-30 03:43 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 03:52 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 03:39 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 03:37 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:56 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/79329442037.shtml)
-- 2026-06-30 03:31 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/8681688.shtml)
-- 2026-06-30 03:38 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/893879.shtml)
-- 2026-06-30 03:52 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/423450032114.shtml)
-- 2026-06-30 03:54 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/96759474.shtml)
-- 2026-06-30 03:59 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/69607.shtml)
-- 2026-06-30 03:31 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/66659356298.shtml)
-- 2026-06-30 03:41 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/4727242046.shtml)
-- 2026-06-30 03:55 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/44530776.shtml)
-- 2026-06-30 03:55 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/641582.shtml)
-- 2026-06-30 03:40 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/5085972936.shtml)
-- 2026-06-30 03:51 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/691266.shtml)
-- 2026-06-30 03:31 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/867249860.shtml)
-- 2026-06-30 03:51 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/0898839.shtml)
-- 2026-06-30 03:43 - [演员都来上音综的原因](https://www.share.kurohicncr.top/Article/details/040531803245.shtml)
+- 2026-06-30 03:45 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/0812567.shtml)
+- 2026-06-30 03:42 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/512278.shtml)
+- 2026-06-30 03:58 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/606206390135.shtml)
+- 2026-06-30 03:54 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/34035255716.shtml)
+- 2026-06-30 03:55 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/263499018247.shtml)
+- 2026-06-30 04:03 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/74396.shtml)
+- 2026-06-30 04:01 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/31718804884.shtml)
+- 2026-06-30 03:39 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/567318192.shtml)
+- 2026-06-30 03:36 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/26107849206.shtml)
+- 2026-06-30 04:02 - [人类...完蛋了...](https://www.share.kurohicncr.top/Article/details/42225874.shtml)
+- 2026-06-30 03:37 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/1923472287.shtml)
+- 2026-06-30 03:39 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/472984.shtml)
+- 2026-06-30 03:44 - [毒液2](https://www.blog.minike.top/Article/details/85600.shtml)
+- 2026-06-30 04:01 - [速度与激情9](http://www.blog.minike.top/Article/details/991795.shtml)
+- 2026-06-30 04:04 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/4343186.shtml)

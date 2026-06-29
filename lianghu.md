@@ -1,45 +1,46 @@
-# 柬埔寨人民党主席、参议院主席洪森将访华
+# 九鼎新材：公司无逾期担保
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-新华社北京6月23日电 中共中央对外联络部发言人23日宣布：应中国共产党邀请，柬埔寨人民党主席、参议院主席洪森将于6月25日至27日对中国进行正式友好访问。
+证券日报网讯 6月17日，九鼎新材（维权）发布公告称，本次担保后，公司及合并报表范围内子公司对外担保余额为31，901.60万元，占公司最近一期经审计净资产的27.28%，其中：为合并报表范围内公司担保31，901.60万元，占公司最近一期经审计净资产的27.28%，为合并报表范围外公司担保0万元，占公司最近一期经审计净资产的0%。上述担保均在正常履行中，无逾期担保。（文章来源
 
 ## 正文
 
-新华社北京6月23日电 中共中央对外联络部发言人23日宣布：应中国共产党邀请，柬埔寨人民党主席、参议院主席洪森将于6月25日至27日对中国进行正式友好访问。
+证券日报网讯 6月17日，九鼎新材（维权）发布公告称，本次担保后，公司及合并报表范围内子公司对外担保余额为31，901.60万元，占公司最近一期经审计净资产的27.28%，其中：为合并报表范围内公司担保31，901.60万元，占公司最近一期经审计净资产的27.28%，为合并报表范围外公司担保0万元，占公司最近一期经审计净资产的0%。
+
+上述担保均在正常履行中，无逾期担保。
+
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-30 03:54 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-30 03:49 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-30 03:54 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-30 03:37 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-30 03:51 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-30 03:38 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-30 03:46 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-30 03:54 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-30 03:55 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-30 03:44 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-30 03:50 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-30 03:31 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-30 03:51 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-30 04:04 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-30 03:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-30 03:59 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-30 04:00 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-30 03:42 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-30 03:43 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 03:38 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 03:57 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-30 03:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 03:57 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:55 - [极限挑战第一季](http://www.blog.minike.top/Article/details/36274468843.shtml)
-- 2026-06-30 03:55 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/850362992.shtml)
-- 2026-06-30 03:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/31184876383.shtml)
-- 2026-06-30 03:38 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/95359.shtml)
-- 2026-06-30 03:42 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/47870.shtml)
-- 2026-06-30 03:37 - [85花告别古偶](https://www.share.minike.top/Article/details/6988029.shtml)
-- 2026-06-30 03:33 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/821569.shtml)
-- 2026-06-30 03:47 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/441287.shtml)
-- 2026-06-30 03:33 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/23570956676.shtml)
-- 2026-06-30 03:50 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/564894453.shtml)
-- 2026-06-30 03:47 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/17027502.shtml)
-- 2026-06-30 03:38 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/1647894.shtml)
-- 2026-06-30 03:50 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/890047.shtml)
-- 2026-06-30 03:43 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/7860150647.shtml)
-- 2026-06-30 03:44 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/742052559.shtml)
+- 2026-06-30 03:55 - [天道](https://www.blog.minike.top/Article/details/7693494.shtml)
+- 2026-06-30 03:53 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/17245999.shtml)
+- 2026-06-30 03:37 - [巴西扳平比分](http://www.blog.minike.top/Article/details/532174891258.shtml)
+- 2026-06-30 03:58 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/468293219.shtml)
+- 2026-06-30 04:05 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/192843927122.shtml)
+- 2026-06-30 03:57 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/65533.shtml)
+- 2026-06-30 03:38 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/6306600164.shtml)
+- 2026-06-30 03:52 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/60585893367.shtml)
+- 2026-06-30 03:52 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/83666.shtml)
+- 2026-06-30 03:43 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/354684102.shtml)
+- 2026-06-30 03:46 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/781421450191.shtml)
+- 2026-06-30 03:58 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/47755472.shtml)
+- 2026-06-30 03:55 - [急先锋](https://www.blog.kurohicncr.top/Article/details/6831639191.shtml)
+- 2026-06-30 03:55 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/25986365392.shtml)
+- 2026-06-30 04:00 - [绘画区你赢了](https://www.share.minike.top/Article/details/687184697605.shtml)

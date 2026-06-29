@@ -1,46 +1,60 @@
-# 英国首相斯塔默宣布将辞职：辞职导火索是工党在地方选举中严重失利
+# 中信证券：2026年下半年投资全景图
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月23日 10:43 来源：央视新闻 责任编辑：【王祎】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中信证券研究 摘要 全球经济的韧性正面临中东冲突考验，预计2026年下半年的核心特征是“供给冲击、政策约束与投资托底”并存。油价冲击的持续性是决定下半年全球宏观路径的第一变量。美国经济年内可能继续不均衡地温和增长；欧盟经济弱复苏的节奏正被推迟；日本民间需求或受能源短缺扰动。高油价推升全球通胀，欧美的总
 
 ## 正文
 
-发布时间：2026年06月23日 10:43 来源：央视新闻 责任编辑：【王祎】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+
+来源：中信证券研究 摘要 全球经济的韧性正面临中东冲突考验，预计2026年下半年的核心特征是“供给冲击、政策约束与投资托底”并存。
+
+油价冲击的持续性是决定下半年全球宏观路径的第一变量。
+
+美国经济年内可能继续不均衡地温和增长；欧盟经济弱复苏的节奏正被推迟；日本民间需求或受能源短缺扰动。
+
+高油价推升全球通胀，欧美的总体通胀率或会在年内高位震荡；日本表观通胀率则可能延续温和表现。
+
+美联储今年可能全年不降息；欧央行6月如期加息后或按兵不动。
+
+对于中国而言，下半年宏观政策的聚焦点或更多转向结构性改革，以“反内卷”和“碳考核”优化供给，以财税改革引导需求。
+
+预计出口高景气仍将对增长形成重要带动；内需端整体保持平稳，价格端PPI高位运行而CPI保持温和，经济增速先降后升，人民币有望温和升值。
 
 ## 相关推荐
 
-- 2026-06-30 03:51 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 03:57 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-30 03:44 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-30 03:45 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-30 03:42 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-30 03:58 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-30 03:30 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-30 03:54 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-30 03:49 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-30 03:43 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-30 03:43 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-30 03:45 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-30 03:41 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-30 03:50 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-30 03:37 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-30 04:03 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-30 03:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 03:46 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-30 03:43 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-30 03:44 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-30 03:55 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 03:56 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 03:36 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-30 03:36 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-30 03:45 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-30 03:38 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 03:38 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 03:42 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:44 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/22110.shtml)
-- 2026-06-30 03:44 - [日本淘汰](https://www.blog.minike.top/Article/details/18831167.shtml)
-- 2026-06-30 03:46 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/69277.shtml)
-- 2026-06-30 03:59 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/8993384721.shtml)
-- 2026-06-30 03:49 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/367132.shtml)
-- 2026-06-30 03:46 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/4219745592.shtml)
-- 2026-06-30 03:55 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/604729864048.shtml)
-- 2026-06-30 03:53 - [巴西绝杀日本](http://www.blog.minike.top/Article/details/221068439981.shtml)
-- 2026-06-30 03:50 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/8548809.shtml)
-- 2026-06-30 03:46 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/922057.shtml)
-- 2026-06-30 03:34 - [一生一世](http://www.share.minike.top/Article/details/079459594.shtml)
-- 2026-06-30 03:44 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.minike.top/Article/details/587787608.shtml)
-- 2026-06-30 03:49 - [男子身高一米八二仍做断骨增高](http://www.share.kurohicncr.top/Article/details/13034871439.shtml)
-- 2026-06-30 03:48 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/0021442632.shtml)
-- 2026-06-30 03:49 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.minike.top/Article/details/037501252.shtml)
+- 2026-06-30 03:52 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/408419178.shtml)
+- 2026-06-30 03:47 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/379054631.shtml)
+- 2026-06-30 03:55 - [美人鱼](http://www.share.kurohicncr.top/Article/details/79566.shtml)
+- 2026-06-30 03:54 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/2487159146.shtml)
+- 2026-06-30 03:52 - [警犬“多多”助民警寻回失联老人](https://www.share.kurohicncr.top/Article/details/46955.shtml)
+- 2026-06-30 04:03 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/75450.shtml)
+- 2026-06-30 03:54 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/92245.shtml)
+- 2026-06-30 03:59 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/95460794101.shtml)
+- 2026-06-30 04:04 - [刘念回应](http://www.blog.minike.top/Article/details/58036860.shtml)
+- 2026-06-30 03:59 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/595123.shtml)
+- 2026-06-30 03:37 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/919650206.shtml)
+- 2026-06-30 03:42 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/158089843.shtml)
+- 2026-06-30 03:51 - [亚洲球队全部告别世界杯](https://www.share.minike.top/Article/details/98925.shtml)
+- 2026-06-30 03:44 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/37787285026.shtml)
+- 2026-06-30 03:41 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/732140998785.shtml)

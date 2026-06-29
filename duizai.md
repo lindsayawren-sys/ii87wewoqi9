@@ -1,54 +1,57 @@
-# 道明证券策略师将美国中性利率预期调高50个基点
+# 粽香传古韵 彩绳系情谊 外国留学生在辽体验端午文化
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-道明证券表示，较高的名义中性利率应该会使美债收益率在更长时间内保持高位，10年期国债收益率短期内将在4.25%至4.66%区间内波动。 “我们现在认为，美国名义中性利率的区间为3.25%-3.50%，比我们之前的估计高出50个基点，”Oscar Munoz等策略师表示。 “美国家庭持续的韧性、人工智能建设带来的实质性投资需求以及有利的金融环境表明，目前的货币政策立场充其量是接近
+中新网沈阳6月17日电(姜月恒)端午节前夕，来自喀麦隆、马达加斯加、叙利亚等13个国家的20余名在辽留学生走进辽宁省文化馆，开启了一场沉浸式体验端午文化之旅。他们了解端午节习俗，学习包粽子、编五彩绳，在指尖互动中感知中国传统节日文化。 “朋友一生一起走，那些日子不再有......”来自喀麦隆的沈阳工业大学留学生洛克一边熟稔地哼唱着在中国学会的旋律，一边认真地学习传统绳结技艺。他
 
 ## 正文
 
-道明证券表示，较高的名义中性利率应该会使美债收益率在更长时间内保持高位，10年期国债收益率短期内将在4.25%至4.66%区间内波动。
+中新网沈阳6月17日电(姜月恒)端午节前夕，来自喀麦隆、马达加斯加、叙利亚等13个国家的20余名在辽留学生走进辽宁省文化馆，开启了一场沉浸式体验端午文化之旅。
 
-“我们现在认为，美国名义中性利率的区间为3.25%-3.50%，比我们之前的估计高出50个基点，”Oscar Munoz等策略师表示。
+他们了解端午节习俗，学习包粽子、编五彩绳，在指尖互动中感知中国传统节日文化。
 
-“美国家庭持续的韧性、人工智能建设带来的实质性投资需求以及有利的金融环境表明，目前的货币政策立场充其量是接近中性” 道明证券还指出，尽管美国劳动力市场疲软，但服务业通胀依然强劲，这表明政策可能还不够具有限制性。
+“朋友一生一起走，那些日子不再有......”来自喀麦隆的沈阳工业大学留学生洛克一边熟稔地哼唱着在中国学会的旋律，一边认真地学习传统绳结技艺。
 
-美联储鹰派立场将持续促使美债收益率曲线趋平；而较高的中性利率则意味着美元将维持在“稳健的交易区间”。
+他目光紧盯辽宁省非物质文化遗产“金氏绳结”第四代传承人金慧娟指尖缠绕的绳结，生怕错过任何一个编织细节，用手指小心翼翼地交叉缠绕。
 
-责任编辑：于健 SF069
+“这次活动让我有很多收获，我了解了五彩绳在中国传统文化中承载着驱散疫祸的期许。
+
+”洛克手持自己亲手编织的五彩绳，言语间满是欣喜。
+
+现场认真聆听老师讲解的他，仔细记下了一些传统民俗文化，“葫芦的寓意也让我印象深刻，象征着有福有禄、顺遂吉祥，十分有趣”。
+
+与渐入佳境的洛克不同，一旁来自马达加斯加的留学生瑞南看着手中长短错落、缠绕无序的五色彩线，不由得皱紧眉头，显然被难住了。
 
 ## 相关推荐
 
-- 2026-06-30 03:41 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-30 03:33 - [房价什么时候能涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-30 03:47 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-30 03:44 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-30 03:52 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 03:57 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 03:31 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-30 03:53 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-30 03:37 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-30 03:58 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 03:40 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-30 03:46 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-30 03:58 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-30 03:57 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-30 03:36 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-30 03:48 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-30 04:04 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-30 03:59 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-30 03:43 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-30 04:03 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-30 03:54 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-30 03:53 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-30 04:02 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 03:54 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-30 03:46 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:58 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/190542.shtml)
-- 2026-06-30 03:57 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/28076712435.shtml)
-- 2026-06-30 03:34 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/33237.shtml)
-- 2026-06-30 03:49 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/252806745730.shtml)
-- 2026-06-30 03:38 - [日本16强魔咒](http://www.blog.minike.top/Article/details/01014961.shtml)
-- 2026-06-30 03:31 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/26901188675.shtml)
-- 2026-06-30 03:41 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/92154029.shtml)
-- 2026-06-30 03:55 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/2223428659.shtml)
-- 2026-06-30 03:38 - [巴西补时绝杀日本](https://www.share.kurohicncr.top/Article/details/049526648178.shtml)
-- 2026-06-30 03:42 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/92680.shtml)
-- 2026-06-30 03:53 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/734642957556.shtml)
-- 2026-06-30 03:49 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/58362249.shtml)
-- 2026-06-30 03:33 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/192248920.shtml)
-- 2026-06-30 03:58 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/719079975966.shtml)
-- 2026-06-30 03:30 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/2036371203.shtml)
+- 2026-06-30 03:41 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/0358210055.shtml)
+- 2026-06-30 04:02 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/58288.shtml)
+- 2026-06-30 04:00 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/62034795.shtml)
+- 2026-06-30 03:58 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/8241695.shtml)
+- 2026-06-30 04:03 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/7983286799.shtml)
+- 2026-06-30 03:55 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/223522.shtml)
+- 2026-06-30 03:54 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/1721277257.shtml)
+- 2026-06-30 04:01 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/064587285.shtml)
+- 2026-06-30 03:45 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/35463543461.shtml)
+- 2026-06-30 04:00 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/991872.shtml)
+- 2026-06-30 03:58 - [恋与深空回应争议](https://www.share.minike.top/Article/details/12046724329.shtml)
+- 2026-06-30 03:38 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/204244425434.shtml)
+- 2026-06-30 03:58 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/1250257.shtml)
+- 2026-06-30 03:48 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/9670312.shtml)
+- 2026-06-30 03:57 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/92339083483.shtml)

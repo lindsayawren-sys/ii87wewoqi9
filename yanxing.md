@@ -1,61 +1,56 @@
-# 从销冠到“老赖”，哪吒汽车创始人方运舟、原CEO张勇1.16亿元股权被冻结 | 长三角资本局
+# 对接国家战略 辽宁高校人才培养呈现“冷热”新图景
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-文|新浪财经上海站 十里 6月17日，哪吒汽车的故事又翻到并不体面的一页。 天眼查信息显示，哪吒汽车创始人方运舟与原CEO张勇新增两则股权冻结信息，被冻结股权标的为桐乡合创德力贰企业管理咨询合伙企业（有限合伙），冻结股权数额合计1.16亿元，冻结期限三年，执行法院为上海市长宁区人民法院。 这不是两人第一次被司法风险推到台前。就在一个月前，方运舟、张勇刚被冻结1767万元股权。今
+中新网沈阳6月16日电(姜月恒 禹瑞斋)在高校毕业生就业市场与高等教育专业调整的双重坐标下，一幅人才供需精准匹配的新图景正在辽宁展开。一边是看似“冷门”的工科专业凭借高就业率成为就业市场的“硬通货”；另一边是高校敏锐地捕捉社会需求，新设专业。近日，记者走进辽宁省两所高校，了解到高等教育正加速从“供给导向”向“需求导向”深刻转型。 “冷门”不冷：安全领域人才需求旺盛 沈阳理工大学
 
 ## 正文
 
-文|新浪财经上海站 十里 6月17日，哪吒汽车的故事又翻到并不体面的一页。
+中新网沈阳6月16日电(姜月恒 禹瑞斋)在高校毕业生就业市场与高等教育专业调整的双重坐标下，一幅人才供需精准匹配的新图景正在辽宁展开。
 
-天眼查信息显示，哪吒汽车创始人方运舟与原CEO张勇新增两则股权冻结信息，被冻结股权标的为桐乡合创德力贰企业管理咨询合伙企业（有限合伙），冻结股权数额合计1.16亿元，冻结期限三年，执行法院为上海市长宁区人民法院。
+一边是看似“冷门”的工科专业凭借高就业率成为就业市场的“硬通货”；另一边是高校敏锐地捕捉社会需求，新设专业。
 
-这不是两人第一次被司法风险推到台前。
+近日，记者走进辽宁省两所高校，了解到高等教育正加速从“供给导向”向“需求导向”深刻转型。
 
-就在一个月前，方运舟、张勇刚被冻结1767万元股权。
+“冷门”不冷：安全领域人才需求旺盛 沈阳理工大学，其特色专业常年因名称带有“安全”“爆炸”等字眼而被部分考生视为“冷门”。
 
-今年3月，两人还因“有履行能力而拒不履行”22.68万元欠款，被法院列为失信被执行人。
+然而，在近年来的就业市场上，这些专业却呈现出供不应求的火热态势。
 
-22.68万元，对于一家曾经冲击港股IPO、背后站着地方国资和明星股东的新势力车企来说，并不是一个大数字。
+6月的沈阳理工大学，弹药工程与爆炸技术、安全工程等专业的教学与实训正在有序进行。
 
-但正因为金额不大，反而更刺眼。
+“弹药工程与爆炸技术专业毕业生服务于民用爆破等领域，可替代性非常低。
 
-它像一个小小的裂口，把哪吒汽车这几年从高光到失速、从融资到重整、从造车故事到信用坍塌的过程照得很清楚。
+”沈阳理工大学弹药工程与爆炸技术专业教研室主任郭文凤介绍到，此专业融合多学科知识，适配行业复合型技术人才需求。
 
 ## 相关推荐
 
-- 2026-06-30 03:47 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-30 03:41 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-30 03:56 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-30 03:47 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-30 03:37 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-30 03:46 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 03:55 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-30 03:58 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-30 03:51 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-30 03:49 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-30 03:41 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-30 03:56 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-30 03:58 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 03:42 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-30 03:43 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-30 03:48 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-30 03:45 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 03:50 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-30 03:46 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-30 03:56 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-30 03:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-30 03:52 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-30 04:04 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-30 03:42 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-30 03:38 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:59 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/650879839.shtml)
-- 2026-06-30 03:37 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/56169188.shtml)
-- 2026-06-30 03:41 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/805592953141.shtml)
-- 2026-06-30 03:33 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/420922.shtml)
-- 2026-06-30 03:57 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/24579451.shtml)
-- 2026-06-30 03:52 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/804431585.shtml)
-- 2026-06-30 03:54 - [日本 高位逼抢](https://www.share.minike.top/Article/details/0716353.shtml)
-- 2026-06-30 03:36 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/8741196.shtml)
-- 2026-06-30 03:40 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/8170485.shtml)
-- 2026-06-30 03:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/442073436919.shtml)
-- 2026-06-30 03:38 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/2951139036.shtml)
-- 2026-06-30 03:30 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/275469425.shtml)
-- 2026-06-30 03:31 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/0988515.shtml)
-- 2026-06-30 03:31 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/07023815.shtml)
-- 2026-06-30 03:56 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/75033372276.shtml)
+- 2026-06-30 03:40 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/4783515519.shtml)
+- 2026-06-30 03:50 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/9841422.shtml)
+- 2026-06-30 03:41 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/13109.shtml)
+- 2026-06-30 03:59 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/67792482.shtml)
+- 2026-06-30 03:37 - [毒液2](http://www.blog.minike.top/Article/details/76280121.shtml)
+- 2026-06-30 04:00 - [《共患难》](http://www.blog.kurohicncr.top/Article/details/5865550.shtml)
+- 2026-06-30 03:48 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/165193569.shtml)
+- 2026-06-30 03:47 - [速度与激情9](http://www.blog.minike.top/Article/details/08110826267.shtml)
+- 2026-06-30 04:00 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/9849893799.shtml)
+- 2026-06-30 03:52 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/769439.shtml)
+- 2026-06-30 03:53 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/36068589.shtml)
+- 2026-06-30 03:37 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/780712.shtml)
+- 2026-06-30 03:54 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/99824784.shtml)
+- 2026-06-30 04:03 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/89547.shtml)
+- 2026-06-30 03:50 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/646705098704.shtml)

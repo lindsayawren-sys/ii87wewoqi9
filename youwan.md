@@ -1,56 +1,59 @@
-# 王小洪在北京调研禁毒工作时强调 坚持综合施策系统治理 纵深推进新时代禁毒人民战争
+# 航天环宇发生21笔大宗交易 合计成交4501.10万元
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-新华社北京6月23日电 在第39个国际禁毒日到来之际，国务委员、国家禁毒委员会主任王小洪23日来到北京市少年宫、北京市禁毒科技中心和国药物流有限责任公司调研禁毒工作，看望慰问一线禁毒工作者。他强调，要深入学习贯彻习近平总书记关于禁毒工作的重要指示精神，坚定拥护“两个确立”、坚决做到“两个维护”，树立和践行正确政绩观，坚持综合施策、系统治理，进一步健全毒品治理体系，纵深推进新时代
+航天环宇6月17日大宗交易平台共发生21笔成交，合计成交量97.85万股，成交金额4501.10万元。成交价格均为46.00元，相对今日收盘价折价13.53%。从参与大宗交易营业部来看，机构专用席位共出现在15笔成交的买方或卖方营业部中，合计成交金额为3001.50万元，净买入3001.50万元。进一步统计，近3个月内该股累计发生36笔大宗交易，合计成交金额为8008.37万元
 
 ## 正文
 
-新华社北京6月23日电 在第39个国际禁毒日到来之际，国务委员、国家禁毒委员会主任王小洪23日来到北京市少年宫、北京市禁毒科技中心和国药物流有限责任公司调研禁毒工作，看望慰问一线禁毒工作者。
+航天环宇6月17日大宗交易平台共发生21笔成交，合计成交量97.85万股，成交金额4501.10万元。
 
-他强调，要深入学习贯彻习近平总书记关于禁毒工作的重要指示精神，坚定拥护“两个确立”、坚决做到“两个维护”，树立和践行正确政绩观，坚持综合施策、系统治理，进一步健全毒品治理体系，纵深推进新时代禁毒人民战争。
+成交价格均为46.00元，相对今日收盘价折价13.53%。
 
-在北京市少年宫，王小洪实地调研“护航青少年健康成长”禁毒宣传主题活动开展情况，观摩禁毒文化作品展、禁毒戏剧社、“禁毒卫士”体验营等活动，并与现场开展活动的青少年互动交流。
+从参与大宗交易营业部来看，机构专用席位共出现在15笔成交的买方或卖方营业部中，合计成交金额为3001.50万元，净买入3001.50万元。
 
-他指出，要创新开展全民禁毒宣传教育，以防范药物滥用为重点，突出抓好青少年毒品预防教育，筑牢青少年识毒拒毒防线，共同呵护青少年特别是未成年人健康成长。
+进一步统计，近3个月内该股累计发生36笔大宗交易，合计成交金额为8008.37万元。
 
-在北京市禁毒科技中心，王小洪深入了解缴获麻精药品检验鉴定和禁毒科技应用等工作。
+证券时报·数据宝统计显示，航天环宇今日收盘价为53.20元，上涨1.08%，日换手率为1.51%，成交额为3.28亿元，全天主力资金净流出637.53万元，近5日该股累计上涨0.40%，近5日资金合计净流出2.41亿元。
 
-他强调，要紧密结合推进公安机关新质战斗力提升工程，加强禁毒基础技术研究，健全毒情监测预警网络，强化科技赋能禁毒实战，深化涉麻精药品等成瘾性物质打击整治，持续向毒品犯罪发起凌厉攻势。
+两融数据显示，该股最新融资余额为2.38亿元，近5日减少6449.14万元，降幅为21.33%。
 
-王小洪还来到国药物流有限责任公司，仔细听取麻精药品经营和流通管理等情况介绍。
+据天眼查APP显示，湖南航天环宇通信科技股份有限公司成立于2000年03月10日，注册资本40688万人民币。
 
-他要求，围绕麻精药品生产、储存、运输、销售、使用等各环节，坚持全链条追溯制度，推进落实信息化管理措施，建立完善更加积极主动的行刑衔接机制，严防出现流弊、形成滥用。
+（数据宝）6月17日航天环宇大宗交易一览注：本文系新闻报道，不构成投资建议，股市有风险，投资需谨慎。
 
 ## 相关推荐
 
-- 2026-06-30 03:53 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-30 03:47 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-30 03:30 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-30 03:49 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-30 03:49 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-30 03:47 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-30 03:59 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-30 03:55 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 03:53 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-30 03:53 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-30 03:46 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-30 03:48 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-30 03:49 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-30 04:04 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-30 03:53 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-30 03:39 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-30 03:41 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-30 04:05 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-30 04:05 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-30 03:42 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-30 03:43 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-30 03:45 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-30 03:56 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:47 - [起风了](http://www.share.minike.top/Article/details/5926016.shtml)
-- 2026-06-30 03:42 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/7232374.shtml)
-- 2026-06-30 03:50 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/32614500.shtml)
-- 2026-06-30 03:48 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/42434473663.shtml)
-- 2026-06-30 03:41 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/95254458.shtml)
-- 2026-06-30 03:43 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/614359.shtml)
-- 2026-06-30 03:40 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/76386.shtml)
-- 2026-06-30 03:44 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/0008345958.shtml)
-- 2026-06-30 03:35 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/239433247308.shtml)
-- 2026-06-30 03:41 - [小娘惹](http://www.blog.minike.top/Article/details/023789.shtml)
-- 2026-06-30 03:32 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/2275274.shtml)
-- 2026-06-30 03:55 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/20786.shtml)
-- 2026-06-30 03:35 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/2271148975.shtml)
-- 2026-06-30 03:32 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/87522.shtml)
-- 2026-06-30 03:31 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/399213163845.shtml)
+- 2026-06-30 04:03 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/7612740.shtml)
+- 2026-06-30 03:43 - [日本淘汰](https://www.blog.kurohicncr.top/Article/details/4709029.shtml)
+- 2026-06-30 03:47 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/2156832603.shtml)
+- 2026-06-30 04:03 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/47937351.shtml)
+- 2026-06-30 03:40 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/51524824.shtml)
+- 2026-06-30 03:49 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/28022.shtml)
+- 2026-06-30 04:00 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/383682633586.shtml)
+- 2026-06-30 04:01 - [庆祝中国共产党成立105周年音乐会](https://www.blog.minike.top/Article/details/4521056.shtml)
+- 2026-06-30 03:44 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/85187579126.shtml)
+- 2026-06-30 04:01 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/025447.shtml)
+- 2026-06-30 03:51 - [TOP Prada](http://www.share.minike.top/Article/details/58922466.shtml)
+- 2026-06-30 03:55 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/194227600.shtml)
+- 2026-06-30 03:46 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/99463372322.shtml)
+- 2026-06-30 03:36 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/524431.shtml)
+- 2026-06-30 03:54 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/72888790.shtml)

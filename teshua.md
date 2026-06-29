@@ -1,61 +1,61 @@
-# 海尔智家旗下日日顺青岛智慧物流园获评供应链韧性灯塔，李华刚发文
+# 伊朗方面称美方已开始解除对伊海上封锁
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-专题：2026第十七届夏季达沃斯论坛 6月23日消息，海尔智家董事长兼总裁李华刚今日发文透露，在世界经济论坛公布的第16批全球灯塔网络名单中，海尔智家旗下日日顺青岛智慧物流园获评供应链韧性灯塔。 李华刚介绍，这是全球首座大件供应链韧性灯塔，也是中国物流行业首次获此殊荣。至此，海尔已累计打造14座灯塔工厂，数量持续位居行业第一，形成全球规模最大、种类最全的灯塔工厂集群。 他表示，
+据伊朗方面16日消息，美国方面已开始解除针对伊朗的海上封锁。美国总统特朗普同一天表示，霍尔木兹海峡已经部分恢复通航，本周五前将全面重开。 伊朗伊斯兰共和国广播电视台记者：(美方)解除海上封锁的行动已开启——3艘伊朗油轮正在北印度洋航行，另有2艘装载基本生活物资和畜牧业饲料的船舶正驶往伊朗南部港口。 伊朗副外长拉万奇16日表示，美国解除对伊朗封锁“已在一定程度上得到落实”。 海事
 
 ## 正文
 
-专题：2026第十七届夏季达沃斯论坛 6月23日消息，海尔智家董事长兼总裁李华刚今日发文透露，在世界经济论坛公布的第16批全球灯塔网络名单中，海尔智家旗下日日顺青岛智慧物流园获评供应链韧性灯塔。
+据伊朗方面16日消息，美国方面已开始解除针对伊朗的海上封锁。
 
-李华刚介绍，这是全球首座大件供应链韧性灯塔，也是中国物流行业首次获此殊荣。
+美国总统特朗普同一天表示，霍尔木兹海峡已经部分恢复通航，本周五前将全面重开。
 
-至此，海尔已累计打造14座灯塔工厂，数量持续位居行业第一，形成全球规模最大、种类最全的灯塔工厂集群。
+伊朗伊斯兰共和国广播电视台记者：(美方)解除海上封锁的行动已开启——3艘伊朗油轮正在北印度洋航行，另有2艘装载基本生活物资和畜牧业饲料的船舶正驶往伊朗南部港口。
 
-他表示，此次入选，日日顺依托AI智能决策平台，打通供应链全流程，大幅提升园区订单响应效率与库存周转率，为企业与用户降低物流费用。
+伊朗副外长拉万奇16日表示，美国解除对伊朗封锁“已在一定程度上得到落实”。
 
-李华刚说，日日顺从家电物流起步，到如今服务十大行业、合作客户超3500家、业务覆盖近200个国家和地区。
+海事情报公司称恢复出口 两艘伊朗油轮已驶出美国封锁线 海事情报公司“油轮追踪者”17日凌晨在社交媒体发文称，该机构15日通过卫星图像核实，至少有2艘隶属伊朗国家油轮公司的超大型油轮已驶出美国海军封锁线，油轮上共载有380万桶伊朗原油。
 
-未来，海尔智家将继续以用户为中心，推动供应链全流程科技创新，为用户提供更高效、更智能、更便捷的智慧家庭体验。
+这是伊朗近两个月来首次出口原油。
 
-新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
+美方消息称伊朗可出口石油 相关制裁将获豁免 据美国方面16日消息，在美伊本周签署谅解备忘录后，伊朗即可对外销售其石油和燃料。
 
-责任编辑：梁斌 SF055
+据匿名知情人士所说，针对银行、运输和保险等伊朗石油出口相关行业的制裁也将同时获得豁免。
 
 ## 相关推荐
 
-- 2026-06-30 03:55 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-30 03:39 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-30 03:56 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-30 03:43 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-30 03:53 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-30 03:48 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-30 03:49 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-30 03:47 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 03:46 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-30 03:45 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 03:56 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-30 03:50 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-30 03:38 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-30 03:54 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-30 03:51 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-30 04:03 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-30 03:58 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-30 03:52 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-30 03:57 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-30 03:46 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 03:53 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 04:05 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-30 03:52 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-30 03:44 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-30 03:40 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 03:36 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-30 03:37 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-30 03:41 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-30 03:49 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-30 03:54 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:57 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/518030123587.shtml)
-- 2026-06-30 03:43 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/326737280884.shtml)
-- 2026-06-30 03:46 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/434726587.shtml)
-- 2026-06-30 03:50 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/23160919848.shtml)
-- 2026-06-30 03:51 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.minike.top/Article/details/4808122812.shtml)
-- 2026-06-30 03:52 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/68769261539.shtml)
-- 2026-06-30 03:43 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/993270281.shtml)
-- 2026-06-30 03:55 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/772887.shtml)
-- 2026-06-30 03:53 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/1557283.shtml)
-- 2026-06-30 03:35 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/44602329715.shtml)
-- 2026-06-30 03:46 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/747199120.shtml)
-- 2026-06-30 03:51 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/486414104592.shtml)
-- 2026-06-30 03:41 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/437342230.shtml)
-- 2026-06-30 03:43 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/4721949582.shtml)
-- 2026-06-30 03:53 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/17087494.shtml)
+- 2026-06-30 03:48 - [恋与深空 巧合](http://www.share.minike.top/Article/details/23165048223.shtml)
+- 2026-06-30 03:59 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/36321663.shtml)
+- 2026-06-30 03:42 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/897997156977.shtml)
+- 2026-06-30 03:40 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/831215.shtml)
+- 2026-06-30 03:45 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/23998514055.shtml)
+- 2026-06-30 03:43 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/51874302.shtml)
+- 2026-06-30 03:44 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/992495822.shtml)
+- 2026-06-30 03:38 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/150788.shtml)
+- 2026-06-30 03:42 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/470096756.shtml)
+- 2026-06-30 03:46 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/22953.shtml)
+- 2026-06-30 03:38 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/538389813.shtml)
+- 2026-06-30 04:01 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/600054701020.shtml)
+- 2026-06-30 03:45 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/259968748.shtml)
+- 2026-06-30 03:53 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/8041826538.shtml)
+- 2026-06-30 04:00 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/640814.shtml)

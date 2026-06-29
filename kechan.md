@@ -1,61 +1,59 @@
-# 石油危机尚未结束 霍尔木兹海峡或以低限度流量缓慢开放
+# 普冉股份涨停 营业部龙虎榜净卖出9439.15万元
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-来源：财联社 财联社6月23日讯（编辑 马兰）伊朗谈判代表团媒体委员会周一发布了美伊首轮谈判达成的五项要点。随后美国财政部发布一般许可证，授权至8月21日期间，允许涉及伊朗原产原油、石化产品及石油产品的生产、运输与销售。 这一进展推动了国际原油价格的大跌，风险市场交易情绪也大幅改善。然而，有分析指出，美伊谈判的阶段性进展仍无法阻止即将到来的石油危机，因为全球商业和战略石油及石油
+6月17日普冉股份（688766）收盘价580.20元，收盘涨停，全天换手率7.24%，振幅24.24%，成交额55.87亿元。科创板交易公开信息显示，当日该股因日收盘价涨幅达15%等上榜。证券时报·数据宝统计显示，上榜的前五大买卖营业部合计成交12.92亿元， 其中，买入成交额为5.99亿元，卖出成交额为6.93亿元，合计净卖出9439.15万元。具体来看，今日上榜的前五大买
 
 ## 正文
 
-来源：财联社 财联社6月23日讯（编辑 马兰）伊朗谈判代表团媒体委员会周一发布了美伊首轮谈判达成的五项要点。
+6月17日普冉股份（688766）收盘价580.20元，收盘涨停，全天换手率7.24%，振幅24.24%，成交额55.87亿元。
 
-随后美国财政部发布一般许可证，授权至8月21日期间，允许涉及伊朗原产原油、石化产品及石油产品的生产、运输与销售。
+科创板交易公开信息显示，当日该股因日收盘价涨幅达15%等上榜。
 
-这一进展推动了国际原油价格的大跌，风险市场交易情绪也大幅改善。
+证券时报·数据宝统计显示，上榜的前五大买卖营业部合计成交12.92亿元， 其中，买入成交额为5.99亿元，卖出成交额为6.93亿元，合计净卖出9439.15万元。
 
-然而，有分析指出，美伊谈判的阶段性进展仍无法阻止即将到来的石油危机，因为全球商业和战略石油及石油产品库存大幅消耗可能引发接下来的需求激增。
+具体来看，今日上榜的前五大买入营业部中，有1家机构专用席位现身，即买一，买入金额分别为17746.97万元，沪股通为第四大买入营业部，买入金额为10656.98万元，营业部合计买入3.15亿元。
 
-自由撰稿人、能源专家Kurt Cobb表示，全球正在接近可用石油和石油产品库存的枯竭线，一旦库存耗尽，市场就会出现竞购战，以弥补每天数百万桶的石油需求。
+卖出营业部中，沪股通为第二大卖出营业部，卖出金额为15593.84万元，营业部合计卖出5.37亿元。
 
-他强调，伊朗在谈判中要求以色列对黎巴嫩在内的所有地区停止敌对行动，作为谈判的前提条件。
+买卖金额相抵，机构专用席位今日净买入该股1.77亿元，沪股通今日净卖出该股4936.86万元。
 
-同时，美伊对霍尔木兹海峡开放的理解也有所不同，航运公司和保险公司对通过风险的评估也不同。
+资金流向方面，该股今日全天主力资金净流入2.53亿元。
 
-这意味着霍尔木兹海峡的开放持续时间、开放程度以及开放方式都可能与市场想象相去甚远，石油市场仍面临着供应端的压力。
+另据统计，近半年该股累计上榜龙虎榜6次，上榜次日股价平均涨1.24%，上榜后5日平均涨2.74%。
 
 ## 相关推荐
 
-- 2026-06-30 03:48 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-30 03:50 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-30 03:32 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-30 03:39 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-30 03:49 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-30 03:57 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 03:59 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-30 03:41 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-30 03:52 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-30 03:30 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-30 03:46 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-30 03:40 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-30 03:42 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-30 03:36 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-30 03:42 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 03:49 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-30 04:01 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-30 04:02 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-30 03:53 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-30 03:41 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-30 03:41 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-30 03:58 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 03:46 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-30 03:43 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-30 03:57 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-30 03:45 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-30 03:57 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-30 03:36 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:34 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/700538863.shtml)
-- 2026-06-30 03:54 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/902379675.shtml)
-- 2026-06-30 03:49 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/704810647605.shtml)
-- 2026-06-30 03:35 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/0876821937.shtml)
-- 2026-06-30 03:40 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/1848774630.shtml)
-- 2026-06-30 03:37 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/623430.shtml)
-- 2026-06-30 03:56 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/188601.shtml)
-- 2026-06-30 03:30 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/71538619800.shtml)
-- 2026-06-30 03:41 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/5402552.shtml)
-- 2026-06-30 03:48 - [巴西2比1日本](http://www.share.kurohicncr.top/Article/details/63054502.shtml)
-- 2026-06-30 03:31 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/082029709072.shtml)
-- 2026-06-30 03:37 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/2604660.shtml)
-- 2026-06-30 03:32 - [巴西补时绝杀日本](http://www.share.minike.top/Article/details/867588.shtml)
-- 2026-06-30 03:56 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/236543.shtml)
-- 2026-06-30 03:40 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/333294817458.shtml)
+- 2026-06-30 03:59 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/74572457.shtml)
+- 2026-06-30 03:49 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/1415565653.shtml)
+- 2026-06-30 03:47 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/17679910.shtml)
+- 2026-06-30 03:47 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/994686.shtml)
+- 2026-06-30 03:43 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/7649965479.shtml)
+- 2026-06-30 03:58 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/312753.shtml)
+- 2026-06-30 04:02 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/066356441.shtml)
+- 2026-06-30 03:57 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/8824698.shtml)
+- 2026-06-30 03:49 - [日本领先巴西](http://www.blog.minike.top/Article/details/97290.shtml)
+- 2026-06-30 03:58 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/96733276.shtml)
+- 2026-06-30 03:49 - [美股](http://www.share.kurohicncr.top/Article/details/50196268941.shtml)
+- 2026-06-30 03:47 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/29793515841.shtml)
+- 2026-06-30 03:50 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.minike.top/Article/details/59444316104.shtml)
+- 2026-06-30 03:51 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/947283155.shtml)
+- 2026-06-30 03:39 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/89869880.shtml)

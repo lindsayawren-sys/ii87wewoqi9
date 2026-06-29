@@ -1,59 +1,57 @@
-# 长江有色：23日铜价三连跌 下游企业畏高情绪浓厚
+# 银行间市场数据报告库在上海正式开业
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 6月23日铜期货市场动态：今日沪期铜主力月2608合约早盘窄幅调整，午后跌幅震荡走阔；开盘价报105200元/吨，最高105280元/吨，最低103350元/吨，昨结104800元/吨，今日收盘价报103580元/吨，跌1220元，跌幅1.16%，沪铜主力2608合约全天成交量74840手增加31305手。持仓量148166手增加1154手。亚盘时段，伦铜偏强震
+6月16日，银行间市场数据报告库（上海）股份有限公司（以下简称数据报告库）在上海正式开业。中国人民银行党委委员、副行长邹澜，上海市委常委、常务副市长吴伟出席开业仪式并致辞。 邹澜表示，设立数据报告库有利于及时准确掌握市场整体运行状况，更好服务宏观审慎管理和宏观调控，是银行间市场防风险、强监管、促高质量发展的重要里程碑。希望数据报告库真抓实干、务求实效，以高标准、高质量的金融数据
 
 ## 正文
 
-长江有色金属网 6月23日铜期货市场动态：今日沪期铜主力月2608合约早盘窄幅调整，午后跌幅震荡走阔；开盘价报105200元/吨，最高105280元/吨，最低103350元/吨，昨结104800元/吨，今日收盘价报103580元/吨，跌1220元，跌幅1.16%，沪铜主力2608合约全天成交量74840手增加31305手。
+6月16日，银行间市场数据报告库（上海）股份有限公司（以下简称数据报告库）在上海正式开业。
 
-持仓量148166手增加1154手。
+中国人民银行党委委员、副行长邹澜，上海市委常委、常务副市长吴伟出席开业仪式并致辞。
 
-亚盘时段，伦铜偏强震荡，北京时间15：08最新报价13481.5美元/吨，跌189.5 美元/吨，跌幅1.39%。
+邹澜表示，设立数据报告库有利于及时准确掌握市场整体运行状况，更好服务宏观审慎管理和宏观调控，是银行间市场防风险、强监管、促高质量发展的重要里程碑。
 
-长江铜业网铜价格统计：今日国内现货铜价格三连跌，长江现货1#铜价报104350元/吨，跌240元，升水80-升水120，跌20元；长江综合1#铜价报104305元/吨，跌245元，升水0-升水110，跌25元；广东现货1#铜价报104300元/吨，跌260元，贴水50-升水150，跌40元；上海地区1#铜价报104270元/吨，跌230元，贴水20-升水60，跌10元。
+希望数据报告库真抓实干、务求实效，以高标准、高质量的金融数据服务，更好助力宏观审慎管理和金融市场监管，为持续深化上海国际金融中心建设发挥更大作用。
 
-长江铜市分析： 宏观层面，美伊和谈的积极进展虽短暂提振了市场风险偏好，但获利了结盘迅速涌出，令铜价承压。
+吴伟表示，数据报告库落地上海，是完善上海金融市场基础设施布局的关键一步，也是上海国际金融中心建设进程中具有标志性意义的重要事件。
 
-当前市场的核心焦点已转向美联储的鹰派转向。
+希望数据报告库以数字化、智能化技术为抓手，不断强化风险智能监测、前瞻研判、精准预警能力，更好助力金融市场平稳安全运行，为持续提升上海国际金融中心能级、服务金融强国建设贡献更大力量。
 
-鉴于通胀黏性与新任主席沃什的强硬表态，美银与德意志银行等机构纷纷上调加息预期，预计美联储将在9月及12月重启加息。
+数据报告库由七家单位共同发起设立，通过高频汇集并系统分析银行间债券、货币、衍生品、黄金、票据等金融子市场交易数据，服务金融机构、宏观调控和金融市场监管。
 
-高利率环境不仅推升借贷成本、抑制经济活动，更推动美元指数强势站上101关口，对以美元计价的工业金属形成明显的估值压制。
+中国人民银行相关司局，上海市政府、相关部门，上海总部、在沪所属单位、数据报告库股东单位负责同志等参加开业仪式。
 
 ## 相关推荐
 
-- 2026-06-30 03:48 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-30 03:38 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-30 03:30 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-30 03:38 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-30 03:56 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-30 03:32 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-30 03:45 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 03:56 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-30 03:44 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-30 03:34 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-30 03:55 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-30 03:46 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-30 03:49 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 03:59 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 03:42 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-30 03:48 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-30 04:03 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-30 03:57 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-30 03:59 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 03:46 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 03:42 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-30 03:56 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-30 03:51 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 03:42 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:46 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/815334.shtml)
-- 2026-06-30 03:36 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/10965.shtml)
-- 2026-06-30 03:50 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/24327.shtml)
-- 2026-06-30 03:30 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/0587629245.shtml)
-- 2026-06-30 03:57 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/8242737.shtml)
-- 2026-06-30 03:30 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/62660046682.shtml)
-- 2026-06-30 03:34 - [上市央企地产商 两年换了三任董事长](https://www.share.kurohicncr.top/Article/details/231235084.shtml)
-- 2026-06-30 03:44 - [周生如故](http://www.blog.minike.top/Article/details/68228569061.shtml)
-- 2026-06-30 03:52 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/5717162469.shtml)
-- 2026-06-30 03:35 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/593770739499.shtml)
-- 2026-06-30 03:57 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/36800.shtml)
-- 2026-06-30 03:59 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/538419.shtml)
-- 2026-06-30 03:40 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/737547165839.shtml)
-- 2026-06-30 03:35 - [足球“出口导向”造就佛得角奇迹](http://www.share.minike.top/Article/details/0931249.shtml)
-- 2026-06-30 03:52 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/386854926.shtml)
+- 2026-06-30 03:59 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/960747.shtml)
+- 2026-06-30 03:53 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/0620435.shtml)
+- 2026-06-30 03:39 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/020048.shtml)
+- 2026-06-30 03:52 - [日本领先巴西](https://www.blog.minike.top/Article/details/794446897692.shtml)
+- 2026-06-30 03:42 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/55363273.shtml)
+- 2026-06-30 03:57 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/616482.shtml)
+- 2026-06-30 03:37 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/0995268344.shtml)
+- 2026-06-30 03:36 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/805321.shtml)
+- 2026-06-30 03:57 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/795066768.shtml)
+- 2026-06-30 04:05 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/6849819507.shtml)
+- 2026-06-30 03:47 - [流金岁月](https://www.share.kurohicncr.top/Article/details/62206018.shtml)
+- 2026-06-30 03:39 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/90604516.shtml)
+- 2026-06-30 03:51 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/3243588721.shtml)
+- 2026-06-30 03:38 - [速度与激情9](http://www.blog.minike.top/Article/details/17499.shtml)
+- 2026-06-30 03:55 - [爱很美味](https://www.blog.minike.top/Article/details/903522714443.shtml)

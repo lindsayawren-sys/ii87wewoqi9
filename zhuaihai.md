@@ -1,45 +1,58 @@
-# 以总理称以军在黎南部行动“不受限制”
+# 重磅利好！科创板第五套标准扩大至AI大模型，华宝基金科创增强ETF（589280）收获三连阳！
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月23日 10:59 来源：央视新闻 责任编辑：【王祎】
+6月17日，A股三大指数集体收涨，但是内部结构性分化极为显著，硬科技表现一枝独秀！盘面上，资金高度集中于半导体、PCB、电子等赛道。 一键布局硬科技的科创增强ETF华宝（589280）早盘低开，随后持续拉升，尾盘再度上涨，收涨2.40%，场内成交1381万元，收获日线三连阳！成份股中，盛美上海、昀冢科技、普冉股份等多股20CM涨停。 来源：Wind，截至2026.6.17 资金
 
 ## 正文
 
-发布时间：2026年06月23日 10:59 来源：央视新闻 责任编辑：【王祎】
+6月17日，A股三大指数集体收涨，但是内部结构性分化极为显著，硬科技表现一枝独秀！
+
+盘面上，资金高度集中于半导体、PCB、电子等赛道。
+
+一键布局硬科技的科创增强ETF华宝（589280）早盘低开，随后持续拉升，尾盘再度上涨，收涨2.40%，场内成交1381万元，收获日线三连阳！
+
+成份股中，盛美上海、昀冢科技、普冉股份等多股20CM涨停。
+
+来源：Wind，截至2026.6.17 资金面上，硬科技赛道再度成为资金主攻方向。
+
+按照申万一级行业来看，主力资金大幅流入电子板块，净流入额高达176亿元，高居申万31个行业首位！
+
+来源：Wind，截至2026.6.17 消息面上，科创板迎来重磅利好！
+
+2026年陆家嘴论坛于今日开幕，证监会主席吴清在演讲中指出，主动拥抱新一轮科技革命和产业变革，持续增强资本市场制度包容性、适应性。
 
 ## 相关推荐
 
-- 2026-06-30 03:47 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-30 03:59 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-30 03:49 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-30 03:31 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-30 03:43 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-30 03:45 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-30 03:33 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-30 03:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-30 03:47 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-30 03:43 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-30 03:32 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-30 03:41 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-30 03:50 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-30 03:51 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-30 03:36 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-30 04:00 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 03:41 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 03:59 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-30 03:51 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-30 03:48 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-30 04:00 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-30 03:42 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-30 03:42 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-30 03:40 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-30 03:49 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:37 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/28213.shtml)
-- 2026-06-30 03:42 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/11750932216.shtml)
-- 2026-06-30 03:53 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/434374256366.shtml)
-- 2026-06-30 03:35 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/419978329927.shtml)
-- 2026-06-30 03:45 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/203408118171.shtml)
-- 2026-06-30 03:50 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/854485393726.shtml)
-- 2026-06-30 03:51 - [巴西扳平比分](http://www.blog.minike.top/Article/details/01696228.shtml)
-- 2026-06-30 03:44 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/79888.shtml)
-- 2026-06-30 03:45 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/254555412.shtml)
-- 2026-06-30 03:36 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/09469964.shtml)
-- 2026-06-30 03:56 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/6002676.shtml)
-- 2026-06-30 03:44 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/755099440.shtml)
-- 2026-06-30 03:54 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/8199574036.shtml)
-- 2026-06-30 03:52 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/19386035.shtml)
-- 2026-06-30 03:57 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/87643225.shtml)
+- 2026-06-30 03:37 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/83808.shtml)
+- 2026-06-30 04:02 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/713654155.shtml)
+- 2026-06-30 03:57 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/8105723918.shtml)
+- 2026-06-30 03:41 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/42931113.shtml)
+- 2026-06-30 03:58 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/9147356.shtml)
+- 2026-06-30 04:05 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/43676755.shtml)
+- 2026-06-30 03:40 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.minike.top/Article/details/016165.shtml)
+- 2026-06-30 03:37 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/859734545.shtml)
+- 2026-06-30 03:56 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/762010429.shtml)
+- 2026-06-30 03:49 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/40138166.shtml)
+- 2026-06-30 04:04 - [流金岁月](http://www.share.kurohicncr.top/Article/details/0455842834.shtml)
+- 2026-06-30 03:52 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/42191.shtml)
+- 2026-06-30 04:00 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/36088101.shtml)
+- 2026-06-30 03:44 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/628512095413.shtml)
+- 2026-06-30 03:48 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/4220094.shtml)

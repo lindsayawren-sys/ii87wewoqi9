@@ -1,45 +1,51 @@
-# 让各族群众交得了知心朋友、做得了和睦邻居、结得成美满姻缘
+# 中国两部门紧急预拨1亿元支持6省份自然灾害抢险救灾
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月24日 14:43 来源：中国新闻网 责任编辑：【韦俊龙】
+中新社北京6月17日电 (记者 陈溯)记者17日从中国应急管理部获悉，财政部、应急管理部紧急预拨1亿元人民币中央自然灾害救灾资金，支持6省份做好自然灾害应急抢险救灾工作。 近期，江南南部至华南一带出现持续强降雨过程，两广地区遭遇今年“龙舟水”最强降雨过程，造成严重洪涝、地质灾害；6月16日，青海海西州发生6.3级地震，造成房屋倒损和人员伤亡。 6月17日，财政部、应急管理部紧急
 
 ## 正文
 
-发布时间：2026年06月24日 14:43 来源：中国新闻网 责任编辑：【韦俊龙】
+中新社北京6月17日电 (记者 陈溯)记者17日从中国应急管理部获悉，财政部、应急管理部紧急预拨1亿元人民币中央自然灾害救灾资金，支持6省份做好自然灾害应急抢险救灾工作。
+
+近期，江南南部至华南一带出现持续强降雨过程，两广地区遭遇今年“龙舟水”最强降雨过程，造成严重洪涝、地质灾害；6月16日，青海海西州发生6.3级地震，造成房屋倒损和人员伤亡。
+
+6月17日，财政部、应急管理部紧急预拨1亿元中央自然灾害救灾资金。
+
+其中，预拨0.8亿元支持福建、江西、湖南、广东、广西5省(区)开展洪涝、地质灾害抢险救灾工作，重点做好搜救转移安置受灾人员、排危除险等应急处置；预拨0.2亿元支持青海省重点做好危险区域民众紧急转移避险、地震灾害排危除险、应急监测等工作，推动灾区尽快恢复正常生产生活秩序。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:33 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-30 03:37 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-30 03:59 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-30 03:47 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 03:30 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-30 03:41 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-30 03:49 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-30 03:51 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-30 03:47 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-30 03:45 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-30 03:43 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-30 03:36 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-30 03:31 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-30 03:41 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 04:05 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 03:39 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-30 03:39 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-30 04:03 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-30 03:52 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-30 03:59 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-30 03:46 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-30 03:57 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-30 03:47 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-30 03:37 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:41 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/47851075.shtml)
-- 2026-06-30 03:56 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/874933.shtml)
-- 2026-06-30 03:52 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/00383159229.shtml)
-- 2026-06-30 03:35 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/062833548644.shtml)
-- 2026-06-30 03:32 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/741724819931.shtml)
-- 2026-06-30 03:53 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/632754.shtml)
-- 2026-06-30 03:50 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/729495263961.shtml)
-- 2026-06-30 03:55 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/63571.shtml)
-- 2026-06-30 03:47 - [警犬“多多”助民警寻回失联老人](https://www.share.kurohicncr.top/Article/details/8004538.shtml)
-- 2026-06-30 03:33 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/50041665.shtml)
-- 2026-06-30 03:34 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/2407633609.shtml)
-- 2026-06-30 03:30 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/897703.shtml)
-- 2026-06-30 03:49 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/91967.shtml)
-- 2026-06-30 03:55 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/80682759.shtml)
-- 2026-06-30 03:32 - [日本16强魔咒](http://www.share.minike.top/Article/details/750151278.shtml)
+- 2026-06-30 03:40 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/418500195.shtml)
+- 2026-06-30 04:03 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/5739208856.shtml)
+- 2026-06-30 03:54 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/46532254642.shtml)
+- 2026-06-30 03:59 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/2930474.shtml)
+- 2026-06-30 04:05 - [金刚川](http://www.blog.minike.top/Article/details/783084.shtml)
+- 2026-06-30 04:04 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/09842.shtml)
+- 2026-06-30 03:45 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/724814.shtml)
+- 2026-06-30 03:58 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/019379013531.shtml)
+- 2026-06-30 03:44 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/531946.shtml)
+- 2026-06-30 03:46 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/034536696.shtml)
+- 2026-06-30 04:04 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/15248.shtml)
+- 2026-06-30 03:58 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/128620.shtml)
+- 2026-06-30 03:50 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/7620608624.shtml)
+- 2026-06-30 03:55 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/700007688.shtml)
+- 2026-06-30 03:59 - [恋与深空回应争议](http://www.share.minike.top/Article/details/630881.shtml)

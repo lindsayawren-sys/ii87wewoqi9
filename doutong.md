@@ -1,47 +1,56 @@
-# 见证梅西足球史上最长的“一舞”
+# 舞动英伦，认识大运河里流淌的中国
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月23日 15:47 来源：中国新闻网 见证梅西足球史上最长的“一舞” 责任编辑：【李光伟】
+中新社伦敦6月16日电 题：舞动英伦，认识大运河里流淌的中国 中新社记者 欧阳开宇 6月的伦敦，阳光难得慷慨。 伦敦卡姆登运河的水面被风轻轻吹皱，咖啡馆的音乐与游人的谈笑声在水波间缓缓荡开。很少有人会想到，这条诞生于工业革命时期的英国运河，会与一条来自东方的古老河流相遇。 没有水流跨越欧亚大陆，抵达这里的是舞蹈。当两场突如其来的中国舞蹈快闪音乐响起时，不少人还在运河边漫步。 来
 
 ## 正文
 
-发布时间：2026年06月23日 15:47 来源：中国新闻网 见证梅西足球史上最长的“一舞” 责任编辑：【李光伟】
+中新社伦敦6月16日电 题：舞动英伦，认识大运河里流淌的中国 中新社记者 欧阳开宇 6月的伦敦，阳光难得慷慨。
+
+伦敦卡姆登运河的水面被风轻轻吹皱，咖啡馆的音乐与游人的谈笑声在水波间缓缓荡开。
+
+很少有人会想到，这条诞生于工业革命时期的英国运河，会与一条来自东方的古老河流相遇。
+
+没有水流跨越欧亚大陆，抵达这里的是舞蹈。
+
+当两场突如其来的中国舞蹈快闪音乐响起时，不少人还在运河边漫步。
+
+来自杭州歌剧舞剧院的演员们从人群中走出，在霍利码头与马厩市集相继展开表演。
+
+没有传统剧场的边界，也没有固定观演区，运河岸边、高低错落的平台、往来的游客，共同构成了一座开放式舞台。
+
+演员们演绎的是舞剧《遇见大运河》中的经典片段。
 
 ## 相关推荐
 
-- 2026-06-30 03:47 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-30 04:00 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-30 03:53 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-30 03:52 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-30 03:52 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-30 03:39 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-30 03:53 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-30 03:53 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-30 03:30 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-30 03:36 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-30 03:35 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-30 03:33 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-30 03:31 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-30 03:48 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-30 03:54 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-30 03:59 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 03:51 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 03:52 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-30 03:39 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-30 03:57 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-30 03:56 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-30 03:43 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-30 04:01 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-30 03:56 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-30 04:00 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:59 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/49406.shtml)
-- 2026-06-30 03:42 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/30965.shtml)
-- 2026-06-30 03:57 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/274669.shtml)
-- 2026-06-30 03:40 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/267129.shtml)
-- 2026-06-30 03:38 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/74905375201.shtml)
-- 2026-06-30 03:51 - [庆祝中国共产党成立105周年音乐会](https://www.blog.kurohicncr.top/Article/details/685981972984.shtml)
-- 2026-06-30 03:43 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/326882587.shtml)
-- 2026-06-30 03:33 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/56341679.shtml)
-- 2026-06-30 03:54 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/755476465.shtml)
-- 2026-06-30 03:40 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/91284.shtml)
-- 2026-06-30 03:44 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/58212338.shtml)
-- 2026-06-30 03:46 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/03060955501.shtml)
-- 2026-06-30 03:30 - [赵今麦电影开端客串路透](http://www.blog.kurohicncr.top/Article/details/55528810.shtml)
-- 2026-06-30 03:43 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/80076696033.shtml)
-- 2026-06-30 03:41 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/99796668.shtml)
+- 2026-06-30 03:59 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/967671970436.shtml)
+- 2026-06-30 03:39 - [金刚川](http://www.share.kurohicncr.top/Article/details/314231671213.shtml)
+- 2026-06-30 03:58 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/27163542.shtml)
+- 2026-06-30 04:05 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/0206100.shtml)
+- 2026-06-30 03:46 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/1564472205.shtml)
+- 2026-06-30 03:47 - [【大鸣王潮1566】真拿你没办法](https://www.share.minike.top/Article/details/966414.shtml)
+- 2026-06-30 03:56 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/067682252.shtml)
+- 2026-06-30 03:59 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/937257168.shtml)
+- 2026-06-30 03:39 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/9804957809.shtml)
+- 2026-06-30 03:36 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/941546.shtml)
+- 2026-06-30 03:41 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/6353329.shtml)
+- 2026-06-30 03:51 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/95382800187.shtml)
+- 2026-06-30 03:40 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/500438443.shtml)
+- 2026-06-30 03:54 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/0043015139.shtml)
+- 2026-06-30 03:52 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/693229.shtml)

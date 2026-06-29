@@ -1,60 +1,61 @@
-# 南非加强安全部署应对反非法移民示威
+# “望闻问切”上云端 安徽中医为海外患者开“中国处方”
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-中新网约翰内斯堡6月23日电 (记者 孙翔)南非警方22日表示，已提高全国各省警务行动准备级别，并制定安全部署计划，以应对反非法移民示威活动。 南非代理警察部长菲罗兹·卡查利亚(Firoz Cachalia)当天在新闻发布会上表示，政府尊重民众和平抗议的权利，但不会容忍犯罪、恐吓以及任何威胁公共秩序的行为。 南非反非法移民组织呼吁于6月30日举行全国示威活动。此前，南非部分地区
+中新网合肥6月17日电(江婉琪)“舌苔我看一下。”“平时会觉得手脚发烫吗？”6月17日下午，安徽中医药大学第一附属医院科研楼内，该院名誉院长、岐黄学者杨文明通过远程视频连线，为一名黎巴嫩患者提供中医诊疗服务。 安徽是中医药资源大省，中医药历史悠久，素有“北华佗、南新安”之称：华佗故里——亳州是全球规模最大的中药材交易中心；新安医学则是根植于徽文化，历史上名医辈出。杨文明认为，“
 
 ## 正文
 
-中新网约翰内斯堡6月23日电 (记者 孙翔)南非警方22日表示，已提高全国各省警务行动准备级别，并制定安全部署计划，以应对反非法移民示威活动。
+中新网合肥6月17日电(江婉琪)“舌苔我看一下。
 
-南非代理警察部长菲罗兹·卡查利亚(Firoz Cachalia)当天在新闻发布会上表示，政府尊重民众和平抗议的权利，但不会容忍犯罪、恐吓以及任何威胁公共秩序的行为。
+”“平时会觉得手脚发烫吗？
 
-南非反非法移民组织呼吁于6月30日举行全国示威活动。
+”6月17日下午，安徽中医药大学第一附属医院科研楼内，该院名誉院长、岐黄学者杨文明通过远程视频连线，为一名黎巴嫩患者提供中医诊疗服务。
 
-此前，南非部分地区出现针对外籍人员的暴力事件。
+安徽是中医药资源大省，中医药历史悠久，素有“北华佗、南新安”之称：华佗故里——亳州是全球规模最大的中药材交易中心；新安医学则是根植于徽文化，历史上名医辈出。
 
-马拉维、加纳、莫桑比克、尼日利亚和津巴布韦等国已协助数千名本国公民返回。
+杨文明认为，“云端问诊”模式突破了地域限制，让中医药文化以更便捷的方式走向世界。
 
-卡查利亚表示，南非警察局已制定全面行动方案，将加强对社区、关键基础设施和重要公共场所的保护。
+“中医讲究‘望、闻、问、切’，远程视频能实现望诊、问诊和闻诊中的听声，但切脉无法实现。
 
-警方将每日评估安全形势，并根据局势变化调整部署。
+”杨文明说。
 
-卡查利亚透露，南非警方已调配6亿兰特(约合3700万美元)资金用于此次特别行动，以保障警力和相关资源投入。
+他在问诊环节更加细致地了解患者的饮食、睡眠等日常细节，“远程诊疗前，团队会通过中医望闻问切四诊仪、脉象仪辅助采集患者的数字化脉象信息。
 
 ## 相关推荐
 
-- 2026-06-30 04:00 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-30 03:55 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 03:33 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-30 03:35 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-30 03:55 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-30 03:34 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-30 03:56 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-30 03:32 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-30 03:59 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-30 03:52 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-30 03:54 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-30 03:41 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-30 03:43 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-30 03:49 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-30 03:55 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-30 03:45 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-30 03:57 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-30 03:58 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-30 04:02 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-30 03:50 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 03:44 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-30 04:04 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-30 03:48 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 03:45 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-30 03:48 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-30 04:05 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-30 03:59 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-30 03:38 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-30 03:56 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:44 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/0023181743.shtml)
-- 2026-06-30 03:58 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/36285491717.shtml)
-- 2026-06-30 03:34 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/503282404026.shtml)
-- 2026-06-30 03:39 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/750264723.shtml)
-- 2026-06-30 03:51 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/6641052917.shtml)
-- 2026-06-30 03:53 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/23487096.shtml)
-- 2026-06-30 03:51 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/686874788.shtml)
-- 2026-06-30 03:59 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/540503595.shtml)
-- 2026-06-30 03:43 - [曝詹姆斯即将与勇士会面](http://www.share.kurohicncr.top/Article/details/03527.shtml)
-- 2026-06-30 03:34 - [《共患难》](http://www.share.kurohicncr.top/Article/details/1900352.shtml)
-- 2026-06-30 03:57 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/1328579.shtml)
-- 2026-06-30 03:56 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/58055.shtml)
-- 2026-06-30 03:56 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/5589333.shtml)
-- 2026-06-30 03:36 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/9025596.shtml)
-- 2026-06-30 03:45 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/854776.shtml)
+- 2026-06-30 03:41 - [这一刀 会很帅](https://www.share.minike.top/Article/details/30117.shtml)
+- 2026-06-30 04:02 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/2583942.shtml)
+- 2026-06-30 03:59 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/170960741.shtml)
+- 2026-06-30 03:41 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/05254.shtml)
+- 2026-06-30 04:00 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/401753758026.shtml)
+- 2026-06-30 03:49 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/40368953409.shtml)
+- 2026-06-30 03:54 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/036053718.shtml)
+- 2026-06-30 03:47 - [巴西替补奇兵读秒绝杀](http://www.share.kurohicncr.top/Article/details/8033207.shtml)
+- 2026-06-30 03:54 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/03545576.shtml)
+- 2026-06-30 03:57 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/313044.shtml)
+- 2026-06-30 03:58 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/03191.shtml)
+- 2026-06-30 03:57 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/972682467.shtml)
+- 2026-06-30 03:47 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/10271.shtml)
+- 2026-06-30 03:55 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/19642613411.shtml)
+- 2026-06-30 03:56 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/67335197150.shtml)

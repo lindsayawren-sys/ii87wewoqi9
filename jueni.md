@@ -1,43 +1,46 @@
-# 禁毒第一线：止咳药不是“上头药” 警惕成瘾危机
+# 山间鲜果映红一方乡土 浙江缙云高山杨梅的“共富”之路
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月23日 10:25 来源：央视新闻 责任编辑：【王祎】
+发布时间：2026年06月17日 14:05 来源：中国新闻网 6月，浙江省缙云县大源镇海拔五百多米的群山上，一树树杨梅错落有致，层层叠叠缀满枝头。今年，该基地内50亩山地高架智能大棚杨梅迎来首年采摘，大棚里配备了智慧化温控与水肥一体化控制系统，实现精细化管理，使其平均上市时间提早10天，稳稳抢占初夏高端鲜果市场的先机，最高可以卖到10块钱一颗。(胡丰盛） 责任编辑：【罗攀】
 
 ## 正文
 
-发布时间：2026年06月23日 10:25 来源：央视新闻 责任编辑：【王祎】
+发布时间：2026年06月17日 14:05 来源：中国新闻网 6月，浙江省缙云县大源镇海拔五百多米的群山上，一树树杨梅错落有致，层层叠叠缀满枝头。
+
+今年，该基地内50亩山地高架智能大棚杨梅迎来首年采摘，大棚里配备了智慧化温控与水肥一体化控制系统，实现精细化管理，使其平均上市时间提早10天，稳稳抢占初夏高端鲜果市场的先机，最高可以卖到10块钱一颗。
+
+(胡丰盛） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 03:54 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-30 03:33 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 03:38 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-30 03:34 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-30 03:55 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-30 03:34 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-30 03:42 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-30 03:43 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-30 03:56 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-30 03:35 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-30 03:57 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-30 03:36 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-30 03:59 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 04:03 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-30 04:05 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 03:36 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-30 03:46 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-30 03:52 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-30 03:38 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-30 03:41 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-30 03:49 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:53 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/66738317738.shtml)
-- 2026-06-30 03:55 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/757948050284.shtml)
-- 2026-06-30 03:46 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/61094105013.shtml)
-- 2026-06-30 03:35 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/057040767164.shtml)
-- 2026-06-30 03:51 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/650095.shtml)
-- 2026-06-30 03:51 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/068004605.shtml)
-- 2026-06-30 03:49 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/431298923.shtml)
-- 2026-06-30 03:31 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/246976525515.shtml)
-- 2026-06-30 03:41 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/369663093.shtml)
-- 2026-06-30 03:55 - [女子发现孩子非现任亲生起诉前任](http://www.share.kurohicncr.top/Article/details/19695130429.shtml)
-- 2026-06-30 03:45 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/857443606.shtml)
-- 2026-06-30 03:36 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/7865310772.shtml)
-- 2026-06-30 03:45 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/8966048007.shtml)
-- 2026-06-30 03:48 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/56930684.shtml)
-- 2026-06-30 03:46 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/37078725.shtml)
+- 2026-06-30 03:55 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/27288823.shtml)
+- 2026-06-30 03:57 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/60918.shtml)
+- 2026-06-30 03:40 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/89538518.shtml)
+- 2026-06-30 03:56 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/54232505637.shtml)
+- 2026-06-30 04:05 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/09361240764.shtml)
+- 2026-06-30 03:38 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/31199.shtml)
+- 2026-06-30 03:55 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/7720542.shtml)
+- 2026-06-30 03:44 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/539153.shtml)
+- 2026-06-30 03:49 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/27159.shtml)
+- 2026-06-30 03:55 - [人类...完蛋了...](http://www.share.minike.top/Article/details/98130347.shtml)
+- 2026-06-30 03:37 - [上半年全国特种设备安全形势总体平稳](https://www.blog.minike.top/Article/details/034944.shtml)
+- 2026-06-30 03:37 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/394937905.shtml)
+- 2026-06-30 03:47 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/95000621.shtml)
+- 2026-06-30 04:02 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/854892.shtml)
+- 2026-06-30 03:50 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/3322840025.shtml)

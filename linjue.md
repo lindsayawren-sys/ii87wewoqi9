@@ -1,55 +1,46 @@
-# 日本6月份制造业PMI小幅回升，新订单增速为四年多最快
+# 6月17日人民币对美元中间价报6.8096 上调12个基点
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-周二公布的一项调查显示，尽管受伊朗冲突的影响，成本压力持续加剧，但日本制造业在6月份仍保持强劲增长，新订单增速达到四年多来的最快水平。 标普全球日本6月份制造业采购经理人指数（PMI）初值小幅升至54.9，高于5月份的54.5，距4月份的55.1有所回升，后者是自2022年1月以来最强劲的扩张水平。PMI读数高于50.0表明经济活动增长，而低于50.0则表明经济活动萎缩。 工厂
+中新网6月17日电 据中国外汇交易中心网站消息，中国人民银行授权中国外汇交易中心公布，2026年6月17日银行间外汇市场人民币汇率中间价为：1美元对人民币6.8096元，上调12个基点。
 
 ## 正文
 
-周二公布的一项调查显示，尽管受伊朗冲突的影响，成本压力持续加剧，但日本制造业在6月份仍保持强劲增长，新订单增速达到四年多来的最快水平。
-
-标普全球日本6月份制造业采购经理人指数（PMI）初值小幅升至54.9，高于5月份的54.5，距4月份的55.1有所回升，后者是自2022年1月以来最强劲的扩张水平。
-
-PMI读数高于50.0表明经济活动增长，而低于50.0则表明经济活动萎缩。
-
-工厂产出增速略有加快，新订单增速也达到四年多来的最快水平。
-
-调查显示，这部分是由于客户担忧伊朗冲突可能导致供应中断和未来价格上涨，从而增加了库存。
-
-新出口订单增速较5月份略有放缓，5月份的增速曾达到五年来的最快水平。
-
-责任编辑：于健 SF069
+中新网6月17日电 据中国外汇交易中心网站消息，中国人民银行授权中国外汇交易中心公布，2026年6月17日银行间外汇市场人民币汇率中间价为：1美元对人民币6.8096元，上调12个基点。
 
 ## 相关推荐
 
-- 2026-06-30 03:39 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-30 03:47 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-30 03:40 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-30 03:31 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-30 03:35 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-30 03:31 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-30 03:37 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 03:38 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-30 03:36 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-30 03:38 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 03:51 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 03:58 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-30 04:00 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-30 03:53 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-30 03:58 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 03:39 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-30 03:46 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-30 03:42 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-30 03:45 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-30 03:44 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-30 04:02 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-30 03:49 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-30 03:42 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-30 03:41 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-30 03:49 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:58 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/44212.shtml)
-- 2026-06-30 03:38 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/25008.shtml)
-- 2026-06-30 03:59 - [啊啊啊](https://www.blog.minike.top/Article/details/05893295656.shtml)
-- 2026-06-30 03:45 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/47508894.shtml)
-- 2026-06-30 03:54 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/52456000.shtml)
-- 2026-06-30 03:31 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/49932696.shtml)
-- 2026-06-30 03:47 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/926125.shtml)
-- 2026-06-30 03:55 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/4803165.shtml)
-- 2026-06-30 03:39 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/75248757.shtml)
-- 2026-06-30 03:42 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/4222193.shtml)
-- 2026-06-30 03:37 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/837263948.shtml)
-- 2026-06-30 03:42 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/896031170.shtml)
-- 2026-06-30 03:40 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/67077826.shtml)
-- 2026-06-30 03:53 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/94281.shtml)
-- 2026-06-30 03:40 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/69836703.shtml)
+- 2026-06-30 03:45 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/2680548762.shtml)
+- 2026-06-30 03:38 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/21343471.shtml)
+- 2026-06-30 03:45 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/854533284223.shtml)
+- 2026-06-30 03:57 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/77178538.shtml)
+- 2026-06-30 03:45 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/176636.shtml)
+- 2026-06-30 03:37 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/82086408.shtml)
+- 2026-06-30 04:01 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/64101.shtml)
+- 2026-06-30 03:59 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/0105551256.shtml)
+- 2026-06-30 03:59 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/21218634039.shtml)
+- 2026-06-30 03:48 - [日本进球](https://www.share.minike.top/Article/details/65244889195.shtml)
+- 2026-06-30 03:49 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/70267971457.shtml)
+- 2026-06-30 03:38 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/464761.shtml)
+- 2026-06-30 03:44 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/78970.shtml)
+- 2026-06-30 03:40 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/581306.shtml)
+- 2026-06-30 03:58 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/613341729.shtml)

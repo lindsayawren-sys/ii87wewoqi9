@@ -1,59 +1,56 @@
-# 华侨银行家黄仲咸：裸捐过亿身家助学、建两座大厦“养”慈善
+# “长脑子”最快的5个小妙招，0成本超简单，强烈建议你试试！
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-中新网北京6月22日电 题：华侨银行家黄仲咸：裸捐过亿身家助学、建两座大厦“养”慈善 中新网记者 刘洋 今年是印尼华侨银行家黄仲咸诞辰105周年。正于福建展出的“慈善丰碑——黄仲咸与教育基金会”主题展上，丰富的图文史料记录了这位从南安走出来的华侨艰苦创业、倾资兴学的历程。 福建省黄仲咸教育基金会秘书长刘清影也来自南安，她小时候就听村里人常提起一位南洋华侨，捐果苗、拖拉机、肥料和
+来做个小调查，你最近有没有过下面这样的时刻—— 手机上一秒还拿在手里玩，下一秒就想不起来放到哪儿了； 打开冰箱瞬间忘了要拿什么，于是关上门，两秒后回忆起来，再打开，又一次秒忘； 工作开会时注意力总是不能集中，回到家想学习一下，一句话看了3遍都没记住； …… 网上冲浪的时候，我们发现，不少网友都在被这种状态困扰，“感觉自己脑子好像不够用了”： 现代社会，陷在手机里，是许多人每天的
 
 ## 正文
 
-中新网北京6月22日电 题：华侨银行家黄仲咸：裸捐过亿身家助学、建两座大厦“养”慈善 中新网记者 刘洋 今年是印尼华侨银行家黄仲咸诞辰105周年。
+来做个小调查，你最近有没有过下面这样的时刻—— 手机上一秒还拿在手里玩，下一秒就想不起来放到哪儿了； 打开冰箱瞬间忘了要拿什么，于是关上门，两秒后回忆起来，再打开，又一次秒忘； 工作开会时注意力总是不能集中，回到家想学习一下，一句话看了3遍都没记住； …… 网上冲浪的时候，我们发现，不少网友都在被这种状态困扰，“感觉自己脑子好像不够用了”： 现代社会，陷在手机里，是许多人每天的生活状态。
 
-正于福建展出的“慈善丰碑——黄仲咸与教育基金会”主题展上，丰富的图文史料记录了这位从南安走出来的华侨艰苦创业、倾资兴学的历程。
+一个又一个的短视频、手机里各种 APP弹出的消息提示，不仅挤占了我们的时间，更挤占了我们的大脑。
 
-福建省黄仲咸教育基金会秘书长刘清影也来自南安，她小时候就听村里人常提起一位南洋华侨，捐果苗、拖拉机、肥料和粮食。
+有研究显示，持续的信息过载，使大脑海马体负责信息传递的突触连接减少，神经递质分泌下降，记忆提取错误率上升\[1\]。
 
-后来，刘清影到黄仲咸捐办的幼儿园做教师，又在他的公司和基金会任职，与他共事四十余年。
+有没有什么方法能够帮我们重新“长长脑子”？
 
-接受中国侨网“华人故事”专访时，刘清影感慨道，黄老虽坐拥亿万身价，但仍保持着勤俭朴素的生活习惯。
+别担心，虽然从物理层面来看，我们的大脑确实在长大后不会再有显著的跃迁，但是我们的大脑神经元的可塑性还是非常高的，在生活中多做做下面这些小事，真的超级有用！
 
-“他是‘苦’出来的，所以做慈善很纯粹，并用长远的眼光和谋略，让慈善事业长久良性发展。
+1. 吃鱼补脑 没错，第一点也是最容易完成的一点，吃鱼。
 
-” 辗转南洋苦创业 黄仲咸1921年生于福建南安仙都村一户贫苦农家。
+鱼和其他食物最大的区别，就是鱼的体内拥有丰富的Omega-3，这种脂肪酸是一种人体必需的脂肪酸，但是又不能在人体内合成， 需要从食物中摄取。
 
-7岁起跟随父亲务农、砍柴、经营小买卖，从小习得谋生本领。
+Omega-3脂肪酸有降血脂、增强免疫力、辅助改善记忆的功能\[2\]。
 
 ## 相关推荐
 
-- 2026-06-30 03:35 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-30 03:59 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-30 03:51 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-30 03:51 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-30 03:34 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 03:49 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-30 03:41 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-30 03:31 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-30 03:37 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-30 03:42 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 03:59 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-30 03:39 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 03:33 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-30 03:39 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-30 03:53 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-30 03:38 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-30 04:00 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-30 03:54 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-30 03:37 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 03:50 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-30 04:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 03:56 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-30 03:56 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:41 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/373581.shtml)
-- 2026-06-30 03:53 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/894422577.shtml)
-- 2026-06-30 03:45 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/751943891879.shtml)
-- 2026-06-30 03:52 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/15665.shtml)
-- 2026-06-30 03:42 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/95557.shtml)
-- 2026-06-30 03:49 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/15280993.shtml)
-- 2026-06-30 03:55 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/52476413928.shtml)
-- 2026-06-30 03:58 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/3564318780.shtml)
-- 2026-06-30 03:51 - [原来周杰伦的龙拳是广告歌](http://www.blog.kurohicncr.top/Article/details/6997456519.shtml)
-- 2026-06-30 03:32 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/59309240.shtml)
-- 2026-06-30 03:47 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/174317.shtml)
-- 2026-06-30 03:41 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/784433129066.shtml)
-- 2026-06-30 03:39 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/1514078867.shtml)
-- 2026-06-30 03:37 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.kurohicncr.top/Article/details/2008485301.shtml)
-- 2026-06-30 03:46 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/72957737.shtml)
+- 2026-06-30 04:05 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/6626057.shtml)
+- 2026-06-30 03:59 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/880335.shtml)
+- 2026-06-30 03:40 - [速度与激情9](http://www.blog.minike.top/Article/details/5003990504.shtml)
+- 2026-06-30 03:41 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/80225900.shtml)
+- 2026-06-30 04:05 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/659109494.shtml)
+- 2026-06-30 03:48 - [锐评T1零封KC](http://www.share.minike.top/Article/details/867118952.shtml)
+- 2026-06-30 03:53 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/80941.shtml)
+- 2026-06-30 03:53 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/013808046694.shtml)
+- 2026-06-30 03:54 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/857696999.shtml)
+- 2026-06-30 04:02 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/2251735.shtml)
+- 2026-06-30 03:43 - [周生如故](https://www.blog.kurohicncr.top/Article/details/20696868.shtml)
+- 2026-06-30 03:56 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/900127.shtml)
+- 2026-06-30 03:43 - [金刚川](http://www.share.minike.top/Article/details/5569600.shtml)
+- 2026-06-30 03:41 - [田曦薇没招了](http://www.share.minike.top/Article/details/45353768.shtml)
+- 2026-06-30 03:47 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/336731343.shtml)

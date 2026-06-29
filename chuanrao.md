@@ -1,60 +1,61 @@
-# Cerebras上市后首份财报预测毛利率下滑，股价盘后跌10%
+# 中国美院打造赵无极美术馆：在西湖边为一位“游子”安家
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-Cerebras在其上月首次公开募股（IPO）后的首份财报中表示，营收几乎翻倍。但该公司预计毛利率将下降，导致股价在盘后交易中下跌10%。 公司业绩如下：每股亏损22美分；营收1.934亿美元。 根据公告，公司第一季度营收较去年同期的9950万美元增长92%。净亏损从去年同期的2390万美元（合每股46美分）收窄至1400万美元。 Cerebras利用投资者对AI模型运行基础设
+中新网杭州6月17日电(林波)“我们计划在西湖边建设中国美术学院(下称：中国美院)赵无极美术馆，美术馆将于2028年中国美院建校百年时对外开放。”6月17日，中国美院院长余旭红接受专访时如是表示。 当日，由中国美院等组织的“大道无极——赵无极百年回顾特展”获得首届浙江省“之江潮”文化奖“优秀奖”。 赵无极是法籍华人艺术家，也是中国美院的杰出校友。1935年，15岁的他考入国立杭
 
 ## 正文
 
-Cerebras在其上月首次公开募股（IPO）后的首份财报中表示，营收几乎翻倍。
+中新网杭州6月17日电(林波)“我们计划在西湖边建设中国美术学院(下称：中国美院)赵无极美术馆，美术馆将于2028年中国美院建校百年时对外开放。
 
-但该公司预计毛利率将下降，导致股价在盘后交易中下跌10%。
+”6月17日，中国美院院长余旭红接受专访时如是表示。
 
-公司业绩如下：每股亏损22美分；营收1.934亿美元。
+当日，由中国美院等组织的“大道无极——赵无极百年回顾特展”获得首届浙江省“之江潮”文化奖“优秀奖”。
 
-根据公告，公司第一季度营收较去年同期的9950万美元增长92%。
+赵无极是法籍华人艺术家，也是中国美院的杰出校友。
 
-净亏损从去年同期的2390万美元（合每股46美分）收窄至1400万美元。
+1935年，15岁的他考入国立杭州艺术专科学校(现中国美院)，在杭州西湖边开启了艺术生涯。
 
-Cerebras利用投资者对AI模型运行基础设施的兴趣，于5月在纳斯达克上市。
+1948年，他赴法国留学并定居，成为“抒情抽象”的代表画家。
 
-IPO定价为每股185美元，开盘价为350美元，首日收盘报311.07美元。
+其作品被法国蓬皮杜艺术中心、美国大都会艺术博物馆等全球150余个博物馆和美术馆收藏。
 
-此后该股已下跌28%，周二收盘价为226.72美元。
+1985年，赵无极回到浙江美术学院(现中国美院)举办了“赵无极绘画讲习班”，对中国美术教育界产生深远影响。
 
 ## 相关推荐
 
-- 2026-06-30 03:49 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-30 03:53 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-30 03:50 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-30 03:58 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-30 03:51 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-30 03:41 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-30 03:32 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-30 03:59 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-30 03:56 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-30 03:50 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-30 03:55 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 03:49 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-30 03:44 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-30 03:32 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-30 03:47 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-30 04:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 03:52 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-30 03:42 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-30 03:39 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-30 04:01 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-30 03:53 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-30 03:41 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 04:05 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 04:04 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-30 03:47 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-30 03:42 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 03:46 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-30 04:05 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-30 04:01 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:47 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/097886183.shtml)
-- 2026-06-30 03:53 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/8364746.shtml)
-- 2026-06-30 03:54 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/05411744721.shtml)
-- 2026-06-30 03:32 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/4201771116.shtml)
-- 2026-06-30 03:52 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/42144289259.shtml)
-- 2026-06-30 03:53 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/07770293.shtml)
-- 2026-06-30 03:33 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/44873.shtml)
-- 2026-06-30 03:51 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/4659105.shtml)
-- 2026-06-30 03:52 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/1530034944.shtml)
-- 2026-06-30 03:46 - [起风了](https://www.share.kurohicncr.top/Article/details/96054760291.shtml)
-- 2026-06-30 03:45 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/0593258671.shtml)
-- 2026-06-30 03:47 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/217897826623.shtml)
-- 2026-06-30 03:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/516937510.shtml)
-- 2026-06-30 03:46 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/49323.shtml)
-- 2026-06-30 03:48 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/369029181.shtml)
+- 2026-06-30 03:47 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/799201.shtml)
+- 2026-06-30 03:42 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/6823801.shtml)
+- 2026-06-30 03:51 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/840146958260.shtml)
+- 2026-06-30 03:39 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/5798779570.shtml)
+- 2026-06-30 03:46 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/87355717.shtml)
+- 2026-06-30 03:57 - [又一美国科技巨头转向中国大模型](http://www.share.kurohicncr.top/Article/details/5812206300.shtml)
+- 2026-06-30 03:51 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/24479906873.shtml)
+- 2026-06-30 03:48 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/76865601.shtml)
+- 2026-06-30 03:54 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/60468382.shtml)
+- 2026-06-30 03:55 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/3916528911.shtml)
+- 2026-06-30 04:00 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/14424896.shtml)
+- 2026-06-30 03:54 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/849898779855.shtml)
+- 2026-06-30 03:59 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/6210651.shtml)
+- 2026-06-30 03:36 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/41726.shtml)
+- 2026-06-30 03:44 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/8211205.shtml)

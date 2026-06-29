@@ -1,60 +1,58 @@
-# 外交部：各国企业参展链博会 反映出对中国经济前景的信心
+# 丝路游增科技味表达 裸眼3D飞天引游客“云”赏敦煌
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-6月23日，外交部发言人郭嘉昆主持例行记者会。总台记者提问，昨天，第四届中国国际供应链促进博览会在北京顺义开幕，吸引超过1200家中外参展商，其中美国参展企业和机构数量继续位列外资参展商榜首。我们注意到，中方近期密集举办系列博览会，中国-南亚博览会上周在昆明闭幕，后天中国-亚欧博览会将在乌鲁木齐举行。有分析认为，在一些国家“筑墙设垒”、推行保护主义的同时，中国则选择进一步敞开开
+中新网兰州6月16日电 (闫姣 石娇艳)裸眼3D版飞天、VR版舞剧《丝路花雨》、黏土动画版地标建筑……近年来，文旅资源大省甘肃正以数字技术为笔，创新“科技+文旅”表达引游客“云”赏敦煌。 蝉鸣盛夏，暑期将至，“丝路游”日渐升温，甘肃省文旅厅于旅游旺季推出裸眼3D版敦煌经典舞剧片段，创新采用实拍、三维后期结合AI辅助的前沿制作技术，已在人流密集的兰州市区户外大屏投放。依托裸眼3D
 
 ## 正文
 
-6月23日，外交部发言人郭嘉昆主持例行记者会。
+中新网兰州6月16日电 (闫姣 石娇艳)裸眼3D版飞天、VR版舞剧《丝路花雨》、黏土动画版地标建筑……近年来，文旅资源大省甘肃正以数字技术为笔，创新“科技+文旅”表达引游客“云”赏敦煌。
 
-总台记者提问，昨天，第四届中国国际供应链促进博览会在北京顺义开幕，吸引超过1200家中外参展商，其中美国参展企业和机构数量继续位列外资参展商榜首。
+蝉鸣盛夏，暑期将至，“丝路游”日渐升温，甘肃省文旅厅于旅游旺季推出裸眼3D版敦煌经典舞剧片段，创新采用实拍、三维后期结合AI辅助的前沿制作技术，已在人流密集的兰州市区户外大屏投放。
 
-我们注意到，中方近期密集举办系列博览会，中国-南亚博览会上周在昆明闭幕，后天中国-亚欧博览会将在乌鲁木齐举行。
+依托裸眼3D立体特效，舞剧《丝路花雨》中“英娘”在敦煌壁画前凌空起舞、跃然屏上，舞姿曼妙逼真，吸引中外游客驻足。
 
-有分析认为，在一些国家“筑墙设垒”、推行保护主义的同时，中国则选择进一步敞开开放的大门。
+“我们还打造了VR版《丝路花雨》，凝聚舞剧精华，节选其中几段最为精妙的舞姿。
 
-请问发言人对此有何评论？
+游客戴上VR眼镜后，仿佛置身舞台近身观赏，能细致入微地看到舞者的表情变化。
 
-郭嘉昆表示，链博会是全球首个以供应链为主题的国家级展会，为中外企业提供展链条、展生态、展场景的平台，搭建找合作伙伴、找解决方案的桥梁。
+”甘肃省歌舞剧院副院长、甘肃演艺集团艺术培训学校校长王琼介绍说，团队还计划推出40分钟的院线电影版《丝路花雨》，让这部经典舞剧走向更广阔的银幕舞台。
 
-本届链博会吸引超过1200家参展商，涉及85个国家、地区和国际组织，世界500强及行业龙头企业参展比例超过65%。
+“裸眼3D版敦煌舞剧的核心优势是‘街头奇观+社交传播’，线上互动游戏可通过微信小程序等轻量化入口，实现裂变式分享与低门槛参与，快速扩大‘数字丝路’品牌影响力。
 
-各国企业的参展热情，反映出对中国大市场的重视、对中国经济前景的信心。
+”甘肃省社会科学院历史研究所研究员金蓉近日接受中新网记者采访时如是说。
 
 ## 相关推荐
 
-- 2026-06-30 03:51 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-30 03:32 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-30 03:42 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-30 03:47 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-30 03:48 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-30 03:46 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-30 03:57 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-30 03:55 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-30 03:54 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 03:42 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-30 03:42 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-30 03:39 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-30 03:40 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 03:35 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-30 03:47 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-30 04:03 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-30 03:36 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-30 03:40 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-30 03:39 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-30 03:57 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 03:49 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-30 03:49 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 03:41 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 03:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-30 03:48 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-30 03:46 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:50 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/89369494.shtml)
-- 2026-06-30 03:43 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/922460104013.shtml)
-- 2026-06-30 03:53 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/3391022.shtml)
-- 2026-06-30 03:41 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/21058514655.shtml)
-- 2026-06-30 03:31 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/541892.shtml)
-- 2026-06-30 03:45 - [月亮](http://www.blog.minike.top/Article/details/68394548744.shtml)
-- 2026-06-30 03:35 - [蔚来车主罚站](https://www.share.minike.top/Article/details/3936541.shtml)
-- 2026-06-30 03:39 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/206894933362.shtml)
-- 2026-06-30 03:49 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/02931.shtml)
-- 2026-06-30 03:42 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/318855913182.shtml)
-- 2026-06-30 03:44 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/77986779379.shtml)
-- 2026-06-30 03:36 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/437374.shtml)
-- 2026-06-30 03:31 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/148185326.shtml)
-- 2026-06-30 03:39 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/8221531899.shtml)
-- 2026-06-30 03:31 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/64799.shtml)
+- 2026-06-30 03:47 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/276592515.shtml)
+- 2026-06-30 03:59 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/07700070.shtml)
+- 2026-06-30 03:44 - [杨紫被质疑未使用原名纯属误解](http://www.share.kurohicncr.top/Article/details/2479140978.shtml)
+- 2026-06-30 04:03 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/990988.shtml)
+- 2026-06-30 03:38 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/093383.shtml)
+- 2026-06-30 03:59 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/94288756.shtml)
+- 2026-06-30 03:38 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/1276693494.shtml)
+- 2026-06-30 04:00 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/948034033796.shtml)
+- 2026-06-30 03:50 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/58384035.shtml)
+- 2026-06-30 03:43 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/18744475.shtml)
+- 2026-06-30 03:45 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/3780612.shtml)
+- 2026-06-30 03:47 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/287414.shtml)
+- 2026-06-30 03:53 - [房价什么时候能涨](http://www.share.minike.top/Article/details/5561299346.shtml)
+- 2026-06-30 04:03 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/30754938.shtml)
+- 2026-06-30 03:40 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/1503221771.shtml)

@@ -1,59 +1,46 @@
-# 加息预期降温提振美债 两年期国债拍卖需求强劲
+# 一图看懂｜丁向群陆家嘴演讲金句速览：努力守护好人民群众的“钱袋子”
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-美国国债价格上涨，因美国股市遭遇抛售刺激避险需求，以及油价下跌令市场削减对美联储未来一年加息的押注。 全球半导体股票遭遇抛售，加剧了市场对AI相关股票前期涨幅过大的担忧，进而刺激了对政府债券和美元等避险资产的需求。此次两年期国债拍卖需求强劲。 油价下跌同样减轻了美联储通过加息来对抗通胀的压力。互换合约显示，市场对未来一年内加息超过一次的预期概率略有下降，目前定价反映出到2027
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 责任编辑：王馨茹
 
 ## 正文
 
-美国国债价格上涨，因美国股市遭遇抛售刺激避险需求，以及油价下跌令市场削减对美联储未来一年加息的押注。
-
-全球半导体股票遭遇抛售，加剧了市场对AI相关股票前期涨幅过大的担忧，进而刺激了对政府债券和美元等避险资产的需求。
-
-此次两年期国债拍卖需求强劲。
-
-油价下跌同样减轻了美联储通过加息来对抗通胀的压力。
-
-互换合约显示，市场对未来一年内加息超过一次的预期概率略有下降，目前定价反映出到2027年中期将累计加息约45个基点。
-
-“目前市场已充分消化美联储更为鹰派的政策预期，”RBC Capital Markets利率策略师Izaac Brook表示，经通胀调整后的两年期国债收益率已升至美联储2024年9月开始降息以来的最高水平。
-
-美国国债价格上涨带动收益率下行1至4个基点，其中对美联储政策利率变化最敏感的短期国债收益率领跌。
-
-两年期国债收益率下跌超过4个基点，至4.19%。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 03:32 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-30 03:34 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-30 03:40 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-30 03:55 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 03:30 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-30 03:34 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-30 03:59 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-30 03:46 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-30 03:33 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-30 03:30 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-30 03:51 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-30 03:49 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 03:52 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-30 03:37 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 03:39 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 03:56 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 03:46 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-30 03:55 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-30 03:53 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-30 03:40 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-30 03:58 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-30 03:46 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-30 03:54 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-30 03:53 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-30 03:54 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-30 03:50 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 04:02 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:30 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/914767674072.shtml)
-- 2026-06-30 03:54 - [绘画区你赢了](https://www.blog.minike.top/Article/details/92355456.shtml)
-- 2026-06-30 03:45 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/004208220899.shtml)
-- 2026-06-30 03:55 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/261121972.shtml)
-- 2026-06-30 03:41 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/64680.shtml)
-- 2026-06-30 03:36 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/1303573988.shtml)
-- 2026-06-30 03:49 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/869618351559.shtml)
-- 2026-06-30 03:36 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/04484.shtml)
-- 2026-06-30 03:37 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/90593216.shtml)
-- 2026-06-30 03:50 - [《共患难》](http://www.blog.minike.top/Article/details/6139518.shtml)
-- 2026-06-30 03:36 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/69641.shtml)
-- 2026-06-30 03:35 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/160158009.shtml)
-- 2026-06-30 03:50 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/0690863088.shtml)
-- 2026-06-30 03:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/48244553349.shtml)
-- 2026-06-30 03:32 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/45629346015.shtml)
+- 2026-06-30 03:59 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/1221235428.shtml)
+- 2026-06-30 03:40 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/146594.shtml)
+- 2026-06-30 03:48 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/222677581550.shtml)
+- 2026-06-30 03:40 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/46931046.shtml)
+- 2026-06-30 03:46 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/070543980.shtml)
+- 2026-06-30 03:59 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/923411.shtml)
+- 2026-06-30 03:46 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/39438.shtml)
+- 2026-06-30 03:56 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/7052195192.shtml)
+- 2026-06-30 03:48 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/39681.shtml)
+- 2026-06-30 03:46 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/42176.shtml)
+- 2026-06-30 04:02 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/9245023186.shtml)
+- 2026-06-30 04:05 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/84985.shtml)
+- 2026-06-30 03:47 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/1696034055.shtml)
+- 2026-06-30 03:36 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/488047.shtml)
+- 2026-06-30 03:40 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/3109713.shtml)

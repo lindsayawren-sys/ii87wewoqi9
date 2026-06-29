@@ -1,61 +1,58 @@
-# 多地洪涝灾害严重 广西电力部门快速响应全力保电
+# 美国以禁核武为名打响的伊朗战争 恐在核材料去向不明中草草收场
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-中新网南宁6月22日电(林艳华 毛雨贤 罗洋)连日来，“龙舟水”持续影响广西，河池、柳州、桂林、百色等地出现大雨或暴雨，龙江全线、柳江上游都柳江、洛清江中上游、古宜河上游及红水河部分支流等多条河流出现超警戒洪水，多地城区和乡镇出现严重内涝，部分电力线路和设施因灾停运。 洪灾当前，南方电网广西电网公司快速响应，全力应对，按照“先复电后抢修”的原则，及时采用发电车、发电机等进行应急
+美国总统特朗普与伊朗之间逐渐浮出水面的核协议，可能比前总统奥巴马政府谈判达成的协议更加宽松。特朗普曾嘲讽奥巴马的协议，随后将其废除。 这项潜在协议将在60天内谈判达成，并将以一份谅解备忘录为基础。备忘录仅称，伊朗接近武器级的铀库存将得到“妥善处理”。足以制造多枚核武器的材料命运仍然未决，也凸显出要在防止伊朗拥有核武器方面超过2015年协议的力度所面临的挑战。 特朗普本周就高浓缩
 
 ## 正文
 
-中新网南宁6月22日电(林艳华 毛雨贤 罗洋)连日来，“龙舟水”持续影响广西，河池、柳州、桂林、百色等地出现大雨或暴雨，龙江全线、柳江上游都柳江、洛清江中上游、古宜河上游及红水河部分支流等多条河流出现超警戒洪水，多地城区和乡镇出现严重内涝，部分电力线路和设施因灾停运。
+美国总统特朗普与伊朗之间逐渐浮出水面的核协议，可能比前总统奥巴马政府谈判达成的协议更加宽松。
 
-洪灾当前，南方电网广西电网公司快速响应，全力应对，按照“先复电后抢修”的原则，及时采用发电车、发电机等进行应急供电，满足受灾地区基本用电需求。
+特朗普曾嘲讽奥巴马的协议，随后将其废除。
 
-同时，组织力量全面开展抢修。
+这项潜在协议将在60天内谈判达成，并将以一份谅解备忘录为基础。
 
-6月21日18时20分，龙江出现192.44米洪峰水位，超警戒水位4.44米，为1970年以来最大洪水。
+备忘录仅称，伊朗接近武器级的铀库存将得到“妥善处理”。
 
-受持续强降雨及龙江水位上涨影响，河池市金城江区城区多处出现严重积水，当地医院、学校、居民小区、农贸市场等遭受洪水浸泡。
+足以制造多枚核武器的材料命运仍然未决，也凸显出要在防止伊朗拥有核武器方面超过2015年协议的力度所面临的挑战。
 
-面对河池严重汛情，南方电网广西电网公司从南宁等地跨区域调配排涝车、排涝方舱、发电车等共47台，从桂林、百色、来宾等地协调300多人的成建制抢修队伍支援河池抗汛抢修保电。
+特朗普本周就高浓缩铀的重要性释放出混杂信号。
 
-6月21日凌晨，河池市人民医院外科楼一楼内涝，河池供电局第一时间前置一辆400千瓦应急发电车至医院，在配电房被水浸泡紧急避险停电时及时接入，保障了医院稳定供电。
+他经常把这些材料称为“核尘埃”。
 
-目前，河池市人民医院门诊大楼由市电供电，外科楼、宿舍区由发电车应急供电，医院用电不受影响。
+在法国举行的七国集团会议上，他对于获取伊朗铀库存是否是结束美伊战争关键条件的态度摇摆。
 
 ## 相关推荐
 
-- 2026-06-30 03:42 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-30 03:39 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-30 03:37 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-30 03:54 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-30 03:49 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-30 03:33 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 03:41 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-30 03:59 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-30 03:46 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-30 03:38 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-30 03:45 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-30 03:43 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-30 03:58 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-30 03:41 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-30 03:49 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-30 03:47 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-30 03:48 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-30 03:55 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 03:56 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-30 04:01 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-30 03:38 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 04:04 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-30 03:53 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-30 03:39 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-30 03:59 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-30 04:00 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 04:02 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:45 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/6771596.shtml)
-- 2026-06-30 03:54 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/57958.shtml)
-- 2026-06-30 03:36 - [刘宇宁东方风云榜人气](http://www.share.kurohicncr.top/Article/details/199107843638.shtml)
-- 2026-06-30 03:59 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/3989991697.shtml)
-- 2026-06-30 03:46 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/6485789579.shtml)
-- 2026-06-30 03:44 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/12438.shtml)
-- 2026-06-30 03:46 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/9200873889.shtml)
-- 2026-06-30 03:57 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/51683283.shtml)
-- 2026-06-30 03:36 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/1978361.shtml)
-- 2026-06-30 03:47 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/469079563901.shtml)
-- 2026-06-30 03:39 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/73187481.shtml)
-- 2026-06-30 03:41 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/530351570315.shtml)
-- 2026-06-30 03:31 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/329081043787.shtml)
-- 2026-06-30 03:46 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/022696.shtml)
-- 2026-06-30 03:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/97526.shtml)
+- 2026-06-30 04:00 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/59859150984.shtml)
+- 2026-06-30 03:41 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/379564267.shtml)
+- 2026-06-30 04:00 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/3826567.shtml)
+- 2026-06-30 04:00 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/6717706395.shtml)
+- 2026-06-30 03:45 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/40336970.shtml)
+- 2026-06-30 03:53 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/0687006.shtml)
+- 2026-06-30 03:42 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/7313882742.shtml)
+- 2026-06-30 03:48 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/8153180.shtml)
+- 2026-06-30 03:37 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/41835916663.shtml)
+- 2026-06-30 03:58 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/5795777822.shtml)
+- 2026-06-30 04:01 - [美人鱼](https://www.share.minike.top/Article/details/92619.shtml)
+- 2026-06-30 03:49 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/873096.shtml)
+- 2026-06-30 03:46 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/459514152310.shtml)
+- 2026-06-30 03:40 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/90575.shtml)
+- 2026-06-30 03:47 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/874325.shtml)

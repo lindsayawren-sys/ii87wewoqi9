@@ -1,58 +1,50 @@
-# 濮耐股份刑事案件信息披露不及时 受损股民可进行预索赔登记
+# 厦门银行发布2025年年度权益分派实施公告：每股派利0.11元
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 此前，濮阳濮耐高温材料（集团）股份有限公司（以下简称“濮耐股份（维权）”）披露了收到检察院出具的《起诉书》等相关刑事案件信息。上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2025年5月1日-2026年4月24日期间买入且有持仓，无论在2026年4月25日及之后是否卖出的投资者，可通过“新
+6月17日金融一线消息，厦门银行公布2025年年度权益分派实施公告，本次利润分配以方案实施前的公司总股本2，639，127，888股为基数，每股派发现金红利0.11元（含税），共计派发现金红利290，304，067.68元。 本次权益分派股权登记日为：2026年6月25日，除权除息日为：2026年6月26日。 责任编辑：李琳琳
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 此前，濮阳濮耐高温材料（集团）股份有限公司（以下简称“濮耐股份（维权）”）披露了收到检察院出具的《起诉书》等相关刑事案件信息。
+6月17日金融一线消息，厦门银行公布2025年年度权益分派实施公告，本次利润分配以方案实施前的公司总股本2，639，127，888股为基数，每股派发现金红利0.11元（含税），共计派发现金红利290，304，067.68元。
 
-上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2025年5月1日-2026年4月24日期间买入且有持仓，无论在2026年4月25日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿预登记索赔。
+本次权益分派股权登记日为：2026年6月25日，除权除息日为：2026年6月26日。
 
-（赵敬国律师专栏） 回顾本案，2026年4月25日濮耐股份发布《关于公司收到起诉书的公告》。
-
-公告显示，濮耐股份、万华物流及被告人祁长生、孟秋凤、姚书阳、王丽波涉嫌走私国家禁止进出口的货物、物品罪，违规申报出口天然鳞片石墨共计1，243.55吨。
-
-鲅鱼圈海关缉私分局已于2025年5月至2025年9月期间对被告人祁长生、孟秋凤、姚书阳、王丽波执行逮捕。
-
-信本股民索赔团队提醒，濮耐股份刑事案件信息披露不及时，受损投资者可通过“新浪股民维权平台”自愿预登记索赔。
-
-索赔条件： 濮耐股份：于2025年5月1日-2026年4月24日期间买入且有持仓，无论在2026年4月25日及之后是否卖出（具体赔付范围由法院确定）（濮耐股份维权入口） （本文由上海市信本律师事务所合伙人赵敬国律师供稿，不代表新浪财经的观点。
-
-赵敬国律师，于1999年取得律师资格，法学理论知识扎实，曾在高校任教。
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-30 03:42 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-30 03:43 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-30 03:35 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-30 03:55 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-30 03:43 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-30 03:50 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-30 03:41 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-30 03:55 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-30 03:37 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-30 03:45 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-30 03:43 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-30 03:59 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-30 03:43 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-30 04:03 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-30 03:38 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 03:44 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-30 03:54 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-30 03:55 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-30 04:02 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-30 03:50 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-30 03:56 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-30 03:38 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-30 03:54 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-30 03:42 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-30 03:56 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 03:57 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:44 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/118281.shtml)
-- 2026-06-30 03:43 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/789619765035.shtml)
-- 2026-06-30 03:49 - [足球“出口导向”造就佛得角奇迹](http://www.blog.kurohicncr.top/Article/details/4659097.shtml)
-- 2026-06-30 03:58 - [世界杯](http://www.blog.kurohicncr.top/Article/details/70777001687.shtml)
-- 2026-06-30 03:45 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/364381742144.shtml)
-- 2026-06-30 03:58 - [TOP Prada](http://www.blog.minike.top/Article/details/39089265227.shtml)
-- 2026-06-30 03:38 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/489982117475.shtml)
-- 2026-06-30 03:33 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/9177432565.shtml)
-- 2026-06-30 03:50 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/040959919285.shtml)
-- 2026-06-30 03:49 - [穆祉丞年度人气艺人](http://www.blog.kurohicncr.top/Article/details/620629432509.shtml)
-- 2026-06-30 03:49 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/2942126425.shtml)
-- 2026-06-30 03:36 - [足球“出口导向”造就佛得角奇迹](http://www.share.kurohicncr.top/Article/details/83012669734.shtml)
-- 2026-06-30 03:32 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/241963099.shtml)
-- 2026-06-30 03:40 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/35102.shtml)
-- 2026-06-30 03:54 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/8981731515.shtml)
+- 2026-06-30 03:58 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/555369379.shtml)
+- 2026-06-30 03:56 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/5309146.shtml)
+- 2026-06-30 03:44 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/178351.shtml)
+- 2026-06-30 03:55 - [周生如故](http://www.share.kurohicncr.top/Article/details/84015302.shtml)
+- 2026-06-30 03:56 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/9900719741.shtml)
+- 2026-06-30 03:49 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/203059195.shtml)
+- 2026-06-30 03:48 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/28677654285.shtml)
+- 2026-06-30 03:54 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/61250294.shtml)
+- 2026-06-30 03:38 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/444239383.shtml)
+- 2026-06-30 03:37 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/3295254.shtml)
+- 2026-06-30 04:03 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/57277739.shtml)
+- 2026-06-30 03:46 - [巴西绝杀日本](https://www.blog.minike.top/Article/details/090705266.shtml)
+- 2026-06-30 03:46 - [千与千寻](http://www.share.minike.top/Article/details/3081636.shtml)
+- 2026-06-30 03:37 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/865647454.shtml)
+- 2026-06-30 03:53 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/22012374314.shtml)

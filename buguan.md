@@ -1,52 +1,57 @@
-# 圣贝拉集团午前涨逾5% 拟收购弗蕾亚旗下月子会所业务少数股权
+# 哈郑直流年内外送电量突破200亿千瓦时
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-圣贝拉集团（02508）盘中涨超5%，截至发稿，股价上涨4.73%，现报3.54港元，成交额812.23万港元。 6月22日，圣贝拉集团发布公告，该集团已完成向若干独立第三方（卖方）收购武汉弗蕾亚健康管理有限公司（弗蕾亚）旗下月子会所业务少数股权的战略收购，总代价约为人民币2240万元。本次收购涉及收购的权益为：武汉和安母婴护理有限公司的30%股权；武汉辰月母婴护理有限公司的3
+中新网乌鲁木齐6月17日电 (王殿雄)记者17日从国网新疆电力有限公司获悉，±800千伏哈密至郑州特高压直流输电工程(简称“哈郑直流”)2026年累计外送电量超200亿千瓦时，较去年同期提前8天实现突破200亿千瓦时关口，这条横贯东西的能源大通道输送效能持续提升。 哈郑直流是我国首个额定电压、额定输送功率均为800千伏、800万千瓦的“双八百”特高压直流工程。线路西起新疆哈密，
 
 ## 正文
 
-圣贝拉集团（02508）盘中涨超5%，截至发稿，股价上涨4.73%，现报3.54港元，成交额812.23万港元。
+中新网乌鲁木齐6月17日电 (王殿雄)记者17日从国网新疆电力有限公司获悉，±800千伏哈密至郑州特高压直流输电工程(简称“哈郑直流”)2026年累计外送电量超200亿千瓦时，较去年同期提前8天实现突破200亿千瓦时关口，这条横贯东西的能源大通道输送效能持续提升。
 
-6月22日，圣贝拉集团发布公告，该集团已完成向若干独立第三方（卖方）收购武汉弗蕾亚健康管理有限公司（弗蕾亚）旗下月子会所业务少数股权的战略收购，总代价约为人民币2240万元。
+哈郑直流是我国首个额定电压、额定输送功率均为800千伏、800万千瓦的“双八百”特高压直流工程。
 
-本次收购涉及收购的权益为：武汉和安母婴护理有限公司的30%股权；武汉辰月母婴护理有限公司的30%股权；武汉嘉月汇健康咨询有限公司的40%股权；及武汉丰华健康咨询有限公司的40%股权（统称“目标公司”）。
+线路西起新疆哈密，东至河南郑州，全长2192公里，穿越新疆、甘肃、宁夏、陕西、山西、河南六省区，也是国家“疆电外送”战略首个建成投运的特高压直流项目。
 
-根据本次收购双方的协议，倘目标公司于约定期间内达成双方协定的业绩目标，公司有权要求卖方按与本次收购相同的市盈率（P/E）倍数估值，进一步向集团出售目标公司的额外股权，使集团于相关目标公司的持股比例增至约60%至80%。
+工程自2014年投运以来，持续将新疆富余电力送往中原地区，截至目前总外送电量已超4691.83亿千瓦时，并且连续七年年外送电量稳定保持在400亿千瓦时以上。
 
-董事会认为，本次收购符合集团的整体发展战略，有利于进一步巩固集团在中国及亚洲产后护理行业的领先地位。
+今年以来，哈郑直流始终保持平稳高效运行状态，日均外送电量1.23亿千瓦时，单日最大外送电量达1.46亿千瓦时，通道大功率输电优势充分显现。
 
-责任编辑：卢昱君
+随着夏季用电高峰临近，保供电任务逐步加重。
+
+国网新疆电力提前部署、全面启动迎峰度夏运维保障工作，全力守护这条千里输电大动脉安全稳定运行。
+
+运维团队在入夏前完成全站百余项设备缺陷治理、散热系统升级及防汛隐患排查，针对高温高负荷工况下易出现问题的关键设备，建立专项监护机制。
 
 ## 相关推荐
 
-- 2026-06-30 03:35 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-30 03:37 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-30 03:52 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 03:53 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-30 03:31 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-30 03:39 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-30 03:45 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-30 03:41 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-30 03:41 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-30 03:32 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-30 04:00 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-30 03:57 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-30 03:49 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 03:38 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 03:42 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-30 03:41 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-30 03:44 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-30 03:37 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-30 03:53 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 03:36 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-30 03:51 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:44 - [逃狱兄弟](http://www.blog.minike.top/Article/details/492022378655.shtml)
-- 2026-06-30 03:48 - [法媒点赞分享中国小区降温方案](https://www.share.kurohicncr.top/Article/details/16910475.shtml)
-- 2026-06-30 03:48 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/74802992.shtml)
-- 2026-06-30 03:51 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/9832486.shtml)
-- 2026-06-30 03:33 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/728517771.shtml)
-- 2026-06-30 03:56 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/424800182.shtml)
-- 2026-06-30 03:37 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/9364061.shtml)
-- 2026-06-30 03:39 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/6805118.shtml)
-- 2026-06-30 03:55 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/72511632041.shtml)
-- 2026-06-30 03:38 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/982144.shtml)
-- 2026-06-30 03:39 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/66362820022.shtml)
-- 2026-06-30 03:46 - [普京间接喊话特朗普有何考量](http://www.share.kurohicncr.top/Article/details/7414711505.shtml)
-- 2026-06-30 03:57 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/6384986054.shtml)
-- 2026-06-30 03:34 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/2887389.shtml)
-- 2026-06-30 03:37 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/040888.shtml)
+- 2026-06-30 03:37 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/19218577962.shtml)
+- 2026-06-30 03:51 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/8540282.shtml)
+- 2026-06-30 03:58 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/50391.shtml)
+- 2026-06-30 03:49 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/956951416.shtml)
+- 2026-06-30 03:55 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/278041.shtml)
+- 2026-06-30 03:39 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.minike.top/Article/details/2447775.shtml)
+- 2026-06-30 03:39 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/8908188.shtml)
+- 2026-06-30 04:00 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/91986791.shtml)
+- 2026-06-30 03:53 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/41944844.shtml)
+- 2026-06-30 03:58 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/900984598086.shtml)
+- 2026-06-30 03:44 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/13787.shtml)
+- 2026-06-30 04:05 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/406160557094.shtml)
+- 2026-06-30 03:38 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/948071.shtml)
+- 2026-06-30 03:55 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/25152.shtml)
+- 2026-06-30 03:38 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/92651893.shtml)

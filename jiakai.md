@@ -1,60 +1,60 @@
-# 湖北省去年破获毒品犯罪案件2130起
+# 从规模扩张到功能升级 离岸金融锚定上海金融发展新阶段
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-中新网武汉6月23日电 (记者 武一力)记者从湖北省政府新闻办23日召开的新闻发布会获悉，2025年，湖北省破获毒品犯罪案件2130起、抓获重大逃犯28人；共缴获毒品239.4千克，其中来源境外占比达88%。 据介绍，湖北省构建起科学化、人性化吸毒人员管控帮扶体系，有效降低复吸率，化解涉毒风险。湖北省禁毒办会同相关部门更新完善在册吸毒人员“一人一档”，推动纳入各级公安基础管控中
+中新社上海6月17日电 (高志苗)以“全球治理倡议下的金融发展与合作：新愿景、新挑战和新机遇”为主题的2026陆家嘴论坛17日在上海开幕，《上海国际金融中心发展离岸金融行动方案》同期发布。从规模扩张到功能升级，离岸金融行动方案锚定上海国际金融中心发展新阶段。 该《行动方案》从支持在浦东新区开展离岸金融先行先试、资金流动与账户管理、数字化应用、离岸金融业务、离岸金融法律制度体系、
 
 ## 正文
 
-中新网武汉6月23日电 (记者 武一力)记者从湖北省政府新闻办23日召开的新闻发布会获悉，2025年，湖北省破获毒品犯罪案件2130起、抓获重大逃犯28人；共缴获毒品239.4千克，其中来源境外占比达88%。
+中新社上海6月17日电 (高志苗)以“全球治理倡议下的金融发展与合作：新愿景、新挑战和新机遇”为主题的2026陆家嘴论坛17日在上海开幕，《上海国际金融中心发展离岸金融行动方案》同期发布。
 
-据介绍，湖北省构建起科学化、人性化吸毒人员管控帮扶体系，有效降低复吸率，化解涉毒风险。
+从规模扩张到功能升级，离岸金融行动方案锚定上海国际金融中心发展新阶段。
 
-湖北省禁毒办会同相关部门更新完善在册吸毒人员“一人一档”，推动纳入各级公安基础管控中心分类动态管控，全面摸清戒毒康复人员救治需求，落实临时救助、低保、医保政策；依托社区戒毒康复工作指导站，组织全省戒毒康复人员职业技能培训，解决吸毒人员实际困难，2025年以来累计帮扶救助1.7万人次。
+该《行动方案》从支持在浦东新区开展离岸金融先行先试、资金流动与账户管理、数字化应用、离岸金融业务、离岸金融法律制度体系、离岸金融监管和风险防控、统筹推进实施等方面提出重点举措，对加快上海国际金融中心建设和在更深层次、更宽领域推进金融高水平开放具有重要意义。
 
-在溯源监管方面，湖北省市场监管局、省公安厅、省应急厅、省药监局等部门对全省6000余家易制毒化学品企业和1500余家麻精药品医疗机构实施“一企一档一专班”管理服务，加强互联网化工网站巡查、重点企业管控教育，严防重点物品流入非法渠道。
+上海交通大学上海高级金融学院金融学教授朱宁在论坛上接受中新社采访时表示，上海自贸区的金融改革试验，一开始就带有清晰的方法论特征：“沙盒式”风险可控的创新，以贸易金融为起点，逐步积累制度经验。
 
-为防范青少年药物滥用，湖北多部门联合开展未成年人涉毒问题专项治理，成功打造“一堂禁毒课”“禁毒宣传教育进校园”等特色宣传品牌，有效提升青少年识毒、防毒、拒毒意识和能力。
+经过多年探索，改革正步入“深水区”，下一阶段的核心不在于简单的业务扩围，而在于从“经常账户下的便利化”向“资本账户下的有序开放”跨越，从“规模限制的逐步放松”向“规则层面与香港基本等同”迈进。
 
-2025年，湖北省新发现35岁以下人群吸毒人数同比下降38%。
+同济大学经济与管理学院经济学长聘特聘教授、财经研究所所长石建勋则指出，《行动方案》的核心逻辑是“基于风险管理能力，渐进式推进高水平制度型开放”，走的是“在岸引领、离岸探索、账户隔离”的务实路径。
 
-下一步，湖北将持续推进清剿毒品集中攻坚行动，严打中转集散、外流贩毒等突出毒品问题，同时健全完善毒品治理体系，巩固提升毒品治理成效。
+“通过技术赋能，在风险可控的‘试验田’里，先建成一套高标准的离岸金融微循环系统，再将成熟经验和监管能力向更广范围复制推广。
 
-(完)
+” 上海市经济学会副秘书长邓志超也表示，《行动方案》将发展离岸金融的落脚点聚焦于服务中国近年来快速增长的“离岸经济金融需求”。
 
 ## 相关推荐
 
-- 2026-06-30 03:43 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-30 03:34 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 03:59 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-30 03:58 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 03:40 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-30 03:31 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-30 03:49 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-30 03:53 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-30 03:47 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 03:33 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 03:58 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-30 03:43 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-30 03:38 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-30 03:56 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-30 03:57 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-30 04:00 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-30 03:47 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 03:57 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-30 03:39 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-30 04:02 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-30 03:46 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 03:54 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 03:58 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-30 03:45 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-30 04:04 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 03:46 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-30 03:36 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-30 04:03 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:44 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/95104229.shtml)
-- 2026-06-30 03:35 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/689474488397.shtml)
-- 2026-06-30 03:57 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/117018680.shtml)
-- 2026-06-30 03:38 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/471112240419.shtml)
-- 2026-06-30 03:34 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/45874948.shtml)
-- 2026-06-30 03:36 - [世界杯](https://www.share.minike.top/Article/details/16340783679.shtml)
-- 2026-06-30 03:32 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/48104061175.shtml)
-- 2026-06-30 03:34 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/157423.shtml)
-- 2026-06-30 03:37 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/1526365.shtml)
-- 2026-06-30 03:35 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/15807727251.shtml)
-- 2026-06-30 03:50 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/6936070977.shtml)
-- 2026-06-30 03:45 - [天道](http://www.share.minike.top/Article/details/04727266106.shtml)
-- 2026-06-30 03:57 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/713797833.shtml)
-- 2026-06-30 03:53 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/896285.shtml)
-- 2026-06-30 03:41 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/86087413597.shtml)
+- 2026-06-30 04:02 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/9065219518.shtml)
+- 2026-06-30 04:03 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/017775.shtml)
+- 2026-06-30 03:41 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/2156251.shtml)
+- 2026-06-30 03:55 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/445939558.shtml)
+- 2026-06-30 03:38 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/3201224.shtml)
+- 2026-06-30 03:49 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/69703067820.shtml)
+- 2026-06-30 04:01 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/6650990.shtml)
+- 2026-06-30 03:53 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/88530426.shtml)
+- 2026-06-30 04:05 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/455671692.shtml)
+- 2026-06-30 03:47 - [急先锋](http://www.blog.kurohicncr.top/Article/details/0121199541.shtml)
+- 2026-06-30 03:40 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/11424895837.shtml)
+- 2026-06-30 03:43 - [速度与激情9](https://www.blog.minike.top/Article/details/66280.shtml)
+- 2026-06-30 03:46 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/5175371551.shtml)
+- 2026-06-30 04:06 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/3123810590.shtml)
+- 2026-06-30 03:57 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/188016.shtml)

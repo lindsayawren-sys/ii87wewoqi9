@@ -1,61 +1,60 @@
-# 做好循环经济这道“必答题”
+# Anthropic主动呼吁AI监管，华盛顿的管控力度却远超其预期
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-【光明论坛】做好循环经济这道“必答题” “十五五”时期，我国经济社会发展全面迈入以降碳为重点战略方向、推动绿色转型的关键阶段。当前，循环经济正从传统的资源回收末端治理，加速迈向覆盖回收利用、新能源产业链及数字化智能化产业生态的“全链条减碳”战略，其内涵与使命发生深刻升级。 “十五五”规划纲要提出“促进循环经济发展，健全废弃物循环利用体系”，并设定了“大宗固体废弃物年利用量达到4
+核心要点 Anthropic多年来一直奔走呼吁行业监管，如今这份诉求却反噬自身。 这家当前估值接近 1 万亿美元的人工智能企业，长期标榜自身坚守 AI 安全底线。但今年以来，Anthropic第二次被纳入特朗普政府的重点监管范围，此次监管行动源于官方对其新一代大模型安全风险的担忧。 上周五晚间，就在太空探索技术公司（SpaceX）完成史上规模 IPO、首日挂牌交易结束数小时后，
 
 ## 正文
 
-【光明论坛】做好循环经济这道“必答题” “十五五”时期，我国经济社会发展全面迈入以降碳为重点战略方向、推动绿色转型的关键阶段。
+核心要点 Anthropic多年来一直奔走呼吁行业监管，如今这份诉求却反噬自身。
 
-当前，循环经济正从传统的资源回收末端治理，加速迈向覆盖回收利用、新能源产业链及数字化智能化产业生态的“全链条减碳”战略，其内涵与使命发生深刻升级。
+这家当前估值接近 1 万亿美元的人工智能企业，长期标榜自身坚守 AI 安全底线。
 
-“十五五”规划纲要提出“促进循环经济发展，健全废弃物循环利用体系”，并设定了“大宗固体废弃物年利用量达到45亿吨左右”的目标，较“十四五”提高约5亿吨。
+但今年以来，Anthropic第二次被纳入特朗普政府的重点监管范围，此次监管行动源于官方对其新一代大模型安全风险的担忧。
 
-去年12月，国务院印发《固体废物综合治理行动计划》，明确到2030年我国“主要再生资源年循环利用量达到5.1亿吨”。
+上周五晚间，就在太空探索技术公司（SpaceX）完成史上规模 IPO、首日挂牌交易结束数小时后，Anthropic对外公告，公司收到一份出口管制指令：要求立刻禁止所有外籍人员使用旗下最新克劳德系列模型 —— 寓言 5 与神话 5，管控对象覆盖美国境内外所有外籍人士，其中也包含Anthropic自身的外籍员工。
 
-今年3月正式通过的生态环境法典设立“循环经济”专章，将生产者责任延伸制度从“软约束”升级为“硬指标”，为循环经济高质量发展提供了强有力的法治支撑。
+Anthropic表示，美国政府仅援引国家安全部门相关考量，并未具体说明风险点究竟在哪。
 
-据国家循环经济协会测算，“十四五”时期循环经济对我国碳减排的综合贡献率达30%，预计2030年将进一步提升至35%。
+而就在这份管制指令下达的几天前，公司首席执行官达里奥・阿莫代伊刚刚发表专栏文章，呼吁美国出台更严肃、具备法律约束力的 AI 监管法规，赋予监管机构权限，一旦判定大模型存在安全隐患，即可叫停相关模型上线部署。
 
-在重点领域布局上，循环经济发展“十五五”规划将精准发力，重点部署传统再生资源、稀贵金属、“新三样”固体废物等回收利用举措。
+阿莫代伊在文中写道：“前沿人工智能模型和民航飞机一样，必须经过技术检测与独立审计；如果无法达到严苛的安全标准、对公共安全构成威胁，就应当暂停上线、甚至强制下线召回。
 
-其中，“新三样”是指废动力电池、废光伏组件、风机叶片，这紧密契合了“十五五”时期我国新能源产业更新升级和新建扩容的发展需求，且有效缓解了资源约束压力。
+” 这并非Anthropic首次公开呼吁政府加强对飞速迭代的 AI 行业监管。
 
 ## 相关推荐
 
-- 2026-06-30 03:57 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-30 03:53 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-30 03:58 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-30 03:44 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-30 03:57 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-30 03:56 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-30 03:44 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-30 03:34 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-30 03:48 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-30 03:31 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-30 03:49 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-30 03:54 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 03:54 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-30 03:48 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-30 03:57 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-30 03:42 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-30 03:42 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-30 04:02 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 03:54 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-30 03:48 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-30 04:01 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-30 03:41 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-30 03:55 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-30 03:43 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-30 04:03 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-30 03:44 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-30 04:05 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-30 03:48 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-30 04:02 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:36 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/657958.shtml)
-- 2026-06-30 03:44 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/4187296343.shtml)
-- 2026-06-30 03:55 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/012324.shtml)
-- 2026-06-30 03:41 - [千与千寻](https://www.share.kurohicncr.top/Article/details/77172246330.shtml)
-- 2026-06-30 03:41 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/895803.shtml)
-- 2026-06-30 03:44 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/870119924.shtml)
-- 2026-06-30 03:42 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/071056328428.shtml)
-- 2026-06-30 03:59 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/93283.shtml)
-- 2026-06-30 03:31 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/6271290.shtml)
-- 2026-06-30 03:35 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/7912529441.shtml)
-- 2026-06-30 03:40 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/75900864.shtml)
-- 2026-06-30 03:33 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/261346.shtml)
-- 2026-06-30 03:31 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/2892635415.shtml)
-- 2026-06-30 03:47 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/3101854.shtml)
-- 2026-06-30 03:55 - [足球“出口导向”造就佛得角奇迹](http://www.blog.kurohicncr.top/Article/details/082609863499.shtml)
+- 2026-06-30 03:41 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/08228009290.shtml)
+- 2026-06-30 03:59 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/428898.shtml)
+- 2026-06-30 04:02 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/087283550.shtml)
+- 2026-06-30 03:55 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/744277562.shtml)
+- 2026-06-30 03:59 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/0557927.shtml)
+- 2026-06-30 03:54 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/115864452.shtml)
+- 2026-06-30 03:46 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/38307162036.shtml)
+- 2026-06-30 03:47 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/97808803559.shtml)
+- 2026-06-30 04:01 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/242240.shtml)
+- 2026-06-30 04:02 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/202172624634.shtml)
+- 2026-06-30 03:36 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/673246646.shtml)
+- 2026-06-30 03:37 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/4000562.shtml)
+- 2026-06-30 04:02 - [金牌调解](https://www.share.kurohicncr.top/Article/details/55033.shtml)
+- 2026-06-30 03:41 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/1784525.shtml)
+- 2026-06-30 03:55 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/047609.shtml)

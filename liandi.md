@@ -1,52 +1,51 @@
-# 商务部等九部门：支持符合条件的汽车租赁及电池营运主体享受贷款贴息等政策
+# 上交所邱勇：落实好新发布的人工智能领域配套规则 推动更多创新示范案例落地
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-6月23日金融一线消息，商务部等9部门联合印发《关于培育壮大汽车后市场消费若干措施的通知》，其中提到，支持汽车租赁产业融合升级。培育壮大经营主体，推动租赁企业与汽车产业深度融合，通过集采、回购、二手车经销、二手车出口等模式打通产业链。支持符合条件的汽车租赁及电池营运主体享受贷款贴息等政策。提升汽车租赁供给能力。鼓励汽车租赁企业品牌化、连锁化、规模化发展，完善小微型客车租赁服务网
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月17日，2026陆家嘴论坛举行，上交所理事长邱勇表示，上交所下一步将发挥资本市场融资功能，更大力度支持科技创新，更好发挥科创板试验田作用。落实好新发布的人工智能领域的配套规则，推动更多创新示范案例落地。进一步落实并购六条，以并购重组推动企业向
 
 ## 正文
 
-6月23日金融一线消息，商务部等9部门联合印发《关于培育壮大汽车后市场消费若干措施的通知》，其中提到，支持汽车租赁产业融合升级。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-培育壮大经营主体，推动租赁企业与汽车产业深度融合，通过集采、回购、二手车经销、二手车出口等模式打通产业链。
+6月17日，2026陆家嘴论坛举行，上交所理事长邱勇表示，上交所下一步将发挥资本市场融资功能，更大力度支持科技创新，更好发挥科创板试验田作用。
 
-支持符合条件的汽车租赁及电池营运主体享受贷款贴息等政策。
+落实好新发布的人工智能领域的配套规则，推动更多创新示范案例落地。
 
-提升汽车租赁供给能力。
+进一步落实并购六条，以并购重组推动企业向新向优，提升再融资机制灵活性、便利度，支持上市公司转型升级、做优做强。
 
-鼓励汽车租赁企业品牌化、连锁化、规模化发展，完善小微型客车租赁服务网络，支持“异地还车”“以租代购”等多元化服务模式创新，以及汽车租赁保险产品创新，完善保险服务，降低消费者用车成本。
-
-责任编辑：秦艺
+责任编辑：常福强
 
 ## 相关推荐
 
-- 2026-06-30 03:36 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-30 03:56 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-30 03:32 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-30 03:33 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-30 03:35 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-30 03:49 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-30 03:58 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-30 03:53 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-30 03:51 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-30 03:37 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-30 04:00 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-30 03:59 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-30 03:43 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-30 03:59 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-30 03:56 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-30 03:52 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-30 03:51 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 03:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-30 03:58 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-30 03:40 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-30 03:43 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:35 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/20573827.shtml)
-- 2026-06-30 03:34 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/262990.shtml)
-- 2026-06-30 03:54 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/80856.shtml)
-- 2026-06-30 03:55 - [极限挑战第一季](http://www.share.minike.top/Article/details/66010.shtml)
-- 2026-06-30 03:56 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/212790464.shtml)
-- 2026-06-30 03:44 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/905099879.shtml)
-- 2026-06-30 03:39 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/41476896166.shtml)
-- 2026-06-30 03:37 - [上半年全国特种设备安全形势总体平稳](https://www.blog.minike.top/Article/details/619081796984.shtml)
-- 2026-06-30 03:41 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/1615968475.shtml)
-- 2026-06-30 03:34 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/311583577695.shtml)
-- 2026-06-30 03:43 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/42676789966.shtml)
-- 2026-06-30 03:43 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/93360.shtml)
-- 2026-06-30 03:32 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/74129.shtml)
-- 2026-06-30 03:30 - [时光音乐会](https://www.share.minike.top/Article/details/445223446.shtml)
-- 2026-06-30 03:59 - [巴西绝杀日本](http://www.blog.minike.top/Article/details/58638370226.shtml)
+- 2026-06-30 03:50 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/81002746275.shtml)
+- 2026-06-30 03:54 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/8670615049.shtml)
+- 2026-06-30 03:51 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/064300308191.shtml)
+- 2026-06-30 04:04 - [扬名立万](http://www.share.minike.top/Article/details/07384017.shtml)
+- 2026-06-30 03:52 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/62945322.shtml)
+- 2026-06-30 03:40 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/119841706.shtml)
+- 2026-06-30 03:38 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/0891445.shtml)
+- 2026-06-30 03:39 - [美人鱼](http://www.share.minike.top/Article/details/554401192.shtml)
+- 2026-06-30 03:36 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/526010703460.shtml)
+- 2026-06-30 03:49 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/94193.shtml)
+- 2026-06-30 03:54 - [苗族银饰](https://www.share.minike.top/Article/details/28787.shtml)
+- 2026-06-30 03:43 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/168187.shtml)
+- 2026-06-30 04:03 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/0233323.shtml)
+- 2026-06-30 03:37 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/036908202265.shtml)
+- 2026-06-30 04:03 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/579538391056.shtml)

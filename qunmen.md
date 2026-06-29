@@ -1,58 +1,58 @@
-# 广西持续加大对走私制造毒品等犯罪打击力度
+# 美国债市：沃什领导的美联储强化了市场加息预期 短债大跌
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-中新网南宁6月24日电(林浩 许林)6月24日，广西壮族自治区高级人民法院副院长陆洪鸣表示，广西法院将持续加大对走私、制造毒品等犯罪的打击力度，同步加大对“零包”贩卖等末端性毒品犯罪的打击力度，加大对新型毒品犯罪、涉麻精药品等成瘾性物质犯罪、侵害青少年以及危害农村地区毒品犯罪的惩处力度，继续注重打财断血，摧毁毒品犯罪经济基础。 当天，广西壮族自治区高级人民法院在南宁市召开新闻发
+周三短期美国国债价格大幅下跌，收益率曲线急剧走平。此前，美联储主席凯文·沃什上任后的首次政策会议上，决策者们将前景展望做了鹰派调整，同时利率保持不变。 短端收益率飙升，2年期国债收益率一度上涨15个基点至4.20%，创下2025年2月以来的最高水平；纽约时间下午3点后，该收益率维持在接近该水平；曲线中段收益率涨幅较小，远端收益率则基本保持不变。 关键收益率曲线达到2025年4月
 
 ## 正文
 
-中新网南宁6月24日电(林浩 许林)6月24日，广西壮族自治区高级人民法院副院长陆洪鸣表示，广西法院将持续加大对走私、制造毒品等犯罪的打击力度，同步加大对“零包”贩卖等末端性毒品犯罪的打击力度，加大对新型毒品犯罪、涉麻精药品等成瘾性物质犯罪、侵害青少年以及危害农村地区毒品犯罪的惩处力度，继续注重打财断血，摧毁毒品犯罪经济基础。
+周三短期美国国债价格大幅下跌，收益率曲线急剧走平。
 
-当天，广西壮族自治区高级人民法院在南宁市召开新闻发布会，发布《广西法院禁毒工作白皮书(2021—2025年)》，通报2026年以来广西法院开展禁毒工作和毒品犯罪案件审判工作情况，并公布五起重大毒品犯罪典型案例。
+此前，美联储主席凯文·沃什上任后的首次政策会议上，决策者们将前景展望做了鹰派调整，同时利率保持不变。
 
-陆洪鸣在活动中介绍，2021年至2025年，广西法院一审受理毒品犯罪案件16768件，判决发生法律效力的毒品案件被告人为24005人。
+短端收益率飙升，2年期国债收益率一度上涨15个基点至4.20%，创下2025年2月以来的最高水平；纽约时间下午3点后，该收益率维持在接近该水平；曲线中段收益率涨幅较小，远端收益率则基本保持不变。
 
-今年1月至5月，广西法院一审受理毒品犯罪案件460件。
+关键收益率曲线达到2025年4月以来最平坦；其中2年/10年收益率差收窄约10个基点，至28个基点；5年/30年收益率差下降约12个基点，降至66个基点；二者收窄幅度都是2025年4月以来最大。
 
-根据最高人民法院的执行命令，广西法院对罪行极其严重的陈四军、农凯茗、梁国昌等毒品犯罪分子依法执行死刑。
+利率决议公布的同时，美联储决策者还公布了经济和货币政策季度预测，显示出明显的鹰派转变；官员们对年底前政策利率是上升还是下降存在分歧，预测中值从3月的3.4%升至3.75%。
 
-从审判情况来看，经过多年持续重拳打击与综合治理，广西毒品犯罪高发态势得到扭转，2025年广西法院一审新收毒品犯罪案件数为1362件，较2021年下降73.13%，禁毒形势持续向好，源头治理成效明显。
+在政策会议之后的新闻发布会期间，短债维持疲态。
 
-在广西法院审理的毒品犯罪案件中，涉案毒品呈现传统、合成、新型毒品“三代并存”格局。
+与美联储会期挂钩的OIS合约充分消化到10月会议会有一次25个基点的加息，相比之下，美联储政策会议前市场体现的首次加息月份是明年1月。
 
-以海洛因为代表的传统毒品数量和占比有所下降，甲基苯丙胺(冰毒)等合成毒品仍占较大比例，国家管制的麻醉药品、精神药品等新型毒品总体呈上升态势，且加速变异、形态迷惑性极强。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-30 03:55 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-30 03:55 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-30 03:41 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-30 03:55 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-30 03:53 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-30 03:50 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-30 03:39 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-30 03:49 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-30 03:38 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-30 03:54 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-30 03:54 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-30 03:41 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-30 03:48 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-30 03:37 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-30 04:02 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-30 03:50 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 03:51 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-30 04:01 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 03:58 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 03:51 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-30 03:37 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-30 04:03 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-30 04:03 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-30 03:48 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:45 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/7399786.shtml)
-- 2026-06-30 03:41 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/6735691841.shtml)
-- 2026-06-30 03:51 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/2123553378.shtml)
-- 2026-06-30 03:33 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/975224.shtml)
-- 2026-06-30 03:41 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/063318733368.shtml)
-- 2026-06-30 03:51 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/02247689538.shtml)
-- 2026-06-30 03:31 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/5322552960.shtml)
-- 2026-06-30 03:35 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/43308285830.shtml)
-- 2026-06-30 03:37 - [田曦薇没招了](http://www.blog.minike.top/Article/details/97557146.shtml)
-- 2026-06-30 03:56 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/4876099.shtml)
-- 2026-06-30 03:52 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/597811.shtml)
-- 2026-06-30 03:33 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/2061070.shtml)
-- 2026-06-30 03:31 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/047420859642.shtml)
-- 2026-06-30 03:38 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/018729641.shtml)
-- 2026-06-30 03:46 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/511342760096.shtml)
+- 2026-06-30 03:37 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/17565.shtml)
+- 2026-06-30 03:57 - [扬名立万](http://www.share.kurohicncr.top/Article/details/8707351167.shtml)
+- 2026-06-30 03:47 - [金牌调解](http://www.share.kurohicncr.top/Article/details/9413835.shtml)
+- 2026-06-30 04:00 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/274515768.shtml)
+- 2026-06-30 03:51 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/11731.shtml)
+- 2026-06-30 04:05 - [扬名立万](http://www.blog.minike.top/Article/details/8232460.shtml)
+- 2026-06-30 03:54 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/7990265.shtml)
+- 2026-06-30 03:50 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/2660933.shtml)
+- 2026-06-30 04:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/6843961196.shtml)
+- 2026-06-30 03:53 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/6674816620.shtml)
+- 2026-06-30 03:38 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/85483.shtml)
+- 2026-06-30 03:36 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/18611655.shtml)
+- 2026-06-30 03:43 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/12056.shtml)
+- 2026-06-30 03:40 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/75380.shtml)
+- 2026-06-30 04:00 - [明星大侦探第四季](https://www.share.minike.top/Article/details/297542053.shtml)

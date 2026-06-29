@@ -1,58 +1,56 @@
-# 伊朗强调可自由使用被解冻资产
+# 中老两国迎来建交65周年暨“中老友好年”——山水连中老 侨心续华章（侨界关注）
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰6月23日电（记者沙达提陈霄）据伊朗伊斯兰共和国通讯社23日报道，伊朗外交部发言人巴加埃当天在德黑兰举行的每周例行记者会上表示，伊朗将完全根据国家利益决定如何使用其被解冻资产，且不会受到任何限制。 此前有媒体猜测根据伊美达成的协议，伊朗被解冻资金的使用权限或将受限，可能仅限于购买包括美国食品在内
+近日，老挝人民革命党中央总书记、国家主席通伦应邀对中国进行国事访问。两党两国领导人一致同意，推动中老关系实现新的跃升，携手打造新时代全天候中老命运共同体。今年是中老建交65周年暨“中老友好年”。65年来，两国始终相互依赖、守望相助，双边关系历久弥坚。特别是近些年，在两党两国最高领导人战略引领下，中老关系进入历史最好时期。在两国友好交往的长河中，旅居老挝的华侨华人扎根当地、奔走两
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+近日，老挝人民革命党中央总书记、国家主席通伦应邀对中国进行国事访问。
 
-新华社德黑兰6月23日电（记者沙达提陈霄）据伊朗伊斯兰共和国通讯社23日报道，伊朗外交部发言人巴加埃当天在德黑兰举行的每周例行记者会上表示，伊朗将完全根据国家利益决定如何使用其被解冻资产，且不会受到任何限制。
+两党两国领导人一致同意，推动中老关系实现新的跃升，携手打造新时代全天候中老命运共同体。
 
-此前有媒体猜测根据伊美达成的协议，伊朗被解冻资金的使用权限或将受限，可能仅限于购买包括美国食品在内的特定商品。
+今年是中老建交65周年暨“中老友好年”。
 
-巴加埃对此驳斥说，“这方面没有任何限制”，在购买商品方面，“伊朗农业部等相关机构将根据价格和质量做出决定”。
+65年来，两国始终相互依赖、守望相助，双边关系历久弥坚。
 
-巴加埃还说，美国颁发的伊朗原油、石化产品、成品油及相关服务的销售许可证已于22日生效，同样的原则也适用于已解冻的伊朗资产。
+特别是近些年，在两党两国最高领导人战略引领下，中老关系进入历史最好时期。
 
-“伊朗此前被冻结的资产现在完全可用，并可根据自身优先事项自由使用。
+在两国友好交往的长河中，旅居老挝的华侨华人扎根当地、奔走两地，既是岁月变迁的亲历者，也是民心相通的架桥人，更是务实合作的推动者，以拳拳侨心为中老友谊续写崭新篇章。
 
-” 在巴加埃表态后，美国总统特朗普23日在社交媒体发文称，美国财政部解冻的伊朗资产将存入由美国控制的托管账户，并将专用于从美国购买食品和医疗物资，包括美国的玉米、小麦和大豆。
+绘就人文交流新画卷 国之交在于民相亲，民相亲在于心相通。
 
-（完）责任编辑：宋雅芳
+步入“中老友好年”以来，老挝侨界联动当地政府、中资企业、民间社团，策划开展形式多样的交流活动，推动中老两国民众越走越近 “华侨华人既是中老友谊的受益者，也是推动者。
 
 ## 相关推荐
 
-- 2026-06-30 03:45 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-30 03:32 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-30 03:55 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-30 03:55 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-30 03:44 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-30 03:54 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-30 03:44 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-30 03:43 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-30 03:51 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 03:48 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-30 03:52 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-30 03:31 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-30 04:02 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-30 03:47 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 03:41 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-30 03:54 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-30 04:00 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 03:40 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-30 03:59 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-30 04:05 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-30 03:39 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-30 04:05 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:30 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/50493099.shtml)
-- 2026-06-30 03:38 - [急先锋](http://www.share.minike.top/Article/details/6245265951.shtml)
-- 2026-06-30 03:44 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/09480854.shtml)
-- 2026-06-30 03:44 - [勇敢的心第二部](https://www.share.minike.top/Article/details/87358.shtml)
-- 2026-06-30 03:55 - [巴西绝杀](http://www.share.minike.top/Article/details/625172872654.shtml)
-- 2026-06-30 03:51 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/9060053411.shtml)
-- 2026-06-30 03:31 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/851577290973.shtml)
-- 2026-06-30 03:43 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/126156212.shtml)
-- 2026-06-30 03:40 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/447428.shtml)
-- 2026-06-30 03:51 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/75025.shtml)
-- 2026-06-30 03:49 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/529630.shtml)
-- 2026-06-30 03:45 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/42119999.shtml)
-- 2026-06-30 03:30 - [千与千寻](http://www.share.minike.top/Article/details/4998964255.shtml)
-- 2026-06-30 03:30 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/8587097.shtml)
-- 2026-06-30 03:56 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/007701.shtml)
+- 2026-06-30 03:51 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/356051536576.shtml)
+- 2026-06-30 03:52 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.minike.top/Article/details/2401047607.shtml)
+- 2026-06-30 03:42 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/420521.shtml)
+- 2026-06-30 03:36 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/7178773451.shtml)
+- 2026-06-30 03:48 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/5102921.shtml)
+- 2026-06-30 04:02 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/649677895675.shtml)
+- 2026-06-30 03:57 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/03841.shtml)
+- 2026-06-30 03:59 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/875067303.shtml)
+- 2026-06-30 03:53 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/2155162.shtml)
+- 2026-06-30 04:03 - [模仿老妈打牌赢了和输了的区别！](https://www.share.kurohicncr.top/Article/details/078262623097.shtml)
+- 2026-06-30 04:05 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/5296644516.shtml)
+- 2026-06-30 03:46 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/294319085660.shtml)
+- 2026-06-30 04:05 - [创新药板块能否“苦尽甘来”](https://www.blog.minike.top/Article/details/295924521642.shtml)
+- 2026-06-30 03:48 - [房价什么时候能涨](http://www.share.minike.top/Article/details/6690704.shtml)
+- 2026-06-30 03:43 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/08355.shtml)

@@ -1,61 +1,59 @@
-# 港交所唐家成：中国企业创新“万事俱备”，资本市场要做“最后一助推”
+# 东西问丨阿努拉：十届南博会，一叶清茶何以架起文明对话之桥？
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-专题：2026第十七届夏季达沃斯论坛 6月23日，世界经济论坛第十七届新领军者年会（2026大连夏季达沃斯论坛）在大连举行。港交所董事会主席唐家成出席“中国创新模式如何行稳致远？”论坛并演讲。 谈及如何界定资本市场在规模创新中发挥的作用，唐家成指出，港交所不仅要自己创新，更要成为创新的“促进者”。“大家都想上市，那么交易所提供资金流，确保企业能够扩展规模，并通过我们的服务真正获
+中新社昆明6月17日电 题：十届南博会，一叶清茶何以架起文明对话之桥？ ——专访中国斯里兰卡“一带一路”商贸合作商会主席阿努拉 作者 时文枝 6月11日至16日，第10届中国—南亚博览会在云南昆明举行。 作为“全勤”客商，中国斯里兰卡“一带一路”商贸合作商会主席、斯里兰卡茶商阿努拉·班达(Anura Banda)亲历了南博会变迁。这位因武术结缘中国、最终投身茶业的斯里兰卡商人，
 
 ## 正文
 
-专题：2026第十七届夏季达沃斯论坛 6月23日，世界经济论坛第十七届新领军者年会（2026大连夏季达沃斯论坛）在大连举行。
+中新社昆明6月17日电 题：十届南博会，一叶清茶何以架起文明对话之桥？
 
-港交所董事会主席唐家成出席“中国创新模式如何行稳致远？
+——专访中国斯里兰卡“一带一路”商贸合作商会主席阿努拉 作者 时文枝 6月11日至16日，第10届中国—南亚博览会在云南昆明举行。
 
-”论坛并演讲。
+作为“全勤”客商，中国斯里兰卡“一带一路”商贸合作商会主席、斯里兰卡茶商阿努拉·班达(Anura Banda)亲历了南博会变迁。
 
-谈及如何界定资本市场在规模创新中发挥的作用，唐家成指出，港交所不仅要自己创新，更要成为创新的“促进者”。
+这位因武术结缘中国、最终投身茶业的斯里兰卡商人，近日在昆明接受中新社“东西问”专访，分享他的十届南博会观察。
 
-“大家都想上市，那么交易所提供资金流，确保企业能够扩展规模，并通过我们的服务真正获得市场资金，甚至走向全球。
+现将访谈实录摘要如下： 中新社记者：您因武术结缘中国，最终投身茶业。
 
-” 从数据看，过去约有40%在港上市的中资企业，其50%的盈利来自海外市场。
+在您看来，茶为何能成为连接中斯两国的桥梁？
 
-虽然受地缘政治、供应链变化和人口老龄化等因素影响，这一比例有所下降，“但仍然能够看到创新带来的切实效果”。
+阿努拉：斯里兰卡与中国是传统友好邻邦。
 
-他认为，中国在创新上“万事俱备”，因为中国拥有大量人才、多年制造业经验以及资本流，而交易所要做的，就是“进行这最后一助推，帮助企业上市”。
+中国明代航海家郑和下西洋时多次抵达斯里兰卡。
 
 ## 相关推荐
 
-- 2026-06-30 03:47 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-30 03:57 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-30 03:48 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-30 03:34 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-30 03:35 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-30 03:53 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-30 03:35 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-30 03:51 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-30 03:44 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-30 03:33 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-30 03:55 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-30 03:52 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-30 03:45 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-30 03:55 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-30 03:36 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-30 04:03 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-30 03:58 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-30 03:39 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-30 03:47 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-30 03:38 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-30 03:53 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-30 03:39 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 03:53 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-30 03:38 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-30 03:46 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-30 03:48 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-30 03:46 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-30 03:37 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:46 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/11590344.shtml)
-- 2026-06-30 03:54 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/97075204206.shtml)
-- 2026-06-30 03:54 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/68093.shtml)
-- 2026-06-30 03:43 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/3499666.shtml)
-- 2026-06-30 03:57 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/5576647715.shtml)
-- 2026-06-30 03:32 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/05901495857.shtml)
-- 2026-06-30 03:31 - [《共患难》](https://www.share.minike.top/Article/details/74906755.shtml)
-- 2026-06-30 03:59 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/099266023787.shtml)
-- 2026-06-30 03:31 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/56433.shtml)
-- 2026-06-30 03:36 - [老外对中国cosplay竟这样评价…](https://www.blog.kurohicncr.top/Article/details/81982669593.shtml)
-- 2026-06-30 03:55 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/6047301630.shtml)
-- 2026-06-30 03:41 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/1162144.shtml)
-- 2026-06-30 03:54 - [这一刀 会很帅](http://www.share.minike.top/Article/details/429911.shtml)
-- 2026-06-30 03:40 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/994903063846.shtml)
-- 2026-06-30 03:35 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/809056051.shtml)
+- 2026-06-30 03:45 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/9215369.shtml)
+- 2026-06-30 03:42 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/77097.shtml)
+- 2026-06-30 03:36 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/859375.shtml)
+- 2026-06-30 03:45 - [恋与深空 日服](https://www.share.minike.top/Article/details/43903627.shtml)
+- 2026-06-30 04:05 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/080546512.shtml)
+- 2026-06-30 03:52 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/8234304.shtml)
+- 2026-06-30 03:45 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/70408.shtml)
+- 2026-06-30 03:42 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/030366626.shtml)
+- 2026-06-30 03:55 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/29700.shtml)
+- 2026-06-30 03:55 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/994417205139.shtml)
+- 2026-06-30 04:01 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/61898.shtml)
+- 2026-06-30 04:02 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/800634043.shtml)
+- 2026-06-30 03:44 - [小娘惹](http://www.blog.minike.top/Article/details/897113975.shtml)
+- 2026-06-30 04:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/119062.shtml)
+- 2026-06-30 03:49 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/382526444.shtml)

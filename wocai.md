@@ -1,58 +1,57 @@
-# 伟大征程｜大国底气：国防和科技战线取得新成就
+# 广东持续强降雨 累计转移37601人
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-新华社北京6月22日电 题：大国底气：国防和科技战线取得新成就 新华社记者杨湛菲 仲夏时节，祖国西北巴丹吉林沙漠深处，东风航天城满目青绿。 这里更广为人知的名字是“酒泉卫星发射中心”。不到一个月前，搭载3名航天员的神舟二十三号载人飞船从这里启航，驶向“天宫”空间站。 习近平总书记深刻指出：“自力更生是中华民族自立于世界民族之林的奋斗基点，自主创新是我们攀登世界科技高峰的必由之路
+中新网广州6月17日电 (记者 王坚)广东近期连日强降雨。广东省应急管理厅17日通报称，目前，全省各地落细落实强降雨防御各项措施，累计转移危险区域人员37601人。 广东省应急管理厅介绍，据气象、水文部门监测，15日18时至16日18时，全省平均雨量24.9毫米。降雨主要集中在江门、深圳、东莞、惠州、广州等地，江门台山市川岛镇录得最大累积雨量309.9毫米和最大小时雨量117.
 
 ## 正文
 
-新华社北京6月22日电 题：大国底气：国防和科技战线取得新成就 新华社记者杨湛菲 仲夏时节，祖国西北巴丹吉林沙漠深处，东风航天城满目青绿。
+中新网广州6月17日电 (记者 王坚)广东近期连日强降雨。
 
-这里更广为人知的名字是“酒泉卫星发射中心”。
+广东省应急管理厅17日通报称，目前，全省各地落细落实强降雨防御各项措施，累计转移危险区域人员37601人。
 
-不到一个月前，搭载3名航天员的神舟二十三号载人飞船从这里启航，驶向“天宫”空间站。
+广东省应急管理厅介绍，据气象、水文部门监测，15日18时至16日18时，全省平均雨量24.9毫米。
 
-习近平总书记深刻指出：“自力更生是中华民族自立于世界民族之林的奋斗基点，自主创新是我们攀登世界科技高峰的必由之路。
+降雨主要集中在江门、深圳、东莞、惠州、广州等地，江门台山市川岛镇录得最大累积雨量309.9毫米和最大小时雨量117.5毫米。
 
-” 今日我们取得的成就，正是建立在20世纪50年代以来，一代代先辈筚路蓝缕、攻坚克难，一步步亲手打下的坚实根基之上。
+截至16日18时，全省共1个河道站略超警戒水位，水情基本平稳。
 
-那是一段格外艰难的岁月—— 研制“东方红一号”时，科学家们靠半自动手摇计算器处理大量运算任务，一条轨道算了整整一年；“两弹一星”研制团队在戈壁荒滩、深山峡谷建立基地，隐姓埋名，断绝与外界有碍工作的往来，有人甚至献出了宝贵生命；研制新中国第一艘核潜艇“长征一号”，在没有图纸资料、没有专家权威、没有外来援助的“三无”基础上起步…… 只有把关键核心技术掌握在自己手中，才能从根本上保障国家经济安全、国防安全和其他安全。
+广东气象部门预计，17日，珠江三角洲、粤西、粤东沿海市县和清远有大雨到暴雨局部(特)大暴雨，其余市县有中到大雨局部暴雨。
 
-危机关头，我们的先辈们挺过来了，中国国防科技事业挺过来了。
+据统计，截至16日18时，广东省防总维持防汛Ⅲ级应急响应和Ⅳ级救灾应急响应；珠海、河源、惠州、汕尾、梅州、揭阳等18个地市和76个县(市、区)启动防汛防暴雨应急响应。
 
-1964年10月16日，戈壁滩上一声巨响，我国第一颗原子弹爆炸成功。
+针对此轮强降雨，目前，广东省水利厅已组织堤防和水库巡查人员41768人次，巡查水库12483座次，巡查堤防4772段次。
 
 ## 相关推荐
 
-- 2026-06-30 03:55 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-30 03:46 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-30 03:32 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-30 03:40 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-30 03:43 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-30 03:54 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-30 03:39 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-30 03:38 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-30 03:55 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-30 03:36 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-30 03:46 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 03:43 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-30 03:41 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-30 03:47 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 03:56 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-30 03:41 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-30 03:41 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-30 04:03 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-30 03:49 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-30 03:47 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 03:43 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-30 04:05 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 03:51 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:47 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/640825437.shtml)
-- 2026-06-30 03:54 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/12921301.shtml)
-- 2026-06-30 03:40 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/3613426.shtml)
-- 2026-06-30 03:38 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/410114945.shtml)
-- 2026-06-30 03:34 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.minike.top/Article/details/843257138586.shtml)
-- 2026-06-30 03:39 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/27354805.shtml)
-- 2026-06-30 03:44 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/03048447999.shtml)
-- 2026-06-30 03:57 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/09252.shtml)
-- 2026-06-30 03:36 - [周生如故](http://www.blog.minike.top/Article/details/7164307670.shtml)
-- 2026-06-30 03:54 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/90328692574.shtml)
-- 2026-06-30 03:49 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/1286553.shtml)
-- 2026-06-30 03:33 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/76877.shtml)
-- 2026-06-30 03:58 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/92376.shtml)
-- 2026-06-30 03:44 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/60397935788.shtml)
-- 2026-06-30 03:55 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/137490524693.shtml)
+- 2026-06-30 03:55 - [天道](http://www.share.kurohicncr.top/Article/details/23287.shtml)
+- 2026-06-30 04:00 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/1355253503.shtml)
+- 2026-06-30 03:41 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/98350476552.shtml)
+- 2026-06-30 04:03 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/415010.shtml)
+- 2026-06-30 03:42 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/291629898731.shtml)
+- 2026-06-30 04:04 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/4382081576.shtml)
+- 2026-06-30 03:36 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/170740798.shtml)
+- 2026-06-30 04:03 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/136758519.shtml)
+- 2026-06-30 04:02 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/25365396.shtml)
+- 2026-06-30 03:55 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/669134901534.shtml)
+- 2026-06-30 04:02 - [日本淘汰](https://www.blog.minike.top/Article/details/0826471.shtml)
+- 2026-06-30 03:54 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/99062029.shtml)
+- 2026-06-30 03:38 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/5395812.shtml)
+- 2026-06-30 04:00 - [送你一朵小红花](http://www.share.minike.top/Article/details/7200047441.shtml)
+- 2026-06-30 03:47 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/11183.shtml)

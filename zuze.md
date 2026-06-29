@@ -1,54 +1,60 @@
-# 新西兰龙舟队挑战佛山“龙舟漂移”：中国是头号好地方
+# 德国波茨坦成功拆除二战遗留炸弹 约6500人被疏散
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月23日 11:01 来源：中国新闻网 近几年来的端午节前后，被誉为“水上F1”的广东佛山叠滘“漂移”龙舟‌都会成为传统龙舟文化“夯爆了”的代表，从南方水乡的小河里，到火遍全国，再到今年，连南半球的老外，都来凑热闹了。 跨越一万公里，从寒冷的冬季一头扎进夏天的河水，这支三十多人的新西兰队伍可不是来当观光客的，他们中大部分都是毛利汉子，一个个身材健硕，脸上
+中新社柏林6月16日电 综合德国媒体报道，一枚第二次世界大战遗留美制航空炸弹于16日在德国勃兰登堡州首府波茨坦市中心被成功拆除。 报道称，这枚炸弹于80多年前被投落到波茨坦。炸弹重达250公斤，在一次系统性搜查中被发现，内部装有约100公斤炸药。爆炸物处理专家迈克·施维茨克表示，这样一枚炸弹足以将一栋多户住宅楼炸成废墟。 为确保安全，当局在发现地点周边设立半径约700米的警戒区
 
 ## 正文
 
-发布时间：2026年06月23日 11:01 来源：中国新闻网 近几年来的端午节前后，被誉为“水上F1”的广东佛山叠滘“漂移”龙舟‌都会成为传统龙舟文化“夯爆了”的代表，从南方水乡的小河里，到火遍全国，再到今年，连南半球的老外，都来凑热闹了。
+中新社柏林6月16日电 综合德国媒体报道，一枚第二次世界大战遗留美制航空炸弹于16日在德国勃兰登堡州首府波茨坦市中心被成功拆除。
 
-跨越一万公里，从寒冷的冬季一头扎进夏天的河水，这支三十多人的新西兰队伍可不是来当观光客的，他们中大部分都是毛利汉子，一个个身材健硕，脸上身上都刻着民族图案。
+报道称，这枚炸弹于80多年前被投落到波茨坦。
 
-在端午节的前一周，他们就抵达佛山，开启了训练模式。
+炸弹重达250公斤，在一次系统性搜查中被发现，内部装有约100公斤炸药。
 
-尽管来之前也看过一些视频画面，但亲身踏上“漂移”龙舟‌的赛场，汉子们还是被震撼到了。
+爆炸物处理专家迈克·施维茨克表示，这样一枚炸弹足以将一栋多户住宅楼炸成废墟。
 
-记者 王庆然 佛山报道 责任编辑：【李季】
+为确保安全，当局在发现地点周边设立半径约700米的警戒区，约6500名居民被疏散，中央火车站及周边交通一度停运。
+
+据波茨坦市政府介绍，当日共有455名工作人员参与相关行动，以保障警戒区安全。
+
+施维茨克表示，由于炸弹所处位置特殊，无法采用爆破方式处理，因此决定以人工方式拆除引信。
+
+最终，专家成功拆除引信并安全转移炸弹。
 
 ## 相关推荐
 
-- 2026-06-30 03:46 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-30 03:40 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-30 03:51 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-30 03:37 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-30 03:58 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-30 03:36 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-30 03:40 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-30 03:46 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-30 03:36 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-30 03:50 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-30 03:42 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-30 03:41 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-30 03:35 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-30 03:50 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-30 03:55 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-30 04:02 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-30 03:49 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-30 03:54 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-30 03:51 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-30 03:45 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-30 03:58 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-30 03:52 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 04:05 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-30 03:58 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-30 03:57 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 03:36 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-30 03:59 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-30 03:46 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:51 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/3794838510.shtml)
-- 2026-06-30 03:41 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/47574.shtml)
-- 2026-06-30 03:34 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.kurohicncr.top/Article/details/389691.shtml)
-- 2026-06-30 03:50 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/20677165.shtml)
-- 2026-06-30 03:48 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/5867016136.shtml)
-- 2026-06-30 03:59 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/483278401178.shtml)
-- 2026-06-30 03:46 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/80115.shtml)
-- 2026-06-30 03:36 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/130113333.shtml)
-- 2026-06-30 03:45 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/09105426876.shtml)
-- 2026-06-30 03:56 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/258217217.shtml)
-- 2026-06-30 03:34 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/9509637.shtml)
-- 2026-06-30 03:35 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/344523336.shtml)
-- 2026-06-30 03:39 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/1142438880.shtml)
-- 2026-06-30 03:39 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/7151036.shtml)
-- 2026-06-30 03:45 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/163108.shtml)
+- 2026-06-30 03:46 - [《共患难》](https://www.share.minike.top/Article/details/578772.shtml)
+- 2026-06-30 03:58 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/5300772.shtml)
+- 2026-06-30 03:41 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/672264393163.shtml)
+- 2026-06-30 03:37 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/44108430.shtml)
+- 2026-06-30 03:52 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/9730059511.shtml)
+- 2026-06-30 03:42 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/7202854.shtml)
+- 2026-06-30 04:05 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/65134488.shtml)
+- 2026-06-30 04:04 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/478122.shtml)
+- 2026-06-30 04:01 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/8977524265.shtml)
+- 2026-06-30 04:03 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/7316532.shtml)
+- 2026-06-30 03:47 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.minike.top/Article/details/7188476.shtml)
+- 2026-06-30 03:51 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/73581.shtml)
+- 2026-06-30 03:43 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/678991.shtml)
+- 2026-06-30 04:05 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/653292139.shtml)
+- 2026-06-30 03:56 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/75143653426.shtml)

@@ -1,56 +1,59 @@
-# 深耕价值创新 富德生命人寿两款产品入选“2026年度保险产品”
+# 收评：科创50指数低开高走涨4.69% PCB、半导体产业链集体走强
 
-> 更新时间：2026-06-30 04:00:03 UTC+8
+> 更新时间：2026-06-30 04:06:02 UTC+8
 
 ## 摘要
 
-近日，由中国金融传媒联合复旦大学中国保险与社会安全研究中心、复保科技共同推出的“2026年度保险产品”评选结果正式揭晓。 凭借稳健的经营实力、持续的产品创新能力与贴合民生需求的产品布局，富德生命人寿两款产品成功入选。其中，富德生命畅盈人生年金保险（分红型）入选年度商业保险年金产品，富德生命传世鑫禧A款终身寿险（分红型）入选年度分红型人身保险产品。 二十载深耕笃行 筑牢保险民生保
+专题：A股主要股指高位分化 机构：投资者可关注半年报绩优方向 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月17日，市场低开高走，沪指涨0.4%，创业板指、深成指均涨超1%，科创50指数涨4.69%。盘面上，全市场超3700只个股下跌。从板块来看，PCB概念爆发，十余只成分股涨停，宏昌电子7天5板，华正新材3连板，深南电路涨停，股价创历史新高。半导
 
 ## 正文
 
-近日，由中国金融传媒联合复旦大学中国保险与社会安全研究中心、复保科技共同推出的“2026年度保险产品”评选结果正式揭晓。
+专题：A股主要股指高位分化 机构：投资者可关注半年报绩优方向 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-凭借稳健的经营实力、持续的产品创新能力与贴合民生需求的产品布局，富德生命人寿两款产品成功入选。
+6月17日，市场低开高走，沪指涨0.4%，创业板指、深成指均涨超1%，科创50指数涨4.69%。
 
-其中，富德生命畅盈人生年金保险（分红型）入选年度商业保险年金产品，富德生命传世鑫禧A款终身寿险（分红型）入选年度分红型人身保险产品。
+盘面上，全市场超3700只个股下跌。
 
-二十载深耕笃行 筑牢保险民生保障底色 保险的核心本源是保障，长期保单承载着大众对未来生活的确定性期许，是抵御风险的重要基石。
+从板块来看，PCB概念爆发，十余只成分股涨停，宏昌电子7天5板，华正新材3连板，深南电路涨停，股价创历史新高。
 
-深耕保险行业二十余年，富德生命人寿始终明确“以客户为中心”的重要指导原则，推出覆盖健康保障、养老保障、财富规划、意外保障等各类产品，以更好地满足客户日益增长的保险保障和财富管理需求，发挥保险社会稳定器的作用，促进社会和谐。
+半导体产业链表现活跃，存储芯片、半导体设备方向领涨，盛美上海、香农芯创、普冉股份20cm涨停，亚翔集成、兆易创新涨停。
 
-此次入选的富德生命畅盈人生年金保险（分红型），具备投保年龄范围广、首期时间自主选、生存保险金确定领、共享经营成果四大核心竞争优势。
+玻璃基板概念延续强势，旗滨集团3连板，京东方A、彩虹股份涨停。
 
-无论是中老年客户构建养老护城河，还是父母为自己、为子女布局伴随一生的财富规划，都能提供契合客户差异化需求的配置方案。
+超级电容概念盘中异动拉升，海星股份3连板，艾华集团、铜峰电子涨停。
 
-另一款入选产品富德生命传世鑫禧A款终身寿险（分红型），集稳健增值、红利共享、灵活支配与基础保障四大价值于一体，保险金额自第二年起以复利的方式稳定增长，同时通过红利分配共享公司经营成果，实现“保证+浮动”的收益结构，兼顾了保险产品的安全性与收益性，高度贴合当下消费者对长期、安全、灵活型保险产品的综合需求。
+下跌方面，煤炭板块震荡调整，云煤能源、大有能源、宝泰隆纷纷下挫。
 
 ## 相关推荐
 
-- 2026-06-30 03:54 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-30 03:49 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-30 03:39 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-30 03:45 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-30 03:55 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-30 03:52 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-30 03:57 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-30 03:56 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-30 03:52 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 03:31 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-30 03:51 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 03:43 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-30 03:48 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-30 04:04 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-30 03:46 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-30 03:38 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-30 03:41 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-30 03:45 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-30 03:51 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 03:40 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-30 03:55 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-30 03:43 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-30 03:56 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:56 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/58973136792.shtml)
-- 2026-06-30 03:44 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/2145381.shtml)
-- 2026-06-30 03:59 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/52940260.shtml)
-- 2026-06-30 03:53 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/3057385.shtml)
-- 2026-06-30 03:54 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/0647853782.shtml)
-- 2026-06-30 03:40 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/2329088461.shtml)
-- 2026-06-30 03:48 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/9246263823.shtml)
-- 2026-06-30 03:48 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/204883.shtml)
-- 2026-06-30 03:53 - [足球“出口导向”造就佛得角奇迹](https://www.blog.minike.top/Article/details/98193.shtml)
-- 2026-06-30 03:43 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/81699.shtml)
-- 2026-06-30 03:49 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/57561106815.shtml)
-- 2026-06-30 03:48 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/57492953435.shtml)
-- 2026-06-30 03:52 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/517128.shtml)
-- 2026-06-30 03:42 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/05113.shtml)
-- 2026-06-30 03:51 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/548859.shtml)
+- 2026-06-30 04:04 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/78157.shtml)
+- 2026-06-30 03:46 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/682058974125.shtml)
+- 2026-06-30 03:50 - [日本领先巴西](http://www.share.minike.top/Article/details/4842995.shtml)
+- 2026-06-30 04:04 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/32848218.shtml)
+- 2026-06-30 03:37 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/0569964181.shtml)
+- 2026-06-30 03:59 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.minike.top/Article/details/70820.shtml)
+- 2026-06-30 03:48 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/222718729.shtml)
+- 2026-06-30 03:55 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/45085339938.shtml)
+- 2026-06-30 03:39 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/763399.shtml)
+- 2026-06-30 04:03 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/16462422.shtml)
+- 2026-06-30 04:04 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/169078.shtml)
+- 2026-06-30 03:56 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/30493.shtml)
+- 2026-06-30 03:51 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/22899.shtml)
+- 2026-06-30 03:51 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/9175592098.shtml)
+- 2026-06-30 04:02 - [千与千寻](https://www.blog.minike.top/Article/details/94571747818.shtml)
