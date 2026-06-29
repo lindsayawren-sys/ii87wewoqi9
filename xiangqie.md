@@ -1,46 +1,51 @@
-# 日本电装称考虑撤回对罗姆公司收购要约
+# Fortior遭Temasek Holdings (Private) Limited减持8.79万股 每股作价约175.59港元
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-专题：外部风险可控 聚焦三条景气主线 日本汽车零部件制造商电装公司（Denso）周一表示，其收购提议尚未获得芯片制造商罗姆公司（Rohm）的同意，公司正在考虑撤回收购要约。 上个月，作为丰田汽车主要供应商之一的电装公司提出了这项收购要约，旨在扩大其在电动汽车和数据中心电源管理芯片领域的控制权。责任编辑：于健 SF069
+香港联交所最新资料显示，5月27日，Temasek Holdings （Private） Limited减持Fortior（01304）8.79万股，每股作价175.5937港元，总金额约为1543.47万港元。减持后最新持股数目为144.42万股，最新持股比例为6.7%。责任编辑：卢昱君
 
 ## 正文
 
-专题：外部风险可控 聚焦三条景气主线 日本汽车零部件制造商电装公司（Denso）周一表示，其收购提议尚未获得芯片制造商罗姆公司（Rohm）的同意，公司正在考虑撤回收购要约。
+香港联交所最新资料显示，5月27日，Temasek Holdings （Private） Limited减持Fortior（01304）8.79万股，每股作价175.5937港元，总金额约为1543.47万港元。
 
-上个月，作为丰田汽车主要供应商之一的电装公司提出了这项收购要约，旨在扩大其在电动汽车和数据中心电源管理芯片领域的控制权。
+减持后最新持股数目为144.42万股，最新持股比例为6.7%。
 
-责任编辑：于健 SF069
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:16 - [张真源解读相思锁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-29 14:24 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 14:34 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 14:20 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-29 14:15 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-29 14:16 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-29 14:31 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 14:22 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-29 14:26 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-29 14:39 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 14:27 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-29 14:36 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 14:34 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 14:19 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-29 14:39 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 14:24 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-29 14:23 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 14:19 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 14:47 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-29 14:29 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 14:22 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 14:33 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-29 14:40 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 14:21 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-29 14:41 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:28 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/895090581.shtml)
-- 2026-06-29 14:12 - [千与千寻](http://www.blog.minike.top/Article/details/57145.shtml)
-- 2026-06-29 14:28 - [哈兰德之歌火到国外](http://www.share.kurohicncr.top/Article/details/00135.shtml)
-- 2026-06-29 14:27 - [逆天祖国人](http://www.blog.minike.top/Article/details/3189962459.shtml)
-- 2026-06-29 14:36 - [灿如繁星定档](http://www.share.kurohicncr.top/Article/details/3485703368.shtml)
-- 2026-06-29 14:37 - [TOP 无畏契约](http://www.share.kurohicncr.top/Article/details/5249645444.shtml)
-- 2026-06-29 14:41 - [锐评浪姐7总决赛](http://www.blog.minike.top/Article/details/958963232.shtml)
-- 2026-06-29 14:20 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/56280029.shtml)
-- 2026-06-29 14:27 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/651480031.shtml)
-- 2026-06-29 14:40 - [C罗关心罗德里戈伤情](http://www.blog.kurohicncr.top/Article/details/5074030.shtml)
-- 2026-06-29 14:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/99061539855.shtml)
-- 2026-06-29 14:28 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/588105676.shtml)
-- 2026-06-29 14:38 - [李连杰回应网传不管前妻俩女儿](https://www.blog.minike.top/Article/details/5422661.shtml)
-- 2026-06-29 14:31 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/34866034030.shtml)
-- 2026-06-29 14:15 - [高市早苗口齿不清被质疑醉酒](https://www.share.minike.top/Article/details/177987821088.shtml)
+- 2026-06-29 14:27 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/822566358.shtml)
+- 2026-06-29 14:43 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/91410.shtml)
+- 2026-06-29 14:42 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/693819162744.shtml)
+- 2026-06-29 14:38 - [东部机场集团新增釜山航线](http://www.blog.kurohicncr.top/Article/details/08559189.shtml)
+- 2026-06-29 14:30 - [王楚钦周启豪爆分](https://www.blog.minike.top/Article/details/20544186014.shtml)
+- 2026-06-29 14:44 - [撒旦的腋窝是什么比喻](https://www.blog.minike.top/Article/details/7891517.shtml)
+- 2026-06-29 14:38 - [日本主帅：对战胜巴西很有信心](http://www.share.kurohicncr.top/Article/details/689228488.shtml)
+- 2026-06-29 14:41 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/14459766557.shtml)
+- 2026-06-29 14:20 - [南部战区位南海海域进行例行巡航](http://www.blog.kurohicncr.top/Article/details/089084438017.shtml)
+- 2026-06-29 14:21 - [南部战区位南海海域进行例行巡航](http://www.blog.minike.top/Article/details/241786.shtml)
+- 2026-06-29 14:39 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/18079262.shtml)
+- 2026-06-29 14:34 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/5635351120.shtml)
+- 2026-06-29 14:18 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/548256.shtml)
+- 2026-06-29 14:33 - [海军舰艇编队将赴香港](http://www.blog.minike.top/Article/details/00921274126.shtml)
+- 2026-06-29 14:44 - [媒体：网络测评不能只剩“生意”](http://www.share.kurohicncr.top/Article/details/40660472.shtml)

@@ -1,58 +1,56 @@
-# “最美光二代”嫁给“霸王”，却难守天合光能的战场？
+# 广西工业城市柳州深化隐患排查治理 抓实企业安全发展项目
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：野马财经 危机也是树立权威的最佳契机，“光伏女神”能否挺过这一关？ 作者 | 于婞 编辑丨高岩 演员何润东凭借14年前饰演的西楚霸王项羽再次翻红、频上热搜。网友纷纷替他“摇”商务，短短半个月，支付宝、王者荣耀、京东等品牌合作纷至沓来，霸王茶姬也在网友喊话的队列之中，品牌因此火了一把。 图源：抖音截图
+中新网柳州6月1日电 (陈梅)6月1日，广西柳州市举行2026年“安全生产月”活动新闻发布会。作为广西最大的工业城市，柳州市工业企业集聚、行业类型多样，该市深化隐患排查治理，抓实企业安全发展项目。 2026年6月是第25个全国“安全生产月”。柳州市打破行业壁垒，将广西企业安全发展项目实施范围拓展至住建、交通运输、旅游文体等多个领域，覆盖1000余家企业。针对不同行业的生产特点和
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网柳州6月1日电 (陈梅)6月1日，广西柳州市举行2026年“安全生产月”活动新闻发布会。
 
-来源：野马财经 危机也是树立权威的最佳契机，“光伏女神”能否挺过这一关？
+作为广西最大的工业城市，柳州市工业企业集聚、行业类型多样，该市深化隐患排查治理，抓实企业安全发展项目。
 
-作者 | 于婞 编辑丨高岩 演员何润东凭借14年前饰演的西楚霸王项羽再次翻红、频上热搜。
+2026年6月是第25个全国“安全生产月”。
 
-网友纷纷替他“摇”商务，短短半个月，支付宝、王者荣耀、京东等品牌合作纷至沓来，霸王茶姬也在网友喊话的队列之中，品牌因此火了一把。
+柳州市打破行业壁垒，将广西企业安全发展项目实施范围拓展至住建、交通运输、旅游文体等多个领域，覆盖1000余家企业。
 
-图源：抖音截图 但霸王茶姬创始人张俊杰的新婚妻子却高兴不起来。
+针对不同行业的生产特点和安全短板，该市推行“一企一策”精准服务，制定差异化推进方案，确保项目建设贴合企业实际。
 
-他的妻子叫高海纯，天合光能（688599.SH）联席董事长，1993年出生，江苏人，被外界称为“最美光二代”和“光伏女神”。
+柳州市安全生产和应急管理委员会办公室主任、柳州市应急管理局局长宋筑峰介绍，为推进工作，该市应急部门指导生产经营单位完善全员隐患上报、分级奖励机制，调动一线员工主动排查隐患的积极性。
 
-2025年12月两人刚刚完婚，彼时两家公司市值合计超600亿元，一度被视为顶级商业联姻。
+同时，部门组织行业专家下沉企业，解读重大事故隐患判定标准，开展“点对点”精准帮扶，着力解决隐患识别不精准、整改闭环不严格等共性问题。
 
-最近，高海纯正面临着她接班以来最深重的一场危机：美国专利商标局（USPTO）专利审判与上诉委员会（PTAB）作出终局裁定，天合光能持有的两项核心TOPCon美国专利（US9722104与US10230009）全部权利要求无效。
+此外，该局还通过明察暗访、媒体曝光等方式开设隐患曝光专栏，倒逼企业切实落实安全生产主体责任。
 
 ## 相关推荐
 
-- 2026-06-29 14:36 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-29 14:36 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-29 14:41 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 14:32 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 14:23 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-29 14:39 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-29 14:19 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-29 14:13 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-29 14:16 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-29 14:21 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 14:30 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-29 14:32 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-29 14:33 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 14:22 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-29 14:36 - [T1对战KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 14:32 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 14:31 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-29 14:46 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 14:31 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 14:41 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 14:35 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 14:36 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:18 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.blog.kurohicncr.top/Article/details/863317.shtml)
-- 2026-06-29 14:40 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/586050.shtml)
-- 2026-06-29 14:17 - [行程万里不忘初心](http://www.share.kurohicncr.top/Article/details/481689062825.shtml)
-- 2026-06-29 14:30 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/9295839.shtml)
-- 2026-06-29 14:24 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/26671136962.shtml)
-- 2026-06-29 14:30 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/87638922.shtml)
-- 2026-06-29 14:20 - [张真源解读相思锁](http://www.share.minike.top/Article/details/01059.shtml)
-- 2026-06-29 14:40 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/29859186105.shtml)
-- 2026-06-29 14:37 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/516878730.shtml)
-- 2026-06-29 14:23 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/307485.shtml)
-- 2026-06-29 14:35 - [5万块的威力](https://www.blog.minike.top/Article/details/183584998582.shtml)
-- 2026-06-29 14:30 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/889688931.shtml)
-- 2026-06-29 14:20 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/53451307058.shtml)
-- 2026-06-29 14:30 - [德国连续三天刷新本国最高气温纪录](http://www.share.minike.top/Article/details/730050.shtml)
-- 2026-06-29 14:32 - [教育部发布预警 事关高招录取](https://www.blog.kurohicncr.top/Article/details/677075153679.shtml)
+- 2026-06-29 14:23 - [詹俊预测德国大胜巴拉圭](http://www.blog.minike.top/Article/details/36195677.shtml)
+- 2026-06-29 14:45 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/33354.shtml)
+- 2026-06-29 14:44 - [大疆7月15日起涨价？公司回应](https://www.share.minike.top/Article/details/716194498.shtml)
+- 2026-06-29 14:28 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/1258612434.shtml)
+- 2026-06-29 14:27 - [法拉利被4个孩子当滑梯玩](http://www.share.kurohicncr.top/Article/details/07941336710.shtml)
+- 2026-06-29 14:46 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.minike.top/Article/details/391233380208.shtml)
+- 2026-06-29 14:41 - [美人鱼](http://www.share.kurohicncr.top/Article/details/066470690.shtml)
+- 2026-06-29 14:31 - [多家银行收紧个人贵金属业务](http://www.share.kurohicncr.top/Article/details/620886915.shtml)
+- 2026-06-29 14:47 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/32561449090.shtml)
+- 2026-06-29 14:27 - [世界杯超牛补水广告出现了](https://www.share.minike.top/Article/details/97733717.shtml)
+- 2026-06-29 14:39 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/06345047.shtml)
+- 2026-06-29 14:19 - [吴昕要助理买的药6年前已停产](https://www.blog.kurohicncr.top/Article/details/3997893.shtml)
+- 2026-06-29 14:25 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/78146.shtml)
+- 2026-06-29 14:39 - [天道](http://www.blog.kurohicncr.top/Article/details/9124137072.shtml)
+- 2026-06-29 14:38 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/009359443763.shtml)

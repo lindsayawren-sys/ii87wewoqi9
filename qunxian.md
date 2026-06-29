@@ -1,44 +1,58 @@
-# Intellia公布里程碑式三期临床成功
+# 湖南怀化社区里的“科创市集” 让科普融入市井烟火
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-Intellia Therapeutics表示，其针对遗传性血管性水肿的体内CRISPR候选药物相比安慰剂将发作率降低了87%，并已开始向FDA滚动提交申请，目标是在2027年于美国上市。责任编辑：张俊 SF065
+中新网怀化6月2日电 (郭飞 易明 李欣怡)“原来白雾是二氧化碳，今天终于弄懂了！”“妈妈，我以后想造会飞的汽车！”声控升降区，孩子们放声呼喊操控装置；主舞台上，无人机编队在夜空划出绚丽图案，机器人、机器狗灵活展演；科技互动区，前沿科技与趣味体验碰撞出精彩火花......夜幕下，湖南怀化市鹤城区红星街道的社区广场上，孩子们清脆的喊声引来阵阵欢笑。 “六一”国际儿童节晚上，这里没
 
 ## 正文
 
-Intellia Therapeutics表示，其针对遗传性血管性水肿的体内CRISPR候选药物相比安慰剂将发作率降低了87%，并已开始向FDA滚动提交申请，目标是在2027年于美国上市。
+中新网怀化6月2日电 (郭飞 易明 李欣怡)“原来白雾是二氧化碳，今天终于弄懂了！
 
-责任编辑：张俊 SF065
+”“妈妈，我以后想造会飞的汽车！
+
+”声控升降区，孩子们放声呼喊操控装置；主舞台上，无人机编队在夜空划出绚丽图案，机器人、机器狗灵活展演；科技互动区，前沿科技与趣味体验碰撞出精彩火花......夜幕下，湖南怀化市鹤城区红星街道的社区广场上，孩子们清脆的喊声引来阵阵欢笑。
+
+“六一”国际儿童节晚上，这里没有传统夜市的烧烤油烟，取而代之的是一场“能玩、能学、能逛”的科创市集——无人机足球、AI对弈、中医问诊、机甲编程……20余项科技类互动项目走出实验室，直接搬到了居民家门口，让青少年在家门口就能触摸到科技脉搏。
+
+“以前觉得人工智能离我们很远，没想到孩子一口气体验了机甲操控、智能运载机器人和编程桌游，玩得不肯走。
+
+”市民鄢祥忠说。
+
+无人机足球在空中穿梭，AR眼镜带孩子们“潜入”深海，AI下棋机器人前围满跃跃欲试的小棋手，中医AI馆里小朋友争相当起“草本小郎中”......宏宇小学三年级学生易柯妤体验了无人机足球后说：“操控它穿过圆环的一瞬间，感觉自己像个飞行员。
+
+” 一场社区市集，为何能汇集高校、科技馆、科普基地、科技企业等20余家单位的力量？
 
 ## 相关推荐
 
-- 2026-06-29 14:19 - [强⁶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-29 14:16 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-29 14:23 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-29 14:15 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-29 14:40 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-29 14:32 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-29 14:32 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 14:14 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 14:26 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-29 14:19 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-29 14:24 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 14:37 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 14:35 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 14:28 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 14:38 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 14:24 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 14:26 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 14:45 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-29 14:35 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 14:39 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 14:43 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-29 14:43 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:32 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/608652238810.shtml)
-- 2026-06-29 14:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/57533180167.shtml)
-- 2026-06-29 14:36 - [女生雨天开车发现雨刮条被掰走](https://www.share.kurohicncr.top/Article/details/81182315139.shtml)
-- 2026-06-29 14:33 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.minike.top/Article/details/79112664797.shtml)
-- 2026-06-29 14:40 - [周锡玮：做堂堂正正的中国人](http://www.blog.kurohicncr.top/Article/details/0689634.shtml)
-- 2026-06-29 14:15 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/10719287684.shtml)
-- 2026-06-29 14:13 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.minike.top/Article/details/153883.shtml)
-- 2026-06-29 14:37 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/0437045.shtml)
-- 2026-06-29 14:30 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/771680.shtml)
-- 2026-06-29 14:26 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/683406.shtml)
-- 2026-06-29 14:21 - [薛之谦演唱会](http://www.blog.minike.top/Article/details/12029.shtml)
-- 2026-06-29 14:22 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/1382349199.shtml)
-- 2026-06-29 14:38 - [时光音乐会](http://www.blog.minike.top/Article/details/338897186675.shtml)
-- 2026-06-29 14:15 - [退休化学教授帮医药研发人员制毒](https://www.share.kurohicncr.top/Article/details/00447952618.shtml)
-- 2026-06-29 14:12 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/52997675635.shtml)
+- 2026-06-29 14:19 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/405937181220.shtml)
+- 2026-06-29 14:36 - [俄称继续推进 乌称打击俄军设施](http://www.share.minike.top/Article/details/369544307700.shtml)
+- 2026-06-29 14:34 - [江苏财政厅原一级调研员谢功成被查](https://www.share.minike.top/Article/details/737838.shtml)
+- 2026-06-29 14:25 - [绘画区你赢了](https://www.share.minike.top/Article/details/67286995303.shtml)
+- 2026-06-29 14:41 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.minike.top/Article/details/68365440.shtml)
+- 2026-06-29 14:18 - [世界杯用球成部分门将噩梦](http://www.blog.minike.top/Article/details/9171367667.shtml)
+- 2026-06-29 14:20 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/60484062978.shtml)
+- 2026-06-29 14:18 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/903924316814.shtml)
+- 2026-06-29 14:34 - [比亚迪为什么卖得越多市值越低](http://www.share.kurohicncr.top/Article/details/161178.shtml)
+- 2026-06-29 14:32 - [毕业群都在出什么东西](http://www.blog.kurohicncr.top/Article/details/360112424.shtml)
+- 2026-06-29 14:20 - [赵露思爸爸拍vlog翻车了](http://www.share.kurohicncr.top/Article/details/681360491.shtml)
+- 2026-06-29 14:38 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/021915106.shtml)
+- 2026-06-29 14:21 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/652263.shtml)
+- 2026-06-29 14:20 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.minike.top/Article/details/257256.shtml)
+- 2026-06-29 14:29 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/6381215.shtml)

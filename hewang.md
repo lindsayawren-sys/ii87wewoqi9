@@ -1,46 +1,61 @@
-# 国家发展改革委：禁止外资收购Manus项目 要求撤销交易
+# 欧洲央行报告：黄金已取代美债成为全球首选储备资产
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-国家发展改革委依法依规对外资收购Manus项目作出禁止投资决定，要求当事人撤销该收购交易。 责任编辑：刘万里 SF014
+文章来源：格隆汇 据英国金融时报，黄金已超越美国政府债券，成为全球第一大储备资产。根据欧洲央行周二发布的一份报告，截至2025年底，黄金在全球央行储备资产中的占比达到27%，高于一年前的20%。同期，美国国债的占比从25%降至22%。欧元计价储备资产的占比保持不变，为15%。储备资产是央行用于支持本币汇率、履行国际支付义务以及在金融动荡时提供流动性支持的高流动性资产。其构成的这
 
 ## 正文
 
-国家发展改革委依法依规对外资收购Manus项目作出禁止投资决定，要求当事人撤销该收购交易。
+文章来源：格隆汇 据英国金融时报，黄金已超越美国政府债券，成为全球第一大储备资产。
 
-责任编辑：刘万里 SF014
+根据欧洲央行周二发布的一份报告，截至2025年底，黄金在全球央行储备资产中的占比达到27%，高于一年前的20%。
+
+同期，美国国债的占比从25%降至22%。
+
+欧元计价储备资产的占比保持不变，为15%。
+
+储备资产是央行用于支持本币汇率、履行国际支付义务以及在金融动荡时提供流动性支持的高流动性资产。
+
+其构成的这一变化，反映出许多国家正试图寻找美元——这一事实上的全球储备货币——的替代品。
+
+自2022年美国因俄乌冲突爆发而使用制裁手段冻结其美元储备以来，各国寻求替代方案的努力明显加快。
+
+欧洲央行行长拉加德在周二的报告中写道：“地缘政治紧张局势继续推动央行对黄金的强劲需求。
 
 ## 相关推荐
 
-- 2026-06-29 14:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-29 14:37 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-29 14:23 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 14:35 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 14:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 14:12 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 14:36 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-29 14:20 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-29 14:27 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 14:35 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 14:24 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-29 14:19 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-29 14:37 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-29 14:38 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-29 14:32 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-29 14:38 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-29 14:47 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-29 14:41 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 14:20 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-29 14:27 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 14:28 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 14:20 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 14:33 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 14:39 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-29 14:24 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-29 14:29 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 14:30 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:22 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/36285.shtml)
-- 2026-06-29 14:18 - [链博会上的机器人太全能了](https://www.share.minike.top/Article/details/582606.shtml)
-- 2026-06-29 14:26 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.share.minike.top/Article/details/087189004.shtml)
-- 2026-06-29 14:35 - [去了一趟潮汕。](https://www.blog.kurohicncr.top/Article/details/26658.shtml)
-- 2026-06-29 14:22 - [TOP 无畏契约](http://www.blog.minike.top/Article/details/0600584.shtml)
-- 2026-06-29 14:38 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.minike.top/Article/details/55813.shtml)
-- 2026-06-29 14:39 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.minike.top/Article/details/408220783272.shtml)
-- 2026-06-29 14:34 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/39453.shtml)
-- 2026-06-29 14:27 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/0727651930.shtml)
-- 2026-06-29 14:24 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/471628.shtml)
-- 2026-06-29 14:30 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/984939.shtml)
-- 2026-06-29 14:39 - [这一刀 会很帅](http://www.share.minike.top/Article/details/56688195.shtml)
-- 2026-06-29 14:15 - [河南考699分女生已接到清华大学电话](https://www.blog.minike.top/Article/details/454285567229.shtml)
-- 2026-06-29 14:12 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/13612470.shtml)
-- 2026-06-29 14:24 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/845672229.shtml)
+- 2026-06-29 14:26 - [105年初心滚烫](https://www.share.minike.top/Article/details/806356044351.shtml)
+- 2026-06-29 14:36 - [世界杯欧美八大豪强悉数出线](http://www.share.minike.top/Article/details/4320903837.shtml)
+- 2026-06-29 14:47 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/463650.shtml)
+- 2026-06-29 14:39 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/97908871.shtml)
+- 2026-06-29 14:22 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/6614322120.shtml)
+- 2026-06-29 14:18 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.share.minike.top/Article/details/8936645.shtml)
+- 2026-06-29 14:28 - [记者暗访贵州和云南多个养老机构](http://www.blog.kurohicncr.top/Article/details/860676592.shtml)
+- 2026-06-29 14:39 - [TOP 无畏契约](http://www.share.kurohicncr.top/Article/details/23741951.shtml)
+- 2026-06-29 14:37 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/161145258.shtml)
+- 2026-06-29 14:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/147341294683.shtml)
+- 2026-06-29 14:29 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.share.minike.top/Article/details/3139557044.shtml)
+- 2026-06-29 14:34 - [智界V9成为高端圈层共同选择](http://www.share.minike.top/Article/details/20013.shtml)
+- 2026-06-29 14:29 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/11709.shtml)
+- 2026-06-29 14:45 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/00187550754.shtml)
+- 2026-06-29 14:46 - [一生一世](https://www.blog.kurohicncr.top/Article/details/8134631132.shtml)

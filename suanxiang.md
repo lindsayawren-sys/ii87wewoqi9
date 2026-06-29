@@ -1,57 +1,56 @@
-# 券商一季报分化明显！中信单季净利破百亿 财通、东北翻倍 这家骤降98%
+# 酒价内参6月2日价格发布：水晶剑南春下跌2元
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-券商一季报“马太效应”进一步加剧。2026年一季报披露进入尾声，截至4月26日，已有14家券商及券商上市主体交出成绩单，业绩分化已从“温差”演变为“冰火两重天”。“券商一哥”中信证券继续领跑，单季度净利润首次罕见突破百亿；部分中型券商如财通证券、东北证券等亦实现净利翻倍；而另一边，国盛证券、国元证券、湘财股份以及华林证券等则遭遇净利下滑，其中国盛证券净利同比骤降超九成。中信单季
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月2日整体再度走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9900元，较昨日下跌14元，将将守住9900元关口。市场在前一日明显反弹后再现显著分化，终端交投情绪整体仍偏谨慎，中腰部产品古井贡古20与青花郎的跌幅较重，而昨日这两款
 
 ## 正文
 
-券商一季报“马太效应”进一步加剧。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月2日整体再度走弱。
 
-2026年一季报披露进入尾声，截至4月26日，已有14家券商及券商上市主体交出成绩单，业绩分化已从“温差”演变为“冰火两重天”。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9900元，较昨日下跌14元，将将守住9900元关口。
 
-“券商一哥”中信证券继续领跑，单季度净利润首次罕见突破百亿；部分中型券商如财通证券、东北证券等亦实现净利翻倍；而另一边，国盛证券、国元证券、湘财股份以及华林证券等则遭遇净利下滑，其中国盛证券净利同比骤降超九成。
+市场在前一日明显反弹后再现显著分化，终端交投情绪整体仍偏谨慎，中腰部产品古井贡古20与青花郎的跌幅较重，而昨日这两款酒品均为大涨。
 
-中信单季首破百亿、东财延续高增长今年一季度，市场整体交投活跃。
+今日白酒市场11大单品三涨六跌两平，输家占据明显上风。
 
-上交所披露数据显示，一季度累计新开户1204.2万户，同比大增超六成；融资融券同样释放积极信号，一季度新开两融账户47.84万户，同比增长51%；与此同时，投行业务亦在持续回暖之中。
+上涨方面，习酒君品的涨幅居前，上涨7元/瓶，两连阳快速走出月内低点；飞天茅台上涨3元/瓶，成功固守1735元一线；国窖1573上涨2元/瓶。
 
-在此背景下，部分券商积极把握市场机遇，实现业绩持续大幅增长。
+下跌方面，古井贡古20与青花郎跌幅居前，均下跌6元/瓶，前者仍囿于月内低点附近，后者再度失守700元关口；精品茅台下跌5元/瓶；五粮液普五八代下跌4元/瓶；洋河梦之蓝M6+下跌3元/瓶，回吐昨日全部涨幅，再度失守600元大关；水晶剑南春下跌2元/瓶，亦尽失昨日涨幅。
 
-头部券商展现出极强的领先能力。
+五粮液1618与青花汾20的价格环比保持不变，后者平近一个月最低价纪录。
 
-中信证券一季报显示，公司实现营业收入231.55亿元，归母净利润102.16亿元，同比增幅分别达40.91%与54.6%，成为行业首家单季净利破百亿的券商。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-29 14:21 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-29 14:27 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 14:30 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-29 14:18 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 14:22 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 14:23 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-29 14:17 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-29 14:28 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-29 14:26 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-29 14:24 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-29 14:30 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 14:46 - [张真源解读相思锁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-29 14:22 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 14:47 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-29 14:37 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 14:19 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-29 14:22 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 14:39 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 14:31 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 14:47 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-29 14:21 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:37 - [中餐厅南北饮食差异](https://www.share.minike.top/Article/details/7778334.shtml)
-- 2026-06-29 14:26 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/524413562.shtml)
-- 2026-06-29 14:40 - [普京：俄面临命运攸关时刻](http://www.share.minike.top/Article/details/44962421109.shtml)
-- 2026-06-29 14:39 - [中国战机大片上新](http://www.share.kurohicncr.top/Article/details/254631017436.shtml)
-- 2026-06-29 14:26 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/650999184.shtml)
-- 2026-06-29 14:19 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/3318745.shtml)
-- 2026-06-29 14:36 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.kurohicncr.top/Article/details/876736984.shtml)
-- 2026-06-29 14:39 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/0735125.shtml)
-- 2026-06-29 14:37 - [欧洲多国激辩“装不装空调”](https://www.share.kurohicncr.top/Article/details/142005640091.shtml)
-- 2026-06-29 14:37 - [记者率先试乘西十高铁](http://www.blog.minike.top/Article/details/44768476.shtml)
-- 2026-06-29 14:21 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/80466742425.shtml)
-- 2026-06-29 14:12 - [小娘惹](http://www.share.kurohicncr.top/Article/details/03210080910.shtml)
-- 2026-06-29 14:16 - [千与千寻](https://www.share.minike.top/Article/details/793368140063.shtml)
-- 2026-06-29 14:22 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.minike.top/Article/details/0239143.shtml)
-- 2026-06-29 14:34 - [严浩翔FIY断层第一](https://www.blog.minike.top/Article/details/20744822.shtml)
+- 2026-06-29 14:39 - [李在明称韩国足协任命了无能之人](http://www.blog.kurohicncr.top/Article/details/376301.shtml)
+- 2026-06-29 14:46 - [速度与激情9](http://www.share.minike.top/Article/details/859951127763.shtml)
+- 2026-06-29 14:36 - [和阿根廷球员家属一起看球](https://www.share.kurohicncr.top/Article/details/59273370698.shtml)
+- 2026-06-29 14:23 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/68301259335.shtml)
+- 2026-06-29 14:34 - [金刚川](http://www.blog.minike.top/Article/details/86512.shtml)
+- 2026-06-29 14:18 - [张一山回应与杨紫友情](https://www.blog.minike.top/Article/details/494696.shtml)
+- 2026-06-29 14:31 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/26256803.shtml)
+- 2026-06-29 14:25 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/40116.shtml)
+- 2026-06-29 14:38 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.minike.top/Article/details/68982864451.shtml)
+- 2026-06-29 14:40 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/2973322.shtml)
+- 2026-06-29 14:25 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.share.kurohicncr.top/Article/details/29625699.shtml)
+- 2026-06-29 14:25 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/65523448.shtml)
+- 2026-06-29 14:38 - [事关个税 明日截止请抓紧办理](http://www.blog.kurohicncr.top/Article/details/6502609042.shtml)
+- 2026-06-29 14:37 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/91346509.shtml)
+- 2026-06-29 14:27 - [王楚钦 表演球擦网](http://www.share.kurohicncr.top/Article/details/1651845004.shtml)

@@ -1,57 +1,58 @@
-# 两艘与伊朗有关联的被美国登临检查油轮似已掉转航向
+# 微信AI Agent来了，腾讯控股猛拉10%，创近5年单日最大涨幅！港股互联网ETF华宝（513770）再涨4%右侧连阳
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-两艘与伊朗有关联、上周在斯里兰卡附近被美军拦截的油轮似乎已停止在印度洋向西航行并调头。 五角大楼上周表示，美军于4月21日和23日分别对两艘超大型油轮“Tifani”和“Phonix”实施了“海上拦截及登临检查”，但未说明这些船只接下来将如何处理。“Phonix”也被称作“Majestic X”。 根据两艘油轮的数字信号显示，它们起初似乎以相当接近的距离向西航行，但已于周一晚些
+6月2日，港股互联网龙头全线反弹，腾讯控股猛拉10.46%，创2021年1月25日以来单日最高涨幅纪录！美团-W涨超9%，阿里巴巴-W涨超6%，快手-W涨超5%，小米集团-W涨逾3%。 聚焦港股AI核心工具，重仓互联网龙头的港股互联网ETF华宝（513770）继前一日放量大涨逾3%，今日场内价格再涨4.43%，全天成交额12.92亿元，环比进一步放量。从日k线看，自5月28日下
 
 ## 正文
 
-两艘与伊朗有关联、上周在斯里兰卡附近被美军拦截的油轮似乎已停止在印度洋向西航行并调头。
+6月2日，港股互联网龙头全线反弹，腾讯控股猛拉10.46%，创2021年1月25日以来单日最高涨幅纪录！
 
-五角大楼上周表示，美军于4月21日和23日分别对两艘超大型油轮“Tifani”和“Phonix”实施了“海上拦截及登临检查”，但未说明这些船只接下来将如何处理。
+美团-W涨超9%，阿里巴巴-W涨超6%，快手-W涨超5%，小米集团-W涨逾3%。
 
-“Phonix”也被称作“Majestic X”。
+聚焦港股AI核心工具，重仓互联网龙头的港股互联网ETF华宝（513770）继前一日放量大涨逾3%，今日场内价格再涨4.43%，全天成交额12.92亿元，环比进一步放量。
 
-根据两艘油轮的数字信号显示，它们起初似乎以相当接近的距离向西航行，但已于周一晚些时候改变航向，转而向东行驶。
+从日k线看，自5月28日下探阶段新低后，513770掉头向上连涨3日，或迎来修复拐点。
 
-美国国防部4月21日发布的一张照片显示，美军对“Tifani”号油轮实施了“海上拦截和登船检查”。
+行情驱动看，一方面是腾讯控股、美团-W两大权重龙头的利好消息激励。
 
-美国尚未正式说明打算如何处置这两艘油轮。
+根据媒体报道，腾讯正在推进在微信中推出嵌入式AI智能体的计划，最快将于本月启动公开上线前所需的合规审批流程。
 
-它们目前仍显示与被拦截时相同的亚洲目的地，这也让外界对其实际航向更加困惑。
+腾讯方在不久前的业绩电话会议上表示，“除基础模型外，AI智能体正日益成为突破性应用场景。
 
-按照起初的航线，位于非洲南端的开普敦，通常是驶往美国船只的一个常规经停点。
+“分析认为，作为拥有14亿用户的超级APP，此举可能重塑国内AI应用竞争格局。
 
 ## 相关推荐
 
-- 2026-06-29 14:24 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 14:28 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 14:27 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-29 14:38 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-29 14:28 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 14:37 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 14:16 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-29 14:36 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 14:32 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 14:40 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 14:23 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 14:40 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-29 14:26 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 14:36 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 14:24 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-29 14:23 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-29 14:29 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 14:47 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-29 14:34 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 14:36 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 14:23 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 14:37 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 14:36 - [拄拐少年高考663分：用行动回报社会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:23 - [韩国队启程回国众将回避镜头](https://www.blog.kurohicncr.top/Article/details/0131866.shtml)
-- 2026-06-29 14:29 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.minike.top/Article/details/7542988.shtml)
-- 2026-06-29 14:12 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/47327045.shtml)
-- 2026-06-29 14:33 - [妹妹的正确用法！](https://www.blog.kurohicncr.top/Article/details/7865966.shtml)
-- 2026-06-29 14:12 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.kurohicncr.top/Article/details/3693039.shtml)
-- 2026-06-29 14:12 - [恋与深空底线不该被娱乐化](http://www.share.minike.top/Article/details/1053763513.shtml)
-- 2026-06-29 14:24 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/15210101.shtml)
-- 2026-06-29 14:38 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/50736303.shtml)
-- 2026-06-29 14:13 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.kurohicncr.top/Article/details/1735746039.shtml)
-- 2026-06-29 14:30 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/9937222830.shtml)
-- 2026-06-29 14:22 - [曾沛慈夺冠后人气](http://www.share.minike.top/Article/details/808605488018.shtml)
-- 2026-06-29 14:39 - [专家建议城乡居民养老金增至每月千元](http://www.blog.kurohicncr.top/Article/details/11964175223.shtml)
-- 2026-06-29 14:35 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/17483530751.shtml)
-- 2026-06-29 14:26 - [豆包收费了，你还会用吗？](https://www.share.kurohicncr.top/Article/details/02992589634.shtml)
-- 2026-06-29 14:30 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.share.kurohicncr.top/Article/details/7075081218.shtml)
+- 2026-06-29 14:43 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.minike.top/Article/details/691773.shtml)
+- 2026-06-29 14:33 - [比亚迪为什么卖得越多市值越低](https://www.blog.minike.top/Article/details/88111940570.shtml)
+- 2026-06-29 14:35 - [中方将20家日本实体列入关注名单](https://www.blog.kurohicncr.top/Article/details/9111953486.shtml)
+- 2026-06-29 14:27 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/76492.shtml)
+- 2026-06-29 14:46 - [医药股集体爆发](http://www.blog.minike.top/Article/details/4748749511.shtml)
+- 2026-06-29 14:23 - [杨紫 你幸福的话我会比你先流泪](http://www.share.minike.top/Article/details/09149.shtml)
+- 2026-06-29 14:31 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.kurohicncr.top/Article/details/953977893.shtml)
+- 2026-06-29 14:45 - [吴磊爱上回收了](http://www.share.kurohicncr.top/Article/details/36914.shtml)
+- 2026-06-29 14:24 - [唐艺昕女儿接唐艺昕回家](http://www.blog.kurohicncr.top/Article/details/797303619.shtml)
+- 2026-06-29 14:34 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.kurohicncr.top/Article/details/5852874899.shtml)
+- 2026-06-29 14:42 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.kurohicncr.top/Article/details/489270108551.shtml)
+- 2026-06-29 14:36 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/7488674.shtml)
+- 2026-06-29 14:34 - [俄称继续推进 乌称打击俄军设施](https://www.share.minike.top/Article/details/431777267.shtml)
+- 2026-06-29 14:33 - [记者暗访贵州和云南多个养老机构](https://www.blog.kurohicncr.top/Article/details/730352550.shtml)
+- 2026-06-29 14:23 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.kurohicncr.top/Article/details/83975085325.shtml)

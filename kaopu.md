@@ -1,58 +1,59 @@
-# 权威专家独家解读正确政绩观丨啃“硬骨头”才能出“硬政绩”
+# 陈映玲：在“时光的残忍”里，守住一声“奴啊”
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-《以理服人丨权威专家独家解读正确政绩观》系列短视频第8期 宋福范：中央党校(国家行政学院)马克思主义学院二级教授、博士生导师 基层有一种现象，大家都很熟悉：容易出成绩的事情，往往抢着干；难度大、矛盾多、周期长的事情，则容易往后拖。有人说得很形象：“好做的事都做了，难做的事都留给后面了。” 这其实反映出一个问题，不愿啃硬骨头。什么叫硬骨头？就是那些涉及复杂利益关系，推进难度大、见
+中新网北京6月2日电 题：陈映玲：在“时光的残忍”里，守住一声“奴啊” 中新网记者 徐文欣 “很多人老了以后，那种对故乡的思念和对时光流逝的无力感，会变得特别强烈。看着他们，我很心疼，所以想把他们的故事记录下来。”短视频账号“泰国V姐”创作者陈映玲日前接受中国侨网“华人故事”栏目专访时说道。 无心插柳，做时光的记录者 陈映玲的父母早年定居泰国，她自幼在泰中两国间往返生活、读书，
 
 ## 正文
 
-《以理服人丨权威专家独家解读正确政绩观》系列短视频第8期 宋福范：中央党校(国家行政学院)马克思主义学院二级教授、博士生导师 基层有一种现象，大家都很熟悉：容易出成绩的事情，往往抢着干；难度大、矛盾多、周期长的事情，则容易往后拖。
+中新网北京6月2日电 题：陈映玲：在“时光的残忍”里，守住一声“奴啊” 中新网记者 徐文欣 “很多人老了以后，那种对故乡的思念和对时光流逝的无力感，会变得特别强烈。
 
-有人说得很形象：“好做的事都做了，难做的事都留给后面了。
+看着他们，我很心疼，所以想把他们的故事记录下来。
 
-” 这其实反映出一个问题，不愿啃硬骨头。
+”短视频账号“泰国V姐”创作者陈映玲日前接受中国侨网“华人故事”栏目专访时说道。
 
-什么叫硬骨头？
+无心插柳，做时光的记录者 陈映玲的父母早年定居泰国，她自幼在泰中两国间往返生活、读书，从小耳濡目染侨社事务。
 
-就是那些涉及复杂利益关系，推进难度大、见效慢、风险高，但又必须解决的问题。
+如今她也担任泰国中华总商会会董、泰国华商中心执行主任等侨社职务。
 
-比如深化改革、推动转型升级、化解风险隐患、处理历史遗留问题、补齐短板弱项等。
+三年前，陈映玲开始拍摄短视频，记录身边的故事。
 
-这类事情有个共同特点：短期不容易出彩，推进起来比较费劲，甚至可能得罪人、担责任。
+谈及初心，她说，看到一些老前辈身体越来越差，心里很不是滋味。
 
-但恰恰是这些事情，最能决定一个地方的发展质量。
+再不记录下来，他们的故事可能就再也听不到了。
 
 ## 相关推荐
 
-- 2026-06-29 14:22 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-29 14:24 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-29 14:29 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-29 14:32 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 14:22 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-29 14:29 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 14:17 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 14:20 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 14:26 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 14:14 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 14:41 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-29 14:29 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-29 14:35 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-29 14:43 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-29 14:32 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 14:35 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 14:45 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 14:19 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 14:43 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 14:36 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 14:22 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 14:34 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-29 14:47 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 14:45 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-29 14:36 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:40 - [唐国强打卡贵阳孔学堂](https://www.share.kurohicncr.top/Article/details/5768658201.shtml)
-- 2026-06-29 14:16 - [欧委会总部只给高层开空调](http://www.blog.minike.top/Article/details/5623783.shtml)
-- 2026-06-29 14:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/28588.shtml)
-- 2026-06-29 14:18 - [明星大侦探第四季](http://www.share.minike.top/Article/details/8646388.shtml)
-- 2026-06-29 14:32 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.minike.top/Article/details/4482023010.shtml)
-- 2026-06-29 14:33 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/95141.shtml)
-- 2026-06-29 14:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/61001.shtml)
-- 2026-06-29 14:28 - [王楚钦3比0周启豪](https://www.blog.minike.top/Article/details/5417937.shtml)
-- 2026-06-29 14:20 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/48369104.shtml)
-- 2026-06-29 14:17 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.kurohicncr.top/Article/details/500487.shtml)
-- 2026-06-29 14:30 - [给阿嬷的情书海外口碑](https://www.blog.minike.top/Article/details/670123137581.shtml)
-- 2026-06-29 14:33 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/51776646527.shtml)
-- 2026-06-29 14:16 - [当我回母校教书](http://www.share.minike.top/Article/details/241639582641.shtml)
-- 2026-06-29 14:36 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/3074486.shtml)
-- 2026-06-29 14:32 - [曝歌手第七期帮唱阵容](https://www.blog.minike.top/Article/details/60558084.shtml)
+- 2026-06-29 14:18 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.minike.top/Article/details/910984745792.shtml)
+- 2026-06-29 14:42 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/3512974788.shtml)
+- 2026-06-29 14:36 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/256261.shtml)
+- 2026-06-29 14:33 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.kurohicncr.top/Article/details/11196.shtml)
+- 2026-06-29 14:37 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/090327099.shtml)
+- 2026-06-29 14:28 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.minike.top/Article/details/094284.shtml)
+- 2026-06-29 14:25 - [巴西德国15次闯进世界杯淘汰赛](http://www.blog.minike.top/Article/details/53115273961.shtml)
+- 2026-06-29 14:32 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/197996978.shtml)
+- 2026-06-29 14:33 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/243184149.shtml)
+- 2026-06-29 14:47 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/40408086.shtml)
+- 2026-06-29 14:38 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/960548589.shtml)
+- 2026-06-29 14:36 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/97926016331.shtml)
+- 2026-06-29 14:29 - [欧洲人驾车200公里抢购中国空调](https://www.blog.kurohicncr.top/Article/details/5274326.shtml)
+- 2026-06-29 14:18 - [我国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/0400221.shtml)
+- 2026-06-29 14:19 - [男子月薪五千卖房借贷给女友转账百万](https://www.blog.minike.top/Article/details/50318478130.shtml)

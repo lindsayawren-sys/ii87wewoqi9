@@ -1,56 +1,58 @@
-# 学习总书记就服务业发展作出重要指示精神述评之一
+# 房地产贷款集中度管理进一步“松绑”，多家全国性银行：今年以来不再报送数据
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-原标题：聚焦服务业扩能提质｜需求牵引 推动服务业扩能提质——学习贯彻习近平总书记就服务业发展作出重要指示精神系列述评之一 新华社北京4月23日电 题：需求牵引 推动服务业扩能提质——学习贯彻习近平总书记就服务业发展作出重要指示精神系列述评之一 新华社记者魏弘毅 近日，全国服务业大会在北京召开，会上传达了习近平总书记就服务业发展作出的重要指示。习近平总书记强调“突出需求牵引、改革
+财联社6月1日讯（记者 彭科峰） 原标题：独家|房地产贷款集中度管理进一步“松绑”，多家全国性银行：今年以来不再报送数据 财联社记者近日从多家全国性银行了解到，2021年起执行的“商业银行房地产贷款‘五档两线’集中度管理制度”目前已进一步“松绑”，有关部门去年底已不再要求专门上报相关数据。 一家全国性商业银行对公业务负责人向财联社记者证实，今年该行没有报送数据，因去年底有关部门
 
 ## 正文
 
-原标题：聚焦服务业扩能提质｜需求牵引 推动服务业扩能提质——学习贯彻习近平总书记就服务业发展作出重要指示精神系列述评之一 新华社北京4月23日电 题：需求牵引 推动服务业扩能提质——学习贯彻习近平总书记就服务业发展作出重要指示精神系列述评之一 新华社记者魏弘毅 近日，全国服务业大会在北京召开，会上传达了习近平总书记就服务业发展作出的重要指示。
+财联社6月1日讯（记者 彭科峰） 原标题：独家|房地产贷款集中度管理进一步“松绑”，多家全国性银行：今年以来不再报送数据 财联社记者近日从多家全国性银行了解到，2021年起执行的“商业银行房地产贷款‘五档两线’集中度管理制度”目前已进一步“松绑”，有关部门去年底已不再要求专门上报相关数据。
 
-习近平总书记强调“突出需求牵引、改革攻坚、科技赋能、开放合作”，“需求牵引”列首位。
+一家全国性商业银行对公业务负责人向财联社记者证实，今年该行没有报送数据，因去年底有关部门曾口头传达相关数据不再报送。
 
-服务业的本质是用服务来满足需求、创造价值，为企业生产和居民生活提供支撑保障。
+一家全国性商业银行负责贷款统计和管理的人士亦对记者表示，有关部门已经不再向银行提及房地产贷款占比的情况，“没再听说有相关要求”。
 
-需求的扩张与升级，是服务业扩能提质的重要驱动力。
+所谓的“五档两线”集中度管理制度，源自央行、原银保监会两部门联合下发并于2021年1月1日起执行的《关于建立银行业金融机构房地产贷款集中度管理制度的通知》。
 
-突出需求牵引，是释放服务业潜能的必然要求。
+与通知同步下发的文件明确，将商业银行分五档设置房地产和个人住房贷款余额占比上限。
 
-习近平总书记指出：“党的十八大以来，我国服务业规模稳步扩大，质效持续提升，在支撑产业升级、满足民生需要、带动就业扩容等方面发挥了重要作用。
+要求中资大型银行房地产贷款占比上限为40%，个人住房贷款占比上限为32.5%；中资中型银行的两项数值分别为27.5%、20%；中资小型银行和非县域农合机构的两项数值分别为22.5%、17.5%；县域农合机构、村镇银行等两类机构也有相关要求。
 
-”2025年，我国服务业对国民经济增长的贡献率高达61.4%，服务业规模已连续10余年占据国民经济半壁江山。
+同时，对于房地产贷款占比、个人住房贷款占比超出管理要求，在2个百分点以内的调整过渡期为2年，在2个百分点及以上的调整过渡期则为4年。
 
-同时也要看到，“十五五”开局起步，我国经济正处于转型升级关键阶段，增长模式、发展动能、产业结构等面临深刻调整。
+根据要求，相关机构需按季度报告执行整改情况。
 
 ## 相关推荐
 
-- 2026-06-29 14:22 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-29 14:12 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 14:23 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 14:15 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 14:39 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-29 14:35 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-29 14:34 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-29 14:12 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 14:20 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-29 14:20 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 14:37 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 14:25 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-29 14:27 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 14:45 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-29 14:23 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 14:23 - [东部机场集团新增釜山航线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 14:42 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-29 14:36 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-29 14:18 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 14:36 - [T1对战KC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 14:43 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-29 14:20 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:25 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/896263511.shtml)
-- 2026-06-29 14:14 - [曝歌手第七期帮唱阵容](https://www.share.minike.top/Article/details/98994.shtml)
-- 2026-06-29 14:21 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.minike.top/Article/details/41598.shtml)
-- 2026-06-29 14:23 - [巴西德国15次闯进世界杯淘汰赛](http://www.blog.minike.top/Article/details/345750.shtml)
-- 2026-06-29 14:18 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.kurohicncr.top/Article/details/5628772.shtml)
-- 2026-06-29 14:21 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.share.minike.top/Article/details/46278909738.shtml)
-- 2026-06-29 14:27 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/66689.shtml)
-- 2026-06-29 14:17 - [王楚钦 表演球擦网](http://www.share.kurohicncr.top/Article/details/0986128075.shtml)
-- 2026-06-29 14:41 - [Mrbeast的30天不吃饭挑战](https://www.share.kurohicncr.top/Article/details/5572374.shtml)
-- 2026-06-29 14:16 - [AG 钟意](http://www.share.minike.top/Article/details/9766814.shtml)
-- 2026-06-29 14:19 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/3222781546.shtml)
-- 2026-06-29 14:16 - [日本主帅：目标是冠军](https://www.blog.kurohicncr.top/Article/details/500452728.shtml)
-- 2026-06-29 14:21 - [日本主教练回应迎战巴西](https://www.share.kurohicncr.top/Article/details/25772021616.shtml)
-- 2026-06-29 14:27 - [吴海燕兰西雅漫步复兴岛](http://www.share.minike.top/Article/details/481387.shtml)
-- 2026-06-29 14:37 - [第一批缉毒警已全体退休](https://www.share.minike.top/Article/details/246868447013.shtml)
+- 2026-06-29 14:26 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/137776.shtml)
+- 2026-06-29 14:25 - [这开放世界游戏，竟然允许玩家屠城？](https://www.blog.kurohicncr.top/Article/details/68266.shtml)
+- 2026-06-29 14:34 - [媒体：这一次合肥芜湖在伯仲之间](http://www.share.kurohicncr.top/Article/details/50441296.shtml)
+- 2026-06-29 14:47 - [ENC瓦中国香港负印度数据图](http://www.blog.minike.top/Article/details/371438774155.shtml)
+- 2026-06-29 14:46 - [AG 钟意](http://www.share.kurohicncr.top/Article/details/084480.shtml)
+- 2026-06-29 14:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/952870.shtml)
+- 2026-06-29 14:28 - [明星大侦探第四季](http://www.share.minike.top/Article/details/32064375.shtml)
+- 2026-06-29 14:19 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/08685477.shtml)
+- 2026-06-29 14:18 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.minike.top/Article/details/8322764278.shtml)
+- 2026-06-29 14:37 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/86665909881.shtml)
+- 2026-06-29 14:46 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/3540297.shtml)
+- 2026-06-29 14:36 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/2987587416.shtml)
+- 2026-06-29 14:19 - [下飞机后，我做了个很蠢的决定......](https://www.blog.minike.top/Article/details/400517849.shtml)
+- 2026-06-29 14:42 - [法拉利被4个孩子当滑梯玩](https://www.share.kurohicncr.top/Article/details/32225636448.shtml)
+- 2026-06-29 14:34 - [巴基斯坦军方打死29名武装分子](http://www.blog.kurohicncr.top/Article/details/65442.shtml)

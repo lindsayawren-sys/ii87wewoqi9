@@ -1,58 +1,48 @@
-# 第139届广交会开展供采对接活动 助力企业拓市场
+# 广西柳州受地震影响的市属45所学校已全部复课
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-央视新闻客户端消息(新闻联播)：第139届广交会聚焦双方核心需求，开展供采对接活动，助力企业抢抓订单、深耕全球市场。 围绕全球采购商多元需求，本届广交会展馆内，形式多样的供采对接活动轮番举行。在这场“贸易之桥”供采对接活动上，根据澳大利亚采购商的需求，大会适配了15家供应商，面对面沟通合作细节。很快，就有5家供应商达成初步合作意向。 本届广交会已累计举办28场供采对接活动，畅通
+记者从柳州市教育局获悉，在确保安全的前提下，继5月25日17所学校复课后，目前，柳州受地震影响的市属45所学校已全部复课。 柳州市各安置点通过趣味化、轻量化、公益性的活动，让学生在陪伴中学习、在体验中成长，平稳度过灾后过渡期。 据了解，在震情逐步平稳后，柳州市教育局研究启动复学复课的工作，根据不同校舍受损情况，采取原址复课、异地复课、安置点复课、就近插班、线上教学等方式复课。
 
 ## 正文
 
-央视新闻客户端消息(新闻联播)：第139届广交会聚焦双方核心需求，开展供采对接活动，助力企业抢抓订单、深耕全球市场。
+记者从柳州市教育局获悉，在确保安全的前提下，继5月25日17所学校复课后，目前，柳州受地震影响的市属45所学校已全部复课。
 
-围绕全球采购商多元需求，本届广交会展馆内，形式多样的供采对接活动轮番举行。
+柳州市各安置点通过趣味化、轻量化、公益性的活动，让学生在陪伴中学习、在体验中成长，平稳度过灾后过渡期。
 
-在这场“贸易之桥”供采对接活动上，根据澳大利亚采购商的需求，大会适配了15家供应商，面对面沟通合作细节。
+据了解，在震情逐步平稳后，柳州市教育局研究启动复学复课的工作，根据不同校舍受损情况，采取原址复课、异地复课、安置点复课、就近插班、线上教学等方式复课。
 
-很快，就有5家供应商达成初步合作意向。
-
-本届广交会已累计举办28场供采对接活动，畅通双向贸易渠道。
-
-此外，本届广交会新开设“预约专享洽谈区”，为头部采购商提供一对一精准对接服务，目前71家头部企业有意向预约报名。
-
-截至昨天(4月25日)，本届广交会已有320家头部采购企业到会，较上届增长10%。
+(央视新闻客户端 总台记者 廖汨 孔祥新)
 
 ## 相关推荐
 
-- 2026-06-29 14:37 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-29 14:12 - [巴基斯坦军方打死29名武装分子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 14:31 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 14:35 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-29 14:38 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 14:23 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-29 14:25 - [中国避暑神器在欧洲卖爆了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-29 14:18 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 14:34 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-29 14:38 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 14:30 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-29 14:13 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-29 14:19 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-29 14:31 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 14:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-29 14:30 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-29 14:40 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 14:38 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-29 14:21 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-29 14:28 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-29 14:40 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 14:19 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 14:23 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-29 14:34 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:24 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/7964409068.shtml)
-- 2026-06-29 14:30 - [扬名立万](http://www.share.kurohicncr.top/Article/details/45754.shtml)
-- 2026-06-29 14:41 - [韩国队差旅费亏麻了](http://www.share.minike.top/Article/details/75727703.shtml)
-- 2026-06-29 14:32 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/72414340.shtml)
-- 2026-06-29 14:13 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/303729955.shtml)
-- 2026-06-29 14:12 - [父亲患病母亲残疾女儿接到清华电话](https://www.blog.kurohicncr.top/Article/details/86156193920.shtml)
-- 2026-06-29 14:39 - [三都主：淘汰赛我会支持日本](http://www.blog.kurohicncr.top/Article/details/47436692.shtml)
-- 2026-06-29 14:16 - [李连杰否认不管前妻两女儿](https://www.share.kurohicncr.top/Article/details/52882745376.shtml)
-- 2026-06-29 14:13 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/527521764.shtml)
-- 2026-06-29 14:33 - [女心理师](http://www.blog.kurohicncr.top/Article/details/684811.shtml)
-- 2026-06-29 14:31 - [T1对战KC](https://www.share.minike.top/Article/details/580015440.shtml)
-- 2026-06-29 14:13 - [三轮车过马路 车上木材砸中路边男子](http://www.share.kurohicncr.top/Article/details/974484556.shtml)
-- 2026-06-29 14:32 - [吴磊爱上回收了](https://www.blog.kurohicncr.top/Article/details/312721735.shtml)
-- 2026-06-29 14:27 - [加拿大女球迷玩人浪把手机甩飞](http://www.blog.kurohicncr.top/Article/details/2366869.shtml)
-- 2026-06-29 14:35 - [林昀儒不敌17岁小将止步首轮](http://www.share.kurohicncr.top/Article/details/270841385953.shtml)
+- 2026-06-29 14:46 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/207503.shtml)
+- 2026-06-29 14:28 - [小娘惹](https://www.blog.minike.top/Article/details/766244948563.shtml)
+- 2026-06-29 14:22 - [撒旦的腋窝是什么比喻](https://www.blog.kurohicncr.top/Article/details/53186459820.shtml)
+- 2026-06-29 14:33 - [职业选手禁止参赛！](https://www.share.kurohicncr.top/Article/details/577473807962.shtml)
+- 2026-06-29 14:41 - [严浩翔FIY断层第一](https://www.blog.minike.top/Article/details/010791.shtml)
+- 2026-06-29 14:40 - [欧洲多国激辩“装不装空调”](https://www.share.minike.top/Article/details/668294.shtml)
+- 2026-06-29 14:22 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/6904142.shtml)
+- 2026-06-29 14:37 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/9708807029.shtml)
+- 2026-06-29 14:18 - [吴建豪老婆](https://www.blog.minike.top/Article/details/94370298.shtml)
+- 2026-06-29 14:29 - [前国足主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/983212.shtml)
+- 2026-06-29 14:23 - [papi酱自曝曾因尝试21天减肥法患病](http://www.blog.minike.top/Article/details/668960007514.shtml)
+- 2026-06-29 14:43 - [古力娜扎美出新高度](https://www.blog.kurohicncr.top/Article/details/706356260361.shtml)
+- 2026-06-29 14:28 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/8163717.shtml)
+- 2026-06-29 14:38 - [欧洲多国激辩“装不装空调”](https://www.share.kurohicncr.top/Article/details/569160.shtml)
+- 2026-06-29 14:33 - [唐艺昕女儿接唐艺昕回家](https://www.share.minike.top/Article/details/963067.shtml)

@@ -1,52 +1,42 @@
-# 特朗普取消库什纳与威特科夫赴巴基斯坦参与伊朗问题谈判之行
+# 山东省自然资源厅原一级巡视员李树民接受审查调查
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-白宫新闻秘书莱维特表示，美国总统特朗普已取消其高级特使原计划前往巴基斯坦、就伊朗冲突进行谈判的行程新华网。 她称，总统于周六告知其女婿贾里德・库什纳和特使史蒂夫・威特科夫取消此行。莱维特转述特朗普的话称：“他们想打电话随时都可以打，但你们没必要再飞18个小时，就为了坐着空谈、毫无实质进展。” 此次行程取消，使得美伊冲突停火的现状变得不明朗。责任编辑：李桐
+中新网6月1日电 据山东省纪委监委消息，山东省自然资源厅原一级巡视员李树民涉嫌严重违纪违法，目前正接受山东省纪委监委纪律审查和监察调查。
 
 ## 正文
 
-白宫新闻秘书莱维特表示，美国总统特朗普已取消其高级特使原计划前往巴基斯坦、就伊朗冲突进行谈判的行程新华网。
-
-她称，总统于周六告知其女婿贾里德・库什纳和特使史蒂夫・威特科夫取消此行。
-
-莱维特转述特朗普的话称：“他们想打电话随时都可以打，但你们没必要再飞18个小时，就为了坐着空谈、毫无实质进展。
-
-” 此次行程取消，使得美伊冲突停火的现状变得不明朗。
-
-责任编辑：李桐
+中新网6月1日电 据山东省纪委监委消息，山东省自然资源厅原一级巡视员李树民涉嫌严重违纪违法，目前正接受山东省纪委监委纪律审查和监察调查。
 
 ## 相关推荐
 
-- 2026-06-29 14:16 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-29 14:34 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 14:21 - [退休化学教授帮医药研发人员制毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 14:12 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 14:29 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-29 14:40 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-29 14:27 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 14:17 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-29 14:13 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 14:14 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-29 14:37 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-29 14:28 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 14:33 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-29 14:45 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 14:40 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 14:24 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 14:27 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 14:27 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-29 14:21 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 14:32 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 14:41 - [新一代影后杨紫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-29 14:32 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:24 - [媒体人：警惕日本再次成战争加害国](http://www.blog.minike.top/Article/details/48288.shtml)
-- 2026-06-29 14:36 - [评论员：高温撕开欧洲“遮羞布”](https://www.blog.kurohicncr.top/Article/details/31176566083.shtml)
-- 2026-06-29 14:15 - [湖北钟祥市委书记张勇拟任新职](http://www.share.kurohicncr.top/Article/details/37349.shtml)
-- 2026-06-29 14:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/193683.shtml)
-- 2026-06-29 14:36 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/909620370857.shtml)
-- 2026-06-29 14:37 - [去了一趟潮汕。](http://www.blog.minike.top/Article/details/9793408493.shtml)
-- 2026-06-29 14:24 - [逆天祖国人](http://www.blog.kurohicncr.top/Article/details/60661872510.shtml)
-- 2026-06-29 14:15 - [普京称考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/646782.shtml)
-- 2026-06-29 14:13 - [一生一世](http://www.blog.minike.top/Article/details/2526625591.shtml)
-- 2026-06-29 14:37 - [网约车司机转账1.5万后被乘客拉黑](https://www.blog.kurohicncr.top/Article/details/46402834.shtml)
-- 2026-06-29 14:41 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/02420.shtml)
-- 2026-06-29 14:38 - [高市早苗口齿不清被质疑醉酒](https://www.share.kurohicncr.top/Article/details/48312205742.shtml)
-- 2026-06-29 14:20 - [周杰伦演唱会真的好多人啊](https://www.blog.kurohicncr.top/Article/details/2847360801.shtml)
-- 2026-06-29 14:19 - [网约车司机转账15000元后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/8468897975.shtml)
-- 2026-06-29 14:13 - [河南考699分女生已接到清华大学电话](https://www.share.kurohicncr.top/Article/details/154373498.shtml)
+- 2026-06-29 14:21 - [日本主帅：对战胜巴西很有信心](http://www.blog.minike.top/Article/details/662475.shtml)
+- 2026-06-29 14:41 - [扬名立万](http://www.blog.minike.top/Article/details/742166965.shtml)
+- 2026-06-29 14:20 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/552334.shtml)
+- 2026-06-29 14:33 - [美伊同意停止互袭 30日在多哈谈判](http://www.share.kurohicncr.top/Article/details/7543855595.shtml)
+- 2026-06-29 14:31 - [周生如故](http://www.blog.minike.top/Article/details/88669760.shtml)
+- 2026-06-29 14:43 - [四川宜宾地震已致13人受轻微伤](http://www.blog.minike.top/Article/details/38574968808.shtml)
+- 2026-06-29 14:35 - [中国邮政上海分公司总经理李柏平被查](http://www.share.kurohicncr.top/Article/details/6394890322.shtml)
+- 2026-06-29 14:22 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.kurohicncr.top/Article/details/24254646.shtml)
+- 2026-06-29 14:24 - [欧洲多国激辩“装不装空调”](http://www.share.kurohicncr.top/Article/details/87104870.shtml)
+- 2026-06-29 14:31 - [斗破苍穹](https://www.share.minike.top/Article/details/834839.shtml)
+- 2026-06-29 14:23 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.blog.minike.top/Article/details/0884559164.shtml)
+- 2026-06-29 14:21 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.minike.top/Article/details/91427047176.shtml)
+- 2026-06-29 14:32 - [叶一茜森碟一起回北京了](http://www.share.minike.top/Article/details/835642.shtml)
+- 2026-06-29 14:27 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/739985288663.shtml)
+- 2026-06-29 14:21 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/3443217.shtml)

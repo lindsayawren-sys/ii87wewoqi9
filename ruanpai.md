@@ -1,59 +1,57 @@
-# “人工智能+”商贸流通专题对接会共探AI赋能新路径
+# 软银宣布750亿欧元投资法国AI基础设施
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-中新网深圳4月27日电 (记者 索有为)2026广东省人工智能应用对接大会27日在深圳举办，“人工智能+”商贸流通专题对接会同期举办。专题会以“场景化体验、精准化撮合、实质性招商”为核心，全景展示广东省在跨境电商、智慧物流、新零售领域的AI应用优势。 本次专题会由广东省商务厅、深圳市商务局共同承办，省内多地市商务主管部门及深圳相关市直部门的代表，AI大模型及硬科技企业、商贸流通
+软银集团在“选择法国”峰会上宣布，将在法国投资高达750亿欧元，用于开发和运营总容量达5吉瓦的人工智能数据中心。这是软银在欧洲最大规模的人工智能基础设施投资。 根据规划，第一阶段软银将投入450亿欧元，在2031年前于法国北部上法兰西大区的敦刻尔克、博斯凯尔和布尚建设3.1吉瓦的数据中心容量。项目合作伙伴包括法国电力集团和施耐德电气。其中，法国电力集团将为布尚的数据中心提供低碳
 
 ## 正文
 
-中新网深圳4月27日电 (记者 索有为)2026广东省人工智能应用对接大会27日在深圳举办，“人工智能+”商贸流通专题对接会同期举办。
+软银集团在“选择法国”峰会上宣布，将在法国投资高达750亿欧元，用于开发和运营总容量达5吉瓦的人工智能数据中心。
 
-专题会以“场景化体验、精准化撮合、实质性招商”为核心，全景展示广东省在跨境电商、智慧物流、新零售领域的AI应用优势。
+这是软银在欧洲最大规模的人工智能基础设施投资。
 
-本次专题会由广东省商务厅、深圳市商务局共同承办，省内多地市商务主管部门及深圳相关市直部门的代表，AI大模型及硬科技企业、商贸流通企业、投融资机构等超200位嘉宾参会，共探AI赋能商贸流通新路径。
+根据规划，第一阶段软银将投入450亿欧元，在2031年前于法国北部上法兰西大区的敦刻尔克、博斯凯尔和布尚建设3.1吉瓦的数据中心容量。
 
-专题会汇聚顺丰、兔展智能、灵智数科等10家行业头部技术企业，聚焦省内跨境大卖、物流巨头、传统商超等海量商贸需求，构建“技术有展示、需求有对接、合作有落地”的一站式服务闭环。
+项目合作伙伴包括法国电力集团和施耐德电气。
 
-会上，广东省人工智能与机器人出海服务中心(深圳)正式揭牌。
+其中，法国电力集团将为布尚的数据中心提供低碳电力，施耐德电气则将在敦刻尔克港合作开发机器人制造集群。
 
-该中心将进一步完善全省企业出海服务体系，为全省AI企业与商贸企业提供政策咨询、市场对接、合规保障等全链条服务，助力企业拓展全球市场、提升国际竞争力。
+软银集团董事长兼首席执行官孙正义在新闻发布会上表示：“人工智能正在进入一个新时代，能够为这一变革建设基础设施的国家将塑造技术、产业和社会的未来。
 
-在前沿趋势与场景推介环节，头部企业聚焦商贸流通核心场景，集中分享AI落地的成熟方案与实践成果，为全省乃至全国商贸企业转型提供可复制、可推广的路径：顺丰依托自研物流大模型，以30余年行业数据为基础，赋能供应链数智化升级；兔展智能以视觉空间智能大模型为核心，助力跨境电商企业全球营销效率倍增；灵智数科深耕零售AI创新，为智慧商圈、新零售业态迭代提供支撑；三大电信运营商聚焦云网算力、服务企业出海，数智化赋能商贸提供技术保障；钛动科技、华兴银行、优合集团、南方电子口岸精准破解企业出海、离境退税、供应链管理、国际贸易拓客等痛点，全方位赋能高质量发展。
+”他透露，这笔投资是在法国总统马克龙今年4月访问东京期间向他提出的请求后决定的，若计入全产业链配套项目，整体投资体量接近7500亿美元。
 
-为推动技术交易与产业合作落地，本次专题对接会提前梳理企业需求、精准匹配资源，专门设置闭门供需对接会与自由交流环节。
+法国经济、财政、工业和数字主权部长罗兰·勒斯库尔表示，这是软银集团在欧洲的首个人工智能数据中心项目，体现了法国在人工智能领域的雄心。
 
 ## 相关推荐
 
-- 2026-06-29 14:15 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 14:27 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-29 14:33 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-29 14:29 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 14:17 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 14:19 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-29 14:40 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 14:17 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 14:18 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 14:23 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 14:16 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-29 14:41 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 14:33 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 14:33 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-29 14:29 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-29 14:36 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 14:23 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-29 14:39 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 14:44 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-29 14:20 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 14:25 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 14:31 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-29 14:48 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 14:34 - [南非老帅布罗斯的梦没能做完](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:14 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/33745758858.shtml)
-- 2026-06-29 14:41 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/424774642900.shtml)
-- 2026-06-29 14:32 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/68238.shtml)
-- 2026-06-29 14:24 - [金价银价下跌 油价上涨](https://www.blog.minike.top/Article/details/85931.shtml)
-- 2026-06-29 14:13 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/12999.shtml)
-- 2026-06-29 14:34 - [白宇摘下白玉兰送给杨幂](http://www.blog.kurohicncr.top/Article/details/7513546.shtml)
-- 2026-06-29 14:37 - [高考志愿今起开始填报](https://www.share.minike.top/Article/details/6671422155.shtml)
-- 2026-06-29 14:27 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/23068031673.shtml)
-- 2026-06-29 14:33 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.kurohicncr.top/Article/details/40103.shtml)
-- 2026-06-29 14:33 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/12984628986.shtml)
-- 2026-06-29 14:39 - [多家银行收紧个人贵金属业务](http://www.blog.minike.top/Article/details/22193722021.shtml)
-- 2026-06-29 14:21 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/5755194300.shtml)
-- 2026-06-29 14:34 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/228888655249.shtml)
-- 2026-06-29 14:21 - [逆天祖国人](https://www.share.minike.top/Article/details/44760.shtml)
-- 2026-06-29 14:19 - [日本主帅：对战胜巴西很有信心](https://www.share.kurohicncr.top/Article/details/268999536.shtml)
+- 2026-06-29 14:19 - [84岁英国教授成中国网红](http://www.blog.minike.top/Article/details/1372284.shtml)
+- 2026-06-29 14:35 - [6月我国降水为何偏多](http://www.share.minike.top/Article/details/14422.shtml)
+- 2026-06-29 14:46 - [42岁郭碧婷纯素颜状态](http://www.blog.kurohicncr.top/Article/details/644089.shtml)
+- 2026-06-29 14:22 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/54628044.shtml)
+- 2026-06-29 14:41 - [周杰伦演唱会真的好多人啊](https://www.share.kurohicncr.top/Article/details/352350491.shtml)
+- 2026-06-29 14:32 - [T1 vs KC MSI](https://www.share.kurohicncr.top/Article/details/8584571695.shtml)
+- 2026-06-29 14:24 - [赵露思爸爸拍vlog翻车了](http://www.share.kurohicncr.top/Article/details/2456701173.shtml)
+- 2026-06-29 14:20 - [韩国队启程回国众将回避镜头](https://www.share.minike.top/Article/details/60508131500.shtml)
+- 2026-06-29 14:28 - [三都主：淘汰赛我会支持日本](http://www.blog.kurohicncr.top/Article/details/39932210.shtml)
+- 2026-06-29 14:44 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/420255441752.shtml)
+- 2026-06-29 14:45 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/4054017.shtml)
+- 2026-06-29 14:43 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/01773.shtml)
+- 2026-06-29 14:22 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/459757.shtml)
+- 2026-06-29 14:29 - [世界杯超牛补水广告出现了](https://www.share.minike.top/Article/details/067443405645.shtml)
+- 2026-06-29 14:23 - [欧委会总部只给高层开空调](http://www.share.minike.top/Article/details/27126.shtml)

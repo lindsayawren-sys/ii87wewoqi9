@@ -1,61 +1,60 @@
-# 政策解读：更高水平更高质量做好节能降碳工作
+# 英伟达推出 PC 端 “超级芯片”，正面挑战苹果与英特尔
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-国家发展改革委有关负责同志和相关专家解读—— 更高水平更高质量做好节能降碳工作(政策解读) 近日，《中共中央办公厅国务院办公厅关于更高水平更高质量做好节能降碳工作的意见》发布，为未来一段时期高质量推进节能降碳工作明确了路径。围绕意见的重要意义和重点举措，记者采访了国家发展改革委有关负责同志和相关专家。 节能降碳是实现高质量发展的重要举措“‘十四五’以来，各地区各部门认真落实全面
+英伟达将于今年推出一款PC端“超级芯片”，这家半导体巨头也由此首次正式入局，与苹果、高通、英特尔及AMD展开正面角逐。 英伟达首席执行官黄仁勋于周一宣布，戴尔、华硕、惠普等多家电脑厂商都将采用这款英伟达口中“史上能效最高的PC芯片”，并搭配微软Windows系统使用。 此次新品发布，标志着消费级PC行业的竞争格局迎来重大转变，同时也为这家市值达5.1万亿美元的企业开辟了全新业务
 
 ## 正文
 
-国家发展改革委有关负责同志和相关专家解读—— 更高水平更高质量做好节能降碳工作(政策解读) 近日，《中共中央办公厅国务院办公厅关于更高水平更高质量做好节能降碳工作的意见》发布，为未来一段时期高质量推进节能降碳工作明确了路径。
+英伟达将于今年推出一款PC端“超级芯片”，这家半导体巨头也由此首次正式入局，与苹果、高通、英特尔及AMD展开正面角逐。
 
-围绕意见的重要意义和重点举措，记者采访了国家发展改革委有关负责同志和相关专家。
+英伟达首席执行官黄仁勋于周一宣布，戴尔、华硕、惠普等多家电脑厂商都将采用这款英伟达口中“史上能效最高的PC芯片”，并搭配微软Windows系统使用。
 
-节能降碳是实现高质量发展的重要举措“‘十四五’以来，各地区各部门认真落实全面节约战略，扎实推进全社会节能降碳，取得显著成效，‘十四五’全国能耗强度和碳排放强度降低目标均顺利完成。
+此次新品发布，标志着消费级PC行业的竞争格局迎来重大转变，同时也为这家市值达5.1万亿美元的企业开辟了全新业务赛道。
 
-”国家发展改革委有关负责同志表示，同时要看到，我国节能降碳形势依然较为严峻，能源结构偏煤、产业结构偏重、环境约束偏紧的国情没有改变，化石能源和传统产业占比仍然较高，生态环境质量稳中向好的基础还不牢固，经济社会发展全面绿色转型仍面临不少困难挑战。
+英伟达原本凭借AI基础设施芯片稳居行业龙头，如今正跳出传统显卡领域，进军驱动整台PC运行的集成芯片市场。
 
-节能降碳是实现高质量发展的重要举措。
+联想、微软、宏碁都会采用这款新品。
 
-“2012年以来，我国以年均3.3%的能耗增速支撑了年均6.1%的经济增长，经济发展的质量和效益持续提升，深刻表明节能降碳不是简单做‘减法’，而是以更低资源消耗支撑更高质量增长。
+周一，黄仁勋对外公布了公司在人工智能领域的最新布局。
 
-”国家节能降碳中心主任刘琼认为。
+英伟达表示，这款RTXSpark超级芯片专为AI智能体打造。
 
-节能降碳是保障国家能源安全的关键。
+这类智能体可跨应用主动运行，并在后台充当个人“智能助手”。
 
 ## 相关推荐
 
-- 2026-06-29 14:24 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 14:25 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-29 14:33 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-29 14:32 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-29 14:35 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-29 14:34 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-29 14:32 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-29 14:33 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 14:38 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-29 14:19 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-29 14:23 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 14:32 - [锐评浪姐7总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 14:40 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-29 14:12 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 14:33 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 14:40 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 14:30 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-29 14:36 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-29 14:19 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-29 14:20 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-29 14:45 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 14:32 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 14:41 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 14:43 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 14:39 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 14:42 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 14:29 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 14:40 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 14:28 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:28 - [3D打印不是工业革命，它是……](http://www.share.minike.top/Article/details/31163586004.shtml)
-- 2026-06-29 14:41 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.kurohicncr.top/Article/details/61193.shtml)
-- 2026-06-29 14:39 - [5万块的威力](http://www.blog.kurohicncr.top/Article/details/7444535094.shtml)
-- 2026-06-29 14:30 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/968033.shtml)
-- 2026-06-29 14:32 - [辽宁葫芦岛一居民楼突发爆炸](https://www.blog.minike.top/Article/details/7097795611.shtml)
-- 2026-06-29 14:40 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/842243.shtml)
-- 2026-06-29 14:13 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.minike.top/Article/details/97652911.shtml)
-- 2026-06-29 14:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/35935.shtml)
-- 2026-06-29 14:20 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/6501673.shtml)
-- 2026-06-29 14:37 - [A股](http://www.share.kurohicncr.top/Article/details/3048534.shtml)
-- 2026-06-29 14:24 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.share.kurohicncr.top/Article/details/10734081.shtml)
-- 2026-06-29 14:39 - [哈兰德这该死的胜负欲](https://www.blog.minike.top/Article/details/00928426.shtml)
-- 2026-06-29 14:28 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/9254485.shtml)
-- 2026-06-29 14:18 - [李连杰回应网传不管前妻俩女儿](https://www.share.minike.top/Article/details/62391324180.shtml)
-- 2026-06-29 14:33 - [如果你一直单身，你准备怎么养老？](https://www.share.kurohicncr.top/Article/details/2141989.shtml)
+- 2026-06-29 14:18 - [灿如繁星定档](https://www.blog.kurohicncr.top/Article/details/0734012035.shtml)
+- 2026-06-29 14:26 - [Agent带来token消耗爆炸](http://www.share.kurohicncr.top/Article/details/0652898427.shtml)
+- 2026-06-29 14:20 - [中方将20家日本实体列入关注名单](https://www.blog.minike.top/Article/details/1441078.shtml)
+- 2026-06-29 14:36 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/291032.shtml)
+- 2026-06-29 14:34 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/4960135978.shtml)
+- 2026-06-29 14:29 - [智界V9成为高端圈层共同选择](http://www.blog.kurohicncr.top/Article/details/3129668644.shtml)
+- 2026-06-29 14:36 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/920316222500.shtml)
+- 2026-06-29 14:26 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/605744038.shtml)
+- 2026-06-29 14:36 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/76942266500.shtml)
+- 2026-06-29 14:26 - [美媒：空警-3000服役即成全球最强](https://www.blog.kurohicncr.top/Article/details/59400.shtml)
+- 2026-06-29 14:45 - [巴西前锋说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/660446107474.shtml)
+- 2026-06-29 14:22 - [20年前的周杰伦](https://www.blog.minike.top/Article/details/6001968685.shtml)
+- 2026-06-29 14:35 - [高考志愿今起开始填报](http://www.blog.kurohicncr.top/Article/details/237695.shtml)
+- 2026-06-29 14:38 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/098430661217.shtml)
+- 2026-06-29 14:30 - [一见倾心](http://www.share.minike.top/Article/details/09600116.shtml)

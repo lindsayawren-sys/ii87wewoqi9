@@ -1,57 +1,46 @@
-# 可孚医疗于4月27日至30日招股 拟全球发售2700万股H股
+# 美银证券：金山软件重申“中性”评级 目标价下调至24港元
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-可孚医疗（01187）于2026年4月27日-4月30日招股，拟全球发售2700万股H股，香港公开发售占10%，国际发售占90%。每股发售价将不超过39.33港元，每手100股，预期H股将于2026年5月6日（星期三）开始在联交所买卖。 该公司是中国的家用医疗器械企业。根据弗若斯特沙利文的资料，按2024年的国内收入计，该公司在中国所有家用医疗器械企业中排名第二，市场份额达2.
+美银证券发布研报称，金山软件（03888）第一季收入同比升3%符合该行预期，但游戏业务利润率收窄拖累经营利润率跌9.4个百分点至16.4%，将公司目标价由27港元下调至24港元，重申“中性”评级。 美银上调金山软件2026年经调整净利预测55.2%至22.75亿元人民币，以反映更高的投资收益，但分别下调2027-2028年预测7.2%及6%，至17.74亿元人民币及21.57亿
 
 ## 正文
 
-可孚医疗（01187）于2026年4月27日-4月30日招股，拟全球发售2700万股H股，香港公开发售占10%，国际发售占90%。
+美银证券发布研报称，金山软件（03888）第一季收入同比升3%符合该行预期，但游戏业务利润率收窄拖累经营利润率跌9.4个百分点至16.4%，将公司目标价由27港元下调至24港元，重申“中性”评级。
 
-每股发售价将不超过39.33港元，每手100股，预期H股将于2026年5月6日（星期三）开始在联交所买卖。
+美银上调金山软件2026年经调整净利预测55.2%至22.75亿元人民币，以反映更高的投资收益，但分别下调2027-2028年预测7.2%及6%，至17.74亿元人民币及21.57亿元人民币，以反映游戏业务更慢的增长。
 
-该公司是中国的家用医疗器械企业。
-
-根据弗若斯特沙利文的资料，按2024年的国内收入计，该公司在中国所有家用医疗器械企业中排名第二，市场份额达2.1%。
-
-全球家用医疗器械行业竞争激烈，尤其是家用康复辅具、家用呼吸支持类产品及家用医疗护理耗材行业。
-
-根据弗若斯特沙利文的资料，该公司经营所在的家用康复辅具行业及家用医疗护理类产品行业竞争激烈，中国这两个行业均有超过300名市场参与者。
-
-截至2023年、2024年及2025年12月31日止年度，该公司的收入分别为人民币28.537亿元、人民币29.829亿元及人民币33.875亿元。
-
-假设发售价为每股H股39.33港元（即招股章程所述的最高发售价），该公司估计将获得的全球发售所得款项净额约为10.072亿港元。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:19 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-29 14:39 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-29 14:26 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-29 14:38 - [央视起底直播诈骗连环套](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 14:33 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 14:15 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-29 14:37 - [恋与深空底线不该被娱乐化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-29 14:24 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 14:12 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 14:15 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-29 14:13 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-29 14:33 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-29 14:29 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 14:43 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 14:28 - [上班主打一个薪尽自然凉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-29 14:33 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 14:29 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-29 14:25 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-29 14:33 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 14:44 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-29 14:21 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:16 - [东部机场集团新增釜山航线](http://www.share.kurohicncr.top/Article/details/978433520025.shtml)
-- 2026-06-29 14:27 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/225388554.shtml)
-- 2026-06-29 14:37 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/325111907.shtml)
-- 2026-06-29 14:38 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/939389.shtml)
-- 2026-06-29 14:33 - [广州一高校通报网传禁止小米汽车入校](http://www.share.kurohicncr.top/Article/details/40534505.shtml)
-- 2026-06-29 14:35 - [金牌调解](http://www.share.kurohicncr.top/Article/details/621470.shtml)
-- 2026-06-29 14:37 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/630702900.shtml)
-- 2026-06-29 14:15 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.share.kurohicncr.top/Article/details/247194225.shtml)
-- 2026-06-29 14:27 - [市民骑哈啰单车79分钟付30元](https://www.blog.kurohicncr.top/Article/details/46714052.shtml)
-- 2026-06-29 14:16 - [欧委会总部只给高层开空调](https://www.share.minike.top/Article/details/953519.shtml)
-- 2026-06-29 14:36 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/07542.shtml)
-- 2026-06-29 14:27 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/060084.shtml)
-- 2026-06-29 14:13 - [事关个税 明日截止请抓紧办理](http://www.blog.kurohicncr.top/Article/details/40009.shtml)
-- 2026-06-29 14:15 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/67474735.shtml)
-- 2026-06-29 14:39 - [医药股集体爆发](http://www.blog.kurohicncr.top/Article/details/843003516301.shtml)
+- 2026-06-29 14:47 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/23289.shtml)
+- 2026-06-29 14:25 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/15371036345.shtml)
+- 2026-06-29 14:43 - [林昀儒不敌17岁小将止步首轮](http://www.share.minike.top/Article/details/53174495.shtml)
+- 2026-06-29 14:42 - [欧洲多国激辩“装不装空调”](http://www.share.minike.top/Article/details/7950656111.shtml)
+- 2026-06-29 14:34 - [Agent带来token消耗爆炸](http://www.share.minike.top/Article/details/1765027371.shtml)
+- 2026-06-29 14:47 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/110882133.shtml)
+- 2026-06-29 14:47 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.minike.top/Article/details/63328612258.shtml)
+- 2026-06-29 14:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/7328387.shtml)
+- 2026-06-29 14:29 - [崔韩率还以为韩娱来新人了](http://www.share.kurohicncr.top/Article/details/602020806479.shtml)
+- 2026-06-29 14:19 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/52171603.shtml)
+- 2026-06-29 14:23 - [陈靖可虞书欣领衔主演](https://www.blog.minike.top/Article/details/36709.shtml)
+- 2026-06-29 14:19 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.share.minike.top/Article/details/09232533205.shtml)
+- 2026-06-29 14:38 - [内马尔能上场15分钟](http://www.share.kurohicncr.top/Article/details/7526050.shtml)
+- 2026-06-29 14:42 - [7月1日起一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/16800141642.shtml)
+- 2026-06-29 14:46 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/5910507.shtml)

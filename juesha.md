@@ -1,61 +1,61 @@
-# 中国驻美大使馆原商务公使朱洪：中国始终坚持对外开放，为企业来华投资兴业提供广阔空间和便利条件
+# 如何设置有效合理的止损
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-专题：第十二届中国与全球化研讨会 4月26日，第十二届中国与全球化研讨会在北京举办，主题为“创新全球化：新动力与新挑战”。中国驻美国大使馆原商务公使朱洪表示，贸易合作是中美关系的重要支柱。过去几十年，中美贸易合作实现了互利共赢，不仅推动了双方经济的发展，也为全球贸易增长作出了重要贡献。当前中美贸易合作的韧性依然存在，合作的潜力依然巨大。 他指出，中美双方应坚持平等互利、相互尊重
+来源：投基家 止损与止盈：交易的攻守之道 只知道机械止损，反复小亏不断，就像被凌迟消耗，本金慢慢缩水；而抱着侥幸心理死扛亏损、坚决不止损，看似暂时躲过亏损，实则如同直面致命一击，一次极端行情就可能满盘皆输。 止损本身是一把双刃剑。运用得当，它能帮我们锁定风险、放大收益；可如果新手盲目套用止损规则，不结合自身资金状况、交易品种和风险承受能力，分不清固定止损与移动止损的用法，反而会
 
 ## 正文
 
-专题：第十二届中国与全球化研讨会 4月26日，第十二届中国与全球化研讨会在北京举办，主题为“创新全球化：新动力与新挑战”。
+来源：投基家 止损与止盈：交易的攻守之道 只知道机械止损，反复小亏不断，就像被凌迟消耗，本金慢慢缩水；而抱着侥幸心理死扛亏损、坚决不止损，看似暂时躲过亏损，实则如同直面致命一击，一次极端行情就可能满盘皆输。
 
-中国驻美国大使馆原商务公使朱洪表示，贸易合作是中美关系的重要支柱。
+止损本身是一把双刃剑。
 
-过去几十年，中美贸易合作实现了互利共赢，不仅推动了双方经济的发展，也为全球贸易增长作出了重要贡献。
+运用得当，它能帮我们锁定风险、放大收益；可如果新手盲目套用止损规则，不结合自身资金状况、交易品种和风险承受能力，分不清固定止损与移动止损的用法，反而会让亏损越做越大。
 
-当前中美贸易合作的韧性依然存在，合作的潜力依然巨大。
+这个市场之所以能持续运转，也正是因为总有交易者走向这两个极端 想要让止损发挥作用，首要前提就是做好资金管理，核心要义便是轻仓。
 
-他指出，中美双方应坚持平等互利、相互尊重的原则，通过对话协商解决贸易领域的分歧，取消不合理的贸易关税和壁垒，重启双边经贸磋商，推动贸易合作健康发展。
+市场行情变幻莫测，再精准的判断也会遭遇突发反向行情，甚至极端停板走势。
 
-他强调，“中国始终坚持对外开放的基本国策，不断优化营商环境，为美国企业来华投资兴业提供了广阔的空间和便利的条件。
+保持合理仓位，即便遇上最坏的情况，单次亏损也不会伤及账户根本。
 
-希望美国企业能抓住机遇，积极参与中国市场，实现互利共赢。
+反观重仓交易，在杠杆作用下，小幅反向波动就会产生大额亏损，此时交易者往往心态失衡，根本没有勇气执行止损。
 
-” 此外，朱洪还提到，中美在商务领域的合作不仅限于贸易，还包括投资、服务、技术交流等多个方面，双方应加强在这些领域的合作，拓展合作空间，提升合作水平。
+不少人发现，九成的亏损单子扛一段时间都能回本盈利，可正是这份侥幸，让人忽略了剩下一成的黑天鹅风险。
 
 ## 相关推荐
 
-- 2026-06-29 14:14 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-29 14:38 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-29 14:17 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-29 14:32 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-29 14:27 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-29 14:13 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-29 14:31 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-29 14:39 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-29 14:24 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-29 14:13 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-29 14:33 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-29 14:18 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-29 14:14 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-29 14:22 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-29 14:28 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 14:47 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-29 14:29 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-29 14:40 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-29 14:20 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 14:30 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 14:27 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 14:31 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 14:26 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 14:43 - [双高胎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 14:19 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-29 14:19 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 14:45 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-29 14:18 - [实习期把公司领导开除了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 14:45 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 14:45 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:19 - [比亚迪市值为何蒸发8000亿](http://www.share.minike.top/Article/details/6862601342.shtml)
-- 2026-06-29 14:27 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.kurohicncr.top/Article/details/19875436.shtml)
-- 2026-06-29 14:19 - [教育部发布高考志愿填报预警](https://www.share.kurohicncr.top/Article/details/7037496.shtml)
-- 2026-06-29 14:23 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/97730703.shtml)
-- 2026-06-29 14:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/756229418.shtml)
-- 2026-06-29 14:33 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.kurohicncr.top/Article/details/5339122.shtml)
-- 2026-06-29 14:41 - [异世界一点都不好玩！](https://www.share.minike.top/Article/details/1925273873.shtml)
-- 2026-06-29 14:12 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/49902068639.shtml)
-- 2026-06-29 14:26 - [叶一茜森碟一起回北京了](http://www.share.kurohicncr.top/Article/details/410550488.shtml)
-- 2026-06-29 14:19 - [AG 钟意](https://www.blog.minike.top/Article/details/78155624701.shtml)
-- 2026-06-29 14:26 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/47240.shtml)
-- 2026-06-29 14:37 - [世界杯用球成部分门将噩梦](https://www.share.minike.top/Article/details/92348286.shtml)
-- 2026-06-29 14:21 - [市民骑哈啰单车79分钟被收费30元](http://www.blog.minike.top/Article/details/182032261089.shtml)
-- 2026-06-29 14:34 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/0559297750.shtml)
-- 2026-06-29 14:14 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/60948267.shtml)
+- 2026-06-29 14:44 - [以前不让妆女二可以艳压女主](https://www.share.minike.top/Article/details/96475743.shtml)
+- 2026-06-29 14:23 - [安切洛蒂称像对待决赛一样备战日本](https://www.blog.kurohicncr.top/Article/details/73357.shtml)
+- 2026-06-29 14:45 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.kurohicncr.top/Article/details/74045.shtml)
+- 2026-06-29 14:47 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/00500.shtml)
+- 2026-06-29 14:24 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/323427479358.shtml)
+- 2026-06-29 14:41 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.minike.top/Article/details/03452671530.shtml)
+- 2026-06-29 14:25 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/06615396.shtml)
+- 2026-06-29 14:24 - [勇敢的心第二部](https://www.share.minike.top/Article/details/5562596374.shtml)
+- 2026-06-29 14:39 - [欧洲多国激辩“装不装空调”](http://www.blog.minike.top/Article/details/5002600184.shtml)
+- 2026-06-29 14:31 - [复盘曾沛慈浪姐夺冠之路](https://www.blog.minike.top/Article/details/830252.shtml)
+- 2026-06-29 14:20 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.share.minike.top/Article/details/649841659.shtml)
+- 2026-06-29 14:30 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.share.kurohicncr.top/Article/details/520311.shtml)
+- 2026-06-29 14:30 - [和阿根廷球员家属一起看球](https://www.share.kurohicncr.top/Article/details/45504301.shtml)
+- 2026-06-29 14:42 - [外网预言中国举办世界杯时间](https://www.share.minike.top/Article/details/366113.shtml)
+- 2026-06-29 14:23 - [中方将20家日本实体列入管控名单](https://www.share.kurohicncr.top/Article/details/9935105572.shtml)

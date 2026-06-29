@@ -1,56 +1,46 @@
-# 天津强化资源协同 推动新质生产力高质量发展 黑龙江以科技创新引领产业全面振兴
+# 中金：汇丰控股维持跑赢行业评级 目标价170.80港元
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-【凝心聚力 真抓实干 奋力实现“十五五”良好开局】天津强化资源协同 推动新质生产力高质量发展 黑龙江以科技创新引领产业全面振兴 央视新闻客户端消息(新闻联播)：“十五五”规划纲要提出，加快高水平科技自立自强，引领发展新质生产力。天津、黑龙江深化拓展“人工智能+”，积极搭平台建机制，促进科技成果高效转化应用，推动经济社会高质量发展。 天津强化资源协同 推动新质生产力高质量发展 推
+中金发布研报称，维持汇丰控股（00005）盈利预测基本不变。公司交易于1.8x/1.7x 2026E/2027EP/B，该行维持170.80港元目标价不变，对应2.1x/2.0x2026E/2027EP/B与17.71%上行空间，维持跑赢行业评级。责任编辑：卢昱君
 
 ## 正文
 
-【凝心聚力 真抓实干 奋力实现“十五五”良好开局】天津强化资源协同 推动新质生产力高质量发展 黑龙江以科技创新引领产业全面振兴 央视新闻客户端消息(新闻联播)：“十五五”规划纲要提出，加快高水平科技自立自强，引领发展新质生产力。
+中金发布研报称，维持汇丰控股（00005）盈利预测基本不变。
 
-天津、黑龙江深化拓展“人工智能+”，积极搭平台建机制，促进科技成果高效转化应用，推动经济社会高质量发展。
+公司交易于1.8x/1.7x 2026E/2027EP/B，该行维持170.80港元目标价不变，对应2.1x/2.0x2026E/2027EP/B与17.71%上行空间，维持跑赢行业评级。
 
-天津强化资源协同 推动新质生产力高质量发展 推动更多科技成果从“实验室”走向“生产线”。
-
-今年以来，天津大力支持机器人、高端仪器装备等重点企业，与战略科技力量加强产学研合作，通过建设校企联合实验室等，推进科研设备共享、设施共用、团队梯次共建。
-
-在天开高教科创园，依托产学研创新联合体，这家具身智能企业完成了机器人驱动关节、运动控制算法等技术攻关，订单量成倍增长。
-
-“十五五”规划纲要提出，全面增强自主创新能力，抢占科技发展制高点，推动科技创新和产业创新深度融合，不断催生新质生产力。
-
-“十五五”时期，天津紧抓北京(京津冀)国际科技创新中心扩围机遇，在智算芯片、超算智算互联等领域加快突破；同时围绕12条重点产业链优化科技项目布局，畅通科技成果转化渠道，进一步强化企业科技创新主体地位。
-
-预计今年，天津科技型中小企业将达到1.3万家，人工智能基础核心企业营业收入将突破850亿元。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:21 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-29 14:30 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-29 14:21 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 14:24 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 14:33 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-29 14:18 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-29 14:25 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 14:18 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 14:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-29 14:31 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 14:24 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-29 14:43 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 14:46 - [手游300亿数据或被军事化运用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-29 14:38 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 14:36 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 14:42 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 14:41 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 14:26 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-29 14:23 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 14:29 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:34 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.share.minike.top/Article/details/4619155689.shtml)
-- 2026-06-29 14:31 - [三都主：淘汰赛我会支持日本](https://www.blog.kurohicncr.top/Article/details/032955748.shtml)
-- 2026-06-29 14:23 - [小S在香港被偶遇](https://www.blog.minike.top/Article/details/288321225966.shtml)
-- 2026-06-29 14:12 - [每代父母都困在自己的时代里](http://www.share.minike.top/Article/details/120794710103.shtml)
-- 2026-06-29 14:38 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/09156069304.shtml)
-- 2026-06-29 14:16 - [高考公平需要延伸到志愿填报这一环](https://www.blog.minike.top/Article/details/70789271420.shtml)
-- 2026-06-29 14:27 - [美的空调 卡bug](http://www.blog.minike.top/Article/details/5484280993.shtml)
-- 2026-06-29 14:29 - [薛之谦演唱会](http://www.share.kurohicncr.top/Article/details/01782075.shtml)
-- 2026-06-29 14:25 - [专家建议城乡居民养老金增至每月千元](https://www.blog.kurohicncr.top/Article/details/155775.shtml)
-- 2026-06-29 14:38 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/94156849.shtml)
-- 2026-06-29 14:39 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/978375.shtml)
-- 2026-06-29 14:38 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/344812333371.shtml)
-- 2026-06-29 14:35 - [恋与深空失控领地](https://www.blog.kurohicncr.top/Article/details/33108.shtml)
-- 2026-06-29 14:14 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/0090477966.shtml)
-- 2026-06-29 14:13 - [广东一地发现极危植物新物种](https://www.share.minike.top/Article/details/246340.shtml)
+- 2026-06-29 14:44 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/265674805042.shtml)
+- 2026-06-29 14:44 - [俄称继续推进 乌称打击俄军设施](http://www.blog.minike.top/Article/details/9956989697.shtml)
+- 2026-06-29 14:19 - [血糖高的人能吃西瓜吗](https://www.share.kurohicncr.top/Article/details/961746.shtml)
+- 2026-06-29 14:32 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/60128905.shtml)
+- 2026-06-29 14:46 - [金刚川](https://www.share.minike.top/Article/details/93068.shtml)
+- 2026-06-29 14:21 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.kurohicncr.top/Article/details/84970817761.shtml)
+- 2026-06-29 14:22 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/192686802494.shtml)
+- 2026-06-29 14:38 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/851519629.shtml)
+- 2026-06-29 14:18 - [绘画区你赢了](https://www.share.minike.top/Article/details/4330159.shtml)
+- 2026-06-29 14:19 - [美人鱼](https://www.share.minike.top/Article/details/4769838025.shtml)
+- 2026-06-29 14:27 - [航空运输旅客服务质量国标将实施](http://www.share.minike.top/Article/details/78477215.shtml)
+- 2026-06-29 14:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/286981.shtml)
+- 2026-06-29 14:22 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/8439341287.shtml)
+- 2026-06-29 14:47 - [国家体育总局政策法规司原副司长获刑](http://www.share.minike.top/Article/details/80340326893.shtml)
+- 2026-06-29 14:29 - [比亚迪市值为何蒸发8000亿](https://www.share.minike.top/Article/details/41729541035.shtml)

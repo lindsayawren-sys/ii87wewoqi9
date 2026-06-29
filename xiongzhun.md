@@ -1,47 +1,50 @@
-# 视频|李大霄：未来券商或成金融航母
+# 美国称周末对伊朗无人机控制站进行了自卫性打击
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！责任编辑：石秀珍 SF183
+据声明，美国中央司令部称，这个周末对伊朗戈鲁克和格什姆岛上的伊朗雷达站和无人机指挥控制中心进行了自卫性打击。 打击是应对“伊朗的挑衅性行动，其中包括击落一架在国际水域上空执行任务的美国MQ-1无人机”。 美国战斗机摧毁了伊朗的防空系统、一个地面控制站和两架单向攻击无人机，这些“对途经该地区水域的船只构成了明显威胁”。 没有美国军人受伤。责任编辑：何云
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+据声明，美国中央司令部称，这个周末对伊朗戈鲁克和格什姆岛上的伊朗雷达站和无人机指挥控制中心进行了自卫性打击。
 
-责任编辑：石秀珍 SF183
+打击是应对“伊朗的挑衅性行动，其中包括击落一架在国际水域上空执行任务的美国MQ-1无人机”。
+
+美国战斗机摧毁了伊朗的防空系统、一个地面控制站和两架单向攻击无人机，这些“对途经该地区水域的船只构成了明显威胁”。
+
+没有美国军人受伤。
+
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 14:19 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-29 14:14 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-29 14:19 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-29 14:21 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-29 14:16 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-29 14:37 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 14:19 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 14:30 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 14:29 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-29 14:16 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 14:20 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-29 14:33 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-29 14:16 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-29 14:35 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 14:47 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-29 14:32 - [医药股集体爆发](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 14:41 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-29 14:45 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-29 14:25 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 14:47 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-29 14:23 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-29 14:43 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 14:40 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:15 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/0509712.shtml)
-- 2026-06-29 14:29 - [小娘惹](http://www.share.kurohicncr.top/Article/details/8397211126.shtml)
-- 2026-06-29 14:36 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/87469848.shtml)
-- 2026-06-29 14:19 - [韩国队如何把94%出线概率打到0%](https://www.blog.minike.top/Article/details/34092461.shtml)
-- 2026-06-29 14:38 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/60373936511.shtml)
-- 2026-06-29 14:32 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/8878986.shtml)
-- 2026-06-29 14:35 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/47582.shtml)
-- 2026-06-29 14:41 - [每代父母都困在自己的时代里](https://www.blog.kurohicncr.top/Article/details/35985854.shtml)
-- 2026-06-29 14:34 - [灿如繁星定档](https://www.share.kurohicncr.top/Article/details/314410.shtml)
-- 2026-06-29 14:27 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/127190169.shtml)
-- 2026-06-29 14:36 - [职业选手禁止参赛！](http://www.share.minike.top/Article/details/2700855518.shtml)
-- 2026-06-29 14:39 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/189526.shtml)
-- 2026-06-29 14:30 - [南非老帅布罗斯的梦没能做完](https://www.blog.kurohicncr.top/Article/details/996984095.shtml)
-- 2026-06-29 14:25 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/762209.shtml)
-- 2026-06-29 14:21 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/2599109579.shtml)
+- 2026-06-29 14:19 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/474925805.shtml)
+- 2026-06-29 14:35 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.minike.top/Article/details/122765751.shtml)
+- 2026-06-29 14:22 - [中国避暑神器在欧洲卖爆了](https://www.blog.kurohicncr.top/Article/details/085845834.shtml)
+- 2026-06-29 14:27 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/83100809467.shtml)
+- 2026-06-29 14:39 - [TI2026参赛战队出炉](https://www.blog.minike.top/Article/details/28081439402.shtml)
+- 2026-06-29 14:30 - [网约车司机转账15000元后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/43465.shtml)
+- 2026-06-29 14:32 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/4775438373.shtml)
+- 2026-06-29 14:18 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/052314.shtml)
+- 2026-06-29 14:32 - [詹俊预测德国大胜巴拉圭](https://www.blog.kurohicncr.top/Article/details/6436547.shtml)
+- 2026-06-29 14:28 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/450740287.shtml)
+- 2026-06-29 14:31 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/39426242809.shtml)
+- 2026-06-29 14:23 - [汪东城回应45岁婚约](http://www.share.minike.top/Article/details/8394256.shtml)
+- 2026-06-29 14:34 - [比亚迪市值为何蒸发8000亿](http://www.blog.kurohicncr.top/Article/details/309194078759.shtml)
+- 2026-06-29 14:42 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/44924139950.shtml)
+- 2026-06-29 14:18 - [专家建议城乡居民养老金增至每月千元](http://www.share.minike.top/Article/details/84223.shtml)

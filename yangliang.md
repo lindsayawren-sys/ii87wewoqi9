@@ -1,51 +1,58 @@
-# 泰国演员徐志贤现身昆明泰国节 分享多次到访云南见闻
+# 这种病和感冒很像，但严重可致心衰，别不当回事！
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月27日 20:05 来源：中国新闻网 4月26日，泰国知名演员、歌手徐志贤(BIE Thassapak)现身2026昆明·泰国节“泰国之夜”活动，与数百名中外粉丝互动，进行中泰文化交流。 徐志贤曾因参演《萌妻食神》《外星女生柴小七》等影视剧被不少中国观众熟知。活动现场，徐志贤带来劲歌热舞，分享多次到访云南的见闻，畅谈昆明的城市氛围和观众的热情，并与粉丝
+随着季节更替，各类病毒通常会进入高峰时节，很多人感冒、腹泻后总觉得“没劲儿”，殊不知，这可能是病毒性心肌炎在“悄悄敲门”！ 今天一文读懂，教你快速识别、科学防范～ 一、什么是病毒性心肌炎 病毒性心肌炎是一种由病毒感染引发的心肌炎症，柯萨奇病毒、埃可病毒、流感病毒是常见“元凶”。暴发性心肌炎是最严重且特殊的病毒性心肌炎，病情来势凶猛，可在发病后短时间内迅速进展为严重心力衰竭(心衰
 
 ## 正文
 
-发布时间：2026年04月27日 20:05 来源：中国新闻网 4月26日，泰国知名演员、歌手徐志贤(BIE Thassapak)现身2026昆明·泰国节“泰国之夜”活动，与数百名中外粉丝互动，进行中泰文化交流。
+随着季节更替，各类病毒通常会进入高峰时节，很多人感冒、腹泻后总觉得“没劲儿”，殊不知，这可能是病毒性心肌炎在“悄悄敲门”！
 
-徐志贤曾因参演《萌妻食神》《外星女生柴小七》等影视剧被不少中国观众熟知。
+今天一文读懂，教你快速识别、科学防范～ 一、什么是病毒性心肌炎 病毒性心肌炎是一种由病毒感染引发的心肌炎症，柯萨奇病毒、埃可病毒、流感病毒是常见“元凶”。
 
-活动现场，徐志贤带来劲歌热舞，分享多次到访云南的见闻，畅谈昆明的城市氛围和观众的热情，并与粉丝合影。
+暴发性心肌炎是最严重且特殊的病毒性心肌炎，病情来势凶猛，可在发病后短时间内迅速进展为严重心力衰竭(心衰)、心源性休克，甚至短时间内造成死亡。
 
-(王临梓） 责任编辑：【周驰】
+轻症病毒性心肌炎多可自愈，但此时如果没有好好休息，继续熬夜加班、剧烈运动、从事重体力劳动等，就有可能会引发暴发性心肌炎。
+
+二、高发人群、高发时段与诱发因素 高发人群：儿童、青少年及40岁以下青壮年。
+
+高发时段：冬春季，感冒或腹泻后1-3周。
+
+诱发因素：感染期剧烈运动、熬夜、过度劳累。
+
+三、别把心肌炎当感冒 前驱期症状(第1-3周)：发热、咽痛、咳嗽、腹泻、肌肉酸痛(和感冒很像)。
 
 ## 相关推荐
 
-- 2026-06-29 14:37 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 14:30 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 14:27 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 14:26 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-29 14:16 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-29 14:16 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-29 14:41 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-29 14:19 - [周深双眼皮贴又掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-29 14:14 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-29 14:22 - [薛之谦演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-29 14:19 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-29 14:31 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-29 14:18 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-29 14:48 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-29 14:18 - [韩媒破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-29 14:38 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-29 14:46 - [TOP 无畏契约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-29 14:47 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-29 14:47 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 14:40 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-29 14:44 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 14:46 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-29 14:24 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 14:19 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-29 14:46 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:21 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/91769688709.shtml)
-- 2026-06-29 14:21 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/2344889025.shtml)
-- 2026-06-29 14:36 - [复盘曾沛慈浪姐夺冠之路](https://www.blog.minike.top/Article/details/382206913.shtml)
-- 2026-06-29 14:38 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.kurohicncr.top/Article/details/55994416.shtml)
-- 2026-06-29 14:19 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/93375006.shtml)
-- 2026-06-29 14:21 - [TLAW vs DCG MSI](https://www.share.minike.top/Article/details/98876108063.shtml)
-- 2026-06-29 14:38 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/29932.shtml)
-- 2026-06-29 14:30 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/003414188.shtml)
-- 2026-06-29 14:29 - [唐国强打卡贵阳孔学堂](http://www.share.minike.top/Article/details/331468277.shtml)
-- 2026-06-29 14:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/404584.shtml)
-- 2026-06-29 14:36 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/214778808.shtml)
-- 2026-06-29 14:37 - [T1对战KC](https://www.share.minike.top/Article/details/96270.shtml)
-- 2026-06-29 14:13 - [Canna纳尔8-0对位单杀Doran](http://www.share.minike.top/Article/details/609330782746.shtml)
-- 2026-06-29 14:24 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/7412228.shtml)
-- 2026-06-29 14:40 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/48585.shtml)
+- 2026-06-29 14:36 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/124006822.shtml)
+- 2026-06-29 14:36 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/55250.shtml)
+- 2026-06-29 14:34 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/37313.shtml)
+- 2026-06-29 14:26 - [6月我国降水为何偏多](https://www.blog.minike.top/Article/details/60621.shtml)
+- 2026-06-29 14:26 - [南部战区位南海海域进行例行巡航](http://www.blog.kurohicncr.top/Article/details/639219864.shtml)
+- 2026-06-29 14:34 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/56829067836.shtml)
+- 2026-06-29 14:43 - [林昀儒不敌17岁小将止步首轮](http://www.share.kurohicncr.top/Article/details/4620407219.shtml)
+- 2026-06-29 14:30 - [给阿嬷的情书海外口碑](http://www.blog.minike.top/Article/details/157933220.shtml)
+- 2026-06-29 14:26 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/5985468156.shtml)
+- 2026-06-29 14:30 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/909334757163.shtml)
+- 2026-06-29 14:47 - [俄军新型无人机战力如何](http://www.blog.minike.top/Article/details/8735043.shtml)
+- 2026-06-29 14:35 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/2008310.shtml)
+- 2026-06-29 14:35 - [《贺子珍》](http://www.share.minike.top/Article/details/51454.shtml)
+- 2026-06-29 14:32 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.minike.top/Article/details/814540.shtml)
+- 2026-06-29 14:40 - [退休化学教授帮医药研发人员制毒](https://www.blog.minike.top/Article/details/076125.shtml)

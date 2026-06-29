@@ -1,56 +1,51 @@
-# 河南鲁山：春蚕枝头金灿灿
+# 【看见中国】“我一定要扎根义乌” 尼泊尔商人Bishnu的“必需努”
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-今天，致敬中国航天！论宇宙级浪漫，中国人真的太会了…......人民海军多艘现役舰艇与公众见面 登舰参观如何看出门道大陆导航APP，也上了台当局“黑名单”诗句挂在联合国，炸弹落在德黑兰：风暴中，诗歌最无力也最有力古特雷斯任期将于年底结束 谁会成为下一任联合国秘书长麦家：如果想保持创造力，一定要进行深阅读风靡北京的馕咖啡，戳穿了一个关于新疆的无耻谎言生日快乐！一起来看属于他的高光
+发布时间：2026年06月01日 17:52 来源：中国新闻网 “我一定要努力扎根义乌”“我一定要向更多尼泊尔商人推介义乌”“我一定要进一步促进尼中交流与友谊”……从2002年第一次来到浙江义乌，到如今在这里扎根24年，尼泊尔商人毕需努(Bishnu)感慨万千。在这里，他一次次喊出“必须努力”的目标，也一次次让自己与义乌的联系愈发紧密。 近日，毕需努在采访中分享了他与义乌的故事
 
 ## 正文
 
-今天，致敬中国航天！
+发布时间：2026年06月01日 17:52 来源：中国新闻网 “我一定要努力扎根义乌”“我一定要向更多尼泊尔商人推介义乌”“我一定要进一步促进尼中交流与友谊”……从2002年第一次来到浙江义乌，到如今在这里扎根24年，尼泊尔商人毕需努(Bishnu)感慨万千。
 
-论宇宙级浪漫，中国人真的太会了…......人民海军多艘现役舰艇与公众见面 登舰参观如何看出门道大陆导航APP，也上了台当局“黑名单”诗句挂在联合国，炸弹落在德黑兰：风暴中，诗歌最无力也最有力古特雷斯任期将于年底结束 谁会成为下一任联合国秘书长麦家：如果想保持创造力，一定要进行深阅读风靡北京的馕咖啡，戳穿了一个关于新疆的无耻谎言生日快乐！
+在这里，他一次次喊出“必须努力”的目标，也一次次让自己与义乌的联系愈发紧密。
 
-一起来看属于他的高光时刻！
+近日，毕需努在采访中分享了他与义乌的故事。
 
-湖南腊元古村：军屯堡垒变身“没有围墙的博物馆”高校图书馆如何接住“全民阅读”的青年期待？
-
-方寸见世界：一对香港夫妇的40载藏书票情缘河洛“三彩小镇”千年唐三彩焕新 年产值3.5亿元全民阅读续文脉 解缙故事咏流传相约三亚：共赴一场亚洲之约从造水库建林场到“时尚弄潮儿” 福建这群渔女们太飒了中东局势导致避孕套涨价？
-
-杜蕾斯、杰士邦、冈本客服回应订单已排到7月！
-
-老外正在疯抢中国电摩12位志愿军烈士在沈阳安葬 鸣枪12响致敬志愿军烈士寻根黄帝故里！
-
-台胞小可的拜祖初体验沈阳塔台迎接志愿军忠烈回家西藏樟木口岸全面复通后出入境人员突破100万人次中国海军以最高礼仪迎接烈士遗骸回国深圳市非血缘造血干细胞捐献达1000例宿迁：在“项王故里”邂逅水韵柔情沈阳全城披红 迎第十三批志愿军烈士遗骸归国惊险！
+(董易鑫 刘子琳 浙江义乌报道） 责任编辑：【叶攀】
 
 ## 相关推荐
 
-- 2026-06-29 14:20 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 14:14 - [南非老帅布罗斯的梦没能做完](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-29 14:28 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 14:25 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 14:26 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 14:38 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 14:39 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 14:30 - [拄拐少年高考663分：用行动回报社会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 14:39 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-29 14:20 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 14:32 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 14:24 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-29 14:20 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 14:47 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-29 14:35 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-29 14:20 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-29 14:27 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 14:28 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 14:42 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-29 14:29 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 14:30 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 14:29 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 14:29 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:20 - [美人鱼](https://www.share.minike.top/Article/details/14409445309.shtml)
-- 2026-06-29 14:13 - [手游300亿数据或被军事化运用](https://www.share.kurohicncr.top/Article/details/587539465.shtml)
-- 2026-06-29 14:20 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/241048850216.shtml)
-- 2026-06-29 14:19 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/35678.shtml)
-- 2026-06-29 14:16 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/171445269687.shtml)
-- 2026-06-29 14:41 - [周深双眼皮贴又掉了](http://www.share.minike.top/Article/details/5452403.shtml)
-- 2026-06-29 14:19 - [森保一：日本队要亲手改写历史](https://www.blog.kurohicncr.top/Article/details/07480071594.shtml)
-- 2026-06-29 14:39 - [第一批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/33823780.shtml)
-- 2026-06-29 14:28 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/69733005420.shtml)
-- 2026-06-29 14:13 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/22663637.shtml)
-- 2026-06-29 14:27 - [在自己家不穿衣服犯法吗](http://www.blog.kurohicncr.top/Article/details/032885759.shtml)
-- 2026-06-29 14:36 - [20年前的周杰伦](https://www.blog.kurohicncr.top/Article/details/9357932.shtml)
-- 2026-06-29 14:31 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.share.minike.top/Article/details/514034.shtml)
-- 2026-06-29 14:38 - [一见倾心](https://www.share.minike.top/Article/details/440460514993.shtml)
-- 2026-06-29 14:18 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/182420.shtml)
+- 2026-06-29 14:29 - [欧委会总部只给高层开空调](https://www.blog.minike.top/Article/details/6714423.shtml)
+- 2026-06-29 14:46 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.kurohicncr.top/Article/details/878497.shtml)
+- 2026-06-29 14:25 - [在委侨团负责人：家乡的帮助很及时](http://www.share.minike.top/Article/details/095913383.shtml)
+- 2026-06-29 14:30 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/291962069260.shtml)
+- 2026-06-29 14:37 - [高市早苗口齿不清被质疑醉酒](https://www.share.minike.top/Article/details/14069914739.shtml)
+- 2026-06-29 14:29 - [美媒：空警-3000服役即成全球最强](https://www.blog.minike.top/Article/details/830815979121.shtml)
+- 2026-06-29 14:37 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/041763.shtml)
+- 2026-06-29 14:25 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/365107351.shtml)
+- 2026-06-29 14:47 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/567728770.shtml)
+- 2026-06-29 14:37 - [恋与深空底线不该被娱乐化](https://www.blog.minike.top/Article/details/497336.shtml)
+- 2026-06-29 14:36 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.kurohicncr.top/Article/details/59793940.shtml)
+- 2026-06-29 14:39 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.minike.top/Article/details/55507.shtml)
+- 2026-06-29 14:37 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.minike.top/Article/details/847459.shtml)
+- 2026-06-29 14:38 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/803754.shtml)
+- 2026-06-29 14:24 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/5703001.shtml)

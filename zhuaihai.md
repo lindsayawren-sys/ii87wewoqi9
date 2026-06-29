@@ -1,48 +1,60 @@
-# 泰国演员春城宠粉互动 以荧屏为桥续写滇泰友谊
+# 五折接盘！中信银行9.8亿元入股“烟草系”城商行
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月25日 15:45 来源：中国新闻网 4月24日晚，2026昆明·泰国节“泰国之夜”活动——泰国知名影视演员查侬·散顶腾古(Nonkul Chanon)、泰莎昂·派索克乔纶(Aff Taksaorn)粉丝见面会在云南昆明举行，数百名中外粉丝齐聚一堂，共赴一场跨文化与荧屏的会面。 查侬·散顶腾古与泰莎昂·派索克乔纶登场瞬间点燃现场氛围，粉丝们手持应援灯牌
+日前，据昆明产业开发投资有限责任公司（下称“昆明产投”）公告，其通过昆明联合产权交易有限公司挂牌出售了持有的云南红塔银行全部股权，占红塔银行总股份的14.52%。股权受让方为中信银行，成交价9.8亿元。 红塔银行，总部位于云南省玉溪市，玉溪市商业银行是它的前身，但“烟草系银行”却是它常被提起的另一个名字。 2016年7月，在云南省委省政府和国家烟草专卖局深化“省部合作”部署的推
 
 ## 正文
 
-发布时间：2026年04月25日 15:45 来源：中国新闻网 4月24日晚，2026昆明·泰国节“泰国之夜”活动——泰国知名影视演员查侬·散顶腾古(Nonkul Chanon)、泰莎昂·派索克乔纶(Aff Taksaorn)粉丝见面会在云南昆明举行，数百名中外粉丝齐聚一堂，共赴一场跨文化与荧屏的会面。
+日前，据昆明产业开发投资有限责任公司（下称“昆明产投”）公告，其通过昆明联合产权交易有限公司挂牌出售了持有的云南红塔银行全部股权，占红塔银行总股份的14.52%。
 
-查侬·散顶腾古与泰莎昂·派索克乔纶登场瞬间点燃现场氛围，粉丝们手持应援灯牌、高举手写标语，用泰语、中文齐声呼喊偶像名字，现场欢呼声此起彼伏。
+股权受让方为中信银行，成交价9.8亿元。
 
-互动环节中，两位演员亲切回应粉丝提问，分享演艺路上的趣事与感悟，畅谈对昆明的初印象，直言被中国粉丝的热情所感染，希望通过自身影响力促进中泰文化双向奔赴。
+红塔银行，总部位于云南省玉溪市，玉溪市商业银行是它的前身，但“烟草系银行”却是它常被提起的另一个名字。
 
-(袁鸿凯) 责任编辑：【叶攀】
+2016年7月，在云南省委省政府和国家烟草专卖局深化“省部合作”部署的推动下，该行前身玉溪市商业银行增资扩股，引入中国烟草总公司云南省公司、云南合和（集团）股份有限公司等多家部属、省属企业作为其主要股东后，正式更名为云南红塔银行，成为中国烟草直属管理的城商行。
+
+红塔银行2025年年报显示，昆明产投为该银行第四大股东，持股比例为14.52%。
+
+与近年登上股权交易所或拍卖平台的其他中小银行股权一样，红塔银行此次股权转让也并不顺利。
+
+今年4月，该笔股权首次挂牌，底价约10.21亿元，折合每股1.116元。
+
+相比2025年末云南红塔银行每股净资产2.21元，折价幅度高达49.5%。
 
 ## 相关推荐
 
-- 2026-06-29 14:25 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-29 14:37 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-29 14:23 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 14:20 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-29 14:29 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 14:26 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 14:28 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 14:38 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-29 14:33 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 14:32 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 14:39 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 14:29 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 14:30 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 14:26 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 14:23 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-29 14:44 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 14:20 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-29 14:21 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 14:30 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 14:21 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 14:36 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 14:46 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-29 14:36 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 14:30 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:40 - [叶一茜森碟一起回北京了](http://www.share.minike.top/Article/details/7670828.shtml)
-- 2026-06-29 14:19 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.kurohicncr.top/Article/details/7971663.shtml)
-- 2026-06-29 14:33 - [佛得角到底在哪个“角”](https://www.blog.minike.top/Article/details/3124776682.shtml)
-- 2026-06-29 14:16 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.blog.kurohicncr.top/Article/details/46288919.shtml)
-- 2026-06-29 14:29 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/765354945261.shtml)
-- 2026-06-29 14:20 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.minike.top/Article/details/168319241.shtml)
-- 2026-06-29 14:31 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/52182136796.shtml)
-- 2026-06-29 14:25 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/10199944.shtml)
-- 2026-06-29 14:23 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.kurohicncr.top/Article/details/44156.shtml)
-- 2026-06-29 14:24 - [广东一地发现极危植物新物种](https://www.blog.kurohicncr.top/Article/details/63560.shtml)
-- 2026-06-29 14:26 - [我国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/879548017634.shtml)
-- 2026-06-29 14:22 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/211459865791.shtml)
-- 2026-06-29 14:32 - [恋与深空评分暴跌至1.8](http://www.share.minike.top/Article/details/647534740.shtml)
-- 2026-06-29 14:34 - [四川宜宾地震致13人受轻微伤](https://www.blog.minike.top/Article/details/542548503661.shtml)
-- 2026-06-29 14:25 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.minike.top/Article/details/323740.shtml)
+- 2026-06-29 14:34 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/27813834287.shtml)
+- 2026-06-29 14:23 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/986424123.shtml)
+- 2026-06-29 14:25 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/337878014.shtml)
+- 2026-06-29 14:30 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/699017369553.shtml)
+- 2026-06-29 14:28 - [巴基斯坦军方打死29名武装分子](http://www.blog.kurohicncr.top/Article/details/336816470868.shtml)
+- 2026-06-29 14:46 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.share.kurohicncr.top/Article/details/6150409.shtml)
+- 2026-06-29 14:25 - [下飞机后，我做了个很蠢的决定......](https://www.blog.minike.top/Article/details/17691063.shtml)
+- 2026-06-29 14:36 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/98388.shtml)
+- 2026-06-29 14:29 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.kurohicncr.top/Article/details/6118602.shtml)
+- 2026-06-29 14:34 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/30753321761.shtml)
+- 2026-06-29 14:44 - [第一炉香](https://www.share.minike.top/Article/details/5667883585.shtml)
+- 2026-06-29 14:46 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/486416536.shtml)
+- 2026-06-29 14:24 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/007028.shtml)
+- 2026-06-29 14:34 - [手游300亿数据或被军事化运用](http://www.blog.kurohicncr.top/Article/details/1143690069.shtml)
+- 2026-06-29 14:35 - [AG 宫斗](http://www.blog.kurohicncr.top/Article/details/11529819912.shtml)

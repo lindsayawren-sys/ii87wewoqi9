@@ -1,52 +1,59 @@
-# 一分钟草编蚂蚱 萌娃外国游客现场围观
+# 台湾媒体人参访郑州“竖屏”片场：两岸协作推出更多优质作品
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月26日 15:41 来源：中国新闻网 壁虎、蜘蛛、乌龟......草编艺术家张帮寿一分钟便用棕叶编制而成。走在798的街巷里，总能遇见惊喜。在这个不起眼的小摊前，常常围满了人，也吸引不少外国游客，被这些活灵活现的草编动物吸引。草编在中国民间历史悠久，材料就是草或棕叶，通过技法折编，制作成昆虫或小动物。张帮寿回忆在台湾交流的经历，“很受欢迎，跟我们爱好是
+中新社郑州6月2日电 题：台湾媒体人参访郑州“竖屏”片场：两岸协作推出更多优质作品 作者 李百加 走出仿真“法庭”，好似身处20世纪60年代居民起居室内。医院、写字楼、豪华宴会厅……河南郑州大志影视基地里，十数造景首尾相连，步移景异。“沉浸感太强了。”台湾青年导演邱庆龄一路拍摄时说。 5月27日至6月2日，“相约中原·豫见精彩”2026年海峡两岸记者联合采访活动在河南郑州、洛阳
 
 ## 正文
 
-发布时间：2026年04月26日 15:41 来源：中国新闻网 壁虎、蜘蛛、乌龟......草编艺术家张帮寿一分钟便用棕叶编制而成。
+中新社郑州6月2日电 题：台湾媒体人参访郑州“竖屏”片场：两岸协作推出更多优质作品 作者 李百加 走出仿真“法庭”，好似身处20世纪60年代居民起居室内。
 
-走在798的街巷里，总能遇见惊喜。
+医院、写字楼、豪华宴会厅……河南郑州大志影视基地里，十数造景首尾相连，步移景异。
 
-在这个不起眼的小摊前，常常围满了人，也吸引不少外国游客，被这些活灵活现的草编动物吸引。
+“沉浸感太强了。
 
-草编在中国民间历史悠久，材料就是草或棕叶，通过技法折编，制作成昆虫或小动物。
+”台湾青年导演邱庆龄一路拍摄时说。
 
-张帮寿回忆在台湾交流的经历，“很受欢迎，跟我们爱好是一样的，喜欢龙、鹤、龟这些之类的，特别是大肚子蝈蝈，卖得非常好。
+5月27日至6月2日，“相约中原·豫见精彩”2026年海峡两岸记者联合采访活动在河南郑州、洛阳、开封等地举行。
 
-”(记者 董语飞） 责任编辑：【周驰】
+采访团走进大志影视基地，近距离观察大陆微短剧产业的发展生态。
+
+近年来，以节奏快、反转强、情绪浓烈为特点的大陆微短剧迅速崛起，在台湾掀起观看热潮。
+
+梅花媒体集团“爱传媒”副总编辑陈素贞表示，微短剧已成为不少台湾民众的日常消遣，“很多朋友追看‘霸总’‘婆媳’等题材短剧，轻松解压”。
 
 ## 相关推荐
 
-- 2026-06-29 14:13 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-29 14:35 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-29 14:19 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 14:32 - [A股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 14:19 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-29 14:19 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 14:21 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 14:25 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 14:41 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-29 14:12 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 14:35 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 14:23 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-29 14:26 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 14:21 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 14:34 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-29 14:36 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-29 14:26 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 14:19 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 14:42 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 14:21 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-29 14:27 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-29 14:36 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 14:27 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:18 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/542683598.shtml)
-- 2026-06-29 14:19 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/317202.shtml)
-- 2026-06-29 14:33 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/39901.shtml)
-- 2026-06-29 14:28 - [韩媒破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/8615031061.shtml)
-- 2026-06-29 14:17 - [王楚钦 表演球擦网](https://www.share.kurohicncr.top/Article/details/0365490934.shtml)
-- 2026-06-29 14:27 - [链博会上的机器人太全能了](http://www.blog.kurohicncr.top/Article/details/12015795680.shtml)
-- 2026-06-29 14:29 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/411839353255.shtml)
-- 2026-06-29 14:21 - [爱情有烟火你是知道我爱看什么的](https://www.share.kurohicncr.top/Article/details/843062769.shtml)
-- 2026-06-29 14:14 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/84971.shtml)
-- 2026-06-29 14:23 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/0613093996.shtml)
-- 2026-06-29 14:34 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/2366378.shtml)
-- 2026-06-29 14:28 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/45857.shtml)
-- 2026-06-29 14:23 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/051465079.shtml)
-- 2026-06-29 14:26 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/41688188.shtml)
-- 2026-06-29 14:31 - [王楚钦3-0周启豪 晋级32强](http://www.blog.minike.top/Article/details/494421343.shtml)
+- 2026-06-29 14:47 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/62032331.shtml)
+- 2026-06-29 14:35 - [千与千寻](http://www.share.minike.top/Article/details/971455737.shtml)
+- 2026-06-29 14:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/502933644.shtml)
+- 2026-06-29 14:26 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/0675376.shtml)
+- 2026-06-29 14:36 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/547274.shtml)
+- 2026-06-29 14:32 - [千与千寻](https://www.blog.minike.top/Article/details/920061.shtml)
+- 2026-06-29 14:47 - [马斯克也站到了光里](http://www.blog.minike.top/Article/details/26934012.shtml)
+- 2026-06-29 14:46 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/110928110.shtml)
+- 2026-06-29 14:47 - [第一批缉毒警已全体退休](http://www.share.minike.top/Article/details/21049606.shtml)
+- 2026-06-29 14:29 - [美人鱼](https://www.blog.minike.top/Article/details/0686849.shtml)
+- 2026-06-29 14:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/80890.shtml)
+- 2026-06-29 14:47 - [斛珠夫人](http://www.share.minike.top/Article/details/5235389089.shtml)
+- 2026-06-29 14:21 - [在自己家不穿衣服犯法吗](https://www.blog.kurohicncr.top/Article/details/4150843.shtml)
+- 2026-06-29 14:22 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/84438962935.shtml)
+- 2026-06-29 14:24 - [比亚迪为什么卖得越多市值越低](http://www.blog.kurohicncr.top/Article/details/371714888063.shtml)

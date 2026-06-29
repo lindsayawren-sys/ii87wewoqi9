@@ -1,58 +1,56 @@
-# “华夏东极”抚远：界江开渔忙 民警护安航
+# 涉及毛绒玩具、电动童车……一批儿童相关国家标准正式发布
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-中新网佳木斯4月25日电(高峰 韩睿 邱治博)25日凌晨2时，被称为“中国淡水鱼都”的黑龙江省佳木斯抚远市迎来新一年开渔时刻。黑龙江佳木斯边境管理支队乌苏镇边境派出所民警驾驶警艇开启24小时界江驻守巡逻，警灯在碧波上划出安心的轨迹，与渔民撒下的渔网共同编织出“华夏东极”的丰收图景。“王大哥，救生衣的卡扣再检查一遍，北斗定位器信号一定要确认通畅！”民警李鑫踩着湿滑的船板，弯腰仔细
+记者今天了解到，国家标准委发布一批儿童相关国家标准，涉及毛绒玩具、电动童车、儿童伞具、未成年人上网等方面，从儿童用品到网络环境全面升级技术要求，多层次筑牢儿童安全防护屏障。 在毛绒玩具方面，《毛绒、布制玩具》 国家标准覆盖儿童日常高频接触的玩偶、公仔、抱枕等全品类毛绒、布制玩具，新增甲醛、pH值、色牢度、异味等健康安全指标，严格管控零件脱落、缝线开裂等物理机械风险。同时，细化外
 
 ## 正文
 
-中新网佳木斯4月25日电(高峰 韩睿 邱治博)25日凌晨2时，被称为“中国淡水鱼都”的黑龙江省佳木斯抚远市迎来新一年开渔时刻。
+记者今天了解到，国家标准委发布一批儿童相关国家标准，涉及毛绒玩具、电动童车、儿童伞具、未成年人上网等方面，从儿童用品到网络环境全面升级技术要求，多层次筑牢儿童安全防护屏障。
 
-黑龙江佳木斯边境管理支队乌苏镇边境派出所民警驾驶警艇开启24小时界江驻守巡逻，警灯在碧波上划出安心的轨迹，与渔民撒下的渔网共同编织出“华夏东极”的丰收图景。
+在毛绒玩具方面，《毛绒、布制玩具》 国家标准覆盖儿童日常高频接触的玩偶、公仔、抱枕等全品类毛绒、布制玩具，新增甲醛、pH值、色牢度、异味等健康安全指标，严格管控零件脱落、缝线开裂等物理机械风险。
 
-“王大哥，救生衣的卡扣再检查一遍，北斗定位器信号一定要确认通畅！
+同时，细化外观品质、填充物均匀度、清洁保养指引等要求，使产品兼顾安全性与使用体验。
 
-”民警李鑫踩着湿滑的船板，弯腰仔细查看渔船的消防设备。
+在电动童车方面，《电动童车通用技术条件》 国家标准适用于14岁以下儿童使用的非道路电池驱动玩具车辆，聚焦充电欠保护、耐用性不足等问题，明确续航时长、遥控性能、转向操作力、充电防护、导线强度等要求，强化产品疲劳耐久与整体机械强度，并对车速超8公里/小时的产品增设挡位锁定保护，有效防范结构及部件失效带来的安全隐患。
 
-在抚远市乌苏镇通江口滩地，鞭炮声与渔船马达声交织回荡，渔民们满脸喜色地整理渔网，身着藏蓝制服的民警们，踏着晨露逐船开展安全检查，为这场期盼已久的丰收盛宴筑牢安全防线。
+在儿童伞具方面，《儿童伞通用技术要求》 国家标准适用于3岁至14岁儿童使用的伞具，优化伞面强度、开合力度与底座稳定性等基础性能，明确开关耐久性、抗风能力与部件牢固度，规范防紫外线标注标识，提升反光可视性，保障儿童户外使用安全。
 
-作为中俄界江的核心作业区，这里高峰时近300艘渔船云集江面，占到黑龙江省界江作业船只的十分之一。
+在未成年人上网方面，《移动互联网未成年人模式技术要求》国家标准针对网络不良信息侵扰、上网成瘾、个人信息泄露、诱导消费等风险，明确手机终端、上网软件、应用下载平台中未成年人专属防护模式的技术要求，助力未成年人安全健康上网。
 
-乌苏镇边境派出所民警采用“蹲滩值守+登船核验”模式，与渔民同吃同住同作息，从黎明到日暮穿梭在大小渔船间，细致检查雷达、通信设备及灭火器材，确保每一艘渔船“健康”下江。
-
-江风渐起，祭江祈福仪式的余韵仍在江畔萦绕。
+(央视新闻客户端 总台央视记者 李晶晶)
 
 ## 相关推荐
 
-- 2026-06-29 14:31 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-29 14:40 - [多家银行收紧个人贵金属业务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-29 14:30 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-29 14:40 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-29 14:35 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-29 14:27 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-29 14:18 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 14:19 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-29 14:31 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 14:24 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-29 14:23 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-29 14:15 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-29 14:29 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 14:39 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-29 14:24 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 14:23 - [新一代影后杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 14:36 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-29 14:19 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 14:23 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 14:27 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 14:24 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 14:29 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-29 14:37 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-29 14:29 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:29 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.kurohicncr.top/Article/details/088011748.shtml)
-- 2026-06-29 14:17 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.kurohicncr.top/Article/details/225114.shtml)
-- 2026-06-29 14:22 - [永远保持对人民的赤子之心](https://www.blog.kurohicncr.top/Article/details/26442.shtml)
-- 2026-06-29 14:35 - [第一批缉毒警已全体退休](http://www.share.minike.top/Article/details/904662425.shtml)
-- 2026-06-29 14:38 - [尹恩惠自曝14年没谈过恋爱](https://www.share.minike.top/Article/details/050060.shtml)
-- 2026-06-29 14:17 - [流金岁月](https://www.share.kurohicncr.top/Article/details/76776480811.shtml)
-- 2026-06-29 14:36 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.blog.minike.top/Article/details/573582207.shtml)
-- 2026-06-29 14:12 - [韩国队差旅费亏麻了](http://www.share.minike.top/Article/details/3884868679.shtml)
-- 2026-06-29 14:22 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/283394.shtml)
-- 2026-06-29 14:15 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.minike.top/Article/details/951896.shtml)
-- 2026-06-29 14:41 - [韩国队差旅费亏麻了](http://www.share.kurohicncr.top/Article/details/7680197.shtml)
-- 2026-06-29 14:36 - [刘仲华院士愿当贺永辉导师](http://www.blog.kurohicncr.top/Article/details/442894.shtml)
-- 2026-06-29 14:23 - [5万块的威力](https://www.share.minike.top/Article/details/787574492128.shtml)
-- 2026-06-29 14:24 - [女心理师](http://www.blog.kurohicncr.top/Article/details/6727534.shtml)
-- 2026-06-29 14:13 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/973055.shtml)
+- 2026-06-29 14:29 - [小S在香港被偶遇](http://www.share.minike.top/Article/details/282702064173.shtml)
+- 2026-06-29 14:35 - [袁隆平院士 不容诋毁！](http://www.share.minike.top/Article/details/49506696.shtml)
+- 2026-06-29 14:25 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/34245531.shtml)
+- 2026-06-29 14:44 - [韩媒破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/05514011106.shtml)
+- 2026-06-29 14:19 - [永远保持对人民的赤子之心](https://www.share.minike.top/Article/details/73593247678.shtml)
+- 2026-06-29 14:36 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/37681.shtml)
+- 2026-06-29 14:40 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/84482.shtml)
+- 2026-06-29 14:27 - [事关个税 明日截止请抓紧办理](http://www.share.minike.top/Article/details/808479331501.shtml)
+- 2026-06-29 14:28 - [毒液2](http://www.blog.kurohicncr.top/Article/details/218618615.shtml)
+- 2026-06-29 14:21 - [papi酱回应毕业4年零收入](http://www.blog.kurohicncr.top/Article/details/924984612890.shtml)
+- 2026-06-29 14:31 - [欧洲多国激辩“装不装空调”](http://www.share.minike.top/Article/details/55110479569.shtml)
+- 2026-06-29 14:47 - [哈基米歌王争霸赛](https://www.blog.minike.top/Article/details/99359.shtml)
+- 2026-06-29 14:28 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/47334.shtml)
+- 2026-06-29 14:29 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/0654715274.shtml)
+- 2026-06-29 14:36 - [ENC瓦中国香港负印度数据图](http://www.blog.kurohicncr.top/Article/details/3403003844.shtml)

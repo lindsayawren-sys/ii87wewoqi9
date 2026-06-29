@@ -1,50 +1,57 @@
-# 北京银行：聘任刘江涛为证券事务代表
+# 美国佛罗里达州总检察长因AI危害起诉OpenAI
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-4月27日金融一线消息，北京银行发布公告称，董事会同意聘任刘江涛为该行证券事务代表，协助董事会秘书履行职责，自董事会审议通过之日起履职。 简历显示，刘江涛，1981年7月生，44岁，经济学硕士。2007年7月参加工作。2024年1月至今担任董事会办公室主任，2020年6月至2024年1月担任办公室（党委办公室）副主任，2020年3月至2020年6月担任办公室（党委办公室）副主任
+针对人工智能（AI）聊天机器人被控存在安全缺失一事，各界反弹声浪日益高涨，而美国佛罗里达州对此发起了新一轮攻势，成为首个对OpenAI及其首席执行官山姆·奥特曼提起诉讼的州。 佛罗里达州总检察长詹姆斯·乌特迈尔（James Uthmeier）于周一提起诉讼，指控OpenAI和阿尔特曼明知产品不安全却执意发布，对该产品可能伤害用户的警告置若罔闻。 这份长达83页的诉状指控，Ope
 
 ## 正文
 
-4月27日金融一线消息，北京银行发布公告称，董事会同意聘任刘江涛为该行证券事务代表，协助董事会秘书履行职责，自董事会审议通过之日起履职。
+针对人工智能（AI）聊天机器人被控存在安全缺失一事，各界反弹声浪日益高涨，而美国佛罗里达州对此发起了新一轮攻势，成为首个对OpenAI及其首席执行官山姆·奥特曼提起诉讼的州。
 
-简历显示，刘江涛，1981年7月生，44岁，经济学硕士。
+佛罗里达州总检察长詹姆斯·乌特迈尔（James Uthmeier）于周一提起诉讼，指控OpenAI和阿尔特曼明知产品不安全却执意发布，对该产品可能伤害用户的警告置若罔闻。
 
-2007年7月参加工作。
+这份长达83页的诉状指控，OpenAI放任ChatGPT协助和教唆大规模枪击案凶手、鼓励他人自杀、削弱用户的批判性思维能力，并让未成年人沉迷于这款伪装具备人类同情心的工具。
 
-2024年1月至今担任董事会办公室主任，2020年6月至2024年1月担任办公室（党委办公室）副主任，2020年3月至2020年6月担任办公室（党委办公室）副主任、文秘室经理，2019年1月至2020年3月担任办公室（党委办公室）副主任、宣传中心（二级）副主任、文秘室经理，2015年4月至2019年1月担任办公室（党委办公室）主任助理、文秘室经理，2014年12月至2015年4月担任办公室（党委办公室）文秘室经理，2012年12月至2014年12月担任办公室（党委办公室）文秘室副经理，2007年7月至2012年12月在办公室（党委办公室）从事相关工作。
+该诉状称，“被告明知ChatGPT存在危险，却为了赢得AI军备竞赛、敛聚巨额财富而贪得无厌，正是这种无尽的渴求导致了这一系列危害。
 
-责任编辑：王馨茹
+” OpenAI未立即就该诉讼置评。
+
+OpenAI此前曾否认存在不当行为，并表示该公司正不断加强安全防护措施。
+
+美国立法者、司法机构和公共利益团体日益担忧AI带来的个人和社会风险。
+
+AI是史上发展最快的消费技术之一。
 
 ## 相关推荐
 
-- 2026-06-29 14:24 - [6月我国降水为何偏多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-29 14:29 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-29 14:36 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-29 14:36 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-29 14:28 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-29 14:22 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 14:27 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-29 14:27 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-29 14:15 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 14:15 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 14:25 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-29 14:22 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 14:42 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 14:28 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-29 14:31 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 14:46 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 14:45 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-29 14:34 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 14:26 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-29 14:32 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-29 14:35 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:32 - [河南考699分女生已接到清华大学电话](http://www.blog.kurohicncr.top/Article/details/04088293.shtml)
-- 2026-06-29 14:15 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/15063283643.shtml)
-- 2026-06-29 14:39 - [久坐小心“死臀综合征”](http://www.share.kurohicncr.top/Article/details/705373178001.shtml)
-- 2026-06-29 14:17 - [四川宜宾地震致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/74058382071.shtml)
-- 2026-06-29 14:18 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/88674468224.shtml)
-- 2026-06-29 14:12 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/897495504892.shtml)
-- 2026-06-29 14:38 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/03285795.shtml)
-- 2026-06-29 14:20 - [一见倾心](http://www.share.kurohicncr.top/Article/details/3695890983.shtml)
-- 2026-06-29 14:33 - [胡光宇一审获刑13年](https://www.blog.kurohicncr.top/Article/details/580892762024.shtml)
-- 2026-06-29 14:33 - [复盘曾沛慈浪姐夺冠之路](http://www.share.kurohicncr.top/Article/details/7931763.shtml)
-- 2026-06-29 14:36 - [内马尔能上场15分钟](http://www.share.minike.top/Article/details/074574643785.shtml)
-- 2026-06-29 14:39 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/4228570811.shtml)
-- 2026-06-29 14:13 - [三都主：淘汰赛我会支持日本](https://www.blog.minike.top/Article/details/76702632.shtml)
-- 2026-06-29 14:14 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/7440002328.shtml)
-- 2026-06-29 14:39 - [人民日报评“AI脸看腻了”](https://www.share.minike.top/Article/details/03648441.shtml)
+- 2026-06-29 14:25 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/2476305.shtml)
+- 2026-06-29 14:27 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/20223.shtml)
+- 2026-06-29 14:35 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/821393794.shtml)
+- 2026-06-29 14:19 - [青春环游记第三季](http://www.blog.minike.top/Article/details/9897473852.shtml)
+- 2026-06-29 14:31 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/55684127780.shtml)
+- 2026-06-29 14:38 - [实习期把公司领导开除了](https://www.blog.minike.top/Article/details/0289801598.shtml)
+- 2026-06-29 14:34 - [84岁英国教授成中国网红](https://www.blog.kurohicncr.top/Article/details/162698668479.shtml)
+- 2026-06-29 14:23 - [周锡玮：做堂堂正正的中国人](https://www.blog.kurohicncr.top/Article/details/19722341180.shtml)
+- 2026-06-29 14:18 - [法拉利被4个孩子当滑梯玩](http://www.share.kurohicncr.top/Article/details/93820.shtml)
+- 2026-06-29 14:29 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/60486360.shtml)
+- 2026-06-29 14:18 - [Canna纳尔8-0对位单杀Doran](http://www.share.minike.top/Article/details/83207063472.shtml)
+- 2026-06-29 14:35 - [海军舰艇编队将赴香港](http://www.blog.kurohicncr.top/Article/details/705247802958.shtml)
+- 2026-06-29 14:28 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/093522.shtml)
+- 2026-06-29 14:23 - [媒体：网络测评不能只剩“生意”](https://www.share.minike.top/Article/details/247934665.shtml)
+- 2026-06-29 14:19 - [欧委会总部只给高层开空调](http://www.blog.minike.top/Article/details/545880518949.shtml)

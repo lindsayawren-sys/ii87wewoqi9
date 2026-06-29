@@ -1,56 +1,59 @@
-# 《论十大关系》与统一战线发展学习沙龙在复旦大学举行
+# VSE Corporation公布2026年6月投资者会议日程
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-中新网上海4月25日电(范宇斌)今年是毛泽东同志发表《论十大关系》讲话70周年。24日，“把国内外一切积极因素调动起来——《论十大关系》与统一战线发展”学习沙龙在复旦大学举行。上海市委统战部副部长、上海市统一战线理论研究会会长房剑森出席会议并讲话，复旦大学党委常委、副校长汪源源出席会议并致辞。 会议指出，《论十大关系》是毛泽东同志运用普遍联系观点阐述社会主义建设规律的典范，确立
+VSE Corporation今日宣布，公司高级管理层将出席2026年6月举行的四场投资者会议。 根据公司发布的日程，首场会议为William Blair第46届年度成长股会议，将于6月2日在伊利诺伊州芝加哥举行。VSE总裁兼首席执行官John Cuomo及投资者关系与财务副总裁Michael Perlman将出席，Cuomo将于中部时间下午3点20分发表演讲。 第二场为Sti
 
 ## 正文
 
-中新网上海4月25日电(范宇斌)今年是毛泽东同志发表《论十大关系》讲话70周年。
+VSE Corporation今日宣布，公司高级管理层将出席2026年6月举行的四场投资者会议。
 
-24日，“把国内外一切积极因素调动起来——《论十大关系》与统一战线发展”学习沙龙在复旦大学举行。
+根据公司发布的日程，首场会议为William Blair第46届年度成长股会议，将于6月2日在伊利诺伊州芝加哥举行。
 
-上海市委统战部副部长、上海市统一战线理论研究会会长房剑森出席会议并讲话，复旦大学党委常委、副校长汪源源出席会议并致辞。
+VSE总裁兼首席执行官John Cuomo及投资者关系与财务副总裁Michael Perlman将出席，Cuomo将于中部时间下午3点20分发表演讲。
 
-会议指出，《论十大关系》是毛泽东同志运用普遍联系观点阐述社会主义建设规律的典范，确立了“把国内外一切积极因素调动起来，为社会主义事业服务”的基本方针，与统一战线的宗旨一致。
+第二场为Stifel跨行业洞察会议，将于6月3日在马萨诸塞州波士顿举行，Cuomo与Perlman将参与一对一投资者会面。
 
-其蕴含的丰富统战内涵，对做好新时代党的统战工作具有重要的指导意义。
+第三场为富国银行工业会议，将于6月9日在芝加哥举行，Cuomo将于中部时间上午10点15分参与炉边谈话，管理层还将进行一对一投资者交流。
 
-会议强调，上海统一战线要始终坚定“坚持党的领导”这一根本原则，不断彰显“围绕中心、服务大局”的时代价值，深刻理解“一致性和多样性相统一”的本质规律，牢牢把握“又团结又斗争”的辩证策略，持续精通“党的特殊群众工作”的方式方法，注重运用“和而不同、求同存异”的统战智慧。
+第四场为Truist Securities工业与服务会议，将于6月16日在纽约举行，Cuomo与Perlman将继续参与一对一投资者会面。
 
-要深化实施上海统一战线“两项工程”，久久为功做好统战历史研究工作，进一步彰显上海统一战线深厚底蕴、丰厚资源和独特优势，传承弘扬党的百年统战优良传统，激励上海统一战线广大成员守正创新、接续奋斗，在全面推进中国式现代化、实现中华民族伟大复兴的征程中作出统一战线的历史贡献。
+VSE Corporation总部位于佛罗里达州米拉马尔，是航空售后市场分销与维修服务的领先供应商，为商业及公务通用航空市场提供发动机部件、机身配件分销及维护、大修服务。
 
-汪源源在致辞中表示，复旦大学作为统一战线理论研究与实践创新的重要阵地，将以此次学习沙龙为契机，充分发挥多学科交叉融合优势，深化对党的统一战线理论发展规律的研究，着力形成一批有深度、有影响、可转化的高质量研究成果，为推动新时代党的统一战线工作高质量发展贡献智慧与力量。
+公司2025年营收超过11亿美元，并于5月5日完成了对Precision Aviation Group的收购，进一步扩展了其在全球航空售后市场的业务版图。
 
 ## 相关推荐
 
-- 2026-06-29 14:24 - [双高胎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-29 14:13 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-29 14:40 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-29 14:30 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-29 14:27 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-29 14:38 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-29 14:40 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-29 14:39 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 14:20 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-29 14:41 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-29 14:29 - [强⁶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-29 14:29 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 14:24 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-29 14:25 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-29 14:46 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-29 14:45 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 14:32 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 14:32 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-29 14:34 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 14:34 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-29 14:24 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-29 14:29 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 14:27 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:23 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.kurohicncr.top/Article/details/451608374521.shtml)
-- 2026-06-29 14:15 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/54945670343.shtml)
-- 2026-06-29 14:33 - [三轮车过马路 车上木材砸中路边男子](https://www.share.minike.top/Article/details/04227.shtml)
-- 2026-06-29 14:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/2043605656.shtml)
-- 2026-06-29 14:20 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.kurohicncr.top/Article/details/88476733.shtml)
-- 2026-06-29 14:21 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/9455766.shtml)
-- 2026-06-29 14:16 - [未来5年全国能源体系将呈现这些特征](https://www.share.minike.top/Article/details/5927816.shtml)
-- 2026-06-29 14:18 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/065306968733.shtml)
-- 2026-06-29 14:35 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/400811.shtml)
-- 2026-06-29 14:19 - [上班主打一个薪尽自然凉](http://www.blog.kurohicncr.top/Article/details/5080539.shtml)
-- 2026-06-29 14:16 - [比亚迪市值为何蒸发8000亿](http://www.share.minike.top/Article/details/98893.shtml)
-- 2026-06-29 14:12 - [李连杰回应网传不管前妻俩女儿](http://www.blog.kurohicncr.top/Article/details/518078915.shtml)
-- 2026-06-29 14:33 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/5786979671.shtml)
-- 2026-06-29 14:23 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/815266.shtml)
-- 2026-06-29 14:20 - [周生如故](http://www.share.minike.top/Article/details/3769419.shtml)
+- 2026-06-29 14:26 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.share.minike.top/Article/details/601281499120.shtml)
+- 2026-06-29 14:28 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/61101061.shtml)
+- 2026-06-29 14:46 - [T1零封KC MSI](https://www.share.minike.top/Article/details/62526.shtml)
+- 2026-06-29 14:36 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/503332.shtml)
+- 2026-06-29 14:44 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.minike.top/Article/details/85903444.shtml)
+- 2026-06-29 14:18 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/77998553774.shtml)
+- 2026-06-29 14:28 - [AG 钟意](https://www.share.kurohicncr.top/Article/details/841496.shtml)
+- 2026-06-29 14:18 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/552971.shtml)
+- 2026-06-29 14:44 - [美伊同意停止互袭 30日在多哈谈判](https://www.blog.minike.top/Article/details/12740408.shtml)
+- 2026-06-29 14:23 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/32188417852.shtml)
+- 2026-06-29 14:32 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/4114976476.shtml)
+- 2026-06-29 14:35 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/35453.shtml)
+- 2026-06-29 14:20 - [美伊同意停止互袭 30日在多哈谈判](http://www.blog.kurohicncr.top/Article/details/9802461.shtml)
+- 2026-06-29 14:38 - [加拿大绝杀南非晋级](https://www.blog.minike.top/Article/details/14132890058.shtml)
+- 2026-06-29 14:20 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/52626570.shtml)

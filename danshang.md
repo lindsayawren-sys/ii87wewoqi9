@@ -1,54 +1,58 @@
-# 施行近17年的企业国有资产法迎来首次修订
+# 习近平总书记的深情寄望鼓舞新时代少年儿童成长成才
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！企业国有资产法修订草案4月27日提请十四届全国人大常委会第二十二次会议首次审议。企业国有资产法修改坚持党的领导，坚持问题导向，坚持统筹发展和安全，坚持稳中求进。 草案修改71条、新增32条，共九章109条，对现行法作了全面修改，主要修改内容包括完善中国特色现代企业制度、完善企业国有资产管理监督体制、明确坚持
+原标题：守护童心 筑梦未来——习近平总书记的深情寄望鼓舞新时代少年儿童成长成才 6月1日，亿万少年儿童迎来属于自己的节日。 当代中国少年儿童既是实现第一个百年奋斗目标的经历者、见证者，更是实现第二个百年奋斗目标、建设社会主义现代化强国的生力军。 “培养好少年儿童是一项战略任务，事关长远。”党的十八大以来，习近平总书记始终心系少年儿童成长成才，站在党和国家事业发展薪火相传、后继有
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+原标题：守护童心 筑梦未来——习近平总书记的深情寄望鼓舞新时代少年儿童成长成才 6月1日，亿万少年儿童迎来属于自己的节日。
 
-企业国有资产法修订草案4月27日提请十四届全国人大常委会第二十二次会议首次审议。
+当代中国少年儿童既是实现第一个百年奋斗目标的经历者、见证者，更是实现第二个百年奋斗目标、建设社会主义现代化强国的生力军。
 
-企业国有资产法修改坚持党的领导，坚持问题导向，坚持统筹发展和安全，坚持稳中求进。
+“培养好少年儿童是一项战略任务，事关长远。
 
-草案修改71条、新增32条，共九章109条，对现行法作了全面修改，主要修改内容包括完善中国特色现代企业制度、完善企业国有资产管理监督体制、明确坚持分类管理原则、健全国有资本收益管理制度等。
+”党的十八大以来，习近平总书记始终心系少年儿童成长成才，站在党和国家事业发展薪火相传、后继有人的高度，作出一系列重要指示，为新时代少年儿童事业发展提供根本遵循。
 
-企业国有资产法规定了我国企业国有资产管理监督的基础制度，自2009年5月1日施行以来，为国资国企改革发展提供了有力法治保障。
+“十五五”规划纲要提出，推进儿童友好建设，营造关心关爱下一代的社会环境。
 
-“十五五”时期我国发展环境面临深刻复杂变化，修改完善企业国有资产法，以立法引领和保障国资国企改革发展，加强国有资产管理监督法治建设，对于保障国有经济持续健康发展意义重大。
+历史性的落笔，推动我国少年儿童事业进入新的发展阶段。
 
-记者：王希 海报制作：王希 新华社国内部出品责任编辑：宋雅芳
+在习近平总书记关心指引下，“祖国的花朵”向阳而生、绚丽绽放。
+
+筑牢信仰根基——“努力成长为社会主义建设者和接班人” 在“六一”国际儿童节即将到来之际，习近平总书记给中共一大纪念馆、南湖革命纪念馆少先队红领巾讲解员回信，肯定了他们“用心用情讲述党的历史、革命故事和英雄事迹，厚植了爱党、爱国、爱社会主义的情感”。
 
 ## 相关推荐
 
-- 2026-06-29 14:17 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-29 14:28 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-29 14:17 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-29 14:28 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-29 14:14 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 14:38 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 14:33 - [沙特足协主席发布声明主动请辞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-29 14:21 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-29 14:20 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 14:22 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 14:37 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-29 14:20 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 14:28 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-29 14:33 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 14:35 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 14:40 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-29 14:38 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-29 14:29 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-29 14:39 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-29 14:23 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-29 14:33 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 14:42 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:29 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/20247544071.shtml)
-- 2026-06-29 14:38 - [周生如故](http://www.share.minike.top/Article/details/931931.shtml)
-- 2026-06-29 14:14 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/350730377.shtml)
-- 2026-06-29 14:28 - [起风了](http://www.share.kurohicncr.top/Article/details/136429163.shtml)
-- 2026-06-29 14:18 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.kurohicncr.top/Article/details/59061174908.shtml)
-- 2026-06-29 14:34 - [刘仲华院士愿当贺永辉导师](http://www.blog.kurohicncr.top/Article/details/76125956.shtml)
-- 2026-06-29 14:21 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.blog.minike.top/Article/details/011819.shtml)
-- 2026-06-29 14:41 - [吴磊爱上回收了](https://www.share.minike.top/Article/details/42203503.shtml)
-- 2026-06-29 14:18 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.kurohicncr.top/Article/details/435596.shtml)
-- 2026-06-29 14:33 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/1038144752.shtml)
-- 2026-06-29 14:41 - [三星与SK集团或将投资2000万亿韩元](http://www.share.kurohicncr.top/Article/details/1299596.shtml)
-- 2026-06-29 14:26 - [105年初心滚烫](https://www.share.kurohicncr.top/Article/details/858842511320.shtml)
-- 2026-06-29 14:30 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/38690124.shtml)
-- 2026-06-29 14:36 - [强⁶](http://www.share.minike.top/Article/details/893525964224.shtml)
-- 2026-06-29 14:39 - [每代父母都困在自己的时代里](https://www.share.kurohicncr.top/Article/details/977236119012.shtml)
+- 2026-06-29 14:42 - [3D打印不是工业革命，它是……](http://www.blog.minike.top/Article/details/5907395934.shtml)
+- 2026-06-29 14:44 - [王楚钦欢迎晚宴上打台球](http://www.share.minike.top/Article/details/639233453038.shtml)
+- 2026-06-29 14:29 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.blog.kurohicncr.top/Article/details/45885.shtml)
+- 2026-06-29 14:21 - [《昨夜将至》为何是悬疑黑马](https://www.share.kurohicncr.top/Article/details/70344403931.shtml)
+- 2026-06-29 14:26 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.kurohicncr.top/Article/details/027005448.shtml)
+- 2026-06-29 14:39 - [普京称考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/447686.shtml)
+- 2026-06-29 14:30 - [啊啊啊](https://www.share.minike.top/Article/details/9714519981.shtml)
+- 2026-06-29 14:25 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/669835255.shtml)
+- 2026-06-29 14:33 - [哈兰德这该死的胜负欲](https://www.blog.minike.top/Article/details/33811657.shtml)
+- 2026-06-29 14:46 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/8985315228.shtml)
+- 2026-06-29 14:32 - [欧洲人驾车200公里抢购中国空调](https://www.share.minike.top/Article/details/86175.shtml)
+- 2026-06-29 14:42 - [南非老帅布罗斯的梦没能做完](https://www.blog.kurohicncr.top/Article/details/44296.shtml)
+- 2026-06-29 14:21 - [吴建豪老婆](https://www.blog.minike.top/Article/details/77666134927.shtml)
+- 2026-06-29 14:28 - [高考公平需要延伸到志愿填报这一环](https://www.share.kurohicncr.top/Article/details/650327839.shtml)
+- 2026-06-29 14:20 - [美国近12万名科技员工被解雇](http://www.blog.kurohicncr.top/Article/details/8751281.shtml)

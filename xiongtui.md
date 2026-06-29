@@ -1,58 +1,56 @@
-# 推进生产性服务业向专业化和价值链高端延伸——我国服务业扩能提质展望之一
+# 山西煤矿整顿对炼焦精煤供应的影响知多少
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-聚焦服务业扩能提质|推进生产性服务业向专业化和价值链高端延伸——我国服务业扩能提质展望之一 新华社北京4月26日电 题：推进生产性服务业向专业化和价值链高端延伸——我国服务业扩能提质展望之一 新华社记者周圆、高亢 生产性服务业是推动经济增长、产业升级的关键力量。习近平总书记就服务业发展作出重要指示时强调，“推进生产性服务业向专业化和价值链高端延伸”。近年来，我国生产性服务业发展
+来源：煤炭资源网 5月下旬山西长治发生的煤矿事故导致该省炼焦煤产区迎来了普遍的停产整顿，导致炼焦煤价格出现快速上涨。诚然市场反应不排除情绪的影响，但也可以在一定程度上看出，山西炼焦煤供应在全国的影响。 如果说这一论断之前只是业内的普遍共识，那么中国煤炭资源网独家数据则可以实现“用数据说话”。 数据显示，2026年4月份，山西炼焦精煤供应量为1796.28万吨，同比下降3.38%
 
 ## 正文
 
-聚焦服务业扩能提质|推进生产性服务业向专业化和价值链高端延伸——我国服务业扩能提质展望之一 新华社北京4月26日电 题：推进生产性服务业向专业化和价值链高端延伸——我国服务业扩能提质展望之一 新华社记者周圆、高亢 生产性服务业是推动经济增长、产业升级的关键力量。
+来源：煤炭资源网 5月下旬山西长治发生的煤矿事故导致该省炼焦煤产区迎来了普遍的停产整顿，导致炼焦煤价格出现快速上涨。
 
-习近平总书记就服务业发展作出重要指示时强调，“推进生产性服务业向专业化和价值链高端延伸”。
+诚然市场反应不排除情绪的影响，但也可以在一定程度上看出，山西炼焦煤供应在全国的影响。
 
-近年来，我国生产性服务业发展势头强劲，产业规模持续扩大。
+如果说这一论断之前只是业内的普遍共识，那么中国煤炭资源网独家数据则可以实现“用数据说话”。
 
-制造业增加值连续16年稳居世界首位、粮食年产量迈上1.4万亿斤台阶等成绩的背后，生产性服务业的贡献功不可没。
+数据显示，2026年4月份，山西炼焦精煤供应量为1796.28万吨，同比下降3.38%，环比下降5.43%，占全国总供应量的46%，以绝对优势位居全国首位。
 
-但也要看到，我国生产性服务业仍存在短板。
+而第二位的山东，2026年4月份，焦精煤供应量仅为340.35万吨，占全国总供应量的9%，远低于山西省。
 
-中国电子信息产业发展研究院工业经济研究所所长关兵以制造业领域为例介绍，“目前，我国单位制造业产品总投入中的生产性服务业占比不足13%，而发达经济体普遍在20%左右，生产性服务业赋能制造业转型升级仍有较大空间。
+可见山西省供应量在全国的影响力之大。
 
-” 当前，新一轮科技革命和产业变革加速演进，生产性服务业迎来规模扩张与结构优化并重的战略机遇期。
+从历史数据来看，山西省焦精煤供应量与全国总供应量的走势是一致的。
 
-把握这一机遇，系统提升生产性服务业供给质量与产出效率，将助力建设更具韧性、竞争力的现代化产业体系。
+2024年前4月，受“三超”和隐蔽工作面专项整治以及在供需关系缓和后政府计划产量的下降，山西省原煤产量下降较为明显。
 
 ## 相关推荐
 
-- 2026-06-29 14:22 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 14:40 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 14:23 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 14:18 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 14:20 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-29 14:13 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 14:25 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-29 14:17 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-29 14:32 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-29 14:25 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-29 14:19 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 14:27 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 14:38 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 14:40 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-29 14:43 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-29 14:41 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 14:45 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 14:35 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 14:47 - [宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 14:33 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 14:23 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 14:22 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:14 - [世界杯看到肖战了](http://www.blog.minike.top/Article/details/536787469.shtml)
-- 2026-06-29 14:32 - [中俄联合巡航阵容强大 日本慌了？](http://www.blog.minike.top/Article/details/04867.shtml)
-- 2026-06-29 14:39 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/256626.shtml)
-- 2026-06-29 14:31 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/458708697.shtml)
-- 2026-06-29 14:15 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/3218301.shtml)
-- 2026-06-29 14:19 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/02456021.shtml)
-- 2026-06-29 14:15 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.kurohicncr.top/Article/details/524037276.shtml)
-- 2026-06-29 14:21 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/1062256.shtml)
-- 2026-06-29 14:34 - [王楚钦3-0周启豪 晋级32强](http://www.share.minike.top/Article/details/9742533.shtml)
-- 2026-06-29 14:32 - [行程万里不忘初心](http://www.share.minike.top/Article/details/317264441.shtml)
-- 2026-06-29 14:18 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.minike.top/Article/details/76669.shtml)
-- 2026-06-29 14:26 - [Canna纳尔8-0对位单杀Doran](http://www.blog.minike.top/Article/details/338684.shtml)
-- 2026-06-29 14:18 - [事关个税 明日截止请抓紧办理](https://www.share.minike.top/Article/details/16519.shtml)
-- 2026-06-29 14:16 - [普京称考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/682166012015.shtml)
-- 2026-06-29 14:19 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/542616.shtml)
+- 2026-06-29 14:35 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/697267515.shtml)
+- 2026-06-29 14:32 - [美人鱼](http://www.share.minike.top/Article/details/1347407.shtml)
+- 2026-06-29 14:21 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/65802872178.shtml)
+- 2026-06-29 14:31 - [大疆7月15日起涨价？公司回应](https://www.blog.kurohicncr.top/Article/details/42923139.shtml)
+- 2026-06-29 14:39 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/85262420740.shtml)
+- 2026-06-29 14:29 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/79880222.shtml)
+- 2026-06-29 14:42 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/777417.shtml)
+- 2026-06-29 14:35 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/16204014.shtml)
+- 2026-06-29 14:41 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/592242.shtml)
+- 2026-06-29 14:30 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/458079.shtml)
+- 2026-06-29 14:39 - [把古诗里的动作换成加班](http://www.share.kurohicncr.top/Article/details/3843699.shtml)
+- 2026-06-29 14:28 - [中国战机大片上新](http://www.blog.minike.top/Article/details/648651148228.shtml)
+- 2026-06-29 14:42 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/0293129159.shtml)
+- 2026-06-29 14:33 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/0356668.shtml)
+- 2026-06-29 14:24 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/15490.shtml)

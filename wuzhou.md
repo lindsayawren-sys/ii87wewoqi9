@@ -1,61 +1,56 @@
-# 86位中国作家捐手稿为“星星的孩子”筹款
+# 谭国琪：川渝与俄罗斯合作大有可为
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-中新社郑州4月25日电 (张楠)“与星同行——中国著名作家手稿展首展”25日在河南郑州启幕，莫言、冯骥才、梁晓声、刘慈欣等86位当代中国作家联合捐出200余件珍贵创作手稿，为“星星的孩子”(又称孤独症儿童)筹款。 中国人民大学舒同研究中心主任、两块砖公益基金管委会主任王振介绍，此次展览由莫言与“两块砖公益基金”共同发起，展品包括莫言的小说手稿、冯骥才与梁晓声的散文手迹，以及摘自
+中新网成都6月2日电 (程兆)“川渝企业进入俄罗斯市场，不能只看短期贸易，更要从长远角度‘挖井’‘筑地基’。”6月1日，来蓉参加2026“一带一路”华侨华人合作发展大会的俄罗斯川渝总商会会长谭国琪在成都接受中新网采访时表示，川渝与俄罗斯在汽摩配件、装备制造、农产品、餐饮文化等领域合作潜力广阔，海外侨团可帮助企业熟悉当地市场、法律法规和商业环境，让企业出海少走弯路。 谭国琪在俄罗
 
 ## 正文
 
-中新社郑州4月25日电 (张楠)“与星同行——中国著名作家手稿展首展”25日在河南郑州启幕，莫言、冯骥才、梁晓声、刘慈欣等86位当代中国作家联合捐出200余件珍贵创作手稿，为“星星的孩子”(又称孤独症儿童)筹款。
+中新网成都6月2日电 (程兆)“川渝企业进入俄罗斯市场，不能只看短期贸易，更要从长远角度‘挖井’‘筑地基’。
 
-中国人民大学舒同研究中心主任、两块砖公益基金管委会主任王振介绍，此次展览由莫言与“两块砖公益基金”共同发起，展品包括莫言的小说手稿、冯骥才与梁晓声的散文手迹，以及摘自苏童《妻妾成群》、刘慈欣《三体》、陈彦《主角》、刘震云作品等创作原稿。
+”6月1日，来蓉参加2026“一带一路”华侨华人合作发展大会的俄罗斯川渝总商会会长谭国琪在成都接受中新网采访时表示，川渝与俄罗斯在汽摩配件、装备制造、农产品、餐饮文化等领域合作潜力广阔，海外侨团可帮助企业熟悉当地市场、法律法规和商业环境，让企业出海少走弯路。
 
-“手稿是文学创作最鲜活的生命印记，是写作者心性与才情最本真的流露。
+谭国琪在俄罗斯生活、经商已有30多年。
 
-”中国作家协会副主席何向阳受访时说，这些手稿所承载的不仅是文学价值，更是正在落地的公益链条。
+长期连接在俄川渝籍侨胞和企业的经历，让他对川渝企业出海俄罗斯有着直观感受。
 
-中国作家协会副主席、茅盾文学奖得主陈彦介绍，如今作家大多用电脑写作，手稿已经不多，因此格外珍贵。
+在他看来，当前川渝与俄罗斯最具合作潜力的领域首先是汽车、摩托车及相关配件。
 
-茅盾文学奖得主苏童称，此次誊抄手稿参展，每个字都是给“星星的孩子”的祝福。
+“重庆的长安汽车，四川的凯翼汽车，以及一些机车品牌，在俄罗斯市场都有不错基础。
 
-此次郑州首展结束后将在全国巡展。
+”谭国琪说，川渝地区产业配套完善、制造能力较强，相关产品在俄罗斯拓展市场前景广阔。
 
-巡展完成后所有手稿进行拍卖，善款全部用于孤独症照护者技能培训等公益项目。
+除汽摩产业外，装备制造也是谭国琪看好的合作方向。
 
 ## 相关推荐
 
-- 2026-06-29 14:20 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 14:36 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-29 14:37 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-29 14:38 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-29 14:35 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-29 14:21 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-29 14:35 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-29 14:19 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-29 14:32 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 14:36 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 14:20 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-29 14:18 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 14:34 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-29 14:19 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 14:31 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 14:27 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-29 14:28 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-29 14:19 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 14:37 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 14:34 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 14:25 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-29 14:44 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 14:27 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-29 14:38 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-29 14:32 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:23 - [以前不让妆女二可以艳压女主](https://www.blog.kurohicncr.top/Article/details/9133266512.shtml)
-- 2026-06-29 14:30 - [上班主打一个薪尽自然凉](https://www.share.kurohicncr.top/Article/details/908227.shtml)
-- 2026-06-29 14:41 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/90868091.shtml)
-- 2026-06-29 14:38 - [内马尔能上场15分钟](https://www.share.minike.top/Article/details/044583703817.shtml)
-- 2026-06-29 14:38 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.minike.top/Article/details/866314994951.shtml)
-- 2026-06-29 14:15 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/4747981167.shtml)
-- 2026-06-29 14:19 - [美伊同意停止互袭 30日在多哈谈判](http://www.share.minike.top/Article/details/501759.shtml)
-- 2026-06-29 14:18 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/8641852.shtml)
-- 2026-06-29 14:38 - [周深双眼皮贴又掉了](https://www.blog.minike.top/Article/details/50690615220.shtml)
-- 2026-06-29 14:40 - [张真源解读相思锁](https://www.blog.minike.top/Article/details/4932698266.shtml)
-- 2026-06-29 14:13 - [A股](http://www.share.minike.top/Article/details/65787.shtml)
-- 2026-06-29 14:27 - [四川宜宾地震致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/65734.shtml)
-- 2026-06-29 14:39 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/445832258.shtml)
-- 2026-06-29 14:37 - [中方回应对日本相关出口管制措施](http://www.share.kurohicncr.top/Article/details/242410793359.shtml)
-- 2026-06-29 14:31 - [发反科学内容为何会有200万粉丝](https://www.share.minike.top/Article/details/8644452086.shtml)
+- 2026-06-29 14:45 - [巴西球员：日本队有点傲慢了](http://www.share.minike.top/Article/details/634594797553.shtml)
+- 2026-06-29 14:21 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/002829.shtml)
+- 2026-06-29 14:22 - [拄拐少年高考663分：用行动回报社会](http://www.blog.minike.top/Article/details/89863.shtml)
+- 2026-06-29 14:33 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/85059.shtml)
+- 2026-06-29 14:43 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.kurohicncr.top/Article/details/68327358.shtml)
+- 2026-06-29 14:41 - [未来5年全国能源体系将呈现这些特征](https://www.blog.kurohicncr.top/Article/details/14869183461.shtml)
+- 2026-06-29 14:36 - [吴磊爱上回收了](http://www.blog.minike.top/Article/details/978705475916.shtml)
+- 2026-06-29 14:30 - [宜宾发生5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/512027232.shtml)
+- 2026-06-29 14:34 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/689352.shtml)
+- 2026-06-29 14:30 - [加拿大女球迷玩人浪把手机甩飞](http://www.blog.minike.top/Article/details/81937402035.shtml)
+- 2026-06-29 14:19 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/548776.shtml)
+- 2026-06-29 14:18 - [爸爸当家](https://www.blog.kurohicncr.top/Article/details/87566300.shtml)
+- 2026-06-29 14:39 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/72249725.shtml)
+- 2026-06-29 14:20 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/37842499567.shtml)
+- 2026-06-29 14:43 - [国家体育总局政策法规司原副司长获刑](https://www.share.minike.top/Article/details/09906041243.shtml)

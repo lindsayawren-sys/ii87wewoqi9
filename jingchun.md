@@ -1,56 +1,58 @@
-# 全球知名数字装置艺术家带来数字艺术展“浮流：无尽漫行”
+# 国家卫健委：目前已有3000多家医疗机构建成儿童友好医院
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-中新网北京4月26日电 (记者 应妮)全球知名数字装置艺术家马克西姆·热斯科夫个展25日在京亮相，这个名为“浮流：无尽漫行”的数字艺术展以艺术家全新交互系列作品为观众构建一场沉浸式感官漫游。 作为当代数字艺术和动态图形领域的标杆人物，近20年来，马克西姆始终以数字探索世界生成背后的底层规律。他在作品中以构筑者的身份设定物理规则(如重力、磁场、碰撞、流体动力学等)，将建筑、雕塑与
+中新网6月1日电 国家卫生健康委妇幼司司长傅卫1日表示，目前已经有3000多家医疗机构建成了儿童友好医院，目标是力争到2030年实现全国90%以上的妇幼保健院、儿童医院和综合医院的儿科都能够建成儿童友好医院。6月1日，国家卫生健康委举行新闻发布会，介绍促进儿童青少年身心健康有关情况。会上，有记者问：国家卫健委有没有一些具体措施，保障孩子看病的时候，及时看得上，更省心、更安心？
 
 ## 正文
 
-中新网北京4月26日电 (记者 应妮)全球知名数字装置艺术家马克西姆·热斯科夫个展25日在京亮相，这个名为“浮流：无尽漫行”的数字艺术展以艺术家全新交互系列作品为观众构建一场沉浸式感官漫游。
+中新网6月1日电 国家卫生健康委妇幼司司长傅卫1日表示，目前已经有3000多家医疗机构建成了儿童友好医院，目标是力争到2030年实现全国90%以上的妇幼保健院、儿童医院和综合医院的儿科都能够建成儿童友好医院。
 
-作为当代数字艺术和动态图形领域的标杆人物，近20年来，马克西姆始终以数字探索世界生成背后的底层规律。
+6月1日，国家卫生健康委举行新闻发布会，介绍促进儿童青少年身心健康有关情况。
 
-他在作品中以构筑者的身份设定物理规则(如重力、磁场、碰撞、流体动力学等)，将建筑、雕塑与自然算法融合并赋予其生命力，让数亿个数字微粒在模拟空间中化为无限变幻的自由浮流，形成极具个人代表性的“粒子动力学美学”。
+会上，有记者问：国家卫健委有没有一些具体措施，保障孩子看病的时候，及时看得上，更省心、更安心？
 
-展览如同一个由粒子构成的平行宇宙，而宇宙的意义诞生于观者的好奇。
+傅卫回应称，国家卫健委这几年来推出了多项务实举措，努力打造平时就近方便、急时高效顺畅的儿童医疗服务模式。
 
-从橱窗到展厅深处，从物理现实到AI智能，观众在无尽数字浮流中层层漫行。
+首先是做强基层服务。
 
-核心展厅7米x7米的巨型LED屏幕呈现的交互装置《游境》，如同开启横跨微观神经与宏观星系的生成式旅程，在光色转化中观者化身为宇宙的探索者；《元素》将一切纷繁归于黑白粒子的基本单元，艺术家试图探索一种能够描述世界所有存在的视觉语言。
+国家卫健委通过实施医疗卫生强基工程、“儿科与精神卫生服务年”行动等各种措施，推动优质医疗服务扩容下沉。
 
-在技术浪潮奔涌而来的时代下，马克西姆为“代码生成的运动图像”注入流动的生命意志，为冰冷的物理模拟融入诗意的感官，展览力图在算法之上呈现人类动人的力量。
+全国现在4万多乡镇卫生院和社区卫生服务中心能提供儿科服务，这覆盖了90%的基层机构。
 
-该展学术主持费俊表示，在这里，“行”不再意味着从起点到终点的线性移动，而是一种在涌现结构中的持续参与：方向不断被改写，路径不断被生成。
+与此同时，还有98%的行政村卫生室，也纳入到了基本医保定点机构。
 
 ## 相关推荐
 
-- 2026-06-29 14:37 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-29 14:39 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 14:25 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 14:25 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-29 14:33 - [光与夜之恋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-29 14:26 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 14:32 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 14:23 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 14:18 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-29 14:41 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 14:33 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 14:29 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-29 14:29 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-29 14:35 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 14:30 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 14:42 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 14:40 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 14:43 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-29 14:18 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 14:27 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-29 14:38 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-29 14:37 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:31 - [逆天祖国人](https://www.share.minike.top/Article/details/389403115479.shtml)
-- 2026-06-29 14:37 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/3847824.shtml)
-- 2026-06-29 14:16 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/928329.shtml)
-- 2026-06-29 14:26 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/18338.shtml)
-- 2026-06-29 14:28 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/865771031243.shtml)
-- 2026-06-29 14:18 - [女孩遭霸凌网上认文身大哥求庇护](https://www.blog.minike.top/Article/details/31613970.shtml)
-- 2026-06-29 14:40 - [辽宁葫芦岛一居民楼突发爆炸](http://www.share.minike.top/Article/details/071574138.shtml)
-- 2026-06-29 14:40 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/468313722.shtml)
-- 2026-06-29 14:18 - [永远保持对人民的赤子之心](https://www.share.kurohicncr.top/Article/details/9519418268.shtml)
-- 2026-06-29 14:40 - [《贺子珍》](https://www.share.minike.top/Article/details/2114820676.shtml)
-- 2026-06-29 14:22 - [Canna纳尔8-0对位单杀Doran](https://www.blog.minike.top/Article/details/41563.shtml)
-- 2026-06-29 14:14 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/241438819147.shtml)
-- 2026-06-29 14:19 - [巴西德国15次闯进世界杯淘汰赛](http://www.share.minike.top/Article/details/346354799079.shtml)
-- 2026-06-29 14:38 - [医药股集体爆发](http://www.share.minike.top/Article/details/7472173926.shtml)
-- 2026-06-29 14:34 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/535365938998.shtml)
+- 2026-06-29 14:45 - [链博会上的机器人太全能了](http://www.share.minike.top/Article/details/888495520144.shtml)
+- 2026-06-29 14:25 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.minike.top/Article/details/0305689693.shtml)
+- 2026-06-29 14:43 - [乔家的儿女](https://www.blog.minike.top/Article/details/733965807504.shtml)
+- 2026-06-29 14:27 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.blog.minike.top/Article/details/8435990.shtml)
+- 2026-06-29 14:43 - [在自己家不穿衣服犯法吗](http://www.blog.minike.top/Article/details/87578168493.shtml)
+- 2026-06-29 14:35 - [杨紫 你幸福的话我会比你先流泪](https://www.blog.minike.top/Article/details/35724.shtml)
+- 2026-06-29 14:38 - [中方将20家日本实体列入关注名单](https://www.share.minike.top/Article/details/8029955.shtml)
+- 2026-06-29 14:20 - [网约车司机转账1.5万后被乘客拉黑](http://www.share.minike.top/Article/details/32283.shtml)
+- 2026-06-29 14:28 - [小S在香港被偶遇](https://www.share.kurohicncr.top/Article/details/411285938534.shtml)
+- 2026-06-29 14:30 - [成都至北京将新增动卧](https://www.blog.kurohicncr.top/Article/details/9810455813.shtml)
+- 2026-06-29 14:22 - [7月1日起一批新规即将落地](https://www.share.kurohicncr.top/Article/details/790523.shtml)
+- 2026-06-29 14:46 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/57242413.shtml)
+- 2026-06-29 14:25 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.minike.top/Article/details/213211809152.shtml)
+- 2026-06-29 14:41 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/9412115.shtml)
+- 2026-06-29 14:42 - [女孩遭霸凌网上认文身大哥求庇护](https://www.share.kurohicncr.top/Article/details/463322240161.shtml)

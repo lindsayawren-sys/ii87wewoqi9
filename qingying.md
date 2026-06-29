@@ -1,48 +1,57 @@
-# 芯片股午前集体走强 澜起科技大涨逾13%中芯国际涨逾9%
+# 英伟达推出新芯片，将人工智能直接带入个人电脑
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-芯片股午前集体走强，截至发稿，澜起科技（06809）上涨12.29%，报255.80港元；中芯国际（00981）上涨8.71%，报69.90港元；华虹半导体（01347）上涨6.94%，报115.60港元；兆易创新（03986）上涨2.67%，报461.40港元。责任编辑：卢昱君
+英伟达周一发布了一款新芯片，将人工智能能力直接集成到笔记本电脑和台式机中，从而与超微半导体、英特尔和苹果等公司展开直接竞争。 首席执行官黄仁勋表示，RTX Spark PC芯片是英伟达与微软合作三年后，为在AI时代“重塑PC”所做努力的一部分。 这款与台湾联发科共同开发的芯片，将于今年秋季率先应用于戴尔、惠普、联想、华硕、微软Surface及微星的笔记本电脑和紧凑型台式机，随后
 
 ## 正文
 
-芯片股午前集体走强，截至发稿，澜起科技（06809）上涨12.29%，报255.80港元；中芯国际（00981）上涨8.71%，报69.90港元；华虹半导体（01347）上涨6.94%，报115.60港元；兆易创新（03986）上涨2.67%，报461.40港元。
+英伟达周一发布了一款新芯片，将人工智能能力直接集成到笔记本电脑和台式机中，从而与超微半导体、英特尔和苹果等公司展开直接竞争。
 
-责任编辑：卢昱君
+首席执行官黄仁勋表示，RTX Spark PC芯片是英伟达与微软合作三年后，为在AI时代“重塑PC”所做努力的一部分。
+
+这款与台湾联发科共同开发的芯片，将于今年秋季率先应用于戴尔、惠普、联想、华硕、微软Surface及微星的笔记本电脑和紧凑型台式机，随后宏碁和技嘉也将推出相关机型。
+
+行业专家表示，该处理器将彻底改变与人工智能的交互方式，因为它旨在本地运行自主AI代理，而非仅依赖云计算。
+
+在主导了用于训练AI模型的芯片市场后，英伟达正致力于抢占预计将激增的推理处理器需求——这类芯片负责驱动AI对用户查询的响应，以及处理日常任务的智能代理。
+
+通过瞄准个人电脑市场，英伟达正凭借其规模优势和人工智能专业知识，试图开拓一个庞大的新市场，而日益激烈的竞争此前曾令投资者感到担忧。
+
+目前，AI PC的市场反响褒贬不一。
+
+惠普上周报告称，这些设备帮助提振了季度销售额，但戴尔今年早些时候表示，需求未达最初预期。
 
 ## 相关推荐
 
-- 2026-06-29 14:20 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-29 14:39 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-29 14:41 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-29 14:12 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 14:13 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-29 14:38 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 14:20 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-29 14:27 - [马斯克也站到了光里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-29 14:38 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-29 14:19 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-29 14:39 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-29 14:27 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 14:23 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 14:23 - [C罗关心罗德里戈伤情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 14:46 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 14:44 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 14:35 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 14:44 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 14:35 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 14:22 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 14:37 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 14:22 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 14:23 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 14:21 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-29 14:30 - [Agent带来token消耗爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:16 - [医药股集体爆发](http://www.blog.minike.top/Article/details/03292213707.shtml)
-- 2026-06-29 14:35 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/91046261209.shtml)
-- 2026-06-29 14:21 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.minike.top/Article/details/694912676462.shtml)
-- 2026-06-29 14:28 - [梅朗雄主张法国退出北约](https://www.blog.kurohicncr.top/Article/details/90065083529.shtml)
-- 2026-06-29 14:24 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/6360029.shtml)
-- 2026-06-29 14:23 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.minike.top/Article/details/47079.shtml)
-- 2026-06-29 14:20 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/20413.shtml)
-- 2026-06-29 14:26 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/9496052398.shtml)
-- 2026-06-29 14:35 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/10645.shtml)
-- 2026-06-29 14:33 - [这开放世界游戏，竟然允许玩家屠城？](https://www.blog.kurohicncr.top/Article/details/710918645903.shtml)
-- 2026-06-29 14:29 - [国家体育总局政策法规司原副司长获刑](http://www.share.minike.top/Article/details/413913.shtml)
-- 2026-06-29 14:25 - [当我回母校教书](http://www.share.minike.top/Article/details/1550772.shtml)
-- 2026-06-29 14:26 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/394252723.shtml)
-- 2026-06-29 14:40 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/8432486.shtml)
-- 2026-06-29 14:34 - [配音演员于小华病逝 享年78岁](http://www.share.minike.top/Article/details/202519412275.shtml)
+- 2026-06-29 14:22 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/57778785.shtml)
+- 2026-06-29 14:22 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/739485481154.shtml)
+- 2026-06-29 14:37 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/50524968.shtml)
+- 2026-06-29 14:18 - [逃狱兄弟](http://www.blog.minike.top/Article/details/992607.shtml)
+- 2026-06-29 14:48 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/97973.shtml)
+- 2026-06-29 14:45 - [如果你一直单身，你准备怎么养老？](https://www.blog.minike.top/Article/details/583729.shtml)
+- 2026-06-29 14:20 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/762861.shtml)
+- 2026-06-29 14:25 - [媒体：网络测评不能只剩“生意”](https://www.blog.kurohicncr.top/Article/details/281835692.shtml)
+- 2026-06-29 14:22 - [媒体：高考后消费应量力而行适度有度](http://www.share.minike.top/Article/details/310004.shtml)
+- 2026-06-29 14:43 - [韩国记者：解码“合肥模式”](https://www.share.kurohicncr.top/Article/details/13537.shtml)
+- 2026-06-29 14:46 - [王祖蓝现场观看美加墨世界杯](https://www.share.kurohicncr.top/Article/details/38116402.shtml)
+- 2026-06-29 14:25 - [安切洛蒂称像对待决赛一样备战日本](http://www.blog.kurohicncr.top/Article/details/42869.shtml)
+- 2026-06-29 14:44 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/907367794.shtml)
+- 2026-06-29 14:21 - [孙怡告别浪姐千字文](http://www.blog.kurohicncr.top/Article/details/52798.shtml)
+- 2026-06-29 14:18 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/0439114.shtml)

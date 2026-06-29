@@ -1,59 +1,61 @@
-# 探寻生存智慧 沪科普活动聚焦“适应者史诗”
+# 美高梅收到收购要约，股价应声大涨16%
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-中新网上海4月25日电 (郑莹莹 张智煜)微小昆虫与智慧人类，谁才是地球真正的“适应之王”？第264期绿螺讲堂25日在沪举行，科研人员从不同维度讲述“适应者史诗”。 中国科学院南京地质古生物研究所研究员蔡晨阳将视角投向那些被树脂定格的微小生命体。 在他的带领下，现场听众“走近”那些与恐龙共生的“小家伙们”。 蔡晨阳揭示了一个精密复杂的陆地生态系统：一亿年前的昆虫并非“背景板”，
+美高梅国际酒店集团股价周一大幅上涨约16%，此前巴里·迪勒旗下的People Inc．向该公司提出全现金收购要约，报价为每股48.30美元。 迪勒同时担任美高梅董事会成员，他表示将回避董事会就该提案进行的任何讨论或决策。People Inc．目前持有美高梅约26.1%的流通普通股，该公司前身为IAC。若交易完成，People Inc．将获得美高梅略超50.1%的股权，其他投资者
 
 ## 正文
 
-中新网上海4月25日电 (郑莹莹 张智煜)微小昆虫与智慧人类，谁才是地球真正的“适应之王”？
+美高梅国际酒店集团股价周一大幅上涨约16%，此前巴里·迪勒旗下的People Inc．向该公司提出全现金收购要约，报价为每股48.30美元。
 
-第264期绿螺讲堂25日在沪举行，科研人员从不同维度讲述“适应者史诗”。
+迪勒同时担任美高梅董事会成员，他表示将回避董事会就该提案进行的任何讨论或决策。
 
-中国科学院南京地质古生物研究所研究员蔡晨阳将视角投向那些被树脂定格的微小生命体。
+People Inc．目前持有美高梅约26.1%的流通普通股，该公司前身为IAC。
 
-在他的带领下，现场听众“走近”那些与恐龙共生的“小家伙们”。
+若交易完成，People Inc．将获得美高梅略超50.1%的股权，其他投资者继续持有少数股权。
 
-蔡晨阳揭示了一个精密复杂的陆地生态系统：一亿年前的昆虫并非“背景板”，它们已演化出传粉、采食花粉、捕食等高度专业化行为。
+迪勒在声明中阐述了发起收购的理由：“我们大约六年前开始投资美高梅，因为我们相信这是一种罕见的业务：它拥有AI无法轻易复制或替代的实体资产，同时具备卓越的数字增长机会。
 
-中国科学院古脊椎动物与古人类研究所研究员杨石霞则指出，人类在地球上生存绝非理所当然。
+”他补充道，美高梅的资产价值被市场严重低估，公司管理团队极为出色，存在支持其下一阶段增长并帮助释放全部价值的绝佳机会。
 
-过去数万年间，现代人以“环境适应能手”的姿态扩散至沙漠、极地、高海拔山区等极端生态位。
+根据摩根士丹利的数据，按拟议收购价计算，对应2026年市场一致预期的企业价值与息税折旧摊销及租金前利润之比约为7.7倍。
 
-她重点介绍了河南淅川西沟遗址和内蒙古萨拉乌苏遗址发现的工具装柄技术。
+该交易不设融资条件，但需获得有限的反垄断批准及适用的博彩监管批准。
 
 ## 相关推荐
 
-- 2026-06-29 14:26 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-29 14:33 - [张真源解读相思锁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 14:14 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-29 14:20 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-29 14:17 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 14:22 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-29 14:27 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-29 14:40 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 14:34 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 14:30 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 14:24 - [给阿嬷的情书海外口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-29 14:28 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-29 14:19 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-29 14:34 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 14:18 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 14:45 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 14:42 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-29 14:43 - [医药股集体爆发](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 14:43 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 14:21 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-29 14:47 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 14:41 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 14:22 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-29 14:42 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 14:22 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 14:36 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-29 14:45 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-29 14:45 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:35 - [韩国极端网友对主教练发出死亡威胁](http://www.share.kurohicncr.top/Article/details/9400275874.shtml)
-- 2026-06-29 14:31 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/05299640.shtml)
-- 2026-06-29 14:15 - [iPhone18系列预计将大幅涨价](http://www.share.minike.top/Article/details/6104950711.shtml)
-- 2026-06-29 14:40 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/944056964659.shtml)
-- 2026-06-29 14:41 - [森保一：日本队要亲手改写历史](https://www.share.minike.top/Article/details/0924286.shtml)
-- 2026-06-29 14:18 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/87543976864.shtml)
-- 2026-06-29 14:37 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/06840856.shtml)
-- 2026-06-29 14:25 - [ENC瓦中国香港负印度数据图](https://www.blog.kurohicncr.top/Article/details/994694.shtml)
-- 2026-06-29 14:21 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/444111162.shtml)
-- 2026-06-29 14:23 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.blog.minike.top/Article/details/15271.shtml)
-- 2026-06-29 14:30 - [双高胎](https://www.blog.kurohicncr.top/Article/details/92572767243.shtml)
-- 2026-06-29 14:41 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/691058.shtml)
-- 2026-06-29 14:15 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.minike.top/Article/details/780978388625.shtml)
-- 2026-06-29 14:18 - [多只A股发布股价异动公告](http://www.share.minike.top/Article/details/628255386566.shtml)
-- 2026-06-29 14:13 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/366828409322.shtml)
+- 2026-06-29 14:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/7418248.shtml)
+- 2026-06-29 14:35 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.minike.top/Article/details/072011.shtml)
+- 2026-06-29 14:26 - [王楚钦3-0周启豪 晋级32强](http://www.blog.minike.top/Article/details/63032695.shtml)
+- 2026-06-29 14:43 - [Canna纳尔8-0对位单杀Doran](https://www.blog.minike.top/Article/details/48910.shtml)
+- 2026-06-29 14:35 - [事关个税 明日截止请抓紧办理](https://www.blog.minike.top/Article/details/944714966446.shtml)
+- 2026-06-29 14:43 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/67487.shtml)
+- 2026-06-29 14:41 - [河南四位大妈景区跳舞爆火](http://www.blog.minike.top/Article/details/586066340.shtml)
+- 2026-06-29 14:36 - [日本主帅：目标是冠军](http://www.share.minike.top/Article/details/016019150.shtml)
+- 2026-06-29 14:29 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/38164294931.shtml)
+- 2026-06-29 14:18 - [日本主教练回应迎战巴西](http://www.blog.minike.top/Article/details/98040787715.shtml)
+- 2026-06-29 14:18 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.minike.top/Article/details/700520.shtml)
+- 2026-06-29 14:27 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.share.minike.top/Article/details/006400132341.shtml)
+- 2026-06-29 14:20 - [肖战深夜到达青岛赴十日终焉片场](http://www.blog.kurohicncr.top/Article/details/714172349265.shtml)
+- 2026-06-29 14:35 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.kurohicncr.top/Article/details/33412.shtml)
+- 2026-06-29 14:42 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.share.kurohicncr.top/Article/details/19857179.shtml)

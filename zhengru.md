@@ -1,45 +1,56 @@
-# 美国陆军退役中校：美国在美伊冲突中的战略败局早已注定
+# Sila Realty拟24亿美元私有化交易引发律所调查，质疑价格与程序的公允性
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月27日 10:53 来源：总台环球资讯广播 责任编辑：【杨彦宇】
+美国知名股东权益律师事务所Kahn Swick & Foti， LLC宣布，已对Sila Realty Trust， Inc．拟议的私有化交易启动调查。调查聚焦于公司董事会批准的交易价格和出售程序是否公允、充分，以及是否存在管理层利益冲突等问题。 此次调查的背景是Sila Realty于2026年4月20日宣布，已同意被资产管理巨头Blue Owl Capital旗下的房地产关
 
 ## 正文
 
-发布时间：2026年04月27日 10:53 来源：总台环球资讯广播 责任编辑：【杨彦宇】
+美国知名股东权益律师事务所Kahn Swick & Foti， LLC宣布，已对Sila Realty Trust， Inc．拟议的私有化交易启动调查。
+
+调查聚焦于公司董事会批准的交易价格和出售程序是否公允、充分，以及是否存在管理层利益冲突等问题。
+
+此次调查的背景是Sila Realty于2026年4月20日宣布，已同意被资产管理巨头Blue Owl Capital旗下的房地产关联公司以全现金方式收购并私有化，交易总价值约24亿美元。
+
+根据协议，Sila股东将获得每股30.38美元的现金，较公告前最后一个交易日（4月17日）的收盘价25.53美元溢价约19%。
+
+Sila Realty总部位于佛罗里达州坦帕市，是一家专注于投资医疗保健设施的净租赁房地产投资信托基金。
+
+截至2026年3月31日，其投资组合包括分布在美国65个市场的137处房地产物业和3幅未开发土地，总面积约530万平方英尺。
+
+公司主要持有医疗门诊大楼、住院康复设施及手术专科中心等资产。
+
+此前公布的2026年第一季度财报显示，公司营收为5270万美元，同比增长9.1%；净收入为1240万美元，合每股0.22美元。
 
 ## 相关推荐
 
-- 2026-06-29 14:37 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 14:29 - [航空运输旅客服务质量国标将实施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 14:27 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 14:27 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-29 14:40 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-29 14:21 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-29 14:26 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-29 14:41 - [6月我国降水为何偏多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-29 14:37 - [严浩翔FIY断层第一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-29 14:23 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-29 14:21 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-29 14:35 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-29 14:36 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 14:21 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 14:44 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 14:33 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-29 14:24 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 14:19 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 14:23 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-29 14:37 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 14:26 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 14:33 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 14:44 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:20 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.kurohicncr.top/Article/details/146113405.shtml)
-- 2026-06-29 14:14 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/5625800.shtml)
-- 2026-06-29 14:14 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/130267483834.shtml)
-- 2026-06-29 14:37 - [美的空调 卡bug](http://www.share.minike.top/Article/details/46071.shtml)
-- 2026-06-29 14:41 - [iPhone18系列预计将大幅涨价](https://www.share.kurohicncr.top/Article/details/17266.shtml)
-- 2026-06-29 14:24 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/66112811569.shtml)
-- 2026-06-29 14:22 - [给阿嬷的情书海外口碑](http://www.blog.kurohicncr.top/Article/details/3574636.shtml)
-- 2026-06-29 14:14 - [Mrbeast的30天不吃饭挑战](https://www.share.kurohicncr.top/Article/details/4158307.shtml)
-- 2026-06-29 14:27 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/05190708.shtml)
-- 2026-06-29 14:28 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/2878893.shtml)
-- 2026-06-29 14:13 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/47916698514.shtml)
-- 2026-06-29 14:20 - [中国避暑神器在欧洲卖爆了](http://www.share.minike.top/Article/details/46805756198.shtml)
-- 2026-06-29 14:40 - [加拿大女球迷玩人浪把手机甩飞](http://www.share.minike.top/Article/details/7300647.shtml)
-- 2026-06-29 14:42 - [林昀儒不敌17岁小将止步首轮](http://www.share.kurohicncr.top/Article/details/657163189.shtml)
-- 2026-06-29 14:29 - [恋与深空失控领地](http://www.share.kurohicncr.top/Article/details/71203968.shtml)
+- 2026-06-29 14:19 - [5万块的威力](https://www.blog.minike.top/Article/details/31999.shtml)
+- 2026-06-29 14:38 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/3509823274.shtml)
+- 2026-06-29 14:19 - [比亚迪为什么卖得越多市值越低](https://www.blog.minike.top/Article/details/1530831933.shtml)
+- 2026-06-29 14:38 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/056162977.shtml)
+- 2026-06-29 14:23 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.kurohicncr.top/Article/details/7096414.shtml)
+- 2026-06-29 14:36 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/33909.shtml)
+- 2026-06-29 14:34 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/364415.shtml)
+- 2026-06-29 14:33 - [男子造谣县城满街都是小混混被行拘](http://www.share.kurohicncr.top/Article/details/71066.shtml)
+- 2026-06-29 14:36 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.minike.top/Article/details/468792451651.shtml)
+- 2026-06-29 14:39 - [撒旦的腋窝是什么比喻](http://www.blog.minike.top/Article/details/6311178932.shtml)
+- 2026-06-29 14:42 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/51338040.shtml)
+- 2026-06-29 14:30 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/8893916564.shtml)
+- 2026-06-29 14:25 - [游戏数据被用于军事目的 国安部提醒](https://www.blog.kurohicncr.top/Article/details/539168.shtml)
+- 2026-06-29 14:20 - [佛得角到底在哪个“角”](http://www.blog.minike.top/Article/details/94671.shtml)
+- 2026-06-29 14:23 - [乔家的儿女](http://www.share.minike.top/Article/details/43743499.shtml)

@@ -1,57 +1,60 @@
-# 大和证券将斥资23亿美元收购欧力士银行 拓展贷款业务
+# 美团-W午前涨超6% 大摩给予目标价120港元
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-大和证券表示将以3700亿日元（23亿美元）收购欧力士的银行子公司，这家日本第二大券商正进一步深化在商业贷款领域的布局。 该公司周一在一份声明中表示，将用自有资金为收购欧力士银行（Orix Bank Corp．）融资。交易预计将于10月底前完成。 大和证券还公布，截至3月31日的三个月，净利润较上年同期增长约66%，达到499亿日元。这一数字超过五位分析师平均预期的420亿日元
+美团-W（03690）早盘拉升逾6%，截至发稿，股价上涨6.33%，现报78.10港元，成交额24.02亿港元。 美团拟6月1日举行董事会会议，以考虑及通过2026年第一季度的未经审核财务业绩。摩根士丹利近期研报指出，维持美团增持评级，目标价维持120港元不变。该行维持美团的盈利预测，并继续假设外卖业务每单单位经济效益自2027年起达到1元人民币，而在基本情境下，到店、酒店及旅
 
 ## 正文
 
-大和证券表示将以3700亿日元（23亿美元）收购欧力士的银行子公司，这家日本第二大券商正进一步深化在商业贷款领域的布局。
+美团-W（03690）早盘拉升逾6%，截至发稿，股价上涨6.33%，现报78.10港元，成交额24.02亿港元。
 
-该公司周一在一份声明中表示，将用自有资金为收购欧力士银行（Orix Bank Corp．）融资。
+美团拟6月1日举行董事会会议，以考虑及通过2026年第一季度的未经审核财务业绩。
 
-交易预计将于10月底前完成。
+摩根士丹利近期研报指出，维持美团增持评级，目标价维持120港元不变。
 
-大和证券还公布，截至3月31日的三个月，净利润较上年同期增长约66%，达到499亿日元。
+该行维持美团的盈利预测，并继续假设外卖业务每单单位经济效益自2027年起达到1元人民币，而在基本情境下，到店、酒店及旅游业务的经营利润率将由目前的25%逐步恢复至2030年料达30%。
 
-这一数字超过五位分析师平均预期的420亿日元。
+大摩指出，在阿里承诺大幅收窄即时零售亏损后，美团迈向盈利能力的路线图清晰度显著提升。
 
-责任编辑：刘明亮
+业务板块方面，大摩预计美团第一季到店、酒店及旅游（IHT）业务的总交易额（GTV）及收入将分别同比增长10%及9%，经营利润季按季大致持平于41亿元，经营利润率为25%。
+
+新业务方面，旗下海外业务KeeTa今年将专注于巩固现有市场，沙地阿拉伯的单位经济效益持续改善，香港市场维持盈利。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:13 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-29 14:13 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-29 14:12 - [金价银价下跌 油价上涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-29 14:12 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 14:33 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 14:28 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-29 14:36 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 14:32 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-29 14:21 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-29 14:27 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 14:24 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-29 14:13 - [南非老帅布罗斯的梦没能做完](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 14:22 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 14:36 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-29 14:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 14:18 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-29 14:20 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 14:36 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 14:35 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 14:38 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 14:33 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 14:26 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-29 14:39 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 14:42 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 14:39 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-29 14:29 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-29 14:40 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 14:32 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-29 14:25 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:12 - [毒液2](https://www.blog.kurohicncr.top/Article/details/52542524.shtml)
-- 2026-06-29 14:14 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/38594582.shtml)
-- 2026-06-29 14:29 - [去了一趟潮汕。](http://www.share.minike.top/Article/details/987303818.shtml)
-- 2026-06-29 14:36 - [比亚迪市值为何蒸发8000亿](https://www.share.kurohicncr.top/Article/details/9049307.shtml)
-- 2026-06-29 14:34 - [辽宁葫芦岛一居民楼突发爆炸](https://www.blog.kurohicncr.top/Article/details/005068.shtml)
-- 2026-06-29 14:22 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/0964698.shtml)
-- 2026-06-29 14:40 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.share.kurohicncr.top/Article/details/527573270.shtml)
-- 2026-06-29 14:28 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/751248882110.shtml)
-- 2026-06-29 14:39 - [南非老帅布罗斯的梦没能做完](http://www.blog.kurohicncr.top/Article/details/224191.shtml)
-- 2026-06-29 14:37 - [高考公平需要延伸到志愿填报这一环](https://www.blog.kurohicncr.top/Article/details/657055.shtml)
-- 2026-06-29 14:15 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/5336302086.shtml)
-- 2026-06-29 14:41 - [日本主帅：对战胜巴西很有信心](https://www.share.minike.top/Article/details/53452.shtml)
-- 2026-06-29 14:21 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.kurohicncr.top/Article/details/87079.shtml)
-- 2026-06-29 14:39 - [中俄联合巡航阵容强大 日本慌了？](https://www.share.minike.top/Article/details/89203480.shtml)
-- 2026-06-29 14:18 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/51405158035.shtml)
+- 2026-06-29 14:48 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/72632436.shtml)
+- 2026-06-29 14:19 - [王楚钦3-0周启豪 晋级32强](https://www.blog.minike.top/Article/details/994230.shtml)
+- 2026-06-29 14:36 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/6300496408.shtml)
+- 2026-06-29 14:28 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.share.kurohicncr.top/Article/details/3364435.shtml)
+- 2026-06-29 14:39 - [民进党为什么拼命抹黑统战](https://www.blog.kurohicncr.top/Article/details/5585692231.shtml)
+- 2026-06-29 14:21 - [大范围炎热天气将至](http://www.share.minike.top/Article/details/605745156785.shtml)
+- 2026-06-29 14:32 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/84409187057.shtml)
+- 2026-06-29 14:21 - [外网预言中国举办世界杯时间](http://www.blog.minike.top/Article/details/0661965903.shtml)
+- 2026-06-29 14:47 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/2630316078.shtml)
+- 2026-06-29 14:44 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/3047329.shtml)
+- 2026-06-29 14:44 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.minike.top/Article/details/632051035.shtml)
+- 2026-06-29 14:29 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/987442757.shtml)
+- 2026-06-29 14:32 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/961514.shtml)
+- 2026-06-29 14:23 - [强⁶](http://www.blog.minike.top/Article/details/5789258345.shtml)
+- 2026-06-29 14:45 - [张真源解读相思锁](https://www.blog.kurohicncr.top/Article/details/4027076.shtml)

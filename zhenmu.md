@@ -1,56 +1,56 @@
-# 中银国际：五矿资源重申“买入”评级 目标价升至10.71港元
+# 机器面穿上“手擀”马甲，克明食品致歉难掩主业萎缩之痛
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-中银国际发布研报称，上调五矿资源（01208）目标价至10.71港元，重申“买入”评级。 该行表示，五矿资源2026年第一季铜产量同比增9%，主要得益于金塞维尔矿区的强劲增长和拉斯班巴斯矿区的稳健增长。更重要的是，其黄金和白银产量分别同比增长24%和27%，拉斯班巴斯矿区和罗斯伯里矿区均实现了强劲增长。贵金属产量的大幅增长也使得相关矿山的C1成本降低。 该行表示，尽管贵金属产量
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券之星 近日，克明食品（002661.SZ）在其官方微博发布了一则“致歉声明”，就“手擀”商标相关问题向消费者公开致歉，宣布即日起全面停止生产、销售带有“手擀”相关表述的产品，并同步启动产品包装及宣传物料的整改。 就在此前一天，央视《法治在线》栏目曝出克明食品将“手擀”二字注册为商标用于机器制面的包
 
 ## 正文
 
-中银国际发布研报称，上调五矿资源（01208）目标价至10.71港元，重申“买入”评级。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-该行表示，五矿资源2026年第一季铜产量同比增9%，主要得益于金塞维尔矿区的强劲增长和拉斯班巴斯矿区的稳健增长。
+来源：证券之星 近日，克明食品（002661.SZ）在其官方微博发布了一则“致歉声明”，就“手擀”商标相关问题向消费者公开致歉，宣布即日起全面停止生产、销售带有“手擀”相关表述的产品，并同步启动产品包装及宣传物料的整改。
 
-更重要的是，其黄金和白银产量分别同比增长24%和27%，拉斯班巴斯矿区和罗斯伯里矿区均实现了强劲增长。
+就在此前一天，央视《法治在线》栏目曝出克明食品将“手擀”二字注册为商标用于机器制面的包装上，搭配“就像儿时妈妈做的手擀面”的广告语和醒目的擀面杖图案，易误导消费者将该款产品与传统手工工艺产品联系在一起。
 
-贵金属产量的大幅增长也使得相关矿山的C1成本降低。
+证券之星注意到，公司道歉当天，“陈克明食品道歉”词条一度冲上微博热搜第一。
 
-该行表示，尽管贵金属产量的强劲增长势头可能无法持续全年，但仍将2026-2028年的盈利预测上调1%-2%。
+而在喧闹的舆情背后，这家“挂面第一股”正面临着远比一纸道歉声明更为严峻的考验。
 
-责任编辑：卢昱君
+01． 手擀商标非手擀 天眼查查询显示，早在2020年2月，克明食品申请注册了两个名称为“陈克明手擀”的商标，但前述商标均在2025年10月24日被依职权宣告无效，即商标局在未接到任何单位或个人申请的前提下，主动对已经注册的商标作出宣告无效的行政决定。
+
+但令人意外的是，商标被宣告无效后，相关产品仍在线下渠道持续销售。
+
+并且，克明食品服务热线工作人员回复称，“手擀”大宽挂面是机器制造，是参照手感揉面的工艺成型，还原手擀面的口感。
 
 ## 相关推荐
 
-- 2026-06-29 14:36 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-29 14:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-29 14:17 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-29 14:12 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 14:28 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 14:35 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 14:15 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 14:21 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-29 14:21 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 14:34 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 14:31 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-29 14:32 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-29 14:34 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-29 14:32 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-29 14:27 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 14:36 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-29 14:26 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 14:31 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 14:18 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 14:26 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 14:23 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 14:47 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 14:21 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-29 14:31 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:12 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/88729399.shtml)
-- 2026-06-29 14:37 - [链博会上的机器人太全能了](https://www.share.minike.top/Article/details/3068759.shtml)
-- 2026-06-29 14:20 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.blog.minike.top/Article/details/6931038.shtml)
-- 2026-06-29 14:29 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/3508726512.shtml)
-- 2026-06-29 14:34 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.share.minike.top/Article/details/31826331661.shtml)
-- 2026-06-29 14:19 - [葫芦岛居民楼爆炸致3失联8伤](http://www.blog.minike.top/Article/details/50861296604.shtml)
-- 2026-06-29 14:40 - [古力娜扎美出新高度](https://www.share.kurohicncr.top/Article/details/5088686591.shtml)
-- 2026-06-29 14:19 - [美媒：空警-3000服役即成全球最强](http://www.share.kurohicncr.top/Article/details/677183019.shtml)
-- 2026-06-29 14:22 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/76645.shtml)
-- 2026-06-29 14:16 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/4594078071.shtml)
-- 2026-06-29 14:23 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/8483810528.shtml)
-- 2026-06-29 14:41 - [俄军新型无人机战力如何](https://www.blog.minike.top/Article/details/26244813.shtml)
-- 2026-06-29 14:12 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/74342.shtml)
-- 2026-06-29 14:28 - [恋与深空失控领地](https://www.share.kurohicncr.top/Article/details/0771495769.shtml)
-- 2026-06-29 14:20 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/78741331456.shtml)
+- 2026-06-29 14:45 - [上班主打一个薪尽自然凉](https://www.share.minike.top/Article/details/347027797.shtml)
+- 2026-06-29 14:21 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/9997562.shtml)
+- 2026-06-29 14:18 - [白宇摘下白玉兰送给杨幂](https://www.share.kurohicncr.top/Article/details/71834818.shtml)
+- 2026-06-29 14:27 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/836021.shtml)
+- 2026-06-29 14:29 - [起风了](http://www.blog.minike.top/Article/details/9910306178.shtml)
+- 2026-06-29 14:42 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.minike.top/Article/details/6624449173.shtml)
+- 2026-06-29 14:44 - [中餐厅南北饮食差异](http://www.blog.kurohicncr.top/Article/details/8751940.shtml)
+- 2026-06-29 14:40 - [美国近12万名科技员工被解雇](http://www.share.minike.top/Article/details/41553816760.shtml)
+- 2026-06-29 14:22 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.kurohicncr.top/Article/details/86021472.shtml)
+- 2026-06-29 14:27 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/3020482854.shtml)
+- 2026-06-29 14:44 - [在家赤身裸体是否绝对自由](https://www.blog.kurohicncr.top/Article/details/83437689825.shtml)
+- 2026-06-29 14:34 - [NBA交易](http://www.blog.minike.top/Article/details/7816319.shtml)
+- 2026-06-29 14:46 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/1036173961.shtml)
+- 2026-06-29 14:29 - [詹俊预测德国大胜巴拉圭](http://www.share.kurohicncr.top/Article/details/1378945669.shtml)
+- 2026-06-29 14:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/38374526201.shtml)

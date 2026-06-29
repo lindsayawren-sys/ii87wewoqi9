@@ -1,52 +1,46 @@
-# 上海银行董事长顾建忠：努力实现超越利润之上的更高价值追求
+# 全国首家网上离境退税商店在北京落地
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-4月27日金融一线消息，上海银行召开2025年度暨2026年第一季度业绩说明会，党委书记、董事长顾建忠在会上表示，2025年是上海银行三十而立的周年，也是国家“十五五”规划编制之年，在这个承上启下的重要阶段，上海银行完成了新一轮战略规划的编制，并以此为主线，同步推进了组织架构调整、战略性人力资源重塑、资源配置和绩效考核优化、企业文化焕新等各方面改革工作，着力提升银行的竞争力、敏
+发布时间：2026年06月02日 13:17 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-4月27日金融一线消息，上海银行召开2025年度暨2026年第一季度业绩说明会，党委书记、董事长顾建忠在会上表示，2025年是上海银行三十而立的周年，也是国家“十五五”规划编制之年，在这个承上启下的重要阶段，上海银行完成了新一轮战略规划的编制，并以此为主线，同步推进了组织架构调整、战略性人力资源重塑、资源配置和绩效考核优化、企业文化焕新等各方面改革工作，着力提升银行的竞争力、敏捷力、源动力和向心力。
-
-顾建忠指出，提升核心竞争力是改革的重要方向，为此上海银行确立了六大战略布局体系。
-
-该行于2025年6月正式启动“十五五”战略规划工作，通过“走出去，请进来”的方式，拜访了十多家规模、发展阶段等具有可比性的银行，学习其先进经验和好的做法；同时邀请四家咨询机构及分析师共同交流研讨下一步发展态势和预判，分析总结并征求意见，明确未来发展路径，最终于2026年初完成规划编制。
-
-在战略定位上，顾建忠强调，上海银行秉持金融工作的政治性、人民性，确立了“金融让生活更美好”的使命。
-
-他特别提到，“努力实现超越利润之上的更高价值追求”是自己常说的一句话，上海银行确立了成为有情怀、有价值、人才辈出、受人尊敬的金融伙伴的愿景，并将长期主义、专业主义、利他主义融入企业文化。
-
-责任编辑：秦艺
+发布时间：2026年06月02日 13:17 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 14:40 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-29 14:35 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 14:18 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-29 14:14 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-29 14:21 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 14:33 - [薛之谦演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 14:13 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-29 14:16 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-29 14:39 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-29 14:39 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 14:44 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-29 14:30 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-29 14:33 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 14:48 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-29 14:26 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-29 14:47 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 14:40 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 14:21 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 14:37 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-29 14:18 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 14:34 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-29 14:46 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-29 14:45 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 14:39 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:22 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/8267894.shtml)
-- 2026-06-29 14:35 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/510510725208.shtml)
-- 2026-06-29 14:38 - [韩国队如何把94%出线概率打到0%](https://www.blog.kurohicncr.top/Article/details/975997.shtml)
-- 2026-06-29 14:24 - [如果你一直单身，你准备怎么养老？](http://www.share.kurohicncr.top/Article/details/642224.shtml)
-- 2026-06-29 14:33 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/245559208503.shtml)
-- 2026-06-29 14:12 - [媒体人：警惕日本再次成战争加害国](https://www.share.kurohicncr.top/Article/details/71441331539.shtml)
-- 2026-06-29 14:19 - [天道](https://www.share.minike.top/Article/details/3717120027.shtml)
-- 2026-06-29 14:36 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/33306070.shtml)
-- 2026-06-29 14:12 - [中餐厅南北饮食差异](https://www.share.kurohicncr.top/Article/details/695155.shtml)
-- 2026-06-29 14:16 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/1964138953.shtml)
-- 2026-06-29 14:27 - [李连杰回应网传不管前妻俩女儿](http://www.blog.kurohicncr.top/Article/details/32909926.shtml)
-- 2026-06-29 14:33 - [普京称考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/073606066308.shtml)
-- 2026-06-29 14:24 - [高考志愿今起开始填报](http://www.blog.kurohicncr.top/Article/details/75386117739.shtml)
-- 2026-06-29 14:16 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/364470.shtml)
-- 2026-06-29 14:31 - [撒旦的腋窝是什么比喻](https://www.blog.kurohicncr.top/Article/details/25569229720.shtml)
+- 2026-06-29 14:44 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/026308726.shtml)
+- 2026-06-29 14:42 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/8082108947.shtml)
+- 2026-06-29 14:22 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/435636.shtml)
+- 2026-06-29 14:45 - [乔家的儿女](https://www.blog.minike.top/Article/details/9262275.shtml)
+- 2026-06-29 14:36 - [韩国记者：解码“合肥模式”](http://www.share.minike.top/Article/details/38498.shtml)
+- 2026-06-29 14:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/1504554.shtml)
+- 2026-06-29 14:19 - [薛之谦演唱会](https://www.blog.kurohicncr.top/Article/details/2762040.shtml)
+- 2026-06-29 14:39 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/008813721.shtml)
+- 2026-06-29 14:38 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/55193.shtml)
+- 2026-06-29 14:34 - [我国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/349849257284.shtml)
+- 2026-06-29 14:22 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/8932683271.shtml)
+- 2026-06-29 14:44 - [新一代影后杨紫](http://www.blog.minike.top/Article/details/7044040962.shtml)
+- 2026-06-29 14:25 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/433189.shtml)
+- 2026-06-29 14:28 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.kurohicncr.top/Article/details/074129.shtml)
+- 2026-06-29 14:33 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/78535609.shtml)

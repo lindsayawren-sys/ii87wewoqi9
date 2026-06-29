@@ -1,54 +1,59 @@
-# 泰王国驻昆总领事帕薇婉：昆明泰国节是与市民的一场双向奔赴
+# 油价大涨超 3%：美伊谈判陷入僵局，以色列扩大黎巴嫩攻势
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月26日 20:52 来源：中国新闻网 近日，2026昆明·泰国节在昆明举行，热度持续不减。自2008年泰王国驻昆明总领事馆创办首届以来，这个集传统演艺、特色市集与手工体验于一体的中泰文化交流活动，已与昆明市民结下跨越16届的“泰式约定”，并被列为泰国全球97个驻外机构中仅有的12个“旗舰泰国节”之一。 “如果昆明市民离不开我们的泰国节，我们的泰国节更离
+核心要点 受美伊再度互袭、以色列下令军队深入黎巴嫩影响，国际油价周一上涨。市场担忧，与伊朗支持的真主党冲突升级，或将破坏美伊之间脆弱的停火协议。 伦敦时间周一上午 10：10（美国东部时间凌晨 5：10），国际基准布伦特原油期货上涨 3.5%，报每桶 94.33 美元；美国西德克萨斯轻质原油期货上涨 4%，报每桶 90.91 美元。 上周，布伦特与 WTI 原油分别大跌 11.
 
 ## 正文
 
-发布时间：2026年04月26日 20:52 来源：中国新闻网 近日，2026昆明·泰国节在昆明举行，热度持续不减。
+核心要点 受美伊再度互袭、以色列下令军队深入黎巴嫩影响，国际油价周一上涨。
 
-自2008年泰王国驻昆明总领事馆创办首届以来，这个集传统演艺、特色市集与手工体验于一体的中泰文化交流活动，已与昆明市民结下跨越16届的“泰式约定”，并被列为泰国全球97个驻外机构中仅有的12个“旗舰泰国节”之一。
+市场担忧，与伊朗支持的真主党冲突升级，或将破坏美伊之间脆弱的停火协议。
 
-“如果昆明市民离不开我们的泰国节，我们的泰国节更离不开你们。
+伦敦时间周一上午 10：10（美国东部时间凌晨 5：10），国际基准布伦特原油期货上涨 3.5%，报每桶 94.33 美元；美国西德克萨斯轻质原油期货上涨 4%，报每桶 90.91 美元。
 
-”泰王国驻昆明总领事馆总领事帕薇婉接受专访时说道。
+上周，布伦特与 WTI 原油分别大跌 11.1% 和 9.6%，创 4 月中旬以来最差单周表现。
 
-(白玲 袁鸿凯 王玉菲） 责任编辑：【周驰】
+但自 2 月 28 日美以联合对伊朗开战以来，两大原油期货仍累计上涨约 30%。
+
+上周五，美国斡旋的以黎谈判在华盛顿举行，但随后敌对行动升级，市场对美伊即将达成停火延期协议的预期降温。
+
+以色列总理内塔尼亚胡对以军攻占黎南部博福尔城堡表示欢迎，称此举是对真主党地面攻势的 “决定性转折”。
+
+欧洲多国官员强烈谴责以色列最新升级行动。
 
 ## 相关推荐
 
-- 2026-06-29 14:17 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 14:36 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-29 14:21 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-29 14:30 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 14:13 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 14:12 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-29 14:14 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 14:28 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 14:13 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 14:31 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-29 14:36 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 14:25 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 14:24 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 14:23 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 14:29 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-29 14:32 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-29 14:32 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-29 14:27 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 14:24 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-29 14:19 - [退休化学教授帮医药研发人员制毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 14:34 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-29 14:38 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-29 14:22 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 14:38 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-29 14:21 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-29 14:20 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-29 14:21 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:19 - [巴基斯坦军方打死29名武装分子](http://www.share.kurohicncr.top/Article/details/0098315.shtml)
-- 2026-06-29 14:19 - [在委侨团负责人：家乡的帮助很及时](https://www.share.minike.top/Article/details/55391589.shtml)
-- 2026-06-29 14:24 - [俄称继续推进 乌称打击俄军设施](http://www.share.kurohicncr.top/Article/details/12031.shtml)
-- 2026-06-29 14:37 - [锐评浪姐7总决赛](http://www.share.minike.top/Article/details/75320852.shtml)
-- 2026-06-29 14:27 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/69602736650.shtml)
-- 2026-06-29 14:25 - [勇敢的心第二部](https://www.share.minike.top/Article/details/19939.shtml)
-- 2026-06-29 14:16 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.blog.minike.top/Article/details/09611913.shtml)
-- 2026-06-29 14:30 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/307285.shtml)
-- 2026-06-29 14:13 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/924872064.shtml)
-- 2026-06-29 14:25 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/90732268096.shtml)
-- 2026-06-29 14:21 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/9949466843.shtml)
-- 2026-06-29 14:41 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/2780482679.shtml)
-- 2026-06-29 14:22 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/1653337942.shtml)
-- 2026-06-29 14:20 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/195790105.shtml)
-- 2026-06-29 14:20 - [王楚钦欢迎晚宴上打台球](https://www.share.minike.top/Article/details/234033328.shtml)
+- 2026-06-29 14:27 - [大范围炎热天气将至](http://www.share.minike.top/Article/details/899155477345.shtml)
+- 2026-06-29 14:27 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.minike.top/Article/details/167174013.shtml)
+- 2026-06-29 14:44 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/800367875.shtml)
+- 2026-06-29 14:42 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.blog.kurohicncr.top/Article/details/079626557369.shtml)
+- 2026-06-29 14:35 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.minike.top/Article/details/0963940.shtml)
+- 2026-06-29 14:37 - [普京：俄面临命运攸关时刻](https://www.share.minike.top/Article/details/56823590976.shtml)
+- 2026-06-29 14:39 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/97263297405.shtml)
+- 2026-06-29 14:43 - [金牌调解](http://www.blog.minike.top/Article/details/039424415.shtml)
+- 2026-06-29 14:21 - [女孩遭霸凌网上认文身大哥求庇护](http://www.share.minike.top/Article/details/81672405766.shtml)
+- 2026-06-29 14:46 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/9178035.shtml)
+- 2026-06-29 14:47 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.minike.top/Article/details/867729035.shtml)
+- 2026-06-29 14:38 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/616552902168.shtml)
+- 2026-06-29 14:43 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/11059895008.shtml)
+- 2026-06-29 14:23 - [沙特足协主席发布声明主动请辞](https://www.share.minike.top/Article/details/7449286049.shtml)
+- 2026-06-29 14:38 - [南部战区位南海海域进行例行巡航](http://www.share.kurohicncr.top/Article/details/154552.shtml)

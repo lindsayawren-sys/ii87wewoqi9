@@ -1,60 +1,59 @@
-# 按需点餐、低碳消费 中消协发布“五一”消费提示
+# 日系车销量大跌背后，车主们都在担心什么
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-中新网4月27日电 据中国消费者协会网站消息，“五一”假期临近，全国各地将迎来旅游出行、聚会聚餐、购物消费的高峰。为倡导文明、健康、节约、环保的消费理念，维护广大消费者合法权益，中国消费者协会特发布以下消费提示：一、践行“光盘行动”，自觉抵制食品浪费 节日期间，家庭聚餐、婚宴酒席、旅游团餐等消费场景增多。消费者应树立正确食品消费观，做到按需点餐、合理搭配、剩菜打包，摒弃讲排场、
+最近“日系车溃败”这个话题登上了微博热搜，引发了大量讨论。数据显示，日系车在中国市场的份额持续下滑，多个曾经畅销的品牌销量腰斩。对于已经买了日系车的车主来说，担心的不只是面子问题——保值率下降、配件供应、售后服务保障，这些都是实实在在的焦虑。 汽车作为一种大宗消费品，从买车的那一刻起，消费者就可能面临各种各样的问题。新车交付时发现瑕疵、4S店强制捆绑销售保险和装潢、维修时使用非
 
 ## 正文
 
-中新网4月27日电 据中国消费者协会网站消息，“五一”假期临近，全国各地将迎来旅游出行、聚会聚餐、购物消费的高峰。
+最近“日系车溃败”这个话题登上了微博热搜，引发了大量讨论。
 
-为倡导文明、健康、节约、环保的消费理念，维护广大消费者合法权益，中国消费者协会特发布以下消费提示：一、践行“光盘行动”，自觉抵制食品浪费 节日期间，家庭聚餐、婚宴酒席、旅游团餐等消费场景增多。
+数据显示，日系车在中国市场的份额持续下滑，多个曾经畅销的品牌销量腰斩。
 
-消费者应树立正确食品消费观，做到按需点餐、合理搭配、剩菜打包，摒弃讲排场、比阔气的陈旧观念。
+对于已经买了日系车的车主来说，担心的不只是面子问题——保值率下降、配件供应、售后服务保障，这些都是实实在在的焦虑。
 
-外出就餐时，主动选择提供“小份菜”“半份菜”的餐饮单位，减少不必要的食材损耗；网络订餐时应适量下单，避免因促销满减而过度囤积食物。
+汽车作为一种大宗消费品，从买车的那一刻起，消费者就可能面临各种各样的问题。
 
-家庭采购食材宜按需购买、分类储存，减少因保存不当导致的变质浪费。
+新车交付时发现瑕疵、4S店强制捆绑销售保险和装潢、维修时使用非原厂配件却不告知、厂家召回通知不到位……这些问题在汽车投诉中屡见不鲜。
 
-餐饮经营者也应主动承担主体责任，在醒目位置张贴反食品浪费标识，引导消费者理性消费。
+而当日系车品牌在中国市场收缩的时候，现有车主的担忧更加具体：以后还能不能方便地找到维修点？
 
-二、拒绝过度包装，倡导简约低碳消费 “五一”前后正值春茶、糕点、时令礼品销售旺季，部分商品仍存在包装层数过多、空隙率过大、材质奢侈等问题。
+零配件会不会断供或者涨价严重？
 
-消费者购买节令商品时，应更加注重商品内在品质和实用价值，自觉抵制“套娃式”包装、贵金属及红木等贵重材料包装，主动选择设计简约、可循环利用的环保包装产品。
+二手车的残值会不会进一步缩水？
 
 ## 相关推荐
 
-- 2026-06-29 14:24 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 14:21 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-29 14:34 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-29 14:39 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-29 14:25 - [中国避暑神器在欧洲卖爆了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-29 14:19 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-29 14:19 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-29 14:18 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 14:23 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-29 14:27 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-29 14:21 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 14:16 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-29 14:12 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-29 14:32 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 14:47 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 14:20 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 14:43 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 14:27 - [以前不让妆女二可以艳压女主](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-29 14:32 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 14:44 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-29 14:38 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 14:41 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 14:30 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-29 14:25 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 14:19 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 14:35 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 14:45 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:17 - [宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/93962.shtml)
-- 2026-06-29 14:14 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.share.kurohicncr.top/Article/details/05574.shtml)
-- 2026-06-29 14:26 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.kurohicncr.top/Article/details/003388845.shtml)
-- 2026-06-29 14:33 - [航空运输旅客服务质量国标将实施](https://www.share.kurohicncr.top/Article/details/324848.shtml)
-- 2026-06-29 14:24 - [拄拐少年高考663分：用行动回报社会](https://www.blog.kurohicncr.top/Article/details/81634.shtml)
-- 2026-06-29 14:21 - [欧洲多国激辩“装不装空调”](http://www.blog.minike.top/Article/details/400656.shtml)
-- 2026-06-29 14:22 - [去了一趟潮汕。](https://www.blog.kurohicncr.top/Article/details/5813402.shtml)
-- 2026-06-29 14:17 - [王楚钦3-0周启豪 晋级32强](http://www.blog.kurohicncr.top/Article/details/364573593.shtml)
-- 2026-06-29 14:38 - [斗破苍穹](https://www.share.minike.top/Article/details/460475464222.shtml)
-- 2026-06-29 14:12 - [日本主帅：目标是冠军](http://www.blog.kurohicncr.top/Article/details/1327326.shtml)
-- 2026-06-29 14:29 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/201856922764.shtml)
-- 2026-06-29 14:15 - [金牌调解](https://www.blog.minike.top/Article/details/71957752.shtml)
-- 2026-06-29 14:38 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/652041895.shtml)
-- 2026-06-29 14:14 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.kurohicncr.top/Article/details/061698663220.shtml)
-- 2026-06-29 14:12 - [如何“亲菌子”又“远小人儿”](http://www.share.kurohicncr.top/Article/details/36069948.shtml)
+- 2026-06-29 14:37 - [吴磊爱上回收了](https://www.blog.kurohicncr.top/Article/details/55473.shtml)
+- 2026-06-29 14:44 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.kurohicncr.top/Article/details/0534467.shtml)
+- 2026-06-29 14:29 - [肖战深夜到达青岛赴十日终焉片场](http://www.share.minike.top/Article/details/4634713548.shtml)
+- 2026-06-29 14:42 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.blog.minike.top/Article/details/182751675069.shtml)
+- 2026-06-29 14:27 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/794055.shtml)
+- 2026-06-29 14:29 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/2639776464.shtml)
+- 2026-06-29 14:33 - [媒体：这一次合肥芜湖在伯仲之间](http://www.blog.kurohicncr.top/Article/details/439080333096.shtml)
+- 2026-06-29 14:46 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/53863635.shtml)
+- 2026-06-29 14:24 - [哈基米歌王争霸赛](https://www.share.kurohicncr.top/Article/details/6313902680.shtml)
+- 2026-06-29 14:28 - [李在明称韩国足协任命了无能之人](http://www.share.kurohicncr.top/Article/details/445553012.shtml)
+- 2026-06-29 14:33 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/118305065436.shtml)
+- 2026-06-29 14:22 - [媒体评恋与深空争议](http://www.blog.minike.top/Article/details/0334984982.shtml)
+- 2026-06-29 14:39 - [NBA交易](https://www.share.minike.top/Article/details/2584287006.shtml)
+- 2026-06-29 14:44 - [周杰伦演唱会真的好多人啊](http://www.blog.minike.top/Article/details/759842689557.shtml)
+- 2026-06-29 14:40 - [一生一世](https://www.share.minike.top/Article/details/008453.shtml)

@@ -1,49 +1,51 @@
-# 300200，实际控制人已被解除留置
+# 消息人士称以军扩大在黎军事行动系与美协调进行
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-4月24日，高盟新材（300200）公告称，公司收到控股股东高金技术产业集团有限公司（简称“高金集团”）转发的由四川省监察委员会签发的《解除留置通知书》，四川省监察委员会已解除对熊海涛女士的留置措施。目前，熊海涛女士已能正常履行公司董事的职责，公司生产经营情况正常。公司于2026年1月27日收到控高金集团的通知，公司实际控制人、副董事长熊海涛女士被四川省监察委员会立案调查并实施
+当地时间6月1日，总台记者获悉，消息人士称，以色列扩大在黎巴嫩的军事行动是与美国协调进行的。 此外，一位以色列官员表示，以军将对黎巴嫩贝鲁特“达希耶”地区发动空袭的决定是与美国协调后做出的。这位官员宣称，美国国务卿鲁比奥一直在推动黎以停火，但真主党并未“配合”，导致美国不再反对以色列空袭真主党在贝鲁特的据点。(总台记者 赵兵)
 
 ## 正文
 
-4月24日，高盟新材（300200）公告称，公司收到控股股东高金技术产业集团有限公司（简称“高金集团”）转发的由四川省监察委员会签发的《解除留置通知书》，四川省监察委员会已解除对熊海涛女士的留置措施。
+当地时间6月1日，总台记者获悉，消息人士称，以色列扩大在黎巴嫩的军事行动是与美国协调进行的。
 
-目前，熊海涛女士已能正常履行公司董事的职责，公司生产经营情况正常。
+此外，一位以色列官员表示，以军将对黎巴嫩贝鲁特“达希耶”地区发动空袭的决定是与美国协调后做出的。
 
-公司于2026年1月27日收到控高金集团的通知，公司实际控制人、副董事长熊海涛女士被四川省监察委员会立案调查并实施留置。
+这位官员宣称，美国国务卿鲁比奥一直在推动黎以停火，但真主党并未“配合”，导致美国不再反对以色列空袭真主党在贝鲁特的据点。
+
+(总台记者 赵兵)
 
 ## 相关推荐
 
-- 2026-06-29 14:14 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 14:22 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-29 14:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-29 14:32 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-29 14:30 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 14:35 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-29 14:39 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 14:31 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-29 14:36 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-29 14:18 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-29 14:28 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-29 14:37 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-29 14:13 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-29 14:45 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 14:39 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 14:28 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 14:36 - [比亚迪为什么卖得越多市值越低](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-29 14:29 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-29 14:26 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-29 14:43 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 14:22 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-29 14:35 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 14:36 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-29 14:41 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-29 14:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-29 14:36 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:27 - [42岁郭碧婷纯素颜状态](https://www.blog.minike.top/Article/details/60010627.shtml)
-- 2026-06-29 14:34 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/25794251.shtml)
-- 2026-06-29 14:34 - [佛得角到底在哪个“角”](https://www.blog.minike.top/Article/details/50196.shtml)
-- 2026-06-29 14:38 - [高考公平需要延伸到志愿填报这一环](https://www.blog.minike.top/Article/details/239120.shtml)
-- 2026-06-29 14:31 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/43442711965.shtml)
-- 2026-06-29 14:31 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/117515.shtml)
-- 2026-06-29 14:30 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/60279649180.shtml)
-- 2026-06-29 14:21 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/70555483.shtml)
-- 2026-06-29 14:36 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/67883.shtml)
-- 2026-06-29 14:29 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/66975133100.shtml)
-- 2026-06-29 14:38 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/2778162624.shtml)
-- 2026-06-29 14:35 - [20年前的周杰伦](http://www.blog.minike.top/Article/details/98029157461.shtml)
-- 2026-06-29 14:26 - [C罗关心罗德里戈伤情](https://www.blog.minike.top/Article/details/15320405.shtml)
-- 2026-06-29 14:25 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/879636.shtml)
-- 2026-06-29 14:28 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/338704146.shtml)
+- 2026-06-29 14:35 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/0756662719.shtml)
+- 2026-06-29 14:21 - [周生如故](http://www.share.kurohicncr.top/Article/details/7644151385.shtml)
+- 2026-06-29 14:24 - [李在明称韩国足协任命了无能之人](http://www.share.minike.top/Article/details/9013473690.shtml)
+- 2026-06-29 14:29 - [唐艺昕女儿接唐艺昕回家](http://www.blog.minike.top/Article/details/08042190379.shtml)
+- 2026-06-29 14:42 - [唐艺昕女儿接唐艺昕回家](http://www.share.kurohicncr.top/Article/details/403905935.shtml)
+- 2026-06-29 14:38 - [民进党为什么拼命抹黑统战](https://www.share.minike.top/Article/details/91421480961.shtml)
+- 2026-06-29 14:30 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/99232736638.shtml)
+- 2026-06-29 14:38 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/1112083.shtml)
+- 2026-06-29 14:38 - [俄称继续推进 乌称打击俄军设施](http://www.blog.kurohicncr.top/Article/details/3663339885.shtml)
+- 2026-06-29 14:20 - [papi酱自曝曾因尝试21天减肥法患病](http://www.share.kurohicncr.top/Article/details/81291097.shtml)
+- 2026-06-29 14:21 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.kurohicncr.top/Article/details/891491371.shtml)
+- 2026-06-29 14:35 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.minike.top/Article/details/3613923.shtml)
+- 2026-06-29 14:28 - [加拿大女球迷玩人浪把手机甩飞](http://www.blog.kurohicncr.top/Article/details/710285212582.shtml)
+- 2026-06-29 14:44 - [沙特足协主席发布声明主动请辞](http://www.share.minike.top/Article/details/30071453198.shtml)
+- 2026-06-29 14:46 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.share.minike.top/Article/details/53234.shtml)

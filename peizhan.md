@@ -1,61 +1,52 @@
-# （机遇香港）香港发展游艇经济为全球投资者打开新机遇
+# “某综艺节目安全带P图痕迹明显”，公安部交通管理局发声
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-中新社香港4月26日电 (记者 魏华都)近日，香港机场管理局正式启动SKYTOPIA游艇港湾发展项目，向全球游艇、酒店及水上活动业界发出意向邀请，意味着香港游艇经济进一步进入全球投资者的视野。分析认为，投资者可通过提供高端海事服务、投资粤港澳大湾区及家族办公室资产配置等方式获益。 香港拥有1180公里海岸线、约4000个游艇泊位和超过1.2万艘注册游艇，且背靠大湾区内地城市，具
+近期，某综艺节目播出后被眼光敏锐的网友发现，多名嘉宾在乘车时并没有真的系安全带，而是节目组通过后期技术添加，P图痕迹相当明显。 @公安部交通管理局 提醒：安全不是做样子给别人看，安全更容不得自欺欺人！我国道交法中明确规定：“机动车行驶时，驾驶人、乘坐人员应当按规定使用安全带。”对数量可观的粉丝、受众而言，明星、综艺节目的示范作用不可小觑，更应在涉及公共利益、公共安全的问题上严格
 
 ## 正文
 
-中新社香港4月26日电 (记者 魏华都)近日，香港机场管理局正式启动SKYTOPIA游艇港湾发展项目，向全球游艇、酒店及水上活动业界发出意向邀请，意味着香港游艇经济进一步进入全球投资者的视野。
+近期，某综艺节目播出后被眼光敏锐的网友发现，多名嘉宾在乘车时并没有真的系安全带，而是节目组通过后期技术添加，P图痕迹相当明显。
 
-分析认为，投资者可通过提供高端海事服务、投资粤港澳大湾区及家族办公室资产配置等方式获益。
+@公安部交通管理局 提醒：安全不是做样子给别人看，安全更容不得自欺欺人！
 
-香港拥有1180公里海岸线、约4000个游艇泊位和超过1.2万艘注册游艇，且背靠大湾区内地城市，具备发展成为亚洲游艇枢纽的先天优势。
+我国道交法中明确规定：“机动车行驶时，驾驶人、乘坐人员应当按规定使用安全带。
 
-香港特区行政长官李家超在2025年施政报告中明确提出发展游艇经济，优化游艇产业配套，推广高端游艇旅游。
+”对数量可观的粉丝、受众而言，明星、综艺节目的示范作用不可小觑，更应在涉及公共利益、公共安全的问题上严格以身作则，严格遵守法律法规，严格守住安全底线！
 
-提供高端海事服务 SKYTOPIA游艇港湾位于大湾区核心位置，规划提供超500个泊位，最大可容纳120米长的超级游艇，设有游艇港湾、海湾度假酒店及水上游乐活动区三大主题项目，将是亚洲顶级滨海地标，首期预计2028年建成。
-
-项目将直接拉动高端海事服务需求，涵盖游艇管理、船员招聘、保险经纪及维修保养等。
-
-目前已有来自中国内地、印尼、中东及新加坡的企业表达投资意向。
-
-亚太超级游艇协会执行董事Suzy Rayment(苏茜·雷蒙特)指出，游艇产业能为香港带来完整服务生态系统，香港业界将整体受益。
+来源：@公安部交通管理局、环球网 编辑：韩娇娇 责编：张曦 (中新网微信公众号)
 
 ## 相关推荐
 
-- 2026-06-29 14:35 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 14:39 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-29 14:28 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 14:32 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-29 14:34 - [TOP 无畏契约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-29 14:33 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 14:14 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 14:22 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-29 14:19 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 14:40 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 14:19 - [巴基斯坦军方打死29名武装分子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-29 14:17 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 14:28 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 14:29 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-29 14:36 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 14:46 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-29 14:40 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-29 14:18 - [手游300亿数据或被军事化运用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-29 14:39 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-29 14:36 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-29 14:23 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-29 14:40 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-29 14:31 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-29 14:40 - [新一代影后杨紫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 14:27 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 14:43 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 14:24 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:12 - [逆天祖国人](https://www.share.minike.top/Article/details/8793275368.shtml)
-- 2026-06-29 14:17 - [艾莎唱出了多少牛马的心声🥹](http://www.share.kurohicncr.top/Article/details/70874.shtml)
-- 2026-06-29 14:35 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/6769338.shtml)
-- 2026-06-29 14:34 - [新一代影后杨紫](https://www.blog.minike.top/Article/details/69297.shtml)
-- 2026-06-29 14:24 - [爱情有烟火你是知道我爱看什么的](http://www.blog.minike.top/Article/details/945327.shtml)
-- 2026-06-29 14:15 - [爸爸当家](http://www.share.minike.top/Article/details/5491465732.shtml)
-- 2026-06-29 14:15 - [恋与深空评分暴跌至1.8](http://www.blog.minike.top/Article/details/26616017550.shtml)
-- 2026-06-29 14:27 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/92054.shtml)
-- 2026-06-29 14:15 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/92389276.shtml)
-- 2026-06-29 14:31 - [杨紫下沉市场口碑](https://www.share.minike.top/Article/details/05796.shtml)
-- 2026-06-29 14:36 - [绘画区你赢了](http://www.share.minike.top/Article/details/3022734.shtml)
-- 2026-06-29 14:27 - [四川宜宾地震致13人受轻微伤](https://www.share.minike.top/Article/details/450733.shtml)
-- 2026-06-29 14:24 - [美媒：空警-3000服役即成全球最强](http://www.share.minike.top/Article/details/297322002.shtml)
-- 2026-06-29 14:41 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/34681430.shtml)
-- 2026-06-29 14:21 - [时光音乐会](http://www.blog.minike.top/Article/details/76745025542.shtml)
+- 2026-06-29 14:38 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/61837088469.shtml)
+- 2026-06-29 14:27 - [强⁶](http://www.share.kurohicncr.top/Article/details/3174506710.shtml)
+- 2026-06-29 14:23 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/4183384.shtml)
+- 2026-06-29 14:25 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/3614805847.shtml)
+- 2026-06-29 14:22 - [锐评浪姐7总决赛](http://www.blog.minike.top/Article/details/94504.shtml)
+- 2026-06-29 14:25 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/311276.shtml)
+- 2026-06-29 14:26 - [韩国主帅洪明甫辞职](http://www.blog.minike.top/Article/details/49479917.shtml)
+- 2026-06-29 14:25 - [扫黑风暴](http://www.blog.minike.top/Article/details/819662.shtml)
+- 2026-06-29 14:39 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/927665072106.shtml)
+- 2026-06-29 14:45 - [A股](http://www.blog.minike.top/Article/details/06398.shtml)
+- 2026-06-29 14:30 - [TLAW vs DCG MSI](http://www.blog.kurohicncr.top/Article/details/2378888387.shtml)
+- 2026-06-29 14:36 - [血糖高的人能吃西瓜吗](https://www.share.minike.top/Article/details/1664129744.shtml)
+- 2026-06-29 14:21 - [男子月薪五千卖房借贷给女友转账百万](https://www.blog.kurohicncr.top/Article/details/5960608.shtml)
+- 2026-06-29 14:38 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.minike.top/Article/details/83804.shtml)
+- 2026-06-29 14:47 - [papi酱回应毕业4年零收入](http://www.blog.kurohicncr.top/Article/details/31943912400.shtml)

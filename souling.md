@@ -1,60 +1,61 @@
-# 特朗普谈枪击事件：“我们活在一个疯狂的世界”
+# 超百万亿贷款到期！银行迎战资产端“大考”
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-上周六，白宫记者协会晚宴场外出现疑似枪手。美国总统特朗普表示，不知道自己是否是枪手的直接目标。事发时，他和多位政府官员均在晚宴现场。当地时间周日，哥伦比亚广播公司（CBS）主持人在采访中问道：“总统先生，您知道自己是否是枪手的目标吗？”“我不知道，”特朗普回答道。特朗普表示，他已经审阅了执法部门发现的与上周六宴会厅外开枪嫌疑人有关的文字材料。官员们称，这些文字显示，嫌疑枪手的目
+中国基金报记者 马嘉昕 继年初“天量”定期存款到期引发市场关注后，一场关于银行业资产端的考验也悄然来临。据国联民生证券测算，预计2026年贷款到期规模为104.1万亿元，同比增加9.1万亿元，创历史新高。同时，分季度来看，今年贷款到期节奏靠后，二季度开始信贷到期压力加剧。 记者从多位银行一线从业人员处了解，当前贷款新增与续贷压力普遍不低，而这种对贷款投放的“焦虑”，在区域性中小
 
 ## 正文
 
-上周六，白宫记者协会晚宴场外出现疑似枪手。
+中国基金报记者 马嘉昕 继年初“天量”定期存款到期引发市场关注后，一场关于银行业资产端的考验也悄然来临。
 
-美国总统特朗普表示，不知道自己是否是枪手的直接目标。
+据国联民生证券测算，预计2026年贷款到期规模为104.1万亿元，同比增加9.1万亿元，创历史新高。
 
-事发时，他和多位政府官员均在晚宴现场。
+同时，分季度来看，今年贷款到期节奏靠后，二季度开始信贷到期压力加剧。
 
-当地时间周日，哥伦比亚广播公司（CBS）主持人在采访中问道：“总统先生，您知道自己是否是枪手的目标吗？
+记者从多位银行一线从业人员处了解，当前贷款新增与续贷压力普遍不低，而这种对贷款投放的“焦虑”，在区域性中小银行范畴中尤为突出。
 
-”“我不知道，”特朗普回答道。
+在业内看来，在当前“资产荒”环境背景下，优质政府项目被化债置换，头部企业更多转向直接融资，对银行业来讲，找到安全、合意的新资产难度在逐渐增加。
 
-特朗普表示，他已经审阅了执法部门发现的与上周六宴会厅外开枪嫌疑人有关的文字材料。
+超百万亿元级贷款到期潮的来袭，也正倒逼银行业直面资产质量管控、净息差维稳、业务结构转型三重严峻考验，一场重塑行业发展模式的深度变革正在开启。
 
-官员们称，这些文字显示，嫌疑枪手的目标是特朗普政府官员，还写道面对本届政府的所作所为，他再也无法袖手旁观。
+年内贷款到期规模预计达104.1万亿元 在业内看来，当前“天量”贷款集中到期并非短期突发，而是此前信贷投放周期的必然结果。
 
-被问及上周六当时有多担心会出现伤亡，特朗普停顿了一下。
+东方金诚首席宏观分析师王青表示，在2020年至2023年，为支持企业纾困，银行显著加大信贷投放力度，这些贷款的中长期贷款占比相对较高，在今年会迎来到期高峰。
 
 ## 相关推荐
 
-- 2026-06-29 14:41 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-29 14:38 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-29 14:37 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-29 14:31 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-29 14:19 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-29 14:28 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-29 14:23 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-29 14:32 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-29 14:40 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-29 14:19 - [俄称继续推进 乌称打击俄军设施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 14:23 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 14:36 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-29 14:22 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-29 14:22 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-29 14:29 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 14:40 - [恋与深空底线不该被娱乐化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 14:39 - [世界杯用球成部分门将噩梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 14:31 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-29 14:27 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 14:42 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 14:23 - [韩国队启程回国众将回避镜头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 14:34 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 14:18 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-29 14:34 - [沙特足协主席发布声明主动请辞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 14:39 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-29 14:31 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 14:37 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 14:39 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-29 14:31 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:37 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/447390.shtml)
-- 2026-06-29 14:24 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/27572357.shtml)
-- 2026-06-29 14:26 - [爸爸当家](http://www.share.kurohicncr.top/Article/details/715958437629.shtml)
-- 2026-06-29 14:35 - [世界杯用球成部分门将噩梦](http://www.blog.minike.top/Article/details/394753203802.shtml)
-- 2026-06-29 14:28 - [世界杯用球成部分门将噩梦](https://www.share.minike.top/Article/details/2092767.shtml)
-- 2026-06-29 14:24 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/373084077.shtml)
-- 2026-06-29 14:21 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/74551256.shtml)
-- 2026-06-29 14:31 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/9283448.shtml)
-- 2026-06-29 14:24 - [金刚川](http://www.blog.kurohicncr.top/Article/details/0908379595.shtml)
-- 2026-06-29 14:22 - [中餐厅南北饮食差异](http://www.blog.kurohicncr.top/Article/details/36577002.shtml)
-- 2026-06-29 14:16 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/9566386460.shtml)
-- 2026-06-29 14:41 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.minike.top/Article/details/03706463.shtml)
-- 2026-06-29 14:18 - [韩媒破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/92584373.shtml)
-- 2026-06-29 14:30 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/55727.shtml)
-- 2026-06-29 14:41 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/223357627481.shtml)
+- 2026-06-29 14:32 - [詹俊预测德国大胜巴拉圭](https://www.blog.minike.top/Article/details/6824125.shtml)
+- 2026-06-29 14:43 - [张一山回应与杨紫友情](http://www.blog.minike.top/Article/details/908978405771.shtml)
+- 2026-06-29 14:37 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/515989.shtml)
+- 2026-06-29 14:44 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/6785357872.shtml)
+- 2026-06-29 14:44 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/042503.shtml)
+- 2026-06-29 14:42 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/522514.shtml)
+- 2026-06-29 14:32 - [毕业群都在出什么东西](https://www.blog.minike.top/Article/details/30288985873.shtml)
+- 2026-06-29 14:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/885478.shtml)
+- 2026-06-29 14:22 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/10285573970.shtml)
+- 2026-06-29 14:26 - [韩国队启程回国众将回避镜头](https://www.share.kurohicncr.top/Article/details/70597.shtml)
+- 2026-06-29 14:30 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/946348736390.shtml)
+- 2026-06-29 14:19 - [森保一：日本队要亲手改写历史](https://www.share.kurohicncr.top/Article/details/45670967.shtml)
+- 2026-06-29 14:47 - [发反科学内容为何会有200万粉丝](http://www.share.minike.top/Article/details/6990305.shtml)
+- 2026-06-29 14:26 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/603171190204.shtml)
+- 2026-06-29 14:18 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/76025600939.shtml)

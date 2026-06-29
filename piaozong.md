@@ -1,60 +1,56 @@
-# DeepSeek V4引爆，港股芯片大反攻！规模最大港股通信息技术ETF（159131）续涨2.33%获资金爆买5900万份！
+# 氟化工、锂电猛攻，华宝基金化工ETF（516020）盘中涨超1%！机构高呼盈利底部或现
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-4月27日，港股硬科技延续上周五涨势继续反攻，鸿腾精密、澜起科技、高伟电子涨超10%，中芯国际、华虹半导体涨超5%，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）早盘跳空高开后维持高位震荡，场内收涨2.33%强势连阳！全天宽幅溢价，显示资金持续涌入，单日资金申购5900万份，净申购2800万份。 自3月31日触底反弹以来，港股通信息技术ETF华宝（1591
+化工板块今日（6月1日）吹响反攻号角！反映化工板块整体走势的化工ETF华宝（516020）开盘后迅速拉升，盘中场内价格最高涨幅达到1.27%，截至发稿，涨0.92%。 成份股方面，氟化工、锂电、合成树脂等板块部分个股涨幅居前。截至发稿，巨化股份涨超7%，圣泉集团涨超6%，联泓新科、三美股份、星源材质等亦涨幅居前。 长江证券表示，《“十五五”规划纲要》提出“建设强大国内市场，加快
 
 ## 正文
 
-4月27日，港股硬科技延续上周五涨势继续反攻，鸿腾精密、澜起科技、高伟电子涨超10%，中芯国际、华虹半导体涨超5%，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）早盘跳空高开后维持高位震荡，场内收涨2.33%强势连阳！
+化工板块今日（6月1日）吹响反攻号角！
 
-全天宽幅溢价，显示资金持续涌入，单日资金申购5900万份，净申购2800万份。
+反映化工板块整体走势的化工ETF华宝（516020）开盘后迅速拉升，盘中场内价格最高涨幅达到1.27%，截至发稿，涨0.92%。
 
-自3月31日触底反弹以来，港股通信息技术ETF华宝（159131）标的指数——中证港股通信息技术综合指数（简称港股通信息C）累计涨幅超20%，同期恒生科技、港股通科技的涨幅分别为5.52%、7.64%，港股通信息C指数的锐度和弹性遥遥领先。
+成份股方面，氟化工、锂电、合成树脂等板块部分个股涨幅居前。
 
-统计区间：2026.3.31-2026.4.27。
+截至发稿，巨化股份涨超7%，圣泉集团涨超6%，联泓新科、三美股份、星源材质等亦涨幅居前。
 
-港股通信息C指数2021-2025年年度历史收益分别为：-9.54%、-34.47%、-0.25%、21.58%、39.30%。
+长江证券表示，《“十五五”规划纲要》提出“建设强大国内市场，加快构建新发展格局”，目标中提到“居民消费率明显提高，内需拉动经济增长主动力作用持续增强等”。
 
-指数过往业绩不预示未来表现。
+部分存量市场替换需求有望带动上游化工品消费：消费建材需求发生质变，目前住宅翻新需求占比接近 50%，预计未来有望达到近 70%，消费建材上游化工品如树脂、颜料等需求有望得到存量翻新的拉动。
 
-DeepSeek-V4 推进技术创新，在超长上下文、Agent 能力等方面实现领先，算力芯片、超节点等国产算力相关产业链有望深度受益。
+展望后市，长江证券表示，看好中国化工行业全球化崛起，建议聚焦优质龙头无论从单一产品角度，还是从总量角度论证，我国化工品均有着不菲的直接或间接出口占比，我国化工品供应主要对应全球消费，预计全球化工品需求有望稳中向好。
 
-东方证券直言，部分投资者低估了本次DeepSeek-V4发布对于国产算力产业链的带动。
+中银证券指出，考虑到本轮行业扩产已近尾声，“双碳”、“反内卷”等措施有望催化行业盈利底部修复，同时新材料受益于下游需求的快速发展，有望开启新一轮高成长，长期来看化工产业链全球市占率与竞争力持续提升。
 
 ## 相关推荐
 
-- 2026-06-29 14:35 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 14:35 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-29 14:25 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 14:24 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 14:14 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 14:13 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-29 14:26 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-29 14:26 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-29 14:18 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-29 14:31 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-29 14:33 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-29 14:23 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 14:25 - [高考志愿今起开始填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-29 14:37 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 14:28 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-29 14:29 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-29 14:47 - [比亚迪为什么卖得越多市值越低](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-29 14:31 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 14:29 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 14:39 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 14:24 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-29 14:33 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-29 14:28 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 14:37 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:27 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/4104969036.shtml)
-- 2026-06-29 14:25 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/6681980.shtml)
-- 2026-06-29 14:19 - [佛得角到底在哪个“角”](https://www.share.minike.top/Article/details/83522.shtml)
-- 2026-06-29 14:29 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.minike.top/Article/details/33489.shtml)
-- 2026-06-29 14:28 - [女生雨天开车发现雨刮条被掰走](https://www.blog.kurohicncr.top/Article/details/16912779519.shtml)
-- 2026-06-29 14:40 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/141789020334.shtml)
-- 2026-06-29 14:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/373510.shtml)
-- 2026-06-29 14:14 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.minike.top/Article/details/30067.shtml)
-- 2026-06-29 14:40 - [papi酱回应毕业4年零收入](https://www.share.minike.top/Article/details/3649005989.shtml)
-- 2026-06-29 14:31 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/914296.shtml)
-- 2026-06-29 14:30 - [马斯克也站到了光里](http://www.share.kurohicncr.top/Article/details/737524.shtml)
-- 2026-06-29 14:25 - [普京：俄面临命运攸关时刻](http://www.blog.minike.top/Article/details/517327658.shtml)
-- 2026-06-29 14:40 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.minike.top/Article/details/582852959961.shtml)
-- 2026-06-29 14:16 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/59812.shtml)
-- 2026-06-29 14:25 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/1835997078.shtml)
+- 2026-06-29 14:38 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/135758296001.shtml)
+- 2026-06-29 14:46 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/126067266.shtml)
+- 2026-06-29 14:34 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/72415.shtml)
+- 2026-06-29 14:38 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/01685043684.shtml)
+- 2026-06-29 14:45 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/50211797622.shtml)
+- 2026-06-29 14:27 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/40121092082.shtml)
+- 2026-06-29 14:38 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/225256.shtml)
+- 2026-06-29 14:20 - [青春环游记第三季](https://www.share.minike.top/Article/details/5923980821.shtml)
+- 2026-06-29 14:45 - [乔家的儿女](http://www.share.minike.top/Article/details/29571560620.shtml)
+- 2026-06-29 14:42 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/6965436043.shtml)
+- 2026-06-29 14:25 - [人民日报评“AI脸看腻了”](https://www.blog.minike.top/Article/details/6399410.shtml)
+- 2026-06-29 14:46 - [去了一趟潮汕。](https://www.blog.minike.top/Article/details/52081007.shtml)
+- 2026-06-29 14:41 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/1352328.shtml)
+- 2026-06-29 14:46 - [迈巴赫提车第二天发现大灯起雾](http://www.share.kurohicncr.top/Article/details/1537415.shtml)
+- 2026-06-29 14:33 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/0515816246.shtml)

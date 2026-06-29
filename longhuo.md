@@ -1,57 +1,58 @@
-# 文旅部：实施强迫购物治理成效与旅游景区等级评定挂钩
+# 派拓网络股价年内飙升91%，市场聚焦周二财报
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-中新网4月27日电 文化和旅游部27日举行2026年第一季度例行新闻发布会。会上，文化和旅游部市场管理司司长侯振刚表示，将实施强迫购物治理成效与旅游景区等级评定挂钩。 侯振刚介绍，近年来，“文旅热”持续升温，“诗和远方”成为人民群众幸福感、获得感的重要来源。但部分地区强迫购物等违法违规现象时有发生，侵害游客合法权益，扰乱市场秩序，影响了旅游业的高质量发展。为更好保障广大游客权益
+网络安全巨头派拓网络将于6月2日盘后公布2026财年第三季度财报。在股价年内累计上涨约91%、过去一个月涨幅超过55%的强劲势头下，市场对这份答卷的期待值已被推至极高水平。 根据华尔街普遍预期，派拓网络第三季度非GAAP每股收益预计为0.79美元，营收预计约为29.4亿美元，同比增长超过28%。公司此前给出的营收指引为29.41亿至29.45亿美元，每股收益指引为0.78至0.
 
 ## 正文
 
-中新网4月27日电 文化和旅游部27日举行2026年第一季度例行新闻发布会。
+网络安全巨头派拓网络将于6月2日盘后公布2026财年第三季度财报。
 
-会上，文化和旅游部市场管理司司长侯振刚表示，将实施强迫购物治理成效与旅游景区等级评定挂钩。
+在股价年内累计上涨约91%、过去一个月涨幅超过55%的强劲势头下，市场对这份答卷的期待值已被推至极高水平。
 
-侯振刚介绍，近年来，“文旅热”持续升温，“诗和远方”成为人民群众幸福感、获得感的重要来源。
+根据华尔街普遍预期，派拓网络第三季度非GAAP每股收益预计为0.79美元，营收预计约为29.4亿美元，同比增长超过28%。
 
-但部分地区强迫购物等违法违规现象时有发生，侵害游客合法权益，扰乱市场秩序，影响了旅游业的高质量发展。
+公司此前给出的营收指引为29.41亿至29.45亿美元，每股收益指引为0.78至0.80美元，与市场预期基本吻合。
 
-为更好保障广大游客权益，为大家提供一个放心、安心、舒心的出游环境，文化和旅游部与公安部、国家市场监督管理总局等部门协同配合，从2025年起，在全国范围内开展旅游市场强迫购物集中整治工作，取得了一些成效，但离群众要求还有不少距离，2026年，将联合相关部门持续深化集中整治工作。
+过去三个月，多家华尔街机构在财报前密集上调目标价。
 
-主要工作举措如下： 一是突出“铁腕治理”，从严从重打击违法违规行为。
+摩根大通将目标价从200美元上调至300美元，维持“买入”评级；Robert W． Baird将目标价从265美元上调至300美元；Jefferies同样将目标价上调至300美元。
 
-保持高压严打态势，坚持露头就打、重拳出击，围绕旅行社、旅游购物店、导游、在线旅游平台四类主体，重点整治虚假宣传、以购养游、层层转包、不规范签订旅游合同等问题，深入纠治无证经营、强迫购物等违法违规行为。
+分析师普遍看好公司的“平台化”战略持续推进、AI驱动的安全需求增长以及下一代安全产品的渗透率提升。
 
-对不法分子以暴力威胁手段强迫交易、骗取旅游团费等问题，加大联合办案和集中办案力度，对严重侵害游客合法权益、严重破坏市场秩序的重点案件进行挂牌督办，一查到底。
+第二季度数据显示，公司下一代安全年度经常性收入同比增长33%至63.3亿美元，平台化客户数量达1550家，同比增长35%。
 
 ## 相关推荐
 
-- 2026-06-29 14:23 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 14:22 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-29 14:30 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-29 14:32 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-29 14:22 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-29 14:25 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 14:23 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 14:21 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 14:34 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 14:39 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 14:20 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 14:45 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-29 14:47 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-29 14:46 - [实习期把公司领导开除了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 14:19 - [3D打印不是工业革命，它是……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 14:38 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-29 14:20 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 14:35 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 14:33 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 14:40 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 14:44 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 14:42 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 14:39 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:14 - [TI2026参赛战队出炉](http://www.blog.kurohicncr.top/Article/details/5045480288.shtml)
-- 2026-06-29 14:18 - [国家体育总局政策法规司原副司长获刑](http://www.blog.kurohicncr.top/Article/details/3405322087.shtml)
-- 2026-06-29 14:15 - [毕业群都在出什么东西](https://www.share.minike.top/Article/details/3802065572.shtml)
-- 2026-06-29 14:16 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/22774572346.shtml)
-- 2026-06-29 14:38 - [在委侨团负责人：家乡的帮助很及时](https://www.share.kurohicncr.top/Article/details/968357.shtml)
-- 2026-06-29 14:32 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/3614810.shtml)
-- 2026-06-29 14:22 - [媒体：网络测评不能只剩“生意”](http://www.blog.kurohicncr.top/Article/details/981998602112.shtml)
-- 2026-06-29 14:15 - [利率一再降 “存款搬家”搬去哪](http://www.blog.minike.top/Article/details/87443134.shtml)
-- 2026-06-29 14:15 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/545238.shtml)
-- 2026-06-29 14:17 - [四川宜宾地震](https://www.share.minike.top/Article/details/640154707902.shtml)
-- 2026-06-29 14:15 - [Agent带来token消耗爆炸](http://www.blog.kurohicncr.top/Article/details/867139695.shtml)
-- 2026-06-29 14:37 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.kurohicncr.top/Article/details/2054359993.shtml)
-- 2026-06-29 14:29 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/300197244.shtml)
-- 2026-06-29 14:35 - [Agent带来token消耗爆炸](http://www.share.minike.top/Article/details/47761.shtml)
-- 2026-06-29 14:40 - [在委侨团负责人：家乡的帮助很及时](http://www.blog.kurohicncr.top/Article/details/442284.shtml)
+- 2026-06-29 14:33 - [韩媒破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/983518.shtml)
+- 2026-06-29 14:38 - [一生一世](http://www.share.minike.top/Article/details/6029395027.shtml)
+- 2026-06-29 14:38 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/49500.shtml)
+- 2026-06-29 14:18 - [日本主帅：对战胜巴西很有信心](http://www.share.minike.top/Article/details/86248585.shtml)
+- 2026-06-29 14:35 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/11253235.shtml)
+- 2026-06-29 14:34 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/20994736.shtml)
+- 2026-06-29 14:36 - [当我回母校教书](https://www.blog.kurohicncr.top/Article/details/2939717311.shtml)
+- 2026-06-29 14:28 - [NBA交易](https://www.blog.minike.top/Article/details/19003.shtml)
+- 2026-06-29 14:37 - [共享单车“价格刺客”79分钟30元](https://www.share.kurohicncr.top/Article/details/1650929298.shtml)
+- 2026-06-29 14:36 - [广东一地发现极危植物新物种](http://www.share.kurohicncr.top/Article/details/152530.shtml)
+- 2026-06-29 14:36 - [绘画区你赢了](https://www.blog.minike.top/Article/details/43499246856.shtml)
+- 2026-06-29 14:35 - [吴建豪老婆](http://www.share.kurohicncr.top/Article/details/883466.shtml)
+- 2026-06-29 14:44 - [我国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/86273.shtml)
+- 2026-06-29 14:37 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/62820920184.shtml)
+- 2026-06-29 14:33 - [吴昕要助理买的药6年前已停产](http://www.share.kurohicncr.top/Article/details/60437142.shtml)

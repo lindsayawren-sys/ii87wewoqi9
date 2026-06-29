@@ -1,59 +1,56 @@
-# 财务造假、资金占用！一夜之间7家A股公司被查被罚，证监会重拳出击
+# 光大期货：6月2日金融日报
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨崔文静 4月24日，又有七家上市公司被中国证监会或地方证监局点名。 其中，神马股份、黑芝麻（含公司及时任董事长）因涉嫌信息披露违法违规被立案调查；行云科技、ST嘉澳（维权）、ST章鼓（维权）、ST达华（维权）、ST海泰（维权）等5家公司则收到了《行政处
+股指： （王东灜，从业资格号：F03087149；交易咨询资格号：Z0019537） 昨日，A股市场震荡收跌，Wind全A下跌0.76%，成交额2.9万亿元。中证1000指数下跌0.76%，中证500指数下跌1.02%，沪深300指数下跌0.98%，上证50指数下跌0.94%。A股市场2026年一季报表现亮眼。 26Q1全A剔除金融营收同比增速5.2%，大幅高于25Q3的0.6
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+股指： （王东灜，从业资格号：F03087149；交易咨询资格号：Z0019537） 昨日，A股市场震荡收跌，Wind全A下跌0.76%，成交额2.9万亿元。
 
-记者丨崔文静 4月24日，又有七家上市公司被中国证监会或地方证监局点名。
+中证1000指数下跌0.76%，中证500指数下跌1.02%，沪深300指数下跌0.98%，上证50指数下跌0.94%。
 
-其中，神马股份、黑芝麻（含公司及时任董事长）因涉嫌信息披露违法违规被立案调查；行云科技、ST嘉澳（维权）、ST章鼓（维权）、ST达华（维权）、ST海泰（维权）等5家公司则收到了《行政处罚决定书》。
+A股市场2026年一季报表现亮眼。
 
-值得注意的是，就在几天前的4月22日，*ST数源（维权）、傲农生物（维权）、欢瑞世纪（维权）、兰石重装（维权）4家公司也刚被立案调查。
+26Q1全A剔除金融营收同比增速5.2%，大幅高于25Q3的0.6%，是2023年以来的最高值。
 
-也就是说，短短5天内，已有11家上市公司披露被查或被罚。
+营收同比增速可以看做是上市公司资产端收益率，该数值过去三年来首次超过主要资金利率，这代表我国实体经济在总量层面进入新的通胀阶段。
 
-实际上，一周数家乃至十余家公司被查被罚，已成为监管新常态。
+此外，全A剔除金融在一季度的净利润同比增速为11.7%，盈利端同步继续修复。
 
-这并不意味着问题公司数量在增多，恰恰相反，它是监管效率提升、技术手段升级的结果。
+同时，A股板块间分化严重。
 
-随着存量问题被不断出清，上市公司的合规意识将逐步增强，假以时日，A股上市公司整体质量有望显著提升。
+一方面，以AI为代表的科技制造业和有色等周期板块增速迅猛。
 
 ## 相关推荐
 
-- 2026-06-29 14:17 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-29 14:31 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-29 14:41 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 14:21 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 14:29 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-29 14:20 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-29 14:26 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-29 14:33 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 14:19 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-29 14:37 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-29 14:26 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 14:25 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-29 14:31 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-29 14:21 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 14:35 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 14:27 - [世界杯用球成部分门将噩梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-29 14:18 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-29 14:43 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-29 14:38 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-29 14:21 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-29 14:20 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 14:23 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 14:40 - [《昨夜将至》为何是悬疑黑马](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:23 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.blog.kurohicncr.top/Article/details/29889948094.shtml)
-- 2026-06-29 14:28 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.kurohicncr.top/Article/details/9621664.shtml)
-- 2026-06-29 14:34 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/8957219924.shtml)
-- 2026-06-29 14:17 - [下飞机后，我做了个很蠢的决定......](http://www.share.minike.top/Article/details/536588579841.shtml)
-- 2026-06-29 14:34 - [韩国队出局引发意大利球迷全网狂欢](https://www.share.kurohicncr.top/Article/details/84741.shtml)
-- 2026-06-29 14:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/8167140.shtml)
-- 2026-06-29 14:24 - [汪东城回应45岁婚约](https://www.share.minike.top/Article/details/3766386.shtml)
-- 2026-06-29 14:16 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/027266.shtml)
-- 2026-06-29 14:31 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/69549293.shtml)
-- 2026-06-29 14:14 - [6月我国降水为何偏多](https://www.share.minike.top/Article/details/7463046.shtml)
-- 2026-06-29 14:18 - [双高胎](https://www.share.minike.top/Article/details/887981953.shtml)
-- 2026-06-29 14:31 - [薛之谦演唱会](https://www.share.kurohicncr.top/Article/details/022891.shtml)
-- 2026-06-29 14:39 - [欧洲多国激辩“装不装空调”](http://www.blog.minike.top/Article/details/1425157.shtml)
-- 2026-06-29 14:32 - [四川宜宾地震已致13人受轻微伤](http://www.blog.minike.top/Article/details/62054446.shtml)
-- 2026-06-29 14:34 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/141885843610.shtml)
+- 2026-06-29 14:36 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/12083044.shtml)
+- 2026-06-29 14:29 - [恋与深空失控领地](https://www.share.kurohicncr.top/Article/details/1750925.shtml)
+- 2026-06-29 14:44 - [评论员：高温撕开欧洲“遮羞布”](https://www.blog.minike.top/Article/details/6927690.shtml)
+- 2026-06-29 14:40 - [自然资源部派专家赴宜宾地震影响区](http://www.share.minike.top/Article/details/51005049.shtml)
+- 2026-06-29 14:37 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/8222709.shtml)
+- 2026-06-29 14:34 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/601175767.shtml)
+- 2026-06-29 14:34 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/893635146.shtml)
+- 2026-06-29 14:33 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/6827001.shtml)
+- 2026-06-29 14:46 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/13474935119.shtml)
+- 2026-06-29 14:33 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/5989740823.shtml)
+- 2026-06-29 14:42 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/407602097.shtml)
+- 2026-06-29 14:34 - [哈兰德这该死的胜负欲](https://www.blog.kurohicncr.top/Article/details/667691.shtml)
+- 2026-06-29 14:33 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/240781.shtml)
+- 2026-06-29 14:26 - [Mrbeast的30天不吃饭挑战](https://www.share.kurohicncr.top/Article/details/564140224.shtml)
+- 2026-06-29 14:41 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.kurohicncr.top/Article/details/05886966.shtml)

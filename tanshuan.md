@@ -1,60 +1,57 @@
-# 第三届世界音乐人工智能大会在京举行 聚焦行业前沿与产业热点
+# 建设银行：孙孝坤正式就任执行董事
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-中新网北京4月27日电 (记者 应妮)第三届世界音乐人工智能大会26日在中央音乐学院开幕。来自音乐人工智能、音乐脑科学、数字艺术、音乐教育及产业应用等领域的专家学者、行业代表和师生代表参加活动。 开幕式上，中国人工智能学会理事长、中国工程院院士戴琼海通过视频致辞表示，音乐人工智能作为艺术与科技交叉融合的重要方向，正在展现出广阔的发展前景。希望大会进一步汇聚学术界、艺术界与产业界
+6月2日金融一线消息，建设银行发布公告，2026年4月29日，中国建设银行股份有限公司2026年第一次临时股东会会议审议通过了关于选举孙孝坤担任建设银行执行董事的议案。国家金融监督管理总局现已核准孙孝坤的任职资格，孙孝坤正式就任建设银行执行董事。 简历显示，孙孝坤，1968年7月出生，中国国籍。自2026年3月起任建设银行党委副书记。2023年9月至2026年3月任中国农业发展
 
 ## 正文
 
-中新网北京4月27日电 (记者 应妮)第三届世界音乐人工智能大会26日在中央音乐学院开幕。
+6月2日金融一线消息，建设银行发布公告，2026年4月29日，中国建设银行股份有限公司2026年第一次临时股东会会议审议通过了关于选举孙孝坤担任建设银行执行董事的议案。
 
-来自音乐人工智能、音乐脑科学、数字艺术、音乐教育及产业应用等领域的专家学者、行业代表和师生代表参加活动。
+国家金融监督管理总局现已核准孙孝坤的任职资格，孙孝坤正式就任建设银行执行董事。
 
-开幕式上，中国人工智能学会理事长、中国工程院院士戴琼海通过视频致辞表示，音乐人工智能作为艺术与科技交叉融合的重要方向，正在展现出广阔的发展前景。
+简历显示，孙孝坤，1968年7月出生，中国国籍。
 
-希望大会进一步汇聚学术界、艺术界与产业界力量，推动音乐人工智能领域原创研究、关键技术突破与应用场景拓展。
+自2026年3月起任建设银行党委副书记。
 
-现场的四场主旨报告围绕音乐智能量化、数据声化、当代音乐的技术再语境化以及人工智能时代音乐学院未来形态等重大议题展开，集中呈现大会的学术高度、国际视野与思想深度。
+2023年9月至2026年3月任中国农业发展银行副行长；2023年5月至2023年9月任国家开发银行信息科技部总经理；2020年8月至2023年5月任国开证券股份有限公司董事长；2019年4月至2020年8月任国家开发银行巡视工作领导小组办公室主任；2017年5月至2019年4月任国开证券股份有限公司监事长；2016年6月至2017年5月任中非发展基金有限公司监事长；2010年10月至2016年6月先后任国家开发银行风险管理局副局长、信息科技局副局长兼数据运行中心主任、信息科技局副局长兼开发测试中心主任、人事局副局长。
 
-中央音乐学院教授、音乐人工智能系主任李小兵在其主旨报告中，基于中央音乐学院在音乐人工智能领域的系统探索，提出“机文主义”这一面向未来的理论设想，强调人工智能的深度介入正在改变艺术创作主体、意义生成机制和音乐教育结构。
+孙孝坤是高级经济师，1990年获复旦大学理学学士学位，2004年获暨南大学经济学硕士学位。
 
-在报告中，他进一步从哲学与制度层面讨论人工智能对音乐学院六个二级学科及七个专业方向可能带来的结构性重构，引发与会专家对未来音乐学院形态的深入思考。
-
-当天下午的学术论坛上，多位专家围绕音乐人工智能基础研究与跨学科前沿方向，以及表演科学与人工智能治理等议题展开交流。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 14:23 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 14:29 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-29 14:35 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 14:26 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 14:40 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 14:13 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 14:32 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-29 14:15 - [新一代影后杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-29 14:13 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-29 14:31 - [【独家】牧神记 第89集 明心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-29 14:33 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-29 14:27 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 14:36 - [媒体：高考后消费应量力而行适度有度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-29 14:30 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-29 14:30 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 14:20 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-29 14:24 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 14:20 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-29 14:38 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 14:42 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 14:36 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-29 14:23 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-29 14:20 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-29 14:31 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-29 14:36 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-29 14:38 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 14:42 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:23 - [papi酱回应毕业4年零收入](https://www.share.minike.top/Article/details/969012975979.shtml)
-- 2026-06-29 14:21 - [沙丘](https://www.share.kurohicncr.top/Article/details/53378.shtml)
-- 2026-06-29 14:21 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/59101.shtml)
-- 2026-06-29 14:35 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/28712425.shtml)
-- 2026-06-29 14:16 - [Mrbeast的30天不吃饭挑战](https://www.share.kurohicncr.top/Article/details/34546184.shtml)
-- 2026-06-29 14:30 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.blog.kurohicncr.top/Article/details/38358406.shtml)
-- 2026-06-29 14:12 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/06726935.shtml)
-- 2026-06-29 14:34 - [中餐厅南北饮食差异](https://www.blog.kurohicncr.top/Article/details/8199711.shtml)
-- 2026-06-29 14:35 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/255557792532.shtml)
-- 2026-06-29 14:23 - [韩国队如何把94%出线概率打到0%](https://www.share.kurohicncr.top/Article/details/9024351437.shtml)
-- 2026-06-29 14:27 - [papi酱回应毕业4年零收入](http://www.blog.minike.top/Article/details/58829.shtml)
-- 2026-06-29 14:27 - [《昨夜将至》为何是悬疑黑马](http://www.share.kurohicncr.top/Article/details/421058991.shtml)
-- 2026-06-29 14:35 - [一见倾心](https://www.share.kurohicncr.top/Article/details/15528226902.shtml)
-- 2026-06-29 14:20 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/2400382.shtml)
-- 2026-06-29 14:41 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.kurohicncr.top/Article/details/27061.shtml)
+- 2026-06-29 14:37 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/097118360.shtml)
+- 2026-06-29 14:34 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/49535341.shtml)
+- 2026-06-29 14:42 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/48389511570.shtml)
+- 2026-06-29 14:28 - [未来5年全国能源体系将呈现这些特征](http://www.share.minike.top/Article/details/44770484704.shtml)
+- 2026-06-29 14:21 - [千与千寻](https://www.share.kurohicncr.top/Article/details/950997.shtml)
+- 2026-06-29 14:45 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/39897310.shtml)
+- 2026-06-29 14:40 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.minike.top/Article/details/7394724399.shtml)
+- 2026-06-29 14:27 - [下飞机后，我做了个很蠢的决定......](https://www.blog.kurohicncr.top/Article/details/905097.shtml)
+- 2026-06-29 14:45 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/699738.shtml)
+- 2026-06-29 14:18 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/189030.shtml)
+- 2026-06-29 14:31 - [南非老帅布罗斯的梦没能做完](http://www.blog.minike.top/Article/details/074175.shtml)
+- 2026-06-29 14:20 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/27080526.shtml)
+- 2026-06-29 14:18 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/09685046.shtml)
+- 2026-06-29 14:22 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/3391160.shtml)
+- 2026-06-29 14:37 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/5032956841.shtml)

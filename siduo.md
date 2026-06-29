@@ -1,52 +1,57 @@
-# 原青海省地方金融监督管理局一级巡视员吴春庆被开除党籍
+# Genco航运董事会全票否决戴安娜航运最新收购要约
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-中央纪委国家监委网站讯 据青海省纪委监委消息：经中共青海省委批准，青海省纪委监委对原省地方金融监督管理局一级巡视员吴春庆严重违纪违法问题进行了立案审查调查。 经查，吴春庆丧失理想信念，背弃初心使命，搞投机钻营，结交政治骗子，“买官”被骗；无视中央八项规定精神，违规收受礼品礼金，无偿接受管理和服务对象提供的“管家式”服务；把公权力当作谋取私利的工具，利用职务便利或职权地位形成的便
+内容速览 Genco航运董事会以企业估值被严重低估为由，全票否决戴安娜航运修改后的收购报价。 Genco航运（股票代码：GNK，涨幅 0.46%）董事会全票拒绝戴安娜航运（股票代码：DSX，涨幅 3.39%）新一轮修订版主动收购要约，称该报价仍大幅低估公司本身及其所持资产价值。 Genco航运周二公告表示，公司联合外部财务与法律顾问对收购方案开展全面评估后，董事会作出上述决议；
 
 ## 正文
 
-中央纪委国家监委网站讯 据青海省纪委监委消息：经中共青海省委批准，青海省纪委监委对原省地方金融监督管理局一级巡视员吴春庆严重违纪违法问题进行了立案审查调查。
+内容速览 Genco航运董事会以企业估值被严重低估为由，全票否决戴安娜航运修改后的收购报价。
 
-经查，吴春庆丧失理想信念，背弃初心使命，搞投机钻营，结交政治骗子，“买官”被骗；无视中央八项规定精神，违规收受礼品礼金，无偿接受管理和服务对象提供的“管家式”服务；把公权力当作谋取私利的工具，利用职务便利或职权地位形成的便利条件为他人在工程项目承揽等方面谋利，并非法收受巨额财物。
+Genco航运（股票代码：GNK，涨幅 0.46%）董事会全票拒绝戴安娜航运（股票代码：DSX，涨幅 3.39%）新一轮修订版主动收购要约，称该报价仍大幅低估公司本身及其所持资产价值。
 
-吴春庆严重违反党的政治纪律和廉洁纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
+Genco航运周二公告表示，公司联合外部财务与法律顾问对收购方案开展全面评估后，董事会作出上述决议；经研判，本次收购对价低于Genco的净资产价值，且未包含控制权溢价。
 
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经中共青海省纪委常委会会议研究并报中共青海省委批准，决定给予吴春庆开除党籍处分；按规定取消其享受的待遇；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+戴安娜航运上周披露，拟以每股 24.80 美元的价格收购Genco全部流通股份，较此前 23.50 美元的首轮报价有所上调。
 
-（青海省纪委监委）责任编辑：曹睿潼
+戴安娜补充称，该收购价较其首次发收购邀约前一交易日（11 月 21 日）Genco收盘价溢价 39%。
+
+彼时戴安娜还指责，Genco始终不愿就并购事宜开展实质性磋商。
+
+Genco于周二再度驳斥该说法，并表态：只有戴安娜出具能够足额匹配公司资产内在价值、保障股东收益的报价，公司才愿意重启谈判会面。
+
+“自 2024 年 6 月起，我司首席执行官主动接洽戴安娜、探讨并购可能性，双方接洽已历时两年，” Genco表示，“合作洽谈期间，戴安娜一贯企图在未支付公允足额对价的前提下夺取公司控制权。
 
 ## 相关推荐
 
-- 2026-06-29 14:13 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-29 14:40 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-29 14:14 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-29 14:25 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 14:40 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 14:26 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-29 14:27 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-29 14:19 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-29 14:40 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 14:15 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 14:13 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 14:34 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-29 14:22 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 14:28 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 14:40 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-29 14:43 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 14:23 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 14:41 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 14:33 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-29 14:19 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 14:25 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 14:39 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-29 14:28 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:12 - [双高胎](https://www.share.kurohicncr.top/Article/details/342351.shtml)
-- 2026-06-29 14:26 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/678582.shtml)
-- 2026-06-29 14:27 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/657175844.shtml)
-- 2026-06-29 14:29 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.kurohicncr.top/Article/details/731803.shtml)
-- 2026-06-29 14:16 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/75631480.shtml)
-- 2026-06-29 14:25 - [恋与深空底线不该被娱乐化](http://www.share.kurohicncr.top/Article/details/899237363.shtml)
-- 2026-06-29 14:31 - [王楚钦首轮赢下国乒德比](https://www.blog.kurohicncr.top/Article/details/23028771.shtml)
-- 2026-06-29 14:19 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/8249191431.shtml)
-- 2026-06-29 14:19 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/550216171.shtml)
-- 2026-06-29 14:21 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/049993.shtml)
-- 2026-06-29 14:15 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.minike.top/Article/details/42813.shtml)
-- 2026-06-29 14:36 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/944787485984.shtml)
-- 2026-06-29 14:14 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/9879161.shtml)
-- 2026-06-29 14:29 - [如何“亲菌子”又“远小人儿”](http://www.blog.kurohicncr.top/Article/details/86271200.shtml)
-- 2026-06-29 14:34 - [美的空调 卡bug](https://www.share.minike.top/Article/details/71311.shtml)
+- 2026-06-29 14:46 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/65262291522.shtml)
+- 2026-06-29 14:27 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/991730548.shtml)
+- 2026-06-29 14:30 - [森保一：日本队要亲手改写历史](https://www.share.kurohicncr.top/Article/details/702046781387.shtml)
+- 2026-06-29 14:25 - [一见倾心](http://www.share.kurohicncr.top/Article/details/945149.shtml)
+- 2026-06-29 14:19 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/249676568.shtml)
+- 2026-06-29 14:24 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/33817.shtml)
+- 2026-06-29 14:30 - [在自己家不穿衣服犯法吗](http://www.blog.kurohicncr.top/Article/details/768997.shtml)
+- 2026-06-29 14:28 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/8607376.shtml)
+- 2026-06-29 14:22 - [王楚钦首轮赢下国乒德比](http://www.blog.kurohicncr.top/Article/details/9488354.shtml)
+- 2026-06-29 14:21 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/5378634717.shtml)
+- 2026-06-29 14:34 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.minike.top/Article/details/133257.shtml)
+- 2026-06-29 14:35 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/22677.shtml)
+- 2026-06-29 14:25 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/894399079188.shtml)
+- 2026-06-29 14:42 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/538619366.shtml)
+- 2026-06-29 14:34 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/00650862.shtml)

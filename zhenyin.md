@@ -1,58 +1,59 @@
-# 吉尔吉斯斯坦总理卡瑟马利耶夫会见董军
+# 英伟达携手宇树科技打造人形机器人平台
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-中新社北京4月27日电 4月27日，吉尔吉斯斯坦总理卡瑟马利耶夫在比什凯克会见到访的中国国防部长董军。 卡瑟马利耶夫说，当前吉中关系快速稳定发展，双方保持高度政治互信。吉方始终视中方为核心战略伙伴，将继续深化两国全面战略伙伴关系，加强在双多边平台特别是上合组织框架下的合作。当前国际局势动荡不安，不断出现新的安全挑战和威胁，双方继续推动军事领域务实合作，对于共同应对恐怖主义、极端
+核心要点 英伟达周一宣布，已选定中国人形机器人厂商宇树科技合作推出首款面向全球科研人员的机器人系统，斯坦福大学、苏黎世联邦理工学院等机构均为目标客户。 这套系统以宇树科技身高近 1.8 米的H2 人形机器人为载体，搭载英伟达Jetson Thor硬件平台，内置先进的布莱克韦尔架构图形处理器，可在设备端实现人工智能运算。 官方公告显示，整套测试设备还预装了英伟达面向人形机器人的
 
 ## 正文
 
-中新社北京4月27日电 4月27日，吉尔吉斯斯坦总理卡瑟马利耶夫在比什凯克会见到访的中国国防部长董军。
+核心要点 英伟达周一宣布，已选定中国人形机器人厂商宇树科技合作推出首款面向全球科研人员的机器人系统，斯坦福大学、苏黎世联邦理工学院等机构均为目标客户。
 
-卡瑟马利耶夫说，当前吉中关系快速稳定发展，双方保持高度政治互信。
+这套系统以宇树科技身高近 1.8 米的H2 人形机器人为载体，搭载英伟达Jetson Thor硬件平台，内置先进的布莱克韦尔架构图形处理器，可在设备端实现人工智能运算。
 
-吉方始终视中方为核心战略伙伴，将继续深化两国全面战略伙伴关系，加强在双多边平台特别是上合组织框架下的合作。
+官方公告显示，整套测试设备还预装了英伟达面向人形机器人的 AI 模型Isaac GR00T以及仿真系统。
 
-当前国际局势动荡不安，不断出现新的安全挑战和威胁，双方继续推动军事领域务实合作，对于共同应对恐怖主义、极端主义、分裂主义、跨国犯罪及其他安全威胁更具现实意义。
+机器人的机械手部由新加坡企业 Sharpa 提供。
 
-董军说，中吉是世代友好的好邻居、好朋友、好伙伴。
+据创投数据平台 PitchBook 信息，启明创投是宇树科技的投资方之一。
 
-在习近平主席和扎帕罗夫总统战略引领下，双边关系实现跨越式发展，全方位合作迈上新台阶。
+英伟达首席执行官黄仁勋预判，物理人工智能市场规模有望达到数万亿美元。
 
-近年来，两军关系保持蓬勃发展，各领域交流合作取得丰硕成果。
+他在上个月对投资者表示，未来五年机器人行业将迎来高速增长。
 
-中方愿与吉方一道，不断深化传统友谊，提升合作质效，加强多边平台协作，共同守卫好中吉发展振兴的和平环境，为动荡不安的世界注入更多正能量。
+黄仁勋当日在台北的主题演讲中介绍：“今天我们正式推出英伟达 Isaac Root 参考款人形机器人，整机完成高度集成。
 
 ## 相关推荐
 
-- 2026-06-29 14:31 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-29 14:23 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-29 14:33 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-29 14:36 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-29 14:14 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-29 14:20 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 14:12 - [薛之谦演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-29 14:22 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-29 14:19 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 14:16 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 14:17 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 14:33 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 14:29 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-29 14:24 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-29 14:46 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 14:25 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-29 14:25 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 14:27 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-29 14:25 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-29 14:46 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-29 14:21 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 14:24 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 14:33 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-29 14:36 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 14:30 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:28 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/00932.shtml)
-- 2026-06-29 14:38 - [TOP 无畏契约](http://www.blog.kurohicncr.top/Article/details/752953699891.shtml)
-- 2026-06-29 14:33 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.kurohicncr.top/Article/details/3069650871.shtml)
-- 2026-06-29 14:17 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/1002975.shtml)
-- 2026-06-29 14:32 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/75528.shtml)
-- 2026-06-29 14:18 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/65462356182.shtml)
-- 2026-06-29 14:38 - [FIFA回应佛得角队长被指控强奸](https://www.blog.minike.top/Article/details/483579917.shtml)
-- 2026-06-29 14:16 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/858546015.shtml)
-- 2026-06-29 14:29 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/7471030.shtml)
-- 2026-06-29 14:17 - [韩剧编剧又升级了](https://www.share.minike.top/Article/details/5489618.shtml)
-- 2026-06-29 14:28 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/796391291327.shtml)
-- 2026-06-29 14:20 - [河南考699分女生已接到清华大学电话](http://www.blog.minike.top/Article/details/35842253.shtml)
-- 2026-06-29 14:18 - [哈基米歌王争霸赛](http://www.blog.minike.top/Article/details/622624.shtml)
-- 2026-06-29 14:29 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.minike.top/Article/details/2462123.shtml)
-- 2026-06-29 14:20 - [恋与深空失控领地](https://www.blog.kurohicncr.top/Article/details/10977079.shtml)
+- 2026-06-29 14:41 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/17141742524.shtml)
+- 2026-06-29 14:18 - [周深双眼皮贴又掉了](http://www.blog.kurohicncr.top/Article/details/911872.shtml)
+- 2026-06-29 14:41 - [佛得角到底在哪个“角”](http://www.share.minike.top/Article/details/083628604.shtml)
+- 2026-06-29 14:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/90641.shtml)
+- 2026-06-29 14:46 - [斛珠夫人](https://www.blog.minike.top/Article/details/9726217894.shtml)
+- 2026-06-29 14:38 - [农发行总行专家委员会委员杜晓力被查](https://www.blog.kurohicncr.top/Article/details/5677101.shtml)
+- 2026-06-29 14:46 - [迈巴赫提车第二天发现大灯起雾](https://www.blog.minike.top/Article/details/060169771907.shtml)
+- 2026-06-29 14:44 - [在自己家不穿衣服犯法吗](http://www.blog.kurohicncr.top/Article/details/043692.shtml)
+- 2026-06-29 14:42 - [韩国队启程回国众将回避镜头](https://www.share.kurohicncr.top/Article/details/54833236.shtml)
+- 2026-06-29 14:34 - [辽宁葫芦岛一居民楼突发爆炸](http://www.share.kurohicncr.top/Article/details/14826226251.shtml)
+- 2026-06-29 14:24 - [下飞机后，我做了个很蠢的决定......](https://www.share.minike.top/Article/details/291123638.shtml)
+- 2026-06-29 14:41 - [A股](https://www.blog.minike.top/Article/details/942381006.shtml)
+- 2026-06-29 14:43 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.kurohicncr.top/Article/details/72888876.shtml)
+- 2026-06-29 14:41 - [和阿根廷球员家属一起看球](https://www.share.minike.top/Article/details/38758.shtml)
+- 2026-06-29 14:19 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/55384347.shtml)

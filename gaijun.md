@@ -1,59 +1,56 @@
-# 城堡证券高管称伊朗冲突风险消退 股债市场有望同步上涨
+# Regal Rexnord任命Mark Klossner为工业动力传动解决方案执行副总裁兼总裁
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-城堡证券表示，随着伊朗冲突逐渐接近避免升级的解决路径，股票和债券有望同步上涨，即便围绕霍尔木兹海峡的僵局仍在继续。 该公司EMEA固定收益销售主管Nohshad Shah在给客户的一份报告中写道，尽管正式协议仍难以达成，但美伊双方都有动机最终达成协议，因为进一步升级的成本过高。 Shah写道，特朗普已释放出缓和冲突、在中期选举前将重心转向国内事务的意愿，而伊朗则可能优先考虑经济
+Regal Rexnord Corporation（纽约证券交易所代码：RRX）今日宣布，任命Mark Klossner为执行副总裁兼工业动力传动解决方案（IPS）总裁，该任命立即生效。Klossner将接替Jerry Morton，后者在为Regal Rexnord服务11年后即将退休。Morton将继续担任执行副总裁直至2026年12月31日退休，以确保领导层平稳过渡。 K
 
 ## 正文
 
-城堡证券表示，随着伊朗冲突逐渐接近避免升级的解决路径，股票和债券有望同步上涨，即便围绕霍尔木兹海峡的僵局仍在继续。
+Regal Rexnord Corporation（纽约证券交易所代码：RRX）今日宣布，任命Mark Klossner为执行副总裁兼工业动力传动解决方案（IPS）总裁，该任命立即生效。
 
-该公司EMEA固定收益销售主管Nohshad Shah在给客户的一份报告中写道，尽管正式协议仍难以达成，但美伊双方都有动机最终达成协议，因为进一步升级的成本过高。
+Klossner将接替Jerry Morton，后者在为Regal Rexnord服务11年后即将退休。
 
-Shah写道，特朗普已释放出缓和冲突、在中期选举前将重心转向国内事务的意愿，而伊朗则可能优先考虑经济重建和内部稳定。
+Morton将继续担任执行副总裁直至2026年12月31日退休，以确保领导层平稳过渡。
 
-Shah表示，最有可能的结果是达成一项有限的框架协议，伊朗接受对核浓缩活动的部分限制，以换取适度、可逆的制裁缓解。
+Klossner的晋升反映了公司有序的内部继任计划。
 
-Shah写道：“归根结底，这与其说是一项全面协议，不如说是一项旨在争取时间、降低局势立即升级风险并稳定石油市场的冻结性安排，而无法解决根本争端。
+他于2023年3月通过收购Altra Industrial Motion加入公司，最初担任联轴器事业部高级副总裁兼总经理。
 
-对于那些一心关注霍尔木兹海峡重新开放的市场和投资者来说，这已经足够了。
+2024年6月，他晋升为联轴器和齿轮事业部集团总裁，负责管理约14亿美元的业务组合。
 
-” Shah表示，对于中央银行而言，地缘政治压力的缓解意味着欧洲和英国的政策制定者在加息方面可能会不及市场预期的幅度。
+在加入公司之前，Klossner在Altra Motion工作了19年，曾担任齿轮事业部总裁和联轴器事业部总裁。
 
-他表示，其中一个风险是，宽松的金融环境可能会加剧通胀，尤其是在美国，人工智能支出、财政刺激和劳动力供应紧张已经为物价提供了支撑。
+他拥有西北大学凯洛格管理学院的MBA学位和康奈尔大学材料科学与工程学士学位。
 
 ## 相关推荐
 
-- 2026-06-29 14:20 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 14:21 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-29 14:34 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 14:18 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-29 14:40 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-29 14:20 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-29 14:32 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 14:23 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 14:13 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-29 14:39 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 14:21 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 14:36 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 14:15 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-29 14:26 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-29 14:19 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 14:19 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 14:30 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-29 14:44 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 14:27 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 14:35 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 14:24 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 14:47 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-29 14:23 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/4012579.shtml)
-- 2026-06-29 14:12 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.share.kurohicncr.top/Article/details/817931332067.shtml)
-- 2026-06-29 14:17 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/077086956234.shtml)
-- 2026-06-29 14:36 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.minike.top/Article/details/65061.shtml)
-- 2026-06-29 14:19 - [胡光宇一审获刑13年](https://www.blog.kurohicncr.top/Article/details/5249412.shtml)
-- 2026-06-29 14:38 - [王楚钦周启豪爆分](http://www.blog.minike.top/Article/details/0616392.shtml)
-- 2026-06-29 14:36 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/42110.shtml)
-- 2026-06-29 14:26 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/45683.shtml)
-- 2026-06-29 14:38 - [韩媒破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/31570256904.shtml)
-- 2026-06-29 14:37 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.kurohicncr.top/Article/details/17221644667.shtml)
-- 2026-06-29 14:18 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/53983115.shtml)
-- 2026-06-29 14:40 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/58561180.shtml)
-- 2026-06-29 14:29 - [久坐小心“死臀综合征”](https://www.blog.kurohicncr.top/Article/details/113413.shtml)
-- 2026-06-29 14:24 - [极限挑战第一季](http://www.blog.minike.top/Article/details/5569286.shtml)
-- 2026-06-29 14:36 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/05580323230.shtml)
+- 2026-06-29 14:29 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.kurohicncr.top/Article/details/1908004.shtml)
+- 2026-06-29 14:41 - [梅朗雄主张法国退出北约](https://www.blog.kurohicncr.top/Article/details/9706903012.shtml)
+- 2026-06-29 14:41 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/8280797221.shtml)
+- 2026-06-29 14:20 - [毕业群都在出什么东西](https://www.blog.kurohicncr.top/Article/details/947540697681.shtml)
+- 2026-06-29 14:40 - [中方将20家日本实体列入关注名单](https://www.blog.kurohicncr.top/Article/details/44750.shtml)
+- 2026-06-29 14:29 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.kurohicncr.top/Article/details/371344192.shtml)
+- 2026-06-29 14:24 - [斗破苍穹](http://www.share.minike.top/Article/details/6529513.shtml)
+- 2026-06-29 14:47 - [市民骑哈啰单车79分钟付30元](http://www.blog.minike.top/Article/details/8871751316.shtml)
+- 2026-06-29 14:31 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/924530.shtml)
+- 2026-06-29 14:33 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/352972.shtml)
+- 2026-06-29 14:42 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/88928001663.shtml)
+- 2026-06-29 14:35 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.kurohicncr.top/Article/details/118428.shtml)
+- 2026-06-29 14:43 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.blog.minike.top/Article/details/569052575.shtml)
+- 2026-06-29 14:42 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/03661086716.shtml)
+- 2026-06-29 14:19 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.blog.minike.top/Article/details/8596887.shtml)

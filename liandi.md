@@ -1,58 +1,61 @@
-# 南方地区强降雨过程持续 北方地区多大风天气
+# 伊朗侨领马正华：构建 “侨团搭台，企业唱戏” 的中伊务实合作格局模式
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-中新网4月27日电 据中央气象台网站消息，昨日，四川、贵州、广西等地部分地区出现大到暴雨；内蒙古、京津冀等地出现大风。预计未来三天，西南地区东部、江南、华南等地有强降雨，局地伴有雷暴大风或冰雹等强对流天气，关注强降水和局地强对流天气对交通运输、农业生产等的不利影响；北方地区多大风天气，做好森林草原和城乡防火工作。 南方地区强降雨过程持续 27日至29日，西南地区东部、江汉、江南
+发布时间：2026年06月02日 19:08 来源：中国新闻网 6月2日，2026“一带一路”华侨华人合作发展大会在成都开幕。伊朗华侨华人联合会执行会长马正华在接受中新社采访时表示，伊朗侨界多措并举助力中伊合作。以信息互通、资源对接、文化融合为三大抓手，搭建交流平台，推动中企落地发展，促进两国文化互鉴，构建起 “侨团搭台，企业唱戏” 的良好合作格局。(尚世翔 程兆) 【同期】伊
 
 ## 正文
 
-中新网4月27日电 据中央气象台网站消息，昨日，四川、贵州、广西等地部分地区出现大到暴雨；内蒙古、京津冀等地出现大风。
+发布时间：2026年06月02日 19:08 来源：中国新闻网 6月2日，2026“一带一路”华侨华人合作发展大会在成都开幕。
 
-预计未来三天，西南地区东部、江南、华南等地有强降雨，局地伴有雷暴大风或冰雹等强对流天气，关注强降水和局地强对流天气对交通运输、农业生产等的不利影响；北方地区多大风天气，做好森林草原和城乡防火工作。
+伊朗华侨华人联合会执行会长马正华在接受中新社采访时表示，伊朗侨界多措并举助力中伊合作。
 
-南方地区强降雨过程持续 27日至29日，西南地区东部、江汉、江南、华南等地部分地区将自西向东出现大到暴雨，局地大暴雨，并伴有短时强降水、雷暴大风或冰雹等强对流天气，主要降水时段为27日至29日白天。
+以信息互通、资源对接、文化融合为三大抓手，搭建交流平台，推动中企落地发展，促进两国文化互鉴，构建起 “侨团搭台，企业唱戏” 的良好合作格局。
 
-预计，4月27日08时至28日08时，重庆中部、贵州东部和南部、湖南中北部和西部、湖北南部和东部、广西北部、西部和东南部等地部分地区有大到暴雨，其中，湖南北部、江西西北部、广西北部和西部等地局地有大暴雨(100～140毫米)。
+(尚世翔 程兆) 【同期】伊朗华侨华人联合会执行会长 马正华 当前中伊经贸合作，正处于一个战略机遇期。
 
-上述部分地区伴有短时强降水(最大小时降雨量20～50毫米，局地可超过60毫米)。
+我们伊朗侨界，应该是主要从三个方面去发力的。
 
-黄淮地区东部和西南部、西南地区南部、华南地区西部等地的部分地区将有8级以上雷暴大风或冰雹天气，其中，贵州西南部、广西西部等地的部分地区将有10级以上雷暴大风，最大风力可达11级以上。
+第一点，是一个信息桥梁，通过商会、同乡会等平台。
 
-中央气象台4月27日06时发布暴雨蓝色预警，继续发布强对流天气蓝色预警。
+定期发布伊朗的政策、市场动态、法律变化等，帮助中企降低信息不对称的一种风险。
 
-北方地区多大风天气 预计，4月27日08时至28日08时，内蒙古中西部、山西东北部、河北北部和西部、北京、天津、辽宁中西部、山东东部等地部分地区有6~8级风，阵风8~10级，局地阵风可达11级以上。
+第二个是资源对接，就是组织伊朗政府与中资企业对接会，协助中企在伊朗的自贸区、工业园的落地。
 
 ## 相关推荐
 
-- 2026-06-29 14:37 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-29 14:16 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 14:17 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-29 14:16 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 14:31 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-29 14:37 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-29 14:41 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 14:32 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-29 14:22 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 14:38 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 14:17 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-29 14:38 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 14:22 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 14:26 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 14:38 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 14:18 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-29 14:33 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-29 14:36 - [和阿根廷球员家属一起看球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 14:42 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-29 14:45 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 14:40 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-29 14:44 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 14:32 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 14:21 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-29 14:27 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-29 14:36 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-29 14:28 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:26 - [金牌调解](http://www.share.kurohicncr.top/Article/details/0671255050.shtml)
-- 2026-06-29 14:15 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.minike.top/Article/details/43849.shtml)
-- 2026-06-29 14:29 - [42岁郭碧婷纯素颜状态](http://www.share.minike.top/Article/details/85102735.shtml)
-- 2026-06-29 14:31 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/9964991.shtml)
-- 2026-06-29 14:28 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/8664696.shtml)
-- 2026-06-29 14:31 - [异世界一点都不好玩！](http://www.share.minike.top/Article/details/70674.shtml)
-- 2026-06-29 14:37 - [3D打印不是工业革命，它是……](http://www.share.minike.top/Article/details/257264833.shtml)
-- 2026-06-29 14:35 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/114503.shtml)
-- 2026-06-29 14:29 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.kurohicncr.top/Article/details/179667.shtml)
-- 2026-06-29 14:41 - [F1奥地利正赛战报](http://www.blog.minike.top/Article/details/34267150480.shtml)
-- 2026-06-29 14:21 - [吴昕要助理买的药6年前已停产](https://www.share.kurohicncr.top/Article/details/62359100408.shtml)
-- 2026-06-29 14:29 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/028218644.shtml)
-- 2026-06-29 14:41 - [张一山回应与杨紫友情](https://www.blog.minike.top/Article/details/949893807253.shtml)
-- 2026-06-29 14:36 - [专家建议城乡居民养老金增至每月千元](http://www.blog.kurohicncr.top/Article/details/64761.shtml)
-- 2026-06-29 14:32 - [中方将20家日本实体列入出口管制名单](http://www.blog.kurohicncr.top/Article/details/1089980.shtml)
+- 2026-06-29 14:36 - [TI2026参赛战队出炉](https://www.blog.minike.top/Article/details/432417.shtml)
+- 2026-06-29 14:47 - [高市早苗口齿不清被质疑醉酒](https://www.share.kurohicncr.top/Article/details/9951403.shtml)
+- 2026-06-29 14:35 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.minike.top/Article/details/3288571551.shtml)
+- 2026-06-29 14:43 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.minike.top/Article/details/2705826.shtml)
+- 2026-06-29 14:45 - [德云色预测世界杯16强](http://www.blog.minike.top/Article/details/79984.shtml)
+- 2026-06-29 14:34 - [四川宜宾地震已致13人受轻微伤](http://www.blog.minike.top/Article/details/87744586.shtml)
+- 2026-06-29 14:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/39541264726.shtml)
+- 2026-06-29 14:44 - [中方回应对日本相关出口管制措施](http://www.share.minike.top/Article/details/66082.shtml)
+- 2026-06-29 14:26 - [7月1日起一批新规即将落地](https://www.share.kurohicncr.top/Article/details/28961214.shtml)
+- 2026-06-29 14:29 - [42岁郭碧婷纯素颜状态](http://www.blog.minike.top/Article/details/14718.shtml)
+- 2026-06-29 14:43 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/217021.shtml)
+- 2026-06-29 14:19 - [王楚钦欢迎晚宴上打台球](http://www.blog.minike.top/Article/details/5802040317.shtml)
+- 2026-06-29 14:37 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.kurohicncr.top/Article/details/992235.shtml)
+- 2026-06-29 14:23 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.kurohicncr.top/Article/details/642983200.shtml)
+- 2026-06-29 14:33 - [媒体：网络测评不能只剩“生意”](http://www.blog.kurohicncr.top/Article/details/733173192532.shtml)

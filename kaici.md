@@ -1,56 +1,58 @@
-# 新加坡国立大学研究员马凯硕：科技合作是合作核心驱动力之一
+# 外资一致看好A股，沪深300ETF华泰柏瑞（510300） 低费率布局A股核心资产
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-专题：第十二届中国与全球化研讨会 4月26日，第十二届中国与全球化研讨会在北京举办，主题为“创新全球化：新动力与新挑战”。新加坡国立大学亚洲研究院杰出研究员、前联合国安理会主席马凯硕（Kishore Mahbubani）表示，中美关系的走向不仅关乎两国自身，也影响着全球的和平与发展。 他强调，中美之间科技、贸易、气候、健康等领域的合作，是双方共同利益的体现。他指出，中美双方应坚
+在全球资金重新寻找确定性资产的背景下，高盛、瑞银、摩根士丹利、摩根大通等多家外资机构近期同步上调对中国资产的预期，认为A股仍具备进一步上行空间。中国经济展现韧性、企业盈利持续修复、人民币资产吸引力提升，共同推动全球资金回流中国。 作为A股市场规模居首的ETF产品，沪深300ETF华泰柏瑞（510300） 交投尤为活跃。Wind与交易所最新数据显示，截至2026年5月28日，该产
 
 ## 正文
 
-专题：第十二届中国与全球化研讨会 4月26日，第十二届中国与全球化研讨会在北京举办，主题为“创新全球化：新动力与新挑战”。
+在全球资金重新寻找确定性资产的背景下，高盛、瑞银、摩根士丹利、摩根大通等多家外资机构近期同步上调对中国资产的预期，认为A股仍具备进一步上行空间。
 
-新加坡国立大学亚洲研究院杰出研究员、前联合国安理会主席马凯硕（Kishore Mahbubani）表示，中美关系的走向不仅关乎两国自身，也影响着全球的和平与发展。
+中国经济展现韧性、企业盈利持续修复、人民币资产吸引力提升，共同推动全球资金回流中国。
 
-他强调，中美之间科技、贸易、气候、健康等领域的合作，是双方共同利益的体现。
+作为A股市场规模居首的ETF产品，沪深300ETF华泰柏瑞（510300） 交投尤为活跃。
 
-他指出，中美双方应坚持互利共赢的原则，通过对话协商解决分歧，推动中美关系回到健康稳定发展的轨道。
+Wind与交易所最新数据显示，截至2026年5月28日，该产品基金规模达1380.49亿元，单日资金净流入3.53亿元，5月以来日均成交额高达58.90亿元，流动性优势突出。
 
-针对各领域合作，马凯硕表示，科技合作是中美合作的核心驱动力之一，双方应避免技术脱钩，加强在基础科学、新兴技术等领域的协同；贸易合作应回归理性，实现双方贸易的良性循环；气候与健康合作是全人类的共同需求，中美应发挥引领作用，加强合作，为全球气候治理和公共卫生安全作出贡献。
+外资机构明确看多，沪深300指数目标空间可观。
 
-新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
+在5月策略报告中，高盛继续维持对中国股市的“超配”评级，并将沪深300指数未来12个月目标位上调至5300点，同时将A股2026年盈利增速预测上调至20%。
 
-责任编辑：李昂
+沪深300指数是A股市场的核心风向标之一。
+
+其成分股构建了“科技+金融+能源+消费”的均衡框架，兼具多条景气主线，既是海内外机构长期持有的底仓配置工具，也是震荡行情中攻守兼备的优质资产。
 
 ## 相关推荐
 
-- 2026-06-29 14:20 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-29 14:13 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-29 14:34 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 14:18 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 14:20 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-29 14:38 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-29 14:34 - [A股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-29 14:38 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-29 14:18 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-29 14:16 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-29 14:27 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 14:19 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 14:36 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 14:29 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 14:27 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 14:29 - [周深双眼皮贴又掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 14:36 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 14:45 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-29 14:40 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 14:20 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 14:24 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 14:47 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 14:40 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-29 14:41 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:18 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.share.kurohicncr.top/Article/details/1833067248.shtml)
-- 2026-06-29 14:12 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.minike.top/Article/details/0963878.shtml)
-- 2026-06-29 14:29 - [吴磊爱上回收了](http://www.share.minike.top/Article/details/886211.shtml)
-- 2026-06-29 14:14 - [灿如繁星定档](http://www.share.minike.top/Article/details/48635.shtml)
-- 2026-06-29 14:21 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/01730508.shtml)
-- 2026-06-29 14:18 - [第一炉香](http://www.blog.minike.top/Article/details/659851.shtml)
-- 2026-06-29 14:36 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/92927.shtml)
-- 2026-06-29 14:36 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/515536796.shtml)
-- 2026-06-29 14:42 - [南非老帅布罗斯的梦没能做完](https://www.share.minike.top/Article/details/161222654867.shtml)
-- 2026-06-29 14:28 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/733738.shtml)
-- 2026-06-29 14:36 - [河南考699分女生已接到清华大学电话](https://www.blog.kurohicncr.top/Article/details/805413.shtml)
-- 2026-06-29 14:19 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/015321208280.shtml)
-- 2026-06-29 14:13 - [三轮车过马路 车上木材砸中路边男子](https://www.share.kurohicncr.top/Article/details/09204.shtml)
-- 2026-06-29 14:12 - [内马尔能上场15分钟](http://www.share.minike.top/Article/details/252321664.shtml)
-- 2026-06-29 14:14 - [第一批缉毒警已全体退休](https://www.blog.minike.top/Article/details/481897287.shtml)
+- 2026-06-29 14:27 - [这一刀 会很帅](https://www.share.minike.top/Article/details/45875265.shtml)
+- 2026-06-29 14:29 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.kurohicncr.top/Article/details/39327160.shtml)
+- 2026-06-29 14:22 - [崔韩率还以为韩娱来新人了](https://www.share.minike.top/Article/details/07121.shtml)
+- 2026-06-29 14:29 - [世界杯欧美八大豪强悉数出线](https://www.blog.minike.top/Article/details/1952086.shtml)
+- 2026-06-29 14:38 - [媒体评恋与深空争议](https://www.share.kurohicncr.top/Article/details/0985905347.shtml)
+- 2026-06-29 14:45 - [龟梨和也田中美奈实结婚](http://www.blog.minike.top/Article/details/67146041.shtml)
+- 2026-06-29 14:33 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.blog.kurohicncr.top/Article/details/21494627815.shtml)
+- 2026-06-29 14:25 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/4226008791.shtml)
+- 2026-06-29 14:45 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/75050.shtml)
+- 2026-06-29 14:20 - [扬名立万](http://www.share.kurohicncr.top/Article/details/7560672417.shtml)
+- 2026-06-29 14:35 - [20年前的周杰伦](https://www.blog.minike.top/Article/details/708027.shtml)
+- 2026-06-29 14:42 - [巴西发布对阵日本宣传片](https://www.blog.minike.top/Article/details/5298666.shtml)
+- 2026-06-29 14:31 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/5701561739.shtml)
+- 2026-06-29 14:39 - [发反科学内容为何会有200万粉丝](http://www.share.kurohicncr.top/Article/details/180446960787.shtml)
+- 2026-06-29 14:37 - [张真源解读相思锁](https://www.blog.minike.top/Article/details/24568798.shtml)

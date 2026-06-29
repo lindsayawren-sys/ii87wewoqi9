@@ -1,57 +1,56 @@
-# 节能降碳工作，如何做到高水平高质量？
+# 织密全域智慧监管网络 重庆推动环境监管转向“智慧防控”
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-嘉哲 近日，中共中央办公厅、国务院办公厅印发《关于更高水平更高质量做好节能降碳工作的意见》(以下简称《意见》)，系统部署推进新形势下的节能降碳工作，将为实现碳达峰碳中和、经济社会发展全面绿色转型提供重要支撑。 “十四五”以来，我国认真落实全面节约战略，扎实推进全社会节能降碳，全国能耗强度和碳排放强度降低目标均顺利完成。2012年以来，我国以年均3.3%的能耗增速支撑了年均6.1
+中新网重庆6月2日电 (梁钦卿)重庆市生态环境局局长余国东2日在新闻发布会上介绍，重庆织密全域智慧监管网络，卫星遥感盯紧生态变化，高空瞭望、无人机巡查覆盖重点区域，水气自动监测站24小时在线持续“站岗”，推动环境监管从“人海战术”转向“智慧防控”。在重塑数字生态治理体系方面，重庆加快数字生态环保建设，“巴渝治水”搭建全国首个跨省线上处置平台，打破川渝之间的行政壁垒，率先在铜钵河
 
 ## 正文
 
-嘉哲 近日，中共中央办公厅、国务院办公厅印发《关于更高水平更高质量做好节能降碳工作的意见》(以下简称《意见》)，系统部署推进新形势下的节能降碳工作，将为实现碳达峰碳中和、经济社会发展全面绿色转型提供重要支撑。
+中新网重庆6月2日电 (梁钦卿)重庆市生态环境局局长余国东2日在新闻发布会上介绍，重庆织密全域智慧监管网络，卫星遥感盯紧生态变化，高空瞭望、无人机巡查覆盖重点区域，水气自动监测站24小时在线持续“站岗”，推动环境监管从“人海战术”转向“智慧防控”。
 
-“十四五”以来，我国认真落实全面节约战略，扎实推进全社会节能降碳，全国能耗强度和碳排放强度降低目标均顺利完成。
+在重塑数字生态治理体系方面，重庆加快数字生态环保建设，“巴渝治水”搭建全国首个跨省线上处置平台，打破川渝之间的行政壁垒，率先在铜钵河实现全国跨界河流线上协同处置。
 
-2012年以来，我国以年均3.3%的能耗增速支撑了年均6.1%的经济增长，经济发展的质量和效益持续提升。
+“巴渝治气”汇集多源数据、强化动态感知，构建环境空气质量全域智管体系。
 
-与此同时，当前我国节能降碳形势依然较为严峻，能源结构偏煤、产业结构偏重、环境约束偏紧的国情没有改变，化石能源和传统产业占比仍然较高，经济社会发展全面绿色转型仍面临不少困难挑战。
+“巴渝治废”以数字化追溯体系实现重点单位危险废物“即产生、即包装、即称重、即打码、即入库”规范化管理和“一码贯通”全过程监管闭环追溯。
 
-“十五五”时期是实现碳达峰的决胜阶段，我国全面实施以强度控制为主、总量控制为辅的碳排放双控制度，对产业优化升级、能源绿色转型等提出新的更高要求。
+2025年，重庆市空气质量优良天数达339天。
 
-要坚持以碳达峰碳中和为牵引，大力推进重点领域节能降碳，协同推进节能降碳与绿色转型，把节能降碳贯穿经济社会发展全过程各方面。
+全市地表水总体水质、长江干流重庆段水质、长江支流重庆段水质皆为优，全市集中式饮用水水源地水质良好，地下水环境质量总体保持稳定。
 
-《意见》的出台正逢其时，为未来一段时期高质量推进节能降碳工作指明了方向、明确了路径。
+全市土壤环境质量总体稳定，受污染耕地安全利用率100%，重点建设用地安全利用率100%。
 
-抓好主战场。
+2025年，重庆市共建成投运生活垃圾处理设施77座，总处理能力达到3.73万吨/日。
 
 ## 相关推荐
 
-- 2026-06-29 14:20 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-29 14:32 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-29 14:38 - [去了一趟潮汕。](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 14:39 - [锐评浪姐7总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-29 14:17 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-29 14:14 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-29 14:31 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-29 14:15 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 14:30 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-29 14:17 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-29 14:15 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 14:47 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-29 14:44 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-29 14:24 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 14:39 - [双高胎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-29 14:34 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 14:19 - [张真源解读相思锁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-29 14:33 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 14:18 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-29 14:46 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 14:41 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:32 - [绘画区你赢了](http://www.share.minike.top/Article/details/24599220.shtml)
-- 2026-06-29 14:14 - [世界杯用球成部分门将噩梦](http://www.share.kurohicncr.top/Article/details/105054.shtml)
-- 2026-06-29 14:27 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/0222025504.shtml)
-- 2026-06-29 14:30 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/678038764.shtml)
-- 2026-06-29 14:14 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.kurohicncr.top/Article/details/4081668269.shtml)
-- 2026-06-29 14:41 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/15444330695.shtml)
-- 2026-06-29 14:37 - [世界杯欧美八大豪强悉数出线](http://www.blog.minike.top/Article/details/067845.shtml)
-- 2026-06-29 14:24 - [四川宜宾地震](https://www.blog.minike.top/Article/details/2829415.shtml)
-- 2026-06-29 14:24 - [市民骑哈啰单车79分钟被收费30元](https://www.share.minike.top/Article/details/33897489.shtml)
-- 2026-06-29 14:29 - [爸爸当家](https://www.blog.minike.top/Article/details/65740008812.shtml)
-- 2026-06-29 14:24 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/488129.shtml)
-- 2026-06-29 14:26 - [105年初心滚烫](http://www.blog.kurohicncr.top/Article/details/51679.shtml)
-- 2026-06-29 14:39 - [前国足主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/118269.shtml)
-- 2026-06-29 14:33 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.share.kurohicncr.top/Article/details/051423050.shtml)
-- 2026-06-29 14:19 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/768852.shtml)
+- 2026-06-29 14:45 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/852782876.shtml)
+- 2026-06-29 14:39 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.minike.top/Article/details/1767724789.shtml)
+- 2026-06-29 14:22 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/711732.shtml)
+- 2026-06-29 14:36 - [T1对战KC](https://www.blog.kurohicncr.top/Article/details/231632688056.shtml)
+- 2026-06-29 14:46 - [加拿大绝杀南非晋级](https://www.blog.kurohicncr.top/Article/details/319538.shtml)
+- 2026-06-29 14:26 - [42岁郭碧婷纯素颜状态](http://www.share.minike.top/Article/details/06605888.shtml)
+- 2026-06-29 14:31 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/71005.shtml)
+- 2026-06-29 14:47 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/4723159917.shtml)
+- 2026-06-29 14:29 - [巴西德国15次闯进世界杯淘汰赛](https://www.share.minike.top/Article/details/48124753.shtml)
+- 2026-06-29 14:32 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.share.minike.top/Article/details/60069609981.shtml)
+- 2026-06-29 14:29 - [给阿嬷的情书海外口碑](https://www.blog.kurohicncr.top/Article/details/62084.shtml)
+- 2026-06-29 14:19 - [曝歌手第七期帮唱阵容](https://www.blog.kurohicncr.top/Article/details/53797774586.shtml)
+- 2026-06-29 14:18 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/7613161377.shtml)
+- 2026-06-29 14:46 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/09016489327.shtml)
+- 2026-06-29 14:37 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/57920.shtml)

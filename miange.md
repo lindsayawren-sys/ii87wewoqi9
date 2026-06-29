@@ -1,59 +1,61 @@
-# “阅读照亮人生”全民阅读分享大会在京举办
+# 京东成为国内首个境外旅客“网上离境退税商店”
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-中新网北京4月26日电 (记者 高凯)由中国出版集团主办的全民阅读分享大会日前在中国国际出版交流中心举办。大会以“阅读照亮人生”为主题，汇聚文化、文艺、体育、科技等各界名家，新大众文艺代表，大学生代表等，以书为媒共话阅读。 在“‘读’正当时”篇章，人民艺术家、作家王蒙从个人阅读与创作经历出发，强调阅读对人格与思想的塑造作用；作家周大新以“敬惜字纸”的传统为切入，呼吁珍视文字与书
+“我买了一款手机，没想到在线上购物也可以发起退税，在酒店就有集中退付点，可以提前领取退税款，体验非常好。”5月31日，一位来自印度尼西亚的游客Angela，在北京市华侨大厦集中退付点，成功收到此前在京东APP购买手机的退税款208.71元，“太方便了！中国的服务真是太超前了！”。 我国实施境外旅客购物离境退税政策，此前均是在线下的退税商店享受退税优惠，而Angela这笔线上购物
 
 ## 正文
 
-中新网北京4月26日电 (记者 高凯)由中国出版集团主办的全民阅读分享大会日前在中国国际出版交流中心举办。
+“我买了一款手机，没想到在线上购物也可以发起退税，在酒店就有集中退付点，可以提前领取退税款，体验非常好。
 
-大会以“阅读照亮人生”为主题，汇聚文化、文艺、体育、科技等各界名家，新大众文艺代表，大学生代表等，以书为媒共话阅读。
+”5月31日，一位来自印度尼西亚的游客Angela，在北京市华侨大厦集中退付点，成功收到此前在京东APP购买手机的退税款208.71元，“太方便了！
 
-在“‘读’正当时”篇章，人民艺术家、作家王蒙从个人阅读与创作经历出发，强调阅读对人格与思想的塑造作用；作家周大新以“敬惜字纸”的传统为切入，呼吁珍视文字与书籍价值；北京大学习近平新时代中国特色社会主义思想研究院副院长韩毓海立足多年学术研究生涯，认为阅读应成为理解时代的重要路径；作家、故宫博物院研究馆员祝勇以“重读经典”为切入点，阐释深化认知的意义。
+中国的服务真是太超前了！
 
-“‘读’者无疆”篇章聚焦人间烟火，采撷阅读百味。
+”。
 
-作家梁晓声从日常生活出发，强调阅读应成为长期生活方式；《太平年》编剧、作家董哲结合历史书写探讨阅读的精神支撑；全国“乡村阅读榜样”马慧娟讲述阅读改变命运的亲身经历，展现出文学的真实力量；“爱读书的工地大叔”、阅读推广人刘诗利以朴实表达传递普通劳动者对阅读的热爱与坚守。
+我国实施境外旅客购物离境退税政策，此前均是在线下的退税商店享受退税优惠，而Angela这笔线上购物的离境退税，标志着北京成为国内首个实现网上离境退税落地的城市，同时这也意味着京东成为国内首个境外旅客“网上离境退税商店”。
 
-“‘阅’动风华”荟萃跨界风采。
+这一突破性创新实践，不仅是北京优化入境消费环境、落实国家离境退税政策的又一关键成果，也为全国推广线上离境退税提供了可复制、可推广的“京东方案”。
 
-天津音乐学院院长、歌唱家王宏伟分享了阅读对于提升艺术素养的价值与作用；中国首位视障播音硕士、青年朗诵家董丽娜深情朗诵冰心经典诗篇《“将来”的女神》，强调阅读对于视障人群的重要意义；运动员覃海洋、李佳蔓、刘梦婷共同朗诵了汪国真的经典散文《我喜欢出发》，分享了阅读帮助他们克服困难、积蓄力量的真实故事。
+据介绍，和传统离境退税服务相比，京东这次最大创新是实现了退税全程线上化，让境外旅客摆脱时空的限制。
 
-“‘阅’享未来”中，科技泰斗与文坛名家共话阅读新形态。
+境外旅客入境后，可随时随地通过京东英文版和中文版APP的退税功能，选购带离境退税标识商品，或搜索“离境退税”直接进入退税好物专区，在下单时填写身份与出入境信息，系统将自动开具电子离境退税申请单与发票。
 
 ## 相关推荐
 
-- 2026-06-29 14:15 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-29 14:35 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 14:16 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-29 14:38 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 14:23 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 14:29 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 14:38 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-29 14:18 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 14:26 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 14:12 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 14:33 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 14:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-29 14:24 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 14:31 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 14:34 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-29 14:21 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 14:30 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 14:45 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 14:25 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-29 14:44 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-29 14:42 - [医药股集体爆发](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 14:23 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 14:41 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 14:26 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 14:25 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-29 14:39 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 14:43 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 14:42 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:23 - [一生一世](https://www.share.minike.top/Article/details/238416.shtml)
-- 2026-06-29 14:30 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/55965.shtml)
-- 2026-06-29 14:12 - [《贺子珍》](http://www.share.minike.top/Article/details/806085.shtml)
-- 2026-06-29 14:12 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/940616748976.shtml)
-- 2026-06-29 14:33 - [美伊同意停止互袭 30日在多哈谈判](http://www.blog.minike.top/Article/details/43917.shtml)
-- 2026-06-29 14:13 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/3215329128.shtml)
-- 2026-06-29 14:14 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/256904721.shtml)
-- 2026-06-29 14:26 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/85325975.shtml)
-- 2026-06-29 14:21 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/92074503.shtml)
-- 2026-06-29 14:15 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/111723848493.shtml)
-- 2026-06-29 14:20 - [陈靖可虞书欣领衔主演](http://www.share.kurohicncr.top/Article/details/5061184.shtml)
-- 2026-06-29 14:19 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/991126599251.shtml)
-- 2026-06-29 14:35 - [南非老帅布罗斯的梦没能做完](http://www.share.minike.top/Article/details/1297439364.shtml)
-- 2026-06-29 14:34 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.kurohicncr.top/Article/details/99232391.shtml)
-- 2026-06-29 14:25 - [媒体：高考后消费应量力而行适度有度](https://www.blog.minike.top/Article/details/753006.shtml)
+- 2026-06-29 14:27 - [王楚钦首轮赢下国乒德比](http://www.share.minike.top/Article/details/404390537419.shtml)
+- 2026-06-29 14:31 - [周锡玮：做堂堂正正的中国人](https://www.share.minike.top/Article/details/512896823.shtml)
+- 2026-06-29 14:44 - [巴西德国15次闯进世界杯淘汰赛](https://www.share.kurohicncr.top/Article/details/327396946.shtml)
+- 2026-06-29 14:26 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.blog.minike.top/Article/details/684519.shtml)
+- 2026-06-29 14:29 - [张真源解读相思锁](http://www.share.minike.top/Article/details/647748.shtml)
+- 2026-06-29 14:40 - [《昨夜将至》为何是悬疑黑马](http://www.blog.minike.top/Article/details/753411220371.shtml)
+- 2026-06-29 14:22 - [唐艺昕女儿接唐艺昕回家](https://www.share.kurohicncr.top/Article/details/5457246.shtml)
+- 2026-06-29 14:33 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.minike.top/Article/details/933311186901.shtml)
+- 2026-06-29 14:23 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/675702.shtml)
+- 2026-06-29 14:24 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/58908976918.shtml)
+- 2026-06-29 14:35 - [比亚迪市值为何蒸发8000亿](http://www.blog.minike.top/Article/details/34849.shtml)
+- 2026-06-29 14:25 - [拄拐少年高考663分：用行动回报社会](https://www.blog.minike.top/Article/details/330285469658.shtml)
+- 2026-06-29 14:19 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/208537.shtml)
+- 2026-06-29 14:29 - [沙丘](http://www.blog.kurohicncr.top/Article/details/98649940310.shtml)
+- 2026-06-29 14:25 - [宜宾5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/79487.shtml)

@@ -1,56 +1,58 @@
-# 河南省破产管理人协会正式揭牌
+# （乡村行·看振兴）广东柏埔镇：木薯铺就乡村致富路
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-中新网郑州4月25日电 (记者 李贵刚)法治是最好的营商环境，破产制度是市场经济有序运行的重要保障。4月25日，河南省破产管理人协会成立大会暨揭牌仪式在郑州举行，这标志着该省破产法治建设迈上新台阶。 当日，河南全省法院系统、律所、资产管理公司及破产管理人领域的代表齐聚一堂，共同见证河南破产管理行业这一重要时刻。 河南省高级人民法院副院长李志增在致辞中表示，河南省破产管理人协会的
+中新网河源6月2日电 (张璐 甘建楼)近日，走进河源市紫金县柏埔镇大鲁村，只见田间地头热闹非凡，现代化的机耕设备正忙着起垄，村民忙碌着种植木薯。 “现在脚下这片规整连片的优质农田，通过统一整合升级，变成了标准化产业基地，村民稳拿租金还能就近务工，实实在在尝到甜头。”大鲁村党支部书记周志勇站在田间地头，指着连片的种植基地说。 据悉，柏埔镇依托纵向帮扶单位上下游资源优势，携手一家农
 
 ## 正文
 
-中新网郑州4月25日电 (记者 李贵刚)法治是最好的营商环境，破产制度是市场经济有序运行的重要保障。
+中新网河源6月2日电 (张璐 甘建楼)近日，走进河源市紫金县柏埔镇大鲁村，只见田间地头热闹非凡，现代化的机耕设备正忙着起垄，村民忙碌着种植木薯。
 
-4月25日，河南省破产管理人协会成立大会暨揭牌仪式在郑州举行，这标志着该省破产法治建设迈上新台阶。
+“现在脚下这片规整连片的优质农田，通过统一整合升级，变成了标准化产业基地，村民稳拿租金还能就近务工，实实在在尝到甜头。
 
-当日，河南全省法院系统、律所、资产管理公司及破产管理人领域的代表齐聚一堂，共同见证河南破产管理行业这一重要时刻。
+”大鲁村党支部书记周志勇站在田间地头，指着连片的种植基地说。
 
-河南省高级人民法院副院长李志增在致辞中表示，河南省破产管理人协会的成立标志着河南省破产管理人行业正式进入自律管理、职业化发展的新阶段。
+据悉，柏埔镇依托纵向帮扶单位上下游资源优势，携手一家农业科技有限公司(简称“公司”)在大鲁村集中整合优质耕地800余亩，发展种植木薯“粤引1号”，聚力打造标准化、集约化、规模化、现代化的木薯种植示范片区。
 
-2023年以来，全省法院新收破产案件4437件、审结4425件，超过此前10年总和。
+“木薯用途广泛、应用前景广阔，市场潜力巨大。
 
-破产管理人作为破产程序的核心推动者，其专业素养直接关系审判质效和营商环境优化。
+预计亩产可达1万斤，整个项目的木薯年产值有望突破180万元。
 
-他希望协会坚持政治引领、健全行业规范、深化协同联动，推动破产法治意识普及，为全省经济高质量发展提供有力保障。
+”该公司河源区域负责人刘昭说，该项目有两种合作模式，一是村民通过土地流转享受地租及政府的耕地补贴，并且从种植到采收将大量吸纳周边群众务工。
 
-河南资产管理有限公司总经理崔凯在致辞中表示，破产手段的核心是通过法治化、市场化方式化解风险、盘活资产。
+二是由企业统一免费提供种苗、技术指导，并实行保价收购让村民自己种、稳定收，带动群众增收致富。
 
 ## 相关推荐
 
-- 2026-06-29 14:33 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-29 14:40 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-29 14:19 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 14:24 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-29 14:32 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 14:14 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-29 14:15 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-29 14:20 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-29 14:31 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-29 14:21 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 14:20 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-29 14:39 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 14:34 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 14:33 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 14:20 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 14:32 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 14:31 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-29 14:30 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-29 14:22 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-29 14:20 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-29 14:29 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-29 14:43 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:36 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/9324300321.shtml)
-- 2026-06-29 14:37 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/26372.shtml)
-- 2026-06-29 14:18 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/0261180.shtml)
-- 2026-06-29 14:17 - [强⁶](http://www.share.minike.top/Article/details/790836796.shtml)
-- 2026-06-29 14:38 - [周锡玮：做堂堂正正的中国人](https://www.blog.minike.top/Article/details/301238371.shtml)
-- 2026-06-29 14:14 - [手游300亿数据或被军事化运用](http://www.blog.minike.top/Article/details/47993272.shtml)
-- 2026-06-29 14:15 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/61752.shtml)
-- 2026-06-29 14:36 - [AG 钟意](https://www.share.kurohicncr.top/Article/details/689604934934.shtml)
-- 2026-06-29 14:12 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/272173121.shtml)
-- 2026-06-29 14:25 - [灿如繁星定档](https://www.share.kurohicncr.top/Article/details/21313285.shtml)
-- 2026-06-29 14:30 - [papi酱回应毕业4年零收入](https://www.blog.kurohicncr.top/Article/details/245872.shtml)
-- 2026-06-29 14:26 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/70586556335.shtml)
-- 2026-06-29 14:20 - [金刚川](http://www.blog.kurohicncr.top/Article/details/926655.shtml)
-- 2026-06-29 14:36 - [退休化学教授帮医药研发人员制毒](https://www.share.kurohicncr.top/Article/details/1448290.shtml)
-- 2026-06-29 14:18 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/5599832950.shtml)
+- 2026-06-29 14:46 - [王楚钦 表演球擦网](https://www.share.kurohicncr.top/Article/details/46287917.shtml)
+- 2026-06-29 14:41 - [《昨夜将至》为何是悬疑黑马](http://www.blog.minike.top/Article/details/16702890.shtml)
+- 2026-06-29 14:47 - [专家建议城乡居民养老金增至每月千元](https://www.share.kurohicncr.top/Article/details/56085589232.shtml)
+- 2026-06-29 14:35 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/32022763715.shtml)
+- 2026-06-29 14:45 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/425908691692.shtml)
+- 2026-06-29 14:38 - [袁隆平院士 不容诋毁！](http://www.share.kurohicncr.top/Article/details/970537.shtml)
+- 2026-06-29 14:33 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/4752603886.shtml)
+- 2026-06-29 14:37 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/567289753099.shtml)
+- 2026-06-29 14:30 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.blog.minike.top/Article/details/4481936980.shtml)
+- 2026-06-29 14:41 - [每代父母都困在自己的时代里](https://www.blog.kurohicncr.top/Article/details/33587784.shtml)
+- 2026-06-29 14:20 - [千与千寻](https://www.share.minike.top/Article/details/5759737529.shtml)
+- 2026-06-29 14:39 - [乔家的儿女](https://www.share.minike.top/Article/details/686991717.shtml)
+- 2026-06-29 14:44 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/25913571.shtml)
+- 2026-06-29 14:28 - [急先锋](http://www.share.minike.top/Article/details/7579656501.shtml)
+- 2026-06-29 14:23 - [中国战机大片上新](http://www.share.minike.top/Article/details/8496960.shtml)

@@ -1,59 +1,57 @@
-# Meta达成太阳能电力合作协议
+# 上海：力争到2030年，上海资产管理规模达55万亿元，全国占比达1/3
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-内容摘要 Meta已签约，将向太空能源初创企业奥弗维尤能源（Overview Energy）采购最高 1 吉瓦的太阳能电力。 这家脸书母公司达成协议，将向奥弗维尤能源采购规模最高达 1 吉瓦的太阳能电力。该初创企业致力于部署特种卫星，为地面用户输送电力。 公司首席执行官马克・伯特表示，奥弗维尤计划在 2028 年开展太空在轨技术验证，并力争两年后正式推出商业化服务。 本次合作，
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国际金融报 6月2日消息，上海市人民政府办公厅印发《关于深化上海全球资产管理中心建设的若干意见》的通知。意见提出，力争到2030年，上海资产管理规模达55万亿元，全国占比达1/3。 全文如下： 关于深化上海全球资产管理中心建设的若干意见 为进一步推动上海资产管理领域高质量发展，加强资产管理与财富管理双
 
 ## 正文
 
-内容摘要 Meta已签约，将向太空能源初创企业奥弗维尤能源（Overview Energy）采购最高 1 吉瓦的太阳能电力。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这家脸书母公司达成协议，将向奥弗维尤能源采购规模最高达 1 吉瓦的太阳能电力。
+来源：国际金融报 6月2日消息，上海市人民政府办公厅印发《关于深化上海全球资产管理中心建设的若干意见》的通知。
 
-该初创企业致力于部署特种卫星，为地面用户输送电力。
+意见提出，力争到2030年，上海资产管理规模达55万亿元，全国占比达1/3。
 
-公司首席执行官马克・伯特表示，奥弗维尤计划在 2028 年开展太空在轨技术验证，并力争两年后正式推出商业化服务。
+全文如下： 关于深化上海全球资产管理中心建设的若干意见 为进一步推动上海资产管理领域高质量发展，加强资产管理与财富管理双轮驱动，加快人民币国际化进程，畅通境内外资产多元配置，提升上海人民币资产全球配置和风险管理功能，切实增强上海国际金融中心竞争力和影响力。
 
-本次合作，凸显各大科技巨头正加速布局新型能源供给方案，为人工智能高耗能发展目标提供能源支撑。
+力争到2030年，上海资产管理规模达55万亿元，全国占比达1/3。
 
-双方暂未披露协议具体条款。
+现就深化上海全球资产管理中心建设提出如下意见。
 
-轨道太阳能发电的构想已有数十年历史：早在 1941 年，艾萨克・阿西莫夫的科幻小说中便提及这一概念，此后各大高校与政府科研机构也长期开展相关研究。
+一、加强金融市场建设，夯实资产多元配置基础 （一）丰富金融市场基础产品供给。
 
-受复杂技术难题与高昂成本限制，轨道太阳能系统长期难以落地，无法与传统能源形成互补或竞争。
+支持科创属性突出的科技型企业上市、并购，提高权益资产科技含量与资产质量。
 
 ## 相关推荐
 
-- 2026-06-29 14:17 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-29 14:20 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 14:33 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-29 14:14 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 14:30 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-29 14:33 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 14:40 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-29 14:27 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-29 14:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 14:12 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-29 14:13 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-29 14:40 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 14:30 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 14:43 - [四川宜宾地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 14:44 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 14:35 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 14:47 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 14:37 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-29 14:36 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 14:45 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-29 14:40 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 14:22 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 14:25 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-29 14:25 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:16 - [前国足主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/3727170460.shtml)
-- 2026-06-29 14:24 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.kurohicncr.top/Article/details/18635976562.shtml)
-- 2026-06-29 14:41 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/91342.shtml)
-- 2026-06-29 14:40 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/1605916.shtml)
-- 2026-06-29 14:27 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/63027380405.shtml)
-- 2026-06-29 14:30 - [中方回应对日本相关出口管制措施](http://www.blog.minike.top/Article/details/2114937.shtml)
-- 2026-06-29 14:20 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/18478927.shtml)
-- 2026-06-29 14:16 - [女孩遭霸凌网上认文身大哥求庇护](http://www.blog.kurohicncr.top/Article/details/3998459.shtml)
-- 2026-06-29 14:35 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/05063691.shtml)
-- 2026-06-29 14:13 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/5223114.shtml)
-- 2026-06-29 14:25 - [20年前的周杰伦](https://www.blog.minike.top/Article/details/88802058582.shtml)
-- 2026-06-29 14:25 - [刘仲华院士愿当贺永辉导师](https://www.blog.kurohicncr.top/Article/details/0003989.shtml)
-- 2026-06-29 14:16 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/6855009.shtml)
-- 2026-06-29 14:31 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/04603795377.shtml)
-- 2026-06-29 14:36 - [金价银价下跌 油价上涨](http://www.blog.minike.top/Article/details/335040695.shtml)
+- 2026-06-29 14:35 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/861694.shtml)
+- 2026-06-29 14:36 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/9941317.shtml)
+- 2026-06-29 14:28 - [急先锋](https://www.share.kurohicncr.top/Article/details/118566.shtml)
+- 2026-06-29 14:34 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.blog.minike.top/Article/details/6073059.shtml)
+- 2026-06-29 14:33 - [普京：俄面临命运攸关时刻](https://www.blog.minike.top/Article/details/56427457009.shtml)
+- 2026-06-29 14:39 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/9425889.shtml)
+- 2026-06-29 14:29 - [复盘曾沛慈浪姐夺冠之路](http://www.blog.minike.top/Article/details/94869277634.shtml)
+- 2026-06-29 14:26 - [俄称继续推进 乌称打击俄军设施](http://www.share.minike.top/Article/details/277308056.shtml)
+- 2026-06-29 14:23 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/48775923.shtml)
+- 2026-06-29 14:37 - [如何“亲菌子”又“远小人儿”](https://www.share.kurohicncr.top/Article/details/3694345.shtml)
+- 2026-06-29 14:33 - [巴西德国15次闯进世界杯淘汰赛](https://www.share.minike.top/Article/details/153064312155.shtml)
+- 2026-06-29 14:32 - [市民骑哈啰单车79分钟付30元](https://www.blog.minike.top/Article/details/22937.shtml)
+- 2026-06-29 14:38 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.blog.minike.top/Article/details/6666058773.shtml)
+- 2026-06-29 14:19 - [AG冠军五人组轮换](https://www.blog.kurohicncr.top/Article/details/735443472.shtml)
+- 2026-06-29 14:43 - [宜宾5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/6847388660.shtml)

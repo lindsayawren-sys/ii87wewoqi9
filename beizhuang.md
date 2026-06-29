@@ -1,60 +1,61 @@
-# 日本岩手县山火持续 过火面积超1600公顷
+# 东西问丨从侨批看中国
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-中新社东京4月27日电 (记者 朱晨曦)据日本广播协会(NHK)27日报道，截至当天6时，岩手县大槌町22日发生的山林火灾过火面积为1618公顷，火势仍未得到有效控制。 受火灾影响，大槌町已对超3200人发布避难指示，约占全町人口的三分之一。此外，包括住宅在内的8栋建筑在火灾中受损。 目前，除当地消防力量外，还有来自其他地区的消防援助队参与灭火，地面灭火总人数约为1200人。
+中新社北京6月1日电 题：从侨批看中国 中新社记者 贺劭清 电影《给阿嬷的情书》热映，让“侨批”再次走入人们视野。闽粤方言称“信”为“批”。侨批，就是海外侨胞携带着汇款的特殊家书。据不完全统计，在一个半世纪左右的时间里，从世界各地集腋成裘，寄归中国的侨批，林林总总超过三千万封。 国学大师饶宗颐曾盛赞侨批为“媲美徽学”的“海邦剩馥”。一封封泛黄的侨批，是侨史的“敦煌文书”，是海外
 
 ## 正文
 
-中新社东京4月27日电 (记者 朱晨曦)据日本广播协会(NHK)27日报道，截至当天6时，岩手县大槌町22日发生的山林火灾过火面积为1618公顷，火势仍未得到有效控制。
+中新社北京6月1日电 题：从侨批看中国 中新社记者 贺劭清 电影《给阿嬷的情书》热映，让“侨批”再次走入人们视野。
 
-受火灾影响，大槌町已对超3200人发布避难指示，约占全町人口的三分之一。
+闽粤方言称“信”为“批”。
 
-此外，包括住宅在内的8栋建筑在火灾中受损。
+侨批，就是海外侨胞携带着汇款的特殊家书。
 
-目前，除当地消防力量外，还有来自其他地区的消防援助队参与灭火，地面灭火总人数约为1200人。
+据不完全统计，在一个半世纪左右的时间里，从世界各地集腋成裘，寄归中国的侨批，林林总总超过三千万封。
 
-按日本总务省消防厅说法，这是日本30多年来过火面积第二大的山火，仅次于2025年2月发生在岩手县大船渡市的山火。
+国学大师饶宗颐曾盛赞侨批为“媲美徽学”的“海邦剩馥”。
 
-由于日本东北部海域20日发生7.7级地震，日本气象厅对包括岩手县在内的7个县182个市町村发布后续地震注意信息。
+一封封泛黄的侨批，是侨史的“敦煌文书”，是海外游子对故土深情的凝结，是中华民族家国同构、重信守诺的根性所在，也是中国从闭塞积弱走向自强开放的缩影。
 
-因此，当地在应对火灾的同时，也需警惕地震风险。
+读懂一纸侨批，也就读懂何以中国。
 
-(完)
+“回家”归根，是侨批的使命。
 
 ## 相关推荐
 
-- 2026-06-29 14:19 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 14:14 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 14:18 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-29 14:18 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-29 14:23 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 14:14 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-29 14:38 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-29 14:36 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-29 14:34 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 14:30 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-29 14:25 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 14:16 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 14:12 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 14:38 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-29 14:46 - [张一山回应与杨紫友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 14:41 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 14:35 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 14:31 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-29 14:37 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 14:33 - [TOP 无畏契约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 14:26 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 14:38 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-29 14:25 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 14:21 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-29 14:35 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-29 14:19 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-29 14:32 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-29 14:26 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 14:40 - [TOP 无畏契约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:39 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/4004570904.shtml)
-- 2026-06-29 14:30 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.kurohicncr.top/Article/details/681159.shtml)
-- 2026-06-29 14:22 - [美伊同意停止互袭 30日在多哈谈判](https://www.blog.minike.top/Article/details/717815610.shtml)
-- 2026-06-29 14:13 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/0147581668.shtml)
-- 2026-06-29 14:29 - [崔韩率还以为韩娱来新人了](https://www.share.minike.top/Article/details/87200435.shtml)
-- 2026-06-29 14:13 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/540391.shtml)
-- 2026-06-29 14:25 - [李在明称韩国足协任命了无能之人](http://www.share.kurohicncr.top/Article/details/71203939.shtml)
-- 2026-06-29 14:18 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.kurohicncr.top/Article/details/19247016779.shtml)
-- 2026-06-29 14:27 - [光与夜之恋](https://www.blog.minike.top/Article/details/47600.shtml)
-- 2026-06-29 14:18 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/7873726.shtml)
-- 2026-06-29 14:15 - [巴黎两家殡仪馆爆满](https://www.share.kurohicncr.top/Article/details/5999984.shtml)
-- 2026-06-29 14:15 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/561557782.shtml)
-- 2026-06-29 14:29 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.share.minike.top/Article/details/3782810245.shtml)
-- 2026-06-29 14:30 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/4497215.shtml)
-- 2026-06-29 14:31 - [汪东城回应45岁婚约](http://www.blog.minike.top/Article/details/13636119793.shtml)
+- 2026-06-29 14:28 - [宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/45294841594.shtml)
+- 2026-06-29 14:37 - [韩国队启程回国众将回避镜头](https://www.blog.kurohicncr.top/Article/details/3709271.shtml)
+- 2026-06-29 14:19 - [评论员：高温撕开欧洲“遮羞布”](https://www.blog.minike.top/Article/details/5388527575.shtml)
+- 2026-06-29 14:37 - [每代父母都困在自己的时代里](http://www.blog.minike.top/Article/details/22326501.shtml)
+- 2026-06-29 14:30 - [Canna纳尔8-0对位单杀Doran](https://www.share.kurohicncr.top/Article/details/97243.shtml)
+- 2026-06-29 14:21 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/72899578378.shtml)
+- 2026-06-29 14:42 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.blog.minike.top/Article/details/11328610060.shtml)
+- 2026-06-29 14:45 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/495653488393.shtml)
+- 2026-06-29 14:40 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/94577979.shtml)
+- 2026-06-29 14:37 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/045706814.shtml)
+- 2026-06-29 14:43 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/5856308735.shtml)
+- 2026-06-29 14:41 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.kurohicncr.top/Article/details/130296.shtml)
+- 2026-06-29 14:30 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/776829572310.shtml)
+- 2026-06-29 14:31 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.blog.minike.top/Article/details/02144.shtml)
+- 2026-06-29 14:25 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.minike.top/Article/details/517244682106.shtml)

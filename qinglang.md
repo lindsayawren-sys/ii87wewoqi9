@@ -1,56 +1,58 @@
-# 莫言呼吁关爱“星星的孩子”：行慈善者必受慈善之惠
+# 加拿大经济意外萎缩叠加美元避险需求升温，美元兑加元重返1.3800上方
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-中新网郑州4月27日电 (王佳宁)“行慈善者必受慈善之惠。”诺贝尔文学奖得主、中国著名作家莫言27日现身河南郑州“与星同行——中国著名作家手稿展首展”现场，呼吁社会各界关注并帮助“星星的孩子”(又称孤独症儿童)。 此次展览于25日在郑州开幕，莫言、冯骥才、梁晓声、刘慈欣等86位当代中国作家联合捐出200余件珍贵创作手稿，旨在为孤独症儿童筹集善款。 该展览由莫言与“两块砖公益基金
+汇通财经APP讯——美元兑加元（USD/CAD）周一亚洲交易时段延续反弹走势，汇价重新收复1.3800整数关口。虽然距离上周触及的4月中旬以来高点1.3870附近仍有一定距离，但整体市场氛围依然偏向美元多头。 当前市场关注的核心因素依然是美国与伊朗之间的外交谈判以及中东地区安全局势。由于双方围绕核计划和霍尔木兹海峡问题仍存在明显分歧，市场对于协议最终达成的预期有所降温。 与此同
 
 ## 正文
 
-中新网郑州4月27日电 (王佳宁)“行慈善者必受慈善之惠。
+汇通财经APP讯——美元兑加元（USD/CAD）周一亚洲交易时段延续反弹走势，汇价重新收复1.3800整数关口。
 
-”诺贝尔文学奖得主、中国著名作家莫言27日现身河南郑州“与星同行——中国著名作家手稿展首展”现场，呼吁社会各界关注并帮助“星星的孩子”(又称孤独症儿童)。
+虽然距离上周触及的4月中旬以来高点1.3870附近仍有一定距离，但整体市场氛围依然偏向美元多头。
 
-此次展览于25日在郑州开幕，莫言、冯骥才、梁晓声、刘慈欣等86位当代中国作家联合捐出200余件珍贵创作手稿，旨在为孤独症儿童筹集善款。
+当前市场关注的核心因素依然是美国与伊朗之间的外交谈判以及中东地区安全局势。
 
-该展览由莫言与“两块砖公益基金”共同发起，“两块砖公益基金”策展，人民文学出版社、河南日报社协办。
+由于双方围绕核计划和霍尔木兹海峡问题仍存在明显分歧，市场对于协议最终达成的预期有所降温。
 
-展品涵盖莫言的小说手稿、冯骥才与梁晓声的散文手迹，以及苏童《妻妾成群》、刘慈欣《三体》等创作原稿摘录。
+与此同时，以色列在黎巴嫩地区扩大军事行动，也进一步增加了地区局势的不确定性。
 
-该展览完成全国巡展后，所有手稿将进行拍卖，所得款项将全部用于孤独症照护者技能培训等公益项目。
+避险情绪升温推动美元获得更多资金支持，并成为美元兑加元上涨的重要驱动力之一。
 
-谈及为何选择拍卖作家创作手稿这一方式发起慈善，莫言表示，这些手稿表现了中国作家对社会弱势群体的关注、对慈善事业的热忱。
+伊朗首席谈判代表加利巴夫表示，除非伊朗国家权益获得充分保障，否则不会接受任何协议。
 
-近年来，莫言积极投身于各类慈善活动。
+这意味着未来谈判仍面临较大挑战。
 
 ## 相关推荐
 
-- 2026-06-29 14:38 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-29 14:23 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 14:41 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-29 14:12 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 14:40 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-29 14:37 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-29 14:32 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 14:15 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-29 14:29 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-29 14:12 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-29 14:26 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 14:42 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 14:20 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 14:41 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 14:21 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 14:29 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-29 14:45 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 14:37 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-29 14:39 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 14:35 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 14:35 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 14:31 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:39 - [复盘曾沛慈浪姐夺冠之路](https://www.blog.minike.top/Article/details/38020848975.shtml)
-- 2026-06-29 14:13 - [前国足主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/48302535.shtml)
-- 2026-06-29 14:25 - [媒体评恋与深空争议](https://www.blog.minike.top/Article/details/76214952.shtml)
-- 2026-06-29 14:24 - [84岁英国教授成中国网红](https://www.blog.minike.top/Article/details/2144651039.shtml)
-- 2026-06-29 14:29 - [多只A股发布股价异动公告](http://www.blog.kurohicncr.top/Article/details/90977430.shtml)
-- 2026-06-29 14:39 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/8419520.shtml)
-- 2026-06-29 14:27 - [曾沛慈夺冠后人气](https://www.blog.kurohicncr.top/Article/details/91816283.shtml)
-- 2026-06-29 14:38 - [美国近12万名科技员工被解雇](https://www.share.kurohicncr.top/Article/details/755892080.shtml)
-- 2026-06-29 14:31 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/22472324280.shtml)
-- 2026-06-29 14:39 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.minike.top/Article/details/769992371306.shtml)
-- 2026-06-29 14:20 - [森保一：日本队要亲手改写历史](https://www.share.kurohicncr.top/Article/details/2758982.shtml)
-- 2026-06-29 14:41 - [森保一：日本队要亲手改写历史](http://www.blog.minike.top/Article/details/8935363.shtml)
-- 2026-06-29 14:26 - [去了一趟潮汕。](http://www.share.kurohicncr.top/Article/details/99261281.shtml)
-- 2026-06-29 14:24 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/4374597.shtml)
-- 2026-06-29 14:38 - [王楚钦 表演球擦网](http://www.share.kurohicncr.top/Article/details/0628475124.shtml)
+- 2026-06-29 14:21 - [韩国队差旅费亏麻了](http://www.share.kurohicncr.top/Article/details/55926819.shtml)
+- 2026-06-29 14:40 - [叶一茜森碟一起回北京了](https://www.blog.kurohicncr.top/Article/details/686288590636.shtml)
+- 2026-06-29 14:18 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/143548088087.shtml)
+- 2026-06-29 14:37 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/93735982.shtml)
+- 2026-06-29 14:40 - [3D打印不是工业革命，它是……](https://www.share.minike.top/Article/details/9223177723.shtml)
+- 2026-06-29 14:20 - [沙丘](https://www.share.minike.top/Article/details/061205.shtml)
+- 2026-06-29 14:23 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.minike.top/Article/details/472227430.shtml)
+- 2026-06-29 14:41 - [日本主帅：目标是冠军](http://www.share.kurohicncr.top/Article/details/91422256503.shtml)
+- 2026-06-29 14:33 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/17611547914.shtml)
+- 2026-06-29 14:30 - [韩剧编剧又升级了](https://www.share.minike.top/Article/details/50555.shtml)
+- 2026-06-29 14:46 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/75307543.shtml)
+- 2026-06-29 14:47 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/729224277821.shtml)
+- 2026-06-29 14:24 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/611334405303.shtml)
+- 2026-06-29 14:20 - [iPhone18系列预计将大幅涨价](https://www.share.minike.top/Article/details/55314.shtml)
+- 2026-06-29 14:31 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/41728002.shtml)

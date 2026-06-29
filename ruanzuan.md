@@ -1,54 +1,60 @@
-# 中国移动蒋亚佳：以“网络筑基、算力升级、智能引领”融合能力，赋能自动驾驶产业高质量发展
+# MLB CUP青少年棒球系列赛深圳站收官
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-专题：第二届自动驾驶产业发展论坛 4月25日，第二届自动驾驶产业发展论坛在北京召开，主题为“加速自动驾驶产业发展 凝聚自动驾驶安全共识”。中国移动上海产业研究院智慧交通产品部总经理蒋亚佳出席并介绍了中国移动以“网络筑基、算力升级、智能引领”的融合能力，赋能自动驾驶产业高质量发展的创新实践。 蒋亚佳指出，当前自动驾驶已迈入规模化商用关键阶段，对网络服务的可靠性、算力服务的高效性以
+中新网深圳6月1日电 (记者 索有为)2025-2026 MLB CUP青少年棒球系列赛·深圳 GBL联盟体验赛5月31日收官。 本次赛事为期两日，于5月30日至31日在深圳两大赛场同步进行，22支来自深圳及周边城市的青少年队伍轮番登场，总计完成55场激烈对决。 赛场之上，少年健儿们不畏高温、全力冲刺，挥棒、跑垒、防守一气呵成；场边教练运筹帷幄、临场指挥，观众呐喊助威声连绵不绝
 
 ## 正文
 
-专题：第二届自动驾驶产业发展论坛 4月25日，第二届自动驾驶产业发展论坛在北京召开，主题为“加速自动驾驶产业发展 凝聚自动驾驶安全共识”。
+中新网深圳6月1日电 (记者 索有为)2025-2026 MLB CUP青少年棒球系列赛·深圳 GBL联盟体验赛5月31日收官。
 
-中国移动上海产业研究院智慧交通产品部总经理蒋亚佳出席并介绍了中国移动以“网络筑基、算力升级、智能引领”的融合能力，赋能自动驾驶产业高质量发展的创新实践。
+本次赛事为期两日，于5月30日至31日在深圳两大赛场同步进行，22支来自深圳及周边城市的青少年队伍轮番登场，总计完成55场激烈对决。
 
-蒋亚佳指出，当前自动驾驶已迈入规模化商用关键阶段，对网络服务的可靠性、算力服务的高效性以及智能服务的专业性需求日益迫切。
+赛场之上，少年健儿们不畏高温、全力冲刺，挥棒、跑垒、防守一气呵成；场边教练运筹帷幄、临场指挥，观众呐喊助威声连绵不绝。
 
-针对产业核心痛点与发展需求，中国移动从三个方面重点发力： 一是升级网络服务保障能力，通过构建高可靠、高稳定、优先级专属的网络服务体系，为自动驾驶技术规模化落地筑牢网络根基； 二是搭建分级部署、能力协同的算力基础设施矩阵，深度赋能车城融合、车企研发、车主出行等多场景应用，破解算力供需失衡难题； 三是依托国家人工智能行业应用中试基地（制造领域汽车方向）的全栈AI技术优势，全面赋能自动驾驶车辆研发设计、智能制造、模型评测、安全监管全生命周期的智能化升级，驱动产业提质增效。
+紧张激烈的比拼氛围与朝气蓬勃的运动气息交织，为全体观众呈现了一场精彩纷呈的青少年棒球盛宴。
 
-蒋亚佳表示，“未来，中国移动上海产业研究院将持续发挥车联网子链牵头引领作用，加快推进通信服务、算力服务、智能服务一体化协同布局，强化自动驾驶、车联网、智能座舱服务全栈供给，探索Token运营及6G前沿技术，持续赋能产业协同升级，为我国自动驾驶产业高质量发展注入强劲持久动能。
+经过小组赛、淘汰赛、决赛多轮严苛比拼，U8、U10、U12三大组别最终排名全部揭晓，各支优胜队伍站上荣誉舞台。
 
-”新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
+在U8组别比赛中，明德碧海学校队获得冠军，深中南创B队获得亚军，红岭华富队获得季军。
 
-责任编辑：李昂
+在U10组别比赛中，航镁精英队获得冠军，深中南创队获得亚军，香港蓝谍U10少棒队获得季军。
+
+在U12组别比赛中，东莞龙腾队获得冠军，航镁精英A队获得亚军，香港红鸟U12少棒队获得季军。
 
 ## 相关推荐
 
-- 2026-06-29 14:16 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 14:28 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-29 14:20 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-29 14:42 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 14:17 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-29 14:32 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-29 14:38 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-29 14:38 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-29 14:17 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-29 14:37 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 14:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 14:43 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-29 14:32 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 14:44 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 14:24 - [血糖高的人能吃西瓜吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-29 14:20 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 14:30 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 14:43 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-29 14:18 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-29 14:22 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 14:42 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-29 14:22 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-29 14:38 - [A股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-29 14:46 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:27 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/561802459474.shtml)
-- 2026-06-29 14:27 - [医药股集体爆发](https://www.blog.kurohicncr.top/Article/details/6310081.shtml)
-- 2026-06-29 14:36 - [42岁郭碧婷纯素颜状态](http://www.share.kurohicncr.top/Article/details/13134920.shtml)
-- 2026-06-29 14:34 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/04045249383.shtml)
-- 2026-06-29 14:12 - [哈兰德之歌火到国外](http://www.share.kurohicncr.top/Article/details/09691515.shtml)
-- 2026-06-29 14:25 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/311887.shtml)
-- 2026-06-29 14:36 - [德国队前往比赛场地遭遇囧途](http://www.blog.kurohicncr.top/Article/details/883251406990.shtml)
-- 2026-06-29 14:23 - [速度与激情9](https://www.share.minike.top/Article/details/627846.shtml)
-- 2026-06-29 14:27 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/11893481822.shtml)
-- 2026-06-29 14:22 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/040329.shtml)
-- 2026-06-29 14:19 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.kurohicncr.top/Article/details/765891.shtml)
-- 2026-06-29 14:28 - [中国避暑神器在欧洲卖爆了](http://www.blog.minike.top/Article/details/66685932.shtml)
-- 2026-06-29 14:16 - [中方将20家日本实体列入关注名单](http://www.blog.minike.top/Article/details/31688679139.shtml)
-- 2026-06-29 14:18 - [金价银价下跌 油价上涨](https://www.blog.minike.top/Article/details/489427769.shtml)
-- 2026-06-29 14:12 - [周锡玮：做堂堂正正的中国人](https://www.share.minike.top/Article/details/1181539883.shtml)
+- 2026-06-29 14:23 - [去了一趟潮汕。](https://www.blog.minike.top/Article/details/23140.shtml)
+- 2026-06-29 14:44 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/3096519.shtml)
+- 2026-06-29 14:27 - [赵露思爸爸拍vlog翻车了](https://www.blog.minike.top/Article/details/208575078.shtml)
+- 2026-06-29 14:30 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/418993.shtml)
+- 2026-06-29 14:35 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/16445211953.shtml)
+- 2026-06-29 14:19 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/3849158.shtml)
+- 2026-06-29 14:29 - [森保一：日本队要亲手改写历史](https://www.share.minike.top/Article/details/184659905.shtml)
+- 2026-06-29 14:20 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/805574.shtml)
+- 2026-06-29 14:36 - [小S在香港被偶遇](https://www.share.minike.top/Article/details/7777614.shtml)
+- 2026-06-29 14:21 - [美伊同意停止互袭 30日在多哈谈判](http://www.blog.kurohicncr.top/Article/details/5079827862.shtml)
+- 2026-06-29 14:28 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.minike.top/Article/details/73368916.shtml)
+- 2026-06-29 14:33 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/78617935.shtml)
+- 2026-06-29 14:42 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.minike.top/Article/details/9085201246.shtml)
+- 2026-06-29 14:46 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/29411398.shtml)
+- 2026-06-29 14:21 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.kurohicncr.top/Article/details/45727.shtml)

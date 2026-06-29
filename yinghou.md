@@ -1,47 +1,46 @@
-# 升辉清洁有意收购华立数字广东70%股权
+# 国泰海通证券：亚盛医药首予“增持”评级 目标价59.09港元
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-升辉清洁（02521）发布公告，该集团与华立数字科技（郑州）有限公司（华立数字郑州）正在就集团可能收购华立数字郑州所持有的华立数字科技（广东）有限公司（华立数字广东）70%股权进行磋商。 华立数字广东主要从事物联网、大数据及人工智能等新技术的应用，提供包括软件系统开发及相关服务以及营运与维护服务在内的一站式解决方案，服务智慧城市发展及企业数字化转型。责任编辑：卢昱君
+国泰海通证券发布研报称，预计亚盛医药（06855）2026-27年公司营收分别为10.15/24.08亿元，分别同比增长76.75%/137.26%。参考可比公司，考虑到亚盛医药奥雷巴替尼、利沙托克拉海外临床进展顺利，CML、AML、MDS等多个适应症有望在海外获批上市，该行给予亚盛医药2026年20倍PS，目标价为54.36元/59.09港元（汇率为1港元=0.92人民币），
 
 ## 正文
 
-升辉清洁（02521）发布公告，该集团与华立数字科技（郑州）有限公司（华立数字郑州）正在就集团可能收购华立数字郑州所持有的华立数字科技（广东）有限公司（华立数字广东）70%股权进行磋商。
+国泰海通证券发布研报称，预计亚盛医药（06855）2026-27年公司营收分别为10.15/24.08亿元，分别同比增长76.75%/137.26%。
 
-华立数字广东主要从事物联网、大数据及人工智能等新技术的应用，提供包括软件系统开发及相关服务以及营运与维护服务在内的一站式解决方案，服务智慧城市发展及企业数字化转型。
+参考可比公司，考虑到亚盛医药奥雷巴替尼、利沙托克拉海外临床进展顺利，CML、AML、MDS等多个适应症有望在海外获批上市，该行给予亚盛医药2026年20倍PS，目标价为54.36元/59.09港元（汇率为1港元=0.92人民币），给予“增持”评级。
 
 责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:35 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 14:13 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 14:17 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-29 14:34 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 14:20 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-29 14:30 - [A股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-29 14:23 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-29 14:28 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 14:37 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 14:28 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 14:37 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 14:38 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 14:43 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 14:37 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-29 14:19 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 14:31 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-29 14:31 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-29 14:44 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 14:22 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 14:30 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 14:27 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:30 - [双高胎](https://www.blog.kurohicncr.top/Article/details/728681637997.shtml)
-- 2026-06-29 14:17 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.share.minike.top/Article/details/52220176357.shtml)
-- 2026-06-29 14:23 - [韩国队差旅费亏麻了](http://www.share.minike.top/Article/details/3015704.shtml)
-- 2026-06-29 14:13 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.minike.top/Article/details/25051313.shtml)
-- 2026-06-29 14:39 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/6125773.shtml)
-- 2026-06-29 14:34 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/199037436228.shtml)
-- 2026-06-29 14:18 - [Agent带来token消耗爆炸](http://www.blog.kurohicncr.top/Article/details/194136.shtml)
-- 2026-06-29 14:24 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/1555850855.shtml)
-- 2026-06-29 14:29 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.share.minike.top/Article/details/894860.shtml)
-- 2026-06-29 14:19 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.share.minike.top/Article/details/86472413.shtml)
-- 2026-06-29 14:14 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/523335.shtml)
-- 2026-06-29 14:40 - [中国避暑神器在欧洲卖爆了](https://www.blog.minike.top/Article/details/6079262971.shtml)
-- 2026-06-29 14:39 - [高考志愿今起开始填报](http://www.blog.minike.top/Article/details/4705976.shtml)
-- 2026-06-29 14:29 - [马斯克也站到了光里](http://www.blog.minike.top/Article/details/0697232.shtml)
-- 2026-06-29 14:16 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/581297.shtml)
+- 2026-06-29 14:39 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/361486401217.shtml)
+- 2026-06-29 14:19 - [普京：俄面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/6429030.shtml)
+- 2026-06-29 14:39 - [外网预言中国举办世界杯时间](https://www.share.minike.top/Article/details/49744.shtml)
+- 2026-06-29 14:44 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.minike.top/Article/details/597754978.shtml)
+- 2026-06-29 14:39 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/70257782023.shtml)
+- 2026-06-29 14:42 - [迈巴赫提车第二天发现大灯起雾](http://www.share.kurohicncr.top/Article/details/12237398.shtml)
+- 2026-06-29 14:23 - [我和我的家乡](http://www.blog.minike.top/Article/details/68162.shtml)
+- 2026-06-29 14:37 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/569740.shtml)
+- 2026-06-29 14:27 - [比亚迪市值为何蒸发8000亿](https://www.blog.minike.top/Article/details/10998936699.shtml)
+- 2026-06-29 14:23 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/776816045.shtml)
+- 2026-06-29 14:37 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/236077919876.shtml)
+- 2026-06-29 14:22 - [A股](https://www.blog.minike.top/Article/details/2046505.shtml)
+- 2026-06-29 14:45 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.minike.top/Article/details/92174927060.shtml)
+- 2026-06-29 14:23 - [新一代影后杨紫](http://www.blog.kurohicncr.top/Article/details/83316242.shtml)
+- 2026-06-29 14:22 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.minike.top/Article/details/3037628.shtml)

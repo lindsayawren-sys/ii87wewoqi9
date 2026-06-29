@@ -1,47 +1,50 @@
-# 时报数说：北京口岸本年度出入境 突破700万人次
+# 德康农牧获董事长王德根增持35.25万股 每股作价约52.76港元
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！责任编辑：石秀珍 SF183
+香港联交所最新资料显示，5月29日，董事长王德根增持德康农牧（02419）35.25万股，每股作价52.7569港元，总金额约为1859.68万港元。增持后最新持股数目约为1231.46万股，最新持股比例为7.81%。责任编辑：卢昱君
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+香港联交所最新资料显示，5月29日，董事长王德根增持德康农牧（02419）35.25万股，每股作价52.7569港元，总金额约为1859.68万港元。
 
-责任编辑：石秀珍 SF183
+增持后最新持股数目约为1231.46万股，最新持股比例为7.81%。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:25 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 14:33 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 14:37 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-29 14:35 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 14:30 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-29 14:31 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 14:40 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-29 14:30 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-29 14:22 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-29 14:33 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-29 14:30 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 14:31 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-29 14:39 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-29 14:26 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 14:29 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 14:29 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-29 14:47 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 14:32 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 14:47 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-29 14:29 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-29 14:39 - [T1对战KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 14:34 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-29 14:44 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 14:47 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 14:29 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-29 14:26 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-29 14:24 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:29 - [在自己家不穿衣服犯法吗](https://www.blog.kurohicncr.top/Article/details/214464832102.shtml)
-- 2026-06-29 14:24 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.minike.top/Article/details/3320543.shtml)
-- 2026-06-29 14:18 - [逃狱兄弟](https://www.share.minike.top/Article/details/27834532.shtml)
-- 2026-06-29 14:38 - [美媒：空警-3000服役即成全球最强](http://www.blog.kurohicncr.top/Article/details/56774513.shtml)
-- 2026-06-29 14:16 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/595495463366.shtml)
-- 2026-06-29 14:27 - [龟梨和也田中美奈实结婚](https://www.share.minike.top/Article/details/43788731.shtml)
-- 2026-06-29 14:14 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/06143.shtml)
-- 2026-06-29 14:40 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/4018410461.shtml)
-- 2026-06-29 14:32 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/914545.shtml)
-- 2026-06-29 14:18 - [女心理师](http://www.blog.minike.top/Article/details/28770843.shtml)
-- 2026-06-29 14:22 - [沙丘](https://www.blog.kurohicncr.top/Article/details/5862787411.shtml)
-- 2026-06-29 14:28 - [北极荒岛生存挑战](http://www.blog.kurohicncr.top/Article/details/000548.shtml)
-- 2026-06-29 14:28 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/28695497073.shtml)
-- 2026-06-29 14:34 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/617686353202.shtml)
-- 2026-06-29 14:31 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.minike.top/Article/details/73650064742.shtml)
+- 2026-06-29 14:18 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.minike.top/Article/details/225832136.shtml)
+- 2026-06-29 14:30 - [韩国主帅洪明甫辞职](https://www.blog.minike.top/Article/details/9042926319.shtml)
+- 2026-06-29 14:23 - [加拿大绝杀南非晋级](https://www.share.kurohicncr.top/Article/details/99460435.shtml)
+- 2026-06-29 14:32 - [肖战深夜到达青岛赴十日终焉片场](http://www.share.kurohicncr.top/Article/details/66273781671.shtml)
+- 2026-06-29 14:31 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/46742958.shtml)
+- 2026-06-29 14:40 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/39864235696.shtml)
+- 2026-06-29 14:20 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/4963367733.shtml)
+- 2026-06-29 14:42 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.kurohicncr.top/Article/details/81854927772.shtml)
+- 2026-06-29 14:39 - [韩媒破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/29639.shtml)
+- 2026-06-29 14:42 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/399562512715.shtml)
+- 2026-06-29 14:47 - [大范围炎热天气将至](http://www.blog.minike.top/Article/details/791137735.shtml)
+- 2026-06-29 14:32 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.blog.kurohicncr.top/Article/details/87809148.shtml)
+- 2026-06-29 14:19 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/198229414.shtml)
+- 2026-06-29 14:21 - [爱情有烟火你是知道我爱看什么的](http://www.blog.minike.top/Article/details/21466.shtml)
+- 2026-06-29 14:35 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.minike.top/Article/details/806797073729.shtml)

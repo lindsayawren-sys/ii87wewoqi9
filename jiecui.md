@@ -1,59 +1,59 @@
-# 日经指数或维持区间波动 受伊朗冲突不确定性影响
+# 日本考虑于2027年4月实施为期两年消费税调降措施
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-由于围绕伊朗冲突的不确定性持续，日本股市或将维持区间波动。日经指数期货在新加坡交易所上涨0.2%，报60，390点。投资者正在密切关注中东局势发展以及日本企业财报。Denso和小松制作所定于周二晚些时候公布季度业绩。日本央行定于周二晚些时候公布的政策决定也备受关注。日经指数周一上涨1.4%，至60，537.36点。责任编辑：王永生
+媒体引述一位匿名政府高官报导表示，日本正考虑从明年4月起，对食品销售适用的8%税率实施为期两年的减税措施。 报道表示，这样的时程将使首相高市早苗的政府能在预定2027年4月举行的地方选举前推动减税政策。 为避免调整收银系统识别零税率所需的漫长时间，消费税税率可能降至1%，而非最初计划的0%。首相官邸暂未对此置评。 日本目前对食品征收8%消费税、对其他商品和服务征收10%的税率。
 
 ## 正文
 
-由于围绕伊朗冲突的不确定性持续，日本股市或将维持区间波动。
+媒体引述一位匿名政府高官报导表示，日本正考虑从明年4月起，对食品销售适用的8%税率实施为期两年的减税措施。
 
-日经指数期货在新加坡交易所上涨0.2%，报60，390点。
+报道表示，这样的时程将使首相高市早苗的政府能在预定2027年4月举行的地方选举前推动减税政策。
 
-投资者正在密切关注中东局势发展以及日本企业财报。
+为避免调整收银系统识别零税率所需的漫长时间，消费税税率可能降至1%，而非最初计划的0%。
 
-Denso和小松制作所定于周二晚些时候公布季度业绩。
+首相官邸暂未对此置评。
 
-日本央行定于周二晚些时候公布的政策决定也备受关注。
+日本目前对食品征收8%消费税、对其他商品和服务征收10%的税率。
 
-日经指数周一上涨1.4%，至60，537.36点。
+这些税收是因应人口快速老龄化而上升的社会福利支出的重要资金来源。
 
-责任编辑：王永生
+高市早苗今年1月承诺，将取消食品销售的8%消费税，为期两年，以帮助家庭缓解生活成本上涨带来的压力。
+
+该计划的具体细节将在朝野政党会议中进一步讨论。
 
 ## 相关推荐
 
-- 2026-06-29 14:32 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-29 14:30 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-29 14:20 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 14:34 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 14:31 - [海军舰艇编队将赴香港](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-29 14:29 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 14:32 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-29 14:21 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 14:36 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 14:12 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-29 14:41 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-29 14:27 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-29 14:31 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-29 14:18 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-29 14:20 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-29 14:31 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 14:25 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 14:20 - [新一代影后杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-29 14:20 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 14:30 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-29 14:45 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-29 14:32 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-29 14:18 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-29 14:29 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 14:35 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 14:41 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 14:47 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-29 14:46 - [AG 钟意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:12 - [ENC瓦中国香港负印度数据图](https://www.share.minike.top/Article/details/73248.shtml)
-- 2026-06-29 14:14 - [下飞机后，我做了个很蠢的决定......](http://www.blog.kurohicncr.top/Article/details/97687291.shtml)
-- 2026-06-29 14:41 - [民进党为什么拼命抹黑统战](http://www.share.kurohicncr.top/Article/details/30631192.shtml)
-- 2026-06-29 14:28 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.minike.top/Article/details/633844259808.shtml)
-- 2026-06-29 14:24 - [青春环游记第三季](http://www.share.minike.top/Article/details/6356622.shtml)
-- 2026-06-29 14:27 - [王楚钦3比0周启豪](http://www.blog.minike.top/Article/details/546129020504.shtml)
-- 2026-06-29 14:39 - [王楚钦首轮赢下国乒德比](https://www.share.kurohicncr.top/Article/details/104128.shtml)
-- 2026-06-29 14:29 - [前国足主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/35371.shtml)
-- 2026-06-29 14:38 - [王楚钦3比0周启豪](https://www.blog.minike.top/Article/details/76255.shtml)
-- 2026-06-29 14:26 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/7808601.shtml)
-- 2026-06-29 14:27 - [上周末 多领域成果密集“上新”](https://www.share.minike.top/Article/details/0536205.shtml)
-- 2026-06-29 14:17 - [TLAW vs DCG MSI](https://www.share.kurohicncr.top/Article/details/46014.shtml)
-- 2026-06-29 14:20 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.kurohicncr.top/Article/details/79066683.shtml)
-- 2026-06-29 14:21 - [42岁郭碧婷纯素颜状态](https://www.share.minike.top/Article/details/2651067717.shtml)
-- 2026-06-29 14:39 - [共享单车“价格刺客”79分钟30元](https://www.blog.kurohicncr.top/Article/details/4560291294.shtml)
+- 2026-06-29 14:24 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/398353.shtml)
+- 2026-06-29 14:34 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/80348211271.shtml)
+- 2026-06-29 14:27 - [吴磊爱上回收了](https://www.share.kurohicncr.top/Article/details/575813295827.shtml)
+- 2026-06-29 14:33 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.share.kurohicncr.top/Article/details/7489830.shtml)
+- 2026-06-29 14:29 - [扬名立万](http://www.blog.minike.top/Article/details/757076924.shtml)
+- 2026-06-29 14:46 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/01333477215.shtml)
+- 2026-06-29 14:44 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/0422284.shtml)
+- 2026-06-29 14:40 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/5261558.shtml)
+- 2026-06-29 14:36 - [河南考699分女生已接到清华大学电话](http://www.share.minike.top/Article/details/759230484.shtml)
+- 2026-06-29 14:24 - [世界杯超牛补水广告出现了](http://www.share.kurohicncr.top/Article/details/29024.shtml)
+- 2026-06-29 14:48 - [光与夜之恋](https://www.blog.minike.top/Article/details/07784.shtml)
+- 2026-06-29 14:27 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/9123822.shtml)
+- 2026-06-29 14:20 - [撒旦的腋窝是什么比喻](https://www.blog.kurohicncr.top/Article/details/622398128059.shtml)
+- 2026-06-29 14:35 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/3225512559.shtml)
+- 2026-06-29 14:22 - [韩国记者：解码“合肥模式”](http://www.share.minike.top/Article/details/5933302.shtml)

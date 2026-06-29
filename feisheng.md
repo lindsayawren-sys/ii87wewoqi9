@@ -1,56 +1,50 @@
-# 徽商期货投教案例连续四年入围中国期货业协会期货交易者教育优秀案例
+# 东鹏饮料盘中涨超10% 控股股东林木勤未来一年拟斥最多2亿港元增持H股
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-徽商期货投教案例连续四年入围中国期货业协会期货交易者教育优秀案例库 近日，中国期货业协会公布了第八届期货交易者教育优秀案例名单，徽商期货申报的《“产业新视野”系列培训活动》与《“徽商之星”实盘交易大赛获奖选手访谈录》凭借其创新性与实效性，从众多参评项目中脱颖而出，成功入围。这不仅是公司投教实力的见证，更是行业对徽商期货深耕投资者教育工作的权威认可。 本次入围的两个案例精准切入“
+东鹏饮料（09980）盘中涨超10%，截至发稿，股价上涨3.93%，现报137.50港元，成交额8006.30万港元。 消息面上，5月29日晚，东鹏饮料公布，公司于5月29日收到控股股东林木勤先生通知，其通过上海证券交易所交易系统（含港股通）、香港联合交易所有限公司交易系统允许的方式增持公司 H 股股份4.98万股，约占公司总股本的 0.0069%。 公告指出，基于对公司内在价
 
 ## 正文
 
-徽商期货投教案例连续四年入围中国期货业协会期货交易者教育优秀案例库 近日，中国期货业协会公布了第八届期货交易者教育优秀案例名单，徽商期货申报的《“产业新视野”系列培训活动》与《“徽商之星”实盘交易大赛获奖选手访谈录》凭借其创新性与实效性，从众多参评项目中脱颖而出，成功入围。
+东鹏饮料（09980）盘中涨超10%，截至发稿，股价上涨3.93%，现报137.50港元，成交额8006.30万港元。
 
-这不仅是公司投教实力的见证，更是行业对徽商期货深耕投资者教育工作的权威认可。
+消息面上，5月29日晚，东鹏饮料公布，公司于5月29日收到控股股东林木勤先生通知，其通过上海证券交易所交易系统（含港股通）、香港联合交易所有限公司交易系统允许的方式增持公司 H 股股份4.98万股，约占公司总股本的 0.0069%。
 
-本次入围的两个案例精准切入“产业赋能”与“实战普惠”两大维度，构建了立体化的投教服务体系： “产业新视野”聚焦实体痛点。
+公告指出，基于对公司内在价值高度认可和对未来持续稳定发展的信心，林木勤先生计划于12个月内增持公司H股股份，计划增持金额不低于1亿元港币，不超过2亿元港币。
 
-紧扣服务实体经济宗旨，针对企业风险管理难点，打造了涵盖风险识别、工具运用及交割落地的全链条课程。
-
-通过“线上+线下”常态化机制，助力企业破解风险管理难题，提升实操能力，促进期现融合。
-
-“徽商之星”访谈录深耕实战经验。
-
-依托品牌实盘赛事，构建“发掘—提炼—普惠”的投教闭环。
-
-通过复盘真实交易案例，强化对资金管理与交易纪律的引导，将顶尖交易者的实战智慧转化为普惠大众的教育资源，有效提升个人交易者的交易素养与风控意识。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:22 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 14:24 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 14:14 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 14:35 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-29 14:28 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 14:18 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 14:34 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 14:34 - [新一代影后杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-29 14:22 - [爱情有烟火你是知道我爱看什么的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-29 14:21 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-29 14:27 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 14:29 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 14:24 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 14:24 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 14:28 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 14:40 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-29 14:22 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-29 14:42 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 14:22 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 14:43 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 14:45 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-29 14:47 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:29 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/488607896783.shtml)
-- 2026-06-29 14:31 - [papi酱回应毕业4年零收入](http://www.blog.minike.top/Article/details/548615215.shtml)
-- 2026-06-29 14:36 - [T1对战KC](http://www.blog.kurohicncr.top/Article/details/02927306.shtml)
-- 2026-06-29 14:31 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/69163951704.shtml)
-- 2026-06-29 14:30 - [佛得角到底在哪个“角”](http://www.share.minike.top/Article/details/080802162338.shtml)
-- 2026-06-29 14:23 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/404508.shtml)
-- 2026-06-29 14:12 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/322810638.shtml)
-- 2026-06-29 14:32 - [薛之谦演唱会](https://www.share.minike.top/Article/details/2700411.shtml)
-- 2026-06-29 14:16 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/497453.shtml)
-- 2026-06-29 14:24 - [青春环游记第三季](https://www.share.minike.top/Article/details/0416477.shtml)
-- 2026-06-29 14:24 - [链博会上的机器人太全能了](http://www.blog.minike.top/Article/details/655976681.shtml)
-- 2026-06-29 14:20 - [王楚钦欢迎晚宴上打台球](http://www.share.minike.top/Article/details/19497087.shtml)
-- 2026-06-29 14:31 - [女心理师](https://www.share.minike.top/Article/details/02274206.shtml)
-- 2026-06-29 14:12 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/2859218260.shtml)
-- 2026-06-29 14:20 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/54117957296.shtml)
+- 2026-06-29 14:33 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/922029675185.shtml)
+- 2026-06-29 14:47 - [李在明称韩国足协任命了无能之人](http://www.blog.kurohicncr.top/Article/details/696585731.shtml)
+- 2026-06-29 14:22 - [肖战深夜到达青岛赴十日终焉片场](http://www.blog.kurohicncr.top/Article/details/7735573.shtml)
+- 2026-06-29 14:40 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/98665.shtml)
+- 2026-06-29 14:22 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/13637235263.shtml)
+- 2026-06-29 14:35 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.kurohicncr.top/Article/details/633938177306.shtml)
+- 2026-06-29 14:40 - [斗破苍穹](http://www.share.minike.top/Article/details/008013.shtml)
+- 2026-06-29 14:42 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/26215033541.shtml)
+- 2026-06-29 14:23 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.share.kurohicncr.top/Article/details/847442.shtml)
+- 2026-06-29 14:36 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/998482236200.shtml)
+- 2026-06-29 14:33 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/881598197.shtml)
+- 2026-06-29 14:25 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/916285260546.shtml)
+- 2026-06-29 14:21 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/19241.shtml)
+- 2026-06-29 14:47 - [普京：俄面临命运攸关时刻](http://www.blog.minike.top/Article/details/82269.shtml)
+- 2026-06-29 14:40 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.kurohicncr.top/Article/details/9074540517.shtml)

@@ -1,57 +1,57 @@
-# 埃森哲将向全部74.3万员工推广Copilot，微软迎企业AI里程碑
+# 重启第三次，天涯打赢复活赛了吗？
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-全球专业服务巨头埃森哲周一宣布，将向其全部约74.3万名员工推广微软的Copilot 365 AI助手，这是该聊天机器人迄今达成的最大企业订单，也为正在努力将海量用户转化为付费客户的微软注入一剂强心针。 微软自2023年推出该技术以来，其超过4.5亿的365企业用户中仅有稍多于3%付费使用每月30美元的服务，Copilot推广缓慢和云业务增长不均已加深投资者对微软巨额AI支出回
+中新网6月2日电(记者 左雨晴) 在停服三年、两次重启失败后，曾号称“全球最大中文互联网社区”的天涯社区，似乎终于打赢了“复活赛”。 5月31日晚，“天涯社区”官方微博发布《关于天涯社区恢复访问进展的情况说明》，宣布天涯社区回归已成定局。自2026年6月1日起，天涯社区将正式启用tianya.net域名，分步骤实现天涯社区数据恢复访问。消息一出，相关话题迅速冲上微博热搜，“天涯
 
 ## 正文
 
-全球专业服务巨头埃森哲周一宣布，将向其全部约74.3万名员工推广微软的Copilot 365 AI助手，这是该聊天机器人迄今达成的最大企业订单，也为正在努力将海量用户转化为付费客户的微软注入一剂强心针。
+中新网6月2日电(记者 左雨晴) 在停服三年、两次重启失败后，曾号称“全球最大中文互联网社区”的天涯社区，似乎终于打赢了“复活赛”。
 
-微软自2023年推出该技术以来，其超过4.5亿的365企业用户中仅有稍多于3%付费使用每月30美元的服务，Copilot推广缓慢和云业务增长不均已加深投资者对微软巨额AI支出回报的担忧。
+5月31日晚，“天涯社区”官方微博发布《关于天涯社区恢复访问进展的情况说明》，宣布天涯社区回归已成定局。
 
-此次合作标志着微软在推动企业级AI应用方面迈出重要一步。
+自2026年6月1日起，天涯社区将正式启用tianya.net域名，分步骤实现天涯社区数据恢复访问。
 
-97%员工报告效率提升 尽管微软面临转化挑战，埃森哲对目前的AI实施效果表示满意。
+消息一出，相关话题迅速冲上微博热搜，“天涯神帖”“天涯社区”更是一度霸榜热搜。
 
-本次部署基于埃森哲2024年向多达30万员工推广Copilot的计划，公司已成为最积极的企业AI采用者之一，甚至将高级晋升与技术使用挂钩。
+然而，对于无数高呼“爷青回”的网友来说，天涯真的能重回当年吗？
 
-基于对20万用户的内部调查，约97%的员工表示Copilot帮助他们将例行任务的完成速度提高了多达15倍，其中53%报告在生产力方面获得重大提升。
+网站访问困难 情怀跟不上时代？
 
-埃森哲首席执行官表示：“得益于它，我们的团队已经在从事更高价值的工作。
+尽管天涯社区官宣正式重启，危机却远未结束。
 
-” 多模型策略推动需求 微软负责M365应用和Copilot平台的高管表示，提供包括Anthropic在内的多种AI模型以及用一个模型检查另一个模型输出的工具，正在推动需求增长。
+根据公告，6月1日零时起，www.tianya.net正式开放访问，将首先实现部分天涯社区精华帖子的浏览功能。
 
 ## 相关推荐
 
-- 2026-06-29 14:27 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-29 14:24 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-29 14:32 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-29 14:29 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-29 14:20 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-29 14:22 - [AG 钟意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-29 14:16 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 14:31 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-29 14:27 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-29 14:25 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-29 14:16 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 14:35 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-29 14:33 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 14:42 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-29 14:46 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 14:30 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-29 14:41 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 14:28 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 14:18 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 14:47 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-29 14:34 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 14:30 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:34 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/16465.shtml)
-- 2026-06-29 14:15 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.kurohicncr.top/Article/details/612701.shtml)
-- 2026-06-29 14:14 - [世界杯用球成部分门将噩梦](http://www.blog.minike.top/Article/details/0159923675.shtml)
-- 2026-06-29 14:39 - [实习期把公司领导开除了](https://www.blog.kurohicncr.top/Article/details/374207580.shtml)
-- 2026-06-29 14:39 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/83162449.shtml)
-- 2026-06-29 14:25 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/19623381859.shtml)
-- 2026-06-29 14:32 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/19360598.shtml)
-- 2026-06-29 14:37 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/28097735429.shtml)
-- 2026-06-29 14:32 - [韩国队启程回国众将回避镜头](http://www.blog.minike.top/Article/details/34393370.shtml)
-- 2026-06-29 14:26 - [实习期把公司领导开除了](https://www.share.kurohicncr.top/Article/details/31513216724.shtml)
-- 2026-06-29 14:14 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/567722713.shtml)
-- 2026-06-29 14:38 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.kurohicncr.top/Article/details/296555145.shtml)
-- 2026-06-29 14:40 - [李连杰回应网传不管前妻俩女儿](http://www.blog.kurohicncr.top/Article/details/091327378901.shtml)
-- 2026-06-29 14:12 - [加拿大绝杀南非晋级](https://www.blog.kurohicncr.top/Article/details/17771.shtml)
-- 2026-06-29 14:25 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/81071489.shtml)
+- 2026-06-29 14:26 - [女心理师](http://www.blog.kurohicncr.top/Article/details/337704.shtml)
+- 2026-06-29 14:32 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/050622338.shtml)
+- 2026-06-29 14:32 - [三轮车过马路 车上木材砸中路边男子](https://www.share.kurohicncr.top/Article/details/2407270691.shtml)
+- 2026-06-29 14:23 - [宜宾发生5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/65480501.shtml)
+- 2026-06-29 14:27 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/00688660604.shtml)
+- 2026-06-29 14:25 - [每代父母都困在自己的时代里](http://www.blog.minike.top/Article/details/5754125.shtml)
+- 2026-06-29 14:18 - [陈靖可虞书欣领衔主演](https://www.share.kurohicncr.top/Article/details/30884973944.shtml)
+- 2026-06-29 14:27 - [专家建议城乡居民养老金增至每月千元](https://www.blog.minike.top/Article/details/9666224.shtml)
+- 2026-06-29 14:24 - [森保一：日本队要亲手改写历史](http://www.share.kurohicncr.top/Article/details/27704991.shtml)
+- 2026-06-29 14:33 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.kurohicncr.top/Article/details/181524436180.shtml)
+- 2026-06-29 14:19 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/99673.shtml)
+- 2026-06-29 14:32 - [王楚钦3-0周启豪 晋级32强](https://www.share.minike.top/Article/details/802137667926.shtml)
+- 2026-06-29 14:34 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/829022.shtml)
+- 2026-06-29 14:30 - [毕业群都在出什么东西](https://www.blog.kurohicncr.top/Article/details/31614405.shtml)
+- 2026-06-29 14:23 - [世界杯：日本将与巴西争夺16强席位](http://www.share.kurohicncr.top/Article/details/238030798.shtml)

@@ -1,57 +1,56 @@
-# 百亿基金创新高，公募老将重仓了谁？
+# 欧洲央行官员Schnabel：战争可能导致通胀预期失控
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-4月22日，基金经理杜猛管理的摩根新兴动力A、傅鹏博管理的睿远成长价值A，这两只百亿级公募基金的复权单位净值均创下历史新高；时隔两日，谢治宇管理的兴全合润A复权单位净值亦突破历史纪录。截至4月24日，4月以来，三位公募老将管理的基金收益率分别为26.34%、22.40%和12.91%，均跑赢各自的业绩比较基准。 在一季度报告中，三只基金的前十大重仓股出现了相同的面孔，即中际旭创
+欧洲央行执行理事会成员Isabel Schnabel称，随着价格压力蔓延至能源以外的领域，以及通胀预期失控的风险上升，我们不能再忽视伊朗战争带来的通胀影响。 Schnabel在韩国央行周一在首尔举行的会议上表示，对能源基础设施和全球供应链的破坏已经以更持久的方式改变了价格动态，这意味着即使冲突立即结束，政策制定者也可能需要做出应对。 “我们不能再对这种冲击视而不见了，”Schn
 
 ## 正文
 
-4月22日，基金经理杜猛管理的摩根新兴动力A、傅鹏博管理的睿远成长价值A，这两只百亿级公募基金的复权单位净值均创下历史新高；时隔两日，谢治宇管理的兴全合润A复权单位净值亦突破历史纪录。
+欧洲央行执行理事会成员Isabel Schnabel称，随着价格压力蔓延至能源以外的领域，以及通胀预期失控的风险上升，我们不能再忽视伊朗战争带来的通胀影响。
 
-截至4月24日，4月以来，三位公募老将管理的基金收益率分别为26.34%、22.40%和12.91%，均跑赢各自的业绩比较基准。
+Schnabel在韩国央行周一在首尔举行的会议上表示，对能源基础设施和全球供应链的破坏已经以更持久的方式改变了价格动态，这意味着即使冲突立即结束，政策制定者也可能需要做出应对。
 
-在一季度报告中，三只基金的前十大重仓股出现了相同的面孔，即中际旭创和新易盛等。
+“我们不能再对这种冲击视而不见了，”Schnabel说道，“通胀预期脱锚的风险正在上升。
 
-站在光中业绩爆发 截至4月24日最新数据显示，杜猛的基金经理年限已近15年。
+”她被广泛认为是欧洲央行最鹰派的决策者。
 
-他管理的摩根新兴动力规模为107.66亿元，其A份额4月以来收益率达26.34%，远超同期16.45%的业绩比较基准收益率。
+这些评论强化了Schnabel上周的表态，当时她表示欧洲央行需要在6月10日至11日的会议上加息。
 
-支撑这一收益的，是高仓位运作和对光模块的配置。
+市场广泛预计央行将有此行动，官员们正努力应对能源成本上涨可能引发更广泛通胀的前景，尽管考虑到冲突造成的经济影响尚不明朗，政策制定者一直谨慎地没有透露利率将上升多少。
 
-2026年一季报显示，该基金股票仓位为93.28%；新易盛为第四大重仓股，占股票市值比7.42%；中际旭创的持股占比为3.97%。
+Schnabel表示，现在确定可能需要加息多少次还为时过早，并称政策制定者将继续评估中东地区的数据和事态发展。
 
-记者查阅定期报告发现，摩根新兴动力已连续四个季度重仓这两只光模块龙头股。
+“现在就说升息有几次，然后又说完工了，还为时过早。
 
 ## 相关推荐
 
-- 2026-06-29 14:39 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-29 14:22 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 14:33 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-29 14:39 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 14:32 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-29 14:16 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-29 14:29 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 14:30 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-29 14:18 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 14:36 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 14:26 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 14:31 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-29 14:35 - [严浩翔FIY断层第一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 14:20 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 14:45 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 14:27 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 14:34 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-29 14:43 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 14:18 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 14:28 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 14:36 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:21 - [中方将20家日本实体列入关注名单](http://www.share.kurohicncr.top/Article/details/86714.shtml)
-- 2026-06-29 14:35 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/60760.shtml)
-- 2026-06-29 14:24 - [广东一地发现极危植物新物种](https://www.share.minike.top/Article/details/424830.shtml)
-- 2026-06-29 14:28 - [当我回母校教书](http://www.share.minike.top/Article/details/81479274975.shtml)
-- 2026-06-29 14:24 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/7014066656.shtml)
-- 2026-06-29 14:40 - [韩国队如何把94%出线概率打到0%](https://www.blog.minike.top/Article/details/7800404.shtml)
-- 2026-06-29 14:21 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/27486182595.shtml)
-- 2026-06-29 14:34 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/73189879540.shtml)
-- 2026-06-29 14:37 - [一生一世](https://www.share.kurohicncr.top/Article/details/4859003951.shtml)
-- 2026-06-29 14:34 - [撒旦的腋窝是什么比喻](http://www.share.kurohicncr.top/Article/details/94920.shtml)
-- 2026-06-29 14:37 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/164625368789.shtml)
-- 2026-06-29 14:13 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/448296.shtml)
-- 2026-06-29 14:31 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/1300308.shtml)
-- 2026-06-29 14:12 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/4421964318.shtml)
-- 2026-06-29 14:40 - [汪东城回应45岁婚约](http://www.share.minike.top/Article/details/238472.shtml)
+- 2026-06-29 14:46 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.minike.top/Article/details/029627617.shtml)
+- 2026-06-29 14:35 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/87158.shtml)
+- 2026-06-29 14:40 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/883202190.shtml)
+- 2026-06-29 14:33 - [赵露思爸爸拍vlog“翻车”](http://www.share.kurohicncr.top/Article/details/5247682489.shtml)
+- 2026-06-29 14:30 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/10728.shtml)
+- 2026-06-29 14:28 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/05597287590.shtml)
+- 2026-06-29 14:24 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.blog.minike.top/Article/details/7854203.shtml)
+- 2026-06-29 14:23 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/10068800923.shtml)
+- 2026-06-29 14:41 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/542954.shtml)
+- 2026-06-29 14:18 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/656719291.shtml)
+- 2026-06-29 14:34 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/889613813822.shtml)
+- 2026-06-29 14:31 - [大疆7月15日起涨价？公司回应](http://www.blog.kurohicncr.top/Article/details/11631.shtml)
+- 2026-06-29 14:18 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/796523385185.shtml)
+- 2026-06-29 14:43 - [广东一地发现极危植物新物种](http://www.blog.minike.top/Article/details/163035.shtml)
+- 2026-06-29 14:41 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/3626450.shtml)

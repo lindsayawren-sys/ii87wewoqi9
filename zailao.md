@@ -1,61 +1,59 @@
-# 伊朗外长抵达巴基斯坦 但没有与美国代表团举行会谈的计划
+# 高溢价导致对价格敏感客户流失 花旗大幅下调老铺黄金目标价至700港元
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-伊朗最高外交官先于美国特使抵达巴基斯坦，但通过直接谈判结束这场持续八周、扰乱全球经济的战争的前景依然渺茫。 伊朗外交部一位发言人周六表示，外长阿巴斯·阿拉格齐只会与巴基斯坦官员会面，传达伊朗的“观察”，没有与美国代表团举行会谈的计划。 白宫新闻秘书莱维特周五表示，特使威特科夫和特朗普女婿库什纳周六将启程以进行周末的会谈。 阿拉格齐此前在社群媒体上发文称，此行目的是“就双边事务与
+文章来源：财闻 老铺黄金持续加强门店布局，包括5月底在澳门巴黎人开设新店，以及在杭州大厦及上海新天地调整门店位置或进行翻新。 6月2日，花旗发表报告指，老铺黄金5月销售额预计将受节日促销带动而超过4月，但观察到天猫618活动至今的表现较预期弱，可能是由于高溢价导致对价格敏感的客户流失。由于2月涨价后金价走软，老铺黄金相对于传统金饰商的溢价已超过55%，高于2024年前约30%及
 
 ## 正文
 
-伊朗最高外交官先于美国特使抵达巴基斯坦，但通过直接谈判结束这场持续八周、扰乱全球经济的战争的前景依然渺茫。
+文章来源：财闻 老铺黄金持续加强门店布局，包括5月底在澳门巴黎人开设新店，以及在杭州大厦及上海新天地调整门店位置或进行翻新。
 
-伊朗外交部一位发言人周六表示，外长阿巴斯·阿拉格齐只会与巴基斯坦官员会面，传达伊朗的“观察”，没有与美国代表团举行会谈的计划。
+6月2日，花旗发表报告指，老铺黄金5月销售额预计将受节日促销带动而超过4月，但观察到天猫618活动至今的表现较预期弱，可能是由于高溢价导致对价格敏感的客户流失。
 
-白宫新闻秘书莱维特周五表示，特使威特科夫和特朗普女婿库什纳周六将启程以进行周末的会谈。
+由于2月涨价后金价走软，老铺黄金相对于传统金饰商的溢价已超过55%，高于2024年前约30%及2025年约10%的水平。
 
-阿拉格齐此前在社群媒体上发文称，此行目的是“就双边事务与伙伴密切协调，并就地区局势发展进行磋商”。
+该行相信，随着价格敏感客户暂时退出，现有客户更多是认可品牌品质、设计与服务的忠实客户，这将使未来销售与金价的相关性降低，有助于提高盈利的可预测性。
 
-根据伊朗半官方的Mehr通讯社报道，他已与巴基斯坦陆军参谋长Asim Munir会面，巴基斯坦媒体称，他接下来将与巴基斯坦总理和外交部长会面。
+此外，老铺黄金持续加强门店布局，包括5月底在澳门巴黎人开设新店，以及在杭州大厦及上海新天地调整门店位置或进行翻新。
 
-不过，莱维特声称是伊朗方面主动联络要求安排新一轮会谈。
+考虑到在线销售预期下调，花旗将老铺黄金2026财年收入预测下调6%至377亿元，但受惠于毛利率预测提升，净利润预测维持在82.6亿元不变。
 
-莱维特在福克斯表示，“我们希望这将是一场富有成效的对话，并有望推动达成协议的进程。
+对于2027至2028财年，为反映价格敏感客户流失后的年化表现，该行将两年收入预测降29%至30%，纯利预测降27%至28%。
 
-”她随后对记者表示，过去几天“我们确实看到伊朗方面取得了一些进展”，但未作进一步说明。
+基于预测2027财年市盈率15倍，该行将老铺黄金目标价由1162港元大幅下调至700港元，维持“买入”评级。
 
 ## 相关推荐
 
-- 2026-06-29 14:29 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-29 14:23 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-29 14:33 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 14:35 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 14:38 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 14:28 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-29 14:19 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 14:19 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-29 14:13 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 14:25 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 14:23 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 14:20 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 14:37 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-29 14:16 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-29 14:27 - [如何“亲菌子”又“远小人儿”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-29 14:45 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 14:26 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-29 14:26 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 14:27 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 14:21 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 14:45 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 14:29 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 14:38 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 14:22 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 14:35 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 14:18 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-29 14:23 - [詹俊预测德国大胜巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 14:23 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:38 - [刘烨16岁儿子诺一颜值](http://www.share.kurohicncr.top/Article/details/55417493.shtml)
-- 2026-06-29 14:29 - [我和我的家乡](https://www.share.minike.top/Article/details/430479900976.shtml)
-- 2026-06-29 14:24 - [爱很美味](http://www.share.minike.top/Article/details/889047.shtml)
-- 2026-06-29 14:41 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/62860916.shtml)
-- 2026-06-29 14:27 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/77737469.shtml)
-- 2026-06-29 14:13 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.kurohicncr.top/Article/details/83542.shtml)
-- 2026-06-29 14:17 - [张一山回应与杨紫友情](https://www.blog.kurohicncr.top/Article/details/942487417.shtml)
-- 2026-06-29 14:29 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/2251007550.shtml)
-- 2026-06-29 14:19 - [媒体评恋与深空争议](http://www.share.kurohicncr.top/Article/details/5154831.shtml)
-- 2026-06-29 14:26 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/74480451155.shtml)
-- 2026-06-29 14:27 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.share.minike.top/Article/details/832007843115.shtml)
-- 2026-06-29 14:30 - [永远保持对人民的赤子之心](https://www.blog.minike.top/Article/details/5096010444.shtml)
-- 2026-06-29 14:36 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.minike.top/Article/details/1384984.shtml)
-- 2026-06-29 14:27 - [韩国记者：解码“合肥模式”](https://www.blog.minike.top/Article/details/41528076.shtml)
-- 2026-06-29 14:17 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.blog.minike.top/Article/details/641223620.shtml)
+- 2026-06-29 14:43 - [一见倾心](https://www.share.minike.top/Article/details/24846.shtml)
+- 2026-06-29 14:44 - [韩国队如何把94%出线概率打到0%](http://www.share.minike.top/Article/details/89920259.shtml)
+- 2026-06-29 14:35 - [异世界一点都不好玩！](https://www.blog.kurohicncr.top/Article/details/69705.shtml)
+- 2026-06-29 14:30 - [林昀儒不敌17岁小将止步首轮](http://www.share.minike.top/Article/details/356968218.shtml)
+- 2026-06-29 14:38 - [T1 vs KC MSI](https://www.blog.minike.top/Article/details/283574.shtml)
+- 2026-06-29 14:46 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/879028161815.shtml)
+- 2026-06-29 14:34 - [Agent带来token消耗爆炸](http://www.share.minike.top/Article/details/529624631.shtml)
+- 2026-06-29 14:38 - [把古诗里的动作换成加班](https://www.share.minike.top/Article/details/132605488934.shtml)
+- 2026-06-29 14:34 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/271619343125.shtml)
+- 2026-06-29 14:34 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/155647885.shtml)
+- 2026-06-29 14:23 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/028091312202.shtml)
+- 2026-06-29 14:39 - [赵露思爸爸拍vlog翻车了](https://www.share.minike.top/Article/details/58860727171.shtml)
+- 2026-06-29 14:43 - [妹妹的正确用法！](https://www.share.minike.top/Article/details/06752307.shtml)
+- 2026-06-29 14:40 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/176482.shtml)
+- 2026-06-29 14:39 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/942356911.shtml)

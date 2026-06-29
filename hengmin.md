@@ -1,58 +1,60 @@
-# 引望智能李文广：ADS辅助驾驶安全指标达中国平均4.2倍，自动泊车30万次仅1次碰撞
+# A股更香？南向资金罕见单月净卖出，AI叙事正发生变化
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:03 UTC+8
 
 ## 摘要
 
-专题：第二届自动驾驶产业发展论坛 4月25日，第二届自动驾驶产业发展论坛在北京召开，主题为“加速自动驾驶产业发展 凝聚自动驾驶安全共识”。引望智能驾驶产品线总裁李文广在演讲中透露，截至目前，搭载华为乾崑智驾ADS（辅助驾驶）的车辆已达170万辆，预计年底达到300万辆。2025年，辅助驾驶累计里程增至100亿公里，预计到今年年底将达200亿公里。 他提到，据统计数据，中国平均每
+近期，A股和港股市场表现出不同的资金变化。外资流入A股，南向资金则出现近年来少见的单月净流出，5月净卖出35.54亿港元。相对港股，A股近期呈现更强的韧性。不过，机构人士认为，中长期看，南向资金增配趋势还将延续。 从行业配置来看，半导体、计算机等板块受到资金追捧，然而，应当警惕的是，AI叙事整体发生变化。 南向资金再现单月净流出 Wind数据显示，5月南向资金成交净卖出35.5
 
 ## 正文
 
-专题：第二届自动驾驶产业发展论坛 4月25日，第二届自动驾驶产业发展论坛在北京召开，主题为“加速自动驾驶产业发展 凝聚自动驾驶安全共识”。
+近期，A股和港股市场表现出不同的资金变化。
 
-引望智能驾驶产品线总裁李文广在演讲中透露，截至目前，搭载华为乾崑智驾ADS（辅助驾驶）的车辆已达170万辆，预计年底达到300万辆。
+外资流入A股，南向资金则出现近年来少见的单月净流出，5月净卖出35.54亿港元。
 
-2025年，辅助驾驶累计里程增至100亿公里，预计到今年年底将达200亿公里。
+相对港股，A股近期呈现更强的韧性。
 
-他提到，据统计数据，中国平均每180万公里发生一次需要弹出安全气囊或点爆安全带的严重事故。
+不过，机构人士认为，中长期看，南向资金增配趋势还将延续。
 
-搭载ADS的车辆在人驾模式下，该指标为517万公里，约等于中国平均水平的2.87倍；在辅助驾驶工作时，进一步提升至757万公里，相当于中国平均水平的4.2倍。
+从行业配置来看，半导体、计算机等板块受到资金追捧，然而，应当警惕的是，AI叙事整体发生变化。
 
-今年1月上线的最新4.1版本，在23亿公里的运行中，该指标达到约1100万公里。
+南向资金再现单月净流出 Wind数据显示，5月南向资金成交净卖出35.54亿港元，折合人民币29.83亿元。
 
-但他同时强调，“这并不是代表无人能做到这一点，这是是人机共驾、辅助驾驶的结果。
+南向资金单月净卖出的情况较为少见，2022年以后，仅2023年6月出现过单月净卖出，当时的净卖出金额为58.48亿港元。
 
-” 在泊车领域，搭载ADS车型的自动泊车辅助系统在30万次泊车中仅发生一次碰撞，而人泊的平均水平为每0.67万次即有一次碰撞。
+个股方面，阿里巴巴、腾讯控股等大型互联网公司5月南向资金净卖出量居前，以阿里巴巴为例，5月14日单日南向资金净卖出37.96亿港元，5月最后7个交易日更是连续呈现净卖出。
 
 ## 相关推荐
 
-- 2026-06-29 14:27 - [锐评浪姐7总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-29 14:32 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 14:14 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-29 14:31 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 14:25 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 14:32 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-29 14:25 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 14:16 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 14:39 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 14:21 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-29 14:41 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-29 14:36 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 14:28 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-29 14:29 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 14:24 - [给阿嬷的情书海外口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-29 14:35 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 14:23 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 14:41 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 14:36 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-29 14:40 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-29 14:22 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 14:22 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-29 14:45 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 14:21 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 14:39 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 14:22 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:30 - [哈基米歌王争霸赛](https://www.share.minike.top/Article/details/14976.shtml)
-- 2026-06-29 14:31 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.kurohicncr.top/Article/details/1041077.shtml)
-- 2026-06-29 14:14 - [美媒：空警-3000服役即成全球最强](http://www.share.kurohicncr.top/Article/details/433401347017.shtml)
-- 2026-06-29 14:21 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.minike.top/Article/details/11247496608.shtml)
-- 2026-06-29 14:40 - [金牌调解](https://www.share.kurohicncr.top/Article/details/04075314209.shtml)
-- 2026-06-29 14:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/35867.shtml)
-- 2026-06-29 14:16 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.kurohicncr.top/Article/details/7086202.shtml)
-- 2026-06-29 14:23 - [广东一地发现极危植物新物种](https://www.blog.kurohicncr.top/Article/details/781536397350.shtml)
-- 2026-06-29 14:18 - [韩国拟将部分刑责年龄降至13岁](http://www.blog.minike.top/Article/details/73428.shtml)
-- 2026-06-29 14:21 - [这开放世界游戏，竟然允许玩家屠城？](http://www.share.minike.top/Article/details/92426.shtml)
-- 2026-06-29 14:40 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.blog.kurohicncr.top/Article/details/0467558.shtml)
-- 2026-06-29 14:31 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/1017801692.shtml)
-- 2026-06-29 14:22 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/0511757538.shtml)
-- 2026-06-29 14:40 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/393408847.shtml)
-- 2026-06-29 14:23 - [中国战机大片上新](http://www.share.minike.top/Article/details/714723.shtml)
+- 2026-06-29 14:29 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/27217157.shtml)
+- 2026-06-29 14:45 - [逆天祖国人](http://www.blog.minike.top/Article/details/331367412343.shtml)
+- 2026-06-29 14:23 - [天道](https://www.share.minike.top/Article/details/6609929.shtml)
+- 2026-06-29 14:19 - [巴西德国15次闯进世界杯淘汰赛](https://www.share.minike.top/Article/details/997963.shtml)
+- 2026-06-29 14:20 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/265589.shtml)
+- 2026-06-29 14:37 - [南非老帅布罗斯的梦没能做完](https://www.blog.kurohicncr.top/Article/details/34518.shtml)
+- 2026-06-29 14:22 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/28920990.shtml)
+- 2026-06-29 14:38 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/6568494.shtml)
+- 2026-06-29 14:21 - [媒体：高考后消费应量力而行适度有度](http://www.share.kurohicncr.top/Article/details/97030711382.shtml)
+- 2026-06-29 14:35 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/17777095.shtml)
+- 2026-06-29 14:27 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/46159.shtml)
+- 2026-06-29 14:42 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/9148106004.shtml)
+- 2026-06-29 14:28 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/2746393947.shtml)
+- 2026-06-29 14:20 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/134834176.shtml)
+- 2026-06-29 14:44 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.kurohicncr.top/Article/details/7756374042.shtml)

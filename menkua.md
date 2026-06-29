@@ -1,58 +1,47 @@
-# 中国选手朱卿获大连马拉松女子组冠军
+# 监督≠随便说！公安部出手力挺“耳环村支书”
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-中新社大连4月26日电 (记者 杨毅)2026大连马拉松赛26日鸣枪起跑，3万名海内外跑者伴着春日的海风，共赴山海之约，中国选手朱卿获得本届大连马拉松赛女子组冠军。 本次比赛设马拉松、半程马拉松两个项目，参赛选手总规模为3万人。其中马拉松1.6万人，半程马拉松1.4万人。 当日7时30分，随着发令枪响，选手们沿着城市街道开始奔跑。赛道途经威尼斯水城、中山广场、人民广场、希望广场
+发布时间：2026年06月02日 17:23 来源：中国新闻网 监督≠随便说！公安部出手力挺“耳环村支书” 责任编辑：【翟璐】
 
 ## 正文
 
-中新社大连4月26日电 (记者 杨毅)2026大连马拉松赛26日鸣枪起跑，3万名海内外跑者伴着春日的海风，共赴山海之约，中国选手朱卿获得本届大连马拉松赛女子组冠军。
+发布时间：2026年06月02日 17:23 来源：中国新闻网 监督≠随便说！
 
-本次比赛设马拉松、半程马拉松两个项目，参赛选手总规模为3万人。
-
-其中马拉松1.6万人，半程马拉松1.4万人。
-
-当日7时30分，随着发令枪响，选手们沿着城市街道开始奔跑。
-
-赛道途经威尼斯水城、中山广场、人民广场、希望广场、劳动公园等地点，将大连的标志性景点和文化地标串联起来。
-
-肯尼亚选手Francis Kipkorir Langat以2小时09分44秒的成绩获得马拉松项目男子组冠军，并打破赛会纪录。
-
-中国选手朱卿以2小时29分02秒的成绩，获得本届大连马拉松赛女子组冠军。
-
-赛事还设置马拉松中国籍参赛选手名次奖。
+公安部出手力挺“耳环村支书” 责任编辑：【翟璐】
 
 ## 相关推荐
 
-- 2026-06-29 14:37 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-29 14:34 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-29 14:22 - [媒体：网络测评不能只剩“生意”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-29 14:35 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-29 14:40 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-29 14:28 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 14:21 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 14:23 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 14:27 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 14:40 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-29 14:36 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-29 14:37 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 14:19 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-29 14:37 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 14:34 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 14:36 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 14:35 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-29 14:30 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 14:20 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 14:47 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-29 14:46 - [3D打印不是工业革命，它是……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 14:19 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 14:24 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 14:47 - [崔韩率还以为韩娱来新人了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-29 14:23 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:14 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/015022696498.shtml)
-- 2026-06-29 14:28 - [中国邮政上海分公司总经理李柏平被查](http://www.blog.kurohicncr.top/Article/details/29492.shtml)
-- 2026-06-29 14:39 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.minike.top/Article/details/818345947099.shtml)
-- 2026-06-29 14:17 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/55369.shtml)
-- 2026-06-29 14:16 - [薛之谦演唱会](https://www.blog.minike.top/Article/details/515837837015.shtml)
-- 2026-06-29 14:14 - [当我回母校教书](http://www.share.minike.top/Article/details/2520599.shtml)
-- 2026-06-29 14:33 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/315246846.shtml)
-- 2026-06-29 14:25 - [唐国强打卡贵阳孔学堂](https://www.share.kurohicncr.top/Article/details/02018449.shtml)
-- 2026-06-29 14:14 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.kurohicncr.top/Article/details/25180338692.shtml)
-- 2026-06-29 14:21 - [沙特足协主席发布声明主动请辞](http://www.share.minike.top/Article/details/73780472861.shtml)
-- 2026-06-29 14:33 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/64923128.shtml)
-- 2026-06-29 14:19 - [世界杯用球成部分门将噩梦](http://www.blog.minike.top/Article/details/2252354.shtml)
-- 2026-06-29 14:15 - [Mrbeast的30天不吃饭挑战](https://www.blog.kurohicncr.top/Article/details/138675835647.shtml)
-- 2026-06-29 14:29 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.kurohicncr.top/Article/details/60353858.shtml)
-- 2026-06-29 14:36 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/2386197.shtml)
+- 2026-06-29 14:24 - [普京：俄面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/085067041418.shtml)
+- 2026-06-29 14:40 - [把古诗里的动作换成加班](https://www.share.minike.top/Article/details/149145939246.shtml)
+- 2026-06-29 14:46 - [如果你一直单身，你准备怎么养老？](https://www.blog.minike.top/Article/details/4236545.shtml)
+- 2026-06-29 14:44 - [网约车司机转账15000元后被乘客拉黑](https://www.share.minike.top/Article/details/370980901519.shtml)
+- 2026-06-29 14:26 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.kurohicncr.top/Article/details/11102397577.shtml)
+- 2026-06-29 14:42 - [世界杯用球成部分门将噩梦](http://www.blog.minike.top/Article/details/78411.shtml)
+- 2026-06-29 14:27 - [叶一茜森碟一起回北京了](http://www.blog.kurohicncr.top/Article/details/84328895.shtml)
+- 2026-06-29 14:35 - [起风了](https://www.share.minike.top/Article/details/9005737.shtml)
+- 2026-06-29 14:46 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/1309152.shtml)
+- 2026-06-29 14:26 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/93100.shtml)
+- 2026-06-29 14:41 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/523643708781.shtml)
+- 2026-06-29 14:23 - [强⁶](http://www.blog.kurohicncr.top/Article/details/50510422266.shtml)
+- 2026-06-29 14:23 - [林昀儒不敌17岁小将止步首轮](http://www.share.minike.top/Article/details/616134209.shtml)
+- 2026-06-29 14:23 - [巴西国脚说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/329399332610.shtml)
+- 2026-06-29 14:25 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.minike.top/Article/details/103011911612.shtml)

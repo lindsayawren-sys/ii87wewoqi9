@@ -1,56 +1,61 @@
-# 报道：谷歌员工敦促Pichai阻止美国军方使用其人工智能技术
+# 300550，终止控制权变更！明日复牌
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-英国《金融时报》报道，超过560名谷歌员工已联名致信首席执行官Sundar Pichai，敦促他拒绝让美国政府将谷歌人工智能技术用于机密军事行动。 信中写道：“我们希望看到人工智能造福人类，而不是被用于不人道或极其有害的用途。这其中包括但不限于致命性自主武器和大规模监控。” 两名参与者表示，这封致Pichai的信由谷歌人工智能实验室DeepMind的员工协调发起。签署者中有五分
+明日复牌。 和仁科技（300550）6月1日晚间公告，公司于前期收到通知，控股股东杭州磐源投资有限公司（简称“磐源投资”）及其一致行动人杭州磐鸿投资管理合伙企业（有限合伙）（简称“磐鸿投资”）、公司大股东通策医疗股份有限公司（简称“通策医疗”）正在筹划与第三方进行股权转让事项，该事项可能导致公司控股股东、实际控制人发生变更。5月25日，公司向深圳证券交易所申请，公司股票自202
 
 ## 正文
 
-英国《金融时报》报道，超过560名谷歌员工已联名致信首席执行官Sundar Pichai，敦促他拒绝让美国政府将谷歌人工智能技术用于机密军事行动。
+明日复牌。
 
-信中写道：“我们希望看到人工智能造福人类，而不是被用于不人道或极其有害的用途。
+和仁科技（300550）6月1日晚间公告，公司于前期收到通知，控股股东杭州磐源投资有限公司（简称“磐源投资”）及其一致行动人杭州磐鸿投资管理合伙企业（有限合伙）（简称“磐鸿投资”）、公司大股东通策医疗股份有限公司（简称“通策医疗”）正在筹划与第三方进行股权转让事项，该事项可能导致公司控股股东、实际控制人发生变更。
 
-这其中包括但不限于致命性自主武器和大规模监控。
+5月25日，公司向深圳证券交易所申请，公司股票自2026年5月26日（星期二）开市起停牌。
 
-” 两名参与者表示，这封致Pichai的信由谷歌人工智能实验室DeepMind的员工协调发起。
+停牌期间，公司控股股东磐源投资及其一致行动人磐鸿投资、大股东通策医疗与交易对方就可能导致公司控制权发生变动的相关重大事项进行了充分探讨。
 
-签署者中有五分之二来自人工智能部门，云业务部门占比相近，其余则来自Alphabet的其他团队。
+但由于涉及事项较多，与交易对方就核心事项未达成共识，经慎重考虑并友好协商，交易双方决定终止筹划本次重大事项。
 
-包括总监和副总裁在内的超过18名高级员工签署了这封信。
+公告称，公司目前各项经营情况正常，终止筹划本次重大事项不会对公司经营业绩和财务状况产生重大不利影响。
 
-责任编辑：丁文武
+未来，公司将继续围绕既定发展战略，持续提升公司可持续发展能力和盈利水平，为公司和股东创造更大价值。
+
+为维护广大投资者利益，根据《深圳证券交易所创业板股票上市规则》《深圳证券交易所上市公司自律监管指引第6号——停复牌》等有关规定，经公司向深圳证券交易所申请，公司股票自2026年6月2日（星期二）开市起复牌。
 
 ## 相关推荐
 
-- 2026-06-29 14:22 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-29 14:41 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 14:13 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-29 14:19 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 14:36 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-29 14:14 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-29 14:41 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 14:18 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 14:14 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 14:13 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 14:13 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-29 14:20 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 14:34 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 14:34 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 14:31 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 14:26 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 14:47 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 14:28 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-29 14:44 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-29 14:35 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-29 14:46 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 14:21 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-29 14:42 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 14:19 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 14:24 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 14:43 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 14:47 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:20 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.share.kurohicncr.top/Article/details/0177180862.shtml)
-- 2026-06-29 14:21 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/86146846.shtml)
-- 2026-06-29 14:35 - [锐评浪姐7总决赛](http://www.blog.kurohicncr.top/Article/details/0260522.shtml)
-- 2026-06-29 14:23 - [森保一：日本队要亲手改写历史](https://www.blog.kurohicncr.top/Article/details/39989328081.shtml)
-- 2026-06-29 14:24 - [美人鱼](http://www.blog.minike.top/Article/details/51306205.shtml)
-- 2026-06-29 14:21 - [俄军新型无人机战力如何](https://www.blog.kurohicncr.top/Article/details/0870701361.shtml)
-- 2026-06-29 14:19 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.share.kurohicncr.top/Article/details/0265570324.shtml)
-- 2026-06-29 14:28 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/0407102.shtml)
-- 2026-06-29 14:39 - [直击宜宾地震：监控剧烈摇晃](https://www.share.kurohicncr.top/Article/details/10484465110.shtml)
-- 2026-06-29 14:22 - [李连杰回应网传不管前妻俩女儿](http://www.blog.kurohicncr.top/Article/details/3440765.shtml)
-- 2026-06-29 14:28 - [河南考699分女生已接到清华大学电话](https://www.blog.minike.top/Article/details/517207282548.shtml)
-- 2026-06-29 14:17 - [Mrbeast的30天不吃饭挑战](http://www.share.kurohicncr.top/Article/details/4340892018.shtml)
-- 2026-06-29 14:12 - [F1奥地利正赛战报](http://www.blog.minike.top/Article/details/524263.shtml)
-- 2026-06-29 14:33 - [媒体：高考后消费应量力而行适度有度](http://www.share.kurohicncr.top/Article/details/96893.shtml)
-- 2026-06-29 14:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/688732521.shtml)
+- 2026-06-29 14:42 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.kurohicncr.top/Article/details/25923053470.shtml)
+- 2026-06-29 14:27 - [多家银行收紧个人贵金属业务](http://www.blog.kurohicncr.top/Article/details/207580008617.shtml)
+- 2026-06-29 14:43 - [海军舰艇编队将赴香港](http://www.share.minike.top/Article/details/1145159.shtml)
+- 2026-06-29 14:29 - [流金岁月](https://www.blog.minike.top/Article/details/3770595513.shtml)
+- 2026-06-29 14:35 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/6891623.shtml)
+- 2026-06-29 14:36 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/796856792.shtml)
+- 2026-06-29 14:18 - [《昨夜将至》为何是悬疑黑马](https://www.blog.kurohicncr.top/Article/details/58759002.shtml)
+- 2026-06-29 14:40 - [和阿根廷球员家属一起看球](http://www.blog.kurohicncr.top/Article/details/16005024.shtml)
+- 2026-06-29 14:30 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/266639825.shtml)
+- 2026-06-29 14:40 - [起风了](https://www.blog.kurohicncr.top/Article/details/076797.shtml)
+- 2026-06-29 14:42 - [加拿大女球迷玩人浪把手机甩飞](https://www.share.minike.top/Article/details/43310796.shtml)
+- 2026-06-29 14:38 - [周杰伦演唱会真的好多人啊](https://www.share.minike.top/Article/details/945130.shtml)
+- 2026-06-29 14:44 - [巴基斯坦军方打死29名武装分子](https://www.blog.kurohicncr.top/Article/details/057250.shtml)
+- 2026-06-29 14:45 - [急先锋](https://www.blog.kurohicncr.top/Article/details/16529642.shtml)
+- 2026-06-29 14:30 - [博主：比亚迪赢了销量却输给资本](http://www.blog.minike.top/Article/details/7127644.shtml)

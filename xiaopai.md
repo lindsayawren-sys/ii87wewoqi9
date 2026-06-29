@@ -1,58 +1,60 @@
-# 龙永图：只有全球力量平衡、经济共同发展，才能产生相对健康公平的全球化
+# 美国原油大涨超7%：伊朗称将中止与美谈判并彻底封锁霍尔木兹海峡
 
-> 更新时间：2026-06-29 14:42:02 UTC+8
+> 更新时间：2026-06-29 14:48:02 UTC+8
 
 ## 摘要
 
-专题：第十二届中国与全球化研讨会 4月26日，第十二届中国与全球化研讨会在北京举办，主题为“创新全球化：新动力与新挑战”。中国外经贸部前副部长、博鳌亚洲论坛前秘书长龙永图表示，对全球化的前景是乐观的，这个观察主要基于对新的现代科学技术发展的前景感到乐观。 他提到，过去大家认为推动全球化的力量主要有三种——政府的力量、市场的力量、科学技术的力量近年来，一些国家对全球化的看法发生了
+核心要点 据伊朗官方媒体报道，伊朗将中止与美国的谈判，并因以色列在黎巴嫩的军事行动彻底关闭霍尔木兹海峡，受此消息影响，美国原油价格周一暴涨近 8%。 截至美东时间上午 10：07，西德克萨斯轻质原油（WTI）期货上涨 7.8%，报94.20 美元 / 桶；国际基准布伦特原油期货上涨 6.7%，报97.23 美元 / 桶。 伊朗官方媒体塔斯尼姆通讯社在社交媒体发文称，在以色列停止
 
 ## 正文
 
-专题：第十二届中国与全球化研讨会 4月26日，第十二届中国与全球化研讨会在北京举办，主题为“创新全球化：新动力与新挑战”。
+核心要点 据伊朗官方媒体报道，伊朗将中止与美国的谈判，并因以色列在黎巴嫩的军事行动彻底关闭霍尔木兹海峡，受此消息影响，美国原油价格周一暴涨近 8%。
 
-中国外经贸部前副部长、博鳌亚洲论坛前秘书长龙永图表示，对全球化的前景是乐观的，这个观察主要基于对新的现代科学技术发展的前景感到乐观。
+截至美东时间上午 10：07，西德克萨斯轻质原油（WTI）期货上涨 7.8%，报94.20 美元 / 桶；国际基准布伦特原油期货上涨 6.7%，报97.23 美元 / 桶。
 
-他提到，过去大家认为推动全球化的力量主要有三种——政府的力量、市场的力量、科学技术的力量近年来，一些国家对全球化的看法发生了重大改变，而全球经济又起伏不定。
+伊朗官方媒体塔斯尼姆通讯社在社交媒体发文称，在以色列停止在加沙与黎巴嫩的袭击、并撤出黎巴嫩占领区前，伊朗谈判代表不会与美方举行任何会谈。
 
-所以大家觉得政府的力量、市场的力量靠不住，最重要的力量还是来自科学技术的力量。
+塔斯尼姆通讯社还称，德黑兰将彻底封锁霍尔木兹海峡，并在曼德海峡等其他战线采取行动。
 
-龙永图指出，这些年来，以人工智能为代表的新的科学技术迅猛发展，科学技术的发展是没有国界的，把全世界越来越多的国家联系在一起。
+曼德海峡是连接红海与亚丁湾的贸易咽喉要道。
 
-同时，科学技术的发展也有其自身的规律，不以人的意志而改变，受国际经济关系政治化的影响较小。
+上周，布伦特与 WTI 原油分别大跌 11.1% 与 9.6%，创下 4 月中旬以来最差单周表现。
 
-在现代科学技术的推动之下，许多国家特别是新兴发展中国家迅速崛起，使得全球力量的对比更加平衡。
+自 2026 年 2 月 28 日美以联合对伊朗开战以来，两大原油合约累计涨幅仍有约 30%。
 
-“只有全球力量平衡、经济共同发展才可能产生一个相对健康、公平的全球化。
+上周末，美伊重启空袭，以色列下令部队深入黎巴嫩，市场再度担忧：与伊朗支持的真主党冲突升级，或将破坏美伊之间脆弱的停火协议。
 
 ## 相关推荐
 
-- 2026-06-29 14:41 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 14:27 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-29 14:35 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 14:38 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 14:31 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-29 14:26 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 14:14 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 14:36 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-29 14:31 - [6月我国降水为何偏多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-29 14:23 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 14:36 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-29 14:16 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-29 14:30 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 14:33 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 14:38 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 14:34 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-29 14:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 14:41 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-29 14:25 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-29 14:23 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-29 14:31 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 14:35 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 14:44 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 14:22 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-29 14:38 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 14:31 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:19 - [俄称继续推进 乌称打击俄军设施](http://www.blog.kurohicncr.top/Article/details/7923791.shtml)
-- 2026-06-29 14:23 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/1487372.shtml)
-- 2026-06-29 14:23 - [严浩翔FIY断层第一](http://www.blog.kurohicncr.top/Article/details/01776273.shtml)
-- 2026-06-29 14:14 - [教育部发布预警 事关高招录取](https://www.blog.kurohicncr.top/Article/details/872200.shtml)
-- 2026-06-29 14:35 - [发反科学内容为何会有200万粉丝](https://www.share.minike.top/Article/details/99874.shtml)
-- 2026-06-29 14:24 - [唐艺昕女儿接唐艺昕回家](http://www.share.kurohicncr.top/Article/details/410709.shtml)
-- 2026-06-29 14:24 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/35628.shtml)
-- 2026-06-29 14:40 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/4467826.shtml)
-- 2026-06-29 14:39 - [沉睡花园](http://www.blog.minike.top/Article/details/912303352.shtml)
-- 2026-06-29 14:34 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/2885152.shtml)
-- 2026-06-29 14:36 - [孙怡告别浪姐千字文](http://www.share.kurohicncr.top/Article/details/53668200.shtml)
-- 2026-06-29 14:23 - [多家银行收紧个人贵金属业务](http://www.share.kurohicncr.top/Article/details/114290.shtml)
-- 2026-06-29 14:33 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.share.kurohicncr.top/Article/details/003713366.shtml)
-- 2026-06-29 14:16 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.kurohicncr.top/Article/details/83540813175.shtml)
-- 2026-06-29 14:16 - [双高胎](http://www.blog.minike.top/Article/details/625306.shtml)
+- 2026-06-29 14:22 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/0819445.shtml)
+- 2026-06-29 14:44 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/920417996773.shtml)
+- 2026-06-29 14:41 - [李连杰回应网传不管前妻俩女儿](https://www.blog.kurohicncr.top/Article/details/430315.shtml)
+- 2026-06-29 14:42 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/09657.shtml)
+- 2026-06-29 14:24 - [多家银行收紧个人贵金属业务](http://www.blog.minike.top/Article/details/4399367035.shtml)
+- 2026-06-29 14:43 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/993960006.shtml)
+- 2026-06-29 14:44 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.minike.top/Article/details/26853.shtml)
+- 2026-06-29 14:34 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/06930744342.shtml)
+- 2026-06-29 14:30 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.kurohicncr.top/Article/details/77428445044.shtml)
+- 2026-06-29 14:41 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.kurohicncr.top/Article/details/6879537.shtml)
+- 2026-06-29 14:19 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.share.kurohicncr.top/Article/details/8693764.shtml)
+- 2026-06-29 14:46 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.minike.top/Article/details/8939183081.shtml)
+- 2026-06-29 14:24 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.minike.top/Article/details/739175041.shtml)
+- 2026-06-29 14:45 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/266494169901.shtml)
+- 2026-06-29 14:33 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/3054270.shtml)
