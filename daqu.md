@@ -1,47 +1,58 @@
-# 达美航空推出新一代套间及改装计划
+# 柯马凯：家族三代情缘见证雪域高原七十五年巨变
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-达美航空推出新款“达美至臻商务舱套间”（Delta One suite），将于2027年在A350-1000机型上首次亮相，并计划对42架空客A330进行重大客舱升级，增加更多高级座位并更新内饰。责任编辑：张俊 SF065
+中新社拉萨6月2日电 题：柯马凯：家族三代情缘见证雪域高原七十五年巨变 中新社记者 江飞波 “《十七条协议》签订的时候，我刚出生13天。”西藏拉萨近日举行的一场学术研讨会上，北京京西学校联合创办人、英籍人士柯马凯(Michael Crook)以此开场。作为中华人民共和国“友谊勋章”获得者伊莎白·柯鲁克的儿子，这位与西藏和平解放同龄的学者，其家族三代人与雪域高原的缘分已绵延近百年
 
 ## 正文
 
-达美航空推出新款“达美至臻商务舱套间”（Delta One suite），将于2027年在A350-1000机型上首次亮相，并计划对42架空客A330进行重大客舱升级，增加更多高级座位并更新内饰。
+中新社拉萨6月2日电 题：柯马凯：家族三代情缘见证雪域高原七十五年巨变 中新社记者 江飞波 “《十七条协议》签订的时候，我刚出生13天。
 
-责任编辑：张俊 SF065
+”西藏拉萨近日举行的一场学术研讨会上，北京京西学校联合创办人、英籍人士柯马凯(Michael Crook)以此开场。
+
+作为中华人民共和国“友谊勋章”获得者伊莎白·柯鲁克的儿子，这位与西藏和平解放同龄的学者，其家族三代人与雪域高原的缘分已绵延近百年。
+
+柯马凯所说的《十七条协议》，是1951年5月23日签订的《中央人民政府和西藏地方政府关于和平解放西藏办法的协议》。
+
+它宣告了西藏和平解放。
+
+柯马凯说，20世纪30年代，他的祖父母初入四川涉藏地区，既看到美丽风景，也看到当地人民背负的深重苦难和农奴制，教育仅属于极少数特权阶层。
+
+20世纪40年代，他母亲深入藏族村落进行人类学考察，居住数月并帮当地引进纺车。
+
+这些家族记忆，构成了他对那段历史的底色认知。
 
 ## 相关推荐
 
-- 2026-06-29 17:09 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 17:11 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-29 16:57 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-29 17:02 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 16:53 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-29 16:49 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 17:06 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-29 17:16 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-29 16:58 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-29 17:08 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-29 17:05 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 16:58 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 17:06 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 17:17 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-29 16:56 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-29 17:18 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-29 16:55 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 16:55 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 16:55 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 17:09 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-29 17:21 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-29 17:04 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-29 17:21 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-29 17:08 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 17:19 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:50 - [依法管制阻遏日方军事化危险动向](https://www.blog.kurohicncr.top/Article/details/005573868659.shtml)
-- 2026-06-29 16:49 - [未成年少女长期吸毒导致卧床不起](https://www.blog.minike.top/Article/details/75845.shtml)
-- 2026-06-29 16:50 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/32308.shtml)
-- 2026-06-29 17:11 - [德云色预测世界杯16强](http://www.blog.minike.top/Article/details/183387.shtml)
-- 2026-06-29 17:07 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/63342962949.shtml)
-- 2026-06-29 17:01 - [世界杯十大帅哥必吃榜](https://www.blog.kurohicncr.top/Article/details/50372.shtml)
-- 2026-06-29 16:55 - [哈基米歌王争霸赛](http://www.blog.minike.top/Article/details/589100822.shtml)
-- 2026-06-29 16:49 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/4068984017.shtml)
-- 2026-06-29 17:06 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/996667318845.shtml)
-- 2026-06-29 16:56 - [韩国队差旅费亏麻了](http://www.share.minike.top/Article/details/07675.shtml)
-- 2026-06-29 16:55 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/4657417.shtml)
-- 2026-06-29 16:51 - [2026年，如果你有100万，你会怎么投资？](http://www.share.kurohicncr.top/Article/details/881993889.shtml)
-- 2026-06-29 17:10 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.kurohicncr.top/Article/details/96721855477.shtml)
-- 2026-06-29 17:04 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/294493.shtml)
-- 2026-06-29 16:59 - [老板回应员工光脚清洗土豆](https://www.blog.minike.top/Article/details/796284.shtml)
+- 2026-06-29 17:18 - [港股蓝筹股的落寞才刚刚开始吗](https://www.blog.kurohicncr.top/Article/details/61119460357.shtml)
+- 2026-06-29 17:00 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/16496.shtml)
+- 2026-06-29 17:01 - [业内：全球市场迎来结构性投资窗口](https://www.blog.minike.top/Article/details/69486693.shtml)
+- 2026-06-29 17:22 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/8317677781.shtml)
+- 2026-06-29 16:55 - [王楚钦开门红](https://www.blog.kurohicncr.top/Article/details/6755732641.shtml)
+- 2026-06-29 17:05 - [警方回应东鹏饮料董事长不喝东鹏](https://www.share.kurohicncr.top/Article/details/45050717.shtml)
+- 2026-06-29 17:09 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/75024.shtml)
+- 2026-06-29 17:01 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.minike.top/Article/details/2575256475.shtml)
+- 2026-06-29 17:22 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/260840667524.shtml)
+- 2026-06-29 17:03 - [AG 宫斗](http://www.blog.kurohicncr.top/Article/details/5413527.shtml)
+- 2026-06-29 17:15 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/10846399243.shtml)
+- 2026-06-29 17:09 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.minike.top/Article/details/05189643130.shtml)
+- 2026-06-29 17:10 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/168429894837.shtml)
+- 2026-06-29 17:04 - [扫黑风暴](https://www.blog.minike.top/Article/details/907993476.shtml)
+- 2026-06-29 17:02 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/070679846.shtml)

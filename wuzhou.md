@@ -1,55 +1,57 @@
-# 西藏共青团组织西藏各界青少年代表开展“国家安全 青春挺膺”活动
+# 月涨超160%后主动拆概念，宝鼎科技澄清未接触英伟达 | 长三角资本局
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-中新网拉萨4月14日电 (赵朗 齐雨晨)在第11个全民国家安全教育日即将到来之际，共青团西藏自治区委员会组织西藏各领域团员和青少年代表共70余人开展“国家安全 青春挺膺”主题党团队日活动。 代表们首先参观了“国家安全长城行”主题展。展览紧扣统筹发展和安全，护航“十五五”新征程时代主题，系统展示了总体国家安全观的深刻内涵与实践要求。参观过程中，讲解员根据大家不同职业不同身份有针对
+文|新浪财经上海站 十里 AI供应链传闻退潮时，宝鼎科技（维权）选择把市场最想听的故事逐项拆开。 5月31日，宝鼎科技发布股票交易异常波动公告称，近日公司关注到网络平台出现公司产品已纳入英伟达供应链体系认证等市场传闻。公司明确表示，相关信息不属实，截至目前公司未与英伟达有过接触，也未与其开展任何形式的业务合作。 这份澄清公告写得相当具体。宝鼎科技称，公司覆铜板产品主要是FR-4
 
 ## 正文
 
-中新网拉萨4月14日电 (赵朗 齐雨晨)在第11个全民国家安全教育日即将到来之际，共青团西藏自治区委员会组织西藏各领域团员和青少年代表共70余人开展“国家安全 青春挺膺”主题党团队日活动。
+文|新浪财经上海站 十里 AI供应链传闻退潮时，宝鼎科技（维权）选择把市场最想听的故事逐项拆开。
 
-代表们首先参观了“国家安全长城行”主题展。
+5月31日，宝鼎科技发布股票交易异常波动公告称，近日公司关注到网络平台出现公司产品已纳入英伟达供应链体系认证等市场传闻。
 
-展览紧扣统筹发展和安全，护航“十五五”新征程时代主题，系统展示了总体国家安全观的深刻内涵与实践要求。
+公司明确表示，相关信息不属实，截至目前公司未与英伟达有过接触，也未与其开展任何形式的业务合作。
 
-参观过程中，讲解员根据大家不同职业不同身份有针对性结合实际案例进行生动讲解，大家认真聆听、驻足观看，兴趣十足。
+这份澄清公告写得相当具体。
 
-随后，70名代表共上一堂微团课，共学国家安全知识，并开展了知识抢答活动。
+宝鼎科技称，公司覆铜板产品主要是FR-4及复合板等常规产品，不存在AI覆铜板产品，未发现应用于AI服务器及算力领域；高速覆铜板M7、M9没有销售、订单和收入；超低轮廓HVLP铜箔尚处客户认证阶段，2026年一季度实现营业收入约10万元，占比仅0.01%。
 
-据统计，今年该主题团日活动覆盖西藏全区32个县，600多所中学、高校和企事业单位，直接参与青年、团员超3万人次，以“宣传教育+实践体验+党群共建”三位一体模式，打造宣传矩阵，发出雪域国安强音，形成多维立体的强大声势，在广大青年、团员中营造了激扬青春敢担当的良好氛围。
+与此同时，公司还提示，2025年度覆铜板及铜箔业务净利润为-1850.99万元。
 
-(完)
+这意味着，市场此前围绕英伟达、AI服务器、高速覆铜板、HVLP铜箔形成的想象，在上市公司公告里几乎都找不到现实订单支撑。
+
+更值得注意的是，宝鼎科技近期股价已明显脱离常规基本面交易节奏。
 
 ## 相关推荐
 
-- 2026-06-29 17:15 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-29 17:17 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-29 16:56 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-29 16:55 - [南昌市委书记调整](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-29 17:03 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-29 17:17 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 16:56 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 16:49 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-29 16:54 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-29 17:05 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-29 16:55 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 17:03 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 17:12 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-29 17:18 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 17:23 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-29 17:04 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 16:55 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-29 16:59 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 17:04 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-29 17:14 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 16:56 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-29 16:54 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:13 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/88202.shtml)
-- 2026-06-29 17:01 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/24824058603.shtml)
-- 2026-06-29 17:17 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/75675.shtml)
-- 2026-06-29 17:11 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/146535732.shtml)
-- 2026-06-29 17:13 - [滾石唱片要求万豪酒店道歉](https://www.blog.kurohicncr.top/Article/details/126156102.shtml)
-- 2026-06-29 16:52 - [豆包收费了，你还会用吗？](https://www.share.kurohicncr.top/Article/details/13942.shtml)
-- 2026-06-29 16:53 - [日本偶像龟梨和也宣布结婚](http://www.share.minike.top/Article/details/4450466.shtml)
-- 2026-06-29 17:08 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/5543110442.shtml)
-- 2026-06-29 17:15 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/986296458128.shtml)
-- 2026-06-29 17:14 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/571944.shtml)
-- 2026-06-29 17:17 - [媒体：中国田径压力与期待并存](https://www.share.minike.top/Article/details/923919.shtml)
-- 2026-06-29 17:10 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/9271336.shtml)
-- 2026-06-29 16:55 - [明天睁眼按时来取代我](https://www.blog.minike.top/Article/details/006921921.shtml)
-- 2026-06-29 17:10 - [曝歌手第七期帮唱阵容](https://www.share.minike.top/Article/details/9413975.shtml)
-- 2026-06-29 16:54 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/1543763.shtml)
+- 2026-06-29 17:00 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.minike.top/Article/details/829859276624.shtml)
+- 2026-06-29 17:08 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/89578.shtml)
+- 2026-06-29 17:09 - [南昌市委书记调整](https://www.blog.minike.top/Article/details/4768700781.shtml)
+- 2026-06-29 16:56 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/888888.shtml)
+- 2026-06-29 17:14 - [曝屠颖去世和酒店失责有关](http://www.blog.minike.top/Article/details/62922273337.shtml)
+- 2026-06-29 16:57 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/420877.shtml)
+- 2026-06-29 17:09 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/6032701815.shtml)
+- 2026-06-29 17:14 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/47769214.shtml)
+- 2026-06-29 16:57 - [周生如故](http://www.share.kurohicncr.top/Article/details/38955.shtml)
+- 2026-06-29 17:19 - [7月1日起一批新规即将落地](http://www.blog.minike.top/Article/details/3632251925.shtml)
+- 2026-06-29 17:15 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.minike.top/Article/details/95012460765.shtml)
+- 2026-06-29 17:09 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/055805.shtml)
+- 2026-06-29 16:56 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/67459039583.shtml)
+- 2026-06-29 17:09 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/767972154848.shtml)
+- 2026-06-29 17:07 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/53588978.shtml)

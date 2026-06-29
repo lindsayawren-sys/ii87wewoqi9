@@ -1,57 +1,58 @@
-# 出海交易总额60亿美元，但映恩生物依然有点“缺钱”
+# 全线大涨！刚刚，直线狂飙！黄仁勋，彻底引爆！
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 陈杨 界面新闻编辑 | 谢欣 刚官宣首款创新药上市申请获国家药监局受理，ADC（抗体偶联药物）明星公司映恩生物又公告其在回A之路上也往前走了一步。 4月13日晚间，映恩生物发布公告称，公司董事会进一步批准其赴科创板IPO。该事项还需在4月29日的股东特别大会上获批准，并获必要的监管批准后方可作实。 据公告，映恩生物此次拟在科创板募资不超过67.5亿元。其中约6
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！黄仁勋再度引爆科技圈。 刚刚，英伟达美股盘前股价一度大涨近3%，截至发稿，涨幅为2.49%。芯片巨头Arm美股盘前直线拉升，涨幅扩大至13%。消息面上，英伟达进军Windows系统个人电脑市场，将运行基于Arm的微软Windows系统。此外，IBM涨超10%，微软、甲骨文、美光科技等涨超3%。 6月1日，英
 
 ## 正文
 
-界面新闻记者 | 陈杨 界面新闻编辑 | 谢欣 刚官宣首款创新药上市申请获国家药监局受理，ADC（抗体偶联药物）明星公司映恩生物又公告其在回A之路上也往前走了一步。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-4月13日晚间，映恩生物发布公告称，公司董事会进一步批准其赴科创板IPO。
+黄仁勋再度引爆科技圈。
 
-该事项还需在4月29日的股东特别大会上获批准，并获必要的监管批准后方可作实。
+刚刚，英伟达美股盘前股价一度大涨近3%，截至发稿，涨幅为2.49%。
 
-据公告，映恩生物此次拟在科创板募资不超过67.5亿元。
+芯片巨头Arm美股盘前直线拉升，涨幅扩大至13%。
 
-其中约68%资金用于推进DB-1310（HER3，括号内为靶点，下同）和DB-1311（B7-H3）两款产品的全球开发，约17%用于开发其他在研创新药管线，15%用于补充营运资金。
+消息面上，英伟达进军Windows系统个人电脑市场，将运行基于Arm的微软Windows系统。
 
-界面新闻注意到，映恩生物拥有DB-1310的全球权益，并拥有DB-1311的国内权益及在美国市场与BioNTech共同开发、商业化的选择权，两者目前均处于全球临床2期阶段。
+此外，IBM涨超10%，微软、甲骨文、美光科技等涨超3%。
 
-本次科创板募资主要用于这两者在肺癌、乳腺癌、前列腺癌等肿瘤适应证的全球3期或注册性临床研究。
+6月1日，英伟达创始人兼CEO黄仁勋在中国台北发表主题演讲，他表示，AI时代已经真正到来。
 
-4月15日，界面新闻询问映恩生物是否计划行使前述选择权，公司回应称该行使事宜属于公司正常经营决策范畴，相关信息将在合适时机、按照监管要求统一对外披露。
+此次演讲中，黄仁勋重点发布了Vera Rubin架构、面向AI Agent的CPU Vera、AI模型Nemotron 3 Ultra以及AI工厂平台DSX等多项新产品与新平台。
 
 ## 相关推荐
 
-- 2026-06-29 16:54 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 16:49 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-29 17:03 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 16:49 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-29 17:13 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 17:02 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 16:54 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-29 17:12 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 17:01 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-29 17:11 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-29 16:55 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 17:13 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-29 16:57 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 16:55 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-29 17:02 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-29 17:15 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 17:17 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-29 17:14 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 17:10 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 17:23 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 16:55 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-29 17:00 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-29 16:54 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:14 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/85273506353.shtml)
-- 2026-06-29 17:08 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.blog.minike.top/Article/details/24806226838.shtml)
-- 2026-06-29 17:01 - [杨紫视后第一场线下活动](https://www.blog.minike.top/Article/details/693380983.shtml)
-- 2026-06-29 17:16 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/83565.shtml)
-- 2026-06-29 17:04 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/55792.shtml)
-- 2026-06-29 17:04 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/00915.shtml)
-- 2026-06-29 16:53 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/98625075880.shtml)
-- 2026-06-29 16:56 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/6775636948.shtml)
-- 2026-06-29 17:00 - [恋与深空发放补偿未得到玩家认可](https://www.share.kurohicncr.top/Article/details/01791136.shtml)
-- 2026-06-29 17:07 - [王楚钦开门红](https://www.share.minike.top/Article/details/185255549.shtml)
-- 2026-06-29 17:11 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/1371074982.shtml)
-- 2026-06-29 17:08 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/65509.shtml)
-- 2026-06-29 17:15 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/2623596709.shtml)
-- 2026-06-29 17:14 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/96145957376.shtml)
-- 2026-06-29 17:02 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.kurohicncr.top/Article/details/076277189.shtml)
+- 2026-06-29 16:57 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/743500800109.shtml)
+- 2026-06-29 17:16 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/500654640293.shtml)
+- 2026-06-29 17:08 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.kurohicncr.top/Article/details/076606185.shtml)
+- 2026-06-29 17:15 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/22284771796.shtml)
+- 2026-06-29 17:14 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/30082.shtml)
+- 2026-06-29 17:21 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/2431359657.shtml)
+- 2026-06-29 17:14 - [天道](http://www.blog.minike.top/Article/details/02470.shtml)
+- 2026-06-29 17:12 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/4620532.shtml)
+- 2026-06-29 16:59 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/1793605.shtml)
+- 2026-06-29 17:18 - [首尔商铺禁止洪明甫入内](http://www.share.minike.top/Article/details/6116600268.shtml)
+- 2026-06-29 17:04 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/504399644.shtml)
+- 2026-06-29 17:14 - [韩国国脚无缘上亿韩元奖金](https://www.share.kurohicncr.top/Article/details/58919.shtml)
+- 2026-06-29 17:19 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/4747844318.shtml)
+- 2026-06-29 17:16 - [港股蓝筹股的落寞才刚刚开始吗](http://www.blog.kurohicncr.top/Article/details/699043665414.shtml)
+- 2026-06-29 17:03 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.kurohicncr.top/Article/details/70912.shtml)

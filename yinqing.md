@@ -1,56 +1,58 @@
-# 全国春灌面积已达1.9亿亩
+# 珠肇高铁江机段无砟轨道区段架梁施工收官
 
-> 更新时间：2026-06-29 17:18:02 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-央视网消息(新闻联播)：记者从水利部了解到，眼下正值春播春管关键农时，全国春灌有序推进，灌溉面积达1.9亿亩。 眼下，黄淮海、西北等冬小麦主产区春灌已全面铺开；南方、东北等水稻主产区陆续开启春灌，保障育秧、泡田、插秧等关键环节用水。 目前，全国大部分地区耕地土壤墒情适宜，局部地区土壤缺墒。水利部门正科学调配水库、河道等水源，根据作物种植结构、土壤墒情和降水情况等，及时优化灌溉方
+中新网江门6月1日电 (郭军 王爱君 范凌滔)由中铁广州局承建的珠肇高铁江机段5标鹤山制梁场5月31日完成全部箱梁架设任务，这标志着珠肇高铁江机段无砟轨道区段架梁施工顺利收官，项目建设取得关键性突破，为后续全线无砟轨道、铺轨施工及按期建成通车奠定了坚实基础。 鹤山制梁场是珠肇高铁全线规模最大的制梁场，紧邻江门鹤山西站，占地约120亩，承担江机段4、5、6标共704榀箱梁(含24
 
 ## 正文
 
-央视网消息(新闻联播)：记者从水利部了解到，眼下正值春播春管关键农时，全国春灌有序推进，灌溉面积达1.9亿亩。
+中新网江门6月1日电 (郭军 王爱君 范凌滔)由中铁广州局承建的珠肇高铁江机段5标鹤山制梁场5月31日完成全部箱梁架设任务，这标志着珠肇高铁江机段无砟轨道区段架梁施工顺利收官，项目建设取得关键性突破，为后续全线无砟轨道、铺轨施工及按期建成通车奠定了坚实基础。
 
-眼下，黄淮海、西北等冬小麦主产区春灌已全面铺开；南方、东北等水稻主产区陆续开启春灌，保障育秧、泡田、插秧等关键环节用水。
+鹤山制梁场是珠肇高铁全线规模最大的制梁场，紧邻江门鹤山西站，占地约120亩，承担江机段4、5、6标共704榀箱梁(含24米箱梁63榀、32米箱梁641榀)的预制与架设任务。
 
-目前，全国大部分地区耕地土壤墒情适宜，局部地区土壤缺墒。
+面对施工战线长、场地受限、涉铁施工和管控难度大等挑战，项目部坚持科学策划、安全至上、质量为本的原则，统筹资源、精准施策，多措并举保障工程高效推进。
 
-水利部门正科学调配水库、河道等水源，根据作物种植结构、土壤墒情和降水情况等，及时优化灌溉方案，改善墒情。
+在品质管控方面，项目部推行首件认可、样板引路等制度，应用钢筋自动化加工、智能张拉等先进工艺，融合BIM技术优化施工流程，主体工程一次验收合格率达100%。
 
-水利部最新调度显示，全国灌溉水源相对充足，9677座重点水库蓄水量达4912亿立方米，较常年同期偏多近一成。
+在安全管理方面，构建双重预防机制，依托智慧工地平台实现风险实时预警，常态化开展安全培训与应急演练，先后获评广东省铁路工程“平安工地”及“广东省铁路平安百年品质工程”等多项荣誉。
 
-其中，北方各省蓄水量偏多较为明显。
+在攻坚克难方面，针对涉铁架梁、高空作业、交叉施工等重难点任务，项目部优化施工方案、组建攻坚团队，推行轮班作业、挂图作战，实现预制与架设高效衔接，先后创下全线多项“第一”，确保任务按期圆满完成。
 
-3月下旬，黄河水利委员会已联合调度小浪底水库和西霞院水库，加大小浪底水库下泄流量至1600立方米每秒，为黄河下游沿线农田春灌用水提供保障。
+珠肇高铁是广东省自主投资建设管理的第一条时速350公里高铁，项目分三段建设，分别为珠海至江门段、江门至珠三角枢纽机场段、高明至肇庆东段。
 
-目前，全国已有27个省份及新疆生产建设兵团启动春灌，累计供水约200亿立方米，灌溉面积达1.9亿亩。
+珠肇高铁建成后，将串联江门站与珠三角枢纽机场，实现轨道与航空的无缝衔接，沿线珠三角主要城市间有望实现1小时通达，助力广东建设交通强省。
 
 ## 相关推荐
 
-- 2026-06-29 17:15 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-29 17:03 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 16:58 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-29 17:06 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-29 17:03 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-29 16:52 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-29 16:49 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 17:13 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-29 17:04 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-29 17:05 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-29 17:06 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 17:20 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 17:12 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-29 17:08 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 17:04 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 17:04 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 17:07 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 17:21 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 17:05 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-29 16:57 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 16:59 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-29 17:09 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:55 - [美议员呼吁断供以色列政府](http://www.share.minike.top/Article/details/898458411.shtml)
-- 2026-06-29 16:56 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/78757112384.shtml)
-- 2026-06-29 17:12 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/370896.shtml)
-- 2026-06-29 17:13 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.minike.top/Article/details/901755.shtml)
-- 2026-06-29 17:04 - [端午节加班工资应该怎么算](https://www.share.minike.top/Article/details/86959.shtml)
-- 2026-06-29 17:02 - [古力娜扎美出新高度](http://www.share.minike.top/Article/details/47369594854.shtml)
-- 2026-06-29 16:52 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.minike.top/Article/details/87216.shtml)
-- 2026-06-29 17:00 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/71165.shtml)
-- 2026-06-29 17:00 - [端午节加班工资应该怎么算](https://www.blog.kurohicncr.top/Article/details/78106233501.shtml)
-- 2026-06-29 17:09 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/13571076.shtml)
-- 2026-06-29 17:08 - [河南四位大妈景区跳舞爆火](http://www.share.minike.top/Article/details/15854838.shtml)
-- 2026-06-29 17:17 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/7490954753.shtml)
-- 2026-06-29 17:05 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/7494994408.shtml)
-- 2026-06-29 17:15 - [欧盟为什么越来越倾向贸易保护](http://www.blog.kurohicncr.top/Article/details/2312045.shtml)
-- 2026-06-29 16:58 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/596966383413.shtml)
+- 2026-06-29 17:07 - [抓特务票房破亿](http://www.share.kurohicncr.top/Article/details/0177670.shtml)
+- 2026-06-29 17:12 - [评论员：日菲勾连各有盘算](http://www.blog.kurohicncr.top/Article/details/800344970.shtml)
+- 2026-06-29 17:07 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/184427658870.shtml)
+- 2026-06-29 17:23 - [美国大满贯首日国乒主力均取胜](https://www.share.kurohicncr.top/Article/details/67137172.shtml)
+- 2026-06-29 17:20 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.minike.top/Article/details/43624193185.shtml)
+- 2026-06-29 17:14 - [一家三口吃溪石斑鱼中毒](http://www.share.minike.top/Article/details/213540607820.shtml)
+- 2026-06-29 16:55 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/4716582808.shtml)
+- 2026-06-29 16:56 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.kurohicncr.top/Article/details/16887842943.shtml)
+- 2026-06-29 16:55 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/11369669509.shtml)
+- 2026-06-29 17:22 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.minike.top/Article/details/59757799.shtml)
+- 2026-06-29 17:15 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/88866666.shtml)
+- 2026-06-29 17:22 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/302497690192.shtml)
+- 2026-06-29 17:11 - [利率一再降 “存款搬家”搬去哪](https://www.blog.kurohicncr.top/Article/details/9893487317.shtml)
+- 2026-06-29 16:55 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.kurohicncr.top/Article/details/041392834.shtml)
+- 2026-06-29 16:55 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/47249763739.shtml)

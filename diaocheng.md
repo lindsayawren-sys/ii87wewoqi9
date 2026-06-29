@@ -1,58 +1,59 @@
-# ETF日报：创新药板块的驱动逻辑已经补齐政策一环，构成政策+业绩+临床催化三重共振
+# 浙江青年侨商接棒上场 以实干书写报国答卷
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-今日A股震荡走弱。上证综指微涨0.01%，报4027.21点，深证成指下跌0.97%，创业板指下跌1.22%，科创综指上涨0.33%。全市场成交额24295亿元，较上日成交额放量327亿元。板块层面，创新药领涨；工业母机、新能源车、半导体设备等跌幅居前。风险偏好来看，今日风险偏好偏弱。全市场超3500股下跌。风格层面，小盘弱于大盘，成长弱于价值，双创有所分化。总体而言，今日风险
+中新网杭州6月2日电(吴怡欣)浙江是侨务大省，一批批侨商在此投资兴业，成为推动当地经济发展的重要力量。如今，越来越多青年侨商从海外归来、扎根实业，接过发展的接力棒，在各自领域书写以实干报国的新故事。 浙江双临实业有限公司的一间厂房里，机器轰鸣声不绝于耳，生产线上源源不断地“吐”出纤细的电缆。该企业负责人、浙江省侨商会青委会副主席李选说：“通过专业设备，20厘米粗的电缆原料能加工
 
 ## 正文
 
-今日A股震荡走弱。
+中新网杭州6月2日电(吴怡欣)浙江是侨务大省，一批批侨商在此投资兴业，成为推动当地经济发展的重要力量。
 
-上证综指微涨0.01%，报4027.21点，深证成指下跌0.97%，创业板指下跌1.22%，科创综指上涨0.33%。
+如今，越来越多青年侨商从海外归来、扎根实业，接过发展的接力棒，在各自领域书写以实干报国的新故事。
 
-全市场成交额24295亿元，较上日成交额放量327亿元。
+浙江双临实业有限公司的一间厂房里，机器轰鸣声不绝于耳，生产线上源源不断地“吐”出纤细的电缆。
 
-板块层面，创新药领涨；工业母机、新能源车、半导体设备等跌幅居前。
+该企业负责人、浙江省侨商会青委会副主席李选说：“通过专业设备，20厘米粗的电缆原料能加工成发丝一样的细线。
 
-风险偏好来看，今日风险偏好偏弱。
+” 李选和电缆打了十几年交道，专注于研发制造高频传输通信电缆、数据电缆等产品。
 
-全市场超3500股下跌。
+2007年，为开拓海外市场，他远赴阿联酋成立公司，将国产电缆推向国际市场。
 
-风格层面，小盘弱于大盘，成长弱于价值，双创有所分化。
+在阿联酋时，李选逐渐意识到一个问题：没有自己的核心技术，企业就走不远。
 
-总体而言，今日风险偏好处于偏弱状态。
+他说：“我们想把自己的品牌做大，因此选择回到杭州组建技术团队，将更多精力投入到研发中。
 
 ## 相关推荐
 
-- 2026-06-29 17:00 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 17:02 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-29 17:16 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-29 17:06 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-29 16:51 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-29 17:16 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-29 17:03 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-29 16:49 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 17:17 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 17:10 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 17:03 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 17:08 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-29 17:08 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 17:04 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-29 17:16 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-29 17:10 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-29 17:07 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-29 17:12 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-29 17:10 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 17:04 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 17:01 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 16:59 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 17:12 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-29 17:14 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 17:15 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:57 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.minike.top/Article/details/543213897.shtml)
-- 2026-06-29 17:01 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/11253286.shtml)
-- 2026-06-29 17:01 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/715633795371.shtml)
-- 2026-06-29 17:17 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/905282.shtml)
-- 2026-06-29 17:11 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/692824361.shtml)
-- 2026-06-29 17:14 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.minike.top/Article/details/10187.shtml)
-- 2026-06-29 17:07 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.kurohicncr.top/Article/details/10484872.shtml)
-- 2026-06-29 16:58 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/432368.shtml)
-- 2026-06-29 16:55 - [哈兰德这该死的胜负欲](http://www.blog.minike.top/Article/details/75385123.shtml)
-- 2026-06-29 17:05 - [挪威王储妃长子2次强奸被判4年](https://www.blog.kurohicncr.top/Article/details/3172126579.shtml)
-- 2026-06-29 17:16 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/08443.shtml)
-- 2026-06-29 17:15 - [天道](http://www.blog.minike.top/Article/details/1926680.shtml)
-- 2026-06-29 16:54 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/6007820189.shtml)
-- 2026-06-29 17:08 - [恋与深空各大应用商店评分](http://www.blog.kurohicncr.top/Article/details/57944.shtml)
-- 2026-06-29 16:58 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/05053.shtml)
+- 2026-06-29 17:23 - [请回答王牌2019](http://www.share.minike.top/Article/details/00428288793.shtml)
+- 2026-06-29 17:05 - [千与千寻](http://www.blog.minike.top/Article/details/6497440.shtml)
+- 2026-06-29 17:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/28333406382.shtml)
+- 2026-06-29 16:58 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/861006993.shtml)
+- 2026-06-29 17:08 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/9209622656.shtml)
+- 2026-06-29 16:58 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/12203373.shtml)
+- 2026-06-29 17:18 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/0045734649.shtml)
+- 2026-06-29 17:22 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.kurohicncr.top/Article/details/364660365547.shtml)
+- 2026-06-29 17:02 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.blog.kurohicncr.top/Article/details/0643255758.shtml)
+- 2026-06-29 17:00 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/101492040.shtml)
+- 2026-06-29 17:03 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/998819222.shtml)
+- 2026-06-29 16:54 - [东方风云榜](http://www.share.minike.top/Article/details/09128148124.shtml)
+- 2026-06-29 17:18 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/7325310499.shtml)
+- 2026-06-29 17:12 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/51727239226.shtml)
+- 2026-06-29 17:06 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/88353093166.shtml)

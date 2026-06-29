@@ -1,55 +1,59 @@
-# 茅台价格全线上涨
+# “要把这些中华文化瑰宝保护好、传承好、传播好”
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨张嘉钰 编辑丨曾静娇 “今日酒价”披露的最新批发参考价显示，4月15日，26年飞天茅台原箱报1665元/瓶，较上一日上涨5元；26年飞天茅台散瓶报1565元/瓶，与上日价格持平。25年飞天茅台原箱报1675元/瓶，较上一日上涨5元；25年飞天茅
+原标题：近镜头·习近平的文化足迹 | “要把这些中华文化瑰宝保护好、传承好、传播好” 2025年5月，习近平总书记到河南洛阳考察。在龙门石窟宾阳三洞前，习近平总书记回忆说，当年在河北正定工作期间，去隆兴寺调研时看见一块隋碑，因为年代太过久远，很多地方已经风化，他当即要求采取保护措施，后被证明是重要的书法文物。总书记强调：“要把这些中华文化瑰宝保护好、传承好、传播好。” 从正定保
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+原标题：近镜头·习近平的文化足迹 | “要把这些中华文化瑰宝保护好、传承好、传播好” 2025年5月，习近平总书记到河南洛阳考察。
 
-记者丨张嘉钰 编辑丨曾静娇 “今日酒价”披露的最新批发参考价显示，4月15日，26年飞天茅台原箱报1665元/瓶，较上一日上涨5元；26年飞天茅台散瓶报1565元/瓶，与上日价格持平。
+在龙门石窟宾阳三洞前，习近平总书记回忆说，当年在河北正定工作期间，去隆兴寺调研时看见一块隋碑，因为年代太过久远，很多地方已经风化，他当即要求采取保护措施，后被证明是重要的书法文物。
 
-25年飞天茅台原箱报1675元/瓶，较上一日上涨5元；25年飞天茅台散瓶报1610元/瓶，较上一日上涨10元。
+总书记强调：“要把这些中华文化瑰宝保护好、传承好、传播好。
 
-4月15日早盘，A股白酒板块直线拉升，龙头股贵州茅台涨超1%，截至10：42，最新股价报1457.7元/股。
+” 从正定保护一块隋碑，到龙门关切石窟永续，数十年光阴如梭，习近平总书记对文化遗产的珍视历久弥深。
 
-自贵州茅台宣布3月31日提价以来，其股价累计上涨2.39%。
+初心如磐，情怀如炬。
 
-4月14日晚间，贵州茅台发布公告，决定聘任余思明为公司财务总监，并代行董事会秘书职责，公司董事长陈华不再代行董事会秘书职责。
+在广西合浦汉代文化博物馆品味海上丝路遗韵，在河南殷墟追溯甲骨文，在四川三星堆博物馆新馆察看“神树”，在湖北云梦县博物馆端详简牍……党的十八大以来，习近平总书记的文化足迹，遍及一个个中华文明地标，彰显着“对历史负责、对人民负责”的深邃思考。
 
-责任编辑：高佳
+“保护好”，筑牢根基。
+
+见到习近平总书记之前，龙门石窟研究院文物保管展示与文献资料中心工作人员张国锋和同事们正在古阳洞中进行数字化扫描，利用三维数字技术，让龙门石窟“芳华永驻”。
 
 ## 相关推荐
 
-- 2026-06-29 16:54 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 16:53 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-29 17:11 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 16:52 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-29 17:04 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 17:08 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 17:08 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-29 16:59 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-29 16:48 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-29 17:01 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-29 17:10 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 16:56 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-29 17:04 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 17:05 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 17:20 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-29 17:14 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-29 17:17 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 17:17 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-29 17:21 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-29 17:04 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 17:22 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-29 17:02 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-29 17:05 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 17:20 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:11 - [普京介绍前线战事](https://www.blog.minike.top/Article/details/385557.shtml)
-- 2026-06-29 17:16 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/422033384316.shtml)
-- 2026-06-29 16:48 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/0727848.shtml)
-- 2026-06-29 16:51 - [7款商保创新药“转道”](http://www.blog.minike.top/Article/details/859957.shtml)
-- 2026-06-29 17:10 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/643978786763.shtml)
-- 2026-06-29 17:15 - [未成年少女长期吸毒导致卧床不起](https://www.share.kurohicncr.top/Article/details/92899619847.shtml)
-- 2026-06-29 17:14 - [森保一坚信日本能赢巴西](https://www.share.minike.top/Article/details/205776464260.shtml)
-- 2026-06-29 17:14 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/926321698.shtml)
-- 2026-06-29 16:54 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/644153.shtml)
-- 2026-06-29 17:08 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/437629022.shtml)
-- 2026-06-29 17:08 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/84075050049.shtml)
-- 2026-06-29 17:00 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/5669108856.shtml)
-- 2026-06-29 17:15 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/6840719217.shtml)
-- 2026-06-29 17:00 - [王楚钦首轮赢下国乒德比](https://www.blog.minike.top/Article/details/52333.shtml)
-- 2026-06-29 16:48 - [博主：全球股市进入“AI极端共振”](http://www.blog.kurohicncr.top/Article/details/643461.shtml)
+- 2026-06-29 17:14 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/73691827010.shtml)
+- 2026-06-29 17:00 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.blog.kurohicncr.top/Article/details/23968674029.shtml)
+- 2026-06-29 17:04 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/94416778.shtml)
+- 2026-06-29 16:56 - [媒体：听清自己内心的声音再填志愿](https://www.blog.minike.top/Article/details/72303997132.shtml)
+- 2026-06-29 17:02 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.minike.top/Article/details/058953845.shtml)
+- 2026-06-29 17:05 - [日本足球能掀翻巴西吗](http://www.share.minike.top/Article/details/379871577851.shtml)
+- 2026-06-29 17:18 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.kurohicncr.top/Article/details/142119211.shtml)
+- 2026-06-29 17:18 - [恋与深空发放补偿未得到玩家认可](https://www.share.minike.top/Article/details/13461187.shtml)
+- 2026-06-29 17:12 - [恋与深空各大应用商店评分](http://www.share.minike.top/Article/details/343428091.shtml)
+- 2026-06-29 17:16 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/82825681.shtml)
+- 2026-06-29 17:04 - [这一刀 会很帅](http://www.share.minike.top/Article/details/72586257429.shtml)
+- 2026-06-29 16:59 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/59515519738.shtml)
+- 2026-06-29 17:19 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/70589.shtml)
+- 2026-06-29 17:19 - [FIFA回应佛得角队长被指控强奸](https://www.blog.minike.top/Article/details/94038029122.shtml)
+- 2026-06-29 17:17 - [港股蓝筹股的落寞才刚刚开始吗](https://www.blog.kurohicncr.top/Article/details/7354372725.shtml)

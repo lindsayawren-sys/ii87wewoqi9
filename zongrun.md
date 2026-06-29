@@ -1,58 +1,59 @@
-# 越南“姐妹花”中国逐梦：愿为越中合作架“桥”
+# Meta平台全球升级青少年内容管控，Instagram上线新工具优化推送内容多样性
 
-> 更新时间：2026-06-29 17:18:02 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-中新社南宁4月14日电 题：越南“姐妹花”中国逐梦：愿为越中合作架“桥” 中新社记者 黄艳梅 “从越南广宁来到中国广西南宁，让我在越中文化的交汇点上找到了自己的方向。”广西民族大学越南籍留学生阮玉英14日接受中新社记者采访时说，她希望深耕国际商务与跨文化交流领域，未来为越中合作添砖加瓦。 22岁的阮玉英与胞妹阮玉映于2023年2月来到广西求学。“我们自小就对中国心生憧憬。出于对
+Meta周二宣布，将在全球范围内升级Instagram、脸书（Facebook）及聊天软件Messenger的青少年账号内容管控设置，保障未成年用户浏览适配其年龄段的内容体验。当下各大社交媒体平台因未成年人身心健康与使用安全问题，正受到监管层面愈发严苛的审查。 该管控项目于去年10月率先在部分国家落地，初衷是阻拦未成年人接触不良不适内容。与此同时，Meta官宣将在Instagr
 
 ## 正文
 
-中新社南宁4月14日电 题：越南“姐妹花”中国逐梦：愿为越中合作架“桥” 中新社记者 黄艳梅 “从越南广宁来到中国广西南宁，让我在越中文化的交汇点上找到了自己的方向。
+Meta周二宣布，将在全球范围内升级Instagram、脸书（Facebook）及聊天软件Messenger的青少年账号内容管控设置，保障未成年用户浏览适配其年龄段的内容体验。
 
-”广西民族大学越南籍留学生阮玉英14日接受中新社记者采访时说，她希望深耕国际商务与跨文化交流领域，未来为越中合作添砖加瓦。
+当下各大社交媒体平台因未成年人身心健康与使用安全问题，正受到监管层面愈发严苛的审查。
 
-22岁的阮玉英与胞妹阮玉映于2023年2月来到广西求学。
+该管控项目于去年10月率先在部分国家落地，初衷是阻拦未成年人接触不良不适内容。
 
-“我们自小就对中国心生憧憬。
+与此同时，Meta官宣将在Instagram内测一项新功能，丰富青少年首页推送内容品类，避免其反复刷到同类主题内容。
 
-出于对区域经济合作的兴趣，我们都选择了国际商务专业。
+今年4月，Meta曾向投资者预警：欧美两地针对社交媒体侵害青少年相关问题出台的法律法规与监管整治，或对公司经营业绩与财务表现造成重大负面影响。
 
-”阮玉英说。
+在一项具有里程碑意义的诉讼判决中，洛杉矶陪审团于3月25日裁定，Meta与Alphabet存在过失，两家企业打造的社交媒体产品会对青少年身心健康造成损害；一名现年20岁的女性用户自述幼年沉迷社交媒体成瘾，陪审团裁定两家公司合计向其赔付600万美元。
 
-在校期间，阮玉英坚持课堂学习与实践锻炼并重，积极参加各类赛事及活动。
+Meta表示，针对13周岁以上用户、可过滤青少年不适内容的分级管控现已设为青少年账号系统默认配置。
 
-广西中华经典诵读大赛优秀奖、广西国际学生区情知识竞赛个人赛二等奖、中国国际大学生创新大赛金奖……一次次历练，让阮玉英收获成长，荣誉接踵而至。
+官方补充，一款管控力度更强的‘受限内容模式’将于今年晚些时候登陆脸书与Messenger，进一步收紧内容浏览权限。
 
 ## 相关推荐
 
-- 2026-06-29 16:53 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-29 16:48 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 17:13 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 17:16 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-29 17:05 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 17:10 - [和周杰伦在演唱会合唱了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-29 16:52 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 17:15 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-29 17:13 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 17:09 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-29 17:17 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 17:06 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 17:19 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 17:17 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 17:15 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 16:56 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-29 17:11 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 17:19 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 17:00 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 16:55 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 16:57 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 17:17 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-29 17:00 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 17:17 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 17:17 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:51 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/8069375082.shtml)
-- 2026-06-29 17:09 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.kurohicncr.top/Article/details/668062.shtml)
-- 2026-06-29 16:52 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/2623325.shtml)
-- 2026-06-29 16:58 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/20386.shtml)
-- 2026-06-29 17:06 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/93122442240.shtml)
-- 2026-06-29 17:13 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/8453815874.shtml)
-- 2026-06-29 17:13 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/67283.shtml)
-- 2026-06-29 17:04 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.kurohicncr.top/Article/details/60609277.shtml)
-- 2026-06-29 16:55 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.kurohicncr.top/Article/details/253445.shtml)
-- 2026-06-29 16:54 - [小说《无悔追踪》翻红](https://www.share.kurohicncr.top/Article/details/092684272231.shtml)
-- 2026-06-29 16:52 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/06239.shtml)
-- 2026-06-29 17:02 - [一台空调背后的全球化逻辑](https://www.blog.minike.top/Article/details/789149895415.shtml)
-- 2026-06-29 17:09 - [金牌调解](http://www.blog.minike.top/Article/details/16333.shtml)
-- 2026-06-29 17:09 - [高市早苗口齿不清被质疑醉酒](http://www.blog.kurohicncr.top/Article/details/9925070.shtml)
-- 2026-06-29 16:58 - [王曼昱被突如其来的话筒逗笑了](http://www.share.kurohicncr.top/Article/details/52224916111.shtml)
+- 2026-06-29 17:09 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.minike.top/Article/details/513723.shtml)
+- 2026-06-29 17:10 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/0564242.shtml)
+- 2026-06-29 17:17 - [媒体：中国田径压力与期待并存](http://www.blog.kurohicncr.top/Article/details/1411575.shtml)
+- 2026-06-29 17:16 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.kurohicncr.top/Article/details/1854708.shtml)
+- 2026-06-29 16:56 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/015043228081.shtml)
+- 2026-06-29 17:13 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.minike.top/Article/details/906472599668.shtml)
+- 2026-06-29 17:24 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/85549839213.shtml)
+- 2026-06-29 17:02 - [95后小伙突然确诊癌症 医生提醒](http://www.share.kurohicncr.top/Article/details/272414240418.shtml)
+- 2026-06-29 17:12 - [日本主教练回应迎战巴西](https://www.share.minike.top/Article/details/9948717.shtml)
+- 2026-06-29 17:08 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/53237436.shtml)
+- 2026-06-29 17:23 - [夏天被这些虫子咬了可能致命](https://www.blog.minike.top/Article/details/172880609695.shtml)
+- 2026-06-29 16:58 - [小众羞耻点是吃麻辣烫](http://www.share.minike.top/Article/details/867160838887.shtml)
+- 2026-06-29 17:18 - [TLAW vs DCG MSI](https://www.share.kurohicncr.top/Article/details/24344.shtml)
+- 2026-06-29 17:21 - [大疆7月15日起涨价？公司回应](https://www.share.kurohicncr.top/Article/details/65927738.shtml)
+- 2026-06-29 17:19 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/34738.shtml)

@@ -1,60 +1,61 @@
-# 山东省高院与省市场监管局签署协议 共建知识产权纠纷多元化解机制
+# 实物需求激增VS加息预期压制，白银75美元附近拉锯何时休？
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-中新网济南4月14日电(周艺伟)4月14日，山东省高级人民法院(简称“山东省高院”)与山东省市场监督管理局(简称“山东省市场监管局”)签署《知识产权纠纷多元化解机制框架协议》，在完善机制、健全流程以及工作要求等方面达成13项共识，进一步推进知识产权纠纷在线诉调对接工作，提升山东知识产权保护能力和水平。 当日，山东省知识产权纠纷多元化解工作经验交流会在山东省高院召开。会上正式签署
+文章来源：汇通财经 周二（6月2日）亚洲时段，白银开盘震荡走高一度上涨超1%至75.88美元/盎司，随后有所回落，目前交投于75美元附近。白银价格自从5月中旬从89.34美元/盎司下跌以来，已经多个交易日围绕75美元附近震荡整理。 实物需求激增耗尽库存 银价在75美元附近的“滞涨”表象之下，实物市场正在经历一场前所未有的供给危机。数据显示，自2025年10月以来，COMEX白银
 
 ## 正文
 
-中新网济南4月14日电(周艺伟)4月14日，山东省高级人民法院(简称“山东省高院”)与山东省市场监督管理局(简称“山东省市场监管局”)签署《知识产权纠纷多元化解机制框架协议》，在完善机制、健全流程以及工作要求等方面达成13项共识，进一步推进知识产权纠纷在线诉调对接工作，提升山东知识产权保护能力和水平。
+文章来源：汇通财经 周二（6月2日）亚洲时段，白银开盘震荡走高一度上涨超1%至75.88美元/盎司，随后有所回落，目前交投于75美元附近。
 
-当日，山东省知识产权纠纷多元化解工作经验交流会在山东省高院召开。
+白银价格自从5月中旬从89.34美元/盎司下跌以来，已经多个交易日围绕75美元附近震荡整理。
 
-会上正式签署上述框架协议，并发布山东知识产权多元解纷十大典型案例。
+实物需求激增耗尽库存 银价在75美元附近的“滞涨”表象之下，实物市场正在经历一场前所未有的供给危机。
 
-山东省知识产权事业发展中心、省知识产权保护中心及部分地市市场监管局、中基层法院等12家单位代表作交流发言。
+数据显示，自2025年10月以来，COMEX白银库存已腰斩，仅2026年第一季度交割需求就达到1.65亿盎司。
 
-山东省高级人民法院副院长吕涛在会上表示，近年来，山东省高院与省市场监管局通力合作，先后于2021年签署《知识产权司法保护与行政执法衔接合作框架协议》、2025年签署《技术事实查明协作机制框架协议》，不断促进知识产权行政执法与司法裁判标准的衔接协调。
+2024年全年交割量2.03亿盎司，2025年飙升至4.74亿盎司，呈现爆发式增长趋势。
 
-“山东省高院与省市场监管局要定期进行联席会商，着力解决发展不平衡、程序空转、衔接不畅等问题。
+更为关键的是，西方期货市场（COMEX/LBMA）长期通过现金结算为主的纸质期货人为压制白银价格，但实物交割需求的激增正迅速耗尽交易所库存。
 
-”吕涛说，双方要针对重点产业领域出现的共性问题、新型疑难复杂问题进行专题会商，统一法律适用与调解标准，提升解纷工作规范化水平。
+Sprott资产管理公司创始人Eric Sprott警告：“西方期货交易所通过纸面结算压制银价的能力正在迅速耗尽”。
 
-吕涛表示，双方要加快建设规范高效的信息交流机制，实现司法案件信息与行政执法数据的双向、及时、高效流转；探索在案件线索、证据固定、财产查控等方面的信息共享，特别是涉及重复侵权、恶意侵权、非正常批量诉讼等案件信息。
+工业需求全面激增，亚洲市场溢价持续 白银工业需求正处于全面爆发阶段。
 
 ## 相关推荐
 
-- 2026-06-29 17:13 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 17:03 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 16:50 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-29 17:05 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 17:16 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 17:05 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 17:00 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 17:14 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 16:56 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-29 16:51 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 16:48 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 17:01 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 17:14 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-29 17:14 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 17:10 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 17:19 - [日本偶像龟梨和也宣布结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-29 17:07 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 16:56 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-29 17:04 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-29 17:21 - [王安宇尊重田曦薇的一切选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 17:17 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-29 17:05 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-29 17:18 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 17:16 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-29 17:06 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 17:20 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 17:10 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 17:06 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-29 17:16 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:53 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/229096.shtml)
-- 2026-06-29 17:09 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/5669928266.shtml)
-- 2026-06-29 16:58 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/836755.shtml)
-- 2026-06-29 17:05 - [刘烨16岁儿子诺一颜值](http://www.share.kurohicncr.top/Article/details/5450979729.shtml)
-- 2026-06-29 17:11 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/0134136.shtml)
-- 2026-06-29 16:50 - [网友飞机上偶遇肖战](https://www.blog.minike.top/Article/details/2705058850.shtml)
-- 2026-06-29 16:50 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/222504661.shtml)
-- 2026-06-29 16:55 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/11332025.shtml)
-- 2026-06-29 17:08 - [男孩复读一年减重20斤涨分111分](http://www.blog.minike.top/Article/details/0111676.shtml)
-- 2026-06-29 17:17 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/14652496220.shtml)
-- 2026-06-29 17:06 - [叠纸](http://www.blog.kurohicncr.top/Article/details/68136916.shtml)
-- 2026-06-29 16:59 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/3215958130.shtml)
-- 2026-06-29 17:00 - [做完数学题 韩国队回家了](http://www.share.kurohicncr.top/Article/details/615390641810.shtml)
-- 2026-06-29 17:10 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/11678577.shtml)
-- 2026-06-29 17:14 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/826389200180.shtml)
+- 2026-06-29 16:58 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/0856151.shtml)
+- 2026-06-29 17:01 - [恋与深空各大应用商店评分](http://www.blog.kurohicncr.top/Article/details/213459844.shtml)
+- 2026-06-29 17:04 - [唐艺昕告别浪姐千字长文](https://www.share.kurohicncr.top/Article/details/17287.shtml)
+- 2026-06-29 17:07 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/41991.shtml)
+- 2026-06-29 17:12 - [天道](http://www.share.kurohicncr.top/Article/details/59693.shtml)
+- 2026-06-29 17:08 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/14740.shtml)
+- 2026-06-29 17:11 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/9918329451.shtml)
+- 2026-06-29 16:57 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/794683.shtml)
+- 2026-06-29 17:14 - [依法管制阻遏日方军事化危险动向](https://www.blog.kurohicncr.top/Article/details/373763141.shtml)
+- 2026-06-29 17:04 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/15228240420.shtml)
+- 2026-06-29 17:15 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/71919.shtml)
+- 2026-06-29 17:04 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/16989747.shtml)
+- 2026-06-29 17:02 - [中方在台湾岛以东海域活动合理合法](https://www.share.kurohicncr.top/Article/details/71917.shtml)
+- 2026-06-29 16:56 - [普京承认俄出现燃料危机](http://www.blog.kurohicncr.top/Article/details/6793772.shtml)
+- 2026-06-29 17:00 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/7457822544.shtml)

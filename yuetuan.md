@@ -1,60 +1,47 @@
-# 小雨伞母公司手回集团：百亿保费背后的盈利隐忧
+# 绿色动力环保遭易方达基金减持33.8万股 每股作价约5.98港元
 
-> 更新时间：2026-06-29 17:18:02 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-日前，知名保险平台小雨伞的母公司——手回集团有限公司（以下简称：手回集团）发布上市后首份完整年度财报：总保费突破112亿元，同比大涨37%，首年保费增速近五成，规模扩张势头强劲。 然而，这份看似亮眼的成绩单背后，却暗藏净利润“缩水”、毛利率下滑、业务结构单一等多重隐忧，折射出保险中介行业在严监管与去中介化趋势下的集体困境。 财报显示，手回集团2025年净利润达7.94亿元，同比
+香港联交所最新资料显示，5月28日，易方达基金减持绿色动力环保（01330）33.8万股，每股作价5.9809港元，总金额约为202.15万港元。减持后最新持股数目为2413.3万股，最新持股比例为5.97%。责任编辑：卢昱君
 
 ## 正文
 
-日前，知名保险平台小雨伞的母公司——手回集团有限公司（以下简称：手回集团）发布上市后首份完整年度财报：总保费突破112亿元，同比大涨37%，首年保费增速近五成，规模扩张势头强劲。
+香港联交所最新资料显示，5月28日，易方达基金减持绿色动力环保（01330）33.8万股，每股作价5.9809港元，总金额约为202.15万港元。
 
-然而，这份看似亮眼的成绩单背后，却暗藏净利润“缩水”、毛利率下滑、业务结构单一等多重隐忧，折射出保险中介行业在严监管与去中介化趋势下的集体困境。
+减持后最新持股数目为2413.3万股，最新持股比例为5.97%。
 
-财报显示，手回集团2025年净利润达7.94亿元，同比暴增685.2%，一举扭转2024年1.36亿元亏损的局面。
-
-但深入分析发现，这一数字的“含金量”存疑：6.19亿元利润来自金融工具公允价值变动，本质是上市前优先股转普通股产生的账面收益，与主营业务无关。
-
-剔除一次性会计收益后，经调整净利润仅2亿元，同比下滑17.1%，真实盈利能力持续承压。
-
-毛利率的下滑进一步印证了盈利质量的恶化。
-
-2025年，手回集团整体毛利率从38.1%骤降至32.9%，核心业务保险交易服务毛利率亦从38.0%降至32.5%。
-
-公司解释称，这主要受“报行合一”政策影响，行业佣金费率承压，同时为抢占长期重疾险市场，公司主动加大了对持牌经纪合作方及自媒体流量渠道的佣金与推广投入。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 17:02 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 17:09 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 17:03 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-29 16:59 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-29 17:06 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-29 17:11 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-29 17:02 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-29 17:04 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 16:57 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-29 17:06 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-29 17:04 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-29 16:51 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-29 17:16 - [抓特务票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 16:49 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-29 17:01 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 17:21 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-29 16:56 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 17:11 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 17:16 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 17:01 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 17:17 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 17:17 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-29 17:16 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 17:16 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-29 17:01 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:01 - [笔记本电脑一年涨价近一倍](https://www.blog.minike.top/Article/details/226912436.shtml)
-- 2026-06-29 16:50 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/8736915.shtml)
-- 2026-06-29 16:55 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/015524778.shtml)
-- 2026-06-29 16:48 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/583021.shtml)
-- 2026-06-29 17:15 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/135323769.shtml)
-- 2026-06-29 16:56 - [叠纸](https://www.share.minike.top/Article/details/53856962.shtml)
-- 2026-06-29 16:49 - [杨紫下沉市场口碑](https://www.share.kurohicncr.top/Article/details/7192508.shtml)
-- 2026-06-29 16:54 - [依法管制阻遏日方军事化危险动向](http://www.share.kurohicncr.top/Article/details/029754144.shtml)
-- 2026-06-29 17:17 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/19595339043.shtml)
-- 2026-06-29 17:14 - [人形机器人](https://www.share.minike.top/Article/details/44645.shtml)
-- 2026-06-29 16:59 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/28059804.shtml)
-- 2026-06-29 17:17 - [三星与SK集团或将投资2000万亿韩元](http://www.share.kurohicncr.top/Article/details/24307.shtml)
-- 2026-06-29 16:52 - [刘扬任湖南省副省长](http://www.share.kurohicncr.top/Article/details/8009078.shtml)
-- 2026-06-29 16:56 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.kurohicncr.top/Article/details/797362024.shtml)
-- 2026-06-29 16:55 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.minike.top/Article/details/64413834.shtml)
+- 2026-06-29 16:57 - [虞书欣好辣的剧宣](http://www.share.kurohicncr.top/Article/details/901308.shtml)
+- 2026-06-29 16:54 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/12133501775.shtml)
+- 2026-06-29 16:58 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/287718.shtml)
+- 2026-06-29 16:57 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/7693407.shtml)
+- 2026-06-29 16:57 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/308536862.shtml)
+- 2026-06-29 17:07 - [倪春青跨市履新苏州市委组织部部长](https://www.share.minike.top/Article/details/829049286865.shtml)
+- 2026-06-29 17:00 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/0777869.shtml)
+- 2026-06-29 17:17 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/754215946.shtml)
+- 2026-06-29 16:56 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.kurohicncr.top/Article/details/441429345.shtml)
+- 2026-06-29 17:14 - [刘烨16岁儿子诺一颜值](http://www.blog.kurohicncr.top/Article/details/7751836.shtml)
+- 2026-06-29 17:20 - [T1 KC](http://www.share.kurohicncr.top/Article/details/260367973.shtml)
+- 2026-06-29 17:17 - [流金岁月](https://www.share.kurohicncr.top/Article/details/62647414276.shtml)
+- 2026-06-29 17:09 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.kurohicncr.top/Article/details/953501.shtml)
+- 2026-06-29 17:10 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/3263034.shtml)
+- 2026-06-29 17:03 - [王楚钦开门红](https://www.blog.kurohicncr.top/Article/details/2115099937.shtml)

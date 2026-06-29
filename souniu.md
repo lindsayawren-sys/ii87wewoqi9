@@ -1,61 +1,61 @@
-# 世界变乱交织，多国政要为何扎堆访华？
+# 东西问丨从侨批看中国
 
-> 更新时间：2026-06-29 17:18:02 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-中新社北京4月15日电 题：世界变乱交织，多国政要为何扎堆访华？ 中新社记者 李京泽 进入4月，中国北京又一次成为令人瞩目的世界“会客厅”。 在短短10余天里，泰国公主诗琳通，西班牙首相桑切斯，阿联酋阿布扎比王储哈立德，越共中央总书记、国家主席苏林，俄罗斯外长拉夫罗夫等外国政要陆续到访，莫桑比克总统查波即将访华的消息也已公布。在外界看来，这波访华热潮至少释放出三重信号。 第一，
+中新社北京6月1日电 题：从侨批看中国 中新社记者 贺劭清 电影《给阿嬷的情书》热映，让“侨批”再次走入人们视野。闽粤方言称“信”为“批”。侨批，就是海外侨胞携带着汇款的特殊家书。据不完全统计，在一个半世纪左右的时间里，从世界各地集腋成裘，寄归中国的侨批，林林总总超过三千万封。 国学大师饶宗颐曾盛赞侨批为“媲美徽学”的“海邦剩馥”。一封封泛黄的侨批，是侨史的“敦煌文书”，是海外
 
 ## 正文
 
-中新社北京4月15日电 题：世界变乱交织，多国政要为何扎堆访华？
+中新社北京6月1日电 题：从侨批看中国 中新社记者 贺劭清 电影《给阿嬷的情书》热映，让“侨批”再次走入人们视野。
 
-中新社记者 李京泽 进入4月，中国北京又一次成为令人瞩目的世界“会客厅”。
+闽粤方言称“信”为“批”。
 
-在短短10余天里，泰国公主诗琳通，西班牙首相桑切斯，阿联酋阿布扎比王储哈立德，越共中央总书记、国家主席苏林，俄罗斯外长拉夫罗夫等外国政要陆续到访，莫桑比克总统查波即将访华的消息也已公布。
+侨批，就是海外侨胞携带着汇款的特殊家书。
 
-在外界看来，这波访华热潮至少释放出三重信号。
+据不完全统计，在一个半世纪左右的时间里，从世界各地集腋成裘，寄归中国的侨批，林林总总超过三千万封。
 
-第一，动荡世界里，中国是值得信赖的伙伴。
+国学大师饶宗颐曾盛赞侨批为“媲美徽学”的“海邦剩馥”。
 
-当前国际形势复杂严峻、地区冲突争端频发。
+一封封泛黄的侨批，是侨史的“敦煌文书”，是海外游子对故土深情的凝结，是中华民族家国同构、重信守诺的根性所在，也是中国从闭塞积弱走向自强开放的缩影。
 
-各国愈发期待以稳定合作对冲外部风险，中国成为重要选择。
+读懂一纸侨批，也就读懂何以中国。
 
-苏林4月7日当选越南国家主席，9日便宣布将访华；桑切斯四年内第四次访问中国。
+“回家”归根，是侨批的使命。
 
 ## 相关推荐
 
-- 2026-06-29 16:53 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 17:10 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 17:00 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 16:49 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-29 16:58 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-29 17:15 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 17:10 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-29 17:10 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-29 17:11 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-29 16:58 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-29 17:08 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 17:16 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 16:54 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-29 17:07 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-29 17:09 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 17:13 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 17:15 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 17:09 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-29 16:54 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-29 17:08 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-29 17:20 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 17:17 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 16:57 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 17:18 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 16:57 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-29 17:10 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 17:14 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-29 16:54 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 16:58 - [人形机器人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 17:12 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:56 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.minike.top/Article/details/880317.shtml)
-- 2026-06-29 17:06 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.share.minike.top/Article/details/2441327703.shtml)
-- 2026-06-29 16:50 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/99923359.shtml)
-- 2026-06-29 16:54 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/194304.shtml)
-- 2026-06-29 16:57 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.share.kurohicncr.top/Article/details/627986678750.shtml)
-- 2026-06-29 17:13 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/26889.shtml)
-- 2026-06-29 17:00 - [第二波数码涨价潮来袭](http://www.blog.kurohicncr.top/Article/details/161052929.shtml)
-- 2026-06-29 17:00 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/647408.shtml)
-- 2026-06-29 17:07 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/512905.shtml)
-- 2026-06-29 16:56 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/249013.shtml)
-- 2026-06-29 17:04 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/8251321617.shtml)
-- 2026-06-29 16:51 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.minike.top/Article/details/77161.shtml)
-- 2026-06-29 16:51 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/73246179.shtml)
-- 2026-06-29 17:03 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/51833271.shtml)
-- 2026-06-29 16:56 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/913692982101.shtml)
+- 2026-06-29 16:55 - [速度与激情9](http://www.share.minike.top/Article/details/2439437.shtml)
+- 2026-06-29 17:03 - [刘扬任湖南省副省长](https://www.share.kurohicncr.top/Article/details/5749937.shtml)
+- 2026-06-29 17:01 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/043025.shtml)
+- 2026-06-29 17:18 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/13324825.shtml)
+- 2026-06-29 16:55 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.kurohicncr.top/Article/details/0436663.shtml)
+- 2026-06-29 17:17 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/375702684244.shtml)
+- 2026-06-29 17:21 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/49017274.shtml)
+- 2026-06-29 16:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/3691967310.shtml)
+- 2026-06-29 17:05 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/59419739.shtml)
+- 2026-06-29 16:59 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/17213922.shtml)
+- 2026-06-29 17:04 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/2869822405.shtml)
+- 2026-06-29 16:56 - [小西蒙尼：我实现参加世界杯的梦想](https://www.share.kurohicncr.top/Article/details/56135513.shtml)
+- 2026-06-29 17:19 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/73774130180.shtml)
+- 2026-06-29 17:13 - [小S在香港被偶遇](https://www.share.kurohicncr.top/Article/details/02512.shtml)
+- 2026-06-29 17:19 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/70708151480.shtml)

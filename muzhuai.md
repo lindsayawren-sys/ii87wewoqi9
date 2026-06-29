@@ -1,45 +1,61 @@
-# Anthropic限制发布“Mythos”模型
+# 长江有色：2日碳酸锂小跌 锂电排产“新高”遇冷
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-Anthropic启动了Project Glasswing，并以其双重用途风险为由，将其Mythos AI网络安全模型的访问权限限制在特定合作伙伴范围内，与此同时欧洲监管机构敦促加强监管。责任编辑：张俊 SF065
+长江有色金属网 期货方面： 2026年6月2日，广期所碳酸锂主力合约延续近期弱势震荡格局，空头情绪占据主导。盘面数据显示，当日碳酸锂主力合约最新价报172800元/吨，较前一交易日结算价下跌7040元，跌幅达3.91%；盘中价格波动区间为171100元/吨至179220元/吨，振幅较大，显示出多空双方博弈激烈，市场观望情绪浓厚。成交方面，当日主力合约成交量录得214856手，交
 
 ## 正文
 
-Anthropic启动了Project Glasswing，并以其双重用途风险为由，将其Mythos AI网络安全模型的访问权限限制在特定合作伙伴范围内，与此同时欧洲监管机构敦促加强监管。
+长江有色金属网 期货方面： 2026年6月2日，广期所碳酸锂主力合约延续近期弱势震荡格局，空头情绪占据主导。
 
-责任编辑：张俊 SF065
+盘面数据显示，当日碳酸锂主力合约最新价报172800元/吨，较前一交易日结算价下跌7040元，跌幅达3.91%；盘中价格波动区间为171100元/吨至179220元/吨，振幅较大，显示出多空双方博弈激烈，市场观望情绪浓厚。
+
+成交方面，当日主力合约成交量录得214856手，交投保持活跃，但受限于基本面羸弱，价格重心未能有效上移。
+
+现货方面： 根据长江有色金属网2026年6月2日发布的最新现货行情数据，国内碳酸锂市场出现显著回调。
+
+当日，电池级碳酸锂（99.5%）现货均价报174，000元/吨，较前一日下跌4，000元，日跌幅约2.25%；工业级碳酸锂（99.2%）均价报171，000元/吨，同样下跌4，000元，日跌幅约2.29%。
+
+这一回调发生在下游锂电排产连续第四个月刷新历史新高的背景下，凸显了市场在“强现实需求”与“弱预期情绪”之间的激烈博弈。
+
+从供给端审视，市场正经历“短期刚性约束”与“中期增量预期”的复杂拉锯。
+
+短期来看，原料端的扰动持续为价格提供支撑。
 
 ## 相关推荐
 
-- 2026-06-29 16:56 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-29 17:00 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-29 17:07 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-29 17:11 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-29 17:09 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 17:08 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 16:55 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-29 17:04 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-29 16:54 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-29 17:12 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-29 16:51 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-29 17:17 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 17:21 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 17:17 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-29 16:55 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 17:02 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-29 17:20 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 16:58 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-29 17:07 - [东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-29 17:15 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 17:05 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 17:23 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-29 16:59 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 17:23 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 16:57 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 17:16 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:11 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/591630.shtml)
-- 2026-06-29 17:03 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/3744975736.shtml)
-- 2026-06-29 17:14 - [我和我的家乡](https://www.share.minike.top/Article/details/7471465727.shtml)
-- 2026-06-29 17:05 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/964678.shtml)
-- 2026-06-29 16:52 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/377136432989.shtml)
-- 2026-06-29 17:08 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.kurohicncr.top/Article/details/0372591735.shtml)
-- 2026-06-29 16:51 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/209896.shtml)
-- 2026-06-29 17:16 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/27332532211.shtml)
-- 2026-06-29 16:48 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/898317.shtml)
-- 2026-06-29 16:53 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/6938686.shtml)
-- 2026-06-29 16:57 - [金牌调解](https://www.share.minike.top/Article/details/83191122932.shtml)
-- 2026-06-29 16:51 - [小说《无悔追踪》翻红](http://www.share.kurohicncr.top/Article/details/80734140214.shtml)
-- 2026-06-29 17:13 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/0585390.shtml)
-- 2026-06-29 16:48 - [在自己家不穿衣服犯法吗](https://www.share.kurohicncr.top/Article/details/9961496490.shtml)
-- 2026-06-29 17:04 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/72369.shtml)
+- 2026-06-29 17:08 - [霍尔木兹海峡风波再起 油价走向何方](https://www.blog.minike.top/Article/details/33522.shtml)
+- 2026-06-29 17:17 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/698176.shtml)
+- 2026-06-29 17:01 - [曝屠颖去世和酒店失责有关](https://www.share.kurohicncr.top/Article/details/38337703283.shtml)
+- 2026-06-29 17:14 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/120217169.shtml)
+- 2026-06-29 16:59 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/1426649110.shtml)
+- 2026-06-29 17:11 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/36636.shtml)
+- 2026-06-29 17:20 - [世界杯上那些封神的门将](https://www.share.kurohicncr.top/Article/details/1292676849.shtml)
+- 2026-06-29 17:07 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/1812795.shtml)
+- 2026-06-29 17:04 - [恋与深空 731](https://www.share.kurohicncr.top/Article/details/257227508004.shtml)
+- 2026-06-29 16:57 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/7243834.shtml)
+- 2026-06-29 16:58 - [美的空调 卡bug](https://www.blog.kurohicncr.top/Article/details/70076544.shtml)
+- 2026-06-29 17:09 - [王楚钦欢迎晚宴上打台球](https://www.blog.minike.top/Article/details/08021.shtml)
+- 2026-06-29 16:54 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/7825648.shtml)
+- 2026-06-29 17:16 - [王冰冰向全网安利哈兰德](https://www.blog.minike.top/Article/details/2357762551.shtml)
+- 2026-06-29 17:08 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/423740546848.shtml)

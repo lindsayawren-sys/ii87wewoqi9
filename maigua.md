@@ -1,59 +1,58 @@
-# 杉杉股份控股股东重整计划草案获通过，安徽国资拟入主
+# 国家统计局：中国经济总量接近世界第三至第七大经济体之和
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-杉杉股份（维权）（600884.SH）控股股东及其全资子公司合并重整一事，迎来最新进展。 4月15日晚间，杉杉股份发布公告称，公司控股股东杉杉集团及其全资子公司朋泽贸易实质合并重整案第四次债权人会议表决期届满。职工债权组、税收债权组、有财产担保债权组、普通债权组及出资人组均表决通过《重整计划（草案）》。管理人将依法向鄞州法院申请裁定批准。 公告称，此次同意议案的出资人所代表的出
+中新社北京6月2日电 (记者 王恩博)中国国家统计局2日公布的“十四五”经济社会发展成就系列报告表示，中国经济总量已接近世界第三至第七大经济体总量之和，过去5年中国是世界经济增长的最大“贡献者”和最强“稳定锚”。根据报告，“十四五”时期，中国国内生产总值(GDP)实现“四连跳”，先后迈上110万亿元(人民币，下同)、120万亿元、130万亿元、140万亿元的新台阶，累计增量超过
 
 ## 正文
 
-杉杉股份（维权）（600884.SH）控股股东及其全资子公司合并重整一事，迎来最新进展。
+中新社北京6月2日电 (记者 王恩博)中国国家统计局2日公布的“十四五”经济社会发展成就系列报告表示，中国经济总量已接近世界第三至第七大经济体总量之和，过去5年中国是世界经济增长的最大“贡献者”和最强“稳定锚”。
 
-4月15日晚间，杉杉股份发布公告称，公司控股股东杉杉集团及其全资子公司朋泽贸易实质合并重整案第四次债权人会议表决期届满。
+根据报告，“十四五”时期，中国国内生产总值(GDP)实现“四连跳”，先后迈上110万亿元(人民币，下同)、120万亿元、130万亿元、140万亿元的新台阶，累计增量超过36万亿元，相当于世界第三大经济体一年的经济总量。
 
-职工债权组、税收债权组、有财产担保债权组、普通债权组及出资人组均表决通过《重整计划（草案）》。
+2025年，中国经济总量达140.2万亿元，接近世界第三至第七大经济体总量之和。
 
-管理人将依法向鄞州法院申请裁定批准。
+从增速看，“十四五”时期，中国经济年均增长5.4%，明显高于全球3.7%左右的增长水平，在世界主要经济体中位居前列。
 
-公告称，此次同意议案的出资人所代表的出资金额占该组总额的85.60%，《重整计划（草案）》已确定获出资人组表决通过。
+中国人均GDP从2020年的10632美元升至2025年的13953美元，连续3年超过1.3万美元。
 
-这意味着安徽国资入主该公司已经迈过内部表决关卡。
+报告援引世界银行的数据称，2021年中国人均国民总收入(GNI)为12220美元，首次超过世界平均水平，较世界平均水平高25.9美元。
 
-杉杉股份表示，若重整成功，公司控制权将发生变更，控股股东将变更为安徽皖维集团，实控人将变更为安徽省国资委。
+2024年中国人均GNI达13660美元，较2020年增长27.2%。
 
-杉杉股份同时提醒称，鉴于草案尚需法院裁定批准及完成经营者集中申报，结果存在不确定性。
+在世界银行公布的人均GNI排名中，2024年中国排名第76位(共计201个经济体)，跃居中等偏上收入国家首位。
 
 ## 相关推荐
 
-- 2026-06-29 16:51 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 17:04 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 16:56 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-29 16:56 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 17:05 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-29 17:02 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 16:55 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-29 16:55 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 16:57 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-29 16:49 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 16:49 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-29 16:58 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 17:14 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 17:22 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-29 17:19 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-29 17:20 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-29 17:17 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-29 17:21 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-29 17:15 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 16:56 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 16:54 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-29 17:11 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 17:06 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 17:00 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 16:58 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:50 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/598947.shtml)
-- 2026-06-29 16:56 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/33378256631.shtml)
-- 2026-06-29 16:55 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/64428336631.shtml)
-- 2026-06-29 16:49 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/1293926430.shtml)
-- 2026-06-29 17:04 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/67932.shtml)
-- 2026-06-29 17:13 - [流金岁月](https://www.blog.minike.top/Article/details/367590354016.shtml)
-- 2026-06-29 16:58 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/054369.shtml)
-- 2026-06-29 17:15 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/9324102351.shtml)
-- 2026-06-29 17:02 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/45328339.shtml)
-- 2026-06-29 16:54 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/799640.shtml)
-- 2026-06-29 17:03 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/8636772.shtml)
-- 2026-06-29 17:05 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/95911.shtml)
-- 2026-06-29 17:17 - [博主：AI泡沫必须破灭](http://www.share.kurohicncr.top/Article/details/77855316.shtml)
-- 2026-06-29 17:06 - [医院大厅放钢琴是形式主义吗](http://www.share.minike.top/Article/details/48814298648.shtml)
-- 2026-06-29 16:50 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.blog.minike.top/Article/details/750953.shtml)
+- 2026-06-29 17:03 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/017817043353.shtml)
+- 2026-06-29 17:15 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.kurohicncr.top/Article/details/451446373960.shtml)
+- 2026-06-29 16:55 - [大疆7月15日起涨价？公司回应](https://www.share.minike.top/Article/details/816660.shtml)
+- 2026-06-29 17:03 - [急先锋](http://www.share.minike.top/Article/details/63509557009.shtml)
+- 2026-06-29 17:19 - [周生如故](https://www.blog.kurohicncr.top/Article/details/49668.shtml)
+- 2026-06-29 17:19 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.kurohicncr.top/Article/details/06893955.shtml)
+- 2026-06-29 17:12 - [虞书欣好辣的剧宣](http://www.share.kurohicncr.top/Article/details/93626.shtml)
+- 2026-06-29 17:08 - [请回答王牌2019](https://www.blog.minike.top/Article/details/5424029822.shtml)
+- 2026-06-29 16:58 - [花万元相亲对象是50元雇的演员](http://www.blog.minike.top/Article/details/51303.shtml)
+- 2026-06-29 17:18 - [张雪机车杀向海外](https://www.share.minike.top/Article/details/13634.shtml)
+- 2026-06-29 17:20 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/986648.shtml)
+- 2026-06-29 16:54 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/92434705896.shtml)
+- 2026-06-29 17:02 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.minike.top/Article/details/66072049891.shtml)
+- 2026-06-29 16:59 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.kurohicncr.top/Article/details/361553674269.shtml)
+- 2026-06-29 17:08 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/561746077.shtml)

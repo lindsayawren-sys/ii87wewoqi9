@@ -1,56 +1,56 @@
-# 丁薛祥会见土库曼斯坦民族领袖、人民委员会主席别尔德穆哈梅多夫
+# 奇安信齐向东：AI时代，三类安全需求集中爆发
 
-> 更新时间：2026-06-29 17:18:02 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-新华社阿什哈巴德4月15日电(记者赵博超 安晓萌)4月15日，中共中央政治局常委、国务院副总理丁薛祥在阿什哈巴德会见土库曼斯坦民族领袖、人民委员会主席库尔班古力·别尔德穆哈梅多夫。 丁薛祥首先转达了习近平主席的亲切问候和良好祝愿。丁薛祥表示，在习近平主席同别尔德穆哈梅多夫主席的战略引领下，中土关系保持快速稳定发展，实现了从友好合作伙伴到战略伙伴，再到全面战略伙伴的跨越。中方愿同
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新浪科技讯 6月2日下午消息，近日，在2026北京网络安全大会上，奇安信集团董事长齐向东明确指出，AI时代正催生三类安全需求的集中爆发，这是政企机构必须抓住的战略窗口期。 第一，AI漏洞+AI攻击引爆实战安全需求。 齐向东直言，国内政企机构对安全的态度普遍是“合规即达标”，应对攻击的实战能力弱。“表层看是防
 
 ## 正文
 
-新华社阿什哈巴德4月15日电(记者赵博超 安晓萌)4月15日，中共中央政治局常委、国务院副总理丁薛祥在阿什哈巴德会见土库曼斯坦民族领袖、人民委员会主席库尔班古力·别尔德穆哈梅多夫。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-丁薛祥首先转达了习近平主席的亲切问候和良好祝愿。
+新浪科技讯 6月2日下午消息，近日，在2026北京网络安全大会上，奇安信集团董事长齐向东明确指出，AI时代正催生三类安全需求的集中爆发，这是政企机构必须抓住的战略窗口期。
 
-丁薛祥表示，在习近平主席同别尔德穆哈梅多夫主席的战略引领下，中土关系保持快速稳定发展，实现了从友好合作伙伴到战略伙伴，再到全面战略伙伴的跨越。
+第一，AI漏洞+AI攻击引爆实战安全需求。
 
-中方愿同土方一道，落实好两国最高领导人重要共识，充分发挥中土合作委员会的作用，推动两国各领域合作加快向前发展。
+齐向东直言，国内政企机构对安全的态度普遍是“合规即达标”，应对攻击的实战能力弱。
 
-丁薛祥表示，天然气合作是中土关系互利共赢的鲜明体现，近年稳定发展、成果丰硕，给两国人民带来了实实在在的福祉。
+“表层看是防御手段不足，深层看是缺少体系能力；体系能力不足的病根，在于长期‘重建设、轻安全’的认知错位，安全投入不达标。
 
-双方要更加注重从战略高度和长远利益看待天然气合作，乘势而上用好合作窗口期，坚持相向而行，加快推进重大项目，扩大天然气合作规模，不断提升能源合作质效。
+” 齐向东呼吁，政企机构亟需加大安全投入，全面转向主动防御、纵深防御、动态防御，提高实战能力。
 
-同时进一步提升互联互通、经贸投资等非资源领域合作水平，拓展光伏、风电、新能源汽车、人工智能等领域合作。
+第二，智能体引爆数据安全需求。
 
-中方愿同土方持续加强在中国－中亚机制框架下的协调配合，支持土库曼斯坦作为永久中立国在联合国等多边舞台发挥更大作用。
+他表示，AI时代，很多政企机构对积累多年、分散各处的设计图、生产工艺等进行加工处理，形成高价值、集中化的“精华小数据”。
 
 ## 相关推荐
 
-- 2026-06-29 17:16 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-29 16:59 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 17:10 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-29 16:58 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-29 16:52 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-29 16:58 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 17:09 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-29 16:50 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-29 16:55 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 16:48 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-29 17:13 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-29 17:17 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 16:54 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 17:19 - [东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 17:07 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 17:11 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-29 17:23 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-29 17:21 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 16:54 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 17:01 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:17 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/8808530961.shtml)
-- 2026-06-29 17:16 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/753313033.shtml)
-- 2026-06-29 17:02 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.kurohicncr.top/Article/details/1582874.shtml)
-- 2026-06-29 17:15 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.kurohicncr.top/Article/details/46060041730.shtml)
-- 2026-06-29 17:06 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/552301.shtml)
-- 2026-06-29 17:09 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/51629.shtml)
-- 2026-06-29 17:04 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.minike.top/Article/details/62110.shtml)
-- 2026-06-29 16:54 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/174771406.shtml)
-- 2026-06-29 16:52 - [河南四位大妈景区跳舞爆火](http://www.share.kurohicncr.top/Article/details/595867521.shtml)
-- 2026-06-29 17:03 - [永远保持对人民的赤子之心](http://www.blog.minike.top/Article/details/15370352360.shtml)
-- 2026-06-29 17:08 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/58611649.shtml)
-- 2026-06-29 17:11 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.kurohicncr.top/Article/details/0985735557.shtml)
-- 2026-06-29 16:49 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/48490404.shtml)
-- 2026-06-29 17:00 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.kurohicncr.top/Article/details/953995.shtml)
-- 2026-06-29 17:01 - [王楚钦首轮赢下国乒德比](https://www.share.minike.top/Article/details/537907.shtml)
+- 2026-06-29 17:03 - [一家三口吃溪石斑鱼中毒](https://www.blog.kurohicncr.top/Article/details/99663.shtml)
+- 2026-06-29 17:10 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/05099751.shtml)
+- 2026-06-29 17:17 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/154832096.shtml)
+- 2026-06-29 16:57 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/51342620345.shtml)
+- 2026-06-29 17:14 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/24005.shtml)
+- 2026-06-29 17:09 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.minike.top/Article/details/92029250.shtml)
+- 2026-06-29 17:14 - [王俊凯命名方式](http://www.blog.kurohicncr.top/Article/details/60063578555.shtml)
+- 2026-06-29 17:17 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/98062062572.shtml)
+- 2026-06-29 17:17 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/6314719.shtml)
+- 2026-06-29 17:22 - [2026年，如果你有100万，你会怎么投资？](https://www.share.kurohicncr.top/Article/details/0802482.shtml)
+- 2026-06-29 17:03 - [小鹏MONAL03预售定档7月2日](https://www.blog.kurohicncr.top/Article/details/5798224726.shtml)
+- 2026-06-29 17:11 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/4361398.shtml)
+- 2026-06-29 17:23 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.minike.top/Article/details/48171089.shtml)
+- 2026-06-29 17:09 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/0635263.shtml)
+- 2026-06-29 17:04 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/863167.shtml)

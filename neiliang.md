@@ -1,61 +1,59 @@
-# PNC盈利上涨，受益于强劲的客户业务活动
+# 零关税举措实施首月 广州海关关区自53个非洲建交国进口享惠货值超4.7亿元
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 第一季度总营收增长 13%，至 61.7 亿美元 简要概述 PNC 金融服务集团第一季度利润与营收双双上升，调整后每股收益为 4.32 美元。 PNC 金融服务集团公布第一季度利润与营收均实现增长，客户业务活动保持旺盛。 这家总部位于匹兹堡的银行及金融服务公司周三表示，当期净利润为 17.2 亿美元，合每股 4.13 美元；去年同期净利润为
+中新网广州6月2日电 (许青青 关悦)据广州海关消息，我国对53个非洲建交国全面实施零关税举措首月(2026年5月1日至5月31日)，广州海关关区自53个非洲建交国进口享惠货值超4.7亿元，其中，自利比亚、南非、埃及、尼日利亚和津巴布韦等20个不属于最不发达国家的非洲建交国进口享惠货值约3.8亿元，减让税款超4300万元。今年5月1日起，我国对53个非洲建交国全面实施零关税举措
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 第一季度总营收增长 13%，至 61.7 亿美元 简要概述 PNC 金融服务集团第一季度利润与营收双双上升，调整后每股收益为 4.32 美元。
+中新网广州6月2日电 (许青青 关悦)据广州海关消息，我国对53个非洲建交国全面实施零关税举措首月(2026年5月1日至5月31日)，广州海关关区自53个非洲建交国进口享惠货值超4.7亿元，其中，自利比亚、南非、埃及、尼日利亚和津巴布韦等20个不属于最不发达国家的非洲建交国进口享惠货值约3.8亿元，减让税款超4300万元。
 
-PNC 金融服务集团公布第一季度利润与营收均实现增长，客户业务活动保持旺盛。
+今年5月1日起，我国对53个非洲建交国全面实施零关税举措。
 
-这家总部位于匹兹堡的银行及金融服务公司周三表示，当期净利润为 17.2 亿美元，合每股 4.13 美元；去年同期净利润为 15 亿美元，合每股 3.51 美元。
+其中，对20个不属于最不发达国家的非洲建交国，以特惠税率形式实施，为期2年。
 
-剔除部分一次性项目后，每股收益为 4.32 美元。
+这是继2024年12月1日中方对包括33个非洲国家在内的所有已建交的最不发达国家实施零关税后的又一重大举措。
 
-金融数据公司 FactSet 调查的分析师此前预期调整后每股收益为 4.16 美元。
+近日，一批来自埃及、货值约7万元的盖刺鱼、蝴蝶鱼等观赏鱼运抵广州白云机场口岸，经广州海关所属广州白云机场海关关员监管验放，被送至指定的进境水生动物隔离检疫场，隔离检疫合格后将进入国内市场销售。
 
-总营收同比增长 13%，至 61.7 亿美元。
+“之前原产自埃及的观赏鱼进口关税税率为10%，我国对53个非洲建交国全面实施零关税举措落地后，埃及观赏鱼可享零关税进口，该票货物享受税款减让约7000元。
 
-华尔街市场预期为 62.4 亿美元。
+”广东蓝海海洋科技有限公司经理李海伦说，该公司对今年继续扩大自非洲国家进口的规模很有信心。
 
-该行表示，净利息收入攀升 14%，至 39.6 亿美元，主要得益于 PNC 收购第一银行、融资成本下降以及商业贷款增长。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 17:13 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-29 17:10 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-29 16:52 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 17:10 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-29 17:10 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 17:00 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-29 17:03 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 16:59 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-29 16:55 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-29 17:05 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 17:11 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-29 16:55 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 17:13 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-29 16:57 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-29 17:07 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-29 17:20 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 17:05 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 17:06 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-29 16:55 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 16:58 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-29 17:00 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 17:08 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-29 17:08 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 17:01 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 17:06 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 17:03 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 17:19 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-29 16:58 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:13 - [抓特务票房破亿](https://www.blog.minike.top/Article/details/116179.shtml)
-- 2026-06-29 16:55 - [急先锋](https://www.blog.kurohicncr.top/Article/details/735775268516.shtml)
-- 2026-06-29 16:58 - [95后小伙突然确诊癌症 医生提醒](http://www.blog.minike.top/Article/details/14907.shtml)
-- 2026-06-29 16:51 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/279385513704.shtml)
-- 2026-06-29 17:00 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/340727024308.shtml)
-- 2026-06-29 16:59 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/371387622401.shtml)
-- 2026-06-29 16:58 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.kurohicncr.top/Article/details/829744600343.shtml)
-- 2026-06-29 17:08 - [韩国极端网友对主教练发出死亡威胁](http://www.share.kurohicncr.top/Article/details/19031.shtml)
-- 2026-06-29 17:05 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.kurohicncr.top/Article/details/7809611.shtml)
-- 2026-06-29 17:10 - [众星恭喜吴建豪](http://www.share.kurohicncr.top/Article/details/2275652127.shtml)
-- 2026-06-29 17:15 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.kurohicncr.top/Article/details/3549285446.shtml)
-- 2026-06-29 16:52 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/3323001667.shtml)
-- 2026-06-29 17:16 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.minike.top/Article/details/6777196.shtml)
-- 2026-06-29 17:04 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/7508362492.shtml)
-- 2026-06-29 17:05 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/441588822769.shtml)
+- 2026-06-29 17:22 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.minike.top/Article/details/34292283391.shtml)
+- 2026-06-29 17:23 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/8275997276.shtml)
+- 2026-06-29 17:08 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/3916724.shtml)
+- 2026-06-29 16:54 - [世界杯上那些封神的门将](http://www.blog.minike.top/Article/details/527461360.shtml)
+- 2026-06-29 17:12 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/416753.shtml)
+- 2026-06-29 17:09 - [江苏财政厅原一级调研员谢功成被查](https://www.share.kurohicncr.top/Article/details/72672557.shtml)
+- 2026-06-29 17:14 - [永远保持对人民的赤子之心](http://www.share.kurohicncr.top/Article/details/5929294602.shtml)
+- 2026-06-29 17:06 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.kurohicncr.top/Article/details/6572318.shtml)
+- 2026-06-29 17:01 - [每代父母都困在自己的时代里](http://www.blog.minike.top/Article/details/8864835441.shtml)
+- 2026-06-29 17:22 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/86871.shtml)
+- 2026-06-29 17:15 - [一见倾心](http://www.share.kurohicncr.top/Article/details/7235902781.shtml)
+- 2026-06-29 17:18 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/055163717760.shtml)
+- 2026-06-29 17:22 - [叠纸](https://www.share.kurohicncr.top/Article/details/395970958247.shtml)
+- 2026-06-29 17:05 - [在自己家不穿衣服犯法吗](http://www.blog.minike.top/Article/details/957183703.shtml)
+- 2026-06-29 17:22 - [广东一地发现极危植物新物种](https://www.share.kurohicncr.top/Article/details/517666403.shtml)

@@ -1,57 +1,46 @@
-# 第二届“苏超”开赛网络信息量达首届120倍
+# 老挝人革党中央总书记、国家主席通伦抵达杭州开始访华
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-中新网4月15日电(吴家驹)2026年“苏超”刚开赛就收获巨大关注。 第三方机构数据显示，统计两届“苏超”开赛网络数据，2025年“苏超”开赛24小时，全网相关信息量1829条；2026年“苏超”开赛24小时，全网相关信息量激增至21.99万条，是上届的120倍。 对比信息类型占比可见，2026年开赛后，“苏超”相关评论信息量较2025年增长5.38%，表明网民讨论意愿增强；转
+老挝人革党中央总书记、国家主席通伦今天(6月2日)抵达浙江杭州，开始对中国进行为期五天的国事访问。 (总台央视记者 赵晶 杨小刚)
 
 ## 正文
 
-中新网4月15日电(吴家驹)2026年“苏超”刚开赛就收获巨大关注。
+老挝人革党中央总书记、国家主席通伦今天(6月2日)抵达浙江杭州，开始对中国进行为期五天的国事访问。
 
-第三方机构数据显示，统计两届“苏超”开赛网络数据，2025年“苏超”开赛24小时，全网相关信息量1829条；2026年“苏超”开赛24小时，全网相关信息量激增至21.99万条，是上届的120倍。
-
-对比信息类型占比可见，2026年开赛后，“苏超”相关评论信息量较2025年增长5.38%，表明网民讨论意愿增强；转发信息量增长近20%，侧面表明“苏超”网络关注度大幅攀升。
-
-分析媒体信息占比情况可见，2025年“苏超”开赛后，媒体信息量占全网信息量的28.43%，2026年“苏超”开赛后媒体信息量占比下降至5.94%，表明“苏超”的网络传播主力已由媒体转为普通网络用户。
-
-统计媒体信息发布量，各级媒体关于“苏超”开赛的信息发布量均有较高增长，其中，地市级媒体信息发布量增长达27.59倍，表明“苏超”在各级媒体的影响力显著提升。
-
-(完)
+(总台央视记者 赵晶 杨小刚)
 
 ## 相关推荐
 
-- 2026-06-29 17:13 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 16:58 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 16:56 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 17:09 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 16:57 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 17:00 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 17:03 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-29 16:52 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 16:56 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-29 16:57 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-29 17:12 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 16:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-29 16:56 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-29 16:49 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 16:49 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 16:54 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 17:03 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 17:06 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 17:21 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 17:01 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 17:16 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-29 17:19 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 16:55 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 17:14 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-29 17:19 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-29 17:16 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 17:22 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:49 - [95后小伙突然确诊癌症 医生提醒](http://www.blog.minike.top/Article/details/87281.shtml)
-- 2026-06-29 16:59 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/82113643860.shtml)
-- 2026-06-29 17:15 - [千与千寻](http://www.share.minike.top/Article/details/653186096.shtml)
-- 2026-06-29 17:04 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.minike.top/Article/details/339627448739.shtml)
-- 2026-06-29 17:03 - [巴黎两家殡仪馆爆满](http://www.blog.kurohicncr.top/Article/details/1127351.shtml)
-- 2026-06-29 16:59 - [我和我的家乡](https://www.share.minike.top/Article/details/85377992547.shtml)
-- 2026-06-29 17:06 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/787457178681.shtml)
-- 2026-06-29 16:49 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.kurohicncr.top/Article/details/297603508.shtml)
-- 2026-06-29 16:52 - [FIFA回应佛得角队长被指控强奸](https://www.blog.minike.top/Article/details/27650269972.shtml)
-- 2026-06-29 16:48 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.minike.top/Article/details/11970709715.shtml)
-- 2026-06-29 16:51 - [中国空间站为什么要升级扩容](http://www.blog.kurohicncr.top/Article/details/7263258424.shtml)
-- 2026-06-29 17:17 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.kurohicncr.top/Article/details/574300102.shtml)
-- 2026-06-29 17:17 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/36975195.shtml)
-- 2026-06-29 17:09 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.minike.top/Article/details/16831355.shtml)
-- 2026-06-29 17:16 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/31303.shtml)
+- 2026-06-29 16:55 - [王楚钦首轮赢下国乒德比](https://www.share.minike.top/Article/details/45399091.shtml)
+- 2026-06-29 16:54 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/3163942869.shtml)
+- 2026-06-29 17:18 - [李在镕：计划将光州作为芯片生产基地](http://www.share.kurohicncr.top/Article/details/75519794.shtml)
+- 2026-06-29 16:59 - [中方将20家日本实体列入关注名单](http://www.blog.minike.top/Article/details/45498944.shtml)
+- 2026-06-29 17:19 - [曝屠颖去世和酒店失责有关](https://www.share.kurohicncr.top/Article/details/1700543308.shtml)
+- 2026-06-29 17:11 - [美人鱼](https://www.blog.minike.top/Article/details/8297992.shtml)
+- 2026-06-29 17:16 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/10326.shtml)
+- 2026-06-29 17:03 - [人类对空调和其他家电有多双标](https://www.blog.minike.top/Article/details/705287.shtml)
+- 2026-06-29 17:10 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/255592.shtml)
+- 2026-06-29 16:59 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/16562.shtml)
+- 2026-06-29 17:01 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.kurohicncr.top/Article/details/3782294.shtml)
+- 2026-06-29 17:09 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/96110374.shtml)
+- 2026-06-29 16:56 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/7330128947.shtml)
+- 2026-06-29 16:55 - [港股蓝筹股的落寞才刚刚开始吗](http://www.share.kurohicncr.top/Article/details/64821057.shtml)
+- 2026-06-29 16:54 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/67615833.shtml)

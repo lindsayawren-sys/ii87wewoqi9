@@ -1,61 +1,51 @@
-# 大宗商品综述：油价基本持稳 铜价微跌 金价下跌
+# 申万宏源：公开发行公司债券更名
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-油价基本持稳，市场权衡显示美国原油库存下降的数据与美伊和谈前景。随着交易员持续关注中东局势发展，铜价小幅走低，金价下跌。 原油：油价基本持稳 市场权衡美国库存下降与美伊和谈前景 油价基本持稳，交易员在美国库存迅速下降的迹象与美伊可能重启谈判以结束战争之间进行权衡。 WTI基本持平，收于每桶91美元附近，大致回到周末和谈破裂前的水平。 知情人士称，华盛顿与德黑兰考虑将定于下周二到
+申万宏源（06806）发布公告，本次债券申报时命名为“申万宏源集团股份有限公司2024年面向专业投资者公开发行公司债券”，因分期发行，按照命名规则，本期债券名称确定为“申万宏源集团股份有限公司2026年面向专业投资者公开发行公司债券（第一期）”。本期债券分为两个品种，品种一债券全称为“申万宏源集团股份有限公司2026年面向专业投资者公开发行公司债券（第一期）（品种一）”，债券简
 
 ## 正文
 
-油价基本持稳，市场权衡显示美国原油库存下降的数据与美伊和谈前景。
+申万宏源（06806）发布公告，本次债券申报时命名为“申万宏源集团股份有限公司2024年面向专业投资者公开发行公司债券”，因分期发行，按照命名规则，本期债券名称确定为“申万宏源集团股份有限公司2026年面向专业投资者公开发行公司债券（第一期）”。
 
-随着交易员持续关注中东局势发展，铜价小幅走低，金价下跌。
+本期债券分为两个品种，品种一债券全称为“申万宏源集团股份有限公司2026年面向专业投资者公开发行公司债券（第一期）（品种一）”，债券简称“26申宏01”；品种二债券全称为“申万宏源集团股份有限公司2026年面向专业投资者公开发行公司债券（第一期）（品种二）”，债券简称“26申宏02”。
 
-原油：油价基本持稳 市场权衡美国库存下降与美伊和谈前景 油价基本持稳，交易员在美国库存迅速下降的迹象与美伊可能重启谈判以结束战争之间进行权衡。
-
-WTI基本持平，收于每桶91美元附近，大致回到周末和谈破裂前的水平。
-
-知情人士称，华盛顿与德黑兰考虑将定于下周二到期的停火延长两周，以争取更多时间达成协议。
-
-油价早些时候上涨，因为美国能源信息管理局（EIA）周三公布的数据显示，原油及主要精炼油品库存下降。
-
-这一关键数据打破了清淡的交易格局，投资者正权衡白宫就战争走向释放的相互矛盾信号。
-
-美国财长贝森特重申，美国不会延长允许暂时出售部分俄罗斯和伊朗原油的通用许可。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 17:10 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 16:49 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 16:58 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 16:53 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-29 17:04 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-29 17:08 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-29 17:14 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 16:52 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-29 17:13 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-29 16:57 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 16:53 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-29 17:03 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-29 17:09 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 16:48 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 17:17 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 17:14 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 16:54 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 17:06 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-29 17:02 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 16:54 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 17:02 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-29 16:57 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 16:56 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 17:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-29 16:54 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-29 17:13 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 16:55 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 16:58 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-29 16:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 17:11 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:14 - [挪威王储妃长子2次强奸被判4年](https://www.blog.minike.top/Article/details/1155592845.shtml)
-- 2026-06-29 17:08 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/02303.shtml)
-- 2026-06-29 17:10 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/508393.shtml)
-- 2026-06-29 16:57 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/30867097.shtml)
-- 2026-06-29 16:58 - [音乐人屠颖离世家属追责涉事酒店](http://www.share.minike.top/Article/details/328493.shtml)
-- 2026-06-29 16:52 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/770710179.shtml)
-- 2026-06-29 17:02 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.minike.top/Article/details/456097.shtml)
-- 2026-06-29 16:54 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.minike.top/Article/details/50227.shtml)
-- 2026-06-29 17:12 - [上海一小区水池内出现一条鳄鱼](http://www.share.kurohicncr.top/Article/details/04021886876.shtml)
-- 2026-06-29 17:15 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/59683.shtml)
-- 2026-06-29 17:16 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/0551902075.shtml)
-- 2026-06-29 16:51 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/29761880.shtml)
-- 2026-06-29 17:17 - [高市早苗口齿不清被质疑醉酒](http://www.blog.minike.top/Article/details/711416874424.shtml)
-- 2026-06-29 17:15 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/23716863.shtml)
-- 2026-06-29 17:06 - [南部战区位南海海域进行例行巡航](https://www.blog.kurohicncr.top/Article/details/33005.shtml)
+- 2026-06-29 17:09 - [韩国极端网友对主教练发出死亡威胁](http://www.share.kurohicncr.top/Article/details/058547261885.shtml)
+- 2026-06-29 17:22 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.blog.kurohicncr.top/Article/details/382502.shtml)
+- 2026-06-29 17:23 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/762045615227.shtml)
+- 2026-06-29 17:01 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/76865683502.shtml)
+- 2026-06-29 17:10 - [舒行钢任湖南省交通运输厅厅长](http://www.share.minike.top/Article/details/808577444.shtml)
+- 2026-06-29 17:18 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/153477931280.shtml)
+- 2026-06-29 17:01 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.minike.top/Article/details/11032024.shtml)
+- 2026-06-29 16:58 - [花万元相亲对象是50元雇的演员](https://www.blog.kurohicncr.top/Article/details/547295919352.shtml)
+- 2026-06-29 16:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/269807451.shtml)
+- 2026-06-29 17:18 - [BB大王横店拍戏](http://www.share.minike.top/Article/details/4846430628.shtml)
+- 2026-06-29 17:02 - [TLAW vs DCG MSI](http://www.blog.minike.top/Article/details/4083179261.shtml)
+- 2026-06-29 16:56 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/7300651231.shtml)
+- 2026-06-29 17:15 - [法拉利被4个孩子当滑梯玩](https://www.share.kurohicncr.top/Article/details/864884667442.shtml)
+- 2026-06-29 16:58 - [夏天被这些虫子咬了可能致命](https://www.share.kurohicncr.top/Article/details/471469370.shtml)
+- 2026-06-29 17:17 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/183829419.shtml)

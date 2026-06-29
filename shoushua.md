@@ -1,59 +1,58 @@
-# 棕榈油3月MPOB报告解读：库存及产量高于预期 价格有下调压
+# 宣扬“赖清德是我干爹”的台湾官二代重判改缓刑，岛内质疑侵蚀台湾司法
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-卓创资讯棕榈油分析师张兰兰 【导语】4月10日，马来西亚棕榈油局（MPOB）发布2026年3月棕榈油供需数据。数据显示，当月马棕产量环比增加，且高于市场预期；库存环比下降，但高于市场预期。供需面数据整体偏空，给予棕榈油回落压力，当前因处在增产期且因价格高出口前景有压力，预计4月后半月棕榈油现货价格或呈现高位回落走势。 3月MPOB报告产量及库存高于预期，价格有回落压力 马来西亚
+中新网6月1日电(燕新台)台南市前副市长颜纯左之子颜大钧靠“官二代”名气，诈骗上亿元(新台币，下同)，一审重判7年10月，但近日二审改判2年，缓刑5年。 据了解，颜大钧曾高调宣扬“赖清德是我干爹”。 岛内舆论对二审结果感到错愕，有网友怒批“台湾的未来真的没救了”“台湾司法就是个笑话”“诈骗害人却没付出什么代价的结果，只会让台湾诈骗更猖獗”。 台湾青年联合会理事长何溢诚对中新网“
 
 ## 正文
 
-卓创资讯棕榈油分析师张兰兰 【导语】4月10日，马来西亚棕榈油局（MPOB）发布2026年3月棕榈油供需数据。
+中新网6月1日电(燕新台)台南市前副市长颜纯左之子颜大钧靠“官二代”名气，诈骗上亿元(新台币，下同)，一审重判7年10月，但近日二审改判2年，缓刑5年。
 
-数据显示，当月马棕产量环比增加，且高于市场预期；库存环比下降，但高于市场预期。
+据了解，颜大钧曾高调宣扬“赖清德是我干爹”。
 
-供需面数据整体偏空，给予棕榈油回落压力，当前因处在增产期且因价格高出口前景有压力，预计4月后半月棕榈油现货价格或呈现高位回落走势。
+岛内舆论对二审结果感到错愕，有网友怒批“台湾的未来真的没救了”“台湾司法就是个笑话”“诈骗害人却没付出什么代价的结果，只会让台湾诈骗更猖獗”。
 
-3月MPOB报告产量及库存高于预期，价格有回落压力 马来西亚棕榈油总署（MPOB）发布的3月供需报告整体偏空影响。
+台湾青年联合会理事长何溢诚对中新网“燕新台”工作室表示，台湾诈骗案本就罚则过轻，让罪犯心存侥幸。
 
-数据显示，当月产量为138万吨（环比+7.8%），出口量为155万吨（环比+38.39%），月末库存为227万吨（环比-15.93%）。
+然而，诈骗金额高达上亿元却能通过父亲出面而免受牢狱之灾，考虑到颜大钧“赖清德干儿子”的标签，不免予人“没钱重判、有钱免判”“有关系就没关系”“判罚毫无公平可言”的质疑，这样的判罚结果也侵蚀台湾司法在岛内民众中的公信力。
 
-从产量看，3月棕榈油产量138万吨，环比有所提高7.8%，同比略回落0.58%，略高于市场预期值134万吨。
+报道称，颜大钧自身并无财力，其利用父亲在地方良好的政商名号，以及“赖清德是我干爹”等说辞对外揽资，在2021年至2023年间，用“投资重划区”“科技执法标案”等名义，向6名被害人吸金超1.1亿元，用以支应其豪奢生活与沉迷赌博的无底洞。
 
-产区处在增产期，产量环比增加符合市场预期，但略高于市场预期值，该数据中性偏空，不利于价格持续走高。
+事发后，颜大钧一度企图潜逃出境，最终于2025年6月被台湾警方逮捕归案。
 
-从出口量看，3月棕榈油出口量为155万吨，环比增加38.39%，同比增加54.00%，基本符合市场预期值155-156万吨。
+另据台湾“风传媒”报道，颜大钧一审仅与3名被害人和解，分处3年2月、3年10月及3年4月徒刑，合并执行7年10月徒刑。
 
 ## 相关推荐
 
-- 2026-06-29 16:55 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 16:53 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-29 17:08 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-29 17:01 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 16:52 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-29 17:09 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 16:57 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 17:07 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 16:48 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 17:09 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-29 17:05 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 16:54 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 17:04 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 17:21 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 16:58 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 17:20 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-29 17:12 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-29 17:23 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 17:10 - [黄金也扛不住了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 17:18 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-29 17:05 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 16:55 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 17:00 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 16:58 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-29 17:07 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:04 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/54838.shtml)
-- 2026-06-29 16:48 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/3568642402.shtml)
-- 2026-06-29 17:17 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/528681942.shtml)
-- 2026-06-29 16:56 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/0831853604.shtml)
-- 2026-06-29 16:48 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/10727446.shtml)
-- 2026-06-29 16:48 - [苹果回应恋与深空低分](https://www.blog.kurohicncr.top/Article/details/9467631.shtml)
-- 2026-06-29 17:14 - [NBA交易](https://www.share.kurohicncr.top/Article/details/710592.shtml)
-- 2026-06-29 16:58 - [永远有话聊的原因](http://www.blog.kurohicncr.top/Article/details/59085520911.shtml)
-- 2026-06-29 17:08 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/32720292.shtml)
-- 2026-06-29 17:17 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/2791946840.shtml)
-- 2026-06-29 17:00 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/12913.shtml)
-- 2026-06-29 17:05 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/2629975837.shtml)
-- 2026-06-29 17:08 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/67057.shtml)
-- 2026-06-29 17:01 - [当地回应林区违规放羊遭豹啃食](http://www.blog.kurohicncr.top/Article/details/25148.shtml)
-- 2026-06-29 17:16 - [日本主教练回应迎战巴西](https://www.share.minike.top/Article/details/078852.shtml)
+- 2026-06-29 17:03 - [永远有话聊的原因](http://www.share.minike.top/Article/details/19003599.shtml)
+- 2026-06-29 16:55 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/502726670027.shtml)
+- 2026-06-29 17:23 - [媒体：听清自己内心的声音再填志愿](https://www.blog.kurohicncr.top/Article/details/9734628.shtml)
+- 2026-06-29 17:07 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/886997365.shtml)
+- 2026-06-29 17:09 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.minike.top/Article/details/31103226.shtml)
+- 2026-06-29 17:16 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/8708009.shtml)
+- 2026-06-29 17:00 - [普京：俄罗斯面临命运攸关时刻](https://www.share.minike.top/Article/details/09377290.shtml)
+- 2026-06-29 17:00 - [当地回应林区违规放羊遭豹啃食](https://www.blog.kurohicncr.top/Article/details/375863.shtml)
+- 2026-06-29 17:06 - [四川地震前夕 街头电线上站满燕子](https://www.share.kurohicncr.top/Article/details/590284377471.shtml)
+- 2026-06-29 17:01 - [全国第三艘万车级汽车运输船交付](https://www.blog.minike.top/Article/details/21159.shtml)
+- 2026-06-29 16:57 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/777441969.shtml)
+- 2026-06-29 17:20 - [上海小区惊现鳄鱼](https://www.blog.kurohicncr.top/Article/details/49725655468.shtml)
+- 2026-06-29 17:18 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.minike.top/Article/details/6243064547.shtml)
+- 2026-06-29 17:08 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/706645547052.shtml)
+- 2026-06-29 17:03 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/42319.shtml)

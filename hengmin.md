@@ -1,53 +1,61 @@
-# 葛海蛟会见新加坡国家发展部长兼金融管理局副主席徐芳达和新加坡驻华大使陈海泉
+# 东方微笑，何以成为麦积山石窟的文化IP？
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-4月14日，中国银行董事长葛海蛟在中国银行总行大厦会见新加坡国家发展部长兼金融管理局副主席徐芳达、新加坡驻华大使陈海泉一行，围绕深化中新经贸合作、推动人民币国际使用、促进基础设施融资等重点话题展开深入交流。 双方一致认为，中新合作基础坚实、前景广阔。站在中国银行在新展业90周年新起点上，双方将进一步强化在资本市场、基础设施等领域的务实合作，积极探索金融创新服务模式，持续促进两国
+中新社记者 丁思 位于甘肃省天水市的麦积山石窟，处于中国石窟走廊的十字路口，沟通东西、连亘南北，既是中国各民族交往交流交融的艺术再现，也成为东西方文明交流互鉴的重要标志。2014年，麦积山石窟作为“丝绸之路：长安—天山廊道的路网”的组成部分，被联合国教科文组织公布为世界文化遗产。 与敦煌莫高窟、龙门石窟、云冈石窟并称为中国四大石窟的麦积山石窟，为何被誉为“东方雕塑陈列馆”？窟内
 
 ## 正文
 
-4月14日，中国银行董事长葛海蛟在中国银行总行大厦会见新加坡国家发展部长兼金融管理局副主席徐芳达、新加坡驻华大使陈海泉一行，围绕深化中新经贸合作、推动人民币国际使用、促进基础设施融资等重点话题展开深入交流。
+中新社记者 丁思 位于甘肃省天水市的麦积山石窟，处于中国石窟走廊的十字路口，沟通东西、连亘南北，既是中国各民族交往交流交融的艺术再现，也成为东西方文明交流互鉴的重要标志。
 
-双方一致认为，中新合作基础坚实、前景广阔。
+2014年，麦积山石窟作为“丝绸之路：长安—天山廊道的路网”的组成部分，被联合国教科文组织公布为世界文化遗产。
 
-站在中国银行在新展业90周年新起点上，双方将进一步强化在资本市场、基础设施等领域的务实合作，积极探索金融创新服务模式，持续促进两国企业双向交流，共享市场发展机遇，携手谱写高质量合作新篇章。
+与敦煌莫高窟、龙门石窟、云冈石窟并称为中国四大石窟的麦积山石窟，为何被誉为“东方雕塑陈列馆”？
 
-Ge Haijiao Meets with Chee Hong Tat， Minister for National Development of Singapore and Deputy Chairman of the Monetary Authority of Singapore， and Peter Tan ， Singapore‘s Ambassador to the People’s Republic of China On April 14， Ge Haijiao， Chairman of Bank of China Limited， met with Chee Hong Tat， Minister for National Development of Singapore and Deputy Chairman of the Monet
+窟内有哪些典型的“中西合璧”造型案例？
+
+“东方微笑”何以成为麦积山石窟标志性的“表情包”，它与其他国家石窟内的微笑佛像，有何关联和异同？
+
+时任麦积山石窟艺术研究所副所长、研究馆员张铭接受中新社“东西问”独家专访，作出阐释。
+
+视频：【东西问】张铭：“东方微笑”何以永驻麦积烟雨中？
+
+来源：中国新闻网 现将访谈实录摘要如下： 中新社记者：从麦积山石窟的营造历史来看，它为何被称为“东方雕塑陈列馆”？
 
 ## 相关推荐
 
-- 2026-06-29 17:17 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-29 16:49 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 17:15 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 16:59 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 17:13 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-29 17:10 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 17:07 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-29 17:09 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 16:54 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-29 17:10 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 17:02 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 16:57 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 16:52 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-29 17:15 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-29 17:03 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 17:15 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 17:03 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 17:12 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 17:23 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-29 17:04 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 17:06 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-29 17:22 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-29 17:08 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-29 17:15 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-29 17:19 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 17:12 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 17:18 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 17:15 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 17:23 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-29 16:54 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:09 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.minike.top/Article/details/718404.shtml)
-- 2026-06-29 17:03 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.kurohicncr.top/Article/details/61800.shtml)
-- 2026-06-29 16:54 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/35804.shtml)
-- 2026-06-29 16:50 - [四川宜宾地震已致13人受轻微伤](http://www.blog.minike.top/Article/details/39941065.shtml)
-- 2026-06-29 17:09 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/07266395664.shtml)
-- 2026-06-29 16:48 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/2367463068.shtml)
-- 2026-06-29 16:57 - [内马尔打日本前先买百万美元豪表](https://www.blog.kurohicncr.top/Article/details/53468023761.shtml)
-- 2026-06-29 16:53 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/322940.shtml)
-- 2026-06-29 16:57 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/8494890.shtml)
-- 2026-06-29 16:51 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/221261764.shtml)
-- 2026-06-29 17:03 - [刘烨16岁儿子诺一颜值](https://www.share.minike.top/Article/details/78408063738.shtml)
-- 2026-06-29 17:06 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/0947027111.shtml)
-- 2026-06-29 16:53 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/117418125.shtml)
-- 2026-06-29 16:58 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/71991.shtml)
-- 2026-06-29 16:52 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/23186030914.shtml)
+- 2026-06-29 17:05 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/25143.shtml)
+- 2026-06-29 17:18 - [小娘惹](http://www.share.kurohicncr.top/Article/details/1283419.shtml)
+- 2026-06-29 17:15 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/148013449.shtml)
+- 2026-06-29 17:09 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/12494.shtml)
+- 2026-06-29 16:54 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/923859769928.shtml)
+- 2026-06-29 16:59 - [A股收评：科创50指数大涨4.61%](https://www.share.kurohicncr.top/Article/details/9215417.shtml)
+- 2026-06-29 17:06 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/6924372155.shtml)
+- 2026-06-29 17:06 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/24941219.shtml)
+- 2026-06-29 17:20 - [重度抑郁女孩没钱去做心理咨询](http://www.blog.kurohicncr.top/Article/details/22109759.shtml)
+- 2026-06-29 17:20 - [波兰创该国高温纪录](https://www.share.minike.top/Article/details/412945793200.shtml)
+- 2026-06-29 17:02 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/31979846.shtml)
+- 2026-06-29 17:22 - [尹恩惠自曝14年没谈过恋爱](http://www.share.minike.top/Article/details/92394252675.shtml)
+- 2026-06-29 17:16 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/347033200.shtml)
+- 2026-06-29 17:17 - [欧洲人驾车200公里抢购中国空调](https://www.share.minike.top/Article/details/6811751.shtml)
+- 2026-06-29 17:11 - [老板回应员工光脚清洗土豆](http://www.share.kurohicncr.top/Article/details/653036912.shtml)

@@ -1,57 +1,56 @@
-# 一季度中欧班列开行和发送货物同比分别增长29%、22%
+# 一颗新绛油桃的“诚信”出口记
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-记者从国铁集团获悉，今年一季度，铁路部门持续深化国内国际协调合作，加强中欧班列运输组织，提升跨境物流服务品质和效率，中欧班列累计开行5460列，发送货物54.6万标箱，同比分别增长29%、22%，呈现量质齐升良好态势，中欧班列国际物流品牌市场竞争力持续提升，为中欧贸易往来和沿线经济社会发展注入了新活力。通道网络逐步拓展。境内安排中欧班列图定线路93条，积极拓展境外多元化通道，加
+中新网运城6月1日电 题：一颗新绛油桃的“诚信”出口记 作者 陆祁国 一块青石碑，静静矗立在山西省新绛县三泉镇三泉村孚惠桥边。这块石碑，记载着90多年前村民杨春源、李仰丰等人拾得百块大洋后分文不昧的诚信佳话。 90多年后，石碑弘扬的“拾金不昧”精神，不仅未被时光湮没，反而在油桃果香中有了新的注解。 如今，一颗产自新绛县万安镇的油桃，要走上万里之外俄罗斯民众的餐桌，需经历采摘、分
 
 ## 正文
 
-记者从国铁集团获悉，今年一季度，铁路部门持续深化国内国际协调合作，加强中欧班列运输组织，提升跨境物流服务品质和效率，中欧班列累计开行5460列，发送货物54.6万标箱，同比分别增长29%、22%，呈现量质齐升良好态势，中欧班列国际物流品牌市场竞争力持续提升，为中欧贸易往来和沿线经济社会发展注入了新活力。
+中新网运城6月1日电 题：一颗新绛油桃的“诚信”出口记 作者 陆祁国 一块青石碑，静静矗立在山西省新绛县三泉镇三泉村孚惠桥边。
 
-通道网络逐步拓展。
+这块石碑，记载着90多年前村民杨春源、李仰丰等人拾得百块大洋后分文不昧的诚信佳话。
 
-境内安排中欧班列图定线路93条，积极拓展境外多元化通道，加强跨里海中欧班列运输组织，测试开行经俄罗斯圣彼得堡跨波罗的海中欧班列线路，为客户提供多样化的跨境物流选择。
+90多年后，石碑弘扬的“拾金不昧”精神，不仅未被时光湮没，反而在油桃果香中有了新的注解。
 
-目前，中欧班列通达欧洲26个国家的235个城市，服务范围基本覆盖亚欧全境。
+如今，一颗产自新绛县万安镇的油桃，要走上万里之外俄罗斯民众的餐桌，需经历采摘、分拣、入库、打冷、出库、装车、运输等多个环节。
 
-通关效能持续增强。
+每一个环节，都是一场关于“诚信”的实践。
 
-优化口岸运输组织，提升交接车能力。
+地头“不昧”，任何瑕疵都过不了分拣关 万安镇油桃种植面积达3.6万亩，素有“油桃之乡”美誉。
 
-与海关部门紧密协作，全面推广“铁路快通”模式，用好中国铁路物流95306“数字口岸”系统，不断提高通关便利化水平，口岸通关时间最短压缩至30分钟以内。
+每年5月到8月，这里经常有整车发往俄罗斯的油桃，但并非每一颗油桃都能获得出口资格。
 
-一季度西(经阿拉山口、霍尔果斯口岸)、中(经二连浩特口岸)、东(经满洲里、绥芬河、同江北口岸)三条通道中欧班列开行量同比分别增长19%、26%、49%。
+一大早，果农罗国瑞就带着临时雇用的村民，在大棚里采摘油桃。
 
 ## 相关推荐
 
-- 2026-06-29 16:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-29 17:01 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 17:09 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-29 17:09 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-29 16:57 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-29 17:15 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-29 17:16 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-29 16:51 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-29 17:16 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-29 16:53 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-29 17:07 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 16:54 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-29 16:56 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 17:09 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 17:17 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 17:22 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 17:11 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-29 16:59 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 16:55 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-29 17:19 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 16:58 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:57 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/986523.shtml)
-- 2026-06-29 17:10 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.kurohicncr.top/Article/details/33437650774.shtml)
-- 2026-06-29 17:04 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/6655923.shtml)
-- 2026-06-29 17:14 - [机器人学校开学了](https://www.share.minike.top/Article/details/456861332.shtml)
-- 2026-06-29 16:53 - [央视曝光高价回收老物件骗局](http://www.blog.kurohicncr.top/Article/details/493395.shtml)
-- 2026-06-29 16:52 - [苹果ultra2阔折叠已开模测试](https://www.share.kurohicncr.top/Article/details/0448700637.shtml)
-- 2026-06-29 17:09 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/62167188215.shtml)
-- 2026-06-29 16:52 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/03442157871.shtml)
-- 2026-06-29 16:51 - [95后小伙突然确诊癌症 医生提醒](http://www.blog.kurohicncr.top/Article/details/679847165006.shtml)
-- 2026-06-29 16:52 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.minike.top/Article/details/12767253745.shtml)
-- 2026-06-29 16:51 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/596443.shtml)
-- 2026-06-29 17:11 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/5741412544.shtml)
-- 2026-06-29 17:08 - [金刚川](http://www.blog.minike.top/Article/details/40031161.shtml)
-- 2026-06-29 17:12 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/698004065.shtml)
-- 2026-06-29 17:13 - [巴西国脚说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/788983068064.shtml)
+- 2026-06-29 17:09 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.minike.top/Article/details/177786818897.shtml)
+- 2026-06-29 16:54 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/33879323.shtml)
+- 2026-06-29 17:23 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/030667850594.shtml)
+- 2026-06-29 17:10 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/44337941417.shtml)
+- 2026-06-29 17:23 - [唐艺昕告别浪姐千字长文](http://www.share.minike.top/Article/details/5193111.shtml)
+- 2026-06-29 16:57 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/20925916388.shtml)
+- 2026-06-29 17:13 - [唐国强打卡贵阳孔学堂](https://www.blog.kurohicncr.top/Article/details/4505262745.shtml)
+- 2026-06-29 16:57 - [南部战区位南海海域进行例行巡航](http://www.share.minike.top/Article/details/6881414304.shtml)
+- 2026-06-29 17:14 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/40703.shtml)
+- 2026-06-29 17:13 - [配音演员于小华病逝 享年78岁](http://www.blog.minike.top/Article/details/702586526.shtml)
+- 2026-06-29 17:10 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/3573636378.shtml)
+- 2026-06-29 17:16 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/3910566.shtml)
+- 2026-06-29 17:04 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/39759222.shtml)
+- 2026-06-29 17:18 - [人形机器人](http://www.share.minike.top/Article/details/5955325.shtml)
+- 2026-06-29 16:56 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.blog.minike.top/Article/details/784762778080.shtml)

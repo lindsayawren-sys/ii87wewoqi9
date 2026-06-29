@@ -1,52 +1,59 @@
-# 美国参议院多数党领袖：650亿至750亿美元法案拟为ICE和CBP提供资金
+# 高温今日达鼎盛影响超十省份 这些地方高温即将消退
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-美国参议院多数党领袖约翰·图恩表示，将在共和党通过预算决议案后“不久”向全院提交一项规模在650亿至750亿美元之间的预算协调法案表决。 他说，这项概述相关协调法案内容的预算决议将于下周提交全院投票。 谈及移民和海关执法局（ICE）、海关和边境保护局（CBP）时，他表示，“我们将为这些机构提供为期多年的资金支持”。责任编辑：丁文武
+原标题：我国高温今日达鼎盛影响超十省份 一文了解哪些地方高温即将消退 中国天气网讯 最近几天，高温打卡频率明显上升，呈现“南蒸北烤”的格局，华南热得像蒸笼，北方多地则迎来了今年首个高温日，局地甚至刷新了5月历史最高温纪录。今天(6月2日)，高温版图扩展到近期最大，影响西北、华北、黄淮、江南、华南等十余省份，热力值拉满。不过，天气即将发生转折，哪些地区会率先“退烧”？降温幅度究竟
 
 ## 正文
 
-美国参议院多数党领袖约翰·图恩表示，将在共和党通过预算决议案后“不久”向全院提交一项规模在650亿至750亿美元之间的预算协调法案表决。
+原标题：我国高温今日达鼎盛影响超十省份 一文了解哪些地方高温即将消退 中国天气网讯 最近几天，高温打卡频率明显上升，呈现“南蒸北烤”的格局，华南热得像蒸笼，北方多地则迎来了今年首个高温日，局地甚至刷新了5月历史最高温纪录。
 
-他说，这项概述相关协调法案内容的预算决议将于下周提交全院投票。
+今天(6月2日)，高温版图扩展到近期最大，影响西北、华北、黄淮、江南、华南等十余省份，热力值拉满。
 
-谈及移民和海关执法局（ICE）、海关和边境保护局（CBP）时，他表示，“我们将为这些机构提供为期多年的资金支持”。
+不过，天气即将发生转折，哪些地区会率先“退烧”？
 
-责任编辑：丁文武
+降温幅度究竟有多大？
+
+我国高温发展南蒸北烤 北方局地热到破纪录 5月28日到6月1日，我国多地出现高温天气，南蒸北烤，炎热难耐。
+
+其中，南方气温高、湿度大，以闷热型高温为主，云南、广西、广东、海南等地的部分地区最高气温在35°C以上，不少地方即使没有达到高温线，焖蒸感也十分明显。
+
+北方受暖高压脊影响，晴朗干热，山西、河北、河南北部、北京、天津、内蒙古东部、辽宁西部、吉林西部等地都陆续有高温出现。
+
+大城市中，石家庄、北京、哈尔滨、郑州先后出现今年首个高温日，东北地区高温具有一定极端性，哈尔滨为1961年以来5月第三次出现高温，辽宁、黑龙江有10个国家级气象站打破当地5月最高气温纪录。
 
 ## 相关推荐
 
-- 2026-06-29 16:58 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 16:56 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-29 16:57 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-29 17:06 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 16:55 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-29 17:07 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 16:53 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 17:08 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-29 17:17 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-29 16:50 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 17:11 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-29 16:54 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 17:02 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 17:10 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 17:21 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 16:57 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 16:58 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 17:23 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 17:00 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 17:03 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 17:15 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-29 17:22 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 17:21 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-29 16:54 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-29 17:10 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-29 17:23 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 17:06 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:07 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/65343.shtml)
-- 2026-06-29 16:53 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/5929406.shtml)
-- 2026-06-29 16:50 - [李连杰否认不管前妻两女儿](https://www.share.kurohicncr.top/Article/details/037178321.shtml)
-- 2026-06-29 17:04 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/71343605333.shtml)
-- 2026-06-29 16:57 - [女心理师](https://www.share.kurohicncr.top/Article/details/05675540451.shtml)
-- 2026-06-29 17:03 - [广州一高校通报网传禁止小米汽车入校](https://www.share.minike.top/Article/details/3242801.shtml)
-- 2026-06-29 17:10 - [乔家的儿女](http://www.blog.minike.top/Article/details/5413120.shtml)
-- 2026-06-29 16:56 - [媒体：听清自己内心的声音再填志愿](http://www.blog.kurohicncr.top/Article/details/7028074278.shtml)
-- 2026-06-29 17:07 - [徐昕暂不参加NBA夏季联赛](http://www.blog.kurohicncr.top/Article/details/425631140992.shtml)
-- 2026-06-29 16:54 - [TFING全员黑西装](https://www.blog.kurohicncr.top/Article/details/0544728592.shtml)
-- 2026-06-29 17:09 - [为何说今日日本似战前日本](http://www.blog.minike.top/Article/details/23080950993.shtml)
-- 2026-06-29 17:01 - [王楚钦开门红](http://www.blog.minike.top/Article/details/467477.shtml)
-- 2026-06-29 16:52 - [布里奇斯被交易至太阳](http://www.share.kurohicncr.top/Article/details/3590686.shtml)
-- 2026-06-29 16:49 - [央视曝光涉黄App诈骗陷阱](https://www.share.kurohicncr.top/Article/details/646902.shtml)
-- 2026-06-29 16:49 - [三星与SK集团或将投资2000万亿韩元](https://www.share.minike.top/Article/details/271545.shtml)
+- 2026-06-29 17:03 - [胡光宇一审获刑13年](http://www.share.kurohicncr.top/Article/details/953944695.shtml)
+- 2026-06-29 17:06 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/7655260.shtml)
+- 2026-06-29 16:58 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/1186901.shtml)
+- 2026-06-29 16:59 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/4940026.shtml)
+- 2026-06-29 17:04 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.kurohicncr.top/Article/details/54120.shtml)
+- 2026-06-29 17:00 - [四川宜宾地震已致13人受轻微伤](https://www.share.minike.top/Article/details/9207653862.shtml)
+- 2026-06-29 17:12 - [世界杯1/16决赛对阵出炉](https://www.share.kurohicncr.top/Article/details/7724550924.shtml)
+- 2026-06-29 17:03 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/51669.shtml)
+- 2026-06-29 17:08 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.kurohicncr.top/Article/details/204886148.shtml)
+- 2026-06-29 17:23 - [中国空间站为什么要升级扩容](http://www.blog.kurohicncr.top/Article/details/85157546.shtml)
+- 2026-06-29 17:14 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/30467713785.shtml)
+- 2026-06-29 17:11 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.share.minike.top/Article/details/11983931.shtml)
+- 2026-06-29 17:17 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/54775556413.shtml)
+- 2026-06-29 17:11 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/318077654767.shtml)
+- 2026-06-29 17:02 - [外交部回应中日经贸问题](http://www.blog.minike.top/Article/details/12199584.shtml)

@@ -1,59 +1,57 @@
-# 银川数据要素服务中心启动 搭建数字产业对外合作新平台
+# 刚果（金）暴发埃博拉疫情 外交部：此时此刻中国医疗队就在当地坚守
 
-> 更新时间：2026-06-29 17:18:02 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-中新网银川4月15日电 (记者 李佩珊)4月15日，宁夏银川数据要素服务中心在银川数字经济产业园正式揭牌启动，该中心聚焦数据要素市场化服务，搭建全流程数据服务体系，同时联动海内外优质资源，推动本地数字产业提质升级，助力区域数字产业对外开放与协同发展。作为中国“东数西算”工程重要枢纽节点，宁夏依托算力资源、区位优势等基础条件，数字产业已形成集聚发展态势，银川更是集中了全自治区七成
+中新网北京6月1日电 (记者 黄钰钦 谢雁冰)中国外交部发言人林剑6月1日主持例行记者会。 有记者提问：近期，刚果(金)暴发新一轮埃博拉疫情。世界卫生组织和非洲疾控中心呼吁国际社会积极支持非洲抗疫。请问中方采取了哪些措施支持非方应对本轮埃博拉疫情？ 林剑：中非是风雨同舟、患难与共的好兄弟，我们对当前刚果(金)暴发新一轮埃博拉疫情感同身受。王毅外长近日在纽约主持联合国安理会高级别
 
 ## 正文
 
-中新网银川4月15日电 (记者 李佩珊)4月15日，宁夏银川数据要素服务中心在银川数字经济产业园正式揭牌启动，该中心聚焦数据要素市场化服务，搭建全流程数据服务体系，同时联动海内外优质资源，推动本地数字产业提质升级，助力区域数字产业对外开放与协同发展。
+中新网北京6月1日电 (记者 黄钰钦 谢雁冰)中国外交部发言人林剑6月1日主持例行记者会。
 
-作为中国“东数西算”工程重要枢纽节点，宁夏依托算力资源、区位优势等基础条件，数字产业已形成集聚发展态势，银川更是集中了全自治区七成以上数字经济相关企业与产业资源，是宁夏数字产业发展的核心区域。
+有记者提问：近期，刚果(金)暴发新一轮埃博拉疫情。
 
-随着数字经济全球化发展，数据要素流通、数据资产化成为产业发展关键，本地数字企业在数据合规处理、资产转化、跨区域产业对接等方面存在实际需求，此次服务中心的启动，正是针对产业发展痛点补齐服务短板。
+世界卫生组织和非洲疾控中心呼吁国际社会积极支持非洲抗疫。
 
-据了解，银川数据要素服务中心由银川数字经济产业园联合数核(宁夏)数字科技有限公司打造，聚焦数据要素全生命周期服务，搭建数据加工、确权、流通、应用等核心技术平台，推出一站式闭环服务，重点为企业提供数据合规评估、资产价值核算、交易流通等专业支撑，破解企业数据资源转化难题，推动数据资源向数字资产高效转化。
+请问中方采取了哪些措施支持非方应对本轮埃博拉疫情？
 
-启动现场，银川数据要素服务中心与浙江清华长三角研究院、上海交通大学相关科研机构，以及多家科技企业达成战略合作，围绕数字技术研发、专业人才培育、跨区域产业协同等方面展开深度合作，引入外部先进技术与产业资源，打通本地数字产业对外交流合作渠道。
+林剑：中非是风雨同舟、患难与共的好兄弟，我们对当前刚果(金)暴发新一轮埃博拉疫情感同身受。
 
-银川数据要素服务中心相关负责人表示，后续将依托专业服务能力，持续完善数据要素服务生态，强化跨区域、跨领域产业联动，以数据要素赋能数字产业发展，进一步拓宽本地数字产业对外合作空间，推动区域数字产业深度参与国内国际数字产业协同布局。
+王毅外长近日在纽约主持联合国安理会高级别会议时表示，在重大公共危机面前，中国千里驰援。
 
-(完)
+继2015年全力支持西非三国抗击埃博拉疫情之后，中国将向近期暴发埃博拉疫情的刚果(金)等积极提供帮助。
+
+为此，中国政府决定向刚果(金)提供紧急人道主义援助，并专门派遣医疗专家组赴刚提供医疗服务和帮助。
 
 ## 相关推荐
 
-- 2026-06-29 17:05 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 16:59 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 16:58 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 17:01 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 17:13 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 17:17 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-29 17:00 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 17:05 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-29 16:48 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 16:49 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-29 17:17 - [机器人学校开学了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-29 17:03 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-29 16:50 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-29 17:03 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 17:01 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-29 17:05 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-29 17:17 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-29 17:00 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 17:00 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 17:11 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-29 17:19 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-29 17:22 - [未成年少女长期吸毒导致卧床不起](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-29 17:13 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 16:58 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-29 17:06 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 16:59 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:08 - [一见倾心](http://www.blog.minike.top/Article/details/5083957694.shtml)
-- 2026-06-29 17:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/80013601.shtml)
-- 2026-06-29 17:11 - [美的空调 卡bug](https://www.share.kurohicncr.top/Article/details/6276883.shtml)
-- 2026-06-29 17:09 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/35233.shtml)
-- 2026-06-29 17:16 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.share.minike.top/Article/details/763258757.shtml)
-- 2026-06-29 16:50 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.minike.top/Article/details/48770495.shtml)
-- 2026-06-29 17:02 - [苹果ultra2阔折叠已开模测试](http://www.blog.kurohicncr.top/Article/details/81772741066.shtml)
-- 2026-06-29 17:13 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.kurohicncr.top/Article/details/44630.shtml)
-- 2026-06-29 17:10 - [世界杯十大帅哥必吃榜](http://www.share.kurohicncr.top/Article/details/55089000074.shtml)
-- 2026-06-29 17:02 - [李连杰否认不管前妻两女儿](https://www.blog.kurohicncr.top/Article/details/972115.shtml)
-- 2026-06-29 17:15 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/9428614166.shtml)
-- 2026-06-29 16:58 - [永远保持对人民的赤子之心](http://www.share.minike.top/Article/details/040689795.shtml)
-- 2026-06-29 17:12 - [南部战区位南海海域进行例行巡航](http://www.share.minike.top/Article/details/603793555.shtml)
-- 2026-06-29 16:53 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/232481520.shtml)
-- 2026-06-29 17:07 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/799595.shtml)
+- 2026-06-29 17:02 - [中方在台湾岛以东海域活动合理合法](https://www.share.minike.top/Article/details/180054706.shtml)
+- 2026-06-29 17:21 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/4187261997.shtml)
+- 2026-06-29 17:21 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/5943017117.shtml)
+- 2026-06-29 16:55 - [恋与深空各大应用商店评分](https://www.share.minike.top/Article/details/3450169.shtml)
+- 2026-06-29 17:21 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/23646.shtml)
+- 2026-06-29 17:03 - [中国创新药股价要反攻了吗](http://www.share.kurohicncr.top/Article/details/705736.shtml)
+- 2026-06-29 17:17 - [乔家的儿女](http://www.share.minike.top/Article/details/81714.shtml)
+- 2026-06-29 16:58 - [恋与深空 731](https://www.blog.minike.top/Article/details/653964000.shtml)
+- 2026-06-29 17:17 - [NBA交易](https://www.blog.minike.top/Article/details/8564281291.shtml)
+- 2026-06-29 16:59 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.kurohicncr.top/Article/details/55168930422.shtml)
+- 2026-06-29 17:03 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/34977204656.shtml)
+- 2026-06-29 17:16 - [波兰创该国高温纪录](https://www.share.kurohicncr.top/Article/details/6143661717.shtml)
+- 2026-06-29 17:01 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/213226035816.shtml)
+- 2026-06-29 17:10 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/1969687.shtml)
+- 2026-06-29 17:20 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/766886.shtml)

@@ -1,59 +1,48 @@
-# 凌锐控股控股权易主获折让约34.0%提全购要约 4月15日复牌
+# 如果“微笑”可以穿越千年：一位美国历史学教授的洛阳“寻笑记”
 
-> 更新时间：2026-06-29 17:18:02 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-凌锐控股（00784）及要约人HAPBIOTECH INVESTMENT HOLDING LIMITED联合公布，于2026年4月9日，要约人已完成购买约5.6亿股股份，相当于公司于本联合公告日期已发行股本总额的70.02%。代价为约1.33亿港元（相当于每股待售股份0.2375港元）。 紧随完成后及于本联合公告日期，要约人及其一致行动人共持有约5.6亿股股份，占已发行股份的7
+发布时间：2026年06月02日 11:19 来源：中国新闻网 近日，美国历史学者盖瑞走进河南洛阳，开启了一场探寻古都文化魅力的旅程。从龙门石窟卢舍那大佛的祥和神韵，到北魏牵手女俑展现的人间温情，再到应天门前汉服青年的灿烂笑容，一张张跨越时空的“笑脸”，串联起洛阳厚重的历史文脉与蓬勃的时代气息。 范晓恒 沈剑奇 童林 李思瑶 河南洛阳报道 责任编辑：【罗攀】
 
 ## 正文
 
-凌锐控股（00784）及要约人HAPBIOTECH INVESTMENT HOLDING LIMITED联合公布，于2026年4月9日，要约人已完成购买约5.6亿股股份，相当于公司于本联合公告日期已发行股本总额的70.02%。
+发布时间：2026年06月02日 11:19 来源：中国新闻网 近日，美国历史学者盖瑞走进河南洛阳，开启了一场探寻古都文化魅力的旅程。
 
-代价为约1.33亿港元（相当于每股待售股份0.2375港元）。
+从龙门石窟卢舍那大佛的祥和神韵，到北魏牵手女俑展现的人间温情，再到应天门前汉服青年的灿烂笑容，一张张跨越时空的“笑脸”，串联起洛阳厚重的历史文脉与蓬勃的时代气息。
 
-紧随完成后及于本联合公告日期，要约人及其一致行动人共持有约5.6亿股股份，占已发行股份的70.02%。
-
-根据收购守则规则26.1，要约人须作出强制性无条件现金要约，以收购公司已发行股本中的全部股份（不包括要约人及其一致行动人士已拥有及╱或同意收购的股份）。
-
-财务顾问红日资本（代表要约人）将遵照收购守则及按照根据收购守则将予刊发的综合文件所载的条款，按以下基准作出要约，每股要约股份现金0.2375港元，较于最后交易日在联交所所报收市价每股0.360港元折让约34.0%。
-
-此外，董事会建议将公司英文名称由“Ling Yui Holdings Limited”更改为“AiLife International Group Limited”，及将公司中文名称由“凌锐控股有限公司”更改为“爱生命国际集团有限公司”。
-
-公司已申请于2026年4月15日上午九时正起恢复股份在联交所买卖。
-
-截至本联合公告日期，要约人的全部已发行股本由海普洛斯实益拥有。
+范晓恒 沈剑奇 童林 李思瑶 河南洛阳报道 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 17:10 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 16:54 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-29 16:57 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-29 17:14 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 17:14 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 16:54 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-29 17:02 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-29 17:03 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-29 17:03 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-29 17:10 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 16:58 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-29 17:09 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 16:50 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 17:11 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 17:06 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 17:22 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 17:22 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-29 16:57 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 17:23 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-29 17:19 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-29 17:23 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-29 17:23 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-29 17:01 - [花万元相亲对象是50元雇的演员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-29 17:05 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-29 17:08 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:48 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/46746924.shtml)
-- 2026-06-29 16:56 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.minike.top/Article/details/94158951.shtml)
-- 2026-06-29 16:48 - [速度与激情9](https://www.blog.minike.top/Article/details/08044090307.shtml)
-- 2026-06-29 17:00 - [美国大满贯首日国乒主力均取胜](https://www.share.minike.top/Article/details/347886960.shtml)
-- 2026-06-29 16:54 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/669202377.shtml)
-- 2026-06-29 16:55 - [A股割裂行情有变化了吗](http://www.share.minike.top/Article/details/4699022094.shtml)
-- 2026-06-29 17:17 - [博主：全球股市进入“AI极端共振”](https://www.share.kurohicncr.top/Article/details/54364.shtml)
-- 2026-06-29 17:17 - [端午节加班工资应该怎么算](https://www.blog.minike.top/Article/details/0946907983.shtml)
-- 2026-06-29 16:52 - [朱必达辞去湖南人大常委会委员职务](https://www.share.kurohicncr.top/Article/details/347546.shtml)
-- 2026-06-29 16:49 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.kurohicncr.top/Article/details/96404800.shtml)
-- 2026-06-29 17:17 - [众星恭喜吴建豪](https://www.blog.minike.top/Article/details/39787.shtml)
-- 2026-06-29 17:10 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/8768641.shtml)
-- 2026-06-29 17:17 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/52525.shtml)
-- 2026-06-29 16:52 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/321251980.shtml)
-- 2026-06-29 16:57 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/8035467.shtml)
+- 2026-06-29 17:20 - [明星大侦探第一季](http://www.share.minike.top/Article/details/132361.shtml)
+- 2026-06-29 16:57 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.kurohicncr.top/Article/details/56697601.shtml)
+- 2026-06-29 17:08 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.kurohicncr.top/Article/details/10892.shtml)
+- 2026-06-29 17:00 - [音乐人屠颖离世家属追责涉事酒店](https://www.share.kurohicncr.top/Article/details/7087415914.shtml)
+- 2026-06-29 17:01 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/2119011855.shtml)
+- 2026-06-29 17:17 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/4272571201.shtml)
+- 2026-06-29 17:22 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.blog.minike.top/Article/details/9618334770.shtml)
+- 2026-06-29 17:13 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.kurohicncr.top/Article/details/9260195.shtml)
+- 2026-06-29 17:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/4635497579.shtml)
+- 2026-06-29 17:03 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/55500.shtml)
+- 2026-06-29 16:56 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/415078250650.shtml)
+- 2026-06-29 17:00 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/73684.shtml)
+- 2026-06-29 17:22 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.kurohicncr.top/Article/details/764558184030.shtml)
+- 2026-06-29 16:59 - [妹妹的正确用法！](https://www.blog.kurohicncr.top/Article/details/8945285324.shtml)
+- 2026-06-29 17:08 - [TLAW vs DCG MSI](http://www.share.kurohicncr.top/Article/details/199823449.shtml)

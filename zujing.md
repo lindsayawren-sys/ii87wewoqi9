@@ -1,55 +1,56 @@
-# 美专家：美国政府已经失去体制约束
+# 快手-W盘中涨近5% 招商证券维持目标价64港元
 
-> 更新时间：2026-06-29 17:18:02 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-当地时间13日，美国哥伦比亚大学教授、知名经济学家杰弗里·萨克斯在接受采访时表示，美国和以色列对伊朗发动的战争是一场灾难，这是美国政府一时“心血来潮”发动的战争，充分说明了美国政府已经失去体制约束。 哥伦比亚大学教授 杰弗里·萨克斯：这场战争是一场灾难，它将引发一场全球危机。这甚至不是一场出于理性选择，而是一时心血来潮发动的战争。这充分说明美国政府已经失去体制约束，而国会完全没
+快手-W（01024）盘中涨近5%，截至发稿，股价上涨2.79%，现报47.84港元，成交额18.34亿港元。 近日，快手拟分拆可灵AI独立上市，目标估值约200亿美元。快手董事长、CEO程一笑在一季度业绩电话会上介绍，期内可灵AI营业收入超过6.5亿元，同比增长超300%；2026年3月，可灵AI的年化收入运行率ARR近5亿美元。 招商证券发布研报称，维持快手-W（01024
 
 ## 正文
 
-当地时间13日，美国哥伦比亚大学教授、知名经济学家杰弗里·萨克斯在接受采访时表示，美国和以色列对伊朗发动的战争是一场灾难，这是美国政府一时“心血来潮”发动的战争，充分说明了美国政府已经失去体制约束。
+快手-W（01024）盘中涨近5%，截至发稿，股价上涨2.79%，现报47.84港元，成交额18.34亿港元。
 
-哥伦比亚大学教授 杰弗里·萨克斯：这场战争是一场灾难，它将引发一场全球危机。
+近日，快手拟分拆可灵AI独立上市，目标估值约200亿美元。
 
-这甚至不是一场出于理性选择，而是一时心血来潮发动的战争。
+快手董事长、CEO程一笑在一季度业绩电话会上介绍，期内可灵AI营业收入超过6.5亿元，同比增长超300%；2026年3月，可灵AI的年化收入运行率ARR近5亿美元。
 
-这充分说明美国政府已经失去体制约束，而国会完全没有发挥作用，甚至连最基本的跨机构磋商都毫无迹象，也就听到过情报机构和参谋长联席会议提出了异议。
+招商证券发布研报称，维持快手-W（01024）“增持”评级及目标价64港元，对应2026/2027财年15倍/13倍经调整市盈率。
 
-以色列和美国共同在中东地区制造了一场灾难，以色列此前已经犯下了种族灭绝罪，以色列和美国又共同在伊朗出于心血来潮发动了一场战争，这场战争已经导致大量人员死亡，并且已经开始对整个世界造成毁灭性影响。
+该行认为，快手正处于AI驱动内容生态重塑与商业化价值释放的关键拐点，可灵以超预期的商业化速度和领先的市场地位验证了第二增长曲线的确定性，2）AI漫剧、AI营销Agent、AI电商搜索等全局AI渗透正为传统业务持续注入增量。
 
-我想着重强调的是，我们的政府运作程序已经崩溃，没有与国会协商，无论从哪个角度看国会都形同虚设，国家安全委员会同样名存实亡，情报机构也基本相当于不存在，而他们都曾对开战提出过反对意见。
+公司现金储备充裕，全年股东回报率约4%，在坚定AI投入的同时维持稳健财务纪律。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 17:07 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 17:17 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-29 16:58 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-29 17:12 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 17:10 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-29 16:54 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-29 17:16 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 16:58 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 17:14 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 17:03 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-29 17:14 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-29 17:12 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-29 17:00 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 17:00 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-29 17:06 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 17:21 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-29 17:16 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 17:17 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 17:09 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 17:16 - [央视曝光涉黄App诈骗陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 17:00 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-29 17:02 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 17:03 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 17:13 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 17:10 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:54 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/934922544804.shtml)
-- 2026-06-29 16:50 - [22岁民警拦截违法车辆被撞牺牲](http://www.blog.minike.top/Article/details/404935.shtml)
-- 2026-06-29 16:56 - [扫黑风暴](https://www.share.minike.top/Article/details/4255703.shtml)
-- 2026-06-29 17:08 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/14805.shtml)
-- 2026-06-29 16:58 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/021029.shtml)
-- 2026-06-29 17:13 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/716477181414.shtml)
-- 2026-06-29 17:00 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/0549008.shtml)
-- 2026-06-29 16:57 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/384803.shtml)
-- 2026-06-29 16:55 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/29200655884.shtml)
-- 2026-06-29 17:08 - [葛军谈AI时代理科生出路](http://www.blog.minike.top/Article/details/88930866.shtml)
-- 2026-06-29 16:59 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/718986.shtml)
-- 2026-06-29 17:00 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.minike.top/Article/details/186885342.shtml)
-- 2026-06-29 16:51 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/6987245404.shtml)
-- 2026-06-29 17:02 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/088526.shtml)
-- 2026-06-29 17:05 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/4566116.shtml)
+- 2026-06-29 17:15 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.kurohicncr.top/Article/details/5349237184.shtml)
+- 2026-06-29 17:22 - [中国空间站为什么要升级扩容](http://www.blog.minike.top/Article/details/12120159310.shtml)
+- 2026-06-29 17:17 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.share.kurohicncr.top/Article/details/4458999.shtml)
+- 2026-06-29 17:00 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/34425.shtml)
+- 2026-06-29 17:23 - [AG 宫斗](http://www.blog.kurohicncr.top/Article/details/758766391437.shtml)
+- 2026-06-29 16:54 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/6578992.shtml)
+- 2026-06-29 16:56 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/97417763277.shtml)
+- 2026-06-29 17:23 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/07803614.shtml)
+- 2026-06-29 17:22 - [滾石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/695702.shtml)
+- 2026-06-29 16:56 - [韩国队差旅费亏麻了](http://www.share.minike.top/Article/details/420801.shtml)
+- 2026-06-29 17:00 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/94007155.shtml)
+- 2026-06-29 17:06 - [内马尔打日本前先买百万美元豪表](https://www.blog.kurohicncr.top/Article/details/4660044.shtml)
+- 2026-06-29 17:18 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.minike.top/Article/details/81778885049.shtml)
+- 2026-06-29 16:57 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.share.kurohicncr.top/Article/details/332040185297.shtml)
+- 2026-06-29 17:15 - [美人鱼](http://www.blog.minike.top/Article/details/67129690025.shtml)

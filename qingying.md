@@ -1,57 +1,57 @@
-# 对冲基金MS Capital称获得10亿美元投资中国股票的委托
+# 广澳高速广珠段改扩建项目海隆大桥封顶
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-量化对冲基金Meridian & Saturn Capital表示，已获得10亿美元委托来交易中国股票。这是投资者正在增加对世界第二大经济体配置的又一个迹象。 该基金创始合伙人暨首席执行官Kate Zhang在接受采访时表示，这家新加坡公司将采用市场中性策略来交易中国境内股票。 Zhang以保密协议为由，拒绝透露投资方的名称，但表示是一家中东主权财富基金。Zhang还表示，如果
+中新网广州6月2日电 (记者 蔡敏婕)广东交通集团广(州)澳(门)高速公路广珠段改扩建项目(以下简称广珠段改扩建项目)海隆大桥小榄水道桥2日迎来双塔封顶，标志着海隆大桥转入主梁施工阶段，为后续斜拉索架设、主梁悬浇施工奠定基础。该改扩建工程计划2028年完成。 广珠段改扩建项目全长约50.4公里，其中，广珠段改扩建TJ3标海隆大桥小榄水道桥作为全线控制性工程，横跨小榄水道及鸡鸦水
 
 ## 正文
 
-量化对冲基金Meridian & Saturn Capital表示，已获得10亿美元委托来交易中国股票。
+中新网广州6月2日电 (记者 蔡敏婕)广东交通集团广(州)澳(门)高速公路广珠段改扩建项目(以下简称广珠段改扩建项目)海隆大桥小榄水道桥2日迎来双塔封顶，标志着海隆大桥转入主梁施工阶段，为后续斜拉索架设、主梁悬浇施工奠定基础。
 
-这是投资者正在增加对世界第二大经济体配置的又一个迹象。
+该改扩建工程计划2028年完成。
 
-该基金创始合伙人暨首席执行官Kate Zhang在接受采访时表示，这家新加坡公司将采用市场中性策略来交易中国境内股票。
+广珠段改扩建项目全长约50.4公里，其中，广珠段改扩建TJ3标海隆大桥小榄水道桥作为全线控制性工程，横跨小榄水道及鸡鸦水道，小榄水道桥采用双塔双索面预应力混凝土梁斜拉桥，主跨255米、塔高107.5米；鸡鸦水道桥采用预应力混凝土连续刚构桥，主跨170米。
 
-Zhang以保密协议为由，拒绝透露投资方的名称，但表示是一家中东主权财富基金。
+据悉，小榄水道桥主塔塔身共分19个节段，塔柱采用矩形空心截面，塔底设置承台及钻孔灌注桩基础。
 
-Zhang还表示，如果达到业绩目标，这家主权财富基金将考虑追加投资。
+面对高空施工风险高、截面多变、线形控制严、混凝土外观要求高等挑战，项目团队开展了一系列技术攻关后，创新采用全自动液压爬模体系，实现模板随塔柱施工进度逐层爬升，降低高空吊装作业风险。
 
-目前尚无法核实该项投资安排的具体细节。
+施工过程中，项目严格执行“分层浇筑、逐级爬升、全程监测”机制，对模板拼接、混凝土温控到振捣养生等环节实施全过程精细化管控，确保了塔身“内实外美”，施工精度达到毫米级。
 
-Zhang表示，MS Capital目前正与其他中东基金洽谈潜在投资事宜，并计划在阿布扎比、香港和美国开设办事处，以把握不断涌现的投资机遇。
+钢锚梁安装更是精度控制的重中之重。
 
-该公司管理着约15亿美元，其中包括来自这家中东客户的初始5亿美元投资。
+作为核心构件，其安装偏差直接影响全桥受力安全。
 
 ## 相关推荐
 
-- 2026-06-29 16:52 - [未成年少女长期吸毒导致卧床不起](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-29 17:08 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-29 16:51 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 17:11 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-29 16:57 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-29 17:05 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 16:50 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-29 17:14 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 17:02 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 17:05 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-29 17:16 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-29 17:08 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 17:11 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-29 16:54 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-29 17:14 - [抓特务票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 17:04 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 16:57 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-29 17:10 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 17:23 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 17:05 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 17:15 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 16:57 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:02 - [95后小伙突然确诊癌症 医生提醒](http://www.blog.minike.top/Article/details/5585683.shtml)
-- 2026-06-29 17:14 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/48936773.shtml)
-- 2026-06-29 17:12 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.minike.top/Article/details/395035.shtml)
-- 2026-06-29 17:15 - [韩国国脚无缘上亿韩元奖金](https://www.share.minike.top/Article/details/179128.shtml)
-- 2026-06-29 17:11 - [港股爆发 美团百度阿里等集体大涨](https://www.share.minike.top/Article/details/722041.shtml)
-- 2026-06-29 17:17 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/1603298.shtml)
-- 2026-06-29 17:17 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/135211863351.shtml)
-- 2026-06-29 17:09 - [恋与深空失控领地](http://www.blog.kurohicncr.top/Article/details/495451572.shtml)
-- 2026-06-29 16:59 - [业内：全球市场迎来结构性投资窗口](http://www.blog.minike.top/Article/details/3259503754.shtml)
-- 2026-06-29 17:06 - [杨紫视后第一场线下活动](http://www.blog.kurohicncr.top/Article/details/554892126.shtml)
-- 2026-06-29 16:48 - [徐昕暂不参加NBA夏季联赛](https://www.share.minike.top/Article/details/22588.shtml)
-- 2026-06-29 17:15 - [1个视频看懂2026志愿填报新专业](http://www.blog.minike.top/Article/details/14266829.shtml)
-- 2026-06-29 17:10 - [7月1日起一批新规即将落地](https://www.share.minike.top/Article/details/996090889.shtml)
-- 2026-06-29 16:57 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/01653315473.shtml)
-- 2026-06-29 16:48 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/83347197123.shtml)
+- 2026-06-29 16:56 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/73194.shtml)
+- 2026-06-29 17:17 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/101744249741.shtml)
+- 2026-06-29 17:21 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/777313952.shtml)
+- 2026-06-29 17:18 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/8078170.shtml)
+- 2026-06-29 17:07 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/19738.shtml)
+- 2026-06-29 17:07 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/82520677.shtml)
+- 2026-06-29 17:22 - [周生如故](http://www.share.minike.top/Article/details/912326698337.shtml)
+- 2026-06-29 17:06 - [蔚来回应车漆洗车时被冲掉](http://www.share.minike.top/Article/details/088719763.shtml)
+- 2026-06-29 17:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/90033164061.shtml)
+- 2026-06-29 16:58 - [苹果ultra2阔折叠已开模测试](https://www.share.minike.top/Article/details/713997418926.shtml)
+- 2026-06-29 17:12 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/11729525.shtml)
+- 2026-06-29 17:17 - [四川宜宾地震已致13人受轻微伤](https://www.blog.minike.top/Article/details/9763952257.shtml)
+- 2026-06-29 17:08 - [世界杯：日本将与巴西争夺16强席位](https://www.share.minike.top/Article/details/8095529000.shtml)
+- 2026-06-29 17:03 - [四川地震前夕 街头电线上站满燕子](http://www.share.minike.top/Article/details/30191876.shtml)
+- 2026-06-29 17:00 - [教育部发布预警 事关高招录取](https://www.blog.kurohicncr.top/Article/details/92498408.shtml)

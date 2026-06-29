@@ -1,59 +1,60 @@
-# 以军提停火基本条件 黎真主党称接受停火但以方须履约
+# 上海：做好算力期货研发准备
 
-> 更新时间：2026-06-29 17:18:02 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-中新社北京4月16日电 综合外媒16日消息，黎巴嫩与以色列继续打击对方多处目标。以军15日提出与黎停火“基本条件”。黎官员称，停火协议可能“很快”宣布。黎真主党强调，接受停火但以方必须履约。 卡塔尔半岛电视台16日消息称，15日至16日，以色列继续对黎巴嫩南部城镇发动袭击，造成至少10人伤亡。同时，黎真主党在24小时内对以色列目标发动39次袭击。 以色列总理内塔尼亚胡在15日晚
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：清华金融评论 6月2日，上海市人民政府办公厅发布《关于深化上海全球资产管理中心建设的若干意见》（以下简称《意见》）的通知。明确做好电力期货、算力期货研发准备，稳步拓展航运指数期货产品线，研发更多代表新质生产力发展方向的新型期货品种。推动科创50、深证100、创业板股指期货和期权、国债期权等产品上市。支
 
 ## 正文
 
-中新社北京4月16日电 综合外媒16日消息，黎巴嫩与以色列继续打击对方多处目标。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-以军15日提出与黎停火“基本条件”。
+来源：清华金融评论 6月2日，上海市人民政府办公厅发布《关于深化上海全球资产管理中心建设的若干意见》（以下简称《意见》）的通知。
 
-黎官员称，停火协议可能“很快”宣布。
+明确做好电力期货、算力期货研发准备，稳步拓展航运指数期货产品线，研发更多代表新质生产力发展方向的新型期货品种。
 
-黎真主党强调，接受停火但以方必须履约。
+推动科创50、深证100、创业板股指期货和期权、国债期权等产品上市。
 
-卡塔尔半岛电视台16日消息称，15日至16日，以色列继续对黎巴嫩南部城镇发动袭击，造成至少10人伤亡。
+支持公募基金从重规模向重投资者回报转型，推出更多指数基金、浮动费率基金等创新产品。
 
-同时，黎真主党在24小时内对以色列目标发动39次袭击。
+《意见》明确，力争到2030年，上海资产管理规模达55万亿元，全国占比达1/3。
 
-以色列总理内塔尼亚胡在15日晚发表的视频讲话中对以黎谈判表示，以色列在与黎真主党作战的同时与黎方进行谈判，谈判有两个主要目标，驱逐黎真主党、通过实力实现“持久和平”。
+《意见》明确的重点任务包括： 一是支持科创属性突出的科技型企业上市、并购，提高权益资产科技含量与资产质量。
 
-内塔尼亚胡称，以军即将占领黎真主党在黎南部的重镇宾特朱拜勒(又称宾特杰贝勒)。
+加快推出液化天然气期货和期权，做好电力期货、算力期货研发准备，稳步拓展航运指数期货产品线，研发更多代表新质生产力发展方向的新型期货品种。
 
 ## 相关推荐
 
-- 2026-06-29 17:06 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-29 16:54 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 16:55 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-29 17:10 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 17:13 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-29 17:13 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 17:08 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-29 16:59 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 17:07 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-29 17:04 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 16:50 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 16:59 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-29 16:54 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-29 17:16 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 17:23 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-29 17:13 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 17:23 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 16:55 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 17:04 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 17:01 - [东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 17:19 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 16:55 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-29 16:58 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 16:59 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 17:20 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 17:17 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-29 17:22 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:05 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/949105.shtml)
-- 2026-06-29 17:03 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/9776766682.shtml)
-- 2026-06-29 16:59 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.kurohicncr.top/Article/details/118388122356.shtml)
-- 2026-06-29 17:04 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/10589.shtml)
-- 2026-06-29 17:06 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/007294.shtml)
-- 2026-06-29 17:08 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.kurohicncr.top/Article/details/116311541422.shtml)
-- 2026-06-29 16:48 - [千与千寻](https://www.share.kurohicncr.top/Article/details/205914116.shtml)
-- 2026-06-29 17:18 - [端午节加班工资应该怎么算](http://www.blog.minike.top/Article/details/790693147.shtml)
-- 2026-06-29 16:53 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.kurohicncr.top/Article/details/31889107190.shtml)
-- 2026-06-29 16:59 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/74041694724.shtml)
-- 2026-06-29 16:48 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/15454034.shtml)
-- 2026-06-29 17:16 - [中国空间站为什么要升级扩容](https://www.blog.kurohicncr.top/Article/details/06909657072.shtml)
-- 2026-06-29 17:17 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/9703691.shtml)
-- 2026-06-29 16:50 - [撒旦的腋窝是什么比喻](https://www.blog.kurohicncr.top/Article/details/618145.shtml)
-- 2026-06-29 16:59 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.kurohicncr.top/Article/details/584004828148.shtml)
+- 2026-06-29 17:07 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/5264199045.shtml)
+- 2026-06-29 17:01 - [永远有话聊的原因](https://www.blog.minike.top/Article/details/902780549054.shtml)
+- 2026-06-29 16:55 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/47254628446.shtml)
+- 2026-06-29 17:20 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/3805805.shtml)
+- 2026-06-29 17:10 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/25406.shtml)
+- 2026-06-29 17:05 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/00486196.shtml)
+- 2026-06-29 17:08 - [大六座SUV进入黄金时代](https://www.blog.kurohicncr.top/Article/details/084146588.shtml)
+- 2026-06-29 16:59 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/459667.shtml)
+- 2026-06-29 17:17 - [杨紫视后第一场线下活动](http://www.blog.minike.top/Article/details/8992329918.shtml)
+- 2026-06-29 17:17 - [驻日美军航母沦为“毒窝”](https://www.blog.minike.top/Article/details/6193371.shtml)
+- 2026-06-29 17:12 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.kurohicncr.top/Article/details/96865291.shtml)
+- 2026-06-29 17:20 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/517509016546.shtml)
+- 2026-06-29 17:01 - [业内：全球市场迎来结构性投资窗口](http://www.blog.kurohicncr.top/Article/details/40935.shtml)
+- 2026-06-29 17:23 - [虞书欣好辣的剧宣](https://www.share.kurohicncr.top/Article/details/612860106525.shtml)
+- 2026-06-29 17:06 - [小说《无悔追踪》翻红](https://www.share.minike.top/Article/details/847532.shtml)

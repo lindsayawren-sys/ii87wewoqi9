@@ -1,59 +1,60 @@
-# 凌晨，见证历史！全线大涨！美联储，重磅发布！
+# 三连跌停后，603601警告“小作文”：必要时将报警
 
-> 更新时间：2026-06-29 17:18:02 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-有史以来最快的大逆转。 在美伊谈判的乐观预期与强劲财报季的双轮驱动下，隔夜纳指、标普500指数持续走强，均创出历史新高，大型科技股全线大涨。据统计数据，纳指在3月30日跌入“超卖”区间后，于本周三进入“超买”区间，这是有数据以来的最快逆转。 另外，美联储的货币政策路径也是市场关注的焦点。美联储最新发布的4月经济形势报告《褐皮书》显示，中东战事是当前美国经济最主要的不确定性来源，
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月2日晚间，再升科技（603601）公告称，公司股票于2026年5月29日、6月1日、6月2日连续三个交易日内收盘价格跌幅偏离值累计超过20%，根据《上海证券交易所交易规则》的有关规定，属于股票交易异常波动情形。此外，6月2日公司股票换手率为25.24%，
 
 ## 正文
 
-有史以来最快的大逆转。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-在美伊谈判的乐观预期与强劲财报季的双轮驱动下，隔夜纳指、标普500指数持续走强，均创出历史新高，大型科技股全线大涨。
+6月2日晚间，再升科技（603601）公告称，公司股票于2026年5月29日、6月1日、6月2日连续三个交易日内收盘价格跌幅偏离值累计超过20%，根据《上海证券交易所交易规则》的有关规定，属于股票交易异常波动情形。
 
-据统计数据，纳指在3月30日跌入“超卖”区间后，于本周三进入“超买”区间，这是有数据以来的最快逆转。
+此外，6月2日公司股票换手率为25.24%，换手率出现较大波动情形。
 
-另外，美联储的货币政策路径也是市场关注的焦点。
+对于此番三连跌停，再升科技表示，公司关注到相关市场主体未经事实核查编造虚假内容、误导资本市场，公司已固定全部涉案证据，必要时将向监管部门、公安机关报案处理，依法追究相关方的法律责任。
 
-美联储最新发布的4月经济形势报告《褐皮书》显示，中东战事是当前美国经济最主要的不确定性来源，中东紧张局势正推动能源和燃料成本全面上涨，并向运输、化工及农业链条传导。
+公司相关信息以指定信息披露平台刊载的公告内容为准，敬请广大投资者理性甄别市场信息，警惕不实传言误导，审慎注意投资风险。
 
-美伊谈判方面，美国白宫新闻秘书莱维特15日在记者会上说，美国和伊朗可能再次进行面对面会谈的相关讨论仍在进行中，美方对达成协议的前景持乐观态度。
+记者发现，这并非再升科技近期首次披露股票交易异常波动公告。
 
-她说，下次会谈地点极有可能仍在巴基斯坦首都伊斯兰堡。
+此前，公司股票曾出现在2026年5月26日、5月27日、5月28日连续三个交易日内收盘价格涨幅偏离值累计超过20%的情形。
 
-在整个谈判过程中，巴方作为调解方的作用“极其出色”。
+彼时，再升科技提醒投资者，公司市盈率指标严重偏离行业平均估值水平，存在市场情绪过热、非理性炒作风险；近三个交易日公司股票换手率出现较大波动情形，击鼓传花效应明显，公司股价随时存在快速下跌的风险。
 
 ## 相关推荐
 
-- 2026-06-29 17:02 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 16:56 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-29 16:52 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-29 16:54 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-29 17:11 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 17:11 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-29 16:49 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-29 17:17 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-29 16:55 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 17:02 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-29 17:03 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-29 17:02 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-29 17:07 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 17:18 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 17:10 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-29 17:23 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 17:21 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-29 17:17 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-29 17:16 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-29 17:21 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 17:09 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 17:11 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 17:06 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-29 17:08 - [东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 17:01 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 17:15 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-29 16:55 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:09 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/519117152909.shtml)
-- 2026-06-29 17:13 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/22666465.shtml)
-- 2026-06-29 16:51 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/303616760467.shtml)
-- 2026-06-29 17:01 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/47765.shtml)
-- 2026-06-29 16:49 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/8656459.shtml)
-- 2026-06-29 17:08 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/1615325.shtml)
-- 2026-06-29 17:12 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/99333755800.shtml)
-- 2026-06-29 16:52 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.minike.top/Article/details/3052485817.shtml)
-- 2026-06-29 16:57 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/164461807.shtml)
-- 2026-06-29 17:12 - [差点没看懂白鹿丞磊这段意识流](http://www.share.kurohicncr.top/Article/details/130648639.shtml)
-- 2026-06-29 17:12 - [布里奇斯被交易至太阳](https://www.share.minike.top/Article/details/6859767470.shtml)
-- 2026-06-29 17:05 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/368791631884.shtml)
-- 2026-06-29 16:58 - [东方风云榜红毯](https://www.blog.minike.top/Article/details/895034.shtml)
-- 2026-06-29 17:10 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/610949290.shtml)
-- 2026-06-29 17:12 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/84215739646.shtml)
+- 2026-06-29 17:04 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/4600401184.shtml)
+- 2026-06-29 16:55 - [徐昕暂不参加NBA夏季联赛](https://www.blog.kurohicncr.top/Article/details/72895271244.shtml)
+- 2026-06-29 17:09 - [金牌调解](http://www.blog.minike.top/Article/details/1174137994.shtml)
+- 2026-06-29 16:57 - [中国空间站为什么要升级扩容](http://www.blog.kurohicncr.top/Article/details/834885.shtml)
+- 2026-06-29 17:11 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.minike.top/Article/details/794997912.shtml)
+- 2026-06-29 16:57 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/09830257.shtml)
+- 2026-06-29 16:58 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/470911.shtml)
+- 2026-06-29 17:17 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/96215285888.shtml)
+- 2026-06-29 17:16 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.kurohicncr.top/Article/details/127848662780.shtml)
+- 2026-06-29 16:54 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/53039.shtml)
+- 2026-06-29 17:09 - [韩国队出局是因为内讧吗](http://www.blog.minike.top/Article/details/02373428.shtml)
+- 2026-06-29 16:57 - [美议员呼吁断供以色列政府](http://www.share.minike.top/Article/details/72313352792.shtml)
+- 2026-06-29 17:07 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/3692433011.shtml)
+- 2026-06-29 17:12 - [《贺子珍》](https://www.share.minike.top/Article/details/00674.shtml)
+- 2026-06-29 16:54 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/563070765725.shtml)

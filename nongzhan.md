@@ -1,47 +1,47 @@
-# 国家安全无小事，警惕身边泄密风险！
+# 内蒙古医科大学党委书记赵云山接受审查调查
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月15日 12:05 来源：中国新闻网 国家安全无小事，警惕身边泄密风险！警民同心，严守反间防谍、网络安全红线，警惕网络陷阱与泄密隐患，公安民警提醒您：警惕境外勾连与网络围猎，国安之责，重于泰山，警民共担。(来源：乌恰县公安局) 责任编辑：【魏聪聪】
+中新网6月2日电 据内蒙古自治区纪委监委消息：内蒙古医科大学党委书记赵云山涉嫌严重违纪违法，目前正接受内蒙古自治区纪委监委纪律审查和监察调查。
 
 ## 正文
 
-发布时间：2026年04月15日 12:05 来源：中国新闻网 国家安全无小事，警惕身边泄密风险！
-
-警民同心，严守反间防谍、网络安全红线，警惕网络陷阱与泄密隐患，公安民警提醒您：警惕境外勾连与网络围猎，国安之责，重于泰山，警民共担。
-
-(来源：乌恰县公安局) 责任编辑：【魏聪聪】
+中新网6月2日电 据内蒙古自治区纪委监委消息：内蒙古医科大学党委书记赵云山涉嫌严重违纪违法，目前正接受内蒙古自治区纪委监委纪律审查和监察调查。
 
 ## 相关推荐
 
-- 2026-06-29 17:00 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 16:51 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-29 16:50 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 17:10 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 16:58 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-29 16:51 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-29 16:49 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-29 16:52 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 17:03 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-29 17:04 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-29 16:48 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 17:10 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-29 17:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 17:08 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-29 17:14 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-29 17:18 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 17:16 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 17:06 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 16:54 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 17:11 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-29 16:55 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-29 17:08 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 17:11 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-29 17:12 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 16:56 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-29 17:21 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:02 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/341214903.shtml)
-- 2026-06-29 16:49 - [货车司机雨中帮交警挪树获表扬](https://www.share.kurohicncr.top/Article/details/383958.shtml)
-- 2026-06-29 17:05 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/24145.shtml)
-- 2026-06-29 16:59 - [为何说今日日本似战前日本](https://www.share.kurohicncr.top/Article/details/386188242.shtml)
-- 2026-06-29 17:16 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/1400092724.shtml)
-- 2026-06-29 16:55 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.minike.top/Article/details/892015501386.shtml)
-- 2026-06-29 16:53 - [新能源车能当外接空调用吗](http://www.blog.kurohicncr.top/Article/details/573176582629.shtml)
-- 2026-06-29 17:12 - [AG 宫斗](https://www.share.minike.top/Article/details/06213.shtml)
-- 2026-06-29 17:16 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/3203034732.shtml)
-- 2026-06-29 16:50 - [博主：全球股市进入“AI极端共振”](https://www.blog.kurohicncr.top/Article/details/54509.shtml)
-- 2026-06-29 17:17 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/04306.shtml)
-- 2026-06-29 17:15 - [机器人学校开学了](http://www.share.kurohicncr.top/Article/details/69716.shtml)
-- 2026-06-29 17:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/62186.shtml)
-- 2026-06-29 16:52 - [急先锋](http://www.share.kurohicncr.top/Article/details/339138694780.shtml)
-- 2026-06-29 16:49 - [人形机器人](http://www.blog.minike.top/Article/details/70725.shtml)
+- 2026-06-29 17:06 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/87564233.shtml)
+- 2026-06-29 17:09 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/36031.shtml)
+- 2026-06-29 17:22 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/7469637.shtml)
+- 2026-06-29 17:08 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/4116316091.shtml)
+- 2026-06-29 17:04 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/73867580825.shtml)
+- 2026-06-29 17:16 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/600423.shtml)
+- 2026-06-29 17:15 - [男子网购乖乖水迷晕女子后猥亵](http://www.share.minike.top/Article/details/7563675031.shtml)
+- 2026-06-29 17:16 - [胡光宇一审获刑13年](http://www.share.kurohicncr.top/Article/details/7146327.shtml)
+- 2026-06-29 17:10 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/4935773.shtml)
+- 2026-06-29 17:20 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/748380422.shtml)
+- 2026-06-29 17:03 - [世界杯看到肖战了](https://www.blog.minike.top/Article/details/06619.shtml)
+- 2026-06-29 17:07 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/6278957197.shtml)
+- 2026-06-29 17:01 - [小说《无悔追踪》翻红](https://www.blog.kurohicncr.top/Article/details/678575724.shtml)
+- 2026-06-29 16:56 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.kurohicncr.top/Article/details/82257445.shtml)
+- 2026-06-29 16:57 - [极限挑战第一季](https://www.share.minike.top/Article/details/87056658008.shtml)

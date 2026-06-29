@@ -1,61 +1,60 @@
-# 2026海外华媒侨领走进渝东南联合参访活动启动
+# “拾光相伴·共绘童年”中罗青少年文化交流活动在京举办
 
-> 更新时间：2026-06-29 17:18:02 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-中新网重庆4月15日电 (张旭)4月15日，以“行走中国 侨见重庆”为主题的2026海外华媒侨领走进渝东南联合参访活动在当地正式启动。 活动邀请到30多家海外华文媒体和10余位侨领。在活动启动后的一周时间里，媒体代表和侨领将深入重庆市武隆区、酉阳土家族苗族自治县、秀山土家族苗族自治县，感受西部大开发、成渝地区双城经济圈建设发展机遇，了解脱贫攻坚与乡村振兴有效衔接的生动实践，感受
+中新网北京6月2日电 (记者 应妮)北京罗马尼亚文化中心与中国外文局文化传播中心联合主办的“拾光相伴·共绘童年”中罗青少年文化交流活动，于“六一”国际儿童节当天举行。 罗马尼亚驻华特命全权公使克劳迪乌·米哈伊尔·弗洛里安表示，孩子们以他们敏锐而纯真的感受力创造了精彩的画作，希望2049年庆祝两国建交一百周年的时候，在座的孩子们还能继续与我们一起，共同开启中罗友谊新的百年篇章。
 
 ## 正文
 
-中新网重庆4月15日电 (张旭)4月15日，以“行走中国 侨见重庆”为主题的2026海外华媒侨领走进渝东南联合参访活动在当地正式启动。
+中新网北京6月2日电 (记者 应妮)北京罗马尼亚文化中心与中国外文局文化传播中心联合主办的“拾光相伴·共绘童年”中罗青少年文化交流活动，于“六一”国际儿童节当天举行。
 
-活动邀请到30多家海外华文媒体和10余位侨领。
+罗马尼亚驻华特命全权公使克劳迪乌·米哈伊尔·弗洛里安表示，孩子们以他们敏锐而纯真的感受力创造了精彩的画作，希望2049年庆祝两国建交一百周年的时候，在座的孩子们还能继续与我们一起，共同开启中罗友谊新的百年篇章。
 
-在活动启动后的一周时间里，媒体代表和侨领将深入重庆市武隆区、酉阳土家族苗族自治县、秀山土家族苗族自治县，感受西部大开发、成渝地区双城经济圈建设发展机遇，了解脱贫攻坚与乡村振兴有效衔接的生动实践，感受渝东南各族人民团结奋进、开放包容的时代气象。
+中国外文局文化传播中心主任孙明表示，此次活动用童心感受美好，用画笔连接心灵，为中罗两国青少年搭建友谊桥梁。
 
-重庆市侨联党组书记、主席孟卫红表示，本次活动精心设计参访线路，邀请大家走进渝东南、感知新重庆。
+希望孩子们借此机会，携手用童心绘出友谊、用色彩点亮未来，为中罗友好关系的长远发展筑牢根基。
 
-期待通过嘉宾的镜头与笔触，全方位、多角度、深层次地展示渝东南的独特魅力，进一步搭建起重庆与世界双向沟通的坚实桥梁，为现代化新重庆建设汇聚更多海外侨界智慧和力量。
+活动现场展出30余幅由中罗两国青少年专为本次活动创作的画作，吸引来宾频频驻足观赏。
 
-中新社副总编辑陶光雄介绍，中新社是海外华文媒体最紧密的伙伴，也是联结侨胞与祖(籍)国的重要桥梁。
+活动期间，中罗青少年还带来精彩表演，用艺术奏响友谊序曲。
 
-多年来，中新社持续组织实施“行走中国”系列参访活动，邀请海外华文媒体走遍中国各地。
+在艺术家的带领下，中罗青少年围绕“拾光相伴·共绘童年”主题，共同创作融合中罗艺术元素的集体画卷，一笔一画勾勒出两国友好的美好图景。
 
-本次活动将海外华文媒体与侨领代表联合组队，走进渝东南武陵山区。
+未来，中国外文局文化传播中心将与罗马尼亚驻华大使馆和北京罗马尼亚文化中心持续深化合作，常态化开展中罗青少年文化交流活动，为深化中罗人文交流、夯实双边友好民意基础注入青春活力。
 
 ## 相关推荐
 
-- 2026-06-29 16:48 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-29 17:15 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 16:59 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-29 17:10 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-29 16:51 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-29 16:57 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 17:09 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-29 17:05 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 17:05 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-29 17:04 - [南昌市委书记调整](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-29 16:49 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 17:16 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 17:13 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-29 17:12 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 16:49 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-29 17:07 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 17:13 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 17:19 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 17:14 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-29 17:22 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 17:09 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 17:11 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 17:02 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 17:15 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 17:10 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 17:04 - [博主：黄金和原油回落不等于风险消失](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 17:00 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 17:08 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-29 17:13 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:50 - [小S在香港被偶遇](https://www.share.kurohicncr.top/Article/details/1853425672.shtml)
-- 2026-06-29 16:48 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/15491880264.shtml)
-- 2026-06-29 17:14 - [王楚钦欢迎晚宴上打台球](https://www.share.minike.top/Article/details/53759003.shtml)
-- 2026-06-29 17:12 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/9672430.shtml)
-- 2026-06-29 17:16 - [舒行钢任湖南省交通运输厅厅长](http://www.share.kurohicncr.top/Article/details/97617838.shtml)
-- 2026-06-29 16:54 - [欧洲多国高温突破40摄氏度](https://www.share.kurohicncr.top/Article/details/961820353.shtml)
-- 2026-06-29 16:57 - [爱很美味](https://www.share.minike.top/Article/details/03303.shtml)
-- 2026-06-29 17:09 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/8039594912.shtml)
-- 2026-06-29 17:14 - [港股蓝筹股的落寞才刚刚开始吗](https://www.share.kurohicncr.top/Article/details/34124.shtml)
-- 2026-06-29 16:57 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/51134486738.shtml)
-- 2026-06-29 17:00 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/818474.shtml)
-- 2026-06-29 17:08 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.minike.top/Article/details/644975061156.shtml)
-- 2026-06-29 17:03 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/1248366.shtml)
-- 2026-06-29 17:14 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/822547.shtml)
-- 2026-06-29 16:55 - [韩国队出局是因为内讧吗](https://www.share.kurohicncr.top/Article/details/436029693716.shtml)
+- 2026-06-29 17:11 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/60595237.shtml)
+- 2026-06-29 17:05 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/48629923.shtml)
+- 2026-06-29 17:00 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/86076102.shtml)
+- 2026-06-29 17:22 - [首尔商铺禁止洪明甫入内](https://www.share.minike.top/Article/details/185981.shtml)
+- 2026-06-29 17:06 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/57426580813.shtml)
+- 2026-06-29 17:06 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/324161393.shtml)
+- 2026-06-29 16:56 - [爱很美味](http://www.share.kurohicncr.top/Article/details/081736.shtml)
+- 2026-06-29 17:19 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.kurohicncr.top/Article/details/682446926240.shtml)
+- 2026-06-29 17:04 - [T1 KC](http://www.share.minike.top/Article/details/9576086.shtml)
+- 2026-06-29 17:23 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/81994.shtml)
+- 2026-06-29 17:08 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/0873204159.shtml)
+- 2026-06-29 16:57 - [舒行钢任湖南省交通运输厅厅长](https://www.share.kurohicncr.top/Article/details/10474777258.shtml)
+- 2026-06-29 17:12 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/8657502622.shtml)
+- 2026-06-29 17:21 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/8649302.shtml)
+- 2026-06-29 17:18 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.minike.top/Article/details/1210770546.shtml)

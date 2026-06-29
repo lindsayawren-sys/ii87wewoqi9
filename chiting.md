@@ -1,46 +1,60 @@
-# 首飞成功！中国自主研发“无人飞行卡车”来了
+# 铀能源公司将于6月9日发布2026财年第三季度业绩
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月16日 13:53 来源：中国新闻网 4月15日，由中国航空工业集团自主研制的HH-200航空商用无人运输系统首架机，在航空工业民机试飞中心渭南运营基地平稳降落，圆满完成首飞。飞机各系统工作正常、飞行姿态平稳、整体状态良好，顺利完成预定飞行科目，标志着中国在大型商用无人运输装备领域取得新进展。(梅镱泷 杨英琦 制作 王嘉怡） 责任编辑：【李季】
+铀能源公司（Uranium Energy Corp，UEC）周二宣布，将于6月9日股市开盘前发布2026财年第三季度运营及财务业绩。公司管理层将于当天美国东部时间上午11时召开电话会议，对业绩进行解读。会议直播及会后回放可通过公司官网投资者关系页面获取。 本次财报发布正值公司多项战略布局加速落地的关键期。在第二季度，铀能源以每磅101美元的价格售出20万磅铀，较当季现货均价溢价
 
 ## 正文
 
-发布时间：2026年04月16日 13:53 来源：中国新闻网 4月15日，由中国航空工业集团自主研制的HH-200航空商用无人运输系统首架机，在航空工业民机试飞中心渭南运营基地平稳降落，圆满完成首飞。
+铀能源公司（Uranium Energy Corp，UEC）周二宣布，将于6月9日股市开盘前发布2026财年第三季度运营及财务业绩。
 
-飞机各系统工作正常、飞行姿态平稳、整体状态良好，顺利完成预定飞行科目，标志着中国在大型商用无人运输装备领域取得新进展。
+公司管理层将于当天美国东部时间上午11时召开电话会议，对业绩进行解读。
 
-(梅镱泷 杨英琦 制作 王嘉怡） 责任编辑：【李季】
+会议直播及会后回放可通过公司官网投资者关系页面获取。
+
+本次财报发布正值公司多项战略布局加速落地的关键期。
+
+在第二季度，铀能源以每磅101美元的价格售出20万磅铀，较当季现货均价溢价超过25%，实现营收2020万美元，毛利润约1000万美元。
+
+截至季末，公司持有8.18亿美元流动资产，库存铀约145.6万磅，且为零债务状态。
+
+运营方面，公司在德克萨斯州的Burke Hollow项目建设已完工，成为美国最新的原地浸出回收铀矿，正等待监管批准后投产。
+
+怀俄明州的Christensen Ranch设施新增了四个集管房，自复产以来已累计产出244，321磅铀。
 
 ## 相关推荐
 
-- 2026-06-29 16:55 - [博主：美航母沦为毒品集散窝点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-29 17:09 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-29 16:54 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-29 16:58 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-29 17:16 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 16:48 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-29 17:12 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 17:15 - [世界杯上那些封神的门将](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-29 16:53 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 17:15 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 16:55 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 17:16 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-29 17:23 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 17:21 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 17:00 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-29 16:56 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-29 17:12 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 17:08 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 17:10 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 17:21 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-29 17:23 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 17:09 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-29 17:17 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 17:19 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:56 - [东方风云榜红毯](http://www.blog.minike.top/Article/details/448017352.shtml)
-- 2026-06-29 17:04 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/8064609.shtml)
-- 2026-06-29 17:01 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.kurohicncr.top/Article/details/7150675.shtml)
-- 2026-06-29 17:08 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/63367009.shtml)
-- 2026-06-29 17:13 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/818432769.shtml)
-- 2026-06-29 17:09 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/56552.shtml)
-- 2026-06-29 16:49 - [2026世界杯谁能一黑到底](https://www.share.kurohicncr.top/Article/details/978918952.shtml)
-- 2026-06-29 17:10 - [第二波数码涨价潮来袭](https://www.share.minike.top/Article/details/79598.shtml)
-- 2026-06-29 17:11 - [工作靠AI算不算职场作弊](http://www.share.minike.top/Article/details/58705.shtml)
-- 2026-06-29 16:55 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/778975039.shtml)
-- 2026-06-29 17:08 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/79548.shtml)
-- 2026-06-29 17:10 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/813479.shtml)
-- 2026-06-29 16:55 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/180035.shtml)
-- 2026-06-29 17:17 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/57884371296.shtml)
-- 2026-06-29 17:14 - [周生如故](http://www.share.minike.top/Article/details/603654779385.shtml)
+- 2026-06-29 17:13 - [自然资源部派专家赴宜宾地震影响区](http://www.share.minike.top/Article/details/0293634.shtml)
+- 2026-06-29 17:07 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/235540078884.shtml)
+- 2026-06-29 17:02 - [BB大王横店拍戏](http://www.share.kurohicncr.top/Article/details/2508719623.shtml)
+- 2026-06-29 17:19 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.minike.top/Article/details/76297209.shtml)
+- 2026-06-29 17:11 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/26440.shtml)
+- 2026-06-29 16:55 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/206681.shtml)
+- 2026-06-29 17:20 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/33843704393.shtml)
+- 2026-06-29 17:14 - [博主：AI泡沫必须破灭](https://www.share.minike.top/Article/details/09378930.shtml)
+- 2026-06-29 16:57 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/957078289752.shtml)
+- 2026-06-29 16:58 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/9434667985.shtml)
+- 2026-06-29 17:15 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/49211479591.shtml)
+- 2026-06-29 16:59 - [中国空间站为什么要升级扩容](http://www.share.kurohicncr.top/Article/details/377455146505.shtml)
+- 2026-06-29 17:11 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/7933611.shtml)
+- 2026-06-29 17:15 - [速度与激情9](http://www.blog.minike.top/Article/details/92802986791.shtml)
+- 2026-06-29 17:18 - [森保一坚信日本能赢巴西](http://www.blog.minike.top/Article/details/64805286.shtml)

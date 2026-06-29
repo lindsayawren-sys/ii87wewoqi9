@@ -1,54 +1,61 @@
-# 禾赛-W盘初涨超8% 今日起进入港股通名单
+# 自6月12日起暂停存量客户中国境内新开仓、加仓！老虎国际最新通知
 
-> 更新时间：2026-06-29 17:18:02 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-禾赛-W（02525）早盘高开近9%，截至发稿，涨幅收窄至上涨2.72%，现报188.90港元，成交额7165.31万港元。 4月16日，深交所公告，根据《深圳证券交易所深港通业务实施办法》的有关规定，港股通标的证券名单调入禾赛-W，自2026年4月16日起生效。 值得注意的是，据盖世汽车研究院发布的2026年2月车载激光雷达装机量排行榜显示，当月禾赛车载主激光雷达以51%的市
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】老虎国际：自6月12日起，暂停存量投资者账户在中国境内所有品种的新开仓、加仓交易 中国基金报记者 孙越 继中国证监会等八部门联合整治非法跨境证券业务后，老虎国际率先发布调整通知：自6月12日起，暂停存量投资者账户在中国境内所有品种的新开仓、加仓交易，仅支持卖出、平仓操作。 老虎国际
 
 ## 正文
 
-禾赛-W（02525）早盘高开近9%，截至发稿，涨幅收窄至上涨2.72%，现报188.90港元，成交额7165.31万港元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-4月16日，深交所公告，根据《深圳证券交易所深港通业务实施办法》的有关规定，港股通标的证券名单调入禾赛-W，自2026年4月16日起生效。
+来源：中国基金报 【导读】老虎国际：自6月12日起，暂停存量投资者账户在中国境内所有品种的新开仓、加仓交易 中国基金报记者 孙越 继中国证监会等八部门联合整治非法跨境证券业务后，老虎国际率先发布调整通知：自6月12日起，暂停存量投资者账户在中国境内所有品种的新开仓、加仓交易，仅支持卖出、平仓操作。
 
-值得注意的是，据盖世汽车研究院发布的2026年2月车载激光雷达装机量排行榜显示，当月禾赛车载主激光雷达以51%的市场份额蝉联行业第一，市场占比超越其他供应商份额总和，实现断层式领先。
+老虎国际最新调整： 自6月12日起暂停存量客户境内新开仓、加仓 此次通知显示，为落实2年集中整治期的行业监管要求，推动跨境证券业务规范发展，老虎国际将对存量投资者账户在中国境内的服务进行相应调整。
 
-2月，中国乘用车市场主激光雷达总装机量达165009台，其中禾赛贡献83897台，装机量为行业第二名的2.2倍、第三名的3倍以上。
+自北京时间2026年6月12日起，针对在境内交易服务，暂停股票等所有品种的新开仓、加仓交易，仅支持卖出、平仓操作；针对在境内资金划转服务，暂停资金转入，转出功能保持正常，全力保障客户资金安全。
 
-至此，禾赛已连续13个月占据车载主激光雷达市场第一的位置。
+老虎国际表示，本次调整不会影响为存量投资者在境外提供服务，也不影响全体客户现有资产安全，客户可正常查询账户、持有及卖出已有持仓。
 
-责任编辑：卢昱君
+5月22日，中国证监会等八部门联合印发《综合整治非法跨境证券期货基金经营活动实施方案》。
+
+“总体要求是经过2年集中整治，全面取缔境外证券期货基金经营机构非法跨境经营活动”，目标是“坚决取缔非法、稳妥清理存量”。
+
+根据方案，集中整治期内，禁止境外机构为存量投资者在境内非法提供买入交易、转入资金等服务，只允许单向卖出交易并转出资金。
 
 ## 相关推荐
 
-- 2026-06-29 17:05 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-29 16:52 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-29 17:12 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-29 17:01 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 16:59 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-29 16:56 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 16:52 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 16:54 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-29 16:55 - [南昌市委书记调整](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-29 16:58 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-29 16:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-29 17:16 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-29 16:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 17:04 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-29 17:01 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 16:59 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-29 17:16 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 17:16 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 17:19 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 17:13 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 17:10 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-29 17:05 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 16:54 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 17:09 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 17:00 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-29 16:54 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 16:54 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:51 - [A股割裂行情有变化了吗](https://www.share.kurohicncr.top/Article/details/049424.shtml)
-- 2026-06-29 17:04 - [A股割裂行情有变化了吗](https://www.share.minike.top/Article/details/3251269.shtml)
-- 2026-06-29 16:59 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/173017112.shtml)
-- 2026-06-29 17:10 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/833734875.shtml)
-- 2026-06-29 17:02 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/8972193.shtml)
-- 2026-06-29 17:08 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.blog.minike.top/Article/details/74068461549.shtml)
-- 2026-06-29 17:06 - [金刚川](https://www.blog.kurohicncr.top/Article/details/30076797.shtml)
-- 2026-06-29 17:12 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/174533.shtml)
-- 2026-06-29 17:03 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/612191.shtml)
-- 2026-06-29 17:17 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/622223923754.shtml)
-- 2026-06-29 16:51 - [在自己家不穿衣服犯法吗](http://www.blog.kurohicncr.top/Article/details/744602.shtml)
-- 2026-06-29 17:07 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/9887377.shtml)
-- 2026-06-29 16:59 - [中国战机大片上新](http://www.share.kurohicncr.top/Article/details/845983.shtml)
-- 2026-06-29 17:03 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/0511747.shtml)
-- 2026-06-29 17:15 - [20年前的周杰伦](https://www.blog.minike.top/Article/details/041883764.shtml)
+- 2026-06-29 17:01 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.minike.top/Article/details/33743737.shtml)
+- 2026-06-29 17:11 - [驻日美军航母沦为“毒窝”](http://www.share.minike.top/Article/details/4952666469.shtml)
+- 2026-06-29 17:06 - [和周杰伦在演唱会合唱了](https://www.share.minike.top/Article/details/1664984558.shtml)
+- 2026-06-29 17:17 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/381747146.shtml)
+- 2026-06-29 17:07 - [巴西球员：日本队有点傲慢了](http://www.share.minike.top/Article/details/364961.shtml)
+- 2026-06-29 17:06 - [日本主教练回应迎战巴西](https://www.share.kurohicncr.top/Article/details/640666.shtml)
+- 2026-06-29 17:07 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/6982465571.shtml)
+- 2026-06-29 17:18 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/1054525633.shtml)
+- 2026-06-29 16:55 - [天柱山回应网红打卡树枝被砍](http://www.blog.minike.top/Article/details/201444.shtml)
+- 2026-06-29 17:09 - [扫黑风暴](http://www.blog.minike.top/Article/details/70986429.shtml)
+- 2026-06-29 17:23 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/52929.shtml)
+- 2026-06-29 16:57 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/22837687.shtml)
+- 2026-06-29 16:57 - [曝屠颖去世和酒店失责有关](https://www.blog.minike.top/Article/details/978220885812.shtml)
+- 2026-06-29 17:15 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/94231772517.shtml)
+- 2026-06-29 17:22 - [共享单车“价格刺客”79分钟30元](https://www.blog.kurohicncr.top/Article/details/914045532.shtml)

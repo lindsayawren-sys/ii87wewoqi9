@@ -1,57 +1,51 @@
-# 一艘希腊籍货船试图穿越霍尔木兹海峡
+# 贵州高坡乡：这些孩子用苗语唱响强军战歌
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-一艘希腊籍货轮在停靠伊朗港口后，试图穿越霍尔木兹海峡，成为检验美国海上封锁措施的最新事态。 船舶追踪数据显示，这艘 “海上冠军号” 于4月13日驶离伊朗伊玛目霍梅尼港，并于周三早间驶出该海峡航道。 此前其他试图通行海峡的船只，在抵达阿曼湾后均选择停船或掉头返航。 美方军方表示，针对所有从伊朗港口及沿海水域驶出、试图离开海湾地区的船舶，封锁行动已全面落地执行。 美国于周二通报，自
+发布时间：2026年06月01日 17:33 来源：中国新闻网 六一儿童节前夕，贵州省贵阳市花溪区人武部走进高坡乡杉坪民族小学开展助学兴教活动。身着苗族服饰的同学们齐聚操场，用苗语唱响《强军战歌》，以嘹亮歌声抒发爱国情怀，展现新时代苗族少年儿童的昂扬风貌。(作者：赵丽娜、肖阳、姚天宝） 责任编辑：【魏聪聪】
 
 ## 正文
 
-一艘希腊籍货轮在停靠伊朗港口后，试图穿越霍尔木兹海峡，成为检验美国海上封锁措施的最新事态。
+发布时间：2026年06月01日 17:33 来源：中国新闻网 六一儿童节前夕，贵州省贵阳市花溪区人武部走进高坡乡杉坪民族小学开展助学兴教活动。
 
-船舶追踪数据显示，这艘 “海上冠军号” 于4月13日驶离伊朗伊玛目霍梅尼港，并于周三早间驶出该海峡航道。
+身着苗族服饰的同学们齐聚操场，用苗语唱响《强军战歌》，以嘹亮歌声抒发爱国情怀，展现新时代苗族少年儿童的昂扬风貌。
 
-此前其他试图通行海峡的船只，在抵达阿曼湾后均选择停船或掉头返航。
-
-美方军方表示，针对所有从伊朗港口及沿海水域驶出、试图离开海湾地区的船舶，封锁行动已全面落地执行。
-
-美国于周二通报，自周一封锁措施生效后的首个24小时内，已有六艘船只接到指令后被迫掉头折返。
-
-责任编辑：何云
+(作者：赵丽娜、肖阳、姚天宝） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 17:04 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-29 17:15 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 17:10 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 16:58 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-29 17:08 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-29 17:08 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-29 17:15 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-29 17:09 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-29 16:49 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-29 17:09 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-29 17:14 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-29 17:13 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-29 16:51 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 16:51 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 16:57 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 17:07 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-29 17:09 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 17:06 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-29 16:58 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 17:20 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 17:05 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 17:05 - [抓特务票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 17:05 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 17:17 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 17:16 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 17:15 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 17:09 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 17:08 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-29 16:54 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 17:07 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:02 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/54093621.shtml)
-- 2026-06-29 17:02 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/806962098.shtml)
-- 2026-06-29 17:13 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/708599.shtml)
-- 2026-06-29 17:13 - [扫黑风暴](http://www.blog.minike.top/Article/details/67869.shtml)
-- 2026-06-29 17:02 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/0930700.shtml)
-- 2026-06-29 16:57 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.kurohicncr.top/Article/details/67188774.shtml)
-- 2026-06-29 17:10 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/89553708.shtml)
-- 2026-06-29 17:04 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/029477339967.shtml)
-- 2026-06-29 16:54 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/081614017.shtml)
-- 2026-06-29 16:49 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/814362132.shtml)
-- 2026-06-29 16:51 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/0997754.shtml)
-- 2026-06-29 17:00 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.minike.top/Article/details/2215228.shtml)
-- 2026-06-29 17:01 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/094965005404.shtml)
-- 2026-06-29 17:09 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/0149651.shtml)
-- 2026-06-29 17:15 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/3682908412.shtml)
+- 2026-06-29 17:12 - [第一炉香](https://www.share.minike.top/Article/details/64427.shtml)
+- 2026-06-29 17:08 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/65317.shtml)
+- 2026-06-29 17:05 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/87183.shtml)
+- 2026-06-29 17:12 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/823906799490.shtml)
+- 2026-06-29 17:22 - [南部战区位南海海域进行例行巡航](https://www.share.minike.top/Article/details/7197894.shtml)
+- 2026-06-29 16:54 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.minike.top/Article/details/36134140.shtml)
+- 2026-06-29 17:07 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.kurohicncr.top/Article/details/03336133.shtml)
+- 2026-06-29 17:20 - [《贺子珍》](http://www.blog.minike.top/Article/details/825424.shtml)
+- 2026-06-29 17:04 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.blog.kurohicncr.top/Article/details/050218.shtml)
+- 2026-06-29 17:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/298479705.shtml)
+- 2026-06-29 17:20 - [胡光宇一审获刑13年](http://www.blog.minike.top/Article/details/82580.shtml)
+- 2026-06-29 17:01 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/8264998.shtml)
+- 2026-06-29 17:07 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/4158595353.shtml)
+- 2026-06-29 17:14 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.minike.top/Article/details/868680.shtml)
+- 2026-06-29 17:05 - [7月1日起一批新规即将落地](https://www.share.minike.top/Article/details/084626028.shtml)

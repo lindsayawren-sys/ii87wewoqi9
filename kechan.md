@@ -1,52 +1,59 @@
-# 快讯：恒指高开1.14%重回26000点 科指涨2.26% 科网股、黄金股普涨 航空股回暖 京东涨超5%
+# 宇树科技回应联手英伟达：H2 Plus人形机器人下半年上市
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-美股周二大幅向好，美伊即将展开新一轮和谈，刺激大市气氛，三大指数均录得升幅收市。美元走势回落，美国十年期债息下滑至4.24厘水平，金价表现向好，油价走势受压。 今日港股三大指数集体高开，恒指开盘涨1.14%，报26168.25，恒科指涨2.26%，国企指数涨1.21%。盘面上，科网股普遍上涨，京东涨超5%，阿里巴巴、百度涨超4%，哔哩哔哩涨超3%；黄金股高开，紫金矿业涨超2%；
+中新社杭州6月2日电 (郭其钰)英伟达与宇树科技联合发布新一代人形机器人参考设计H2 Plus(下称“H2 Plus”)，宇树科技市场部总监黄嘉玮2日接受中新社等媒体采访时透露，该产品将于今年下半年正式上市，其核心特点是搭载了英伟达高性能算力平台，旨在为人形机器人打造更强大的“智能大脑”。 黄嘉玮表示，宇树科技与英伟达6月1日联合推出H2 Plus，这款产品最显著的提升在于算力
 
 ## 正文
 
-美股周二大幅向好，美伊即将展开新一轮和谈，刺激大市气氛，三大指数均录得升幅收市。
+中新社杭州6月2日电 (郭其钰)英伟达与宇树科技联合发布新一代人形机器人参考设计H2 Plus(下称“H2 Plus”)，宇树科技市场部总监黄嘉玮2日接受中新社等媒体采访时透露，该产品将于今年下半年正式上市，其核心特点是搭载了英伟达高性能算力平台，旨在为人形机器人打造更强大的“智能大脑”。
 
-美元走势回落，美国十年期债息下滑至4.24厘水平，金价表现向好，油价走势受压。
+黄嘉玮表示，宇树科技与英伟达6月1日联合推出H2 Plus，这款产品最显著的提升在于算力性能。
 
-今日港股三大指数集体高开，恒指开盘涨1.14%，报26168.25，恒科指涨2.26%，国企指数涨1.21%。
+宇树科技官网介绍，H2 Plus在设计上结合了宇树H2人形机器人、用于灵巧操作的Sharpa五指手、用于先进推理与控制的NVIDIA Jetson Thor平台，以及全新的NVIDIA Isaac GR00T开发平台。
 
-盘面上，科网股普遍上涨，京东涨超5%，阿里巴巴、百度涨超4%，哔哩哔哩涨超3%；黄金股高开，紫金矿业涨超2%；芯片股延续涨势，华虹半导体涨超2%；航空股回暖，东方航空涨超3%；创新药概念活跃，乐普生物涨超3%。
+其中NVIDIA Isaac GR00T开发平台由英伟达开发推出，该平台涵盖从数据采集与生成到机器人模型评估与部署的完整流程，助力开发者加速人形机器人开发工作流程。
 
-责任编辑：郝欣煜
+“基于英伟达的算力平台，我们希望推动人形机器人整个行业进步。
+
+”黄嘉玮表示，宇树科技期待相关数据能真正应用于未来算力平台的迭代，从而让人形机器人的“智能大脑”更加智能，这也是该企业持续发力的方向。
+
+宇树科技创始人兼首席执行官王兴兴对此表示，H2 Plus将宇树的人形机器人与NVIDIA Jetson Thor和NVIDIA Isaac GR00T开发平台相结合，为团队提供了一个经过验证的起点，用于开发机器人技能并将其应用于实际场景。
+
+英伟达首席执行官黄仁勋6月1日在GTC台北大会上宣布与宇树科技合作。
 
 ## 相关推荐
 
-- 2026-06-29 16:53 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-29 17:07 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 16:54 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-29 16:53 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-29 16:51 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-29 17:05 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-29 16:54 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-29 17:10 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 16:51 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-29 17:07 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-29 17:02 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 16:57 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 17:24 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 17:04 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-29 17:18 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-29 17:22 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 17:04 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 17:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-29 16:54 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 16:57 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-29 17:12 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 17:10 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 17:06 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-29 17:17 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 17:06 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:58 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.minike.top/Article/details/311498465.shtml)
-- 2026-06-29 17:06 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/20506905.shtml)
-- 2026-06-29 17:01 - [每代父母都困在自己的时代里](https://www.blog.minike.top/Article/details/46626483844.shtml)
-- 2026-06-29 16:51 - [T1 KC](http://www.share.minike.top/Article/details/51184.shtml)
-- 2026-06-29 16:57 - [范志毅看好日本淘汰巴西](https://www.blog.kurohicncr.top/Article/details/5027312.shtml)
-- 2026-06-29 16:59 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.blog.kurohicncr.top/Article/details/12249624007.shtml)
-- 2026-06-29 17:15 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/26750446348.shtml)
-- 2026-06-29 16:54 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/766107551.shtml)
-- 2026-06-29 17:15 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/0851862.shtml)
-- 2026-06-29 16:59 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/35487493732.shtml)
-- 2026-06-29 17:03 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.minike.top/Article/details/114904463.shtml)
-- 2026-06-29 17:17 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.minike.top/Article/details/8632972.shtml)
-- 2026-06-29 16:51 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/963847546772.shtml)
-- 2026-06-29 17:13 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.blog.minike.top/Article/details/81148272584.shtml)
-- 2026-06-29 17:12 - [叠纸](https://www.blog.kurohicncr.top/Article/details/27266.shtml)
+- 2026-06-29 17:05 - [夏天被这些虫子咬了可能致命](https://www.share.kurohicncr.top/Article/details/6887995.shtml)
+- 2026-06-29 17:01 - [港股蓝筹股的落寞才刚刚开始吗](http://www.blog.kurohicncr.top/Article/details/452922.shtml)
+- 2026-06-29 17:17 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/99363436.shtml)
+- 2026-06-29 16:59 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/44850062.shtml)
+- 2026-06-29 17:12 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/7309579.shtml)
+- 2026-06-29 17:03 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/72999012877.shtml)
+- 2026-06-29 17:10 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/6345370987.shtml)
+- 2026-06-29 17:18 - [男子造谣县城满街都是小混混被行拘](https://www.blog.kurohicncr.top/Article/details/008206.shtml)
+- 2026-06-29 16:58 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/318254040.shtml)
+- 2026-06-29 17:01 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/2807801.shtml)
+- 2026-06-29 17:01 - [每代父母都困在自己的时代里](http://www.share.minike.top/Article/details/98253.shtml)
+- 2026-06-29 16:58 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.blog.kurohicncr.top/Article/details/75799.shtml)
+- 2026-06-29 16:58 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/57237326214.shtml)
+- 2026-06-29 17:05 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/65903678302.shtml)
+- 2026-06-29 17:17 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.minike.top/Article/details/73531995814.shtml)

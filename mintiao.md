@@ -1,58 +1,61 @@
-# “新兴市场教父”麦朴思去世，享年89岁
+# 港股通创新药巨震，发生了什么？520880午后突发跳水，康方生物等11股振幅超10%！
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-据其领英页面上的一份声明显示，有“新兴市场教父”之称的知名投资者、被广泛认为是新兴市场投资先驱的麦朴思（Mark Mobius）周三在新加坡去世，享年 89 岁。 麦朴思投资新兴市场数十年，就在今年1月还在大力宣传新的投资机会。他的信念影响了一代基金经理，并帮助大量资金流入了这个曾经被视为边缘市场的领域。 作为邓普顿新兴市场集团的执行主席，麦朴思在该集团工作了30多年。1987
+6月首个交易日（6月1日），港股通创新药意外冲高回落，午后大幅杀跌。100%创新药研发标的——港股通创新药ETF华宝（520880）高开后一度涨近3%，而后快速回落，午后加速走低，收跌1.61%，10日线得而复失，全天振幅高达5.75%。 成份股批量巨震，多达11股振幅超10%，核心权重股康方生物振幅达16.43%居首——盘初暴涨超10%，最终收跌1.86%，成交70.4亿港元
 
 ## 正文
 
-据其领英页面上的一份声明显示，有“新兴市场教父”之称的知名投资者、被广泛认为是新兴市场投资先驱的麦朴思（Mark Mobius）周三在新加坡去世，享年 89 岁。
+6月首个交易日（6月1日），港股通创新药意外冲高回落，午后大幅杀跌。
 
-麦朴思投资新兴市场数十年，就在今年1月还在大力宣传新的投资机会。
+100%创新药研发标的——港股通创新药ETF华宝（520880）高开后一度涨近3%，而后快速回落，午后加速走低，收跌1.61%，10日线得而复失，全天振幅高达5.75%。
 
-他的信念影响了一代基金经理，并帮助大量资金流入了这个曾经被视为边缘市场的领域。
+成份股批量巨震，多达11股振幅超10%，核心权重股康方生物振幅达16.43%居首——盘初暴涨超10%，最终收跌1.86%，成交70.4亿港元创历史天量。
 
-作为邓普顿新兴市场集团的执行主席，麦朴思在该集团工作了30多年。
+消息面，2026年美国临床肿瘤学会（ASCO）年会5月29日至6月2日召开，康方生物与会发布了40多项临床研究成果，其自研的全球首创PD-1/VEGF双抗依沃西新药研究（HARMONi-6研究）临床OS数据优异，使得肺鳞癌患者的死亡风险降低34%。
 
-1987年，在推动美国投资者走向海外的先驱约翰·邓普顿聘请下，麦朴思创立了最早专注于快速发展的新兴市场的共同基金之一。
+重磅利好加持，港股通创新药盘中缘何突然“变脸”？
 
-他一直管理邓普顿新兴市场集团直至2016年，并担任邓普顿新兴市场投资信托的首席基金经理直至2015年。
+有分析指出，或是利好兑现后的获利盘了结（微观交易结构恶化）与中美双向监管传闻共振导致的短期情绪宣泄。
 
-2018年1月麦朴思宣布退休。
+从交易层面来看，6月1日作为ASCO大会的第四天，核心重磅数据已陆续披露完毕，事件驱动型资金选择在利好兑现后获利了结，“买预期、卖事实”。
 
-数据显示，该封闭式基金自1989年至麦朴思退休期间的年均回报率达13.4%。
+当前市场呈存量资金博弈格局，缺乏增量资金跟进情况下，短线资金快进快出加剧板块波动。
 
 ## 相关推荐
 
-- 2026-06-29 16:54 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 16:54 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-29 17:12 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 17:07 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-29 16:58 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 17:17 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 16:57 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-29 17:16 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-29 16:59 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-29 17:03 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 16:53 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-29 17:04 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 17:11 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 17:10 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 17:02 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-29 17:21 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-29 16:54 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-29 16:54 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 17:07 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 16:59 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-29 17:20 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 16:59 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-29 16:54 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 17:20 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 17:09 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 17:14 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 17:06 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:06 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.minike.top/Article/details/944263.shtml)
-- 2026-06-29 17:14 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/699298991.shtml)
-- 2026-06-29 17:09 - [送你一朵小红花](http://www.share.minike.top/Article/details/62661568.shtml)
-- 2026-06-29 17:12 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/2782607.shtml)
-- 2026-06-29 17:14 - [永远有话聊的原因](https://www.share.kurohicncr.top/Article/details/86744.shtml)
-- 2026-06-29 17:08 - [高市早苗口齿不清被质疑醉酒](https://www.blog.kurohicncr.top/Article/details/242651.shtml)
-- 2026-06-29 17:03 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/28457453869.shtml)
-- 2026-06-29 17:09 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/9589035893.shtml)
-- 2026-06-29 17:01 - [媒体：中国田径压力与期待并存](https://www.blog.minike.top/Article/details/8336269951.shtml)
-- 2026-06-29 16:50 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/65274524313.shtml)
-- 2026-06-29 16:56 - [巴西前锋说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/70535.shtml)
-- 2026-06-29 16:53 - [千与千寻](http://www.share.kurohicncr.top/Article/details/628926684508.shtml)
-- 2026-06-29 16:57 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/897952.shtml)
-- 2026-06-29 16:56 - [职业选手禁止参赛！](https://www.share.kurohicncr.top/Article/details/426283741263.shtml)
-- 2026-06-29 17:15 - [流金岁月](http://www.share.minike.top/Article/details/0800810.shtml)
+- 2026-06-29 17:21 - [毒液2](https://www.blog.kurohicncr.top/Article/details/9743055915.shtml)
+- 2026-06-29 16:57 - [中央气象台发布强对流天气蓝色预警](http://www.blog.minike.top/Article/details/3546151974.shtml)
+- 2026-06-29 17:11 - [一生一世](https://www.blog.kurohicncr.top/Article/details/407847285895.shtml)
+- 2026-06-29 17:17 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/62125.shtml)
+- 2026-06-29 17:13 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/19835400686.shtml)
+- 2026-06-29 17:20 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/38828237.shtml)
+- 2026-06-29 17:09 - [世界杯看到肖战了](https://www.blog.kurohicncr.top/Article/details/559916.shtml)
+- 2026-06-29 17:16 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/82936080903.shtml)
+- 2026-06-29 17:12 - [TI2026参赛战队出炉](https://www.share.minike.top/Article/details/47016517.shtml)
+- 2026-06-29 16:54 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/548172006.shtml)
+- 2026-06-29 17:01 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/816343235.shtml)
+- 2026-06-29 17:04 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/1022183.shtml)
+- 2026-06-29 17:17 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/19802789.shtml)
+- 2026-06-29 17:09 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/3966462953.shtml)
+- 2026-06-29 17:13 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/6984344825.shtml)

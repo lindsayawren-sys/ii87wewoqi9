@@ -1,50 +1,59 @@
-# 油价因美伊有望进一步谈判而下跌
+# 宁夏出台民族团结进步促进条例 9月1日起施行
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-油价在早盘下跌，因美国和伊朗有望展开进一步谈判，这或将减少中东地区的供应中断。澳新银行研究部的分析师援引一篇媒体报道称：“据报道，双方正考虑将停火协议再延长两周，以便有更多时间谈判达成和平协议。“这些分析师在一份研究报告中说：“据说调解方正在推动就悬而未决的问题达成妥协，包括霍尔木兹海峡的重新开放和伊朗的核浓缩计划。“近月西得州中质油期货下跌0.6%，至每桶90.76美元；近月
+中新网银川6月2日电 (记者 李佩珊)记者2日从宁夏回族自治区民族事务委员会获悉，《宁夏回族自治区民族团结进步促进条例》(下称《条例》)经宁夏人大常委会表决通过，将于2026年9月1日正式落地实施，原有条例同步废止。《条例》紧扣铸牢中华民族共同体意识主线，分6章56条，从文化培育、交融共建、产业富民、监督保障等方面细化举措，以法治化规范全区民族工作开展。《条例》规范历史文化学习
 
 ## 正文
 
-油价在早盘下跌，因美国和伊朗有望展开进一步谈判，这或将减少中东地区的供应中断。
+中新网银川6月2日电 (记者 李佩珊)记者2日从宁夏回族自治区民族事务委员会获悉，《宁夏回族自治区民族团结进步促进条例》(下称《条例》)经宁夏人大常委会表决通过，将于2026年9月1日正式落地实施，原有条例同步废止。
 
-澳新银行研究部的分析师援引一篇媒体报道称：“据报道，双方正考虑将停火协议再延长两周，以便有更多时间谈判达成和平协议。
+《条例》紧扣铸牢中华民族共同体意识主线，分6章56条，从文化培育、交融共建、产业富民、监督保障等方面细化举措，以法治化规范全区民族工作开展。
 
-“这些分析师在一份研究报告中说：“据说调解方正在推动就悬而未决的问题达成妥协，包括霍尔木兹海峡的重新开放和伊朗的核浓缩计划。
+《条例》规范历史文化学习内容，明确常态化开展党史、新中国史、改革开放史、社会主义发展史、中华民族发展史学习宣传，深耕中华文化沃土，常态化开展中华优秀传统文化、红色文化普及推广，把中华民族共同体意识教育融入基础教育、公职人员培训与全民社会宣教全过程，常态化布设中华文化标识，厚植各族群众家国情怀。
 
-“近月西得州中质油期货下跌0.6%，至每桶90.76美元；近月布伦特原油期货下跌0.4%，至每桶94.57美元。
+在促进各民族交往交流交融层面，《条例》大力推进互嵌式社会结构和社区环境建设，完善流动人口入学、就医、社保等普惠公共服务，破除地域、户籍壁垒，依托节庆赛事、文体联谊、研学走访等活动，推动各族群众共居共学、共事共乐。
 
-责任编辑：王永生
+立足宁夏区位与产业禀赋，《条例》依托闽宁对口协作长效机制，聚焦乡村振兴、特色产业培育、绿色能源、葡萄酒等优势产业发展，持续拓宽群众就业增收渠道，稳步推进城乡基本公共服务均等化，以产业协同带动各族群众携手致富。
+
+此外，《条例》确定每年9月为宁夏民族团结进步月，设立评优表彰制度，将民族团结工作经费列入各级财政预算，同步建立政策合规审查、日常督查、违法惩戒制度。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 17:00 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-29 17:17 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-29 17:15 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-29 17:15 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-29 17:13 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-29 17:08 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-29 16:57 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-29 16:57 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-29 16:55 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 16:52 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 17:12 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-29 17:19 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 17:15 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 17:16 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-29 17:12 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 17:03 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-29 17:18 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 17:14 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-29 17:11 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 17:18 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 17:05 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-29 17:17 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-29 17:02 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 17:19 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 17:00 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:10 - [徐昕暂不参加NBA夏季联赛](https://www.share.kurohicncr.top/Article/details/346485947.shtml)
-- 2026-06-29 16:56 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/2591549.shtml)
-- 2026-06-29 16:53 - [妹妹的正确用法！](http://www.blog.minike.top/Article/details/64671.shtml)
-- 2026-06-29 17:15 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/004466172.shtml)
-- 2026-06-29 16:53 - [2026年，如果你有100万，你会怎么投资？](https://www.blog.minike.top/Article/details/500834105.shtml)
-- 2026-06-29 17:02 - [首个靠AI躺赢的国家](http://www.share.kurohicncr.top/Article/details/0029270.shtml)
-- 2026-06-29 16:59 - [流金岁月](https://www.share.minike.top/Article/details/795945.shtml)
-- 2026-06-29 17:14 - [戒掉咖啡后我的身体变化](https://www.blog.minike.top/Article/details/964904489.shtml)
-- 2026-06-29 17:07 - [驻日美军航母沦为“毒窝”](https://www.blog.minike.top/Article/details/5600497178.shtml)
-- 2026-06-29 17:10 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/54977143276.shtml)
-- 2026-06-29 17:12 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/683958549261.shtml)
-- 2026-06-29 17:06 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.minike.top/Article/details/84574237973.shtml)
-- 2026-06-29 17:03 - [港股蓝筹股的落寞才刚刚开始吗](http://www.share.minike.top/Article/details/1549821.shtml)
-- 2026-06-29 17:17 - [音乐人屠颖离世家属追责涉事酒店](https://www.share.minike.top/Article/details/375182805847.shtml)
-- 2026-06-29 16:52 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/647418738.shtml)
+- 2026-06-29 16:56 - [周生如故](http://www.share.minike.top/Article/details/162061596.shtml)
+- 2026-06-29 17:18 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/171067444842.shtml)
+- 2026-06-29 17:03 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/846462160.shtml)
+- 2026-06-29 17:12 - [小说《无悔追踪》翻红](https://www.share.minike.top/Article/details/86658.shtml)
+- 2026-06-29 17:13 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/45306175.shtml)
+- 2026-06-29 17:04 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.share.kurohicncr.top/Article/details/721582834.shtml)
+- 2026-06-29 17:15 - [世界杯十大帅哥必吃榜](https://www.blog.minike.top/Article/details/62001265412.shtml)
+- 2026-06-29 16:59 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.minike.top/Article/details/51166.shtml)
+- 2026-06-29 17:17 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/311744.shtml)
+- 2026-06-29 17:13 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.minike.top/Article/details/6021866000.shtml)
+- 2026-06-29 17:22 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.minike.top/Article/details/7714551.shtml)
+- 2026-06-29 17:23 - [小娘惹](http://www.share.kurohicncr.top/Article/details/035172461415.shtml)
+- 2026-06-29 16:59 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/578363603.shtml)
+- 2026-06-29 17:21 - [中方在台湾岛以东海域活动合理合法](https://www.share.kurohicncr.top/Article/details/850477496.shtml)
+- 2026-06-29 16:57 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/56380644.shtml)

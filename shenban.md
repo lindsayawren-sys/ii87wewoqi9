@@ -1,54 +1,59 @@
-# 小摩：恢复京东集团-SW“增持”评级 目标价148港元
+# ASCO2026：中国创新药数据高光亮眼，为什么股价全线下跌？逻辑在变化
 
-> 更新时间：2026-06-29 17:18:02 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-摩根大通发布研报称，恢复京东集团-SW（09618，JD.US）“增持”评级，目标价148港元； 美股目标价38美元。该行认为，投资者应聚焦2026年盈利上行风险。该行表示，去年第四季业绩及2026年指引展示核心业务韧性，快速商务最进取的投资期已过，国际业务扩张应较为审慎。该行上调京东2026及2027年收入预测1%及2%，经调整纯利预测上调13%及26%，分别高出市场共识17
+美国中部时间5月29日至6月2日，被誉为全球肿瘤学界“奥斯卡”的2026年美国临床肿瘤学会（ASCO）年会正在芝加哥如火如荼地举行。大会以“转化医学的科学与实践：改善全球癌症患者预后”为主题，依旧汇聚了全球顶尖肿瘤学者，集中展示年度最具突破性的研究成果。中国创新药在本届年会上迎来了有史以来最亮眼的表现，真正成为ASCO的领衔主角之一。官方数据显示，中国学者主导的研究共有95项入
 
 ## 正文
 
-摩根大通发布研报称，恢复京东集团-SW（09618，JD.US）“增持”评级，目标价148港元； 美股目标价38美元。
+美国中部时间5月29日至6月2日，被誉为全球肿瘤学界“奥斯卡”的2026年美国临床肿瘤学会（ASCO）年会正在芝加哥如火如荼地举行。
 
-该行认为，投资者应聚焦2026年盈利上行风险。
+大会以“转化医学的科学与实践：改善全球癌症患者预后”为主题，依旧汇聚了全球顶尖肿瘤学者，集中展示年度最具突破性的研究成果。
 
-该行表示，去年第四季业绩及2026年指引展示核心业务韧性，快速商务最进取的投资期已过，国际业务扩张应较为审慎。
+中国创新药在本届年会上迎来了有史以来最亮眼的表现，真正成为ASCO的领衔主角之一。
 
-该行上调京东2026及2027年收入预测1%及2%，经调整纯利预测上调13%及26%，分别高出市场共识17%及7%。
+官方数据显示，中国学者主导的研究共有95项入选口头报告、快速口头报告、临床科学研讨会及继续教育专场等重要环节，较2024年的48项、2025年的72项再创新高。
 
-责任编辑：史丽君
+其中，12项研究入选代表全球肿瘤学领域最高水平的最新突破摘要（Late-Breaking Abstract——LBA）环节，占本届大会全部63项LBA的近五分之一。
+
+全球肿瘤药物的下一个主战场将聚焦于多特异性抗体、下一代ADC及细胞基因疗法；中国企业在这波浪潮中已从“跟跑者”跃升为全球创新核心力量。
+
+这一发展趋势在本届ASCO大会上得到了充分印证。
+
+尤其是在多特异性抗体及下一代ADC领域，中国创新药的引领性优势已保持数年。
 
 ## 相关推荐
 
-- 2026-06-29 17:03 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 16:49 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 17:08 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-29 17:03 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-29 16:58 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-29 16:57 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 17:15 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-29 16:50 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-29 16:53 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-29 17:02 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 16:55 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 16:56 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 17:15 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-29 16:54 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-29 17:20 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 17:17 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-29 17:21 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 17:19 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 17:23 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 17:20 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 17:17 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 17:05 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-29 17:08 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 16:54 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 17:12 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 16:54 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-29 16:59 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:02 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/140496.shtml)
-- 2026-06-29 17:15 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/36196.shtml)
-- 2026-06-29 17:07 - [驻日美军航母沦为“毒窝”](http://www.share.minike.top/Article/details/714694.shtml)
-- 2026-06-29 17:14 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.minike.top/Article/details/671543.shtml)
-- 2026-06-29 17:04 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.kurohicncr.top/Article/details/8710148.shtml)
-- 2026-06-29 17:02 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/100061528320.shtml)
-- 2026-06-29 17:14 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/775565812222.shtml)
-- 2026-06-29 16:53 - [22岁民警拦截违法车辆被撞牺牲](http://www.share.minike.top/Article/details/87496.shtml)
-- 2026-06-29 16:53 - [美的空调 卡bug](http://www.blog.kurohicncr.top/Article/details/0266716.shtml)
-- 2026-06-29 17:04 - [2026年，如果你有100万，你会怎么投资？](https://www.share.minike.top/Article/details/593083.shtml)
-- 2026-06-29 17:09 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/783917925.shtml)
-- 2026-06-29 17:17 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/696704786055.shtml)
-- 2026-06-29 16:50 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/62397.shtml)
-- 2026-06-29 16:54 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/47234.shtml)
-- 2026-06-29 16:59 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/460107.shtml)
+- 2026-06-29 17:06 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/440680548888.shtml)
+- 2026-06-29 17:03 - [时光音乐会](http://www.share.minike.top/Article/details/5216869.shtml)
+- 2026-06-29 17:16 - [曝歌手第七期帮唱阵容](http://www.share.kurohicncr.top/Article/details/74498644.shtml)
+- 2026-06-29 17:00 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/883475786822.shtml)
+- 2026-06-29 17:04 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/314823.shtml)
+- 2026-06-29 16:59 - [杨紫下沉市场口碑](http://www.share.minike.top/Article/details/1039993.shtml)
+- 2026-06-29 17:16 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/266925.shtml)
+- 2026-06-29 17:02 - [曝歌手第七期帮唱阵容](http://www.blog.minike.top/Article/details/2841240.shtml)
+- 2026-06-29 17:23 - [王楚钦欢迎晚宴上打台球](https://www.blog.minike.top/Article/details/461723345473.shtml)
+- 2026-06-29 16:55 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.minike.top/Article/details/79633.shtml)
+- 2026-06-29 16:57 - [恋与深空 731](https://www.share.kurohicncr.top/Article/details/219643.shtml)
+- 2026-06-29 17:05 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/219223427.shtml)
+- 2026-06-29 17:19 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/65824.shtml)
+- 2026-06-29 17:04 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/159423.shtml)
+- 2026-06-29 17:07 - [倪春青跨市履新苏州市委组织部部长](http://www.blog.minike.top/Article/details/07217.shtml)

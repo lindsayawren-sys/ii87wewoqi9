@@ -1,53 +1,42 @@
-# 在和平谈判无果而终后，以色列继续对黎巴嫩发动袭击
+# 《供水条例》正式施行
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-以色列与黎巴嫩数十年来首次在华盛顿举行直接谈判，最终未取得重大突破。此后，以色列于周三持续对黎巴嫩南部多地发动空袭。 黎巴嫩国家通讯社报道称，以色列轰炸了南部布拉希特、西迪钦等多个村庄，并针对车辆实施了两起独立定点打击。 官方通讯社消息显示，以色列袭击了南部村庄贾巴，造成一户人家四口人遇难；另一处针对安萨里耶村的袭击也造成多人死亡。责任编辑：何云
+发布时间：2026年06月02日 09:57 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-以色列与黎巴嫩数十年来首次在华盛顿举行直接谈判，最终未取得重大突破。
-
-此后，以色列于周三持续对黎巴嫩南部多地发动空袭。
-
-黎巴嫩国家通讯社报道称，以色列轰炸了南部布拉希特、西迪钦等多个村庄，并针对车辆实施了两起独立定点打击。
-
-官方通讯社消息显示，以色列袭击了南部村庄贾巴，造成一户人家四口人遇难；另一处针对安萨里耶村的袭击也造成多人死亡。
-
-责任编辑：何云
+发布时间：2026年06月02日 09:57 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 16:51 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 16:50 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 16:57 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 16:55 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-29 16:56 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-29 16:58 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 17:03 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-29 16:58 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-29 17:11 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-29 16:58 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-29 17:12 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 17:11 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-29 16:52 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-29 17:08 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 16:54 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-29 17:21 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-29 16:54 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 17:11 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-29 16:54 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-29 16:58 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 17:23 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-29 17:21 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 17:22 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:48 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/710543626369.shtml)
-- 2026-06-29 16:49 - [王冰冰向全网安利哈兰德](http://www.share.minike.top/Article/details/9143478.shtml)
-- 2026-06-29 17:09 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.minike.top/Article/details/924209913.shtml)
-- 2026-06-29 16:51 - [广州一高校通报网传禁止小米汽车入校](https://www.share.kurohicncr.top/Article/details/9503508.shtml)
-- 2026-06-29 16:49 - [央视曝光涉黄App诈骗陷阱](http://www.blog.minike.top/Article/details/7173703.shtml)
-- 2026-06-29 17:03 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/1504458579.shtml)
-- 2026-06-29 16:57 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.minike.top/Article/details/57297333547.shtml)
-- 2026-06-29 16:59 - [驻日美军航母沦为“毒窝”](http://www.share.kurohicncr.top/Article/details/47979.shtml)
-- 2026-06-29 17:09 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/430927346887.shtml)
-- 2026-06-29 16:50 - [小说《无悔追踪》翻红](https://www.blog.kurohicncr.top/Article/details/53081.shtml)
-- 2026-06-29 17:15 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/67674703786.shtml)
-- 2026-06-29 16:50 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/147817407326.shtml)
-- 2026-06-29 16:54 - [音乐人屠颖离世家属追责涉事酒店](http://www.blog.kurohicncr.top/Article/details/73154458.shtml)
-- 2026-06-29 16:59 - [王安宇尊重田曦薇的一切选择](http://www.blog.kurohicncr.top/Article/details/330514668894.shtml)
-- 2026-06-29 17:11 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/5442469715.shtml)
+- 2026-06-29 17:23 - [范志毅看好日本淘汰巴西](https://www.share.kurohicncr.top/Article/details/29061.shtml)
+- 2026-06-29 17:14 - [徐昕暂不参加NBA夏季联赛](https://www.share.minike.top/Article/details/53233.shtml)
+- 2026-06-29 17:23 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/358817573433.shtml)
+- 2026-06-29 17:13 - [范志毅看好日本淘汰巴西](https://www.blog.minike.top/Article/details/21429217456.shtml)
+- 2026-06-29 17:07 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/63834370315.shtml)
+- 2026-06-29 17:01 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/743838.shtml)
+- 2026-06-29 16:58 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/6353566807.shtml)
+- 2026-06-29 17:02 - [业内：全球市场迎来结构性投资窗口](http://www.blog.minike.top/Article/details/578170224.shtml)
+- 2026-06-29 16:57 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/011136412546.shtml)
+- 2026-06-29 17:18 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/44784.shtml)
+- 2026-06-29 16:59 - [博主：美航母沦为毒品集散窝点](http://www.blog.minike.top/Article/details/648827.shtml)
+- 2026-06-29 17:16 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.minike.top/Article/details/3037604.shtml)
+- 2026-06-29 17:23 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/312980.shtml)
+- 2026-06-29 17:23 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/840300.shtml)
+- 2026-06-29 17:17 - [金刚川](https://www.share.kurohicncr.top/Article/details/8125123924.shtml)

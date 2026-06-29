@@ -1,58 +1,51 @@
-# 是否应该跳过L3？何小鹏：L3和L4是技术分类没有考虑商业化，最安全的就是从L2到L4
+# 外交部：日方近期一系列错误言行 国际社会必须高度警惕
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-新浪科技讯 4月15日晚间消息，在小鹏GX技术发布会后，小鹏集团董事长、CEO何小鹏，小鹏集团平台产品矩阵总经理吴安飞与媒体对话。 近期，关于自动驾驶是否应该跳过L3的讨论再度引发关注。何小鹏表示，这才是中国创业最好的地方，每一个技术路线都有人走，时间会证明谁走的对和错；另外，L3和L4最开始是一个技术分类，没有考虑商业化，最安全的就是从L2到L4，中间要积累足够的数据，把安全
+6月1日，外交部发言人林剑主持例行记者会。有记者就日防卫大臣在近日香格里拉对话会上的有关言论提问。 林剑表示，日本军国主义曾在二战期间犯下滔天罪行，给亚洲邻国造成深重灾难。日方近期一系列错误言行，威胁地区的和平稳定，国际社会必须高度警惕，共同防范和坚决遏制“新型军国主义”。 (总台央视记者 黄达 赵超逸)
 
 ## 正文
 
-新浪科技讯 4月15日晚间消息，在小鹏GX技术发布会后，小鹏集团董事长、CEO何小鹏，小鹏集团平台产品矩阵总经理吴安飞与媒体对话。
+6月1日，外交部发言人林剑主持例行记者会。
 
-近期，关于自动驾驶是否应该跳过L3的讨论再度引发关注。
+有记者就日防卫大臣在近日香格里拉对话会上的有关言论提问。
 
-何小鹏表示，这才是中国创业最好的地方，每一个技术路线都有人走，时间会证明谁走的对和错；另外，L3和L4最开始是一个技术分类，没有考虑商业化，最安全的就是从L2到L4，中间要积累足够的数据，把安全放到最重要的事情。
+林剑表示，日本军国主义曾在二战期间犯下滔天罪行，给亚洲邻国造成深重灾难。
 
-“市场百花齐放，我乐见不同的技术流派。
+日方近期一系列错误言行，威胁地区的和平稳定，国际社会必须高度警惕，共同防范和坚决遏制“新型军国主义”。
 
-L4最重要的是全无人驾驶，并且还能确保安全，这两点都要做到。
-
-确保安全但不能无人驾驶，都是L2。
-
-”他说。
-
-责任编辑：刘万里 SF014
+(总台央视记者 黄达 赵超逸)
 
 ## 相关推荐
 
-- 2026-06-29 17:03 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-29 17:11 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 17:04 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-29 17:02 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-29 17:00 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 17:06 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 16:55 - [花万元相亲对象是50元雇的演员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-29 17:12 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-29 16:55 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-29 17:12 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-29 17:09 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 17:02 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 17:14 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 17:01 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-29 17:23 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 17:07 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 17:00 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 16:55 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-29 17:15 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-29 17:10 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 17:07 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 16:59 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-29 17:04 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:12 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/18703.shtml)
-- 2026-06-29 17:02 - [爱很美味](https://www.share.minike.top/Article/details/65455404725.shtml)
-- 2026-06-29 16:50 - [千与千寻](https://www.share.kurohicncr.top/Article/details/57854.shtml)
-- 2026-06-29 17:08 - [恋与深空各大应用商店评分](https://www.share.minike.top/Article/details/08617988765.shtml)
-- 2026-06-29 16:56 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.kurohicncr.top/Article/details/92613927891.shtml)
-- 2026-06-29 16:49 - [曝歌手第七期帮唱阵容](http://www.blog.minike.top/Article/details/0808334.shtml)
-- 2026-06-29 17:01 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/724714739431.shtml)
-- 2026-06-29 17:03 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/88606658204.shtml)
-- 2026-06-29 17:14 - [法拉利被4个孩子当滑梯玩](http://www.share.kurohicncr.top/Article/details/85409.shtml)
-- 2026-06-29 17:07 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/668702857.shtml)
-- 2026-06-29 17:08 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/2341601.shtml)
-- 2026-06-29 17:05 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/072491502942.shtml)
-- 2026-06-29 17:02 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.kurohicncr.top/Article/details/70138.shtml)
-- 2026-06-29 17:14 - [森保一坚信日本能赢巴西](https://www.share.kurohicncr.top/Article/details/311896.shtml)
-- 2026-06-29 17:05 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/328021950.shtml)
+- 2026-06-29 17:16 - [小鹏MONAL03预售定档7月2日](https://www.share.minike.top/Article/details/09703060.shtml)
+- 2026-06-29 17:15 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/825600.shtml)
+- 2026-06-29 17:22 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/2929419965.shtml)
+- 2026-06-29 16:59 - [端午节加班工资应该怎么算](https://www.share.kurohicncr.top/Article/details/1919411672.shtml)
+- 2026-06-29 17:09 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.minike.top/Article/details/19232530363.shtml)
+- 2026-06-29 17:04 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/7253505.shtml)
+- 2026-06-29 17:13 - [AG 宫斗](http://www.share.minike.top/Article/details/5384358150.shtml)
+- 2026-06-29 16:59 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/305215.shtml)
+- 2026-06-29 17:00 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/78169880876.shtml)
+- 2026-06-29 17:11 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/32654386.shtml)
+- 2026-06-29 16:54 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/7616642.shtml)
+- 2026-06-29 17:19 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.minike.top/Article/details/175961.shtml)
+- 2026-06-29 16:59 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/277288.shtml)
+- 2026-06-29 17:03 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/315171.shtml)
+- 2026-06-29 17:16 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/1189216265.shtml)

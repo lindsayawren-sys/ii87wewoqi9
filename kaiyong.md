@@ -1,57 +1,60 @@
-# 能源化肥价格大涨 美国农民面临成本冲击
+# 英国央行行长贝利：并非所有人工智能相关股都会成为赢家
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-霍尔木兹海峡承载了全球石油运输总量的五分之一、全球海运化肥贸易约三分之一。美国约35%的化肥依赖进口，其中包括来自中东地区的磷肥和氮肥。这个播种季，受中东局势影响，美国国内能源、化肥的价格大幅上涨，令本已受特朗普政府关税政策和农产品价格低迷冲击的美国农民“雪上加霜”。 农场主 赫德里克：我认为最直接的影响就是化肥和燃料，我们使用的液态氮肥每吨涨了100到150美元，尿素、磷酸二
+英国央行行长安德鲁·贝利警告称，许多受人工智能热潮推高的股票从长远来看最终不会成为赢家。 贝利周二在英国上议院经济事务委员会的听证会上发表了讲话。 “例如，看看互联网领域，回顾一下互联网领域最初的先驱者们，你会发现他们未必是今天仍然活跃的名字。因此，把今天所有人都视为长期赢家，这与历史并不相符”。 关于通胀，贝利说：“通胀过高几乎完全是由海湾地区事件造成的，恐怕你们也知道，未来
 
 ## 正文
 
-霍尔木兹海峡承载了全球石油运输总量的五分之一、全球海运化肥贸易约三分之一。
+英国央行行长安德鲁·贝利警告称，许多受人工智能热潮推高的股票从长远来看最终不会成为赢家。
 
-美国约35%的化肥依赖进口，其中包括来自中东地区的磷肥和氮肥。
+贝利周二在英国上议院经济事务委员会的听证会上发表了讲话。
 
-这个播种季，受中东局势影响，美国国内能源、化肥的价格大幅上涨，令本已受特朗普政府关税政策和农产品价格低迷冲击的美国农民“雪上加霜”。
+“例如，看看互联网领域，回顾一下互联网领域最初的先驱者们，你会发现他们未必是今天仍然活跃的名字。
 
-农场主 赫德里克：我认为最直接的影响就是化肥和燃料，我们使用的液态氮肥每吨涨了100到150美元，尿素、磷酸二铵的价格也大幅上涨。
+因此，把今天所有人都视为长期赢家，这与历史并不相符”。
 
-在播种时节遇上这样的大幅涨价，确实让很多农民陷入了困境，我们也不例外。
+关于通胀，贝利说：“通胀过高几乎完全是由海湾地区事件造成的，恐怕你们也知道，未来很可能还会进一步出现”。
 
-多数美国农户本应提前采购本年度大部分所需化肥，但由于价格居高不下，今年许多农场主都是拖到最后一刻才下单。
+“这是又一次贸易条件冲击，换句话说，能源进口价格上涨了，在其他条件相同的情况下，这将推高通胀，使其高于我们预期的水平”。
 
-但是，等来等去，农场主没有等来局势好转的消息，却要面对供应商不断涨价的困境。
+“我们面临着增长和通胀之间的权衡。
 
-农场主 巴尔泰克：目前，我认为我们面临的最大难题是成本，化肥、种子、农药、农机配件价格都大幅飙升，感觉我们农民已经被逼到了墙角。
+说实话，这真的令人非常沮丧”。
 
 ## 相关推荐
 
-- 2026-06-29 17:02 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-29 17:11 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 16:50 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-29 16:58 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 17:04 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 17:11 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 17:16 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 17:04 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-29 17:15 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-29 16:49 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 16:48 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 16:57 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 17:05 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 17:12 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 17:00 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 16:59 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-29 17:11 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 17:22 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 17:22 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-29 17:22 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-29 16:54 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 17:00 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-29 17:10 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-29 16:58 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-29 17:01 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:11 - [天柱山回应网红打卡树枝被砍](https://www.share.minike.top/Article/details/073038.shtml)
-- 2026-06-29 17:13 - [唐艺昕告别浪姐千字长文](https://www.share.minike.top/Article/details/921894018991.shtml)
-- 2026-06-29 16:52 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/3433550902.shtml)
-- 2026-06-29 17:01 - [张雪机车杀向海外](http://www.blog.minike.top/Article/details/6865008574.shtml)
-- 2026-06-29 17:08 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/9647635856.shtml)
-- 2026-06-29 17:06 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/9846843.shtml)
-- 2026-06-29 17:04 - [妹妹的正确用法！](https://www.share.kurohicncr.top/Article/details/8202818.shtml)
-- 2026-06-29 17:08 - [网友飞机上偶遇肖战](https://www.share.minike.top/Article/details/9832686105.shtml)
-- 2026-06-29 16:49 - [朱必达辞去湖南人大常委会委员职务](https://www.share.minike.top/Article/details/936204482856.shtml)
-- 2026-06-29 17:02 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/97660758.shtml)
-- 2026-06-29 16:54 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/977151983429.shtml)
-- 2026-06-29 16:55 - [东方风云榜](https://www.blog.minike.top/Article/details/420919.shtml)
-- 2026-06-29 17:04 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/29017.shtml)
-- 2026-06-29 16:57 - [恋与深空发放补偿未得到玩家认可](https://www.share.kurohicncr.top/Article/details/369565662.shtml)
-- 2026-06-29 17:14 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/763017741.shtml)
+- 2026-06-29 17:22 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/246789358979.shtml)
+- 2026-06-29 17:23 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/159860.shtml)
+- 2026-06-29 17:16 - [毒液2](https://www.blog.minike.top/Article/details/8084277587.shtml)
+- 2026-06-29 17:03 - [每代父母都困在自己的时代里](http://www.blog.kurohicncr.top/Article/details/957322910.shtml)
+- 2026-06-29 16:55 - [苹果ultra2阔折叠已开模测试](http://www.blog.minike.top/Article/details/87727979606.shtml)
+- 2026-06-29 17:16 - [TI2026参赛战队出炉](https://www.share.kurohicncr.top/Article/details/76736600191.shtml)
+- 2026-06-29 17:06 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/83850899502.shtml)
+- 2026-06-29 17:15 - [天道](https://www.blog.kurohicncr.top/Article/details/79587.shtml)
+- 2026-06-29 17:09 - [男孩复读一年减重20斤涨分111分](https://www.share.kurohicncr.top/Article/details/982853.shtml)
+- 2026-06-29 17:21 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/28558.shtml)
+- 2026-06-29 16:57 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/179147.shtml)
+- 2026-06-29 17:19 - [江苏财政厅原一级调研员谢功成被查](https://www.share.minike.top/Article/details/165777153845.shtml)
+- 2026-06-29 16:54 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/8938074569.shtml)
+- 2026-06-29 17:02 - [挪威王储妃长子两次强奸获刑](http://www.blog.minike.top/Article/details/03183888.shtml)
+- 2026-06-29 17:12 - [中方将20家日本实体列入关注名单](https://www.blog.minike.top/Article/details/269313.shtml)

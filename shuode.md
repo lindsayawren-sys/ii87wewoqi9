@@ -1,58 +1,56 @@
-# 据报美伊将在巴基斯坦再次举行会谈 中方回应
+# 金山云早盘涨逾7% 公司卡位AI云基础设施赛道 一季度智算云占比首破五成
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-中新网北京4月15日电 (记者 黄钰钦 曾玥)中国外交部发言人郭嘉昆15日主持例行记者会。 有记者提问：据报道，美方表示与伊朗的会谈可能在未来两天内在巴基斯坦举行。中方对此有何评论，对下一轮的谈判持何看法？中方是否将继续发挥斡旋作用？ 郭嘉昆：中方欢迎一切有助于停火止战的努力，赞赏巴基斯坦促成美伊临时停火，并发挥了公正平衡的斡旋作用。当务之急是全力避免战端重启，保持来之不易的停
+金山云（03896）盘中涨超7%，截至发稿，股价上涨6.71%，报7.16港元，成交额5.08亿港元。 光大证券指出，金山云短期股价弹性主要来自AI算力订单与涨价预期的兑现，若头部客户新增训练或推理需求落地、GPU资源交付加快，公司营收有进一步上修可能。长期来看，公司卡位AI云基础设施赛道，受益于AI发展带来的持续算力需求扩容，预计伴随公司AI云收入占比的提升，公司有望从规模扩
 
 ## 正文
 
-中新网北京4月15日电 (记者 黄钰钦 曾玥)中国外交部发言人郭嘉昆15日主持例行记者会。
+金山云（03896）盘中涨超7%，截至发稿，股价上涨6.71%，报7.16港元，成交额5.08亿港元。
 
-有记者提问：据报道，美方表示与伊朗的会谈可能在未来两天内在巴基斯坦举行。
+光大证券指出，金山云短期股价弹性主要来自AI算力订单与涨价预期的兑现，若头部客户新增训练或推理需求落地、GPU资源交付加快，公司营收有进一步上修可能。
 
-中方对此有何评论，对下一轮的谈判持何看法？
+长期来看，公司卡位AI云基础设施赛道，受益于AI发展带来的持续算力需求扩容，预计伴随公司AI云收入占比的提升，公司有望从规模扩张转向估值中枢抬升。
 
-中方是否将继续发挥斡旋作用？
+金山云此前发布的2026年Q1财报显示，公司Q1营收27.0亿元，同比增长37.2%。
 
-郭嘉昆：中方欢迎一切有助于停火止战的努力，赞赏巴基斯坦促成美伊临时停火，并发挥了公正平衡的斡旋作用。
+其中，公有云实现收入20.0亿元，同比增长47.5%。
 
-当务之急是全力避免战端重启，保持来之不易的停火势头，坚持通过政治外交途径解决争端。
+智算云账单收入同比高增90.1%，占公有云收入比重达50.1%，首次过半。
 
-昨天上午习近平主席在会见阿联酋阿布扎比王储哈立德时，就维护和促进中东和平稳定提出四点主张，包括坚持和平共处原则、坚持国家主权原则、坚持国际法治原则、坚持统筹发展和安全。
+行业云实现收入7.0亿元，同比增长14.7%。
 
-这四点重要主张体现了中方促和止战、倡导对话化解分歧的一贯立场和积极努力。
+季度内，金山云还在互联网服务、通用模型、具身智能、智驾等领域实现业务突破，服务多家头部互联网企业的大模型Token业务。
 
 ## 相关推荐
 
-- 2026-06-29 17:06 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 17:07 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-29 16:59 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 16:56 - [王安宇尊重田曦薇的一切选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-29 17:11 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 17:07 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 16:52 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-29 17:11 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-29 16:51 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 17:07 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 17:13 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-29 17:08 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-29 17:00 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 17:04 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 17:05 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-29 17:05 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 17:23 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 16:54 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-29 16:58 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 16:58 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-29 17:07 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 17:07 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:07 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/26341.shtml)
-- 2026-06-29 17:02 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/79213473.shtml)
-- 2026-06-29 17:16 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/734938516423.shtml)
-- 2026-06-29 17:07 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.minike.top/Article/details/471493.shtml)
-- 2026-06-29 17:02 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/25994.shtml)
-- 2026-06-29 17:08 - [欧洲人驾车200公里抢购中国空调](http://www.share.minike.top/Article/details/026193065331.shtml)
-- 2026-06-29 17:00 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/59225984.shtml)
-- 2026-06-29 16:50 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/829956954.shtml)
-- 2026-06-29 16:53 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/295510171922.shtml)
-- 2026-06-29 16:58 - [1个视频看懂2026志愿填报新专业](https://www.share.kurohicncr.top/Article/details/36254.shtml)
-- 2026-06-29 17:12 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/66296.shtml)
-- 2026-06-29 17:02 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.kurohicncr.top/Article/details/658305.shtml)
-- 2026-06-29 17:01 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/005856805.shtml)
-- 2026-06-29 16:56 - [五粮液回应宜宾地震影响](https://www.blog.minike.top/Article/details/5189421.shtml)
-- 2026-06-29 17:09 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/586886380746.shtml)
+- 2026-06-29 17:01 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/61111.shtml)
+- 2026-06-29 16:54 - [范志毅看好日本淘汰巴西](https://www.blog.kurohicncr.top/Article/details/578396724656.shtml)
+- 2026-06-29 17:07 - [全国第三艘万车级汽车运输船交付](https://www.blog.kurohicncr.top/Article/details/843506171.shtml)
+- 2026-06-29 16:55 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/59318.shtml)
+- 2026-06-29 17:08 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/5499209.shtml)
+- 2026-06-29 17:17 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/09973364.shtml)
+- 2026-06-29 17:13 - [新能源车能当外接空调用吗](http://www.share.kurohicncr.top/Article/details/75708570449.shtml)
+- 2026-06-29 17:05 - [韩国国脚无缘上亿韩元奖金](https://www.blog.minike.top/Article/details/49520.shtml)
+- 2026-06-29 17:03 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.minike.top/Article/details/696897997179.shtml)
+- 2026-06-29 17:15 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/584346.shtml)
+- 2026-06-29 17:20 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/484082698608.shtml)
+- 2026-06-29 17:13 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/28470185185.shtml)
+- 2026-06-29 16:57 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/90485745.shtml)
+- 2026-06-29 16:54 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/1702653270.shtml)
+- 2026-06-29 17:08 - [极限挑战第一季](http://www.share.minike.top/Article/details/86436368.shtml)

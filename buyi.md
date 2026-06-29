@@ -1,59 +1,56 @@
-# IMF：建议各国谨慎调整财政政策以应对中东战事冲击
+# 日本麻疹病例今年已超500例 达去年同期近4倍
 
-> 更新时间：2026-06-29 17:18:02 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-国际货币基金组织（IMF）15日发布最新一期《财政监测报告》指出，在许多国家公共财政紧张的背景下，建议各国政府谨慎调整财政政策，在确保维持公共财政基本运转的前提下向公众提供帮助，以应对中东战事给全球经济带来的冲击。 报告说，全球公共债务情况2025年未见实质性改善，而在此基础上，中东战事成为新的财政压力来源。战事的财政影响高度不对称，能源进口国特别是低收入发展中国家面临的压力最
+中新社东京6月2日电 (记者 朱晨曦)日本国立健康危机管理研究机构2日发布的数据显示，今年以来日本累计报告麻疹病例达511例，达去年同时期的近4倍。 数据显示，截至5月24日的一周，日本全国医疗机构共报告麻疹病例11例。东京都今年已累计报告麻疹病例253例，占全国病例数的近一半。过去10年中，日本报告麻疹病例最多的年份为2019年，达744例。 日本国立健康危机管理研究机构说，
 
 ## 正文
 
-国际货币基金组织（IMF）15日发布最新一期《财政监测报告》指出，在许多国家公共财政紧张的背景下，建议各国政府谨慎调整财政政策，在确保维持公共财政基本运转的前提下向公众提供帮助，以应对中东战事给全球经济带来的冲击。
+中新社东京6月2日电 (记者 朱晨曦)日本国立健康危机管理研究机构2日发布的数据显示，今年以来日本累计报告麻疹病例达511例，达去年同时期的近4倍。
 
-报告说，全球公共债务情况2025年未见实质性改善，而在此基础上，中东战事成为新的财政压力来源。
+数据显示，截至5月24日的一周，日本全国医疗机构共报告麻疹病例11例。
 
-战事的财政影响高度不对称，能源进口国特别是低收入发展中国家面临的压力最大。
+东京都今年已累计报告麻疹病例253例，占全国病例数的近一半。
 
-报告认为，鉴于财政缓冲空间变小，应对能源成本上升的政策应严格校准，有针对性地帮助最易受到价格上涨冲击且最难以消化这些冲击的群体和企业，并与控制通胀的货币政策保持一致。
+过去10年中，日本报告麻疹病例最多的年份为2019年，达744例。
 
-报告建议，各国财政政策应更具前瞻性、结构更稳固。
+日本国立健康危机管理研究机构说，麻疹传染力极强，没有免疫的人如果暴露于病毒，超过90%会发病，病情严重者会出现肺炎、脑炎等症状。
 
-报告还说，全球公共债务占全球国内生产总值（GDP）的比例在2025年升至接近94%，预计将在2029年达到100%。
+世界卫生组织2015年认定日本已消灭麻疹，即至少有3年未发现本土的麻疹病毒毒株。
 
-中东战事造成食品和能源价格上涨、金融条件收紧、经济活动下降和防务支出增加，可能令政府财政状况进一步承压。
+但2023年以来，全球范围麻疹病例报告数持续增加，病毒为海外来源的风险不断升高。
 
-责任编辑：刘万里 SF014
+接种两剂疫苗是预防感染麻疹和发展成重症的最有效方法。
 
 ## 相关推荐
 
-- 2026-06-29 17:14 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 17:01 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 16:54 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 17:02 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-29 17:16 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-29 17:07 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 16:56 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-29 17:14 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-29 17:00 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-29 17:12 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 17:07 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 16:52 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 17:13 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-29 17:17 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 17:16 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 16:55 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 17:20 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-29 17:00 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 16:55 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-29 17:20 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-29 16:57 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 17:20 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 17:03 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:02 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/5535067.shtml)
-- 2026-06-29 16:56 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/255971881023.shtml)
-- 2026-06-29 16:49 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.minike.top/Article/details/741902777866.shtml)
-- 2026-06-29 17:12 - [苹果ultra2阔折叠已开模测试](http://www.blog.kurohicncr.top/Article/details/702678341.shtml)
-- 2026-06-29 17:13 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/61005251.shtml)
-- 2026-06-29 17:00 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/62186.shtml)
-- 2026-06-29 16:55 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/5555360.shtml)
-- 2026-06-29 17:16 - [普京介绍前线战事](http://www.blog.minike.top/Article/details/72220.shtml)
-- 2026-06-29 16:53 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/239182771163.shtml)
-- 2026-06-29 17:16 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/40273770741.shtml)
-- 2026-06-29 16:50 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.blog.kurohicncr.top/Article/details/00287752.shtml)
-- 2026-06-29 17:07 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/172027625.shtml)
-- 2026-06-29 16:54 - [警方回应东鹏饮料董事长不喝东鹏](https://www.share.kurohicncr.top/Article/details/950807748206.shtml)
-- 2026-06-29 17:00 - [妹妹的正确用法！](http://www.share.kurohicncr.top/Article/details/63822729378.shtml)
-- 2026-06-29 16:57 - [一家三口吃溪石斑鱼中毒](http://www.blog.minike.top/Article/details/3177157752.shtml)
+- 2026-06-29 17:04 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.kurohicncr.top/Article/details/777622.shtml)
+- 2026-06-29 17:19 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.kurohicncr.top/Article/details/82551150678.shtml)
+- 2026-06-29 17:02 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/766498.shtml)
+- 2026-06-29 16:55 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/1995057.shtml)
+- 2026-06-29 17:05 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.share.minike.top/Article/details/522807639856.shtml)
+- 2026-06-29 17:19 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/116031.shtml)
+- 2026-06-29 17:22 - [刘扬任湖南省副省长](https://www.blog.kurohicncr.top/Article/details/57892.shtml)
+- 2026-06-29 17:20 - [普京介绍前线战事](http://www.share.kurohicncr.top/Article/details/397568062127.shtml)
+- 2026-06-29 17:02 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/707251172298.shtml)
+- 2026-06-29 16:55 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/97292.shtml)
+- 2026-06-29 17:18 - [一见倾心](http://www.blog.minike.top/Article/details/518605547.shtml)
+- 2026-06-29 17:15 - [艾莎唱出了多少牛马的心声🥹](http://www.share.kurohicncr.top/Article/details/39065.shtml)
+- 2026-06-29 16:54 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/43833099.shtml)
+- 2026-06-29 16:55 - [夏天被这些虫子咬了可能致命](http://www.blog.kurohicncr.top/Article/details/673485613327.shtml)
+- 2026-06-29 17:19 - [杨紫下沉市场口碑](http://www.blog.minike.top/Article/details/3722754275.shtml)

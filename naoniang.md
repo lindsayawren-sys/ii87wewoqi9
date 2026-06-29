@@ -1,56 +1,59 @@
-# 人民锐评：多方协同发力扫除财经“黑嘴”
+# 腾讯云副总裁王义成：数据库正在迈向AI原生的3.0时代
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-一条“A股交易时间即将大调整”的消息让许多散户在恐慌中做出“清仓”等错误决策；在没有任何质检报告、权威事实依据的情况下，编造某企业商品“原材料以次充好”“存在严重安全隐患”等虚假信息；瞄准深陷债务危机、病急乱投医的负债者推广所谓“帮你债务优化，停止催收”的“成功案例”……不同场景，一般乱象，映射出当前财经类自媒体账号存在失序的状况。 从凭空捏造政策谣言，到恶意抹黑企业敲诈勒索，
+中证报中证网讯(记者黄一灵)近日，腾讯云宣布旗下数据库产品体系面向Agent场景全面升级，为Agent应用、AI编程、智能运维三大场景提供原生的AI数据库能力。目前，相关能力已在腾讯内部元宝等多款AI产品中规模应用，并陆续向行业客户开放。据介绍，本次升级共带来数据库分支、海量多租户、多模混合检索、开放存储架构等十余项技术创新，既覆盖腾讯云TDSQL自研产品家族的全面升级，也支撑
 
 ## 正文
 
-一条“A股交易时间即将大调整”的消息让许多散户在恐慌中做出“清仓”等错误决策；在没有任何质检报告、权威事实依据的情况下，编造某企业商品“原材料以次充好”“存在严重安全隐患”等虚假信息；瞄准深陷债务危机、病急乱投医的负债者推广所谓“帮你债务优化，停止催收”的“成功案例”……不同场景，一般乱象，映射出当前财经类自媒体账号存在失序的状况。
+中证报中证网讯(记者黄一灵)近日，腾讯云宣布旗下数据库产品体系面向Agent场景全面升级，为Agent应用、AI编程、智能运维三大场景提供原生的AI数据库能力。
 
-从凭空捏造政策谣言，到恶意抹黑企业敲诈勒索，再到为黑灰产等违法行为引流，财经类自媒体账号种种乱象频现，已成为扰乱经济秩序、影响企业和市场健康发展的“祸源”之一。
+目前，相关能力已在腾讯内部元宝等多款AI产品中规模应用，并陆续向行业客户开放。
 
-财经领域专业性强，和老百姓的“钱袋子”直接挂钩，也与企业经营息息相关，信息的真实性和准确性至关重要，一旦出现失真、虚假信息并被广泛传播，往往会给相关企业和个人带来较大损失。
+据介绍，本次升级共带来数据库分支、海量多租户、多模混合检索、开放存储架构等十余项技术创新，既覆盖腾讯云TDSQL自研产品家族的全面升级，也支撑全新发布的AgentMemory、DatabaseClaw两款Agent原生产品。
 
-比如，一句凭空捏造的政策传言，可能会误导股民做出错误投资决策；一段抹黑企业的谣言，可能导致企业经营受困，信誉受损；而为黑灰产引流行为，更可能将投资者诱入精心设计的陷阱。
+在Agent时代，传统数据库正在面临全新挑战：一边是上下文记忆、知识库、图片视频等多模态数据快速膨胀；另一边，AI编程又让数据库开始像开发环境一样，被频繁创建、回滚与协同使用。
 
-健康的市场氛围和良好的营商环境，离不开清朗的网络空间和规范的信息传播秩序。
+腾讯云副总裁王义成表示，如今，数据库正在迈向AI原生的3.0时代，腾讯云将以Agent为新用户，重新设计数据库产品与能力体系。
 
-对肆意妄为的财经“黑嘴”，必须严肃整治，消除其在虚拟世界的生存空间。
+值得注意的是，日前腾讯云对外发布面向全球开发者的Agent原生基础设施。
 
-整治财经“黑嘴”乱象，守护群众的合法权益，需要监管部门、平台、群众多方协同发力。
-
-首先，要严把政策关口，强化源头管控。
+随着数据库产品体系完成升级，腾讯云围绕运行、存储、记忆、安全与数据底座的Agent原生能力版图进一步完善。
 
 ## 相关推荐
 
-- 2026-06-29 16:57 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-29 16:49 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 17:13 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-29 17:11 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-29 16:49 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 16:54 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-29 16:56 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 16:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-29 17:05 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 17:05 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 17:07 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 17:12 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 17:13 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-29 17:18 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 17:21 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 17:06 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 17:22 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 17:19 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-29 17:10 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-29 16:58 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 17:20 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 17:14 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 16:55 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 17:20 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-29 17:15 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:02 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/3308818.shtml)
-- 2026-06-29 16:56 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/99186.shtml)
-- 2026-06-29 17:10 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/92801360.shtml)
-- 2026-06-29 16:57 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/1117669280.shtml)
-- 2026-06-29 16:48 - [夏天被这些虫子咬了可能致命](http://www.blog.minike.top/Article/details/52448565.shtml)
-- 2026-06-29 16:56 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.blog.kurohicncr.top/Article/details/64545675.shtml)
-- 2026-06-29 17:08 - [男孩复读一年减重20斤涨分111分](https://www.blog.minike.top/Article/details/622020.shtml)
-- 2026-06-29 16:57 - [音乐人屠颖离世家属追责涉事酒店](https://www.share.minike.top/Article/details/808317880375.shtml)
-- 2026-06-29 17:14 - [盛秋平任南昌市委书记](http://www.share.minike.top/Article/details/5741446.shtml)
-- 2026-06-29 17:01 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/59380126318.shtml)
-- 2026-06-29 17:07 - [人形机器人](https://www.share.minike.top/Article/details/82552315.shtml)
-- 2026-06-29 16:56 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/881921611922.shtml)
-- 2026-06-29 17:05 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/42432.shtml)
-- 2026-06-29 17:08 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/11883913472.shtml)
-- 2026-06-29 17:11 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/061228726788.shtml)
+- 2026-06-29 17:17 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/37687566391.shtml)
+- 2026-06-29 17:17 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/38174.shtml)
+- 2026-06-29 17:15 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/386442486.shtml)
+- 2026-06-29 17:14 - [盛秋平任南昌市委书记](https://www.blog.minike.top/Article/details/9129373.shtml)
+- 2026-06-29 17:03 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/27658448.shtml)
+- 2026-06-29 16:57 - [东方风云榜红毯](http://www.share.minike.top/Article/details/81992834296.shtml)
+- 2026-06-29 17:13 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/895668352220.shtml)
+- 2026-06-29 17:17 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/85320536.shtml)
+- 2026-06-29 16:54 - [叠纸](https://www.blog.kurohicncr.top/Article/details/3553155825.shtml)
+- 2026-06-29 17:03 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/916554439.shtml)
+- 2026-06-29 17:08 - [1个视频看懂2026志愿填报新专业](http://www.share.kurohicncr.top/Article/details/46646.shtml)
+- 2026-06-29 17:08 - [日本偶像龟梨和也宣布结婚](http://www.blog.minike.top/Article/details/608926.shtml)
+- 2026-06-29 16:55 - [南昌市委书记调整](http://www.share.kurohicncr.top/Article/details/825877211648.shtml)
+- 2026-06-29 17:06 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/426205.shtml)
+- 2026-06-29 17:00 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/2962574916.shtml)

@@ -1,59 +1,58 @@
-# 到海南自贸港修飞机有多火爆？喷漆订单已排满一年
+# 梨汁“刷医保”、剪网线对抗检查，医保局曝光多起药店骗保案例
 
-> 更新时间：2026-06-29 17:18:02 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月15日 08:51 来源：中国新闻网 “飞机喷漆业务订单已排满一年。”4月14日，记者走进海南临空航空科技研发基地，这里的相关负责人介绍，海南临空产业的快速发展，得益于自贸港开放政策的持续加持。航材和自用进口设备免关税、第七航权开放等政策，使飞机维修产业的竞争优势日益凸显。过去四年，海口美兰机场的飞机维修产业规模从80亩扩大至500亩，境外维修业务在2
+21世纪经济报道记者 闫硕 上周，国家医保局接连发布两批定点零售药店违法违规使用医保基金典型案例，共计10起案件，集中曝光了梨汁“刷医保”、药店老板变身“药贩子”、药店沦为诊所“进货点”等多种违法违规乱象。 这些案件中的涉案药店主要通过倒卖“回流药”、空刷、串换等方式骗取或套取医保基金。而在检查组检查过程中，部分药店还存在剪网线、装晕倒等恶意对抗检查的行为。在这些典型案例中，国
 
 ## 正文
 
-发布时间：2026年04月15日 08:51 来源：中国新闻网 “飞机喷漆业务订单已排满一年。
+21世纪经济报道记者 闫硕 上周，国家医保局接连发布两批定点零售药店违法违规使用医保基金典型案例，共计10起案件，集中曝光了梨汁“刷医保”、药店老板变身“药贩子”、药店沦为诊所“进货点”等多种违法违规乱象。
 
-”4月14日，记者走进海南临空航空科技研发基地，这里的相关负责人介绍，海南临空产业的快速发展，得益于自贸港开放政策的持续加持。
+这些案件中的涉案药店主要通过倒卖“回流药”、空刷、串换等方式骗取或套取医保基金。
 
-航材和自用进口设备免关税、第七航权开放等政策，使飞机维修产业的竞争优势日益凸显。
+而在检查组检查过程中，部分药店还存在剪网线、装晕倒等恶意对抗检查的行为。
 
-过去四年，海口美兰机场的飞机维修产业规模从80亩扩大至500亩，境外维修业务在2023年至2025年间增长了9倍。
+在这些典型案例中，国家医保局还同步配发了现场执法视频，使这些违法违规行为更直观地暴露在公众面前，警示教育效果显著增强。
 
-目前飞机维修客户覆盖泰国、越南、菲律宾等东南亚国家及中东市场，飞机喷漆业务订单火爆，大型机位满负荷运转。
+相关案例基本都来自5月14日正式启动的全国定点零售药店违法违规使用医保基金专项飞行检查。
 
-截至目前，海南自贸港一站式飞机维修产业基地已累计完成约2800架次的飞机维修，境外业务覆盖20多个国家和地区。
+仅半个多月时间，国家医保局就密集发布两批典型案例进行警示教育，彰显了对打击欺诈骗保行为的零容忍态度。
 
-(林士杰 陈英清） 责任编辑：【周驰】
+与此同时，《医疗保障基金监督检查五年行动计划（2026-2030年）》正式印发，定点药店医保个人账户支付白名单制度即将落地，多维度、全链条的医保基金监管体系加速构建，医药流通行业正迎来史上最严格的合规监管时代。
+
+专项飞检亮剑 5月14日，2026年度国家医保基金飞行检查湖南现场启动会暨警示教育会在长沙召开，标志着年度飞检工作正式启动。
 
 ## 相关推荐
 
-- 2026-06-29 16:59 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 17:00 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-29 16:54 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 17:08 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-29 17:17 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 17:07 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-29 17:00 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-29 17:04 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 16:55 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 17:08 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 17:17 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-29 17:07 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-29 17:04 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 17:16 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-29 17:08 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-29 17:09 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 17:13 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 17:16 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-29 17:00 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 17:04 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-29 17:15 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 17:00 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-29 16:58 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-29 17:18 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 17:01 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-29 17:09 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 17:05 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:05 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/43933.shtml)
-- 2026-06-29 17:16 - [王俊凯命名方式](https://www.blog.kurohicncr.top/Article/details/66098.shtml)
-- 2026-06-29 16:53 - [江苏财政厅原一级调研员谢功成被查](https://www.share.kurohicncr.top/Article/details/1064330.shtml)
-- 2026-06-29 16:52 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.kurohicncr.top/Article/details/670749.shtml)
-- 2026-06-29 17:05 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/618619172.shtml)
-- 2026-06-29 17:10 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/69479924.shtml)
-- 2026-06-29 17:12 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/559488.shtml)
-- 2026-06-29 16:49 - [美议员呼吁断供以色列政府](http://www.share.kurohicncr.top/Article/details/99573.shtml)
-- 2026-06-29 17:05 - [小众羞耻点是吃麻辣烫](https://www.share.kurohicncr.top/Article/details/44901185388.shtml)
-- 2026-06-29 16:57 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/26088200864.shtml)
-- 2026-06-29 17:06 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/440427050913.shtml)
-- 2026-06-29 16:53 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.kurohicncr.top/Article/details/503830453.shtml)
-- 2026-06-29 16:48 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.blog.minike.top/Article/details/584763999.shtml)
-- 2026-06-29 17:16 - [上海一小区水池内出现一条鳄鱼](https://www.share.kurohicncr.top/Article/details/56709616.shtml)
-- 2026-06-29 17:17 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/607441017.shtml)
+- 2026-06-29 17:15 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.kurohicncr.top/Article/details/8672424017.shtml)
+- 2026-06-29 17:01 - [成都至北京将新增动卧](http://www.blog.minike.top/Article/details/39441319.shtml)
+- 2026-06-29 16:55 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/6086934301.shtml)
+- 2026-06-29 17:21 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/2481435.shtml)
+- 2026-06-29 17:10 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/667394734663.shtml)
+- 2026-06-29 16:54 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/619631.shtml)
+- 2026-06-29 17:22 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/41661830.shtml)
+- 2026-06-29 17:17 - [欧洲多国高温突破40摄氏度](https://www.share.kurohicncr.top/Article/details/42379.shtml)
+- 2026-06-29 16:54 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/5272875.shtml)
+- 2026-06-29 17:18 - [男子网购乖乖水迷晕女子后猥亵](http://www.share.minike.top/Article/details/89096251013.shtml)
+- 2026-06-29 17:03 - [森保一坚信日本能赢巴西](http://www.share.minike.top/Article/details/3588015.shtml)
+- 2026-06-29 17:02 - [博主：AI泡沫必须破灭](http://www.blog.minike.top/Article/details/4606177.shtml)
+- 2026-06-29 17:10 - [22岁民警拦截违法车辆被撞牺牲](http://www.share.minike.top/Article/details/13017.shtml)
+- 2026-06-29 17:17 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/19683.shtml)
+- 2026-06-29 17:02 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/559529612885.shtml)

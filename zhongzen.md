@@ -1,57 +1,61 @@
-# 欧洲极右翼政党将特朗普视为政治包袱 重新审视与其关系紧密的代价
+# 斑块逆转并非梦 中国原创疗法或改变心血管疾病治疗策略
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-欧尔班·维克多在上周日的匈牙利选举中惨败后，欧洲极右翼政党正重新评估，被视为与美国总统特朗普政府的关系过于紧密所要付出的政治代价。 欧尔班及其鼓吹文化分裂、试图遏制移民的非自由主义威权路线，一直是全球民族主义团体，尤其是美国相关势力的标杆。选举前几天，美国副总统JD·万斯曾与欧尔班一同拉票，特朗普也通过电话连线集会表示支持。 特朗普于2024年再次当选后，欧洲极右翼团体一直试图
+中新网上海6月1日电 (记者 陈静)目前，动脉粥样硬化性心血管疾病(ASCVD)仍是全球民众死亡和致残的首要原因。如果能够实现斑块逆转，心血管疾病治疗就会有新的突破。记者1日采访获悉，正在开展的针对中国原始创新疗法的全球多中心研究，标志着心血管疾病治疗将从控制危险因素迈向精准病因干预、疾病逆转的新阶段。 来自英国爱丁堡大学的学者基思·福克斯(Keith A.A. Fox)教授认
 
 ## 正文
 
-欧尔班·维克多在上周日的匈牙利选举中惨败后，欧洲极右翼政党正重新评估，被视为与美国总统特朗普政府的关系过于紧密所要付出的政治代价。
+中新网上海6月1日电 (记者 陈静)目前，动脉粥样硬化性心血管疾病(ASCVD)仍是全球民众死亡和致残的首要原因。
 
-欧尔班及其鼓吹文化分裂、试图遏制移民的非自由主义威权路线，一直是全球民族主义团体，尤其是美国相关势力的标杆。
+如果能够实现斑块逆转，心血管疾病治疗就会有新的突破。
 
-选举前几天，美国副总统JD·万斯曾与欧尔班一同拉票，特朗普也通过电话连线集会表示支持。
+记者1日采访获悉，正在开展的针对中国原始创新疗法的全球多中心研究，标志着心血管疾病治疗将从控制危险因素迈向精准病因干预、疾病逆转的新阶段。
 
-特朗普于2024年再次当选后，欧洲极右翼团体一直试图借势，但在一些地区进展并不顺利。
+来自英国爱丁堡大学的学者基思·福克斯(Keith A.A. Fox)教授认为，在心血管疾病治疗上，尽管临床上已有降脂、降压等多种干预手段，但这些就好比“常规的绿皮列车”，医学界亟需能够精准靶向富含脂质的易损斑块的“高速列车”，这是降低心血管事件发生概率的关键一步。
 
-欧尔班此次败选之前，荷兰主要民族主义政党已于去年遭遇惨败，迫使反移民强硬派Geert Wilders退出执政联盟；与此同时，法国明年将举行关键总统选举，而极右翼目前已在民调中领先。
+备受全球心血管医学界关注的“PURIFY-TIMI81”YN001项目(下称：YN001项目)2b期国际多中心临床研究中国区研究者会议日前在沪举行。
 
-在欧洲民族主义运动处于如此关键的时刻，各党派却难以就如何对待特朗普政府形成明确的政策。
+这项针对中国原始创新疗法的全球多中心研究计划在中国、美国、澳大利亚、加拿大四国开展，中国将承担70%的入组任务。
 
-Louis Aliot在采访中表示：“每个人都必须捍卫本国利益，而我们的利益并不总是与美国一致。
+基思·福克斯教授认为，YN001项目正是医学界多年寻求的破局关键。
 
-”他还说，强调彼此差异“同样重要”，指的是他认为一些并不能引起欧洲选民共鸣的议程。
+作为该研究中国区牵头人，中国科学院院士、复旦大学附属中山医院专家葛均波教授指出，传统介入治疗主要解决局部狭窄问题，而YN001如同装上了“精准制导的导弹”，有望从疾病根源入手，实现对斑块的精准靶向干预。
 
 ## 相关推荐
 
-- 2026-06-29 17:04 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-29 16:56 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 16:49 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 16:54 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 17:09 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 17:05 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-29 16:53 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-29 17:15 - [东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-29 16:48 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-29 16:49 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-29 17:01 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 17:23 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-29 17:04 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 17:09 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-29 16:56 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 16:56 - [网友飞机上偶遇肖战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 17:05 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 17:08 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-29 17:11 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 17:14 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 16:59 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-29 17:08 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 16:57 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-29 17:19 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-29 17:09 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-29 16:55 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:55 - [葛军谈AI时代理科生出路](https://www.blog.minike.top/Article/details/74880690.shtml)
-- 2026-06-29 16:54 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.blog.kurohicncr.top/Article/details/16393965620.shtml)
-- 2026-06-29 17:11 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/035965.shtml)
-- 2026-06-29 16:51 - [重度抑郁女孩没钱去做心理咨询](http://www.share.minike.top/Article/details/07285.shtml)
-- 2026-06-29 17:09 - [葫芦岛居民楼爆炸致3失联8伤](http://www.blog.kurohicncr.top/Article/details/13671.shtml)
-- 2026-06-29 17:16 - [首尔商铺禁止洪明甫入内](http://www.blog.minike.top/Article/details/0872748.shtml)
-- 2026-06-29 17:06 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.kurohicncr.top/Article/details/147333422.shtml)
-- 2026-06-29 17:12 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/4680143.shtml)
-- 2026-06-29 17:03 - [大疆7月15日起涨价？公司回应](https://www.share.kurohicncr.top/Article/details/193313.shtml)
-- 2026-06-29 16:49 - [杨紫下沉市场口碑](http://www.share.kurohicncr.top/Article/details/65178879.shtml)
-- 2026-06-29 16:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/406287.shtml)
-- 2026-06-29 17:17 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.kurohicncr.top/Article/details/13433.shtml)
-- 2026-06-29 16:52 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/81590.shtml)
-- 2026-06-29 16:54 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.minike.top/Article/details/7086029.shtml)
-- 2026-06-29 17:01 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/505691.shtml)
+- 2026-06-29 17:01 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/439038355916.shtml)
+- 2026-06-29 16:55 - [新能源车能当外接空调用吗](http://www.share.minike.top/Article/details/375569516.shtml)
+- 2026-06-29 16:54 - [三轮车过马路 车上木材砸中路边男子](https://www.share.kurohicncr.top/Article/details/9167805.shtml)
+- 2026-06-29 17:18 - [疑似吴建豪老婆正脸照](https://www.share.minike.top/Article/details/20870.shtml)
+- 2026-06-29 17:13 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/6426124.shtml)
+- 2026-06-29 17:08 - [重度抑郁女孩没钱去做心理咨询](http://www.blog.minike.top/Article/details/501551.shtml)
+- 2026-06-29 17:19 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/4342101.shtml)
+- 2026-06-29 17:15 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/79642299.shtml)
+- 2026-06-29 17:23 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/3075387.shtml)
+- 2026-06-29 17:02 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/6056259.shtml)
+- 2026-06-29 17:19 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/9349598752.shtml)
+- 2026-06-29 17:16 - [港股爆发 美团百度阿里等集体大涨](http://www.share.minike.top/Article/details/46798.shtml)
+- 2026-06-29 17:12 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/682107928344.shtml)
+- 2026-06-29 17:20 - [未成年少女长期吸毒导致卧床不起](http://www.share.kurohicncr.top/Article/details/415484015.shtml)
+- 2026-06-29 17:06 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/26066.shtml)

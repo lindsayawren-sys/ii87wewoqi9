@@ -1,56 +1,60 @@
-# 西安海关织密国门生物安全网 千余件截获标本入藏秦岭博物馆
+# 宁夏新型储能装机突破1000万千瓦
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-中新网陕西商洛4月15日电 (记者 张一辰)14日，由西安海关、陕西省林业局主办，商洛市人民政府、秦岭博物馆协办的“4·15”国门生物安全主题宣传暨法治教育基地揭牌仪式，在商洛市秦岭博物馆举行。活动现场完成千余件口岸截获标本移交，“西安海关国门生物安全法治教育基地”亦正式落户秦岭腹地，为守护秦岭生态安全、筑牢国门生物安全屏障搭建常态化宣教平台。 商洛作为陕西省唯一全域处于秦岭腹
+中新社银川6月1日电 (记者 于晶)记者6月1日从国网宁夏电力有限公司获悉，宁夏新型储能装机规模突破1000万千瓦大关，标志着宁夏正式迈入千万千瓦级储能大省行列，在储能赛道上跻身中国第一方阵。 作为中国首个新能源综合示范区，宁夏新能源发展势头强劲。“十四五”以来，宁夏新增新能源装机3158.3万千瓦，截至2025年底总装机达5732万千瓦，装机占比已达65.5%，新能源成为宁夏
 
 ## 正文
 
-中新网陕西商洛4月15日电 (记者 张一辰)14日，由西安海关、陕西省林业局主办，商洛市人民政府、秦岭博物馆协办的“4·15”国门生物安全主题宣传暨法治教育基地揭牌仪式，在商洛市秦岭博物馆举行。
+中新社银川6月1日电 (记者 于晶)记者6月1日从国网宁夏电力有限公司获悉，宁夏新型储能装机规模突破1000万千瓦大关，标志着宁夏正式迈入千万千瓦级储能大省行列，在储能赛道上跻身中国第一方阵。
 
-活动现场完成千余件口岸截获标本移交，“西安海关国门生物安全法治教育基地”亦正式落户秦岭腹地，为守护秦岭生态安全、筑牢国门生物安全屏障搭建常态化宣教平台。
+作为中国首个新能源综合示范区，宁夏新能源发展势头强劲。
 
-商洛作为陕西省唯一全域处于秦岭腹地的地级市，地跨长江、黄河两大流域，是南水北调中线工程重要水源涵养区，森林覆盖率高、生态禀赋优异，肩负着守护秦岭生态、保障“一泓清水永续北上”的重大使命。
+“十四五”以来，宁夏新增新能源装机3158.3万千瓦，截至2025年底总装机达5732万千瓦，装机占比已达65.5%，新能源成为宁夏第一大电源。
 
-作为国内首座全面展示秦岭自然生态与历史人文的综合性博物馆，位于商洛市的秦岭博物馆系统呈现秦岭生态禀赋、保护历程与建设成效，是开展生态科普、法治宣传的重要阵地。
+面对大规模并网带来的消纳挑战，宁夏将储能产业作为构建新型电力系统、破解消纳难题、保障电网安全的核心抓手。
 
-仪式现场，西安海关向秦岭博物馆移交了近年来在口岸截获的外来“异宠”、濒危动植物及其制品、检疫性有害生物等各类标本共计1158件，双方代表现场完成标本移交与捐赠证书互换。
+宁夏先后出台储能专项发展方案，创新推行容量电价保底等政策，稳定市场预期。
 
-这批珍贵标本将纳入秦岭博物馆常设展览体系，与馆内秦岭生态展陈有机融合，持续发挥生态科研、科普宣教的重要价值。
+电网企业聚焦新能源富集片区、电网关键节点和负荷中心精准布点，推动储能从试点示范迈向规模化、集群化发展新阶段。
 
-同时，“西安海关国门生物安全法治教育基地”也于此间揭牌，标志着西安海关在秦岭核心腹地打造的国门生物安全常态化宣教平台正式落地，为当地常态化开展生物安全法、国境卫生检疫法、进出境动植物检疫法等宣传科普教育搭建了优质载体。
+宁夏通过常态化开展并网技术校验和安全隐患排查，持续优化源网荷储协同机制。
 
-据统计，2023年以来，西安海关共截获四棱大戟、歌神闪蝶等各类外来物种89种93种次，四纹豆象、玉米矮化叶病毒、朱顶红短体线虫、芒果果肉象甲等有害生物157种1649种次，在非贸渠道截获的各种活性动植物249种290种次。
+2026年1月至5月，储能应用使新能源利用率提升约5个百分点，充放电效率和资源盘活效能稳居西北前列。
 
 ## 相关推荐
 
-- 2026-06-29 16:49 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 17:14 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 16:48 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-29 17:12 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 16:50 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 17:03 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 17:04 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 16:57 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-29 16:55 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-29 17:06 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 16:54 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 16:59 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 16:57 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 17:23 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 17:01 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 16:58 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 17:06 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 17:02 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-29 17:16 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-29 17:09 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 17:10 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-29 16:59 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 16:56 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 17:11 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:59 - [急先锋](http://www.share.minike.top/Article/details/52549.shtml)
-- 2026-06-29 17:11 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.kurohicncr.top/Article/details/79125668759.shtml)
-- 2026-06-29 17:01 - [曝歌手第七期帮唱阵容](https://www.blog.kurohicncr.top/Article/details/05479.shtml)
-- 2026-06-29 16:53 - [95后小伙突然确诊癌症 医生提醒](https://www.share.kurohicncr.top/Article/details/880375.shtml)
-- 2026-06-29 17:05 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/659545.shtml)
-- 2026-06-29 16:56 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/8902989371.shtml)
-- 2026-06-29 17:08 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.minike.top/Article/details/88339.shtml)
-- 2026-06-29 17:16 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/07869.shtml)
-- 2026-06-29 17:16 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/99134844459.shtml)
-- 2026-06-29 17:15 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.minike.top/Article/details/765215841.shtml)
-- 2026-06-29 16:58 - [央视曝光涉黄App诈骗陷阱](https://www.blog.minike.top/Article/details/24229219.shtml)
-- 2026-06-29 16:49 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/245060720003.shtml)
-- 2026-06-29 17:06 - [男孩复读一年减重20斤涨分111分](http://www.share.kurohicncr.top/Article/details/467995519251.shtml)
-- 2026-06-29 17:00 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.kurohicncr.top/Article/details/264817.shtml)
-- 2026-06-29 17:03 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/995517079400.shtml)
+- 2026-06-29 17:17 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/49997290271.shtml)
+- 2026-06-29 17:06 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/8076504355.shtml)
+- 2026-06-29 17:19 - [为何说今日日本似战前日本](https://www.share.kurohicncr.top/Article/details/321941515406.shtml)
+- 2026-06-29 17:11 - [5万块的威力](http://www.blog.minike.top/Article/details/285369.shtml)
+- 2026-06-29 17:20 - [王冰冰向全网安利哈兰德](https://www.blog.kurohicncr.top/Article/details/99872.shtml)
+- 2026-06-29 17:14 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/50116.shtml)
+- 2026-06-29 17:05 - [在家赤身裸体是否绝对自由](https://www.share.kurohicncr.top/Article/details/49028720.shtml)
+- 2026-06-29 17:02 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/4097543.shtml)
+- 2026-06-29 17:21 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/153658326656.shtml)
+- 2026-06-29 17:21 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/6891932.shtml)
+- 2026-06-29 16:59 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/86746307.shtml)
+- 2026-06-29 17:18 - [驻日美军航母沦为“毒窝”](https://www.blog.minike.top/Article/details/408060417937.shtml)
+- 2026-06-29 17:08 - [媒体：中国田径压力与期待并存](http://www.blog.kurohicncr.top/Article/details/534921973079.shtml)
+- 2026-06-29 17:14 - [港股爆发 美团百度阿里等集体大涨](https://www.share.minike.top/Article/details/7761550610.shtml)
+- 2026-06-29 17:16 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.minike.top/Article/details/404267.shtml)

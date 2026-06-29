@@ -1,60 +1,52 @@
-# 海文颖：呦吼~我得了不治之症 一场以病为师的“重生”之旅
+# 谷歌与澳洲电信Telstra合作，共建澳大利亚光纤及海底光缆网络
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-专题：2026年CC讲坛 由北京君和创新公益基金会、中国科学院大学校友会联合主办，主题为“和而不同，思想无界”的CC讲坛第71期演讲2026年4月12日在中国科学院大学（北京玉泉路校区）礼堂举行。来自《接纳力三部曲》作者海文颖出席，并以《呦吼~我得了不治之症 一场以病为师的“重生”之旅》为题发表演讲。 演讲实录： 今天，我想和大家分享一段长达1500天的特殊旅程。这不是一次环球
+谷歌与澳大利亚电信Telstra于周二官宣一项网络共享合作协议：谷歌将租用Telstra新建光纤网络的线路资源，同时可接入由谷歌出资建设、连通澳大利亚与美国、日本及太平洋岛国的海底光缆。 合作细则如下： 谷歌选定澳洲电信及其全新光纤网络Aura，以此夯实自身在澳大利亚的人工智能算力基建。 谷歌将租用澳洲电信Aura跨城暗光纤资源。 依托本次合作，澳洲电信也能获得额外海底光缆带宽
 
 ## 正文
 
-专题：2026年CC讲坛 由北京君和创新公益基金会、中国科学院大学校友会联合主办，主题为“和而不同，思想无界”的CC讲坛第71期演讲2026年4月12日在中国科学院大学（北京玉泉路校区）礼堂举行。
+谷歌与澳大利亚电信Telstra于周二官宣一项网络共享合作协议：谷歌将租用Telstra新建光纤网络的线路资源，同时可接入由谷歌出资建设、连通澳大利亚与美国、日本及太平洋岛国的海底光缆。
 
-来自《接纳力三部曲》作者海文颖出席，并以《呦吼~我得了不治之症 一场以病为师的“重生”之旅》为题发表演讲。
+合作细则如下： 谷歌选定澳洲电信及其全新光纤网络Aura，以此夯实自身在澳大利亚的人工智能算力基建。
 
-演讲实录： 今天，我想和大家分享一段长达1500天的特殊旅程。
+谷歌将租用澳洲电信Aura跨城暗光纤资源。
 
-这不是一次环球旅行，而是一次向内的、深入生命与成长本质的探险。
+依托本次合作，澳洲电信也能获得额外海底光缆带宽，满足云计算与AI应用日益增长的流量需求。
 
-我 2018 年 5 月9日开始眼睛视物出现重影，当时还以为自己是老花眼了，后来被我老公拎着去医院去看病。
+双方在联合声明中表示，本次网络资源互通能够降低网络宕机风险，保障数据传输持续、安全。
 
-医生特别严肃的对我老公说：她这是重症肌无力，这个病现在还没有什么好的治疗方法，她现在是眼疾型，这个病症发展的特别快，最后就会呼吸肌无力，人的生命……当时我老公一脸凝重，我在旁边就扑哧一下乐出了声。
-
-我说：“哎，这个病还挺适合我得的”。
-
-当时我真的觉得有点小兴奋，那个医生特别诧异的看着我说：从来没有见过你这样的病人。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 16:51 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 17:14 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 17:03 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-29 16:50 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-29 16:55 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-29 17:13 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-29 17:15 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-29 17:00 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-29 16:50 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-29 17:01 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 17:12 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-29 16:50 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 16:49 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-29 16:59 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 17:06 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 17:22 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 17:02 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 17:17 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 16:59 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 17:14 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-29 17:13 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 17:22 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 17:22 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-29 17:12 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:13 - [倪春青跨市履新苏州市委组织部部长](https://www.blog.kurohicncr.top/Article/details/50094338.shtml)
-- 2026-06-29 17:02 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/89728680417.shtml)
-- 2026-06-29 17:14 - [古力娜扎美出新高度](https://www.blog.kurohicncr.top/Article/details/2089281.shtml)
-- 2026-06-29 17:11 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/01606817533.shtml)
-- 2026-06-29 17:08 - [撒旦的腋窝是什么比喻](http://www.blog.kurohicncr.top/Article/details/3296972706.shtml)
-- 2026-06-29 17:07 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/25249.shtml)
-- 2026-06-29 16:53 - [大六座SUV进入黄金时代](https://www.blog.minike.top/Article/details/5212895977.shtml)
-- 2026-06-29 17:10 - [专家建议城乡居民养老金增至每月千元](https://www.share.kurohicncr.top/Article/details/5236964087.shtml)
-- 2026-06-29 16:52 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/50999591.shtml)
-- 2026-06-29 16:56 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/220232113406.shtml)
-- 2026-06-29 16:50 - [舒行钢任湖南省交通运输厅厅长](http://www.share.kurohicncr.top/Article/details/515280678.shtml)
-- 2026-06-29 16:53 - [第一炉香](http://www.share.kurohicncr.top/Article/details/427424.shtml)
-- 2026-06-29 17:14 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/46490898.shtml)
-- 2026-06-29 17:10 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/644180928284.shtml)
-- 2026-06-29 17:01 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/0497138.shtml)
+- 2026-06-29 17:22 - [税务总局披露5起合规申报个税案例](https://www.blog.minike.top/Article/details/09144776455.shtml)
+- 2026-06-29 17:02 - [斛珠夫人](http://www.share.minike.top/Article/details/18094242.shtml)
+- 2026-06-29 17:03 - [黄金也扛不住了](http://www.share.minike.top/Article/details/47005.shtml)
+- 2026-06-29 17:10 - [舒行钢任湖南省交通运输厅厅长](http://www.share.minike.top/Article/details/475807049.shtml)
+- 2026-06-29 16:58 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/275023607.shtml)
+- 2026-06-29 17:15 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.kurohicncr.top/Article/details/140968458964.shtml)
+- 2026-06-29 17:05 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/964161042266.shtml)
+- 2026-06-29 17:09 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/0838777626.shtml)
+- 2026-06-29 17:08 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/729692638287.shtml)
+- 2026-06-29 17:17 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/93437.shtml)
+- 2026-06-29 17:01 - [起风了](https://www.blog.minike.top/Article/details/54564862.shtml)
+- 2026-06-29 17:06 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/89125925.shtml)
+- 2026-06-29 17:17 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.blog.kurohicncr.top/Article/details/004634874.shtml)
+- 2026-06-29 16:57 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/6920866952.shtml)
+- 2026-06-29 17:21 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/541826.shtml)

@@ -1,60 +1,61 @@
-# 冰川网络业绩暴雷背后：控费难掩收入持续下滑颓势 买量换增长困局何解
+# 充电宝3C认证新规来了！教你一眼认出“新国标”产品→
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-出品：新浪财经上市公司研究院 文/夏虫工作室 核心观点：在游戏行业存量竞争加剧的背景下，冰川网络单纯依赖买量驱动增长模式是否难以为继？一方面，在高买量投入下，换来公司爆发式增长；另一方面，随着游戏生命周期衰退，高买量似乎难换高增长，公司出现收入持续下滑态势。值得注意的是，25年通过控费实现扭亏为盈，随着新产品买量投入，公司又再次陷入亏损境地，冰川网络何时能走出“买量换增长”困局
+充电宝是人们日常出行的“标配”，然而，在享受便利的同时，千万别忽略它的安全风险，小心充电宝“秒变”火源。 长时间充电 充电宝突然起火 5月24日，广西梧州市藤县居民住宅内突发惊险一幕，充电宝在长时间充电时突然自燃，火花四溅，迅速引燃周边放置的易燃杂物。 明火持续燃烧，短短数分钟内，客厅大面积墙面被浓烟熏黑，木质家具、软装布料被烧毁。所幸住户及时发现，一边扑救一边拨打119火警电
 
 ## 正文
 
-出品：新浪财经上市公司研究院 文/夏虫工作室 核心观点：在游戏行业存量竞争加剧的背景下，冰川网络单纯依赖买量驱动增长模式是否难以为继？
+充电宝是人们日常出行的“标配”，然而，在享受便利的同时，千万别忽略它的安全风险，小心充电宝“秒变”火源。
 
-一方面，在高买量投入下，换来公司爆发式增长；另一方面，随着游戏生命周期衰退，高买量似乎难换高增长，公司出现收入持续下滑态势。
+长时间充电 充电宝突然起火 5月24日，广西梧州市藤县居民住宅内突发惊险一幕，充电宝在长时间充电时突然自燃，火花四溅，迅速引燃周边放置的易燃杂物。
 
-值得注意的是，25年通过控费实现扭亏为盈，随着新产品买量投入，公司又再次陷入亏损境地，冰川网络何时能走出“买量换增长”困局？
+明火持续燃烧，短短数分钟内，客厅大面积墙面被浓烟熏黑，木质家具、软装布料被烧毁。
 
-近日，冰川网络一季报暴雷，遭遇股价与业绩“双杀”。
+所幸住户及时发现，一边扑救一边拨打119火警电话求助，火势得到控制，未造成人员伤亡。
 
-数据显示，公司一季报预告显示，公司预计第一季度归属于上市公司股东的净利润-1，350万元至-950万元，比上年同期下降107.15%~105.03%，扣除非经常性损益后的净利润-3，350万元~-2，900万元，比上年同期下降118.00%~115.58%。
+铁路车站 充电宝冒烟烧成火球 近日，在福建厦门北站，一名旅客准备上车时，背包里的充电宝突然自燃，冒出滚滚白烟，火势猛烈。
 
-公司今年一季报业绩变脸与上年同期“爆赚”形成巨大反差。
+铁路公安乘警发现后，立即取来灭火器处置，明火被及时扑灭，旅客和周边人员没有受伤。
 
-2025年一季报显示，公司一季度营业收入为6.54亿元，同比增长16.65%；归母净利润为1.89亿元，同比增长142.38%；扣非归母净利润为1.86亿元，同比增长141.39%。
+近年来，充电宝冒烟、自燃、召回等事件时有发生，引发不少人对充电宝使用安全的担忧。
 
-值得注意的，冰川网络一季报业绩发布当天股价遭重挫，跌幅超10%，近60个交易日其股价跌幅近四成。
+但别急，充电宝新国标、新版CCC认证实施规则已上线，将为充电宝安全保驾护航。
 
 ## 相关推荐
 
-- 2026-06-29 17:01 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 17:03 - [机器人学校开学了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 16:48 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-29 17:08 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 17:00 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-29 16:56 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-29 17:02 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-29 17:09 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-29 16:53 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 17:09 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 17:04 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-29 17:12 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-29 17:01 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 17:06 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 17:06 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-29 17:19 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-29 16:57 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 17:09 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 17:06 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 17:21 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 17:20 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 17:00 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-29 17:21 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 17:22 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 17:23 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-29 17:09 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 17:16 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-29 16:59 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 17:05 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:01 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/73617173.shtml)
-- 2026-06-29 16:56 - [当我回母校教书](http://www.blog.minike.top/Article/details/9875573818.shtml)
-- 2026-06-29 17:12 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/93764.shtml)
-- 2026-06-29 17:00 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/78653.shtml)
-- 2026-06-29 17:16 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/65982740566.shtml)
-- 2026-06-29 17:09 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/7712857334.shtml)
-- 2026-06-29 17:14 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/7684605.shtml)
-- 2026-06-29 17:03 - [南昌市委书记调整](https://www.share.kurohicncr.top/Article/details/06001.shtml)
-- 2026-06-29 17:10 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/711286529.shtml)
-- 2026-06-29 17:11 - [韩剧编剧又升级了](http://www.share.minike.top/Article/details/146807.shtml)
-- 2026-06-29 17:01 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/22814678927.shtml)
-- 2026-06-29 16:49 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/40441.shtml)
-- 2026-06-29 17:14 - [老板回应员工光脚清洗土豆](http://www.share.kurohicncr.top/Article/details/92197625.shtml)
-- 2026-06-29 17:04 - [众星恭喜吴建豪](http://www.share.kurohicncr.top/Article/details/4671305135.shtml)
-- 2026-06-29 17:13 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/168538.shtml)
+- 2026-06-29 17:01 - [媒体：中国田径压力与期待并存](http://www.blog.minike.top/Article/details/8794626.shtml)
+- 2026-06-29 17:16 - [速度与激情9](https://www.share.minike.top/Article/details/038739.shtml)
+- 2026-06-29 17:00 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/12203669357.shtml)
+- 2026-06-29 17:19 - [夏天被这些虫子咬了可能致命](http://www.blog.minike.top/Article/details/9709803.shtml)
+- 2026-06-29 16:54 - [海口塔吊事故处罚结果公布](http://www.share.kurohicncr.top/Article/details/036625719514.shtml)
+- 2026-06-29 17:03 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/247772905.shtml)
+- 2026-06-29 17:04 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/87852.shtml)
+- 2026-06-29 17:16 - [韩国队出局是因为内讧吗](http://www.blog.kurohicncr.top/Article/details/968261187472.shtml)
+- 2026-06-29 16:59 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/3608390416.shtml)
+- 2026-06-29 17:14 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/502759622.shtml)
+- 2026-06-29 17:14 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.minike.top/Article/details/98778.shtml)
+- 2026-06-29 17:13 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/622084458229.shtml)
+- 2026-06-29 17:19 - [世界杯：日本将与巴西争夺16强席位](http://www.share.kurohicncr.top/Article/details/38140448607.shtml)
+- 2026-06-29 17:03 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/467606.shtml)
+- 2026-06-29 16:58 - [撒旦的腋窝是什么比喻](https://www.blog.minike.top/Article/details/484603.shtml)

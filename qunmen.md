@@ -1,51 +1,57 @@
-# 伊朗总统：任何力量都不能迫使伊朗人民投降
+# 西格奈珠宝营收走高、上调业绩指引
 
-> 更新时间：2026-06-29 17:18:02 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-新华社德黑兰4月15日电(记者沙达提)伊朗总统佩泽希齐扬15日在视察伊朗红新月会时发表讲话说，他相信任何力量都不能迫使伊朗人民投降。 佩泽希齐扬说，美国和以色列袭击伊朗的学校和医院等民用设施，意味着他们完全无视人道主义原则，“这是可耻的，全世界都应该看到”。 佩泽希齐扬说：“他们(美国和以色列)声称我们(伊朗人)是恐怖分子，而他们才是真正的恐怖分子，因为他们随时随地随意杀人，然
+专题：聚焦美股2026年第一季度财报 内容速览西格奈珠宝一季度销售额同比提升，上调全年业绩指引下限。 西格奈珠宝（股票代码：SIG，跌幅 2.94%）一季度营收向好，上调全年业绩预期下限。 这家旗下拥有凯珠宝（Kay）与扎莱斯（Zales）品牌的珠宝零售商周二披露财报：当期净利润 3170 万美元，折合每股收益 0.78 美元；去年同期净利润 3350 万美元，每股收益同样 0
 
 ## 正文
 
-新华社德黑兰4月15日电(记者沙达提)伊朗总统佩泽希齐扬15日在视察伊朗红新月会时发表讲话说，他相信任何力量都不能迫使伊朗人民投降。
+专题：聚焦美股2026年第一季度财报 内容速览西格奈珠宝一季度销售额同比提升，上调全年业绩指引下限。
 
-佩泽希齐扬说，美国和以色列袭击伊朗的学校和医院等民用设施，意味着他们完全无视人道主义原则，“这是可耻的，全世界都应该看到”。
+西格奈珠宝（股票代码：SIG，跌幅 2.94%）一季度营收向好，上调全年业绩预期下限。
 
-佩泽希齐扬说：“他们(美国和以色列)声称我们(伊朗人)是恐怖分子，而他们才是真正的恐怖分子，因为他们随时随地随意杀人，然后还公开谈论人权。
+这家旗下拥有凯珠宝（Kay）与扎莱斯（Zales）品牌的珠宝零售商周二披露财报：当期净利润 3170 万美元，折合每股收益 0.78 美元；去年同期净利润 3350 万美元，每股收益同样 0.78 美元。
 
-”佩泽希齐扬指出，美国和以色列对伊朗基础设施的袭击暴露了他们的绝望和软弱。
+剔除一次性损益后，公司调整后每股收益 1.56 美元，高于 FactSet 统计分析师一致预期的 1.38 美元。
 
-佩泽希齐扬谴责一些国家在美国和以色列的行动面前保持沉默，对中国、俄罗斯、土耳其、阿塞拜疆、伊拉克等友好国家的支持表示感谢。
+一季度总销售额达 15.5 亿美元，去年同期为 15.4 亿美元，营收数据符合市场分析师预期。
+
+同店销售额同比上涨 1.8%，达标市场预估，但增速低于去年同期的 2.7%。
+
+公司首席执行官 J.K． 西曼西克在采访中表示：低收入客群出现降级消费，而高端消费客群需求走强，带动旗下连锁门店产品均价上行。
+
+“高端产品线仍存在增量销售空间。
 
 ## 相关推荐
 
-- 2026-06-29 17:12 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 17:17 - [疑似吴建豪老婆正脸照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-29 17:14 - [人类对空调和其他家电有多双标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 16:56 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-29 16:55 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-29 17:14 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 16:55 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-29 17:09 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-29 17:02 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-29 16:48 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 16:54 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-29 17:02 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-29 17:19 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 16:54 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 16:58 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-29 17:08 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 17:19 - [滾石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-29 17:14 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 17:01 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 17:09 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-29 17:20 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-29 17:22 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:03 - [7款商保创新药“转道”](http://www.share.minike.top/Article/details/801659.shtml)
-- 2026-06-29 17:12 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/42932.shtml)
-- 2026-06-29 17:14 - [东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/390372264.shtml)
-- 2026-06-29 17:15 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/184269985277.shtml)
-- 2026-06-29 17:00 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/449029.shtml)
-- 2026-06-29 17:03 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/24452534.shtml)
-- 2026-06-29 16:52 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/527975974542.shtml)
-- 2026-06-29 17:15 - [青春环游记第三季](http://www.blog.minike.top/Article/details/240028652392.shtml)
-- 2026-06-29 17:10 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.blog.minike.top/Article/details/160923.shtml)
-- 2026-06-29 16:58 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.kurohicncr.top/Article/details/12166.shtml)
-- 2026-06-29 16:51 - [天道](http://www.share.minike.top/Article/details/9666729027.shtml)
-- 2026-06-29 17:06 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/493561105995.shtml)
-- 2026-06-29 16:55 - [李在镕：计划将光州作为芯片生产基地](http://www.share.minike.top/Article/details/67664.shtml)
-- 2026-06-29 17:15 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/158269922.shtml)
-- 2026-06-29 16:52 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/6257477631.shtml)
+- 2026-06-29 17:20 - [美国大满贯首日国乒主力均取胜](http://www.blog.kurohicncr.top/Article/details/454290341.shtml)
+- 2026-06-29 17:17 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.minike.top/Article/details/431104845191.shtml)
+- 2026-06-29 17:21 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.blog.minike.top/Article/details/7787341.shtml)
+- 2026-06-29 17:23 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.kurohicncr.top/Article/details/73935942.shtml)
+- 2026-06-29 17:23 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.kurohicncr.top/Article/details/5660031.shtml)
+- 2026-06-29 16:57 - [12所大学更正招生目录](http://www.share.kurohicncr.top/Article/details/4728898.shtml)
+- 2026-06-29 17:12 - [机器人学校开学了](http://www.share.kurohicncr.top/Article/details/272373.shtml)
+- 2026-06-29 16:55 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/588602.shtml)
+- 2026-06-29 17:00 - [2026年，如果你有100万，你会怎么投资？](https://www.share.minike.top/Article/details/61153974.shtml)
+- 2026-06-29 17:09 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.share.kurohicncr.top/Article/details/20944799.shtml)
+- 2026-06-29 16:54 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.minike.top/Article/details/9016209465.shtml)
+- 2026-06-29 17:17 - [老板回应员工光脚清洗土豆](http://www.share.kurohicncr.top/Article/details/49482439627.shtml)
+- 2026-06-29 17:21 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.kurohicncr.top/Article/details/230662641716.shtml)
+- 2026-06-29 17:06 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.kurohicncr.top/Article/details/123062402.shtml)
+- 2026-06-29 17:14 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/9032824669.shtml)

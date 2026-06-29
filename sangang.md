@@ -1,57 +1,56 @@
-# 美财长警告加油站：原油价格已经下跌，汽油也要同步降价
+# 陈存友入主一年后，超达装备把机器人推到台前：南通汽车模具公司寻找第二增长曲线 | 长三角资本局
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-美国财政部长斯科特·贝森特（Scott Bessent）周三向全美加油站发出警告，要求它们将近期原油价格下跌的好处传递给消费者，并表示财政部将监督零售价格，防止加油站利用全球石油供应担忧为借口抬高油价。 财政部的监督承诺 贝森特表示：“我们将考虑让财政部努力让零售加油站保持诚实——你在油价上涨时这样做，最好在油价下跌时也这样做。” 他补充说，相信总统特朗普会点名任何“不良行为者
+文|新浪财经上海站 十里 5月29日，一场在上海举行的投资者交流会，把超达装备这家南通汽车模具公司重新推到聚光灯下。 交流会上，超达装备董事长陈存友将智能机器人业务放在了更靠前的位置。他表示，公司争取将智能机器人打造为“第二增长曲线”。这句话背后，是一家传统汽车模具企业在新实控人入主后，对资本市场讲出的新故事：原本服务于汽车内外饰模具、检具和自动化工装的制造公司，开始试图借助机
 
 ## 正文
 
-美国财政部长斯科特·贝森特（Scott Bessent）周三向全美加油站发出警告，要求它们将近期原油价格下跌的好处传递给消费者，并表示财政部将监督零售价格，防止加油站利用全球石油供应担忧为借口抬高油价。
+文|新浪财经上海站 十里 5月29日，一场在上海举行的投资者交流会，把超达装备这家南通汽车模具公司重新推到聚光灯下。
 
-财政部的监督承诺 贝森特表示：“我们将考虑让财政部努力让零售加油站保持诚实——你在油价上涨时这样做，最好在油价下跌时也这样做。
+交流会上，超达装备董事长陈存友将智能机器人业务放在了更靠前的位置。
 
-” 他补充说，相信总统特朗普会点名任何“不良行为者”。
+他表示，公司争取将智能机器人打造为“第二增长曲线”。
 
-当被问及这是否是一个警告时，贝森特停顿了一下，然后说道：“我确信每个人都会是个好演员。
+这句话背后，是一家传统汽车模具企业在新实控人入主后，对资本市场讲出的新故事：原本服务于汽车内外饰模具、检具和自动化工装的制造公司，开始试图借助机器人业务完成估值重估。
 
-” 他表示，原油价格在过去10天已经大幅下跌，财政部将监控零售汽油销售，确保加油站同步降价。
+超达装备的主业并不复杂。
 
-乐观的价格预期 贝森特还表达了对夏季汽油价格回落的乐观预期。
+公司长期深耕汽车内外饰模具、汽车检具、自动化工装设备等领域，客户主要来自汽车产业链。
 
-他指出，在6月20日至9月20日的夏季出行旺季期间，汽油价格有可能回落至每加仑3美元。
+2025年，公司实现营业收入7.92亿元，同比增长9.94%；归母净利润1.32亿元，同比增长37.14%；扣非净利润1.28亿元，同比增长36.68%。
 
-根据美国汽车协会的数据，本周汽油均价为每加仑4.108美元，较年初前两个月不足3美元的水平明显上升。
+从年报看，传统业务仍能贡献利润，但进入2026年一季度后，公司出现了收入增长、利润下滑的情况。
 
 ## 相关推荐
 
-- 2026-06-29 17:16 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-29 17:07 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-29 17:13 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 17:07 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 16:54 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-29 17:02 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-29 17:12 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-29 17:07 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-29 17:11 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-29 17:00 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 16:49 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 17:07 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 16:54 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-29 17:12 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-29 17:15 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 17:03 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-29 17:09 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 17:17 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 17:07 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-29 16:58 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-29 17:06 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:57 - [朱必达辞去湖南人大常委会委员职务](http://www.blog.kurohicncr.top/Article/details/01729.shtml)
-- 2026-06-29 16:59 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/06710684116.shtml)
-- 2026-06-29 17:12 - [男子路过修车店瞬间被喷得一脸黑](http://www.share.minike.top/Article/details/50195.shtml)
-- 2026-06-29 16:57 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/969649.shtml)
-- 2026-06-29 16:50 - [曝屠颖去世和酒店失责有关](https://www.blog.kurohicncr.top/Article/details/4274450.shtml)
-- 2026-06-29 16:54 - [金牌调解](http://www.share.minike.top/Article/details/2491557.shtml)
-- 2026-06-29 17:07 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/188202.shtml)
-- 2026-06-29 16:55 - [机器人学校开学了](https://www.share.kurohicncr.top/Article/details/26335752.shtml)
-- 2026-06-29 16:49 - [韩国主帅洪明甫辞职](https://www.share.minike.top/Article/details/3998958570.shtml)
-- 2026-06-29 17:17 - [小众羞耻点是吃麻辣烫](http://www.share.kurohicncr.top/Article/details/215341827343.shtml)
-- 2026-06-29 16:48 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.kurohicncr.top/Article/details/564908174.shtml)
-- 2026-06-29 17:12 - [女心理师](https://www.blog.kurohicncr.top/Article/details/651493278.shtml)
-- 2026-06-29 17:07 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/7292830809.shtml)
-- 2026-06-29 16:48 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/44842.shtml)
-- 2026-06-29 16:49 - [王安宇尊重田曦薇的一切选择](https://www.blog.minike.top/Article/details/29991350.shtml)
+- 2026-06-29 16:59 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/889290502610.shtml)
+- 2026-06-29 17:02 - [央视曝光涉黄App诈骗陷阱](https://www.blog.minike.top/Article/details/904517936.shtml)
+- 2026-06-29 17:22 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/21676970.shtml)
+- 2026-06-29 17:20 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/335107.shtml)
+- 2026-06-29 17:03 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/636739599352.shtml)
+- 2026-06-29 17:01 - [货车司机雨中帮交警挪树获表扬](https://www.blog.minike.top/Article/details/09865273.shtml)
+- 2026-06-29 16:54 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/767214603.shtml)
+- 2026-06-29 16:55 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.minike.top/Article/details/785939.shtml)
+- 2026-06-29 17:19 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/033967188.shtml)
+- 2026-06-29 17:03 - [曝屠颖去世和酒店失责有关](https://www.share.kurohicncr.top/Article/details/986558.shtml)
+- 2026-06-29 17:03 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/4432100.shtml)
+- 2026-06-29 17:04 - [一见倾心](https://www.share.minike.top/Article/details/27653645.shtml)
+- 2026-06-29 17:00 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/29820586.shtml)
+- 2026-06-29 16:56 - [美的空调 卡bug](http://www.blog.minike.top/Article/details/286052405678.shtml)
+- 2026-06-29 17:11 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/59109.shtml)

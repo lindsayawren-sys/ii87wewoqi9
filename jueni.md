@@ -1,48 +1,61 @@
-# 沃尔核材获UBS Group AG增持21.4万股 每股作价约19.6港元
+# 东部战区海军开展“读、学、做”体会交流活动
 
-> 更新时间：2026-06-29 17:18:02 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，4月8日，UBS Group AG增持沃尔核材（09981）21.4万股，每股作价19.6043港元，总金额约为419.53万港元。增持后最新持股数目约为992.7万股，持股比例为7.09%。责任编辑：卢昱君
+中新网宁波6月2日电(丁智宇 戴沅伸) 近日，东部战区海军开展“读、学、做”体会交流活动。多名优秀官兵代表立足岗位实践，讲述个人勤学笃行的成长历程。 据了解，近年来东部战区海军积极培育读书风尚，持续抓紧抓实东海强军文化建设，为奋进攻坚、建设一流凝聚精神力量。 全国三八红旗手、某基地通信站工程师汪洋讲述了自己克服一道道专业难关，从无到有组建数据链组网中心的故事。“当兵23载，我发
 
 ## 正文
 
-香港联交所最新数据显示，4月8日，UBS Group AG增持沃尔核材（09981）21.4万股，每股作价19.6043港元，总金额约为419.53万港元。
+中新网宁波6月2日电(丁智宇 戴沅伸) 近日，东部战区海军开展“读、学、做”体会交流活动。
 
-增持后最新持股数目约为992.7万股，持股比例为7.09%。
+多名优秀官兵代表立足岗位实践，讲述个人勤学笃行的成长历程。
 
-责任编辑：卢昱君
+据了解，近年来东部战区海军积极培育读书风尚，持续抓紧抓实东海强军文化建设，为奋进攻坚、建设一流凝聚精神力量。
+
+全国三八红旗手、某基地通信站工程师汪洋讲述了自己克服一道道专业难关，从无到有组建数据链组网中心的故事。
+
+“当兵23载，我发自内心热爱这身军装，热爱我的事业。
+
+”她说。
+
+“别人都是把坏的装备修好，我一直琢磨的是，如何让好的装备始终保持最佳状态、稳定如初。
+
+”某观通站一级军士长温海涛说。
 
 ## 相关推荐
 
-- 2026-06-29 17:06 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-29 16:56 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 16:56 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-29 16:53 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-29 17:11 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-29 17:02 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-29 16:51 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 17:13 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 16:49 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-29 17:07 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 17:03 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 17:07 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-29 17:05 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 16:56 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 17:02 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 17:03 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 16:57 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 16:58 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 16:55 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-29 16:59 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 17:04 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 17:22 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-29 17:17 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-29 17:05 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-29 17:11 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 17:01 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-29 17:09 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:07 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/3447419.shtml)
-- 2026-06-29 16:56 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.kurohicncr.top/Article/details/57254284572.shtml)
-- 2026-06-29 17:12 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/137274.shtml)
-- 2026-06-29 17:06 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/551111.shtml)
-- 2026-06-29 17:07 - [韩剧编剧又升级了](http://www.blog.kurohicncr.top/Article/details/25709795168.shtml)
-- 2026-06-29 16:52 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/68613715.shtml)
-- 2026-06-29 17:07 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/2452516.shtml)
-- 2026-06-29 17:10 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/761543.shtml)
-- 2026-06-29 17:06 - [5万块的威力](http://www.share.minike.top/Article/details/006343988.shtml)
-- 2026-06-29 17:03 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/000921986019.shtml)
-- 2026-06-29 16:55 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/6915305103.shtml)
-- 2026-06-29 16:58 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/60350727.shtml)
-- 2026-06-29 16:50 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/766988.shtml)
-- 2026-06-29 17:06 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.share.minike.top/Article/details/9880365622.shtml)
-- 2026-06-29 16:53 - [普京承认俄出现燃料危机](http://www.blog.kurohicncr.top/Article/details/68546812993.shtml)
+- 2026-06-29 17:06 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/33798.shtml)
+- 2026-06-29 17:23 - [日本主教练回应迎战巴西](https://www.share.minike.top/Article/details/3464182900.shtml)
+- 2026-06-29 17:16 - [7月1日起一批新规即将落地](http://www.blog.minike.top/Article/details/39256.shtml)
+- 2026-06-29 17:10 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/48721663350.shtml)
+- 2026-06-29 17:15 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/72932516145.shtml)
+- 2026-06-29 16:58 - [美人鱼](https://www.share.kurohicncr.top/Article/details/6713857592.shtml)
+- 2026-06-29 16:56 - [这一刀 会很帅](http://www.share.minike.top/Article/details/7211784.shtml)
+- 2026-06-29 17:06 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/674203118920.shtml)
+- 2026-06-29 17:03 - [博主：AI泡沫必须破灭](https://www.share.minike.top/Article/details/05144369.shtml)
+- 2026-06-29 16:58 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/29546636227.shtml)
+- 2026-06-29 17:08 - [在自己家不穿衣服犯法吗](http://www.share.kurohicncr.top/Article/details/763272.shtml)
+- 2026-06-29 17:12 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/3169684.shtml)
+- 2026-06-29 17:23 - [杨紫视后第一场线下活动](http://www.blog.kurohicncr.top/Article/details/4344801.shtml)
+- 2026-06-29 16:55 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/623856.shtml)
+- 2026-06-29 17:12 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/755446382059.shtml)

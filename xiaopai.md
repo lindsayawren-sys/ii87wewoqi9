@@ -1,58 +1,45 @@
-# 海南推出60个城市更新重点项目 计划总投资约2600亿元
+# 顾诵芬院士逝世：送别顾老 这蓝天如您所愿
 
-> 更新时间：2026-06-29 17:18:02 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-中新网海口4月15日电 (记者 王子谦)海南省城市更新招商推介会15日在海口举办，会上集中推出60个城市更新重点项目、计划总投资约2600亿元。 本次推介会集中推出的城市更新重点项目，覆盖海口、三亚、儋州等重点市县。项目涵盖片区综合更新、老旧小区改造、既有建筑活化利用、历史文化保护、基础设施完善等多个领域。 城市更新，一头连着民生福祉，一头连着发展动能。 记者从海南省住房和城乡
+发布时间：2026年06月02日 10:47 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网海口4月15日电 (记者 王子谦)海南省城市更新招商推介会15日在海口举办，会上集中推出60个城市更新重点项目、计划总投资约2600亿元。
-
-本次推介会集中推出的城市更新重点项目，覆盖海口、三亚、儋州等重点市县。
-
-项目涵盖片区综合更新、老旧小区改造、既有建筑活化利用、历史文化保护、基础设施完善等多个领域。
-
-城市更新，一头连着民生福祉，一头连着发展动能。
-
-记者从海南省住房和城乡建设厅获悉，海南城市发展正从大规模增量扩张阶段转向存量提质增效为主的新阶段。
-
-当前，海南城市更新正加快从主要依靠政府投入的“单打独斗”，转向政府引导、市场运作、金融支撑、多方参与的协同发力模式，释放出广阔的合作空间与投资潜力。
-
-记者从海南省住房和城乡建设厅了解到，海南城市更新具备三大优势： 一是政策红利叠加，营商环境优越。
-
-海南自贸港核心政策加速落地，叠加规划用地、金融等专项支持政策，加快形成“政策引导、市场主导、多方参与”的良性机制。
+发布时间：2026年06月02日 10:47 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 16:53 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-29 16:57 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 17:06 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-29 17:14 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 17:15 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 17:15 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 17:08 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-29 17:11 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 17:09 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 17:01 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-29 16:53 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 17:07 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 17:05 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-29 17:05 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-29 17:18 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 17:07 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 17:10 - [王安宇尊重田曦薇的一切选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-29 17:18 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 17:08 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 17:07 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 17:03 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-29 17:22 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 16:56 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 17:07 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 17:08 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:57 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/71681439.shtml)
-- 2026-06-29 17:12 - [倪春青跨市履新苏州市委组织部部长](https://www.blog.minike.top/Article/details/077819.shtml)
-- 2026-06-29 17:03 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/3059448387.shtml)
-- 2026-06-29 17:17 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/59878169.shtml)
-- 2026-06-29 17:10 - [李连杰否认不管前妻两女儿](https://www.share.minike.top/Article/details/52106960.shtml)
-- 2026-06-29 16:51 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/5579122378.shtml)
-- 2026-06-29 17:09 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/22272167.shtml)
-- 2026-06-29 16:52 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/0499320.shtml)
-- 2026-06-29 17:09 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/780230.shtml)
-- 2026-06-29 16:54 - [端午节加班工资应该怎么算](https://www.blog.minike.top/Article/details/24901611008.shtml)
-- 2026-06-29 17:08 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/732084221.shtml)
-- 2026-06-29 16:48 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/206570396405.shtml)
-- 2026-06-29 17:12 - [1个视频看懂2026志愿填报新专业](http://www.blog.minike.top/Article/details/90596.shtml)
-- 2026-06-29 17:07 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/522324.shtml)
-- 2026-06-29 17:00 - [自然资源部派专家赴宜宾地震影响区](https://www.share.minike.top/Article/details/909166.shtml)
+- 2026-06-29 17:15 - [警方回应东鹏饮料董事长不喝东鹏](https://www.share.kurohicncr.top/Article/details/08197410364.shtml)
+- 2026-06-29 17:17 - [东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/9641398.shtml)
+- 2026-06-29 17:11 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/23701803719.shtml)
+- 2026-06-29 17:17 - [谢依霖夸杨幂靠谱](http://www.share.kurohicncr.top/Article/details/959058220585.shtml)
+- 2026-06-29 17:08 - [刘扬任湖南省副省长](http://www.blog.minike.top/Article/details/46282.shtml)
+- 2026-06-29 17:17 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/147075316.shtml)
+- 2026-06-29 17:04 - [内马尔打日本前先买百万美元豪表](https://www.blog.minike.top/Article/details/898324940924.shtml)
+- 2026-06-29 17:18 - [7月1日起一批新规即将落地](http://www.share.minike.top/Article/details/00512158.shtml)
+- 2026-06-29 17:21 - [驻日美军航母沦为“毒窝”](https://www.blog.kurohicncr.top/Article/details/7918005270.shtml)
+- 2026-06-29 17:06 - [朱必达辞去湖南人大常委会委员职务](http://www.blog.minike.top/Article/details/225128814705.shtml)
+- 2026-06-29 16:55 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/117791116.shtml)
+- 2026-06-29 16:55 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/373066940872.shtml)
+- 2026-06-29 17:08 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.kurohicncr.top/Article/details/118141819.shtml)
+- 2026-06-29 17:19 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/4142018.shtml)
+- 2026-06-29 16:55 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.minike.top/Article/details/05810419.shtml)

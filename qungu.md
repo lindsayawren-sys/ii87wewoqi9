@@ -1,57 +1,57 @@
-# 国家医保局：全国近四成统筹地区已完成上年度清算
+# 贵州给古建筑做“生物病害专项体检”
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-医保基金清算是一项基础性工作，对于按病组(DRG)和按病种(DIP)支付方式改革落地、提高基金使用效率，促进医疗、医保、医药协同发展具有重要意义。 2025年底，国家医保局启动医保基金清算提质增效三年行动计划，按照国家统一部署，所有统筹地区将于2026年5月底前完成2025年度清算工作，到2027年所有统筹地区将于4月底前完成2026年度清算，到2028年将实现所有统筹地区3月
+中新网贵阳6月1日电 (应腾 周燕玲)记者1日从贵州省文物保护研究中心了解到，该省日前已完成文物保护单位生物病害危害普查，共为63个国保、15个省保做了“生物病害专项体检”。 中国古建筑普遍以木构架为主体，对生物侵害极为敏感。从生态环境上看，贵州是天然虫害的“培养皿”，全省92.5%的面积为山地丘陵，年平均湿度达80%，是白蚁、木蜂、天牛等“吃木大户”的“快乐老家”。 本次普查
 
 ## 正文
 
-医保基金清算是一项基础性工作，对于按病组(DRG)和按病种(DIP)支付方式改革落地、提高基金使用效率，促进医疗、医保、医药协同发展具有重要意义。
+中新网贵阳6月1日电 (应腾 周燕玲)记者1日从贵州省文物保护研究中心了解到，该省日前已完成文物保护单位生物病害危害普查，共为63个国保、15个省保做了“生物病害专项体检”。
 
-2025年底，国家医保局启动医保基金清算提质增效三年行动计划，按照国家统一部署，所有统筹地区将于2026年5月底前完成2025年度清算工作，到2027年所有统筹地区将于4月底前完成2026年度清算，到2028年将实现所有统筹地区3月底前完成上年度清算的目标任务。
+中国古建筑普遍以木构架为主体，对生物侵害极为敏感。
 
-2026年共有山西太原、内蒙古通辽等113个统筹地区率先试点。
+从生态环境上看，贵州是天然虫害的“培养皿”，全省92.5%的面积为山地丘陵，年平均湿度达80%，是白蚁、木蜂、天牛等“吃木大户”的“快乐老家”。
 
-截至2026年3月31日，全国30个省份(含新疆生产建设兵团)共154个统筹地区完成上年度清算，覆盖率达全国统筹区总数的39%，超额完成试点任务。
+本次普查由贵州省文物局牵头，贵州省文物事业发展中心、贵州省文物保护研究中心联合中国林科院木材工业研究所、清华大学、贵州大学组建“技术天团”，共派出3支专家领衔的田野调查队，近30名队员奔赴贵州九个市(州)进行调查。
 
-其中，吉林白山、浙江宁波等43个非试点地区主动对标试点标准同步完成清算任务。
+以国保、省保木结构古建为主，涵盖近现代建筑，对古寺庙、传统民居、风雨桥、鼓楼、古粮仓、红色革命遗址等进行全覆盖排查。
 
-山东、宁夏、北京、河北、海南、天津、河南等7个省(区、市)完成全省(区、市)清算。
+调查队通过仪器+人工双排查，通过三维扫描仪记录木构件典型病害三维影像，并记录受损木构件病害种类、位置和扩散范围，共收集100余件建筑维修替换的残损木构件标本，并逐一建档，以此评估现有维修措施的有效性。
 
-通过基金清算提质增效，清算资金提前到位，大大缓解定点医药机构的运营压力，让医院能够更专注于提升诊疗服务，让参保群众看病更安心。
+对木建构的古建来说，“看着完好”往往是最大的错觉，内里可能上演着一场持久的，涵盖白蚁、蠹虫、木蜂、天牛的组团“啃老”大战。
+
+在贵州黄平县飞云崖，一根被白蚁侵蚀的大木梁外表尚存，内里却早已危如累卵，存在突发坍塌风险。
 
 ## 相关推荐
 
-- 2026-06-29 17:13 - [博主：黄金和原油回落不等于风险消失](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 16:53 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-29 17:03 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 16:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-29 16:57 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-29 16:59 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 17:15 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-29 17:14 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-29 16:59 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 16:56 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-29 16:50 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-29 17:07 - [驻日美军航母沦为“毒窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-29 17:05 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 17:07 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 17:18 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 17:22 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-29 17:10 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 17:17 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-29 17:14 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 17:13 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 17:07 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 17:22 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 17:12 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 16:56 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:52 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/5910156.shtml)
-- 2026-06-29 16:51 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/362450293.shtml)
-- 2026-06-29 17:08 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/797322148.shtml)
-- 2026-06-29 17:06 - [人类对空调和其他家电有多双标](http://www.blog.kurohicncr.top/Article/details/461242600136.shtml)
-- 2026-06-29 16:54 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/90112737715.shtml)
-- 2026-06-29 16:53 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/35640650.shtml)
-- 2026-06-29 17:01 - [差点没看懂白鹿丞磊这段意识流](http://www.blog.minike.top/Article/details/943902.shtml)
-- 2026-06-29 16:50 - [爱很美味](http://www.share.kurohicncr.top/Article/details/730816869.shtml)
-- 2026-06-29 17:12 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/303887.shtml)
-- 2026-06-29 16:57 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/40559806.shtml)
-- 2026-06-29 17:16 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/380032544872.shtml)
-- 2026-06-29 16:49 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/3452319106.shtml)
-- 2026-06-29 17:01 - [张雪机车杀向海外](https://www.blog.kurohicncr.top/Article/details/87133367542.shtml)
-- 2026-06-29 16:48 - [乔家的儿女](http://www.blog.minike.top/Article/details/33129222.shtml)
-- 2026-06-29 17:09 - [速度与激情9](https://www.share.minike.top/Article/details/391659168398.shtml)
+- 2026-06-29 17:19 - [戒掉咖啡后我的身体变化](https://www.blog.minike.top/Article/details/546525298.shtml)
+- 2026-06-29 17:02 - [港股蓝筹股的落寞才刚刚开始吗](http://www.blog.minike.top/Article/details/93785985581.shtml)
+- 2026-06-29 17:18 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/95411653.shtml)
+- 2026-06-29 17:18 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.blog.kurohicncr.top/Article/details/642273913.shtml)
+- 2026-06-29 16:58 - [首尔商铺禁止洪明甫入内](https://www.share.minike.top/Article/details/009951.shtml)
+- 2026-06-29 17:19 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/875698931327.shtml)
+- 2026-06-29 16:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/4393261.shtml)
+- 2026-06-29 17:07 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/9635065.shtml)
+- 2026-06-29 17:19 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/36948618.shtml)
+- 2026-06-29 17:07 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/712027.shtml)
+- 2026-06-29 17:01 - [徐昕暂不参加NBA夏季联赛](http://www.share.kurohicncr.top/Article/details/21522704349.shtml)
+- 2026-06-29 17:18 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/55664250775.shtml)
+- 2026-06-29 17:17 - [TLAW vs DCG MSI](https://www.blog.minike.top/Article/details/643575.shtml)
+- 2026-06-29 17:00 - [黄金也扛不住了](https://www.share.minike.top/Article/details/68977096677.shtml)
+- 2026-06-29 16:57 - [A股收评：科创50指数大涨4.61%](http://www.blog.kurohicncr.top/Article/details/65960.shtml)

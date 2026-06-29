@@ -1,52 +1,61 @@
-# 莎莎国际发盈喜 预期年度归母盈利约1.9亿至2.05亿港元按年上升147%至166%
+# 湖南怀化社区里的“科创市集” 让科普融入市井烟火
 
-> 更新时间：2026-06-29 17:18:02 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-莎莎国际（00178）发布公告，集团预计截至2026年3月31日止年度，归属于公司拥有人的盈利将取得大约1.9亿港元至2.05亿港元，按年上升147%至166%。 集团归属于公司拥有人的盈利取得显著的提升，主要受惠于：集团核心市场香港及澳门特区（港澳）的同店销售、交易宗数、每宗交易平均金额及每宗交易的货品件数均有显著的按年升幅；线上平台营运效益提升，推动线上业务盈利快速增长；及
+中新网怀化6月2日电 (郭飞 易明 李欣怡)“原来白雾是二氧化碳，今天终于弄懂了！”“妈妈，我以后想造会飞的汽车！”声控升降区，孩子们放声呼喊操控装置；主舞台上，无人机编队在夜空划出绚丽图案，机器人、机器狗灵活展演；科技互动区，前沿科技与趣味体验碰撞出精彩火花......夜幕下，湖南怀化市鹤城区红星街道的社区广场上，孩子们清脆的喊声引来阵阵欢笑。 “六一”国际儿童节晚上，这里没
 
 ## 正文
 
-莎莎国际（00178）发布公告，集团预计截至2026年3月31日止年度，归属于公司拥有人的盈利将取得大约1.9亿港元至2.05亿港元，按年上升147%至166%。
+中新网怀化6月2日电 (郭飞 易明 李欣怡)“原来白雾是二氧化碳，今天终于弄懂了！
 
-集团归属于公司拥有人的盈利取得显著的提升，主要受惠于：集团核心市场香港及澳门特区（港澳）的同店销售、交易宗数、每宗交易平均金额及每宗交易的货品件数均有显著的按年升幅；线上平台营运效益提升，推动线上业务盈利快速增长；及集团中止中国内地的线下业务后，相关亏损大幅收窄，当地业务转亏为盈。
+”“妈妈，我以后想造会飞的汽车！
 
-而截至2025年3月31日止年度归属于公司拥有人的盈利为7700万港元。
+”声控升降区，孩子们放声呼喊操控装置；主舞台上，无人机编队在夜空划出绚丽图案，机器人、机器狗灵活展演；科技互动区，前沿科技与趣味体验碰撞出精彩火花......夜幕下，湖南怀化市鹤城区红星街道的社区广场上，孩子们清脆的喊声引来阵阵欢笑。
 
-责任编辑：卢昱君
+“六一”国际儿童节晚上，这里没有传统夜市的烧烤油烟，取而代之的是一场“能玩、能学、能逛”的科创市集——无人机足球、AI对弈、中医问诊、机甲编程……20余项科技类互动项目走出实验室，直接搬到了居民家门口，让青少年在家门口就能触摸到科技脉搏。
+
+“以前觉得人工智能离我们很远，没想到孩子一口气体验了机甲操控、智能运载机器人和编程桌游，玩得不肯走。
+
+”市民鄢祥忠说。
+
+无人机足球在空中穿梭，AR眼镜带孩子们“潜入”深海，AI下棋机器人前围满跃跃欲试的小棋手，中医AI馆里小朋友争相当起“草本小郎中”......宏宇小学三年级学生易柯妤体验了无人机足球后说：“操控它穿过圆环的一瞬间，感觉自己像个飞行员。
+
+” 一场社区市集，为何能汇集高校、科技馆、科普基地、科技企业等20余家单位的力量？
 
 ## 相关推荐
 
-- 2026-06-29 16:49 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 17:16 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-29 17:01 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-29 17:10 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 17:03 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 17:14 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-29 17:11 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-29 17:15 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-29 17:17 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 16:58 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-29 17:00 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-29 16:50 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-29 16:50 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-29 17:04 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 16:58 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-29 17:22 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 16:59 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-29 16:55 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 17:18 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 17:02 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-29 17:01 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-29 17:21 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 17:14 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-29 17:06 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-29 17:10 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 16:57 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-29 17:02 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-29 17:16 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 17:09 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:51 - [人类对空调和其他家电有多双标](https://www.blog.kurohicncr.top/Article/details/7656975.shtml)
-- 2026-06-29 17:00 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/21030602.shtml)
-- 2026-06-29 16:51 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/064261.shtml)
-- 2026-06-29 16:52 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/6003985.shtml)
-- 2026-06-29 17:16 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/48071436207.shtml)
-- 2026-06-29 16:58 - [三轮车过马路 车上木材砸中路边男子](https://www.share.minike.top/Article/details/74400.shtml)
-- 2026-06-29 16:57 - [小众羞耻点是吃麻辣烫](http://www.share.kurohicncr.top/Article/details/559731053668.shtml)
-- 2026-06-29 17:02 - [永远保持对人民的赤子之心](http://www.share.kurohicncr.top/Article/details/11165.shtml)
-- 2026-06-29 16:51 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/711410426682.shtml)
-- 2026-06-29 16:52 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/0965084851.shtml)
-- 2026-06-29 16:52 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/55218.shtml)
-- 2026-06-29 17:06 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.kurohicncr.top/Article/details/4601189.shtml)
-- 2026-06-29 17:03 - [周生如故](https://www.blog.minike.top/Article/details/98120561345.shtml)
-- 2026-06-29 17:13 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/535319471125.shtml)
-- 2026-06-29 16:56 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/59468898293.shtml)
+- 2026-06-29 17:22 - [曝歌手第七期帮唱阵容](https://www.share.minike.top/Article/details/5454984812.shtml)
+- 2026-06-29 17:14 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/18317111626.shtml)
+- 2026-06-29 17:11 - [沙丘](http://www.blog.minike.top/Article/details/61662.shtml)
+- 2026-06-29 17:16 - [网友飞机上偶遇肖战](http://www.blog.minike.top/Article/details/7168913.shtml)
+- 2026-06-29 17:17 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/849744723.shtml)
+- 2026-06-29 16:55 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/343973.shtml)
+- 2026-06-29 17:19 - [利率一再降 “存款搬家”搬去哪](https://www.blog.minike.top/Article/details/9075545444.shtml)
+- 2026-06-29 17:16 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.minike.top/Article/details/24147174.shtml)
+- 2026-06-29 16:57 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/93857727520.shtml)
+- 2026-06-29 17:13 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.kurohicncr.top/Article/details/570906.shtml)
+- 2026-06-29 17:23 - [蔚来回应车漆洗车时被冲掉](https://www.share.minike.top/Article/details/81663901.shtml)
+- 2026-06-29 16:55 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/1881355.shtml)
+- 2026-06-29 17:21 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/3029592.shtml)
+- 2026-06-29 17:22 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/05427366.shtml)
+- 2026-06-29 17:13 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/6357284.shtml)

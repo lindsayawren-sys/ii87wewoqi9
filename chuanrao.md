@@ -1,55 +1,57 @@
-# 东方甄选官宣：7款自营跨境保健食品2026年陆续上线
+# 英国学者：中国发展成就值得更多人认可
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月15日，东方甄选“营养较真会，蓝帽子保健品发布会”召开。会上，东方甄选公布最新数据，自营产品已超800款，拥有超3086万的用户。 同时，其也正式发布多款拥有蓝帽子标识的保健品，并官宣“7款自营跨境保健食品2026年陆续上线”。 责任编辑：宋雅芳
+原标题：全球媒体聚焦｜英国学者：中国发展成就值得更多人认可 英国剑桥大学发展经济学者乔斯坦·豪格近日在其个人专栏Global Currents上刊文称，西方年轻人中出现的“Chinamaxxing”(极致中国化)这一现象不只是网络文化潮流，也反映出外界对中国发展成就的重新认识。 "Chinamaxxing"最初流行于西方网络社群，泛指年轻人主动接纳中国的生活方式、时尚审美与文化
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+原标题：全球媒体聚焦｜英国学者：中国发展成就值得更多人认可 英国剑桥大学发展经济学者乔斯坦·豪格近日在其个人专栏Global Currents上刊文称，西方年轻人中出现的“Chinamaxxing”(极致中国化)这一现象不只是网络文化潮流，也反映出外界对中国发展成就的重新认识。
 
-4月15日，东方甄选“营养较真会，蓝帽子保健品发布会”召开。
+"Chinamaxxing"最初流行于西方网络社群，泛指年轻人主动接纳中国的生活方式、时尚审美与文化元素。
 
-会上，东方甄选公布最新数据，自营产品已超800款，拥有超3086万的用户。
+豪格指出，这一现象折射出更深层的信号：越来越多西方年轻人不仅内心认同中国的发展成就，更敢于公开表达这一立场。
 
-同时，其也正式发布多款拥有蓝帽子标识的保健品，并官宣“7款自营跨境保健食品2026年陆续上线”。
+豪格坦言，自己关注中国最初并不是出于对中国文化的兴趣，而是源于他作为发展经济学者对全球经济发展的长期关注。
 
-责任编辑：宋雅芳
+而中国过去半个世纪在经济发展和社会生活层面发生的巨大变化，在规模和速度上都是人类历史上罕见的，这成为任何研究发展问题的学者都难以忽视的范例。
+
+中国减贫成就具有重要意义 豪格指出，自1990年以来，超过9亿中国人摆脱极端贫困，占同期全球减贫总量的60%至70%。
+
+豪格认为，中国减贫成就应被视为人类文明史上最重要的发展成就之一。
+
+在他看来，中国让数亿人摆脱物质匮乏，能够过上更长寿、更健康、更有尊严的生活，这本身就值得被承认和肯定。
 
 ## 相关推荐
 
-- 2026-06-29 16:57 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-29 17:03 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 17:03 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-29 16:52 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-29 17:06 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 17:03 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-29 16:54 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 17:02 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-29 17:09 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-29 17:05 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-29 17:03 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-29 16:54 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-29 16:56 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-29 17:05 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 16:52 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 17:21 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-29 17:06 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-29 17:01 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-29 17:12 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 17:00 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-29 17:04 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 17:23 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 17:22 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 16:57 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-29 17:01 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 16:57 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:08 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/004992107.shtml)
-- 2026-06-29 17:07 - [妹妹的正确用法！](https://www.share.minike.top/Article/details/102570.shtml)
-- 2026-06-29 17:14 - [恋与深空失控领地](https://www.share.kurohicncr.top/Article/details/5331496.shtml)
-- 2026-06-29 17:10 - [世界杯看到肖战了](http://www.blog.kurohicncr.top/Article/details/5827494729.shtml)
-- 2026-06-29 16:53 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/820319467220.shtml)
-- 2026-06-29 17:09 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/561550994583.shtml)
-- 2026-06-29 17:02 - [AG冠军五人组轮换](http://www.blog.kurohicncr.top/Article/details/029724283347.shtml)
-- 2026-06-29 17:05 - [日本偶像龟梨和也宣布结婚](http://www.share.minike.top/Article/details/130779.shtml)
-- 2026-06-29 16:50 - [大疆7月15日起涨价？公司回应](http://www.blog.minike.top/Article/details/420720254.shtml)
-- 2026-06-29 17:09 - [叠纸](http://www.blog.kurohicncr.top/Article/details/161599.shtml)
-- 2026-06-29 17:08 - [世界杯看到肖战了](https://www.share.minike.top/Article/details/3551613337.shtml)
-- 2026-06-29 17:07 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/9205938754.shtml)
-- 2026-06-29 17:00 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.kurohicncr.top/Article/details/266570630114.shtml)
-- 2026-06-29 16:59 - [夏天被这些虫子咬了可能致命](http://www.blog.kurohicncr.top/Article/details/509903842501.shtml)
-- 2026-06-29 17:16 - [2026世界杯谁能一黑到底](http://www.blog.minike.top/Article/details/23149596051.shtml)
+- 2026-06-29 17:11 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/43024023.shtml)
+- 2026-06-29 17:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/72818965.shtml)
+- 2026-06-29 17:24 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/085227704174.shtml)
+- 2026-06-29 17:22 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/283937.shtml)
+- 2026-06-29 17:12 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/33425958384.shtml)
+- 2026-06-29 17:15 - [A股收评：科创50指数大涨4.61%](https://www.share.kurohicncr.top/Article/details/1156876924.shtml)
+- 2026-06-29 16:59 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.kurohicncr.top/Article/details/440850.shtml)
+- 2026-06-29 16:57 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/7523379498.shtml)
+- 2026-06-29 17:16 - [流金岁月](http://www.blog.minike.top/Article/details/68074.shtml)
+- 2026-06-29 17:03 - [这一刀 会很帅](https://www.share.minike.top/Article/details/22907352382.shtml)
+- 2026-06-29 17:06 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/140600.shtml)
+- 2026-06-29 16:58 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/5812244.shtml)
+- 2026-06-29 16:58 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/226011889334.shtml)
+- 2026-06-29 17:22 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/04794704624.shtml)
+- 2026-06-29 16:55 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.kurohicncr.top/Article/details/58062.shtml)

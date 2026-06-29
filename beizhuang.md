@@ -1,58 +1,58 @@
-# 行业首创手表耳机二合一！华为WATCH Buds 2官宣：4月20日见
+# 全国19家乡村画童美术馆联动展出百幅优秀少儿画作
 
-> 更新时间：2026-06-29 17:18:02 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-快科技4月16日消息，华为WATCH Buds 2今天正式官宣，将在4月20日的Pura系列及全场景新品发布会上登场。从海报展示的外观来看，华为WATCH Buds 2依然维持了前代的基本设计方案，但整体更精致。预计新款将搭载鸿蒙系统，在耳机、手表两个方面的体验都会大大提升，耳机应该也会支持更强的降噪效果。华为WATCH Buds初代于2022年12月发布，这是行业第一款手表耳
+中新网广州6月1日电 (记者 程景伟)“十九馆联动润童心 盛世榴芳传温情”——全国19家乡村画童美术馆同步联动暨《盛世榴芳》主题发布会，6月1日在位于广州的广东省立中山图书馆启幕。 分布在全国11个省(自治区)的19家乡村画童美术馆实现同步联动，集中展出百幅优秀少儿画作。 依托数字化技术打造的全新美育线上阵地——《盛世榴芳》袁桂扬·画童云展厅正式上线。数字化展览打破时空限制，既
 
 ## 正文
 
-快科技4月16日消息，华为WATCH Buds 2今天正式官宣，将在4月20日的Pura系列及全场景新品发布会上登场。
+中新网广州6月1日电 (记者 程景伟)“十九馆联动润童心 盛世榴芳传温情”——全国19家乡村画童美术馆同步联动暨《盛世榴芳》主题发布会，6月1日在位于广州的广东省立中山图书馆启幕。
 
-从海报展示的外观来看，华为WATCH Buds 2依然维持了前代的基本设计方案，但整体更精致。
+分布在全国11个省(自治区)的19家乡村画童美术馆实现同步联动，集中展出百幅优秀少儿画作。
 
-预计新款将搭载鸿蒙系统，在耳机、手表两个方面的体验都会大大提升，耳机应该也会支持更强的降噪效果。
+依托数字化技术打造的全新美育线上阵地——《盛世榴芳》袁桂扬·画童云展厅正式上线。
 
-华为WATCH Buds初代于2022年12月发布，这是行业第一款手表耳机二合一，虽然是一款智能手表，但是它内部却隐藏了一款TWS无线耳机。
+数字化展览打破时空限制，既方便民众云端观展，也为少儿艺术作品搭建了展示、交流平台。
 
-这类产品最大的难度就是体积，而华为WATCH Buds通过高度集成的设计，让内置耳机的手表依然保持主流手表的体积，厚度只有14.99mm。
+活动现场举行《“盛世榴芳耀中华”主题绘本》新书首发仪式。
 
-配备1.43英寸的圆形屏幕，边缘采用3D弧面设计，表盘部分采用创新弹盖设计，轻轻一推，表盘即刻如同怀表一样弹起，方便的取出耳机。
+岭南美术出版社副总编辑陈积旺宣布同步发起“童心润童心”青少年绘本填色优秀作品征集活动。
 
-华为WATCH Buds虽然是二合一产品，但华为WATCH Buds的功能性却并没有随之减少，硬件上依然支持准确的睡眠监测、血氧检测、心率检测、心脏健康研究等。
+“盛世榴芳公益艺术角”项目也正式启动。
 
-耳机整机则采用定制小型器件，相较于传统杆式TWS耳机，体积减小50%，内部空间利用率达90%，单只耳机净重仅约4g。
+项目创办人袁桂扬为广州图书馆、广州少年儿童图书馆等首批合作公共文化单位授牌。
 
 ## 相关推荐
 
-- 2026-06-29 16:55 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-29 16:55 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-29 17:15 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-29 16:48 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 17:17 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-29 16:53 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-29 17:10 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-29 17:05 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-29 17:05 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-29 16:51 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-29 17:14 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-29 17:05 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 17:03 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 17:10 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-29 17:21 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 16:54 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-29 17:06 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 17:11 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 17:06 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-29 17:17 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 17:17 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 17:07 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-29 16:59 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 17:10 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:57 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.minike.top/Article/details/75364752690.shtml)
-- 2026-06-29 17:03 - [一家三口吃溪石斑鱼中毒](https://www.blog.minike.top/Article/details/1059631862.shtml)
-- 2026-06-29 17:15 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/8729310.shtml)
-- 2026-06-29 17:17 - [德国连续三天刷新本国最高气温纪录](http://www.blog.minike.top/Article/details/87440.shtml)
-- 2026-06-29 17:14 - [TFING全员黑西装](http://www.share.minike.top/Article/details/41453166141.shtml)
-- 2026-06-29 17:17 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/359321877.shtml)
-- 2026-06-29 17:05 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/9215085.shtml)
-- 2026-06-29 17:12 - [倪春青跨市履新苏州市委组织部部长](https://www.share.kurohicncr.top/Article/details/74729992.shtml)
-- 2026-06-29 16:55 - [中国空间站为什么要升级扩容](http://www.blog.minike.top/Article/details/6526604.shtml)
-- 2026-06-29 17:13 - [首个靠AI躺赢的国家](http://www.blog.minike.top/Article/details/8146812.shtml)
-- 2026-06-29 17:16 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/554608.shtml)
-- 2026-06-29 16:52 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.minike.top/Article/details/8506281838.shtml)
-- 2026-06-29 16:53 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/395757677.shtml)
-- 2026-06-29 16:56 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/9432615.shtml)
-- 2026-06-29 17:16 - [人形机器人](http://www.blog.kurohicncr.top/Article/details/7537344.shtml)
+- 2026-06-29 17:21 - [端午节加班工资应该怎么算](http://www.share.minike.top/Article/details/51583704756.shtml)
+- 2026-06-29 17:18 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/3418752009.shtml)
+- 2026-06-29 16:58 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/2883947.shtml)
+- 2026-06-29 17:11 - [7款商保创新药“转道”](https://www.blog.minike.top/Article/details/960008281.shtml)
+- 2026-06-29 17:07 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/201046221349.shtml)
+- 2026-06-29 16:56 - [倪春青跨市履新苏州市委组织部部长](http://www.share.minike.top/Article/details/218539860983.shtml)
+- 2026-06-29 17:22 - [A股割裂行情有变化了吗](https://www.blog.minike.top/Article/details/8643454851.shtml)
+- 2026-06-29 16:59 - [成都至北京将新增动卧](http://www.blog.kurohicncr.top/Article/details/49418468.shtml)
+- 2026-06-29 17:22 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/762064046954.shtml)
+- 2026-06-29 17:14 - [范志毅看好日本淘汰巴西](http://www.blog.minike.top/Article/details/97910.shtml)
+- 2026-06-29 17:13 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/411360.shtml)
+- 2026-06-29 17:11 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.minike.top/Article/details/45292611.shtml)
+- 2026-06-29 17:23 - [美的空调 卡bug](http://www.blog.kurohicncr.top/Article/details/9612706962.shtml)
+- 2026-06-29 16:58 - [税务总局披露5起合规申报个税案例](http://www.blog.kurohicncr.top/Article/details/873145.shtml)
+- 2026-06-29 17:06 - [博主：全球股市进入“AI极端共振”](http://www.blog.kurohicncr.top/Article/details/416805585748.shtml)

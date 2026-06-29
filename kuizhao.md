@@ -1,59 +1,57 @@
-# 吉林“你点我检”筑牢民生消费安全防线
+# 高通CEO安蒙：AI词元需求至2030年将增长40倍
 
-> 更新时间：2026-06-29 17:18:02 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-中新网长春4月15日电 (谭伟旗 金乔)15日，由吉林省消费者协会联合吉林省市场监督管理厅等单位开展的“2026年消费教育大讲堂暨‘你点我检 服务惠民生’”活动在长春举行。活动以“群众点题、政府解题”为核心，通过免费快检、消费科普、特色体验等多样化服务，将消费维权与食品安全保障送到群众身边。 活动现场人气高涨，“你点我检·免费快速检测”服务区成为全场焦点。专业检测人员现场为居民
+高通公司股价周一尾盘下跌逾7%，但CEO克里斯蒂亚诺·安蒙在Computex 2026开幕主题演讲中释放的AI增长预期，为市场提供了中长期乐观指引。安蒙预测，到2030年，AI词元生成量将从当前的317亿个/10秒跃升至约1.27万亿个/10秒，增幅近40倍。 安蒙在演讲中明确将2026年定义为“智能体之年”，标志着AI从被动响应指令的工具，进化为能够自主规划、推理和执行任务的
 
 ## 正文
 
-中新网长春4月15日电 (谭伟旗 金乔)15日，由吉林省消费者协会联合吉林省市场监督管理厅等单位开展的“2026年消费教育大讲堂暨‘你点我检 服务惠民生’”活动在长春举行。
+高通公司股价周一尾盘下跌逾7%，但CEO克里斯蒂亚诺·安蒙在Computex 2026开幕主题演讲中释放的AI增长预期，为市场提供了中长期乐观指引。
 
-活动以“群众点题、政府解题”为核心，通过免费快检、消费科普、特色体验等多样化服务，将消费维权与食品安全保障送到群众身边。
+安蒙预测，到2030年，AI词元生成量将从当前的317亿个/10秒跃升至约1.27万亿个/10秒，增幅近40倍。
 
-活动现场人气高涨，“你点我检·免费快速检测”服务区成为全场焦点。
+安蒙在演讲中明确将2026年定义为“智能体之年”，标志着AI从被动响应指令的工具，进化为能够自主规划、推理和执行任务的智能伙伴。
 
-专业检测人员现场为居民提供食品快速检测服务，精准回应群众对餐桌安全的关切。
+安蒙指出：“今天的设备并不是为智能体设计的。
 
-不少居民主动携带食材送检，在观摩检测过程中直观感受食品安全监管的力度与温度。
+现有设备大多是围绕‘用户主动操作’设计的，当使用者与AI智能体同时操作同一台设备时，功耗与延迟会成为更大的工程挑战。
 
-“消费维权事关群众切身利益，食品安全关系千家万户。
+” 他强调，智能体需要持续在后台运行，保留上下文，跨多个系统协调任务，并以机器速度与软件交互。
 
-”吉林省市场监管厅一级巡视员尹贤淑表示，“你点我检”活动打破了传统监管的单向模式，让群众从食品安全的旁观者变为参与者、监督者和直接受益者。
+这将对CPU、NPU和GPU的协同设计提出全新要求——高通在移动领域积累的低功耗计算能力，正成为其在智能体时代最核心的优势。
 
-据了解，吉林省“你点我检”系列活动自2021年启动以来持续深化。
+面对AI词元需求的指数级增长，安蒙提出“计算连续体”战略，即构建覆盖从耳机内不足2毫瓦连接到数据中心千瓦级系统的完整算力光谱。
 
 ## 相关推荐
 
-- 2026-06-29 17:01 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 17:00 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-29 17:09 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 17:10 - [东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 17:07 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 16:52 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 16:49 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 17:17 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 16:54 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 17:00 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 17:15 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-29 17:07 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-29 16:53 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 17:03 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 17:00 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-29 17:01 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-29 17:21 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 16:58 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 17:00 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 16:56 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 17:08 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-29 17:06 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-29 17:20 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 17:20 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:09 - [网约车司机转账15000元后被乘客拉黑](https://www.share.minike.top/Article/details/07549.shtml)
-- 2026-06-29 17:09 - [起风了](https://www.share.minike.top/Article/details/6660031.shtml)
-- 2026-06-29 16:51 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/50289148908.shtml)
-- 2026-06-29 16:53 - [胡光宇一审获刑13年](http://www.share.minike.top/Article/details/79611.shtml)
-- 2026-06-29 17:15 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/06152.shtml)
-- 2026-06-29 16:52 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.minike.top/Article/details/1910485287.shtml)
-- 2026-06-29 17:14 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/44539.shtml)
-- 2026-06-29 17:00 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/090656924441.shtml)
-- 2026-06-29 17:04 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/94470761442.shtml)
-- 2026-06-29 17:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/2497809.shtml)
-- 2026-06-29 16:59 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.share.kurohicncr.top/Article/details/21062.shtml)
-- 2026-06-29 16:58 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/67275604.shtml)
-- 2026-06-29 17:08 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.minike.top/Article/details/515226048123.shtml)
-- 2026-06-29 17:10 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.kurohicncr.top/Article/details/948117489.shtml)
-- 2026-06-29 17:01 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/7843003.shtml)
+- 2026-06-29 16:57 - [当我回母校教书](https://www.share.minike.top/Article/details/53093885.shtml)
+- 2026-06-29 17:12 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/0210349.shtml)
+- 2026-06-29 17:11 - [20年前的周杰伦](https://www.blog.kurohicncr.top/Article/details/93684783545.shtml)
+- 2026-06-29 17:22 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/38585.shtml)
+- 2026-06-29 17:08 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.kurohicncr.top/Article/details/37054.shtml)
+- 2026-06-29 17:03 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/93260525.shtml)
+- 2026-06-29 17:11 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/781110939265.shtml)
+- 2026-06-29 17:15 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/116738944658.shtml)
+- 2026-06-29 17:04 - [爱很美味](https://www.share.kurohicncr.top/Article/details/00858164.shtml)
+- 2026-06-29 17:23 - [重度抑郁女孩没钱去做心理咨询](https://www.share.kurohicncr.top/Article/details/33168.shtml)
+- 2026-06-29 17:19 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/0889781.shtml)
+- 2026-06-29 17:12 - [7款商保创新药“转道”](https://www.blog.minike.top/Article/details/5977520.shtml)
+- 2026-06-29 17:05 - [22岁民警拦截违法车辆被撞牺牲](https://www.blog.minike.top/Article/details/82796873.shtml)
+- 2026-06-29 17:07 - [博主：AI泡沫必须破灭](http://www.blog.minike.top/Article/details/316241533798.shtml)
+- 2026-06-29 17:16 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/289158089.shtml)

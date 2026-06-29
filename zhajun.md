@@ -1,56 +1,51 @@
-# 301398，子公司在建车间发生火灾
+# 2026“一带一路”华侨华人合作发展大会在成都举行
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-4月14日晚间，星源卓镁（301398）公告，在4月13日上午8时左右，其全资子公司星源卓镁（宁波奉化）技术有限公司在建车间发生火情引发火灾事故。 据公告，事故发生后，公司立即启动突发应急预案，迅速采取措施疏散人员，并全力配合当地消防部门实施现场灭火救援。在当地消防、应急等部门的共同努力下，相关火情已扑灭。目前，事故发生的具体原因正在调查当中。 星源卓镁表示，本次事故未造成人员
+发布时间：2026年06月02日 18:20 来源：中国新闻网 6月2日，由中国侨联、四川省人民政府、重庆市人民政府共同主办的2026“一带一路”华侨华人合作发展大会在成都开幕，来自全球120个国家和地区的近700人参会。本次大会以“汇聚侨界力量谱写丝路新篇”为主题，旨在充分发挥华侨华人独特优势，推动侨界人才、技术、资金与国内产业、贸易、科技、文化资源深度对接。 大会期间，还将
 
 ## 正文
 
-4月14日晚间，星源卓镁（301398）公告，在4月13日上午8时左右，其全资子公司星源卓镁（宁波奉化）技术有限公司在建车间发生火情引发火灾事故。
+发布时间：2026年06月02日 18:20 来源：中国新闻网 6月2日，由中国侨联、四川省人民政府、重庆市人民政府共同主办的2026“一带一路”华侨华人合作发展大会在成都开幕，来自全球120个国家和地区的近700人参会。
 
-据公告，事故发生后，公司立即启动突发应急预案，迅速采取措施疏散人员，并全力配合当地消防部门实施现场灭火救援。
+本次大会以“汇聚侨界力量谱写丝路新篇”为主题，旨在充分发挥华侨华人独特优势，推动侨界人才、技术、资金与国内产业、贸易、科技、文化资源深度对接。
 
-在当地消防、应急等部门的共同努力下，相关火情已扑灭。
+大会期间，还将举行4场专题活动。
 
-目前，事故发生的具体原因正在调查当中。
+专场活动结束后，部分参会嘉宾还将赴四川、重庆、新疆相关线路参访。
 
-星源卓镁表示，本次事故未造成人员伤亡。
-
-本次火灾事故厂房尚未正式投入使用，火灾导致部分厂房、设备、材料不同程度受损，具体损失金额正在评估中。
-
-星源卓镁明确，本次火灾事故预计将对公司2026年度经营业绩产生一定影响，公司将采取一切必要措施将损失降到最低。
-
-截至本次公告披露日，公司本部生产经营情况正常。
+陈选斌 杨予頔 四川成都报道 责任编辑：【叶攀】
 
 ## 相关推荐
 
-- 2026-06-29 16:57 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-29 17:03 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 17:07 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 17:06 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-29 17:13 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-29 17:09 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-29 16:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 17:17 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 17:03 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-29 17:02 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-29 17:21 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 17:05 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 17:12 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 17:20 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 16:56 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 17:12 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-29 17:15 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-29 17:22 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-29 17:20 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-29 16:54 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-29 16:54 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:51 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/0524736.shtml)
-- 2026-06-29 17:10 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/45990.shtml)
-- 2026-06-29 16:49 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.kurohicncr.top/Article/details/8224337716.shtml)
-- 2026-06-29 17:17 - [日本前锋言论激怒巴西](http://www.share.kurohicncr.top/Article/details/909467644370.shtml)
-- 2026-06-29 17:17 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/15129606.shtml)
-- 2026-06-29 17:11 - [东方风云榜红毯](https://www.blog.minike.top/Article/details/153933.shtml)
-- 2026-06-29 16:56 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/989202.shtml)
-- 2026-06-29 16:55 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.minike.top/Article/details/8467949.shtml)
-- 2026-06-29 17:03 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.blog.minike.top/Article/details/6927801194.shtml)
-- 2026-06-29 16:54 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/9397773566.shtml)
-- 2026-06-29 17:04 - [未成年少女长期吸毒导致卧床不起](http://www.blog.kurohicncr.top/Article/details/112877047.shtml)
-- 2026-06-29 16:54 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/1893092909.shtml)
-- 2026-06-29 16:51 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/869368846287.shtml)
-- 2026-06-29 17:12 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/45071.shtml)
-- 2026-06-29 17:03 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/1541547.shtml)
+- 2026-06-29 17:22 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/349892607.shtml)
+- 2026-06-29 17:09 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/66107.shtml)
+- 2026-06-29 17:00 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/86983479.shtml)
+- 2026-06-29 17:13 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/7539251.shtml)
+- 2026-06-29 17:08 - [截瘫男子心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/02270.shtml)
+- 2026-06-29 16:55 - [差点没看懂白鹿丞磊这段意识流](http://www.blog.kurohicncr.top/Article/details/52286524.shtml)
+- 2026-06-29 17:07 - [周生如故](http://www.share.minike.top/Article/details/773112.shtml)
+- 2026-06-29 17:20 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/376335529204.shtml)
+- 2026-06-29 16:57 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/088681.shtml)
+- 2026-06-29 17:23 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/34073478125.shtml)
+- 2026-06-29 17:01 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/1383669.shtml)
+- 2026-06-29 17:09 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/0676431644.shtml)
+- 2026-06-29 17:04 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.minike.top/Article/details/29373097013.shtml)
+- 2026-06-29 16:58 - [范志毅看好日本淘汰巴西](https://www.blog.kurohicncr.top/Article/details/30563.shtml)
+- 2026-06-29 17:17 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.kurohicncr.top/Article/details/765039.shtml)

@@ -1,61 +1,58 @@
-# 北京将迎首个“全民阅读活动周” 千余场活动拓展阅读场景
+# 百度文心发布 PaddleOCR-VL-1.6：准确率突破 96.33%，刷新文档解析 SOTA
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-中新网北京4月15日电(记者 徐婧)4月20日至26日，北京迎来首个“全民阅读活动周”。活动周围绕“阅读领航”“阅润人心”“阅动全城”“阅见未来”“阅融万象”五大板块，集中推出千余场阅读推广活动，统筹整合阅读资源，让阅读场景延伸至城市角落。 本次活动周由中共北京市委宣传部统筹指导，联合中央在京出版单位、全市各相关单位及各区，为市民打造一场“处处可读、时时能读、人人悦读”的文化盛
+近日，百度正式发布 PaddleOCR-VL-1.6。作为文心衍生模型，PaddleOCR-VL-1.6在 OmniDocBench v1.6权威评测中准确率突破96.33%，在 Real5-OmniDocBench、OmniDocBench v1.5上也取得了最领先的分数，综合性能全球第一，刷新业界SOTA，在复杂文档理解和真实场景解析能力方面进一步突破。 在权威评测集 Om
 
 ## 正文
 
-中新网北京4月15日电(记者 徐婧)4月20日至26日，北京迎来首个“全民阅读活动周”。
+近日，百度正式发布 PaddleOCR-VL-1.6。
 
-活动周围绕“阅读领航”“阅润人心”“阅动全城”“阅见未来”“阅融万象”五大板块，集中推出千余场阅读推广活动，统筹整合阅读资源，让阅读场景延伸至城市角落。
+作为文心衍生模型，PaddleOCR-VL-1.6在 OmniDocBench v1.6权威评测中准确率突破96.33%，在 Real5-OmniDocBench、OmniDocBench v1.5上也取得了最领先的分数，综合性能全球第一，刷新业界SOTA，在复杂文档理解和真实场景解析能力方面进一步突破。
 
-本次活动周由中共北京市委宣传部统筹指导，联合中央在京出版单位、全市各相关单位及各区，为市民打造一场“处处可读、时时能读、人人悦读”的文化盛宴。
+在权威评测集 OmniDocBench v1.6上，PaddleOCR-VL-1.6总指标达到96.33%，超越Gemini-3-Pro、GPT-5.2、MinerU-2.5-Pro、GLM-OCR等，综合性能全球第一，领跑全球通用大模型和专用OCR模型；在面向真实复杂场景构建的 Real5-OmniDocBench评测中，PaddleOCR-VL-1.6总指标达到93.19%，较 Gemini-3-Pro提升近4个百分点，在扫描件、弯折文档、屏幕拍照、光照变化及倾斜文档等五大真实场景下均保持领先表现。
 
-活动周期间，春季北京书市首次在朝阳公园、南苑森林湿地公园、首钢工业遗址公园、圆明园等多场地同步启幕，创新采用现代展陈与场景设计，打造新潮城市文化空间。
+测试结果显示，PaddleOCR-VL-1.6在文本、公式、表格等核心识别能力上全面领先当前主流开源及闭源方案，在表格、古籍、生僻字识别等复杂场景能力显著提升，在印章、Spotting、图表识别等多项关键能力同步增强，可更好满足文档数字化的需求。
 
-首届北京全民阅读发展研讨会同步举办，邀请名家学者、行业领军人物共话阅读推广新趋势。
+据了解，PaddleOCR基于文心大模型训练而来，是文心大模型多模态能力的重要部分，支持超100种语言识别，用户覆盖170多个国家和地区。
 
-此外，“书香青春 阅见未来”校园读书季暨2026年首都大学生系列读书活动启动仪式、“京韵书香”青少年公益阅读计划等活动将轮番登场。
+此次发布的 PaddleOCR-VL-1.6在 PaddleOCR-VL-1.5基础上进一步升级，通过模型驱动的数据构建机制和渐进式训练优化，在保持0.9B轻量化架构的情况下，模型准确率和复杂场景适应能力进一步提升。
 
-北京各区立足自身文化资源，推出“一区一品”特色阅读活动。
+由于两代模型结构一致，开发者和企业用户无需进行额外适配，即可平滑迁移。
 
-东城区“书福悦读·隆福潮集”主题文化市集围绕“书香+文创+花香+咖啡香”四大元素，打造沉浸式文化消费新场景；西城区“百年丁香诗会”系列文化活动串联诗歌沙龙、CityWalk+飞花令等十余场特色活动；石景山区开启书院广场文化市集，用书香引领阅读新风尚。
+近年来，PaddleOCR持续推进文档理解能力升级，先后推出 PaddleOCR-VL、PaddleOCR-VL-1.5等多款模型。
 
 ## 相关推荐
 
-- 2026-06-29 17:17 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 17:00 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-29 17:17 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-29 16:51 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 16:48 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 17:00 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-29 16:57 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 16:53 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 16:59 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-29 17:03 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-29 17:02 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 16:59 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-29 17:11 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-29 17:10 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-29 17:07 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 17:07 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 17:08 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-29 16:58 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-29 17:12 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 17:20 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 17:00 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 17:02 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 17:16 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-29 17:10 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-29 17:15 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 17:11 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 17:02 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:09 - [和周杰伦在演唱会合唱了](https://www.blog.kurohicncr.top/Article/details/167044217.shtml)
-- 2026-06-29 16:59 - [美的空调 卡bug](http://www.blog.minike.top/Article/details/172446.shtml)
-- 2026-06-29 16:53 - [博主：AI泡沫必须破灭](https://www.share.minike.top/Article/details/4416161626.shtml)
-- 2026-06-29 16:53 - [沙丘](http://www.blog.minike.top/Article/details/804656.shtml)
-- 2026-06-29 17:11 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.minike.top/Article/details/42781106567.shtml)
-- 2026-06-29 17:13 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.minike.top/Article/details/217549557.shtml)
-- 2026-06-29 17:14 - [美的空调 卡bug](https://www.share.minike.top/Article/details/850055979426.shtml)
-- 2026-06-29 16:51 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/36978595.shtml)
-- 2026-06-29 17:06 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/7767647.shtml)
-- 2026-06-29 17:12 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.minike.top/Article/details/16507.shtml)
-- 2026-06-29 17:14 - [恋与深空失控领地](http://www.blog.minike.top/Article/details/8256859506.shtml)
-- 2026-06-29 16:53 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/537462738.shtml)
-- 2026-06-29 17:03 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/48328.shtml)
-- 2026-06-29 17:04 - [美的空调 卡bug](http://www.share.kurohicncr.top/Article/details/5635389759.shtml)
-- 2026-06-29 17:10 - [唐国强打卡贵阳孔学堂](http://www.blog.minike.top/Article/details/5590051718.shtml)
+- 2026-06-29 17:03 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/28827.shtml)
+- 2026-06-29 17:21 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/526680384713.shtml)
+- 2026-06-29 16:58 - [勇敢的心第二部](http://www.share.minike.top/Article/details/1630832134.shtml)
+- 2026-06-29 17:12 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.minike.top/Article/details/27453.shtml)
+- 2026-06-29 17:11 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/2164386.shtml)
+- 2026-06-29 17:05 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/10935.shtml)
+- 2026-06-29 16:58 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/7831647.shtml)
+- 2026-06-29 17:09 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/2325335.shtml)
+- 2026-06-29 17:05 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/47858435622.shtml)
+- 2026-06-29 17:14 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/813462.shtml)
+- 2026-06-29 17:16 - [张雪机车杀向海外](https://www.blog.minike.top/Article/details/57699487.shtml)
+- 2026-06-29 17:04 - [王楚钦开门红](http://www.blog.kurohicncr.top/Article/details/1581479192.shtml)
+- 2026-06-29 17:04 - [工作靠AI算不算职场作弊](http://www.share.minike.top/Article/details/662666038.shtml)
+- 2026-06-29 17:01 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/9325915305.shtml)
+- 2026-06-29 17:01 - [挪威王储妃长子两次强奸获刑](https://www.blog.minike.top/Article/details/583419633357.shtml)

@@ -1,59 +1,49 @@
-# 科技基金调仓动向曝光 AI电力、光通信、半导体获加仓
+# 六一当天，5名特殊儿童跨越800公里看升旗圆梦
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-首批公募基金2026年第一季度报告业已出炉，重仓科技赛道的基金经理的调仓动向随之曝光。 21世纪经济报道记者梳理发现，今年一季度，部分科技主题基金锚定AI产业链上游的细分赛道，重点加仓了AI电力或光通信板块。同时，也有基金经理更侧重半导体行业，在一季度增加了半导体先进制程、高价值耗材等环节的配置权重。 可以看到，在AI技术迅速发展背景下，科技投资主线也开始向产业深处延伸。 平安
+发布时间：2026年06月01日 17:26 来源：中国新闻网 6月1日，河南周口沈丘县教体局特殊教育学校的老师带着5名听障孩子们跨越800公里前往天安门广场观看升旗。崔校长表示，因为一次偶然的机会，了解到学生有一个前往天安门看升国旗愿望，于是就联合教体局在六一儿童节这样特殊的日子里为孩子们圆梦。虽然孩子们无法听到国歌，但是他们可以用手语致敬祖国。(作者：范自润） 责任编辑：【
 
 ## 正文
 
-首批公募基金2026年第一季度报告业已出炉，重仓科技赛道的基金经理的调仓动向随之曝光。
+发布时间：2026年06月01日 17:26 来源：中国新闻网 6月1日，河南周口沈丘县教体局特殊教育学校的老师带着5名听障孩子们跨越800公里前往天安门广场观看升旗。
 
-21世纪经济报道记者梳理发现，今年一季度，部分科技主题基金锚定AI产业链上游的细分赛道，重点加仓了AI电力或光通信板块。
+崔校长表示，因为一次偶然的机会，了解到学生有一个前往天安门看升国旗愿望，于是就联合教体局在六一儿童节这样特殊的日子里为孩子们圆梦。
 
-同时，也有基金经理更侧重半导体行业，在一季度增加了半导体先进制程、高价值耗材等环节的配置权重。
+虽然孩子们无法听到国歌，但是他们可以用手语致敬祖国。
 
-可以看到，在AI技术迅速发展背景下，科技投资主线也开始向产业深处延伸。
-
-平安鼎越基金经理林清源指出，一季度，AI技术领域继续保持快速迭代。
-
-特别是OpenClaw这一开源AI智能体的快速崛起并获得广泛采用，不仅实现了本地运行的自主任务执行，还显著推动了Token使用量的快速增长。
-
-这类AI智能体将成为推动AI从对话向真正自主执行转变的关键力量。
-
-“我们看好OpenClaw带来的正反馈循环，它将进一步放大对AI硬件与电力的长期需求，持续强化整个AI生态的规模化扩张。
+(作者：范自润） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 16:54 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-29 17:05 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 16:49 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-29 16:54 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 17:02 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 16:55 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-29 16:59 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-29 16:50 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 17:12 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 17:11 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-29 17:03 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 16:52 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-29 16:59 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-29 17:18 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-29 17:20 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 17:22 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-29 17:13 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-29 17:01 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-29 17:12 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-29 17:05 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 16:54 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-29 17:09 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 17:00 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 17:19 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:12 - [杨紫视后第一场线下活动](http://www.share.kurohicncr.top/Article/details/996890675492.shtml)
-- 2026-06-29 16:59 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.minike.top/Article/details/4847859665.shtml)
-- 2026-06-29 16:56 - [存储三巨头被告了](https://www.share.minike.top/Article/details/65423878867.shtml)
-- 2026-06-29 17:11 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/696409244.shtml)
-- 2026-06-29 16:55 - [笔记本电脑一年涨价近一倍](http://www.share.kurohicncr.top/Article/details/0749157.shtml)
-- 2026-06-29 17:08 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/7124201.shtml)
-- 2026-06-29 16:52 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/24337.shtml)
-- 2026-06-29 16:53 - [A股收评：科创50指数大涨4.61%](http://www.blog.kurohicncr.top/Article/details/32077047309.shtml)
-- 2026-06-29 17:08 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.minike.top/Article/details/5930476.shtml)
-- 2026-06-29 16:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/546847290.shtml)
-- 2026-06-29 17:02 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/17451685388.shtml)
-- 2026-06-29 16:52 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/185496237.shtml)
-- 2026-06-29 16:58 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/6876147.shtml)
-- 2026-06-29 17:14 - [恋与深空各大应用商店评分](https://www.blog.kurohicncr.top/Article/details/93320876.shtml)
-- 2026-06-29 17:06 - [税务总局披露5起合规申报个税案例](https://www.blog.minike.top/Article/details/0162132.shtml)
+- 2026-06-29 16:58 - [港股爆发 美团百度阿里等集体大涨](http://www.share.minike.top/Article/details/4979140.shtml)
+- 2026-06-29 17:00 - [货车司机雨中帮交警挪树获表扬](https://www.share.kurohicncr.top/Article/details/59932163876.shtml)
+- 2026-06-29 16:58 - [评论员：日菲勾连各有盘算](https://www.share.minike.top/Article/details/318470.shtml)
+- 2026-06-29 16:55 - [四川宜宾地震已致13人受轻微伤](https://www.blog.minike.top/Article/details/928847.shtml)
+- 2026-06-29 17:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/49647.shtml)
+- 2026-06-29 17:11 - [中方将20家日本实体列入关注名单](http://www.blog.minike.top/Article/details/8825207.shtml)
+- 2026-06-29 17:06 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/24829.shtml)
+- 2026-06-29 17:00 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/028931.shtml)
+- 2026-06-29 16:57 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/49235283.shtml)
+- 2026-06-29 16:54 - [撒旦的腋窝是什么比喻](http://www.blog.minike.top/Article/details/52560.shtml)
+- 2026-06-29 16:56 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/3341055.shtml)
+- 2026-06-29 17:01 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/52220.shtml)
+- 2026-06-29 17:14 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/239504701.shtml)
+- 2026-06-29 17:15 - [第一炉香](https://www.share.kurohicncr.top/Article/details/222846.shtml)
+- 2026-06-29 17:16 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/880014134.shtml)

@@ -1,57 +1,57 @@
-# 国台办：两岸空中直航航点全面复航障碍症结完全在民进党当局
+# 义乌（苏溪）国际枢纽港集装箱到发量累计超20万标箱
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-中新网4月15日电 4月15日，国务院台办举行例行新闻发布会。有记者问：民航方面宣布通过海峡两岸航空运输交流委员会与台北市航空运输商业同业公会联系渠道，再次促请台方全面恢复两岸空中客运直航正常化。请问发言人对此有何评论？发言人陈斌华表示，两岸空中直航极大便利了两岸民众往来，为增进两岸同胞福祉发挥了重要作用。目前，两岸航线受民进党当局干扰，航点航班尚未完全恢复常态，大陆14个城市
+中新社义乌6月2日电 (董易鑫 骆泽明)6月2日，一列海铁联运班列从位于浙江的义乌(苏溪)国际枢纽港海关监管区驶出，标志着该港自2025年6月27日启用至今，集装箱到发量累计超20万标箱。 义乌(苏溪)国际枢纽港是宁波舟山港“第六港区”的核心载体，相当于除宁波舟山港本港在五大集装箱港区以外建设的一个内陆港区，主要到发义乌至宁波舟山港的海铁联运班列。 上述模式下，义乌出口货物的相
 
 ## 正文
 
-中新网4月15日电 4月15日，国务院台办举行例行新闻发布会。
+中新社义乌6月2日电 (董易鑫 骆泽明)6月2日，一列海铁联运班列从位于浙江的义乌(苏溪)国际枢纽港海关监管区驶出，标志着该港自2025年6月27日启用至今，集装箱到发量累计超20万标箱。
 
-有记者问：民航方面宣布通过海峡两岸航空运输交流委员会与台北市航空运输商业同业公会联系渠道，再次促请台方全面恢复两岸空中客运直航正常化。
+义乌(苏溪)国际枢纽港是宁波舟山港“第六港区”的核心载体，相当于除宁波舟山港本港在五大集装箱港区以外建设的一个内陆港区，主要到发义乌至宁波舟山港的海铁联运班列。
 
-请问发言人对此有何评论？
+上述模式下，义乌出口货物的相关手续可就地办理，进入义乌(苏溪)国际枢纽港视同进入宁波舟山港，通关时间明显缩短，运输效率进一步提升。
 
-发言人陈斌华表示，两岸空中直航极大便利了两岸民众往来，为增进两岸同胞福祉发挥了重要作用。
+目前，义乌(苏溪)国际枢纽港每日约6对海铁联运班列循环运行，结合有人、无人驾驶平板运输车构建了全链智能化作业模式，是中国国内首座获批的混行模式自动驾驶试验铁路场站。
 
-目前，两岸航线受民进党当局干扰，航点航班尚未完全恢复常态，大陆14个城市15个航点、每周执飞300余班客运航班(往返计为1班)，与2020年前大陆61个航点、每周最高890班客运航班相比，仍有较大差距，严重影响两岸同胞往来。
+据悉，2004年，浙江首次提出在宁波舟山港发展多式联运，拉开该省铁水联运序幕。
 
-2025年乘坐空中客运直航航班往来两岸的旅客超过578万人次，目前两岸航线的平均客座率超80%。
+如今，义乌至宁波舟山港的海铁联运线路是浙江运量最大的海铁联运线路。
 
-两岸民众对两岸直航航点全面复航的呼声非常强烈。
-
-陈斌华指出，我们对两岸空中直航航点全面复航没有任何政策限制，障碍症结完全在民进党当局。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 16:54 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-29 16:59 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 16:49 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-29 17:04 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 16:58 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 16:53 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 16:56 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 16:48 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 16:51 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-29 17:09 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-29 16:52 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 17:21 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-29 17:16 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-29 17:10 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 17:12 - [机器人学校开学了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 16:59 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-29 17:12 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 16:59 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-29 17:09 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 17:03 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 17:16 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 17:03 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-29 16:55 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 17:06 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:03 - [龟梨和也田中美奈实结婚](https://www.share.minike.top/Article/details/15294926.shtml)
-- 2026-06-29 17:17 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/429582941005.shtml)
-- 2026-06-29 17:01 - [徐昕暂不参加NBA夏季联赛](http://www.share.kurohicncr.top/Article/details/980183974.shtml)
-- 2026-06-29 16:59 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/610111600372.shtml)
-- 2026-06-29 17:04 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/26999879.shtml)
-- 2026-06-29 17:04 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/362996281.shtml)
-- 2026-06-29 17:06 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/1467707.shtml)
-- 2026-06-29 16:53 - [森保一坚信日本能赢巴西](http://www.share.minike.top/Article/details/6166920502.shtml)
-- 2026-06-29 16:55 - [媒体：听清自己内心的声音再填志愿](https://www.blog.minike.top/Article/details/387292345501.shtml)
-- 2026-06-29 16:51 - [拍到真的赛博朋克边缘行者了！](https://www.blog.kurohicncr.top/Article/details/348707.shtml)
-- 2026-06-29 17:06 - [重度抑郁女孩没钱去做心理咨询](http://www.share.minike.top/Article/details/0704069074.shtml)
-- 2026-06-29 17:13 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/9749222.shtml)
-- 2026-06-29 17:17 - [未成年少女长期吸毒导致卧床不起](https://www.share.kurohicncr.top/Article/details/04003.shtml)
-- 2026-06-29 17:10 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/740617421430.shtml)
-- 2026-06-29 16:56 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/98546.shtml)
+- 2026-06-29 17:13 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/6312965686.shtml)
+- 2026-06-29 17:13 - [共享单车“价格刺客”79分钟30元](https://www.share.kurohicncr.top/Article/details/845167667066.shtml)
+- 2026-06-29 17:06 - [恋与深空失控领地](https://www.blog.minike.top/Article/details/639667866.shtml)
+- 2026-06-29 17:10 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/535492458.shtml)
+- 2026-06-29 17:09 - [省市招考专家解读山西高考志愿政策](https://www.share.minike.top/Article/details/701331773240.shtml)
+- 2026-06-29 16:54 - [韩国队差旅费亏麻了](https://www.share.kurohicncr.top/Article/details/2235369332.shtml)
+- 2026-06-29 17:01 - [端午节加班工资应该怎么算](https://www.blog.minike.top/Article/details/904857829078.shtml)
+- 2026-06-29 17:14 - [人形机器人](https://www.blog.kurohicncr.top/Article/details/527952621.shtml)
+- 2026-06-29 17:16 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/83663864497.shtml)
+- 2026-06-29 16:54 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/454168493789.shtml)
+- 2026-06-29 17:15 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.minike.top/Article/details/91772.shtml)
+- 2026-06-29 16:58 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/01200152.shtml)
+- 2026-06-29 17:17 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.minike.top/Article/details/1284598524.shtml)
+- 2026-06-29 17:18 - [疑似吴建豪老婆正脸照](http://www.blog.kurohicncr.top/Article/details/2711311935.shtml)
+- 2026-06-29 17:15 - [永远保持对人民的赤子之心](https://www.blog.kurohicncr.top/Article/details/376222276247.shtml)

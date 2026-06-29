@@ -1,59 +1,47 @@
-# 0.5到1.5！央行上调境外贷款杠杆率，外资行海外业务迎机遇
+# 国家开发银行原行务委员蒋志刚接受审查调查
 
-> 更新时间：2026-06-29 17:18:02 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者 唐婧 外资银行迎来重磅利好，境外贷款杠杆率大幅上调。 4月15日，中国人民银行发布《关于调整银行业金融机构境外贷款业务有关事宜的通知》（下称《通知》）。《通知》明确，将境内外商独资银行、境内中外合资银行、外国银行境内分行的境外贷款杠杆率由0.5上调至1.5，香港特别行政区、澳门特别行政区和台湾地区的金融机构在内地（大陆）设立的银行机构比照适用。 同时，《通
+中新网6月2日电 据中央纪委国家监委驻国家开发银行纪检监察组、安徽省纪委监委消息，国家开发银行原行务委员、专家委员会原资深专家蒋志刚涉嫌严重违纪违法，目前正接受中央纪委国家监委驻国家开发银行纪检监察组纪律审查和安徽省宿州市监察委员会监察调查。
 
 ## 正文
 
-21世纪经济报道记者 唐婧 外资银行迎来重磅利好，境外贷款杠杆率大幅上调。
-
-4月15日，中国人民银行发布《关于调整银行业金融机构境外贷款业务有关事宜的通知》（下称《通知》）。
-
-《通知》明确，将境内外商独资银行、境内中外合资银行、外国银行境内分行的境外贷款杠杆率由0.5上调至1.5，香港特别行政区、澳门特别行政区和台湾地区的金融机构在内地（大陆）设立的银行机构比照适用。
-
-同时，《通知》表示，将进出口银行的境外贷款杠杆率由3上调至3.5。
-
-如计算的境外贷款余额上限小于100亿元，核定该银行境外贷款余额上限为100亿元。
-
-境内银行通过向境外银行融出资金等方式间接向境外企业发放一年期以上本外币贷款的，可由境外银行依据其所在国家或地区相关法律法规办理。
-
-跨境金融研究院院长王志毅告诉记者，本次《通知》并非简单的参数调整，而是对2022年27号文建立的境外贷款宏观审慎框架进行的一次精准优化与定向松绑，核心意图非常清晰，即在维持整体风险可控的前提下，大幅释放外资银行与政策性银行的跨境融资能力，并理顺业务规则，更好地服务实体经济“走出去”。
-
-2022年，为发挥好跨境金融服务实体经济发展的作用，支持和规范银行开展境外贷款业务，中国人民银行、国家外汇局发布《关于银行业金融机构境外贷款业务有关事宜的通知》（银发〔2022〕27号），建立起本外币一体化管理、本币优先的银行境外贷款政策框架。
+中新网6月2日电 据中央纪委国家监委驻国家开发银行纪检监察组、安徽省纪委监委消息，国家开发银行原行务委员、专家委员会原资深专家蒋志刚涉嫌严重违纪违法，目前正接受中央纪委国家监委驻国家开发银行纪检监察组纪律审查和安徽省宿州市监察委员会监察调查。
 
 ## 相关推荐
 
-- 2026-06-29 16:52 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-29 17:14 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-29 17:06 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-29 17:04 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-29 17:05 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 17:13 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-29 17:02 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-29 16:53 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-29 17:06 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-29 17:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 17:13 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-29 16:56 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-29 17:08 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 17:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 17:17 - [谢依霖夸杨幂靠谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 16:58 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-29 17:19 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-29 17:09 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 17:21 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 17:00 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-29 17:06 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 16:58 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-29 17:17 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-29 17:08 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-29 17:23 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 17:05 - [NBA交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 16:54 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-29 17:09 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:17 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/25877495.shtml)
-- 2026-06-29 16:50 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/37335721609.shtml)
-- 2026-06-29 17:07 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/12931362.shtml)
-- 2026-06-29 17:10 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.minike.top/Article/details/385067071959.shtml)
-- 2026-06-29 16:48 - [中国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/69994104366.shtml)
-- 2026-06-29 16:49 - [第一炉香](http://www.share.minike.top/Article/details/87148378512.shtml)
-- 2026-06-29 17:14 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/241979161.shtml)
-- 2026-06-29 17:14 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/8623493556.shtml)
-- 2026-06-29 16:59 - [欧盟为什么越来越倾向贸易保护](http://www.blog.kurohicncr.top/Article/details/63302060.shtml)
-- 2026-06-29 17:00 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/2828430716.shtml)
-- 2026-06-29 17:00 - [日本偶像龟梨和也宣布结婚](https://www.blog.kurohicncr.top/Article/details/15839.shtml)
-- 2026-06-29 16:53 - [一生一世](https://www.blog.kurohicncr.top/Article/details/06583.shtml)
-- 2026-06-29 16:55 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.kurohicncr.top/Article/details/486370787479.shtml)
-- 2026-06-29 16:57 - [啊啊啊](https://www.blog.minike.top/Article/details/976860893.shtml)
-- 2026-06-29 16:56 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.blog.kurohicncr.top/Article/details/4351117.shtml)
+- 2026-06-29 17:12 - [叠纸](http://www.share.minike.top/Article/details/293163.shtml)
+- 2026-06-29 17:21 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/72832.shtml)
+- 2026-06-29 17:14 - [博主：AI泡沫必须破灭](http://www.share.minike.top/Article/details/6285355505.shtml)
+- 2026-06-29 17:08 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/61227.shtml)
+- 2026-06-29 17:03 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/912308488.shtml)
+- 2026-06-29 17:15 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.blog.minike.top/Article/details/856489213.shtml)
+- 2026-06-29 16:56 - [普京介绍前线战事](https://www.blog.kurohicncr.top/Article/details/665017.shtml)
+- 2026-06-29 17:23 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/082591480.shtml)
+- 2026-06-29 17:04 - [三星与SK集团或将投资2000万亿韩元](http://www.share.kurohicncr.top/Article/details/109117747561.shtml)
+- 2026-06-29 16:58 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/175868746.shtml)
+- 2026-06-29 16:55 - [欧洲人驾车200公里抢购中国空调](https://www.share.minike.top/Article/details/265298170.shtml)
+- 2026-06-29 17:20 - [杨紫视后第一场线下活动](https://www.blog.kurohicncr.top/Article/details/79249507.shtml)
+- 2026-06-29 17:05 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.blog.minike.top/Article/details/766823584.shtml)
+- 2026-06-29 17:19 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/34850355150.shtml)
+- 2026-06-29 16:54 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/03284.shtml)

@@ -1,61 +1,50 @@
-# 光大期货：4月15日有色金属日报
+# 机器人跳起“国风舞” 黑龙江30所高校师生竞技多元智能应用场景
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-铜： （展大鹏，从业资格号：F3013795；交易咨询资格号：Z0013582） 隔夜内外铜价再度联袂走高，国内精炼铜现货进口窗口再度打开，但盈利较小。宏观方面，美国3月PPI同比上涨4%，为2023年2月以来最高水平，但显著低于市场预期的4.6%；剔除食品和能源的核心PPI环比仅上涨0.1%，远低于预期和前值的0.5%，同比上涨3.8%，较前值3.9%小幅回落。短期通胀担忧有
+发布时间：2026年06月01日 12:45 来源：中国新闻网 5月31日，第二十八届中国机器人及人工智能大赛黑龙江赛区暨第九届黑龙江省机器人及人工智能大赛线下决赛在哈尔滨石油学院拉开帷幕。来自黑龙江省30所高校的448支团队、1700余名师生线下参赛，336支团队同步参加线上选拔。 据悉，大赛已正式列入中国高等教育学会《全国普通高等学校学科竞赛排行榜》，涵盖创新赛、应用赛、挑
 
 ## 正文
 
-铜： （展大鹏，从业资格号：F3013795；交易咨询资格号：Z0013582） 隔夜内外铜价再度联袂走高，国内精炼铜现货进口窗口再度打开，但盈利较小。
+发布时间：2026年06月01日 12:45 来源：中国新闻网 5月31日，第二十八届中国机器人及人工智能大赛黑龙江赛区暨第九届黑龙江省机器人及人工智能大赛线下决赛在哈尔滨石油学院拉开帷幕。
 
-宏观方面，美国3月PPI同比上涨4%，为2023年2月以来最高水平，但显著低于市场预期的4.6%；剔除食品和能源的核心PPI环比仅上涨0.1%，远低于预期和前值的0.5%，同比上涨3.8%，较前值3.9%小幅回落。
+来自黑龙江省30所高校的448支团队、1700余名师生线下参赛，336支团队同步参加线上选拔。
 
-短期通胀担忧有所缓解，但原材料价格压力依然显著。
+据悉，大赛已正式列入中国高等教育学会《全国普通高等学校学科竞赛排行榜》，涵盖创新赛、应用赛、挑战赛三大类，包括人工智能创新赛、全地形协同机器人、智能产线应用场景等多项赛项。
 
-地缘政治方面，特朗普称与伊朗会谈“可能未来两天内”在巴基斯坦举行。
+其中，机器人舞蹈赛环节中，多所高校的机器人身着汉服、行拱手礼、打起太极，别具韵味的“国风舞”点燃全场热情。
 
-国内方面，海关总署公布的数据显示，中国3月出口（以美元计价）同比增2.5%，前值增39.6%；进口增27.8%，前值增13.8%；贸易顺差511.3亿美元，前值顺差909.78亿美元。
-
-库存方面，LME库存增加1475吨至400625吨；Comex库存增加89吨至532126吨；SHFE铜仓单下降11439吨至153913吨，保税区库存下降505吨至11088吨。
-
-美伊谈判窗口再次打开，表明谈判寻共识的思路未转变，市场对极端冲突升级的担忧继续降温。
-
-另外，随着国内限制硫酸出口消息出台，市场开始关注全球硫酸短缺问题，或引起铜等相关金属的供应扰动。
+(记者 刘璐 制作 田德雨） 责任编辑：【张燕玲】
 
 ## 相关推荐
 
-- 2026-06-29 17:14 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-29 16:49 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-29 16:55 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 17:04 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-29 16:55 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 16:54 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-29 17:15 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-29 16:56 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-29 17:12 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 16:50 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-29 17:15 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-29 17:08 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-29 17:06 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-29 17:16 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-29 17:00 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 17:02 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 17:00 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-29 17:02 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-29 17:11 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-29 17:03 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-29 17:16 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 17:03 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 17:02 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-29 17:13 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-29 17:14 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:07 - [明星大侦探第一季](https://www.share.minike.top/Article/details/44002969275.shtml)
-- 2026-06-29 16:58 - [95后小伙突然确诊癌症 医生提醒](http://www.share.kurohicncr.top/Article/details/30652862115.shtml)
-- 2026-06-29 17:16 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/04830999535.shtml)
-- 2026-06-29 16:53 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/79540117846.shtml)
-- 2026-06-29 17:09 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.kurohicncr.top/Article/details/6902351.shtml)
-- 2026-06-29 16:56 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/3276021242.shtml)
-- 2026-06-29 16:52 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/933703.shtml)
-- 2026-06-29 16:48 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/14557379344.shtml)
-- 2026-06-29 17:06 - [配音演员于小华病逝 享年78岁](http://www.share.kurohicncr.top/Article/details/639481.shtml)
-- 2026-06-29 17:02 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/983560642.shtml)
-- 2026-06-29 17:13 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/6468338.shtml)
-- 2026-06-29 17:03 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/692995.shtml)
-- 2026-06-29 17:02 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/347492827.shtml)
-- 2026-06-29 17:06 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/12239471.shtml)
-- 2026-06-29 17:12 - [重度抑郁女孩没钱去做心理咨询](http://www.share.kurohicncr.top/Article/details/29723.shtml)
+- 2026-06-29 17:01 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/11405.shtml)
+- 2026-06-29 16:55 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.kurohicncr.top/Article/details/8403879.shtml)
+- 2026-06-29 17:23 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.blog.kurohicncr.top/Article/details/748059.shtml)
+- 2026-06-29 17:07 - [货车司机雨中帮交警挪树获表扬](https://www.share.minike.top/Article/details/90089362.shtml)
+- 2026-06-29 17:19 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.minike.top/Article/details/65781.shtml)
+- 2026-06-29 17:04 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/56009622.shtml)
+- 2026-06-29 17:11 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/984322513.shtml)
+- 2026-06-29 17:10 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/32607.shtml)
+- 2026-06-29 16:58 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/419336472016.shtml)
+- 2026-06-29 17:10 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/484429530276.shtml)
+- 2026-06-29 17:17 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/25466.shtml)
+- 2026-06-29 17:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/5728403.shtml)
+- 2026-06-29 17:05 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/20607741.shtml)
+- 2026-06-29 16:55 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/909858675465.shtml)
+- 2026-06-29 17:21 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.kurohicncr.top/Article/details/313355452.shtml)

@@ -1,56 +1,54 @@
-# 油价飙升之际 日本央行据悉考虑大幅上调通胀预期
+# 世界气象组织：本轮厄尔尼诺将至少发展成中等强度事件
 
-> 更新时间：2026-06-29 17:18:02 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-据知情人士透露，日本央行官员可能考虑在本月的政策会议上大幅上调通胀预期，主要是为了反映油价高企的影响。 知情人士表示，由于自美伊战争爆发以来油价已上涨约50%，日本央行委员会可能会讨论将本财年的关键通胀预测从目前的1.9%上调。 知情人士还指出，由于中东冲突短期内不太可能明朗，官员们也可能考虑下调经济增长预期。他们表示，历史上，油价飙升往往会通过恶化贸易条件对日本经济造成拖累，
+世界气象组织6月2日发布最新报告称，多数气候模型预计，本轮厄尔尼诺至少将发展成中等强度事件，并可能进一步增强。 监测数据显示，赤道中东太平洋海表温度已接近厄尔尼诺形成阈值，海面以下存在大范围异常暖水，部分区域温度较常年高出6摄氏度以上，为未来数月持续升温提供能量支持。 世界气象组织表示，厄尔尼诺将改变全球气温和降水格局，增加热浪、干旱、暴雨和洪水等极端天气发生概率。 根据最新季
 
 ## 正文
 
-据知情人士透露，日本央行官员可能考虑在本月的政策会议上大幅上调通胀预期，主要是为了反映油价高企的影响。
+世界气象组织6月2日发布最新报告称，多数气候模型预计，本轮厄尔尼诺至少将发展成中等强度事件，并可能进一步增强。
 
-知情人士表示，由于自美伊战争爆发以来油价已上涨约50%，日本央行委员会可能会讨论将本财年的关键通胀预测从目前的1.9%上调。
+监测数据显示，赤道中东太平洋海表温度已接近厄尔尼诺形成阈值，海面以下存在大范围异常暖水，部分区域温度较常年高出6摄氏度以上，为未来数月持续升温提供能量支持。
 
-知情人士还指出，由于中东冲突短期内不太可能明朗，官员们也可能考虑下调经济增长预期。
+世界气象组织表示，厄尔尼诺将改变全球气温和降水格局，增加热浪、干旱、暴雨和洪水等极端天气发生概率。
 
-他们表示，历史上，油价飙升往往会通过恶化贸易条件对日本经济造成拖累，因为该国依赖进口自然资源。
+根据最新季节气候展望，未来数月全球大部分地区气温将高于常年水平，南亚、非洲之角和中美洲部分地区面临降雨偏少和干旱风险。
 
-日本央行将在4月28日为期两天的会议结束时更新季度经济展望，并将同时决定是否把政策利率从0.75%上调。
-
-随着中东危机持续，以及行长植田和男周一表示冲突走向缺乏清晰性，市场对本次会议加息的预期有所降温。
-
-植田和男也没有释放任何明确支持加息的信号。
-
-此前两次日本央行加息前，他都曾提前进行过“预告”。
+(总台记者 杨春)
 
 ## 相关推荐
 
-- 2026-06-29 17:10 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-29 16:59 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 17:16 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 16:51 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-29 16:49 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 16:55 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-29 17:06 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 16:53 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-29 16:54 - [税务总局披露5起合规申报个税案例](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-29 16:51 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 17:05 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 17:05 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-29 17:11 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 17:00 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 17:08 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 17:07 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 17:14 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-29 17:21 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 16:57 - [央视曝光涉黄App诈骗陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 17:14 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 17:06 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 17:04 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 17:12 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 17:20 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:53 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/4174544878.shtml)
-- 2026-06-29 16:49 - [韩国国脚无缘上亿韩元奖金](http://www.share.kurohicncr.top/Article/details/28983670.shtml)
-- 2026-06-29 17:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/89207.shtml)
-- 2026-06-29 16:57 - [博主：美航母沦为毒品集散窝点](http://www.blog.kurohicncr.top/Article/details/5814637306.shtml)
-- 2026-06-29 17:15 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/419332.shtml)
-- 2026-06-29 16:59 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/86982199.shtml)
-- 2026-06-29 17:03 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/0662394.shtml)
-- 2026-06-29 16:55 - [挪威王储妃长子两次强奸获刑](https://www.share.minike.top/Article/details/72556285.shtml)
-- 2026-06-29 16:59 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.share.kurohicncr.top/Article/details/757219.shtml)
-- 2026-06-29 17:12 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/15558.shtml)
-- 2026-06-29 16:51 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/9471798000.shtml)
-- 2026-06-29 16:56 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/524957455371.shtml)
-- 2026-06-29 16:49 - [A股收评：科创50指数大涨4.61%](https://www.blog.minike.top/Article/details/598764124989.shtml)
-- 2026-06-29 16:56 - [业内：全球市场迎来结构性投资窗口](https://www.share.minike.top/Article/details/32835.shtml)
-- 2026-06-29 17:02 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.blog.kurohicncr.top/Article/details/3626859751.shtml)
+- 2026-06-29 17:09 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/330747.shtml)
+- 2026-06-29 17:10 - [花万元相亲对象是50元雇的演员](http://www.blog.kurohicncr.top/Article/details/076168.shtml)
+- 2026-06-29 17:19 - [波兰创该国高温纪录](http://www.blog.kurohicncr.top/Article/details/87478.shtml)
+- 2026-06-29 16:54 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.kurohicncr.top/Article/details/00417258.shtml)
+- 2026-06-29 16:54 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/15510115.shtml)
+- 2026-06-29 17:13 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/3941547.shtml)
+- 2026-06-29 17:02 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.kurohicncr.top/Article/details/04458.shtml)
+- 2026-06-29 16:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/08262111766.shtml)
+- 2026-06-29 17:23 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/537286444695.shtml)
+- 2026-06-29 17:15 - [网友飞机上偶遇肖战](https://www.share.kurohicncr.top/Article/details/454798052503.shtml)
+- 2026-06-29 17:03 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/044590.shtml)
+- 2026-06-29 16:54 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/01837036.shtml)
+- 2026-06-29 17:07 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/8955330.shtml)
+- 2026-06-29 16:58 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/613330840.shtml)
+- 2026-06-29 17:06 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/42192065.shtml)

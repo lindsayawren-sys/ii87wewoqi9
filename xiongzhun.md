@@ -1,55 +1,60 @@
-# 杭州灵隐寺发布严正声明
+# 澳门完成多边央行数字货币桥对接 11家本地银行今日“上桥”
 
-> 更新时间：2026-06-29 17:18:02 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-中新网4月15日电 据灵隐寺微信公众号消息，近期，杭州灵隐寺传戒法会相关短视频引发网络炒作。为澄清事实、避免误解，灵隐寺严正声明如下： 1.此次法会为传授二部僧三坛大戒法会，于2026年3月10日至4月10日在灵隐寺举办。 2.此次法会经中国佛教协会批准，全程严格遵循《全国汉传佛教寺院传授三坛大戒管理办法》等相关规定。 3.参加此次法会的273名戒子来自全国各地，且均通过身份审
+记者自澳门金融管理局获悉，澳门金融管理局已与“多边央行数字货币桥（mBridge）”项目成员完成系统对接，构建高效、安全、低成本的跨境资金支付结算渠道。6月2日起，11家本地银行作为首批参与机构，正式开通“上桥”交易。 这11家本地银行具体包括：农业银行澳门分行、中国银行澳门分行、建设银行澳门分行、澳门发展银行、广发银行澳门分行、工商银行（澳门）股份有限公司、澳门国际银行、大华
 
 ## 正文
 
-中新网4月15日电 据灵隐寺微信公众号消息，近期，杭州灵隐寺传戒法会相关短视频引发网络炒作。
+记者自澳门金融管理局获悉，澳门金融管理局已与“多边央行数字货币桥（mBridge）”项目成员完成系统对接，构建高效、安全、低成本的跨境资金支付结算渠道。
 
-为澄清事实、避免误解，灵隐寺严正声明如下： 1.此次法会为传授二部僧三坛大戒法会，于2026年3月10日至4月10日在灵隐寺举办。
+6月2日起，11家本地银行作为首批参与机构，正式开通“上桥”交易。
 
-2.此次法会经中国佛教协会批准，全程严格遵循《全国汉传佛教寺院传授三坛大戒管理办法》等相关规定。
+这11家本地银行具体包括：农业银行澳门分行、中国银行澳门分行、建设银行澳门分行、澳门发展银行、广发银行澳门分行、工商银行（澳门）股份有限公司、澳门国际银行、大华银行、立桥银行、交通银行澳门分行、创兴银行澳门分行。
 
-3.参加此次法会的273名戒子来自全国各地，且均通过身份审核。
+6月1日，澳门金融管理局举行了中国—葡语国家央行数字货币发展与跨境创新应用高端研讨会，以探索中国与葡语国家在央行数字货币跨境应用领域的创新合作路径，提升澳门“中国与葡语国家金融服务平台”的功能。
 
-互联网不是法外之地。
+澳门金融管理局行政管理委员会主席黄善文当日在致欢迎辞时表示，澳门正务实推进“数字澳门元”建设，助推人民币国际化并夯实中葡金融服务平台枢纽功能，持续强化“精准联系人”作用，推动中葡金融服务平台在数字金融跨境合作中发挥更重要的枢纽作用。
 
-灵隐寺呼吁广大网民不信谣、不传谣，共同维护风清气正的网络空间。
+中国人民银行副行长陆磊在致开幕辞时表示，在数字化创新不断驱动货币体系演进和支付格局变革的时代，利用法定数字货币带来新一代数字化、智能化支付升级，让资金、贸易、规则的连接更加高效和安全是中国与葡语国家的共同关切。
 
-对于恶意编造、传播不实信息而触碰法律底线的行为，该寺将追究相应法律责任。
+中国已初步建立数字人民币生态体系，数字人民币具备通用混合型货币能力、可编程智能支付能力及高效监管能力等核心优势，并于今年1月成功实施新一代计量框架，将客户持有的数字现金升级为具备价值储藏功能的数字存款货币（2.0版），这是中国在全球数字化浪潮中的创新方案。
+
+陆磊还表示，现在，中葡跨境数字金融合作迎来新篇章，由中国人民银行与香港金融管理局、澳门金融管理局、阿联酋央行和泰国央行共同建设的多边央行数字货币桥（mBridge）正稳步推进成员扩充和业务拓展，中国人民银行并构建了“数币达”（CBETS）双边跨境结算综合服务平台，支持境外机构“一点接入”、链上链下7×24直通结算。
 
 ## 相关推荐
 
-- 2026-06-29 16:56 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-29 17:11 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-29 17:14 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 17:05 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-29 17:09 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 16:57 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-29 16:49 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 17:02 - [货车司机雨中帮交警挪树获表扬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 16:58 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 17:08 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 17:16 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 16:55 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-29 17:12 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-29 17:02 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 17:18 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 17:08 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 16:55 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 17:20 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-29 17:18 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-29 17:13 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 17:20 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-29 17:16 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-29 17:22 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 17:16 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 17:16 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:16 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/984239.shtml)
-- 2026-06-29 17:03 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.kurohicncr.top/Article/details/22335.shtml)
-- 2026-06-29 17:10 - [千与千寻](http://www.share.minike.top/Article/details/373254640663.shtml)
-- 2026-06-29 16:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/69787286.shtml)
-- 2026-06-29 16:58 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/868046199007.shtml)
-- 2026-06-29 17:04 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/92619.shtml)
-- 2026-06-29 17:10 - [职业选手禁止参赛！](http://www.share.minike.top/Article/details/68755413927.shtml)
-- 2026-06-29 17:17 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.kurohicncr.top/Article/details/74648339.shtml)
-- 2026-06-29 16:55 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/032313099940.shtml)
-- 2026-06-29 17:11 - [NBA交易](https://www.share.kurohicncr.top/Article/details/808803.shtml)
-- 2026-06-29 17:01 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/5549896921.shtml)
-- 2026-06-29 17:11 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/545017130848.shtml)
-- 2026-06-29 17:06 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.minike.top/Article/details/547806363.shtml)
-- 2026-06-29 17:04 - [中方将20家日本实体列入关注名单](http://www.blog.kurohicncr.top/Article/details/4297287.shtml)
-- 2026-06-29 16:53 - [7款商保创新药“转道”](https://www.share.minike.top/Article/details/96042.shtml)
+- 2026-06-29 17:07 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/84155391.shtml)
+- 2026-06-29 17:09 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/17008699.shtml)
+- 2026-06-29 17:00 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/76380349.shtml)
+- 2026-06-29 17:20 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.kurohicncr.top/Article/details/8973796827.shtml)
+- 2026-06-29 17:13 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/087001920.shtml)
+- 2026-06-29 17:23 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/144783422299.shtml)
+- 2026-06-29 17:06 - [逃狱兄弟](https://www.blog.minike.top/Article/details/343914353206.shtml)
+- 2026-06-29 17:19 - [中央气象台发布强对流天气蓝色预警](https://www.blog.minike.top/Article/details/60396554004.shtml)
+- 2026-06-29 17:21 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/9752153902.shtml)
+- 2026-06-29 17:15 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.kurohicncr.top/Article/details/9969590581.shtml)
+- 2026-06-29 16:57 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/62627199701.shtml)
+- 2026-06-29 17:09 - [王俊凯命名方式](http://www.blog.kurohicncr.top/Article/details/58393060758.shtml)
+- 2026-06-29 17:03 - [妹妹的正确用法！](https://www.share.kurohicncr.top/Article/details/02548.shtml)
+- 2026-06-29 17:18 - [沙丘](https://www.blog.minike.top/Article/details/2845001.shtml)
+- 2026-06-29 17:06 - [1个视频看懂2026志愿填报新专业](http://www.blog.minike.top/Article/details/684364.shtml)

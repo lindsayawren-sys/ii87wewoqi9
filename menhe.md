@@ -1,51 +1,53 @@
-# 人民之心丨“不慕虚荣，不务虚功，不图虚名”
+# 福建连江养殖海鲜大量上市 填补休渔期空缺
 
-> 更新时间：2026-06-29 17:18:03 UTC+8
+> 更新时间：2026-06-29 17:24:02 UTC+8
 
 ## 摘要
 
-“党员、干部特别是领导干部要清醒认识到，自己手中的权力、所处的岗位，是党和人民赋予的，是为党和人民做事用的，只能用来为民谋利。”习近平总书记强调，各级领导干部要树立正确的权力观、政绩观、事业观，不慕虚荣，不务虚功，不图虚名，切实做到为官一任、造福一方。 制作：任佳晖 素材来源：人民日报、央视新闻
+发布时间：2026年06月01日 20:56 来源：中国新闻网 眼下，正值休渔期，市场上野捕的海鲜比较稀缺，在福建省连江县，渔民们利用塑胶渔排、网箱在海上养殖的的30多种鱼类和贝类海鲜正大量上市， 在一定程度上填补了休渔期海鲜供应的不足。 养殖户告诉记者，休渔期这段时间深海网箱养殖的鱼类销量比较好，除了供应福州本地，还卖到广东、广西等省外市场，因其口感鲜美，深受市场欢迎，批发价
 
 ## 正文
 
-“党员、干部特别是领导干部要清醒认识到，自己手中的权力、所处的岗位，是党和人民赋予的，是为党和人民做事用的，只能用来为民谋利。
+发布时间：2026年06月01日 20:56 来源：中国新闻网 眼下，正值休渔期，市场上野捕的海鲜比较稀缺，在福建省连江县，渔民们利用塑胶渔排、网箱在海上养殖的的30多种鱼类和贝类海鲜正大量上市， 在一定程度上填补了休渔期海鲜供应的不足。
 
-”习近平总书记强调，各级领导干部要树立正确的权力观、政绩观、事业观，不慕虚荣，不务虚功，不图虚名，切实做到为官一任、造福一方。
+养殖户告诉记者，休渔期这段时间深海网箱养殖的鱼类销量比较好，除了供应福州本地，还卖到广东、广西等省外市场，因其口感鲜美，深受市场欢迎，批发价格较往年来说相对实惠，为每斤20元至30元不等。
 
-制作：任佳晖 素材来源：人民日报、央视新闻
+据悉，为填补休渔期间的海味“空白”，养殖户们一般采用错峰投苗的方式，在每年三、四月份把鱼苗投放到网箱中，让鱼儿在近乎野生的海洋生态环境中成长，在休渔期可达上市标准。
+
+(吴晟炜 吴其法) 【同期】连江奇达村海鱼养殖户 吴忠 我们养的海鱼吃的都是冰冻的小杂鱼，养出来的肉质跟野生的没什么区别。
+
+现在是休渔期，野捕的海鱼比较缺少，所以说我们这种鱼比较受欢迎，我们养的品种有十几种，总数量有50万斤，在休渔期准备给它销售完成。
+
+责任编辑：【叶攀】
 
 ## 相关推荐
 
-- 2026-06-29 17:16 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 17:02 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-29 17:15 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-29 16:59 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-29 16:49 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 16:59 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-29 17:11 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 16:50 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-29 16:56 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 16:52 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-29 16:51 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 17:14 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-29 17:14 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-29 17:04 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 16:59 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 17:20 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-29 17:21 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-29 17:13 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 17:04 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-29 16:58 - [东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 16:56 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-29 17:12 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-29 17:21 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 17:09 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 17:05 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 17:15 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:06 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.share.minike.top/Article/details/9788521257.shtml)
-- 2026-06-29 17:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/62292703559.shtml)
-- 2026-06-29 17:05 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/474905815.shtml)
-- 2026-06-29 16:57 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.share.kurohicncr.top/Article/details/60934.shtml)
-- 2026-06-29 17:15 - [韩国国脚无缘上亿韩元奖金](http://www.share.kurohicncr.top/Article/details/911869.shtml)
-- 2026-06-29 17:04 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/183278144041.shtml)
-- 2026-06-29 16:52 - [南昌市委书记调整](http://www.blog.kurohicncr.top/Article/details/562850.shtml)
-- 2026-06-29 16:48 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/654994.shtml)
-- 2026-06-29 16:55 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/09790214552.shtml)
-- 2026-06-29 16:54 - [毒液2](http://www.blog.kurohicncr.top/Article/details/7876260.shtml)
-- 2026-06-29 16:54 - [港股爆发 美团百度阿里等集体大涨](https://www.share.kurohicncr.top/Article/details/108075.shtml)
-- 2026-06-29 17:06 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.kurohicncr.top/Article/details/6751543.shtml)
-- 2026-06-29 17:07 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.minike.top/Article/details/53764.shtml)
-- 2026-06-29 16:52 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/1247279.shtml)
-- 2026-06-29 17:05 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/17867337111.shtml)
+- 2026-06-29 17:06 - [千与千寻](http://www.share.minike.top/Article/details/5410764716.shtml)
+- 2026-06-29 17:07 - [扬名立万](https://www.share.minike.top/Article/details/55528834.shtml)
+- 2026-06-29 17:19 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.minike.top/Article/details/73102876703.shtml)
+- 2026-06-29 16:55 - [德云色预测世界杯16强](https://www.share.kurohicncr.top/Article/details/775923.shtml)
+- 2026-06-29 17:21 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/13957359.shtml)
+- 2026-06-29 16:56 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/58331098981.shtml)
+- 2026-06-29 17:23 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.blog.minike.top/Article/details/63192.shtml)
+- 2026-06-29 17:18 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/55100603.shtml)
+- 2026-06-29 17:07 - [朱必达辞去湖南人大常委会委员职务](https://www.share.minike.top/Article/details/0992288669.shtml)
+- 2026-06-29 17:13 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/03793.shtml)
+- 2026-06-29 17:21 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/1849528767.shtml)
+- 2026-06-29 17:15 - [欧洲多国高温突破40摄氏度](https://www.blog.minike.top/Article/details/803468979.shtml)
+- 2026-06-29 17:18 - [恋与深空发放补偿未得到玩家认可](https://www.share.minike.top/Article/details/26501086.shtml)
+- 2026-06-29 16:59 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/3544254.shtml)
+- 2026-06-29 17:11 - [波兰创该国高温纪录](http://www.share.minike.top/Article/details/56534.shtml)
